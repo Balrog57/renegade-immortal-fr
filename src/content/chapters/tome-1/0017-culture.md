@@ -20,15 +20,15 @@ Après cette démonstration de force, Sun Dazhu lança un regard glacial à Wang
 
 Les pupilles de Wang Lin se contractèrent, terrifié. Serrant fermement son sac de rangement, il entra dans sa chambre. La pièce était exiguë et ne contenait qu'un lit, mais cela n'importait guère à Wang Lin. Assis sur le lit, il commença à examiner le sac.
 
-La petite bourse grise ne semblait pas extraordinaire. Wang Lin la retourna au-dessus du sol, et plusieurs objets en tombèrent: un ensemble de vêtements rouges et un petit livret.
+La petite bourse grise ne semblait pas extraordinaire. Wang Lin la retourna au-dessus du sol, et plusieurs objets en tombèrent: un vêtement rouge de disciple interne et un petit livret.
 
 Le visage de Wang Lin s'illumina. Il saisit le livret et l'ouvrit avec enthousiasme. Sur la première page était inscrit: « Les trois étapes de la Condensation de Qi ».
 
-Il lut jusqu'à minuit à la lueur de la lampe à huile. En refermant l'ouvrage, il sentit qu'il avait acquis une meilleure compréhension de la culture. Ce livret détaillait les trois premières étapes de la Condensation de Qi, considérées comme les plus fondamentales. Il y était mentionné qu'il existait au total quinze étapes de Condensation de Qi, et que ce n'est qu'après avoir atteint la troisième étape que l'on pouvait accéder aux méthodes des niveaux supérieurs.
+Il lut tard dans la nuit à la lueur de la lampe à huile. En refermant l'ouvrage, il sentit qu'il avait acquis un début de compréhension de la culture. Ce livret détaillait les trois premières étapes de la Condensation de Qi, considérées comme les plus fondamentales. Il y était mentionné qu'il existait au total quinze étapes de Condensation de Qi, et que ce n'est qu'après avoir atteint la troisième étape que l'on pouvait accéder aux méthodes des niveaux supérieurs.
 
-La prétendue Condensation de Qi consistait à absorber l'énergie spirituelle du ciel et de la terre pour transformer le corps et bâtir les fondations de l'avenir.
+La Condensation de Qi consistait à absorber l'énergie spirituelle du ciel et de la terre pour transformer le corps et bâtir les fondations de l'avenir.
 
-C'était également un test de talent naturel. Plus l'individu était doué, plus il pouvait absorber rapidement l'énergie spirituelle en lui. Naturellement, sa vitesse de culture serait fulgurante; cependant, si le talent d'un homme était médiocre, il se pourrait qu'il n'atteigne jamais la troisième étape de sa vie. Certains ne parviennent même pas à franchir la première.
+C'était également un test de talent naturel. Plus l'individu était doué, plus il pouvait absorber rapidement l'énergie spirituelle en lui. Naturellement, sa vitesse de culture serait fulgurante; cependant, si le talent d'un homme était médiocre, il risquait fort de ne jamais atteindre la troisième étape de sa vie. Certains ne parviennent même pas à franchir la première.
 
 Le livret des « Trois étapes de Condensation de Qi » devint le trésor de Wang Lin. Il mémorisa immédiatement la méthode des trois premières couches. Assis en tailleur, les yeux clos, il commença à respirer selon la technique de « une longue inspiration pour trois courtes » décrite dans l'ouvrage. Une longue inspiration consistait à prendre une grande bouffée d'air, tandis que les trois courtes étaient des expirations ne durant qu'un tiers de la durée de l'inspiration. Cette méthode de respiration inhabituelle permettait d'absorber rapidement l'énergie spirituelle dans le corps.
 
@@ -42,9 +42,9 @@ Pourtant, il ne se découragea pas. Après quelques respirations, il reprit la t
 
 La nuit passa lentement. À l'aube, Wang Lin n'avait toujours pas réussi à ressentir l'énergie spirituelle pénétrer son corps. La tête lui tournait à cause de cette nuit blanche alors qu'il se levait pour ouvrir la porte et sortir.
 
-Dehors, une brise légère portait des effluves médicinales. Il prit quelques inspirations profondes, sans toutefois parvenir à dissiper sa fatigue. Il regrettait la gourde remplie d'eau de source; s'il pouvait en boire un peu, il ne serait pas aussi épuisé.
+Dehors, une brise légère portait des effluves médicinales. Il prit quelques inspirations profondes, et sa fatigue s'allégea un peu. Il regrettait la gourde remplie d'eau de source; s'il pouvait en boire un peu, il ne serait pas aussi épuisé.
 
-Mais ce n'était pas le moment d'agir avec précipitation. Il était très confiant quant à l'endroit où il avait caché la perle de pierre et les gourdes. Il avait parcouru la moitié de la montagne pour trouver un lieu isolé; même s'ils tombaient sur cet endroit, ils ne trouveraient pas son trésor.
+Mais ce n'était pas le moment d'agir avec précipitation. Il était très confiant quant à l'endroit où il avait caché la perle de pierre et les gourdes. Il avait parcouru plus de la moitié de la montagne pour trouver un lieu isolé; même s'ils tombaient sur cet endroit, ils ne trouveraient pas son trésor.
 
 Il déambula dans le jardin d'herbes médicinales jusqu'à trouver un endroit dégagé. Wang Lin s'y assit et commença à cultiver. Après un moment, il sentit très faiblement comme des fourmis ramper dans son corps. Il fut stupéfait, puis ravi. Juste au moment où il allait poursuivre, son maître hurla: « Wang Lin, que fais-tu? Sors de là immédiatement! Je te préviens: ne cultive jamais dans le jardin d'herbes! »
 

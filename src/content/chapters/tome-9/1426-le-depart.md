@@ -12,7 +12,7 @@ Cette bataille n'avait mené à aucun résultat. C'était inattendu pour tous le
 
 Quoi qu'il en soit, cela n'entraverait en rien l'ascension de la réputation de Wang Lin dans les Terres Déchues! Aux yeux des dizaines de milliers de cultivateurs présents, le simple déroulement du combat suffisait à faire de Wang Lin quelqu'un capable de rivaliser avec un cultivateur du troisième niveau!
 
-La sélection des Anciens des Terres Déchues, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
+La Sélection des Anciens Délaissés, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
 
 Dans les Terres Déchues, la planète abandonnée où se trouvaient Liu Jinbiao et Xu Liguo avait été minutieusement fouillée par les membres du Clan des Moineaux de Feu.
 
@@ -44,7 +44,7 @@ L'ancêtre recueillit ce sang et le condensa en une sphère. Après l'avoir sent
 
 Lorsque le sang atteignit son estomac, il se mua en une puissante force de feu qui explosa à l'intérieur de son corps. Une illusion apparut immédiatement derrière l'ancêtre du Clan des Moineaux de Feu.
 
-Un oiseau de feu colossal déploya ses ailes, et devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après une brève lutte, l'oiseau de feu dévora l'Oiseau Vermillon.
+Un oiseau de feu déploya ses ailes et poussa un long cri; devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après une brève lutte, l'oiseau de feu dévora l'Oiseau Vermillon.
 
 Une fois sa proie consommée, les flammes entourant l'oiseau de feu jaillirent et il commença à se métamorphoser, devenant de plus en plus semblable à l'Oiseau Vermillon originel.
 
@@ -108,7 +108,11 @@ Wang Lin regarda l'Ancien, attendant la suite.
 
 Wang Lin fronça les sourcils, perplexe. Après réflexion, il hocha la tête: « Ancêtre, soyez sans crainte. Lorsque le Junior choisira le septième Oiseau Vermillon, je veillerai scrupuleusement à ce que l'incident avec le troisième ne se reproduise pas! »
 
-« Ce vieil homme ne voulait pas dire ça... » L'Ancien se frotta les mains en serrant les dents. « Je veux dire que lorsque tu choisiras le septième, il ne doit pas être un individu trop volage. Hélas, pourquoi ne comprends-tu rien? Ta compréhension n'est-elle pas censée être élevée? Dois-je vraiment tout te dire explicitement... Très bien, choisis plutôt un enfant pour le septième Oiseau Vermillon, afin d'éviter que son Yang de l'âme originelle ne soit brisé, ce qui l'empêcherait de pratiquer la méthode de culture de ce vieil homme! Voilà, choisis un enfant, et la prochaine fois que tu viendras, amène-le ici! »
+« Ce vieil homme ne voulait pas dire ça... » L'Ancien se frotta les mains en serrant les dents. « Je veux dire que lorsque tu choisiras le septième, il ne doit pas être un individu trop volage. Hélas, pourquoi ne comprends-tu rien? Ta compréhension n'est-elle pas censée être élevée? »
+
+Wang Lin resta perplexe un instant, puis hocha la tête: « Bien, ce Junior ne choisira jamais un homme volage pour le septième Oiseau Vermillon, car trop convoiter la beauté ne profite pas à la culture. »
+
+« Ce n'est pas qu'il ne faille pas aimer la beauté, mais qu'il ne faut pas s'y attacher le moins du monde, ni même y toucher! Dois-je vraiment tout te dire explicitement... Ce qu'il me faut, c'est une volonté hors du commun. Très bien, choisis plutôt un enfant pour le septième Oiseau Vermillon, afin d'éviter que son Yang de l'âme originelle ne soit brisé, ce qui l'empêcherait de pratiquer la méthode de culture de ce vieil homme! Voilà, choisis un enfant, et la prochaine fois que tu viendras, amène-le ici! »
 
 « Et n'oublie pas de vérifier que son Yang d'âme originelle est intact! Ce n'est pas que je te réprimande, mais regarde-toi. Tu es si jeune, et pourtant tu n'as même pas autant de maîtrise de toi que moi. Sache qu'au fil des âges innombrables, pas un fragment du Yang de mon âme originelle ne s'est dissipé. Je ne comprends vraiment pas les juniors comme vous; qu'y a-t-il de si enviable dans la double culture? Ce vieil homme n'a jamais pratiqué la double culture avec personne, et pourtant je déborde d'énergie chaque jour, sans même parler du bonheur que cela procure! »
 

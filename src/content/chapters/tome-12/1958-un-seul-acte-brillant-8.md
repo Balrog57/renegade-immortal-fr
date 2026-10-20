@@ -32,7 +32,7 @@ Alors que les deux discutaient par sens divin, dans le ciel, Wang Lin prit une p
 
 Seules les quelques personnes observant l'Épreuve Empyrée depuis l'extérieur avaient des pensées différentes. L'homme d'âge mûr de la Secte Yang Pourpre regarda amèrement le miroir et poussa un profond soupir.
 
-« Ah, comment a-t-il pu franchir le onzième palais... Le onzième est une chose, mais il ne pourra pas passer le douzième... Une fois qu'il aura percé, que pourrai-je utiliser pour le recruter... »
+« Ah, comment a-t-il pu franchir le onzième palais... Le onzième est une chose, mais j'espère qu'il ne franchira pas le douzième... Une fois qu'il aura percé, que pourrai-je utiliser pour le recruter... »
 
 « Je crains qu'il ne soit immédiatement attiré par l'Empereur Céleste et le Grand Empyréen Jiu Di. Même les Grands Empyréens Dao Yi et Wu Feng auraient du mal à rivaliser avec ces deux-là... »
 

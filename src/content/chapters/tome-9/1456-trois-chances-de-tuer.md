@@ -28,17 +28,17 @@ Wang Lin atterrit dans la paume, ses yeux brillant d'une lueur mystérieuse. Il 
 
 Grande Désolation n'était pas un cultivateur ordinaire. Après avoir été réveillé par Wang Lin, il avait remarqué la différence. Ce bras ne descendait pas verticalement; il était incliné sur le côté.
 
-« Si le Senior stimulait ce bras étrange, celui-ci refermerait immédiatement sa main. À ce moment-là, je crains qu'il ne nous soit difficile de nous échapper... » Wang Lin recula de quelques pas avec désinvolture. Sa main droite, qui frottait ses sourcils, redescendit tandis qu'il continuait de reculer.
+« Si le Senior stimulait ce bras étrange, celui-ci refermerait immédiatement sa main. À ce moment-là, je crains qu'il ne nous soit difficile de nous échapper... » Wang Lin recula de quelques pas avec désinvolture. Sa main droite, qui frottait ses sourcils, redescendit tandis qu'il reculait encore de plusieurs dizaines de pieds.
 
 « Que veux-tu dire? » Le visage de Grande Désolation se déforma, et les traits hideux de son corps originel commencèrent à apparaître sur l'avatar du Maître Dao Miao Yin.
 
-La grande main ne se referma pas complètement, laissant une vaste zone de terrain libre. Wang Lin recula jusqu'à une distance de 1 000 pieds de Grande Désolation et rangea ses propres plateformes ainsi que celles de Miao Yin. Bien que son visage fût pâle, ses yeux brillaient d'un éclat vif.
+La grande main ne se referma pas complètement, laissant une vaste zone libre, comparable à un petit continent. Wang Lin recula jusqu'à une distance de 1 000 pieds de Grande Désolation et rangea ses propres plateformes ainsi que celles de Miao Yin. Bien que son visage fût pâle, ses yeux brillaient d'un éclat vif.
 
 Wang Lin dit lentement: « Ce junior a observé la trajectoire de cette main géante et en a déduit une hypothèse. Si je me trompe, nous pourrons travailler ensemble pour trouver un moyen de nous libérer, il ne sera pas trop tard... Cependant, si j'ai raison, l'apparition de cette main pourrait ne pas être une mauvaise chose pour nous! »
 
 Wang Lin leva la main et ajouta: « Si elle avait vraiment pour but de nous capturer tous les deux, ce bras descendrait droit! »
 
-« Or, il est évident qu'il est incliné. Cela signifie que cela ne peut être que... » La main droite de Wang Lin descendit en diagonale jusqu'à atteindre un certain angle. Puis, son geste fut brusque et une lumière sanglante émana de son corps.
+« Or, il est évident qu'il est incliné. Cela signifie que cela ne peut être que... » La main droite de Wang Lin descendit en diagonale jusqu'à atteindre un certain angle. Puis, sa main jaillit brusquement vers l'avant, et une lumière sanglante émana de son corps.
 
 « Comme ceci! »
 
@@ -66,9 +66,9 @@ La force puissante du bras les propulsa avec une célérité dépassant celle de
 
 Cette vitesse était excessive. Si Wang Lin n'avait pas possédé le corps d'un Dieu Ancien, son être aurait été broyé par la brume environnante! Bien que la brume fût informe, une fois qu'une certaine limite de vitesse est atteinte, cette substance insaisissable devient la chose la plus dure au monde!
 
-Des craquements retentirent dans son corps et du sang jaillit. Cependant, il perça la brume en un éclair pour être projeté dans les profondeurs de l'Ancien Tombeau. Wang Lin s'était déjà préparé à cela: au moment où le bras le projeta, il fut comme une flèche décochée d'un arc. Son énergie originelle forma des couches de défense autour de lui et son Bouclier de Lumière et d'Ombre apparut.
+Des craquements retentirent dans son corps et du sang jaillit. Cependant, il perça la brume en un éclair pour être projeté dans les profondeurs de l'Ancien Tombeau. Wang Lin s'était déjà préparé à cela: au moment où le bras le projeta, son corps, tel un arc tendu, se détendit brusquement. Son énergie originelle forma des couches de défense autour de lui et son Bouclier de Lumière et d'Ombre apparut.
 
-Lorsqu'il fut projeté, il frappa violemment la paume du pied droit. Il avait emprunté la force de la projection, qu'il combina à sa propre force de rebond, afin de se déplacer plus vite que Grande Désolation! Il dépassa ce dernier et disparut le premier dans la brume.
+Lorsqu'il fut projeté, il frappa violemment la paume de la main géante du pied droit. Il avait emprunté la force de la projection, qu'il combina à sa propre force de rebond, afin de se déplacer presque moitié plus vite que Grande Désolation! Il dépassa ce dernier et disparut le premier dans la brume.
 
 Si Wang Lin n'avait pas maîtrisé la loi de la force de la Tortue Noire, il n'aurait jamais osé une telle manœuvre. S'il n'avait pas pu contrôler la force de rebond, cela aurait détruit son corps!
 
@@ -80,7 +80,7 @@ N'ayant pas le temps d'analyser la situation plus en détail, Wang Lin s'était 
 
 Grande Désolation était également extrêmement rapide. Il volait tel une météorite après avoir été projeté par le bras. En voyant Wang Lin s'élancer encore plus vite que lui, ses yeux s'illuminèrent. Sa main droite, qui avait déjà formé un sceau, se desserra lentement.
 
-« Cet homme est extrêmement prudent et d'une ruse sans pareille... J'ai voulu le tuer à trois reprises, mais il a déjoué chacun de mes plans... Je comptais profiter du moment où nous étions projetés pour l'empoisonner, mais il m'a démasqué et a utilisé la force de l'impact pour s'échapper! » Grande Désolation était sombre alors qu'il disparaissait dans la brume.
+« Cet homme est extrêmement prudent et d'une ruse sans pareille... J'ai voulu le tuer à trois reprises, mais il a déjoué chacun de mes plans... Je comptais profiter de sa faiblesse au moment où nous étions projetés pour l'empoisonner, mais il m'a démasqué et a utilisé la force de l'impact pour s'échapper! » Grande Désolation était sombre alors qu'il disparaissait dans la brume.
 
 Wang Lin se déplaçait à une vitesse fulgurante tandis que la brume lui fouettait le visage. Le Bouclier de Lumière et d'Ombre qui l'entourait s'effondrait et se reformait sans cesse. Les couches de restrictions qu'il avait placées se désintégraient une à une. La force qui poussait son corps dura plus d'une demi-heure avant de commencer à se dissiper.
 
@@ -100,7 +100,7 @@ Après les avoir extraites, il les fusionna avec la plateforme de rang 4. Des gr
 
 De loin, cette plateforme de 50 000 pieds était immense et impressionnante!
 
-La plateforme de Miao Yin était déjà très proche du rang 4; en y ajoutant les runes de Wang Lin et celles d'une centaine de cultivateurs, elle avait atteint le rang 5!
+La plateforme de Miao Yin était déjà très proche du rang 4; en y ajoutant les quelque cent runes de Wang Lin, elle avait atteint le rang 5!
 
 Assis sur la plateforme, Wang Lin sentit cette entité semblable à un Sens Divin pénétrer son esprit. Ayant déjà vécu cela, il ne fut pas surpris. Après une observation attentive, deux nouvelles zones s'ouvrirent sur la carte mentale!
 
@@ -112,7 +112,7 @@ Une fois qu'il eut localisé sa position, les yeux de Wang Lin se plissèrent!
 
 En seulement trente minutes après avoir été projeté par le bras, Wang Lin avait traversé trois cartes. Il avait même franchi la quatrième pour arriver près des limites de la cinquième!
 
-Cet endroit était la partie intérieure de l'Ancien Tombeau!
+Il avait complètement quitté les abords extérieurs de l'Ancien Tombeau: cet endroit en était la partie intérieure!
 
 Non loin de lui, sur la cinquième carte, une forme de feuille marquait une forêt... Wang Lin connaissait cette forêt: c'était là que Cupidité avait obtenu la Feuille Ancienne!
 

@@ -94,7 +94,7 @@ Li Yuanfeng avait été poussé au stade de la Transformation de l'Âme par la f
 
 On pouvait ainsi mesurer la valeur d'un tel cultivateur.
 
-Après tout, les vieux monstres Ascendants restaient toujours en culture fermée et leur nombre était bien trop restreint. Par conséquent, les cultivateurs de la Transformation de l'Âme constituent la véritable colonne vertébrale de toute puissance.
+Après tout, les vieux monstres Ascendants restaient toujours en culture fermée et leur nombre était bien trop restreint. Par conséquent, les cultivateurs de la Transformation de l'Âme constituent la véritable colonne vertébrale d'une planète de culture.
 
 Si l'on transposait cela au monde des arts martiaux mortels, ils seraient les experts de premier rang admirés par tous.
 
@@ -136,7 +136,7 @@ Le corps de Wan Er trembla...
 
 Elle ressentit les lèvres de Wang Lin et sa chaleur. Cette chaleur portait en elle une joie indélébile, un appel silencieux et un sentiment de protection qui ne s'éteindrait jamais.
 
-L'amour est comme un fleuve; la rive gauche est le rire joyeux capable d'illuminer mille ans de tristesse, et la rive droite est un silence éternel qui persiste sous la lueur des bougies. Ce qui coule entre les deux, ce sont les années de solitude qui s'estompent.
+L'amour est comme un fleuve; la rive gauche est le rire joyeux qui vacille pendant mille ans, et la rive droite est un silence éternel qui persiste sous la lueur des bougies. Ce qui coule entre les deux, ce sont les années de solitude qui s'estompent.
 
 Wang Lin se détourna et quitta la Perle Défiant le Ciel. Bien qu'il en soit sorti physiquement, son cœur y demeurait pour l'éternité.
 

@@ -20,7 +20,7 @@ Du Tian l'examina de plus près, puis son expression changea radicalement et il 
 
 Il serra les dents et leva la main. Il s'apprêtait à presser sa paume sur le front de Wang Lin pour l'aider à lutter contre la possession; cependant, juste au moment où il allait agir, Wang Lin ouvrit les yeux. Son regard était désormais limpide et ne contenait plus aucune trace de l'arrogance de tout à l'heure.
 
-Wang Lin dit d'une voix faible: « Aîné, arrêtez. »
+Wang Lin dit d'une voix faible: « Senior, arrêtez. »
 
 Du Tian fixa Wang Lin et demanda d'un ton grave: « Que s'est-il passé exactement? »
 
@@ -52,7 +52,7 @@ La réponse de Situ Nan fut: « Parce que je suis Situ Nan! »
 
 « Tout à l'heure, tu as failli ruiner mon plan en réclamant cette quatrième âme, petit morveux. Si ce petit moineau avait réussi à me percer à jour, ce vieil homme aurait dû retourner dormir juste après son réveil! Quant à cette quatrième âme, une fois que j'aurai trouvé un corps et récupéré ma culture, je me frayerai un chemin jusqu'au Mont Suzaku pour la reprendre de force! » Situ Nan lança un regard noir à Du Tian.
 
-Cela faisait plus de mille ans que Du Tian n'avait pas été traité de « petit morveux ». Il ne put que sourire avec prudence et demander: « Quel est votre nom, Aîné…? »
+Cela faisait plus de mille ans que Du Tian n'avait pas été traité de « petit morveux ». Il ne put que sourire avec prudence et demander: « Quel est votre nom, Senior…? »
 
 Situ Nan leva la tête et déclara avec arrogance: « Wang Lin, dis à ce petit morveux qui je suis! »
 
@@ -66,7 +66,7 @@ Le corps de Du Tian trembla et il recula en titubant, les yeux écarquillés par
 
 La renommée de la deuxième génération de Suzaku était immense; à certains égards, elle surpassait même celle du premier.
 
-Peu après, Du Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le cadet Du Tian, de la Secte de l'Affinement de l'Âme, salue l'Aîné. »
+Peu après, Du Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le junior Du Tian, de la Secte de l'Affinement de l'Âme, salue le Senior. »
 
 Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang Lin et que tu lui remets le drapeau des âmes d'un milliard, ce vieil homme te promet que, si l'occasion se présente, j'aiderai à ressusciter la Secte de l'Affinement de l'Âme! » Situ Nan se remémora le passé. Si ce n'avait été pour son ami de la Secte de l'Affinement de l'Âme, il n'aurait même pas eu le temps de s'échapper dans la perle défiant le ciel lors de la bataille contre les cultivateurs étrangers.
 
@@ -130,7 +130,7 @@ Wang Lin regarda Situ Nan et murmura: « Situ. »
 
 Situ Nan réfléchit. En vérité, il avait déjà deviné que la perle défiant le ciel était un trésor extrêmement rare, probablement au-delà d'un trésor céleste.
 
-Mais bien qu'il fût un homme tyrannique et arrogant, il accordait une immense valeur à la gratitude. Le premier Suzaku lui avait témoigné de la bonté, et c'est pour cela qu'il avait renoncé à quitter la planète pour rester protéger le pays de Suzaku.
+Mais bien qu'il fût un homme tyrannique et arrogant, il accordait une immense valeur à la gratitude. Le premier Suzaku lui avait témoigné de la bonté, et c'est pour cela qu'il avait renoncé à quitter la planète pour protéger le pays de Suzaku.
 
 Sa relation avec Wang Lin était complexe, mais cela n'avait fait que les rapprocher. Il avait pratiquement vu Wang Lin grandir en tant que cultivateur; pour lui, Wang Lin était comme son propre disciple!
 

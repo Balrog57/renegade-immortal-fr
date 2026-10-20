@@ -16,7 +16,7 @@ slug: bas-fonds
 
 La propagande de Li Shan séduisit nombre de disciples de la secte intérieure, surtout lorsqu'il évoqua l'usage contre les rivaux amoureux. Cela résonna profondément chez certains d'entre eux. Cet objet était véritablement un outil de premier choix pour se débarrasser des concurrents en amour.
 
-Le regard de Li Shan se tourna vers Wang Lin, au loin. Il savait que ce dernier était considéré comme un rebut au sein de la Secte Heng Yue. Les gens de sa trempe étaient les clients idéaux pour Li Shan. Il avait déjà liquidé tous les moins-que-rien de la Secte Xuan Dao; ainsi, en voyant Wang Lin, il poursuivit avec enthousiasme:
+Le regard de Li Shan se tourna vers Wang Lin, au loin. Il savait que ce dernier était considéré comme un rebut au sein de la Secte Heng Yue. Les gens de sa trempe étaient les clients idéaux pour Li Shan. Il avait déjà plumé tous les moins-que-rien de la Secte Xuan Dao; ainsi, en voyant Wang Lin, il poursuivit avec enthousiasme:
 
 « Cette bombe est particulièrement utile pour les frères ayant une culture inférieure. Avec cette bombe fétide à portée de main, qui oserait encore vous intimider? Si quelqu'un ose vous malmener, lancez-lui une bombe! Moi, Li Shan, je vous le promets: vous pourrez marcher la tête haute dans la secte sans que personne n'ose plus vous importuner. »
 
@@ -36,7 +36,7 @@ Sun Hao l'observa longuement sans rien trouver de spécial. Il lança finalement
 
 Dans un fracas, la bombe fétide explosa, noircissant le sol et libérant une odeur nauséabonde.
 
-Les yeux de Wang Lin s'illuminèrent. Personne ne savait que son Sens Divin couvrait toute la zone. Lors de l'explosion, il avait détecté une fluctuation de puissance spirituelle émanant de Li Shan. C'en était de même lors du premier lancer. Wang Lin eut un sourire intérieur, mais ne le signala pas et continua d'observer.
+Les yeux de Wang Lin brillèrent. Personne ne savait que son Sens Divin couvrait toute la zone. Lors de l'explosion, il avait détecté une fluctuation de puissance spirituelle émanant de Li Shan. C'en était de même lors du premier lancer. Wang Lin eut un sourire intérieur, mais ne le signala pas et continua d'observer.
 
 Li Shan déclara en souriant: « Alors, qu'en dites-vous? Ces bombes fétides sont vraiment puissantes, n'est-ce pas? Mais moi, Li Shan, suis un homme honnête, alors je vais vous dire la vérité: ce trésor n'explose pas systématiquement. Pour le faire exploser, il faut une certaine technique de lancer. Une fois que vous les aurez achetées, vous comprendrez par vous-mêmes, alors ne venez pas dire que je vous ai trompés quand elles n'exploseront pas! »
 
@@ -48,7 +48,7 @@ Une fois la première transaction et le test effectués, d'autres disciples de l
 
 En disant cela, Li Shan riait intérieurement: « Vous allez essayer plusieurs fois et échouer, puis vous en essaierez une autre qui réussira après un ou deux lancers. Je ne serai là que quelques jours; le temps que vous soupçonniez ma supercherie, je serai déjà loin! »
 
-Cependant, de nombreux disciples restaient prudents et n'achetaient rien.
+Cependant, quelques disciples restaient prudents et n'achetaient rien.
 
 Après un moment, il ne restait plus que quelques bombes. Li Shan regarda avec fierté les disciples de la Secte Heng Yue en pensant: *« Bande d'idiots. Humph, si vous ne les utilisez pas lors de la compétition dans trois jours, vous aurez simplement été arnaqués par moi; mais si vous les utilisez, le spectacle sera mémorable. Ces bombes fétides sont entièrement sous mon contrôle. Personne d'autre ne pourrait les faire exploser, même en les frappant avec un poinçon! J'ai hâte d'être à la compétition dans trois jours. »*
 

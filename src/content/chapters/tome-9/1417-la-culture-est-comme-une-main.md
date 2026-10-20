@@ -44,7 +44,7 @@ Wang Lin agita la main droite et une faille vers son espace de stockage apparut.
 
 Treizième respiration!
 
-Sa voix devint de plus en plus forte, jusqu'à devenir fracassante. Dès qu'il eut parlé, Wang Lin agita la main vers le vide devant lui.
+Sa voix devint de plus en plus forte, jusqu'à devenir fracassante. Dès qu'il eut parlé, Wang Lin déchira le vide devant lui d'un geste de la main.
 
 Le monde trembla et commença à tourbillonner. Une gigantesque faille spatiale de 10 000 pieds de long s'ouvrit. Des rugissements incessants émanèrent de la brèche, où l'on pouvait apercevoir les corps colossaux de plusieurs anciens dragons du tonnerre s'agitant à l'intérieur.
 
@@ -80,7 +80,7 @@ Dans l'Épreuve Céleste, après la quinzième respiration, la paume située sou
 
 La paume se referma en un poing tandis que le feu rugissait. Wang Lin n'eut même pas le temps de poser sa troisième question avant que la pression des cinq doigts ne s'abatte sur lui.
 
-Une force mystérieuse descendit, rendant toute fuite impossible pour Wang Lin. Voyant les cinq doigts s'abaisser, Wang Lin poussa un rugissement et des craquements sinistres résonnèrent dans son corps. Les cinq doigts pressèrent ses bras.
+Une force mystérieuse descendit, rendant toute fuite impossible pour Wang Lin. Voyant les cinq doigts s'abaisser, Wang Lin poussa un rugissement, leva les deux bras, et des craquements sinistres résonnèrent dans son corps. Les cinq doigts pressèrent ses bras.
 
 Il eut l'impression que son corps entier allait se désintégrer. Le visage de Wang Lin devint féroce alors qu'il poussait un cri de rage; la moitié inférieure de son corps s'effondra sous cette force colossale.
 
@@ -102,13 +102,13 @@ Le feu aux neuf couleurs entre ses sourcils étincela, et des Flammes Éthérée
 
 Aussitôt ces mots prononcés, une flamme monstrueuse s'alluma dans les yeux du premier Oiseau Vermillon alors qu'il fixait Wang Lin qui luttait, scrutant attentivement son expression.
 
-En entendant cela, Wang Lin fut momentanément stupéfait par la lutte, puis il laissa échapper un rire furieux.
+En entendant cela, Wang Lin, malgré sa lutte, resta un instant interdit, puis laissa échapper un rire furieux.
 
 « Puisque tu refuses de me dire la vérité, alors cet Oiseau Vermillon t'offrira la mort! » Les yeux du premier Oiseau Vermillon brillèrent d'une lueur singulière tandis qu'il fixait Wang Lin à l'intérieur de son poing. Ses Flammes Éthérées se précipitèrent vers le centre de sa paume pour pénétrer l'Oiseau Vermillon de Wang Lin.
 
 Au moment où les Flammes Éthérées entrèrent en contact avec l'âme de Wang Lin, des images défilèrent avec clarté: la cinquième génération d'Oiseau Vermillon apposant sa marque sur lui; ses premier, deuxième et troisième éveils.
 
-Le premier Oiseau Vermillon ne se contenta pas d'examiner ces souvenirs une fois, mais les revit sans cesse, les analysant des milliers de fois avec minutie. Finalement, il poussa un profond soupir et la lueur mystérieuse dans ses yeux s'estompa, laissant place à une trace de bonté rarement vue.
+Le premier Oiseau Vermillon ne se contenta pas d'examiner ces souvenirs une fois, mais les revit sans cesse, les analysant des milliers de fois avec minutie. Finalement, il poussa un profond soupir et la lueur mystérieuse dans ses yeux s'estompa, laissant place à une trace de bonté jamais vue jusqu'alors.
 
 Son poing se desserra lentement.
 

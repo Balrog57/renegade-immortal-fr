@@ -87,7 +87,7 @@ Wang Lin regarda Zhou Ru. Il l'avait vue grandir, tout comme Da Niu. Il frappa s
 
 Wang Lin agita sa main droite et une abondance de fruits de la lune remplit l'intérieur de la pagode. Une fois que Zhou Ru et Petit Blanc furent entrés, Wang Lin leva les yeux vers le ciel. Un point noir grandissait lentement jusqu'à ce qu'il s'agisse de la bête moustique.
 
-Elle poussa un rugissement et atterrit devant Wang Lin, l'œil pétillant de joie. Sa grande gueule lécha Wang Lin de toutes parts; elle semblait l'avoir énormément regretté.
+Elle poussa un rugissement et atterrit devant Wang Lin, l'œil pétillant de joie. Sa grande trompe se frotta contre Wang Lin de toutes parts; elle semblait l'avoir énormément regretté.
 
 « Allons-y, nous rentrons à la maison! » Wang Lin tapota la bête avant de grimper sur son dos. La bête moustique rugit et s'élança dans les cieux.
 
@@ -99,6 +99,6 @@ La lune n'étant pas loin de la planète Suzaku, il ne fallut qu'un demi-mois po
 
 « Qu'est-ce que c'est que ça? » Wang Lin fronça les sourcils en scannant la planète. Il percevait une aura puissante émanant de là, provenant d'une plante gigantesque faite de brouillard noir.
 
-« C'est… le Clan des Immortels Délaissés! » Les yeux de Wang Lin devinrent glacials alors qu'il fondait sur la planète Suzaku tel un météore.
+« C'est… le Clan de l'Immortel Délaissé! » Les yeux de Wang Lin devinrent glacials alors qu'il fondait sur la planète Suzaku tel un météore.
 
 Perçant l'atmosphère planétaire, la boussole des étoiles descendit à une vitesse fulgurante. Il aperçut au loin une dizaine de cultivateurs engagés dans des combats à mort, et il en reconnut un parmi eux.

@@ -44,7 +44,7 @@ Son visage vieillissait rapidement, mais dès qu'il atteignait une limite d'âge
 
 Le Shui Daozi subissait cette agonie depuis 10 ans!
 
-« Petit bâtard, je vais te faire payer la douleur que ce vieil homme endure par dix mille fois plus encore!!!! De plus, Maître, même si vous n'êtes pas mort, vous devez être extrêmement faible. Sinon, je n'aurais pas pu m'échapper il y a 10 ans! » L'expression du Shui Daozi était féroce, mais bientôt, il se remit à hurler de douleur.
+« Petit bâtard, je vais te faire payer la douleur que ce vieil homme endure par dix millions de fois plus encore!!!! De plus, Maître, même si vous n'êtes pas mort, vous devez être extrêmement faible. Sinon, je n'aurais pas pu m'échapper il y a 10 ans! » L'expression du Shui Daozi était féroce, mais bientôt, il se remit à hurler de douleur.
 
 Ses pupilles avaient disparu, totalement remplacées par une lumière septicolore!
 

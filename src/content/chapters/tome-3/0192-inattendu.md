@@ -40,7 +40,7 @@ Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, t
 
 « À l'époque, nous sommes arrivés à onze sur cette planète sauvage. Nous avions initialement prévu d'y établir une résidence. Mais nous ne nous attendions pas à découvrir que ce lieu recelait l'aura d'un Dieu Ancien. Après quelques investigations, nous avons rencontré un cultivateur nommé Tuo Sen à l'extérieur du corps du Dieu Ancien. Sa culture était extrêmement puissante. Même en unissant nos forces, nous n'étions pas de taille face à lui. » La voix du vieil homme aux cheveux roux était sonore et il parlait très vite. Dès qu'il eut fini, un autre cultivateur leva la tête et dit d'un ton lugubre:
 
-« Ce Tuo Sen ne nous a pas tués, mais nous a invités avec une sincérité extrême à entrer dans cette Terre du Dieu Ancien. Cet homme comprenait parfaitement ce lieu; il connaissait presque à fond les trois royaumes et les six voies qu'il renfermait. Selon lui, il avait l'œil sur cette terre du Dieu Ancien depuis fort longtemps, mais, hélas, il était resté bloqué à la porte du dernier niveau. »
+« Ce Tuo Sen ne nous a pas tués, mais nous a invités avec une sincérité extrême à entrer dans cette Terre du Dieu Ancien. Cet homme comprenait parfaitement ce lieu; il connaissait presque à fond les trois essais et les six voies qu'il renfermait. Selon lui, il avait l'œil sur cette terre du Dieu Ancien depuis fort longtemps, mais, hélas, il était resté bloqué à la porte du dernier niveau. »
 
 « Il nous a invités à franchir ce niveau ensemble. Bien que les chances qu'une transmission existe dans le corps du Dieu Ancien fussent infimes, la tentation était trop grande. Certes, nous ne pouvions le vaincre, mais nous avions une formation d'épées conjointe que nous n'avions pas encore utilisée; une fois déployée, nous étions sûrs de l'emporter même contre lui. Cependant, son usage nous ferait perdre une immense partie de notre culture. »
 
@@ -78,7 +78,7 @@ Si Wang Lin avait obtenu l'intégralité de l'héritage de la mémoire, il saura
 
 Tandis que les paroles de Dou Mu résonnaient, Wang Lin prit une profonde inspiration. Une pensée traversa son esprit, mais il garda le silence.
 
-« Nous n'avons vraiment pas besoin de te tromper. Si tu te précipites dans la Mer de Sang, tu finiras comme le dévoreur d'âmes du troisième royaume: un simple outil pour rompre ses sceaux, et le jour où ils seront levés sera celui de ta mort. »
+« Nous n'avons vraiment pas besoin de te tromper. Si tu te précipites dans la Mer de Sang, tu finiras comme le dévoreur d'âmes du troisième essai: un simple outil pour rompre ses sceaux, et le jour où ils seront levés sera celui de ta mort. »
 
 Wang Lin réfléchit en silence un instant, puis eut un ricanement froid: « La mort? Quand je mourrai, ce sera sans doute aussi le moment où votre Sens Divin se dissipera. Si votre histoire est vraie, une fois libéré, l'homme prisonnier de la Mer de Sang commencera sans doute par reprendre ses fragments d'âme! »
 

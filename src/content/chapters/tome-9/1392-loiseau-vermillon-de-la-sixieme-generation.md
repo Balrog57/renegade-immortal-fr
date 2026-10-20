@@ -8,7 +8,7 @@ slug: loiseau-vermillon-de-la-sixieme-generation
 ---
 À cet instant, Liu Jinbiao n'était plus désolé. Il se tenait là et, bien que ses vêtements fussent encore en lambeaux, un sentiment indescriptible l'enveloppait.
 
-« C'est ainsi que le vieil homme a atteint le second royaume de la tromperie. Ne trouvez-vous pas cela facile? Se tromper soi-même une fois est une chose, mais se tromper soi-même toute une vie en est une autre. Se tromper constamment affecterait votre âme originelle, et même vos souvenirs changeraient!
+« C'est ainsi que le vieil homme a atteint le second royaume de la tromperie. Ne croyez pas que ce soit facile! Se tromper soi-même une fois est une chose, mais se tromper soi-même toute une vie en est une autre. Se tromper constamment affecterait votre âme originelle, et même vos souvenirs changeraient!
 
 « Même le cultivateur le plus puissant qui pratiquerait la recherche d'âme sur ceux de ma sorte ayant atteint le sommet du deuxième royaume n'en tirerait rien: il n'obtiendrait pas les véritables souvenirs, car ils se sont totalement effondrés!
 
@@ -18,13 +18,13 @@ slug: loiseau-vermillon-de-la-sixieme-generation
 
 « Maintenant que vous avez pris mon jade et détruit ce sur quoi je comptais, cela m'a donné une chance. Dans l'espace de stockage, ma tromperie a atteint le sommet du second royaume et j'ai fait un demi-pas vers le troisième! » Liu Jinbiao agita sa manche et afficha une expression froide.
 
-Les yeux de Wang Lin s'illuminèrent et il dit lentement: « C'est plutôt intéressant... »
+Les yeux de Wang Lin s'illuminèrent et, un demi-sourire aux lèvres, il dit lentement: « C'est plutôt intéressant... »
 
 Après avoir été réprimandé par Liu Jinbiao, Xu Liguo ne répliqua pas, mais réfléchit un instant. Son regard envers Liu Jinbiao changea avant qu'il ne joigne les mains et ne dise: « Les paroles du camarade cultivateur Jinbiao ont élargi mes horizons. Parmi les 3 000 grands Daos, il existe le Dao de la tromperie! Bien, bien, bien! Je veux savoir si le Dao que je recherche figure également parmi les 3 000 grands Daos! »
 
 Les yeux de Liu Jinbiao étaient remplis de joie, comme s'il était devenu une personne différente. La fierté et l'indifférence qu'il affichait auparavant s'étaient effondrées en un instant. Son dos était toujours voûté et une pointe de peur subsistait dans son regard. « Ce n'est qu'une simple compétence de tromperie, rien qui vaille la peine d'être mentionné devant Seigneur Xu. Tant que le Seigneur Xu ne maltraite pas trop cet humble serviteur, il sera satisfait. »
 
-Son changement fut si soudain qu'il surprit même Xu Liguo. Ce dernier jura intérieurement, ne sachant que dire.
+Son changement fut si soudain qu'il surprit même Xu Liguo. Ce dernier jura à voix basse, ne sachant que dire.
 
 Les yeux de Wang Lin révélèrent une lueur étrange. Il observa attentivement Liu Jinbiao et dit lentement: « Je peux te donner une chance. Si tu réussis, je te laisserai partir et je t'offrirai même une grande fortune! »
 
@@ -44,7 +44,7 @@ Après plusieurs tentatives, Xu Liguo continua de jurer tout en fixant l'extéri
 
 Ce jour-là, alors que Xu Liguo était encore dans un état second, il se retourna soudainement. Au plus profond de la grotte, la boule de feu brûlait depuis un mois.
 
-Peu après, un rugissement violent retentit de la boule de feu; les flammes prirent la forme d'un immense Oiseau Vermillon et poussèrent un cri strident!
+Peu après, un rugissement violent retentit de la boule de feu; les flammes prirent la forme d'un immense Oiseau Vermillon, parmi des étincelles tourbillonnantes, et poussèrent un cri strident!
 
 Puis, une silhouette apparut lentement de l'intérieur du brasier. D'abord floue, la silhouette devint plus nette à mesure que la personne avançait!
 
@@ -52,7 +52,7 @@ Les pupilles de Xu Liguo se rétractèrent sous le choc. Il sentit vaguement que
 
 La silhouette sortit de la boule de feu et se tint devant Xu Liguo. Ses vêtements étaient toujours en lambeaux, mais cela n'altérait en rien sa majesté.
 
-Liu Jinbiao ressemblait exactement à ce qu'il était, mais le sentiment qu'il dégageait envers Xu Liguo était radicalement différent. Le Liu Jinbiao actuel ressemblait à un maître d'une génération!
+Liu Jinbiao ressemblait exactement à ce qu'il était, mais le sentiment qu'il dégageait envers Xu Liguo était radicalement différent. Le Liu Jinbiao actuel ressemblait à un maître d'une génération, un grand cultivateur aux pouvoirs prodigieux!
 
 Alors qu'il se tenait là, une pression invisible émanait de lui, assez puissante pour terrasser quiconque le voyait.
 
@@ -84,7 +84,7 @@ Le corps de Xu Liguo trembla et il hocha précipitamment la tête avant de suivr
 
 Hormis Liu Jinbiao, nul ne savait ce que Wang Lin lui avait inculqué durant ce mois... Une fois les deux partis, la boule de feu disparut progressivement pour retourner dans l'œil gauche de Wang Lin. Il restait assis calmement, une lueur d'intelligence brillant dans ses yeux.
 
-« Le second appât est posé... Clan de l'Hirondelle de Feu, ne me décevez pas! »
+« Le second appât est posé... Clan des Moineaux de Feu, ne me décevez pas! »
 
 Wang Lin esquissa un sourire narquois et agita la main, créant une déchirure vers son espace de stockage. Une statue en vola. C'était celle qu'il avait obtenue de Cupidité.
 
@@ -108,8 +108,8 @@ Cependant, juste au moment où son Sens Divin allait toucher l'objet, ses yeux s
 
 Wang Lin n'avait ouvert cette faille que pour une seule personne!
 
-Une lueur argentée s'échappa de la faille et remplit la grotte. Une femme magnifique en sortit lentement. C'était la femme vêtue d'argent qui avait recouvré une partie de ses souvenirs!
+Une lueur argentée s'échappa de la faille et remplit la grotte. Une femme magnifique en sortit lentement, pieds nus. C'était la femme vêtue d'argent qui avait recouvré une partie de ses souvenirs!
 
 Wang Lin demanda: « Le connaissez-vous? »
 
-La femme en argent replaça une mèche derrière son oreille et observa la statue après être sortie. À cet instant, ses pupilles se rétractèrent et elle resta stupéfaite un moment avant de se mettre à hurler!
+La femme en argent replaça une mèche derrière son oreille et observa la statue après être sortie. À cet instant, ses pupilles se rétractèrent et elle resta stupéfaite un moment avant de pousser un cri strident!

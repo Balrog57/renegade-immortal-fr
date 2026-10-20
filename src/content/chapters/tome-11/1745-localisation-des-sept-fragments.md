@@ -42,7 +42,7 @@ Wang Lin dit doucement: « Senior Frère... »
 
 À cet instant, Qing Shui se retourna brusquement. Ses yeux injectés de sang et chargés d'une intention meurtrière se posèrent sur Wang Lin. Si n'importe qui d'autre avait été là, l'odeur du sang et cette aura auraient provoqué un tremblement de terreur et une fuite immédiate.
 
-Pourtant, Wang Lin ne recula pas. L'intention meurtrière de Qing Shui était monstrueuse, mais lui aussi, Wang Lin, possédait la même essence. En fin de compte, ils étaient de la même race!
+Pourtant, Wang Lin ne recula pas. L'intention meurtrière de Qing Shui était monstrueuse, mais lui aussi, Wang Lin, possédait la même essence. En fin de compte, ils étaient du même genre!
 
 C'était précisément pour cette raison qu'ils pouvaient entretenir une amitié si profonde et être prêts à mourir l'un pour l'autre!
 
@@ -78,7 +78,7 @@ Au moment où ils furent engloutis, le cœur de Wang Lin et de Qing Shui tressai
 
 Le monde était en plein chaos; c'était le noyau de la grotte, le centre même de ce monde caverneux où se trouvait la porte de la grotte menant au Continent Astral Immortel!
 
-À cet instant précis, dans cette zone centrale, le Dao Céleste ouvrit sa gueule et dévora Lian Daofei. Des grondements de tonnerre éclatèrent, et c'est à ce moment que Wang Lin fit son apparition.
+À cet instant précis, dans cette zone centrale, dans la véritable demeure de la grotte, le Dao Céleste ouvrit sa gueule et dévora Lian Daofei. Des grondements de tonnerre résonnèrent dans tout le monde caverneux, et c'est à ce moment que Wang Lin fit son apparition.
 
 La scène ressemblait trait pour trait à l'illusion du Daoïste aux Sept Couleurs!
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 759 - Precise and Ready
 slug: precis-et-prêt
 ---
-Wang Lin tenait le pinceau et ferma lentement les yeux. Après un long moment, il les ouvrit soudainement et sa main commença à écrire en suivant le texte. Il percevait progressivement une trace de ce que ressentait ce Céleste, jadis assis en ce lieu.
+Wang Lin tenait le pinceau et ferma lentement les yeux. Après un long moment, il les ouvrit soudainement et sa main commença à tracer dans le vide les caractères du texte. Il percevait progressivement une trace de ce que ressentait ce Céleste, jadis assis en ce lieu.
 
 Son esprit s'agita tandis qu'il écrivait; c'était un sentiment mêlant hésitation et confusion. Cette aura persistait encore dans cette pièce, même aujourd'hui.
 

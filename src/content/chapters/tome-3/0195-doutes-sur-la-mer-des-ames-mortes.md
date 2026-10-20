@@ -10,7 +10,7 @@ Au moment où la barrière multicolore se brisa, les débris du pilier de pierre
 
 On pourrait dire qu'il avait réussi à briser temporairement ses chaînes. Ses yeux dégageaient un regard démoniaque. D'un geste vif, il leva les deux mains, puis les abattit en déchirant l'air vers le bas.
 
-Soudain, une immense faille apparut au-dessus de lui. La déchirure était vaste, et des couches de brouillard gris en jaillirent avec fracas.
+Soudain, une immense faille apparut au-dessus de lui. La déchirure était vaste, et quelques nappes de brouillard gris s'en échappèrent.
 
 Wang Lin connaissait bien ce brouillard gris; il reconnut immédiatement qu'il s'agissait de celui qui entourait la Mer des Âmes Mortes.
 
@@ -30,7 +30,7 @@ En passant devant Wang Lin, le vieil homme lui adressa un léger signe de tête.
 
 Tous les autres cultivateurs démoniaques survivants suivirent le mouvement sans la moindre hésitation.
 
-Une fois dans la faille, Wang Lin réalisa immédiatement qu'ils se trouvaient juste à l'extérieur de la Mer de la Connaissance. Directement sous eux s'étendait la Mer des Âmes Mortes qu'il avait tenté de pénétrer auparavant.
+Une fois dans la faille, Wang Lin réalisa immédiatement qu'ils se trouvaient juste à l'extérieur de la Mer de la Connaissance. Directement sous eux s'étendait la sphère qu'il avait tenté de pénétrer auparavant.
 
 La Mer de la Connaissance était scindée en deux: d'un côté la Mer de Sang, et de l'autre la Mer des Âmes Mortes.
 

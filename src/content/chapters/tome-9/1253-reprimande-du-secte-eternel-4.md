@@ -12,7 +12,7 @@ Li Qianmei se leva soudainement et scruta le firmament. Elle aperçut immédiate
 
 L'expression de Mu Bingmei était complexe, empreinte d'une émotion indicible alors qu'elle contemplait silencieusement la silhouette familière au cœur de l'orage. Une multitude de souvenirs défilèrent devant ses yeux: une amertume inexplicable, un chagrin sans nom, mais aussi une lueur de chaleur. Un instant, elle baissa la tête.
 
-Le flot de larmes dans les yeux de Lu Yanfei redoubla d'intensité; deux ruisseaux de larmes coulèrent tandis que la silhouette se rapprochait. Toutes ses rancunes et ses souffrances jaillirent avec ses pleurs.
+Le flot de larmes dans les yeux de Lu Yanfei redoubla d'intensité; deux ruisseaux de larmes de joie coulèrent tandis que la silhouette se rapprochait. Tous ses griefs et ses souffrances jaillirent avec ses pleurs.
 
 Wang Lin avait traversé la Mer des Nuages en fendant ciel et terre, vêtu de tonnerre!
 
@@ -36,7 +36,7 @@ C'est parce qu'il avait atteint cet état rare qu'il pouvait percevoir ce que nu
 
 Ce qui le terrifiait, c'est que cette loi ne semblait pas appartenir aux cieux. Elle semblait exister hors du contrôle céleste, une loi nouvelle!
 
-Sous l'influence de cette loi, il ressentit lui-même un profond respect, particulièrement en percevant le domaine de l'individu devant lui. Ce domaine était plein de changements entre le réel et l'illusoire, et il lui fut impossible, en peu de temps, de distinguer le vrai du faux!
+Sous l'influence de cette loi, il ressentit lui-même une pointe de crainte respectueuse, particulièrement en percevant le domaine de l'individu devant lui. Ce domaine était plein de changements entre le réel et l'illusoire, et il lui fut impossible, en peu de temps, de distinguer le vrai du faux!
 
 C'était là sa plus grande crainte. Il n'était pas sûr de l'emporter dans un combat à mort contre un tel cultivateur!
 
@@ -74,7 +74,7 @@ Un vacarme commença, mais un grondement tonitruant traversa soudain le ciel, im
 
 Un homme vêtu de blanc, dont les cheveux blancs flottaient dans l'air, descendit des cieux. Il atterrit sur l'arène, aux côtés de Lu Yanfei.
 
-Wang Lin regarda la fragile Lu Yanfei d'un air désolé et dit doucement: « Je suis en retard. »
+Wang Lin regarda la Lu Yanfei aux traits tirés d'un air désolé et dit doucement: « Je suis en retard. »
 
 Lu Yanfei ne put plus retenir ses larmes; en regardant Wang Lin, elle secoua la tête. Un sourire radieux éclaira son visage alors qu'elle répondait doucement: « Tu n'es pas en retard. Tant que tu es là, il n'est jamais trop tard. »
 

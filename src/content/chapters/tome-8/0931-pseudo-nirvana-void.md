@@ -24,7 +24,7 @@ Lorsque Wang Lin vit ces quatre gardes célestes, ses pupilles se rétractèrent
 
 Wang Lin sentit clairement que ces quatre hommes dégageaient la même aura que Ta Shan. Ces quatre colosses étaient manifestement raffinés à l'aide de la méthode secrète créée par l'Empereur Céleste Qing Lin!
 
-« Les gardes célestes se divisent en rangs d'or, d'argent, de cuivre et de fer. Ces quatre colosses sont tous de rang or! » Wang Lin jeta un regard à l'Estimé Xuan Bao et se retira rapidement vers la lisière du vortex.
+« Les gardes célestes se divisent en rangs d'or, d'argent, de cuivre et de fer. Ces quatre colosses sont tous de rang or! » Wang Lin jeta un regard à l'Estimé Xuan Bao et se retira rapidement vers la lisière du vortex de cinq mille kilomètres.
 
 Après l'apparition des quatre gardes célestes en armure dorée, l'expression de l'Estimé Xuan Bao resta impassible tandis qu'il levait sa main droite. En un éclair, les quatre gardes chargèrent le Serpent aux yeux de lune.
 
@@ -32,7 +32,7 @@ Alors que le Serpent aux yeux de lune rugissait, ses tentacules balayaient tout 
 
 Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les ébranler légèrement, sans leur faire marquer la moindre pause. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs de Luotian.
 
-La main droite de l'Estimé Xuan Bao s'enfonça à nouveau dans le vide et une autre fissure apparut. Soudain, neuf papillons noirs en sortirent.
+La main droite de l'Estimé Xuan Bao s'enfonça à nouveau dans le vide et une autre fissure apparut. Une pression écrasante s'en dégagea, et neuf papillons noirs en sortirent.
 
 Ces neuf papillons étaient d'un noir absolu et, de loin, ils paraissaient extrêmement féroces. Dès leur apparition, ils battirent des ailes, déclenchant une tempête.
 
@@ -108,7 +108,7 @@ Les quatre gardes célestes poussèrent des rugissements; leurs corps vibrèrent
 
 Un sourire étira le visage de l'Estimé Xuan Bao tandis qu'il tendait la main droite, provoquant une nouvelle fissure. Un gaz vert s'en échappa. Accompagné de cette brume émeraude, une aura fit trembler l'esprit de tous les cultivateurs dans un rayon de plus de dix mille kilomètres.
 
-Le corps de Wang Lin trembla. En regardant de plus près, il vit une flèche jaillir de la faille.
+Le corps de Wang Lin trembla. En regardant de plus près, il vit une flèche descendre lentement de la faille.
 
 Cette flèche était démesurée: elle mesurait plus de 300 pieds de long et sept pieds de large. Elle était entièrement verte, avec une pointe à six arêtes. À son extrémité, des plumes violettes étaient disposées en quatre directions. En outre, quelques taches de sang rouge foncé maculaient la flèche.
 

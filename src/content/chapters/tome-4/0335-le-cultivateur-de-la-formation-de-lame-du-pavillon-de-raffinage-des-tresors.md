@@ -50,7 +50,7 @@ Les yeux du vieil homme rencontrèrent ceux de Wang Lin, et il recula soudaineme
 
 Le vieil homme grommela intérieurement; il n'avait aucune envie de chercher des ennuis à un expert de la Formation de l'Âme.
 
-Mais la peur le paralysait. Il ne put que laisser échapper un sourire amer et dire: « Ce junior ignorait que senior était présent. J'ai été impétueux, j'espère que senior pourra me pardonner. »
+Mais la peur le paralysait. Il ne put que laisser échapper un sourire amer et dire: « Ce junior ignorait que senior était présent. J'ai été imprudent, j'espère que senior pourra me pardonner. »
 
 Wang Lin commença à réfléchir. En posant les yeux sur ce vieil homme vêtu de pourpre, il ressentit une certaine familiarité. Il devait s'agir de quelqu'un qu'il avait connu.
 

@@ -18,7 +18,7 @@ Le corps des huit Anciens trembla et ils retrouvèrent immédiatement la raison.
 
 Les sept autres affichèrent des expressions d'exaltation.
 
-À la suite de cette exclamation, un immense tumulte éclata sous leurs pieds. Les visages des cultivateurs se décomposèrent; ils n'en croyaient pas leurs yeux.
+À la suite de cette exclamation, un immense tumulte éclata parmi la foule. Les visages des cultivateurs se décomposèrent; ils n'en croyaient pas leurs yeux.
 
 En revanche, les membres de la famille Wang arborèrent des expressions étranges; seuls quelques-uns manifestèrent leur excitation.
 
@@ -26,13 +26,13 @@ En revanche, les membres de la famille Wang arborèrent des expressions étrange
 
 Cette fois, Ta Shan fit directement un pas en avant et décocha un coup de poing droit. Un bruit fracassant retentit et le python s'effondra instantanément. Ta Shan retira son poing et se replia derrière Wang Lin, conservant une expression glaciale du début à la fin.
 
-Une intention meurtrière traversa les yeux de Wang Lin. Il leva la main droite et l'abattit vers le bas. La terre trembla et, sous la puissance de l'impact qui bombarda le sol, un homme fut projeté hors de la fosse.
+Une intention meurtrière traversa les yeux de Wang Lin. Il leva la main droite et l'abattit vers le bas. La terre du palais trembla et, sous la puissance de l'impact qui bombarda le sol, un homme fut projeté hors de la fosse.
 
 Le torse de cet homme était nu et ses longs cheveux flottaient au vent. Ses pupilles se rétractèrent lorsqu'il aperçut Wang Lin suspendu dans les airs.
 
 « Tu oses nourrir des esprits vengeurs parmi les descendants de ma famille Wang? Meurs! » La voix de Wang Lin était d'une froideur absolue tandis qu'il avançait. Des éclairs jaillirent de son bras droit et foncèrent sur l'homme.
 
-L'expression de l'homme changea radicalement. Il pensait s'être parfaitement dissimulé, mais il avait été découvert et tentait désormais de battre en retraite. Son niveau de culture était bien supérieur à celui de quiconque sur la planète Suzaku; il se trouvait au stade de l'Yin Illusoire. Pourtant, à cet instant, son cœur trembla. Il jeta un regard vers la salle, vers la femme en robe colorée qui se tenait aux côtés de l'homme d'âge mûr.
+L'expression de l'homme changea radicalement. Il pensait s'être parfaitement dissimulé, mais il avait été découvert et tentait désormais de battre en retraite. Son niveau de culture était bien supérieur à celui de quiconque sur la planète Suzaku; il se trouvait au stade de l'Yin Illusoire. Pourtant, à cet instant, son cœur trembla. Il jeta un regard vers la salle, vers la femme en robe colorée qui se tenait aux côtés de l'homme d'âge moyen.
 
 Le regard de la femme était glacial. En voyant Wang Lin attaquer l'homme, elle poussa un ricanement méprisant dans son cœur. Elle leva la main droite, prête à lancer un sortilège.
 
@@ -52,7 +52,7 @@ Tandis que le tonnerre grondait, la femme cracha davantage de sang et le phénix
 
 Le corps de la femme fut secoué par des tremblements violents. Ces attaques continues l'avaient gravement blessée, lui ôtant toute possibilité de riposte. Le dernier coup provoqua un cri misérable du phénix avant que celui-ci ne s'effondre.
 
-Les yeux de la femme devinrent alertes et elle s'écria: « Je suis l'un des sept phénix de la planète Feng Luan! Oses-tu me tuer?! »
+Les yeux de la femme se remplirent d'effroi et elle s'écria: « Je suis l'un des sept phénix de la planète Feng Luan! Oses-tu me tuer?! »
 
 Cependant, Wang Lin ne s'arrêta pas et rejoignit sa position en un éclair. Une intention meurtrière brilla dans ses yeux alors qu'il levait la main droite. Un gaz noir et blanc entourait ses deux doigts lorsqu'il les pressa contre l'épaule droite de la femme!
 
@@ -78,9 +78,9 @@ Ils n'étaient pas étrangers à son nom avec toutes les rumeurs qui circulaient
 
 « Ancêtre, nous avons eu tort... » Les huit vieillards étaient tous agenouillés au sol.
 
-Le regard de Wang Lin se posa sur la salle principale et s'arrêta sur l'homme d'âge mûr qui était également à genoux. Il dit froidement: « Vous avez effectivement eu tort; vous n'avez même pas été capables de distinguer si quelqu'un appartenait ou non à la famille Wang! »
+Le regard de Wang Lin se posa sur la salle principale et s'arrêta sur l'homme d'âge moyen qui était également à genoux. Il dit froidement: « Vous avez effectivement eu tort; vous n'avez même pas été capables de distinguer si quelqu'un appartenait ou non à la famille Wang! »
 
-L'expression de l'homme changea radicalement. Wang Lin laissa échapper un reniflement glacial, semblable à un coup de tonnerre dont l'écho résonna sans fin. L'homme d'âge mûr fut assommé par ce simple souffle.
+L'expression de l'homme changea radicalement. Wang Lin laissa échapper un reniflement glacial, semblable à un coup de tonnerre dont l'écho résonna sans fin. L'homme d'âge moyen fut assommé par ce simple souffle.
 
 Les paroles de Wang Lin stupéfiaient tous les membres de la famille Wang. Leurs regards devinrent sombres en fixant l'homme qui venait de s'évanouir.
 
@@ -104,7 +104,7 @@ Il ignorait simplement si ce corps de Démon Géant subsistait encore après des
 
 Au loin, le garçon à la grosse tête revint, tenant une personne dans sa main. Il affichait un sourire idiot en regardant Wang Lin.
 
-« Tue-le! Donne-moi son âme originelle! » L'expression de Wang Lin était glaciale tandis qu'il marchait vers l'horizon.
+« Tue-le! Donne-moi son âme originelle! » L'expression de Wang Lin était glaciale tandis qu'il s'élevait vers le ciel.
 
 Ta Shan le suivit rapidement.
 

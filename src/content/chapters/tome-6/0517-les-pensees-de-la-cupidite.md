@@ -8,7 +8,7 @@ slug: les-pensees-de-la-cupidite
 ---
 Les yeux du Saint de l'Épée Ling Tianhou s'illuminèrent et il demanda lentement: « Quelle sorte de fortune pourrait vous intéresser à ce point, Cupidité? »
 
-Cupidité réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée se souvient-il de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste complet de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture! »
+Cupidité réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée a-t-il entendu parler de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste complet de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture! »
 
 Les yeux de Ling Tianhou devinrent sérieux et il demanda lentement: « Vos blessures sont-elles liées à cette perle? »
 
@@ -88,7 +88,7 @@ Son mouvement attira immédiatement l'attention de certains cultivateurs. En voy
 
 « Le septième disciple de la Division Pourpre de la Secte du Destin Céleste, Wang Lin! »
 
-Yao Xixue, assise sur un gigantesque jade rouge, ouvrit les yeux pour regarder Wang Lin. Après quelques instants, elle détourna le regard.
+Yao Xixue, assise sur un jade rouge sang, ouvrit les yeux pour regarder Wang Lin. Après quelques instants, elle détourna le regard.
 
 Yao Xixue pensa secrètement: « Je ne sais pas pourquoi mon père m'a demandé de porter une attention particulière au nouveau disciple de la Secte du Destin Céleste. Sa culture est normale et il ne semble rien avoir d'exceptionnel... Cependant, être choisi par l'Omniscient pour venir ici juste après avoir rejoint la Secte est en effet stupéfiant. »
 

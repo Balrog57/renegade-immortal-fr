@@ -60,7 +60,7 @@ Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de
 
 Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: il ne savait s'il devait s'en réjouir ou se sentir impuissant.
 
-Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait à la mystérieuse momie du temple de bataille de Huo Fen.
+Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait à la mystérieuse momie du temple de bataille du pays de Huo Fen.
 
 L'autre contenait plus d'une dizaine de trésors magiques appartenant aux anciens cultivateurs de la terre des Dieux Anciens. Cependant, ils étaient trop puissants. Wang Lin avait tenté tout ce qu'il pouvait, mais il n'était parvenu qu'à prendre le contrôle du miroir de bronze.
 
@@ -106,7 +106,7 @@ Bien que Teng Huayuan tentât d'étouffer les rumeurs, l'état de terreur ambian
 
 Cette journée ensoleillée et sans nuages marquait le neuvième jour depuis le début du massacre des Teng.
 
-Dans tout le pays de Zhao, là où les membres de la famille Teng avaient autrefois résidé, il ne restait plus trace d'eux. Ils avaient tous été tués ou s'étaient enfuis vers la Cité de la Famille Teng.
+Dans tout le pays de Zhao, tous ceux qui portaient le sang des Teng étaient morts ou s'étaient rassemblés dans la Cité de la Famille Teng.
 
 C'était le jour où la famille Teng serait anéantie. Même des centaines d'années plus tard, lorsque les cultivateurs de Zhao évoqueraient cette date, ils en frissonneraient.
 

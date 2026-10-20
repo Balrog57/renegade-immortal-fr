@@ -86,7 +86,7 @@ Le Grand Empyréen Wu Feng, qui était resté silencieux jusque-là, reprit soud
 
 « Une force extérieure est une puissance parmi d'autres. Tant qu'elle peut balayer tout ce qui se trouve sur votre chemin, qui oserait dire quoi que ce soit? » Le Grand Empyréen Wu Feng fixa froidement l'Empereur Céleste et poursuivit.
 
-« Vous le jugez sans valeur? Alors aux yeux de l'Ancêtre Céleste, un descendant tel que vous est également sans valeur! » Wu Feng ne se retenait plus.
+« Vous le jugez sans valeur? Alors aux yeux de l'Ancêtre Céleste, un descendant tel que vous est peut-être également sans valeur! » Wu Feng ne se retenait plus.
 
 L'Empereur Céleste fixa Wu Feng, son expression devenant progressivement glaciale.
 
@@ -94,7 +94,7 @@ L'Empereur Céleste fixa Wu Feng, son expression devenant progressivement glacia
 
 « Oublions le 19e palais. S'il parvient à franchir le 15e palais, moi, Lian Daozhen, je rétablirai aujourd'hui même sa réputation. Je publierai un édit sacré proclamant au monde qu'il est l'homme numéro un du clan céleste sous les Grands Empyréens! »
 
-« À condition bien sûr qu'il y parvienne! »
+« Mais en est-il capable? »
 
 Wu Feng resta silencieux, songeant à ces paroles.
 
@@ -108,7 +108,7 @@ L'Ascendant Ming Dao lança un regard froid au silencieux Wang Lin. Il ricana et
 
 Mais à cet instant précis, Wang Lin laissa échapper un soupir. Il leva les yeux vers l'Empereur Céleste qui était sur le point de disparaître.
 
-« Le 15e palais? Empereur Céleste, regardez bien! » L'expression de Wang Lin était calme, mais au plus profond de son corps, une force colossale s'accumulait. Soudain, elle explosa et il s'élança vers les cieux.
+« Le 15e palais? Empereur Céleste, regardez bien! » L'expression de Wang Lin était calme, mais au plus profond de son corps, une force colossale s'accumulait frénétiquement. Soudain, elle explosa et il s'élança vers les cieux, tel un arc-en-ciel.
 
 Son action arrêta net Dao Yi et fit froncer les sourcils à l'Empereur Céleste. Son corps en pleine dissipation se solidifia de nouveau pour fixer Wang Lin.
 
@@ -128,6 +128,6 @@ Il avait tout vu et était en accord avec les paroles de l'Empereur Céleste. En
 
 « De quoi cet enfant dispose-t-il pour continuer ainsi? »
 
-À cet instant, au sein de la Secte Yang Pourpre, le Grand Empyréen Gémeaux avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Ils avaient vu Wang Lin se faire rabaisser et étaient furieux. En voyant Wang Lin s'élancer dans le ciel, ils furent envahis par l'attente.
+À cet instant, au sein de la Secte Yang Pourpre, le Grand Empyréen Gémeaux avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Elles avaient vu Wang Lin se faire rabaisser et étaient furieuses. En voyant Wang Lin s'élancer dans le ciel, elles furent envahies par l'attente.
 
 « Wang... Wang Lin?! » Cupidité, qui subissait les tourments du Grand Empyréen Gémeaux, fixa le miroir, l'esprit totalement vide.

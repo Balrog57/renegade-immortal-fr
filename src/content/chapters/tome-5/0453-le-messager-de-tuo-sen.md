@@ -28,7 +28,7 @@ En volant, ses yeux s'illuminèrent soudainement et il tourna son regard vers un
 
 Lors de la calamité qui venait de se produire, il avait perdu la moitié de son corps ainsi que son âme originelle tatouée.
 
-Au moment où le regard de Wang Lin se posa sur lui, les yeux du vieil homme révélèrent une panique totale. Il quitta précipitamment son corps et tenta de s'échapper.
+Au moment où le regard de Wang Lin se posa sur lui, les yeux du vieil homme révélèrent une vive inquiétude. Il quitta précipitamment son corps et tenta de s'échapper.
 
 Le regard de Wang Lin devint glacial. Il laissa échapper un reniflement méprisant et poursuivit rapidement le vieillard. L'âme originelle du vieil homme étant extrêmement faible, ce n'était pas tant une course qu'une simple poursuite, mais soudain, une faille apparut silencieusement devant lui.
 
@@ -46,7 +46,7 @@ Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Ch
 
 Il contemplait les Étoiles Brisées et Chaotiques avec hésitation.
 
-« La tribulation divine ne provenait pas d'un ancien cultivateur, mais seulement d'un junior raffinant un trésor antique. Ce vieil homme a parcouru toute la planète au cours de ces dernières centaines d'années sans trouver le moindre ancien cultivateur, et mon estomac commence à se languir. Seul ici puis-je humer le parfum des anciens cultivateurs, mais cet endroit est bien trop dangereux. Dois-je y aller ou non?! »
+« La tribulation divine ne provenait pas d'un ancien cultivateur, mais seulement d'un junior raffinant un trésor antique. J'ai parcouru toute la planète au cours de ces dernières centaines d'années sans trouver le moindre ancien cultivateur, et mon estomac commence à se languir. Seul ici puis-je humer le parfum des anciens cultivateurs, mais cet endroit est bien trop dangereux. Dois-je y aller ou non?! »
 
 L'individu réfléchit un moment, puis ses yeux s'illuminèrent avant qu'il ne secoue la tête en marmonnant: « Laisse tomber. Je ne peux pas sacrifier ma vie pour mon appétit. Mes blessures se sont quelque peu remises, il est temps de quitter la planète Suzaku. Si je devais être découvert par ce Situ Nan, je serais incapable de l'emporter dans mon état actuel. »
 
@@ -66,7 +66,7 @@ L'individu entouré d'une aura mortelle renifla et répliqua: « Tu m'agaces rie
 
 L'homme au sommet des vagues resta pensif, puis sauta. Il atterrit à l'extérieur des Étoiles Brisées et Chaotiques. L'eau de mer sous ses pieds se mua en un cristal qu'il avala aussitôt.
 
-« Étrange, cet Avidité ne se rend jamais nulle part sans que des trésors n'y soient cachés. Partout où il va, il doit y avoir des richesses. Il y a dix mille ans, quand je suis venu sur la planète Suzaku, il était déjà là depuis longtemps. Bien qu'il se remettait de ses blessures, se pourrait-il que ce fût réellement pour cet endroit? »
+« Étrange, cet Avidité ne se rend jamais nulle part sans que des trésors n'y soient cachés. Partout où il va, il doit y avoir des richesses. Il y a dix mille ans, quand je suis venu sur la planète Suzaku, il était déjà là depuis longtemps. Bien qu'il se remette de ses blessures, se pourrait-il que ce fût réellement pour cet endroit? »
 
 L'homme réfléchit encore un instant avant de pénétrer dans les Étoiles Brisées et Chaotiques...
 
@@ -74,13 +74,13 @@ Dans la mer de sang, aux profondeurs des terres du Dieu Ancien, sur l'unique pil
 
 « Encore un... Le jour où moi, Tuo Sen, je m'échapperai approche, très bientôt... Wang Lin, tu dois garder mon héritage de connaissances en sécurité pour que je puisse le récupérer. Sans mon héritage de puissance, ton héritage de connaissances est inutile! De plus, ton héritage n'est pas complet; un cristal de connaissance est entre mes mains! »
 
-« J'ai passé tant d'années et déployé tant d'efforts pour enfin trouver ce cristal si bien caché. Après l'avoir fusionné avec moi, j'ai retrouvé bien des souvenirs. »
+« J'ai passé tant d'années et déployé tant d'efforts, au prix fort, pour enfin trouver ce cristal si bien caché. Après l'avoir fusionné avec moi, j'ai retrouvé bien des souvenirs. »
 
 « Au fil des ans, je pouvais sentir un pouvoir mystérieux croître au cœur de cette planète. Ce pouvoir ressemble à la croissance d'un jeune Dieu Ancien; c'est ce que vos cultivateurs appellent le Cristal de Planète de Culture. Je peux utiliser cet objet pour briser mon sceau, puis employer une technique d'échange d'âme pour quitter ce lieu. »
 
 « Je devrai remercier Tu Si. Lorsqu'il a choisi cet endroit pour diviser sa conscience, certains indigènes l'ont élevé au rang de dieu. Tout cela est consigné dans ce dernier cristal de connaissance. Tu Si leur a répondu et leur a fait établir les lieux sacrificiels du Dieu Ancien. »
 
-« Bien que des éons aient passé et que cette race indigène ait disparu, le dernier bastion du Clan des Immortels Délaissés est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
+« Bien que des éons aient passé et que cette race indigène ait disparu, le refuge souterrain du Clan des Immortels Délaissés est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
 
 « Un descendant du Clan des Immortels Délaissés dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour faire passer un jeune de cette petite tribu sauvage de l'étape des onze feuilles à celle des douze feuilles. Cela a permis à toute sa tribu de briser son sceau et de se jeter sur les cultivateurs. »
 

@@ -12,7 +12,7 @@ De nombreuses techniques fusaient dans les airs sur un fragment situé dans la p
 
 Cet homme d'âge moyen était originaire de Suzaku, tout comme Wang Lin.
 
-Il marchait à travers la plaine en buvant. Après un long moment, il s'arrêta. Le regard fixé sur le sol, le visage empreint de vieux souvenirs, il murmura: « Ting Er, te souviens-tu encore de cet endroit? À l'époque, c'est ici que je t'ai rencontrée, mais désormais, il ne reste plus personne. »
+Il marchait à travers la plaine en buvant. Après un long moment, il s'arrêta. Le regard fixé sur le sol, le visage empreint de vieux souvenirs, il murmura: « Ting Er, te souviens-tu encore de cet endroit? À l'époque, c'est ici que je t'ai rencontrée, mais désormais, les lieux sont restés les mêmes et les gens ont changé. »
 
 Il laissa échapper un soupir tandis que son pied droit tapait doucement le sol. En un instant, son corps disparut. Il s'enfonça rapidement dans la terre jusqu'à atteindre une immense grotte.
 
@@ -62,7 +62,7 @@ Il prit une profonde inspiration, puis embrassa plusieurs fois le visage de la f
 
 « Ting Er, quand je t'ai vue pour la première fois, tu étais allongée ainsi. Rien n'a changé depuis. Ting Er, te souviens-tu? Lors de mon premier voyage dans le Royaume Céleste, je cherchais l'énergie spirituelle céleste, mais c'est toi que j'ai trouvée ici. Dès que je t'ai vue, j'ai su que tu serais ma femme, alors je suis resté auprès de toi pendant très longtemps... »
 
-Tout en parlant, il tendit la main vers celle de la femme. En frottant sa main, il ajouta: « Tu es si parfaite, tellement parfaite... Tu es à moi. Personne ne pourra te me voler. Ting Er, dis-moi, tu m'aimes aussi, n'est-ce pas? »
+Tout en parlant, il tendit la main vers celle de la femme. En frottant sa main, il ajouta: « Tu es si parfaite, tellement parfaite... Tu es à moi. Personne ne pourra te voler à moi. Ting Er, dis-moi, tu m'aimes aussi, n'est-ce pas? »
 
 « Comparée à l'énergie spirituelle céleste, tu es le véritable trésor! »
 
@@ -114,7 +114,7 @@ Une fois que l'éclat de la formation atteignit son paroxysme, il commença à f
 
 Un air glacial enveloppa les environs et même de la neige commença à tomber autour d'elle. La scène était spectaculaire.
 
-Les yeux de Chi Hu s'illuminèrent: « C'est elle! »
+Les yeux de Chi Hu s'illuminèrent et il pensa: « C'est elle! »
 
 Il laissa échapper un rire et joignit les mains en signe de respect. « Je vous attendais depuis longtemps, estimée cultivatrice Papillon Rouge! »
 
@@ -122,13 +122,13 @@ Cette femme était le génie de Xue Yu, Papillon Rouge!
 
 Elle lança un regard glacial à Chi Hu alors qu'elle sortait de la formation et déclara: « Si vos paroles sont mensongères, je ne laisserai pas les choses se terminer aussi facilement! »
 
-Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Papillon Rouge. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement façonné par l'ancêtre de mon Clan Démon Géant, Xi Zu. Il n'aurait aucune raison de mentir. »
+Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Papillon Rouge. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan Démon Géant, Xi Zu. Il n'aurait aucune raison de mentir. »
 
 « Xi Zu... » Le visage de Papillon Rouge se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Démon Géant et Xue Yu.
 
 Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan Démon Géant était l'allié de Xue Yu.
 
-« Puisque cela a été personnellement consigné par Xi Zu lui-même, je vous crois et je me joindrai à vous pour ce voyage. Je ne convoite aucun trésor autre que ce cercueil de jade céleste. Il doit être à moi! » La voix de Papillon Rouge était empreinte d'une détermination absolue.
+« Puisque Xi Zu lui-même l'a constaté, je vous crois et je me joindrai à vous pour ce voyage. Je ne convoite aucun trésor autre que ce cercueil de jade céleste. Il doit être à moi! » La voix de Papillon Rouge était empreinte d'une détermination absolue.
 
 Chi Hu fronça les sourcils, pensant intérieurement que cette Papillon Rouge était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Ceng Niu si le butin était partagé entre eux deux.
 

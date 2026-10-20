@@ -70,7 +70,7 @@ L'homme esquissa un léger sourire: « Ancêtre, vous dites toujours que c'est r
 
 Sur ces mots, son corps s'estompa lentement jusqu'à disparaître.
 
-Dans une chambre, Papillon Rouge cultivait les yeux clos pour se rétablir. Elle ouvrit soudainement les yeux et fulmina: « Ceng Niu, la prochaine fois, je te tuerai sans hésiter! »
+Dans une chambre, Papillon Rouge cultivait les yeux clos pour se rétablir. Elle ouvrit soudainement les yeux et murmura: « Ceng Niu, la prochaine fois, je te tuerai! »
 
 Une voix douce résonna soudainement dans la pièce. « Je vais exaucer ton vœu. »
 
@@ -154,6 +154,6 @@ Le fait qu'une beauté légendaire de cette génération ait subi un tel sort pl
 
 L'Ancêtre était prêt à tout pour former le prochain Suzaku.
 
-Qian Feng fixa le dos de Liu Mei d'un regard malveillant et grommela: « Jeune sœur apprentie, un jour, tu deviendras ma concubine. Qu'en penses-tu, Sans-Cœur? »
+Qian Feng fixa le dos de Liu Mei d'un regard malveillant et murmura: « Jeune sœur apprentie, un jour, tu deviendras ma concubine. Qu'en penses-tu, Sans-Cœur? »
 
 Papillon Rouge resta immobile derrière lui. Il n'y avait plus aucune lueur dans ses yeux. Elle n'était plus qu'une dépouille.

@@ -48,7 +48,7 @@ Sur cette pensée, l'inquiétude de Lu Wenran s'estompa. Bien qu'il n'ait pas as
 
 « J'ai présenté sa tête et vous prétendez que je simule. Alors, regardez ceci! » Le regard de Wang Lin devint glacial. Ne perdant plus de temps en vaines discussions avec Lu Wenran, il agita la main droite et une seconde tête apparut!
 
-Il s'agissait de celle de Xu Decai, un cultivateur de la Tribulation du Vide du Continent du Démon Vert! La tête de Xu Decai était dans un état lamentable. Ses yeux vides exprimaient une peur et une rancœur infinies, tandis que des traces de sang séché marquaient ses orifices!
+Il s'agissait de celle de Xu Decai, un cultivateur du stade initial de la Tribulation du Vide du Continent du Démon Vert! La tête de Xu Decai était dans un état lamentable. Ses yeux vides exprimaient une peur et une rancœur infinies, tandis que des traces de sang séché marquaient ses orifices!
 
 À l'instant où la tête apparut, le palais souterrain fut plongé dans un silence de mort. Tous les regards se fixèrent sur elle. Même les trois cultivateurs de la Tribulation du Vide de la secte voisine se redressèrent brusquement!
 
@@ -62,7 +62,7 @@ Les trois hommes haletèrent, échangeant des regards chargés de terreur et de 
 
 L'expression de Yan Luan changea également, et elle se leva instinctivement. Elle fixa la tête de Xu Decai, incapable d'y croire. Elle trouvait déjà insensé que Wang Lin ait pu en tuer un, mais voilà qu'un second apparaissait!!
 
-Xu Dongde, lui aussi, sentit son cœur trembler. Pour la première fois, il regarda Wang Lin avec une profonde crainte. S'il s'était manifesté plus tôt, c'était uniquement parce que l'arrogance de Lu Wenran l'avait irrité. Désormais, il avait le sentiment que son intervention était d'une justesse absolue!
+Xu Dongde, lui aussi, sentit son cœur trembler. Pour la première fois, il regarda Wang Lin avec une profonde crainte. S'il s'était manifesté plus tôt, c'était uniquement parce que l'affectation de Lu Wenran l'avait irrité. Désormais, il avait le sentiment que son intervention était d'une justesse absolue!
 
 Si ce Wang Lin n'était pas à la hauteur, alors personne ici ne l'était!
 

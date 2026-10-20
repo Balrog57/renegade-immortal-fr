@@ -32,7 +32,7 @@ L'expression de Wang Lin resta imperturbable. Il était intéressé par la mario
 
 Les yeux de Wang Lin brillèrent d'un éclat imperceptible. Bien que son essence de tonnerre fût complète, les éclairs qui l'accompagnaient étaient encore imparfaits. Il était toutefois confiant dans sa capacité à corriger cela. S'il se trouvait toujours dans le Système Stellaire Antique, c'était pour son essence de feu!
 
-Afin de parfaire son essence de feu et d'éveiller à nouveau l'Oiseau Vermillon, il devait absorber une quantité massive d'énergie ignée. Le Clan des Moineaux de Feu était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
+Afin de parfaire son essence de feu et d'éveiller à nouveau l'Oiseau Vermillon, il devait absorber une énergie ignée d'un niveau suffisamment élevé. Le Clan des Moineaux de Feu était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
 
 Cependant, il ne bénéficierait pas de la même chance qu'avec le Clan du Tonnerre Dispersé, où l'aide lui avait facilité la traversée des obstacles. Il n'était pas non plus réaliste de tenter de s'infiltrer dans le Clan des Moineaux de Feu pour en atteindre le cœur.
 
@@ -82,7 +82,7 @@ Le vieil homme aspira une bouffée d'air glacial; il n'osait chercher à savoir 
 
 Zhong Grand Rouge rit: « Naturellement. En fait, je suis venu demander de l'aide au Grand Frère Zhang. »
 
-« Demande ce que tu veux. Tant que c'est en mon pouvoir, je t'aiderai. » Il avait rencontré Zhong Grand Rouge quelques jours auparavant. Cet homme était manifestement très riche, et les pilules qu'il avait montrées avaient fait rougir de convoitise le vieillard. Il avait voulu le voler, mais s'était montré prudent. Après avoir pris des renseignements, il avait appris que Zhong Grand Rouge avait un maître.
+« Demande ce que tu veux. Tant que c'est en mon pouvoir, je t'aiderai sans sourciller. » Il avait rencontré Zhong Grand Rouge quelques jours auparavant. Cet homme était manifestement très riche, et les pilules qu'il avait montrées avaient fait rougir de convoitise le vieillard. Il avait voulu le voler, mais s'était montré prudent. Après avoir pris des renseignements, il avait appris que Zhong Grand Rouge avait un maître.
 
 Quelqu'un capable de faire d'un cultivateur de la Formation de l'Âme son serviteur n'était pas un adversaire à affronter; il avait donc réprimé sa cupidité. Zhong Grand Rouge était également doué pour la flatterie et avait distribué de nombreuses pilules. Ainsi, ils s'étaient progressivement liés, chacun ayant ses propres intentions.
 
@@ -150,9 +150,9 @@ Zhong Grand Rouge et le vieil homme quittèrent précipitamment la ville. Dans l
 
 Zhong Grand Rouge trembla, le cuir chevelu engourdi par la peur. Sans hésiter, il s'élança pour fuir.
 
-Un reniflement froid retentit et, peu après, deux rayons de lumière noire jaillirent. L'un se projeta vers le vieillard qui, incapable de résister, fut instantanément capturé.
+Un reniflement froid retentit et, peu après, deux rayons de lumière noire jaillirent. L'un se projeta vers le vieillard qui, incapable de résister, fut instantanément capturé dans un cri.
 
-L'autre rayon rattrapa Zhong Grand Rouge et frappa son dos. Son visage devint livide et il cracha du sang tout en fuyant comme un fou.
+L'autre rayon rattrapa Zhong Grand Rouge et frappa son dos. Un souffle noir monta sur son visage; il cracha du sang et s'enfuit, l'âme ébranlée par la terreur.
 
 L'homme d'âge moyen du Clan du Scorpion Noir apparut et regarda froidement la direction de la fuite de Zhong Grand Rouge. Il fit volte-face, saisit le vieillard inconscient et retourna vers le hall principal du clan.
 
@@ -222,6 +222,6 @@ Cela fit apparaître la tour cachée sous terre, révélant plus de la moitié d
 
 L'homme d'âge moyen à ses côtés resta pétrifié. Tout fut si soudain qu'il n'eut même pas le temps de réagir.
 
-Wang Lin descendit lentement et flotta au niveau du toit effondré. Zhong Grand Rouge le suivait, les yeux brillants d'excitation.
+Wang Lin descendit lentement et se posa dans la salle dont le toit s'était effondré. Zhong Grand Rouge le suivait, les yeux brillants d'excitation.
 
 Wang Lin pointa l'homme d'âge moyen du doigt et regarda Zhong Grand Rouge: « Est-ce lui qui t'a blessé? »

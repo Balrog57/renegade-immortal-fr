@@ -26,7 +26,7 @@ Poursuivant ce carnage, la vitesse de Wang Lin augmenta. Il se frayait un chemin
 
 Le sang était partout, et l'odeur de la mort emplissait le monde. Même le violet semblait désormais d'un rouge sombre! À cette allure, Wang Lin approcha du point d'origine des fluctuations magiques. Il pouvait clairement ressentir la faible aura qui s'en dégageait. Il semblait que Li Qianmei faisait face à un immense danger!
 
-Wang Lin poussa un rugissement et sa main droite forma un sceau. L'énergie originelle se rassembla dans sa paume, brillant d'un éclat intense. Il la projeta dans les airs, et celle-ci s'épanouit en un nuage lumineux, illuminant instantanément ce monde ténébreux.
+Wang Lin poussa un rugissement et sa main droite forma un sceau. L'énergie originelle se rassembla dans sa paume, brillant d'un éclat intense. Il la projeta dans les airs, et celle-ci s'épanouit en un nuage lumineux, illuminant instantanément ce monde ténébreux sur un rayon de dix mille li.
 
 Au moment où la lumière jaillit, Wang Lin vit une scène qu'il ne pourrait jamais oublier de sa vie!
 
@@ -38,13 +38,13 @@ Cependant, ce sourire semblait suspendu à l'éternité. Une faible lueur bleue 
 
 La lumière bleue s'effondra brusquement. Le fouet perça la protection et fonça sur Li Qianmei! Si ce coup l'atteignait, elle serait morte!
 
-Le temps sembla ralentir. Wang Lin leva sa main droite et hurla. Une expression féroce et démente marqua son visage alors qu'il pointait le fouet géant du doigt. Il cria: « Arrête-toi! »
+Le temps sembla ralentir. Wang Lin leva sa main droite et hurla. Une expression féroce et démente marqua son visage alors qu'il pointait le fouet géant du doigt. Il cria: « Fige-toi! »
 
 Une loi indicible envahit le monde, se transformant en d'innombrables fils qui s'enroulèrent autour du fouet colossal. L'arme ralentit, mais ne s'arrêta pas!
 
 À l'instant où il perdit de sa vitesse, l'esprit de Wang Lin devint un vide, et sa seule pensée était de sauver Li Qianmei. Il leva le pied droit et des ondulations résonnèrent sous ses pas. Il disparut en fusionnant avec le néant. Courbure spatiale!
 
-Ce fouet géant contenait une force mystérieuse que même les lois ne pouvaient entraver. Des bruits de craquements retentirent alors que le sort d'arrêt s'effondrait autour de lui. Le fouet se rapprochait inexorablement de Li Qianmei.
+Ce fouet géant contenait une force mystérieuse que même les lois ne pouvaient entraver. Des bruits de craquements retentirent alors que le sort d'immobilisation s'effondrait autour de lui. Le fouet se rapprochait inexorablement de Li Qianmei.
 
 Li Qianmei était incapable d'esquiver ou de résister. À cet instant, sa vitalité était presque épuisée; elle était comme une lampe à huile asséchée. Même si le fouet ne la frappait pas, elle ne survivrait pas longtemps. Ses blessures avaient déjà provoqué l'effondrement de son âme originelle. La seule raison pour laquelle elle respirait encore était un sentiment de volonté inexplicable.
 
@@ -74,7 +74,7 @@ Pourtant, au moment de sa destruction, une aura puissante balaya Wang Lin. Il ne
 
 Le sourire sur le visage de Li Qianmei devint encore plus doux. Elle regarda Wang Lin et murmura: « Merci... » Puis, ses cils tremblèrent et elle ferma lentement les yeux, comme pour s'endormir.
 
-Wang Lin fut secoué et se retourna brusquement. Sa main droite forma un sceau qu'il pointa vers Li Qianmei. L'énergie originelle s'engouffra dans le corps de la jeune femme pour sceller sa vitalité qui s'échappait.
+Wang Lin fut secoué et se retourna brusquement. Sa main droite forma un sceau qu'il pointa plusieurs fois vers Li Qianmei. L'énergie originelle s'engouffra dans le corps de la jeune femme pour sceller sa vitalité qui s'échappait.
 
 Cependant, rien ne pouvait stopper l'aura de mort ni la dissipation de son essence. Son âme originelle était trop affaiblie, son âme commençait à se dissiper et son corps avait perdu tout éclat. Seul son sourire demeurait une existence éternelle dans la mémoire de Wang Lin.
 
@@ -84,7 +84,7 @@ Après plus de mille ans, il voyait une seconde femme se faner comme une fleur d
 
 « Si un jour je ne suis plus là, te souviendras-tu que dans ta vie, il y eut une femme nommée Li Qianmei qui est passée si vite... »
 
-« Si je ne reviens jamais... j'espère que tu t'en souviendras... »
+« Si un jour je ne suis plus là... j'espère que tu t'en souviendras... »
 
 La mélancolie envahit les yeux de Wang Lin. À cet instant, il pensa à Li Muwan, l'amante incapable de s'éveiller dans le Cercueil Évitant le Ciel. Le monde était cruel et lui infligeait la même douleur qu'autrefois!
 

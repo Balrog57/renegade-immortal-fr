@@ -54,13 +54,13 @@ Ses yeux étaient clos, comme s'il était dans le coma. Elle avait rétréci pou
 
 Fixant cette âme, la main droite de Wang Lin se referma impitoyablement! Tout en pressant, il utilisa le sort de recherche d'âme. En vérité, il était très difficile d'utiliser ce sort lorsque l'écart de culture entre les deux était si immense. Seul en laissant Xu Decai dans cet état de blessure critique Wang Lin pouvait utiliser le sort librement.
 
-Tous les souvenirs de Xu Decai furent extraits par Wang Lin sans la moindre résistance.
+Tous les souvenirs de Xu Decai furent extraits par Wang Lin sans la moindre résistance, tandis qu'il cherchait sans relâche la source de cet art.
 
 Bientôt, trois heures passèrent. Xu Decai ayant vécu bien trop longtemps, fouiller ses souvenirs pour trouver un sort précis demandait du temps.
 
 Trois heures plus tard, Wang Lin ouvrit soudainement les yeux, l'expression empreinte d'extase.
 
-« L'Art Magique Rapide! Ce Xu Decai a bénéficié d'une immense fortune au début de sa vie. Une météorite est tombée du ciel et il y a trouvé une gravure complexe. Après l'avoir cultivée, il a acquis cette vitesse de lancement terrifiante... » Wang Lin ouvrit la paume. L'âme originelle de Xu Decai trembla et commença à se dissiper lentement, comme si elle allait s'effondrer à tout instant.
+« L'Art Magique Rapide! Ce Xu Decai a bénéficié d'une immense fortune au début de sa vie. Une météorite est tombée du ciel et il y a trouvé une formule de sceaux complexe gravée. Après l'avoir cultivée, il a acquis cette vitesse de lancement terrifiante... » Wang Lin ouvrit la paume. L'âme originelle de Xu Decai trembla et commença à se dissiper lentement, comme si elle allait s'effondrer à tout instant.
 
 Pourtant, après un long moment, elle ne s'effondra pas et ne disparut pas. Au lieu de cela, une lueur spectrale jaillit, chargée d'une rancœur monstrueuse. Cette rancœur émanait de son refus de mourir.
 
@@ -104,7 +104,7 @@ Après tout cela, un éclat de froideur passa dans les yeux de Wang Lin.
 
 Plusieurs jours s'étaient écoulés, mais une intention meurtrière intense régnait toujours sur la Prairie de l'Extrême Ciel. Les cultivateurs survivants possédaient tous des niveaux de culture élevés, ce qui rendait leur élimination ardue et prolongeait le massacre.
 
-Dans la brume, les cultivateurs ordinaires étaient presque devenus fous, les yeux injectés de sang, lançant divers sorts de toutes parts. Deux cultivateurs du stade intermédiaire de la Tribulation du Vide se défendaient contre l'attaque combinée de Lu Wenran et de plusieurs cultivateurs du stade initial de la Tribulation du Vide.
+Dans la brume, les cultivateurs ordinaires étaient presque devenus fous, les yeux injectés de sang, lançant divers sorts de toutes parts. Les vieillards Zhang et Zhao, cultivateurs du stade intermédiaire de la Tribulation du Vide, se défendaient contre l'attaque combinée de Lu Wenran et de plusieurs cultivateurs du stade initial de la Tribulation du Vide.
 
 Non loin de là, les deux dernières femmes du stade initial de la Tribulation du Vide du Continent du Démon Vert affrontaient les Anciens Yan Luan et Xu Dongde de la Secte de la Grande Âme.
 

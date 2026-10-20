@@ -34,13 +34,13 @@ Wang Lin détourna son regard de la planète géante. Tout en réprimant la forc
 
 D'un geste de la main, Wang Lin attira l'un des trois dragons vers lui et le saisit fermement par le cou.
 
-Le dragon noir se recroquevilla comme un escargot, le corps contracté par la peur. Les yeux de Wang Lin brillèrent alors qu'il scrutait la créature. Son regard semblait capable de percer l'obscurité du dragon pour voir le monde des Flammes Joss à l'intérieur. Il y avait là des milliers d'Âmes de Flamme Joss, et toutes étaient clairement des cultivateurs du Royaume Intérieur... Certaines lui semblaient même familières.
+Le dragon noir se tordit comme un serpent, le corps contracté par la peur. Les yeux de Wang Lin brillèrent alors qu'il scrutait la créature. Son regard semblait capable de percer l'obscurité du dragon pour voir le monde des Flammes Joss à l'intérieur. Il y avait là des milliers d'Âmes de Flamme Joss, et toutes étaient clairement des cultivateurs du Royaume Intérieur... Certaines lui semblaient même familières.
 
 Une lueur glaciale passa dans ses yeux et il serra impitoyablement. Le dragon noir poussa un cri tandis que la main droite de Wang Lin s'enfonçait en lui. Les milliers de cultivateurs du Royaume Intérieur qu'il avait dévorés furent extraits, libérés pour entrer dans le cycle de la réincarnation.
 
 Wang Lin projeta le dragon noir des Flammes Joss vers Maître Yan Leizi.
 
-« Vous souvenez-vous que lorsque nous nous sommes rencontrés, vous avez dit que j'étais votre destin? Je vous offre ceci. Les Flammes Joss sont toxiques, mais pour vous, les bénéfices surpasseront peut-être les inconvénients. Avec ces Flammes Joss, si l'occasion se présente, vous pourriez devenir un puissant cultivateur! »
+« Vous souvenez-vous que lorsque nous nous sommes rencontrés, vous avez dit que j'étais votre destin? Je vous offre ceci. Les Flammes Joss sont toxiques, mais pour vous, les bénéfices surpasseront peut-être les inconvénients. Avec ces Flammes Joss, si l'occasion se présente, vous pourriez devenir un grand expert! »
 
 Le corps de Maître Yan Leizi trembla sous une émotion monstrueuse. Il saisit le dragon noir scellé par Wang Lin, incapable de trouver ses mots. Bouleversé par cette excitation et un sentiment complexe, il s'inclina profondément devant Wang Lin!
 
@@ -48,7 +48,7 @@ Comment aurait-il pu oublier leur première rencontre? Lorsqu'il avait dit qu'il
 
 « La famille Shengong a un enfant nommé Shengong Hu, est-il toujours en vie? » Wang Lin tourna ensuite son regard vers les cultivateurs du Royaume Extérieur. Pour lui, ces gens étaient déjà morts.
 
-Les mains de Maître Yan Leizi tremblèrent tandis qu'il rangeait le dragon noir. C'était un vieux monstre ayant cultivé pendant des dizaines de milliers d'années; il réprima son excitation et dit respectueusement: « Shengong Hu? Le disciple s'en souvient, il est toujours à Luotian. »
+Les mains de Maître Yan Leizi tremblèrent tandis qu'il rangeait le dragon noir. C'était un vieux monstre ayant cultivé pendant dix mille ans; il réprima son excitation et dit respectueusement: « Shengong Hu? Le disciple s'en souvient, il est toujours à Luotian. »
 
 Une pointe de nostalgie traversa le regard de Wang Lin. Le souvenir de Shengong Hu refit surface. À l'époque, il était plus faible que lui, mais Shengong Hu avait décidé de reconnaître Wang Lin comme son seigneur. Chaque fois qu'il y pensait, un sourire étirait ses lèvres.
 

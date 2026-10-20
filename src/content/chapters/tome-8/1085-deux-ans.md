@@ -71,7 +71,7 @@ Après avoir diffusé ces deux ordres et distribué ces richesses, la formation 
 
 Au moment même où les ordres étaient envoyés, les Quatre Sectes Divines surgirent dans la région est! Elles avaient agi exactement comme Luotian le soupçonnait: elles avaient anéanti toutes les autres forces de la région est, à l'exception du Royaume du Vide Brillant!
 
-À cet instant, le système stellaire de l'Alliance était morcelé, devenu le champ de bataille de plusieurs puissances. Bien que Luotian fût la plus forte en apparence, l'équilibre restait précaire face à la mystérieuse Secte des Cadavres, aux célèbres Quatre Sectes Divines et aux vestiges de l'Alliance qui, armés de trésors et de sorts célestes, se battaient avec leur âme originelle en jeu.
+À cet instant, le système stellaire de l'Alliance était morcelé, devenu le champ de bataille de plusieurs puissances. Bien que Luotian fût la plus forte en apparence, l'équilibre restait précaire face à la mystérieuse Secte des Cadavres, aux célèbres Quatre Sectes Divines et aux vestiges de l'Alliance qui, armés de trésors et de sorts célestes, se battaient avec leur âme de vie en jeu.
 
 Toutefois, la querelle entre le Maître Yan Leizi de Luotian et l'Alliance de Culture ne pouvait être résolue par ce simple équilibre. Luotian lança une nouvelle fois son assaut contre les vestiges de l'Alliance au centre! Les flammes de la guerre se propagèrent et, au fil des combats, les pertes s'intensifièrent.
 

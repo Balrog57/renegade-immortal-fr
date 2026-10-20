@@ -38,7 +38,7 @@ Au même moment, le sang jaillit. Wang Lin pressa rapidement la bouteille de jad
 
 La vitesse de collecte n'avait rien à voir avec ce qui avait été fait précédemment. Une quantité massive de sang fut aspirée dans la bouteille de jade jusqu'à ce que le corps commence à convulser. La puissante force vitale suivit le flux sanguin jusque dans la fiole.
 
-« Pourquoi refusez-vous de me sauver alors que je suis prêt à devenir votre monture?! Que voulez-vous exactement en échange de ma vie?! » La voix se mua en un rugissement.
+« Pourquoi refusez-vous de me sauver alors que je suis prêt à devenir votre monture?! Que faut-il que je fasse pour que vous me sauviez?! » La voix se mua en un rugissement.
 
 La voix de Wang Lin resta calme tandis qu'il achevait de recueillir le sang: « Qui êtes-vous? »
 
@@ -46,7 +46,7 @@ La voix de Wang Lin resta calme tandis qu'il achevait de recueillir le sang: « 
 
 Wang Lin demanda calmement: « Lei Ji, comment avez-vous été scellé ici? »
 
-« À cause de la Secte des Cadavres. Lors de la bataille contre le Clan des Immortels Délaissés, j'ai été traqué par deux chamans à onze feuilles et je fus gravement blessé après m'être échappé. La Secte des Cadavres y a vu une opportunité; ils ont trouvé un puissant cultivateur d'une autre planète pour me capturer et me sceller ici pendant que j'étais grièvement blessé. »
+« À cause de la Secte des Cadavres. Après la bataille contre le Clan des Immortels Délaissés, j'ai été traqué par deux chamans à onze feuilles et je fus gravement blessé après m'être échappé. La Secte des Cadavres y a vu une opportunité; ils ont trouvé un puissant cultivateur d'une autre planète pour me capturer et me sceller ici pendant que j'étais grièvement blessé. »
 
 Wang Lin regarda la fiole de jade dans sa main. Il déploya son Sens Divin et constata qu'elle contenait une quantité prodigieuse de sang.
 
@@ -80,7 +80,7 @@ Privées de leur sceau, les plantes recommencèrent à s'agiter. Quelques-unes a
 
 Flottant dans les airs, le regard de Wang Lin devint glacial et il murmura: « Je ne peux pas vous sauver; vous sauver ne m'apporte rien. Aucun des trésors dont vous parlez ne m'intéresse, et vous laisser ici afin de pouvoir revenir prélever votre sang à tout moment est la meilleure solution. »
 
-La voix s'empressa de répondre: « Vous devez avoir un grand usage pour mon sang! Je possède l'essence de moelle osseuse; son énergie est encore plus puissante que celle du sang. Si vous le souhaitez, je peux vous la donner. Je n'ai même pas besoin d'être sauvé; envoyez simplement des nouvelles de moi au Clan des Démons Géants ou au Suzaku actuel. Qu'en dites-vous? »
+La voix s'empressa de répondre: « Vous devez avoir un grand usage pour mon sang! Je possède l'essence de moelle osseuse; elle contient davantage d'essence que le sang. Si vous le souhaitez, je peux vous la donner. Je n'ai même pas besoin d'être sauvé; envoyez simplement des nouvelles de moi au Clan des Démons Géants ou à l'actuel Zhu Quezi. Qu'en dites-vous? »
 
 Les yeux de Wang Lin s'illuminèrent. Il eut un rire froid et cessa de perdre son temps avec cet individu. Il se transforma en une brume verte et disparut des lieux.
 
@@ -92,7 +92,7 @@ Le rugissement de l'homme était empreint de frustration. Ses yeux clos s'ouvrir
 
 Alors qu'il rugissait, son expression se mua en une grimace de douleur tandis que la peau recouvrant sa colonne vertébrale se mettait à bouger. Peu après, des épines bleu-violet perçèrent son dos.
 
-Des rangées d'épines terrifiantes et luminescentes apparurent sur son dos. Au sommet de la colonne vertébrale du géant, une plante pourpre, de moitié la taille de son corps, émergea. Simultanément, elle déploya d'innombrables branches qui recouvrirent lentement le colosse.
+Des rangées d'épines terrifiantes et luminescentes apparurent sur son dos. Au sommet de la colonne vertébrale du géant, une plante pourpre, de moitié la taille de son corps, émergea. Simultanément, elle déploya d'innombrables branches qui recouvrirent aussitôt le colosse.
 
 Une fleur violette... d'environ un tiers de la taille du géant, s'épanouit. Elle drainait lentement la force vitale du corps du colosse pour croître.
 
@@ -100,12 +100,12 @@ Le géant poussa un rugissement amer: « Secte des Cadavres! Si moi, Lei Ji, par
 
 Le corps de Wang Lin réapparut à l'intérieur de la Secte des Cadavres. Il pointa l'air du doigt, faisant apparaître un fragment d'âme. C'était celui qu'il avait laissé dans la grotte avant de partir vérifier la situation. La grotte possédait une puissance mystérieuse qui restreignait grandement le Sens Divin, mais elle n'avait que peu d'effet sur les fragments d'âme.
 
-En voyant le fragment d'âme, Wang Lin eut un rire froid. Puis, il s'élança et disparut de la Secte des Cadavres.
+Wang Lin toucha le fragment d'âme du doigt; après un instant, il eut un rire froid. Puis, il s'élança et disparut de la Secte des Cadavres.
 
 Wang Lin apparut sur la plaine surplombant la Secte des Cadavres. Il regarda soudainement vers le nord et vit une vague gigantesque de gaz bleu déferler vers lui tel un tsunami. À l'intérieur de ce tsunami de brume, un garçon vêtu de rouge marchait dans cette direction.
 
-Ce garçon était très beau; son visage était aussi blanc que le jade et il avait une apparence très mignonne. Cependant, ses yeux abritaient une flamme farouche et dissimulée. Ce n'était pas dirigé contre Wang Lin, c'était simplement sa nature profonde.
+Ce garçon était très beau; son visage était aussi blanc que le jade et il avait une apparence très mignonne. Cependant, ses yeux abritaient une flamme farouche, presque démesurée, et profondément dissimulée. Ce n'était pas dirigé contre Wang Lin, c'était simplement sa nature profonde.
 
 Il avançait pas à pas. Même le ciel et la terre semblaient trembler sous ses pieds. À mesure que le gaz bleu passait, l'herbe, les arbres et les nuages se changeaient en glace, et tout n'était plus que cristal d'un bleu éclatant.
 
-« Haha, Wang Lin, que penses-tu de ce nouveau corps pour ce vieux fou? »
+« Haha, Wang Lin, que penses-tu de ce nouveau corps de ce vieux? »

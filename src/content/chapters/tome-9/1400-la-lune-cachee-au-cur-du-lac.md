@@ -74,7 +74,7 @@ Bien que Wang Lin se soit montré extrêmement arrogant envers le Grand Maître 
 
 Des éclats de lumière continuaient de traverser le ciel tandis que de plus en plus de personnes rejoignaient la Planète du Grand Empereur. Allongé sur sa feuille, Wang Lin observait les passants et effleura lentement la grande feuille sous lui.
 
-À cet instant précis, son expression changea brusquement et il porta la main à sa droite. En touchant la feuille, il sentit une infime trace d'énergie originelle s'échapper de sa main, hors de son contrôle, pour être absorbée par la plante. Pourtant, en examinant attentivement, il ne trouva rien, comme si ce qu'il venait de ressentir n'était qu'une illusion.
+À cet instant précis, son expression changea brusquement et il regarda sa main droite. En touchant la feuille, il sentit une infime trace d'énergie originelle s'échapper de sa main, hors de son contrôle, pour être absorbée par la plante. Pourtant, en examinant attentivement, il ne trouva rien, comme si ce qu'il venait de ressentir n'était qu'une illusion.
 
 Wang Lin se redressa, les yeux brillants. Bien qu'il n'ait rien trouvé de concret, cette sensation troublante persistait dans son esprit. Il s'éleva dans les airs et regarda en bas.
 
@@ -92,7 +92,7 @@ L'eau était cristalline. Bien qu'on ne puisse pas voir le fond au premier coup 
 
 Le jeune homme et le vieil homme restèrent assis là, la cruche de vin entre eux. Le temps s'écoula lentement, le ciel s'obscurcit davantage et la lune brillante apparut au firmament. Une brise légère soufflait, faisant bruisser la végétation environnante sans rompre la paix des lieux.
 
-De douces ondulations se formèrent à la surface du lac sous l'effet du vent. Les rides de l'eau semblaient cueillir la lune dans le ciel pour l'immerger au plus profond du lac. À cet instant, on ne savait plus distinguer la véritable position de l'astre... La lune était-elle suspendue dans les cieux ou enfouie au fond des eaux? La sérénité de cette scène magnifique permit au cœur fatigué de Wang Lin de se détendre pour la première fois depuis son arrivée dans le Système Stellaire Antique.
+De douces ondulations se formèrent à la surface du lac sous l'effet du vent. Les rides de l'eau semblaient cueillir la lune dans le ciel pour l'immerger au plus profond du lac. À cet instant, on ne savait plus distinguer la véritable position de l'astre... La lune était-elle suspendue dans les cieux ou enfouie au fond des eaux? La sérénité de cette scène magnifique permit au cœur fatigué de Wang Lin de se détendre depuis son arrivée dans le Système Stellaire Antique.
 
 Après un temps indéterminé, la voix rauque du vieil homme résonna doucement:
 

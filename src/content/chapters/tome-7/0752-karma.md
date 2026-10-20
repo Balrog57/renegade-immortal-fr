@@ -16,11 +16,11 @@ Ces dix-huit statues divines dégageaient des éclats de lumière restrictive qu
 
 « Voici la véritable Restriction des 18 Pruniers. Regarde bien! » Les yeux de Li Yuan devinrent glacials tandis qu'il pointait le vide de sa main droite.
 
-Wang Lin répondit d'un ton calme: « Tuer le sang des descendants de son maître... un tel homme est dépourvu de honte et de conscience! Li Yuan, lorsque tu as sacrifié le sang d'un descendant de ton maître, n'as-tu pas ressenti la tristesse émanant de sa statue?! Oses-tu te retourner pour regarder le sceau sur la main droite de ton maître! »
+Wang Lin répondit d'un ton calme: « Tuer le sang des descendants de son maître... un tel homme est dépourvu de honte et de conscience! Li Yuan, lorsque tu as sacrifié le sang d'un descendant de ton maître, n'as-tu pas ressenti la tristesse émanant de la statue de ton maître?! Oses-tu te retourner pour regarder le sceau sur la main droite de ton maître! »
 
 « N'essaie pas de briser ma foi. Tout ce que je fais est pour ressusciter mon seigneur; ce n'est pas une chose qu'un simple enfant comme toi peut comprendre! » Les yeux de Li Yuan étaient sombres.
 
-Wang Lin avait désormais confirmé ses soupçons. Ce Ge Hong était bel et bien le descendant du céleste gravé dans la pierre. Autrefois, l'ancêtre de Li Yuan était venu accompagné de l'ancêtre de la famille Ge. Pour une raison inconnue, l'ancêtre de Li Yuan était mort et les trésors avaient été emportés par l'ancêtre de la famille Ge.
+Wang Lin avait désormais confirmé ses soupçons. Ce Ge Hong était bel et bien le descendant du céleste gravé dans la pierre. Autrefois, l'ancêtre de Li Yuan était venu accompagné d'un membre de la famille Ge. Pour une raison inconnue, l'ancêtre de Li Yuan était mort et les trésors avaient été emportés par un membre de la famille Ge.
 
 Toutefois, Wang Lin restait perplexe sur un point. Mais au moment où Li Yuan reconnut le garde céleste et prononça le sort d'Arrêt, Wang Lin fut soudainement éclairé et comprit tout.
 
@@ -30,7 +30,7 @@ Wang Lin frappa son sac de rangement et un rocher apparut dans sa main. La pierr
 
 Wang Lin se tenait au centre du cercle, le regard brillant intensément.
 
-« Li Yuan est un descendant de la famille Li. Il a passé sa vie à tenter de libérer les siens de l'empreinte d'esclave. Pourtant, tu fais l'inverse. Non seulement tu ne cherches pas à briser cette empreinte, mais tu utilises l'âme de tous ces esclaves comme sacrifices pour ressusciter ton maître. La clé de tout cela est le sang du descendant, utilisé comme offrande pour réveiller l'âme dormante scellée en son sein! Qui diable es-tu?! »
+« Li Yuan est un descendant de la famille Li. Il a passé sa vie à tenter de libérer les siens de l'empreinte d'esclave. Pourtant, tu fais l'inverse. Non seulement tu ne cherches pas à briser cette empreinte, mais tu utilises les empreintes d'esclave de tous ces membres de la famille pour ressusciter ton maître. La clé de tout cela est le sang du descendant, utilisé comme offrande pour réveiller l'âme dormante scellée en son sein! Qui diable es-tu?! »
 
 Le regard de Li Yuan devint glacial. Sa main traça un sceau et pointa Wang Lin. Les dix-huit statues célestes tremblèrent et se transformèrent en dix-huit fleurs de prunier qui tournèrent frénétiquement autour de lui.
 
@@ -52,7 +52,7 @@ Parmi les dix-huit fleurs de prunier, trois s'effondrèrent instantanément. Wan
 
 « Tu es l'âme du serviteur du céleste. Avec l'empreinte d'esclave, tu t'es fondu dans le cycle de réincarnation des membres de la famille Li, si bien que de génération en génération ils suivent ta volonté et deviennent les esclaves du céleste! »
 
-« Non seulement tu n'es pas Li Yuan, mais même l'ancêtre Li d'il y a des dizaines de milliers d'années, celui qui recueillit les trois trésors, n'était pas lui-même. C'est toi qui t'es fusionné avec l'empreinte d'esclave pour te réincarner dans la famille Li! » Les yeux de Wang Lin brillaient alors qu'il avançait, la voix empreinte de détermination.
+« Non seulement tu n'es pas Li Yuan, mais même l'ancêtre Li d'il y a des dizaines de milliers d'années, celui qui recueillit les trois trésors, n'était pas lui-même. Toi et lui n'êtes que des corps de réincarnation de l'âme de serviteur du céleste, transformée en empreinte d'esclave! » Les yeux de Wang Lin brillaient alors qu'il avançait, la voix empreinte de détermination.
 
 « C'est pourquoi, il y a des dizaines de milliers d'années, lors de ta première réincarnation, tu as pu faire obéir la famille Ge. Aujourd'hui, après des dizaines de milliers d'années dans ta seconde réincarnation, tu es toujours capable de les soumettre. C'est parce que tu es poussé par un sentiment de rectitude qui t'oblige à ressusciter ton maître, dût cela se faire au détriment de toute la famille Ge! »
 
@@ -114,7 +114,7 @@ Dès l'apparition de l'Écran, la Peinture Montagne et Rivière enveloppa Wang L
 
 « Il y a des dizaines de milliers d'années, tu es venu ici avec ces trois trésors, tout comme aujourd'hui, accompagné d'un membre de la famille Ge. Si tu as échoué à l'époque, c'est parce que même ton maître refusait de s'éveiller par une telle méthode. En tant que serviteur de ton maître, es-tu vraiment sûr de n'avoir rien fait de mal?! »
 
-La voix de Wang Lin émanait de la montagne et de la rivière. Elle portait la puissance du tonnerre et résonnait à travers le monde. Ce grondement était si puissant qu'il résonna violemment dans les oreilles de Li Yuan.
+La voix de Wang Lin émanait de la montagne et de la rivière. Elle portait la puissance du tonnerre et résonnait à travers le monde. Ce grondement était si puissant qu'il résonna violemment dans les oreilles de Li Yuan, sans qu'un seul mot ne se perde.
 
 Le corps de Li Yuan trembla et le conflit intérieur réapparut sur son visage.
 

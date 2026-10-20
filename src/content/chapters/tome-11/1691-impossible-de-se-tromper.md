@@ -90,7 +90,7 @@ Un puits illusoire colossal surgit derrière l'empreinte. Le puits s'étendit so
 
 Simultanément, un soleil rouge éclatant apparut au sein de ce domaine entouré par les eaux du puits. La puissance de la loi d'origine se manifesta.
 
-Le Souverain était devenu fou. En avançant, il frappa son propre front de la main. Une perle osseuse de la taille d'un poing jaillit soudainement de son crâne. Cette perle grise émettait une lueur blanche et, dès son apparition, la puissance du Souverain fut multipliée par plusieurs. Il chargea alors de front vers Wang Lin.
+Le Souverain était devenu fou. En avançant, il frappa le sommet de son crâne de la main. Une perle osseuse de la taille d'un poing jaillit soudainement de son crâne. Cette perle grise émettait une lueur grisâtre, exhalant un souffle d'ossements blancs, et dès son apparition, la puissance du Souverain fut multipliée par plusieurs. Il chargea alors de front vers Wang Lin.
 
 « Je vais te faire croire, je vais te forcer à t'en souvenir! » Wang Lin ferma ses yeux froids pour que les autres ne voient pas l'éclat doré de son regard. Bandant l'arc grâce à son sens divin, il tira davantage sur la corde avec sa main droite afin d'augmenter la tension, puis il relâcha brusquement!
 

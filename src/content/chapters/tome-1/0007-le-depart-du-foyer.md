@@ -46,7 +46,7 @@ Dans la chaleur des bras maternels, le cœur blessé de Tie Zhu se calmait lente
 
 Il fit un rêve. Il rêvait qu'il était un immortel, survolant les cieux aux côtés de ses parents...
 
-Lorsque Tie Zhu se réveilla, la nuit était déjà bien avancée. Il poussa un léger soupir en contemplant sa chambre familière, mais son cœur était résolu. Avant de quitter la maison, il jeta un long regard vers la chambre de ses parents. Il saisit une plume et du papier pour écrire une lettre. Après avoir pris quelques provisions sèches, il se mit en route.
+Lorsque Tie Zhu se réveilla, la nuit était déjà bien avancée. Il poussa un léger soupir en contemplant sa chambre familière, mais son cœur était résolu. Avant de quitter la maison, il jeta un long regard vers la chambre de ses parents. Il saisit une plume et du papier pour écrire une lettre. Après avoir pris suffisamment de provisions sèches, il se mit en route.
 
 « Je ne renoncerai pas à la voie de l'immortalité. Je dois tenter de rejoindre la Secte Heng Yue une fois de plus! S'ils refusent encore de m'accepter, je devrai au moins trouver l'emplacement d'autres sectes immortelles. » Les yeux de Wang Lin brillaient de détermination alors qu'il quittait le village de montagne, n'emportant qu'un sac pour tout bagage.
 

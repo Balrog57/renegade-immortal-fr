@@ -20,7 +20,7 @@ Alors, le pouvoir de déchirer cette nuit noire était sa véritable volonté d�
 
 Wang Lin ne le comprenait pas initialement, mais après avoir contemplé l'aura au cœur du soleil, il saisit vaguement pourquoi il avait pu créer Nuit Brisée!
 
-Parce qu'il refusait d'abandonner Li Muwan, il allait déchirer la nuit noire du monde! Pour elle, il ferait en sorte que l'obscurité ne puisse plus jamais voiler ses yeux!
+Parce qu'il refusait d'abandonner Li Muwan, il allait déchirer la nuit noire qui enveloppait le monde de Li Muwan! Pour elle, il ferait en sorte que l'obscurité ne puisse plus jamais voiler ses propres yeux!
 
 C'était cela, Nuit Brisée!
 
@@ -38,7 +38,7 @@ Wang Lin ne comprenait pas auparavant et se sentait lui-même confus. Cependant,
 
 C'était le premier sort qu'il avait créé, et le seul imprégné de sa propre foi. Il accompagnait son âme indomptable et fusionnait avec elle pour former un sortilège surpassant les sorts Dao!
 
-Ce sort était totalement fusionné avec son corps, sa vie et sa foi. Wang Lin ignorait la nature exacte de ce pouvoir, mais Zhang Daozong et les autres, eux, le savaient.
+Ce sort était totalement fusionné avec son corps, sa vie et sa foi. Wang Lin ne savait pas quel nom lui donner, mais Zhang Daozong et les autres, eux, le connaissaient.
 
 Au moment où la mer submergea le monde et que le soleil apparut au loin, l'attention de tous fut captée par l'unique lueur dans l'obscurité.
 
@@ -110,7 +110,7 @@ C'était une foi capable de défier les cieux et de déchirer la nuit pour ressu
 
 C'était son premier sortilège de la foi!!
 
-L'obscurité céleste disparut sans laisser de trace, tout comme la mer. Les âmes originelles des deux cultivatrices au début de la Tribulation du Vide s'évanouirent. Il n'y eut aucun cri de détresse; elles semblaient avoir été touchées par la foi de Wang Lin et furent libérées lorsque la lumière déchira les ténèbres. Elles sourirent tandis que leurs âmes originelles se dissolvaient!
+L'obscurité céleste disparut sans laisser de trace, tout comme la mer. Les âmes originelles des deux cultivatrices au début de la Tribulation du Vide s'évanouirent. Il n'y eut aucun cri de détresse; elles semblaient avoir été touchées par la foi de Wang Lin et furent libérées lorsque la lumière déchira les ténèbres. Elles sourirent tandis que leurs âmes originelles se dissolvaient, corps et esprit anéantis!
 
 Le vieil homme nommé Zhao trembla tandis que son corps était lacéré par l'obscurité. Son âme originelle luttait contre la nuit dans des rugissements de douleur.
 

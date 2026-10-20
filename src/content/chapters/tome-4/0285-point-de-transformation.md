@@ -29,9 +29,9 @@ Des ondes de pression émanèrent du cocon, accompagnées des battements sourds 
 
 Treize jours plus tard, les battements à l'intérieur du cocon devinrent plus intenses, tels les coups d'un tambour. Enfin, lorsque le rythme atteignit son paroxysme, une fissure apparut sur la coque dorée. Les craquelures se multiplièrent et s'élargirent jusqu'à ce que le cocon soit entièrement parcouru de fêlures, laissant filtrer une lumière violette aveuglante.
 
-Après quelques craquements stridents, de gros morceaux de l'enveloppe tombèrent. Un bras de couleur bronze émergea alors du cocon. Par la suite, le corps originel en sortit. Ses cheveux rouges, semblables à du sang s'écoulant, retombaient sur ses épaules, tandis que les deux étoiles violettes sur son front tournaient lentement.
+Après quelques craquements stridents, de gros morceaux de l'enveloppe tombèrent. Un bras de couleur bronze émergea alors du cocon. Par la suite, le corps originel en sortit. Ses cheveux rouges, semblables à du sang s'écoulant, retombaient sur ses épaules, tandis que les deux étoiles violettes sur son front tournaient lentement, comme un taiji.
 
-Ses yeux n'étaient plus rouges mais avaient considérablement foncé; pourtant, si l'on regardait de près, on aurait dit qu'ils contenaient une mer de sang. En absorbant la culture de son corps originel et d'innombrables pilules, celui-ci était parvenu à la deuxième transformation de l'Ancien Dieu.
+Ses yeux n'étaient plus rouges mais avaient considérablement foncé; pourtant, si l'on regardait de près, on aurait dit qu'ils contenaient une Mer de Sang. En absorbant la culture de son corps originel et d'innombrables pilules, celui-ci était parvenu à la deuxième transformation de l'Ancien Dieu.
 
 La quantité d'énergie spirituelle nécessaire pour qu'un Ancien Dieu subisse une telle transformation était désormais d'innombrables fois supérieure à ce qui l'était autrefois.
 

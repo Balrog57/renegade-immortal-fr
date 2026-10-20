@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 300 - Celestial Jade (1)
 slug: jade-celeste-1
 ---
-Après avoir projeté sa paume, toute l'énergie spirituelle contenue dans le corps de Wang Lin disparut. En raison du piège pour bêtes, il était habitué à cette situation; il prit donc rapidement quelques pilules. Avant même que celles-ci ne soient totalement dissoutes, il sortit le jade, ouvrit la formation et choisit un fragment au hasard.
+Après avoir projeté sa paume, toute l'énergie spirituelle contenue dans le corps de Wang Lin disparut. En raison du piège à bêtes, il était habitué à cette situation; il prit donc rapidement quelques pilules. Avant même que celles-ci ne soient totalement dissoutes, il sortit le jade, ouvrit la formation et choisit un fragment au hasard.
 
 Lorsque Papillon Rouge leva la tête, Wang Lin avait déjà disparu. Un éclat de froideur passa dans son regard.
 
@@ -20,7 +20,7 @@ Wang Lin flottait dans les airs tout en observant les environs. Ce fragment éta
 
 Wang Lin fronça les sourcils. Il ignorait pourquoi les matrices de transfert de la Secte Da Luo étaient toutes situées sur ces fragments dangereux. Cela signifiait-il que plus un fragment était périlleux, plus il recelait d'énergie spirituelle céleste?
 
-Wang Lin s'élança hors de la matrice de transfert, ces questions en tête. Il déploya son sens divin tout en descendant pour éviter les failles spatiales. Tout se déroulait normalement jusqu'à ce qu'il se trouve à 330 mètres du sol lorsqu'une faille spatiale apparut silencieusement à ses côtés.
+Wang Lin s'élança hors de la matrice de transfert, ces questions en tête. Il déploya son sens divin tout en descendant pour éviter les failles spatiales. Tout se déroulait normalement jusqu'à ce qu'il se trouve à moins de 330 mètres du sol lorsqu'une faille spatiale apparut silencieusement à ses côtés.
 
 Wang Lin fut surpris, car son sens divin ne l'avait absolument pas détectée. Cependant, il n'était pas novice dans le monde de la culture et réagit promptement. Au moment même où la faille surgissait, il parvint à forcer son corps à s'écarter sur le côté.
 
@@ -44,7 +44,7 @@ Il réfléchit un instant et ne s'aventura pas tête baissée. Au lieu de cela, 
 
 Ses yeux s'illuminèrent et, juste au moment où il s'apprêtait à entrer, une lueur jaillit du ciel alors qu'une matrice de transfert se matérialisait dans les airs.
 
-Une expression de joie apparut sur le visage de Wang Lin. Il s'inquiétait justement de la manière d'entrer, mais si quelqu'un d'autre acceptait de s'y risquer avant lui, ce serait bien plus sûr. Son corps disparut aussitôt sur place.
+Une expression de joie apparut sur le visage de Wang Lin. Il hésitait justement à entrer, mais si quelqu'un d'autre acceptait de s'y risquer avant lui, ce serait bien plus sûr. Son corps disparut aussitôt sur place.
 
 À cet instant, deux silhouettes apparurent dans la matrice de transfert, chacune portant une épée dans le dos. Une fois descendus, l'un d'eux déclara immédiatement: « Sixième frère cadet, c'est ta première fois ici, alors fais bien attention aux failles spatiales. N'oublie pas de maintenir la Tactique de Recherche Complète activée en permanence! »
 
@@ -80,9 +80,9 @@ En plein vol, il s'arrêta soudainement lorsqu'il perçut, grâce à son sens di
 
 « Autrefois, l'Ancêtre a trouvé la bête céleste Qi Lin ici. Jeune frère cadet, protège-moi pendant que je rassemble l'énergie spirituelle céleste des environs. »
 
-En entendant cela, le sixième frère cadet hocha vivement la tête; une épée jaillit de son dos et flotta au-dessus de lui. Il observa attentivement les alentours, prêt à remarquer le moindre signe suspect.
+En entendant cela, le sixième frère cadet toucha vivement l'épée dans son dos; celle-ci jaillit et flotta au-dessus de lui. Il observa attentivement les alentours, prêt à remarquer le moindre signe suspect.
 
-Le troisième frère aîné regarda son cadet avec un air satisfait et prit une profonde inspiration. Après avoir utilisé une technique inconnue, la veine de sa main se mit à battre alors qu'il poussait la statue de pierre. Après une série de grondements, la statue glissa lentement sur le côté. L'homme, le visage blême, recula de quelques pas, changea de sceaux de la main et fit lever un vent puissant qui s'abattit sur la statue.
+Le troisième frère aîné regarda son cadet avec un air satisfait et prit une profonde inspiration. Après avoir utilisé une technique inconnue, les veines de ses mains saillirent alors qu'il poussait la statue de pierre. Après une série de grondements, la statue glissa lentement sur le côté. L'homme, le visage blême, recula de quelques pas, changea de sceaux de la main et fit lever un vent puissant qui s'abattit sur la statue.
 
 La pierre bougea à nouveau, révélant un trou de la taille d'un poing dans le sol. Des filaments d'énergie spirituelle céleste s'en échappèrent.
 
@@ -105,5 +105,3 @@ Les deux hommes discutèrent encore un peu avant de s'envoler vers une entrée d
 Le lieu était un véritable labyrinthe. Si Wang Lin n'avait pas maintenu son sens divin verrouillé sur eux, il les aurait perdus. Après avoir progressé longtemps, le troisième frère aîné s'arrêta brusquement, fixant l'obscurité avec une expression étrange.
 
 Au loin, à l'endroit que fixait l'homme, un squelette était appuyé contre la paroi. Dans sa main, une sphère de lumière émettait de douces ondulations lumineuses.
-
-Le sens divin de Wang Lin balaya les lieux et il fronça les sourcils. Ce squelette était fort étrange: ses os étaient d'un gris blanchâtre, une couleur suspecte. Qu'il y ait des ossements en ces lieux n'avait rien d'extraordinaire, mais avec le temps, leur couleur aurait dû changer et des traces d'érosion apparaître, ce qui n'était pas le cas de ces os.

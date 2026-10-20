@@ -8,11 +8,11 @@ slug: reincarnation-des-blocs-de-reve
 ---
 À un autre moment et dans un espace différent, Wang Lin se tenait exactement au même endroit. C'était un instant très rare; Wang Lin ignorait si d'autres avaient déjà vécu cela, mais il savait qu'il le vivait lui-même.
 
-Il se tenait tel qu'il l'avait été lorsqu'il était entré dans le rêve sur la planète Suzaku. Il était dans un état d'illumination sous la pluie et, bien que ses yeux fussent clos, le monde entier résidait dans son cœur.
+Il se tenait tel qu'il l'avait été lorsqu'il était entré dans le rêve sur la planète Suzaku. Il était dans un état d'illumination sous la pluie et, bien que ses yeux fussent clos, le monde entier résidait dans son cœur, et toutes choses semblaient animées d'un esprit.
 
 C'était comme un enfant ayant quitté son foyer et qui, après des décennies, apercevrait soudain quelque chose de très familier. Peu importe les efforts de l'enfant, il ne parvenait pas à se souvenir de la source de ce sentiment de familiarité.
 
-Wang Lin ferma les yeux et relia ce sentiment familier à la scène du monde des grottes. Son corps devint le pont reliant le monde des grottes au Continent Astral Immortel.
+Wang Lin ferma les yeux et relia ce sentiment familier à la scène du monde des grottes. Son corps devint un fil invisible reliant le monde des grottes au Continent Astral Immortel.
 
 « Cette pluie est très familière... Le son de la pluie frappant les dalles de pierre verte est également très familier... » murmura Wang Lin pour lui-même. Après un long moment, il ouvrit les yeux et contempla la montagne, le temple, la place et le fourneau surplombant l'esplanade. Cette scène lui permit de vaguement comprendre quelque chose.
 
@@ -56,7 +56,7 @@ Qu'il s'agisse de lui ou de Liu Jinbiao, tous deux luttaient pour confirmer leur
 
 « Tu utilises la tromperie comme Dao pour tromper le monde. J'utilise ma vie comme Dao pour défier le monde et remettre d'aplomb mon reflet... En vérité, nous cultivons tous deux nos cœurs... » Wang Lin ferma les yeux.
 
-« À mes yeux, le monde est mon apparence... Si je ferme les yeux, le monde n'existe plus... Si le monde ferme les yeux, moi, j'existerai toujours! Si je peux atteindre un état où, lorsque j'ouvre les yeux, le monde ferme les siens et demeure dormant tant que je vis, alors je deviendrai immortel. » Wang Lin prit une profonde inspiration et ouvrit les yeux.
+« À mes yeux, le monde est mon apparence... Si je ferme les yeux, le monde n'existe plus... Si le monde ferme les yeux, moi, j'existerai toujours! Si je peux atteindre un état où, lorsque j'ouvre les yeux, le monde ferme les siens et demeure endormi tant que je suis impérissable, alors je deviendrai immortel. » Wang Lin prit une profonde inspiration et ouvrit les yeux.
 
 « J'ai expérimenté la vie et la mort, j'ai traversé le karma, j'ai cherché le vrai et le faux pour moi qui ai sombré dans la mer... S'il existe une quatrième essence éthérée, c'est la réincarnation...
 

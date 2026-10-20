@@ -16,7 +16,7 @@ La quantité d'énergie spirituelle requise pour le second niveau était bien pl
 
 S'il s'agissait du premier niveau, neuf mois de culture avec une telle réserve d'énergie lui auraient apporté des résultats probants; mais désormais, bien qu'il sentît que son corps regorgeait d'une énergie spirituelle bien plus dense, il ne parvenait toujours pas à atteindre les résultats escomptés.
 
-Le jour de la rencontre convenue avec Wang Hao était arrivé, et Wang Lin ne pénétra pas dans l'espace onirique. Vers minuit, la neige commença à tomber, et Wang Hao fit irruption dans le Sens Divin de Wang Lin.
+Le jour de la rencontre convenue avec Wang Hao était arrivé, et Wang Lin ne pénétra pas dans l'espace onirique. Vers minuit, la neige commença à tomber, et Wang Hao apparut dans le Sens Divin de Wang Lin.
 
 Peu après, Wang Hao frappa à la porte, sans toutefois entrer. Il lança précipitamment: « Le Maître a mis du temps à raffiner ses pilules, ce qui m'a retardé, et j'ai eu bien du mal à sortir. Dépêche-toi, l'échange va bientôt commencer! »
 
@@ -46,7 +46,7 @@ Bientôt, les participants se succédèrent un à un, exhibant leurs trésors. L
 
 « Je possède ici une technique qui se pratique dès le second niveau de Condensation de Qi et peut masquer votre culture pendant une courte période, à moins que la personne ne soit déjà au stade de l'Établissement des Fondations. Je sais bien que cet objet est peu utile. Je n'en demande que 10... non, 5 pilules de Rassemblement de Qi. » L'homme qui parlait semblait très hésitant.
 
-L'assistance éclata de rire. Cette technique était effectivement dérisoire. Tous les disciples voulaient étaler leur puissance, car plus la culture était élevée, meilleur était le traitement. Qui serait assez ennuyeux pour vouloir dissimuler sa force? Si l'effet durait plus longtemps, cela aurait un intérêt, mais il ne s'agissait que d'une brève durée pour un coût de 5 pilules de Rassemblement de Qi.
+L'assistance éclata de rire. Cette technique était effectivement dérisoire. Tous les disciples voulaient étaler leur puissance, car plus la culture était élevée, meilleur était le traitement. Qui serait assez désœuvré pour vouloir dissimuler sa force? Si l'effet durait plus longtemps, cela aurait un intérêt, mais il ne s'agissait que d'une brève durée pour un coût de 5 pilules de Rassemblement de Qi.
 
 Voyant que personne n'était intéressé, l'homme soupira. Alors qu'il allait ranger son bien, Wang Lin interpella: « J'échange 5 pilules de Rassemblement de Qi contre cela. »
 

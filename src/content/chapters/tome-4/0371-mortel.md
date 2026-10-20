@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 371 - Mortal
 slug: mortel
 ---
-Après l'affrontement entre Wang Lin et Papillon Rouge, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
+Après l'affrontement entre Wang Lin et Papillon Rouge, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus et retenus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
 
 Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Guerre Divin, ces objets devinrent soudainement les sujets de conversation les plus brûlants parmi les cultivateurs.
 
@@ -70,7 +70,7 @@ Le jeune homme se retourna, regarda la fillette et se leva. Ses jambes étaient 
 
 Le jeune homme suivit lentement la fillette. En observant le village, la tristesse dans ses yeux s'accentua.
 
-Dans une maison proche de l'entrée du village, un homme d'âge moyen était assis. Sa chemise bleue avait été tellement lavée qu'elle en devenait blanche.
+Dans une cour clôturée de palissades, au sein du village, un homme d'âge moyen était assis. Sa chemise bleue, à force d'avoir été lavée, avait un peu pâli.
 
 Des herbes étaient étalées sur le sol et, au gré du vent, leur parfum se répandait dans l'air.
 
@@ -82,7 +82,7 @@ La petite tira la langue sans répondre. Au lieu de cela, elle courut dans la ma
 
 L'homme se leva et regarda le jeune homme. Il dit: « Jeune frère, ne lui en veux pas; Er Ya a toujours été ainsi. Viens, laisse-moi voir à quel point tu t'es rétabli. »
 
-Le jeune homme hocha la tête et s'assit près de lui. Il tendit son bras, qui était extrêmement mince, ressemblant à de l'os enveloppé de peau.
+Le jeune homme hocha la tête et s'assit près de lui. Il tendit son bras droit, qui était extrêmement mince, ressemblant à de l'os enveloppé de peau.
 
 L'homme pressa le bras du garçon. Après un instant, il esquissa un sourire: « Jeune frère, tu te rétablis très bien. Laisse-moi te donner encore quelques remèdes, puis tu n'auras plus qu'à nourrir ton corps et tout ira bien. »
 

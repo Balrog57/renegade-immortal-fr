@@ -62,7 +62,7 @@ Le rugissement de Tuo Sen, lorsqu'il avait quitté la Terre de l'Ancien Dieu il 
 
 « Un jour, je viendrai te chercher pour reprendre l'héritage de Tu Si! »
 
-« Je crains que Tuo Sen ne sorte bientôt... » Wang Lin était assis sur un rocher au bord d'un volcan sur l'une des planètes principales. Le volcan dégageait une fumée épaisse et une chaleur intense.
+« Je crains que Tuo Sen ne sorte bientôt... » Wang Lin était assis sur un rocher au bord d'un volcan sur cette planète principale. Le volcan dégageait une fumée épaisse et une chaleur intense.
 
 Tuo Sen était comme une lame suspendue au-dessus de la tête de Wang Lin, prête à tomber à tout instant. Wang Lin était tourmenté par cette menace depuis plus de mille ans. Grâce à son corps originel d'Ancien Dieu qui avait atteint cinq étoiles et aux connaissances tirées de ses souvenirs hérités, Wang Lin était capable d'analyser minutieusement la puissance d'un Ancien Dieu à huit étoiles.
 
@@ -80,7 +80,7 @@ Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit 
 
 « Tuo Sen... Je ne te laisserai pas t'échapper si facilement. Ce monde est imprégné d'avidité. Je me demande combien de personnes seront attirées par la promesse d'un Ancien Dieu à huit étoiles... » Wang Lin afficha un sourire sinistre.
 
-À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds autour de Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte des Cadavres, Luotian et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
+À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds devant Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte des Cadavres, Luotian et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
 
 Cet ancien n'était pas l'un des six qui s'étaient rendus à la Terre des Esprits Démoniaques. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
 
@@ -118,4 +118,4 @@ Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil hom
 
 À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 
-La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Ce Junior est Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »
+La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Cette jeune fille est Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »

@@ -34,15 +34,15 @@ Son visage devint jaune et noir, comme s'il pourrissait, dégageant une odeur f�
 
 Son visage était couvert de cicatrices et trois aiguilles transperçaient ses lèvres. Sous sa chevelure ébouriffée, ses yeux projetaient un regard d'une froideur infinie!
 
-« Il y a 40 000 ans, ce vieil homme a raffiné les trois Immortels de la Grande Désolation en aiguilles pour sceller mes lèvres. Afin de vous tuer aujourd'hui, je vais vous faire comprendre pourquoi je devais les garder scellées! Trois Immortels, libérez-vous! » rugit la Grande Désolation. Les trois aiguilles qui apparurent lorsqu'il retrouva sa forme originale transpercèrent ses lèvres et furent projetées vers l'avant.
+« Il y a 40 000 ans, ce vieil homme a raffiné les trois Immortels de la Grande Désolation en aiguilles pour sceller mes lèvres. Afin de te tuer aujourd'hui, je vais te faire comprendre pourquoi je devais les garder scellées! Trois Immortels, libérez-vous! » rugit la Grande Désolation. Les trois aiguilles qui apparurent lorsqu'il retrouva sa forme originale transpercèrent ses lèvres et furent projetées vers l'avant.
 
 Elles se transformèrent en trois rayons de lumière noire fonçant vers le Maître Dao Miao Yin! Au même moment, les lèvres de Grande Désolation s'entrouvrirent légèrement!
 
-Alors que le Maître Dao Miao Yin reculait, il agita la main et les grondements dans l'air s'intensifièrent. En quelques instants seulement, ce son supplanta tout le reste au monde.
+Alors que le Maître Dao Miao Yin reculait, il agita les deux mains et les grondements dans l'air s'intensifièrent. En quelques instants seulement, ce son supplanta tout le reste au monde.
 
 Un océan violet apparut également devant lui, accompagné du fracas des vagues!
 
-La fusion de l'essence sonore et aquatique sous la forme d'un océan engendra le rugissement des mers, la voix du ciel, de la terre et de la mer! Le son fut amplifié des milliers de fois jusqu'à devenir assez puissant pour briser les cieux. Ce bruit fit s'effondrer le sceau qui retenait cette terre!
+La fusion de l'essence sonore et aquatique sous la forme d'un océan engendra le rugissement des mers, la voix du ciel, de la terre et de la mer! Le son fut amplifié d'innombrables fois jusqu'à devenir assez puissant pour détruire ciel et terre. Ce bruit fit s'effondrer le sceau qui retenait cette terre!
 
 Même les quelque cent cultivateurs au sol ne purent l'éviter. Tandis que l'océan rugissait, ils poussèrent des cris déchirants alors que leurs corps s'effondraient un à un.
 
@@ -64,7 +64,7 @@ Tout cela se produisit en un éclair. L'océan violet entra en collision avec le
 
 Des grondements tonitruants résonnèrent frénétiquement et la terre scellée vola en éclats, transformant l'endroit en un fragment de la mer de brouillard. Le brouillard fut repoussé dans toutes les directions.
 
-La silhouette de la Grande Désolation était sur le point d'être submergée par l'océan violet lorsqu'un sifflement retentit. Une lumière violet-noir jaillit des lèvres de la Grande Désolation.
+La silhouette de la Grande Désolation était sur le point d'être submergée par l'océan violet lorsqu'un rugissement retentit. Une lumière violet-noir jaillit des lèvres de la Grande Désolation.
 
 C'était une langue!
 
@@ -110,7 +110,7 @@ Il fut projeté en arrière dans une brume de sang. Au même moment, l'âme de l
 
 C'était l'atout de Wang Lin, le coup le plus puissant qu'il avait préparé pour prendre l'adversaire totalement au dépourvu!!
 
-L’estimé Ling Dong, qui venait tout juste de devenir un esclave ancien [1], n'avait pas encore été suffisamment affiné et ne pouvait donc être invoqué que peu de temps. Il n'y avait de la place que pour un seul coup. Wang Lin saisit cette opportunité cruciale et ordonna à l’esclave ancien d'attaquer.
+L’estimé Ling Dong, qui venait tout juste de devenir un esclave ancien, n'avait pas encore été suffisamment affiné et ne pouvait donc être invoqué que peu de temps. Il n'y avait de la place que pour un seul coup. Wang Lin saisit cette opportunité cruciale et ordonna à l’esclave ancien d'attaquer.
 
 Le Maître Dao Miao Yin était l'un des cinq grands maîtres; ainsi, bien que sa culture fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Grande Désolation, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.
 
@@ -120,7 +120,7 @@ Ce fut son erreur la plus fatale.
 
 Pourtant, malgré cela, l’esclave ancien fut frappé par l'onde de choc après avoir utilisé son sort et cracha du sang en conséquence. Même la statue qu'il avait invoquée se désintégra.
 
-Le sang jaillit de la bouche de Wang Lin et un rugissement résonna à ses oreilles. Le choc provoqué par Miao Yin le repoussa violemment. Sentant une douleur lancinante dans son âme originelle, il cracha du sang.
+Le sang jaillit de la bouche de Wang Lin et un rugissement résonna à ses oreilles. Le cri strident de Miao Yin pénétra en lui et le repoussa violemment. Sentant une douleur lancinante dans son âme originelle, il cracha du sang.
 
 Cependant, juste après avoir reculé de quelques pas, Wang Lin se força à s'arrêter. Une lueur glaciale traversa ses yeux et il s'élança en avant. Ignorant Miao Yin qui était projeté en arrière, il agita sa main droite. Le Fourneau Impérial s'agrandit soudain jusqu'à plusieurs centaines de milliers de pieds et engloutit l'océan noir.
 
@@ -134,7 +134,7 @@ Les vieux monstres ayant cultivé pendant des dizaines de milliers d'années ét
 
 C'est pourquoi il avait délibérément repoussé le Maître Dao Miao Yin lors de l'attaque de l'esclave ancien. Il n'avait pas non plus enfoncé complètement les trois aiguilles, laissant ainsi à Miao Yin une chance de retarder Grande Désolation.
 
-L’âme de Grande Désolation poursuivit rapidement le Maître Dao Miao Yin. Son âme se mua en un gaz noir, devenant une possession cruelle.
+L’âme de Grande Désolation poursuivit rapidement le Maître Dao Miao Yin. Son âme se mua en un gaz noir qui s'infiltra par les sept orifices de Miao Yin pour le posséder cruellement.
 
 Si Wang Lin avait enfoncé totalement les aiguilles, Miao Yin n'aurait eu que peu de moyens de résister; mais la situation était désormais différente. Les deux entités se livraient un combat acharné avec leurs sens divins à l'intérieur du corps de Miao Yin.
 
@@ -182,7 +182,7 @@ Cette croissance soudaine le fit dépasser de plus de 2 000 pieds au sein de la 
 
 Wang Lin rugit et, d'un geste de la main, projeta les deux Feuilles Anciennes pour sceller les bords de la faille. Cela força l'ouverture rétrécissante à se figer un instant.
 
-Profitant de cette pause, la main droite de Wang Lin jaillit comme une météorite dans le royaume pour y saisir impitoyablement d'innombrables âmes de Flammes Joss.
+Profitant de cette pause, la main droite de Wang Lin jaillit comme une étoile filante dans le royaume pour y saisir impitoyablement d'innombrables âmes de Flammes Joss.
 
 Simultanément, la main surgie du brouillard agrippa Wang Lin sous la poitrine. La douleur envahit son corps; la puissance de cette main semblait vouloir l'écraser totalement.
 
@@ -220,11 +220,9 @@ Son corps fut rapidement entraîné vers le fond de la mer de brouillard par le 
 
 Peu après, tout fut recouvert par la brume, puis le calme revint progressivement.
 
-Quelques heures plus tard, un groupe de plus de vingt cultivateurs passa en vol, sans rien remarquer.
+Quelques heures plus tard, un groupe de plus de vingt cultivateurs passa à toute vitesse sur leurs plateformes, sans rien remarquer.
 
 « Étrange. D'après la carte, il devrait y avoir une terre scellée ici... »
 
 « Nous avons cherché longtemps sans rien trouver. La carte est-elle erronée? » Le groupe s'éloigna peu à peu...
 
-***
-[1] Note de traduction: Changement de "Gu Nuzi" en "esclave ancien". Il s'agit ici d'un titre et non d'un nom propre.

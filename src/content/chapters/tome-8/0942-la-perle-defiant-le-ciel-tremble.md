@@ -16,13 +16,13 @@ Pourtant, inconsciemment, il eut l'impression d'avoir déjà vécu cela. Ce sent
 
 Son visage devint sombre et une lueur de froideur traversa son regard. Il resta vigilant, fixant l'horizon tout en fouillant dans ses souvenirs pour comprendre cette sensation paradoxale.
 
-Alors que Luo Chen riait, il se retira soudainement du Sceau Tueur de Dieux. Une multitude d'épines osseuses sur ses bras s'étaient effondrées, mais il était exalté. Il regarda Wang Lin avec admiration.
+Alors que Luo Chen riait, il se retira soudainement du Sceau Tueur de Dieux. Une multitude d'épines osseuses de son bras droit s'étaient brisées, mais il était exalté. Il regarda Wang Lin avec admiration.
 
 Après le bombardement, Wang Lin se retira également. La Lance Tueuse de Dieux qu'il tenait était désormais presque transparente. Bien qu'il paraisse calme en apparence, il était profondément choqué. Quelques instants plus tôt, Wang Lin avait clairement senti la Perle Défiant le Ciel — fusionnée avec son âme originelle et restée dormante durant une longue période — trembler brusquement.
 
 C'était un événement extrêmement rare. Lorsque la Perle Défiant le Ciel trembla, une parcelle de pouvoir mystérieux s'en échappa pour pénétrer dans le corps de Wang Lin. Cela fit briller ses yeux d'un bleu intense pendant un instant.
 
-Profitant de ce moment de retraite, le regard de Wang Lin balaya les environs. À cet instant, ce fut comme si des centaines de milliers d'éclairs explosaient dans son esprit. Il vit la lueur fantomatique sous le filet, une vision que même Qing Shui n'avait pu percevoir!
+Profitant de ce moment de retraite, le regard de Wang Lin balaya les environs. À cet instant, ce fut comme si des centaines de milliers de grondements explosaient dans son esprit. Il vit la lueur fantomatique sous le filet, une vision que même Qing Shui n'avait pu percevoir!
 
 Lorsque la cruauté de cette lueur frappa le regard de Wang Lin, ce fut comme s'il avait dévoré un morceau de glace éternelle. Tout son corps fut saisi d'un froid glacial, de l'intérieur comme de l'extérieur. Les deux lueurs spectrales semblèrent remarquer le regard de Wang Lin; elles laissèrent transparaître une trace de choc avant de disparaître progressivement.
 
@@ -40,7 +40,7 @@ Wang Lin ressentit une immense appréhension face aux deux lueurs fantomatiques 
 
 Des bruits de craquements résonnèrent alors que Wang Lin et Luo Chen échangeaient des coups. Leurs collisions se transformèrent en grondements incessants qui firent vibrer le vide. Tandis que les coups de Luo Chen bombardaient Wang Lin, les étoiles sur sa main créèrent une force d'aspiration qui tenta de l'attirer de force.
 
-Les yeux de Wang Lin s'illuminèrent et les quatre étoiles entre ses sourcils tournèrent frénétiquement. Elles fusionnèrent avec sa main droite au moment où il intercepta le poing de Luo Chen.
+Les yeux de Wang Lin s'illuminèrent et les quatre étoiles entre ses sourcils tournèrent frénétiquement. Elles fusionnèrent avec sa main droite, et il lança un coup de poing contre Luo Chen qui fonçait vers lui.
 
 Si le combat de deux Dieux Anciens s'était déroulé dans un espace normal, il aurait provoqué l'effondrement immédiat de la réalité. Cependant, ils n'étaient pas affectés ici. Alors que les fracas continuaient, Wang Lin recula pour échapper à la force d'aspiration du poing de Luo Chen.
 
@@ -62,13 +62,13 @@ Cet éléphant était d'un noir absolu et sa longue pilosité paraissait extrêm
 
 Cela provoqua de violents grondements, tandis qu'une flamme sauvage jaillissait du corps de l'éléphant géant avec une fureur incontrôlable.
 
-Non seulement les membres du clan des Dieux Anciens possédaient des corps capables de détruire des mondes, mais ils maniaient également des sorts magiques incomparables!
+Non seulement les membres du clan des Dieux Anciens possédaient une puissance divine capable de résister à l'effondrement du ciel et de la terre, mais ils maniaient également des sorts magiques incomparables!
 
 Cet Esprit Bête était l'un des sortilèges les plus puissants des Dieux Anciens. Seuls les Dieux Anciens à 5 étoiles pouvaient l'utiliser, et il exigeait une longue période d'affinement avant de pouvoir être maîtrisé.
 
 Presque chaque Dieu Ancien adulte possédait ce sortilège. La première chose que faisait un Dieu Ancien une fois parvenu à l'âge adulte était de trouver son propre Esprit Bête pour l'affiner.
 
-Tu Si en avait également un. Dans la Terre des Dieux Anciens, la bête qui avait empêché Tuo Sen d'obtenir l'héritage de la mémoire était l'Esprit Bête de Tu Si!
+Tu Si en avait également un. Dans la Terre des Dieux Anciens, la bête qui s'était transformée en une mer de brume sans fin et avait empêché Tuo Sen d'obtenir l'héritage de la mémoire était l'Esprit Bête de Tu Si!
 
 À cet instant, Luo Chen utilisa son sortilège et l'éléphant géant chargea. Le vortex devant Wang Lin changea soudainement de nature. Alors que l'éléphant approchait, un poing colossal surgit du vortex.
 

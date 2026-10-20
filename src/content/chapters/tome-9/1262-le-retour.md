@@ -12,7 +12,7 @@ slug: le-retour
 
 « Cependant... Êtes-vous vraiment mort?! » L'expression du garçon devint soudainement hideuse alors qu'il levait les yeux vers le vide extérieur.
 
-« Vous auriez dû mourir. Sous l'attaque combinée de moi, du Souverain et du Daoïste Miao Yin, ainsi que celle des mystérieux cultivateurs du Royaume Céleste Antique, même si votre culture était capable de faire trembler les cieux, vous auriez dû mourir! »
+« Vous auriez dû mourir. Sous l'attaque combinée de moi, du Souverain et du Maître du Dao Miao Yin, ainsi que celle des mystérieux cultivateurs du Royaume Céleste Antique, même si votre culture était capable de faire trembler les cieux, vous auriez dû mourir! »
 
 « Pourtant, pourquoi ai-je ressenti une trace de votre aura il y a quelques mois? Serait-il possible que vous ne soyez pas mort, mais que vous vous soyez réincarné pour cultiver à nouveau?! »
 
@@ -28,7 +28,7 @@ Après avoir réfléchi un instant, le garçon aux cheveux blancs serra les dent
 
 Les yeux du garçon brillèrent et il s'assit lentement en tailleur. Après un moment de réflexion, il ferma les yeux.
 
-« Lu Zihao, aucune de tes techniques ne m'a rien révélé, si ce n'est une chose! Le sort d'Arrêt! Dans ce monde, seuls Maître, Qing Lin et moi le connaissons. Qing Lin ne pensait pas que c'était un sort de grande importance car il n'avait pas suivi Maître aussi longtemps que moi. Il ignorait que ce sort possédait un pouvoir capable de faire trembler les cieux, un sort que Maître avait rapporté du Royaume Céleste Antique! »
+« Lu Zihao, aucune de tes techniques ne m'a rien révélé, si ce n'est une chose! Le sort d'Arrêt! Dans ce monde, seuls Maître, Qing Lin et moi le connaissons. Qing Lin croyait que c'était un sort acquis par hasard et n'y prêtait pas grande attention, car il n'avait pas suivi Maître aussi longtemps que moi. Il ignorait que ce sort possédait un pouvoir capable de faire trembler les cieux, un sort que Maître avait rapporté du Royaume Céleste Antique! »
 
 « Arrêter le corps, arrêter l'âme, arrêter l'énergie spirituelle céleste, arrêter l'énergie originelle, arrêter les cieux et la terre, arrêter le flux de la rivière des étoiles, et arrêter l'espace et le temps. Après la mort de Maître, personne ne connaissait ce sort mieux que moi! »
 

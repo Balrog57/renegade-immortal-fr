@@ -79,7 +79,7 @@ Une fois de retour à l'abri, le silence retomba, ne laissant derrière lui que 
 
 Le vieil homme Hu répondit avec assurance: « Bientôt! Encore une heure tout au plus et les fruits seront prêts! »
 
-« C'est trop long, répliqua Wang Lin. Ceux qui sont venus n'étaient que des chamans à cinq feuilles. Si des chamans à six feuilles arrivent, équivalents de cultivateurs de la Formation de l'Âme de stade avancé, j'en retiendrai peut-être un, mais si deux arrivent, je ne pourrai rien faire. Et il y a aussi des chamans à sept feuilles ici; ils sont l'équivalent de cultivateurs de la Transformation de l'Âme! »
+« Nous n'avons plus le temps, répliqua Wang Lin. Ceux qui sont venus n'étaient que des chamans à cinq feuilles. Si des chamans à six feuilles arrivent, équivalents de cultivateurs de la Formation de l'Âme de stade avancé, j'en retiendrai peut-être un, mais si deux arrivent, je ne pourrai rien faire. Et il y a aussi des chamans à sept feuilles ici; ils sont l'équivalent de cultivateurs de la Transformation de l'Âme! »
 
 L'expression du vieil homme Hu s'assombrit. Alors qu'il s'apprêtait à répondre, son visage se décomposa. Wang Lin soupira et tourna le regard vers l'horizon.
 

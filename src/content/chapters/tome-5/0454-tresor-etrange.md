@@ -72,7 +72,7 @@ En chemin, Wang Lin vola rapidement vers le centre, guidé par Xu Liguo.
 
 Il y avait peu de failles ici; Wang Lin n'en rencontra que trois durant son trajet. Cet endroit était l'un des rares à ne pas avoir été lourdement affecté par l'effondrement précédent.
 
-Plus il s'enfonçait, moins il croisait de failles. Finalement, il accéléra à pleine vitesse et chargea vers le centre telle une météore.
+Plus il s'enfonçait, moins il croisait de failles. Finalement, il accéléra à pleine vitesse et chargea vers le centre tel un météore.
 
 Quelques heures plus tard, le grand bassin central apparut enfin. D'innombrables épées volantes flottaient au-dessus de lui, libérant leur intention. Wang Lin pouvait ressentir cette puissance même à distance.
 

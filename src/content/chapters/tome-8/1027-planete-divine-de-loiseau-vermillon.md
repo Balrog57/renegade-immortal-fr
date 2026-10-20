@@ -24,7 +24,7 @@ Cette mer de feu était différente du sort « Brûler les Cieux » de Qing Lin.
 
 La rumeur prétendait que cette mer de feu existait déjà à l'époque du Royaume Céleste. En remontant le fil du temps, elle semblait même dater des temps primordiaux.
 
-Nul ne savait depuis combien de temps ce brasier brûlait. Des générations de cultivateurs s'étaient succédé, le Royaume Céleste s'était effondré et l'ancien monde de la Culture avait disparu, mais ces flammes éternelles continuaient de danser.
+Nul ne savait depuis combien de temps ce brasier brûlait. Des générations de cultivateurs s'étaient succédé, le Royaume Céleste s'était effondré et les temps les plus reculés s'étaient écoulés, mais ces flammes éternelles continuaient de danser.
 
 Personne ne savait quel type de force ou de pouvoir permettait à cette mer de feu de brûler ainsi pour toujours, sans jamais s'éteindre malgré le passage des âges.
 
@@ -46,7 +46,7 @@ Cet endroit possédait une énergie spirituelle semblable à celle des planètes
 
 Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre de l'Oiseau Vermillon, et ces neuf planètes étaient les Planètes Divines de l'Oiseau Vermillon!
 
-La première Planète Divine était la plus vénérée! Dans sa partie méridionale se dressait une statue géante rouge sombre: celle d'un Oiseau Vermillon prenant son envol!
+La première Planète Divine était la plus vénérée! Dans sa partie méridionale se dressait une statue géante rouge sombre, qui s'élevait jusqu'aux cieux: celle d'un Oiseau Vermillon prenant son envol!
 
 Sa queue, déployée comme une flamme vive, couvrait cinq kilomètres de terrain. Si la queue était déjà si imposante, il était inutile de mentionner la taille du corps de l'Oiseau Vermillon!
 
@@ -54,7 +54,7 @@ Il occupait des centaines de kilomètres, et cet immense oiseau pouvait être fa
 
 Les yeux de l'Oiseau Vermillon étaient formés de pur feu. Toutes les deux heures, deux épais filaments de flammes descendaient du ciel pour pénétrer dans ses yeux.
 
-Cette statue n'était pas unique. Les huit autres planètes arboraient exactement la même effigie. C'était le symbole sacré de la Secte Divine de l'Oiseau Vermillon!
+Cette statue n'était pas unique. Les huit autres planètes arboraient exactement la même effigie. C'était le symbole suprême de la Secte Divine de l'Oiseau Vermillon!
 
 Des dizaines de personnes vêtues de robes cramoisies étaient assises autour de la statue. Parmi elles, hommes et femmes absorbaient les flammes environnantes.
 
@@ -84,7 +84,7 @@ En un instant, tous les membres de la Secte Divine de l'Oiseau Vermillon s'éloi
 
 Les flammes de la Statue Sacrée devinrent encore plus féroces, jaillissant dans les airs pour recouvrir le ciel! Les flammes denses se propagèrent en ondes circulaires.
 
-Ce phénomène n'était pas isolé. La même scène se produisait sur les huit autres planètes! Ce changement soudain bouleversa de nombreux membres de la secte. Cependant, certains anciens réagirent différemment: leurs corps se mirent à trembler de manière incontrôlable. Ce n'était pas de la peur, mais de l'excitation!
+Ce phénomène n'était pas isolé. La même scène se produisait sur les huit autres planètes! Ce changement soudain bouleversa la plupart des membres de la secte. Cependant, certains anciens réagirent différemment: leurs corps se mirent à trembler de manière incontrôlable. Ce n'était pas de la peur, mais de l'excitation!
 
 « La Transformation de l'Oiseau Vermillon... La Transformation de l'Oiseau Vermillon!! Je ne pensais jamais assister à la Transformation de l'Oiseau Vermillon de mon vivant! » Un vieillard aux cheveux blancs leva les yeux vers le ciel en riant. Son regard, empreint d'une sagesse ancestrale, était fixé sur la statue.
 
@@ -134,7 +134,7 @@ L'individu dans l'image avait de longs cheveux flottants et le tatouage de l'Ois
 
 C'était Wang Lin!
 
-Dans cette vision, outre Wang Lin, on apercevait également l'Ancêtre Sainte du Clan du Tatouage, à l'apparence mélancolique et aux orbites vides. Devant elle se tenait Qing Lin, formé de lumière cristalline!
+Dans cette vision, outre Wang Lin, on apercevait également l'Ancêtre Sainte du Clan du Tatouage, à l'apparence lugubre et aux orbites vides. Devant elle se tenait Qing Lin, formé de lumière cristalline!
 
 Dès que la scène apparut, la femme tourna soudainement le regard. Ses yeux vides firent trembler les esprits des observateurs.
 
@@ -148,7 +148,7 @@ Maître du Vide, l'Omniscient et tous les autres apparurent également dans l'im
 « Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître du Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte de l'Oiseau Vermillon d'avoir un tel éveil! »
 « Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de l'Oiseau Vermillon? »
 
-Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, un puissant Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même vaciller les flammes du système!
+Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, un puissant Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même marquer un temps d'arrêt aux flammes du système!
 
 « Il n'est pas nécessaire de douter de l'identité de cet enfant. Sa marque lui a été transmise par l'un de mes avatars. Mobilisez toute la puissance de la secte et utilisez le véritable esprit comme guide. Ramenez-le en toute sécurité, quel qu'en soit le prix! »
 

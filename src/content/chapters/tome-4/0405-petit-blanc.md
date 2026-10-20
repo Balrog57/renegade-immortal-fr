@@ -80,7 +80,7 @@ Les yeux de Zhou Ru s'embuèrent de larmes alors qu'elle regardait le grand et i
 
 Wang Lin était assis au sommet de la montagne. Bien qu'il semblât être en pleine culture, il se contentait de fixer le ciel.
 
-Il songea: « La volonté des cieux... Moi, Wang Lin, j'ai toujours résisté à la volonté des cieux, mais cette fois encore, je me suis laissé manipuler par elle... »
+Il songea: « Le Dao céleste... Moi, Wang Lin, j'ai toujours résisté au Dao céleste, mais cette fois encore, je me suis laissé manipuler par lui... »
 
 L'appel de Zhou Ru monta d'en bas: « Oncle, oncle, peux-tu descendre? »
 
@@ -102,7 +102,7 @@ Wang Lin se retourna pour la regarder. Il décelait en elle une pointe d'étrang
 
 Zhou Ru leva les yeux vers lui, le regard chargé de tristesse: « Oncle, à tes yeux, ne suis-je qu'un simple réceptacle pour le réveil de grande sœur Wan Er? Depuis que je suis toute petite, je te considère comme ma famille, mon oncle... Quand tu me regardes, j'aimerais que tu voies la vraie moi, et non la grande sœur Wan Er, ne serait-ce qu'une seule fois. »
 
-Wang Lin la fixa du regard. Après une courte réflexion, il dit: « Petite Ru Er, tu es fatiguée. Va te reposer. » Sur ces mots, il se détourna et disparut.
+Wang Lin la fixa du regard. Après un bref silence, il dit: « Petite Ru Er, tu es fatiguée. Va te reposer. » Sur ces mots, il se détourna et disparut.
 
 La brosse en bois tomba des mains de Zhou Ru. Elle s'accroupit au sol et éclata en sanglots.
 
@@ -136,7 +136,7 @@ Il tenait dans sa gueule une branche d'arbre rouge feu, ornée d'un fruit.
 
 Petit Blanc était revenu!
 
-Zhou Ru regarda le tigre, partagée entre la joie et la colère.
+Zhou Ru regarda le tigre, les larmes de joie aux yeux.
 
 « Petit Blanc, tu ne m'as pas abandonnée. Petit Blanc... » Zhou Ru serra l'animal dans ses bras. Tandis que les larmes coulaient sur ses joues, un sourire de bonheur illumina son visage.
 

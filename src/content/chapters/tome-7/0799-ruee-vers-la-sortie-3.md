@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 799 - Rush Out (3)
 slug: ruee-vers-la-sortie-3
 ---
-Wang Lin lança un regard glacial à l'homme en robe bleue, récupéra le drapeau de l'âme et retourna sur le fragment. À cet instant, tous les cultivateurs présents sur le fragment se redressèrent et tournèrent leurs regards vers lui.
+Wang Lin lança un regard glacial à l'homme en robe bleue, récupéra le Drapeau des Âmes d'un Milliard et retourna sur le fragment. À cet instant, tous les cultivateurs présents sur le fragment se redressèrent et tournèrent leurs regards vers lui.
 
 Une fois de nouveau sur le fragment, Wang Lin s'assit et celui-ci s'élança avec force.
 
@@ -78,7 +78,7 @@ Le fragment laissait presque des images rémanentes derrière lui en ravageant l
 
 Wang Lin se leva et frappa son sac de rangement. L'épée céleste apparut dans sa main. Il leva l'arme et l'abattit. Cette fois, Wang Lin ne frappa pas une seule fois, mais neuf!
 
-Neuf rayons du Coup Céleste fusionnèrent pour former une loi d'épée inimaginable. Elle s'élança comme un trait de lumière noire et percuta les failles spatiales qui commençaient à se rejoindre.
+Neuf rayons du Coup Céleste fusionnèrent pour former une loi d'épée d'anéantissement inimaginable. Elle s'élança comme un trait de lumière noire et percuta les failles spatiales qui commençaient à se rejoindre.
 
 Boum!
 

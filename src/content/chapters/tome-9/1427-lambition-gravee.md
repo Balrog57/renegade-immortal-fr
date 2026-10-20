@@ -38,7 +38,7 @@ La tempête semblait avoir formé une immense ombrelle qui ne s'était pas encor
 
 Le ciel entier était occupé par ces dragons de feu qui encerclaient l'ombrelle en rugissant. Ce spectacle pouvait être vu depuis n'importe quel point de la Planète de l'Empereur!
 
-« Parapluie du Royaume Brûlant! » Le vieux Oiseau Vermillon poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
+« Ombrelle Brûlante du Royaume! » Le vieux Oiseau Vermillon poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
 
 Une pression indicible descendit lentement du ciel. La végétation se courba et d'épaisses brumes d'eau jaillirent. Les poissons du lac nagèrent frénétiquement et des bulles bouillonnèrent à la surface de l'eau.
 
@@ -56,7 +56,7 @@ La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l
 
 « Vous devez former tous ces sceaux en l'espace de neuf respirations. Chaque sceau doit contenir l'énergie Yang de votre âme originelle, ainsi que la puissance de toute votre culture. Ensuite, avec une incantation spéciale, vous pourrez déployer le sort le plus puissant du Clan de l'Oiseau Vermillon: le Parapluie du Royaume Brûlant!
 
-« Si la moindre erreur est commise lors de la formation des sceaux, les conséquences seront inimaginables. Même avec ma culture au stade intermédiaire du Vide Arcanique, je serais gravement blessé. Si un cultivateur n'appartenant pas à l'élément feu commettait une erreur, il mourrait probablement!
+« Si la moindre erreur est commise lors de la formation des sceaux, les conséquences seront inimaginables. Même avec ma culture au stade intermédiaire du Vide Arcanique, je serais gravement blessé. Si un cultivateur n'appartenant pas à l'élément feu commettait une erreur, il mourrait probablement, voire verrait sa Voie s'éteindre!
 
 « Ce sort provient de l'Ancien Souverain Céleste. Ce vieil homme a appris par l'ancêtre que, dans sa ville natale, l'Ancien Souverain Céleste utilisa ce sort et détruisit un royaume entier peuplé de 10 milliards d'êtres. C'est pour cela qu'on l'appelle le "Royaume Brûlant"!
 
@@ -64,7 +64,7 @@ La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l
 
 « À l'époque, l'Ancien Souverain Céleste ouvrit l'ombrelle huit fois pour détruire un royaume! Même lui n'osa pas l'ouvrir une neuvième fois! L'ancêtre est au début du stade de la Tribulation du Vide et ne peut l'ouvrir que cinq fois! Quant à ce vieil homme, grâce à l'intégrité de l'énergie Yang de mon âme originelle après des dizaines de milliers d'années, je peux utiliser ma propre Yang pour l'ouvrir deux fois au stade intermédiaire du Vide Arcanique!
 
-« Je ne devrais pas vous transmettre ce sort, car il est trop dangereux et la moindre erreur mènerait au désastre! L'ancêtre a également dit que le sort était incomplet, car l'Ancien Empereur Céleste l'aurait, semble-t-il, secrètement appris d'un tiers; mais comme votre compréhension est très élevée, vous pourrez décider par vous-même! »
+« Je ne devrais pas vous transmettre ce sort, car il est trop dangereux et la moindre erreur mènerait au désastre! L'ancêtre a également dit que le sort était incomplet, car l'Ancien Souverain Céleste l'aurait, semble-t-il, secrètement appris d'un tiers; mais comme votre compréhension est très élevée, vous pourrez décider par vous-même! »
 
 Les paroles du vieux Oiseau Vermillon résonnaient tandis que Wang Lin fixait l'ombrelle dans le ciel. Son esprit était bouleversé!
 

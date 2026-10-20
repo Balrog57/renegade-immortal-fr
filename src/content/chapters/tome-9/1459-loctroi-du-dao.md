@@ -10,7 +10,7 @@ slug: loctroi-du-dao
 
 « Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 
-« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma rétribution divine, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et de diables antiques… Cet endroit est-il lié au Tombeau de l’Ordre Antique, et est-il lié au taoïste aux sept couleurs?
+« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma rétribution divine, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et d’anciens diables… Cet endroit est-il lié à l’Ancien Tombeau, et est-il lié au taoïste aux sept couleurs?
 
 « De plus, presque chaque génération de l'Oiseau Vermillon a été scellée. Tout semble pointer vers le Maître du Souverain… Qui est donc le Maître du Souverain?
 
@@ -20,13 +20,13 @@ slug: loctroi-du-dao
 
 « Ou bien tout ce que j'ai supposé est faux… » Wang Lin fronça les sourcils; il ne pouvait analyser les choses qu'à ce point avec les indices dont il disposait. Il n'était lui-même pas certain de grand-chose.
 
-« Lorsque la plateforme de rang 5 s'est formée, la voix se faisant appeler "Ye Mo" a déclaré que les membres de son clan pouvaient franchir la porte de la réincarnation pour obtenir son héritage. Ceux qui n'appartiennent pas à son clan peuvent se rendre dans son palais terrestre… Qu'est-ce que ce palais terrestre? »
+« Lorsque la plateforme de rang 5 s'est formée, la voix se faisant appeler "Ye Mo" a déclaré que les membres de son clan pouvaient franchir la porte de la réincarnation pour obtenir son héritage. Ceux qui n'appartiennent pas à son clan peuvent emporter son Palais Terrestre… Qu'est-ce que ce Palais Terrestre? »
 
 Wang Lin se frotta les tempes et ses yeux s'illuminèrent.
 
-« Quoi qu'il en soit, l'existence du Tombeau de l'Ordre Antique est forcément liée au taoïste aux sept couleurs. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort?
+« Quoi qu'il en soit, l'existence de l’Ancien Tombeau est forcément liée au taoïste aux sept couleurs. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort?
 
-« On appelle cela le "Tombeau de l'Ordre Antique"... Pourrait-il s'agir du tombeau de l'Ordre Antique, de Ye Mo? » Plus il réfléchissait, plus il sombrait dans la confusion.
+« On appelle cela l’"Ancien Tombeau"... Serait-ce la tombe de Ye Mo de l’Ordre Antique? » Plus il réfléchissait, plus il sombrait dans la confusion.
 
 Après un long moment, il poussa un soupir et cessa de songer à ces pensées irritantes. Son regard s'anima et il observa les arbres desséchés autour de lui.
 
@@ -90,15 +90,15 @@ Derrière l'Estimé Ling Dong se dressait une statue gigantesque: celle du dieu 
 
 Certaines âmes avaient déjà été converties, offrant leurs flammes à Ling Dong pour qu'il les absorbe. Le visage de l'Estimé Ling Dong était radieux, empreint d'excitation.
 
-En voyant cela, Wang Lin fronça légèrement les sourcils. Ces âmes appartenaient au Maître Dao Miao Yin et, même pour l'Estimé Ling Dong, leur conversion prendrait beaucoup de temps. Bien que Wang Lin ne soit pas pressé, le Tombeau de l'Ordre Antique était périlleux. S'il pouvait accélérer l'absorption de Ling Dong et l'aider à atteindre la troisième étape, cela lui serait d'une aide précieuse.
+En voyant cela, Wang Lin fronça légèrement les sourcils. Ces âmes appartenaient au Maître Dao Miao Yin et, même pour l'Estimé Ling Dong, leur conversion prendrait beaucoup de temps. Bien que Wang Lin ne soit pas pressé, l'Ancien Tombeau était périlleux. S'il pouvait accélérer l'absorption de Ling Dong et l'aider à atteindre la troisième étape, cela lui serait d'une aide précieuse.
 
-Tout en réfléchissant, Wang Lin projeta une parcelle de son Sens Divin dans le Fourneau Impérial. Puis, sa silhouette apparut dans le ciel, au-dessus de l'océan violet.
+Tout en réfléchissant, Wang Lin projeta une parcelle de son âme originelle dans le Fourneau Impérial. Puis, sa silhouette apparut dans le ciel, au-dessus de l'océan violet.
 
-« Esclave Antique! »
+« Esclave Ancien! »
 
 Une voix majestueuse résonna à l'intérieur du Fourneau Impérial. L'Estimé Ling Dong ouvrit les yeux, révélant ferveur et respect. Il s'élança alors au-dessus de l'océan.
 
-Il s'arrêta à plusieurs centaines de pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave antique Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave! »
+Il s'arrêta à plusieurs centaines de pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave ancien Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave! »
 
 Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement: « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de culture, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes Joss ici et atteindre la véritable troisième étape! »
 
@@ -112,7 +112,7 @@ Wang Lin leva la main droite et pointa l'avant. Un sceau fonça vers Ling Dong. 
 
 Wang Lin retira son regard. Il était extrêmement satisfait d'avoir assujetti l'Estimé Ling Dong. Avec le Fourneau Impérial et bien d'autres méthodes, il n'avait aucune crainte qu'il ne le trahisse.
 
-« Si je rencontre un autre expert de la troisième étape au début du Nirvana Vide, il ne sera pas difficile de les affronter avec Ling Dong à mes côtés... Si je peux capturer cette personne et raffiner un autre esclave antique... » Le Sens Divin de Wang Lin disparut du ciel pour retourner dans son corps.
+« Si je rencontre un autre expert de la troisième étape au début du Nirvana Vide, il ne sera pas difficile de les affronter avec Ling Dong à mes côtés... Si je peux capturer cette personne et raffiner un autre esclave ancien... » Le Sens Divin de Wang Lin disparut du ciel pour retourner dans son corps.
 
 Au même moment, à l'extérieur, l'homme corpulent du Clan du Loup Céleste progressait sur sa plateforme de rang 5. Il se rapprochait inexorablement de cet endroit.
 

@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Reunited with an Old Friend
 slug: rencontre-avec-lennemi
 ---
-Liu San et son groupe étaient stupéfaits. Ils n'avaient jamais vu cet homme d'âge mûr agir de la sorte. Le regard vacillant, il se frotta les mains et fit discrètement quelques pas vers l'endroit où se tenait Wang Lin, puis demanda d'une voix grave: « Monsieur, qu'arrive-t-il à ce jeune frère? Est-il lui aussi frappé d'un désastre sanglant parce qu'il se trouve mêlé à nous? »
+Liu San et son groupe étaient stupéfaits. Ils n'avaient jamais vu cet homme d'âge mûr agir de la sorte. Le regard vacillant, Liu San se frotta les mains et fit discrètement quelques pas vers l'endroit où se tenait Wang Lin, puis demanda d'une voix grave: « Monsieur, qu'arrive-t-il à ce jeune frère? Est-il lui aussi frappé d'un désastre sanglant parce qu'il se trouve mêlé à nous? »
 
 L'expression de Wang Lin demeurait calme. Il jeta un regard indifférent à l'homme d'âge mûr sans dire un mot, tandis que la voix posée de Situ Nan lui parvenait à l'oreille.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 848 - Yao Bingyuns Dao
 slug: le-dao-de-yao-bingyun
 ---
-L'image du yin et du yang tournait lentement dans le ciel au-dessus de Wang Lin. Cette représentation en noir et blanc dégageait une puissante énergie originelle. En tournant, elle absorbait les pensées de toutes les créatures vivantes de la planète pour former une force défiant les cieux.
+L'image du yin et du yang tournait lentement dans le ciel au-dessus de Wang Lin. Cette représentation en noir et blanc dégageait une puissante force du ciel et de la terre. En tournant, elle absorbait les pensées de toutes les créatures vivantes de la planète pour former une force défiant les cieux.
 
 Puis, elle s'élança vers le ciel!
 
@@ -20,7 +20,7 @@ Son regard était serein, sans la moindre perturbation. En ouvrant les paupière
 
 « Maître, votre disciple est incompétent... Cependant, puisque j'ai survécu après d'innombrables années, je dois découvrir la raison pour laquelle le Royaume Céleste s'est effondré et pourquoi j'ai perdu la raison. Je prendrai ma revanche pour vous! »
 
-Sur la planète Qing Ling, Wang Lin détourna son regard du ciel. Après son éveil, il se trouvait à une demi-étape de l'étape Scruteur du Nirvana. Il ne lui manquait qu'une simple pensée pour devenir un véritable cultivateur du second niveau.
+Sur la planète Qing Ling, Wang Lin détourna son regard du ciel. Après son éveil, il avait déjà un pied dans l'étape Scruteur du Nirvana. Il ne lui manquait qu'une simple pensée pour devenir un véritable cultivateur du second niveau.
 
 Atteindre l'étape Scruteur du Nirvana avec seulement un peu plus de 1 000 ans de culture était suffisant pour terrasser l'esprit de n'importe qui. Wang Lin, un homme doté d'un talent ordinaire mais animé par ses propres idéaux et une nature inflexible, avait pu atteindre une telle hauteur après n'avoir persévéré que mille ans!
 
@@ -40,9 +40,9 @@ Au moment où son doigt toucha le front de Yao Bingyun, les yeux de Wang Lin bri
 
 « La voie véritable n'est pas de dévorer, mais d'emprunter pour comprendre! Emprunter le Dao d'autrui pour confirmer le karma! C'est là la bonne façon de permettre au karma d'atteindre son accomplissement! »
 
-Wang Lin prit une profonde inspiration et ferma lentement les yeux. Son domaine apparut. Le poisson noir et blanc dans le ciel tourna lentement avant de descendre, finissant par s'enfoncer dans leurs corps respectifs, celui de Wang Lin et celui de Yao Bingyun, où ils reformèrent le yin et le yang.
+Wang Lin prit une profonde inspiration et ferma lentement les yeux. Son domaine apparut. Les poissons noir et blanc dans le ciel tournèrent lentement avant de descendre, finissant par s'enfoncer dans leurs corps respectifs, celui de Wang Lin et celui de Yao Bingyun, où ils reformèrent le yin et le yang.
 
-La perle défiant les cieux à l'intérieur de Wang Lin commença à pivoter, absorbant lentement le yin et le yang.
+La Perle Défiant le Ciel à l'intérieur de Wang Lin commença à pivoter, absorbant lentement le yin et le yang.
 
 « Petite sœur... Petite sœur... » Une voix faible émergea du vide. Cette voix était empreinte d'une tristesse indescriptible. Lorsqu'elle atteignait l'oreille d'un être, elle faisait trembler son cœur de douleur.
 
@@ -94,7 +94,7 @@ La fillette nommée Mengyun répondit joyeusement: « Oncle Yun, est-ce que tu n
 
 Le regard de l'homme devint encore plus tourmenté. Il fixa les deux filles et serra le poing. Avec une détermination sans faille, il hocha la tête: « Votre oncle va vous emmener voir votre mère! » Sur ces mots, il agita ses manches et prit immédiatement les deux fillettes dans ses bras. Le nuage sous ses pieds fendit l'air comme un coup de tonnerre alors qu'il s'élançait vers le ciel.
 
-« Ancêtre, ces enfants sont innocentes. Même si moi, Yao Yun, je dois subir un châtiment, je sortirai ces deux enfants de la Planète du Sang! » L'homme serra les dents. Le nuage sous lui s'enfonça rapidement dans les cieux.
+« Ancêtre, ces enfants sont innocentes. Même si moi, Yao Yun, je dois subir un châtiment, je sortirai ces deux enfants de la Planète du Sang! » L'homme serra les dents. Le nuage sous lui fila rapidement vers les cieux.
 
 Cependant, à cet instant précis, le ciel changea brusquement; une main démoniaque apparut et saisit le nuage rouge. En un éclair, le nuage se désintégra peu à peu, exposant l'homme au visage livide et les deux petites filles terrifiées.
 

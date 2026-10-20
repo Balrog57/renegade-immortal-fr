@@ -110,7 +110,7 @@ Zi Xin dégageait alors une lumière arc-en-ciel et une aura puissante emplissai
 
 Wang Lin, enveloppé par le drapeau des âmes, s'apprêtait à s'extirper de cette mer dorée.
 
-Mais soudain, un bruit assourdissant retentit depuis la brume rouge libérée par Zhu Quezi. Une seconde plus tard, la silhouette d'Yun Quezi fut projetée hors de la brume. Du sang coulait de sa bouche, son regard était trouble et, lors de son atterrissage, il faillit s'effondrer.
+Mais soudain, un bruit assourdissant retentit depuis la brume rouge libérée par Zhu Quezi. La silhouette d'Yun Quezi fut projetée hors de la brume. Du sang coulait de sa bouche, son regard était trouble et, lors de son atterrissage, il faillit s'effondrer.
 
 Au même moment, Zhu Quezi fut également expulsé. Son expression était affreuse. La vitalité qu'il affichait avait disparu; il était désormais enveloppé d'une aura mortelle, la bouche pleine de sang.
 

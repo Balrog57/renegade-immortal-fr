@@ -65,7 +65,7 @@ Wang Lin ne fit que l'apercevoir en passant et franchit la zone d'un bond. Cepen
 
 « Un Omniscient plus jeune... » Les yeux de Wang Lin s'illuminèrent. Il s'assit en position de lotus et fixa l'être vêtu de gris.
 
-Il resta là pendant plusieurs jours. Durant tout ce temps, l'Omniscient gris ne bougea pas; c'était comme si le temps s'était figé. Le temps s'écoulait lentement, mais Wang Lin n'avait toujours pas vu cet être faire le moindre mouvement.
+Il resta là pendant plusieurs jours. Durant tout ce temps, l'Omniscient gris ne bougea pas; il semblait complètement figé. Le temps s'écoulait lentement, mais Wang Lin n'avait toujours pas vu cet être faire le moindre mouvement.
 
 « Étrange! » Wang Lin afficha une expression pensive. Il leva sa main droite et la déplaça avec une rapidité telle qu'il créa des images rémanentes. Bientôt, une restriction illusoire apparut dans sa paume, se transformant en un sceau noir. Il frappa le sceau qui s'élança vers l'Omniscient gris, lequel demeurait parfaitement immobile.
 

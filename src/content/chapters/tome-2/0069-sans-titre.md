@@ -8,7 +8,7 @@ slug: le-retour-teleporte
 ---
 Situ Nan marmonna quelques mots. Sachant que Wang Lin était rongé par l'inquiétude, il ne perdit plus de temps. « Il me reste encore un peu d'essence de mon âme. Je peux t'aider à te téléporter une fois, mais une seule; car si une trop grande partie de mon essence est consumée, je disparaîtrai avant que tu n'atteignes la Transformation de l'Âme », dit-il.
 
-Sur ces mots, Situ Nan se tut. Soudain, Wang Lin sentit un souffle glacial pénétrer son corps. Cette onde de froid était accablante, bien plus puissante que lors de sa précédente téléportation par la lumière blanche.
+Sur ces mots, Situ Nan se tut. Soudain, Wang Lin sentit un souffle glacial pénétrer son corps. Cette onde de froid était accablante, bien plus intense que celle qu'il avait ressentie sur le disque lumineux.
 
 L'air glacé circula dans ses veines. Chaque partie de son corps traversée par ce froid commençait à geler. Wang Lin devint semblable à une sculpture de glace et perdit le contrôle de sa technique d'attraction.
 
@@ -22,7 +22,7 @@ Le Sens Divin de Zhou Peng était fixé sur Wang Lin depuis tout ce temps. La di
 
 Au même instant, le corps de Wang Lin réapparut brusquement. La glace qui le recouvrait fondit rapidement et il lança d'une voix glaciale: « Tu ne peux pas t'échapper! »
 
-Zhou Peng fut terrifié. Son visage pâlit. Serrant les dents, il cracha une bouffée de lumière verte. Cette lueur s'étira jusqu'à prendre la forme d'un python gigantesque. Il se mordit la langue pour faire jaillir un filet de sang, puis sortit une clochette d'un noir profond. Il la fit sonner, et le python grandit encore davantage avant de foudroyer Wang Lin de son puissant coup de queue.
+Zhou Peng fut terrifié. Son visage pâlit. Serrant les dents, il cracha une bouffée de lumière verte. Cette lueur s'étira jusqu'à prendre la forme d'un python gigantesque. Il se mordit la langue et cracha une bouffée de sang, puis sortit une clochette d'un noir profond. Il la fit sonner, et le python grandit encore davantage avant de foudroyer Wang Lin de son puissant coup de queue.
 
 Situ Nan dit d'une voix nonchalante: « Gamin, il reste encore un peu de mon pouvoir dans ton corps. Ce serait du gaspillage de ne pas s'en servir. Je vais emprunter ton corps pour te montrer l'une de mes techniques célèbres. »
 
@@ -32,25 +32,25 @@ Dès que la sphère apparut, le ciel s'obscurcit et une force destructrice se ma
 
 Lorsque l'onde atteignit la queue du python, le gel remonta instantanément jusqu'à sa tête. Le reptile s'effondra au sol, pétrifié par la glace.
 
-Zhou Peng cracha une bouffée de sang, son esprit gravement blessé, mais au moment même où il l'expulsa, le sang se mua en gouttelettes rouges figées. Puis, le corps de Zhou Peng commença lui aussi à geler lentement, jusqu'à devenir une véritable sculpture de glace.
+Zhou Peng cracha une bouffée de sang, son esprit gravement blessé, mais au moment même où il l'expulsa, le sang se transforma en cristaux de glace. Puis, le corps de Zhou Peng commença lui aussi à geler lentement, jusqu'à devenir, avec son épée volante, une véritable sculpture de glace.
 
 Situ Nan déclara avec fierté: « Quel dommage qu'il n'y ait pas plus de monde. Ma technique est bien plus efficace lorsqu'il y a une foule. Hé, gamin, voici le pouvoir de la Méthode d'Ascension des Enfers. Vois-tu à quel point l'énergie glaciale de cette technique est redoutable? »
 
-Wang Lin se remit en mouvement. Il saisit le corps gelé de Zhou Peng et, sans s'arrêter, s'élança loin du Mont Heng Yue.
+Wang Lin se remit en mouvement. Il saisit le corps gelé de Zhou Peng et, sans s'arrêter, s'élança loin du Pic Heng Yue.
 
 Après avoir trouvé un endroit isolé, il déposa le corps figé de Zhou Peng sur le côté et demanda à Situ Nan: « Est-il déjà mort? »
 
-Situ Nan répondit lentement: « Ce petit bébé n'est pas encore mort, mais il y est presque. Si tu veux qu'il expire plus vite, tu n'as qu'à briser la glace, et il mourra à coup sûr. »
+Situ Nan répondit lentement: « Ce gamin n'est pas encore mort, mais il y est presque. Si tu veux qu'il expire plus vite, tu n'as qu'à briser la glace, et il mourra à coup sûr. »
 
 Les yeux de Wang Lin s'illuminèrent. Après une courte réflexion, il dit: « Vous avez mentionné précédemment que vous m'enseigneriez une technique de marionnette. Enseignez-la-moi maintenant. »
 
-Situ Nan éclata de rire, ravi de la tournure des événements. Il n'avait pas précisé les détails de cette technique ni son origine. En réalité, il s'agissait d'une technique démoniaque. Il estimait que Wang Lin manquait d'intention meurtrière; et sans elle, même avec dix vies, il ne pourrait survivre dans le monde de la culture. Situ Nan s'efforçait de changer la nature profonde de Wang Lin, et il semblait enfin porter ses fruits.
+Situ Nan éclata de rire, ravi de la tournure des événements. Il n'avait pas précisé les détails de cette technique ni son origine. En réalité, il s'agissait d'une technique démoniaque et perfide. Il estimait que Wang Lin manquait d'intention meurtrière; et sans elle, même avec dix vies, il ne pourrait survivre dans le monde de la culture. Situ Nan s'efforçait de changer la nature profonde de Wang Lin, et il semblait enfin porter ses fruits.
 
 Situ Nan était enchanté: « Cette technique de marionnette doit être exécutée par toi. Je t'expliquerai comment procéder une fois que tu auras trouvé une grotte isolée », dit-il joyeusement.
 
 Wang Lin empoigna Zhou Peng et chercha jusqu'à trouver un creux d'arbre dans lequel s'engouffrer.
 
-Situ Nan reprit d'un ton lent: « Je vais libérer la glace maintenant. Zhou Peng est dans un état de mort imminente. Tu dois ouvrir son corps, en extraire les organes internes et commencer à les raffiner. »
+Situ Nan reprit d'un ton lent: « Je vais libérer la glace maintenant. Zhou Peng est dans un état de mort imminente. Tu dois lui ouvrir le ventre, en extraire les organes internes et commencer à les raffiner. »
 
 Wang Lin fut stupéfait. Il hésita un instant avant de lâcher: « Extraire ses organes et les raffiner? Mais c'est... »
 
@@ -60,7 +60,7 @@ Tout en pensant cela, Situ Nan s'exclama brusquement: « Je libère la glace! Tu
 
 Aussitôt, la glace entourant Zhou Peng fondit rapidement pour se transformer en lumière bleue, laquelle retourna dans la Perle Défiant le Ciel.
 
-Wang Lin hésita un instant. Il comprit que s'il ne réglait pas ce problème maintenant, d'autres surgiraient à l'avenir. Il serra les dents et passa sa main sur la poitrine de Zhou Peng pour l'inciser. Étrangement, aucun sang ne s'en écoula.
+Wang Lin hésita un instant. Il comprit que s'il ne réglait pas ce problème maintenant, d'autres surgiraient à l'avenir. Il serra les dents et passa la main droite sur la poitrine de Zhou Peng, la fendant en deux. Étrangement, aucun sang ne s'en écoula.
 
 Tout en réprimant ses nausées, Wang Lin suivit les instructions de Situ Nan. Il formait divers sceaux avec ses mains tandis que son Sens Divin se concentrait sur la tâche. Cette demi-heure lui parut durer une année entière. Lorsque Situ Nan annonça fièrement que c'était terminé, Wang Lin ne put s'empêcher de se précipiter hors du creux d'arbre pour vomir.
 

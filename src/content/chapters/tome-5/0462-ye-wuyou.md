@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 462 - Ye Wuyou
 slug: ye-wuyou
 ---
-Wang Lin laissa échapper un ricanement. Au moment où elle s'apprêtait à se téléporter, il toucha son sac de rangement et plusieurs sculptures en bois du domaine temporel s'envolèrent.
+Wang Lin laissa échapper un ricanement. Au moment où elle se téléportait vers lui, il toucha son sac de rangement et plusieurs sculptures en bois du domaine temporel s'envolèrent.
 
 « Temps! » rugit Wang Lin. Les sculptures explosèrent toutes et un puissant domaine temporel jaillit. Bien que le domaine de Liu Mei ait atteint la perfection, ce domaine temporel avait été soigneusement préparé par Wang Lin. Il était trop faible pour blesser Liu Mei ou même la ralentir plus qu'un bref instant, mais dans une situation aussi critique, cela serait fatal!
 
@@ -36,7 +36,7 @@ Dans un rugissement soudain, il fit volte-face et plaça la hache devant lui.
 
 À cet instant, l'énergie d'épée frappa de plein fouet la hache. Le visage de Wang Lin rougit, il cracha une autre bouchée de sang et son âme originelle fut secouée. Il toucha son sac de rangement et fit jaillir la pagode.
 
-Le domaine de Zhou Yi se propagea rapidement, provoquant l'arrêt soudain de l'énergie d'épée.
+Le domaine de Zhou Yi se propagea rapidement, provoquant un ralentissement soudain de l'énergie d'épée.
 
 Profitant de cette brève suspension, Wang Lin chargea et franchit les 165 mètres restants en un instant pour pénétrer dans le palais.
 

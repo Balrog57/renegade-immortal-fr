@@ -8,7 +8,7 @@ slug: lidentite-et-lorigine-de-la-statue-1
 ---
 « J'ai en fait oublié qu'il pouvait utiliser ce sort d'arrêt aussi impitoyable! » Une vague immense secoua le cœur de Cupidité, et la peur envahit ses yeux.
 
-« Cet ennemi est trop méprisable. Il possédait ce sort, mais ne l'a pas utilisé plus tôt; il a attendu que je déploie mon trésor le plus puissant pour éteindre mon dernier espoir! » Le corps et l'âme originelle de Cupidité étaient complètement figés. Il était incapable de bouger d'un iota et ne pouvait qu'observer Wang Lin se rapprocher.
+« Cet ennemi est trop méprisable. Il possédait ce sort, mais ne l'a pas utilisé plus tôt; il a attendu que je déploie mon trésor le plus puissant pour éteindre mon dernier espoir! » Le corps, l'âme originelle et même le Sens Divin de Cupidité étaient complètement figés. Il était incapable de bouger d'un iota et ne pouvait qu'observer Wang Lin se rapprocher.
 
 La statue brisée n'émettait aucune aura et flottait silencieusement du côté droit de Cupidité.
 
@@ -80,7 +80,7 @@ Cupidité n'osa rien cacher et parla précipitamment.
 
 « Ainsi, j'ai voyagé à travers les étoiles, cherchant un moyen de me débarrasser de cette infection. Les jours et les nuits passèrent jusqu'au jour où je m'approchai de la barrière du Royaume Céleste du Tonnerre. Là, je trouvai un étrange vortex.
 
-« Ce vortex apparut soudainement, comme s'il avait été créé exprès pour moi. Je ne trouvai pas cela très étrange; j'ai rencontré des choses bien plus insolites dans ma vie. Comme autrefois, alors que j'étais au stade de la Formation du Noyau, j'ai affronté un ennemi contre lequel je n'avais aucune chance, et un fourneau est tombé du ciel pour l'écraser... »
+« Ce vortex apparut soudainement, comme s'il avait été créé exprès pour moi. Je ne trouvai pas cela très étrange; j'ai rencontré des choses bien plus insolites dans ma vie. Comme autrefois, alors que j'étais au stade de la Formation du Noyau, j'ai affronté un ennemi alors que j'étais sur le point de perdre, et un fourneau est tombé du ciel pour l'écraser... »
 
 Wang Lin fronça les sourcils et coupa: « Soyez précis! »
 
@@ -94,7 +94,7 @@ L'expression de Cupidité changea et il s'empressa de répondre: « Je ne mens p
 
 « Quand j'avais huit ans, alors que je jouais simplement dans le village, j'ai pu trouver de l'essence jaune. Je suis tombé d'une falaise, j'ai trouvé un Fruit Vermillon et j'ai obtenu le dragon de tonnerre ancien. Le fourneau est tombé du ciel pour tuer mon ennemi. Les autres doivent se battre pour obtenir le fourneau de la pluie, mais moi, je volais simplement à l'extérieur et le fourneau a volé vers moi.
 
-« En entrant dans le Royaume Céleste, les autres passent un temps infini à chercher minutieusement des jades célestes pour n'en trouver que peu. Lors de ma première visite, j'ai été téléporté directement dans la grotte d'un roi céleste... Il y avait aussi un ancien héritage de l'Alliance dont l'entrée était difficile à trouver pour les autres. J'ai fait trois pas et j'ai été téléporté à l'intérieur... » Cupidité craignait que Wang Lin ne le croie. Si tout cela n'était qu'un mensonge, peu importait, mais Cupidité savait que chacun de ses mots était vrai.
+« En entrant dans le Royaume Céleste, les autres passent un temps infini à chercher minutieusement des jades célestes pour n'en trouver que peu. Lors de ma première visite, j'ai été téléporté directement dans la grotte d'un roi céleste... Il y avait aussi une ancienne ruine de l'Alliance dont l'entrée était difficile à trouver pour les autres. J'ai fait trois pas et j'ai été téléporté à l'intérieur... » Cupidité craignait que Wang Lin ne le croie. Si tout cela n'était qu'un mensonge, peu importait, mais Cupidité savait que chacun de ses mots était vrai.
 
 Parfois, lui-même trouvait cela incroyable.
 

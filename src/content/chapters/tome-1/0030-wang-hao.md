@@ -46,7 +46,7 @@ Alors qu'il était plongé dans ses souvenirs, son expression changea soudaineme
 
 Grâce à un balayage de son Sens Divin, il perçut que Wang Hao se dirigeait vers lui. Un instant plus tard, la porte s'ouvrit. Wang Hao entra, coiffé d'un bonnet et vêtu d'un manteau de cuir. Il regarda Wang Lin avec surprise et dit: « Frère Tie Zhu, n'as-tu pas froid? Tu es si peu vêtu et tu restes dehors ainsi. »
 
-Wang Lin eut un petit rire: « J'avais calculé que tu viendrais me voir, alors je suis sorti pour t'accueillir, petit coquin. » Il ne ressentait aucune fraîcheur. Depuis qu'il avait atteint le deuxième niveau de la Condensation de Qi, il sentait que son corps était bien plus vigoureux qu'auparavant.
+Wang Lin eut un petit rire: « J'avais calculé que tu viendrais me voir, alors je suis sorti, malgré le froid, pour t'accueillir, petit coquin. » Il ne ressentait aucune fraîcheur. Depuis qu'il avait atteint le deuxième niveau de la Condensation de Qi, il sentait que son corps était bien plus vigoureux qu'auparavant.
 
 Wang Hao éclata de rire. Il entra, ôta son bonnet et observa attentivement Wang Lin avant de dire: « Frère Tie Zhu, comment se fait-il que je te trouve un peu différent d'il y a quelques mois? »
 

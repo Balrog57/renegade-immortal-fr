@@ -34,7 +34,7 @@ De plus, si un cultivateur y fusionnait une partie de son propre sang, non seule
 
 L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour détruire les dix-huit Lou Fu. Cependant, à cet instant précis, le Dieu du Sang surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
 
-Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il déchira, depuis la région nord, les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
+Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il traversa, depuis la région nord, les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
 
 Dans le Système Stellaire de Luotian, plus de dix mille cultivateurs avaient activé leur culture. Un objet se dressait parmi eux!
 
@@ -62,11 +62,11 @@ Le bois géant avait ouvert la voie à travers la barrière des fissures spatial
 
 Ce rugissement déchira la région ouest et ébranla violemment les cultivateurs de l'Alliance. Certains d'entre eux saignèrent même par leurs orifices sous l'effet des vibrations.
 
-Un sentiment extrême de violence émana du tunnel. Une planète de culture gigantesque apparut dans le conduit entre les deux systèmes, entourée d'une brume blanche et d'une apparence fort étrange.
+Un sentiment extrême de violence émana du tunnel. Une planète de culture gigantesque apparut dans le conduit entre les deux systèmes, entourée d'une brume et d'une apparence fort étrange.
 
 Dès qu'elle apparut, la brume autour de la planète se retira rapidement jusqu'à disparaître totalement, puis une fissure fendit l'astre en son centre. La planète s'ouvrit et d'innombrables tentacules s'en déployèrent. C'était le Serpent aux yeux de lune!
 
-Les yeux du Serpent aux yeux de lune étaient injectés de sang et empreints d'une colère infinie, suffisante pour le rendre fou. Ses tentacules s'agitaient frénétiquement alors qu'il chargeait.
+Les yeux du Serpent aux yeux de lune étaient injectés de sang et empreints d'une colère infinie, au point de le rendre presque fou. Ses tentacules s'agitaient frénétiquement alors qu'il chargeait.
 
 Rugissement!
 
@@ -84,7 +84,7 @@ Toutefois, alors qu'il commençait à fuir, l'ancêtre de la famille Xiang et l'
 
 « Cher cultivateur de l'Alliance, pourquoi êtes-vous si pressé de partir? » rit l'ancêtre de la famille Xiang en agitant ses manches. Un vent rouge apparut soudainement, enveloppant les cinq mille kilomètres environnants.
 
-Cette grande bataille commença dans les régions ouest et septentrionale avant de se propager rapidement. Le combat était acharné, et divers trésors magiques fulgurèrent sur tous les champs de bataille!
+Cette grande bataille commença dans les régions ouest et septentrionale avant de se propager rapidement. Le combat était acharné, et d'innombrables trésors magiques fulgurèrent sur tous les champs de bataille! Vu de loin, ce n'était qu'un chatoiement de couleurs!
 
 Des ondes de sorts se propagèrent, affectant d'innombrables zones!
 

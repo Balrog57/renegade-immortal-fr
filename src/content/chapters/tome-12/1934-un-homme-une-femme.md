@@ -28,7 +28,7 @@ Wang Lin, situé à 1 000 pieds de là, fixait sa main droite nouvellement form�
 
 Le visage de l'Exalté Empyréen Hai Zi pâlit et elle esquissa un sourire amer, mais resta silencieuse. Elle s'assit et scruta l'obscurité environnante, son esprit étant impénétrable.
 
-Le temps passa lentement. Bientôt, l'armure spirituelle de Wang Lin se dissipa. Une fois l'armure disparue, un profond sentiment de fatigue envahit le cœur du cultivateur.
+Le temps passa lentement. Bientôt, l'armure d'âme de Wang Lin se dissipa. Une fois l'armure disparue, un profond sentiment de fatigue envahit le cœur du cultivateur.
 
 Wang Lin laissa échapper un soupir, leva les yeux et dit: « Je crains que votre Maître ne puisse trouver cet endroit dans un avenir proche. La paume brisée a dévoré le rideau protecteur et devrait désormais bloquer tout contact extérieur, tel un sceau. »
 

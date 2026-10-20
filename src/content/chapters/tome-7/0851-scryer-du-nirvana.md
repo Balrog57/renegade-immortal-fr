@@ -18,7 +18,7 @@ D'un pas, Wang Lin s'éclipsa pour fusionner avec le monde. Lorsqu'il réapparut
 
 « D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur! Si quiconque ose se mettre sur mon chemin, j'activerai la rétribution divine et emprunterai leur pouvoir pour m'aider à la surmonter! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la rétribution divine à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
 
-À cet instant, il fusionna avec le monde et fonça vers le Domaine Sud. La famille Li se trouvait dans le Domaine Sud, sur la Planète de l'Annihilation.
+À cet instant, il fusionna avec le monde et fonça vers le Domaine Sud. La famille Li se trouvait dans le Domaine Sud, sur la planète Annihilation.
 
 Wang Lin, fusionné avec le monde, se déplaçait à une vitesse incroyable en suivant la carte que lui avait donnée Li Yuan. Cependant, avec son niveau de culture, il ne pouvait maintenir cette fusion très longtemps. Chaque fois qu'il réapparaissait, il devait se reposer un moment.
 
@@ -40,19 +40,19 @@ Il ne laissa même pas à Wang Lin le temps de répliquer. Dès qu'il eut parlé
 
 Le décor se transforma en une surface semblable à un miroir!
 
-« Rassemblement! » Alors que l'homme lançait cet ordre d'un ton glacial, tout ce qui entourait Wang Lin s'effondra en d'innombrables fragments. D'un revers de manche, il aspira le tout dans le miroir de bronze qu'il tenait. Emportant son trophée, il disparut au loin.
+« Rassemblement! » Alors que l'homme lançait cet ordre d'un ton glacial, tout ce qui entourait Wang Lin s'effondra en d'innombrables fragments. D'un revers de manche, il aspira le tout dans le miroir de bronze qu'il tenait. Le miroir à la main, il s'éloigna vers le lointain.
 
 Tout cela se produisit en un éclair. Durant toute l'action, l'expression de l'homme n'avait pas changé; c'était comme si capturer Wang Lin était pour lui une tâche d'une banalité absolue.
 
-Une aura brumeuse envahit les lieux lors de la réapparition de Wang Lin. Toute la zone était saturée de brouillard et une énergie brûlante émanait de toutes parts, comme s'il se trouvait dans un creuset céleste.
+Une aura brumeuse envahit les lieux lors de la réapparition de Wang Lin. Toute la zone était saturée de brouillard et une énergie brûlante convergeait de toutes parts, comme s'il se trouvait dans un creuset céleste.
 
-Le regard de Wang Lin resta serein avant de se durcir. Il fit entrer en contact le gaz blanc à l'intérieur de son corps avec le gaz noir à l'extérieur. Les deux s'entrelacèrent pour former le symbole du Yin et du Yang, se mettant alors à tournoyer. À cet instant précis, la culture de Wang Lin franchit un nouveau palier!
+Le regard de Wang Lin resta serein avant de se durcir. Sans hésiter, il fit entrer en contact le gaz blanc à l'intérieur de son corps avec le gaz noir à l'extérieur. Les deux s'entrelacèrent pour former le symbole du Yin et du Yang, se mettant alors à tournoyer. À cet instant précis, la culture de Wang Lin franchit un nouveau palier!
 
 Le stade Scruteur du Nirvana!
 
 Un fracas assourdissant résonna dans cet espace brumeux alors que Wang Lin accédait au stade Scruteur du Nirvana. Son corps commença à flotter et ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Une aura puissante émanait de lui tandis que les flux du Yin et du Yang tournaient. Un vortex se forma, déchaîné autour de lui.
 
-D'immenses quantités de brume reculèrent sous cette tempête comme si elles étaient repoussées par une force invincible. Même l'énergie brûlante se dissipa, n'osant s'approcher de lui.
+D'immenses quantités de brume reculèrent sous cette tempête comme si elles étaient emportées par le tourbillon. Même l'énergie brûlante se dissipa, n'osant s'approcher de lui.
 
 Les yeux de Wang Lin semblaient contenir le soleil et la lune. Le gaz noir et blanc tournait à une vitesse folle, formant un vortex semblable à l'entrecroisement de deux dragons. Des rugissements tonnerres résonnèrent dans cet espace embrumé.
 
@@ -66,7 +66,7 @@ Il avait beau s'efforcer, il ne parvenait à rien se remémorer.
 
 Il se souvenait vaguement qu'il avait commis un acte qui avait profondément irrité l'Ancêtre. Pourtant, finalement, ce dernier lui avait pardonné sans le punir.
 
-Depuis lors, sa conscience était souvent trouble et sa culture avait considérablement régressé au fil des millénaires. Si cela n'était que cela, ce ne serait pas si étrange, mais de temps à autre, une douleur fulgurante lui transperçait le crâne. C'était presque insupportable et cela déclenchait en lui une soif de sang démoniaque. S'il ne se maîtrisait pas, il se lançait dans des massacres sans fin.
+Depuis lors, sa conscience était souvent trouble et sa culture avait considérablement régressé au fil des millénaires. Si cela n'était que cela, on pourrait s'en accommoder. Plus étrange encore, de temps à autre, une douleur fulgurante lui transperçait le crâne. C'était presque insupportable, il frôlait la folie, et cela déclenchait en lui une soif de sang démoniaque. S'il ne se maîtrisait pas, il se lançait dans des massacres sans fin.
 
 C'était comme si ce carnage était le seul moyen d'évacuer la douleur qui lui martelait la tête!
 
@@ -76,7 +76,7 @@ Il pressentait que cela était lié à une rencontre sur la Planète du Sang, ma
 
 Il avait un jour interrogé le Dieu de Sang, sans jamais obtenir de réponse.
 
-Se sentant impuissant, il s'était muré au sein de sa famille, s'adonnant à une culture en isolement pour stopper sa régression et tenter de retrouver ses souvenirs perdus. Cela dura jusqu'à récemment, quand il reçut l'ordre de l'Ancêtre de sortir pour éliminer un certain Xu Mu.
+Se sentant impuissant, il s'était muré dans la zone interdite de sa famille, s'adonnant à une culture en isolement pour stopper sa régression et tenter de retrouver ses souvenirs perdus. Cela dura jusqu'à récemment, quand il reçut l'ordre de l'Ancêtre de sortir de la zone interdite de sa famille pour éliminer un certain Xu Mu.
 
 Il avait obtenu tous les détails sur cette cible auprès de l'Ancêtre afin de maîtriser la situation.
 
@@ -104,7 +104,7 @@ Une partie de la foudre de rétribution pénétra dans le miroir de bronze.
 
 Dans l'espace brumeux, Wang Lin était tel une épée dégainée. Il chargea vers le haut, porté par la rotation du gaz noir et blanc. La tempête générée par ces flux rugissait violemment autour de lui.
 
-« Coup Céleste! » rugit Wang Lin. Le gaz noir et blanc à l'extérieur de son corps fusionna rapidement pour former un rayon d'énergie d'épée grise qui fut projeté!
+« Coup Céleste! » lança Wang Lin d'un ton sec. Le gaz noir et blanc à l'extérieur de son corps fusionna rapidement pour former un rayon d'énergie d'épée grise qui fut projeté!
 
 Boom! Un fracas retentit alors que le miroir dans la main de Yao Yun volait en éclats. D'innombrables fragments furent projetés par la violence de l'impact.
 

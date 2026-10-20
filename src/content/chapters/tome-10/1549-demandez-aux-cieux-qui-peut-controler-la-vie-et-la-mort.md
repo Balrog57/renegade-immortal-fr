@@ -58,7 +58,7 @@ Ils reconnurent cette lumière dorée!
 
 Au plus profond de leur mémoire, cette lueur était une chose que rien ne pouvait effacer!
 
-Bien qu'ils aient été capturés par l'Estimé Maître Tian Zhao lorsqu'ils étaient jeunes et affinés lentement pour devenir ses âmes de Flammes Joss, le souvenir de cette lumière dorée, ancré dans leur héritage, demeurait intact.
+Bien qu'ils aient été capturés par l'Estimé Maître Tian Zhao lorsqu'ils étaient jeunes et affinés lentement pour devenir ses chefs d'âmes de Flammes Joss, le souvenir de cette lumière dorée, ancré dans leur héritage, demeurait intact.
 
 Ils se souvenaient clairement que, depuis des temps immémoriaux, quiconque possédait cette lumière dorée se dressait au sommet du monde. Même leurs parents devaient trembler devant elle.
 
@@ -94,7 +94,7 @@ La bataille entre les Royaumes, l'honneur personnel, l'ordre du Conseil Souverai
 
 « C'est impossible. C'est... C'est... Cette lumière dorée est... »
 
-La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de son temps. Il fit un pas vers l'Estimé Maître Tian Zhao qui reculait frénétiquement et lança un coup de poing.
+La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de son temps. Il fit un pas, se retrouvant à une centaine de pieds de l'Estimé Maître Tian Zhao, qui reculait frénétiquement. Il lança un coup de poing.
 
 Des grondements tonitruants résonnèrent, et une tempête dorée sembla se condenser pour former un poing géant de lumière. Celui-ci perça le vide avec rapidité pour frapper le corps de l'Estimé Maître Tian Zhao.
 

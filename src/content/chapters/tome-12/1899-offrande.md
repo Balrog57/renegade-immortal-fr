@@ -60,7 +60,7 @@ Comparé aux deux autres, Bord-des-Nuages ressentit l'effet de manière encore p
 
 Il eut même l'impression que les cieux qui l'écrasaient n'étaient autre que le regard de Wang Lin. Il lui semblait qu'une épée invisible résidait dans les yeux de Wang Lin, une lame qui ne s'était pas encore pleinement manifestée. Si elle le faisait, il serait instantanément mis en pièces!
 
-Cette sensation était si puissante qu'il faillit sombrer dans la folie. Alors qu'il était sur le point de s'effondrer, les paroles de Wang Lin résonnèrent comme une loi universelle. Bord-des-Nuages battit en retraite frénétiquement, et ce n'est que lorsqu'il fut à des milliers de kilomètres de là qu'il retrouva un semblant de calme. Son corps était trempé de sueur, lui laissant un frisson glacial.
+Cette sensation était si puissante qu'il faillit sombrer dans la folie. Alors qu'il était sur le point de s'effondrer, les paroles de Wang Lin résonnèrent comme une loi universelle. Bord-des-Nuages battit en retraite frénétiquement, et ce n'est que lorsqu'il fut à plusieurs kilomètres de là qu'il retrouva un semblant de calme. Son corps était trempé de sueur, lui laissant un frisson glacial.
 
 Yun Yifeng et Tang Jia reculèrent également. N'ayant pas été directement oppressés par Wang Lin, leur retraite fut moins humiliante que celle de Bord-des-Nuages. Cependant, Yun Yifeng éprouvait une immense amertume. Il n'avait jamais imaginé rencontrer Wang Lin ici après un siècle, et encore moins assister à une telle scène.
 
@@ -82,7 +82,7 @@ Il vit un filet de gaz noir s'échapper du corps du vieillard pour se condenser 
 
 Cette voix était si féroce qu'elle fit même tressaillir le cœur de Wang Lin, et ses yeux brillèrent d'un éclat vif.
 
-« Une âme fantôme!! Cet homme a formé une âme fantôme aussi puissante après sa mort!! » Cette âme était plusieurs fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie du Ciel Extrême! Elle était d'une qualité supérieure, infiniment proche de la perfection!
+« Une âme fantôme!! Cet homme a formé une âme fantôme aussi puissante après sa mort!! » Cette âme était d'innombrables fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie du Ciel Extrême! Elle était d'une qualité supérieure, infiniment proche de la perfection!
 
 Les yeux de Wang Lin pétillèrent et il agita sa manche sans hésiter. L'âme fantôme formée par le vieillard vola vers lui et fut emmagasinée!
 

@@ -48,7 +48,7 @@ L'ancêtre de la famille Huan prit une profonde inspiration, forma un sceau de l
 
 C'est à ce moment précis qu'une des runes de sang dans le ciel descendit brusquement pour s'imprimer sur le corps de Liu Mei. Puis, une multitude d'autres runes descendirent à leur tour pour marquer sa chair.
 
-Alors que les runes continuaient de pleuvoir, presque chaque centimètre du corps de Liu Mei fut recouvert de ces marques. Les yeux de l'ancêtre de la famille Huan se plissèrent et il fit un pas en avant. Il arriva devant elle et leva la main droite. Une lumière mystérieuse apparut dans sa paume, changeant des dizaines de milliers de fois. Quiconque la contemplerait verrait instantanément toutes les possibilités de son existence, de sa naissance à sa mort. Toutes les maladies, tous les amours et toutes les haines d'une vie entière étaient contenus dans cette illusion.
+Alors que les runes continuaient de pleuvoir, presque chaque centimètre du corps de Liu Mei fut recouvert de ces marques. Les yeux de l'ancêtre de la famille Huan se plissèrent et il fit un pas en avant. Il arriva devant elle et leva la main droite. Une lumière mystérieuse apparut dans sa paume, changeant des dizaines de milliers de fois. Quiconque la contemplerait verrait instantanément tous les changements de son existence, de sa naissance à sa mort. Toutes les maladies, tous les amours et toutes les haines d'une vie entière étaient contenus dans cette illusion.
 
 C’était le Dao de l'ancêtre de la famille Huan: le Dao de l'Absence de Forme des Dix Mille Illusions!
 
@@ -84,11 +84,11 @@ Liu Mei leva la tête. Elle ne daigna même pas regarder les dizaines de millier
 
 Elle n'emmena aucun serviteur et partit seule.
 
-À l'intérieur de la fissure terrestre, Wang Lin détourna son regard du Serpent aux yeux de lune. La stupeur ne quittait pas ses yeux.
+À l'intérieur de la fissure terrestre, Wang Lin détourna son regard du Serpent aux yeux de lune qui s'éloignait sur son nuage rouge. La stupeur ne quittait pas ses yeux.
 
 « Ce serpent mesure environ 3,3 kilomètres de long, et sa puissance n'est pas inférieure à celle d'un cultivateur Scruteur du Nirvana. En l'absence de Dieux Anciens, ses capacités offensives ne sont pas exceptionnelles. Tant que je ne prends pas l'initiative de le provoquer, il devrait conserver sa première forme. »
 
-Wang Lin réfléchit un instant. Selon la mémoire du Dieu Ancien, ces parasites qui vivaient en lui possédaient trois formes. La première était celle qu'il venait de voir; elle n'avait aucune capacité offensive.
+Wang Lin réfléchit un instant. Selon la mémoire de l'Ancien Dieu Tu Si, ces parasites qui vivaient en lui possédaient trois formes. La première était celle qu'il venait de voir; elle n'avait aucune capacité offensive.
 
 Quant à la deuxième forme, tous les poils de son corps se rétracteraient et il prendrait diverses formes à l'intérieur du corps du Dieu Ancien. Cette seconde forme signifiait généralement qu'il dormait.
 

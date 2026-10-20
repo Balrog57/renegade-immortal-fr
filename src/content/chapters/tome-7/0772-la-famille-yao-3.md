@@ -38,7 +38,7 @@ Li Yuan frappa son sac de rangement et les trois épées restantes s'envolèrent
 
 « Impudent! » Le jeune homme ricana. Sa main droite s'avança et une main de sang apparut instantanément devant lui. D'une seule pression, il captura les trois épées volantes.
 
-Le visage de Li Yuan devint féroce. À l'instant où le jeune homme saisit les lames, Li Yuan forma un sceau de sa main gauche et l'écrasa entre ses sourcils. Un rayon de lumière noire, aussi épais qu'un bras, jaillit de son front. Cette lumière se divisa immédiatement en d'innombrables lignes et, tandis que ses mains traçaient des sceaux, elles formèrent une restriction.
+Le visage de Li Yuan devint féroce. À l'instant où le jeune homme saisit les lames, Li Yuan forma un sceau de sa main gauche et l'écrasa entre ses sourcils. Un rayon de lumière noire, aussi épais qu'un bras, jaillit de son front. Cette lumière se divisa immédiatement en d'innombrables lignes et, tandis que ses mains traçaient des sceaux, elles formèrent des restrictions.
 
 Dès leur apparition, ces restrictions se divisèrent en dix-huit segments qui entourèrent instantanément Li Yuan. Ce dernier cracha une large bouffée de sang qui vint s'écraser sur les restrictions.
 

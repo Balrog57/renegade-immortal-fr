@@ -8,11 +8,11 @@ slug: atteindre-le-sommet-et-les-desseins-malefiques-de-xu-liguo
 ---
 Le cercle formé par le Fouet des Âmes se relâcha, puis se transforma en un rayon de lumière avant de disparaître.
 
-Après que son domaine s’y fut fusionné, il n'avait plus de forme physique. Il était devenu semblable au domaine de n'importe quel expert: une chose invisible, mais que l'on pouvait ressentir.
+Une fois fondu dans le domaine, il n'avait plus de forme physique. Comme le domaine, il se confondait avec le vide : invisible, mais que l'on pouvait ressentir.
 
 Xu Liguo, qui avait failli s'effondrer, recula immédiatement de quelques pas. La terreur dans ses yeux était encore palpable. Il avait perdu toute son arrogance passée et son visage était désormais empreint de flatterie. Il s'exclama rapidement: « Les sorts du Maître sont encore plus puissants! En réalité, si le petit Xu a parlé ainsi tout à l'heure, c'était uniquement pour permettre au Maître de s'exercer davantage. La loyauté du petit Xu envers le Maître est immense, sans la moindre pensée de rébellion! »
 
-Wang Lin regarda Xu Liguo et dit calmement: « Puisque tu peux sortir, nul besoin de retourner dans ton sac de rangement. Tu peux rester dans un rayon de 5 000 kilomètres autour de cette montagne. Va donc comprendre ton intention d'épée antique! »
+Wang Lin regarda Xu Liguo et dit calmement: « Puisque tu es sorti, nul besoin de retourner pour l'instant dans ton sac de rangement. Tu peux rester dans un rayon de 5 000 kilomètres autour de cette montagne. Va donc comprendre ton intention d'épée antique! »
 
 Xu Liguo fut stupéfait; il ne s'attendait pas à ce que ce vieil être soit aussi accommodant. Ses yeux brillèrent et il dit promptement: « Maître, Xu Liguo est réticent à l'idée de vous quitter. Je ne me sens serein que lorsque je suis près de vous. » En parlant, il observa attentivement Wang Lin.
 
@@ -28,7 +28,7 @@ Wang Lin cessa de prêter attention à Xu Liguo et frappa son sac de rangement. 
 
 Quant au crapaud tonnerre, il semblait habitué à la méprisable bête moustique sur son dos. Une fois apparu, des grondements de tonnerre résonnèrent dans son ventre; il trouva une place sur le côté et se coucha, immobile, comme s'il dormait.
 
-Peu de temps après, le Char de Guerre Divin apparut et se transforma en la Bête du Tonnerre. Dès qu'il fut là, il vit le crapaud tonnerre et commença à rugir.
+Peu de temps après, le Char de Guerre Divin apparut et se transforma en la Bête du Tonnerre. Dès qu'il fut là, il vit le crapaud tonnerre et commença à gronder sourdement.
 
 L'apparence paresseuse du crapaud disparut soudainement. Ses yeux s'écarquillèrent et il fixa la Bête du Tonnerre, le ventre grondant de tonnerre. La bête moustique était également pleine d'entrain, observant la Bête du Tonnerre avec intérêt.
 
@@ -36,7 +36,7 @@ Xu Liguo, qui observait la scène, eut les yeux grands ouverts. Il scruta attent
 
 « Cependant, je dois dire que le Maître a vraiment de la chance avec les bêtes. Sur ce point, moi, le vieux Xu, je ne lui arrive pas à la cheville. Moi, c'est avec les beautés que j'ai de la chance! » L'expression de Xu Liguo sombra dans la rêverie alors qu'il pensait à la petite beauté de la Terre des Esprits Démoniaques.
 
-« Hélas, depuis l'Antiquité, les sentiments mènent au regret... C'est une vérité que le vieux démon Wang ne peut comprendre. » Xu Liguo ressentit un profond regret. Il regarda la Bête du Tonnerre, le crapaud tonnerre et les moustiques avant de lever les yeux vers Wang Lin. Il éprouva un mélange de solitude et de fierté.
+« Hélas, depuis l'Antiquité, les sentiments mènent au regret... C'est une vérité que le vieux démon Wang ne peut comprendre. » Xu Liguo soupira, ému. Il regarda la Bête du Tonnerre, le crapaud tonnerre et les moustiques avant de lever les yeux vers Wang Lin. Il éprouva un mélange de solitude et de fierté.
 
 Le raffinage des trésors se poursuivit, mais ce n'était plus l'objectif principal car le temps était compté. Wang Lin décida d'utiliser ce qu'il avait perçu de la troisième étape pour ajuster ses sorts.
 
@@ -64,7 +64,7 @@ Pendant ces deux années, le crapaud tonnerre et la Bête du Tonnerre furent tr�
 
 Quant à la bête moustique, son intérêt se déplaça du crapaud vers la Bête du Tonnerre. Elle volait autour de cette dernière comme si elle voulait se poser sur son dos. Cependant, chaque tentative échouait, ce qui ne faisait qu'accroître sa curiosité.
 
-Xu Liguo méprisait toute cette scène. Avec le temps, il remarqua que Wang Lin les avait complètement oubliés. Après mûre réflexion, il s'éloigna à mille pieds de Wang Lin et commença à errer joyeusement dans la montagne.
+Xu Liguo méprisait toute cette scène. Avec le temps, il remarqua que Wang Lin les avait complètement oubliés. Avec précaution, il s'éloigna à mille pieds de Wang Lin, se transforma en brume noire et commença à errer joyeusement dans un rayon de 5 000 kilomètres autour de la montagne.
 
 Cependant, il se souvenait des paroles de Wang Lin et n'osait pas s'aventurer au-delà de 5 000 kilomètres. Il finit par s'ennuyer car il n'y avait personne dans ce rayon. Les gens avaient tendance à rester loin de cette zone, ce qui plongea Xu Liguo dans une grande déprime.
 
@@ -82,7 +82,7 @@ Zhang Xinhai répondit d'un ton solennel: « Bien sûr que nous le devons. La vi
 
 L'homme d'âge moyen hésita: « Mais père, j'ai entendu dire par certains amis que ce Senior... a des particularités étranges... Il y a plus d'un an, quelques amis ont... » Avant qu'il ne puisse finir sa phrase, Zhang Xinhai lui lança un regard noir et l'homme se tut aussitôt.
 
-Xu Liguo, tel un fantôme, s'approcha rapidement de la zone. Caché dans le brouillard noir, il resta indétectable pour le père et le fils Zhang. Le visage de Xu Liguo rayonnait d'excitation tandis qu'il les observait en marmonnant: « Oui, oui, ce vieux est mourant et ne pourra pas supporter mes jeux. Votre grand-père Xu sera clément et vous laissera vos corps. Quant au petit... Hehe... » L'excitation dans ses yeux s'intensifia alors qu'il fixait l'homme d'âge moyen à travers la brume. Une trace de dépravation se lisait même dans son regard...
+Xu Liguo, tel un fantôme, s'approcha rapidement de la zone. Caché dans le brouillard noir, il resta indétectable pour le père et le fils Zhang. Le visage de Xu Liguo rayonnait d'excitation tandis qu'il les observait en marmonnant: « Oui, oui, ce vieux est mourant et ne pourra pas supporter mes tourments. Votre grand-père Xu sera clément et vous laissera vos corps. Quant au petit... Hehe... » L'excitation dans ses yeux s'intensifia alors qu'il fixait l'homme d'âge moyen à travers la brume. Une trace de dépravation se lisait même dans son regard...
 
 Il poussa une toux sèche et parla d'une voix imposante: « Qui est là? Déclare ton nom! »
 
@@ -92,23 +92,23 @@ Sa voix était rauque alors qu'elle pénétrait lentement dans le brouillard noi
 
 Xu Liguo eut un sourire et dit: « Toi, le vieux, entre. Je t'emmènerai voir mon Maître! » Zhang Xinhai fut surpris et hésita un instant avant de s'avancer dans la brume noire. Dès qu'il entra, il sentit un vent l'envelopper et son corps fut projeté avec rapidité vers l'avant.
 
-Peu de temps après, il atteignit le sommet et le vent se dissipa. Il vit immédiatement Wang Lin et dit respectueusement: « Senior, votre Junior ne vous a pas déçu et a rassemblé toute la rancune de la planète Qing Ling. » En parlant, il sortit mille tablettes de jade, les déposa au sol et recula respectueusement de quelques pas.
+Peu de temps après, il atteignit le sommet et le vent se dissipa. Il vit immédiatement Wang Lin et dit respectueusement: « Senior, votre Junior ne vous a pas déçu et a rassemblé toute la rancune de la planète Qing Ling. » En parlant, il sortit plus d'un millier de tablettes de jade, les déposa au sol et recula respectueusement de quelques pas.
 
-Après avoir raccompagné Zhang Xinhai, Xu Liguo retourna avec enthousiasme vers le bord du brouillard. Il regarda l'homme d'âge moyen à l'extérieur et dit: « Petit morveux, entre, n'aie pas peur. Ton grand-père Xu te donnera quelques avantages. » Voyant que l'homme hésitait encore, il cria aussitôt: « Pourquoi n'entres-tu pas?! »
+Après avoir conduit Zhang Xinhai jusqu'au sommet, Xu Liguo retourna avec enthousiasme vers le bord du brouillard. Il regarda l'homme d'âge moyen à l'extérieur et dit: « Petit morveux, entre, n'aie pas peur. Ton grand-père Xu te donnera quelques avantages. » Voyant que l'homme hésitait encore, il cria aussitôt: « Pourquoi n'entres-tu pas?! »
 
 L'homme d'âge moyen serra les dents et s'avança dans le brouillard noir...
 
-Wang Lin ouvrit les yeux et inspecta les tablettes. Il sentit immédiatement la rancune qu'elles contenaient. La quantité était alarmante, comme si une tempête d'aura de ressentiment s'en dégageait.
+Wang Lin ouvrit les yeux et sonda les tablettes de son sens divin. Il sentit immédiatement la rancune qu'elles contenaient. La quantité était alarmante, comme si une tempête d'aura de ressentiment s'en dégageait.
 
 Wang Lin dit lentement: « Très bien. La personne que tu as amenée sera mon messager à l'extérieur du Pic Heng Yun à l'avenir! » Après avoir réfléchi un instant, il sortit une pilule et la lança vers Zhang Xinhai.
 
-« Donne-la à ton fils. S'il est assez doué, peut-être pourra-t-il, grâce à l'aura contenue dans cette pilule, avoir une chance légèrement plus grande d'atteindre le stade de la Formation de l'Âme! »
+« Donne-la à ton fils. S'il est assez doué, peut-être pourra-t-il, grâce à l'aura contenue dans cette pilule, avoir une faible chance d'atteindre le stade de la Formation de l'Âme! »
 
 Le visage de Zhang Xinhai fut illuminé par l'extase. Il saisit rapidement la pilule et la rangea comme un trésor. Puis il dit avec émotion: « Merci, Senior! »
 
 Wang Lin ordonna: « Cette rancune est une chose illusionnaire qui se régénérera. À l'avenir, ta famille Zhang sera chargée de sa collecte tous les quelques années! » Puis il sortit quelques graines rouges et les remit à Zhang Xinhai.
 
-« Ce sont des Fruits d'Ascension Céleste. Fais-les planter et accélère leur croissance avec de l'énergie spirituelle. Au cours des dix prochaines années, plantez-en autant que possible. »
+« Ce sont des Fruits d'Ascension Céleste. Faites-les planter et accélérez leur croissance avec de l'énergie spirituelle. Au cours des dix prochaines années, plantez-en autant que possible. »
 
 Zhang Xinhai acquiesça promptement. Wang Lin avait obtenu ces graines dans le sac de rangement de Qian Kuizi.
 
@@ -126,7 +126,7 @@ Le temps passa rapidement. L'amélioration des sorts coûtait trop d'énergie à
 
 Enfin, lors de sa dix-huitième année sur la planète Qing Ling, son domaine de vie et de mort atteignit la perfection, sans aucune faille. Cela signifiait qu'une fois qu'il disposerait de suffisamment d'énergie spirituelle céleste, il serait véritablement au sommet du premier stade!
 
-Wang Lin possédait encore quelques jades célestes, mais il ignorait s'ils suffiraient. Même si ce n'était pas le cas, il pourrait toujours consommer le liquide céleste. Cette fois, il devait atteindre le sommet de la phase Ascendant et parachever le premier stade de culture!
+Wang Lin possédait encore quelques jades célestes, mais il ignorait s'ils suffiraient. Même si ce n'était pas le cas, il pourrait toujours consommer le liquide céleste. Cette fois, il devait atteindre la perfection de la fin de la phase Ascendant et parachever le premier stade de culture!
 
 « Le premier stade de culture... » Les yeux de Wang Lin brillèrent intensément.
 

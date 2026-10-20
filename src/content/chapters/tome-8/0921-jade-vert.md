@@ -16,7 +16,7 @@ La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sa
 
 À cet instant, le sifflement produit par l'immense morceau de bois s'approchant du Serpent aux yeux de lune devint de plus en plus assourdissant. Alors que les ondulations se rapprochaient, les cultivateurs derrière Wang Lin commencèrent à acclamer.
 
-Simultanément, ces derniers s'élancèrent avec détermination vers l'avant.
+Simultanément, ces derniers s'élancèrent vers l'avant.
 
 Wang Lin hésita un bref instant avant de charger lui aussi vers la gigantesque pièce de bois. Même de loin, elle paraissait démesurée; en s'en approchant, il ressentit son impact puissant ainsi que sa pression majestueuse.
 
@@ -30,7 +30,7 @@ Derrière eux se pressait le reste des cultivateurs. La plupart étaient les 108
 
 On dénombrait plus d'une dizaine de personnes au stade Scruteur du Nirvana. Outre ces dernières, trois autres attirèrent l'attention de Wang Lin. L'un d'eux était assis sur le côté droit du bois géant; vêtu d'une robe noire, il avait les cheveux blancs et un visage marqué par des cicatrices extrêmement étranges. Celles-ci n'étaient pas statiques, elles semblaient s'animer subtilement. Un seul regard sur elles suffisait à provoquer un frisson de terreur.
 
-Dès que le regard de Wang Lin se posa sur le vieil homme, celui-ci ouvrit les yeux et le fixa, affichant un sourire empreint d'une froide intention.
+Dès que le regard de Wang Lin se posa sur le vieil homme, celui-ci sembla le remarquer, ses yeux brillèrent et il le fixa, affichant un sourire empreint d'une froide intention.
 
 Une autre personne retint l'attention de Wang Lin: une femme. Elle était gracieuse, aussi belle qu'une pêche printanière et aussi pure qu'un chrysanthème d'automne. Âgée d'environ trente ans, son regard était vif et son nez, plus haut que la moyenne, parfaitement droit. Une légère fossette ornait sa joue, sa peau était d'une blancheur immaculée et ses yeux reflétaient l'azur de l'océan.
 
@@ -80,7 +80,7 @@ Wang Lin ignorait que monter sur ce bois représentait un statut extrêmement é
 
 Pourtant, aucun des spectateurs n'osait sous-estimer ces gens: quiconque pouvait fouler ce bois était un être puissant!
 
-Néanmoins, une onde de choc parcourut le cœur des dizaines de milliers de cultivateurs lorsque Wang Lin monta sur la plateforme avec une telle désinvolture. À part Lie Yunzi et l'ancêtre de la famille Shengong, seuls trois autres avaient pu monter aussi facilement!
+Néanmoins, une onde de choc parcourut le cœur des dizaines de milliers de cultivateurs lorsque Wang Lin monta sur la plateforme avec une telle aisance. À part Lie Yunzi et l'ancêtre de la famille Shengong, seuls trois autres avaient pu monter aussi facilement!
 
 Wang Lin était le quatrième!
 

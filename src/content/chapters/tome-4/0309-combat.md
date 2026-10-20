@@ -18,7 +18,7 @@ Bang Bang Bang
 
 L'empreinte traversa les airs comme un éclair.
 
-La silhouette qui émergea de la formation était Wang Lin. Dès son apparition, il sentit le danger; il frappa aussitôt le sol du pied pour briser la formation et se changea en une traînée de fumée verte pour reculer. D'un revers de la main droite, il lança le piège à bêtes. Dans un sifflement strident, il se changea en crapaud de tonnerre qui cracha aussitôt une énorme boule de foudre, laquelle fonça vers l'empreinte.
+La silhouette qui émergea de la formation était Wang Lin. Dès son apparition, il sentit le danger; il frappa aussitôt le sol du pied pour briser la formation et se changea en une traînée de fumée verte pour reculer. D'un revers de la main droite, il lança le piège à bêtes. Dans un sifflement strident, celui-ci se changea en crapaud de tonnerre qui cracha aussitôt une énorme boule de foudre, laquelle fonça vers l'empreinte.
 
 Simultanément, Wang Lin agita la main et le drapeau de restriction apparut dans sa paume. Une multitude de gaz de restriction jaillit en rugissant, dont le grondement porta à plus de dix kilomètres, tandis que Wang Lin, à l'intérieur, verrouillait son regard sur Papillon Rouge.
 
@@ -58,7 +58,7 @@ Ce javelot était semblable à un fantôme, glissant comme l'éclair derrière l
 
 Papillon Rouge recula encore.
 
-Sa main effleura la sculpture de glace, la faisant croître soudainement jusqu'à atteindre la taille d'un homme devant elle. Elle poussa un rugissement et les yeux de la sculpture s'ouvrirent comme si l'objet était vivant.
+Sa main effleura la sculpture de glace, la faisant croître soudainement jusqu'à atteindre la taille d'un homme devant elle. Elle lança un cri bref et les yeux de la sculpture s'ouvrirent comme si l'objet était vivant.
 
 La sculpture projeta alors des rayons de lumière bleue. Sous cette lueur, les âmes errantes poussèrent des cris déchirants. Certaines disparurent purement et simplement. Les âmes errantes, pourtant intrépides, furent saisies par la peur et n'osèrent plus avancer.
 
@@ -106,7 +106,7 @@ Mais elle demeurait une cultivatrice au stade avancé de la Formation de l'Âme.
 
 Dès que la lumière apparut, elle se métamorphosa en une rose magnifique.
 
-À l'apparition de la fleur, la sculpture de glace fondit pour devenir un bassin d'eau qui s'écoula sous la rose, comme si elle lui servait de nutriments, la rendant encore plus éclatante.
+À l'apparition de la fleur, la sculpture de glace fondit pour devenir un bassin de liquide bleu qui s'écoula sous la rose, comme si elle lui servait de nutriments, la rendant encore plus éclatante.
 
 Le javelot chargea et percuta la rose. Un pétale tomba et, au même instant, l'expression de Wang Lin changea: le javelot s'était effondré.
 

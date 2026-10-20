@@ -14,7 +14,7 @@ Un vieil homme était assis au centre de cette plateforme, imprégné d'une odeu
 
 L'homme vêtait du noir et la moitié de ses cheveux était blanche. Son visage oscillait rapidement entre la jeunesse et la vieillesse. Entre ses sourcils se trouvait une marque en forme de lune, mais ce n'était pas celle du Clan de la Lune; elle ressemblait plutôt à un sceau démoniaque!
 
-Si l'avatar du Maître Dao Miao Yin s'était trouvé ici, il aurait été stupéfait et extrêmement prudent. Cet homme était l'un des cinq maîtres qui avaient été gravement blessés dans les Terres Déchues auparavant: le Maître Démon Neuf Cieux.
+Si l'avatar du Maître Dao Miao Yin n'avait pas été possédé, il aurait été stupéfait et extrêmement prudent. Cet homme était l'un des cinq maîtres qui avaient été gravement blessés dans les Terres Déchues auparavant: le Maître Démon Neuf Cieux.
 
 Le Maître Démon Neuf Cieux ouvrit soudainement les yeux, laissant jaillir des éclats de noir et de blanc.
 
@@ -30,7 +30,7 @@ Alors que la plateforme avançait à vive allure, son expression restait sérieu
 
 Un instant plus tard, son visage devint extrêmement sombre.
 
-« Une autre plateforme de rang 5 est apparue! Je me demande de quel cultivateur du troisième niveau il s'agit... »
+« Une autre plateforme de rang 5 est apparue! Je me demande de quel puissant cultivateur il s'agit... »
 
 Au plus profond de la mer de brouillard flottaient d'innombrables plateformes scellées. Au-dessus d'elles, une plateforme de 50 000 pieds fendait rapidement la brume.
 
@@ -60,7 +60,7 @@ Le duo disparut progressivement au loin, ne laissant derrière lui que l'écho p
 
 Sur la cinquième carte, Wang Lin était pensif. Il s'apprêtait à retirer son Sens Divin de la plateforme lorsqu'une voix antique commença à résonner dans son esprit.
 
-« Obtenir la plateforme de rang 5 signifie que tu peux ouvrir la porte de la réincarnation et devenir l'un de ceux capables de recevoir mon héritage... Le rang 9 est le rang ultime. Si l'on appartient à mon clan, on peut franchir la porte de la réincarnation pour chercher mon héritage. Sinon, le premier à atteindre le rang 9 pourra emporter mon enfer... Ce seigneur... Ye Mo... »
+« Obtenir la plateforme de rang 5 signifie que tu peux ouvrir la porte de la réincarnation et devenir l'un de ceux capables de recevoir mon héritage... Le rang 9 est le rang ultime. Si l'on appartient à mon clan, on peut franchir la porte de la réincarnation pour chercher mon héritage. Sinon, le premier à atteindre le rang 9 pourra emporter mon Palais Terrestre... Ce seigneur... Ye Mo... »
 
 Cette voix résonna dans l'esprit de Wang Lin. À l'instant même où elle s'estompait, l'esprit de Wang Lin sembla fusionner avec le Tombeau Ancien. À ses côtés, il pouvait clairement percevoir quatre auras ténues!
 
@@ -74,9 +74,9 @@ Avec toute la ruse qui le caractérisait, il comprit naturellement que ces quatr
 
 « Je peux sentir leur présence après avoir obtenu une plateforme de rang 5; ils ont donc manifestement senti la mienne aussi... »
 
-« Cette Tombe de l'Ordre Antique est extrêmement étrange. Où se trouve cet enfer mentionné par la voix... »
+« Cet Ancien Tombeau est extrêmement étrange. Qu'est-ce donc que ce Palais Terrestre mentionné par la voix... »
 
-Après réflexion, les yeux de Wang Lin s'illuminèrent et il réprima les fluctuations causées par la voix. Il scruta la plateforme sous ses pieds. Il en était désormais certain: dans la Tombe de l'Ordre Antique, les plateformes étaient la clé!
+Après réflexion, les yeux de Wang Lin s'illuminèrent et il réprima les fluctuations causées par la voix. Il scruta la plateforme sous ses pieds. Il en était désormais certain: dans l'Ancien Tombeau, les plateformes étaient la clé!
 
 « Selon cette voix, je dois faire atteindre à ma plateforme le rang 9 avant tous les autres... » Wang Lin regarda vers les profondeurs du brouillard. Selon la carte, c'était là que se trouvait la forêt mystérieuse.
 
@@ -128,6 +128,6 @@ L'énergie de l'épée hurla en plongeant vers le sol!
 
 Son expression était hideuse, empreinte d'une avidité manifeste. Une fois entré dans la cinquième carte, il agita la main et une Ancienne Feuille apparut dans sa paume!
 
-« J'ai déployé tant d'efforts pour voler l'une des deux feuilles, mais l'autre a été prise par Ling Dong. Il a disparu sans laisser de trace... Cette feuille semble très ordinaire; si je n'avais pas remarqué qu'elle possédait un pouvoir similaire à celui du Clan de l'Extermination du Sceau lors de ma poursuite de ce maudit petit cultivateur, je n'aurais jamais soupçonné son importance! »
+« J'ai déployé tant d'efforts pour voler l'une des deux feuilles, mais l'autre a été prise par Ling Dong. Il a disparu sans laisser de trace... Cette feuille semble très ordinaire; si je n'avais pas remarqué qu'elle possédait un pouvoir similaire à celui du Clan de l'Extermination des Sceaux lors de ma poursuite de ce maudit petit cultivateur, je n'aurais jamais soupçonné son importance! »
 
 « Il y a une marque de feuille au bout de la cinquième carte; il y en a peut-être d'autres! » L'homme massif se lécha les lèvres et fit avancer sa plateforme.

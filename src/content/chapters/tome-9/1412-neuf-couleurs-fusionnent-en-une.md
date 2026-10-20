@@ -66,7 +66,7 @@ En un instant, cette monstrueuse flamme éthérée enveloppa Wang Lin et pénét
 
 L'homme d'âge moyen était le maître de Lu Yun, l'Oiseau Vermillon de la cinquième génération, et lui-même Oiseau Vermillon de la quatrième génération!
 
-Il avait éveillé son oiseau et atteint le royaume du Feu Éthéré. Dès que cette force fusionna avec l'Oiseau Vermillon de Wang Lin, une noble et majestueuse plainte retentit.
+Il avait éveillé son oiseau et atteint le royaume du Feu Éthéré. Dès que cette force fusionna avec l'Oiseau Vermillon de Wang Lin, un cri noble et majestueux retentit.
 
 Le feu autour de Wang Lin fut multiplié d'un coup!
 

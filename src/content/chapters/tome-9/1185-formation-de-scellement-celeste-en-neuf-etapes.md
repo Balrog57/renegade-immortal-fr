@@ -14,7 +14,7 @@ Autrement, il ne serait pas aussi familier de cet endroit.
 
 Ils continuèrent leur progression sur l'étroit sentier de montagne, Maître Pin Cendré marchant prudemment en tête. Il ne possédait qu'une simple carte de la région au-delà de ce point et n'avait jamais emprunté ce chemin auparavant. Précédemment, il avait suivi une autre voie, et c'est là qu'il avait trouvé le jade et la carte contenant les informations qui l'avaient tant attiré.
 
-Ils descendirent le sentier étroit pendant plusieurs jours. Après avoir évité diverses bêtes de brume, ils atteignirent les profondeurs de la chaîne de montagnes. Une dernière montagne se dressait devant eux; une fois ce passage franchi, ils découvriraient ce qui se cachait derrière elle.
+Ils s'enfoncèrent dans le sentier étroit pendant plusieurs jours. Après avoir évité diverses bêtes de brume, ils atteignirent les profondeurs de la chaîne de montagnes. Une dernière montagne se dressait devant eux; une fois ce passage franchi, ils découvriraient ce qui se cachait derrière elle.
 
 La vieille femme en vert restait calme et ne regardait pas à droite ou à gauche, tel un moine en méditation. Wang Lin l'avait observée à plusieurs reprises, mais il ne parvenait pas à percer ses pensées.
 
@@ -42,7 +42,7 @@ Après un long moment, les fluctuations se dissipèrent et la brume se calma. C'
 
 La vieille femme en vert avait déjà inspecté le chemin et hocha silencieusement la tête.
 
-« Malheureusement, le camarade Duanmu a été emporté par l'Être Perdu. S'il était encore parmi nous, il aurait pu utiliser son Dao pour stabiliser temporairement les restrictions et aider la Camarade Zhao », soupira Maître Pin Cendré en secouant la tête.
+« Malheureusement, le camarade Duanmu a été emporté par le Perdu. S'il était encore parmi nous, il aurait pu utiliser son Dao pour stabiliser temporairement les restrictions et aider la Camarade Zhao », soupira Maître Pin Cendré en secouant la tête.
 
 « La plupart des restrictions ici sont des formes que je n'ai jamais vues auparavant. Je n'ai pas grande confiance en ma capacité à les briser », déclara la vieille femme en s'avançant vers l'extrémité du chemin.
 
@@ -116,4 +116,4 @@ Au moment où le neuvième pas fut posé, ce fut comme si Maître Pin Cendré av
 
 « Si je ne peux pas entrer, alors aucun d'entre eux ne pourra quitter ce Royaume aux Sept Couleurs! » Son visage était pâle alors qu'il fixait la roche. Une lueur de folie et de férocité habitait ses yeux.
 
-Wang Lin se leva et épousseta ses vêtements. Il regarda l'armure démoniaque éparpillée autour de Maître Pin Cendré et dit calmement: « Laissez-moi essayer. »
+Wang Lin se leva et épousseta ses vêtements. Il regarda l'armure démoniaque qui couvrait encore Maître Pin Cendré et dit calmement: « Laissez-moi essayer. »

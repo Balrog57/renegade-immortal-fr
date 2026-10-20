@@ -50,13 +50,13 @@ Simultanément, Wang Lin s'enfonça et emprunta la puissance du domaine stellair
 
 Il l'écarta sans aucune pitié!
 
-Un royaume entier résidait à l'intérieur de la Bête des Limbes, un monde qui n'apparaissait que si elle ouvrait la gueule volontairement. Cependant, si quelqu'un forçait son ouverture, ce royaume ne se manifesterait pas et l'intérieur même de son corps serait mis à nu!
+Un royaume entier résidait à l'intérieur de la Bête des Limbes, un monde qui n'apparaissait que si elle ouvrait la gueule volontairement. Cependant, si quelqu'un forçait son ouverture, ce royaume ne se manifesterait pas, et seule sa gueule de chair serait révélée!
 
 Wang Lin força l'ouverture de la gueule de la Bête des Limbes. Le rugissement qui s'y accumulait s'échappa et percuta Wang Lin de plein fouet.
 
 Le souffle du rugissement fit voler les cheveux de Wang Lin et tenta de le repousser.
 
-Pourtant, le corps de Wang Lin ne recula pas d'un pouce. Après avoir forcé l'ouverture, il retira brusquement ses mains. Puis, il créa d'innombrables restrictions imprégnées de l'aura de l'Ordre Ancien, et une tempête de restrictions s'engouffra dans la gueule de la Bête des Limbes!
+Pourtant, le corps de Wang Lin ne recula pas d'un pouce. Après avoir forcé l'ouverture, il fit brusquement basculer ses mains de haut en bas, puis les retira. Puis, il créa d'innombrables restrictions imprégnées de l'aura de l'Ordre Ancien, et une tempête de restrictions s'engouffra dans la gueule de la Bête des Limbes!
 
 Ces restrictions pénétrèrent son corps, se dirigeant vers ses organes, ses vaisseaux sanguins, ses os et chaque recoin de son être!
 
@@ -82,7 +82,7 @@ C'était comme s'il était devenu la Bête des Limbes elle-même. Les souvenirs 
 
 La vitalité provenant de la Bête des Limbes était d'une puissance extrême. En pénétrant le corps de Wang Lin, elle fit gonfler sa stature jusqu'à 10 000 pieds, 15 000 pieds, 20 000 pieds... puis 30 000 pieds. Ce n'est qu'en atteignant les 60 000 pieds qu'il cessa de croître.
 
-Un Dieu Ancien de 60 000 pieds de haut apparut parmi les étoiles!
+Un Dieu Ancien de 60 000 pieds de haut apparut parmi les étoiles! De loin, on aurait dit un géant des temps anciens!
 
 Wang Lin serra son immense poing et le leva devant ses yeux. Sa puissance de Dieu Ancien circulait dans tout son être, et cette vitalité décuplée le remplissait de confiance.
 

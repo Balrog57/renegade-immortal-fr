@@ -52,7 +52,7 @@ L'explosion résonna jusque dans le palais interdit, le pulvérisant en un écla
 
 Alors que le palais souterrain se dissipait, l'espace superposé avec le palais impérial créa une faille de connexion. Cette onde de choc déferla sur la place du palais impérial.
 
-Les dalles de pierre bleue du palais se réduisirent en poussière et furent projetées dans toutes les directions, déferlant comme des vagues sous l'effet de l'effondrement total. Le palais entier, qui avait subsisté durant des ères incalculables dans la cité ancestrale, fut balayé comme par une main divine!
+Les dalles de pierre bleue du palais se réduisirent en poussière et furent projetées dans toutes les directions, déferlant comme des vagues sous l'effet de l'effondrement total. Le palais entier, qui avait subsisté durant des ères incalculables dans la cité ancestrale, fut balayé comme par une immense main!
 
 Les somptueux édifices et tous les cultivateurs qu'ils abritaient disparurent sans laisser de trace. L'explosion terrifiante secoua toute la cité ancestrale, la faisant trembler de peur.
 
@@ -102,7 +102,7 @@ Les yeux de Wang Lin brillèrent d'une lueur intense. Sans la moindre hésitatio
 
 Et pas seulement lui: Jiu Di, Dao Yi et Wu Feng ne s'attendaient pas non plus à ce que Wang Lin soit toujours vivant!
 
-D'un revers de manche, l'âme de l'Empereur Céleste poussa un cri de rage et, au lieu de fuir, tenta de se précipiter vers Lian Daofei. Mais il n'eut aucune chance: il fut instantanément aspiré dans l'espace de stockage de Wang Lin.
+D'un revers de manche de Wang Lin, l'âme de l'Empereur Céleste poussa un cri de rage et, au lieu de fuir, tenta de se précipiter vers Lian Daofei. Mais il n'eut aucune chance: il fut instantanément aspiré dans l'espace de stockage de Wang Lin.
 
 L'Empereur Céleste, désormais extrêmement faible, ainsi que la malédiction ancestrale, ne représentaient plus une menace pour Wang Lin!
 

@@ -72,7 +72,7 @@ Les autres ne purent qu'observer la disparition de Wang Lin. En raison de la pui
 
 Au moment où Wang Lin pénétra dans la faille, les deux mains géantes se dissipèrent lentement. Cependant, le danger ne s'était pas évanoui. Les yeux du démon ancien qui avait été libéré devinrent rouges. Il lécha ses lèvres et poussa un rugissement strident!
 
-Dès l'entrée de Wang Lin dans la faille, la neuvième carte apparut instantanément dans son esprit. Toutefois, à cet instant, elle était inutile. Simultanément, une voix ancienne résonna dans l'esprit de Wang Lin.
+Dès l'entrée de Wang Lin dans la faille, la neuvième carte apparut instantanément dans son esprit. Toutefois, à cet instant, elle était inutile. Simultanément, la voix ancienne de Ye Mo résonna dans l'esprit de Wang Lin.
 
 « Plateforme de rang 9, tu es qualifié pour recevoir mon héritage... Tu peux franchir la porte de la réincarnation et accéder à mon palais céleste... Cependant, mon palais a été scellé par mon ennemi; il te faudra donc une culture immense et une chance prodigieuse pour y entrer... Dans ma vie, je n'ai connu qu'une seule... défaite... Pourtant je ne regrette rien... La porte sur la gauche bloque ma voie de retraite... Li Guang a abattu mon œil gauche d'une flèche, lequel contenait la moitié de mes souvenirs et ma nostalgie de ma terre natale... Héritier, si tu peux devenir un ancien... Si... » Les mots se dissipèrent. Les deux dernières phrases étaient trop vagues. La vision de Wang Lin se troubla un instant et, lorsqu'il retrouva la vue, il se trouvait dans un palais d'une immensité incroyable.
 

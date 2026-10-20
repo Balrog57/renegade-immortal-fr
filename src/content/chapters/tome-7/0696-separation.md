@@ -26,7 +26,7 @@ Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la
 
 En raison de son talent défaillant, il n'était pas choyé par la famille Yun. Pourtant, ici sur la planète Ran Yun, sa simple identité suffisait à ce que toutes les familles de culture lui témoignent un respect extrême.
 
-Après tout, la famille Yun était la première famille de la planète Mer des Nuages, surpassant même la puissance de la famille Huan.
+Après tout, la famille Yun était la première famille de la planète Mer des Nuages, surpassant même la puissance de l'ancienne famille Huan.
 
 Yun Wufeng eut un ricanement intérieur de mépris. Bien qu'il n'ait aucune culture, tant qu'il se trouvait dans la partie nord du système stellaire Luotian, personne n'oserait le provoquer, car cela reviendrait à se faire un ennemi de la famille Yun.
 
@@ -42,7 +42,7 @@ Sa voix, chargée d'énergie spirituelle céleste, pénétra distinctement les o
 
 Avant que Sun Qiming ne puisse répliquer, un membre de la famille Sun commença à ricaner. Il s'agissait de l'Ancien au visage rouge. Sans même accorder un regard au garçon, il lança froidement: « Quelle insolence! Tu fais vraiment comme si ma famille Sun n'existait pas! » Sur ces mots, il s'élança et chargea directement vers le manoir.
 
-Sun Qiming fronça durement les sourcils en fixant l'inscription « Manoir Wang ». Il était sur le point d'arrêter le vieil homme, mais hésita soudainement.
+Sun Qiming fronça durement les sourcils en fixant l'inscription « Manoir Wang ». Il ne chercha pas à arrêter le vieil homme et se mit à réfléchir.
 
 L'Ancien au visage rouge était au stade de la Formation de l'Âme. D'un seul pas, il franchit la distance et pénétra par la porte. Cependant, au moment où son pied droit toucha le seuil, son visage devint livide. C'était comme si une force invisible émanait du manoir. Son esprit fut secoué et il cracha une bouchée de sang. Il recula de plusieurs pas, le visage décomposé et les yeux écarquillés par l'effroi.
 
@@ -56,7 +56,7 @@ Sur ces mots, il agita ses manches et disparut soudainement avec tous les membre
 
 « Lui seul possède une culture capable de briser un noyau d'un simple regard. »
 
-Les membres de la famille Sun n'avaient jamais vu Sun Qiming dans un tel état. De plus, il les avait emmenés si rapidement qu'ils en étaient tous terrifiés. L'Ancien en robe verte regarda l'homme au visage rouge dont l'expression était livide et dont l'Âme Naissante était sur le point de s'effondrer. Tremblant, l'Ancien en vert demanda: « Chef de famille, qui... qui est-ce? »
+Les membres de la famille Sun n'avaient jamais vu Sun Qiming dans un tel état. De plus, il les avait emmenés si rapidement qu'ils en étaient tous terrifiés. L'Ancien en robe verte regarda l'homme au visage rouge dont l'expression était livide et dont l'Âme Originelle était sur le point de s'effondrer. Tremblant, l'Ancien en vert demanda: « Chef de famille, qui... qui est-ce? »
 
 Sun Qiming renifla froidement et dit: « Vous avez un sacré culot pour l'avoir provoqué. Vous devriez tous connaître ce Senior. Même l'Ancêtre Suprême devrait lui témoigner du respect. C'est grâce à cet homme que la famille Sun possède ce qu'elle a aujourd'hui! »
 
@@ -70,7 +70,7 @@ Sun Qiming fixa le vieillard et hocha la tête.
 
 Même le jeune homme en robe violette sembla comprendre quelque chose. Il réfléchit un instant, puis son expression devint extrêmement laide. Il se souvenait clairement que lorsqu'il avait informé l'Ancien responsable de la caravane de son intention de rester, celui-ci l'avait prévenu qu'il ne devait jamais provoquer une seule personne sur la planète Ran Yun. Cette personne était Xu Mu, celui qui avait balayé la famille Huan et fait en sorte que les familles Qian et Xu n'osent plus intervenir!
 
-Le nom de « Xu Mu » s'était propagé dans toute la région nord du système stellaire Luotian au cours de ces presque trente dernières années. Après tout, la bataille contre la famille Huan avait été si terrifiante que d'innombrables cultivateurs en avaient encore le vertige.
+Le nom de « Xu Mu » s'était propagé dans toute la région nord du système stellaire Luotian au cours de ces presque trente dernières années. Après tout, la bataille contre la famille Huan avait été si terrifiante que d'innombrables cultivateurs en frissonnaient encore.
 
 Accablé par un sentiment de malaise, Yun Wufeng retourna dans sa chambre à la demeure de la famille Sun. Qing Yi était assise là, le visage pâle. Sa culture étant scellée, elle n'était plus qu'une mortelle. Après avoir été chassée de la famille Sun, elle avait été capturée et emmenée ici.
 
@@ -90,7 +90,7 @@ Qing Yi se redressa précipitamment et dit respectueusement: « Senior... »
 
 Wang Lin sortit de l'ombre et s'assit. Il tenait une cruche de vin, en prit une gorgée, puis dit lentement: « Ton talent est plutôt bon. Accompagne mon fils pendant soixante ans, et je t'offrirai une culture au stade de l'Âme Naissante. »
 
-Qing Yi trembla à la pensée de Wang Ping. Son visage s'empourpra et elle hocha légèrement la tête.
+Qing Yi resta interdite en pensant à Wang Ping. Son visage s'empourpra et, après un silence, elle hocha légèrement la tête.
 
 Trois jours plus tard, Wang Ping partit, et Qing Yi le suivit.
 
@@ -114,7 +114,7 @@ Le temps passa et sept années supplémentaires s'écoulèrent.
 
 Wang Lin paraissait désormais encore plus âgé.
 
-L'expansion de l'École du Ciel était comparable à une boule de neige qui dévale une pente; elle ne cessait de croître. Il y avait même des représentants de l'école dans la ville des Vastes Eaux. Cet automne, alors que le vent frais soufflait, Wang Lin sortit de sa demeure comme à son habitude pour se rendre à l'auberge voisine et boire tranquillement. Ses yeux étaient embrumés, comme s'il ne voyait plus rien. Il fixait simplement la fenêtre, comme s'il attendait quelque chose.
+L'expansion de l'École du Ciel était comparable à une boule de neige qui dévale une pente; elle ne cessait de croître. Il y avait même des fidèles de l'École du Ciel dans la ville des Vastes Eaux. Cet automne, alors que le vent frais soufflait, Wang Lin sortit de sa demeure comme à son habitude pour se rendre à l'auberge voisine et boire tranquillement. Ses yeux étaient embrumés, comme s'il ne voyait plus rien. Il fixait simplement la fenêtre, comme s'il attendait quelque chose.
 
 Le serveur de l'auberge s'était depuis longtemps habitué à ce vieil homme. Après avoir apporté le vin et la nourriture, il alla servir les autres clients.
 
@@ -126,7 +126,7 @@ Le serveur de l'auberge s'était depuis longtemps habitué à ce vieil homme. Ap
 
 « Mon voisin, Zhang Er, en est membre. Ils distribuent même des grains chaque mois. »
 
-« Les trois grands empires sont Da Qin, Di Shan et Chen Yun. On dit que dans l'empire du Nord, Di Shan, presque tous les citoyens ont adopté les enseignements de l'École du Ciel. »
+« Les trois grands empires sont Da Qin, Di Shan et Chen Yun. On dit que dans l'empire du Nord, Di Shan, presque tous les citoyens sont des fidèles de l'École du Ciel. »
 
 « Vu la vitesse à laquelle l'École du Ciel se développe, il ne faudra pas longtemps avant que les trois grands empires n'agissent pour la détruire. »
 

@@ -110,7 +110,7 @@ Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouv
 
 Sans hésiter, il broya le jade en murmurant quelques incantations. Il ouvrit la main et le jade se transforma en un gaz noir. Cette brume se condensa pour former une minuscule silhouette qui s'inclina neuf fois dans la paume de Wang Lin!
 
-Au moment de cette inclination, l'esprit de Wang Lin fut secoué et il vit le monde de la grotte. Il vit une main cristalline arracher le fragment d'âme de Li Muwan au Dao Céleste!
+Au moment de cette inclination, l'esprit de Wang Lin fut secoué et il vit le monde de la grotte. Il vit une main cristalline arracher le fragment d'âme de Li Muwan aux êtres du Dao Céleste!
 
 Dans une chambre secrète, il aperçut une ombre vague baignée d'une lumière aux sept couleurs, pinçant une perle entre deux doigts. Cette perle contenait le fragment d'âme de Li Muwan, les yeux clos et tremblant!
 

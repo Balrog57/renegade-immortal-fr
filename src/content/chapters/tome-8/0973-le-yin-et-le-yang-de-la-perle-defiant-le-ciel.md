@@ -56,7 +56,7 @@ Dès qu'il pointa le doigt, le ciel entier devint noir, comme si un géant y ava
 
 « Puisque tu es devenu un saint par les épées, alors je te combattrai avec une épée! Massacre, transforme-toi en lame! » La voix de l'Omniscient à la Robe Grise était monocorde, mais au moment où son doigt se posa, d'innombrables filaments d'énergie de massacre convergèrent vers lui avec frénésie.
 
-Chaque filament d'énergie de massacre représentait une vie. Les millions de parcelles de massacre se rassemblèrent comme une myriade de serpents parcourant le ciel et la terre, et cette scène fit suffoquer Wang Lin.
+Chaque filament d'énergie de massacre représentait une vie. Les innombrables parcelles de massacre se rassemblèrent comme une myriade de serpents parcourant le ciel et la terre, et cette scène fit suffoquer Wang Lin.
 
 Les brins d'énergie de massacre qui l'entouraient abandonnèrent leur poursuite pour reculer. Ils se regroupèrent là où l'Omniscient pointait son doigt.
 
@@ -74,7 +74,7 @@ Une puissance colossale était concentrée dans cet espace de 23,1 centimètres.
 
 Ling Tianhou ricana en agitant sa manche, les bras grands ouverts. Il cria: « Moi, Ling Tianhou, je ne cultive que le Dao des épées! Ces dernières années, j'ai atteint l'éveil dans la loi de l'épée. Robe Grise, j'ignore pourquoi tu acceptes d'être manipulé par lui, mais ton apparition ici signifie que tu as renoncé à notre amitié passée! »
 
-L'Omniscient à la Robe Grise sembla songeur, mais ne répondit pas.
+L'Omniscient à la Robe Grise garda le silence.
 
 Ling Tianhou prit une profonde inspiration et agita les mains. Une fissure apparut entre ses sourcils d'où jaillit un rayon de lumière noire. Cette lumière enveloppa immédiatement Ling Tianhou, rendant sa silhouette invisible peu de temps après.
 

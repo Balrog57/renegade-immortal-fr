@@ -58,7 +58,7 @@ Son corps trembla et fut instantanément découpé en dix-neuf morceaux. Le sang
 
 Un rugissement misérable s'éleva alors que le corps de Noble Argent s'effondrait. Étant un cultivateur Briseur du Nirvana, son âme originelle s'échappa de sa tête. Il saisit son trésor plumeau et s'enfuit à toute vitesse.
 
-Il était envahi par une terreur indicible; il avait même le sentiment que ce cultivateur aux cheveux blancs connaissait l'affaire de la Secte Brise-Ciel. La mort de Shi Luoxing était probablement liée à cet homme.
+Il était envahi par une terreur indicible; il était presque certain que ce cultivateur aux cheveux blancs connaissait l'affaire de la Secte Brise-Ciel et de la recette de pilule. La mort de Shi Luoxing était, selon lui, étroitement liée à cet homme.
 
 « De quelle secte vient cet individu pour posséder de tels trésors? Serait-il... quelqu'un de la région de rang 8?! » Pensant cela, Noble Argent fut frappé par un choc immense. Son âme originelle fuyait comme une folle. Il devait absolument en informer sa secte!
 
@@ -110,7 +110,7 @@ Le silence retomba totalement. Depuis le premier assaut de Wang Lin jusqu'à cet
 
 Un éclair de froideur passa dans ses yeux alors qu'il changeait de direction pour disparaître à l'horizon.
 
-Cinq jours plus tard, lorsque le continent de Mo Luo apparut enfin, Wang Lin poussa un soupir de soulagement. Il avait choisi sa trajectoire après avoir calculé la direction d'arrivée des cultivateurs; en traçant un immense arc de cercle, il avait eu la chance d'éviter tout nouveau conflit.
+Cinq jours plus tard, lorsque le continent de Mo Luo apparut enfin, Wang Lin poussa un soupir de soulagement. Il avait choisi sa trajectoire après avoir calculé la direction d'arrivée des cultivateurs; en traçant un immense arc de cercle, il avait eu la chance d'éviter tout nouveau conflit et de sortir enfin du tourbillon des querelles.
 
 Wang Lin ignorait que peu après la mort de Noble Argent, le décès de Shi Luoxing fut révélé aux autres sectes. L'espace entourant ce continent sauvage fut immédiatement scellé hermétiquement.
 
@@ -122,13 +122,13 @@ Un courant souterrain commença à s'agiter dans la région de rang 5.
 
 De retour sur le continent de Mo Luo, Wang Lin se transforma en un rayon de lumière et se dirigea vers la Secte de l'Origine. Il savait que la région de rang 5 allait sombrer dans le chaos. Les cultivateurs du rang 6 allaient intensifier leurs recherches, et à ce moment-là, son identité au sein de la Secte de l'Origine deviendrait cruciale.
 
-Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte de l'Origine. Il apparut instantanément dans la cour sud. Dès son arrivée, il vit Sun Yun assise devant la maison, dont l'expression était frappée de stupeur.
+Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte de l'Origine. Il apparut instantanément dans la cour des herbes de la cour sud. Dès son arrivée, il vit Xu Yun assise devant la maison, dont l'expression était frappée de stupeur.
 
-« Tu... » Sun Yun allait parler, mais Wang Lin ne lui prêta aucune attention et agita ses manches. Une quantité massive d'herbes apparut, formant rapidement une petite montagne entre eux.
+« Tu... » Xu Yun allait parler, mais Wang Lin ne lui prêta aucune attention et d'un geste de la main droite fit apparaître une quantité massive d'herbes, formant rapidement une petite montagne entre eux.
 
 « Je te rends tes herbes! » lança Wang Lin avant de pénétrer dans la maison.
 
-Sun Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à ses connaissances, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
+Xu Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à ses connaissances, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
 
 Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Elle craignait que, si le Senior Ceng Niu ne revenait pas, elle soit tenue pour responsable de la ruine de la secte lors de l'arrivée de la Secte du Dao Pourpre.
 
@@ -148,4 +148,4 @@ Wang Lin prit une profonde inspiration. Depuis qu'il les avait obtenus, il n'ava
 
 Cependant, à cet instant précis, ses yeux se plissèrent soudainement et il rangea précipitamment le jade et l'os. En un éclair, il disparut pour charger sous terre, vers l'endroit où se trouvait son corps original.
 
-« L'épreuve! »
+« Il est temps de traverser la calamité! »

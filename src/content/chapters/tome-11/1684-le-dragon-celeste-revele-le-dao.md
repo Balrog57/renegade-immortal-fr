@@ -26,7 +26,7 @@ Wang Lin avait cultivé pendant plus de 2 000 ans. À cet instant, il comprenait
 
 Les choses dans ce monde étaient souvent ainsi: il fallait observer les petites choses pour saisir la vue d'ensemble.
 
-Il avait gardé le Royaume Intérieur pendant trois ans, avait créé le nouveau Royaume Céleste et avait tué d'innombrables êtres jusqu'à ce que ses mains soient teintées de sang, mais il ne pouvait pas regarder en arrière. Il ne pouvait que progresser, jusqu'à ce qu'il meure ou qu'il brise les obstacles devant lui!
+Il avait gardé le Royaume Intérieur pendant trois ans, avait créé le nouveau Royaume Céleste et avait tué d'innombrables êtres jusqu'à ce que ses mains soient teintées de sang, mais il ne pouvait pas regarder en arrière. Il ne pouvait que progresser : soit il se briserait la tête et mourrait, son Dao anéanti, soit il fendrait la pierre et ébranlerait le ciel dans un fracas retentissant!
 
 Le chemin de l'avenir s'éloignait peu à peu sous ses pas.
 

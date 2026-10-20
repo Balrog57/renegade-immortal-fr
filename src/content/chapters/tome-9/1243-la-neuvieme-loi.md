@@ -12,9 +12,9 @@ Tout n'était que paix alors qu'innombrables êtres célestes survolaient le mon
 
 Le paysage était un entrelacs de sommets montagneux et de rivières serpentant à travers les terres. L'énergie spirituelle céleste imprégnait chaque recoin, et au loin, un brouillard céleste enveloppait la région, lui conférant une beauté éthérée.
 
-Au sol, d'innombrables êtres célestes étaient rassemblés, semblant constituer une formation. Cette structure s'étendait sur des dizaines de milliers de kilomètres, peuplée par une multitude de célestiaux.
+Au sol, d'innombrables êtres célestes étaient rassemblés, semblant constituer une formation. Cette structure s'étendait sur plusieurs milliers de kilomètres, peuplée par une multitude d'êtres célestes.
 
-« Par la volonté du Royaume Céleste Antique, nous scellons la porte céleste pour accueillir les véritables anciens êtres célestes! » Une voix impérieuse résonna dans le ciel et se propagea à travers tout le Royaume Céleste.
+« Par la volonté du Royaume Céleste Antique, nous bâtissons la porte céleste pour accueillir les véritables anciens êtres célestes! » Une voix impérieuse résonna dans le ciel et se propagea à travers tout le Royaume Céleste.
 
 Aussitôt la voix éteinte, les êtres célestes au sein de la formation formèrent des sceaux de leurs mains et injectèrent leur énergie spirituelle céleste dans l'assemblage. La terre en tressaillit.
 
@@ -22,7 +22,7 @@ Tout commença à se tordre tandis qu'une puissante ondulation se propageait len
 
 « Que la montagne orientale devienne le côté gauche de la porte céleste! »
 
-La voix tonna de nouveau, et les innombrables célestiaux entonnèrent un chant en chœur. À l'est, une montagne perçant les cieux s'effondra soudainement. Elle s'éleva dans les airs, volant vers sa destination tout en se désagrégeant.
+La voix tonna de nouveau, et les innombrables êtres célestes entonnèrent un chant en chœur. À l'est, une montagne perçant les cieux s'effondra soudainement. Elle s'éleva dans les airs, volant vers sa destination tout en se désagrégeant.
 
 Dans son ascension, elle continua de s'écrouler pour finalement prendre la forme d'un pilier carré avant de se poser au sol.
 
@@ -44,7 +44,7 @@ Ce fragment de terre s'éleva lentement, rétrécissant jusqu'à devenir une por
 
 « Sacrifice aux êtres célestes! »
 
-Dès que la porte fut achevée, presque tous les célestiaux poussèrent des rugissements capables de fendre la terre. Simultanément, l'ondulation qui avait accumulé d'immenses quantités d'énergie spirituelle céleste se précipita vers l'ouvrage.
+Dès que la porte fut achevée, presque tous les êtres célestes poussèrent des rugissements capables de fendre la terre. Simultanément, l'ondulation qui avait accumulé d'immenses quantités d'énergie spirituelle céleste se précipita vers l'ouvrage.
 
 Un grondement de tonnerre secoua l'univers. En se contractant, l'ondulation projeta une quantité colossale d'énergie spirituelle dans la porte, lui conférant sa véritable nature de porte céleste!
 
@@ -56,27 +56,27 @@ Le ciel devint trouble, comme si de l'encre avait été versée dans l'eau pour 
 
 Les cris de détresse ne cessaient de résonner.
 
-Ces dizaines de célestiaux luttèrent pour atteindre la porte et tombèrent à genoux. L'un d'eux rugit face à l'édifice, sa voix empreinte d'un chagrin profond:
+Ces dizaines d'êtres célestes luttèrent pour atteindre la porte et tombèrent à genoux. L'un d'eux rugit face à l'édifice, sa voix empreinte d'un chagrin profond:
 
 « La porte céleste est dressée depuis 40 000 ans! Pourquoi le véritable être céleste du Royaume Céleste Antique n'est-il pas venu? »
 
 La gigantesque porte de pierre semblait inchangée depuis sa construction. Le pan de terre qui la composait restait clos, sans la moindre fissure, et encore moins d'ouverture.
 
-Alors que l'écho de son cri s'éteignait, certains célestiaux agenouillés furent pris de tremblements, leurs yeux écarquillés par la terreur. L'instant d'après, leurs corps explosèrent, projetant du sang sur les survivants dans une scène atroce.
+Alors que l'écho de son cri s'éteignait, certains êtres célestes agenouillés furent pris de tremblements, leurs yeux écarquillés par la terreur. L'instant d'après, leurs corps explosèrent, projetant du sang sur les survivants dans une scène atroce.
 
 « Autrefois, le Royaume Céleste Antique avait laissé un message stipulant que le Royaume Céleste du Vent ferait face à une grande calamité. Pour y résister, nous avons bâti cette porte céleste. Maintenant que la calamité est là, pourquoi l'ancien être céleste ne vient-il pas nous sauver? »
 
-Des centaines de célestiaux apparurent à l'horizon. Beaucoup périrent avant même d'atteindre leur but et s'effondrèrent à genoux. De plus en plus de célestiaux arrivaient, fixant la porte en poussant des cris de désespoir.
+Des centaines d'êtres célestes apparurent à l'horizon. Beaucoup périrent avant même d'atteindre leur but et s'effondrèrent à genoux. De plus en plus d'êtres célestes arrivaient, fixant la porte en poussant des cris de désespoir.
 
 « Si l'ancien être céleste ne nous sauve pas, alors nous nous sauverons nous-mêmes! Même si je dois mourir, je mourrai dans le Royaume Céleste! » Un être céleste se leva brusquement et s'élança vers le ciel avec une folie meurtrière. Cependant, il ne fut accueilli que par une explosion tonitruante.
 
 Sa chair et son sang furent éparpillés sur le sol, certains atteignant même la porte. Mais face à l'immensité de l'édifice, ces éclaboussures n'étaient que de dérisoires gouttelettes.
 
-Le sang continua de pleuvoir sur les célestiaux restés au sol. Tous levèrent la tête, la folie brillant dans leurs yeux, et chargèrent vers le ciel!
+Le sang continua de pleuvoir sur les êtres célestes restés au sol. Tous levèrent la tête, la folie brillant dans leurs yeux, et chargèrent vers le ciel!
 
 « Même si je meurs, je mourrai dans le Royaume Céleste! »
 
-Alors que les célestiaux s'élançaient dans les airs, des grondements de tonnerre éclatèrent. Les êtres explosèrent les uns après les autres; ils n'avaient aucune chance de résister à cette force mystérieuse!
+Alors que les êtres célestes s'élançaient dans les airs, des grondements de tonnerre éclatèrent. Les êtres explosèrent les uns après les autres; ils n'avaient aucune chance de résister à cette force mystérieuse!
 
 Le sang continua de maculer la porte de pierre, conférant aux taches une atmosphère tragique.
 

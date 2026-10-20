@@ -80,9 +80,9 @@ L'homme d'âge moyen en violet réfléchit. L'homme en rouge sourit: « Ce Xu Mu
 
 Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 Célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire Luotian! »
 
-« De ce point de vue, il semble que le vieux Dieu Sang soit le plus décisif. Pour que sa famille puisse s'adapter à la guerre sanglante du Système Stellaire de l'Alliance, il a été prêt à sacrifier ce trésor afin de permettre aux siens de subir ce baptême! » L'homme en rouge nommé Xiang sourit.
+« De ce point de vue, il semble que le vieux Dieu du Sang soit le plus décisif. Pour que sa famille puisse s'adapter à la guerre sanglante du Système Stellaire de l'Alliance, il a été prêt à sacrifier ce trésor afin de permettre aux siens de subir ce baptême! » L'homme en rouge nommé Xiang sourit.
 
-« Le Dieu Sang veut simplement obtenir davantage de bénéfices lors du conflit contre le Système Stellaire de l'Alliance. Cependant, même moi, je ne m'attendais pas à une telle détermination. Ce trésor n'avait plus qu'un seul usage, et il ne l'a pas gardé pour lui... » Le Maître Yan Leizi secoua la tête avec une pointe de pitié dans les yeux, doublée d'une trace d'admiration.
+« Le Dieu du Sang veut simplement obtenir davantage de bénéfices lors du conflit contre le Système Stellaire de l'Alliance. Cependant, même moi, je ne m'attendais pas à une telle détermination. Ce trésor n'avait plus qu'un seul usage, et il ne l'a pas gardé pour lui... » Le Maître Yan Leizi secoua la tête avec une pointe de pitié dans les yeux, doublée d'une trace d'admiration.
 
 L'homme d'âge moyen qui s'était tu soudainement dit froidement: « D'après nos enquêtes, ce Xu Mu vient du Système Stellaire de l'Alliance. Maître Yan Leizi, vous lui accordez tant d'importance; n'avez-vous pas peur qu'il nous trahisse une fois de retour chez lui? »
 
@@ -94,7 +94,7 @@ Le Maître Yan Leizi renifla avec mépris et pensa: « Durant cette période, j'
 
 « Peu importe, puisque le Maître Yan Leizi est confiant, n'en parlons plus. Il est temps pour nous d'agir contre cette bête! Après tout, si trop de personnes meurent, ce sera une perte pour notre Système Stellaire Luotian. Réfléchissons maintenant à la manière de la chasser! » L'homme en rouge nommé Xiang regarda au loin, comme si son regard pouvait percer l'horizon à des dizaines de milliers de kilomètres.
 
-« Ce n'est pas difficile. En unissant nos forces et avec l'aide de ces vieux monstres, une fois le passage ouvert, nous pourrons certainement la précipiter dans le Système Stellaire de l'Alliance. À ce moment-là... » Le regard du Maître Yan Leizi devint frénétique tandis que son corps vacilla et disparut. Les deux autres s'évanouirent également.
+« Ce n'est pas difficile. En unissant nos forces et avec l'aide de ces vieux monstres, une fois le passage ouvert, nous pourrons certainement la précipiter dans le Système Stellaire de l'Alliance. À ce moment-là... » Le regard du Maître Yan Leizi devint frénétique tandis que son corps vacilla et disparut. Les deux autres disparurent également.
 
 Tandis que le Serpent aux yeux de lune déversait sa rage, ses innombrables tentacules balayaient l'espace, fauchant les vies des cultivateurs. L'espace environnant commença à se fragmenter, faisant trembler violemment le cœur des survivants et les empêchant de se téléporter.
 

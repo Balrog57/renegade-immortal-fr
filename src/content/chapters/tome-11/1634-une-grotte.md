@@ -28,7 +28,7 @@ Ce secret pourrait être d'une cruauté sans nom, pourrait marquer la fin de tou
 
 Plus de 2 000 ans de culture et d'innombrables luttes entre la vie et la mort avaient permis à Wang Lin de pénétrer dans l'Ancien Royaume Céleste, la terre sainte de tant de cultivateurs!
 
-La terre était plongée dans un silence absolu et d'innombrables statues jonchaient le sol. Ces statues semblaient être des êtres vivants pétrifiés, conservant les positions qu'ils occupaient avant d'être changés en pierre. Certains étaient debout, d'autres étaient tombés à genoux, certains poussaient un rugissement et d'autres affichaient une expression féroce. Ces statues semblaient reposer sur cette terre depuis des éternités.
+La terre était plongée dans un silence absolu et d'innombrables statues jonchaient le sol. Ces statues semblaient être des êtres vivants pétrifiés, conservant les positions qu'ils occupaient avant d'être changés en pierre. Certains étaient debout, d'autres étaient tombés à genoux, certains poussaient un rugissement et d'autres affichaient une expression féroce. Pareilles à une armée innombrable, ces statues semblaient reposer sur cette terre depuis des éternités.
 
 Après une longue réflexion, Wang Lin s'éleva dans les airs et leva la tête. Il fit face à la lumière éblouissante et fixa les neuf soleils dans le ciel. Puis, il s'élança et se transforma en un rayon de lumière, suivi d'un hurlement capable de faire trembler la terre.
 
@@ -50,7 +50,7 @@ La brume se dispersa telle une vague, révélant clairement le premier soleil de
 
 Une lueur de froideur traversa son regard et il agita de nouveau sa main droite. La lumière du soleil faiblit et sembla trembler à plusieurs reprises avant de commencer à s'effondrer sous les yeux de Wang Lin.
 
-Des grondements de tonnerre résonnèrent, emplissant ce vaste monde. Le grand soleil devant lui rétrécissait rapidement. Bien qu'il fût encore immense, il paraissait minuscule comparé à sa taille initiale.
+Des grondements de tonnerre résonnèrent, emplissant ce vaste monde. Le grand soleil devant lui rétrécissait rapidement. Bien qu'il restât immense, il n'avait plus rien de comparable à sa taille initiale.
 
 « Quel genre de soleil est-ce? C'est une entité formée par un sort! Elle contient le pouvoir de la rétribution divine. En est la source même! » Les yeux de Wang Lin brillèrent et il agita sa main droite à plusieurs reprises. À chaque mouvement, le soleil diminuait de volume.
 
@@ -78,7 +78,7 @@ Ce monde était immense; il était sans limites.
 
 Au sein de cette lumière septicolore se tenait un homme d'âge moyen vêtu d'une robe aux sept couleurs. Il paraissait hautain et son regard était intense. Une pression écrasante émanait également de son corps.
 
-C'était comme si le monde entier était à ses pieds et devait lui obéir! C'était comme si l'univers pouvait s'effondrer sur une simple pensée de sa part. La fierté qu'il affichait recelait une froideur infinie.
+C'était comme si le monde entier était à ses pieds et devait lui obéir, car il était plus vaste que le ciel lui-même! C'était comme si l'univers pouvait s'effondrer sur une simple pensée de sa part. La fierté qu'il affichait recelait une froideur infinie.
 
 Les lèvres de cet homme n'étaient pas charnues, ce qui lui donnait un air très austère et méprisant; il semblait dénué de bienveillance et de loyauté.
 
@@ -88,11 +88,11 @@ Wang Lin se souvint que lorsqu'il avait sauvé Qing Shui dans le Royaume aux Sep
 
 Bien qu'ils partagassent de nombreuses similitudes, si quelqu'un voyait les deux, il ne penserait jamais qu'ils étaient la même personne.
 
-« Ma grotte deviendra son propre monde et contiendra la création du ciel et de la terre. Tout dans ce monde pourra être changé par ma seule pensée... Bien qu'elle ne soit pas à la hauteur du Monde Sen Luo du Grand Souverain Sen Dao, elle s'en rapproche... Malheureusement, elle ne possède pas de Dao Céleste, le temps ne peut donc s'écouler. Cela signifie qu'elle ne peut donner naissance à la vie et l'utiliser pour créer des Flammes Joss... Cependant, tout cela va changer aujourd'hui, car j'ai réussi à voler un Dao Céleste! »
+« Ma grotte forme déjà son propre monde et contient la création du ciel et de la terre. Tout dans ce monde pourra être changé par ma seule pensée... Bien qu'elle ne soit pas à la hauteur du Monde Sen Luo du Grand Souverain Sen Dao, elle s'en rapproche... Malheureusement, elle ne possède pas de Dao Céleste, le temps ne peut donc s'écouler. Cela signifie qu'elle ne peut donner naissance à aucun être vivant ni en tirer des Flammes Joss... Cependant, tout cela va changer aujourd'hui, car j'ai réussi à voler un Dao Céleste! »
 
 « Avec un Dao Céleste, désormais, ma grotte pourra engendrer des êtres sensibles et le temps commencera à couler. Des cultivateurs commenceront à apparaître... Et s'il y a des cultivateurs, il doit y avoir une rétribution divine... La première rétribution sera le tonnerre... » L'homme aux sept couleurs murmura pour lui-même avant d'agiter la main vers le ciel. Le firmament gronda et le tonnerre surgit du vide pour se rassembler dans sa paume.
 
-Sa main droite traça un sceau et, un instant plus tard, l'éternel tonnerre se condensa pour former un éclair de rétribution divine.
+Sa main droite traça un sceau et, un instant plus tard, le tonnerre incessant se condensa pour former un éclair de rétribution divine.
 
 « À partir de maintenant, tu seras le tonnerre de la rétribution divine pour ce vieil homme. Punis tout être qui cultive avec une volonté défiant les cieux! »
 
@@ -102,8 +102,8 @@ Wang Lin murmura: « J'aurais dû le deviner depuis longtemps... »
 
 « Grotte... Grotte... Le Vieux Fantôme Zhan avait dit que le Royaume Intérieur était la grotte intérieure. Cela aurait dû être une évidence, mais je refusais d'y croire... Comme le Daoïste Esprit Dispersé des 7 Millions de Mondes. Il a découvert le secret et a failli sombrer dans la folie... »
 
-« Grotte... Grotte... Ainsi, il s'avère que mon monde, les Royaumes Intérieur et Extérieur, n'est qu'une grotte appartenant à un puissant cultivateur du Continent Astral Immortel!!! »
+« Grotte... Grotte... Ainsi, il s'avère que mon monde, les Royaumes Intérieur et Extérieur, n'est qu'une grotte appartenant à un Grand Souverain du Continent Astral Immortel!!! »
 
-« Voilà donc la vérité. C'est tout simplement absurde. Il se trouve que tous les êtres sensibles des Royaumes Intérieur et Extérieur sont nés de cela... Ce cultivateur défiant le ciel, ce cultivateur défiant le ciel... La raison pour laquelle la rétribution divine punit les cultivateurs défiant les cieux est que tous finiront par chercher à découvrir la véritable nature du ciel. Et c'est alors que la rétribution divine les frappe... »
+« Voilà donc la vérité. C'est tout simplement absurde. Il se trouve que tous les êtres sensibles des Royaumes Intérieur et Extérieur sont nés de cela... Ce cultivateur défiant le ciel, ce cultivateur défiant le ciel... La raison pour laquelle la rétribution divine punit les cultivateurs défiant les cieux est que la plupart d'entre eux finiront par chercher à découvrir la véritable nature du ciel. Et c'est alors que la rétribution divine les frappe... »
 
 « C'est bien plus brillant que les 7 Millions de Mondes. J'aurais dû le deviner depuis longtemps... Je l'avais deviné... Je ne voulais juste pas y croire... » Wang Lin éclata d'un rire en pointant le ciel. Ce rire devint de plus en plus puissant, résonnant dans toute l'immensité.

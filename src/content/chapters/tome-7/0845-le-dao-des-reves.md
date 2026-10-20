@@ -52,7 +52,7 @@ Parfois, une courte période de culture peut valoir plusieurs jours de pratique.
 
 À ce moment précis, une vision céleste apparut au sommet du pic Heng Yun. Des brumes blanches et noires remplissaient la cime et fusionnaient, formant l'image du yin et du yang. De loin, cette image bicolore brillait intensément sous le ciel bleu. C'était tel un tableau vivant, et elle frappa le cœur de tous ceux qui la contemplèrent.
 
-Ce choc venait de l'âme et se propageait à travers elle. Il semblait contenir une force mystérieuse qui les plongea dans une immersion dont ils ne pouvaient s'extraire.
+Ce choc naissait dans l'âme, gagnait l'Âme Naissante, pénétrait l'âme originelle et imprégnait le corps. Il semblait contenir une force mystérieuse qui les plongea dans une immersion dont ils ne pouvaient s'extraire.
 
 « Quoi... est le Dao... » À cet instant, cette voix antique résonna dans l'âme de tous les cultivateurs de la planète Qing Ling.
 

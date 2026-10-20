@@ -10,11 +10,11 @@ Cette épée mesurait environ deux mètres trente de long et une dizaine de cent
 
 La main droite de Wang Lin la toucha et il y déposa sa marque de Sens Divin.
 
-La longue épée émit un grondement puissant, puis un rayon d'énergie d'épée jaillit et encercla Wang Lin.
+La longue épée émit un grondement puissant, puis un rayon d'énergie d'épée jaillit, enveloppant l'épée qui flottait autour de Wang Lin.
 
 « C'est bel et bien une excellente épée! » La joie illumina les yeux de Wang Lin alors qu'il s'élançait à la poursuite de l'épée volante suivante. Les cultivateurs environnants n'avaient aucun moyen d'arrêter Wang Lin. L'Arsenal Magique avait invoqué de nombreuses âmes pour les combattre, et le tonnerre incessant continuait de s'abattre.
 
-Wang Lin fit un pas en avant et tendit les mains. Une autre épée fut saisie dans sa paume et commença à se débattre. Sa lutte était intense, comme si elle éprouvait de l'humiliation à être entre les mains de Wang Lin. En se débattant, l'épée projeta un rayon d'énergie vers le haut.
+Wang Lin fit un pas en avant et tendit les mains. Une autre épée fut saisie dans sa paume et commença à se débattre. Sa lutte était intense, comme si elle éprouvait de l'humiliation à être entre les mains de Wang Lin. En se débattant, l'épée fit jaillir un hymne d'épée qui monta jusqu'aux nues.
 
 À cet instant précis, les neuf épées volantes restantes émirent toutes un hymne d'épée et leur vitesse s'accrut.
 
@@ -58,7 +58,7 @@ Bien que l'expression de l'homme d'âge moyen fût calme, son cœur était troub
 
 Pourtant, il ignorait pourquoi il ressentait une telle peur dès qu'il apercevait Xu Mu. C'était comme si une aura puissante émanait de lui, une force qui le rendait lui-même méfiant.
 
-« Cet homme cache forcément sa culture! » L'homme d'âge moyen ne sous-estima pas Wang Lin, mais le traitait comme un égal en termes de niveau. Sa main droite forma un sceau et il pointa l'adversaire. D'innombrables éclats de lumière se rassemblèrent dans sa paume.
+« Cet homme cache forcément sa culture! » L'homme d'âge moyen ne sous-estima pas Wang Lin, mais le traitait comme un égal en termes de niveau. Sa main droite forma un sceau et il pointa vers le ciel. D'innombrables éclats de lumière se rassemblèrent dans sa paume.
 
 « Extraction de l'énergie originelle du monde! » Les pupilles de Wang Lin se rétractèrent. Outre le contrôle des lois, l'autre capacité des cultivateurs du Purificateur du Nirvana était d'extraire l'énergie originelle du monde.
 
@@ -108,8 +108,8 @@ Dans le Royaume de la Boucherie, sa prudence atteignait son paroxysme, et son ti
 
 Il ne craignait pas d'être détecté par Wang Lin; son énergie originelle jaillit alors qu'il chargeait, faisant trembler et se distordre l'espace environnant.
 
-« Je veux voir comment tu utiliseras la Distorsion Spatiale! » L'intention meurtrière emplissait les yeux du vieil homme nommé Maître Dieu Démon. Son corps était comme une flèche lancée, et il abattit sa main.
+« Je veux voir comment tu utiliseras la Distorsion Spatiale! » L'intention meurtrière emplissait les yeux du vieil homme nommé Maître Dieu Démon. Son corps était comme une flèche lancée, et il projeta ses deux mains en avant.
 
 Cependant, à cet instant précis, un changement stupéfiant se produisit!
 
-Un cri misérable s'éleva de la brume violette, puis sept silhouettes pourpres chutèrent du ciel. Les sept figures s'effondrèrent l'une après l'autre jusqu'à ce qu'il n'en reste plus qu'une seule!
+Un cri misérable s'éleva de la brume violette, puis sept silhouettes violettes chutèrent du ciel. Les sept figures s'effondrèrent l'une après l'autre jusqu'à ce qu'il n'en reste plus qu'une seule!

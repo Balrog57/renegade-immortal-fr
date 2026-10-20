@@ -16,7 +16,7 @@ Une telle révélation suffisait à glacer le sang de n'importe qui!
 
 Alors qu'il rugissait, la montagne entière commença à trembler. La terre et les débris s'envolèrent comme si le mont allait s'effondrer. Les deux hommes en robes grises fusionnèrent pour ne former qu'une seule silhouette et lancèrent un coup de poing. Une tête, façonnée par le brouillard gris entourant le poing, laissa échapper un cri strident à trente pieds de Wang Lin.
 
-La tête fut balayée par un vent violent et se dissipa dans le néant. Le coup de poing, formé par les deux silhouettes grises superposées, s'effondra soudainement!
+La tête fut balayée par un vent violent et se dissipa dans le néant. Le coup de poing, formé par les deux silhouettes grises superposées, se brisa en os et en chair, et s'effondra soudainement!
 
 Au moment où l'impact se rompit, la silhouette sembla être repoussée par une force colossale et se divisa à nouveau en deux individus. Ils crachèrent du sang, leurs expressions d'ordinaire imperturbables laissant place à un profond désarroi.
 
@@ -96,7 +96,7 @@ Wang Lin ouvrit les yeux et contempla la sphère dorée avec une expression pré
 
 Il s'agissait du fragment d'épée que Jiu Di lui avait confié dans la longue rue. Il l'avait raffiné, mais ne l'avait pas encore totalement intégré. Il allait utiliser l'essence métallique absorbée lors de son séjour avec Xuan Luo, combinée à ce fragment, pour parachever son corps d'essence des cinq éléments!
 
-Une fois que son essence métallique formerait un corps d'essence, la puissance de son corps des cinq éléments augmenterait drastiquement. Cela permettrait également de confirmer si ses déductions concernant sa future voie de culture étaient exactes.
+Une fois que son essence métallique formerait un corps d'essence, la puissance de son corps des cinq éléments augmenterait drastiquement. Cela permettrait également de confirmer si ses analyses et ses hypothèses, faites sur l'immense mer avant son arrivée chez le clan Ancien, étaient exactes.
 
 « Le corps d'essence des cinq éléments sera complet. Si mon niveau de culture augmente, alors mes spéculations seront confirmées! » Sans plus hésiter, Wang Lin cracha une bouffée de gaz doré qui enveloppa le fragment d'épée.
 
@@ -104,7 +104,7 @@ Le temps s'écoula. En un éclair, un autre mois passa...
 
 Cela faisait deux mois et demi que Wang Lin et Xuan Luo étaient revenus. Wang Lin était resté cloîtré dans la maison en bois sans en sortir. Xuan Luo était venu deux fois pour l'observer de l'extérieur. Sachant qu'il condensait ses essences et qu'il ne courait aucun danger, il s'en était allé.
 
-Ce matin-là, alors que les premiers rayons du soleil perçaient l'obscurité pour réchauffer le jardin, un jade vola depuis la direction du Temple Ancien. Il effectua quelques cercles autour de la maison en bois avant de se poser sur l'herbe.
+Ce matin-là, alors que les premiers rayons du soleil perçaient l'obscurité pour réchauffer cette vallée semblable à un verger de pêchers, un jade vola depuis la direction du Temple Ancien. Il effectua quelques cercles autour de la maison en bois avant de se poser sur l'herbe.
 
 Un instant plus tard, le jade vibra et s'engouffra dans la demeure. Wang Lin, assis à l'intérieur, le rattrapa.
 
@@ -114,4 +114,4 @@ Son sens divin parcourut l'objet. C'était un jade de message. Le contenu était
 
 « Si ce jade a pu parvenir jusqu'ici, c'est qu'il a obtenu la reconnaissance de Maître. Cette cérémonie doit donc être d'une importance capitale pour le clan Ancien », songea Wang Lin.
 
-« Cet Empereur du Dao a choisi une concubine pendant des centaines d'années, et il vient enfin de la désigner pour devenir son impératrice... Dois-je y aller ou non... » Wang Lin atteignait le moment crucial de la fusion avec son essence métallique; il n'avait guère envie d'assister à cette prétendue cérémonie d'intronisation.
+« Cet Empereur du Dao a choisi des concubines pendant des centaines d'années, et il vient enfin d'en désigner une pour devenir son impératrice... Dois-je y aller ou non... » Wang Lin atteignait le moment crucial de la fusion avec son essence métallique; il n'avait guère envie d'assister à cette prétendue cérémonie d'intronisation.

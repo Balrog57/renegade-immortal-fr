@@ -8,7 +8,7 @@ slug: tonnerre-destruction
 ---
 Les trois personnes à ses côtés grincèrent des dents. S'ils n'agissaient pas immédiatement, ils n'auraient plus aucune chance de survivre. L'un d'eux forma un sceau, et aussitôt, la végétation environnante commença à croître avec frénésie pour se ruer sur Wang Lin.
 
-Un autre personnage ouvrit la bouche et cracha une perle noire qui fonça sur Wang Lin. Le dernier cultivateur traça un sceau, et des centaines de marionnettes jaillirent pour attaquer Wang Lin.
+Un autre personnage ouvrit la bouche et cracha une perle noire dégageant une odeur fétide, qui fonça sur Wang Lin. Le dernier cultivateur traça un sceau, et des centaines de marionnettes jaillirent pour attaquer Wang Lin.
 
 Cependant, à cet instant, les yeux du cultivateur qui avait lancé la gourde s'illuminèrent et il battit en retraite précipitamment. Mais au moment où il recula, les trois autres bougèrent également; il semblait qu'ils aient tous eu la même idée.
 

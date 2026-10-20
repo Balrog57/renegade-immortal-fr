@@ -48,7 +48,7 @@ Voyant ce jeune homme étrange partir après avoir parlé, l'érudit fronça les
 
 Observant le brouillard s'agiter avec une violence accrue, l'érudit soupira.
 
-« Il semble que je ne puisse entrer dans la Tombe de l'Ordre Ancien par la force avec mon corps original... Ce petit gars n'avait aucune marque entre les sourcils... Son identité dépasse mes espérances. Hormis ce voyou de Tuo Sen, il doit être l'autre Dieu Antique qui a tué l'avatar de ma Septième Sœur Cadette... »
+« Il semble que je ne puisse entrer dans la Tombe de l'Ordre Ancien par la force avec mon corps original... Ce petit gars n'avait aucune marque entre les sourcils... Son identité ne fait presque plus de doute. Hormis ce voyou de Tuo Sen, il doit être l'autre Dieu Antique qui a tué l'avatar de ma Septième Sœur Cadette... »
 
 Les yeux de l'érudit s'illuminèrent et ses mains formèrent un sceau. Une lumière jaillit des neuf statues qui l'entouraient. D'un geste de la main, il fit intensifier l'éclat des statues jusqu'à ce qu'il enveloppe totalement son corps.
 
@@ -58,7 +58,7 @@ Dès que la femme apparut, le brouillard s'engouffra en elle, et une marque tén
 
 Dans un soupir, la femme fit un pas et pénétra dans la faille menant à la Tombe de l'Ordre Ancien.
 
-À l'instant où elle disparut, la lumière se dissipa dans la brume. Le visage de l'érudit pâlit et il recula précipitamment en murmurant: « Je ne peux envoyer que mon avatar... Il y avait des traces de "Pêcher la Lune dans le Puits" sur le corps de ce petit Dieu Antique. À part lui, personne d'autre dans le Système Stellaire Antique ne peut utiliser ce sort... Ma Sœur Aînée et ma Huitième Sœur Cadette ont disparu depuis des années. Ma Deuxième Sœur Aînée a déjà trouvé un partenaire. Même cette renarde, ma Quatrième Sœur Cadette, s'est donnée corps et âme pour dérober ce voyou de Tuo Sen... Ma Cinquième Sœur Cadette a pris ce corps et suit la même voie que le Maître du Dao Rêve Bleu... Si je ne trouve pas quelqu'un pour collaborer, je crains d'être laissé pour compte... » La silhouette de l'érudit s'éloigna de plus en plus.
+À l'instant où elle disparut, la lumière se dissipa dans la brume. Le visage de l'érudit pâlit et il recula précipitamment en murmurant: « Je ne peux envoyer que mon avatar... Il y avait des traces de "Pêcher la Lune dans le Puits" sur le corps de ce petit Dieu Antique. À part lui, personne d'autre dans le Système Stellaire Antique ne peut utiliser ce sort... Peut-être que ce petit Dieu Antique et moi pourrions encore collaborer. Ma Sœur Aînée et ma Huitième Sœur Cadette ont disparu depuis des années. Ma Deuxième Sœur Aînée a déjà trouvé un partenaire. Même cette renarde, ma Quatrième Sœur Cadette, s'est donnée corps et âme pour dérober ce voyou de Tuo Sen... Ma Cinquième Sœur Cadette a pris ce corps et suit la même voie que le Maître du Dao Rêve Bleu... Si je ne trouve pas quelqu'un pour collaborer, je crains d'être laissé pour compte... » La silhouette de l'érudit s'éloigna de plus en plus.
 
 Alors qu'il était sur le point de quitter la brume, il s'arrêta brusquement et scruta l'horizon.
 

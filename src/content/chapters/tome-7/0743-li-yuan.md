@@ -44,7 +44,7 @@ Tandis qu'il parlait, il fit un pas en avant. La femme fut plus rapide encore et
 
 Un rayon d'énergie d'épée surgit de loin, fit le tour de la zone avant de se poser. La lumière s'estompa, révélant un homme d'âge moyen. Ce dernier fixa la restriction et s'exclama. Après avoir inspecté les lieux avec prudence pendant un long moment, ses yeux s'illuminèrent et son sens divin se déploya. Lorsqu'il ne décela aucune anomalie, une lueur mystérieuse émana de son regard.
 
-Il réfléchit un instant, recula de quelques pas et frappa son sac de contenance. Un rayon de lumière blanche jaillit immédiatement et, en touchant le sol sur le côté, se transforma en une marionnette de bois.
+Il réfléchit un instant, recula de quelques pas et frappa son sac de rangement. Un rayon de lumière blanche jaillit immédiatement et, en touchant le sol sur le côté, se transforma en une marionnette de bois.
 
 La marionnette était gravée d'inscriptions et de marquages qui émettaient des éclats de lumière blanche.
 
@@ -52,7 +52,7 @@ L'homme forma des sceaux manuels et murmura pour lui-même. D'un mouvement du do
 
 Le corps de la marionnette trembla, la lumière blanche s'intensifia et, dans un fracas, elle se désintégra. L'onde de choc se propagea rapidement, brisant la restriction et exposant le trou qui était jusqu'alors caché, large d'une dizaine de mètres.
 
-Les yeux de l'homme brillèrent de joie. Il frappa à nouveau son sac de contenance pour en sortir une autre marionnette, laquelle bondit directement dans le trou sous ses ordres.
+Les yeux de l'homme brillèrent de joie. Il frappa à nouveau son sac de rangement pour en sortir une autre marionnette, laquelle bondit directement dans le trou sous ses ordres.
 
 Peu après, l'extase se lut sur le visage de l'homme, qui se précipita dans la fosse sans aucune hésitation. Dès qu'il fut entré, il poussa un cri de terreur et son âme originelle surgit du trou, pétrifiée par la peur. Cependant, au moment même où elle émergeait, une ombre verte jaillit et la tira violemment vers l'intérieur.
 
@@ -62,11 +62,11 @@ De nouvelles ondulations apparurent sur le rocher situé à une dizaine de mètr
 
 L'expression de la femme changea lorsqu'elle se retourna et fixa Wang Lin, qui venait de surgir. Elle fronça les sourcils, prête à parler, mais Li Yuan s'avança pour faire écran. Il joignit les mains en signe de respect envers Wang Lin et dit lentement: « Camarade cultivateur, nous vous avons offensé tout à l'heure avec cette histoire de restriction. En ce moment... »
 
-« Pourquoi perdre ton temps avec lui? Le niveau de culture de cet homme est le même que le nôtre. Si nous attaquons ensemble, nous pourrons le donner en pâture à mon animal! » La femme laissa échapper un ricanement glacial et chargea. Elle frappa son sac de contenance et un éventail de plumes apparut instantanément, volant vers Wang Lin avec une intention meurtrière féroce.
+« Pourquoi perdre ton temps avec lui? Le niveau de culture de cet homme est le même que le nôtre. Si nous attaquons ensemble, nous pourrons le donner en pâture à mon animal! » La femme laissa échapper un ricanement glacial et chargea. Elle frappa son sac de rangement et un éventail de plumes apparut instantanément, volant vers Wang Lin avec une intention meurtrière féroce.
 
 Li Yuan eut un sourire amer tandis que sa main droite formait un sceau; des restrictions apparurent aussitôt. Elles se combinèrent pour lancer une attaque coordonnée contre Wang Lin.
 
-L'expression de Wang Lin restait calme; il était sans égal parmi les cultivateurs du premier stade. À cet instant, il chargea et fit claquer ses doigts, projetant un éclair de tonnerre. Le coup frappa l'éventail de plumes. Le tonnerre se dissipa et l'éventail s'effondra, incapable de résister.
+L'expression de Wang Lin restait calme; il était sans égal parmi les cultivateurs du premier stade. À cet instant, il avança d'un pas et fit claquer ses doigts, projetant un éclair de tonnerre. Le coup frappa l'éventail de plumes. Le tonnerre se dissipa et l'éventail s'effondra, incapable de résister.
 
 Son trésor magique étant détruit, le contrecoup fit violemment trembler son corps, et elle cracha du sang. Elle recula de plusieurs pas, le visage déformé par l'horreur.
 

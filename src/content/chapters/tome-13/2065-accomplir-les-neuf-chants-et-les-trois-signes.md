@@ -58,17 +58,17 @@ Tout comme il avait répondu aux trois questions de Li Qianmei dans le monde des
 
 « Le ciel radieux et le ciel étoilé sont également des cercles! »
 
-« Sors de son cercle, sors de plus en plus de cercles jusqu'à ce que tu piétines les cieux. Fais le dernier pas parmi tous les êtres vivants, jusqu'à ce que rien ne couvre tes yeux et que tu ne sois plus confus... Telle est la véritable signification de "marcher sur le chemin du vrai dao" dans l'Écriture du Dao!! »
+« Sors de ce cercle, sors de plus en plus de cercles jusqu'à ce que tu piétines les cieux. Fais le dernier pas parmi tous les êtres vivants, jusqu'à ce que rien ne couvre tes yeux et que tu ne sois plus confus... Telle est la véritable signification de "marcher sur le chemin du vrai dao" dans l'Écriture du Dao!! »
 
 Wang Lin murmura tandis qu'il observait le pied gigantesque qui tombait du ciel. Il comprenait vaguement, il traversait une illumination!
 
 « Vie et mort, karma, vrai et faux... »
 
-« Si la vie et la mort étaient une corde, d'innombrables vies et morts se lieraient pour former des cercles. Ces cercles sans fin formeraient un filet, et ce filet serait le karma. Ce vaste filet de karma servirait à capturer son vrai moi dans le fleuve de la réincarnation. Le fleuve de la réincarnation contient le vrai et le faux, et seule une paire d'yeux capable de discerner le vrai du faux peut lancer le filet pour s'en extraire. »
+« Si la vie et la mort étaient une corde, d'innombrables vies et morts se lieraient pour former des cercles. Ces cercles sans fin formeraient un filet, et ce filet serait le karma. Ce vaste filet de karma servirait à repêcher son vrai moi dans le fleuve de la réincarnation. Le fleuve de la réincarnation contient le vrai et le faux, et seule une paire d'yeux capable de discerner le vrai du faux peut lancer le filet pour s'en extraire. »
 
 « Après avoir complété mon essence du vrai et du faux dans la Secte Dong Lin il y a des centaines d'années, j'avais compris que la réincarnation était la quatrième essence éthérée. Pourtant, au cours des siècles passés, je ne comprenais toujours pas ce qu'était la réincarnation... »
 
-« Qu'est-ce que la réincarnation? Je pensais à l'origine qu'il s'agissait d'une loi régissant l'au-delà. Ce n'est que lors de l'apparition de l'Enseignant Impérial du Dao Antique que j'ai découvert que, pour véritablement ressusciter Wan Er, je devais utiliser le pouvoir de la réincarnation dans le Royaume Divin Immémorial... »
+« Qu'est-ce que la réincarnation? Je pensais à l'origine qu'il s'agissait d'une loi régissant l'au-delà. Ce n'est que lors de l'apparition de l'Enseignant Impérial du Dao Antique que j'ai découvert, quelles qu'aient été ses raisons, qu'il laissait entendre que, pour véritablement ressusciter Wan Er, je devais utiliser le pouvoir de la réincarnation dans le Royaume Divin Immémorial... »
 
 « À l'époque, j'étais perplexe. Quelle était cette puissance de la réincarnation? Je pensais qu'il s'agissait d'une loi du monde... »
 
@@ -84,7 +84,7 @@ Wang Lin murmura tandis qu'il observait le pied gigantesque qui tombait du ciel.
 
 C'était le bruit du vent!
 
-C'était le chant du clan Ancien! C'était le premier des neuf chants, et après celui-ci, les huit autres suivirent. C'étaient le ciel, la terre, le vent, le tonnerre, le nuage, la pluie, les organes internes, le corps, et enfin le chant du sang!
+C'était le Chant du Vent Céleste du clan Ancien! C'était le premier des neuf chants, et après celui-ci, les huit autres suivirent. C'étaient le ciel, la terre, le vent, le tonnerre, le nuage, la pluie, les organes internes, le corps, et enfin le chant du sang!
 
 Le chant résonna violemment depuis les cieux, depuis le corps de Wang Lin et depuis le monde entier.
 
@@ -112,7 +112,7 @@ Wang Lin leva la tête. Ce qu'il regardait n'était pas le pied géant qui sembl
 
 « Avatar du vide, descends complètement et fusionne avec moi! » Ce qui lui manquait, c'était de naître du vide et d'être reconnu par celui-ci, tout comme l'Ancêtre Céleste et l'Ancêtre Ancien.
 
-Dans le vide du Continent Astral Immortel, saturé de lois, se trouvait un immense rocher. À l'intérieur du rocher siégeait une figure qui était là depuis des centaines d'années, presque un millénaire.
+Dans le vide du Continent Astral Immortel, saturé de lois, se trouvait un immense rocher rond. À l'intérieur du rocher siégeait une figure qui était là depuis des centaines d'années, presque un millénaire.
 
 À cet instant, il sembla entendre un appel et ouvrit les yeux. Ses yeux brillaient d'un éclat intense et il ressemblait trait pour trait à Wang Lin. Il était l'avatar de Wang Lin dans le vide.
 

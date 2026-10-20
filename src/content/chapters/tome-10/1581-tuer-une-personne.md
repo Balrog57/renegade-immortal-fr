@@ -30,7 +30,7 @@ Dès l'apparition de ce signe, une aura glaciale envahit le monde pour contrer l
 
 Il le projeta vers l'ancien parapluie qui déchaînait des torrents de flammes.
 
-« Prenant ma propre longévité pour Dao, l'âme de la glace et de la neige pour Ciel, et le froid pour catalyseur... Glace Éternelle! » L'homme en blanc jouissait manifestement d'un statut supérieur aux deux autres; il se situait juste en dessous des cinq maîtres du Système Stellaire Antique.
+« Prenant ma propre longévité pour Dao, l'âme de la glace et de la neige pour Ciel, et le froid scellant le vide pour catalyseur... Glace Éternelle! » L'homme en blanc jouissait manifestement d'un statut supérieur aux deux autres; il se situait juste en dessous des cinq maîtres du Système Stellaire Antique.
 
 Le monde changea de couleur sous la puissance de son attaque!
 

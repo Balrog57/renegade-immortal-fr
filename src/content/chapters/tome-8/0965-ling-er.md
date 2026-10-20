@@ -72,7 +72,7 @@ Lorsque Maître Yi Chen vit les clochettes, sa perspicacité lui permit de compr
 
 Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme originelle afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
 
-Wang Lin sourit en prenant la pierre et la parcourut de son Sens Divin. Bien que son expression restât neutre, il fut intérieurement impressionné. Cette pierre noire était très étrange, parsemée de minuscules orifices dégageant une force d'aspiration. Non seulement elle pouvait stocker et préserver le Sens Divin, mais elle permettait aussi de préparer un sort à l'avance. Elle était similaire aux talismans du Clan des Immortels Délaissés. De plus, on pouvait créer un avatar illusoire par la simple pensée. C'était un trésor fort pratique.
+Wang Lin sourit en prenant la pierre et la parcourut de son Sens Divin. Bien que son expression restât neutre, il fut intérieurement impressionné. Cette pierre noire était très étrange, parsemée de minuscules orifices dégageant une étrange aura. Non seulement elle pouvait stocker et préserver le Sens Divin, mais elle permettait aussi de préparer un sort à l'avance. Elle était similaire aux talismans du Clan des Immortels Délaissés. De plus, on pouvait créer un avatar illusoire par la simple pensée. C'était un trésor fort pratique.
 
 Bien que ce ne fût pas un objet d'une valeur inestimable, il n'en demeurait pas moins rare. Wang Lin acquiesça et le rangea dans son sac de rangement.
 
@@ -98,7 +98,7 @@ Après une courte réflexion, Wang Lin déclara lentement: « Mon surnom est Ma�
 
 Grâce à son corps de Dieu Ancien, presque aucun poison ne pouvait l'atteindre, si ce n'est certaines substances extrêmement rares et antiques. Après avoir vérifié la boisson avec son Sens Divin, il fut certain qu'elle était sûre.
 
-Une fois sa coupe reposée, la magnifique jeune femme à côté de Maître Yi Chen prit immédiatement le pichet pour lui verser une autre coupe. Elle retourna ensuite s'asseoir près de son protecteur, jetant occasionnellement des regards curieux vers Wang Lin.
+Une fois sa coupe reposée, la magnifique jeune femme à côté de Maître Yi Chen prit immédiatement le pichet pour lui verser une autre coupe. Elle retourna ensuite s'asseoir près de Maître Yi Chen, jetant occasionnellement des regards curieux vers Wang Lin.
 
 Maître Yi Chen et ses frères retrouvèrent leur calme et entamèrent la discussion avec Wang Lin. Au fil de leurs échanges, ils se mirent à débattre du Dao.
 

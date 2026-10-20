@@ -52,11 +52,11 @@ Wang Lin s'arrêta et se retourna. Ses yeux devinrent de glace: « Il n'est pas 
 
 Des scènes du passé défilèrent soudainement devant ses yeux. En fixant Wang Lin, l'émotion complexe qui habitait son regard s'intensifia: « À part vous, personne d'autre n'a un regard aussi froid. Vous avez changé d'apparence, vous avez tout changé, mais vous ne pouvez pas changer votre regard. Je crains que vous ne vous soyez transformé uniquement pour que je ne puisse pas vous reconnaître. »
 
-Wang Lin fronça les sourcils et la fixa froidement: « Je vais le dire pour la dernière fois: disparaissez! »
+Wang Lin fronça les sourcils et la fixa froidement: « Je vais le dire pour la dernière fois: dégagez! »
 
 Liu Mei afficha un magnifique sourire, puis l'émotion complexe dans ses yeux s'évanouit, remplacée par une indifférence glaciale. Elle dit doucement: « Votre niveau de culture n'est certainement pas supérieur au mien. Vous devez posséder un trésor capable de dissimuler votre puissance. Aujourd'hui, vous ne partirez pas. »
 
-Un souffle de vent éclata et le Doigt de la Mort fut projeté. L'expression de Liu Mei resta neutre tandis que sa main de jade formait rapidement un sceau, faisant apparaître un sortilège. Un écran de lumière surgit devant elle pour intercepter le Doigt de la Mort dans un fracas assourdissant. Des éclairs crépitèrent de toutes parts et d'innombrables fissures parcoururent l'écran lumineux.
+Un souffle de vent éclata et le Doigt de la Mort fut projeté, sous forme de rayon de lumière noire, en grondant comme le tonnerre. L'expression de Liu Mei resta neutre tandis que sa main de jade formait rapidement un sceau, faisant apparaître un sortilège. Un écran de lumière surgit devant elle pour intercepter le Doigt de la Mort dans un fracas assourdissant. Des éclairs crépitèrent de toutes parts et d'innombrables fissures parcoururent l'écran lumineux.
 
 Liu Mei secoua la tête et dit doucement: « Je n'ai pas fait fausse route. Votre culture n'est qu'au début du stade d'Ascendant. »
 

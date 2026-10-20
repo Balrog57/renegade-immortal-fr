@@ -10,7 +10,7 @@ Wang Lin évoluait dans le vide imprégné des lois du Continent Astral Immortel
 
 Au cours de cette année, plusieurs génies brillèrent à travers les 72 continents célestes. L’un d’eux se nommait Yun Yifeng!
 
-Cette année-là, l’Empereur Céleste qui régnait sur les 72 continents sortit de sa culture en isolement après des dizaines de milliers d'années. La moitié des continents fut enveloppée d'une énergie céleste infinie.
+Cette année-là, l’Empereur Céleste qui régnait nominalement sur les 72 continents sortit de sa culture en isolement après des dizaines de milliers d'années. La moitié des continents fut enveloppée d'une énergie céleste infinie.
 
 Cette même année, certains cultivateurs du monde des grottes s'étaient discrètement réincarnés, mais nul ne savait où ils étaient allés.
 
@@ -52,11 +52,11 @@ Xuan Luo contempla le pavillon de la Secte des Sept Dao dissimulé dans la brume
 
 « Wang Lin, tous se sont réincarnés, mais je n'ai aucun contrôle sur le moment où ils réapparaîtront. Peut-être sera-ce dans quelques années, ou peut-être dans un millénaire... »
 
-« Mais ils sont en sécurité. » Xuan Luo laissa échapper un soupir en fixant le pavillon. Il semblait capable de percevoir le vide à l'intérieur du bâtiment et Wang Lin, qui luttait pour s'en extraire.
+« Mais ils sont en sécurité. » Xuan Luo laissa échapper un soupir en fixant le pavillon. Il semblait capable de percevoir le vide derrière le pavillon et Wang Lin, qui luttait pour s'en extraire.
 
 « Il reste moins de quatre ans. Disciple, ton Enseignant a fait tout ce qu'il pouvait... Désormais, tout dépendra de toi... » Xuan Luo ferma lentement les yeux, et entre ses sourcils jaillit une lueur rouge. Cette lumière servait de guide pour que Wang Lin ne s'égare pas.
 
-Dans le vide séparant les mondes des grottes du Continent Astral Immortel, le visage de Wang Lin était d'une pâleur mortelle. Il faisait circuler son Pouvoir de Dao Antique dans tout son corps pour résister à la pression démente qui l'assaillait de toutes parts.
+Dans le vide séparant les mondes des grottes du Continent Astral Immortel, le visage de Wang Lin était d'une pâleur mortelle. Les deux mains formant des sceaux, il faisait circuler son Pouvoir de Dao Antique dans tout son corps pour résister à la pression démente qui l'assaillait de toutes parts.
 
 Cette pression était déjà d'une puissance indescriptible; sans la bête moustique qui continuait d'avancer, Wang Lin aurait déjà succombé. Même le roi moustique se déplaçait beaucoup plus lentement et peinait sous la charge. Parfois, il laissait échapper un hurlement silencieux.
 
@@ -78,7 +78,7 @@ Cependant, il n'était pas né ici. Peut-être s'adapterait-il pleinement après
 
 Le roi moustique était trop épuisé pour forcer le passage. Il devait fusionner avec davantage de lois du Continent Astral Immortel et subir d'innombrables transformations évolutives pour atteindre l'état de ses ancêtres.
 
-« Ne viens pas avec moi... Puisque c'est ta demeure, reste ici... Tu m'as accompagné pendant plus de 2 000 ans. Aujourd'hui, tu peux... partir... »
+« Ne viens pas avec moi, tu deviendrais fou... Puisque c'est ta demeure, reste ici... Tu m'as accompagné pendant plus de 2 000 ans. Aujourd'hui, tu peux... partir... »
 
 Le roi moustique trembla et poussa un rugissement. Ce cri résonna à travers le vide, empreint de défi. C'était la première fois qu'il désobéissait à Wang Lin. Il ne voulait pas partir; il voulait utiliser toute sa puissance pour porter Wang Lin un peu plus loin. Même s'il devait mourir, il voulait propulser son maître vers l'avant!
 
@@ -88,7 +88,7 @@ Dès qu'il se leva, ses yeux brillèrent d'une lueur disparue depuis longtemps. 
 
 Sa main droite traça un sceau et il ne laissa aucune chance au roi moustique de s'y opposer. Sa paume se posa sur le crâne de la bête. Dès que le mouvement du moustique fut entravé, Wang Lin bondit et s'élança.
 
-« Pars! C'est ton foyer, ne me suis pas! » La voix de Wang Lin était ferme alors qu'il agitait sa manche. Les neuf autres bêtes moustiques volèrent vers le roi moustique.
+« Pars! C'est ton foyer, ne te soucie pas de moi! » La voix de Wang Lin était ferme alors qu'il agitait sa manche. Les neuf autres bêtes moustiques volèrent vers le roi moustique.
 
 Cela augmenta considérablement la distance entre lui et la créature. Derrière Wang Lin, un cri strident s'éleva du roi moustique. C'était le cri de désespoir d'un enfant séparé des siens.
 

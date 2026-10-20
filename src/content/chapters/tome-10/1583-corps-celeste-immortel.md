@@ -118,7 +118,7 @@ Il était impossible de dire si cette silhouette était un homme ou une femme, j
 
 « Ce vieil homme est l'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Dieu du Vide! » Une voix erratique résonna alors qu'il levait la main pour frapper violemment dans le dos de Wang Lin, juste après sa reformation.
 
-Le corps de Wang Lin trembla violemment et il cracha une gorgée de sang doré. Il fut projeté vers la planète Suzaku et s'y écrasa avec fracas.
+Le corps de Wang Lin trembla violemment et il cracha une gorgée de sang doré. Il fut projeté vers la planète Suzaku, telle une traînée dorée, et s'y écrasa avec fracas.
 
 La silhouette floue ouvrit la bouche pour inhaler le sang doré que Wang Lin avait rejeté. Ses yeux brillaient d'avidité tandis que son corps se transformait en un nuage pour poursuivre Wang Lin.
 

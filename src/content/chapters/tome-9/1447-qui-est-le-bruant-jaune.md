@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1447 - Who is the Yellow Finch
 slug: qui-est-le-bruant-jaune
 ---
-Contemplant la brume rouge, l'érudit d'âge moyen sourit. De nature prudente, il était aussi rusé qu'un renard; dans l'Ancien Système Stellaire, on le surnommait le Renard Rusé.
+Contemplant la brume rouge, l'érudit d'âge moyen sourit. De nature prudente, il était aussi rusé qu'un renard; dans le Système Stellaire Antique, on le surnommait le Renard Rusé.
 
 Bien qu'il ne fût qu'au troisième niveau du Fléau Céleste, il était convaincu que ses stratagèmes pourraient compenser sa faiblesse. Et c'était en effet le cas; à maintes reprises, il avait dû naviguer entre la vie et la mort grâce à sa ruse, pour finalement en sortir victorieux.
 

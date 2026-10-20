@@ -44,13 +44,13 @@ Une intention meurtrière s'alluma dans les yeux de la jeune femme alors qu'elle
 
 Wang Lin recula et agita sa manche. L'empreinte dorée de Xuan Luo apparut et réprima le visage fantomatique.
 
-L'aura puissante de l'empreinte contenait un fragment du pouvoir de Xuan Luo. Elle se referma instantanément sur le visage fantomatique qui, dans un bang fracassant, poussa un cri misérable avant de disparaître devant Wang Lin.
+L'aura puissante de l'empreinte contenait un fragment du pouvoir de Xuan Luo. Elle se referma instantanément sur le visage fantomatique qui, dans un grand fracas, poussa un cri misérable avant de disparaître devant Wang Lin.
 
 Une lumière dorée brilla intensément et l'empreinte vola vers la jeune femme. En la voyant, celle-ci inspira brusquement. Ses pupilles se rétractèrent et elle s'arrêta net.
 
 Simultanément, les yeux de Wang Lin s'illuminèrent et il recula, disparaissant à nouveau dans les profondeurs de la veine de feu. La lumière dorée faiblit et l'empreinte cessa sa progression, disparaissant en même temps que l'épée de sang.
 
-« Ne poursuis plus. Je n'ai aucune hostilité envers la Secte de la Grande Âme. J'ai seulement besoin d'utiliser la veine de feu terrestre principale pour cultiver un sort! » La voix de Wang Lin résonna dans l'esprit de la jeune femme après son départ.
+« Ne poursuis plus. Je n'ai aucune hostilité envers la Secte de la Grande Âme. J'ai seulement besoin d'utiliser la veine de feu terrestre principale pour cultiver une technique divine! » La voix de Wang Lin résonna dans l'esprit de la jeune femme après son départ.
 
 La jeune femme resta immobile, plongée dans une réflexion silencieuse.
 

@@ -42,7 +42,7 @@ Sa seule requête était que Xue Yu devienne un pays de culture de rang 5 et qu'
 
 Justement, un Chaudron de Pluie était apparu au sein de l'Alliance des Quatre Sectes, provenant précisément d'un cultivateur de Xue Yu; c'est ainsi que cette guerre fut déclenchée.
 
-L'Alliance des Quatre Sectes avait attiré l'attention de Xue Yu en raison de la bataille pour le Chaudron de Pluie et était devenue la nouvelle cible de l'invasion de Xue Yu.
+L'Alliance des Quatre Sectes avait attiré l'attention de Xue Yu en raison de la bataille pour le Chaudron de Pluie, et Xue Yu comptait en faire sa nouvelle terre.
 
 Quant à savoir pourquoi le Chaudron de Pluie était apparu dans l'Alliance des Quatre Sectes et pourquoi il s'était retrouvé entre les mains du prince, l'Alliance pensait qu'il s'agissait d'un complot.
 
@@ -74,7 +74,7 @@ Des vagues de froid émanaient de cette neige. Un sentiment de désespoir s'en d
 
 Wang Lin flottait silencieusement dans les airs. Il contemplait le champ enneigé et réfléchit longuement. Finalement, il soupira. Ses deux mains formèrent un sceau qui créa un vent étrange balayant la plaine, un souffle qui ressemblait à des sanglots.
 
-À cet instant, on aurait dit que les cieux et la terre étaient emplis de ces cris de douleur... La neige continuait de tomber et le vent continuait de souffler, à l'image de l'immensité éternelle du ciel.
+À cet instant, on aurait dit que les cieux et la terre étaient emplis de ces cris de douleur... La neige continuait de tomber et le vent continuait de souffler, à l'image du Dao céleste, vaste et sans fin.
 
 Seule cette neige était très étrange. Bien que le vent fût puissant, peu de flocons bougeaient. Heureusement, l'objectif de Wang Lin n'était pas de défricher cette forêt.
 

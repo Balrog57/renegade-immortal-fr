@@ -10,7 +10,7 @@ Le corps de Liu Zhiyuan s'effondra soudainement à plusieurs milliers de pieds d
 
 Seule sa tête fut arrachée par une force impétueuse et saisie par Wang Lin. Après l'avoir mise de côté, Wang Lin disparut.
 
-À l'instant même où il s'évanouit, le champ de bataille fut plongé dans un silence de mort. Le cri déchirant de Liu Zhiyuan avant de mourir résonna à travers la prairie!
+À l'instant même où il disparut, le champ de bataille fut plongé dans un silence de mort. Le cri déchirant de Liu Zhiyuan avant de mourir résonna à travers la prairie!
 
 Le vieil homme nommé Zhang tremblait et ignora totalement Lu Wenran en battant en retraite. Les yeux de Lu Wenran se rétrécirent en entendant le hurlement pitoyable de Liu Zhiyuan juste avant son trépas.
 

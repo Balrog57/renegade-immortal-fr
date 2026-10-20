@@ -20,7 +20,7 @@ La Fin des Temps était un sort que Maître Simo avait lui-même compris à part
 
 Le monde inversé trembla violemment sous cette tempête. Le ciel prit une teinte jaune maladive et du pus commença à perler! La substance se rassembla puis rompit, libérant d'immenses quantités de liquide jaunâtre. Le monde entier devint désolé!
 
-D'innombrables fissures apparurent sur la terre et s'étendirent comme si le sol vieillissait à une vitesse fulgurante! Tout cela se produisit en un instant. Le ciel et la terre, qui semblaient soudainement se refermer, s'effondrèrent sous l'effet de ce sort!
+D'innombrables fissures apparurent sur la terre, dégageant un air de mort; des rides s'y accumulèrent et s'étendirent comme si le sol vieillissait à une vitesse fulgurante! Tout cela se produisit en un instant. Le ciel et la terre, qui semblaient soudainement se refermer, s'effondrèrent sous l'effet de ce sort!
 
 Au moment où le monde bascula, le vortex formé par la Restriction Temporelle emporta tout sur son passage et chargea vers Wang Lin avec une aura destructrice inimaginable!
 

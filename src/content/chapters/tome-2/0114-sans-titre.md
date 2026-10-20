@@ -26,9 +26,9 @@ Les cultivateurs à l'extérieur de la vallée reprirent leurs discussions.
 
 « C'est exact. Il s'agit bien de la Secte He Huan. »
 
-Tandis que les murmures circulaient, les visages des deux cultivateurs de l'Âme Naissante de la Secte He Huan, Chen Huan et Chen Yan, devinrent livides. Ils échangèrent un soupir avant que leurs expressions ne redeviennent neutres.
+Tandis que les murmures circulaient, les visages des deux cultivateurs de l'Âme Naissante de la Secte He Huan, Chen Huan et Chen Yan, devinrent sombres. Ils échangèrent un soupir avant que leurs expressions ne redeviennent neutres.
 
-Les disciples de la Secte He Huan se précipitèrent vers Chen Huan et Chen Yan, abattus, le visage empreint de sentiments complexes. La disciple qui menait le groupe lança rapidement un jade de transmission vocale aux deux experts de l'Âme Naissante dès leur arrivée.
+Les disciples de la Secte He Huan s'approchèrent de Chen Huan et Chen Yan, abattus, le visage empreint de sentiments complexes. La disciple qui menait le groupe lança rapidement un jade de transmission vocale aux deux experts de l'Âme Naissante dès leur arrivée.
 
 Chen Huan fronça les sourcils. Il plaça le jade contre son front et fut frappé de stupeur. Il reporta aussitôt son regard sur Wang Ying et demanda: « Est-ce vrai? »
 
@@ -80,7 +80,7 @@ Lin Yi secoua la tête et répondit: « La Secte des Cadavres n'a pas respecté 
 
 Fort de cette pensée, Lin Yi se tourna soudainement vers le cultivateur de l'Âme Naissante de la Vallée Wu Feng et déclara: « La Vallée Wu Feng n'a pas non plus conservé son jeton et est disqualifiée. Cependant, ils ont cédé leur jeton à une autre secte; la secte qui a reçu ce jeton n'est donc soumise à aucune restriction et peut détenir deux jetons. »
 
-Le cultivateur de l'Âme Naissante de la Vallée Wu Feng était un vieil homme au visage sombre. Son expression resta de marbre alors qu'il fixait Teng Huayuan.
+Le cultivateur de l'Âme Naissante de la Vallée Wu Feng était un vieil homme au visage sombre. Son expression resta de marbre alors qu'il jetait un regard à Teng Huayuan.
 
 Teng Huayuan, lui aussi, garda le silence. Bien qu'il fût un Ancien invité, il avait dû payer un prix exorbitant pour obtenir ce jeton.
 

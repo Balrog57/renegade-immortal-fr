@@ -66,7 +66,7 @@ Cependant, l'instant d'après, l'aiguille rouge cessa sa poursuite et s'effondra
 
 Devant lui, l'aiguille rouge était déjà à moitié transparente et s'évanouissait lentement. Pourtant, juste au moment où elle allait disparaître complètement, elle cessa sa dissipation, fit volte-face et s'élança au loin.
 
-« Elle n'est pas morte? » Les yeux de Wang Lin furent remplis de terreur et il chargea sans réfléchir. Sa main se tendit et il cracha une énergie originelle qui forma une prison pour emprisonner l'aiguille rouge.
+« Elle n'est pas morte? » Les yeux de Wang Lin furent remplis de terreur et il chargea sans réfléchir. Sa main se tendit et il cracha une essence de son âme originelle qui forma une prison pour emprisonner l'aiguille rouge.
 
 L'aiguille émit un sifflement strident, comme si elle voulait s'extirper de sa cage. Elle ne cessait de percuter la prison, et chaque impact rendait le visage de Wang Lin un peu plus pâle.
 
@@ -118,4 +118,4 @@ Elle n'oublierait jamais comment ce vieillard ne cessait de marmonner leur lien 
 
 Pourtant, bien qu'elle n'appréciait guère la plupart de ces choses, elle trouvait que l'anneau de fer était assez agréable à regarder...
 
-« Oui, c'est ici. Héhé, même un puissant cultivateur du Purificateur du Nirvana peut finir ainsi... C'est son destin! » Le vieil homme regarda les gouttes de sang rassemblées et ses yeux s'illuminèrent.
+« Oui, c'est ici. Héhé, même un puissant cultivateur du Purificateur du Nirvana peut finir ainsi... Quelle prédestination! » Le vieil homme regarda les gouttes de sang rassemblées et ses yeux s'illuminèrent.

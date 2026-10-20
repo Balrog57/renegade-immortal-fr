@@ -22,7 +22,7 @@ Peu de temps après, des fissures apparurent sur l'écran démoniaque. Elles se 
 
 Une fois l'écran brisé, Wang Lin pénétra à l'intérieur. La disparition de la barrière provoqua l'explosion d'une tempête d'énergie spirituelle démoniaque depuis la vallée des démons située au centre de la capitale. Cette énergie se mua en un nuage pourpre dans le ciel. Tandis que le nuage tourbillonnait, il prit instantanément la forme de l'ombre d'un démon à deux cornes. Ses yeux brillaient d'une lueur sinistre alors qu'il flottait dans les airs, observant Wang Lin comme s'il ne regardait qu'une fourmi.
 
-« Cultivateur insignifiant, même si tu bénéficies de la protection de Bei Luo, puisque tu as osé détruire mon écran démoniaque, tu mourras sans aucun doute! » La voix provenant de l'ombre semblait surgir du neuvième niveau de l'enfer; elle était d'une instabilité terrifiante.
+« Cultivateur méprisable, même si tu bénéficies de la protection de Bei Luo, puisque tu as osé détruire mon écran démoniaque, tu mourras sans aucun doute! » La voix provenant de l'ombre semblait surgir du neuvième niveau de l'enfer; elle était d'une instabilité terrifiante.
 
 L'ombre démoniaque agita la main droite et les cieux changèrent soudainement. La capitale entière disparut, et en un instant, les environs furent transformés en un monde de rouge. Ce rouge était celui des flammes! Le sol fut recouvert de magma. L'éclat intense du feu illumina même le ciel d'une teinte incandescente.
 
@@ -38,7 +38,7 @@ Quant aux attaques de l'ombre, Wang Lin les ignora totalement. Bien que certains
 
 Il se déplaçait avec la rapidité de l'éclair, fonçant vers le géant démon ancien formé par le nuage pourpre dans le ciel.
 
-Le démon ancien eut un reflet de moquerie et laissa échapper un reniflement glacial. « L'armure de diable d'un diable égaré sous un diable ancien... Cependant, tu n'as pas de cœur de diable, c'est donc un pur gaspillage pour toi! » Il ouvrit la bouche et poussa un rugissement qui transportait une dense énergie spirituelle démoniaque directement vers Wang Lin.
+Le démon ancien eut un reflet de moquerie et laissa échapper un reniflement glacial. « L'armure d'un démon dispersé sous les ordres de l'Ancien Diable... Cependant, tu n'as pas de cœur de diable, c'est donc un pur gaspillage pour toi! » Il ouvrit la bouche et poussa un rugissement qui transportait une dense énergie spirituelle démoniaque directement vers Wang Lin.
 
 Une lueur froide traversa les yeux de Wang Lin alors qu'il pointait le démon ancien du doigt et déclarait: « Transformation Démoniaque! »
 
@@ -94,9 +94,9 @@ Au moment où le sceau apparut dans la main gauche de Wang Lin, le sang dans ses
 
 Une fois apparu, le brouillard sanguin se condensa rapidement pour former une silhouette humaine de sang. Simultanément, un Sens Divin extrêmement tyrannique descendit sur cette forme, la faisant ouvrir les yeux!
 
-À cet instant, chaque être vivant du Pays des Démons de Feu ressentit soudainement une anxiété croissante dans son cœur. Très peu de gens connaissaient la vérité, mais la majorité éprouvait un sentiment d'impuissance et de terreur face à cette angoisse qui les envahissait.
+À cet instant, chaque être vivant du Pays des Démons de Feu ressentit soudainement une anxiété soudaine dans son cœur. Très peu de gens connaissaient la vérité, mais la majorité éprouvait un sentiment d'impuissance et de terreur face à cette angoisse qui les envahissait.
 
-Au même moment, les expressions des âmes résiduelles des démons anciens des sept autres pays changèrent toutes. Leurs yeux s'illuminèrent et ils tournèrent tous leur regard vers la capitale du Pays des Démons de Feu.
+Au même moment, les expressions des âmes résiduelles des démons anciens des sept autres pays changèrent toutes. Ils tournèrent tous leur regard vers la capitale du Pays des Démons de Feu.
 
 Le ton du démon ancien du Pays des Démons de Feu fut bas lorsqu'il dit lentement: « Votre chance est immense d'avoir trouvé un cultivateur portant l'aura d'un Dieu Ancien. Son sang et le lien de Sens Divin entre vous deux permettent à cette forme de sang de subsister pour une longue période. Cela vous permettra de vous condenser par le sang en n'importe quel lieu et de quitter le Pays du Démon Céleste où vous êtes confiné! »
 

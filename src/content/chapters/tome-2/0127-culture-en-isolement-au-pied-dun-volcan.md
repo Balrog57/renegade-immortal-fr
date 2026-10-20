@@ -18,7 +18,7 @@ Huo Fen tirait son nom de la multitude de ces volcans, petits et grands. S'ils n
 
 Après avoir observé les environs, Wang Lin s'éloigna et arriva aux abords d'un village. C'était la pleine saison des travaux des champs et les enfants du village jouaient. Wang Lin, resté à l'extérieur, ressentit un déchirement dans son cœur. Après être resté longtemps figé, il entra dans le village.
 
-Il trouva quelques seaux dans une maison déserte. Une fois remplis d'eau, il s'envola rapidement.
+Il trouva quelques seaux dans une maison déserte. Une fois remplis d'eau claire, il s'envola rapidement.
 
 De retour vers les volcans, il découvrit une grotte naturelle. Il la scella immédiatement et utilisa des roches pour ériger des formations défensives. Ce n'est qu'après cela qu'il s'assit en tailleur et commença à cultiver.
 

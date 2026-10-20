@@ -10,7 +10,7 @@ Les chants du ciel, de la terre, du vent, du tonnerre, des nuages, de la pluie, 
 
 Les trois signes — le ciel doré et la terre noire, les yeux argentés, et le cri du nouveau-né, qui ressemblait à une mélodie sans en être une!
 
-Les neuf chants et les trois signes faisaient l'objet de nombreuses légendes sur le Continent Astral Immortel. Cependant, la racine de presque toutes ces légendes était que, lorsque les neuf chants et les trois signes apparaissaient, l'Ancêtre Céleste ou l'Ancêtre Ancien recevait un héritier.
+Les neuf chants et les trois signes faisaient l'objet, depuis des dizaines de milliers d'années, de nombreuses légendes sur le Continent Astral Immortel. Cependant, la racine de presque toutes ces légendes était que, lorsque les neuf chants et les trois signes apparaissaient, l'Ancêtre Céleste ou l'Ancêtre Ancien recevait un héritier.
 
 À cet instant, dans la cité ancestrale céleste et dans les trois cités impériales du clan Ancien, des fissures apparurent sur la statue de l'Ancêtre Céleste et sur celles de l'Ancêtre Ancien. Au centre du vaste bassin, le Grand Empyréen Gu Dao fut le témoin personnel de l'accomplissement de la légende.
 
@@ -24,9 +24,9 @@ Cette silhouette était celle de Wang Lin!
 
 Une troisième existence aux côtés des forces célestes et antiques!
 
-Wang Lin avait les yeux clos. Alors que son avatar dans le vide fusionnait avec lui, la fusion des pouvoirs célestes et antiques, qui n'avait complété qu'un seul cycle en cent ans, s'accéléra soudainement. À cet instant, elle acheva un cycle et créa une puissance qui ne pourrait naître que de l'union des forces célestes et antiques.
+Wang Lin avait les yeux clos. Alors que son avatar dans le vide fusionnait avec lui, la fusion des pouvoirs célestes et antiques, qui n'avait complété qu'un seul cycle en cent ans, s'accéléra soudainement. À cet instant, elle acheva un cycle, puis ne cessa de s'intensifier, faisant naître de plus en plus de cette puissance qui ne pouvait venir que de l'union des forces célestes et antiques.
 
-Wang Lin comprit vaguement qu'une fois ses essences éthérées accomplies, ses pouvoirs célestes et antiques fusionneraient totalement. Dès lors, il n'y aurait plus de pouvoir céleste ou antique dans son corps, seulement sa propre force.
+Wang Lin comprit vaguement qu'une fois ses essences éthérées accomplies et son véritable corps apparu, ses pouvoirs célestes et antiques fusionneraient totalement. Dès lors, il n'y aurait plus de pouvoir céleste ou antique dans son corps, seulement sa propre force.
 
 À ce moment-là, il posséderait assez de puissance pour lancer le filet du karma dans la réincarnation et repêcher son véritable moi.
 
@@ -126,7 +126,7 @@ Ils virent progressivement deux silhouettes apparaître au sein de la lumière q
 
 Les sept furent stupéfaits, mais ce qu'ils virent ensuite les laissa tous médusés, frappés d'une incrédulité totale.
 
-Ils virent le sort de Gu Dao et le Pas pour Piétiner les Cieux de Wang Lin. Enfin, ils virent Wang Lin pointer l'avant, provoquant l'effondrement du pied géant, puis Gu Dao s'éloigner calmement...
+Ils virent le sort de Gu Dao et le Pas pour Piétiner les Cieux de Wang Lin. Enfin, ils virent Wang Lin pointer du doigt, provoquant l'effondrement du pied géant, puis Gu Dao s'éloigner calmement...
 
 L'apparence de Gu Dao et ses échanges avec Wang Lin n'étaient pas perceptibles pour les sept spectateurs. Cependant, ce qu'ils avaient vu suffit à leur couper le souffle...
 
@@ -136,4 +136,4 @@ L'être le plus puissant du Continent Astral Immortel n'était plus Gu Dao, mais
 
 Le cœur de Dao Yi trembla. Il était un Grand Empyréen, et pourtant, il ressentait la peur. La force de Wang Lin lui inspirait l'incrédulité, mais par-dessus tout, elle lui inspirait la terreur.
 
-« Était-ce lui... » Dans l'esprit de Ji Du, le souvenir de ce regard qui semblait être descendu du ciel il y a cent ans, lorsque les soixante-douze âmes imploraient toutes vers les cieux, refit surface.
+« Était-ce lui... » Dans l'esprit de Ji Du, le souvenir de ce regard qui semblait être descendu du ciel il y a cent ans, lorsque les esprits venus d'au-delà du ciel des 72 continents imploraient tous vers les cieux, refit surface.

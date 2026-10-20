@@ -16,7 +16,7 @@ Le démon se détendit secrètement tout en fixant Wang Lin, mais il se plaignit
 
 Alors qu'il réfléchissait à la manière dont il se débarrasserait de Wang Lin une fois revenu au stade de l'Âme Naissante, son corps fut saisi par ce dernier et projeté en arrière dans le tendon du dragon. Le démon poussa quelques soupirs de frustration. L'envie de tout donner contre Wang Lin ressurgit, mais elle s'éteignit aussitôt lorsqu'il réalisa qu'il n'obtiendrait aucun résultat satisfaisant, même en brisant son noyau doré.
 
-Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Songeant à la puissance de la méthode de culture à l'épée de Jie Donglei, il sortit des pierres spirituelles. Il allait les utiliser pour déployer sur lui plus d'une centaine de formations défensives de la carapace de tortue.
+Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Repensant à la puissance du cultivateur à l'épée Jie Donglei, il sortit aussitôt des pierres spirituelles. Il allait les utiliser pour déployer sur lui plus d'une centaine de formations défensives de la carapace de tortue.
 
 Une fois cela terminé, il prit une profonde inspiration et frappa le flanc de la paroi. Les crocs du dragon émirent un grondement et s'ouvrirent lentement. Il se leva et sortit.
 
@@ -40,13 +40,13 @@ Li Muwan laissa échapper un rire, mais ce dernier contenait une trace d'impuiss
 
 Wang Lin la regarda une dernière fois avant de remonter vers la tête du dragon pour s'asseoir en position de lotus.
 
-Li Muwan sortit un morceau de jade de son sac de rangement et le plaça sur son front. Après avoir gravé le motif des écailles qu'elle avait mémorisées, elle se tourna vers Shang Guanmo et dit calmement: « Préparez-moi une chambre. »
+Li Muwan sortit un morceau de jade de son sac de rangement et le plaça sur son front. Après avoir gravé le motif des écailles qu'elle avait mémorisées, elle se tourna vers Shang Guanmo et dit calmement: « Préparez-moi une chambre secrète. »
 
 Shang Guanmo accepta promptement. Il sentait qu'il s'était trompé en l'observant auparavant; la relation entre ce démon et cette jeune fille n'était pas celle qu'il avait imaginée.
 
-Dans sa chambre, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau du pays de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans, pendant lequel il lui avait rapporté un fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
+Dans sa chambre secrète, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau du pays de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans, pendant lequel il lui avait rapporté un fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
 
-Alors que Wang Lin atteignait le stade de la Formation du Noyau, une jeune fille aussi faible qu'elle se trouvait seule face à dix cultivateurs démoniaques de la Formation du Noyau. Au moment même où elle allait se briser elle-même les méridiens du cœur, Wang Lin était soudain apparu et ses adversaires avaient pris la fuite pour sauver leur vie. Elle n'avait pu supporter ce revirement brutal. Elle avait failli tomber, mais il l'avait finalement serrée dans ses bras.
+Alors que Wang Lin atteignait le stade de la Formation du Noyau, elle, jeune fille fragile, se trouvait seule face à dix cultivateurs démoniaques de la Formation du Noyau. Au moment même où elle allait se briser elle-même les méridiens du cœur, Wang Lin était soudain apparu et ses adversaires avaient pris la fuite pour sauver leur vie. Elle n'avait pu supporter ce revirement brutal. Elle avait failli tomber, mais il l'avait finalement serrée dans ses bras.
 
 « Ne bouge pas. Je vais t'emmener tuer des gens. » Cette phrase résonnait sans cesse dans les oreilles de Li Muwan. Y penser faisait naître en elle un tumulte d'émotions complexes qui faisaient rougir ses joues. Tout au long du voyage, elle y avait pensé maintes fois, incapable d'empêcher un sourire amer. Pourtant, alors que Wang Lin s'était frayé un chemin sanglant jusqu'ici, cette phrase pesait lourdement dans son cœur.
 
@@ -92,7 +92,7 @@ Un cultivateur au visage rond eut un air nostalgique et soupira: « Héhé, et a
 
 Le vieil homme fronça légèrement les sourcils et murmura pour lui-même.
 
-Un jeune homme au visage froid prit une gorgée et ricana: « Taisez-vous donc. J'ai entendu dire que cet individu pratique un sort de la mort très sinistre et qu'il déteste qu'on parle de lui. Faites attention, si ses oreilles en entendent parler, vous mourrez sans même avoir de sépulture. »
+Un jeune homme au visage froid prit une gorgée et ricana: « Taisez-vous donc. J'ai entendu dire que cet individu est assoiffé de sang, qu'il pratique un sort de la mort très sinistre et qu'il déteste qu'on parle de lui. Faites attention, si ses oreilles en entendent parler, vous mourrez sans même avoir de sépulture. »
 
 Dès que le vieil homme entendit les mots « sort de la mort », ses yeux s'illuminèrent instantanément.
 

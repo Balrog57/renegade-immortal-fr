@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1396 - Waves Surges
 slug: vagues-de-deferlement
 ---
-La planète des Scorpions Noirs était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète en étaient affectées.
+La planète des Scorpions Noirs était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète commençaient à s'agiter.
 
 Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Délaissés, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et se contracta rapidement, affluant en masse vers l'intérieur de la planète!
 
@@ -28,7 +28,7 @@ Le corps du petit être devint un peu plus solide, mais il semblait insatisfait.
 
 Alors qu'il s'élançait, Wang Lin ouvrit soudain les yeux, révélant un regard glacial. Son regard fut comme un éclair de tonnerre qui vint percuter celui du petit être.
 
-« Dégage! » Dans un reniflement froid, la petite silhouette poussa un cri misérable; pourtant, Wang Lin n'avait utilisé aucun sortilège. L'être fut projeté en arrière et s'écrasa au sol.
+« Dégage! » Dans un reniflement froid de Wang Lin, la petite silhouette poussa un cri misérable; pourtant, celui-ci n'avait utilisé aucun sortilège. L'être fut projeté en arrière et s'écrasa au sol.
 
 « Je t'ai créé, je peux donc te détruire aussi facilement! » Wang Lin se redressa et tendit la main vers la créature.
 

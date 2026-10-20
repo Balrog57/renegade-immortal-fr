@@ -20,7 +20,7 @@ Après avoir englouti l'amas de boue, la baleine disparut, mais la boue demeura.
 
 Des tonnerres retentirent. Bientôt, la boue s'effondra sous l'effet d'une force puissante qui en jaillit. Un coup de poing gigantesque brisa la structure et pulvérisa plusieurs serpents noirs. La boue ainsi dispersée révéla Wang Lin, dont l'état était lamentable.
 
-Depuis sa jeunesse, Wang Lin avait traversé maints massacres. C'était la première fois qu'il se trouvait incapable de riposter, subissant de plein fouet une telle tempête d'attaques. Tout cela était dû à la vitesse terrifiante à laquelle l'ennemi lançait ses sorts.
+Au cours de sa vie, Wang Lin avait traversé maints massacres. C'était la première fois qu'il se trouvait incapable de riposter, subissant de plein fouet une telle tempête d'attaques. Tout cela était dû à la vitesse terrifiante à laquelle l'ennemi lançait ses sorts.
 
 À l'instant même où Wang Lin sortit des débris de boue, un hurlement retentit et une nuée d'épées volantes jaunes chargea vers lui. Derrière ces épées se trouvaient dix-huit géants de boue. Derrière ces derniers, une peinture animée ondula comme un ruban avant de se refermer rapidement sur lui. Derrière la peinture, un os antique dégageant une aura millénaire semblait être projeté vers Wang Lin.
 
@@ -34,7 +34,7 @@ Il était trop tard pour réfléchir lorsque la nuée d'épées jaunes fondit su
 
 Des bruits de craquements frénétiques et des sons de chocs métalliques résonnèrent contre son corps. Les épées frappèrent Wang Lin, le projetant en arrière. Ses vêtements étaient en lambeaux; c'était l'état le plus pitoyable qu'il ait jamais connu! Sans son Corps du Dao Antique, ces épées volantes auraient pu le blesser sérieusement.
 
-Sans lui laisser le temps de reprendre son souffle, les dix-huit géants de boue se rapprochèrent. Lorsqu'ils furent à moins de cent pieds de lui, ils n'attaquèrent pas: ils explosèrent tous simultanément.
+Sans lui laisser le temps de reprendre son souffle, les dix-huit géants de boue se rapprochèrent. Lorsqu'ils furent à moins de quelques centaines de pieds de lui, ils n'attaquèrent pas: ils explosèrent tous simultanément.
 
 *Boum! Boum! Boum! Boum!*
 

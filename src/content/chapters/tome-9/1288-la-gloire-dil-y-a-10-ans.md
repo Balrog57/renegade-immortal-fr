@@ -8,7 +8,7 @@ slug: la-gloire-dil-y-a-10-ans
 ---
 Un réseau de transfert se trouvait sur un continent de la région de rang 6. Plus de dix cultivateurs étaient assis autour, parmi lesquels un homme et une femme qui conversaient. La femme esquissait parfois un sourire, lançant à l'homme un regard séducteur.
 
-« Je ne te crois absolument pas. Si Lu Zihao était aussi puissant que tu le prétends, au point de pouvoir tuer le Maître de notre secte, l'Ancien et le disciple aîné, la Secte Éternelle l'aurait certainement protégé. Comment aurait-il pu mourir? »
+« Je ne te crois absolument pas. Si Lu Zihao était aussi puissant que tu le prétends, au point de pouvoir tuer l'ancien Maître de notre secte, l'Ancien et le disciple aîné, la Secte Éternelle l'aurait certainement protégé. Comment aurait-il pu mourir? »
 
 « Jeune sœur, tout ce que je dis est vrai. On racontait que Lu Zihao avait offensé la Secte Divine et qu'ils le traquaient. Il est mort dans la région de rang 5! » l'homme éclata de rire.
 

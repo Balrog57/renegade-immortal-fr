@@ -30,7 +30,7 @@ Wang Lin dit calmement: « Commençons. »
 
 Sans un mot, Sun Lei forma un sceau et poussa un cri. L'épée dans son dos s'envola instantanément pour foncer dans la grotte.
 
-Un bruit sourd retentit, puis l'épée jaillit brusquement vers l'extérieur, suivie de près par une masse compacte de nourriture pour bêtes célestes. D'innombrables créatures bondirent de cette masse en direction de Sun Lei et Wang Lin.
+Un bruit sourd retentit, puis l'épée jaillit brusquement vers l'extérieur, suivie de près par une énorme pelote de fils. D'innombrables créatures bondirent de cette masse en direction de Sun Lei et Wang Lin.
 
 Cette scène aurait fait frissonner le cuir chevelu du plus brave des guerriers. S'ils se faisaient capturer, leur sort serait identique à celui du squelette.
 
@@ -52,7 +52,7 @@ Wang Lin recula et pointa le crapaud de tonnerre. L'abdomen de la bête se gonfl
 
 L'éclair rugit vers les créatures. Pour la première fois, l'innombrable nuée sembla ressentir la peur. Au lieu de foncer, elles tentèrent de reculer devant la déflagration.
 
-Mais à cet instant précis, un rugissement strident retentit et une ligne noire apparut au milieu de la masse. La ligne noire fendit toutes les autres nourritures et chargea la boule d'éclairs sans l'ombre d'une crainte.
+Mais à cet instant précis, un rugissement strident retentit et une ligne noire apparut au milieu de la masse. La ligne noire, plus épaisse que les autres, se faufila hors de la masse et chargea la boule d'éclairs sans l'ombre d'une crainte.
 
 Après avoir expulsé deux boules de foudre, le crapaud de tonnerre était épuisé et semblait affaibli. Voyant la nourriture noire pour bêtes célestes, Wang Lin n'hésita pas: il récupéra promptement son piège et s'enfuit. En courant, il pointa son front, libérant une multitude d'âmes errantes.
 
@@ -62,7 +62,7 @@ Ainsi, suivant l'exemple de Wang Lin, il recula également et s'échappa rapidem
 
 Concernant la boule d'éclairs, la nourriture noire pour bêtes célestes y perça violemment, provoquant son rétrécissement. Après une série de craquements et de détonations, l'éclair disparut totalement.
 
-La nourriture noire poussa un cri strident. On pouvait voir que son corps n'était plus noir mais devenu violet, parcouru d'éclairs qui palpitaient à sa surface.
+La nourriture noire poussa un cri strident. On pouvait voir que son corps n'était plus noir mais légèrement violacé, parcouru d'éclairs qui palpitaient à sa surface.
 
 Elle condensa son corps et jaillit avec une célérité telle que même le Sens Divin ne pouvait la verrouiller la plupart du temps. Sa cible n'était pas Wang Lin, mais Sun Lei.
 
@@ -76,11 +76,11 @@ Peu de temps après, Wang Lin atteignit la grotte convenue pour le rendez-vous e
 
 Sun Lei était dans un état lamentable. Ses vêtements étaient en lambeaux, révélant une armure argentée en dessous. C'était manifestement cette armure qui lui avait permis d'échapper deux fois à la bête noire. Sa main droite, couverte de sang, lui manquait un doigt.
 
-Il était assis là, cultivant avec une expression lugubre. Lorsque le Sens Divin de Wang Lin balaya la zone, l'expression de ce dernier changea instantanément, trahissant une pointe d'effroi.
+Il était assis là, cultivant avec une expression lugubre. Lorsque le Sens Divin de Wang Lin balaya la zone, l'expression de Sun Lei changea instantanément, trahissant une pointe d'inquiétude.
 
 Les yeux de Wang Lin brillèrent. Il s'engouffra dans la paroi et activa la technique d'évasion terrestre pour rejoindre Sun Lei.
 
-Sun Lei le remarqua également et sortit précipitamment plusieurs pilules. Le visage crispé par la douleur, il les avala et se remit aussitôt à cultiver.
+Sun Lei le remarqua également et sortit précipitamment plusieurs pilules. Le cœur serré, il les avala et se remit aussitôt à cultiver.
 
 Une distance de 3,3 kilomètres n'était pas insurmontable pour un cultivateur de la Formation de l'Âme, mais il fallait traverser de nombreuses grottes et une puissance mystérieuse empêchait toute téléportation. Une demi-heure plus tard, Wang Lin apparut dans la grotte où se trouvait Sun Lei.
 
@@ -90,15 +90,15 @@ Wang Lin dit calmement: « Frère Sun, continuez votre culture, je vais vous pro
 
 Wang Lin soupira intérieurement. Il ignorait quelle pilule Sun Lei avait ingérée, mais elle lui avait permis de retrouver 80 % de ses forces malgré son état d'épuisement. Ce geste poussa Wang Lin à abandonner son plan initial.
 
-Sun Lei fut surpris par ces paroles. Bien sûr, il ne les crut pas, mais il répondit néanmoins: « Dans ce cas, je vais devoir compter sur l'aide de ce compagnon cultivateur. »
+Sun Lei fut surpris par ces paroles. Bien sûr, il ne les crut pas, mais il répondit néanmoins: « Merci, compagnon cultivateur. »
 
 Wang Lin ne répondit rien et s'assit en tailleur.
 
 Sun Lei resta sur ses gardes tout en absorbant rapidement les effets de la pilule. Trois heures plus tard, il était totalement rétabli et son regard envers Wang Lin n'était plus aussi hostile.
 
-Sun Lei se leva et dit: « Compagnon cultivateur, ma culture est restaurée. Et si nous rentrions? »
+Sun Lei se leva et dit: « Compagnon cultivateur, ma culture est restaurée. Et si nous repartions explorer? »
 
-Wang Lin acquiesça, se leva et s'élança vers l'une des sorties, avec Sun Lei en couverture immédiate.
+Wang Lin acquiesça, se leva et s'élança vers une grotte voisine, Sun Lei sur ses talons.
 
 Les deux restèrent silencieux durant tout le trajet jusqu'à ce qu'ils approchent de la grotte. Dès leur arrivée, une multitude de nourritures pour bêtes surgirent de l'antre.
 
@@ -112,7 +112,7 @@ Sun Lei prit une profonde inspiration et forma divers sceaux avant de les porter
 
 Tenant l'éventail, son âme originelle le balaya vers la nuée de bêtes. Une vague de vent noir s'élança alors sur les créatures célestes.
 
-Subitement, chaque bête cessa de bouger tandis que des plaques de glace noire se propageaient. En un instant, la zone fut transformée en un monde de givre noir.
+Subitement, chaque bête cessa de bouger tandis que des plaques de glace noire se propageaient. En un instant, toute la zone, Wang Lin compris, fut transformée en un monde de givre noir.
 
 Sans dire un mot, l'âme originelle de Sun Lei retourna dans son corps et chargea vers la grotte. Il sourit: « Compagnon cultivateur, ma technique a ses limites et ne durera que dix respirations. Je vais ouvrir la voie et je reviendrai vous secourir. »
 

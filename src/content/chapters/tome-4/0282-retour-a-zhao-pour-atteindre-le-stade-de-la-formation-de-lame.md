@@ -80,9 +80,9 @@ Tout le monde a un foyer. En avait-il un?
 
 Zhao pouvait être considéré comme son foyer, et il y avait une femme qui l'attendait au pays de Chu, de l'autre côté de la Mer des Démons; cet endroit pouvait aussi être considéré comme son foyer...
 
-Il décida donc de retourner à Zhao pour boucler le cycle de sa naissance.
+Il décida donc de retourner à Zhao pour clore le lien karmique de sa naissance là-bas.
 
-Avant de rentrer chez lui, il se rendit en ville pour prendre des nouvelles de Da Niu. Il vit que ce dernier avait ouvert un nouvel atelier de ferronnerie. Sa femme n'était plus jeune, mais elle était manifestement de nouveau enceinte.
+Avant de rentrer chez lui, il se rendit dans la ville du pays voisin où vivait Da Niu, pour prendre de ses nouvelles. Il vit que ce dernier avait ouvert un nouvel atelier de ferronnerie. Sa femme n'était plus jeune, mais elle était manifestement de nouveau enceinte.
 
 Wang Lin esquissa un sourire en les regardant. Cette nouvelle vie grandissait de jour en jour...
 

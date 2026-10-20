@@ -12,13 +12,13 @@ Wang Lin était à l'intérieur du nuage tandis qu'il traversait le ciel bleu. L
 
 Après quelques respirations, le nuage aux sept couleurs dépassa les différentes divisions de la Secte du Destin Céleste et arriva devant la secte principale.
 
-Ce qui apparut devant Wang Lin était un monde encore plus majestueux que le Royaume Céleste. Trois montagnes imposantes s'élevaient au-dessus des nuages.
+Ce qui apparut devant Wang Lin était un monde encore plus éblouissant que le Royaume Céleste. Trois montagnes imposantes, semblables à des doigts dressés vers le ciel, s'élevaient au-dessus des nuages.
 
 La montagne centrale était d'un blanc immaculé. Lorsque la lumière du soleil frappait ses flancs, elle créait un éclat aveuglant qui donnait le vertige à quiconque la regardait.
 
-Une végétation verdoyante était parsemée sur toute la montagne, ce qui la rendait encore plus magnifique!
+Quelques taches de verdure étaient parsemées sur la montagne, ce qui la rendait encore plus magnifique!
 
-Aucun sentier ne marquait la montagne; elle n'était que pure blancheur. Cette neige était la Neige des Neuf Fantômes, qui ne fondrait pas avant cent mille ans. Il serait impossible pour un mortel de s'en approcher, car s'il pénétrait dans un rayon de 3,3 kilomètres, son corps gèlerait instantanément.
+Aucun sentier ne marquait la montagne; elle n'était que pure blancheur. Cette neige était la Neige des Neuf Fantômes, qui ne fondrait pas avant cent mille ans. Il serait impossible pour un mortel de s'en approcher, car s'il pénétrait dans un rayon de 3,3 kilomètres, son corps gèlerait instantanément et deviendrait un cadavre de glace.
 
 Tandis que Wang Lin se trouvait dans le nuage aux sept couleurs, il pouvait clairement ressentir l'aura glaciale qui circulait à l'extérieur.
 
@@ -32,7 +32,7 @@ Alors que Wang Lin contemplait la secte principale du Destin Céleste, son regar
 
 L'Omniscient agita ses manches et le nuage aux sept couleurs qui les entourait disparut soudainement. À sa disparition, une aura glaciale s'engouffra et tenta d'envahir le corps de Wang Lin.
 
-L'expression de Wang Lin resta impassible; l'énergie spirituelle céleste à l'intérieur de son corps s'anima, créant un écran de lumière autour de lui. L'aura froide tourna autour de cet écran un instant avant de se dissiper.
+L'expression de Wang Lin resta impassible; l'énergie spirituelle céleste à l'intérieur de son corps s'anima, créant un écran de lumière autour de lui. L'aura froide atteignit cet écran et disparut aussitôt sans laisser de trace.
 
 Les mains derrière le dos, l'Omniscient observa les trois montagnes et demanda: « Wang Lin, que penses-tu de cet endroit? »
 
@@ -56,17 +56,17 @@ Wang Lin esquissa un sourire et secoua la tête: « Maître, ces deux montagnes 
 
 À ces mots, une lueur de choc apparut dans les yeux de l'Omniscient. Il dévisagea Wang Lin avant de laisser échapper un rire. D'un revers de manches, il emmena Wang Lin vers la montagne centrale à une vitesse fulgurante.
 
-« Cet enfant a un esprit plus vif que les autres. Être capable de trouver des indices sur mon sort au stade intermédiaire de la Transformation de l'Âme est extrêmement rare! »
+« Cet enfant a un esprit plus vif que les autres. Être capable de trouver des indices sur mon art de l'illusion au stade intermédiaire de la Transformation de l'Âme est extrêmement rare! »
 
 L'expression de Wang Lin était parfaitement normale, mais son cœur tremblait. En voyant les trois montagnes, un souvenir très ancien de l'ancien dieu Tu Si surgit dans son esprit.
 
 C'était la neuvième fois que Tu Si raffinait un trésor, et ce fut la dernière. Ce trésor était un trident!
 
-Tu Si avait cherché des matériaux à l'infini avant d'achever son raffinage.
+Tu Si avait cherché des matériaux pendant d'innombrables années avant d'achever son raffinage.
 
 Il était très satisfait du trésor, mais celui-ci n'avait qu'une forme physique; il n'avait pas d'âme. Par conséquent, Tu Si y laissa tomber quelques gouttes de son sang d'ancien dieu et le projeta vers une immense planète; le trident se transforma alors en trois montagnes perçant les cieux. De cette manière, le trident deviendrait une montagne et formerait lentement une âme de montagne. Après cela, il s'en alla.
 
-Selon le plan de Tu Si, une fois son entraînement terminé, il reviendrait chercher le trésor. À ce moment-là, la montagne serait formée et il posséderait un trésor de qualité suprême.
+Selon le plan de Tu Si, une fois son entraînement terminé, il reviendrait chercher le trésor. À ce moment-là, le trésor aurait aussi son âme et il posséderait un trésor de qualité suprême.
 
 Les trois montagnes créées par le trident étaient presque identiques aux trois montagnes que Wang Lin contemplait à présent.
 
@@ -78,7 +78,7 @@ Mais il écarta immédiatement l'idée que cette planète soit l'endroit où l'a
 
 Wang Lin leva les yeux vers le sommet blanc de la montagne. Une neige infinie y tombait; si l'on regardait trop longtemps, on aurait l'illusion que d'innombrables épées blanches et tranchantes descendaient du ciel.
 
-Après avoir détourné le regard, Wang Lin ne monta pas immédiatement la montagne mais s'assit pour cultiver. Après le temps qu'il faut pour brûler un bâton d'encens, il ouvrit les yeux. Son regard était d'un calme absolu.
+Après avoir détourné le regard, Wang Lin ne monta pas immédiatement la montagne mais s'assit pour cultiver. Après le temps qu'il faut pour brûler un bâton d'encens, il ouvrit les yeux. Une lueur de sérénité traversa son regard.
 
 Il se leva ensuite et commença à gravir le sommet, pas après pas.
 
@@ -106,9 +106,9 @@ Wang Lin leva la tête. À cent pas de là, au sommet de la montagne, se dressai
 
 « La Terre Brisée des Célestes! » Le regard de Wang Lin devint froid. Après avoir réfléchi un instant, il descendit au sol. Pour la première fois depuis son arrivée, ses deux pieds touchèrent la montagne.
 
-À l'instant où ses pieds rencontrèrent la roche, il sentit une absence totale de friction. Les yeux de Wang Lin se durcirent; il laissa échapper un reniflement de mépris et avança son pied droit d'un pas normal.
+À l'instant où ses pieds rencontrèrent la roche, il sentit une absence totale de friction. Les yeux de Wang Lin se durcirent; il laissa échapper un reniflement de mépris et avança son pied droit d'un pas en apparence léger.
 
-Mais dans un fracas sourd, le pied droit de Wang Lin s'enfonça de trente-trois centimètres dans le sol, créant une assise solide.
+Mais dans un grand fracas, le pied droit de Wang Lin s'enfonça de trente-trois centimètres dans le sol, créant une assise solide.
 
 À cet instant précis, une aura glaciale inimaginable jaillit du sol. Cette froideur était plusieurs fois plus intense que tout ce qu'il avait connu jusqu'alors. L'aura pénétra son corps par son pied et se précipita vers sa poitrine à travers ses veines.
 
@@ -118,4 +118,4 @@ Mais alors que l'aura glaciale traversait le corps de Wang Lin, un sens divin é
 
 La froideur sur son visage devint la chose la plus glaciale de toute la montagne. Le vent froid disparut à un mètre de lui, et la neige s'effaça à dix centimètres au-dessus de sa tête.
 
-Wang Lin ancra ses pas dans la montagne, un à un, en marchant droit vers le sommet.
+Wang Lin ancra ses pas dans la glace, un à un, dans un bruit de chocs sourds, en marchant droit vers le sommet.

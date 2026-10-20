@@ -112,7 +112,7 @@ L'énergie métallique à quatre cycles tourna de nouveau!
 
 Wang Lin esquissa un léger sourire en regardant Zhao Xinmeng: « Se pourrait-il que tu veuilles voir mon énergie spirituelle céleste métallique à six cycles? »
 
-Le visage de Zhao Xinmeng s'assombrit. Elle le fixa et dit lentement: « Même si tu atteins la puissance de six cycles, tu ne seras toujours pas mon égal! »
+Le visage de Zhao Xinmeng s'assombrit. Elle le fixa et dit lentement: « Même si tu atteins la puissance de six cycles, tu ne seras toujours pas mon adversaire! »
 
 Wang Lin rit, puis frappa son sac de rangement. La hache du Clan du Démon Géant jaillit dans un rayon de lumière noire pour flotter dans les airs. Simultanément, le cercle de bronze fixé à son poignet s'élança et se métamorphosa en char de guerre.
 

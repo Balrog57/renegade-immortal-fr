@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 507 - Earth Northern Demonic Lands
 slug: terres-demoniaques-du-nord-de-la-terre
 ---
-Wang Lin flottait à 3,3 kilomètres au-dessus de la tour. Les yeux brillants comme des torches, il leva sa main droite et toute la brume noire commença à converger vers lui. On aurait dit que la brume était repoussée depuis sa périphérie pour s'engouffrer vers Wang Lin.
+Wang Lin, vêtu de violet, flottait à 3,3 kilomètres au-dessus de la tour. Les yeux brillants comme des torches, il leva sa main droite et toute la brume noire commença à converger vers lui. On aurait dit que la brume était repoussée depuis sa périphérie pour s'engouffrer vers Wang Lin.
 
 Le ciel et les nuages changèrent de couleur!
 
@@ -56,7 +56,7 @@ Wang Lin rangea le jade, fixa la direction qu'il voulait prendre, agita sa main 
 
 Dix pas était la limite qu'il pouvait supporter pour une téléportation instantanée.
 
-Après ces dix pas, les yeux de Wang Lin s'illuminèrent et son corps vacilla. À cet instant, sa silhouette commença à clignoter violemment.
+Après ces dix pas, les yeux de Wang Lin s'illuminèrent et son corps vacilla. À cet instant, sa silhouette commença à clignoter violemment, comme si elle se dédoublait en dix.
 
 Finalement, un rugissement tonitruant retentit et, une fois le son dissipé, il n'y avait plus personne.
 
@@ -100,7 +100,7 @@ La marche de Wang Lin ne ralentit pas d'un iota face à cette apparition. Il con
 
 Peu après sa disparition, les rayons d'énergie d'épée se posèrent devant la stèle, révélant cinq personnes.
 
-Parmi les cinq, trois étaient des hommes et deux des femmes. Leurs vêtements étaient nettement divisés en deux styles distincts; tous étaient élégamment vêtus, de belle apparence et dégageaient des auras puissantes.
+Parmi les cinq, trois étaient des hommes et deux des femmes. Leurs tenues se répartissaient nettement en deux camps; tous étaient élégamment vêtus, de belle apparence et dégageaient des auras puissantes.
 
 Parmi les deux femmes, l'une portait une robe rouge et avait un grain de beauté au-dessus de la bouche. Elle dit doucement: « Frère aîné, je crois que je viens de voir quelqu'un entrer dans cette zone! »
 
@@ -110,11 +110,11 @@ Parmi les trois hommes, l'un était d'une grande beauté et d'âge moyen. Il por
 
 Après avoir entendu la jeune fille, il sourit légèrement et dit: « Ce n'est pas un lieu interdit, et de nombreuses personnes de diverses sectes viennent s'y entraîner; voir d'autres individus ici n'a donc rien d'anormal. Une fois que l'Oncle-Maître et les autres seront arrivés, nous entrerons ensemble. À ce moment-là, tous les cultivateurs que nous croiserons nous éviteront, ne t'en fais pas. »
 
-Un autre des trois hommes, qui semblait avoir une vingtaine d'années et portait une robe bleue, sourit et ajouta: « C'est vrai. Le frère Guo appartient à la Secte de l'Épée Da Luo, l'une des deux plus grandes sectes de la planète Tian Yun. Même s'il rencontre des disciples de la Secte du Destin Céleste, s'ils sont trop faibles, ils s'écarteront de lui. Quant aux petites sectes de la planète Terre, n'en parlons même pas. »
+Un autre des trois hommes, qui semblait avoir vingt-sept ou vingt-huit ans et portait une robe bleue, sourit et ajouta: « C'est vrai. Le frère Guo appartient à la Secte de l'Épée Da Luo, l'une des deux plus grandes sectes de la planète Tian Yun. Même s'il rencontre des disciples de la Secte du Destin Céleste, s'ils sont trop faibles, ils s'écarteront de lui. Quant aux petites sectes de la planète Terre, n'en parlons même pas. »
 
 Quant au dernier homme et à la dernière femme, ils restèrent silencieux. La femme laissa même paraître une pointe de haine en regardant les trois autres, particulièrement l'homme nommé Guo, et sa rancœur n'était nullement dissimulée.
 
-En termes d'apparence, cette femme était la plus belle des deux. Elle portait une robe de coton blanc, un ruban de soie bleu clair noué élégamment à sa taille, et une épingle en forme de rose ornait ses cheveux noirs comme l'encre. Sa peau était aussi lisse et parfaite que le jade, sans aucun besoin de maquillage; si ce n'était pour la haine qui marquait son visage, elle aurait été d'une beauté encore plus saisissante.
+En termes d'apparence, cette femme était la plus belle des deux. Elle portait une robe de gaze blanche, un ruban de soie bleu clair noué élégamment à sa taille, et une épingle en forme de rose ornait ses cheveux noirs comme l'encre. Sa peau était aussi lisse et parfaite que le jade, sans aucun besoin de maquillage; si ce n'était pour la haine qui marquait son visage, elle aurait été d'une beauté encore plus saisissante.
 
 L'homme nommé Guo eut un léger sourire. Il ne semblait nullement affecté par l'attitude de la femme et dit doucement: « Dame Qian Qin, détendez-vous. Je vous promets de vous laisser un Fruit d'Or Brillant, suffisamment pour que vous puissiez en rapporter à votre secte! »
 

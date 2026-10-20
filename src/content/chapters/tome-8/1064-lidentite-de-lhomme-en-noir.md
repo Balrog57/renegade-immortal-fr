@@ -86,11 +86,11 @@ En s'approchant, l'Ancien Démon Ta Jia ouvrit la gueule et poussa un rugissemen
 
 RUGISSEMENT!
 
-Les rugissements des membres de l'Ordre Ancestral étaient tous puissants mais, à l'instar des sorts, ils possédaient des propriétés distinctes. Bien que le cri d'un ancien démon ne fût pas aussi fort que celui d'un dieu antique, il produisait un son maléfique qui envahissait l'esprit.
+Les rugissements des membres de l'Ordre Ancien étaient tous puissants mais, à l'instar des sorts, ils possédaient des propriétés distinctes. Bien que le cri d'un ancien démon ne fût pas aussi fort que celui d'un dieu antique, il produisait un son maléfique qui envahissait l'esprit.
 
 Alors qu'il rugissait, une ombre noire gigantesque à corne unique apparut derrière lui. Cette silhouette colossale semblait être la source de tous les démons. Tandis que Ta Jia rugissait, son ombre ouvrit également la bouche pour pousser un cri.
 
-Le corps de Hu Juan trembla et elle cracha immédiatement du sang. Wang Wei fut tout aussi affecté, perdant toute vigueur. Cependant, il serra les dents, saisit Hu Juan et battit en retraite. Ses mains formèrent des sceaux et d'innombrables rideaux d'eau surgirent devant lui avec frénésie.
+Le corps de Hu Juan trembla et elle cracha immédiatement du sang. Wang Wei, lui aussi, cracha du sang et perdit toute vigueur. Cependant, il serra les dents, saisit Hu Juan et battit en retraite. Ses mains formèrent des sceaux et d'innombrables rideaux d'eau surgirent devant lui avec frénésie.
 
 En cette période de crise, Wang Wei se donnait corps et âme. Les rideaux d'eau se succédaient si vite qu'en un clin d'œil, des milliers d'entre eux étaient apparus.
 
@@ -100,7 +100,7 @@ Le visage livide, Hu Juan maniait ses mains avec rapidité pour créer des restr
 
 Si deux tels cultivateurs étaient ainsi impuissants, qu'en était-il du Maître du Vide? Il cracha aussitôt du sang, le regard éteint. Se retirant en hâte, il forma un sceau pour invoquer d'innombrables grains de sable jaune autour de lui. Mais avant même que le sable ne puisse former un bouclier, il s'effondra. Tout le sable fut projeté dans le corps du Maître du Vide, le repoussant violemment et faisant jaillir le sang de ses pores.
 
-Seul Bei Luo parvint à peine à résister; en tant que membre de l'Ordre Ancestral, il se contenta de battre en retraite.
+Seul Bei Luo parvint à peine à résister; en tant que membre de l'Ordre Ancien, il se contenta de battre en retraite.
 
 Quant à Wang Lin, des craquements résonnaient dans son corps sous la pression du rugissement de Ta Jia. Il cracha du sang, mais son expression devint plus féroce encore.
 

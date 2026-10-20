@@ -20,9 +20,9 @@ Une aura extrêmement pure du Dao Démoniaque émanait de ce corps de sang. Sa m
 
 Alors que l'empreinte se brisait, l'homme à la robe rouge cracha du sang, mais celui-ci fut immédiatement réabsorbé par son corps. Il recula de plusieurs pas alors que la seconde empreinte de paume retombait sur lui.
 
-Les cheveux de l'homme à la robe rouge étaient ébouriffés; il semblait avoir perdu la raison. Seul subsistaient son refus de mourir et une soif de folie. Ses jambes commencèrent à se flétrir rapidement et sa chair, tout comme son sang, sembla s'agiter. Toute sa chair et ses essences paraissaient converger vers ses bras.
+Les cheveux de l'homme à la robe rouge étaient ébouriffés; il semblait avoir perdu la raison. Seul subsistaient son refus de mourir et une soif de folie. Ses jambes commencèrent à se flétrir rapidement, n'étant plus que peau sur les os, semblables à celles d'un squelette, et sa chair, tout comme son sang, sembla s'agiter. Toute sa chair et ses essences paraissaient converger vers ses bras.
 
-Ses bras s'étendirent soudainement de plusieurs fois leur taille, offrant un spectacle extrêmement terrifiant!
+Ses bras gonflèrent soudainement, devenant plusieurs fois plus épais, offrant un spectacle extrêmement terrifiant!
 
 Wang Lin avait déjà vu Da Tou utiliser ce genre de sort, mais il n'était pas aussi prodigieux que celui de l'homme à la robe rouge. Non seulement ses jambes se flétrissaient, mais son corps tout entier semblait dépérir. Toute sa chair et son sang se rassemblèrent dans ses bras pour percuter la seconde empreinte de paume dans le ciel!
 
@@ -88,7 +88,7 @@ Après plus de mille tentatives de divination, il mourait dans 50 % des cas! Et 
 
 De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait encore l'armure d'âme du Taureau Céleste! Et Wang Lin ne l'avait même pas encore utilisée!
 
-« Je ne peux pas sortir! J'ai déjà rapporté la situation à l'Ancêtre. J'ignore s'il pourra revenir à temps... » Les cris extérieurs lui brisaient le cœur, mais son expression devint bientôt glaciale.
+« Je ne peux pas sortir! J'ai déjà rapporté la situation à l'Ancêtre par un art secret. J'ignore s'il pourra revenir à temps... » Les cris extérieurs lui brisaient le cœur, mais son expression devint bientôt glaciale.
 
 « Et alors s'ils meurent? Même si toute la Secte du Dao Démoniaque disparaît, tant que je suis en vie, il pourra être reconstruit. Plus il y aura de mort et de destruction, plus l'Ancêtre sera en colère! »
 
@@ -106,7 +106,7 @@ Le sceau en contraction rapide avait tué la plupart des cultivateurs et détrui
 
 La Secte Gui Yi était encerclée par d'innombrables cultivateurs du Continent du Démon Vert. Ils s'étaient lancés dans une boucherie frénétique pour tenter de briser la formation de la Secte Gui Yi. Les deux camps comptaient sept ou huit génies émergents, et les deux armées combattaient sans égard pour leur vie.
 
-Tous les cultivateurs de la Tribulation du Vide, y compris le Maître de la Secte et les autres experts du Continent du Démon Vert, levèrent la tête vers le ciel!
+Tous les cultivateurs de la Tribulation du Vide de la Secte Gui Yi, y compris son Maître, ainsi que les quelques Exaltés du Continent du Démon Vert restés sur place, levèrent la tête vers le ciel!
 
 À cet instant, le firmament fut recouvert d'une lumière dorée monumentale. Sous cette lueur, tous les cultivateurs, à l'intérieur comme à l'extérieur de la Secte Gui Yi, cessèrent le combat et contemplèrent le ciel avec horreur.
 

@@ -8,7 +8,7 @@ slug: extraordinaire
 ---
 Le ciel étoilé était voilé de brume alors que six rayons de lumière fendaient l'air. Maître Pin Cendré semblait très familier avec ce chemin; il ne prit même pas de jade pour vérifier sa direction, se contentant de foncer vers la destination!
 
-Avec sa culture au niveau du Briseur du Nirvana, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de culture pour accélérer.
+Avec sa culture au niveau du Briseur du Nirvana de stade intermédiaire, il était semblable à un éclair lorsqu'il volait à pleine vitesse. Derrière lui, tous les autres mobilisaient également toute leur puissance de culture pour accélérer.
 
 Wang Lin restait à la traîne. Après tout, son véritable niveau de culture n'était pas celui d'un Briseur du Nirvana. Il demeura calme, sortit un talisman de vitesse et le plaça contre lui. Une bourrasque de vent éclata autour de lui et il s'élança.
 
@@ -18,7 +18,7 @@ Ils volèrent à toute allure, et quelques jours plus tard, la brume devint enco
 
 « Peu de gens connaissent ce continent sauvage, et même ceux qui en ont vent ne découvriront jamais le secret que j'y ai caché. » Maître Pin Cendré sourit, le regard empreint de nostalgie en contemplant la terre.
 
-« Cher cultivateur Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Maître Pin Cendré à l'adresse du vieil homme au visage grêlé.
+« Cher cultivateur Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Maître Pin Cendré à l'adresse du vieil homme au visage balafré.
 
 L'homme nommé Pang hocha la tête puis disparut. Son sens divin se propagea à travers le continent sauvage pour poursuivre sa traque. Il élimina chaque cultivateur qu'il croisa, sans égard pour leur niveau de culture ou leur secte.
 
@@ -80,7 +80,7 @@ Une fissure aux sept couleurs apparut au centre du continent sauvage! Elle n'ét
 
 « Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte de la Bête de Bataille, observa Maître Pin Cendré avant de reporter son regard sur la fissure aux sept couleurs.
 
-« Ce continent sauvage n'était pas censé être ici. Je suis passé par là par accident au moment même où la fissure est apparue. Par la suite, pour la dissimuler, j'ai déplacé un continent pour la recouvrir afin que les étrangers ne la trouvent pas! » expliqua Maître Pin Cendré avec une pointe de fierté dans la voix.
+« Ce continent sauvage n'était pas censé être ici. Jadis, je suis passé par là par accident au moment même où la fissure est apparue. Par la suite, pour la dissimuler, j'ai déplacé un continent pour la recouvrir afin que les étrangers ne la trouvent pas! » expliqua Maître Pin Cendré avec une pointe de fierté dans la voix.
 
 La vieille femme en vert regarda la faille et demanda: « Où cette fissure aux sept couleurs mène-t-elle? »
 

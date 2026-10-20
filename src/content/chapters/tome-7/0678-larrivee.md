@@ -8,7 +8,7 @@ slug: larrivee
 ---
 En contemplant Liu Mei, qui descendait du ciel telle une divinité, non seulement Xiaoyao Sanren, mais aussi Sun Xi perdirent toute intention de combattre et commencèrent à lutter contre eux-mêmes.
 
-Seul l'ancêtre de la famille Ran, dont la culture avait atteint le stade intermédiaire de l'Ascendant, parvenait à peine à garder l'esprit clair, mais il ne pourrait tenir longtemps. Dans son esprit, la voix de la femme céleste résonnait comme un chant divin. Ses paroles semblaient s'insinuer dans son âme, éveillant même en lui des émois mortels.
+Seul l'ancêtre de la famille Ran, dont la culture avait atteint le stade intermédiaire de l'Ascendant, parvenait à peine à garder l'esprit clair, mais il ne pourrait tenir longtemps. Dans son esprit, la voix de la femme céleste résonnait comme un chant divin. Ses paroles semblaient s'insinuer dans son âme, éveillant même en lui les émotions de sa vie de mortel.
 
 « Dao Impitoyable des Mille Illusions! » L'expression de l'ancêtre de la famille Ran changea radicalement et une flamme commença à brûler en lui. Cette flamme naissait de la fusion de son âme originelle et de son énergie originelle, faisant progresser sa culture par bonds prodigieux.
 
@@ -99,4 +99,4 @@ Son expression était initialement neutre, mais lorsqu'il aperçut la puissante 
 
 Après une courte réflexion, la boussole stellaire sous ses pieds chargea à travers la restriction et fonça droit vers la planète Ran Yun.
 
-Sur la planète Ran Yun, alors que Liu Mei levait la tête, l'éclat mystérieux dans ses yeux devint plus intense encore.
+Sur la planète Ran Yun, alors que Liu Mei levait la tête, l'éclat mystérieux dans ses yeux devint plus intense encore. Elle fronça les sourcils et murmura: « Cette aura me semble familière... »

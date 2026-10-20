@@ -42,7 +42,7 @@ Sa vitesse était fulgurante et il fut instantanément à moins de cent pieds de
 
 Peu après, l'âme à la cape ouvrit les bras. Le manteau de son corps s'étendit telle une vague et vola vers Wang Lin.
 
-L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main continuaient d'absorber l'aura du Continent Astral Immortel. Alors que Vieux Fantôme Zhan et les deux âmes aux Sept Couleurs approchaient, il leva la main gauche et poussa vers l'avant.
+L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main continuaient d'absorber l'aura du Continent Astral Immortel. Alors que Vieux Fantôme Zhan et les deux âmes aux Sept Couleurs approchaient, il leva la main gauche et frappa vers l'avant.
 
 À cet instant, les huit corps véritables de son Essence apparurent tous et projetèrent leurs mains en avant.
 
@@ -78,7 +78,7 @@ Les yeux de Vieux Fantôme Zhan étaient pétris de terreur. Sans avoir le temps
 
 Ces sceaux étaient comme le destin; quelle que soit la vitesse de Vieux Fantôme Zhan, il ne pouvait échapper à sa destinée.
 
-Les deux sceaux convergèrent instantanément vers lui. Sous le regard terrifié de Vieux Fantôme Zhan, le premier sceau fonça sur son front.
+Les deux sceaux convergèrent instantanément vers lui. Sous le regard terrifié de Vieux Fantôme Zhan, le premier sceau fonça entre ses sourcils.
 
 Vieux Fantôme Zhan poussa un rugissement et ses mains formèrent des sceaux de main. Tandis qu'un sortilège apparaissait, l'âme à la cape manifesta une peur indicible dans ses yeux. Il agita la main et une lumière jaillit vers le sceau.
 

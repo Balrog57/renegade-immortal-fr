@@ -12,7 +12,7 @@ Lorsque le Bassin Funéraire Céleste s'est brisé à l'intérieur de la Grotte 
 
 Le sol était jonché de feuilles mortes; un seul pas suffisait pour s'y enfoncer jusqu'à la taille. L'odeur d'os de bêtes en décomposition se mêlait aux feuilles, et une seule inspiration suffisait à donner envie de vomir.
 
-Plus l'on s'enfonçait dans la jungle, plus le feuillage devenait dense et la lumière du soleil rare, incapable de pénétrer jusqu'aux profondeurs. En conséquence, le cœur de la forêt était d'une humidité étouffante.
+Plus l'on s'enfonçait dans la jungle, plus le feuillage devenait dense et la lumière du soleil rare, incapable de pénétrer jusqu'aux profondeurs. En conséquence, le cœur de la forêt était d'une humidité étouffante et lugubre.
 
 Une silhouette était assise sur l'amas infini de feuilles putréfiées au creux de cette jungle.
 
@@ -28,7 +28,7 @@ Wang Lin, qui se trouvait dans les profondeurs de l'océan, détacha son regard 
 
 « Avec ce Tatou Flétri, j'aurai un moyen supplémentaire de me sauver en cas de danger, mais il est véritablement mystérieux. Après avoir quitté la Terre des Esprits Démoniques, je devrai trouver l'occasion d'en fabriquer d'autres. Cependant, d'après le gaz vert, le meilleur matériau consiste à utiliser la peau située entre les sourcils d'une bête féroce. »
 
-« Plus la bête est féroce, plus cette peau sera de qualité; cela affecte même la puissance du Tatou Flétri lui-même. Il faut utiliser un sortilège pour capturer l'âme et l'essence sanguine de la bête entre ses sourcils avant de prélever la peau... »
+« Plus la bête est féroce, plus cette peau sera de qualité; cela affecte même la puissance du Tatou Flétri lui-même. Il faut utiliser un sortilège pour figer l'âme et l'essence sanguine de la bête entre ses sourcils avant de prélever la peau... »
 
 Tout en réfléchissant, Wang Lin prit une profonde inspiration et frappa son sac de rangement. Un éclat de lumière jaune jaillit, et le cristal jaune apparut dans sa main.
 
@@ -62,7 +62,7 @@ Alors que Wang Lin approchait de la surface, il sentit un sortilège fondre sur 
 
 En entendant cette voix depuis les profondeurs, Wang Lin plissa les yeux.
 
-« Yao Xixue!! » Il ne pouvait pas voir son visage, mais ce sentiment de déjà-vu et cette voix familière lui permirent de l'identifier instantanément!
+« Yao Xixue!! » Il ne pouvait pas voir son visage, mais cette impression familière et cette voix plus familière encore lui permirent de l'identifier instantanément!
 
 Wang Lin esquissa un sourire amer et poussa un soupir. La rancœur entre lui et Yao Xixue était complexe. À l'époque, elle avait voulu l'utiliser et avait été la première à agir de manière malveillante. Wang Lin n'avait rien d'un saint homme et ne comptait pas la laisser partir, mais, vu son niveau de culture d'alors et sa crainte de la Pilule de l'Âme Sanguine et de l'Ancêtre Sanguin, il l'avait scellée par une restriction plutôt que de la tuer.
 
@@ -86,7 +86,7 @@ Les ondes gigantesques se déchaînèrent et, sous la charge des dragons démoni
 
 Dès l'apparition de Wang Lin, une haine pure émana des yeux de Yao Xixue au sein de son aura démoniaque. Elle s'avança hors de cette énergie pour se révéler à lui. Son visage était couvert de cicatrices. Elle n'était plus la beauté d'autrefois, mais une femme laide.
 
-La peau qu'elle montrait était balafrée de manière terrifiante. Wang Lin observa de plus près et son expression devint une fois de plus amère. Il crut vaguement apercevoir la silhouette froide et magnifique qui lui était apparue autrefois. Pourtant, malgré ses efforts, il ne parvenait pas à faire coïncider cette image avec la personne devant lui.
+La peau qu'elle montrait était balafrée de manière terrifiante. Wang Lin jeta un regard et son expression devint une fois de plus amère. Il crut vaguement apercevoir la silhouette froide et magnifique qui lui était apparue autrefois. Pourtant, malgré ses efforts, il ne parvenait pas à faire coïncider cette image avec la personne devant lui.
 
 « Qui peut dire avec certitude qui avait raison ou tort... L'âme de son père est scellée par le Sceau Céleste et, pour se venger, elle est devenue ainsi. Me trompais-je... » Dans sa vie, Wang Lin s'était toujours efforcé d'agir sans honte devant le ciel et la terre. Pourtant, à cet instant, un sentiment complexe envahissait son cœur.
 

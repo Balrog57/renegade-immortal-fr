@@ -64,9 +64,9 @@ Une fois son discours achevé, il ouvrit les yeux. Son regard brilla et il affic
 
 Il avait déjà reçu l'information selon laquelle la Secte de l'Origine allait probablement être dissoute; il attendait donc ici. Il attendait que les cultivateurs reviennent de la compétition pour profiter de leur panique et réussir son coup d'un seul trait.
 
-Cependant, en raison du silence imposé par la Secte Éternelle sur toutes les informations, il ignorait ce qui était arrivé à la Secte de l'Origine, tout comme l'existence même de Wang Lin!
+Cependant, en raison du silence imposé par la Secte Éternelle sur toutes les informations, il ignorait l'éclat avec lequel la Secte de l'Origine s'était illustrée à la Secte Éternelle, tout comme l'existence même de Wang Lin!
 
-« Les chances de réussite sont de presque 100 %. Ce vieil homme ne tente jamais rien qui puisse échouer! C'est dommage que je ne puisse pas me présenter en personne. Cette Lu Yanfei est connue comme la première beauté de la région de rang 5. Quel regret... Si ce vieil homme pouvait goûter une fée, ce serait merveilleux. »
+« Les chances de réussite sont de presque 100 %. Ce vieil homme ne tente jamais rien qui puisse échouer! C'est dommage que je ne puisse pas me présenter en personne. Cette Lu Yanfei est connue comme la première beauté de la région de rang 5. Quel regret... Si ce vieil homme pouvait goûter à ses charmes, ce serait merveilleux. »
 
 Le vieil homme soupira et regarda le jade, la fierté brillant dans ses yeux. Il leva la main pour s'en saisir.
 
@@ -114,4 +114,4 @@ Des grondements tonitruants résonnèrent, puis une tempête puissante surgit et
 
 Un fracas assourdissant retentit, comme si le monde allait être déchiré. Pourtant, la lumière du jade ne sembla pas endommagée. Elle changea de direction et continua sa fuite.
 
-« Je veux voir jusqu'où tu comptes t'enfuir! » La voix de Wang Lin était glaciale. Tandis qu'il parlait, ses mains formèrent des sceaux. De vastes restrictions apparurent et s'élancèrent vers le jade!
+« Je veux voir jusqu'où tu comptes t'enfuir! » La voix de Wang Lin était glaciale. Tandis qu'il parlait, ses mains formèrent des sceaux. De vastes restrictions apparurent, couvrant ciel et terre, et formèrent une prison qui fondit sur le jade!

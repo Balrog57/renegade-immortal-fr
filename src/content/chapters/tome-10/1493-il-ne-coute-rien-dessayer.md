@@ -16,7 +16,7 @@ Seul le Maître Yan Leizi ne semblait guère affecté, car il possédait déjà 
 
 Dans cette immobilité pesante, la voix du Maître Lu Fu résonna lentement.
 
-Le regard de Wang Lin balaya l'Arbre de Luotian, et ses pupilles se rétractèrent. L'arbre en lui-même n'était pas exceptionnel, mais le sang de dizaines de milliers de cultivateurs qui l'irriguait constituait la touche finale parfaite. Ce trésor n'était plus un simple objet précieux, mais un véritable héritage sanguin!
+Le regard de Wang Lin balaya l'Arbre de Luotian, et ses pupilles se rétractèrent. L'arbre en lui-même n'était pas exceptionnel, mais le sang de dizaines de milliers de cultivateurs qui l'irriguait constituait la touche finale parfaite. Ce trésor n'était plus un simple trésor de rang pseudo-Vide du Nirvana, mais un véritable héritage sanguin!
 
 Un héritage pour ces dizaines de milliers de cultivateurs!
 
@@ -24,7 +24,7 @@ Ces individus provenaient des diverses lignées de Luotian; presque tous étaien
 
 Tant qu'un être était un cultivateur de Luotian, il pouvait contrôler ce trésor. Un tel héritage sanguin, d'une portée aussi vaste, était extrêmement rare!
 
-La racine de l'Arbre de Luotian était constituée par la lumière stellaire de Luotian. Elle avait également été affinée par le Maître Lu Fu, court-circuitant ainsi le besoin de temps pour sa maturation.
+La racine de l'Arbre de Luotian était constituée par la lumière stellaire de Luotian. Elle avait également été affinée par le Maître Lu Fu, son sang et son essence la catalysant, court-circuitant ainsi le besoin de temps pour sa maturation.
 
 Ce trésor aurait dû être considéré comme une création naissante nécessitant du temps pour atteindre la perfection. Cependant, le Maître Lu Fu, doté d'une grande sagacité, avait utilisé la poussière éternelle accumulée durant des éons, conférant ainsi au trésor une aura d'antiquité!
 
@@ -40,7 +40,7 @@ Le rire du Maître Lu Fu fit vibrer les étoiles. La fierté qui transparaissait
 
 À la suite des paroles de Wang Lin, les dizaines de milliers de cultivateurs poussèrent un cri d'acclamation unanime, et leur dévotion envers le Maître Lu Fu devint plus fervente encore. Si ce dernier leur demandait de charger dans une montagne de lames ou une mer de feu, ils s'y précipiteraient sans la moindre hésitation!
 
-Le Maître Lu Fu regarda Wang Lin et dit avec lenteur: « Le trésor de ce vieil homme est achevé. Je demande à notre camarade cultivateur de l'affiner; je veux voir quel genre de trésor tu sauras créer! »
+Le Maître Lu Fu regarda Wang Lin et dit avec lenteur: « Le trésor de ce vieil homme est achevé. Je demande à notre camarade cultivateur de l'affiner; je veux voir quel genre de trésor vous saurez créer! »
 
 « Les cultivateurs de Luotian possèdent assez d'intention de bataille, mais il leur manque une intention de tuer... l'odeur du sang. » Wang Lin leva la main droite et tendit doucement le geste vers la formation en contrebas.
 
@@ -72,7 +72,7 @@ L'intention meurtrière redoubla d'intensité, faisant trembler les étoiles!
 
 « À Luotian, j'ai tué tant de gens... Les cieux et la terre en seraient teints de pourpre! »
 
-« Dans la Mer des Nuages, le brouillard de sang me suivait et l'intention de tuer était omniprésente... » Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
+« Dans la Mer des Nuages, le brouillard de sang me suivait et l'intention de tuer était dissimulée partout... » Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
 
 « Dans le Royaume aux Sept Couleurs, les fruits du Dao et l'intention de tuer... » L'expression du Maître Yan Leizi et de son groupe changea radicalement. Lorsque le Dieu de Sang ressentit cette intention meurtrière, il cracha du sang.
 

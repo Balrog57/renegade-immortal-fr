@@ -56,7 +56,7 @@ Wan Er était son tout et sa seule faiblesse. Il n'autoriserait personne à lui 
 
 Cependant, certaines choses étaient encore plus importantes que sa propre existence! Le problème était qu'en cette vie, au-delà de l'amour, il y avait des dettes de gratitude dont il ne pouvait se défaire!
 
-« À partir de maintenant, je te confie la Secte de l'Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de l'Affinement de l'Âme, Dun Tian, avait transmis les trésors de sa secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
+« À partir de maintenant, je te confie la Secte de l'Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de l'Affinement de l'Âme, Dun Tian, avait remis à Wang Lin le trésor suprême de sa secte, la bannière des âmes, avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
 
 « Moi, Wang Lin, je ne m'agenouillerai jamais devant les cieux, sauf par respect pour Situ! »
 
@@ -74,7 +74,7 @@ La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des
 
 Le dernier souhait de l'ancien Empereur Oiseau Vermillon était que Wang Lin veille sur la secte. Face à toute la bonté reçue, il ne pouvait supporter la colère et le regard déçu de l'Empereur Divin défunt.
 
-La deuxième génération d'Oiseau Vermillon n'avait connu Wang Lin que quelques jours. Son rire franc, son expression satisfaite, son admiration et sa gentillesse lui revinrent en mémoire. Il avait pêché un dragon pour offrir son sang à Wang Lin et avait tenté de le sauver à maintes reprises lors des épreuves. Il avait même rugi face à la première génération d'Oiseau Vermillon lors de l'Épreuve Céleste!
+La deuxième génération d'Oiseau Vermillon n'avait connu Wang Lin que quelques jours. Son rire franc, son expression satisfaite, son admiration et sa gentillesse lui revinrent en mémoire. Il avait pêché un dragon pour offrir son sang à Wang Lin et avait tenté de le sauver à maintes reprises lors des épreuves. Il avait même rugi face à la première génération d'Oiseau Vermillon dans le bâton d'encens céleste!
 
 La deuxième génération lui avait transmis la méthode pour contrôler le dragon de flamme et la carapace de tortue de la Restriction de l'Âme Ancienne. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan de l'Oiseau Vermillon: l'Ombrelle Brûlante du Royaume!
 
@@ -102,7 +102,7 @@ Heureusement, les souvenirs du Maître Simo lui avaient tracé une voie... « Je
 
 « Je ne veux pas trahir leur gratitude par mon choix. L'amour est la souffrance que je ne peux abandonner. C'est pour cela que j'ai cultivé toute ma vie... Mais l'amour n'est pas la seule chose qui compte pour moi!
 
-« J'admire quelqu'un comme le Maître Simo, capable de tout abandonner, même sa conscience, pour une seule personne! Cependant, j'ai peur de choisir, j'ai peur d'affronter tous ceux qui ont été bienveillants envers moi... Même si ma femme et mon enfant s'éveillaient, nous ne serions que des marionnettes... Je ne choisirai pas cela...
+« J'admire quelqu'un comme le Maître Simo, capable de tout abandonner, même sa conscience et le blâme de la multitude, pour une seule personne! Cependant, j'ai peur de choisir, j'ai peur d'affronter tous ceux qui ont été bienveillants envers moi... Même si ma femme et mon enfant s'éveillaient, nous ne serions que des marionnettes... Je ne choisirai pas cela...
 
 « Peut-être que ton maître peut vraiment réveiller ma femme et mon enfant, mais s'il le peut, alors moi aussi, Wang Lin, je le peux! »
 

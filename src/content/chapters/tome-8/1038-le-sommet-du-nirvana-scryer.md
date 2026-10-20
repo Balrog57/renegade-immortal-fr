@@ -68,7 +68,7 @@ La grotte où il se trouvait n'était pas vaste, et d'innombrables fissures appa
 
 Avant que le moindre gravier ne puisse l'atteindre, une lueur argentée surgissait. C'était le cadavre féminin argenté qui pulvérisait tout sur son passage.
 
-Une énergie originelle infinie émanait des âmes originelles dévorées par Wang Lin, et cette énergie se rassemblait follement au cœur de son âme originelle. Si cela s'était produit avant l'éveil de l'Oiseau Vermillon et que son énergie ne contenait pas la flamme sacrée, il aurait déjà réussi sa percée.
+Une énergie originelle infinie émanait des âmes originelles dévorées par Wang Lin, et cette énergie se rassemblait follement au cœur de son âme originelle. Si cela s'était produit avant l'éveil de l'Oiseau Vermillon et que son énergie ne contenait pas la flamme sacrée, il aurait peut-être déjà réussi sa percée.
 
 Cependant, l'énergie originelle de Wang Lin était imprégnée de flammes; l'énergie qu'il dévorait devait donc être transformée. Elle était raffinée à l'intérieur même de son âme originelle.
 
@@ -106,6 +106,6 @@ Tandis qu'il méditait, le corps de Wang Lin vacilla et son avatar s'en extirpa.
 
 L'avatar affichait un visage calme. Après avoir quitté le corps original, il sortit de la grotte. Il flotta dans les airs tandis que l'Oiseau Vermillon planait rapidement au-dessus de lui. Wang Lin prit une grande inspiration et l'énergie originelle dans son corps atteignit son apogée. Une sphère de flammes s'alluma dans son œil gauche, tandis que son œil droit contenait une sphère de tonnerre bleu.
 
-Puis, son âme originelle jaillit d'entre ses sourcils. Le rugissement antique du dragon de tonnerre, capable de commander à tout le tonnerre du monde, résonna dans la cavité.
+Puis, son âme originelle jaillit d'entre ses sourcils. Le rugissement antique du dragon de tonnerre, capable de commander à tout le tonnerre du monde, résonna dans le gouffre.
 
 À cet instant précis, la manière dont Wang Lin percevait le monde changea radicalement.

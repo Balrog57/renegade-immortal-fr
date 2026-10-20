@@ -30,19 +30,19 @@ Tang Shan intervint après avoir formé les sept portes dorées pour Wang Lin et
 
 Tous deux attaquèrent le Souverain simultanément!
 
-La combinaison des « Huit Lames qui Coupent l'Âme » avec la culture de Yun Yifeng dégageait une puissance phénoménale. Le Souverain agita sa manche et une lumière aux sept couleurs vola vers Yun Yifeng.
+La combinaison des « Huit Lames Coupent l'Âme » avec la culture de Yun Yifeng dégageait une puissance phénoménale. Le Souverain agita sa manche et une lumière aux sept couleurs se mua en sept longs arcs-en-ciel qui fondirent sur Yun Yifeng.
 
 Des grondements tonitruants résonnèrent. Yun Yifeng, déjà blessé par Wang Lin, vit les sept portes dorées s'effondrer. Il cracha du sang et, les dents serrées, poussa un rugissement en tranchant l'air. Sept des lames se brisèrent lors de la collision avec la lumière aux sept couleurs, mais la huitième perça cette lumière et s'abattit devant le Souverain.
 
 Le corps du Souverain trembla sous des échos de tonnerre tandis qu'il reculait de trois pas. Il leva soudain les yeux vers les neuf épées volantes dorées, imprégnées d'un puissant souffle immortel de lignage, qui convergeaient vers lui.
 
-Elles étaient extrêmement rapides; à l'instant même où le Souverain recula, elles furent sur lui. Le Souverain leva la main et joignit son pouce et son index pour former un cercle face à Tang Shan.
+Elles étaient extrêmement rapides; à l'instant même où le Souverain recula, elles furent sur lui. Le Souverain leva les deux mains, joignit le pouce et l'index de chacune pour former un cercle face à Tang Shan, un rictus aux lèvres.
 
-Une lumière dorée émana du cercle formé par sa main. Cette lumière sembla engendrer d'innombrables épées s'élançant vers l'avant. Elles entrèrent en collision avec les neuf épées de Tang Shan, et ces dernières volèrent en éclats. Les fragments furent repoussés tandis qu'un flux incessant de rayons lumineux convergeait sur Tang Shan.
+Une lumière dorée émana du cercle formé par ses mains. Cette lumière sembla engendrer d'innombrables épées s'élançant vers l'avant. Elles entrèrent en collision avec les neuf épées de Tang Shan, et ces dernières volèrent en éclats. Les fragments furent repoussés tandis qu'un flux incessant de rayons lumineux convergeait sur Tang Shan.
 
 Les perles dorées au poignet de Tang Shan brillèrent et sept portes dorées apparurent pour résister à la lumière aux sept couleurs. Des grondements tonitruants retentirent alors que du sang s'écoulait du coin de sa bouche, et elle battit en retraite rapidement.
 
-« Des soldats défaits et des faibles osent m'attaquer par surprise devant moi?! » Le Souverain s'avança, mais à cet instant, la main de Wang Lin saisit le vide. Il utilisa le Déchirure du Ciel, et la faille reliant le ciel et la terre réapparut. Elle chargea vers le Souverain!
+« Des soldats défaits et des faibles osent m'attaquer par surprise devant moi?! » Le Souverain s'avança, mais à cet instant, les deux mains de Wang Lin saisirent le vide. Il utilisa le Déchirure du Ciel, et la faille reliant le ciel et la terre réapparut. Elle chargea vers le Souverain!
 
 Tout cela se produisit en un éclair. Au moment même où le Souverain tentait de contrer les attaques de Tang Shan et de Yun Yifeng, la faille se rapprocha.
 
@@ -60,7 +60,7 @@ Simultanément, l'empreinte dorée fonça en avant. Dans un fracas de tonnerre, 
 
 Cependant, le soleil se dissipa également face au Déchirure du Ciel. Seule l'empreinte dorée parvint à tout percer pour s'abattre sur Wang Lin.
 
-« Sans l'Arc Li Guang, je veux voir comment tu vas me résister! » Le Souverain, la respiration saccadée, chargea Wang Lin.
+« Sans l'Arc de Li Guang, je veux voir comment tu vas me résister! » Le Souverain, la respiration saccadée, chargea Wang Lin.
 
 Au sol, non loin de là, Xuan Luo observait la scène avec calme. Tout au long de ce périple, il avait été témoin des méthodes, de la ruse, de la persévérance et de la détermination de Wang Lin. Il éprouvait désormais une immense admiration pour lui.
 
@@ -92,13 +92,13 @@ Ce changement soudain stupéfia Yun Yifeng, qui s'apprêtait à attaquer de nouv
 
 Tang Shan fut également surprise et interrompit le sceau qu'elle formait. Elle comptait tout faire pour protéger Wang Lin, mais ce revirement la laissa pantoise.
 
-Si les deux étaient simplement surpris, le Souverain, lui, était pétrifié, ses yeux emplis de terreur. Incrédule, il se frotta machinalement les yeux. Le choc qui ébranla son cœur fut plus intense que lorsqu'il vit Wang Lin manier l'Arc Li Guang!
+Si les deux étaient simplement surpris, le Souverain, lui, était pétrifié, ses yeux emplis de terreur. Incrédule, il se frotta machinalement les yeux. Le choc qui ébranla son cœur fut plus intense que lorsqu'il vit Wang Lin manier l'Arc de Li Guang!
 
 « Comment est-ce possible... Ceci... C'est impossible... Ce que j'ai lancé était un sort, pas un trésor. Cette empreinte dorée a été formée par mon incantation, c'est une illusion, elle ne devrait pas exister... Elle n'est que la manifestation de la puissance de mon sort... »
 
 « Comment peut-elle devenir matérielle et se transformer en trésor? Une telle chose est impossible, impossible!! » Le Souverain tremblait. Les autres pouvaient encore comprendre, mais lui, il savait.
 
-« Transformer un sort illusoire en quelque chose de tangible... Ce genre de capacité à changer le monde. Ceci... » Le visage du Souverain pâlit et il recula instinctivement de quelques pas. Le choc qui le submergeait était assez puissant pour briser son esprit.
+« Transformer un sort illusoire en quelque chose de tangible... Ce genre de capacité à changer le monde et à façonner la création elle-même. Ceci... » Le visage du Souverain pâlit et il recula instinctivement de quelques pas. Le choc qui le submergeait était assez puissant pour briser son esprit.
 
 Il n'avait jamais ressenti une telle peur. Quelle que soit la panique qu'il avait éprouvée auparavant, rien ne pouvait être comparé à cet instant. Il ne comprenait pas, ne pouvait imaginer, ou plus exactement, il n'osait même pas l'envisager.
 

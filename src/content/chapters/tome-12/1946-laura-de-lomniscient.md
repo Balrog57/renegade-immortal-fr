@@ -28,7 +28,7 @@ Le temple fut recouvert de poussière et des fissures lézardèrent les piliers.
 
 Des crevasses apparurent sur le sol sous les pieds du vieil homme, signes d'une ruine imminente. Ce vent de décrépitude se propagea à travers tout la Secte Dong Lin, prenant le temple pour centre.
 
-À l'extérieur, la place fut ravagée et le déclin s'étendit. Les montagnes perdirent leur verdure pour devenir des terres mortes. L'eau s'évapora, et ce qui restait de liquide dégageait une odeur nauséabonde.
+À l'extérieur, la place fut ravagée, les palais et les pavillons se délabrèrent en un instant, et le déclin s'étendit. Les montagnes perdirent leur verdure pour devenir des terres mortes. L'eau s'évapora, et ce qui restait de liquide dégageait une odeur nauséabonde.
 
 Les disciples de la Secte Dong Lin, y compris les deux Exaltés Dorés, avaient disparu sans laisser de trace. La Secte Dong Lin tout entier était devenu une terre désolée.
 
@@ -62,7 +62,7 @@ Une écriture peut être imitée, mais l'aura qu'elle dégage est extrêmement d
 
 Cet individu faisait partie du Dao Céleste, et bien qu'il ait été détruit par Wang Lin, ce dernier soupçonnait que l’Omniscient n’était pas mort!
 
-L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royaume aux Sept Couleurs. Cependant, l'apparence même de cette pierre brouillait la compréhension qu'avait Wang Lin du monde des grottes.
+L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royaume aux Sept Couleurs : elles ont été laissées par deux personnes différentes. Cependant, l'apparence même de cette pierre brouillait la compréhension qu'avait Wang Lin du monde des grottes.
 
 « Monde des grottes… Continent Astral Immortel… Secte Dong Lin… La seule chose qui relie ces trois lieux est le Souverain Céleste aux Sept Couleurs! Mais son âme fut divisée en trois et détruite par moi… La troisième âme est Su Dao… Je suis même venu à la Secte Dong Lin dans cette illusion, à l'époque…
 

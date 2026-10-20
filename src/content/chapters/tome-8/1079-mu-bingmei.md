@@ -128,7 +128,7 @@ Mu Bingmei fut comme un papillon gracieux lorsqu'elle atteignit Wang Lin et le p
 
 Pour être exacte, c'était la première fois qu'elle lui faisait face...
 
-Dans un soupir, Mu Bingmei agita sa main de jade et une faille apparut devant elle. Elle en sortit une fiole de jade contenant une unique pilule. Cette fiole, façonnée dans le meilleur jade céleste, était gravée de nombreuses restrictions pour préserver les propriétés du remède. Vu la rareté de l'objet, la valeur de la pilule qu'il contenait allait de soi.
+Dans un soupir, Mu Bingmei agita sa main de jade et une faille apparut devant elle. Elle en sortit une fiole de jade contenant une unique pilule. Cette fiole, façonnée dans le meilleur jade céleste, était gravée de nombreuses restrictions pour en préserver éternellement les propriétés. Si le flacon était déjà si précieux, la pilule qu'il contenait l'était encore davantage.
 
 Mu Bingmei prit la pilule et la plaça sans hésiter contre les lèvres de Wang Lin.
 

@@ -60,7 +60,7 @@ Pourtant, à cet instant, Wang Lin voyait clairement cette obscurité bouger et 
 
 « La capacité d'absorber la lumière! » L'étonnement illumina les yeux de Wang Lin.
 
-L'obscurité sans fin se rassembla dans la main de l'Omniscient à la Robe Grise pour se transformer en une épée noire ne faisant qu'un doigt de large. L'Omniscient ne perdit pas de temps en discours avec Ling Tianhou et abattit directement son épée.
+L'obscurité sans fin se rassembla dans la main de l'Omniscient à la Robe Grise pour se transformer en une épée noire ne faisant qu'un doigt de large. L'Omniscient ne perdit pas de temps en discours avec Ling Tianhou et lança directement un coup d'épée horizontal.
 
 À cet instant, une énergie de massacre monstrueuse s'éleva dans le monde. Ce n'était pas un simple filament d'énergie de massacre, mais dix!
 
@@ -94,7 +94,7 @@ La forme de l'arme était singulière, courbée telle un serpent! Une puissante 
 
 Au moment où Wang Lin vit cette lame incurvée, ses yeux s'illuminèrent.
 
-« L'Épée Céleste de la Pluie! » Wang Lin reconnut immédiatement l'arme serpentine. L'Épée Céleste de la Pluie était divisée en quatre parties, dont deux avaient été dérobées. Cette Épée Serpentine de la Pluie était celle que Ling Tianhou avait dérobée!
+« L'Épée Céleste de la Pluie! » Wang Lin reconnut immédiatement l'arme serpentine. Au Royaume Céleste de la Pluie, l'Épée Céleste de la Pluie était divisée en quatre parties, dont deux avaient été dérobées. Cette Épée Serpentine de la Pluie était celle que Ling Tianhou avait dérobée!
 
 Le garçon s'avança pour faire face à l'Omniscient à la Robe Grise. Ling Tianhou traça un sceau et pointa le doigt. Le garçon ouvrit soudain les yeux, révélant un regard oppressant.
 

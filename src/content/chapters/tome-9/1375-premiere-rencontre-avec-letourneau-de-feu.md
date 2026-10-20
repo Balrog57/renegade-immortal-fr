@@ -12,7 +12,7 @@ Tout au long du voyage, Wang Lin parla peu tandis que tous deux survolaient rapi
 
 L'esprit de Wang Lin était encore hanté par ce qu'il avait aperçu à l'intérieur de la marionnette. Il semblait avoir acquis une certaine compréhension, mais un voile de brouillard l'empêchait d'y voir clair.
 
-« Bien que le Clan du Dragon Blindé soit également un petit clan, il compte plusieurs milliers de membres. Le chef du clan, le neuvième ancien, est au quatrième niveau du Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect. »
+« Bien que le Clan du Dragon Blindé soit également un petit clan, il compte plusieurs milliers de membres. Le chef du clan, le neuvième ancien, est au quatrième niveau du Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect ni les provoquer. »
 
 L'ancien du Scorpion Noir rapporta à Wang Lin tout ce qu'il savait sur le Clan du Dragon Blindé.
 
@@ -90,7 +90,7 @@ L'ancien, percevant l'intention meurtrière qui émanait de Wang Lin, frissonna 
 
 Le pavillon paraissait très ancien. Alors qu'ils entraient, une femme d'une trentaine d'années en sortit. À son passage, un parfum délicat embauma l'air.
 
-« Oh, ne serait-ce pas Seigneur Scorpion Noir? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
+« Oh, ne serait-ce pas le Patriarche du Scorpion Noir? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
 
 Son regard balaya Wang Lin, et une pointe de choc traversa ses yeux.
 

@@ -16,7 +16,7 @@ Cet homme ressemblait énormément à Li Qianmei. Il était évident au premier 
 
 Il ne l'oublierait jamais!
 
-C'était impensable. Personne n'aurait imaginé que leur brève rencontre, il y a un peu plus de dix ans dans le Royaume aux Sept Couleurs, aboutirait à se retrouver ainsi en personne.
+C'était impensable. Personne n'aurait imaginé que leur affrontement indirect, il y a un peu plus de dix ans dans le Royaume aux Sept Couleurs, aboutirait à se retrouver ainsi en personne.
 
 L'homme d'âge moyen regarda Li Qianmei, et son chagrin s'intensifia. D'un revers de manche, il projeta une tempête vers Wang Lin. La tempête, d'une vitesse fulgurante, atteignit Wang Lin en un instant et explosa.
 
@@ -58,7 +58,7 @@ Cependant, rien ne pouvait arrêter Wang Lin. Il leva la tête vers le sommet de
 
 Cette montagne bleue s'élançait vers les cieux sans fin apparente. Pourtant, des escaliers sinueux menaient au sommet. Wang Lin gravit les marches une à une.
 
-Il était extrêmement rapide et ne marquait aucun temps d'arrêt. Tandis qu'il avançait, il mobilisait toute son énergie originelle pour contrer la force qui le repoussait. Il poussa un rugissement en franchissant instantanément près de 30 % des marches!
+Il était extrêmement rapide et ne marquait aucun temps d'arrêt. Tandis qu'il avançait, il mobilisait toute son énergie originelle pour contrer la force qui le repoussait. Dans un grondement intérieur, il franchit instantanément près de 30 % des marches!
 
 Mais à ce moment précis, la résistance de la montagne devint terrifiante. C'était comme si une planète entière pesait sur lui, l'empêchant d'avancer. À chaque pas, il devait supporter une pression colossale. Plus surprenant encore: plus il montait, plus la résistance se multipliait!
 
@@ -80,7 +80,7 @@ Ces deux énergies furent son seul soutien pour s'approcher toujours plus du som
 
 En trois jours, Wang Lin avait gravi près de 80 % des marches. À cet instant, il leva les yeux et aperçut la fin de l'escalier. Mais il était à bout de forces; son corps ressemblait à un tambour que l'on martèle sous le poids d'une pression incessante. Il ne pouvait s'empêcher de trembler.
 
-Un instant, il eut l'impression de remonter le temps, avant même d'avoir commencé sa culture, pour se retrouver passant les examens de la Secte Heng Yue. Cette force de résistance magnifique était comme si le monde entier tentait de l'écraser!
+Un instant, il eut l'impression de remonter le temps, avant même d'avoir commencé sa culture, pour se retrouver passant les examens de la Secte Heng Yue. Cette force de résistance imposante était comme si le monde entier tentait de l'écraser!
 
 Plus terrifiant encore, alors qu'il montait, il ne subissait pas seulement une pression venant d'en haut, mais aussi une force poussant du bas. Il devait diviser sa puissance pour simplement rester immobile. S'il relâchait sa garde, il serait projeté loin de là.
 

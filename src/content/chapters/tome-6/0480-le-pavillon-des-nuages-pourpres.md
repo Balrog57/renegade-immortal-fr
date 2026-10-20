@@ -30,7 +30,7 @@ Wang Lin s'arrêta et plaça sa main derrière son dos. Il regarda la silhouette
 
 La silhouette de feu réfléchit un instant, puis s'inclina devant Wang Lin. Elle se mua à nouveau en flammes et disparut dans le sol.
 
-Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres défis de ce genre pour tester sa culture.
+Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres créatures de ce genre pour éprouver sa culture.
 
 « Il doit y avoir quelqu'un au sein de la Secte du Destin Céleste qui m'observe de l'extérieur... » Wang Lin laissa échapper un léger sourire. Plutôt que de continuer, il fit demi-tour.
 
@@ -52,7 +52,7 @@ Bai Wei lança un regard nonchalant vers le vide au loin et sourit. « Le cadeau
 
 Après avoir parlé, les yeux de Bai Wei devinrent sérieux tandis qu'il fixait le vide, son regard brillant d'une lueur mystérieuse.
 
-Le cœur de l'homme au visage doux trembla un instant et il déclara: « Cet homme est un disciple honorifique que Maître a recueilli sur la planète Suzaku. Il est arrivé il y a quelques mois et traverse actuellement les trois épreuves. Il en est à la troisième. »
+Le cœur de l'homme au visage doux trembla un instant et il déclara: « Cet homme est un disciple honoraire que Maître a recueilli sur la planète Suzaku. Il est arrivé il y a quelques mois et traverse actuellement les trois épreuves. Il en est à la troisième. »
 
 « C'est lui... » Les yeux de Bai Wei s'illuminèrent alors qu'il disait: « Alors c'est pour ça... »
 
@@ -132,7 +132,7 @@ Wang Lin acquiesça, salua Zhao Xingsha et s'élança vers l'ouest tel un éclai
 
 Le visage de Zhao Xingsha conservait ce même sourire serein, mais une lueur mystérieuse traversa ses yeux.
 
-En volant, Wang Lin laissa échapper un froid reniflement. Dès le premier instant où il avait vu Zhao Xingsha, il l'avait reconnu comme celui qui avait tenté de l'interrompre lors de l'épreuve de l'Humain. Cependant, Wang Lin possédait une grande capacité de dissimulation et maintint un visage impassible.
+En volant, Wang Lin laissa échapper un froid reniflement. Dès le premier instant où il avait vu Zhao Xingsha, il l'avait reconnu comme celui qui avait lancé le rayon de lumière arc-en-ciel lors de l'épreuve Humaine. Cependant, Wang Lin possédait une grande capacité de dissimulation et maintint un visage impassible.
 
 Peu après, Wang Lin déploya son Sens Divin et repéra un palais dégageant une légère aura pourpre. Sur la façade du palais étaient inscrits trois grands caractères: « Pavillon des Nuages Pourpres ».
 

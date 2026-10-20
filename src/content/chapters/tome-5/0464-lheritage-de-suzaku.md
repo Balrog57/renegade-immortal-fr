@@ -18,7 +18,7 @@ Mais à cet instant précis, une puissance mystérieuse émanant du cristal pén
 
 D'étranges symboles apparurent un à un dans son esprit.
 
-Ces glyphes clignotaient et se déplaçaient comme la foudre au sein de son cerveau. Wang Lin ne fut pas surpris, car il avait déjà vécu une telle expérience: lorsqu'il avait absorbé l'héritage de connaissances de l'Ancien Dieu Tu Si, la même chose s'était produite.
+Ces glyphes clignotaient et se déplaçaient comme la foudre au sein de son cerveau. Wang Lin ne fut pas surpris, car il avait déjà vécu une telle expérience: lorsqu'il avait absorbé, dans la Terre de l'Ancien Dieu, l'héritage de connaissances de l'Ancien Dieu Tu Si, la même chose s'était produite.
 
 Tandis que ces symboles scintillaient dans sa tête, diverses scènes résonnèrent dans son esprit.
 

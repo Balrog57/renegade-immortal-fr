@@ -49,7 +49,7 @@ La femme en violet le regarda. Constatant qu'aucune réaction ne venait de lui, 
 
 Sans attendre la suite, Wang Lin secoua la tête et dit: « N'as-tu pas peur que Maître découvre que tu parles de cela ici? »
 
-« Chaque jour à cinq heures du matin, Maître se retire en culture fermée. À moins qu'un événement majeur ne survienne, il n'en sort pas. Maître a cette habitude depuis des millénaires. » Zhao Xinmeng semblait pressée. « Wang Lin, tout ce que je dis est vrai! »
+« Chaque jour à cinq heures du matin, Maître se retire en culture fermée, scellant ses cinq sens. À moins qu'un événement majeur ne survienne, il n'en sort pas. Maître a cette habitude depuis des millénaires. » Zhao Xinmeng semblait pressée. « Wang Lin, tout ce que je dis est vrai! »
 
 Wang Lin réfléchit un instant, puis regarda Zhao Xinmeng: « Est-ce pour cela que tu portes six sceaux dans ton corps? »
 
@@ -59,7 +59,7 @@ Zhao Xinmeng ne fut pas choquée par la clairvoyance de Wang Lin. Elle laissa po
 
 « Il y a aussi Lu Hai, de la Division Rouge. S'il levait son sceau, son niveau de culture deviendrait immédiatement celui du sommet du Corporel Yang. »
 
-« Ce ne sont là que des personnes que je connais, mais je suis convaincue qu'il existe d'autres individus qui se sont très bien dissimulés parmi les sept divisions! Cependant, peu importe l'avancement de notre culture, nous n'osons pas ouvrir les sceaux. Même si nous refermons notre culture après l'avoir libérée, nous disparaîtrons mystérieusement dans l'année. Si nous étions gravement blessés et que notre niveau chutait, ceux qui n'ont pas caché leur culture s'en sortiraient, mais ceux d'entre nous qui dissimulent leur puissance disparaîtraient tout de même. »
+« Ce ne sont là que des personnes que je connais, mais je suis convaincue qu'il existe d'autres individus qui se sont très bien dissimulés parmi les sept divisions! Cependant, peu importe l'avancement de notre culture, nous n'osons pas ouvrir les sceaux, ni même déployer notre puissance. Même si nous refermons notre culture après l'avoir libérée, nous disparaîtrons mystérieusement dans l'année. Si nous étions gravement blessés et que notre niveau chutait, ceux qui n'ont pas caché leur culture s'en sortiraient, mais ceux d'entre nous qui dissimulent leur puissance disparaîtraient tout de même. »
 
 « D'après ce que je comprends, Maître cultive depuis des dizaines de milliers d'années et a eu d'innombrables disciples. Pourtant, aucun d'eux n'est jamais réapparu ou même n'a fait entendre sa voix... »
 
@@ -77,7 +77,7 @@ L'expression de Wang Lin demeura neutre. Les six sceaux de cette femme étaient 
 
 Elle était déjà plongée dans le désespoir. Le sceau sur son corps se relâchait chaque jour davantage et, bientôt, il allait s'effondrer. La terreur que sa culture soit révélée la paralysait.
 
-« La rumeur prétend que tous les cultivateurs dont le niveau a dépassé l'Ascendant ont été... dévorés par Maître... Wang Lin, je ne te demande pas de récupérer mon âme, demande seulement à m'aider à renforcer le sceau pour que ma culture reste éternellement au stade de la Transformation de l'Âme. »
+« La rumeur prétend que tous les cultivateurs dont le niveau a dépassé l'Ascendant ont été... dévorés par Maître... Wang Lin, je ne te demande pas de récupérer mon âme, demande seulement à m'aider à renforcer le sceau pour que ma culture reste éternellement au stade avancé de la Transformation de l'Âme. »
 
 Zhao Xinmeng se leva, prête à s'incliner devant lui.
 
@@ -93,7 +93,7 @@ Wang Lin n'éprouvait aucune animosité envers Bai Wei. Sans les avertissements 
 
 « Senior Frère Bai, je vous en prie, entrez. » La voix de Wang Lin était calme. Pourtant, un léger parfum corporel pénétra ses narines, le mettant mal à l'aise.
 
-La porte s'ouvrit. Bai Wei conservait sa beauté légendaire, mais paraissait désormais un peu frêle. À l'intérieur de la pièce, elle regarda Wang Lin et soupira: « Toujours pareil. Septième Frère, tu n'as pas changé du tout depuis l'époque. »
+La porte s'ouvrit. Bai Wei conservait sa beauté légendaire, mais paraissait désormais un peu tiré. À l'intérieur de la pièce, elle regarda Wang Lin et soupira: « Toujours pareil. Septième Frère, tu n'as pas changé du tout depuis l'époque. »
 
 « Le Frère Bai est identique. Nous ne nous sommes pas vus depuis des centaines d'années, et pourtant c'est comme si je t'avais vue hier. » Wang Lin sourit.
 

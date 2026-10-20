@@ -28,7 +28,7 @@ Le corps du garçon à la grosse tête tremblait, son cœur battait la chamade e
 
 « Pas étonnant que je n'aie pas pu ouvrir mon sac de rangement. Seuls les trésors imprégnés d'une âme originelle peuvent être utilisés! » Le garçon prit une profonde inspiration, toujours terrifié.
 
-Sur le champ de bataille, un éclat doré jaillit et une rune dorée apparut. Cette rune avait absorbé l'avatar dissipé du garçon et semblait désormais douée d'intelligence.
+Sur le champ de bataille, un éclat doré jaillit et une rune dorée apparut, puis rejoignit le Sceau Céleste. Cette rune avait absorbé l'avatar dissipé du garçon et semblait désormais douée d'intelligence.
 
 Wang Lin récupéra le Sceau Céleste. Il regarda Shengong Hu, pétrifié, puis frappa son sac de rangement. Après en avoir sorti quelques pilules, il les tendit à Shengong Hu.
 
@@ -44,7 +44,7 @@ Shengong Hu secoua la tête. Son sens divin pénétra dans son sac. Il frappa en
 
 Wang Lin resta silencieux, se retourna et s'élança dans les airs.
 
-Shengong Hu laissa ses pensées vagabonder. Après avoir hésité un moment, il suivit les instructions de Wang Lin et trouva un endroit pour se cacher.
+Shengong Hu avait des soupçons. Après avoir hésité un moment, il suivit les instructions de Wang Lin et trouva un endroit pour se cacher.
 
 Wang Lin parcourut le champ de bataille avec un sourire narquois.
 
@@ -64,7 +64,7 @@ Cependant, du côté de Xu Ting, la violence régnait. Même ceux qui voulaient 
 
 La nuit tomba sur le champ de bataille. À la nuit tombée, il ne restait plus grand monde. Wang Lin déploya son sens divin et se dirigea vers Xu Ting.
 
-Xu Ting était une cible qu'il devait éliminer, d'autant plus qu'il avait détecté une trace d'énergie originelle en lui. Wang Lin l'avait déjà repérée, il n'avait aucune intention de le laisser s'échapper!
+Xu Ting était une cible qu'il devait éliminer, d'autant plus que Wang Lin avait déjà détecté une trace d'énergie originelle en lui. Il n'avait aucune intention de le laisser s'échapper!
 
 Xu Ting déploya également son sens divin et verrouilla la position de Wang Lin. Il plongea dans la brume noire et chargea vers lui. Tous les cultivateurs de sa zone étaient morts; il était le dernier survivant!
 
@@ -130,7 +130,7 @@ Au moment où la montagne noire descendait, elle fut enveloppée par cette lueur
 
 Les yeux de Xu Ting furent remplis de terreur; un sentiment de crise sans précédent envahit son corps. Il fut pris de panique et voulut reculer, mais il était trop tard: la lumière rouge l'avait déjà atteint. Une fois la montagne noire désintégrée, Wang Lin se tourna vers lui.
 
-Xu Ting sentit son corps trembler, comme si des dizaines de milliers d'éclairs explosaient en lui. Tout semblait disparaître, mais même le fracas du tonnerre ne pouvait couvrir les battements de son cœur qui s'accéléraient.
+Xu Ting sentit son corps trembler, comme si des millions de coups de tonnerre explosaient en lui. Tout semblait disparaître, mais même le fracas du tonnerre ne pouvait couvrir les battements de son cœur qui s'accéléraient.
 
 Boum, boum, boum... Son rythme cardiaque atteignit un seuil critique, comme s'il allait exploser.
 

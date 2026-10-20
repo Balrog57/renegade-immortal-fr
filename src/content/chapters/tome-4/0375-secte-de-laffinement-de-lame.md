@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 375 - Soul Refining Secte
 slug: secte-de-laffinement-de-lame
 ---
-À l'instant même où cette faille apparut, une immense quantité d'énergie spirituelle provenant de l'extérieur pénétra dans le corps de Wang Lin. Simultanément, les fragments de son âme originelle commencèrent à se condenser. Bien qu'elle ne fût pas encore totalement restaurée, elle ne se dissipait plus.
+À l'instant même où cette faille apparut, une immense quantité d'énergie spirituelle provenant du jade céleste pénétra dans le corps de Wang Lin. Simultanément, les fragments de son âme originelle commencèrent à se condenser. Bien qu'elle ne fût pas encore totalement restaurée, elle ne se dissipait plus.
 
 Wang Lin ferma immédiatement les yeux et se mit à cultiver en silence.
 
@@ -26,7 +26,7 @@ Lorsque Wang Lin ouvrit les yeux, son regard était empreint d'une clarté nouve
 
 Après avoir réfléchi un instant, ses yeux s'illuminèrent et il sauta sur la bête moustique. Cette dernière poussa un rugissement joyeux et emporta Wang Lin.
 
-Wang Lin baissa la tête pour regarder le village des Nuages de Feu. Après avoir tué l'homme grand et costaud ainsi que l'autre colosse balafré, la majeure partie de sa colère s'était apaisée. Il tapota la grosse tête du moustique qui, poussant un cri, chargea en avant.
+Wang Lin baissa la tête pour regarder le village des Nuages de Feu. Après avoir tué l'homme grand et costaud ainsi que l'homme balafré, la majeure partie de sa colère s'était apaisée. Il tapota la grosse tête du moustique qui, poussant un cri, chargea en avant.
 
 « Plus lentement! » L'expression de Wang Lin changea. Sa culture n'étant revenue qu'au début de l'Établissement des Fondations, il ne pouvait supporter la vitesse de la bête moustique, dont le niveau se situait vers la fin de l'Âme Naissante.
 
@@ -50,7 +50,7 @@ Plusieurs grandes montagnes entouraient la Secte de l'Affinement de l'Âme, offr
 
 Les méthodes de la Secte de l'Affinement de l'Âme étaient très étranges et rarement vues sur la planète Suzaku; peu de gens en connaissaient la véritable raison.
 
-C'est précisément ce qui avait attiré Wang Lin. La carte contenait des informations extrêmement détaillées sur la secte, et il était convaincu que la personne qui lui avait vendu le jade en avait été, un temps, un disciple extérieur.
+C'est précisément ce qui avait attiré Wang Lin. La carte contenait des informations extrêmement détaillées sur la secte, et il était convaincu que la personne qui lui avait vendu cette carte de jade en avait été, un temps, un disciple extérieur.
 
 Pilu était, après tout, un pays de culture de rang 5, et d'innombrables familles de cultivateurs dépendaient des trois grandes sectes. Ces familles envoyaient une multitude de disciples vers les sectes tous les dix à quinze ans. Aucun de ces disciples n'obtenait de privilèges spéciaux: à moins d'un talent défiant les cieux, ils devaient tous commencer au bas de l'échelle.
 
@@ -74,7 +74,7 @@ Wang Lin soutint son regard avec déférence: « C'est précisément ce que le d
 
 Le vieil homme agita ses manches et déclara: « Tu arrives trop tard; la période d'admission des disciples extérieurs est depuis longtemps révolue. Rentre chez toi et reviens dans quelques années. » Sur ces mots, il s'apprêta à franchir l'entrée de la secte.
 
-Wang Lin ricana intérieurement mais garda un air respectueux. Affichant une expression peinée, il sortit une boîte scellée et dit: « Aîné, ceci est une épée volante que ce junior a trouvée il y a quelques années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Aîné. Ce disciple souhaite seulement devenir un disciple extérieur. »
+Wang Lin ricana intérieurement mais garda un air respectueux. Affichant une expression peinée, il sortit une boîte scellée et dit: « Aîné, ceci est une épée volante que ce junior a trouvée il y a de nombreuses années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Aîné. Ce disciple souhaite seulement devenir un disciple extérieur. »
 
 Wang Lin comprit aisément que cet homme n'était qu'au début du stade de la Formation du Noyau. Pour un cultivateur de ce niveau, l'épée qu'il présentait était une pièce de grande valeur.
 
@@ -98,7 +98,7 @@ Wang Lin frappa son sac de rangement, fit apparaître une épée volante et mont
 
 Peu après, celui-ci s'arrêta au bord d'une falaise. Un palais luxueux se dressait là, entouré de nombreuses habitations. Une fois au sol, le vieil homme cria: « Chang Dawei! »
 
-« J'arrive, Cheveux-Rouge! Pourquoi hurles-tu ainsi? » Une voix nonchalante s'échappa d'une des maisons. Bientôt, un homme d'âge moyen apparut, les cheveux en bataille comme s'ils n'avaient pas été lavés depuis des années.
+« J'arrive, Hong Maozi! Pourquoi hurles-tu ainsi? » Une voix nonchalante s'échappa d'une des maisons. Bientôt, un homme d'âge moyen apparut, les cheveux en bataille comme s'ils n'avaient pas été lavés depuis des années.
 
 Le vieil homme aux cheveux roux rit: « Voici un disciple que j'ai rencontré en chemin. Que dirais-tu de le prendre comme disciple extérieur? »
 
@@ -116,11 +116,11 @@ L'homme d'âge moyen tourna son regard vers Wang Lin: « Quel est ton nom? »
 
 Wang Lin simula une certaine douleur au cœur en sortant deux pierres spirituelles de qualité moyenne. Une fois les pierres récupérées, l'homme se détourna de lui et partit.
 
-Alors que Wang Lin s'apprêtait à s'éloigner, l'homme demanda soudain: « Qu'as-tu donné à Cheveux-Rouge? »
+Alors que Wang Lin s'apprêtait à s'éloigner, l'homme demanda soudain: « Qu'as-tu donné à Hong Maozi? »
 
 Wang Lin répondit honnêtement: « Une épée volante qu'un aîné m'a offerte autrefois. »
 
-« Pas étonnant que Cheveux-Rouge ait été si joyeux! Qing Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu travailles dur, tu pourrais avoir une chance de devenir un disciple central. » L'homme secoua la tête et retourna dans sa demeure.
+« Pas étonnant que Hong Maozi ait été si joyeux! Qing Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu as du talent, tu pourrais avoir une chance d'accéder à l'intérieur de la secte et de devenir disciple central. » L'homme secoua la tête et retourna dans sa demeure.
 
 À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte de l'Affinement de l'Âme depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager un mois plus tôt. Bien qu'il ne puisse pas localiser précisément Ceng Niu, il réagirait si celui-ci se trouvait dans un rayon de 50 kilomètres.
 

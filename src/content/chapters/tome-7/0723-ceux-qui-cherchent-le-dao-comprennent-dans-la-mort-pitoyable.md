@@ -8,7 +8,7 @@ slug: ceux-qui-cherchent-le-dao-comprennent-dans-la-mort-pitoyable
 ---
 « C'est... cet endroit est... l'espace de la perle défiant le ciel! » Les yeux de Wang Lin se plissèrent alors qu'il reconnut immédiatement les lieux.
 
-Il connaissait trop bien cet endroit. Il était imprégné de chaos où, par intermittence, des sphères de lumière brillaient intensément.
+Il connaissait trop bien cet endroit. Il était imprégné de chaos où, par intermittence, apparaissaient et disparaissaient des sphères de lumière.
 
 Sous l'effet de son regard, qui agit comme un catalyseur, ces sphères commencèrent aussitôt à muter. Celles qu'il observait se mirent soudainement à gonfler.
 

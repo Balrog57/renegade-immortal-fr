@@ -64,7 +64,7 @@ L'endroit était très désert; les rares cultivateurs présents n'étaient que 
 
 Au centre de l'éclat argenté, deux silhouettes apparurent, un homme et une femme. La femme était d'une grande beauté, vêtue d'une robe violette qui lui donnait l'allure d'une immortelle. Ses longs cheveux noirs lui conféraient une élégance suprême.
 
-L'homme portait également une robe violette, mais ses yeux étaient d'une froideur extrême. Il se tenait là, tel un arbre majestueux, distant et extraordinaire.
+L'homme portait également une robe violette; son apparence était ordinaire, mais ses yeux étaient d'une froideur extrême. Il se tenait là, tel un arbre majestueux, distant et extraordinaire.
 
 Les yeux de Wang Lin s'illuminèrent et il dit calmement: « La technique interdite de la Quatrième Sœur est vraiment impressionnante. »
 
@@ -78,9 +78,9 @@ Face à cette coalition, Wang Lin n'osait agir avec imprudence; il s'était donc
 
 La Quatrième Sœur reprit lentement: « Si le Septième Frère est intéressé par ce sortilège, je pourrai vous l'enseigner une fois que tout sera terminé. Cependant, pour l'instant, j'espère que vous accepterez de vous retirer en culture ici pendant trois ans. Dans trois ans, je reviendrai pour vous libérer! »
 
-L'expression de Wang Lin resta inchangée tandis qu'il inspectait les lieux. L'endroit était entouré de rochers mystérieux gravés de runes. Vu d'en haut, on comprendrait aisément qu'il s'agissait de restrictions.
+L'expression de Wang Lin resta inchangée tandis qu'il inspectait les lieux. L'endroit était entouré de rochers mystérieux, dont beaucoup étaient entaillés de profonds sillons. Vu d'en haut, il était évident qu'il s'agissait d'une formation de restrictions.
 
-« La Sœur aînée pense vraiment qu'une simple restriction peut me piéger? » Les yeux de Wang Lin brillèrent et il agita sa main droite. Un rayon de lumière blanche apparut et se mua en une épée. Wang Lin saisit l'arme et la projeta vers un rocher au sol.
+« La Sœur aînée pense vraiment qu'une simple formation peut me piéger? » Les yeux de Wang Lin brillèrent et il agita sa main droite. Un rayon de lumière blanche apparut et se mua en une épée. Wang Lin saisit l'arme et la projeta vers un rocher au sol.
 
 Mais avant que l'épée n'ait parcouru 330 mètres, elle ralentit, se brisa en éclats de lumière et disparut.
 
@@ -90,7 +90,7 @@ Wang Lin fronça les sourcils.
 
 Elle se retourna pour lancer un regard éloquent à Wang Lin avant de murmurer: « Frère aîné, la dette que je vous ai contractée autrefois est désormais remboursée. À partir de maintenant, il n'y a plus aucun lien entre nous! » Sur ces mots, elle s'élança vers la Secte du Destin Céleste.
 
-Wang Lin observa sa silhouette disparaître lentement, le regard brillant d'une lueur étrange. Ses yeux devinrent plus froids et il sortit l'épée céleste. D'un geste vif, il libéra une onde d'énergie d'épée large d'une dizaine de mètres qui frappa le rocher voisin.
+Wang Lin observa sa silhouette disparaître lentement, le regard brillant d'une lueur étrange. Ses yeux devinrent plus froids et il sortit l'épée céleste. D'un geste vif, il libéra une onde d'énergie d'épée large d'une dizaine de mètres qui fendit le vide voisin.
 
 Au début, l'énergie était puissante, mais elle s'étiolait à mesure qu'elle progressait. Après trois respirations, elle s'était totalement éteinte.
 
@@ -104,7 +104,7 @@ Des veines saillirent sur le front de Wang Lin, puis il poussa un nouveau rugiss
 
 Le visage de Wang Lin devint livide et son corps fut projeté en arrière comme une météorite. Il tomba vers le sol à une vitesse prodigieuse, mais alors qu'il approchait de la surface, il fit pivoter son corps pour dissiper l'impact. Finalement, il se stabilisa sur un rocher, fixa le ciel d'un regard sombre et resta silencieux dans sa réflexion.
 
-Peu après, il frappa son sac de rangement et l'épée céleste en sortit. Wang Lin pointa l'arme vers l'avant. Xu Liguo comprit l'ordre et, poussant un rugissement, s'élança.
+Peu après, il frappa son sac de rangement et l'épée céleste en sortit. Wang Lin pointa l'arme vers l'avant. Xu Liguo, qui se trouvait à l'intérieur de l'épée céleste, comprit l'ordre et, poussant un rugissement, s'élança.
 
 La lame demi-lunaire suivit rapidement l'épée céleste pour charger dans les cieux. La force revint à la charge, cette fois plus puissante qu'auparavant, arrachant à Xu Liguo un cri de détresse.
 
@@ -112,4 +112,4 @@ La lame demi-lunaire suivit rapidement l'épée céleste pour charger dans les c
 
 Les yeux de Wang Lin s'illuminèrent; d'un geste de la main, il rappela l'épée céleste. La lame demi-lunaire tourna autour de l'épée en émettant des ondes de chants de lames, semblant elle aussi profondément frustrée.
 
-« Ils veulent me sceller ici jusqu'à ce que le choix du véritable disciple soit arrêté. Comment pourrais-je les laisser faire? Puisque cet endroit est désolé, je m'en servirai pour ma culture. Une fois que j'aurai atteint le stade intermédiaire de la Transformation de l'Âme, je pourrai sûrement briser cet endroit et rejoindre directement la Secte du Destin Céleste pour disputer le titre de véritable disciple! » Sur ces mots, la silhouette de Wang Lin quitta le rocher pour s'enfoncer dans les profondeurs de la forêt.
+« Ils veulent me sceller ici jusqu'à ce que le choix du véritable disciple soit arrêté. Comment pourrais-je les laisser faire? Puisque cet endroit est désolé, je m'en servirai pour ma culture. Une fois que j'aurai atteint le stade intermédiaire de la Transformation de l'Âme, je pourrai sûrement briser cet endroit et rejoindre directement la Secte du Destin Céleste! » Sur ces mots, la silhouette de Wang Lin quitta le rocher pour s'enfoncer dans les profondeurs de la forêt.

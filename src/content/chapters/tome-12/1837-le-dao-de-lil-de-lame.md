@@ -38,7 +38,7 @@ Le septième corps spirituel trembla et libéra une lumière fantomatique qui en
 
 Des ondes semblables à des filaments spectraux s'échappèrent du septième corps pour pénétrer dans le corps de Wang Lin par ses orifices.
 
-L'expression de Wang Lin restait calme et, tandis que ces volutes de fumée imprégnaient son être, il entendit une voix murmurer à ses oreilles. Elle s'inscrivit lentement dans son âme jusqu'à devenir une seconde nature.
+L'expression de Wang Lin restait calme et, tandis que ces volutes de fumée imprégnaient son être, il entendit une voix murmurer à ses oreilles. Ces incantations s'inscrivirent lentement dans son âme jusqu'à devenir une seconde nature.
 
 Le temps passa lentement; Wang Lin resta au huitième étage pendant trois jours. Durant cette période, il ne bougea pas d'un iota, absorbant l'Origine de la Fantaisie de l'Âme du corps spirituel de sept pouces.
 
@@ -74,9 +74,9 @@ L'Ancien Taureau Vert, resté à l'intérieur du Pic Céleste Vert, regarda Wang
 
 « Le premier ancêtre créa la Secte de la Grande Âme, et son passé était extrêmement mystérieux. Même les générations d'ancêtres suivantes ignoraient qui il était. Une rumeur disait que le Dao de l'Œil de l'Âme possédait originellement deux parties, et que l'autre s'appelait l'Œil du Dao de l'Âme! »
 
-« On raconte que le premier ancêtre était un disciple du Dao extrêmement puissant d'une secte cachée sur le Continent Astral Immortel, mais qu'à son époque, ils étaient deux... »
+« On raconte que le premier ancêtre était un disciple de la lignée d'une secte extrêmement puissante et cachée sur le Continent Astral Immortel, mais qu'à son époque, ils étaient deux... »
 
-« Ils héritèrent du Dao de l'Œil de l'Âme et de l'Œil du Dao de l'Âme... Puis, pour une raison inconnue, l'ancêtre renonça à la chance d'obtenir le Dao complet. Il partit seul vers le Continent du Taureau Céleste qui venait d'être créé par l'Ancêtre Céleste, puis il fonda la Secte de la Grande Âme ici... »
+« Ils héritèrent du Dao de l'Œil de l'Âme et de l'Œil du Dao de l'Âme... Puis, pour une raison inconnue, l'ancêtre renonça au droit de succéder à la lignée. Il partit seul vers le Continent du Taureau Céleste qui venait d'être créé par l'Ancêtre Céleste, puis il fonda la Secte de la Grande Âme ici... »
 
 « Il y avait aussi des rumeurs... » L'estimable Taureau Vert pensa à la dernière rumeur et ne put s'empêcher de trembler. Il regarda vers le lointain, en direction du Continent Central.
 

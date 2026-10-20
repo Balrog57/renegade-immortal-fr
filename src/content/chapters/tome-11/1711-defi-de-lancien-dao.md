@@ -52,7 +52,7 @@ Le vortex se dissipa lentement pour disparaître sans laisser de trace. Tout rev
 
 Toutes les bêtes féroces s'étaient cachées. Elles tremblaient, n'osant émettre le moindre bruit. Une pression semblait se propager dans ce calme étrange.
 
-Wang Lin était inconscient. S'il ne se réveillait pas, cet endroit resterait plongé dans le silence pendant dix mille ans. Aucun son ne jaillirait ici tant qu'il ne reprendrait pas connaissance. Cette pression émanait de son corps et se diffusait dans tout l'environnement.
+Wang Lin était inconscient. S'il ne se réveillait pas, cet endroit resterait plongé dans le silence pendant dix mille ans. Et s'il ne se réveillait jamais, plus aucun son ne troublerait cet endroit. Cette pression émanait de son corps et se diffusait dans tout l'environnement.
 
 Le corps original de Wang Lin dormait, tandis que son avatar flottait à l'extérieur de l'autel. L'avatar restait assis là, les yeux clos, parfaitement immobile.
 
@@ -100,13 +100,13 @@ Wang Lin parla lentement. C'était comme s'il murmurait pour lui-même, mais aus
 
 Cette aura pénétra la main droite de Wang Lin alors qu'il pressait à nouveau le bras. Un grondement tonitruant retentit et le bras cessa toute résistance. Il rétrécit lentement jusqu'à s'intégrer à la main droite de Wang Lin, transformant soudainement celle-ci!
 
-La main droite de Wang Lin était extrêmement rugueuse comparée à son bras gauche, couverte d'innombrables runes complexes. Elle dégageait également une teinte bleu-vert qui aurait pu effrayer quiconque au premier regard.
+La main droite de Wang Lin était extrêmement rugueuse comparée à sa main gauche, couverte d'innombrables runes complexes. Elle dégageait également une teinte bleu-vert qui aurait pu effrayer quiconque au premier regard.
 
 Il leva sa main devant lui. Le regard de Wang Lin était serein tandis qu'il observait son nouveau membre. Après un long moment, il saisit le vide!
 
 « Déchirure du Ciel! »
 
-L'espace trembla et, sous la poussée de la main droite de Wang Lin, le monde sembla s'effondrer. L'ombre d'un bras colossal apparut derrière lui et déchira l'espace. Une immense faille surgit devant Wang Lin et s'élargit, ouverte par sa volonté.
+L'espace trembla et, sous la poussée de la main droite de Wang Lin, le monde sembla s'effondrer. L'ombre d'un bras colossal apparut derrière lui et déchira l'espace. Une immense faille surgit devant Wang Lin et s'élargit, qu'il arracha de force.
 
 Cette puissance de déchirure pouvait tuer un cultivateur du stade initial du Vide Arcanique! Même les cultivateurs du stade intermédiaire du Vide Arcanique auraient dû battre en retraite de peur!
 

@@ -98,7 +98,7 @@ Cette scène incroyable fit écarquiller les yeux de Lie Yunzi. Même avec son n
 
 Xu Ting serra les poings, mais le choc dans son regard était immense.
 
-Wang Lin ouvrit le parchemin sans aucune hésitation après avoir poussé ce rugissement!
+Wang Lin ouvrit entièrement le parchemin sans aucune hésitation après avoir poussé ce rugissement!
 
 Un caractère « Bataille » extrêmement flamboyant apparut sur le parchemin, semblant prêt à s'envoler de l'intérieur. C'était prodigieux!
 

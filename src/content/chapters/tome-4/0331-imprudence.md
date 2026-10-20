@@ -8,7 +8,7 @@ slug: imprudence
 ---
 Au même instant où la voix retentit, d'innombrables âmes errantes noires surgirent comme des démons descendant du ciel et se précipitèrent vers les insectes.
 
-Plusieurs insectes avaient déjà pénétré le corps de Liu Fei. Ses yeux étaient empreints de désespoir lorsqu'une brise glaciale souffla sur lui. Les insectes à l'intérieur de son corps en sortirent et s'enfuirent comme s'ils venaient de rencontrer leur prédateur naturel.
+Plusieurs insectes avaient déjà pénétré le corps de Liu Fei. Ses yeux étaient empreints de désespoir lorsqu'une brise glaciale souffla sur lui. Les insectes qui s'apprêtaient à dévorer son Âme Naissante en sortirent et s'enfuirent comme s'ils venaient de rencontrer leur prédateur naturel.
 
 Liu Fei fut stupéfait. Son regard se posa sur une silhouette de taille modeste derrière Zhan Bai.
 
@@ -54,7 +54,7 @@ Le regard de Wang Lin devint glacial. Cette froideur n'était apparue que lorsqu
 
 « C'est donc toi qui veux anéantir la Secte Ciel Nuageux... » La voix de Wang Lin était aussi glaciale que les vents des enfers.
 
-Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que n'importe quel souffle qu'il avait jamais ressenti. Comme on dit, la réputation d'un homme est l'ombre de l'arbre. Wang Lin, capable d'arracher un bras à Papillon Rouge, apparut derrière Zhan Bai sans avoir été détecté. Cela terrifia profondément ce dernier.
+Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que n'importe quel souffle qu'il avait jamais ressenti. Comme on dit, la réputation d'un homme est l'ombre de l'arbre. Wang Lin, capable d'arracher un bras à Papillon Rouge, apparut derrière Zhan Bai sans avoir été détecté. Cela le choqua profondément.
 
 Avant même que le combat ne commence, l'idée de s'enfuir lui traversa l'esprit.
 
@@ -66,7 +66,7 @@ L'expression de Zhan Bai changea radicalement. Il recula immédiatement.
 
 « Imprudent? » Wang Lin laissa échapper un rire démoniaque. Sa main traça un sceau, puis pointa vers l'avant. Des dragons façonnés par le brouillard de restriction jaillirent de la brume noire et se rassemblèrent devant Wang Lin, se condensant en une lance!
 
-Cette lance était si puissante qu'elle ébranla même Papillon Rouge, qui dut utiliser son trésor de vie pour riposter.
+Jadis, cette lance avait déjà ébranlé Papillon Rouge, qui n'avait pu riposter qu'avec son trésor de vie.
 
 À l'instant où la lance apparut, le ciel s'obscurcit. Le brouillard noir recouvrit les cieux et tous les insectes poussèrent des cris stridents, comme face à leur ennemi naturel.
 
@@ -80,7 +80,7 @@ Le mouvement de retraite de Zhan Bai fut soudainement ralenti!
 
 « Imprudent? »
 
-Profitant de cette hésitation, la lance de Wang Lin bondit en avant dans un rugissement tonnerre.
+Profitant de cette hésitation, la lance de Wang Lin bondit en avant dans un rugissement de tonnerre.
 
 Zhan Bai poussa un cri de rage. Sa main traça un sceau et l'image d'un mille-pattes apparut soudainement sur son front. D'innombrables pattes surgirent sur tout son corps, formant un cocon autour de lui.
 
@@ -114,13 +114,13 @@ Ouvrir une simple faille était à la portée de tout cultivateur de la Formatio
 
 L'ouverture d'une telle faille provoquerait l'effondrement de l'énergie spirituelle de tout Chu; cela relevait de la pure folie.
 
-Le regard de Wang Lin demeurait impavide. Alors qu'il continuait d'avancer, il pointa le ciel. Des anneaux de lumière apparurent soudainement derrière lui, formant un gigantesque parchemin noir et blanc.
+Le regard de Wang Lin demeurait impavide. Alors qu'il continuait d'avancer, il pointa le ciel, puis saisit le vide à distance. Des anneaux de lumière apparurent soudainement derrière lui, formant un gigantesque parchemin noir et blanc.
 
 « Tu as de la chance. Tu seras la deuxième offrande au domaine de la vie et de la mort! » La voix de Wang Lin était glaciale. Sa main droite pointa Zhan Bai tandis qu'il lançait: « Changements de vie et de mort! »
 
 Le parchemin derrière lui sembla être agité par une main géante et s'ouvrit. Il couvrait près de 5 kilomètres et paraissait d'une majesté absolue. Même la faille spatiale se referma devant la puissance du rouleau.
 
-Des lambeaux de brume grise s'échappèrent du parchemin.
+De fins filaments de brume grise s'échappèrent du parchemin.
 
 C'était la première fois qu'il utilisait son domaine à pleine puissance. Il mit dans cette attaque tout ce qu'il avait appris et compris de la vie, de la mort et du cycle céleste de la réincarnation.
 
@@ -128,7 +128,7 @@ Zhan Bai se plaignit intérieurement, mais sa fierté l'emporta. Ses yeux devinr
 
 Zhan Bai hurla: « Ceng Niu, il n'y a aucune haine entre nous! Pourquoi aller si loin?! Je n'ai tué que quelques disciples de ta Secte Ciel Nuageux! »
 
-« Désormais, il y en a une! » Les yeux de Wang Lin brillèrent et il pointa Zhan Bai. Un rugissement tonnerre émana du parchemin et un vortex apparut, entouré d'un épais brouillard gris.
+« Désormais, il y en a une! » Les yeux de Wang Lin brillèrent et il pointa Zhan Bai. Un rugissement de tonnerre émana du parchemin et un vortex apparut, entouré d'un épais brouillard gris.
 
 En regardant attentivement, on pouvait distinguer des visages humains au sein du vortex. Tous étaient des personnes mortes par la main de Wang Lin.
 
@@ -152,6 +152,6 @@ Dès que son âme originelle apparut, elle poussa un rugissement et quitta son c
 
 Les yeux de Wang Lin pétillèrent: « Tu surestimes tes forces! »
 
-Dans un fracas retentissant, le vortex s'étendit soudainement et dévora l'âme originelle de Zhan Bai, tel un ciel impitoyable. Des vagues de cris désespérés s'en échappèrent, mais ils s'estompèrent rapidement. Le parchemin disparut et tout revint à la normale, comme si rien ne s'était produit.
+Dans un fracas retentissant, le vortex s'étendit soudainement et dévora l'âme originelle de Zhan Bai, tel un ciel impitoyable. Des vagues de cris désespérés s'en échappèrent, mais ils s'estompèrent peu à peu. Le parchemin disparut et tout revint à la normale, comme si rien ne s'était produit.
 
 Wang Lin agita sa main droite et le corps de Zhan Bai s'effondra en un amas de chair et de sang. Des asticots grouillaient partout dans son corps, dégageant une odeur fétide.

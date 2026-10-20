@@ -56,7 +56,7 @@ Le jade entre les mains de Wang Lin n'était pas non plus la véritable techniqu
 
 Le temps passa lentement tandis qu'il s'immergeait dans l'étude de la Technique d'Évasion Terrestre. Ce n'est que le lendemain matin que Wang Lin ouvrit les yeux, le visage éclairé d'une lueur de compréhension. Au lieu de se lever, il frappa le sol de ses deux mains. Sa silhouette disparut soudainement pour réapparaître à trente pieds de là.
 
-Une lueur de joie éclaira son visage et il ne put s'empêcher de murmurer: « Ce corps de Ma Liang a bien plus de talent et de racine spirituelle que mon précédent. Bien qu'il ne soit pas de rang supérieur, il reste de qualité moyenne, ce qui rend l'apprentissage de cette pseudo-Technique d'Évasion Terrestre abordable. Mais je devrai encore m'entraîner longtemps pour la maîtriser véritablement. »
+Une lueur de joie éclaira son visage et il ne put s'empêcher de murmurer: « Ce corps de Ma Liang a bien plus de talent et de racine spirituelle que mon précédent. Bien qu'il ne soit pas exceptionnel, il reste de qualité moyenne, ce qui rend l'apprentissage de cette pseudo-Technique d'Évasion Terrestre abordable. Mais je devrai encore m'entraîner longtemps pour la maîtriser véritablement. »
 
 Wang Lin sortit le seau en bois rempli de liquide spirituel, en but une grande gorgée, puis s'assit en méditation pour respirer. Une heure plus tard, toute la fatigue due à une nuit passée à tâtonner sur la Technique d'Évasion Terrestre avait disparu.
 
@@ -114,7 +114,7 @@ Alors qu'ils scellaient les volcans, tous les cultivateurs de l'Âme Naissante n
 
 Leurs actions donnaient l'impression qu'elles se souciaient peu des sceaux. Peu à peu, le cœur des cultivateurs de l'Âme Naissante qui participaient au scellement se fit de plus en plus lourd. Même les plus optimistes changèrent d'avis.
 
-Wang Lin n'ignorait rien de tout cela alors qu'il était plongé dans l'apprentissage du raffinage des trésors magiques. Il savait que les bêtes de feu finiraient par surgir, mais il devait attendre dix jours que Lin Tao lui apporte la carte. Ce n'est qu'à ce moment-là qu'il pourrait partir. Il serait trop difficile de trouver une carte après avoir pénétré dans un autre pays.
+Wang Lin n'était pas totalement ignorant de tout cela alors qu'il était plongé dans l'apprentissage du raffinage des trésors magiques. Il savait que les bêtes de feu finiraient par surgir, mais il devait attendre dix jours que Lin Tao lui apporte la carte. Ce n'est qu'à ce moment-là qu'il pourrait partir. Il serait trop difficile de trouver une carte après avoir pénétré dans un autre pays.
 
 Il restait encore quatre jours avant les retrouvailles prévues avec Lin Tao. Wang Lin retira son sens divin du jade. Bien que fatigué, il affichait une expression joyeuse. La technique de raffinage était très profonde et ne pouvait être maîtrisée en peu de temps. Constatant cela, il concentra son attention sur le raffinage des épées volantes.
 

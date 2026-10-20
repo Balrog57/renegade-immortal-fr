@@ -40,7 +40,7 @@ Wang Lin fronça les sourcils. La valeur de cet objet était certainement bien s
 
 Le vieil homme fronça également les sourcils. Il émit un grognement, comme s'il transmettait un message par la voix. Ces évaluateurs n'y comprenaient rien. Avec sa culture, il pouvait affirmer que les seules veines sanguines à l'intérieur de l'objet suffiraient à doubler sa valeur, sans même tenir compte de la fraction de domaine qu'elle contenait.
 
-Ces 5 000 pierres spirituelles ne suffiraient même pas pour la recette de pilule, dont le prix était déjà fixé à 10 000 pierres spirituelles.
+Ces 5 000 pierres spirituelles ne suffiraient même pas pour la recette de pilule, dont le prix avait déjà dépassé 10 000 pierres spirituelles.
 
 Wang Lin resta calme et ne dit mot. Au lieu de cela, il regarda vers la porte de la pièce. Peu après, une très belle jeune fille monta du deuxième étage. Elle salua Wang Lin, déposa un jade violet et repartit.
 
@@ -76,7 +76,7 @@ Le regard du vieil homme restait calme; il ne semblait dégager aucune énergie 
 
 « Si vous n'avez pas une bonne raison de m'avoir attiré ici, ne me blâmez pas pour ma cruauté », dit Wang Lin, le visage impassible.
 
-Les yeux de la jeune fille en robe verte pétillèrent. Elle répliqua: « Le Senior est très rusé. Cette petite junior vous admire. »
+Les yeux de la jeune fille en robe verte pétillèrent. Elle répliqua: « Le Senior est très perspicace. Cette petite junior vous admire. »
 
 Cette jeune fille était présente au troisième étage; elle savait donc tout ce qui s'était passé. Elle savait que Wang Lin était un cultivateur de la Formation de l'Âme, et après l'avoir vu offrir 20 000 pierres spirituelles, elle avait augmenté le prix de 10 000 supplémentaires. Il y avait forcément une raison à cela. De plus, après avoir quitté le Pavillon de Raffinage des Trésors, ils n'étaient pas partis immédiatement mais l'avaient attendu ici. Wang Lin comprit instantanément son stratagème.
 
@@ -94,7 +94,7 @@ Le rayon d'énergie spirituelle frappa le parasol, provoquant de nombreuses fiss
 
 Wang Lin n'avait aucune intention de le tuer. Son regard se porta sur la jeune fille. Celle-ci manifesta une pointe de crainte dans ses yeux. Elle sortit une boîte scellée et la tendit à Wang Lin.
 
-Ce dernier saisit la boîte, l'ouvrit, l'examina avec son Sens Divin pour en faire une copie, puis renvoya le jade à la jeune fille en demandant: « Parlez. Pourquoi m'avez-vous attiré ici? »
+Ce dernier saisit la boîte, la brisa d'une légère tape, examina le jade avec son Sens Divin pour en faire une copie, puis renvoya le jade à la jeune fille en demandant: « Parlez. Pourquoi m'avez-vous attiré ici? »
 
 La jeune fille rattrapa le jade, prit une profonde inspiration et dit: « Senior, cette junior a été impolie, mais elle y a été contrainte. Veuillez considérer la valeur de cette recette de pilule de rang 6 et aidez-moi une fois. »
 
@@ -114,4 +114,4 @@ La pilule Retour à l'Origine n'avait qu'un seul usage: multiplier par plusieurs
 
 En conséquence, l'individu deviendrait un cristal de forme humaine avec son âme scellée à l'intérieur. Après une très longue période de raffinement, ce cristal deviendrait de plus en plus petit, au point d'avoir une chance de devenir une fausse pierre spirituelle de qualité supérieure.
 
-Dans l'Antiquité, il n'y avait aucun moyen d'obtenir des pierres spirituelles de qualité supérieure autrement que par leur formation naturelle; elles étaient donc extrêmement rares. C'est ainsi que furent créées les pilules Retour à l'Origine de haut rang. En réalité, bien que le taux de réussite fût faible, la plupart des pierres spirituelles de qualité supérieure de l'époque étaient ces faux artefacts.
+Dans l'Antiquité, il n'y avait aucun moyen d'obtenir des pierres spirituelles de qualité supérieure autrement que par leur formation naturelle; elles étaient donc extrêmement rares. C'est ainsi que furent créées les pilules Retour à l'Origine de haut rang. En réalité, bien que le taux de réussite fût faible, la plupart des pierres spirituelles de qualité supérieure de l'époque étaient de ces fausses pierres spirituelles.

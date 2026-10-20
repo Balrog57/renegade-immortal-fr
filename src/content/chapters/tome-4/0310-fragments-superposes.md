@@ -68,7 +68,7 @@ Wang Lin songea: « Je me demande si elle a atteint ce stade où l'on n'a plus b
 
 Depuis qu'il avait atteint le stade de la Formation de l'Âme, Wang Lin avait le sentiment croissant qu'en dehors de quelques techniques extrêmement mystérieuses, presque toutes les autres devenaient inutiles. Un cultivateur de la Formation de l'Âme pouvait facilement commander aux forces célestes d'un simple geste de la main; le plus important était donc de comprendre comment manipuler son propre domaine.
 
-Le domaine de la vie et de la mort était très imprévisible, centré sur le concept du "changement". Pourtant, même ce simple changement était difficile à saisir. Après tout, Wang Lin ne faisait que commencer à tenter d'en comprendre l'essence.
+Le domaine de la vie et de la mort était très changeant, centré sur le concept du "changement". Pourtant, même ce simple changement était difficile à saisir. Après tout, Wang Lin ne faisait que commencer à tenter d'en comprendre l'essence.
 
 Lorsqu'il aura la capacité de condenser toute l'étendue de son domaine en une seule technique, on pourra considérer qu'il le maîtrise: il tiendrait la vie et la mort dans chaque main pour remplacer le cycle de réincarnation des cieux.
 

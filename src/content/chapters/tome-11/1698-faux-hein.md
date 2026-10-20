@@ -18,7 +18,7 @@ Au moment où elle entra, une lumière aux sept couleurs enveloppa tout le Navir
 
 Dès que le Daoïste aux Sept Couleurs eut touché terre, Wang Lin, qui se trouvait à la troisième couche, ouvrit soudainement les yeux et leva la tête. Il restait calme, un éclat vif traversant son regard.
 
-« Elle l'a bel et bien fait », ricana Wang Lin. Une fois le plan de Fan Shanmeng déjoué par lui et le danger caché neutralisé, elle avait naturellement choisi d'emprunter la puissance du Daoïste aux Sept Couleurs pour le supprimer.
+« Elle l'a bel et bien fait », ricana Wang Lin. Une fois le plan de Fan Shanmeng déjoué par lui et le danger caché neutralisé, elle avait naturellement choisi d'emprunter la puissance du Daoïste aux Sept Couleurs pour l'intimider.
 
 À ce moment précis, le premier pont sur lequel se trouvait le Daoïste aux Sept Couleurs était sous le contrôle de Wang Lin. Par conséquent, ils allaient indirectement se retrouver face à face. Il devait consacrer une partie de son énergie au contrôle du premier pont afin d'empêcher le Daoïste aux Sept Couleurs d'y pénétrer.
 
@@ -74,7 +74,7 @@ Désormais, puisqu'il détenait l'initiative, il n'allait naturellement pas la l
 
 La majorité des restrictions sur la troisième couche étaient inédites pour Wang Lin. En les étudiant, sa compréhension de l'art des restrictions augmentait à pas de géant.
 
-Le temps passa lentement. Les grondements tonitruants de la deuxième couche continuaient de résonner. Des craquements se propagèrent et la deuxième couche finit par s'effondrer complètement!
+Le temps passa lentement. Au bout de deux heures, les grondements tonitruants de la deuxième couche continuaient de résonner. Des craquements se propagèrent et la deuxième couche finit par s'effondrer complètement!
 
 Le corps de Fan Shanmeng trembla et elle cracha du sang. Après avoir reculé de quelques pas, une lumière aux sept couleurs se propagea rapidement depuis la deuxième couche effondrée.
 
@@ -90,7 +90,7 @@ Une épaisse brume remplissait la quatrième couche du Navire Démon des Âmes. 
 
 « Wang Lin, que veux-tu exactement? J'admets avoir comploté contre toi, mais c'était pour notre objectif commun. Bien que tu doives me remettre ton Serment de Sang, je te remettrai aussi le mien. Ce n'est pas comme si je voulais te nuire!
 
-« Maintenant que nous en sommes arrivés là, nous devrions échanger nos Serments de Sang et tu devrais abandonner le contrôle du vaisseau. Peut-être qu'ainsi, nous aurons une chance de survivre! » Fan Shanmeng paraissait anxieuse alors qu'elle regardait Wang Lin, qui se trouvait sur la quatrième couche.
+« Maintenant que nous en sommes arrivés là, nous devrions échanger nos Serments de Sang et tu devrais abandonner le contrôle du vaisseau pour que je le contrôle entièrement. Peut-être qu'ainsi, nous aurons une chance de survivre! » Fan Shanmeng paraissait anxieuse alors qu'elle regardait Wang Lin, qui se trouvait sur la quatrième couche.
 
 Wang Lin regarda également Fan Shanmeng et, après un long silence, il éclata soudain de rire.
 
@@ -104,7 +104,7 @@ Wang Lin soupira. Il ne semblait nullement inquiet des fissures qui se propageai
 
 « Tu es Fan Shanlu! En fait, depuis l'instant où je suis monté à bord de ce navire, tu complotes contre moi. Peut-être que si j'avais remis le Serment de Sang, rien de tout cela ne serait arrivé.
 
-« Cependant, craignant que je ne le remette, tu as craché cette bouchée de sang. Tu as utilisé une méthode qui m'est inconnue pour changer ton apparence et ton aura afin de me faire croire que tu étais Fan Shanmeng!
+« Cependant, craignant que je ne le remette pas, tu as craché cette bouchée de sang. Tu as utilisé une méthode qui m'est inconnue pour changer ton apparence et ton aura afin de me faire croire que tu étais Fan Shanmeng!
 
 « Grâce à ce malentendu, tu m'as révélé le secret de ce monde des grottes pour que je te croie. Ensuite, pendant que je brisais les couches de restrictions, si certaines de tes réactions étaient réelles, d'autres étaient également simulées!
 
@@ -116,12 +116,12 @@ Wang Lin soupira. Il ne semblait nullement inquiet des fissures qui se propageai
 
 « Tu ne comprends pas... Tout ici est faux! Cette deuxième couche, la troisième, la quatrième, tout cela est un leurre. Toi aussi, tu es un leurre. Le Daoïste aux Sept Couleurs est peut-être réel, mais celui qui se trouve sur ce navire est un faux. C'est clairement un monde d'illusion!
 
-« Quel monde d'illusion réaliste. J'ai déjà rencontré des sorts similaires par le passé, Wang Lin, mais je n'en ai jamais vu un aussi terrifiant de réalisme! »
+« Quel monde d'illusion réaliste. Moi, Wang Lin, j'ai déjà rencontré des sorts similaires par le passé, mais je n'en ai jamais vu un aussi terrifiant de réalisme! »
 
 La femme eut l'air stupéfaite un instant, puis elle esquissa un sourire amer et recula de quelques pas. Un regard d'incrédulité dans les yeux, elle s'adressa amèrement à Wang Lin:
 
 « Faux? Wang Lin, es-tu vraiment devenu fou? Toi... Si tu ne veux pas échanger les Serments de Sang, soit, mais dire que tout est faux... »
 
-Une lueur glaciale traversa les yeux de Wang Lin alors qu'il leva la main droite et frappa violemment vers la troisième couche en plein effondrement!
+Une lueur glaciale traversa les yeux de Wang Lin alors qu'il leva la main droite et frappa violemment vers la troisième couche au bord de l'effondrement!
 
 Ce coup fit s'écrouler la troisième couche, libérant une lumière aux sept couleurs qui enveloppa la quatrième couche. Au même instant, la silhouette du Daoïste aux Sept Couleurs se rapprocha irrémédiablement.

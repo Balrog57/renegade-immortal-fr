@@ -32,7 +32,7 @@ Wang Lin était assis en position du lotus sous terre, les yeux clos. Entouré d
 
 Une quantité immense de jades célestes était nécessaire pour atteindre le stade avancé de la Transformation de l'Âme. Wang Lin ne prit aucun repos, se concentrant intensément sur l'absorption de cette énergie dans son corps. Il n'avait pas le temps de la fusionner avec sa propre essence; il la condensa donc en une substance similaire au cristal démoniaque.
 
-Il avait étudié le cristal démoniaque pendant longtemps au sein de la Tribu du Affinement de l'Âme, il en connaissait donc parfaitement la structure. Si l'énergie spirituelle démoniaque pouvait être condensée en un cristal, alors l'énergie spirituelle céleste le pouvait tout autant.
+Il avait étudié le cristal démoniaque pendant longtemps au sein de la Tribu de l'Affinement de l'Âme, il en connaissait donc parfaitement la structure. Si l'énergie spirituelle démoniaque pouvait être condensée en un cristal, alors l'énergie spirituelle céleste le pouvait tout autant.
 
 Auparavant, il n'avait pas voulu gaspiller de jades célestes pour tenter l'expérience, mais maintenant qu'il en avait suffisamment, il commença ses tentatives. Une fois qu'une masse colossale d'énergie spirituelle céleste eut accumulé, un changement s'opéra.
 
@@ -70,7 +70,7 @@ C'était la première fois que Wang Lin faisait face à un tel phénomène. Son 
 
 C'était comme si un mortel regardait dans un miroir et ne voyait que tout ce qui l'entourait, sauf son propre reflet.
 
-Yao Xixue dit froidement: « Inutile de chercher. À moins d'avoir le niveau de culture d'un général démon, il est impossible de la détecter! »
+Yao Xixue dit froidement: « Inutile de chercher. À moins d'avoir le niveau de culture d'un commandant en chef, il est impossible de la détecter! »
 
 Wang Lin rétracta son sens divin et admira grandement cette formation. Il demanda: « Cette formation a-t-elle été créée par votre père, l'Ancêtre Sanguin? »
 
@@ -108,7 +108,7 @@ Yao Xixue retrouva son équilibre un demi-souffle après Wang Lin. À cet instan
 
 L'endroit ressemblait au vide spatial, sans distinction entre le ciel et la terre. Il n'y avait que des éclats de lumière vive qui permettaient de tout distinguer nettement.
 
-Un sentier sinueux et escarpé, d'environ 33 mètres de large, s'étirait au loin. C'était l'unique passage, et il n'était pas fixe; il oscillait de gauche à droite selon un rythme régulier.
+Un sentier sinueux, d'environ 33 mètres de large, s'étirait au loin. C'était l'unique passage, et il n'était pas fixe; il oscillait de gauche à droite selon un rythme régulier.
 
 Wang Lin se tenait sur une plateforme d'environ 330 mètres de large où le tableau de transfert avait été secrètement gravé.
 

@@ -110,7 +110,7 @@ Les yeux du fou devinrent à nouveau confus sous l'effet de ce contact, et l'emp
 
 « Wang Lin, puisque tu as l'intention de partir, je ne te ferai pas d'adieux. La mémoire de Dao Fei semble revenir, je vais donc l'emmener au lieu de culture isolée de l'Ancêtre Céleste, sous le palais. Peut-être pourra-t-il s'y rétablir complètement. » L'Empereur Céleste sourit à Wang Lin, puis recula dans le vortex avec le fou. Tous deux disparurent.
 
-Le vent et la neige continuaient de souffler. Tout n'était plus qu'une illusion, comme si rien ne s'était produit. Wang Lin resta là, témoin de la scène. Après un moment de réflexion, ses yeux jaillirent d'une lumière dorée monstrueuse!
+Le vent et la neige continuaient de souffler. Tout n'était plus qu'une illusion, comme si rien ne s'était produit. Wang Lin resta là, témoin de la scène. Après un moment de réflexion, ses yeux jaillirent d'un éclat monstrueux!
 
 « Le lieu de culture isolée de l'Ancêtre Céleste, encore! Ses mots révèlent même qu'il se trouve sous le palais! Il a fait cela pour m'obliger à y aller! » L'expression de Wang Lin devint sombre alors qu'il fixait la cité ancestrale.
 

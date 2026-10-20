@@ -14,7 +14,7 @@ Tout en courant, le visage de Sun Tai était sombre et il maudissait: « Tu croi
 
 Dès que Wang Lin toucha terre, il lutta pour ouvrir les yeux et s'assit en position du lotus, avala une pilule et commença à cultiver afin de contrer le domaine de l'homme d'âge moyen et le sceau de Sun Tai.
 
-Il était désormais éveillé et savait que Sun Tai n'avait aucune intention bienveillante. Être sauvé par Sun Tai restait préférable à une mort certaine.
+Il était déjà éveillé et savait que Sun Tai n'avait aucune intention bienveillante. Être sauvé par Sun Tai restait préférable à une mort certaine.
 
 L'ancêtre du Clan des Démons Géants les poursuivait. D'un revers de sa hache gigantesque, il projeta une onde d'énergie tranchante. Dans un fracas assourdissant, l'espace devant Sun Tai explosa, engendrant d'innombrables micro-failles.
 
@@ -42,7 +42,7 @@ C'était la raison pour laquelle les cultivateurs de la Transformation de l'Âme
 
 En règle générale, les cultivateurs de la Transformation de l'Âme n'utilisaient pas l'énergie spirituelle céleste au hasard, mais lorsqu'ils le faisaient, leur puissance était terrifiante.
 
-L'usage de l'énergie spirituelle céleste était une caractéristique propre aux cultivateurs du stade de la Transformation de l'Âme et au-delà. Il en allait de même pour les domaines; il s'agissait d'un changement de nature même de leur pouvoir.
+L'usage de l'énergie spirituelle céleste était une capacité propre aux cultivateurs du stade de la Transformation de l'Âme et au-delà. Comme pour les domaines chez les cultivateurs de la Formation de l'Âme, il s'agissait d'un changement de nature même de leur pouvoir.
 
 Bien que cette paume de Sun Tai ne fût qu'une attaque simple, dépourvue de techniques complexes, elle n'en demeurait pas moins redoutable car elle contenait une fraction d'énergie spirituelle céleste. Sa puissance était immense.
 
@@ -78,7 +78,7 @@ La quantité d'énergie spirituelle dont il disposait était inférieure à cell
 
 Son âme originelle était extrêmement affaiblie et risquait de s'effondrer à tout moment, l'empêchant même de quitter son corps. C'était la blessure la plus grave qu'il ait jamais subie, si l'on ne comptait l'épisode où son corps physique avait été pulvérisé par Teng Huayuan.
 
-L'homme d'âge moyen, les yeux brillants, s'apprêta à frapper de sa main droite.
+L'homme d'âge moyen, les yeux brillants, s'apprêta à pointer sa main droite.
 
 Mais au moment précis où il allait agir, un éclair noir descendit du ciel. L'expression de l'homme changea radicalement et il utilisa toute sa puissance pour tenter de s'échapper. Cependant, l'éclair semblait doté d'une volonté propre et le poursuivait sans relâche.
 
@@ -106,7 +106,7 @@ La paume de Sun Tai percuta le cercueil, le faisant éclater. Le corps d'un jeun
 
 « Tourne! » hurla de nouveau l'ancêtre, les veines de son corps gonflant davantage. Cette capacité de lignée exigeait un tribut trop lourd pour son corps; comme sa culture n'était pas assez élevée, il ne pouvait la maintenir que quelques respirations.
 
-Le vortex tourna avec une violence inouïe et Sun Tai fut entraîné vers l'intérieur. Avec un regard de résignation, il cria: « Enfant démon, tue-le! »
+Le vortex tourna avec une violence inouïe et Sun Tai fut entraîné vers l'intérieur. Le regard plein de dépit, il cria: « Enfant démon, tue-le! »
 
 Le garçon ouvrit brusquement les yeux, révélant une lueur démoniaque. D'un seul pas, il se retrouva devant l'ancêtre du Clan des Démons Géants. Sa vitesse surpassait celle de la téléportation.
 
@@ -128,4 +128,4 @@ Le domaine de Li Yuanfeng et le sceau de Sun Tai s'étaient fusionnés presque p
 
 Wang Lin esquissa un sourire amer et lutta longuement pour avancer. Il avait l'impression de porter une montagne sur ses épaules; chaque pas était une épreuve. Lorsqu'il parvint enfin à sortir de la forêt, toute son énergie spirituelle était épuisée. Il n'en restait pas une once.
 
-Ses blessures physiques étaient critiques. Une vague de douleur irradiait de ses organes internes et son âme originelle était si faible qu'elle menaçait de s'effondrer. En sortant de sous la canopée, il sentit la morsure du soleil sur sa peau. Son corps fut soudainement envahi par une faiblesse extrême et il perdit connaissance avant même d'avoir touché le sol.
+Ses blessures physiques étaient critiques. Une vague de douleur irradiait de ses organes internes et son âme originelle était si faible qu'elle menaçait de s'effondrer. En sortant de sous la canopée, il sentit la morsure du soleil sur sa peau. Son corps fut soudainement envahi par une faiblesse extrême et il s'effondra au sol, sans connaissance.

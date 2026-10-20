@@ -16,7 +16,7 @@ La première chose à faire était de briser le Point Ancestral pour faire desce
 
 Wang Lin savait que fusionner ces trois noyaux serait ardu, mais après l'avoir expérimenté, il sentait que le mot « difficile » était un euphémisme. C’était une tâche d'une complexité inimaginable.
 
-Cela faisait plus d'un mois que Wang Lin tentait de faire descendre le premier noyau froid sans jamais s'interrompre. Une force mystérieuse semblait lui barrer la route. Peu importe ses efforts, il ne parvenait pas à briser l'obstacle.
+Cela faisait un mois que Wang Lin tentait de faire descendre le premier noyau froid sans jamais s'interrompre. Une force mystérieuse semblait lui barrer la route. Peu importe ses efforts, il ne parvenait pas à briser l'obstacle.
 
 Pour cultiver la Méthode d'Ascension des Enfers, les exigences consistaient à briser trois fois le Point Ancestral, la Mer de Qi et le dantian, chaque tentative étant plus éprouvante que la précédente. La première fois était difficile, la seconde très difficile, et la troisième extrêmement difficile. Cependant, ce que Wang Lin tentait d'accomplir en ce moment revenait à forcer une quatrième rupture du Point Ancestral; on pouvait imaginer l'ampleur de la difficulté.
 

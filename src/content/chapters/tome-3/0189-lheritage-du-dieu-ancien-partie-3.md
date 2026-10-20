@@ -22,7 +22,7 @@ On pouvait affirmer avec justesse que cet homme était un cultivateur antique qu
 
 « Ce subordonné, grand Seigneur Dou Mu... »
 
-Le Magicien Démon Céleste força un sourire. Il n'osa pas bouger sa main droite. Même s'il commençait à absorber le cristal de glace, le processus prendrait du temps, et si l'homme devant lui décidait de le tuer, cela ne prendrait qu'une seconde.
+Le Magicien Démon Céleste força un sourire. Il n'osa pas bouger sa main droite. Même s'il parvenait à absorber le cristal de glace, il lui faudrait du temps pour le digérer, et si l'homme devant lui décidait de le tuer, cela ne prendrait qu'une seconde.
 
 À ce moment-là, un homme d'âge moyen aux cheveux violets, vêtu d'une tenue daoïste rouge, apparut en flottant lentement au loin. Sa taille était celle d'un homme ordinaire. Contrairement à Bossu Meng ou au Magicien Démon Céleste, il ne s'était pas transformé en démon et conservait une apparence humaine.
 
@@ -32,7 +32,7 @@ La première chose que l'homme d'âge moyen scruta ne fut pas le Magicien Démon
 
 Mais comme cela se situait en dehors de la Mer de Qi du Dieu Ancien, la présence de telles fluctuations n'était pas anormale. Après un second regard, il balaya à nouveau la zone avec soin, sans rien trouver, puis posa enfin son regard sur le Magicien Démon Céleste.
 
-Le cœur de Wang Lin fut saisi par l'effroi. Il eut l'impression que cet homme pouvait voir à travers la Perle Défiant le Ciel et lire directement dans son âme. C'était la première fois qu'il éprouvait une telle sensation.
+Le cœur de Wang Lin fut saisi par l'effroi. Il eut l'impression que cet homme pouvait voir à travers la Perle Défiant le Ciel et lire directement dans son cœur. C'était la première fois qu'il éprouvait une telle sensation.
 
 Cet individu était capable de détecter la Perle Défiant le Ciel. Cela le surprit profondément. Il prit une grande inspiration et cligna des yeux à plusieurs reprises.
 
@@ -84,7 +84,7 @@ Après près d'une heure de vol, il finit par ralentir légèrement. Il jeta un 
 
 Le visage de Wang Lin s'anima d'une résolution audacieuse. Si le Magicien Démon Céleste y accordait une telle importance, c'est que ce n'était pas un objet ordinaire. Se remémorant le geste du Magicien, il pressa brusquement le cristal contre son front.
 
-À peine le cristal eut-il touché son front, avant même que Wang Lin n'exerce la moindre force, qu'il y pénétra de lui-même. Longtemps après, Wang Lin ne ressentait toujours aucun changement. Son énergie spirituelle n'avait pas augmenté et son âme semblait inchangée.
+À peine le cristal eut-il touché son front, avant même que Wang Lin n'exerce la moindre force, qu'il y pénétra de lui-même. Longtemps après, Wang Lin ne ressentait toujours aucun changement. Son énergie spirituelle n'avait pas augmenté et son Sens Divin semblait inchangé.
 
 Le doute s'installa dans son esprit. Il semblait que le cristal de glace s'était simplement volatilisé. Il inspecta son corps, mais ne trouva aucune trace de l'objet.
 

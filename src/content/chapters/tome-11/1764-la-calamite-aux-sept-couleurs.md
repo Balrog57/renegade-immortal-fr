@@ -10,7 +10,7 @@ Le sable jaune tombait comme une pluie battante, formant un véritable rideau. S
 
 Alors que le rugissement résonnait, la planète entière commença à trembler. Devant Wang Lin, sur une vaste étendue, le sable jaune se mit à s'enfoncer et le fracas devint plus distinct. En un éclair, une bête serpentine jaillit des entrailles de la terre!
 
-C'était une créature gigantesque recouverte de terre, d'une épaisseur de 10 000 pieds. Semblable à un ver géant, la seule partie émergée était sa gueule; de loin, on aurait dit que son ouverture couvrait la majeure partie de son visage. Elle ouvrit la bouche et chargea le Daoïste aux Sept Couleurs.
+C'était une créature gigantesque recouverte de terre, d'une épaisseur de 10 000 pieds. Semblable à une immense loche, la seule partie émergée était sa gueule; de loin, on aurait dit que son ouverture couvrait la majeure partie de son visage. Elle ouvrit la bouche et chargea le Daoïste aux Sept Couleurs.
 
 Les yeux de la bête restaient clos, comme s'ils avaient été scellés à jamais. Si elle avait possédé de nombreuses tentacules autour du corps, elle aurait ressemblé au Serpent aux yeux de lune, mais son apparence actuelle était bien différente.
 
@@ -76,7 +76,7 @@ Wang Lin avait choisi un moment d'une précision chirurgicale, pile au moment o�
 
 À cet instant précis, les huit Poissons-Œil percutèrent sa défense. Tandis que des grondements tonnerreux résonnaient, la Flèche de Li Guang de Wang Lin transperça la lumière aux sept couleurs pour frapper le corps du Daoïste.
 
-Des échos de tonnerre parcoururent tout le système stellaire. La planète s'effondra et d'innombrables débris furent projetés dans toutes les directions.
+Des échos de tonnerre parcoururent les environs. La planète s'effondra et d'innombrables débris furent projetés dans toutes les directions.
 
 Wang Lin recula, un filet de sang coulant du coin de sa bouche, mais il gardait fermement l'arc en main.
 

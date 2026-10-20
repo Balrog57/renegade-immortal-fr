@@ -44,7 +44,7 @@ Le sourire sur le visage du jeune homme continua de s'élargir dans l'esprit de 
 
 Partie orientale de la planète Suzaku.
 
-Wang Lin survolait une terre aride sur le dos du moustique. Le sifflement du moustique fendant l'air résonnait alors qu'il fonçait en avant.
+Les mains derrière le dos, Wang Lin survolait une terre aride sur le dos du moustique. Le sifflement du moustique fendant l'air résonnait alors qu'il fonçait en avant.
 
 Ses yeux brillaient comme des torches tandis qu'il inspectait les environs. Peu après, son expression changea. Le moustique comprit instantanément les intentions de Wang Lin; il poussa un rugissement et se posa rapidement dans la plaine en contrebas.
 
@@ -64,7 +64,7 @@ Quant à la hache, il n'avait pas l'intention de la raffiner, car il comptait la
 
 Concernant les quatre gaines d'épée, Wang Lin ne les comprenait toujours pas. Il regrettait de ne pas encore en avoir percé les mystères, alors même qu'il était sur le point de quitter la planète Suzaku.
 
-D'un geste de la main droite, il fit flotter les quatre gaines devant lui. Puis, il cracha une dose d'énergie de son âme originelle qui les enveloppa rapidement.
+D'un geste de la main droite, il fit flotter les quatre gaines devant lui. Puis, s'asseyant en tailleur, il cracha une dose d'énergie de son âme originelle qui les enveloppa rapidement.
 
 Il commença leur raffinage.
 
@@ -90,7 +90,7 @@ Au bout de sept jours, grâce au Sens Divin de Zhou Yi de niveau Ascendant et à
 
 En contemplant le Fouet de l'Âme, il sentait leur connexion; c'était comme s'ils ne faisaient qu'un. Le fouet contenait de nombreuses formations, tout comme le chapeau de paille.
 
-Cependant, il n'y avait pas qu'un seul chapeau de paille, ce qui le rendait bien moins précieux que le Fouet de l'Âme. Au-delà de la capacité à masquer son apparence, Wang Lin avait également pu tirer des enseignements du jade que lui avait donné Yun Quezi.
+Cependant, il n'y avait pas qu'un seul chapeau de paille, ce qui en réduisait considérablement la valeur. Au-delà de la capacité à masquer son apparence, Wang Lin avait également pu tirer des enseignements du jade que lui avait donné Yun Quezi.
 
 L'utilité majeure du chapeau de paille résidait dans le fait qu'en l'étudiant, il apprendrait davantage de restrictions, augmentant ainsi la puissance de son drapeau de restriction.
 
@@ -124,7 +124,7 @@ Toutefois, Wang Lin était confiant quant à sa capacité à contrôler le secon
 
 Une demi-lune plus tard, Wang Lin quitta la plaine.
 
-Durant cette période, les rugissements d'une bête résonnèrent sans cesse à travers la plaine.
+Durant cette période, les rugissements d'une bête résonnèrent sans cesse à travers la plaine, presque toute la journée.
 
 Ces hurlements secouaient les cieux. Même certains membres du Clan des Immortels Délaissés ressentirent la rage de cet esprit de combat qui ne se soumettrait devant personne!
 
@@ -132,11 +132,11 @@ Assis sur le moustique, Wang Lin s'élança rapidement vers l'horizon. Son visag
 
 Dès que le jade céleste fut consommé, un autre apparut dans sa main, lui permettant de continuer à absorber l'énergie spirituelle céleste.
 
-La puissance de la bête spirituelle sur le char de guerre dépassait les attentes de Wang Lin. Le tempérament inflexible de cette créature était encore plus puissant que celui de la précédente, porté par une fierté absolue de ne jamais s'incliner.
+La puissance de la bête spirituelle sur le char de guerre dépassait les attentes de Wang Lin. Le tempérament inflexible de cette créature était poussé à l'extrême, porté par une fierté absolue de ne jamais s'incliner.
 
 Finalement, Wang Lin consacra tous ses efforts à capturer l'esprit de la bête dans le piège à bêtes. Cet effort finit par provoquer une fissure sur l'objet.
 
-Après avoir maîtrisé cette bête indomptable, l'énergie spirituelle dans le corps de Wang Lin fut instantanément épuisée. Il aurait péri s'il ne s'était pas préparé à l'avance.
+Après avoir maîtrisé cette bête indomptable, l'énergie spirituelle céleste de son corps fut instantanément épuisée. Il aurait péri s'il ne s'était pas préparé à l'avance.
 
 Wang Lin ouvrit les yeux, toucha le piège à bêtes sur son poignet et afficha une expression d'inquiétude.
 

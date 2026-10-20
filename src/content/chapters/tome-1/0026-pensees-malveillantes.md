@@ -16,13 +16,13 @@ Enfin, il s'exerça à la Technique d'Attraction. Il n'en était pas encore sati
 
 Mais considérant que le taux de réussite de cette dernière était le plus élevé, Wang Lin consacra tous ses efforts à sa pratique. Pour dire les choses simplement, la Technique d'Attraction consistait essentiellement à contrôler des objets à distance.
 
-Si l'on maîtrisait parfaitement la Technique d'Attraction et que l'on atteignait le second niveau de Condensation de Qi, on pouvait alors pratiquer la technique de propulsion. Une fois le troisième niveau franchi pour entrer dans le quatrième, il était possible de se rendre à la Maison de l'Esprit de l'Épée afin de choisir une épée volante.
+Si l'on gagnait en souplesse dans la Technique d'Attraction et que l'on atteignait le second niveau de Condensation de Qi, on pouvait alors pratiquer la technique de propulsion. Une fois le troisième niveau franchi pour entrer dans le quatrième, il était possible de se rendre à la Maison de l'Esprit de l'Épée afin de choisir une épée volante.
 
 Après de longues heures de pratique, Wang Lin commença à regagner son domicile avant que la nuit ne tombe. Maintenant qu'il avait atteint le premier niveau de Condensation de Qi, sa vue et son ouïe s'étaient grandement affinées. En franchissant la porte est, il perçut des voix familières en passant devant la maison des tâches subalternes.
 
-« Frère Liu, quand tu m'as chargé pour la première fois de ramasser du bois, tu avais dit que 100 livres suffiraient pour accomplir la tâche. Pourquoi est-ce 1 000 livres maintenant? Je ne suis pas nouveau, moi, Zhang Hu, et au cours de ces dernières années, j'ai fait bien des efforts pour te plaire. Veux-tu vraiment me forcer à quitter la secte? »
+« Frère Liu, quand tu m'as chargé pour la première fois de ramasser du bois, tu avais dit que 100 livres suffiraient pour accomplir la tâche. Pourquoi est-ce 1 000 livres maintenant? Je ne suis pas nouveau, moi, Zhang Hu, et au cours de ces dernières années, je t'ai offert bien des présents. Veux-tu vraiment me forcer à quitter la secte? »
 
-« Zhang Hu, ne dis pas que je te rends la vie difficile. L'année touche à sa fin, et même moi, ton frère, je ne passe pas un moment facile. Mais toi, au lieu de travailler, tu viens ici pour me conter tes malheurs. Quand j'ai apporté le bois que tu avais ramassé à la maison des pilules, je me suis fait réprimander. Je l'ai repris et je l'ai vérifié. Espèce de petit bâtard, tu es vraiment trop malin. Dans tes 100 livres de bois, il y avait au moins 30 livres d'eau! »
+« Zhang Hu, ne dis pas que je te rends la vie difficile. L'année touche à sa fin, et même moi, ton frère, je ne passe pas un moment facile. Mais toi, au lieu de travailler, tu choisis ce moment pour me mettre des bâtons dans les roues. Quand j'ai apporté le bois que tu avais ramassé à la maison des pilules, je me suis fait réprimander. Je l'ai repris et je l'ai vérifié. Espèce de petit bâtard, tu es vraiment trop malin. Dans tes 100 livres de bois, il y avait au moins 30 livres d'eau! »
 
 Zhang Hu était furieux. Il cria: « C'est impossible! Tu m'accuses à tort. N'est-ce pas parce qu'il y a quelques jours, j'ai vu Zhao Fugui te donner un talisman immortel pour que tu puisses lui choisir des tâches plus faciles? Et alors? Parmi les disciples honoraires, qui ne sait comment tu agis? Quant à essayer de me chasser de la secte Heng Yue, tu as vraiment merdé, espèce de saloperie. Je n'en ferai plus une miette. Je vais aller en parler aux Anciens! »
 
@@ -34,9 +34,9 @@ Le premier visage que Wang Lin vit fut celui, hideux, du jeune homme nommé Liu.
 
 Réalisant qu'il n'aurait pas le temps d'aider Zhang Hu physiquement, Wang Lin utilisa promptement la Technique d'Attraction. Par chance, elle réussit cette fois. Une main invisible immobilisa l'agresseur. Cependant, la dague avait déjà entaillé la poitrine de Zhang Hu, et le sang jaillissait de la plaie.
 
-Le jeune homme nommé Liu fut pris d'une immense frayeur. Son corps semblait soudainement dénué de toute force, retenu par une puissance invisible qui empêchait la dague de descendre davantage.
+Le jeune homme nommé Liu fut pris d'une immense frayeur. Son corps semblait soudainement comprimé par une force infinie, immobilisé par une puissance invisible qui empêchait la dague de descendre davantage.
 
-Le visage de Zhang Hu était livide, et la sueur perlait sur son front. Il jeta un regard à Wang Lin avant de ramper rapidement sur le côté.
+Le visage de Zhang Hu était livide, et la sueur perlait sur son front. Il jeta un regard reconnaissant à Wang Lin avant de ramper rapidement sur le côté.
 
 Choqué, le jeune Liu se mit aussitôt à se débattre avec acharnement. Le front de Wang Lin se couvrit d'une sueur abondante, comme s'il perdait pied avec sa technique.
 

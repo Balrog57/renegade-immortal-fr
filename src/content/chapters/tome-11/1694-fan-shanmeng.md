@@ -78,11 +78,11 @@ Les yeux de Wang Lin se rétrécirent et il l'observa attentivement sans dire un
 
 Après avoir fusionné avec la protection, une aura puissante émana du navire et la barrière devint encore plus robuste. Les grondements provenant de l'extérieur furent presque totalement étouffés, les sons atteignant leurs oreilles n'étant plus qu'un murmure imperceptible.
 
-« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empyréen Dao Yi et le Grand Empyréen Xuan Luo des anciens pays, apparurent près de notre Secte des Sept Dao. Leurs pouvoirs étaient divins; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immémorial.
+« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empyréen Dao Yi et le Grand Empyréen Xuan Luo des anciens pays, apparurent près de notre Secte des Sept Dao. Leurs pouvoirs étaient divins, c'étaient des figures légendaires; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immémorial.
 
-« Normalement, Sept-Couleurs et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
+« Normalement, Sept Couleurs et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
 
-« Ce morceau manquant est tombé entre les mains de Sept-Couleurs, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma culture pour la supprimer totalement, espérant retourner rapidement à la Secte des Sept Dao.
+« Ce morceau manquant est tombé entre les mains de Sept Couleurs, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma culture pour la supprimer totalement, espérant retourner rapidement à la Secte des Sept Dao.
 
 « Cependant, durant le voyage de retour, il m'a poignardée dans le dos. Prise au dépourvu, j'ai vu ma culture entière aspirée pour servir à supprimer le fragment. D'une seule paume, il a ensuite anéanti mon corps et mon âme, voulant m'éliminer par peur que la nouvelle ne se répande.
 
@@ -94,22 +94,22 @@ Après avoir fusionné avec la protection, une aura puissante émana du navire e
 
 « Je savais qu'il devait avoir ouvert le fragment et obtenu ce qu'il contenait. Je savais aussi qu'il avait éloigné Ye Mo et scellé la Secte des Sept Dao. Mais comment pouvais-je le laisser réussir? J'ai révélé la nouvelle à Lian Daofei, qui avait toujours convoité ma beauté, et je l'ai attiré vers la Secte!
 
-« Grâce au lien avec ma sœur, la plupart de ses concubines ont fait défection, provoquant la division des disciples de la Secte des Sept Dao. C'est ainsi que les Royaumes Intérieur et Extérieur se sont formés! » À ce moment-là, la femme regarda Wang Lin.
+« Grâce au lien avec ma sœur, plusieurs de ses concubines ont fait défection, provoquant la division des disciples de la Secte des Sept Dao. C'est ainsi que les Royaumes Intérieur et Extérieur se sont formés! » À ce moment-là, la femme regarda Wang Lin.
 
 L'expression de Wang Lin resta imperturbable et il ne montra aucune fluctuation émotionnelle. Il avait déjà spéculé sur la majeure partie de ces faits, et même maintenant, il ne croyait qu'une partie de ses paroles. Plusieurs éléments restaient flous et, bien que son récit semblât complet, certaines incohérences subsistaient.
 
 Après avoir médité en silence un instant, Wang Lin demanda lentement: « Quel genre d'endroit est le Domaine Divin Immémorial? »
 
-« Une légende sur le Continent Astral Immortel raconte que le Domaine Divin Immémorial s'ouvrira neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empyréen... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
+« Une légende sur le Continent Astral Immortel raconte que le Domaine Divin Immémorial s'est ouvert neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empyréen... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
 
 « Peut-être que le dixième soleil apparaîtra lors de la dixième ouverture...
 
 « Quant à la nature exacte du Domaine Divin Immémorial, je l'ignore également. »
 
-« Vous avez dit que ce Sept-Couleurs est différent du Sept-Couleurs passé. J'ai besoin d'une réponse. » Les yeux de Wang Lin brillèrent alors qu'il fixait la silhouette floue qui martelait les protections du navire.
+« Vous avez dit que ce Sept Couleurs est différent du Sept Couleurs passé. J'ai besoin d'une réponse. » Les yeux de Wang Lin brillèrent alors qu'il fixait la silhouette floue qui martelait les protections du navire.
 
 La femme réfléchit un instant et finit par dire: « Il n'est pas complet! »
 
 « Je ne sais pas comment il a convaincu Li Guang de l'aider à tuer Ye Mo, mais je sais qu'après avoir révélé à Lian Daofei comment pénétrer dans la grotte, une bataille féroce a éclaté!
 
-« Cette bataille eut lieu peu après la mort de Ye Mo. Sept-Couleurs est ensuite entré en culture fermée à cause de ses blessures pour étudier ce qu'il avait obtenu de ce fragment. Ce n'est que plus tard que j'ai appris qu'un Dao Céleste se trouvait à l'intérieur de ce fragment! »
+« Cette bataille eut lieu peu après la mort de Ye Mo. Sept Couleurs est ensuite entré en culture fermée à cause de ses blessures pour étudier ce qu'il avait obtenu de ce fragment. Ce n'est que plus tard que j'ai appris qu'un Dao Céleste se trouvait à l'intérieur de ce fragment! »

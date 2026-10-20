@@ -87,7 +87,7 @@ Liu Mei soupira en le regardant:
 — Wang Lin, une grande calamité est sur le point de s'abattre sur toi. Va... quitte la planète Suzaku...
 
 L'expression de Wang Lin resta sereine. Il ne dit rien, attendant que Liu Mei termine. Elle murmura alors:
-— Je ne te mentirai pas; tu sais déjà que je viens du pays de Suzaku, mais je ne suis pas une disciple ordinaire. Mon maître est la première personne de la planète Suzaku, Zhu Quezi!
+— Je ne te mentirai pas; tu sais déjà que je viens du pays de Suzaku, mais tu ignores que mon maître n'est pas un homme ordinaire : il est la première personne de la planète Suzaku, Zhu Quezi!
 
 Les yeux de Wang Lin s'illuminèrent. Tout devint soudainement clair dans son esprit et il demanda:
 — Qu'est-il arrivé à Papillon Rouge après sa bataille contre moi?
@@ -102,7 +102,7 @@ Wang Lin prit une inspiration glacée. Après avoir confirmé ses soupçons, il 
 Liu Mei se mordit la lèvre et murmura:
 — Frère Wang, tu devrais partir. Le plus tôt sera le mieux. Elle lui lança un regard chargé de sens, soupira, puis partit.
 
-En s'éloignant, elle songea: *« Wang Lin... Mon maître m'a ordonné de laisser mon empreinte sur ton cœur Dao. C'est un destin auquel je ne peux résister... Je ne peux désobéir à mon maître... À moins que mon cœur Dao ne porte ton ombre, tu n'as aucun moyen de gagner cette bataille entre nos cœurs Dao... Seule moi, Liu Mei, ai compris le domaine "Mille Illusions Impitoyables" et j'ai montré des émotions en surface tout en gardant un cœur impitoyable. Comment pourrais-tu gagner? »* Dans ses yeux brillait une pointe d'impitoyabilité, dissimulée par son jeu d'acteur.
+En s'éloignant, elle songea: *« Wang Lin... Mon maître m'a ordonné de laisser mon empreinte sur ton cœur Dao. C'est un destin auquel je ne peux résister... Je ne peux désobéir à mon maître... À moins que mon cœur Dao ne porte ton ombre, tu n'as aucun moyen de gagner cette bataille entre nos cœurs Dao... Seule moi, Liu Mei, ai compris le Dao "Mille Illusions Impitoyables" et j'ai montré des émotions en surface tout en gardant un cœur impitoyable. Comment pourrais-tu gagner? »* Dans ses yeux brillait une pointe d'impitoyabilité, dissimulée par son jeu d'acteur.
 
 Wang Lin continuait de froncer les sourcils en regardant le dos de Liu Mei. Bien qu'elle semblât avoir signalé un problème, elle laissait aussi derrière elle d'innombrables incertitudes. Il marmonna pour lui-même:
 — Tout cela est étrange. J'ai ce sentiment bizarre à propos de Liu Mei. Étrange...

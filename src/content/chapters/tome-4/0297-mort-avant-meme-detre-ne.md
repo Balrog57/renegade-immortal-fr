@@ -8,7 +8,7 @@ slug: mort-avant-même-detre-ne
 ---
 Les yeux de Wang Lin s'illuminèrent et son corps disparut soudainement à l'intérieur du drapeau de restriction. Cependant, il fut très difficile pour le cultivateur aux robes vertes de s'en apercevoir. Après tout, ce dernier n'était qu'au stade initial de la Formation de l'Âme, tandis que le Sens Divin de Wang Lin se situait au niveau de celui d'un expert de la phase tardive de la Formation de l'Âme.
 
-Bien que les deux possédaient le même niveau de culture, la différence entre leurs Sens Divins était trop vaste. C’est ainsi que Wang Lin put détecter le cultivateur aux robes vertes dès son apparition, alors que celui-ci ne put percevoir Wang Lin qu'une fois approché.
+Bien que les deux possédaient le même niveau de culture, la différence entre leurs Sens Divins était trop vaste. C’est ainsi que Wang Lin put détecter le cultivateur aux robes vertes dès son apparition, alors que celui-ci ne put percevoir Wang Lin qu'après avoir parcouru une certaine distance.
 
 Le cultivateur aux robes vertes posa un pied dans la formation, puis se retourna pour regarder le brouillard noir qui fonçait vers lui au loin. Le sourire sur ses lèvres devint plus glacial encore.
 
@@ -32,7 +32,7 @@ Cette cloche était un trésor magique laissé par des cultivateurs de l'Antiqui
 
 Une fois qu'un cultivateur de la Formation de l'Âme a formé son âme originelle, il est difficile de le tuer définitivement lors d'un duel singulier, même en l'emportant, à moins qu'il ne soit attaqué simultanément par plusieurs adversaires. Cependant, si un expert au stade tardif de la Formation de l'Âme passe à l'action, tout change.
 
-Bien entendu, si la cible est déjà considérablement affaiblie, la donne est différente. C'était ce qui était arrivé à Meng le Bossu: lourdement affaibli, il fut piégé par Wang Lin et finit par mourir sous le coup du bras doré du Seigneur Démon de l'Ouragan.
+Bien entendu, si la cible est déjà considérablement affaiblie, la donne est différente. C'était ce qui était arrivé à Meng le Bossu: lourdement affaibli, il fut piégé par Wang Lin et finit par mourir sous le coup de la main d'os dorée du Seigneur Démon de l'Ouragan.
 
 À mesure que les sceaux de Wang Lin se posaient un à un sur la cloche, les cris misérables s'affaiblirent progressivement jusqu'à disparaître totalement. Wang Lin continua de tracer des sceaux pendant un certain temps avant de s'interrompre enfin.
 

@@ -16,7 +16,7 @@ Dès que la feuille se matérialisa, Cupidité s'en saisit et la projeta vers le
 
 Cette feuille jaune paraissait tout à fait ordinaire, dépourvue de toute particularité. Pourtant, dès qu'elle approcha des ondulations, une puissante lumière jaune en émana, accompagnée d'une force de scellement colossale!
 
-En un instant, la feuille sembla décupler sa taille et verrouilla les ondulations. Peu importait l'intensité de leur agitation, elles ne purent échapper à la portée de la feuille.
+En un instant, la feuille sembla grandir d'innombrables fois et verrouilla les ondulations. Peu importait l'intensité de leur agitation, elles ne purent échapper à la portée de la feuille.
 
 Une fois l'objet lancé, Cupidité n'osa même pas regarder le résultat. Tandis qu'il chargeait en avant, un éclair de lumière violette jaillit et deux nuages de brume pourpre se formèrent à ses pieds.
 

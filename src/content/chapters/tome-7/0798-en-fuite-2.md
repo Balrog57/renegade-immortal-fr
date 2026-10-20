@@ -82,7 +82,7 @@ Trois personnes se tenaient derrière cette étendue rocheuse, toutes au stade d
 
 Wang Lin les observa calmement, puis reporta son regard sur le fragment de 10 000 pieds sous leurs pieds. Ils avaient la même idée: utiliser un fragment pour tracer leur chemin.
 
-Cependant, le fragment qu'ils avaient obtenu n'avait pas été purifié par la rétribution divine et manquait de solidité. Celui sous eux continuait de se briser, ce qui les obligerait probablement à changer de support à plusieurs reprises.
+Cependant, le fragment qu'ils avaient obtenu n'avait pas été raffiné par la tribulation céleste et manquait de solidité. Celui sous eux continuait de se briser, ce qui les obligerait probablement à changer de support à plusieurs reprises.
 
 L'homme en robe dorée s'avança dans le vide. Il esquiva les fissures et se dirigea droit sur le fragment de Wang Lin. L'un des trois autres, un vieil homme vêtu de blanc, fit de même.
 
@@ -94,7 +94,7 @@ Ses quatre cornes féroces projetèrent un éclat glacial. Une lueur spectrale a
 
 En un instant, avant que l'homme en robe dorée ne puisse lancer un sort, son corps trembla et une teinte grise commença à se propager sur lui, partant de ses jambes. Ses yeux furent frappés par l'horreur. Sans hésiter, il frappa son front pour libérer son âme originelle.
 
-Wang Lin ricana et frappa son sac de rangement pour en faire sortir le drapeau d'un milliard d'âmes. Celui-ci se changea en une brume noire et chargea l'âme originelle de l'homme.
+Wang Lin ricana et frappa son sac de rangement pour en faire sortir le Drapeau des Âmes d'un Milliard. Celui-ci se changea en une brume noire et chargea l'âme originelle de l'homme.
 
 À ce moment, le vieil homme en robe blanche s'approcha. Faisant fi de son compagnon, il forma un sceau et hurla: « Sort céleste, Coupe de Tonnerre! » Le tonnerre se rassembla frénétiquement devant lui pour former une lame capable de trancher le monde, laquelle fonça droit sur Wang Lin.
 
@@ -110,7 +110,7 @@ Le regard de Wang Lin devint glacial. En temps normal, il ne provoquait pas les 
 
 Il pointa alors le vieil homme en blanc et utilisa le sort céleste « Arrêt ». Le vieillard eut l'impression immédiate que son corps s'enfonçait dans l'eau et qu'il était ligoté, ce qui le cloua sur place. Non seulement son corps fut immobilisé, mais son âme originelle fut également affectée, l'empêchant d'utiliser son énergie.
 
-Wang Lin avança tandis que son doigt se transformait en épée. En passant près du vieillard, il pointa l'espace entre ses sourcils. L'homme cracha un jet de sang et des explosions résonnèrent dans son corps jusqu'à ce qu'il s'effondre, laissant son âme originelle s'échapper dans la terreur. Les yeux de Wang Lin brillèrent alors que sa main se tendait pour capturer l'âme du vieillard.
+Wang Lin avança tandis que son doigt se transformait en épée. En passant près du vieillard, il pointa l'espace entre ses sourcils. L'homme cracha un jet de sang et des bruits sourds résonnèrent dans son corps jusqu'à ce qu'il s'effondre, laissant son âme originelle s'échapper dans la terreur. Les yeux de Wang Lin brillèrent alors que sa main se tendait pour capturer l'âme du vieillard.
 
 « Compagnon de culture, arrête-toi! » Un rugissement puissant jaillit du cultivateur en robe bleue. Son corps se déplaça comme un éclair vers Wang Lin. Sa main droite forma un sceau et une épée illusoire s'échappa de son front. L'arme sembla se téléporter pour apparaître soudainement devant Wang Lin, visant à le transpercer impitoyablement.
 

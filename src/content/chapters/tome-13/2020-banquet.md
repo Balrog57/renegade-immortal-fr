@@ -18,7 +18,7 @@ Ces tables étaient disposées en éventail, semblant ainsi rendre hommage au pa
 
 Des centaines de petites plateformes flottaient dans le ciel, surplombant le palais. Chaque plateforme accueillait près d'une centaine de tables destinées à recevoir les invités.
 
-Le moment venu, des coups de tambour commencèrent à résonner depuis le palais. Les percussions rugissaient et se propageaient à travers tout le domaine. Un tambour gigantesque, large de plusieurs centaines de pieds, apparut au centre du palais. Il était fabriqué dans la peau d'une créature inconnue, une peau qui dégageait une aura ancienne et féroce.
+Le moment venu, des coups de tambour commencèrent à résonner depuis le palais. Les percussions rugissaient et se propageaient à travers tout le domaine. Un tambour gigantesque, large de plusieurs milliers de pieds, apparut au centre du palais. Il était fabriqué dans la peau d'une créature inconnue, une peau qui dégageait une aura ancienne et féroce.
 
 Neuf silhouettes vêtues de noir flottaient au-dessus du tambour; chacune d'elles possédait une culture comparable à celle d'un Exalté Empyréen. Chaque battement était le fruit de la force combinée des neuf individus. Leur puissance se condensait en une paume illusoire qui frappait la peau du tambour.
 
@@ -46,7 +46,7 @@ Ces 108 guerriers s'inclinèrent tous vers le palais avant de se poser sur la pl
 
 « Ces 108 Jin dégagent des auras de massacre monstrueuses. C'est pour cela qu'on les appelle "Jin"! »
 
-Les murmures, bien que couverts par le rugissement du tambour, ne parvinrent pas à dissimuler les regards braqués sur eux. Ces regards étaient empreints d'envie, de sombre mélancolie et d'évaluation.
+Les murmures, bien que couverts par le rugissement du tambour, ne parvinrent pas à dissimuler les regards braqués sur eux. Ces regards étaient empreints d'envie, de sombre animosité et d'évaluation.
 
 Aussitôt après l'apparition des 108 guerriers, 72 tornades surgirent au loin. Chaque tourbillon abritait une personne qui fonçait vers la place.
 
@@ -66,7 +66,7 @@ Les discussions s'intensifièrent alors qu'un autre grondement tonitruant retent
 
 « On dit qu'ils sont comme des soldats de la mort. Dès que l'Empereur de l'Ancien Dao donne l'ordre, ils se sacrifient par autodestruction! »
 
-« Comment peut-on les appeler les 36 Zhang? Ce sont clairement 36 démons! »
+« Comment peut-on les appeler les 36 Zhang? Ce sont clairement 36 Fléaux! »
 
 Trente-six hommes robustes émergèrent des lueurs rouges. Ils étaient enveloppés d'une brume écarlate qui rendait leur apparence indéfinissable. Ils s'inclinèrent devant le palais principal, puis prirent place devant les 72 Saints.
 

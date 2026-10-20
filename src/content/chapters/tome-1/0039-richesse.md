@@ -56,7 +56,7 @@ Wang Lin se caressa le menton. Il portait un regard optimiste sur cet objet. À 
 
 Une inscription sur l'épée volante indiquait: « Le nom de cette épée est Richesse. Elle fut forgée à grands frais par un ancêtre de la secte il y a cinq cents ans et l'on disait qu'elle possédait un pouvoir que même les fantômes et les dieux ne sauraient sonder. En réalité, cette épée s'est brisée plusieurs fois. Cependant, comme l'ancêtre avait beaucoup apporté à la secte, sa dernière volonté fut de laisser l'épée ici, dans l'espoir qu'elle trouve un jour un maître à sa mesure. »
 
-« Quiconque choisira cette épée devra en prendre soin. Si elle se brise, elle doit être immédiatement réparée. Si elle est vendue, celui qui l'aura vendue sera expulsé de la secte! »
+« Quiconque choisira cette épée devra en prendre soin. Si elle se brise, elle doit être réparée. Si elle est vendue, celui qui l'aura vendue sera expulsé de la secte! »
 
 Wang Lin ne put s'empêcher d'éclater de rire. Il saisit l'épée et dit: « Je te choisis, alors. Mais moi, Wang Lin, suis un homme pauvre; si tu te brises, ne t'attends pas à ce que je te répare! »
 
@@ -72,4 +72,4 @@ Ils virent un point noir apparaître dans le ciel. Ce point se rapprochait d'eux
 
 Tous les disciples internes de la Secte Heng Yue retinrent leur souffle, le regard empreint de terreur. Le visage de certaines disciples devint livide et leurs jambes se dérobèrent.
 
-« Quel est le problème? Bien que ce mille-pattes paraisse effrayant, si chacun d'entre nous le transperce d'un coup d'épée, il mourra à coup sûr! » lança d'un ton mécontent l'homme au visage rouge à côté du chef de secte. Sa voix était puissante; il semblait vouloir que les gens de la Secte Xuan Dao portés par le mille-pattes l'entendent.
+« Pourquoi tant d'émoi? Bien que ce mille-pattes paraisse effrayant, si chacun d'entre vous le transperce d'un coup d'épée, il mourra à coup sûr! » lança d'un ton mécontent l'homme au visage rouge à côté du chef de secte. Sa voix était puissante; il semblait vouloir que les gens de la Secte Xuan Dao portés par le mille-pattes l'entendent.

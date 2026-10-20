@@ -33,7 +33,7 @@ La main droite de Wang Lin s'agita pour envoyer des vagues de restrictions afin 
 
 En observant les fragments d'âme qui s'échappaient du Qilin, le regard de Wang Lin étincela. Il renifla et cria: « Sale bête! Si tu avais possédé la puissance de ton ancêtre, je ne serais pas ton égal. Mais tu n'es qu'un simple fragment d'âme ayant réussi à condenser un corps illusoire. Te briser ne sera pas difficile! »
 
-Sur ces mots, les mains de Wang Lin s'activèrent avec célérité et une série de restrictions illusoires apparurent l'une après l'autre. Elles encerclèrent le Qilin et descendirent sur lui comme un filet. Le Qilin rugit et se débattit, faisant éclater les restrictions. Cependant, la main de Wang Lin ne s'arrêta pas; les sceaux apparaissaient frénétiquement et continuaient de s'abattre sur le corps du Qilin.
+Sur ces mots, les mains de Wang Lin s'activèrent avec célérité et une série de restrictions illusoires apparurent l'une après l'autre. Elles encerclèrent le Qilin et descendirent sur lui comme une toile d'araignée gluante. Le Qilin rugit et se débattit, faisant éclater les restrictions. Cependant, la main de Wang Lin ne s'arrêta pas; les sceaux apparaissaient frénétiquement et continuaient de s'abattre sur le corps du Qilin.
 
 Une fine couche de sueur commença à perler sur le front de Wang Lin alors qu'il projetait d'innombrables restrictions en quelques secondes seulement. Le rugissement du Qilin redoublait d'intensité, mais son corps commençait à ralentir, comme s'il sombrait dans l'eau.
 
@@ -49,7 +49,7 @@ Plusieurs détonations retentirent lors de la collision entre les lances et les 
 
 Le Qilin poussa un rugissement puissant et se débattit avec acharnement, faisant éclater une à une les restrictions qui pesaient sur lui.
 
-Wang Lin fronça les sourcils. Il n'avait pas imaginé que ce corps illusoire formé par un fragment d'âme de Qilin puisse être aussi puissant. Ce Qilin était déjà presque aussi fort qu'un cultivateur au sommet du stade avancé de la Formation de l'Âme. S'il disposait de plus de temps pour croître, il atteindrait bientôt la puissance d'un cultivateur de la Transformation de l'Âme.
+Wang Lin fronça les sourcils. Il n'avait pas imaginé que ce corps illusoire formé par un fragment d'âme de Qilin puisse être aussi puissant. Ce Qilin était déjà presque aussi fort qu'un cultivateur au sommet du stade avancé de la Formation de l'Âme. S'il disposait de plus de temps pour croître, il lui faudrait encore de longues années pour atteindre la puissance d'un cultivateur de la Transformation de l'Âme.
 
 Le regard de Wang Lin s'assombrit. Il leva la main droite et le piège à bêtes vola hors de sa main; il atterrit sur le côté et se transforma en Char de Guerre Divin. La bête avait considérablement faibli après son combat contre Papillon Rouge, mais dès qu'elle vit le Qilin, son corps trembla et ses yeux s'emplirent d'avidité.
 
@@ -65,7 +65,7 @@ Le Qilin n'était pas de taille face à la bête spirituelle. Toutes les restric
 
 Le corps du Qilin doré perdit sa consistance et devint plus évanescent. Regardant la bête spirituelle avec frustration, il laissa échapper de sourds grognements mais n'osa point avancer. Après tout, ce n'était qu'un fragment d'âme. À son apogée, il était plus fort que la bête spirituelle, mais à l'heure actuelle, il n'avait aucune chance.
 
-Une fois le Qilin repoussé, le drapeau d'âmes doré se retrouva sans défense. Wang Lin apparut rapidement devant lui pour s'en saisir. Cependant, le Qilin doré poussa un rugissement de rage et se jeta sur Wang Lin. Ce dernier eut un sourire narquois; sa main droite s'étira et les chaînes du char de guerre disparurent instantanément.
+Une fois le Qilin repoussé, le drapeau d'âmes doré se retrouva sans défense. Wang Lin apparut rapidement devant lui pour s'en saisir. Cependant, le Qilin doré poussa un rugissement de rage et se jeta sur Wang Lin. Ce dernier eut un sourire narquois; il pointa la main droite vers le char de guerre et les chaînes disparurent instantanément.
 
 Privée de ses entraves, la bête spirituelle poussa un cri de joie, ouvrit la gueule et attaqua le Qilin. Le Qilin poussa un rugissement frustré. Se sentant impuissant, il renonça à attaquer Wang Lin pour tenter de s'enfuir.
 

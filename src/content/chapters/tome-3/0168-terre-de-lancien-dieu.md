@@ -20,7 +20,7 @@ Il toucha une pustule sur son visage en riant et dit d'une voix rauque: « Ces v
 
 Sur ces mots, il fit un pas sur le dos du crapaud. La créature sembla comprendre ses intentions en sortant sa langue rouge sang pour toucher le sol. Le bossu descendit le long de la langue vers la terre, s'arrêtant parfois pour tousser.
 
-Une fois au sol, il agita négligemment sa main droite et le crapaud géant se rétracta rapidement jusqu'à n'atteindre que la taille de sa paume, avant de bondir sur son épaule. Le ventre de l'animal se gonflait et se dégonflait rapidement tout en croassant.
+Une fois au sol, il agita négligemment sa main droite et le crapaud géant se rétracta rapidement jusqu'à n'atteindre que la taille de sa paume, avant de bondir sur son épaule. Le ventre de l'animal se gonflait et se dégonflait rapidement en émettant des gargouillis.
 
 Lorsqu'il toucha terre, tout ce qui se trouvait dans un rayon de trois pieds commença immédiatement à grésiller, et une vapeur noire s'éleva du sol.
 
@@ -42,7 +42,7 @@ Duanmu Ji regarda Wang Qingyue et dit: « Cet homme est Wang Qingyue. Il connaî
 
 Le regard brumeux du bossu Meng balaya Wang Lin, mais il ne dit mot.
 
-La main du Seigneur Démon des Six Désirs traça des sceaux mystérieux alors qu'il marchait vers la matrice de transfert. Après avoir lancé plusieurs sceaux, l'ensemble de la formation commença à se briser de l'intérieur. Des rafales de gaz vert jaillirent de la matrice jusqu'à ce que celle-ci soit complètement détruite. Puis son corps disparut tandis qu'il traversait les débris de la formation.
+La main du Seigneur Démon des Six Désirs traça des sceaux mystérieux alors qu'il marchait vers la matrice de transfert. Après avoir lancé plusieurs sceaux, l'ensemble de la formation commença à se briser de l'intérieur. Des rafales de gaz vert jaillirent de la matrice jusqu'à ce que celle-ci soit complètement détruite. Puis son corps vacilla, et il se mit à se déplacer rapidement au sein des débris de la formation.
 
 À chaque pas, il laissait une trace d'énergie spirituelle sur le sol. Il accéléra de plus en plus, laissant derrière lui toujours plus de traces, jusqu'à créer des images rémanentes. On aurait dit que plusieurs personnes marchaient autour de la matrice.
 
@@ -82,7 +82,7 @@ Même l'Empereur Antique ne put s'empêcher de laisser ses yeux briller alors qu
 
 Derrière lui se trouvaient le bossu Meng, Duanmu Ji et le jeune homme accompagnant le Seigneur Démon des Six Désirs. Quant à Wang Qingyue, il hésita un instant avant d'entrer à son tour. Wang Lin baissa la tête, les yeux étincelants, et s'avança.
 
-Une fois que les sept furent entrés, le Seigneur Démon des Six Désirs poussa un rugissement et la matrice s'anima. Les dix pierres de qualité supérieure volèrent en éclats, créant une puissante onde d'énergie spirituelle. Les montagnes environnantes furent réduites en poussière et les Étoiles Brisées du Chaos elles-mêmes tremblèrent.
+Une fois que les sept furent entrés, le Seigneur Démon des Six Désirs poussa un rugissement et la matrice s'anima. Les dix pierres de qualité supérieure volèrent en éclats, créant une puissante onde d'énergie spirituelle. Les montagnes environnantes furent réduites en poussière et les Étoiles Brisées du Chaos elles-mêmes s'immobilisèrent un instant.
 
 Il fallut un long moment avant que l'énergie ne se dissipe. La matrice de transfert était désormais totalement détruite et inutilisable.
 

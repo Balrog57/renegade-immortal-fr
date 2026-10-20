@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1275 - The Four Void Realms
 slug: les-quatre-royaumes-du-vide
 ---
-Les Chars de Guerre Divins avaient été fabriqués par le célèbre forgeron excentrique du Royaume Céleste de la Pluie. Il venait de les fabriquer et ils n'étaient pas encore totalement activés; il cherchait encore les matériaux nécessaires lorsque la grande calamité du Royaume Céleste s'est abattue!
+Les Chars de Guerre Divins avaient été fabriqués par Duobao, le célèbre forgeron excentrique du Royaume Céleste de la Pluie. Il venait de les fabriquer et ils n'étaient pas encore totalement activés; il cherchait encore les matériaux nécessaires lorsque la grande calamité du Royaume Céleste s'est abattue!
 
 Lors de cette calamité, il était mort dans un regret monstrueux. Il avait consacré tout son savoir et toute sa culture à la création de ces chariots de guerre. N'hésitant pas à parcourir le monde pour trouver les matériaux requis, il y avait dépensé toutes ses forces, ce qui avait provoqué le flétrissement rapide de sa longévité infinie. Vers la fin, il était aux cheveux blancs et presque dépourvu de vitalité. Même si la calamité ne s'était pas produite, il serait mort une fois les Chars de Guerre Divins achevés.
 
@@ -14,7 +14,7 @@ Son rêve était de créer le trésor le plus puissant du monde. Pour tuer même
 
 Son regret était resté gravé dans le jade, et finalement, il était tombé entre les mains de Wang Lin. Aujourd'hui, à cet instant précis, c'est entre les mains de Wang Lin que ce trésor révélait son pouvoir terrifiant capable de terrasser les dieux!
 
-Même si Shui Daozi avait vécu des dizaines de milliers d'années, même s'il était le serviteur du Seigneur du Royaume Scellé et l'Ancien en chef de la Secte Divine, il n'aurait pu connaître tout ce qui s'était passé dans les quatre Royaumes Célestes. Et encore moins un être céleste ayant créé un trésor défiant le ciel, capable de menacer des cultivateurs du troisième niveau!
+Même si Shui Daozi avait vécu des dizaines de milliers d'années, même s'il était le serviteur du Seigneur du Royaume Scellé et l'Ancien en chef de la Secte Divine, il n'aurait pu connaître tout ce qui s'était passé dans les quatre Royaumes Célestes. Et encore moins un être céleste du nom de Duobao, ayant créé un trésor défiant le ciel, capable de menacer des cultivateurs du troisième niveau!
 
 « Ce n'est pas un Trésor du Vide Nirvana. Il est impossible d'en déterminer le rang. Ceci... Quel genre de trésor est-ce là? » L'expression du garçon aux cheveux blancs changea. Il était venu pour tuer Wang Lin, et il en était absolument certain. La seule chose qui l'inquiétait était la Perle Défiant le Ciel. Il ne pensait pas que Wang Lin posséderait un trésor aussi terrifiant.
 
@@ -24,7 +24,7 @@ Il n'y avait aucun rugissement, seulement une intention meurtrière indescriptib
 
 Après être entré dans le troisième niveau, Shui Daozi utilisait rarement toute sa puissance pour combattre un ennemi. Cependant, à cet instant, son visage devint grave. Au moment où la lance approcha, il agita ses mains devant lui, ses larges manches fouettant l'air. Sa main droite prit la forme d'une griffe et frappa impitoyablement vers l'avant!
 
-« Dao de Découpe Insouciante! » Alors que les paroles de Shui Daozi résonnaient à travers le monde, sa main droite sembla forger le plus puissant dao de découpe. Lorsqu'il fit ce mouvement, des bruits de craquement éclatèrent, et il semblait même que le vide devant lui soit tranché.
+« Dao de Découpe Insouciant! » Alors que les paroles de Shui Daozi résonnaient à travers le monde, sa main droite sembla forger le plus puissant dao de découpe. Lorsqu'il fit ce mouvement, des bruits de craquement éclatèrent, et il semblait même que le vide devant lui soit tranché.
 
 Le vide effondré s'étendit soudainement en une forme dentelée et se propagea. Les craquements atteignirent instantanément un paroxysme et résonnèrent à travers le monde comme un rugissement. La déchirure percuta rapidement la lance, créant un fracas assourdissant. Ce rugissement violent se propagea rapidement dans les régions de rang 5 et 6. D'innombrables cultivateurs crachèrent du sang, leurs yeux remplis d'horreur.
 
@@ -66,7 +66,7 @@ L'expression de Shui Daozi était sombre alors qu'il reculait une fois de plus. 
 
 Tandis qu'il avançait, sa main gauche forma un sceau et pointa vers le ciel. *Invoquer le Vent* apparut soudainement, se transformant en dragons noirs. Alors que le vent destructeur s'intensifiait, les dragons noirs se changèrent en lances noires perçant les cieux qui chargèrent Shui Daozi.
 
-*Invoquer la Pluie* apparut également. Les gouttes de pluie se transformèrent en épées de glace qui jaillirent.
+*Invoquer la Pluie* apparut également. Les gouttes de pluie, scintillant comme des cristaux, se transformèrent en épées de glace qui jaillirent.
 
 Simultanément, l'*Arsenal Magique* s'activa et l'*Empreinte Céleste de Scellement* vola hors de la bouche de Wang Lin. D'innombrables âmes de bataille apparurent dans une série de rugissements lugubres. Elles chargèrent Shui Daozi sous la direction du Maître du Vide et de l'Omniscient.
 

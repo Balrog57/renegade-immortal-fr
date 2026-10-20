@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 400 - Xu Liguo
 slug: xu-liguo
 ---
-Wang Lin prit une profonde inspiration et lança un coup de poing avec retenue. Bien que le geste fût empreint de douceur, il fit bouger la figure de l'Ancien Dieu derrière lui. La silhouette leva également son poing et projeta un coup simultané.
+Wang Lin prit une profonde inspiration et lança un coup de poing avec retenue. Bien que le geste fût empreint de douceur, il fit bouger la figure du Dieu Ancien derrière lui. La silhouette leva également son poing et projeta un coup simultané.
 
 Le poing de l'ancêtre du Clan des Démons Géants arriva rapidement et percuta celui de Wang Lin.
 
@@ -18,7 +18,7 @@ Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son br
 
 Au moment où l'épée céleste apparut, un gaz noir s'en échappa, prenant la forme de Xu Liguo. Le visage de l'ancêtre du Clan des Démons Géants était féroce lorsqu'il cria: « Tranche! »
 
-À l'instant même où il prononça ce mot, une puissante énergie d'épée se rassembla sur l'arme céleste et fondit sur Wang Lin.
+À l'instant même où il prononça ce mot, une puissante énergie d'épée, comme pour fendre le ciel et la terre, se rassembla sur l'arme céleste et fondit sur Wang Lin.
 
 Xu Liguo laissa échapper un rugissement et hurla: « Wang Lin, je viens me venger! »
 
@@ -30,7 +30,7 @@ L'ancêtre fut stupéfait et son expression changea radicalement. L'énergie d'�
 
 L'énergie d'épée frappa et, dans une éclaboussure de sang, le bras gauche de l'ancêtre du Clan des Démons Géants fut tranché net. Il laissa échapper un gémissement misérable en reculant précipitamment, laissant derrière lui une traînée de sang.
 
-« Xu Liguo!!!! Ce vieil homme va extraire ton âme et te raffiner vivant dans le feu Yang!!! »
+« Xu Liguo!!!! Ce vieil homme va extraire ton âme, te sceller dans le feu Yang et te raffiner vivant!!! »
 
 La haine qui habitait l'ancêtre du Clan des Démons Géants pouvait briser les cieux, et sa colère pouvait engloutir la terre. Il poussa un rugissement de rage tout en s'éloignant rapidement.
 
@@ -56,7 +56,7 @@ Surtout lorsqu'il pensa à cette petite fée, son cœur se serra: « Ne t'inqui�
 
 Une autre raison pour laquelle Xu Liguo avait trahi l'ancêtre sans la moindre hésitation, outre sa peur paralysante de Wang Lin, était l'âme de Feng Luan. En interagissant avec elle, il lui avait personnellement promis de la sauver des griffes de l'ancêtre du Clan des Démons Géants.
 
-Se remémorant cela, il dit rapidement à Wang Lin: « Maître, ce vieux sac d'os du Clan des Démons Géants possède un trésor en forme de roue dans son sac, qui contient une âme scellée. Une fois que tu auras terrassé ce vieux débris, tu devras sauver cette âme. »
+Se remémorant cela, il dit rapidement à Wang Lin: « Maître, ce vieux bougre du Clan des Démons Géants possède un trésor en forme de roue dans son sac, qui contient une âme scellée. Une fois que tu auras terrassé ce vieux débris, tu devras sauver cette âme. »
 
 Wang Lin acquiesça. Il se déplaça comme l'éclair, l'épée céleste à la main, pour poursuivre l'ancêtre du Clan des Démons Géants.
 
@@ -80,7 +80,7 @@ Cette créature possédait une tête massive et un corps couvert d'épines enfla
 
 La bête de flammes noires poussa un rugissement tandis que ses yeux rouge feu se fixaient sur Wang Lin, avant de charger vers lui.
 
-Le regard de Wang Lin demeura calme. Il abattit l'épée céleste et un rayon d'énergie d'épée frappa la créature. La bête fut repoussée et une blessure apparut sur sa poitrine, mais celle-ci se referma aussitôt.
+Le regard de Wang Lin demeura calme. Il abattit l'épée céleste et un rayon d'énergie d'épée frappa la créature. La bête fut repoussée et une blessure profonde apparut sur sa poitrine, mais celle-ci se referma aussitôt.
 
 Wang Lin frappa son sac de rangement et le drapeau de restriction apparut dans sa main. Il agita le drapeau, libérant d'innombrables brins de gaz de restriction. D'une voix douce, il commanda: « Scelle! »
 
@@ -94,11 +94,11 @@ Boum!
 
 Toutes les lances explosèrent dans un unique retentissement, créant une onde de choc qui se propagea dans toutes les directions.
 
-Alors que l'onde approchait de Wang Lin, un drapeau d'âme s'élança. Ce n'était pas le Étendard de l'Âme, mais le drapeau des mille âmes que Wang Lin avait lui-même raffiné. Cependant, avec Li Yuanfeng comme âme principale, il était devenu extrêmement puissant.
+Alors que l'onde approchait de Wang Lin, un drapeau d'âme s'élança. Ce n'était pas le drapeau des un milliard d'âmes, mais le drapeau des mille âmes que Wang Lin avait lui-même raffiné. Cependant, avec Li Yuanfeng comme âme principale, il était devenu extrêmement puissant.
 
 D'un mouvement de la bannière, plusieurs milliers de fragments d'âmes s'envolèrent, menés par le fragment de l'âme de Li Yuanfeng. Les souvenirs de ce dernier avaient été effacés depuis longtemps par Wang Lin; il n'était désormais que l'âme principale du drapeau, n'agissant que par instinct.
 
-« Détruisez! » Les yeux de Wang Lin devinrent glacials. Les milliers de fragments d'âmes poussèrent des gémissements fantomatiques. Sous le commandement de Li Yuanfeng, ils chargèrent tous la bête de flammes noires qui venait de s'extraire de l'onde de choc.
+« Détruisez! » Les yeux de Wang Lin devinrent glacials. Les milliers de fragments d'âmes poussèrent des gémissements fantomatiques. Sous le commandement de Li Yuanfeng, âme principale de la Transformation de l'Âme, ils chargèrent tous la bête de flammes noires qui venait de s'extraire de l'onde de choc.
 
 Une fois cela fait, Wang Lin tourna son regard vers l'ancêtre du Clan des Démons Géants. Il ne croyait pas qu'un cultivateur au début du stade de la Transformation de l'Âme ne possède que ces quelques techniques. L'ancêtre devait cacher un atout majeur, et il y avait forcément une raison pour qu'il s'arrête en ce lieu précis.
 
@@ -108,11 +108,11 @@ Simultanément, l'ancêtre bougea. Il s'agenouilla dans les airs et s'inclina fa
 
 À l'instant où il eut fini de parler, le ciel s'obscurcit et le sol se mit à trembler dans tout le territoire du clan.
 
-Sur la frontière orientale du Clan des Démons Géants se dressait une montagne immense, la plus haute du pays. De loin, elle semblait percer les cieux. À cet instant précis, la montagne se fendit en deux et une hache gigantesque, émettant une lueur rouge, s'en échappa.
+Sur la frontière orientale du Clan des Démons Géants se dressait une montagne immense, la plus haute du pays. De loin, elle semblait percer les cieux. À cet instant précis, la montagne se fendit en deux et une hache gigantesque, émettant une lueur rouge, s'éleva lentement dans le ciel.
 
 L'ancêtre afficha un respect qu'il n'avait jamais montré auparavant. Il tendit la main et la hache géante vint se loger dans sa paume.
 
-Instantanément, des éclairs rouges jaillirent de l'arme et enveloppèrent le corps de l'ancêtre. Une aura puissante, totalement inédite jusqu'alors, émana de lui.
+Instantanément, des éclairs rouges jaillirent de l'arme et enveloppèrent le corps de l'ancêtre. Ses cheveux se mirent à flotter sans vent, et une aura puissante, totalement inédite jusqu'alors, émana de lui.
 
 « Wang Lin, lorsque mon clan s'est établi sur cette planète, notre ancêtre fondateur utilisa cette hache pour fendre le ciel et la terre et se rendre chez le Clan de l'Immortel Délaissé. Là-bas, il tua deux chamans à neuf feuilles pour garantir au Clan des Démons Géants le droit de vivre ici! Aujourd'hui, bien que l'ancêtre fondateur soit toujours porté disparu, sa hache est toujours là! »
 

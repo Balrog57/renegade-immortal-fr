@@ -10,7 +10,7 @@ La tempête qui avait secoué le palais impérial de l'Ancien Dao, où le discip
 
 Cette nouvelle s'était propagée progressivement après le départ des membres des deux autres clans. Presque tous ceux qui en étaient dignes en avaient entendu parler.
 
-Cet événement aurait dû provoquer une agitation plus vaste, mais un autre fait, encore plus choquant, fit que l'affaire s'estompa lentement: l'ouverture précoce du Royaume Divin Immémorial avait déclenché une onde de choc à travers tout le clan Ancien.
+Cet événement aurait dû provoquer une agitation plus vaste, mais un autre fait, encore plus choquant, fit que l'affaire s'estompa lentement: l'ouverture précoce du Royaume Divin Immémorial avait déclenché une onde de choc à travers tout le clan Ancien, et même à travers tout le Continent Astral Immortel.
 
 La vaste mer séparant le clan Ancien du clan Céleste était devenue un gouffre immense, sans fin, exhalant une odeur de décomposition. Au centre de cette mer, une tempête grondait avec fracas.
 
@@ -20,7 +20,7 @@ Jiu Di s'était également rendu sur place personnellement, mais malgré son niv
 
 Et cette fois, ce serait une ouverture complète, telle qu'on n'en avait jamais vu auparavant!
 
-Dao Yi, Wu Feng et les Grands Empyréens du clan Ancien, y compris Xuan Luo, étaient tous venus. Ils contemplèrent silencieusement la porte depuis l'extérieur de la tempête avant de repartir dans le silence.
+Dao Yi, Wu Feng, ainsi que plusieurs Grands Empyréens du clan Ancien, dont Xuan Luo, étaient tous venus. Ils contemplèrent silencieusement la porte depuis l'extérieur de la tempête avant de repartir dans le silence.
 
 Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans royaux et à leurs Grands Empyréens. Le message était d'une simplicité glaciale: il ordonnait de cesser d'observer le Royaume Divin Immémorial, car celui-ci s'ouvrirait dans cinq cents ans. Il enjoignait également les trois clans et leurs Grands Empyréens respectifs à se préparer à la guerre pendant ce délai.
 
@@ -50,7 +50,7 @@ C'était cet homme qui avait forcé le palais de l'Ancien Dao, tué l'Empereur d
 
 Elle ignorait ce que Wang Lin comptait faire, mais durant le voyage, la gentillesse et la prévenance de cet homme avaient fait naître une chaleur au plus profond de son cœur.
 
-En chemin, l'homme lui avait raconté une histoire. Une longue histoire. Une rencontre fortuite, un amour qui débuta par: « Je t'emmènerai pour tuer », et qui se terminait par: « Même si le ciel veut ta mort, je te ramènerai! », suivie de milliers d'années de chagrin et de nostalgie.
+En chemin, l'homme lui avait raconté une histoire. Une longue histoire. Une rencontre fortuite, un amour qui débuta par: « Je t'emmènerai pour tuer », et qui se terminait par: « Même si le ciel veut ta mort, je te ramènerai de force! », suivie de milliers d'années de chagrin et de nostalgie.
 
 Wang Lin regarda la femme devant lui avec une douceur infinie et hocha la tête.
 

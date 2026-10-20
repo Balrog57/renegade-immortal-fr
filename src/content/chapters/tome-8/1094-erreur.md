@@ -50,7 +50,7 @@ Déjà sous le choc, Lie Yunzi cracha une bouchée de sang lorsque cette pressio
 
 « Lie Yunzi, êtes-vous venu ici au nom de Luotian pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant à la Secte Divine Oiseau Vermillon réclamer l'Empereur Divin? C'est proprement absurde! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
 
-« Cette affaire revient à envoyer quelqu'un au Temple Céleste du Tonnerre pour exiger le Maître Yan Leizi. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divine Oiseau Vermillon. Demain, votre Luotian en paiera le prix! »
+« Cette affaire revient à envoyer quelqu'un à Luotian pour exiger le Maître Yan Leizi du Temple Céleste du Tonnerre. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divine Oiseau Vermillon. Demain, votre Luotian en paiera le prix! »
 
 « Ce n'est pas une accusation fabriquée de ma part. Le compagnon cultivateur Mo Zhi, du pays de Chu Yun, peut en être témoin! » Wang Lin ne laissa aucune chance à Lie Yunzi; il lança son assaut comme un coup de tonnerre!
 
@@ -66,9 +66,9 @@ Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait les mo
 
 Si cet homme n'avait pas formulé une requête aussi insensée, Wang Lin n'en serait pas arrivé là. Mais désormais, il devait donner une leçon à Lie Yunzi. Et non seulement lui, mais même les quatre anciens derrière lui le fixaient d'un regard glacial.
 
-Un silence de mort s'installa. Mo Zhi regarda Wang Lin avec mélancolie. Il ne s'attendait pas à ce que l'ancien ami dont son maître parlait soit Wang Lin.
+Un silence de mort s'installa. Mo Zhi regarda Wang Lin avec émotion. Il ne s'attendait pas à ce que l'ancien ami dont son maître parlait soit Wang Lin.
 
-Il se remémora leur première rencontre sur la planète Suzaku, dans un temple, par une nuit pluvieuse. À l'époque, cet homme venait tout juste d'obtenir son domaine et d'atteindre le stade de la Formation de l'Âme. Cependant, cette nuit de quête du Dao avait marqué Mo Zhi à jamais.
+Il se remémora leur première rencontre sur la planète Suzaku, dans un temple, par une nuit pluvieuse. À l'époque, cet homme venait tout juste d'obtenir son domaine et d'atteindre le stade de la Formation de l'Âme. Cependant, cette nuit de discussion du Dao avait marqué Mo Zhi à jamais.
 
 La belle femme de la Secte des Cadavres garda également le silence. Elle observait Lie Yunzi avec un sourire qui n'en était pas un, comme si elle assistait à un spectacle divertissant.
 

@@ -42,7 +42,7 @@ Le symbole commença aussitôt à fondre, se transformant en un étrange filamen
 
 Une fois le miroir de bronze rangé, Wang Lin ne plaça pas cette pseudo-restriction d'héritage sur les deux autres trésors magiques. À l'extérieur, le ciel s'éclaircissait progressivement. Wang Lin ferma les yeux et commença sa culture.
 
-Le soleil dominait le ciel et dissipait lentement les ténèbres. Wang Lin ouvrit les yeux, se leva et poussa la porte. La lumière solaire frappa son corps et une sensation de chaleur envahit immédiatement son esprit. L'énergie spirituelle environnante était si riche à cet instant que son esprit fut instantanément revigoré.
+Le soleil naissant couvrait la terre et dissipait peu à peu les ténèbres. Wang Lin ouvrit les yeux, se leva et poussa la porte. La lumière solaire frappa son corps et une sensation de chaleur envahit immédiatement son esprit. L'énergie spirituelle environnante était si riche à cet instant que son esprit fut instantanément revigoré.
 
 Un sentiment de sérénité emplissait son cœur. Wang Lin bougea légèrement, puis avança. En passant la sortie, il vit le jeune homme sous le rocher qui continuait sa culture pour absorber toutes les essences du ciel et de la terre.
 
@@ -70,7 +70,7 @@ Certains commerces, peut-être par coutume locale, exposaient d'incroyablement g
 
 Les yeux de Wang Lin pétillèrent d'intérêt. Ce genre d'étalage témoignait parfaitement de la puissance de ces boutiques. Il faut dire que des cultivateurs ordinaires ne pourraient jamais extraire de tels cristaux des veines spirituelles.
 
-La taille des cristaux était proportionnelle au prestige des enseignes. Certains mesuraient près de 6,6 mètres de haut, et leur simple présence imposait une sensation de pression.
+La taille des cristaux était liée au prestige des enseignes. Certains mesuraient près de 6,6 mètres de haut, et leur simple présence imposait une sensation de pression.
 
 Il y avait même une boutique dont l'extérieur était orné de cristaux de haute qualité. Cette découverte attira immédiatement l'attention de Wang Lin.
 

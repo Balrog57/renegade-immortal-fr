@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1350 - Battle at the Scatter Thunder Clan! (4)"
 slug: bataille-au-clan-du-tonnerre-eparpille-4
 ---
-« Empreinte de Tonnerre Géante! » Après avoir révélé le sceau et déployé une culture culminant au quatrième niveau du Fléau Céleste, l'Ancien en chef sembla devenir une personne différente. Il dégageait une pression colossale!
+« Sceau de Rassemblement du Tonnerre! » Après avoir révélé le sceau et déployé une culture culminant au quatrième niveau du Fléau Céleste, l'Ancien en chef sembla devenir une personne différente. Il dégageait une pression colossale!
 
 L'espace environnant parut incapable de supporter cette pression; il commença à se tordre et des fissures apparurent.
 
-À peine avait-il prononcé « Empreinte de Tonnerre Géante » que le tonnerre rugit tout autour de lui. Puis, les éclairs qui avaient été repoussés se rassemblèrent rapidement dans la main droite de l'Ancien.
+À peine avait-il prononcé « Sceau de Rassemblement du Tonnerre » que le tonnerre rugit tout autour de lui. Puis, les éclairs qui avaient été repoussés se rassemblèrent rapidement dans la main droite de l'Ancien.
 
 Une sphère de tonnerre gigantesque apparut soudainement!
 
@@ -24,11 +24,11 @@ C'était comme si toute la lumière, le tonnerre et la vie étaient aspirés par
 
 Cette scène terrifiante choqua même Wang Lin, dont les pupilles se rétractèrent. Il savait quel sort l'adversaire utilisait, car il l'avait lui-même appris. À cet instant, ses yeux s'illuminèrent et il leva la main droite comme s'il s'apprêtait à soutenir le ciel.
 
-« Empreinte de Tonnerre Géante! » La voix de Wang Lin résonna, et tout le tonnerre qui convergeait vers l'Ancien trembla. Une marque de tonnerre apparut dans l'œil droit de Wang Lin, accompagnée d'un Tonnerre Spirituel qui tournoyait autour d'elle. L'œil droit de Wang Lin brilla, dégageant une aura démoniaque!
+« Sceau de Rassemblement du Tonnerre! » La voix de Wang Lin résonna, et tout le tonnerre qui convergeait vers l'Ancien trembla. Une marque de tonnerre apparut dans l'œil droit de Wang Lin, accompagnée d'un Tonnerre Spirituel qui tournoyait autour d'elle. L'œil droit de Wang Lin brilla, dégageant une aura démoniaque!
 
 Le tonnerre de ce monde fut scindé en deux. Une moitié chargea la main droite de Wang Lin pour former instantanément une sphère de tonnerre gigantesque.
 
-Lorsque l'Ancien vit que Wang Lin utilisait également l'Empreinte de Tonnerre Géante, ses pupilles se contractèrent, mais il resta silencieux.
+Lorsque l'Ancien vit que Wang Lin utilisait également le Sceau de Rassemblement du Tonnerre, ses pupilles se contractèrent, mais il resta silencieux.
 
 Leurs regards se percutèrent alors qu'ils maintenaient leurs sphères respectives, et celles-ci commencèrent à se comprimer frénétiquement!
 
@@ -40,13 +40,13 @@ Tandis que les grondements tonitruants résonnaient, la sphère de l'Ancien se c
 
 Tout cela se produisit en un instant. Alors que les deux hommes compressaient le tonnerre, un changement titanesque survint. Le monde sembla se déchirer en deux, chaque moitié étant attirée vers l'un d'eux!
 
-Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait le Clan du Tonnerre Dispersé était l'Éclair Éternel, l'essence du tonnerre descendue du ciel et de la terre il y a d'innombrables éons!
+Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait le Clan du Tonnerre Dispersé était le tonnerre éternel, l'essence du tonnerre descendue du ciel et de la terre il y a d'innombrables éons!
 
 Les yeux de l'Ancien brillèrent d'une lueur étrange et il bondit soudainement. Il chargea Wang Lin avec le tonnerre compressé 5 000 000 de fois!
 
 « Meurs! »
 
-Tout ce que Wang Lin possédait, il l'avait acquis étape par étape, depuis l'instant où il avait dévoré la moitié d'un dragon du tonnerre antique jusqu'à la formation de sa propre essence de tonnerre. Bien qu'elle ne puisse égaler l'Éclair Éternel, elle se situait au même niveau d'existence!
+Tout ce que Wang Lin possédait, il l'avait acquis étape par étape, depuis l'instant où il avait dévoré la moitié d'un dragon du tonnerre antique jusqu'à la formation de sa propre essence de tonnerre. Bien qu'elle ne puisse égaler le tonnerre éternel, elle se situait au même niveau d'existence!
 
 Au moment où l'Ancien fondit sur lui, Wang Lin bondit également avec son tonnerre compressé 3 000 000 de fois. Il poussa un rugissement en s'élançant!
 
@@ -56,7 +56,7 @@ Ce niveau de compression représentait la limite de Wang Lin. Ses yeux brillaien
 
 Tous deux étaient des cultivateurs du tonnerre. Le combat entre deux tels experts pouvait se résumer très simplement: ils rivalisaient de contrôle sur le tonnerre!
 
-De la même manière, possédant tous deux une résistance naturelle à l'électricité, aucun éclair ordinaire ne pouvait les blesser. Cependant, le tonnerre qu'ils maniaient obéissait à leur volonté et pouvait donc infliger des dégâts dévastateurs!
+De la même manière, possédant tous deux une résistance naturelle à l'électricité, aucun éclair ordinaire ne pouvait les blesser. Cependant, le tonnerre manié par l'adversaire, chargé de sa volonté, pouvait infliger des dégâts dévastateurs!
 
 Un fracas assourdissant se propagea et l'espace environnant commença à s'effondrer violemment. Des fissures spatiales apparurent et le lac de tonnerre trembla. La collision des deux sphères généra une onde de choc inimaginable!
 
@@ -78,11 +78,11 @@ Ce n'était là que la première onde de choc. Alors que Wang Lin était repouss
 
 En ce moment critique, voyant l'onde de choc approcher, Wang Lin ne songeait pas seulement à sa propre survie, mais aussi à la manière d'attaquer l'Ancien. Il était convaincu que l'autre partie devait également lutter pour résister à l'aura destructrice de l'effondrement!
 
-« Je donne tout ce que j'ai! » Les yeux de Wang Lin étaient empreints de folie. Son caractère avait toujours été ainsi: plus le danger était grand, plus il devenait audacieux. Grâce à ses calculs précis et sa force mentale prodigieuse, il parvenait sans cesse à vaincre ceux qui étaient plus forts que lui!
+« Je donne tout ce que j'ai! » Les yeux de Wang Lin étaient empreints de folie. Son caractère avait toujours été ainsi: plus le danger était grand, plus il devenait audacieux. Grâce à ses calculs précis et à sa ruse, il parvenait sans cesse à vaincre ceux qui étaient plus forts que lui!
 
 Alors que la seconde onde de choc arrivait, les mains de Wang Lin formèrent un sceau et pointèrent vers l'avant. Des rayons de lumière jaillirent soudainement au milieu du chaos!
 
-Ces rayons contenaient du tonnerre, des éclairs, de la lumière stellaire, la clarté infinie issue des fissures spatiales, et même la lumière provenant des planètes et des cultivateurs lointains du Clan du Tonnerre Dispersé!
+Ces rayons contenaient du tonnerre, des éclairs, de la lumière stellaire, une lumière d'anéantissement, la lumière informe issue des innombrables fissures spatiales, et même la lumière provenant des planètes et des cultivateurs lointains du Clan du Tonnerre Dispersé!
 
 Plus important encore, une lumière émanait du talisman des 7 Millions de Mondes dans son espace de stockage. Ces lueurs se rassemblèrent frénétiquement autour de Wang Lin, formant soudainement une immense silhouette lumineuse!
 
@@ -118,4 +118,4 @@ C'était l'Ancien en chef du Clan du Tonnerre Dispersé, mais il était plus pui
 
 Ses vêtements étaient en lambeaux et un trou percé par l'épée de sang marquait sa poitrine. Une fissure barrait la marque entre ses sourcils, causée par le Royaume Ji. Son corps était couvert de blessures dues à l'essence de tonnerre de Wang Lin, et son âme originelle était également endommagée par les ondes de choc!
 
-« Tu es mort! Avec ma vitalité infinie du cinquième Fléau Céleste, au nom du Saint Éclair Éternel dont je suis l'esclave... j'ouvre le Royaume du Tonnerre Antique et j'invoque, des éons passés... le Dragon du Tonnerre Antique!!! »
+« Tu es mort! Avec ma vitalité infinie du cinquième Fléau Céleste, au nom du Saint Tonnerre Éternel dont je suis l'esclave... j'ouvre le Royaume du Tonnerre Antique et j'invoque, des éons passés... le Dragon du Tonnerre Antique!!! »

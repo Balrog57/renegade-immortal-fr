@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: "Chapter 207 - Killing people for their core!"
 slug: tuer-pour-leur-noyau
 ---
-Les yeux voilés du vieil homme aux cheveux blancs se mirent à briller et son dos légèrement voûté commença à se redresser. Son corps entier parut soudainement regagner en vitalité.
+Les yeux voilés du vieil homme aux cheveux blancs se mirent à briller et son dos légèrement voûté commença à se redresser. Son aura s'éleva brusquement et son corps entier parut regagner en vitalité.
 
 Tous les cultivateurs de la ville perdirent brusquement le contrôle de l'énergie spirituelle dans leurs corps, comme s'ils vivaient une expérience de décorporation. Cela instilla une peur profonde en chacun d'eux.
 
@@ -74,7 +74,7 @@ Finalement, lorsque le pilier rouge fut enfoncé aux deux tiers dans la brume, t
 
 Privée de la brume issue de l'eau de mer, la lumière du soleil brilla pour la première fois sur la mer extérieure.
 
-Elle illumina les terres sombres, la ville sinistre et les cultivateurs dont les visages étaient pétrifiés par la panique. Certains, n'ayant jamais vu une telle intensité lumineuse de leur vie, furent saisis d'exaltation.
+Elle illumina les terres sombres, la ville délabrée et les cultivateurs dont les visages étaient pétrifiés par la panique. Certains, n'ayant jamais vu une telle intensité lumineuse de leur vie, furent saisis d'exaltation.
 
 Si l'on comparait la Mer des Démons à un cercle, toute la brume en périphérie avait disparu; elle s'était soit concentrée au centre, soit transformée en nuages noirs par le pilier rouge.
 
@@ -378,7 +378,7 @@ Ce navire de 33 mètres de long était orné de motifs d'animaux spirituels, ave
 
 Wang Lin sonda le bateau par son Sens Divin. Rassuré, il y monta. Qiu Siping activa la sculpture de l'oiseau et le navire se mit en mouvement.
 
-Naviguer sur ce bateau était plus lent que de voler, mais beaucoup moins épuisant car cela ne consommait aucune énergie spirituelle. Wang Lin observait la barrière lumineuse qui les protégeait de la pluie noire tombant depuis des semaines. Au loin, le tonnerre grondait sans cesse, créant une atmosphère de "tonnerre dans la nuit".
+Naviguer sur ce bateau était plus lent que de voler, mais beaucoup moins épuisant car cela ne consommait aucune énergie spirituelle. Wang Lin observait la barrière lumineuse qui les protégeait de la pluie noire tombant depuis des semaines. Au loin, le tonnerre grondait par moments, créant une atmosphère de "tonnerre dans la nuit".
 
 Qiu Siping demanda: « Frère Wang, qu'en pensez-vous? »
 

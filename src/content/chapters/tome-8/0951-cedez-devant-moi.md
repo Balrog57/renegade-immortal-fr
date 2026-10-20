@@ -56,7 +56,7 @@ Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres 
 
 « Si je peux m'emparer de ces 99 épées volantes, même si ma culture n'égale pas celle de Ling Tianhou, je devrais pouvoir résister grâce à la puissance de ce trésor! » Les yeux de Wang Lin s'illuminèrent et il se lécha les lèvres.
 
-« Ce Royaume de la Boucherie regorge véritablement de trésors! » Des centaines de pensées traversèrent l'esprit de Wang Lin. Qing Shui n'avait pas réellement besoin de son aide; il l'avait invité pour lui offrir l'opportunité de s'emparer d'une fortune en pillant le Royaume de la Boucherie. C'était ainsi que Qing Shui remerciait Wang Lin pour ses actes dans le vide.
+« Ce Royaume de la Boucherie regorge véritablement de trésors! » Des centaines de pensées traversèrent l'esprit de Wang Lin. Qing Shui n'avait pas réellement besoin de son aide; il l'avait invité pour lui offrir l'opportunité de s'emparer d'une fortune en pillant le Royaume de la Boucherie. C'était ainsi que Qing Shui remerciait Wang Lin pour les soins qu'il lui avait prodigués dans le vide.
 
 À cet instant précis, trois individus s'élancèrent parmi les cent cultivateurs environnants!
 
@@ -64,7 +64,7 @@ Parmi eux, deux étaient au stade intermédiaire du Scruteur du Nirvana. Le troi
 
 Ce vieil homme ne s'était pas manifesté lorsque Wang Lin et Qing Shui étaient apparus; il s'était caché avec prudence pour ne se révéler qu'à présent.
 
-Dès leur apparition, le vieil homme frappa son sac de rangement et quatre gourdes en jade blanc s'en échappèrent. Ces gourdes étaient d'une clarté cristalline et parfaitement lisses. Dès qu'elles furent sorties, le vieil homme pointa le doigt vers l'avant!
+Dès leur apparition, le vieil homme frappa son sac de rangement et quatre gourdes en jade blanc s'en échappèrent. Ces gourdes étaient d'une clarté cristalline et diffusaient une douce lumière. Dès qu'elles furent sorties, le vieil homme pointa le doigt vers l'avant!
 
 Les quatre gourdes se mirent soudain à pivoter devant lui pour faire face à Wang Lin.
 

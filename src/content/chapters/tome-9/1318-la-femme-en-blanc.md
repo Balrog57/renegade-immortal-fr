@@ -108,7 +108,7 @@ Il devina vaguement la réponse, affichant une expression complexe.
 
 Sous la force de résistance infinie qu'il avait dû braver pour gravir la montagne, son corps avait subi un changement radical. Bien que son niveau de culture n'ait pas progressé, l'ascension avait aiguisé ses sens. Cela lui avait permis de ressentir clairement ce choc!
 
-« Maître du Dao Rêve Bleu… Si tout cela était intentionnel, alors ma supposition précédente est correcte. La femme en blanc s'inquiétait pour le Maître du Dao Rêve Bleu, et c'est pourquoi elle n'est pas entrée dans le Clan! »
+« Maître du Dao Rêve Bleu… Si tout cela était intentionnel, alors ma supposition précédente est correcte. La femme en blanc craignait le Maître du Dao Rêve Bleu, et c'est pourquoi elle n'est pas entrée dans le Clan! »
 
 « Le Maître du Dao Rêve Bleu a utilisé cette méthode pour m'avertir secrètement qu'il y avait un danger à quitter le Clan de la Soie Bleue! » L'esprit de Wang Lin était celui d'un démon. Il lui suffisait d'une piste pour déduire la vérité comme on brise une restriction!
 

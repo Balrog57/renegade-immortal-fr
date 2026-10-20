@@ -16,13 +16,13 @@ L'expression de Wang Lin resta calme; sa seule réponse fut d'injecter davantage
 
 Il en conclut que Wang Lin ne pourrait le raffiner en peu de temps. Dès qu'il aurait recouvré une partie de ses forces, il pourrait briser ce fourneau étrange et s'échapper. En effet, Wang Lin n'avait pas le niveau de culture nécessaire pour raffiner un cultivateur du troisième pas. Même avec le Fourneau Impérial, cela prendrait un temps dont il ne disposait pas dans la Tombe de l'Ordre Antique.
 
-« Je ne peux pas te raffiner... » Un soupçon de moquerie brilla dans les yeux de Wang Lin, puis il injecta une quantité encore plus massive de pouvoir de Dieu Ancien dans le Fourneau Impérial. De nouvelles âmes apparurent à l'intérieur du fourneau jusqu'à former une tempête. Tandis que la tempête d'âmes hurlait, elle se mua soudainement en une ombre gigantesque. C'était l'ombre d'un Dieu Ancien. Cette entité était extrêmement bizarre: elle était rouge et brandissait une hache monumentale. Elle leva son arme et s'abattit sur l'estimé Ling Dong.
+« Pas moyen de te raffiner... vraiment? » Un soupçon de moquerie brilla dans les yeux de Wang Lin, puis il injecta une quantité encore plus massive de pouvoir de Dieu Ancien dans le Fourneau Impérial. De nouvelles âmes apparurent à l'intérieur du fourneau jusqu'à former une tempête. Tandis que la tempête d'âmes hurlait, elle se mua soudainement en une ombre gigantesque. C'était l'ombre d'un Dieu Ancien. Cette entité était extrêmement bizarre: elle était rouge et brandissait une hache monumentale. Elle leva son arme et s'abattit sur l'estimé Ling Dong.
 
 Les yeux de Wang Lin s'illuminèrent et il commença à psalmodier dans la langue des Dieux Anciens: « Fourneau Impérial, dix coups pour raffiner l'esclave! » Des empreintes illusoires apparurent et se fixèrent sur le Fourneau Impérial.
 
 Des grondements tonitruants firent vibrer l'intérieur du fourneau. Le Dieu Ancien rouge abattit sa hache de la main droite. L'arme perça la tempête et fondit sur la tête de Ling Dong.
 
-« Ce vieil homme veut voir comment tu comptes me raffiner! » L'expression de Ling Dong changea brusquement et ses yeux s'ouvrirent. Il leva les yeux vers la hache et poussa un rugissement. Ses mains formèrent un sceau, et le fantôme d'une statue gigantesque apparut devant lui. Cette statue était identique au Dieu Démon qu'il avait invoqué précédemment.
+« Ce vieil homme veut voir comment tu comptes me raffiner! » L'expression de Ling Dong changea brusquement et ses yeux s'ouvrirent. Il leva les yeux vers la hache et poussa un rugissement. Ses mains formèrent un sceau, et le fantôme d'une statue gigantesque apparut derrière lui. Cette statue était identique au Dieu Démon qu'il avait invoqué précédemment.
 
 En un instant, la hache percuta la lumière spectrale de la statue. Un fracas assourdissant retentit, puis la hache se dissipa et la statue s'effondra.
 
@@ -56,7 +56,7 @@ Devant lui agenouillé se trouvait un homme d'âge moyen. Cet homme était Ling 
 
 « Wang Lin... » L'homme fut stupéfait. Ce nom lui était familier.
 
-Dans le Système des Étoiles Anciennes, un vieil homme fuyait précipitamment. Son visage était pâle et il crachait du sang. Trois personnes le poursuivaient.
+Dans le Système Stellaire Antique, un vieil homme fuyait précipitamment. Son visage était pâle et il crachait du sang. Trois personnes le poursuivaient.
 
 « Est-il possible que moi, Ling Dong, je meure ici aujourd'hui? » Le désespoir se lisait dans les yeux du vieillard.
 

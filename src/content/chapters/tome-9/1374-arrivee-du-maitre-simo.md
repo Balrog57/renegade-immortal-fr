@@ -20,7 +20,7 @@ Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait co
 
 « Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 372 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte Divine de l'Oiseau Vermillon...
 
-À l'âge de 11 463 ans, le Clan du Tatouage a envahi le monde extérieur et a semé le chaos. Ma Secte Divine de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatouage! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
+À l'âge de 11 463 ans, le Clan du Tatouage est venu du monde extérieur et a semé le chaos dans le ciel et la terre. Ma Secte Divine de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatouage! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
 
 Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Déchaîné, et ses yeux s'illuminèrent.
 
@@ -100,7 +100,7 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 « Grand Empereur des Terres Déchues... qui est donc cet individu? » Wang Lin songea silencieusement alors que la porte de la grotte s'ouvrait et qu'il en sortait.
 
-« Ancien du Clan des Scorpions, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan du Scorpion Noir hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
+« Ancien du Clan du Scorpion Noir, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan du Scorpion Noir hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
 
 À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin: Maître Simo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
 

@@ -28,7 +28,7 @@ Bien que cette sculpture fût rudimentaire, elle semblait animée de vie. Des on
 
 Sa main droite caressa doucement la sculpture tandis qu'il murmurait: « Père, ton fils pense à toi... il pense tant à toi... »
 
-Après une longue méditation, Wang Lin écarta la sculpture sur le côté. Il saisit un autre morceau de bois et, avec ferveur, recommença à sculpter, trait après trait.
+Après un long silence, Wang Lin écarta la sculpture sur le côté. Il saisit un autre morceau de bois et, avec ferveur, recommença à sculpter, trait après trait.
 
 La nuit se fit plus froide, mais passer une journée sans sommeil n'était rien pour lui. Autrefois, lorsqu'il était traqué, il pouvait courir durant des jours entiers.
 

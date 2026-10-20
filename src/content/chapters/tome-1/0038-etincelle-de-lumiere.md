@@ -10,7 +10,7 @@ Après avoir analysé la situation en détail, il sentit que cela était lié à
 
 Lorsqu'il cultivait dans l'espace onirique, il pouvait sentir que ces orbes lumineuses libéraient d'étranges étincelles de lumière qui pénétraient dans son corps. Quant à ces étincelles, il les avait étudiées pendant un certain temps, mais n'en avait toujours pas percé l'usage exact.
 
-Wang Lin n'utilisait plus de technique pour dissimuler son niveau de culture; quatre années de pratique dans un lieu comme les montagnes arrières constituaient une explication suffisante. Personne ne savait que, dans le temps de l'espace onirique, il avait déjà atteint le troisième niveau près de vingt ans auparavant.
+Wang Lin n'utilisait plus de technique pour dissimuler son niveau de culture; quatre années de pratique dans la montagne arrière, un lieu riche en énergie spirituelle, constituaient une explication suffisante. Personne ne savait que, dans le temps de l'espace onirique, il avait déjà atteint le troisième niveau près de vingt ans auparavant.
 
 De plus, au cours de ces vingt et quelques années, il s'était exercé chaque jour à sa technique d'attraction, jusqu'à atteindre un niveau terrifiant. En réalité, dans tout le monde de la culture du pays de Zhao, personne ne passerait plus de vingt ans à pratiquer une technique aussi basique.
 
@@ -40,7 +40,7 @@ L'expression de Wang Lin resta impassible alors qu'il répondait: « Le disciple
 
 Sun Dazhu acquiesça: « C'est naturel. Pour être franc, ces techniques basiques ne sont qu'une question de pratique. Plus on s'exerce, plus on devient expert. Ton maître l'a pratiquée pendant près d'un an, ce qui est considéré comme le record de la secte, vois-tu. » Tout en parlant, il fit un mouvement de la main: une petite épée aux sept couleurs, dégageant une lueur glaciale, apparut, tourbillonna dans la pièce avant de revenir se poser dans la main de Sun Dazhu.
 
-« Après avoir maîtrisé la technique d'attraction et atteint le deuxième niveau, on peut commencer à pratiquer la technique de propulsion. C'est cette technique qui met l'épée en mouvement. Bien sûr, pour atteindre ce stade, il faut normalement avoir atteint au moins le quatrième niveau, mais la compétition approche et nous ne pouvons pas laisser la secte faire honte. Ta culture est faible, tes chances de participer aux combats sont donc minces, mais tu ne dois pas faire perdre la face à la secte. Une épée volante peut aussi être légèrement contrôlée par la technique d'attraction. Je vais te donner un jeton; va au pavillon des épées et choisis une belle épée volante à porter pour briller lors de la compétition. » Sur ces mots, Sun Dazhu lança un jeton vers Wang Lin.
+« Après avoir maîtrisé la technique d'attraction et atteint le deuxième niveau, on peut commencer à pratiquer la technique de propulsion. C'est cette technique qui met l'épée en mouvement. Bien sûr, pour atteindre ce stade, il faut normalement avoir atteint au moins le quatrième niveau, mais la compétition approche et nous ne pouvons pas laisser la secte faire honte. Ta culture est faible, tes chances de participer aux combats sont donc minces, mais tu ne dois pas ternir mon nom. Une épée volante peut aussi être légèrement contrôlée par la technique d'attraction. Je vais te donner un jeton; va au pavillon des épées et choisis une belle épée volante à porter pour briller lors de la compétition. » Sur ces mots, Sun Dazhu lança un jeton vers Wang Lin.
 
 L'expression de Wang Lin devint étrange. Il resta la bouche ouverte un long moment, sans savoir quoi répondre.
 

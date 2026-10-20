@@ -16,7 +16,7 @@ Si l'on parvenait à briser le seuil du sommet de la Tribulation du Vide, on dev
 
 Après tout, les Exaltés Empyréens étaient les êtres les plus puissants sous l'autorité des Grands Empyréens! Bien qu'il existât des conflits entre les Grands Empyréens, ils n'intervenaient pas personnellement. Car s'ils entraient en combat, les conséquences seraient trop lourdes!
 
-À moins que cela ne soit absolument nécessaire, les Grands Empyréens ne se battaient pas entre eux. En ce temps-là, Dao Yi et Xuan Luo se disputaient des territoires!
+À moins que cela ne soit absolument nécessaire, les Grands Empyréens ne se battaient pas entre eux. En ce temps-là, Dao Yi et Xuan Luo avaient livré bataille pour des territoires!
 
 Cependant, aucun des deux ne pouvait porter de coup décisif à l'autre. Par conséquent, les conflits entre Grands Empyréens dépendaient du nombre et de la puissance des Exaltés Empyréens qui se trouvaient sous leur commandement.
 
@@ -40,7 +40,7 @@ Malgré cela, la Secte Gui Yi comptait pas moins de cinq individus au stade avan
 
 La secte avait également hérité d'une célèbre armure antique. Un Exalté au stade avancé de la Tribulation du Vide portant cette armure pouvait accroître considérablement sa puissance. En sacrifiant leur force vitale, ils pouvaient libérer une énergie capable de rivaliser avec un Exalté Doré!
 
-C'est l'existence même de cette armure qui plaçait la secte dans une position délicate. Comme elle exigeait le sacrifice de la force vitale, l'armure ne pouvait être portée plus de trois fois; après cela, le porteur mourait. Cependant, la Secte Gui Yi disposait de cinq personnes capables de la revêtir, ce qui leur avait permis de se qualifier pour intégrer les neuf sectes et treize factions.
+C'est l'existence même de cette armure qui plaçait la secte dans une position délicate. Comme elle exigeait le sacrifice de la force vitale, l'armure ne pouvait être portée plus de trois fois; après cela, le porteur mourait. Cependant, la Secte Gui Yi disposait de cinq personnes capables de la revêtir, ce qui leur avait tout juste permis de compter parmi les neuf sectes.
 
 Pour ce qui est de la Secte du Dao Démoniaque, leur maître de secte était un Exalté Doré au sommet du stade avancé de la Tribulation du Vide. Sa puissante culture lui valait une renommée sur tout le Continent de l'Est! Toutefois, comparé à l'estimé Taureau Vert, bien que tous deux fussent des Exaltés Dorés, ce dernier possédait un corps véritable d'essence; ainsi, le maître de la Secte du Dao Démoniaque n'était pas son égal!
 
@@ -56,7 +56,7 @@ Mais si quelqu'un cherchait à détruire la racine dao de la Secte du Dao Démon
 
 Tout cela était consigné sur la carte en forme de carapace de tortue que l'Ancêtre du Taureau Vert avait remise à Wang Lin.
 
-« Sur le Continent de l'Est, il ne reste plus que sept Exaltés Empyréens! Je me demande... avec mon niveau actuel, quel rang atteindrai-je si j'utilise l'armure d'âme du Taureau Céleste... » Tandis que la tempête faisait rage, Wang Lin se tenait là, les mains derrière le dos, le regard brillant.
+« Sur le Continent de l'Est, il ne reste plus que sept Exaltés Empyréens! Je me demande... avec mon niveau actuel, que pourrais-je accomplir en portant l'armure d'âme du Taureau Céleste et en libérant toute ma puissance... » Tandis que la tempête faisait rage, Wang Lin se tenait là, les mains derrière le dos, le regard brillant.
 
 « Je peux ignorer les Exaltés Dorés. Quant aux Exaltés Empyréens... je n'en ai combattu aucun, mais je brûle d'envie de le faire! » Les cheveux blancs de Wang Lin flottaient au vent. D'un revers de manche, il recouvrit sa tête de ses vêtements.
 
@@ -64,7 +64,7 @@ De loin, Wang Lin semblait porter une robe blanche dissimulant son visage et mê
 
 La Secte du Dao Démoniaque était enveloppée d'une masse de brouillard rendant toute vision impossible. Autrefois, la secte comptait plus de 100 000 disciples.
 
-Cependant, après plus de cent ans de guerre, il n'en restait que 30 000, sans que leur puissance ne soit pour autant amoindrie. Les quatre cultivateurs au stade avancé de la Tribulation du Vide étaient toujours en vie. Deux se trouvaient sur le Continent du Taureau Céleste pour gérer le champ de bataille, tandis que deux autres gardaient la secte.
+Cependant, après plus de cent ans d'expédition lointaine, il n'en restait que 30 000, sans que leur puissance ne soit pour autant amoindrie. Les quatre cultivateurs au stade avancé de la Tribulation du Vide étaient toujours en vie. Deux se trouvaient sur le Continent du Taureau Céleste pour gérer le champ de bataille, tandis que deux autres gardaient la secte.
 
 Le maître de la Secte du Dao Démoniaque était entré en culture recluse depuis plus de cent ans. Il semblait tenter d'atteindre le rang d'Exalté Empyréen et n'en était toujours pas ressorti.
 

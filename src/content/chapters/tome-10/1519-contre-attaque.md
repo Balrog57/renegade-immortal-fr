@@ -28,11 +28,11 @@ L'expression de Wang Lin resta neutre et il n'agit pas immédiatement. L'effondr
 
 C'est à ce moment précis qu'un changement stupéfiant se produisit!
 
-Un jade apparut sur la Formation de Scellement du Royaume qui avait été déchirée! Ce jade dégageait une aura que Wang Lin connaissait trop bien, et elle ne pouvait appartenir qu'à une seule personne!
+Un pendentif de jade apparut sur la Formation de Scellement du Royaume qui avait été déchirée! Ce jade dégageait une aura que Wang Lin connaissait trop bien, et elle ne pouvait appartenir qu'à une seule personne!
 
 Le Seigneur du Royaume Scellé!
 
-À l'instant où le jade apparut, une hache fende-ciel surgit. La hache apparut de manière fulgurante, précisément au moment où la moitié des 90 000 cultivateurs s'étaient précipités à l'intérieur!
+À l'instant où le jade apparut, une Hache Brise-Ciel surgit. La hache apparut de manière fulgurante, précisément au moment où la moitié des 90 000 cultivateurs s'étaient précipités à l'intérieur!
 
 Dès son apparition, la hache frappa impitoyablement les cultivateurs du Royaume Extérieur. Un grondement violent se propagea follement!
 
@@ -50,7 +50,7 @@ Le palais géant et noir situé à l'extérieur de la formation s'ouvrit soudain
 
 L'expression de l'homme changea. Il avait déjà remarqué que l'aura du jade lui était familière. Maintenant qu'elle l'enveloppait, son esprit trembla.
 
-« Seigneur du Royaume Scellé, vieux spectre!!! Tu as réellement fusionné ton être avec la formation! »
+« Vieux spectre du Royaume Scellé!!! Tu as réellement fusionné ton être avec la formation! »
 
 Alors que tout cela se produisait, une intention meurtrière brilla dans les yeux de Wang Lin. Il avait attendu pour confirmer sa conjecture. Peut-être que, depuis le début, le Seigneur du Royaume Scellé attendait ce moment précis!
 
@@ -108,7 +108,7 @@ Simultanément, l'homme chétif piégé par le jade du Seigneur du Royaume Scell
 
 Cette guerre avait atteint son paroxysme dès le début!
 
-Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en faveur du Royaume Intérieur! Cependant, cette guerre ne montrait aucun signe d'achèvement. Dans le Système Stellaire Antique, plus de dix clans s'étaient préparés depuis longtemps. À cet instant, l'ordre fut donné et ils furent téléportés via une matrice de transfert vers la brèche de la Formation de Scellement du Royaume!
+Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en faveur du Royaume Intérieur! Cependant, cette guerre ne montrait aucun signe d'achèvement. Dans le Système Stellaire Antique, plus de dix clans s'étaient préparés depuis longtemps. À cet instant, l'ordre fut donné et ils furent téléportés via une réseau de transfert vers la brèche de la Formation de Scellement du Royaume!
 
 Parmi ces plus de dix tribus se trouvaient 80 000 individus, dont deux cultivateurs du troisième stade. Ces deux derniers chargèrent vers l'ouverture!
 

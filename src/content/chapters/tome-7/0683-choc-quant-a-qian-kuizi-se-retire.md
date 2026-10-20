@@ -8,7 +8,7 @@ slug: choc-quant-a-qian-kuizi-se-retire
 ---
 Qian Kuizi était l'un des trois ancêtres de la famille Qian. Il avait cultivé pendant plus de dix mille ans et avait été l'ami de l'ancêtre de la famille Huan dans leur jeunesse; leur relation était donc étroite. Il s'élança sur un rayon de lumière pour quitter la planète Mille Illusions. Assis parmi les étoiles, il contemplait froidement le lointain, dans l'attente.
 
-Il ne représentait pas la famille Qian lors de ce voyage, mais aidait secrètement l'ancêtre de la famille Huan. Cependant, il n'agissait pas gratuitement, car il avait la convoitise de l'un des trésors de la famille Huan.
+Il ne représentait pas la famille Qian lors de ce voyage, mais aidait l'ancêtre de la famille Huan à titre personnel. Cependant, il n'agissait pas gratuitement, car il avait la convoitise de l'un des trésors de la famille Huan.
 
 « Il me suffit de tuer ce jeune homme audacieux pour pouvoir obtenir ce trésor. Tout cela a trop d'indices suspects; ce Huan Wuqing a toujours été avare, et pourtant, il se montre si généreux cette fois... » Qian Kuizi avait l'apparence d'un homme d'environ quarante ans. Il avait le teint pâle, sans barbe, et il était très beau. Les robes blanches qu'il portait lui donnaient l'allure d'un être céleste.
 
@@ -16,7 +16,7 @@ Il ne représentait pas la famille Qian lors de ce voyage, mais aidait secrètem
 
 Une fois sa décision prise, Qian Kuizi ferma les yeux et resta immobile parmi les étoiles.
 
-Quelques jours plus tard, un rayon de lumière argentée fonça vers la planète tel une météorite. Assis sur cette lueur argentée, Wang Lin fixait froidement la lointaine planète Mille Illusions qui émettait divers éclats brillants.
+Quelques jours plus tard, un rayon de lumière argentée fonça vers la planète tel une météorite. Debout sur cette lueur argentée, Wang Lin fixait froidement la lointaine planète Mille Illusions qui émettait divers éclats brillants.
 
 Il était venu avec une intention meurtrière, et quiconque oserait se mettre en travers de son chemin deviendrait son ennemi!
 
@@ -40,15 +40,15 @@ Debout sur sa boussole stellaire, Wang Lin fixa l'homme et répondit froidement:
 
 À ses yeux, cet enfant n'avait rien d'extraordinaire. Son niveau de culture était également très bas, ne dépassant même pas le stade intermédiaire de l'Ascendant. Mais lorsque le regard de Qian Kuizi tomba sur l'ombre sous les pieds de Wang Lin, ses yeux se plissèrent.
 
-« Une marionnette Yin Illusoire!!! » Bien que son expression fût calme, Qian Kuizi eut un haut-le-cœur intérieur.
+« Une marionnette Yin Illusoire!!! » Bien que son expression fût calme, Qian Kuizi eut le souffle coupé intérieurement.
 
 « Quelle famille serait assez généreuse pour raffiner un puissant cultivateur du stade Yin et Yang en une marionnette afin de l'offrir à un junior? C'est... c'est tout simplement terrifiant! » En fixant l'ombre sous les pieds de Wang Lin, une trace d'avidité apparut dans ses yeux.
 
 Le regard de Wang Lin resta froid alors qu'il disait calmement: « Aîné, il s'agit d'un différend personnel entre moi et la famille Huan. Veuillez ne pas vous en mêler. »
 
-Qian Kuizi était tiraillé. D'un côté, il convoitait cette marionnette, mais de l'autre, il craignait le poids des antécédents de cet homme. Finalement, l'avidité triompha de la raison.
+Qian Kuizi était tiraillé. D'un côté, il convoitait cette marionnette, mais de l'autre, il craignait la puissance de la famille de cet homme. Finalement, l'avidité triompha de la raison.
 
-À ses yeux, le prix d'une marionnette Yin Illusoire était bien trop élevé! Après tout, il agissait pour la famille Huan. Peu importe le temps qu'il faudrait à la famille de ce junior pour découvrir la vérité, il pourrait toujours rejeter la faute sur les Huan. Avec les familles Qian et Huan alliées, même une autre puissance devrait réfléchir à deux fois avant de déclencher un conflit.
+À ses yeux, la valeur d'une marionnette Yin Illusoire était bien trop grande! Après tout, il agissait pour la famille Huan. Peu importe le temps qu'il faudrait à la famille de ce junior pour découvrir la vérité, il pourrait toujours rejeter la faute sur les Huan. Avec les familles Qian et Huan alliées, même une autre puissance devrait réfléchir à deux fois avant de déclencher un conflit.
 
 Les yeux de Qian Kuizi s'illuminèrent et il dit lentement: « Remets-moi ta marionnette et ce vieil homme ne s'impliquera pas dans cette affaire! »
 
@@ -70,7 +70,7 @@ En un instant, toutes les runes libérèrent des éclairs. En un clin d'œil, el
 
 Ces éclairs semblaient s'attirer mutuellement pour former un réseau, comme si la toile de foudre cherchait à illuminer l'espace lui-même avant de s'abattre sur le gardien céleste.
 
-Toujours debout sur sa boussole stellaire, les yeux de Wang Lin brillèrent. Il frappa son sac de rangement et le Char de Guerre Divin en sortit. Il se transforma en Bête du Tonnerre, poussa un rugissement et chargea férocement.
+Toujours debout sur sa boussole stellaire, les yeux de Wang Lin brillèrent. Il frappa son sac de rangement et le Char de Guerre Divin en sortit. Le char se transforma en Bête du Tonnerre, qui poussa un rugissement et chargea férocement.
 
 Au moment où retentit ce rugissement, les dizaines de milliers d'éclairs s'immobilisèrent. Tandis que Qian Kuizi était stupéfait, tous les éclairs quittèrent les runes pour converger vers la Bête du Tonnerre avant d'être dévorés par elle.
 
@@ -96,7 +96,7 @@ L'expression de Wang Lin ne changea pas. Il fixa Qian Kuizi et demanda calmement
 
 Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa culture, même en découvrant que cet enfant venait du Temple Céleste du Tonnerre, il n'aurait pas parlé ainsi. Normalement, il ne tenait ce langage que face à quelqu'un de son propre rang.
 
-Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un membre du Temple Céleste du Tonnerre. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Yin Illusoire pour le protéger.
+Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un bien du Temple Céleste du Tonnerre. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Yin Illusoire pour le protéger.
 
 Après une courte hésitation, Qian Kuizi eut un sourire forcé. « Jeune ami, je ne peux pas t'aider contre la famille Huan car nous appartenons à la même planète. De plus, puisque tu viens du Temple Céleste du Tonnerre, tu n'auras de toute façon pas besoin de mon aide. Mais sache que ma famille Qian ne participera pas à cette affaire et rompra tout lien avec la famille Huan! »
 
@@ -104,12 +104,12 @@ Après une courte hésitation, Qian Kuizi eut un sourire forcé. « Jeune ami, j
 
 Qian Kuizi fut surpris: « Votre Temple Céleste du Tonnerre manque encore de jades célestes? Soit, je te les donnerai! » Il sourit amèrement intérieurement, pensant que c'était là le prix de sa cupidité. On ne provoquait pas les gens du Temple Céleste du Tonnerre. Même en ignorant le fait que chacun d'eux possédait un sortilège de protection vitale, s'il tuait cet individu, il n'y aurait plus une seule place dans tout le Système Stellaire de Luotian pour que sa famille Qian puisse exister!
 
-« Si ce garçon veut des jades célestes, je parie qu'il en veut une quantité astronomique. Il n'a pas précisé le nombre, il compte donc sur moi pour décider... » Qian Kuizi serra les dents et sortit un sac de rangement. Le cœur lourd, il lança le sac à Wang Lin avant de faire volte-face pour s'envoler vers la planète Mille Illusions.
+« Si ce garçon veut des jades célestes, je parie qu'il en veut une quantité astronomique. Il n'a pas précisé le nombre, il compte donc sur moi pour décider... » Qian Kuizi serra les dents et sortit un sac de rangement. Le cœur lourd, il lança le sac à Wang Lin, le salua brièvement, puis fit volte-face pour s'envoler vers la planète Mille Illusions.
 
 Son expression était extrêmement sombre lorsqu'il pénétra sur la planète. Dès son arrivée, il déploya son Sens Divin pour envelopper tout le territoire de la famille Huan et envoya un message divin sinistre:
 
 « Huan Wuqing, tu m'as fait provoquer quelqu'un du Temple Céleste du Tonnerre! Je ne l'oublierai pas. Une fois ta famille anéantie, je me vengerai sur tes descendants! »
 
-L'ancêtre de la famille Huan fronça les sourcils au sein de la demeure ancestrale et envoya un message divin: « Il ne vient pas du Temple Céleste du Tonnerre, il vient du Système Stellaire de l'Alliance, tout comme ma fille adoptive! »
+L'ancêtre de la famille Huan fronça les sourcils au sein de la demeure ancestrale et envoya un message divin: « Il ne vient pas du Temple Céleste du Tonnerre, il vient du Système Stellaire de l'Alliance, tout comme ma fille adoptive, Huan Mei! »
 
 « C'est n'importe quoi! Ton Sens Divin était présent toi aussi; n'as-tu pas vu cette Bête du Tonnerre? La Bête du Tonnerre n'existe que dans le Royaume Céleste du Tonnerre et elle est le symbole des messagers du Temple Céleste du Tonnerre! » Qian Kuizi était furieux et pensa: « Huan Wuqing, Huan Wuqing, les choses en sont arrivées là et tu essaies encore de me cacher la vérité. Je m'en souviendrai! »

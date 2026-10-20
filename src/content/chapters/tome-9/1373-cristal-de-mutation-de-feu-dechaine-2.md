@@ -16,9 +16,9 @@ Des bruits de craquements résonnèrent en lui et une douleur intense envahit so
 
 Instantanément, le scorpion à quatre queues jaillit et flotta dans les airs. Il grandit jusqu'à atteindre mille pieds de long, puis agita sa queue en poussant un rugissement.
 
-Ce scorpion de mille pieds était extrêmement féroce; dès son apparition, il laissa échapper un sifflement en chargeant Wang Lin. Le vieil homme, toujours incertain, tendit la main vers le vide tout en serrant les dents. Une lueur jaillit et des centaines de marionnettes surgirent!
+Ce scorpion de mille pieds était extrêmement féroce; dès son apparition, il laissa échapper un sifflement en chargeant Wang Lin. Le vieil homme, toujours incertain, tendit la main vers le vide tout en serrant les dents. Une lueur jaillit et plus d'une centaine de marionnettes surgirent!
 
-Chaque marionnette dégageait l'aura d'un cultivateur Yin et Yang. Dès leur apparition, elles encerclèrent immédiatement Wang Lin.
+Chaque marionnette dégageait l'aura d'un cultivateur Yin Illusoire et Yang Corporel. Dès leur apparition, elles encerclèrent immédiatement Wang Lin.
 
 Le vieil homme afficha une expression féroce et hurla en battant en retraite: « Marionnettes, explosez pour moi!! » Wang Lin laissa échapper un ricanement et ignora totalement le scorpion et les marionnettes. Des ondulations apparurent sous ses pieds et il disparut.
 
@@ -40,7 +40,7 @@ L'index de Wang Lin était toujours pointé vers le front de l'âme originelle d
 
 Le vieil homme trembla et hocha la tête. Il murmura: « La Terre Déchue obéit toujours au fort. Avoir un maître aussi puissant que vous est une chance pour mon Clan du Scorpion Noir. Les 176 membres de mon clan obéiront au Maître. Personne n'osera désobéir! »
 
-Zhong Grand Rouge leva les yeux au ciel et dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent le serment, alors tout le Clan du Scorpion Noir mourra! »
+Zhong Grand Rouge leva les yeux au ciel et dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent ce serment, leur marque de clan se retournera contre eux et tout le Clan du Scorpion Noir sera anéanti pour l'éternité! »
 
 En entendant les paroles de Zhong Grand Rouge, le corps du vieil homme trembla et il lui lança un regard venimeux. Cependant, cette malveillance s'effondra rapidement pour laisser place à une expression amère tandis qu'il hochait la tête. « Très bien, ce vieil homme prêtera un serment de clan pour que vous soyez notre maître. Si nous vous trahissons, nous mourrons sans sépulture! »
 
@@ -72,11 +72,11 @@ Quant à Zhong Grand Rouge, il était devenu encore plus hardi; il était désor
 
 « La rumeur dit que la méthode de fabrication des marionnettes a été transmise par le Grand Empereur. Quant au procédé lui-même, seuls les 13 anciens le connaissent. »
 
-« Parmi toutes les marionnettes du Clan du Scorpion Noir, la plus puissante est une marionnette Purificatrice du Nirvana de stade intermédiaire, qui coûte une fortune céleste. Si elle était transportée hors de la Terre Déchue, elle pourrait être échangée contre une multitude de trésors et de pilules. » Tout en parlant, l'ancien toucha sa marque de clan. Une lueur jaillit et une marionnette ressemblant à un homme d'âge moyen apparut.
+« Parmi toutes les marionnettes du Clan du Scorpion Noir, la plus puissante est une marionnette Purificateur du Nirvana de stade intermédiaire, qui coûte une fortune céleste. Si elle était transportée hors de la Terre Déchue, elle pourrait être échangée contre une multitude de trésors et de pilules. » Tout en parlant, l'ancien toucha sa marque de clan. Une lueur jaillit et une marionnette ressemblant à un homme d'âge moyen apparut.
 
 Cette marionnette avait une expression figée et, au premier coup d'œil, elle semblait être une personne réelle. Cependant, en y regardant de plus près, on s'apercevrait qu'elle était dépourvue de toute vitalité et recouverte de sceaux, rendant son intérieur invisible.
 
-Les yeux de Wang Lin s'illuminèrent et il examina attentivement la marionnette. Après avoir réfléchi un instant, il demanda lentement: « La Terre Déchue possède-t-elle des marionnettes Briseuses du Nirvana? »
+Les yeux de Wang Lin s'illuminèrent et il examina attentivement la marionnette. Après avoir réfléchi un instant, il demanda lentement: « La Terre Déchue possède-t-elle des marionnettes Briseurs du Nirvana? »
 
 L'ancien hésita un moment, puis, après un long silence, il murmura: « Oui. »
 
@@ -90,7 +90,7 @@ Les yeux de Wang Lin brillèrent intensément. Il ne s'attendait pas à trouver 
 
 Un instant plus tard, Wang Lin demanda: « Quelle est l'influence du Clan des Moineaux de Feu ici? »
 
-« Le Clan des Moineaux de Feu est l'un des grands clans du Système Stellaire Antique, et ils ont envoyé des gens ici au fil des ans. Il y en a quelques centaines. Bien que tout le monde sache qu'ils sont envoyés par le Clan des Moineaux de Feu, comme ils ne participent pas à la lutte pour les sièges d'Ancien, ils restent en sécurité. Ils se sont liés d'amitié avec divers clans et participent au commerce des marionnettes. Ils collectent secrètement des Cristaux de Mutation de Feu Déchaîné et, de temps à autre, ils les renvoient au Clan des Moineaux de Feu. »
+« Le Clan des Moineaux de Feu est l'un des grands clans du Système Stellaire Antique, et ils ont envoyé des gens ici au fil des ans. Il y en a quelques centaines. Bien que la plupart sachent qu'ils sont envoyés par le Clan des Moineaux de Feu, comme ils ne participent pas à la lutte pour les sièges d'Ancien, ils restent en sécurité. Ils se sont liés d'amitié avec divers clans et participent au commerce des marionnettes. Ils collectent secrètement des Cristaux de Mutation de Feu Déchaîné et, de temps à autre, ils les renvoient au Clan des Moineaux de Feu. »
 
 Les yeux de Wang Lin s'illuminèrent. « Des Cristaux de Mutation de Feu Déchaîné? »
 

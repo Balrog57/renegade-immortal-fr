@@ -24,7 +24,7 @@ Wang Lin tendit silencieusement la cruche qu'il tenait à Maître Yi Chen. Ce de
 
 À cet instant, Ling Er apporta du vin depuis la ville. Les yeux rougis par l'émotion, elle posa délicatement les cruches à côté de Maître Yi Chen.
 
-Wang Lin saisit une cruche et la vida d'un seul trait. Son regard devint résolu lorsqu'il déclara: « Maître Yi Chen, je suis responsable de cette affaire. Si je ne vous avais pas emmenés tous les trois, une telle tragédie ne serait pas survenue. L'homme qui a tué vos frères est l'Ancien Démon Ta Jia. Il ne faudra plus longtemps avant que vous puissiez le tuer de vos propres mains et venger vos frères! »
+Wang Lin saisit une cruche et la vida d'un seul trait. Son regard devint résolu lorsqu'il déclara: « Maître Yi Chen, je suis responsable de cette affaire. Si je ne vous avais pas emmenés tous les trois, une telle tragédie ne serait pas survenue. L'homme qui a tué votre cadet est l'Ancien Démon Ta Jia. Il ne faudra plus longtemps avant que vous puissiez le tuer de vos propres mains et venger votre cadet! »
 
 Le corps de Maître Yi Chen trembla, ses yeux brillant d'excitation face à Wang Lin.
 
@@ -34,7 +34,7 @@ Le corps de Maître Yi Chen trembla, ses yeux brillant d'excitation face à Wang
 
 « Après avoir emprunté cette route anormale, nous devons percer les mystères de la vie et de la mort. Nous devons comprendre notre propre fin, ainsi que celle des autres... Lorsque j'ai ramené les cendres d'un vieil ami dans sa ville natale, j'ai entendu la comptine d'un enfant. »
 
-« "L'arbre à fleurs blanches fleurit au printemps. La fille ne sera pas prise par une famille de taoïstes. L'année dernière, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à fleurs blanches fleurit au printemps et les enfants ne devraient pas fréquenter les taoïstes. Si l'on m'interroge sur mon âge, je n'ai aucune affinité avec le Dao. Le chien aboie, le chat griffe, effrayant le taoïste jusqu'à sa demeure..." »
+« "L'arbre à fleurs blanches fleurit au printemps. La fille ne sera pas prise par une famille de taoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à fleurs blanches fleurit au printemps et les enfants ne devraient pas fréquenter les taoïstes. Si l'on m'interroge sur mon âge, je n'ai aucune affinité avec le Dao. Le chien aboie, le chat griffe, effrayant le taoïste jusqu'à sa demeure..." »
 
 « Cette simple comptine a su souligner la tristesse qui nous frappe, nous les cultivateurs. Maître Yi Chen, comprenez-le. Une fois que vous l'aurez compris, votre douleur s'atténuera... »
 

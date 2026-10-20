@@ -8,7 +8,7 @@ slug: voler-lame
 ---
 Les yeux de Wang Lin s'illuminèrent alors que son âme originelle réintégrait son corps. Sa main se tendit et l'épée céleste revint dans sa poigne. Tenant l'épée céleste, Wang Lin chargea vers les profondeurs de la montagne.
 
-Peu après le départ de Wang Lin, les gouttelettes qu'il avait scellées éclatèrent toutes. L'eau se transforma en gaz et s'assembla pour reformer cette femme.
+Peu après le départ de Wang Lin, les gouttelettes qu'il avait scellées éclatèrent toutes. L'eau se transforma en vapeur et s'assembla pour reformer cette femme.
 
 Une forme de vie aquatique ne peut être scellée que pour un instant; il est presque impossible de les emprisonner totalement.
 
@@ -24,7 +24,7 @@ Ce vieillard était celui qui avait poursuivi Wang Lin dans la faille spatiale a
 
 En fin de compte, il s'était appuyé sur son lien avec l'Esprit Ancestral pour être finalement secouru par son clan. Sa haine envers Wang Lin avait atteint des sommets, le poussant à mener un véritable massacre durant cette guerre. Parmi tous les chamans à huit feuilles, c'était lui qui avait tué le plus de cultivateurs.
 
-L'apparition de Wang Lin choqua le vieil homme. Il devait concentrer toute son attention sur la forme de vie aquatique sous peine de mourir, et n'avait donc pas remarqué l'approche du jeune homme. De plus, le niveau de culture de Wang Lin était bien plus élevé qu'auparavant: il avait atteint le début du stade de la Transformation de l'Âme.
+L'apparition de Wang Lin choqua le vieil homme. Il devait concentrer toute son attention sur la forme de vie aquatique sous peine d'être vaincu, et n'avait donc pas remarqué l'approche du jeune homme. De plus, le niveau de culture de Wang Lin était bien plus élevé qu'auparavant: il avait atteint le début du stade de la Transformation de l'Âme.
 
 C'est ce qui avait permis à Wang Lin de passer inaperçu.
 
@@ -56,21 +56,21 @@ Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture act
 
 S'ajoutant à cela, des centaines de millions de fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
 
-Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a cent ans ait déjà atteint le stade de la Transformation de l'Âme et possède cet Étendard des Mille Millions d'Âmes que le Clan des Immortels Délaissés redoutait tant.
+Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a moins d'un siècle ait déjà atteint le stade de la Transformation de l'Âme et possède cet Étendard des Mille Millions d'Âmes que le Clan des Immortels Délaissés redoutait tant.
 
 Le vieil homme pouvait même sentir qu'une grande partie des fragments d'âme portait l'aura de son propre Clan des Immortels Délaissés. Ils devaient être les membres de son clan capturés et raffinés lors de la guerre passée.
 
-Au moment où le vieillard tentait de s'échapper, la femme qui poursuivait Wang Lin arriva. En voyant la scène dans la gorge, ses yeux s'illuminèrent. Elle se transforma en eau et se déplaça silencieusement vers l'homme.
+Au moment où le vieillard tentait de s'échapper, la femme qui poursuivait Wang Lin arriva. En voyant la scène dans la gorge, ses yeux s'illuminèrent. Elle se transforma en vapeur et se déplaça silencieusement vers l'homme.
 
 Wang Lin n'avait pas le temps de se soucier du vieil homme. Il continua d'abattre son épée céleste sur la prison de tatouages. Une série de grondements retentit alors que de plus en plus de tatouages volaient en éclats.
 
 La forme de vie aquatique emprisonnée finit par reprendre une apparence humaine. Lorsque Wang Lin la vit, son cœur vacilla.
 
-Cette femme ressemblait à Li Muwan.
+Cette femme ressemblait vaguement à Li Muwan.
 
-D'un dernier coup d'épée céleste, Wang Lin brisa totalement la prison. La femme à l'intérieur poussa un rire de joie et s'échappa.
+D'un dernier coup d'épée céleste, Wang Lin brisa totalement la prison. La femme à l'intérieur poussa un rire de joie et s'échappa en vapeur.
 
-Wang Lin avait anticipé cela, il n'avait aucune intention de la laisser filer. Le seul problème était que cette femme était bien plus puissante que celle qui avait tenté de l'arrêter auparavant; elle possédait une force proche d'une cultivatrice au milieu du stade de la Transformation de l'Âme. Avec son corps immortel en prime, elle était extrêmement difficile à maîtriser. Même le vieil homme ne pouvait la tuer; il n'avait pu que l'emprisonner temporairement.
+Wang Lin avait anticipé cela, il n'avait aucune intention de la laisser filer. Le seul problème était que cette femme était bien plus puissante que celle qui avait tenté de l'arrêter auparavant; elle possédait une force proche d'une cultivatrice au milieu du stade de la Transformation de l'Âme. Avec son corps immortel en prime, elle était extrêmement difficile à maîtriser. Même le vieil homme ne pouvait la tuer; il n'avait pu que l'emprisonner.
 
 Dès que la femme ressemblant à Li Muwan tenta de s'enfuir, Wang Lin prit une profonde inspiration et, d'une seule pensée, fit converger tous les fragments d'âme pour former un filet. Hormis les quelques âmes primaires qui poursuivaient le vieillard, toutes les autres furent rassemblées ici.
 
@@ -78,7 +78,7 @@ Une aura puissante émana de tous côtés; la femme regarda calmement autour d'e
 
 Wang Lin demanda froidement: « Veux-tu vivre ou mourir? »
 
-La femme sourit et rit. « Personne ne peut me tuer ici. Même si vous me capturez, il ne me faudra qu'un instant pour m'échapper. »
+La femme sourit et rit. « Personne ne peut me tuer ici. Même si vous me capturez, il ne me faudra que peu de temps pour m'échapper. »
 
 Le regard de Wang Lin se glaça et il ordonna: « Drapeau de l'âme, fusion! »
 
@@ -88,7 +88,7 @@ Ces six âmes encerclèrent la femme et la fixèrent froidement.
 
 Wang Lin ordonna: « Détruisez! »
 
-Sur un seul mot, les six âmes primaires s'élancèrent et attaquèrent avec divers sorts et techniques. La femme rit tandis que son corps volait en éclats, les morceaux se dispersant dans toutes les directions.
+Sur un seul mot, les six âmes primaires s'élancèrent et attaquèrent avec divers sorts et techniques. La femme rit, son corps se changea en brume qui se dispersa dans toutes les directions.
 
 Wang Lin attendait ce moment, car ce n'est qu'en divisant son corps en gouttelettes d'eau qu'il pourrait retrouver le fragment de l'âme de Li Muwan.
 
@@ -110,9 +110,9 @@ La terre du Tombeau de Suzaku se fissura et de nombreux cultivateurs qui s'y tro
 
 Tout le Tombeau de Suzaku fut enveloppé d'une aura de mort.
 
-La gorge où se trouvait Wang Lin ne faisait pas exception. Le sol vola en éclats et une multitude de fissures dimensionnelles apparurent pour tout dévorer.
+La gorge où se trouvait Wang Lin ne faisait pas exception. Le sol vola en éclats, réduit au néant, et une multitude de fissures dimensionnelles apparurent pour tout dévorer.
 
-Wang Lin utilisa promptement le drapeau de l'âme pour rappeler tous les fragments. À présent, il n'avait plus le temps de se soucier du vieil homme. Son regard restait fixé sur la femme qui ressemblait à Li Muwan.
+Wang Lin utilisa promptement le drapeau de l'âme pour rappeler tous les fragments, puis quitta les lieux à toute vitesse. À présent, il n'avait plus le temps de se soucier du vieil homme. Son regard restait fixé sur la femme qui ressemblait à Li Muwan.
 
 La femme était plongée dans un état de choc et affichait une expression d'horreur qu'elle n'avait jamais montrée auparavant. Son corps s'effondrait lentement, puis, dans un fracas, il se mua en d'innombrables gouttelettes d'eau. Ces gouttelettes elles-mêmes commençaient à se désintégrer. C'était pour elle une véritable mort.
 

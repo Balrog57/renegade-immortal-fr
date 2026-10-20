@@ -44,7 +44,7 @@ Wang Lin eut un sourire amer. « Un cadeau bien généreux! Le Senior est prêt 
 
 « Cet ancêtre de la Secte de l'Affinement de l'Âme est très intéressant », pensa Wang Lin. Il était certain que Liu Mei avait reçu la permission de l'ancêtre pour entrer dans la secte, sans quoi elle n'aurait jamais pu y pénétrer.
 
-Ce vieil homme ne l'avait pas expulsée auparavant; il avait choisi de le faire aujourd'hui, devant Wang Lin. C'était une manière de lui signifier que les liens entre la Secte de l'Affinement de l'Âme et Suzaku étaient rompus, et que tout cela était pour lui.
+Ce vieil homme ne l'avait pas expulsée auparavant; il avait choisi de le faire aujourd'hui, devant Wang Lin. C'était une manière de lui signifier que les liens entre la Secte de l'Affinement de l'Âme et Zhu Quezi étaient rompus, et que tout cela était pour lui.
 
 Ce n'était pas un petit cadeau!
 
@@ -74,7 +74,7 @@ Wang Lin pouvait désormais sentir clairement les fragments de son âme originel
 
 Wang Lin prit une profonde inspiration et dit: « Pas assez! »
 
-« Oh, vraiment? Très bien, Ceng Niu; cela fait deux cents ans que je n'ai pas utilisé mon énergie spirituelle céleste. Je dépense énormément pour ce second cadeau! » Le vieil homme rit et mobilisa sans hésitation l'énergie spirituelle céleste de son corps. Une pression radicalement différente de la simple pression spirituelle descendit sur lui.
+« Oh, vraiment? Très bien, Ceng Niu; cela fait plus de deux cents ans que je n'ai pas utilisé mon énergie spirituelle céleste. Je dépense énormément pour ce second cadeau! » Le vieil homme rit et mobilisa sans hésitation l'énergie spirituelle céleste de son corps. Une pression radicalement différente de la simple pression spirituelle descendit sur lui.
 
 Cette force contenait de l'énergie spirituelle céleste. Cela rappela à Wang Lin la puissance d'un fragment céleste en plein effondrement. Son corps trembla et son âme originelle se reconnecta à une vitesse prodigieuse.
 

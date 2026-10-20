@@ -68,7 +68,7 @@ La scène se répéta, mais le dénouement fut différent. Au moment de la colli
 
 Cependant, alors qu'il s'abattait, dix dragons surgirent soudain de la formation et s'enchevêtrèrent avec le pic. Qian Kun ricana: « Chers Anciens, attaquez ensemble! »
 
-Sur cet ordre, les restants des cultivateurs de la Formation du Noyau sortirent leurs trésors pour tenter de briser la formation par la force.
+Sur cet ordre, les autres cultivateurs de la Formation du Noyau sortirent leurs trésors pour tenter de briser la formation par la force.
 
 Quant à Wang Lin, soutenu par Li Muwan pour entrer dans la grotte, il cracha immédiatement plusieurs autres bouffées de sang. La veste de dragon sur son dos s'était profondément enfoncée et laissait échapper un filet de fumée noire, au sein duquel elle se tordait étrangement. Lentement, la veste retrouva son aspect normal, sans plus aucune trace d'enfoncement.
 

@@ -14,13 +14,13 @@ Son cœur était empreint de désolation. Elle sombrait peu à peu dans des pens
 
 Zhou Zihong sursauta et ouvrit les yeux. Elle vit un jeune homme fondre sur eux. Il était très beau, mais son regard laissait transparaître une pointe de froideur et sa poitrine était tachée de sang.
 
-« Jeune frère Mai, il semble que nous ne puissions échapper à ce désastre. Ah... » Le frère aîné Yang soupira. Il paraissait avoir une trentaine d'années et la tristesse se lisait sur son visage.
+« Jeune frère Ma, il semble que nous ne puissions échapper à ce désastre. Ah... » Le frère aîné Yang soupira. Il paraissait avoir une trentaine d'années et la tristesse se lisait sur son visage.
 
 Wang Lin observa les trois individus sans dire un mot. À cet instant, les créatures qui les poursuivaient s'arrêtèrent net en apercevant Wang Lin, affichant des expressions d'hésitation.
 
 Wang Lin laissa échapper un reniflement et projeta un message via son Sens Divin:
 
-« Fuyez! »
+« Dégagez! »
 
 Plus de dix âmes errantes paniquèrent soudainement et s'enfuirent, disparaissant sans laisser de trace.
 
@@ -30,17 +30,17 @@ Mais elle écarta rapidement cette conjecture. Les deux autres disciples du Temp
 
 Le frère aîné Yang était le plus ancien d'entre eux. Après avoir jeté un regard inquiet autour de lui, encore tremblant, il déclara: « Jeune apprentie sœur, bien que nous ne sachions pas pourquoi ces créatures ne nous attaquent pas, rester ici n'est pas prudent. Nous devons rejoindre la matrice de transfert et partir sans tarder. »
 
-Zhou Zihong frissonna et acquiesça, puis ajouta: « Jeune frère Mai, tu es le plus faible d'entre nous, alors ne laisse surtout rien de ces choses te toucher. Si elles t'atteignent, tu mourras! »
+Zhou Zihong frissonna et acquiesça, puis ajouta: « Jeune frère Ma, tu es le plus faible d'entre nous, alors ne laisse surtout rien de ces choses te toucher. Si elles t'atteignent, ton âme se dispersera aussitôt! »
 
 L'autre disciple du Temple du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Ma Liang, que cet homme se nommait Lin Tao.
 
 Le frère aîné Yang partit également, refusant de rester sur place. Zhou Zihong hésita un instant avant de lancer: « Fais attention! », puis elle les suivit à son tour.
 
-Durant tout ce temps, Wang Lin n'avait pas encore pris la parole, se contentant de les suivre avec désinvolture. La raison pour laquelle il avait sauvé ces trois-là, outre ses propres desseins, était qu'il savait par les souvenirs de Ma Liang que celui-ci éprouvait une immense gratitude envers Zhou Zihong. Puisqu'il avait pris possession du corps de Ma Liang, il lui semblait juste d'accomplir quelques tâches pour son compte.
+Durant tout ce temps, Wang Lin n'avait pas encore eu l'occasion de parler, se contentant de les suivre sans se presser. La raison pour laquelle il avait sauvé ces trois-là, outre ses propres desseins, était qu'il savait par les souvenirs de Ma Liang que celui-ci éprouvait une immense gratitude envers Zhou Zihong. Puisqu'il avait pris possession du corps de Ma Liang, il lui semblait juste d'accomplir quelques tâches pour son compte.
 
 Les trois individus volaient avec une prudence extrême, faisant preuve d'une vigilance accrue lorsqu'ils sortaient des pilules pour restaurer leur énergie spirituelle. Zhou Zihong sortit même une pilule supplémentaire et la tendit à Wang Lin. Il fixa l'objet, incapable de ne penser à sa perle défiant le ciel; le liquide dans lequel la perle trempait constituait le meilleur remède de récupération.
 
-Hélas, le sac de rangement contenant ses gourdes et tous ses trésors avait été broyée par Teng Huayuan.
+Hélas, le sac de rangement contenant ses gourdes et tous ses trésors avait été broyé par Teng Huayuan.
 
 Wang Lin soupira intérieurement. Il pouvait sentir l'existence de la perle défiant le ciel dans son Sens Divin, et même l'épée volante affinée par la technique du sang semblait s'être fondue dans son âme. Cependant, ce n'était pas le moment opportun pour les examiner. Après réflexion, Wang Lin fut d'autant plus déterminé à trouver un lieu propice à une culture en isolement dès sa sortie du champ de bataille étranger.
 
@@ -50,7 +50,7 @@ Si l'espace s'effondrait, on ne voyait au pire que des gens disparaître; mais s
 
 Si ces cultivateurs pouvaient choisir leur fin, ils préféreraient être broyés par l'effondrement spatial plutôt que d'être dévorés.
 
-Il existait quatre grandes matrices de transfert dans le champ de bataille étranger. Le groupe de Wang Lin se dirigeait vers la plus proche. Peu importait pour lui laquelle ils atteindraient, car les matrices ne pouvaient transférer que les personnes répondant à certains critères.
+Il existait quatre grandes matrices de transfert dans le champ de bataille étranger. Le groupe de Wang Lin se dirigeait vers la plus proche. Peu importait pour lui laquelle ils atteindraient, car les matrices ne pouvaient transférer que les personnes munies d'un jade qualifié.
 
 Quiconque pénétrait dans le champ de bataille recevait un morceau de jade. Outre la protection contre le vent d'acier, ce jade permettait également l'utilisation des matrices de transfert.
 
@@ -90,7 +90,7 @@ Les gens, à l'intérieur de la matrice, scrutaient nerveusement l'extérieur; a
 
 En constatant cela, un soupir de soulagement collectif parcourut la foule.
 
-Alors qu'il volait, Wang Lin eut soudain un léger changement d'expression: l'un de ses voisins lui transmit un message, lui apprenant que les deux individus qu'il recherchait étaient déjà morts et que leurs sacs de rangement lui étaient apportées par des âmes errantes.
+Alors qu'il volait, Wang Lin eut soudain un léger changement d'expression: l'un de ses voisins lui transmit un message, lui apprenant que les deux individus qu'il recherchait étaient déjà morts et que leurs sacs de rangement lui étaient apportés par des âmes errantes.
 
 Peu après, une âme errante à deux cornes apparut au loin. Zhou Zihong et les autres ne prêtèrent d'abord aucune attention à cette vision, mais à mesure que l'entité s'approchait, leurs regards se tournèrent vers Wang Lin.
 

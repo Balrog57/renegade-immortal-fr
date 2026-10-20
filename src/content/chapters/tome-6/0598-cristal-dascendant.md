@@ -66,7 +66,7 @@ Le démon antique et Wang Lin levèrent tous deux la tête, et une lueur démoni
 
 « La Lumière Céleste Écarlate! Cela faisait longtemps que je n'en avais pas savouré la saveur… » Au moment où la lumière rouge descendit, le démon antique bondit dans les airs et dévora le rayon de lumière!
 
-La lumière rouge pénétra dans le corps du démon antique et provoqua son explosion, mais il se reforma rapidement. Effondrement, reformation; effondrement, reformation; effondrement, puis reformation. En un seul souffle, le démon antique s'effondra 10 000 fois et se reforma 10 000 fois!
+La lumière rouge pénétra dans le corps du démon antique et provoqua son explosion, mais il se reforma rapidement. Effondrement, reformation; effondrement, reformation; effondrement, puis reformation. En quelques souffles, le démon antique s'effondra 10 000 fois et se reforma 10 000 fois!
 
 Le corps massif du démon antique fut contraint de quitter les airs pour retomber au sol. Alors, une immense onde de choc circulaire commença à se propager depuis lui comme centre. Cette onde, haute d'environ 10 mètres, se répandit telle une vague gigantesque balayant la terre. En un instant, elle parcourut cinq kilomètres et ne s'arrêta pas!
 

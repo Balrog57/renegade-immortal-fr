@@ -46,9 +46,9 @@ La voix de la femme au voile blanc trembla: « Ce sont des chamans à cinq feuil
 
 « Tout le monde, séparez-vous et rejoignez l'entrée du troisième étage! L'accès se trouve à l'extrémité nord! » lança le vieil homme Hu très rapidement avant de saisir Xu Luo et la jeune fille. Il s'enfuit prestement, suivi de près par Qiu Siping.
 
-Wang Lin ne dit mot et partit dans la même direction.
+Wang Lin ne dit mot et s'éloigna.
 
-Voyant tout le monde fuir, les visages se dispersèrent pour les poursuivre. Celui qui traquait Wang Lin fut le premier à l'atteindre.
+Voyant tout le monde fuir, les visages se dispersèrent pour les poursuivre. Celui qui traquait Wang Lin était celui-là même qui avait été le premier à absorber les tatouages du chaman à trois feuilles.
 
 Le regard de Wang Lin restait calme. Après avoir volé un moment, il s'arrêta et fit face au visage qui le poursuivait. Il frappa son sac de rangement et le drapeau de restriction apparut dans sa main. Il agita le drapeau, et un immense nuage de gaz de restriction enveloppa son corps.
 

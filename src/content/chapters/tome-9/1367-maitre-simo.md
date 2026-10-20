@@ -18,7 +18,7 @@ Une sensation de gonflement envahit le corps de Wang Lin. Il avait eu de la chan
 
 Malgré cela, des filaments de tonnerre s'échappaient de ses pores. Cela faisait onduler ses vêtements sans qu'un souffle de vent ne soit présent, et le tonnerre se propageait dans toute la pièce.
 
-En conséquence, l'orage à l'extérieur devint plus déchaîné encore et gronda avec fracas. Ce changement radical força Wang Lin à ouvrir les yeux!
+En conséquence, l'orage à l'extérieur devint plus déchaîné encore, la pluie redoubla, et il gronda avec fracas. Ce changement radical força Wang Lin à ouvrir les yeux!
 
 « Mon jugement était erroné... » L'expression de Wang Lin devint sombre et son corps disparut de la demeure. Il traversa le ciel rugissant et réapparut instantanément au cœur d'une chaîne de montagnes infinie, dans la partie sud de la planète!
 
@@ -60,7 +60,7 @@ La femme en noir déclara doucement: « Informe les anciens du Conseil Souverain
 
 À peine eut-elle fini de parler que trois silhouettes apparurent vaguement et saluèrent la femme avant de disparaître.
 
-Peu de temps après, tous les cultivateurs du Système Stellaire Antique gravitant autour de la planète de Wang Lin reçurent les ordres du Conseil Souverain et commencèrent à se rassembler.
+Peu de temps après, tous les cultivateurs du Système Stellaire Antique gravitant autour de la planète de Wang Lin reçurent les ordres du Conseil Souverain de tout boucler et commencèrent à se rassembler.
 
 Simultanément, au sein d'une faille spatiale, se trouvait un abîme. Cet endroit était plongé dans l'obscurité perpétuelle et saturé d'une énergie glaciale. Tout être vivant aspiré par ce gouffre périssait instantanément.
 
@@ -70,7 +70,7 @@ Pourtant, au plus profond des ténèbres et du froid de la faille, un homme d'â
 
 Une sphère de lumière blanche flottait devant lui. Cette lumière semblait contenir des âmes, bien qu'il fût impossible d'en distinguer le contenu avec précision. Elle tournait lentement, laissant échapper de fines lignes blanches qui étaient inhalées par l'homme.
 
-Après un long moment, l'homme ouvrit lentement les yeux et fixa la lumière blanche. Il murmura: « Un esprit dao de rang 6 est véritablement prodigieux. Je n'en ai absorbé que 60 %, et je ressens déjà les signes d'un dépassement du stade initial de Vide du Nirvana... Bien que je sois encore loin d'une percée, c'est une sensation qui ne m'était pas revenue depuis longtemps... Les quatre royaumes du vide: Nirvana, Esprit, Arcane, Tribulant! »
+Après un long moment, l'homme ouvrit lentement les yeux et fixa la lumière blanche. Il murmura: « Un esprit dao de rang 6 est véritablement prodigieux. Je n'en ai absorbé que 60 %, et je ressens déjà les signes d'une percée imminente vers le stade initial de Vide du Nirvana... Bien que je sois encore loin d'une percée, c'est une sensation qui ne m'était pas revenue depuis longtemps... Les quatre royaumes du vide: Nirvana, Esprit, Arcane, Tribulant! »
 
 L'expression de l'homme changea soudainement et il leva les yeux. Un rayon de lumière rouge perça le vide et s'engouffra dans la faille, surgissant brusquement devant lui!
 

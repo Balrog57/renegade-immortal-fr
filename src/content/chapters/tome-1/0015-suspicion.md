@@ -14,7 +14,7 @@ Zhang Hu secoua la tête: « Laisse tomber, je ne demanderai rien. Si les Ancien
 
 Wang Lin ne lui accorda pas plus d'attention et sortit. La pluie tombait toujours, alors il accéléra le pas, craignant que la perle ne provoque une quelconque anomalie dans l'averse. Il emprunta un sentier désert pour rejoindre la porte est. Toute l'eau qui tombait sur lui était absorbée par la perle, et il craignait que quelqu'un ne s'en aperçoive. Au début, il avait voulu la cacher dans sa chambre, mais il décida qu'il était plus sûr de la dissimuler à l'extérieur.
 
-Wang Lin se rendit à l'un des endroits où il avait précédemment caché une gourde contenant de la rosée. Il était très tôt le matin et peu de personnes s'étaient encore éveillées. Il s'assura que personne ne le suivait avant d'y enterrer la perle de pierre.
+Wang Lin se rendit à l'un des endroits où il avait précédemment caché une gourde contenant de la rosée. Il était très tôt le matin et peu de personnes s'étaient encore éveillées. Il s'assura que personne ne le suivait avant d'y cacher la perle de pierre.
 
 Après cela, il laissa échapper un soupir de soulagement. Il avait l'intention d'attendre que la pluie cesse pour revenir récupérer son trésor. Wang Lin repartit avec une prudence extrême, veillant à ce qu'il n'y ait personne aux alentours, et se dirigea vers le local des corvées. Lorsqu'il arriva, il s'apprêtait à saisir un seau quand un disciple vêtu de jaune au visage de belette apparut. Le disciple Liu fut un peu surpris en voyant Wang Lin, mais changea promptement d'expression pour afficher un enthousiasme débordant, se précipitant pour arracher le seau des mains de Wang Lin. Il s'exclama: « Mais c'est le frère Wang! Comment s'est passé ton voyage chez tes parents? Sont-ils en bonne santé? Ton aîné s'est ennuyé de toi pendant ton absence. »
 
@@ -32,7 +32,7 @@ Wang Lin réfléchit un instant, un sourire à demi esquissé aux lèvres. Dans 
 
 Le cœur du disciple Liu rata un battement en voyant l'expression de Wang Lin. Cela confirma ses soupçons: ce bon à rien avait eu une chance insolente et s'était véritablement attiré les faveurs d'un Ancien. Autrement, il ne se montrerait pas aussi arrogant. Ce gamin semblait être du genre à garder rancune. Il pensa: « Il cherchera certainement à se venger de moi plus tard. »
 
-Le disciple Liu était un disciple honoraire depuis treize ans et avait passé six ans au local des corvées. Il n'avait jamais vu un Ancien chercher personnellement un disciple honoraire. C'était déjà un événement rare qu'un Ancien envoie un disciple intérieur.
+Le disciple Liu était un disciple honoraire depuis treize ans et avait passé six ans au local des corvées. Il n'avait jamais vu un Ancien chercher personnellement un disciple honoraire. Même l'envoi d'un simple disciple intérieur était déjà un événement exceptionnel.
 
 Ce n'est pas qu'il n'avait pas songé que Wang Lin ait pu offenser l'Ancien, auquel cas il se serait trompé dans sa supposition, mais il n'en était pas certain. Il ne craignait pas les dix mille possibilités, mais la seule qui tournerait mal. Il était au sein de la Secte Heng Yue depuis de nombreuses années et savait combien les eaux y étaient profondes et à quel point, simple disciple honoraire, il était insignifiant.
 
@@ -40,7 +40,7 @@ Sur cette pensée, il serra les dents, sortit une feuille de papier jaune et la 
 
 Avant qu'il ne puisse finir, Wang Lin avait déjà saisi la feuille jaune. En la voyant, il reconnut le talisman immortel utilisé lorsque les disciples honoraires rentraient chez eux.
 
-« Merci, aîné. Ce petit frère ne veut pas se montrer arrogant, mais l'Ancien m'attend. Demain, ce petit frère viendra renouer avec toi », dit Wang Lin avec un léger rire.
+« Merci, aîné. Ce petit frère ne saurait refuser, mais l'Ancien m'attend. Demain, ce petit frère viendra renouer avec toi », dit Wang Lin avec un léger rire.
 
 Le frère Liu hocha la tête, un brin envieux: « L'Ancien est plus important, petit frère, va vite! »
 

@@ -8,7 +8,7 @@ slug: empli-de-rage-4
 ---
 La capitale de l'Ancien Dao, la cité flottante. La majeure partie de la ville était encore animée et la musique continuait de résonner comme si c'était un jour de fête propice.
 
-Les événements survenus aux abords du Temple de l'Ancien Dao ne s'étaient pas propagés bien loin, en raison de l'immensité de la cité impériale et du caractère sacré du temple.
+Les événements survenus aux abords du Temple de l'Ancien Dao ne s'étaient pas propagés bien loin, en raison de l'immensité de la cité impériale et du caractère particulier de la montagne du temple.
 
 Personne n'avait remarqué que, la veille du mariage de l'Empereur de l'Ancien Dao, un événement majeur allait se produire, un événement qui allait ébranler non seulement l'Ancien Dao, mais le clan Ancien tout entier!
 
@@ -78,7 +78,7 @@ Chaque fois qu'il y pensait, il éclatait de rire et buvait une coupe de vin. Il
 
 « Quel droit as-tu?! Tu n'es qu'une fourmi issue d'un monde caverneux, un simple barbare. Comment oses-tu te comparer à un génie comme moi! Maintenant que tu entres dans mon Ancien Dao, tu n'oses même pas te mettre à genoux devant moi? Wang Lin, tu as du cran. Tu ne me considères absolument pas. Peu importe ton niveau de culture; au sein du clan Ancien, tu dois fléchir quand tu me vois! »
 
-« Si tu ne t'agenouilles pas, ce n'est pas grave. Après la cérémonie de demain, j'irai m'amuser avec mon impératrice, et je verrai quel goût a ta femme! »
+« Si tu ne t'agenouilles pas, ce n'est pas grave. Après la cérémonie de demain, j'irai aussitôt m'amuser avec mon impératrice, et je verrai quel goût a ta femme! »
 
 « À en juger par son attitude, il cherche désespérément, sans savoir que la femme qu'il traque est juste ici, à mes côtés, et qu'elle est mon impératrice! » En pensant à cela, l'Empereur de l'Ancien Dao leva sa coupe et éclata de nouveau de rire.
 
@@ -92,7 +92,7 @@ Cependant, en raison des restrictions sur les Sens Divins dans le palais, ils ne
 
 « Ce n'est rien! » dit calmement l'Empereur de l'Ancien Dao. Il porta la coupe à ses lèvres et prit une gorgée.
 
-Son geste apaisa les foules sur la place et les plateformes. Ils ne s'inquiétaient pas, car il s'agissait du palais impérial, le cœur même de l'Ancien Dao. La protection y était si puissante qu'ils ne croyaient pas que quiconque puisse y pénétrer et survivre.
+Son geste apaisa les foules sur la place et les plateformes. Ils ne s'inquiétaient pas, car il s'agissait du palais impérial, l'un des trois grands centres du pouvoir impérial des clans Anciens. La protection y était si puissante qu'ils ne croyaient pas que quiconque puisse y pénétrer et survivre.
 
 La place reprit vie et les félicitations retentirent à nouveau.
 

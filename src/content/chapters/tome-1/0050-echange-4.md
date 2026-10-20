@@ -34,7 +34,7 @@ L'Ancien Ouyang secoua la tête. Il dit: « Huang Long, comme tu peux le voir, l
 
 L'expression de Huang Long changea sans cesse. Après un long moment, il dit d'une voix grave: « Camarade cultivateur Ouyang, cessez vos fadaises, sinon ne blâmez pas la Secte Heng Yue pour son manque de clémence! »
 
-L'Ancien Ouyang sourit et dit: « Notre Secte Xuan Dao n'a pas encore pris cette montagne par la force en raison de notre amitié, nous vous offrons donc une chance équitable lors de cet échange. Si la Secte Heng Yue gagne cette fois, alors nous vous laisserons tranquilles. Mon message est passé. Camarade cultivateur Huang Long, poursuivons cet échange. »
+L'Ancien Ouyang sourit et dit: « Notre Secte Xuan Dao n'a pas encore pris cette montagne par la ruse ou la force en raison de notre amitié, nous vous laissons donc une chance de sauver la face lors de cet échange. Si la Secte Heng Yue gagne cette fois, alors nous vous laisserons tranquilles. Mon message est passé. Camarade cultivateur Huang Long, poursuivons cet échange. »
 
 Les disciples internes de la Secte Heng Yue étaient tous confus, mais ils sentaient un poids immense peser sur leurs cœurs. Même le ciel semblait s'être assombri.
 

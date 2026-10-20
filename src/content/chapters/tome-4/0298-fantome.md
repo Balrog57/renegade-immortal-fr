@@ -56,13 +56,13 @@ Cet endroit ne possédait aucune montagne; il ressemblait à un désert. Ce lieu
 
 Quant à cette épée, elle s'était brisée à l'instant même où elle avait fendu l'espace, se transformant en un vent violent qui balayait désormais sans fin le fragment.
 
-À cet instant, au milieu de ce vent impétueux, une formation apparut dans le ciel. Elle formait un pilier de lumière qui bloquait le vent, mais le pilier tremblait violemment, comme s'il pouvait se briser à tout moment.
+À cet instant, au milieu de ce vent impétueux, une formation apparut dans le ciel. Elle formait un rideau de lumière qui bloquait le vent, mais le rideau tremblait violemment, comme s'il pouvait se briser à tout moment.
 
 La silhouette de Wang Lin apparut au sein de la formation. Il jeta un regard autour de lui et fronça les sourcils. Ce fragment était radicalement différent du précédent. Si celui-ci pouvait être considéré comme relativement intact, celui-ci était totalement dévasté.
 
-Logiquement, il n'y avait aucune raison pour que la Secte Da Luo place une formation ici. Wang Lin réfléchit un instant. Voyant la colonne de lumière vaciller dangereusement, il s'élança rapidement hors de la formation.
+Logiquement, il n'y avait aucune raison pour que la Secte Da Luo place une formation ici. Wang Lin réfléchit un instant. Voyant le rideau de lumière vaciller dangereusement, il s'élança rapidement hors de la formation.
 
-Dès l'instant où Wang Lin sortit du pilier, il sentit le vent tranchant comme des lames frapper son corps. Une fois qu'il eut quitté la formation, celle-ci se dissimula rapidement par une méthode spéciale.
+Dès l'instant où Wang Lin sortit du rideau de lumière, il sentit le vent tranchant comme des lames frapper son corps. Une fois qu'il eut quitté la formation, celle-ci se dissimula rapidement par une méthode spéciale.
 
 On n'entendait qu'un seul bruit: le gémissement du vent. On aurait dit d'innombrables silhouettes sanglotant tout autour. À mesure que Wang Lin descendait, le vacarme redoublait d'intensité.
 
@@ -102,7 +102,7 @@ Wang Lin observa la scène, prêtant une attention particulière à toutes les t
 
 L'un d'eux se leva soudainement et hurla avec colère après quelqu'un. Puis, d'un geste de la main, une sphère de foudre violette apparut. Il la désigna et la lança vers le haut; l'orbe violet sortit de la salle et s'éleva dans les cieux.
 
-Wang Lin suivit du regard la sphère de foudre, mais au même moment, le ciel limpide devint brusquement ténébreux. Des amas d'éclairs noirs se rassemblèrent pour former un poing qui percuta la sphère violette.
+Wang Lin suivit du regard la sphère de foudre, mais au même moment, le ciel limpide, où volaient des grues célestes, devint brusquement ténébreux. Des amas d'éclairs noirs se rassemblèrent pour former un poing qui percuta la sphère violette.
 
 La sphère s'effondra aussitôt et le poing de foudre, sans le moindre ralentissement, s'abattit du ciel.
 

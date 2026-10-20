@@ -50,7 +50,7 @@ Le visage de Wang Lin devint livide, mais il n'hésita pas pour tracer un symbol
 
 Une fois la dernière goutte de sang rassemblée sur l'arme, Wang Lin se concentra et hurla: « Rassemble-toi! »
 
-Dans un bourdonnement, l'épée volante trembla violemment, ses vibrations s'accélérant sans cesse. Sans céder à la panique, Wang Lin observa l'objet tout en continuant de former des sceaux de ses mains.
+Dans un bourdonnement, l'épée volante trembla violemment, ses vibrations s'accélérant sans cesse. Sans céder à la panique, Wang Lin observa l'objet, le visage grave, tout en continuant de former des sceaux de ses mains.
 
 Peu de temps après, l'énergie spirituelle entourant l'épée commença à bouillir, dégageant une fumée blanche comme si l'arme était passée au feu. À mesure que la fumée s'intensifiait, la quantité de liquide diminuait.
 

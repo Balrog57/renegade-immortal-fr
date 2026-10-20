@@ -26,7 +26,7 @@ Trois Portes du Vide apparurent simultanément dans le monde. De loin, ce specta
 
 L'expression de Wang Lin restait calme alors qu'il contemplait les trois Portes du Vide. Il fit un pas en avant et chargea comme une météorite vers elles, sous les yeux de tous.
 
-« Cause... » Tandis que Wang Lin s'élançait, sa main droite s'étira, les doigts écartés en une paume ouverte. Au moment où il se referma sur la porte, sa main droite pressa violemment.
+« Cause... » Tandis que Wang Lin s'élançait, sa main droite s'étira, les doigts écartés en une paume ouverte. Au moment où sa main se posa sur la porte, elle pressa violemment.
 
 « Effet... » Au moment où sa main s'abattit, sa voix résonna et finit par former le dernier mot!
 
@@ -66,9 +66,9 @@ La quatrième Porte du Vide s'effondra!
 
 Une fissure était sur le point d'apparaître entre ses sourcils. L'intérieur de la faille était noir, comme s'il contenait un autre monde!
 
-C'était une caractéristique unique aux cultivateurs du Vide Spirituel: leur propre Domaine de la Flamme Spirituelle pour nourrir leurs âmes de flammes. Ils pouvaient même forcer autrui à les vénérer et à devenir leurs esclaves de la Flamme Spirituelle!
+C'était une caractéristique unique aux cultivateurs du Vide Spirituel: leur propre Domaine de la Flamme Joss pour nourrir leurs âmes de flammes. Ils pouvaient même forcer autrui à les vénérer et à devenir leurs esclaves de la Flamme Joss!
 
-Wang Lin avait ouvert la Porte du Vide par lui-même, sans l'aide des Flammes Spirituelles. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes Spirituelles, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de culture n'était pas encore assez élevé.
+Wang Lin avait ouvert la Porte du Vide par lui-même, sans l'aide des Flammes Joss. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes Joss, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de culture n'était pas encore assez élevé.
 
 Dans un rire, il agita sa manche et repoussa les fragments de la Porte du Vide. Ce qui apparut devant lui était la cinquième Porte du Vide!
 
@@ -76,11 +76,11 @@ Cette cinquième porte était encore plus dense et réelle que les précédentes
 
 Les yeux clos, tout ce qui composait le monde dans le cœur de Wang Lin devint illusoire. Tant que son cœur et ses pensées subsistaient, alors tout demeurerait!
 
-Après un instant de silence, Wang Lin ouvrit soudainement les yeux. À cet instant, tout ce qui était faux dans le monde devint vrai. C'était le sortilège qu'il avait compris de l'essence du Vrai et du Faux: le Chemin du Vrai et du Faux!
+Après un instant de silence, Wang Lin ouvrit soudainement les yeux. À cet instant, tout ce qui était faux dans le monde devint vrai. C'était le sortilège qu'il avait compris de l'essence du Vrai et du Faux: le Dao du Vrai et du Faux!
 
 La cinquième Porte du Vide trônait parmi les étoiles, mais Wang Lin ferma de nouveau les yeux. Il leva la main droite et fit un geste de la main. Un simple mouvement, presque désinvolte.
 
-Pourtant, sous les yeux de tous, la cinquième porte se déforma et se changea en poussière par ce simple geste. Elle s'effondra silencieusement devant lui.
+Pourtant, sous les yeux de tous, y compris de Zhou Jin, du jeune homme en robe verte, du Maître Céleste Dieu du Vide, de Situ Nan et de Nan Yunzi, la cinquième porte se déforma et se changea en poussière par ce simple geste. Elle s'effondra silencieusement devant lui.
 
 Wang Lin avait brisé une à une les cinq Portes du Vide. La fissure qui était apparue faiblement entre ses sourcils se forma désormais complètement, dégageant une force d'aspiration infinie. C'était comme si le système stellaire tout entier allait être aspiré!
 
@@ -92,13 +92,13 @@ Le fait qu'il brise la Porte par le karma, qu'il la déchire par la vie et la mo
 
 On ne sut qui réagit le premier, mais un cri de terreur retentit et une personne prit la fuite comme une folle. Un instant plus tard, presque tous les cultivateurs du Royaume Extérieur s'enfuirent dans toutes les directions. La peur les paralysait. Voir avec quelle facilité Wang Lin brisait les Portes du Vide les plongeait dans une terreur absolue.
 
-Lorsqu'il avait brisé la Porte avec le tonnerre, c'était acceptable. Lorsqu'il l'avait brûlée avec le feu, cela restait tolérable. Mais pour la troisième, la quatrième et la cinquième fois, les portes s'étaient effondrées par une simple pression de la paume ou un simple geste de la main. En particulier, la dernière fois, où Wang Lin s'était contenté de fermer puis d'ouvrir les yeux pour faire dissiper la Porte, avait dépassé l'entendement de tous les cultivateurs du Royaume Extérieur.
+Lorsqu'il avait brisé la Porte avec le tonnerre, c'était acceptable. Lorsqu'il l'avait brûlée avec le feu, cela restait tolérable. Mais pour la troisième, la quatrième et la cinquième fois, les portes s'étaient effondrées par une simple pression de la paume ou un simple geste de la main. En particulier, la dernière fois, où Wang Lin s'était contenté de fermer, d'ouvrir puis de refermer les yeux pour faire dissiper la Porte, avait dépassé l'entendement de tous les cultivateurs du Royaume Extérieur.
 
 Le jeune homme en robe verte recula avec effroi. Bien qu'il fût au stade du Vide Arcane, il n'en était qu'au début. En voyant Wang Lin briser trois Portes du Vide consécutivement, il perçut des indices.
 
 « Le Karma, la vie et la mort, le vrai et le faux... Il a réellement réussi à comprendre ces grands Dao éthérés! Cet homme ne peut pas être provoqué, il est absolument intouchable! »
 
-Les essences se divisaient entre le corporel et l'éthéré. Le feu était corporel, mais le karma était éthéré. Comprendre les essences éthérées était bien plus complexe.
+Les essences se divisaient entre le corporel et l'éthéré. La foudre et le feu étaient corporels, mais le karma était éthéré. Comprendre les essences éthérées était bien plus complexe.
 
 « Sixième essence: l'essence de massacre! » La voix de Wang Lin était calme, mais elle portait une aura de carnage terrifiante. Alors que ses paroles résonnaient, des flocons de neige rouges apparurent de nulle part et se dispersèrent.
 

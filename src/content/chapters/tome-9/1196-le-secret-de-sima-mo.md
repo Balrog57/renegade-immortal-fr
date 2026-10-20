@@ -54,7 +54,7 @@ Après avoir répertorié ses nouveaux biens, les yeux de Wang Lin s'illuminère
 
 Son premier objectif: la grotte de Sima Mo, telle que révélée par les souvenirs de Pang Decai!
 
-Dans les souvenirs de Pang Decai, après avoir découvert la grotte de Sima Mo, ils ne l'avaient pas ouverte totalement, mais n'en avaient ouvert qu'une partie. Ils s'étaient alors préparés à capturer les bêtes spirituelles pour les raffiner en pilules. Une fois leur culture augmentée, ils comptaient briser complètement le sceau de la grotte.
+Dans les souvenirs de Pang Decai, après avoir découvert la grotte de Sima Mo, ils ne l'avaient pas ouverte totalement, mais n'en avaient ouvert qu'une partie. Ils s'étaient alors préparés à capturer des âmes de bêtes pour les raffiner en pilules. Une fois leur culture augmentée, ils comptaient briser complètement le sceau de la grotte.
 
 « Une grotte qui n'a pas été entièrement ouverte et qui est restée intacte! » Wang Lin se déplaça avec célérité en suivant les souvenirs de Pang Decai. Il traversa la vallée sans déclencher la moindre restriction.
 
@@ -98,7 +98,7 @@ Wang Lin observa silencieusement le squelette, ses pupilles se contractant. Les 
 
 Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le premier jade et y projeta son sens divin.
 
-«... Je ne pensais pas revenir ici... Autrefois, mon Oncle-Maître, mes compagnons de secte et moi avons trouvé cette mystérieuse faille spatiale à sa demande... Cette faille était étrange, mais elle regorgeait d'une lumière septicolore. C'était magnifique... Ma Sœur Junior aimait tant ces couleurs, et je lui avais promis de lui en rapporter la lumière...
+«... Je ne pensais pas revenir ici... Autrefois, mon Oncle-Maître, mes compagnons de secte et moi avons trouvé cette mystérieuse faille spatiale à sa demande... Cette faille était étrange, mais elle regorgeait d'une lumière septicolore. C'était magnifique... Ma Sœur Junior aimait tant les arcs-en-ciel, et je lui avais promis d'en rapporter de quoi les suspendre partout dans sa chambre...
 
 « Nous sommes entrés dans la faille et avons basculé dans ce cauchemar horrible... Mais à l'époque, je n'avais rien vu venir...
 
@@ -106,4 +106,4 @@ Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le 
 
 « Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer des Nuages. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
 
-« Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons échappé au destin une fois, pour revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là le destin? Je crois au destin, je lui voue ma foi... »
+« Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons fui en vain, pour finalement revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là le destin? Je crois au destin, je lui voue ma foi... »

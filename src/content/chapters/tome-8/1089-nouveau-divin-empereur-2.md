@@ -8,7 +8,7 @@ slug: nouveau-divin-empereur-2
 ---
 Le rugissement douloureux de Wang Lin résonna à travers le champ d'étoiles en flammes. L'activation de l'un des deux derniers tatouages de feu provoqua une déferlante d'énergie originelle dans son corps, exacerbant sa souffrance.
 
-À cet instant, Wang Lin portait une armure cramoisie tandis qu'un immense Oiseau Vermillon blanc tournait autour de lui, absorbant l'énergie originelle de son corps. Néanmoins, la puissance équivalente à huit fois son énergie originelle était un fardeau que Wang Lin jugeait insupportable.
+À cet instant, Wang Lin portait une armure cramoisie, ses cheveux blancs flottant au vent, tandis qu'un immense Oiseau Vermillon blanc tournait autour de lui, absorbant l'énergie originelle de son corps. Néanmoins, la puissance équivalente à huit fois son énergie originelle était un fardeau que Wang Lin jugeait insupportable.
 
 La douleur de la déchirure devint plus intense encore, mais elle ne fit pas fléchir Wang Lin. Au contraire, elle éveilla sa nature rebelle. Il laissa échapper un rire teinté d'une expression douloureuse, un rire féroce qui portait en lui une pointe de folie.
 
@@ -56,7 +56,7 @@ Wang Lin devint soudainement un être de feu; des flammes denses s'assemblèrent
 
 Les flammes qui avaient toujours existé et ne s'éteindraient jamais se mirent en mouvement, provoquant un changement titanesque dans le champ d'étoiles. Les flammes suivirent le vortex, créant un mélange de rouge et d'argent, comme si le feu et la foudre avaient fusionné!
 
-Les flammes qui embrasaient les 30 % de la région orientale de l'Alliance éclatèrent. Elles commencèrent à pénétrer dans les champs d'étoiles environnants.
+Les flammes qui embrasaient près de 30 % de la région orientale de l'Alliance éclatèrent. Elles commencèrent à pénétrer dans les champs d'étoiles environnants.
 
 Dans la Secte Divine du Dragon Azure, un groupe de moustiques féroces semblables à des bêtes bourdonnait entre des arbres géants. En tête de groupe se trouvait une créature-moustique pourpre de la taille d'une petite montagne. Ce moustique tourna soudain son regard vers le lointain Secte Divine de l'Oiseau Vermillon, ses yeux froids brillant d'excitation.
 

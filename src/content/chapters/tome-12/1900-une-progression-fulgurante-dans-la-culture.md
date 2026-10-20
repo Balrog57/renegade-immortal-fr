@@ -34,7 +34,7 @@ Il ouvrit les yeux et scruta les environs. Son regard rayonnait de sagesse.
 
 Plus important encore, Wang Lin possédait neuf essences et il devait les fusionner en une seule! S'il y parvenait, il pourrait affronter les neuf Tribulations Arcaniques!
 
-Une fois ces tribulations surmontées, Wang Lin deviendrait un cultivateur de la Tribulation du Vide.
+Une fois ces tribulations surmontées, Wang Lin deviendrait un Grand Exalté de la Tribulation du Vide.
 
 Son regard était empreint de détermination. Il avait attendu longtemps une telle opportunité et il ne comptait pas la laisser filer. Sans hésiter, Wang Lin prit une profonde inspiration, ses mains formèrent un sceau et il pointa vers l'avant!
 
@@ -62,7 +62,7 @@ C'était la fusion de trois corps véritables d'essence. Ce nouveau corps conten
 
 Dès que ce corps issu de la fusion apparut, l'âme originelle de Wang Lin commença à absorber la puissance accumulée dans son organisme. Sa culture du stade initial du Vide Arcanique grimpa soudainement en flèche!
 
-Elle progressait frénétiquement vers le stade intermédiaire du Vide Arcanique. Ce processus dura un mois, après quoi Wang Lin laissa échapper un long rire. Son niveau de culture n'était plus au stade initial, mais au stade intermédiaire du Vide Arcanique!
+Elle progressait frénétiquement vers le stade intermédiaire du Vide Arcanique. Ce processus dura un mois, après quoi Wang Lin laissa échapper un long cri. Son niveau de culture n'était plus au stade initial, mais au stade intermédiaire du Vide Arcanique!
 
 Depuis les temps anciens, personne n'avait réussi à franchir le stade initial pour atteindre le stade intermédiaire en seulement quelques mois. Si cela venait à s'ébruiter, Wang Lin attirerait l'attention de tous!
 

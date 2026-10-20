@@ -28,7 +28,7 @@ La prolongation du conflit permit à la Secte des Cadavres d'être accueillie fa
 
 Seuls le Royaume du Vide Brillant et les Quatre Sectes Divines jouissaient de la paix, comme s'ils étaient coupés du reste du monde.
 
-Au fil de cette année, le niveau de culture de Wang Lin progressait de plus en plus vite. Les grondements de tonnerre émanant de son corps se faisaient de plus en plus fréquents, résonnant à travers toute la Secte Divine de l'Oiseau Vermillon. Bien que tout le monde ne l'ait pas vu, sa réputation les précédait tous.
+Au fil de cette année, le niveau de culture de Wang Lin progressait de plus en plus vite. Les grondements de tonnerre émanant de son corps se faisaient de plus en plus fréquents, résonnant à travers toute la Secte Divine de l'Oiseau Vermillon. Bien que beaucoup ne l'aient pas vu, tous le connaissaient.
 
 Tous les membres du clan savaient que ce Wang Lin, dont le corps dégageait ces éclats de tonnerre, était leur futur Empereur Divin, l'espoir de la Secte Divine de l'Oiseau Vermillon. Cependant, là où il y a des hommes, il y a des disputes et des luttes de pouvoir.
 

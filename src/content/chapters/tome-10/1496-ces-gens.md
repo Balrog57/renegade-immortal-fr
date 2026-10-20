@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1496 - Those People!"
 slug: ces-gens
 ---
-Leur force écrasante fit s'effondrer la volonté de combat de Maître Lu Fu! Il ne pouvait plus lutter et n'était plus que le siège d'un choc indescriptible!
+Leur force écrasante fit s'effondrer l'esprit de Maître Lu Fu! Il ne pouvait plus lutter et n'était plus que le siège d'un choc indescriptible!
 
 Malgré son niveau de culture, Maître Lu Fu ne pouvait qu'éprouver une immense amertume en contemplant stupéfait ce qui se déroulait sous ses yeux.
 
@@ -104,11 +104,13 @@ Dans le royaume céleste de la Pluie, une femme en blanc était assise dans un c
 
 Plus loin encore, sur une montagne qui semblait pétrifiée par le gel, siégeait une femme au visage impassible. Elle faisait face au froid, le regard perdu dans l'immensité, l'expression glaciale.
 
-Au pied de la montagne se trouvait une demeure, et un homme en vert se tenait dans la cour. Son corps dégageait une aura antique, mais on devinait qu'il avait été très beau lorsqu'il était jeune.
+Au pied de la montagne se trouvait une chaumière, et un homme en vert se tenait dans la cour. Son corps dégageait une aura antique, mais on devinait qu'il avait été très beau lorsqu'il était jeune.
 
 Bien que son corps fût présent, il ressemblait à un corps spirituel, dépourvu de consistance physique.
 
-Debout dans la cour, il leva les yeux vers le sommet de la montagne. Ses yeux laissaient voir une passion vieille de milliers d'années, sans l'ombre d'un regret... Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais commettre un massacre qui ébranlera le ciel! »
+Debout dans la cour, il leva les yeux vers le sommet de la montagne. Ses yeux laissaient voir une passion vieille de milliers d'années, sans l'ombre d'un regret...
+
+Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais commettre un massacre qui ébranlera le ciel! »
 
 Dans le système stellaire de l'Alliance, là où se trouve la Secte des Cadavres, un regard semblant pouvoir se matérialiser, capable de faire s'effondrer les étoiles, se tourna vers Luotian.
 
@@ -120,10 +122,10 @@ Le visage de Maître Lu Fu était livide; il laissa Wang Lin passer sans cherche
 
 Maître Lu Fu avait autrefois aidé Wang Lin dans la Terre de l'Ancien Dieu. Même si cet acte n'avait été qu'un simple caprice, comme un mortel aidant une fourmi à traverser une rivière, Wang Lin ne l'oublierait pas.
 
-C'est pourquoi Wang Lin avait accepté la Bataille Littéraire sans intention de lui faire perdre la face. En agissant ainsi, il lui témoignait encore du respect; autrement, il n'aurait pas consenti à tout ce déploiement.
+C'est pourquoi Wang Lin avait accepté la Bataille Littéraire sans intention de lui faire perdre la face. C'était sa façon de lui rendre cette faveur; autrement, il n'aurait pas consenti à tout ce déploiement.
 
-Il avait initialement prévu d'utiliser la Bataille Littéraire pour offrir à Maître Lu Fu une porte de sortie honorable. Cependant, l'obstination de Maître Lu Fu finit par lasser Wang Lin. Il avait alors convoqué Ling Dong et Zhou Jin afin de lui infliger un choc inimaginable!
+Il avait initialement prévu d'utiliser la Bataille Littéraire pour offrir à Maître Lu Fu une porte de sortie honorable. Cependant, la pression exercée par Maître Lu Fu finit par lasser Wang Lin. Il avait alors convoqué Ling Dong et Zhou Jin afin de lui infliger un choc inimaginable!
 
 Wang Lin dépassa l'amer Maître Lu Fu et s'avança lentement dans le vortex. Il se retrouva face au Dieu de Sang.
 
-Le visage du Dieu de Sang était blême, et dès que Wang Lin fut là, il poussa un cri strident. Ses mains formèrent un sceau, tentant une ultime lutte avant la mort. Il recula précipitamment en agitant ses manches, faisant apparaître une ombre démoniaque gigantesque derrière lui!
+Le visage du Dieu de Sang était blême, et dès que Wang Lin fut là, il poussa un cri strident. Ses mains formèrent un sceau, tentant une ultime lutte avant la mort. Il recula précipitamment en agitant ses manches, faisant apparaître une ombre démoniaque illusoire derrière lui!

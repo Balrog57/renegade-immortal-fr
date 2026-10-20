@@ -66,4 +66,4 @@ Le regard de Li Muwan devint encore plus glacial. Elle fixa l'homme tout en cont
 
 L'homme afficha un sourire empreint de douceur: « Sœur cadette, nous sommes dans la Secte du Ciel Nuageux. Comment oserais-je te barrer le passage? Dis-moi, où vas-tu? Je serais ravi de t'accompagner. »
 
-À ce moment précis, Wang Lin atteignit la cour sud. Il fixa le brouillard blanc qui enveloppait les lieux, le visage absolument impassible.
+À ce moment précis, Wang Lin atteignit le patio sud. Il fixa le brouillard blanc qui enveloppait les lieux, le visage absolument impassible.

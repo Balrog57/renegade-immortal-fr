@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 619 - Get Down For Me!"
 slug: inclinez-vous-devant-moi
 ---
-Les cultivateurs de l'Union de Culture s'envolèrent vers la Tribu du Raffinement des Âmes.
+Les cultivateurs de l'Union de Culture s'envolèrent vers la Tribu de l'Affinement de l'Âme.
 
 Devant eux s'étendait un nuage noir couvrant des centaines de kilomètres à la ronde. Cette masse était si épaisse qu'il était impossible d'y voir clair; sans même parler de la vue, leurs sens divins étaient instantanément repoussés par elle. En réalité, s'ils avaient été tant soit peu négligents, leurs sens divins auraient été dévorés par les fragments d'âmes qui s'y trouvaient!
 
@@ -88,7 +88,7 @@ Au centre de la tribu se trouvait un espace ouvert d'un rayon de cinq kilomètre
 
 Treize se tint à la lisière de l'espace vide et dit respectueusement: « Ancêtre, j'ai amené les invités! »
 
-« Des compagnons de culture sont venus empreints d'intentions meurtrières... Aurais-je offensé l'un d'entre vous? » La voix de Wang Lin émana lentement de la tour. Bien que son ton fût modeste, sa voix semblait porter une puissance démoniaque en son for intérieur. Elle se propagea lentement à travers toute la Tribu du Raffinement des Âmes.
+« Des compagnons de culture sont venus empreints d'intentions meurtrières... Aurais-je offensé l'un d'entre vous? » La voix de Wang Lin émana lentement de la tour. Bien que son ton fût modeste, sa voix semblait porter une puissance démoniaque en son for intérieur. Elle se propagea lentement à travers toute la Tribu de l'Affinement de l'Âme.
 
 Wang Lin perfectionnait progressivement le sortilège du Son du Démon Céleste tout en renforçant l'empreinte sur le démon dispersé. À cet instant, le sortilège fut propagé par le son. Chaque membre de l'Union de Culture, à l'exception de l'homme en noir, sentit la magie envahir son esprit.
 
@@ -98,7 +98,7 @@ L'âme originelle de l'homme en or trembla. Ses yeux trahirent involontairement 
 
 « Si tel est le cas, vous êtes bien trop présomptueux de venir me chercher des ennuis! » La voix de Wang Lin était désormais chargée d'une intention glaciale.
 
-À cet instant, tous les membres de la Tribu du Raffinement des Âmes crièrent à l'unisson: « Impudent! »
+À cet instant, tous les membres de la Tribu de l'Affinement de l'Âme crièrent à l'unisson: « Impudent! »
 
 Ce cri collectif se fondit avec les lamentations du nuage noir. Lorsqu'il atteignit les oreilles des cultivateurs, il fut plus assourdissant qu'un coup de tonnerre, comme si d'innombrables lames acérées s'étaient plantées dans leurs cœurs. Leurs oreilles bourdonnèrent et leurs âmes originelles furent secouées!
 

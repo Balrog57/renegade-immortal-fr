@@ -34,7 +34,7 @@ Le rugissement dans son esprit devint plus intense encore et son sang sembla s'e
 
 « La Triple Division de l'Âme de l'Ancien Dao... » murmura Wang Lin. D'après la tablette de pierre, il avait appris que cette épreuve ne diviserait pas son âme originelle en trois parties distinctes.
 
-Au lieu de cela, il devait endurer trois cycles complets de division et de fusion. Il devrait subir une douleur atroce à chaque division et ferait preuve d'une persévérance hors du commun pour refusionner lentement son âme originelle avant d'entamer la division suivante.
+Au lieu de cela, il devait endurer trois cycles complets de division et de fusion. Il devrait subir à chaque division une douleur atroce, comparable à la dispersion de sa force, et ferait preuve d'une persévérance hors du commun pour refusionner lentement son âme originelle avant d'entamer la division suivante.
 
 Après chaque fusion, son âme originelle et son corps deviendraient bien plus puissants qu'auparavant. Une fois les trois cycles accomplis, il aurait survécu à cette calamité.
 
@@ -70,7 +70,7 @@ Mais ce n'était que le début!
 
 « Pour obtenir le sang d'âme, je dois pousser la deuxième calamité jusqu'à ses limites pour voir où elle s'arrête! » Une lueur de détermination absolue brilla dans ses yeux. Il ferma lentement les paupières pour affronter la tempête.
 
-Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent à l'extérieur du temple ancestral. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale des Anciens Shi.
+Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent autour de la statue de l'Ancêtre. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale des Anciens Shi.
 
 Ce phénomène étrange attira immédiatement l'attention de tous les membres des Anciens Shi.
 

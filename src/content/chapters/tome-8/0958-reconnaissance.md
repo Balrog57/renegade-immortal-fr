@@ -102,7 +102,7 @@ Instantanément, des rayons de lumière argentée jaillirent de son sac pour s'u
 
 Par ce geste, la vitesse de circulation de son énergie originelle atteignit presque son apogée. D'innombrables Coups Célestes jaillirent et fusionnèrent avec le vortex devant lui. Le vortex entier trembla, se condensa, puis s'élança avec violence.
 
-Wang Lin avait obtenu ces épées dans le Royaume de la Boucherie et, en chemin vers la Secte du Destin Céleste, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume de la Massacre pourraient désormais les identifier.
+Wang Lin avait obtenu ces épées dans le Royaume de la Boucherie et, en chemin vers la Secte du Destin Céleste, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume de la Boucherie pourraient désormais les identifier.
 
 À cet instant, ce vortex d'épées contenant la puissance d'innombrables Coups Célestes entra en collision avec le sortilège de Ling Tianhou. Le monde changea de couleur et sembla s'inverser.
 
@@ -160,6 +160,6 @@ Ils restèrent silencieux un long moment avant que l'Omniscient ne demande lente
 
 « Ce disciple souhaite entrer dans la Terre des Esprits Démoniaques. » L'expression de Wang Lin était empreinte de respect.
 
-L'Omniscient, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste de Luotian ou comme l'un des membres de la série de l'Oiseau Vermillon des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série de l'Oiseau Vermillon ne compte que trois personnes, vous y compris! »
+L'Omniscient, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste authentique de Luotian ou comme l'un des membres de la série de l'Oiseau Vermillon des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série de l'Oiseau Vermillon ne compte que trois personnes, vous y compris! »
 
 Wang Lin réfléchit en silence. Il ne savait pas grand-chose sur la série de l'Oiseau Vermillon. Bien qu'il fût touché par ces paroles, son visage ne trahit aucune émotion.

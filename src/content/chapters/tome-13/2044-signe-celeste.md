@@ -30,7 +30,7 @@ Après un long moment de méditation silencieuse, Wang Lin se souvint que son ma
 
 Il laissa échapper un soupir et pointa du doigt son corps véritable des cinq éléments. Ce dernier regarda Wang Lin, les yeux brillants, avant de se diviser en cinq rayons de lumière pour s'élancer vers l'essence de restriction. Il allait ainsi remplacer Wang Lin dans le processus d'intégration de ces innombrables restrictions.
 
-Enfin, Wang Lin tourna son regard vers l'essence du tonnerre de massacre. Cette essence était la plus cruciale et la plus insaisissable qu'il possédât!
+Enfin, Wang Lin tourna son regard vers l'essence de massacre. Cette essence était la plus cruciale et la plus insaisissable qu'il possédât!
 
 « Massacre... Lorsqu'il est apparu pour la première fois, il s'est nommé lui-même "Massacre". Le Maître Impérial du Dao Ancien connaît également cet avatar... » L'expression de Wang Lin était complexe. Il nourrissait ses propres spéculations, mais elles restaient enfouies au plus profond de son cœur.
 

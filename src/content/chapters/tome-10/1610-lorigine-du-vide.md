@@ -8,7 +8,7 @@ slug: lorigine-du-vide
 ---
 Observant l'oiseau s'envoler vers l'horizon, Wang Lin détourna le regard et contempla longuement le volcan éteint. Puis il se retourna et s'éloigna lentement.
 
-Ce jour-là, nous étions en juin de la dix-neuvième année depuis qu'il avait quitté Zhao, et la cinquante-septième année depuis qu'il s'était enivré après seulement deux coupes de vin dans cette auberge au bord de la route.
+Ce jour-là, c'était en juin de la dix-neuvième année depuis qu'il avait quitté Zhao, et la cinquante-septième année depuis qu'il s'était enivré après seulement deux coupes de vin dans cette auberge au bord de la route.
 
 Cette année-là, Wang Lin approchait de ses quatre-vingts ans.
 
@@ -40,7 +40,7 @@ Au cours de cette période, la secte de Li Muwan finit par trouver Wang Lin, et 
 
 Aucun des cultivateurs venus ne repartit.
 
-Ils s'asseyaient calmement aux côtés de Wang Lin, comme s'ils cherchaient le Dao.
+Ils s'asseyaient calmement aux côtés de Wang Lin, comme s'ils écoutaient le Dao.
 
 Année après année, toujours plus de cultivateurs affluèrent de Huo Fen et de toutes les directions, venant de diverses sectes, comme si quelque chose les appelait au plus profond de leur cœur.
 
@@ -48,7 +48,7 @@ Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Étab
 
 Quel que soit leur rang, ils devaient simplement trouver une place sur la montagne. L'espace étant limité, il n'y avait point de lutte pour les places. Tous restaient assis en silence pour écouter Wang Lin, qui ne parlait peut-être qu'une fois par an.
 
-Lorsque Wang Lin se taisait, ils cultivaient. C'était comme si une force invisible, permettant à leurs esprits de poursuivre le monde, imprégnait les lieux.
+Lorsque Wang Lin se taisait, ils cultivaient. C'était comme si une force invisible, guidant leurs pensées vers la compréhension du ciel et de la terre, imprégnait les lieux.
 
 « Tout destin karmique se rassemble et finit par devenir un effet karmique. C'est cela, le karma. Durant les décennies passées à comprendre le karma, j'ai découvert qu'entre la cause et l'effet, il existe autre chose: le destin karmique. Si le destin karmique n'existe pas, alors le karma n'existe pas. » Wang Lin afficha un sourire en prenant la parole cette année-là.
 
@@ -58,7 +58,7 @@ Presque tous les cultivateurs de ce continent finirent par trouver leur chemin v
 
 Certains traversèrent la mer depuis d'autres continents ou utilisèrent des formations de téléportation. Parmi eux se trouvaient Dun Tian, Nian Tian et une multitude de disciples de la Secte de l'Affinement de l'Âme.
 
-Il y avait aussi les cultivateurs de Xue Yu. Sous la conduite de la femme froide, ils étaient arrivés, attirés par cette sensation mystérieuse. Ils s'assirent en silence pour chercher le Dao.
+Il y avait aussi les cultivateurs de Xue Yu. Sous la conduite de la femme froide, ils étaient arrivés, attirés par cette sensation mystérieuse. Ils s'assirent en silence pour écouter le Dao.
 
 La femme froide tenait un bébé, une petite fille qui semblait ne jamais grandir.
 
@@ -76,7 +76,7 @@ Enfin, même Zhu Quezi brisa le vide pour arriver. Il demeura longuement silenci
 
 « Qu'il s'agisse de Papillon Rouge ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde de rêve, il en va de même. Destin, destin, destin... »
 
-« Ce destin est une force externe. Par son interférence, il crée une cause karmique qui, en se combinant, forme un effet karmique. Tel un homme et une femme engendrant un enfant: l'homme et la femme sont la cause, leur union est le destin, et l'enfant qui naît d'eux est l'effet. » Wang Lin sourit et soupira doucement.
+« Ce destin est une force externe. Par son interférence, il crée une cause karmique qui, en se combinant, forme un effet karmique. Tel un homme et une femme engendrant un enfant: l'homme et la femme sont la cause, le destin les réunit, et l'enfant qui naît d'eux est l'effet. » Wang Lin sourit et soupira doucement.
 
 À cet instant, une personne sortit de la secte située sur la montagne. Elle était restée la même, vêtue d'une robe blanche, ses cheveux noirs sur les épaules, affichant une expression empreinte de douceur. C'était Li Muwan.
 
@@ -102,15 +102,15 @@ Pourtant, ces larmes étaient empreintes de joie et de chaleur. Elle ne se souci
 
 « Je n'existe pas, tout ceci n'existe pas, c'est pour cela que le mot "disparaître" existe... Cela contient le vrai et le faux, la vie et la mort... »
 
-« Le karma, le vrai et le faux, la vie et la mort, tout provient en réalité du vide... Et si je prononce la phrase suivante, ce rêve prendra fin... » Wang Lin regarda Li Muwan d'un ton calme.
+« Le karma, le vrai et le faux, la vie et la mort, tout naît de causes et de conditions et est vide de nature... Et si je prononce la phrase suivante, ce rêve prendra fin... » Wang Lin regarda Li Muwan d'un ton calme.
 
 C'était un rêve sans fin. Depuis qu'il s'était enivré, jeune homme, dans cette auberge de Zhao, plus de soixante ans s'étaient écoulés.
 
-De plus en plus de cultivateurs convergèrent vers la montagne jusqu'à ce que tous ceux que Wang Lin avait rencontrés dans son rêve, même ceux qu'il n'avait croisés qu'une fois, fussent présents. Tous contemplaient silencieusement les deux êtres sur le sommet.
+De plus en plus de cultivateurs convergèrent vers la montagne, dans un rayon de plusieurs milliers de kilomètres, jusqu'à ce que tous ceux que Wang Lin avait rencontrés dans son rêve, même ceux qu'il n'avait croisés qu'une fois, fussent présents. Tous contemplaient silencieusement les deux êtres sur le sommet.
 
 Le temps sembla s'étirer à l'infini. On ignorait combien de temps passait alors que Wang Lin tenait Li Muwan dans ses bras. Ils restèrent là, observant ensemble les levers et couchers de soleil, comptant les années l'un avec l'autre.
 
-« Le karma ne peut être tranché car il est le vide... Le karma est le karma. Le destin se rassemble pour mieux se disperser dans le vide. » La voix de Wang Lin résonna à travers le monde, se transformant en d'innombrables flocons de saule. On ne savait ni d'où ils venaient, ni où elles allaient.
+« Le karma ne peut être tranché car il est le vide... Le karma est le karma. Le destin se rassemble pour mieux se disperser dans le vide. » La voix de Wang Lin résonna à travers le monde, se transformant en d'innombrables flocons de saule. On ne savait d'où ils venaient, mais ils savaient où ils allaient.
 
 Elles flottaient lentement dans les cieux avant de retomber sur les cultivateurs environnants, comme si elles portaient l'enregistrement de leurs propres vies.
 

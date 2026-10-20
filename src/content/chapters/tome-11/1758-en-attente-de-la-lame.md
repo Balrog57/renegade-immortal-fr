@@ -10,7 +10,7 @@ slug: en-attente-de-la-lame
 
 Dans ce combat, si le général reculait, le moral de son armée s'effondrerait. Wang Lin chargeait contre lui avec un élan dévastateur, rendant toute retraite impossible!
 
-S’il reculait, cela signifierait qu'il craignait Wang Lin. S’il reculait, il ne pourrait peut-être jamais gagner! Après tout, plus Wang Lin tuait, plus il devenait puissant!
+S’il reculait, cela signifierait qu'il craignait Wang Lin. S’il reculait, il ne pourrait peut-être jamais gagner! Après tout, avec le temps, plus Wang Lin tuait, plus il devenait puissant!
 
 Même s'il possédait lui aussi un grand pouvoir de destruction, s'il reculait maintenant, il ne pourrait plus rivaliser avec l'élan de Wang Lin!
 
@@ -92,7 +92,7 @@ Terrifié, l'homme d'âge moyen n'eut aucune chance de riposter. Alors que la ma
 
 Dès l'effondrement, Wang Lin ouvrit la bouche pour dévorer. L'âme de Wang Lin était une âme dévoreuse, et son avatar possédait naturellement cette capacité. Bien que sa culture fût supprimée, cette aptitude liée à l'âme demeurait. Il ne pouvait pas dévorer le général en armure blanche, mais il pouvait dévorer le plus faible des généraux dorés!
 
-Le général doré poussa un cri de désespoir, mais cela ne fit pas vaciller la guerre. Après avoir été dévoré par Wang Lin, son corps fut enveloppé d'un gaz noir. Son armure brisée se reforma, bien plus puissante qu'auparavant.
+Le général doré poussa un cri de désespoir, mais ce cri se perdit dans le tumulte, comme une pierre jetée dans la mer, sans la moindre vague. Après avoir été dévoré par Wang Lin, son corps fut enveloppé d'un gaz noir. Son armure brisée se reforma, bien plus puissante qu'auparavant.
 
 Cette fois, même le casque se forma pour recouvrir la tête de Wang Lin. Seuls ses cheveux blancs restaient visibles, offrant un contraste saisissant avec l'armure noire.
 

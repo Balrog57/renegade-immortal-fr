@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1636 - The Recovering Remnant Celestials
 slug: les-vestiges-celestes-en-voie-de-recuperation
 ---
-Wang Lin continua d'explorer l'intérieur du neuvième soleil. Finalement, bien qu'il ait trouvé de nombreuses personnes qu'il connaissait, il ne put retrouver ni Qing Shui, ni Situ Nan, ni la femme la plus importante à ses yeux.
+Wang Lin continua d'explorer l'intérieur du neuvième soleil. Finalement, bien qu'il ait trouvé le destin de nombreuses personnes qu'il connaissait, il ne put retrouver ni Qing Shui, ni Situ Nan, ni la femme la plus importante à ses yeux.
 
 Lorsque son Sens Divin revint du neuvième soleil, il ouvrit les yeux. L'éclat de confusion dans son regard lui donnait l'air stupéfait.
 
@@ -64,7 +64,7 @@ Wang Lin ne dit plus un mot et continua sa marche silencieuse. Les grondements t
 
 La terre était vaste. Alors que le fracas de l'effondrement des statues résonnait, le vent continuait de hurler, comme s'il était empreint de chagrin, tel un murmure évoquant sans cesse le passé.
 
-Après un temps indéterminé, une statue gigantesque de plus de dix mille pieds de haut apparut devant lui. Cette statue portait neuf étoiles entre les sourcils. Bien que la neuvième étoile fût encore floue, elle avait pris forme. C'était la statue d'un Dieu Ancien qui était infiniment proche d'atteindre le stade de la neuvième étoile.
+Après un temps indéterminé, une statue gigantesque de plusieurs milliers de pieds de haut apparut devant lui. Cette statue portait neuf étoiles entre les sourcils. Bien que la neuvième étoile fût encore floue, elle avait pris forme. C'était la statue d'un Dieu Ancien qui était infiniment proche d'atteindre le stade de la neuvième étoile.
 
 Elle se tenait là, le poing droit levé, figée à mi-course dans un mouvement de frappe. Son expression trahissait la douleur et la réticence, comme si une force l'avait brusquement transformée en pierre.
 

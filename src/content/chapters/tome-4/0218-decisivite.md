@@ -78,7 +78,7 @@ Une fois sorti de la demeure de Cheng Xian, Wang Lin se déplaça à toute vites
 
 L'homme fronça les sourcils et demanda lentement: « Sœur cadette, que cherches-tu exactement? »
 
-Li Muwan s'immobilisa. Grâce à la goutte de sang sur son front, elle sentait distinctement que cet homme se tenait là, mais pourquoi ne pouvait-elle pas le voir? Un sourire amer étira ses lèvres. Elle était une femme d'esprit et comprit immédiatement qu'il refusait simplement de se montrer.
+Li Muwan s'immobilisa. Grâce au Sens Divin logé entre ses sourcils, elle sentait distinctement que cet homme se tenait là, mais pourquoi ne pouvait-elle pas le voir? Un sourire amer étira ses lèvres. Elle était une femme d'esprit et comprit immédiatement qu'il refusait simplement de se montrer.
 
 Li Muwan se mordit la lèvre inférieure, le visage empreint de chagrin: « Je sais que tu es là. Pourquoi ne veux-tu même pas me rencontrer, ne serait-ce qu'une fois? »
 
@@ -130,6 +130,6 @@ L'homme d'âge moyen poussa un soupir de soulagement et dit doucement: « Sœur 
 
 Li Muwan se mordit la lèvre inférieure, ignora l'homme et retourna dans sa demeure.
 
-Le visage de l'homme restait empreint de douceur, mais il ricanait intérieurement. Il songea: « Garce! Si ce n'était pas pour tes plus de deux cents ans de Yuan Yin, je n'aurais jamais poussé l'Ancêtre fondateur à accepter notre double culture. Avec ton Yuan Yin et toutes les pilules que j'ai amassées, atteindre le stade de l'Âme Naissante n'est qu'une question de temps. Si tu avais accepté plus tôt, je t'aurais traitée avec égard, mais maintenant, j'ai décidé qu'une fois l'Âme Naissante atteinte, je te ferai subir toutes sortes d'outrages pour avoir si souvent rejeté mes avances! »
+Le visage de l'homme restait empreint de douceur, mais il ricanait intérieurement. Il songea: « Garce! Si ce n'était pas pour tes plus de deux cents ans de Yuan Yin, je n'aurais jamais poussé l'Ancêtre fondateur à accepter notre double culture. Avec ton Yuan Yin et toutes les pilules que j'ai amassées, franchir le stade avancé de la Formation du Noyau n'est qu'une question de temps. Si tu avais accepté plus tôt, je t'aurais traitée avec égard, mais maintenant, j'ai décidé qu'une fois l'Âme Naissante atteinte, je te ferai subir toutes sortes d'outrages pour avoir si souvent rejeté mes avances! »
 
 Wang Lin quitta le patio sud. Bien qu'il fût un homme sans sentiments, il éprouvait un profond remords envers Li Muwan. Ce n'était pas qu'il était incapable de l'accepter, mais le chemin qu'il devait parcourir ne permettait pas d'avoir une femme à ses côtés.

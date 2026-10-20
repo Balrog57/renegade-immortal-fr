@@ -56,7 +56,7 @@ L'expression de Wang Lin ne changea pas alors que le garde céleste derrière lu
 
 Une série d'explosions fracassantes retentit. Malgré la puissance physique du garde céleste, il fut repoussé par les projectiles. Ce n'est que lorsque le garde fut expulsé hors de la vallée que la brume finit par se stabiliser.
 
-Li Yuan en ressentit de la honte. Il n'était pas un homme téméraire, mais il avait été trop sûr de ses capacités en matière de restrictions. Il esquissa un sourire amer: « Le propriétaire de cet espace de stockage était bien insidieux. Cette restriction a manifestement été conçue pour piéger ceux qui, comme moi, ont une confiance aveugle dans leurs talents. »
+Li Yuan en ressentit de la honte. Il n'était pas un homme téméraire, mais il avait été trop sûr de ses capacités en matière de restrictions. Il esquissa un sourire amer: « Le propriétaire de cet espace de stockage était bien insidieux. Cette restriction a manifestement été conçue pour tuer ceux qui, comme moi, ont une confiance aveugle dans leurs talents. »
 
 Les yeux de Wang Lin s'animèrent et, d'une simple pensée, il commanda au garde céleste de charger à nouveau. Cette fois, son corps irradiait une lueur dorée. Dès qu'il franchit le seuil de la vallée, il lança un coup de poing dévastateur. L'impact créa un vortex colossal qui aspira instantanément toutes les flèches de brume qui fonçaient sur lui.
 

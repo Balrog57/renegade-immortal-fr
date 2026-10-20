@@ -8,7 +8,7 @@ slug: recevoir-une-faveur
 ---
 Wang Lin regarda Qiu Siping. Il esquissa un léger sourire et dit: « Ces deux juniors sont issus du Palais Enchanté, qui protège toujours les siens. Frère Qiu devrait redoubler de prudence dorénavant. »
 
-Qiu Siping eut un sourire amer. La jeune fille était sans danger, mais l'homme était un disciple central du Palais Enchanté. S'il les laissait réellement s'échapper, cela ne serait pas une simple nuisance; il ne pourrait probablement plus mettre le pied dans aucune ville sous leur contrôle.
+Qiu Siping eut un sourire amer. La jeune fille était sans danger, mais l'homme était l'un des disciples centraux du Palais Enchanté. S'il les laissait réellement s'échapper, cela ne serait pas une simple nuisance; il ne pourrait probablement plus mettre le pied dans aucune ville sous leur contrôle.
 
 Mais ce n'était pas le moment de songer à ces deux-là. Actuellement, la personne devant lui dégageait une pression intimidante qui l'obligeait à une extrême vigilance. La puissance actuelle de Wang Lin lui donnait la chair de poule.
 
@@ -42,7 +42,7 @@ Wang Lin esquissa un sourire discret et répondit: « Est-ce nécessaire? »
 
 Qiu Siping réfléchit un instant, puis éclata de rire. « Frère Wang, adieu! » Sur ces mots, il joignit les mains et recula. Après avoir gagné une certaine distance, il cria: « Frère Wang, je ne vous donnerais pas de fausses informations pour vous duper. Soyez-en certain! » Puis, il disparut dans une téléportation.
 
-Wang Lin tint le jade et l'examina avec son Sens Divin. L'objet contenait une carte extrêmement détaillée de la mer intérieure, mais très peu d'informations sur la mer extérieure. Dans la zone de la mer intérieure, on trouvait même l'emplacement de réseaux de transfert anciens.
+Wang Lin tint le jade et l'examina avec son Sens Divin. L'objet contenait une carte assez détaillée de la mer intérieure, mais très peu d'informations sur la mer extérieure. Dans la zone de la mer intérieure, on trouvait même l'emplacement de réseaux de transfert anciens.
 
 Wang Lin ne croyait pas que cette carte soit exempte de mensonges, mais il n'avait pas l'intention de s'en remettre uniquement à elle pour traverser la Mer des Démons. Son intention était de trouver une carte complète si possible; si cela s'avérait impossible, il collecterait autant de cartes incomplètes que possible. En les comparant, les mensonges deviendraient faciles à déceler.
 

@@ -58,7 +58,7 @@ Le problème était que les âmes capables d'être transformées en démons éta
 
 Xu Liguo était un être artificiel, il présentait donc de nombreux défauts. S'il n'avait pas acquis une intelligence qui le distinguait des autres démons, Wang Lin l'aurait déjà tué pour nourrir ses créations.
 
-Wang Lin s'était montré très satisfait du deuxième démon dès le début, car il était féroce et puissant. Mais à mesure que sa propre culture progressait, le second démon ne parvint pas à suivre et perdit de sa superbe.
+Wang Lin s'était montré très satisfait du deuxième démon dès le début, car sa férocité était grande. Mais à mesure que sa propre culture progressait, bien que le second démon fût rapide, sa puissance se révéla insuffisante et il était souvent inutile.
 
 Le troisième démon avait été créé à partir de l'âme d'un singe spirituel; bien que puissant, il manquait de férocité.
 

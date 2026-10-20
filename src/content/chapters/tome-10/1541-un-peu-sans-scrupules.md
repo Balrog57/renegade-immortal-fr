@@ -34,7 +34,7 @@ Le fou afficha un mépris manifeste, pointant Wang Lin du doigt en montrant ses 
 
 Sans un mot, Wang Lin leva la main droite vers le ciel et pressa le vide. Le firmament gronda et une empreinte de paume diffuse apparut. Dès son apparition, elle commença à absorber frénétiquement la puissance du ciel et de la terre environnante. L'empreinte devint progressivement plus nette avant de s'abattre violemment vers le sol.
 
-À mesure que la paume descendait, une pression écrasante s'installa et le vent se mit à hurler. La terre trembla et une gigantesque faille s'ouvrit à la surface de la planète.
+À mesure que la paume descendait, une pression écrasante s'installa et le vent se mit à hurler. La terre trembla et de gigantesques failles s'ouvrirent à la surface de la planète.
 
 Les cheveux en bataille du fou et ses yeux égarés fixaient l'empreinte avec stupeur. Au moment où celle-ci allait toucher le sol, les yeux de Wang Lin s'illuminèrent. Il prit une profonde inspiration et pointa le doigt vers l'avant: « Rassemblez-vous, rassemblez-vous, rassemblez-vous! »
 

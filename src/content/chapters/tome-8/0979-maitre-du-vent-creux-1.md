@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 979 - Master Hollow Wind (1)
 slug: maitre-du-vent-creux-1
 ---
-Wang Lin connaissait cet homme. C'était le cultivateur au corps massif qui avait tenu des propos grossiers et s'était montré très impoli envers lui.
+Wang Lin connaissait cet homme. C'était le cultivateur au corps massif qui, à son retour sur la planète Tian Yun, avait tenu des propos grossiers et s'était montré très impoli envers lui.
 
 Face aux sept rayons de lumière formés par les sept hommes en noir et à leur rugissement, Wang Lin eut un ricanement méprisant.
 

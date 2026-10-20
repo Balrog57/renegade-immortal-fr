@@ -18,7 +18,7 @@ En songeant au fait qu'il n'avait même pas remarqué que Wang Lin avait quitté
 
 De plus, depuis que Wang Lin était revenu de la Prison Hong, Mo Lihai avait l'impression qu'il était devenu une personne différente. Cela était particulièrement frappant lorsqu'il posait les yeux sur le symbole scintillant au front de Wang Lin; ce symbole faisait bondir son cœur.
 
-Il n'en demanda pas les détails, mais il devina que pour enrôler l'épée de l'Empereur dans une telle querelle, Wang Lin avait soit réussi son sortilège, soit fait une rencontre fortuite.
+Il n'en demanda pas les détails, mais il devina que pour provoquer la colère de l'épée de l'Empereur, Wang Lin avait soit réussi son sortilège, soit fait une rencontre fortuite.
 
 « Quelle est votre force actuelle? Comment se compare-t-elle à celle que vous aviez lorsque vous étiez à la Cité de l'Ancien Démon? » Après une longue réflexion, Mo Lihai décida de poser la question. Il voulait savoir quelle position il pourrait espérer obtenir lors de la compétition des généraux démons!
 
@@ -32,7 +32,7 @@ Mo Lihai fixa Wang Lin. Après un long silence, il éclata de rire: « Bien. À 
 
 Wang Lin sourit mais ne répondit rien.
 
-Mo Lihai réfléchit un instant puis ajouta d'un ton solennel: « Frère Wang, vous devriez rentrer tôt aujourd'hui. Ce soir, je vais vous présenter une personne importante! »
+Mo Lihai réfléchit un instant puis ajouta d'un ton solennel: « Frère Wang, vous devriez rentrer tôt aujourd'hui. Ce soir, je vais vous emmener rendre visite à une personne importante! »
 
 Wang Lin hocha la tête, se leva et dit: « Le frère Mo peut être rassuré! »
 
@@ -48,11 +48,11 @@ Durant cette période, Wang Lin venait s'installer ici chaque jour, attendant le
 
 Mais Wang Lin ne cherchait pas à la modifier par la force. Il n'était qu'un simple passant, observant ces diverses émotions avec le détachement d'un voyageur de passage.
 
-Même à ce jour, il ignorait le visage de cette femme. Rien de tout cela n'avait d'importance; l'essentiel était qu'il l'écoutait, avec la plus grande ferveur.
+Même à ce jour, il ignorait le visage de cette femme. Rien de tout cela n'avait d'importance; l'essentiel était qu'il l'écoutait, avec sérieux.
 
 En écoutant ces notes qui effleuraient les souvenirs scellés de son cœur, il ressentit une sensation qu'il n'avait pas éprouvée depuis longtemps. Le cœur de Wang Lin était d'une sérénité extrême.
 
-La musique de la cithare précéda l'arrivée des bateaux. Cette mélodie en apparence joyeuse révélait pourtant un sentiment de désespoir et d'impuissance. Guidés par les notes, les bateaux apparurent lentement.
+La musique de la cithare précéda l'arrivée des bateaux. Cette mélodie en apparence joyeuse révélait pourtant un sentiment d'impuissance et de tristesse. Guidés par les notes, les bateaux apparurent lentement.
 
 La musicienne à la proue du bateau lui tournait toujours le dos. Ses mains de jade s'agitaient, diffusant une mélodie qui se répandait doucement dans l'air. Aujourd'hui, une seule personne était assise face à elle.
 
@@ -86,7 +86,7 @@ Ming Xuan ne répondit pas. Elle tourna simplement la tête et reprit son morcea
 
 Le jeune homme sourit faiblement: « Quel petit être intéressant... »
 
-La nuit était tombée lorsque Wang Lin retourna au manoir des Mo. Peu après, il partit avec Mo Lihai pour entrer dans la ville de Xuan.
+La nuit était tombée lorsque Wang Lin retourna au manoir des Mo. Peu après, il partit avec Mo Lihai, traversa la ville de Hong et entra dans la ville de Xuan par la porte ouest.
 
 Bien que la ville de Xuan fût de taille comparable à celle de Hong, son atmosphère était radicalement différente. La cité était illuminée et les patrouilles de soldats en armure étaient nombreuses parmi les passants.
 

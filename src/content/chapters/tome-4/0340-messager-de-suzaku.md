@@ -51,13 +51,13 @@ Le corps original, quant à lui, se trouvait à des milliers de kilomètres sous
 
 Il était vrai que les Dieux Anciens grandissaient au combat. Après cette lutte acharnée, le corps original montrait des signes de percée. Bien que le processus fût lent, il avait déjà atteint le sommet du stade à deux étoiles. La troisième transformation n'était plus très loin.
 
-En un clin d'œil, une année s'écoula. Zhou Ru avait désormais un an. Alors que la plupart des enfants de cet âge commençaient à émettre des sons, même sans parler, Zhou Ru demeurait silencieuse. Les villageois commencèrent ainsi à répandre la rumeur selon laquelle la petite était muette.
+En un clin d'œil, six mois s'écoulèrent. Zhou Ru avait désormais un an. Alors que la plupart des enfants de cet âge commençaient à émettre des sons, même sans parler, Zhou Ru demeurait silencieuse. Les villageois commencèrent ainsi à répandre la rumeur selon laquelle la petite était muette.
 
 Ce jour-là, un groupe de personnes sortit d'un réseau de transfert ordinaire à la lisière de Chu. Parmi eux se trouvait une femme portant un voile. Une trace de fatigue perçait dans son regard, mais ses yeux brillaient toujours comme des étoiles, capables de fasciner n'importe qui.
 
 Elle était suivie par un vieil homme vêtu d'une veste de toile bleue, dont les yeux étaient ternes, comme s'il souffrait d'une maladie grave. Si Wang Lin les avait vus, il les aurait reconnus comme les deux individus ayant acheté la recette de pilule de rang 6.
 
-À leurs côtés se tenait un vieil homme aux cheveux blancs: c'était Hu, le cultivateur de Formation de l'Âme du Pavillon de Raffinage des Trésors. Derrière lui se trouvaient trois personnes, dont une que Wang Lin connaissait bien: Qiu Siping. Les deux autres étaient Xu Luo et une femme d'une grande beauté — celle-là même qui avait livré le jade violet.
+À leurs côtés se tenait un vieil homme aux cheveux blancs: c'était Hu, le cultivateur de Formation de l'Âme du Pavillon de Raffinage des Trésors. Derrière lui se trouvaient trois personnes, dont une que Wang Lin connaissait bien: Qiu Siping. Les deux autres étaient Xu Luo et une jeune fille d'une grande beauté — celle-là même qui avait livré le jade violet.
 
 Une fois sortis du réseau de transfert, le vieil homme regarda vers le nord et déclara: « Bien que Chu ne soit pas la voie la plus rapide pour atteindre le Cimetière des Immortels, c'est plus simple que de passer par Zhou. »
 
@@ -103,6 +103,6 @@ Ce dernier répondit lentement: « Camarade cultivateur Hu, je viens tout juste 
 
 L'Ancien Hu pensa intérieurement: « Balivernes! » et reporta son regard sur le pilier de lumière.
 
-À cet instant précis, la colonne lumineuse commença à s'estomper. Le jeune homme en blanc fondit vers eux tel un météore. Le corps de la femme au voile blanc trembla, ses yeux emplis d'une terreur extrême.
+À cet instant précis, la colonne lumineuse commença à s'estomper. Le jeune homme en blanc fondit vers eux tel un météore. Le corps de la femme au voile blanc trembla, ses yeux emplis d'une vive panique.
 
 L'Ancien Hu remarqua la scène. Bien qu'il ne montrât aucune réaction visible, un soupçon de doute s'installa dans son cœur.

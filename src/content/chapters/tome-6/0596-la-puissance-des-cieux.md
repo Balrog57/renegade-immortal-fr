@@ -8,7 +8,7 @@ slug: la-puissance-des-cieux
 ---
 Les « Cent Doigts de la Mort » créèrent un rayon de mort qui fendit le ciel pour percuter l'éclair rouge!
 
-Puis, un tonnerre encore plus assourdissant retentit. À cet instant, le firmament tout entier trembla, comme s'il allait être renversé.
+Puis, un tonnerre encore plus assourdissant retentit. À cet instant, le firmament tout entier trembla, comme si le soleil et la lune s'étaient inversés.
 
 Le Doigt de la Mort absorbe la force vitale pour la convertir en destruction. Au moment où il percuta l'éclair rouge, il avait absorbé une immense quantité de vie, mais cela ne suffisait toujours pas à égaler la foudre de la rétribution divine!
 
@@ -18,7 +18,7 @@ Les cheveux de Wang Lin flottaient au vent tandis qu'il fixait l'éclair rouge d
 
 Plus de 3 700 brins d'énergie de massacre jaillirent telle une tempête. Alors que Wang Lin se tenait au cœur de ce tumulte, ses yeux brillaient d'une intention meurtrière surpuissante.
 
-« Tuez! » Dans un cri, l'énergie de massacre dans sa main se condensa avec rapidité. Passant de plus de 3 700 brins à un seul, elle se mua en un dragon noir, un dragon de massacre!
+« Tuez! » Dans un cri, l'énergie de massacre dans sa main se condensa avec rapidité. Passant de plus de 3 700 brins à un seul, elle se mua en un dragon azur, un dragon de massacre!
 
 Les yeux de Wang Lin devinrent rouges. Non seulement il possédait une intention meurtrière, mais il avait aussi un cœur de massacre! Il n'était pas le premier à nourrir une intention de massacre envers les cieux, mais cela suffisait à faire de lui un génie de sa génération! Un véritable prodige!
 
@@ -46,7 +46,7 @@ En un clin d'œil, l'amas de jades célestes devint totalement noir!
 
 Toute l'énergie spirituelle céleste qu'elle contenait fut intégralement convertie en énergie spirituelle démoniaque!
 
-Le Doigt Démoniaque n'avait plus rien à voir avec ce qu'il était auparavant. Même si Situ Nan était venu personnellement pour utiliser le Doigt Démoniaque, il ne serait pas bien plus puissant que celui que Wang Lin employait en cet instant!
+Dans la Terre des Esprits Démoniaques, le Doigt Démoniaque n'avait plus rien à voir avec ce qu'il était auparavant. Même si Situ Nan était venu personnellement pour utiliser le Doigt Démoniaque, il ne serait pas bien plus puissant que celui que Wang Lin employait en cet instant!
 
 Car Wang Lin n'avait pas seulement converti l'énergie spirituelle céleste de son propre corps, mais aussi celle de toute la colline de jades sous ses pieds, créant ainsi une quantité infinie d'énergie spirituelle démoniaque!
 
@@ -74,7 +74,7 @@ Dans le ciel surplombant Wang Lin, le rouge et le noir s'annulaient mutuellement
 
 Dès que la lumière rouge disparut, les tremblements cessèrent et tout sembla revenir à la normale. Cependant, la panique des innombrables habitants de la Cité du Démon Céleste créa une atmosphère oppressante qui enveloppa toute la ville.
 
-Alors que l'éclair rouge s'éteignait, le visage de Wang Lin était d'une pâleur extrême. Il rattrapa la fiole de jade donnée par le Commandant en Chef. Une pilule se trouvait à l'intérieur, mais il ne la consomma pas. Il leva les yeux vers le ciel avec une expression grave.
+Alors que l'éclair rouge s'éteignait, le visage de Wang Lin était d'une pâleur extrême. Il rattrapa la fiole de jade donnée par le Commandant Céleste. Une pilule se trouvait à l'intérieur, mais il ne la consomma pas. Il leva les yeux vers le ciel avec une expression grave.
 
 Wang Lin ne croyait pas que les cieux ne lanceraient qu'un seul éclair de rétribution divine lorsqu'ils voulaient ôter la vie!
 
@@ -134,7 +134,7 @@ Il leva la tête vers le nuage rouge et murmura doucement: « Je ne céderai pas
 
 Des éclats de tonnerre jaillirent du nuage rouge alors qu'il entamait une nouvelle descente. 3,3 centimètres, 3,3 centimètres, 3,3 centimètres! Cette fois, il descendit de près de dix centimètres d'affilée, et la Puissance des Cieux s'abattit avec fracas!
 
-La terre poussa un cri comme si elle ne pouvait plus supporter le poids. Tous les édifices du palais impérial furent broyés par cette pression. La cité impériale du Pays du Démon Céleste, qui s'était dressée pendant d'innombrables années, fut réduite en poussière, à l'exception du tambour démoniaque!
+La terre poussa un cri comme si elle ne pouvait plus supporter le poids. Tous les édifices du palais impérial furent broyés par cette pression. La cité impériale du Pays du Démon Céleste, qui s'était dressée pendant d'innombrables années, fut réduite en poussière, à l'exception du tambour démoniaque, objet sacré!
 
 À cet instant précis, c'était comme si le ciel lui-même s'était effondré!
 

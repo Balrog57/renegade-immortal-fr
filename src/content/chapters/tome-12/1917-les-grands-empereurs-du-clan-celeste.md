@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1917 - Celestial Clan's Grand Empyreans"
 slug: les-grands-empereurs-du-clan-celeste
 ---
-« La cité impériale est un endroit où je dois me rendre. Non pas pour les remerciements, mais pour mon serment envers Lian Daofei! Je dois restaurer la mémoire de Dao Fei pour lui rendre tout ce qu'il a fait pour moi, et notamment cette grâce de fusion de sang! » Wang Lin affichait un regard déterminé.
+« La cité impériale est un endroit où je dois me rendre. Non pas pour les remerciements, mais pour mon serment envers Lian Daofei! Je dois restaurer la mémoire de Dao Fei pour lui rendre cette grâce de fusion de sang! » Wang Lin affichait un regard déterminé.
 
-Il se souvenait de la bonté que d'autres lui avaient témoignée!
+Il se souvenait de la bonté qu'on lui avait témoignée!
 
 À l'époque, le fou lui avait montré de la gentillesse. Désormais, il devait se rendre à la cité impériale pour voir si le fou s'était complètement rétabli. Ainsi, il n'aurait aucun regret et pourrait dénouer ce nœud dans son cœur.
 
@@ -74,11 +74,11 @@ Cela concernait leur réputation, leur capacité à recruter des subordonnés pu
 
 Il y avait tout simplement trop peu d'Ascendants Empyréens!
 
-« S'il s'agissait du Clan Ancien, cela ne serait pas nécessaire. Avec le Maître là... » Wang Lin comprit que bien qu'il fût l'unique disciple de Xuan Luo, il ne pouvait laisser personne dans la Terre des Cieux le découvrir. Sinon, il serait traqué par les Grands Empyréens.
+« S'il s'agissait du Clan Ancien, cela ne serait pas nécessaire. Avec le Maître là... » Wang Lin comprit que bien qu'il fût l'unique disciple de Xuan Luo, il ne pouvait laisser personne dans le clan céleste le découvrir. Sinon, il serait traqué par les Grands Empyréens.
 
 Le clan céleste n'autoriserait absolument jamais un cultivateur comme lui à apparaître au sein du Clan Ancien!
 
-« Même le fou ignore la vérité concernant le Maître; seul la Secte Gui Yi le sait. Puisque le Maître a osé permettre à la Secte Gui Yi de connaître ce secret sans les tuer dans le monde des grottes, cela signifie qu'il est convaincu qu'ils ne parleront pas... Quant aux raisons précises, bien que je les ignore, j'ai foi en mon Maître! »
+« Même le fou ignore la vérité concernant le Maître; seule la Secte Gui Yi le sait. Puisque le Maître a osé permettre à la Secte Gui Yi de connaître ce secret sans les tuer dans le monde des grottes, cela signifie qu'il est convaincu qu'ils ne parleront pas... Quant aux raisons précises, bien que je les ignore, j'ai foi en mon Maître! »
 
 « Même les Grands Empyréens ne s'offusqueront pas du fait que je possède un corps du Clan Ancien et une culture céleste, tant qu'ils ne découvrent pas ma relation avec le Maître Xuan Luo! »
 
@@ -110,7 +110,7 @@ Le temps s'écoulait lentement. Plusieurs heures plus tard, alors que l'aube poi
 
 « La troisième Veine Magique est sur le point d'apparaître! » Wang Lin agita sa manche et sélectionna sept âmes originelles supérieures à cinq Tribulations Arcaniques parmi les dizaines d'âmes disponibles. Faute d'âmes originelles suffisantes au stade des Tribulations Arcaniques, il dévora une âme originelle de stade précoce des Tribulations du Vide. Son corps gronda et la troisième Veine Magique se manifesta!
 
-Une fois la troisième Veine Magique apparue, il pouvait instantanément projeter une multitude de sorts dès leur activation. Même la vitesse de son corps du Dao Ancien changea radicalement.
+Une fois la troisième Veine Magique apparue, il pouvait instantanément projeter une multitude de sorts dès leur activation. Même la vitesse de son corps du Dao Antique changea radicalement.
 
 Cela différait du cultivateur auprès duquel Wang Lin avait appris cette technique: ce dernier ne pouvait qu'augmenter sa vitesse d'incantation sans affecter son corps. La différence venait du fait que la première âme dévorée par le cultivateur appartenait à un expert du Vide du Nirvana, tandis que Wang Lin avait dévoré une âme originelle du Vide Arcanique!
 

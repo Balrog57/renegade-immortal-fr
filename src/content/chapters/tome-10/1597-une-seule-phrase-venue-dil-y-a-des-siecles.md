@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1597 - The One Line From Hundreds of Years Ago
 slug: une-seule-phrase-venue-dil-y-a-des-siecles
 ---
-Quelques jours plus tôt, alors que Wang Lin repoussait inconsciemment la tempête, le frère aîné de Dun Tian ressentit quelque chose. Il consacra alors une grande quantité de sa force vitale pour procéder à neuf divinations.
+Quelques jours plus tôt, alors que Wang Lin repoussait inconsciemment la tempête, le frère aîné de Dun Tian ressentit quelque chose. Il consuma alors une grande quantité de sa durée de vie et de sa force vitale pour procéder à neuf divinations.
 
 Il cherchait à découvrir l'avenir de la Secte de l'Affinement de l'Âme. Il voulait trouver à la Secte de l'Affinement de l'Âme un chemin vers la survie!
 
@@ -42,7 +42,7 @@ On ne pouvait même pas qualifier cela de simple calme. D'après ce que l'homme 
 
 Il faut dire qu'avec son niveau de culture, même des empereurs mortels auraient dû trembler de peur et le traiter comme un ancêtre. La pression invisible qui l'entourait n'était pas quelque chose qu'un mortel pouvait supporter; même les cultivateurs auraient été oppressés par la crainte.
 
-Cet homme d'âge moyen n'avait rencontré une telle présence que deux fois dans sa vie. Les deux mortels qu'il avait croisés et qui faisaient preuve d'une telle sérénité étaient les plus grands érudits de la planète Suzaku.
+Cet homme d'âge moyen n'avait rencontré une telle présence que deux fois dans sa vie. Les deux mortels qu'il avait croisés et qui faisaient preuve d'une telle sérénité étaient de grands érudits apparus sur la planète Suzaku ces dernières centaines d'années.
 
 Ces grands érudits avaient compris les lois du ciel et pouvaient voir à travers le monde. Leur savoir était stupéfiant. Ils possédaient des auras puissantes et ne craignaient ni les fantômes ni le surnaturel. Bien qu'un cultivateur de Condensation de Qi puisse les tuer, plus le niveau de culture de ce dernier était élevé, plus il ressentirait une aura similaire à celle d'un cultivateur chez ces érudits.
 
@@ -64,7 +64,7 @@ Après avoir entendu cette question, Wang Lin fut surpris et réfléchit silenci
 
 « Je ne peux pas répondre. » Après un long moment, Wang Lin secoua la tête. Il n'avait aucune idée de ce qu'était la Secte de l'Affinement de l'Âme. Il pouvait seulement deviner vaguement qu'il s'agissait d'une secte immortelle.
 
-L'homme d'âge moyen ne dit rien et afficha une expression amère. Il secoua la tête et laissa échapper un soupir. Il regarda le ciel, sentant que son comportement était vraiment déraisonnable: il demandait à ce mortel de prédire le sort de sa secte.
+L'homme d'âge moyen ne dit rien et afficha une expression amère. Il secoua la tête et laissa échapper un soupir. Il regarda le ciel, sentant que son comportement était vraiment déraisonnable: il demandait à ce mortel de se prononcer sur la succession de sa secte.
 
 « Ce vieil homme vous a importuné. Vous êtes un grand érudit, alors ce vieil homme n'effacera pas votre mémoire. Ah... » Le vieil homme esquissa un sourire amer. Il agita ses manches et se détourna pour partir. Sa silhouette dégageait une profonde mélancolie et de la confusion en s'éloignant.
 
@@ -74,7 +74,7 @@ Wang Lin songea à ses rêves. Il se souvint de la voix qui résonnait dans son 
 
 L'homme d'âge moyen, sur le point de partir, s'arrêta et se tourna vers Wang Lin. Après un long moment, il hocha la tête et désigna Wang Lin. Le vent noir convergea de toutes les directions autour de lui. Puis, l'homme d'âge moyen s'éleva dans le ciel et disparut avec Wang Lin.
 
-Dans le comté, personne ne remarqua le sort utilisé à l'extérieur de la zone d'examen. Aucun mortel ne put voir le vent noir qui était apparu. Sous l'arbre, Grande Fortune ronflait toujours. Il marmonna un peu avant de replonger dans son sommeil.
+Dans le comté, personne ne remarqua le sort utilisé à l'extérieur de la zone d'examen. Aucun mortel ne put voir le vent noir qui était apparu. Sous l'arbre, Grande Fortune ronflait toujours. Il se retourna en marmonnant avant de replonger dans son sommeil.
 
 Sur la planète Suzaku, dans le ciel surplombant la Secte de l'Affinement de l'Âme, Wang Lin apparut avec une expression pâle, mais il restait extrêmement calme. Le vent noir l'entourait, lui permettant de garder une assise stable.
 

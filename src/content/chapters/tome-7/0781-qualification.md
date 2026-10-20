@@ -10,7 +10,7 @@ Sous les regards d'innombrables cultivateurs, Wang Lin s'élança dans le vide, 
 
 Tout au long du trajet, Li Yuan fut tenté de poser de nombreuses questions, mais il se retint et ne mentionna rien concernant Zhan Konglie. Fort de sa sagesse, il savait qu'il ne devait pas tout savoir; chacun possède ses propres secrets.
 
-Le temps s'écoula rapidement et, en un clin d'œil, des mois passèrent. À mesure qu'ils approchaient du centre, ils croisèrent de plus en plus de monde. Finalement, ce jour-là, ils atteignirent le cœur du Royaume Céleste du Tonnerre.
+Le temps s'écoula rapidement et, en un clin d'œil, des mois passèrent. À mesure qu'ils approchaient du centre, ils croisèrent de plus en plus de monde. Sans ralentir, ils atteignirent enfin, ce jour-là, le cœur des nombreux fragments du Royaume Céleste du Tonnerre.
 
 Une fois arrivés sur place, ils ne virent plus aucun autre cultivateur. L'endroit était plongé dans une obscurité totale et ne laissait présager aucune présence.
 
@@ -58,7 +58,7 @@ Quant à la marque, elle continuait de dégager une lueur noire. Alors que le fr
 
 Dès qu'il eut pénétré le tunnel, celui-ci s'effondra. Le fragment disparut alors dans le vide, emportant Wang Lin avec lui.
 
-« J'espère que le frère Xu fera une bonne récolte! » Li Yuan réfléchit un instant avant de former un sceau de la main gauche pour libérer une restriction. Son corps se dissimula progressivement, ne laissant échapper pas même la moindre trace de son aura.
+« J'espère que le frère Xu fera une bonne récolte! » Li Yuan garda le silence un instant avant de former un sceau de la main gauche pour libérer une restriction. Son corps se dissimula progressivement, ne laissant échapper pas même la moindre trace de son aura.
 
 Le vide environnant retrouva sa sérénité.
 
@@ -100,7 +100,7 @@ Les trois restants étaient également au stade Corporel Yang. Désormais, quatr
 
 Le regard de Wang Lin devint glacial et il déclara lentement: « Le Pavillon des Collections n'appartient pas à vos quatre familles. Laissez-moi passer et nous éviterons le combat. Sinon, même si je succombe, la moitié d'entre vous mourra! »
 
-L'un d'eux répondit froidement: « À moins d'atteindre le stade Scruteur du Nirvana, aucun étranger n'est qualifié pour entrer dans le pavillon! » Ils avaient naturellement perçu le niveau de culture de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son adversité.
+L'un d'eux répondit froidement: « À moins d'atteindre le stade Scruteur du Nirvana, aucun étranger n'est qualifié pour entrer dans le pavillon! » Ils avaient naturellement perçu le niveau de culture de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son opposition.
 
 À ce moment-là, l'aura de l'homme en robe noire se stabilisa. Il lâcha un ricanement froid, s'avança et frappa son sac de rangement. Une épée volante rouge en jaillit aussitôt et, d'un geste du doigt, elle fonça vers Wang Lin.
 

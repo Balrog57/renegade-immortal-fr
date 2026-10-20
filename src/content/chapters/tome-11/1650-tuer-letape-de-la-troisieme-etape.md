@@ -12,7 +12,7 @@ D'un revers de main, il projeta les 300 bulles vers lui.
 
 L'homme chauve ouvrit soudainement les yeux, révélant une lueur étrange. Il fixa les 300 cultivateurs du Royaume Intérieur avec cruauté.
 
-« Seul dans le Royaume Intérieur mon Clan des Enfers a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, sans compter ces esprits vivants... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
+« Seul dans le Royaume Intérieur mon Clan des Enfers a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, et il y a en plus ces esprits vivants à dévorer... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
 
 L'effondrement des bulles exposa les 300 cultivatrices de la Rivière Invoquée à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
 
@@ -54,7 +54,7 @@ Au même instant, partout sur la planète, les auras des membres du Clan des Enf
 
 Bien qu'ils ignorassent ce qui se passait, l'ordre du patriarche était pour eux la loi suprême. Ils suivraient cet ordre jusqu'à la mort!
 
-Wang Lin se retourna, le regard froid. Il agita sa main droite et un éclair jaillit de son œil droit. Un immense coup de tonnerre apparut et se divisa en d'innombrables directions, prenant Wang Lin comme épicentre.
+Wang Lin se retourna, le regard froid. Il agita sa main droite et un éclair jaillit de son œil droit. Un immense éclair apparut et se divisa en d'innombrables directions, prenant Wang Lin comme épicentre.
 
 À cet instant, la foudre balaya la planète sombre dans un fracas de tonnerre. Chaque éclair était une sentence de mort verrouillée sur chaque membre du Clan des Enfers. Leurs corps explosèrent et le tonnerre ramena leurs têtes.
 
@@ -66,7 +66,7 @@ En seulement quelques respirations, tous les membres du Clan des Enfers périren
 
 Flottant dans les airs, Wang Lin leva la main droite et pressa la terre. L'innombrable aura de mort entourant la planète surgit telle une mer déchaînée vers lui.
 
-Finalement, cette aura de mort infinie se condensa dans la main droite de Wang Lin, incarnant la Mort elle-même. Elle forma une sphère de gaz tournant à une vitesse fulgurante.
+Finalement, cette aura de mort infinie se condensa dans la main droite de Wang Lin, incarnant la Mort elle-même. Elle forma une sphère de brume tournant à une vitesse fulgurante.
 
 Alors que l'aura de mort était extraite par Wang Lin, la vie revint sur la planète. Les nombreuses bulles éclatèrent toutes, rendant leur liberté aux cultivateurs de la Rivière Invoquée.
 

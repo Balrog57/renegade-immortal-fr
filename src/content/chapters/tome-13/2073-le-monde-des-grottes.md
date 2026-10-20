@@ -26,7 +26,7 @@ Sa voix n'était pas forte et ne se propagea pas dans toutes les directions, mai
 
 L'ombre était celle d'un Taureau Céleste, et son corps était si vaste qu'il semblait pouvoir soutenir le monde entier. Wang Lin paraissait minuscule face à lui, mais l'immense Taureau Céleste afficha une expression de respect et s'agenouilla devant lui.
 
-« Merci... Je suis d'accord... » Un bourdonnement résonna, empreint d'excitation et de nostalgie. Il avait été scellé pendant trop longtemps, et cette libération remplissait le Taureau Céleste d'une gratitude infinie envers Wang Lin.
+« Merci... Je suis d'accord... » Un bourdonnement résonna, empreint d'excitation et d'aspiration. Il avait été scellé pendant trop longtemps, et cette libération remplissait le Taureau Céleste d'une gratitude infinie envers Wang Lin.
 
 « Nul besoin de me remercier. Tu m'as aidé autrefois, je ne fais que te rendre la pareille. » Wang Lin regarda le Taureau Céleste et pointa du doigt. La créature trembla, affichant une expression douloureuse. Une multitude de runes apparut autour de son corps, et les lignes de ces runes semblèrent s'enraciner dans sa chair. Elles se connectèrent toutes pour former un objet semblable à un cœur.
 
@@ -34,7 +34,7 @@ Cet objet battait constamment.
 
 C'était le noyau du sceau du Taureau Céleste.
 
-Contemplant ce cœur de lumière, Wang Lin pointa l'objet du doigt. Toutes les runes autour du Taureau Céleste s'effondrèrent. Une fois la destruction accomplie, l'objet au centre du corps de la créature se contracta soudainement.
+Contemplant ce cœur fait de fins fils, Wang Lin pointa l'objet du doigt. Toutes les runes autour du Taureau Céleste s'effondrèrent. Une fois la destruction accomplie, l'objet au centre du corps de la créature se mit à trembler sans cesse, puis se contracta soudainement, à une vitesse visible à l'œil nu.
 
 Un instant plus tard, réduit à la taille d'un ongle, il se transforma en un rayon de lumière fantomatique et s'échappa du corps du Taureau Céleste. Il atterrit dans la main de Wang Lin qui le broya aussitôt.
 
@@ -52,7 +52,7 @@ L'homme afficha une expression complexe et murmura pour lui-même: « Secte des 
 
 « Je suis enfin arrivé... » L'homme secoua amèrement la tête et entreprit de gravir le chemin défoncé. Il marchait avec une lenteur extrême, comme s'il voulait imprégner sa mémoire de chaque brin d'herbe, de chaque arbre.
 
-Lorsqu'il traversa la brume pour atteindre le sommet, il découvrit les pavillons de la Secte des Sept Dao. Ses yeux étaient emplis de confusion.
+Lorsqu'il traversa la brume pour atteindre le sommet, il découvrit le portail et les grands halls de la Secte des Sept Dao. Ses yeux étaient emplis de confusion.
 
 Il contempla les lieux pendant un long moment avant de laisser échapper un soupir. Il erra à travers les ruines de la secte jusqu'à atteindre l'immense porte de pierre située dans la montagne arrière. La porte, intégrée à la roche, était totalement scellée. De la mousse y poussait, exhalant une odeur de décomposition.
 
@@ -76,7 +76,7 @@ Qing Shui regarda Wang Lin et éclata de rire. Son rire devint de plus en plus s
 
 Ils s'assirent devant la porte et Wang Lin sortit du vin pour partager un verre avec Qing Shui.
 
-Ils oublièrent le passage du temps. Ils buvaient tout en évoquant leurs expériences respectives. Ils souriaient, mais versaient aussi des larmes. Ce duo de frères disciples du monde des grottes se retrouvait enfin dans leur demeure d'origine.
+Ils oublièrent le passage du temps. Ils buvaient tout en évoquant leurs expériences respectives. Ils souriaient, mais versaient aussi des larmes. Ce duo de frères disciples du monde des grottes se retrouvait enfin sur le Continent Astral Immortel.
 
 Lorsque Wang Lin aborda la question de Papillon Rouge, Qing Shui fut saisi de stupeur. Il but une grande gorgée de vin avec amertume.
 
@@ -114,7 +114,7 @@ Il en allait de même pour les cultivateurs du Royaume Intérieur. Seule la stat
 
 Mais ailleurs, l'histoire de Wang Lin continuait de s'écrire: dans le Nouveau Royaume Céleste!
 
-Une multitude de cultivateurs avaient migré des quatre grands systèmes stellaires vers le Nouveau Royaume Céleste créé par Wang Lin. La plupart étaient des survivants de la guerre contre le Royaume Extérieur. Beaucoup d'entre eux avaient vu Wang Lin, certains l'ayant même observé combattre durant la guerre.
+Une multitude de cultivateurs avaient migré des quatre grands systèmes stellaires vers le Nouveau Royaume Céleste créé par Wang Lin. La plupart étaient des survivants de la guerre contre le Royaume Extérieur. Beaucoup d'entre eux avaient vu Wang Lin, certains ayant même combattu aux côtés de Wang Lin contre le Royaume Extérieur.
 
 Mu Bingmei n'était pas partie; elle avait choisi de rester dans le monde des grottes, au sein du Nouveau Royaume Céleste. Elle attendait qu'un certain être revienne un jour.
 

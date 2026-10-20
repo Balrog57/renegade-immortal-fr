@@ -10,7 +10,7 @@ La sphère de lumière et l'arc entrèrent en collision. Ils se dissipèrent ins
 
 Les pupilles de Wang Lin se rétractèrent imperceptiblement alors qu'il avançait, fusionnant directement avec le monde sans la moindre résistance. Cependant, il ne disparut pas; au contraire, il pointa le ciel d'un sceau formé de sa main droite et hurla: « Flamme Céleste Brûlante! »
 
-En un instant, une flamme rouge apparut silencieusement et s'étendit à travers le ciel. Cette flamme surgit de nulle part, dégageant une aura terrifiante. À l'instant même de son apparition, elle recouvrit la majeure partie de la voûte céleste. Les cultivateurs environnants battirent en retraite immédiatement, craignant d'être pris au piège.
+En un instant, une flamme rouge apparut silencieusement et s'étendit à travers le ciel. Cette flamme surgit de nulle part, dégageant une aura terrifiante. À l'instant même de son apparition, elle recouvrit la majeure partie de la voûte céleste. Les cultivateurs environnants battirent en retraite immédiatement, craignant d'être entraînés dans le brasier.
 
 Cette flamme était d'une puissance telle qu'elle semblait vouloir raffiner le monde lui-même. Même une infime étincelle suffisait à plonger les cultivateurs alentour dans l'effroi.
 
@@ -38,13 +38,13 @@ Une aura destructrice explosa instantanément à l'intérieur de son corps. Wang
 
 En un laps de temps très court, l'âme originelle du vieil homme subit d'innombrables cycles d'effondrement et de reformation. À chaque occurrence, son âme originelle s'affaiblissait un peu plus.
 
-Ces quelques respirations parurent une éternité à Wang Lin. Il commença à concentrer son âme originelle et, au moment où celle du vieil homme s'effondra, il agit sans l'ombre d'une hésitation.
+Ces quelques respirations parurent une éternité à Wang Lin. Il commença à concentrer son âme originelle et, au moment où celle du vieil homme se reformait, il agit sans l'ombre d'une hésitation.
 
 Wang Lin devait intervenir; autrement, si l'âme originelle du vieil homme devenait incapable de résister ou décidait de fuir, Wang Lin n'était pas certain de pouvoir repousser lui-même le Royaume Ji.
 
 Après tout, le précédent Royaume Ji provenait du sceau. Bien que puissant, il était extrêmement instable, comme s'il manquait de fondations solides. Mais la situation actuelle était bien différente: ce Royaume Ji était d'une puissance redoutable!
 
-Au moment où l'âme originelle de Wang Lin entra en action, il ressentit immédiatement la puissance terrifiante du Royaume Ji. Son âme originelle trembla tandis que l'énergie originelle se propageait. Cette énergie enveloppa le Royaume Ji et le perça couche après couche, tel un couteau tranchant une feuille de papier.
+Au moment où l'âme originelle de Wang Lin entra en action, il ressentit immédiatement la puissance terrifiante du Royaume Ji. Son âme originelle trembla tandis que l'énergie originelle se propageait. Cette énergie se déploya en couches successives, comme des feuilles de papier, et le Royaume Ji, tel une lame acérée, les transperça.
 
 Heureusement, grâce à l'aide de Wang Lin, l'âme originelle du vieil homme eut un instant pour se rétablir. Au moment où le Royaume Ji était sur le point de transpercer l'âme originelle de Wang Lin, le vieil homme l'engloutit et continua d'utiliser son énergie originelle pour sceller le Royaume Ji.
 
@@ -70,7 +70,7 @@ Cependant, lorsqu'il vit les flammes, il eut le souffle coupé. Le choc qui l'ha
 
 Tang Yanfeng murmura pour lui-même: « Lui... Qui diable est-il?! »
 
-Shengong Hu ricana en regardant Tang Yanfeng et dit calmement: « Cher compagnon de culture Tang, vous souvenez-vous encore de la façon dont vous m'avez raillé devant la porte céleste? Vous voyez, l'homme qui se tient devant vous est la raison pour laquelle j'ai accepté d'être puni par ma famille et isolé par les membres du Temple Céleste du Tonnerre! »
+Shengong Hu ricana en regardant Tang Yanfeng et dit calmement: « Cher compagnon de culture Tang, vous souvenez-vous encore de la façon dont vous m'avez raillé devant la porte céleste? Vous voyez, l'homme qui se tient devant vous est la raison pour laquelle j'ai accepté d'être blâmé par ma famille et isolé par les membres du Temple Céleste du Tonnerre! »
 
 Tang Yanfeng resta stupéfait, les yeux rivés sur la silhouette au sein des flammes, incapable de prononcer un mot pendant un long moment.
 

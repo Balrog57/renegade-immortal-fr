@@ -9,7 +9,7 @@ slug: le-secret-du-cristal-de-la-planete-de-culture
 
 Wang Lin fronça les sourcils en attendant que Situ Nan poursuive son récit.
 
-« Le Cristal de la Planète de Culture... c'est une belle foutaise! C'est un objet créé par l'Alliance de Culture, et ils en offrent un à chaque pays de culture qui atteint le rang 6.
+« Le Cristal de la Planète de Culture... c'est une belle foutaise! C'est un objet créé par l'Alliance de Culture grâce à un art divin, et ils en offrent un à chaque pays de culture qui atteint le rang 6.
 
 « En l'implantant au cœur de la planète de culture et en l'activant, toute la planète se retrouve entourée d'un pouvoir mystérieux. Dès son activation, toute créature vivante née sur cette planète naît avec une parcelle d'âme manquante.
 
@@ -21,7 +21,7 @@ Wang Lin fronça les sourcils en attendant que Situ Nan poursuive son récit.
 
 « Mais de manière générale, ce Cristal de la Planète de Culture confère aux pays de culture de rang 6 un contrôle ultime sur leur planète.
 
-« Quand je suis devenu le Suzaku et que j'ai découvert cela, j'ai secrètement saboté et scellé le Cristal de la Planète de Culture. Bien que le cristal puisse toujours absorber des parcelles d'âmes, il ne peut plus être utilisé tant que le sceau n'est pas brisé. C'est pourquoi la planète Suzaku actuelle est dans un tel chaos; sinon, elle serait aussi solide qu'un tambour de fer.
+« Quand je suis devenu le Suzaku et que j'ai découvert cela, j'ai secrètement saboté et scellé le Cristal de la Planète de Culture. Bien que le cristal puisse toujours absorber des parcelles d'âmes, il ne peut plus être utilisé tant que le sceau n'est pas brisé. C'est pourquoi la planète Suzaku actuelle est dans un tel chaos; sinon, elle serait aussi impénétrable qu'un tonneau de fer.
 
 « Haha, tous les Suzakus qui m'ont succédé ont dû me haïr pour cela, mais je ne supportais tout simplement pas ce fichu cristal! »
 
@@ -29,11 +29,11 @@ Même avec la force mentale de Wang Lin, l'entendre lui infligea un choc: son ex
 
 Wang Lin demanda d'un ton grave: « Ainsi, si Zhu Quezi prend le contrôle du Cristal de la Planète de Culture, il lui suffira d'une seule pensée pour me tuer? »
 
-Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seuls les Suzaku peuvent le posséder. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
+Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seuls les Suzaku peuvent le posséder. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
 
-« Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Culture à aider le Royaume Ji à évoluer est faux », grommela Wang Lin en fronçant les sourcils.
+« Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Culture à aider le Royaume Ji à évoluer est faux ? », grommela Wang Lin en fronçant les sourcils.
 
-« C'est une question délicate car je n'ai pas le Royaume Ji sous la main pour l'étudier. Bien, nous en reparlerons quand j'aurai récupéré mes forces. Wang Lin, ne t'inquiète pas trop; je suis toujours là. » Situ Nan se tut et commença son processus de possession.
+« C'est une question délicate car je n'avais pas le Royaume Ji sous la main pour l'étudier. Bien, nous en reparlerons quand j'aurai récupéré mes forces. Wang Lin, ne t'inquiète pas trop; je suis toujours là. » Situ Nan se tut et commença son processus de possession.
 
 Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
@@ -45,13 +45,13 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « S'il en avait eu le contrôle, Zhu Quezi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du senior Du Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
 
-« Le Cristal de la Planète de Culture! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre du Nord Ardente.
+« Le Cristal de la Planète de Culture! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre des Flammes du Nord.
 
-« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Culture et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver l'Omniscient [1]. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la culture.
+« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Culture et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver l'Omniscient. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la culture.
 
 « Cependant, je dois faire quelques préparatifs avant cela. L'Étendard de l'Âme au Milliard d'Âmes s'est affaibli; je dois retourner sur le champ de bataille étranger pour capturer des âmes errantes et voir si elles peuvent aider à restaurer l'étendard. Si possible, je capturerai quelques dévoreurs d'âmes pour les utiliser comme âmes primaires. Ainsi, la puissance de l'Étendard devrait se rétablir.
 
-« De plus, il y a cette petite fiole de sang de l'ancêtre du Clan des Démons Géants. Cette fiole est cruciale pour mon corps originel qui se trouve toujours sur la lune; elle pourrait lui permettre d'utiliser les techniques des Dieux Anciens! La personne qui implorait de l'aide sous la Secte des Cadavres à Zhao devait être l'ancêtre fondateur du Clan des Démons Géants. Je dois m'y rendre pour voir si je peux obtenir davantage de sang. »
+« De plus, il y a cette petite fiole de sang de l'ancêtre du Clan des Démons Géants. Cette fiole est cruciale pour mon corps originel qui se trouve toujours sur la lune; elle pourrait lui permettre d'utiliser les techniques des Dieux Anciens! La personne qui implorait de l'aide dans la Secte des Cadavres de Zhao devait être l'ancêtre fondateur du Clan des Démons Géants. Je dois m'y rendre pour voir si je peux obtenir davantage de sang. »
 
 « Malheureusement, la quantité d'énergie spirituelle dont le corps originel a besoin pour atteindre le stade des quatre étoiles est inimaginable. J'ai également besoin de l'aura d'un Dieu Ancien adulte, ce qui sera extrêmement difficile à obtenir. »
 
@@ -117,13 +117,13 @@ Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna po
 
 « Frère Wang, cela fait bien des années que nous ne nous sommes vus. Vous souvenez-vous encore de moi? » L'homme corpulent s'arrêta à 33 mètres de lui et retira son chapeau.
 
-Du côté est du continent Suzaku, l'expression de l'ancêtre Ascendant de la Secte de Jade Céleste était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan des Immortels Délaissés avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
+Du côté est du continent Suzaku, l'expression de l'ancêtre Ascendant de la Secte du Jade Céleste était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan des Immortels Délaissés avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
 
-Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu une fois de plus. Durant leur affrontement, ses blessures s'étaient rouvertes, le contraignant à la fuite. Il se dirigeait vers la Secte de Jade Céleste, ayant décidé qu'il n'aiderait pas Zhu Quezi tant que ses blessures ne seraient pas guéries.
+Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu une fois de plus. Durant leur affrontement, ses blessures s'étaient rouvertes, le contraignant à la fuite. Il se dirigeait vers la Secte du Jade Céleste, ayant décidé qu'il n'aiderait pas Zhu Quezi tant que ses blessures ne seraient pas guéries.
 
-« Si cela devait arriver, je quitterais simplement cette planète. Avec mon niveau de culture, je serais une puissance sur n'importe quel monde. »
+« Au pire, je quitterais simplement cette planète. Avec mon niveau de culture, je serais une puissance sur n'importe quel monde. »
 
-Voyant la Secte de Jade Céleste approcher, Chu Yunfei s'arrêta brusquement et scruta l'horizon.
+Voyant la Secte du Jade Céleste approcher, Chu Yunfei s'arrêta brusquement et scruta l'horizon.
 
 Un homme marchait vers lui. Vêtu d'une robe rouge, le visage marqué par l'âge, il dégageait une aura antique et une pression écrasante. Il s'arrêta à 66 mètres de Chu Yunfei et le fixa intensément.
 
@@ -134,5 +134,3 @@ Le regard de Chu Yunfei se fit grave alors qu'il fixait l'inconnu: « Yun Quezi!
 Le vieillard en robe rouge leva la tête, poussa un soupir et dit: « Il semble donc que le frère Chu se souvienne encore de moi. Peu importe. Frère Chu, je ne suis venu que pour vous donner un conseil: quittez la planète Suzaku! »
 
 L'actuel Yun Quezi n'avait plus rien de l'homme désordonné qu'il était autrefois.
-
-[1] J'ai renommé Tian Yunzi en "l'Omniscient". C'est le vieillard qui accepte de prendre Wang Lin comme disciple pour 100 ans si celui-ci parvient à atteindre sa planète.

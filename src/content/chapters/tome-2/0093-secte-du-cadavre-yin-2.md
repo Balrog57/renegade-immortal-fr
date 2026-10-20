@@ -112,7 +112,7 @@ Calme, Wang Lin demanda lentement: « Oh? Alors pourquoi ne vous êtes-vous pas 
 
 Wang Lin ne crut pas un mot de ce que racontait ce petit être, mais son expression resta neutre. Il regarda l'homme étrange et demanda: « Son nom est Adai? »
 
-Wu Yu acquiesça: « Jeune ami, j'ai trouvé Adai dans cette statue. En entrant ici, je l'ai trouvé endormi et j'ai tenté de prendre possession de ce corps. Cependant, son corps contient une puissance capable de détruire le ciel et la terre. Après avoir consommé la majeure partie de mon Énergie Naissante sur lui, j'ai enfin pu m'échapper. Bien que j'aie échoué à le posséder, cela a réveillé Adai et lui a donné l'impression que nos vies étaient liées. »
+Wu Yu acquiesça: « Jeune ami, j'ai trouvé Adai dans cette statue. En entrant ici, je l'ai trouvé endormi et j'ai tenté de prendre possession de ce corps. Cependant, son corps contient une puissance capable de détruire le ciel et la terre. Après avoir laissé la majeure partie de mon énergie d'Âme Naissante en lui, j'ai enfin pu m'échapper. Bien que j'aie échoué à le posséder, cela a réveillé Adai et lui a donné l'impression que nos vies étaient liées. »
 
 « Dès lors, j'ai su que je n'aurais probablement jamais l'occasion de partir de toute ma vie, jusqu'à ce qu'Adai me dise qu'il t'avait rencontré. »
 

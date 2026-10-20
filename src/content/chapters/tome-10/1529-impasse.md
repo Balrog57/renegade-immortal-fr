@@ -16,9 +16,9 @@ Le visage livide, ils n'osèrent plus combattre. Ils battirent en retraite préc
 
 Bien que les deux aient réussi à esquiver malgré de graves blessures, les cultivateurs de la troisième vague ne purent rien faire. Tandis que la Hache Brise-Ciel passait, une multitude de vies fut anéantie!
 
-Il n'y eut aucun cri, seulement des effondrements et une désintégration totale. Une immense brèche large de dizaines de milliers de pieds apparut au sein de l'armée après le passage de la hache!
+Il n'y eut aucun cri, seulement des effondrements et une désintégration totale. Une immense brèche large d'environ 10 000 pieds apparut au sein de l'armée après le passage de la hache!
 
-Cet espace était désormais totalement vide, ne laissant derrière lui que l'odeur persistante du sang. La Hache Brise-Ciel traversa l'armée des cultivateurs avant de s'élancer au loin. Elle ne commença à se dissiper qu'après avoir parcouru plus d'un million de pieds.
+Cet espace était désormais totalement vide, ne laissant derrière lui que l'odeur persistante du sang. La Hache Brise-Ciel traversa l'armée des cultivateurs avant de s'élancer au loin. Elle ne commença à se dissiper qu'après avoir parcouru environ dix millions de pieds.
 
 Le Royaume Extérieur fut plongé dans un silence absolu. La troisième vague de cultivateurs du Royaume Extérieur contemplait avec effroi la faille créée par la Hache Brise-Ciel, le cœur tremblant de terreur.
 
@@ -44,7 +44,7 @@ Tandis que des grondements faisaient écho, encore plus de cultivateurs du Royau
 
 Des dizaines de milliers de cultivateurs se précipitèrent vers l'ouverture, poursuivis par les cultivateurs du Royaume Intérieur. À cet instant, tous convergeaient vers l'endroit où se tenait Wang Lin!
 
-Le Feu Éthéré se répandit, et tous les cultivateurs du Royaume Extérieur qui chargeaient furent consumés par lui. Le Maître Nan Yunzi avait terminé la partie la plus lente de la réparation, celle-ci touchant à sa fin.
+Le Feu Éthéré se répandit, et tous les cultivateurs du Royaume Extérieur qui chargeaient à moins de 10 000 pieds de Wang Lin furent consumés par lui. Le Maître Nan Yunzi avait terminé la partie la plus lente de la réparation, celle-ci touchant à sa fin.
 
 La faille de la Formation de Scellement du Royaume se refermait progressivement, ce qui rendait les cultivateurs du Royaume Extérieur encore plus déchaînés.
 
@@ -74,7 +74,7 @@ Wang Lin connaissait bien ce soupir. En l'entendant, son cœur sombra. Il tourna
 
 « Maître du Dao Rêve Bleu! » Les pupilles du Maître Nan Yunzi, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître du Dao Rêve Bleu avait déjà atteint le sommet du stade du Vide Arcanique; il n'était donc pas son égal!
 
-La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni le Maître Démon Neuf Cieux ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître du Dao Rêve Bleu. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
+La puissance d'un cultivateur à la grande perfection du sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni le Maître Démon Neuf Cieux ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître du Dao Rêve Bleu. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
 
 Personne ne pouvait contraindre le Souverain à changer d'avis. Miao Yin ne le pouvait pas, Neuf Cieux non plus, mais Rêve Bleu le pouvait!
 
@@ -108,7 +108,7 @@ En regardant là où le Maître du Dao Rêve Bleu avait disparu, l'ombre ténue 
 
 « Nous oublier au fil des fleuves et des lacs... n'est-ce pas? » La perte de vitalité fit pâlir l'ombre de la femme. Toute la vitalité du corps de Wang Lin se précipita vers l'Ombrelle Brûlante du Royaume, se transformant en une force capable de soutenir l'ouverture de cette arme!
 
-Des grondements tonitruants retentirent alors que l'Ombrelle Brûlante du Royaume s'ouvrait lentement... Le feu destructeur jaillit et ravagea la zone. D'innombrables cultivateurs luttèrent dans cette mer de flammes, leurs visages déformés par la douleur semblant s'ancrer dans les yeux de Wang Lin.
+Des grondements tonitruants retentirent alors que l'Ombrelle Brûlante du Royaume s'ouvrait lentement, d'un dixième... Le feu destructeur jaillit et ravagea la zone. D'innombrables cultivateurs luttèrent dans cette mer de flammes, leurs visages déformés par la douleur semblant s'ancrer dans les yeux de Wang Lin.
 
 La première bataille semblait toucher à sa fin avec l'ouverture de cette ombrelle antique et les lourdes pertes subies par les deux camps. Pourtant, à cet instant précis, une intention meurtrière qui ébranla l'esprit de Wang Lin jaillit du Système d'Étoiles Anciennes et se verrouilla sur le point situé entre ses sourcils.
 

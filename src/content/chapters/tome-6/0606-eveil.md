@@ -47,7 +47,7 @@ Les fragments d'âmes au-dessus de lui semblaient ressentir cette exaltation et 
 
 Hu Pao fixa violemment Wang Lin avant de laisser poindre une pointe de dérision: « As-tu déjà pensé qu'un jour, tu serais tué par le sort que tu as toi-même enseigné? As-tu déjà goûté à la sensation de cent millions de fragments d'âmes envahissant ton corps?! »
 
-« Une fois ton âme prise, je retournerai vers la Tribu du Raffinage d'Âmes pour capturer toutes leurs âmes également! » Le corps de Hu Pao tremblait sous l'effet de l'excitation, et il se mit à rire comme un possédé.
+« Une fois ton âme prise, je retournerai vers la Tribu du Raffinage d'Âmes pour transformer tous ses membres en fragments d'âme également! » Le corps de Hu Pao tremblait sous l'effet de l'excitation, et il se mit à rire comme un possédé.
 
 Wang Lin réfléchit longuement avant de dire lentement: « Ainsi, il s'avère que tu me hais à ce point. »
 
@@ -67,7 +67,7 @@ Hu Pao fixa Wang Lin et laissa échapper un rire sinistre. « Tu es donc digne d
 
 Wang Lin secoua légèrement la tête en observant attentivement Hu Pao: « Pour parvenir à un tel niveau de culture en une dizaine d'années, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.
 
-« Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Papillon Rouge par certains aspects, il est impossible d'atteindre un tel degré en une dizaine d'années. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi! Tu as dû cultiver une méthode qui consume ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
+« Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Papillon Rouge par certains aspects, il est impossible d'atteindre un tel degré en une dizaine d'années. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi! Tu as dû cultiver une méthode qui stimule ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
 
 « Tais-toi! » L'expression de Hu Pao devint féroce alors qu'il pointait le ciel. Une partie du nuage noir se détacha soudainement, se transformant en un million d'âmes. Hu Pao désigna Wang Lin et les fragments d'âme se précipitèrent vers lui.
 
@@ -95,13 +95,13 @@ Hu Pao afficha une expression sauvage, comme s'il était certain que Wang Lin al
 
 Alors que les cent millions de fragments fonçaient, l'âme originelle de Wang Lin quitta son corps pour balayer la zone. Le point faible que Wang Lin avait laissé dans le sort de raffinage d'âmes qu'il avait enseigné fut utilisé à cet instant précis. Wang Lin possédait un contrôle absolu sur toutes les âmes raffinées par ceux qui avaient appris son sort!
 
-Les cent millions de fragments furent stupéfaits; ils affichèrent immédiatement du respect et encerclèrent Wang Lin. Ils se reformèrent en un nuage noir, tournant le dos à Hu Pao pour le fixer. À cet instant, Hu Pao était totalement pétrifié; il n'y avait plus un seul fragment d'âme à ses côtés.
+Les cent millions de fragments furent stupéfaits; ils affichèrent immédiatement du respect et encerclèrent Wang Lin. Ils se reformèrent en un nuage noir autour de lui. À cet instant, Hu Pao était totalement pétrifié; il n'y avait plus un seul fragment d'âme à ses côtés.
 
 Ce changement radical et cette scène inexplicable laissèrent l'esprit de Hu Pao dans le vide.
 
 « Ton sort de raffinage d'âmes a été manipulé par quelqu'un pour en faciliter le contrôle. Cependant, comment la racine même du sort pourrait-elle être si aisément modifiée sans la véritable transmission et des dizaines de milliers d'années de sacrifices?! »
 
-Wang Lin était l'héritier du sort de raffinage d'âmes, et ce sort était le cœur même de la Secte du Raffinage d'Âmes. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des millénaires à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en une dizaine d'années sans posséder la véritable transmission?!
+Wang Lin était l'héritier du sort de raffinage d'âmes, et la Secte du Raffinage d'Âmes vénérait l'étendard d'un milliard d'âmes comme suprême. Bien qu'il ne s'agisse pas d'un sort capable de bouleverser les mondes, il avait été affiné par d'innombrables générations de disciples. Les membres de la secte avaient passé des millénaires à étudier avec diligence comment perfectionner ce sort. Comment quelqu'un aurait-il pu le reconstruire entièrement en une dizaine d'années sans posséder la véritable transmission?!
 
 Le bienfaiteur de Hu Pao ne pouvait pas faire une telle chose. Peut-être que l'homme dans l'armure le pouvait, mais il n'aurait pas gaspillé son temps pour une si futilité.
 

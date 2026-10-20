@@ -120,8 +120,8 @@ Le bras fut d'une rapidité telle qu'il semblait posséder le pouvoir de briser 
 
 Simultanément, le bras agrippa l'âme originelle du vénérable Xuan Bao et la retira violemment. Il s'apprêtait à la ramener dans la fissure.
 
-À cet instant, les yeux habituellement indifférents de Qing Shui se remplirent de folie pure. Le vénérable Xuan Bao était son seul indice sur ce qui s'était passé dans le Royaume Céleste. Le voir ainsi emporté par un tiers rendit Qing Shui fou de rage.
+À cet instant, les yeux habituellement indifférents de Qing Shui se remplirent de folie pure. Le vénérable Xuan Bao était son seul espoir de savoir ce qui s'était passé dans le Royaume Céleste. Le voir ainsi emporté par un tiers rendit Qing Shui fou de rage.
 
-Il est vrai que même Bai Fan n'aurait pas osé provoquer la colère de Qing Shui. Au lieu de cela, il l'avait accepté comme disciple pour qu'il lui soit redevable. Même l'être mystérieux que Maître Yan Leizi respectait tant ne cherchait pas à s'attirer les foudres de Qing Shui.
+Il est vrai que même Bai Fan n'aurait pas osé provoquer la colère de Qing Shui. Au lieu de cela, il n'avait pu que l'apaiser par des bienfaits et l'accepter comme disciple, pour qu'il lui soit redevable. Même l'être mystérieux du système stellaire de Luotian que Maître Yan Leizi respectait tant ne cherchait pas à s'attirer les foudres de Qing Shui.
 
 Mais aujourd'hui, la colère de Qing Shui explosa lorsque le vénérable Xuan Bao fut arraché!

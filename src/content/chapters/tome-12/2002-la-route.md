@@ -22,7 +22,7 @@ Wang Lin n'utilisa pas la Distorsion Spatiale pour se précipiter vers le Clan A
 
 « Je ne me rendrai ni vers l'Ancien Shi, ni vers l'Ancien Ji, mais vers la cité impériale de l'Ancien Dao. Je me demande comment elle se compare à la cité ancestrale du clan Céleste. » Wang Lin fixa silencieusement l'horizon.
 
-« Ma culture est encore insuffisante; je dois donc entrer en culture fermée au sein du clan Ancien et m'efforcer de devenir un Grand Empyréen. Une fois ma promesse faite au Maître, j'irai chercher l'âme de Wan Er... » En pensant à Li Muwan, les yeux de Wang Lin se remplirent de tristesse.
+« Ma culture est encore insuffisante; je dois donc entrer en culture fermée au sein du clan Ancien et m'efforcer de devenir un Grand Empyréen. Une fois ma promesse au Maître accomplie, j'irai chercher l'âme de Wan Er... » En pensant à Li Muwan, les yeux de Wang Lin se remplirent de tristesse.
 
 « Wan Er... Où se cache ce fragment de ton âme... Ce n'est que lorsque ton âme sera complète que je pourrai trouver un moyen de t'éveiller... » Wang Lin soupira et tendit la main droite vers le vide. Une faille s'ouvrit, menant à son espace de stockage.
 
@@ -60,7 +60,7 @@ Quelques jours plus tard, Wang Lin ouvrit les yeux, laissant paraître une point
 
 « Si tel est le cas, j'ai 50 % de chances d'éviter de devoir élever mes essences éthérées pour atteindre le sommet de la Tribulation du Vide... Bien que ma puissance de combat soit bien moindre à cause de l'incomplétude de ces essences, une fois qu'elles seront complètes, ma force augmentera considérablement!
 
-« Ensuite, il y aura le corps véritable de l'essence du tonnerre meurtrier. Pour l'instant, seule l'essence du tonnerre a formé un corps véritable. Les quatre autres — la mise à mort, le commencement absolu, la fin absolue et la restriction — sont incomplètes. Si elles parviennent toutes à former leurs propres corps véritables, alors mon essence du tonnerre meurtrier sera complète et me permettra de dépasser le stade de la Tribulation du Vide! Cependant, je devrai attendre que les corps véritables des essences de métal et de bois apparaissent pour savoir si cette voie est la bonne. » Wang Lin médita en décidant de son avenir.
+« Ensuite, il y aura le corps véritable de l'essence du tonnerre meurtrier. Pour l'instant, seule l'essence du tonnerre a formé un corps véritable. Les quatre autres — la mise à mort, le commencement absolu, la fin absolue et la restriction — sont déjà pleinement accomplies. Si elles parviennent toutes à former leurs propres corps véritables, alors mon essence du tonnerre meurtrier sera complète et me permettra de dépasser le stade de la Tribulation du Vide! Cependant, je devrai attendre que les corps véritables des essences de métal et de bois apparaissent pour savoir si cette voie est la bonne. » Wang Lin médita en décidant de son avenir.
 
 « Quant au schéma du soleil de Grand Empyréen... La raison de son apparition est profondément liée à l'héritage céleste que j'ai reçu. Cet héritage n'a pas augmenté mon niveau de culture, mais m'a permis de condenser ce soleil une fois ma pleine puissance déchaînée. Avec ce soleil, ma puissance de combat augmente de façon prodigieuse! Cela compense la destruction de mon armure d'âme du Taureau Céleste. Avec mon niveau et ma force actuels, je suis le plus puissant sous les Grands Empyréens. Même face à un Grand Empyréen, à moins qu'il ne consume sa puissance de Grand Empyréen, je peux encore lutter!
 
@@ -72,8 +72,8 @@ Quelques jours plus tard, Wang Lin ouvrit les yeux, laissant paraître une point
 
 Il possédait deux autres objets dans son espace de stockage: une mèche de cheveux blancs et un crâne de la taille d'un poing imprégné de mort. Ces deux objets lui donnaient une sensation très familière, mais il ne parvenait toujours pas à en identifier l'origine.
 
-Les jours passèrent et les vagues devinrent plus impétueuses encore. Il y avait aussi la force de la loi du Continent Astral Immortel, cette puissance qui servait de clé pour séparer les clans Célestes des clans Anciens. Cependant, pour Wang Lin, cette force était bien trop faible comparée à ce qu'il avait expérimenté dans le vide; il pouvait donc simplement l'ignorer. Son aura enveloppa le dragon de mer, lui permettant de naviguer plus rapidement encore!
+Les jours passèrent et les vagues devinrent plus impétueuses encore. Il y avait aussi la force de la loi du Continent Astral Immortel, cette puissance qui empêchait les allers-retours entre clans Célestes et clans Anciens. Cependant, pour Wang Lin, cette force était bien trop faible comparée à ce qu'il avait expérimenté dans le vide; il pouvait donc simplement l'ignorer. Son aura enveloppa le dragon de mer, lui permettant de naviguer plus rapidement encore!
 
 Un point noir flottait dans le ciel: c'était la bête moustique. Wang Lin la libéra, et elle émit un sifflement joyeux en suivant sa course vers le clan Ancien.
 
-Quelques mois plus tard, lorsque Wang Lin rouvrit les yeux, il aperçut le rivage. La terre noire était différente de celle du clan Céleste. La terre des Anciens exhalait un sentiment de désolation et de sauvagerie.
+Quelques mois plus tard, lorsque Wang Lin rouvrit les yeux, il aperçut le rivage. La terre noire était différente de celle du clan Céleste, où le Qi spirituel abondait. La terre des Anciens exhalait un sentiment de désolation et de sauvagerie.

@@ -190,7 +190,7 @@ Wang Lin avançait avec aisance, mais après n'avoir parcouru que cinq kilomètr
 
 L'une sortit une épée volante tandis que l'autre déroula un parchemin.
 
-L'expression de Wang Lin resta imperturbable, mais son cœur se serra. À moins que Duanmu n'ait menti, cela était dû au fait qu'il avait détruit la première copie trop rapidement, provoquant ainsi une réaction en chaîne.
+L'expression de Wang Lin resta imperturbable, mais son cœur se serra. À moins que Duanmu n'ait menti, cela était dû au fait qu'il avait détruit la première copie trop rapidement, ce qui avait entraîné un léger changement.
 
 Cependant, l'humeur de Wang Lin ne changea pas. Il resta froid et calme. Dès l'apparition des deux copies, les éclairs rouges réapparurent dans ses yeux et son Sens Divin du Royaume Ji se manifesta à nouveau.
 

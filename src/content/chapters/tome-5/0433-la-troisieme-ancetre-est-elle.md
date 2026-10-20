@@ -120,11 +120,11 @@ Le corps de cette femme était d'une volupté parfaite. Aucun tatouage ne marqua
 
 Elle était d'une beauté saisissante; outre la dépouille céleste, la seule personne que Wang Lin ait vue aussi belle était Liu Mei. Il ne l'avait pourtant jamais rencontrée, mais elle dégageait un sentiment de familiarité.
 
-Un parchemin ouvert flottait au-dessus de la femme, et neuf lueurs dorées s'y déplaçaient en formant un cercle.
+Un parchemin ouvert flottait au-dessus de la femme, et neuf éclats cristallins s'y déplaçaient en formant un cercle.
 
 Des volutes de gaz noir s'échappaient du parchemin pour pénétrer entre les sourcils de la femme.
 
-En voyant ce parchemin, son cœur vacilla. Il lui semblait extrêmement familier; il ressemblait trait pour trait au parchemin qu'il portait dans sa sacoche et dont il n'avait toujours pas compris l'usage.
+En voyant ce parchemin, son cœur vacilla. Il lui semblait extrêmement familier; il ressemblait trait pour trait au parchemin qu'il portait dans sa sacoche et dont il n'avait jamais pu se servir.
 
 À cet instant, le tatouage sanguin s'illumina d'un rouge vif et la femme au centre ouvrit lentement les yeux.
 
@@ -134,4 +134,4 @@ Après avoir croisé le regard de cette femme, il se mit soudain à trembler. Il
 
 L'épée céleste dans la main de Wang Lin se mit à bourdonner. L'esprit de l'épée, Xu Liguo, s'échappa de la lame et murmura: « Petite fée sœur... »
 
-« Merci d'avoir transmis le fragment d'âme issu de mon domaine lorsque je me suis réincarnée en cultivatrice... »
+« Merci d'avoir transmis le fragment d'âme issu de mon domaine lorsque je me suis incarnée en cultivatrice... »

@@ -114,7 +114,7 @@ L'homme d'âge moyen ne sembla pas s'en offenser. Après être sorti de la lumi�
 
 « Vieux monstre Omniscient, comment aurais-je pu manquer la célébration de votre dix-millième anniversaire?! » L'homme rit en lançant l'épée volante vers l'Omniscient.
 
-« Je suis venu dans la précipitation et n'ai pu préparer de dignes cadeaux. Cette épée volante est un trésor céleste de qualité supérieure moyenne et, ayant été raffinée pendant dix mille ans, elle possède une certaine puissance. Je sais que vous appréciez les couleurs de l'arc-en-ciel, et cette épée dorée est d'une nuance jaune terreuse; elle devrait donc vous plaire! »
+« Je suis venu dans la précipitation et n'ai pu préparer de dignes cadeaux. Cette épée volante est un trésor céleste de qualité supérieure moyenne et, ayant été raffinée pendant dix mille ans, elle possède une certaine puissance. Je sais que vous appréciez les couleurs de l'arc-en-ciel, et cette épée dorée relève de la lumière jaune; elle devrait donc vous plaire! »
 
 L'Omniscient sourit discrètement. Après avoir réceptionné l'épée, il la lança vers le premier disciple de la Division Jaune en disant: « Kunpeng Zi, je t'offre cette épée! »
 

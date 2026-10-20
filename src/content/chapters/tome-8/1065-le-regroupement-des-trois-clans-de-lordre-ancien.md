@@ -32,7 +32,7 @@ Wang Lin fit un pas et chargea le démon ancestral.
 
 Le démon ancestral afficha une expression de dérision en levant la lame qu'il tenait. Une énergie de lame monstrueuse surgit derrière lui alors qu'il souriait: « Un simple Dieu Ancestral à 5 étoiles et un démon ancestral à 7 étoiles osent me défier? »
 
-Alors qu'il riait, l'énergie de la lame qui faisait trembler le ciel jaillit. Il n'y avait que deux rayons d'énergie: l'un balayait le firmament tandis que l'autre survolait la terre. Ils représentaient le Ciel et la Terre. Une fois qu'ils se croiseraient, ils engendreraient une force de destruction pure.
+Alors qu'il riait, l'énergie de la lame qui faisait trembler le ciel jaillit. Il n'y avait que deux rayons d'énergie: l'un balayait le firmament tandis que l'autre rasait la terre. Ils représentaient le Ciel et la Terre. Une fois qu'ils se croiseraient, ils engendreraient une force de destruction pure.
 
 L'Ancien Démon Bei Luo agita sa main droite, et une énergie démoniaque infinie jaillit du drapeau de mille pieds pour percuter l'énergie de la lame dans le ciel. Une aura démoniaque explosa de son corps, offrant un spectacle terrifiant et grandiose.
 
@@ -74,7 +74,7 @@ Hu Juan hésita. Si cela avait été le passé, peu importait l'admiration qu'el
 
 Une fois Hu Juan partie, les yeux de Wang Lin s'illuminèrent. Il était déterminé à ce que Wang Wei et Hu Juan lui soient redevables. Tant qu'ils seraient reconnaissants, même si Qing Lin ne se réveillait jamais, ils l'aideraient pour l'affaire de Situ Nan. De plus, leur traitement envers Zhou Yi serait radicalement différent grâce à sa bienveillance.
 
-À l'intérieur du magma, Wang Lin absorba l'énergie sans le moindre ménagement. La lave sembla couler à contre-courant alors que l'énergie d'origine du feu pénétrait son corps avec frénésie. L'énergie parcourut ses méridiens, permettant à son corps gravement blessé de se rétablir partiellement.
+À l'intérieur du magma, Wang Lin absorba l'énergie sans le moindre ménagement. La lave sembla couler à contre-courant alors que l'énergie d'origine du feu pénétrait son corps avec frénésie. L'énergie parcourut ses méridiens, permettant à son corps gravement blessé de se rétablir.
 
 Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Luo et le Maître du Vide chargeaient dans la lave, poursuivis par l'Ancien Démon Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
 

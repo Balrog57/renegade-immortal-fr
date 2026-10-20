@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 860 - I Want First Place
 slug: je-veux-la-première-place
 ---
-Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 50000 kilomètres de la planète Terre Flamme. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la manipulation spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui!
+Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 50000 kilomètres de la planète Terre Flamme. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la Déformation Spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui!
 
 À chacun de ses pas, son cœur s'apaisait et son regard devenait d'une tranquillité terrifiante. Une intention de combat croissait en lui à chaque foulée alors qu'il progressait avec détermination, de plus en plus tranchante et tendue droit vers l'avant!
 
@@ -22,7 +22,7 @@ L'intention de combat émanait du cœur de Wang Lin. À cet instant, son âme é
 
 Le blanc de ses vêtements n'évoquait pas la pureté de la neige, mais la pâleur de l'os!
 
-Non seulement Wang Lin devait gagner, mais il devait remporter une victoire totale. Ce n'était qu'à cette condition qu'il se ferait un nom dans tout le Système Stellaire Tout-Ciel, et que la famille Xiang le prendrait au sérieux lorsqu'il viendrait les solliciter!
+Non seulement Wang Lin devait gagner, mais il devait remporter une victoire totale. Ce n'était qu'à cette condition qu'il se ferait un nom dans tout le Système Stellaire Luotian, et que la famille Xiang le prendrait au sérieux lorsqu'il viendrait les solliciter!
 
 « Wan Er… » L'intention de combat dans les yeux de Wang Lin atteignit son paroxysme. Cependant, une pointe de tristesse imprégnait cette volonté, et cette mélancolie était celle de sa Wan Er.
 
@@ -30,7 +30,7 @@ Il se souvenait encore de l'illusion du monde entier s'effondrant autour de lui 
 
 Il ne pourrait jamais oublier cela. Lorsqu'il avait atteint le stade Ascendant, il avait accepté de défier les cieux et de cultiver à contre-courant pour l'attachement qu'il refusait d'abandonner!
 
-Arriver dans le Système Stellaire Tout-Ciel et traverser toutes ces batailles n'avait qu'un seul but: la résurrection de Wan Er! Les paroles de la femme de la famille Xiang, scellée dans le rouleau, résonnaient comme d'innombrables coups de tonnerre dans son esprit. C'était la raison fondamentale de sa présence dans le Système Stellaire Tout-Ciel!
+Arriver dans le Système Stellaire Luotian et traverser toutes ces batailles n'avait qu'un seul but: la résurrection de Wan Er! Les paroles de la femme de la famille Xiang, scellée dans le rouleau, résonnaient comme d'innombrables coups de tonnerre dans son esprit. C'était la raison fondamentale de sa présence dans le Système Stellaire Luotian!
 
 Il ne pouvait pas perdre!
 

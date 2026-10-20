@@ -22,13 +22,13 @@ Dès que ces centaines de cultivateurs furent assis, tous les chamans à six feu
 
 En un clin d'œil, les tatouages disparurent dans l'arbre. Cependant, l'Arbre de la Réincarnation trembla instantanément, et des branches souples commencèrent à en jaillir. Ces branches se mouvaient comme des serpents en croissant, s'enroulant rapidement autour des cultivateurs.
 
-En un instant, presque tous les cultivateurs furent enserrés par les branches et entraînés dans les airs.
+En un instant, tous les cultivateurs furent enserrés par les branches et entraînés dans les airs.
 
 Cette scène paraissait bien étrange à Wang Lin. D'innombrables branches surgissaient de cet Arbre de la Réincarnation pour ligoter les cultivateurs. Par le mouvement de ses membres, l'arbre semblait presque doué de vie.
 
 « Il est en train de guérir! » Les yeux de Wang Lin s'illuminèrent.
 
-D'innombrables tatouages apparurent et, après un éclat de lumière, les corps de tous les cultivateurs se mirent à trembler. L'essence de chair et de sang de leurs corps se flétrissait à vue d'œil.
+Plusieurs tatouages apparurent et, après un éclat de lumière, les corps de tous les cultivateurs se mirent à trembler. L'essence de chair et de sang de leurs corps se flétrissait à vue d'œil.
 
 Simultanément, l'énergie spirituelle jaillissait de leurs corps vers les branches de l'arbre comme des chevaux sauvages déchaînés.
 

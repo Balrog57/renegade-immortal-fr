@@ -74,7 +74,7 @@ Au moment où l'épée transperça le talisman et pénétra la porte, l'âme ori
 
 C'était l'aura du Continent Astral Immortel, l'endroit que son sens divin avait exploré juste après la fin de son Dao du Rêve!
 
-Le Continent Astral Immortel, un monde existant depuis des éons. Sa taille équivalait à celle d'innombrables Royaumes Intérieurs et Extérieurs. Même les cultivateurs du troisième pas avaient souvent besoin de très longtemps pour le traverser.
+Le Continent Astral Immortel, un monde existant depuis des éons. Sa taille équivalait à celle d'innombrables Royaumes Intérieurs et Extérieurs. Même les cultivateurs de la troisième étape avaient souvent besoin de très longtemps pour le traverser.
 
 Le Continent Astral Immortel était surnommé « le bord du ciel et la fin de la terre », l'endroit le plus spectaculaire de l'univers!
 
@@ -90,7 +90,7 @@ Cette secte était comparable à la Secte des Sept Dao; elle ne pouvait être co
 
 À cet instant précis, sur la place principale de cette branche, une cloche géante de 10 000 pieds de haut flottait dans les airs. Elle paraissait majestueuse à distance.
 
-Cependant, soudain, la cloche trembla et un bourdonnement qui résonna à travers toute la secte en émana. Plusieurs rayons de lumière jaillirent immédiatement des palais environnants.
+Cependant, soudain, la cloche trembla et un bourdonnement qui résonna à travers toute la secte en émana. Plusieurs rayons de lumière jaillirent immédiatement des palais lointains.
 
 Lorsqu'ils arrivèrent, une lumière rouge sang, terrifiante, jaillit de la cloche. Dès son apparition, elle irradia intensément.
 

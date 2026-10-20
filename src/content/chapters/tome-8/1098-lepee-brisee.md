@@ -88,7 +88,7 @@ Cependant, à présent, ni la Secte des Cadavres ni Luotian n'avaient le choix. 
 
 C'était là la véritable raison pour laquelle Wang Lin osait répandre cette nouvelle.
 
-De même, Wang Lin savait que son identité de dieu ancien n'était plus un secret parmi les puissants cultivateurs du Système Stellaire de l'Alliance. Après tout, dans le Domaine des Esprits Démoniaques, il avait exposé toute sa puissance et le sort *Rêve des Temps Anciens* était apparu.
+De même, Wang Lin savait que son identité de dieu ancien n'était plus un secret parmi les puissants cultivateurs du Système Stellaire de l'Alliance. Après tout, dans la Terre des Esprits Démoniaques, il avait exposé toute sa puissance et le sort *Rêve des Temps Anciens* était apparu.
 
 Wang Lin refusait de croire qu'il n'avait pas suscité de soupçons ou de spéculations.
 

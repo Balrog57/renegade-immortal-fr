@@ -26,7 +26,7 @@ Wang Lin savait que ce qui venait de se passer était extrêmement dangereux. S'
 
 Wang Lin retourna rapidement vers la boussole stellaire.
 
-« Frère Ceng, ce Sun Tai est l'Ancien principal de la Secte des Cadavres. Vous devrez être prudent à l'avenir. » Chi Hu avait vu ce qui venait de se passer et le statut de Wang Lin augmenta dans son esprit. En tant que jeune maître du Clan des Démons Géants, au lieu de se faire des ennemis, il cherchait à se lier d'amitié avec des héros.
+« Frère Ceng, ce Sun Tai est le Grand Ancien de la Secte des Cadavres. Vous devrez être prudent à l'avenir. » Chi Hu avait vu ce qui venait de se passer et le statut de Wang Lin augmenta dans son esprit. En tant que jeune maître du Clan des Démons Géants, au lieu de se faire des ennemis, il cherchait à se lier d'amitié avec des héros.
 
 Tout au long de leur voyage, Wang Lin avait fait preuve autant d'esprit que de détermination. Sa culture était également impressionnante, ce qui donnait envie à Chi Hu de devenir l'ami de Wang Lin.
 
@@ -56,7 +56,7 @@ Chi Hu eut un sourire amer. « Frère Ceng, la boussole stellaire est un trésor
 
 Wang Lin sourit calmement et dit: « Frère Chi Hu, bien que nous ne nous connaissions pas depuis longtemps, nous avons traversé la vie et la mort ensemble. Je ne vous mentirai pas: je peux réparer cette boussole stellaire. »
 
-Chi Hu fut stupéfait. Il était justement en train de songer à ce qu'ils feraient sans la boussole. Non seulement leur vitesse serait considérablement réduite, mais ils n'auraient plus de carte pour les guider. Il leur faudrait un temps infini pour quitter cet endroit en volant par eux-mêmes, et d'innombrables créatures dangereuses vivaient dans le vide.
+Les yeux de Chi Hu s'illuminèrent. Il était justement en train de songer à ce qu'ils feraient sans la boussole. Non seulement leur vitesse serait considérablement réduite, mais ils n'auraient plus de carte pour les guider. Il leur faudrait un temps infini pour quitter cet endroit en volant par eux-mêmes, et d'innombrables créatures dangereuses vivaient dans le vide.
 
 « Si frère Ceng peut réparer cette boussole stellaire, alors nous pourrons certainement sortir d'ici! » Chi Hu ne demanda pas comment Wang Lin savait réparer un trésor aussi rare. Chacun avait ses secrets, et si Wang Lin ne parlait pas, il serait impoli de l'interroger.
 

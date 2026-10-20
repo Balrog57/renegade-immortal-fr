@@ -24,7 +24,7 @@ Ses cils tremblèrent lorsqu'elle ouvrit les yeux. Elle vit une douce lumière b
 
 Elle leva discrètement la tête pour observer Wang Lin. Bien qu'il ne fût pas d'une beauté éclatante, une aura mystérieuse émanait de lui. C'était un changement singulier qui frappait tous les cultivateurs au stade de la Formation de l'Âme; un changement qui apparaissait lorsque le corps fusionnait avec l'énergie spirituelle du ciel et de la terre, et dont la nature dépendait de la conception du Dao qu'ils avaient comprise.
 
-En plein vol, Wang Lin remarqua le regard de la femme, mais il ne baissa pas les yeux. Son attention restait fixée sur Qiu Siping. La distance entre lui et le vieil homme Hu ne cessait de s'accroître. Avec le niveau de culture de Qiu Siping, il était impossible pour lui de suivre un cultivateur de la Formation de l'Âme.
+En plein vol, Wang Lin remarqua le regard de la femme, mais il ne baissa pas les yeux. Son attention restait fixée sur Qiu Siping. La distance entre Qiu Siping et le vieil homme Hu ne cessait de s'accroître. Avec le niveau de culture de Qiu Siping, il était impossible pour lui de suivre un cultivateur de la Formation de l'Âme.
 
 Une pointe d'anxiété perçait dans les yeux de Qiu Siping. En voyant Wang Lin le rattraper, il s'écria précipitamment: « Frère Wang, aidez-moi, je vous en prie! Je suis prêt à vous offrir des trésors en échange! »
 

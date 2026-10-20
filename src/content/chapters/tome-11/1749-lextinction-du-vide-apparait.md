@@ -52,7 +52,7 @@ Xie Qing, agenouillé là, dit doucement: « La troisième âme du Souverain Cé
 
 « Maître... » Xie Qing regarda Wang Lin, et ses yeux s'embuèrent lentement de larmes.
 
-« Après que certains souvenirs du Disciple ont été éveillés, j'ai choisi de m'enfuir. Je me suis débattu, je n'étais pas prêt... Je suis venu ici pour regarder ces orchidées et réfléchir à ma vie. J'ai finalement compris que je suis Xie Qing... Je ne suis pas le Souverain Céleste aux Sept Couleurs, Su Dao! » Xie Qing sourit.
+« Après que certains souvenirs du Disciple ont été éveillés, j'ai choisi de m'enfuir. Je me suis débattu, je n'étais pas prêt et je ne m'y résignais pas... Je suis venu ici pour regarder ces orchidées et réfléchir à ma vie. J'ai finalement compris que je suis Xie Qing... Je ne suis pas le Souverain Céleste aux Sept Couleurs, Su Dao! » Xie Qing sourit.
 
 « La troisième âme du Souverain Céleste aux Sept Couleurs contient les souvenirs de sa vie et sera très utile au Maître... Je sais qu'en ce moment, la première âme, la deuxième âme et les quatre généraux me recherchent tous... »
 
@@ -102,7 +102,7 @@ Tandis que Xie Qing regardait Wang Lin, des larmes coulèrent sur ses joues. Il 
 
 « Mon âme a été gravement endommagée en attendant le Maître. J'ai hésité, mais désormais je n'ai aucun regret... Il n'est pas nécessaire que le Maître agisse, je suis au seuil de la mort... C'est la dernière fois que je vous appelle... Maître... » Xie Qing regarda les orchidées devant lui et ferma les yeux. Les larmes qui devaient couler s'arrêtèrent alors qu'un sourire étirait ses lèvres; il prit son dernier souffle... Il était mort.
 
-À l'instant même de son décès, des fragments d'âme jaillirent de son corps. C'était la troisième âme. Elle contenait les souvenirs des innombrables réincarnations de cette âme, y compris la vie de Xie Qing!
+À l'instant même de son décès, de fins filaments d'âme, invisibles, s'échappèrent de ses sept orifices. C'était la troisième âme. Elle contenait les souvenirs des innombrables réincarnations de cette âme, y compris la vie de Xie Qing!
 
 Grâce au sceau de Xie Qing, la troisième âme ne pouvait entrer dans le cycle de la réincarnation. Les souvenirs se dissipèrent rapidement et, une fois l'effacement complet, Xie Qing disparaîtrait à jamais.
 

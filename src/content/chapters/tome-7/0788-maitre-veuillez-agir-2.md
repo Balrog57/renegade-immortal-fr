@@ -60,7 +60,7 @@ L'épée volante de Shengong Hu percuta l'écran de lumière et se brisa instant
 
 Non seulement lui, mais Zhan Konglie, Tang Yanfeng et les deux autres cultivateurs du Yang Corporel crachèrent également du sang et furent repoussés violemment. Quant aux cultivateurs de l'Yin Illusoire, leurs âmes d'origine furent secouées et leurs corps projetés en arrière.
 
-L'homme aux cheveux blancs, derrière l'écran de lumière, afficha un sourire sanguinaire et dit d'une voix rauque: « Oui, voilà qui est un peu plus intéressant. Cependant, comparés à l'armée céleste, vous, les jeunes, êtes trop faibles, trop faibles, trop faibles! Vous n'êtes même pas dignes que j'utilise mon Royaume Ji! »
+L'homme aux cheveux blancs, derrière l'écran de lumière, afficha un sourire sanguinaire et dit d'une voix rauque: « Oui, voilà qui ressemble enfin à un combat. Cependant, comparés à l'armée céleste, vous, les jeunes, êtes trop faibles, trop faibles, trop faibles! Vous n'êtes même pas dignes que j'utilise mon Royaume Ji! »
 
 Tout en parlant, il ouvrit les bras et l'écran de lumière autour de lui s'étendit soudainement. Sa progression fut fulgurante, repoussant le brouillard blanc qui l'entourait.
 

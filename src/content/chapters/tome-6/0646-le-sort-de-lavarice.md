@@ -12,11 +12,11 @@ L'essaim de bêtes moustiques qui chargeait vers Wang Lin s'arrêta net. Bien qu
 
 Cette scène laissa Cupidité totalement stupéfait. Cela fit également briller les yeux de Chen Long.
 
-Le visage de Cupidité s'assombrit alors qu'il formait un sceau d'une main et criait: « Sept Aiguilles Magiques, imprégnation! »
+Le visage de Cupidité s'assombrit alors qu'il formait des sceaux des deux mains et criait: « Sept Aiguilles Magiques, imprégnation! »
 
 Un cri strident jaillit des profondeurs de l'essaim, et la vaste nuée de moustiques ouvrit immédiatement une brèche. Du centre du groupe, un moustique géant, portant sept aiguilles d'argent plantées dans la tête, s'éleva lentement.
 
-Une lutte intérieure faisait rage dans ses yeux rouges. La bête moustique fixa Cupidité et poussa un rugissement. Cupidité rugit à son tour, et les aiguilles argentées sur sa tête s'enfoncèrent d'environ dix centimètres supplémentaires. Le corps du moustique trembla et le combat dans ses yeux devint plus intense encore.
+Une lutte intérieure faisait rage dans ses yeux rouges. La bête moustique fixa Cupidité et poussa un rugissement. Sous le cri sourd de Cupidité, les aiguilles argentées sur sa tête s'enfoncèrent d'environ dix centimètres supplémentaires. Le corps du moustique trembla et le combat dans ses yeux devint plus intense encore.
 
 Cependant, une trace de résolution apparut soudainement dans son regard alors qu'il poussait un cri puissant empreint de mort! Son regard se déplaça comme l'éclair pour se poser sur la bête moustique de Wang Lin.
 
@@ -48,7 +48,7 @@ L'esprit dragon de l'épée de Chen Long poussa un rugissement en percutant le g
 
 « Vous, petits juniors, osez provoquer le vieux Cupidité! » cria Cupidité tout en se déplaçant avec rapidité. Il était sur le point de s'extraire du siège des bêtes moustiques.
 
-S'il parvenait à s'échapper, nul ne pourrait l'arrêter, qu'il décide de combattre ou de fuir.
+S'il parvenait à s'échapper, il pourrait, grâce à ses pouvoirs, tout contrôler à sa guise, qu'il décide de combattre ou de fuir.
 
 Chen Long hurla: « Wang Lin, nous ne devons pas nous retenir! Unissons nos forces pour tuer ce vieux voleur. Sinon, nous périrons tous les deux! » Il cracha une bouchée d'essence de sang originelle sur son épée. L'arme se mit à trembler et des fissures apparurent sur toute sa surface. Des éclats de métal commencèrent à s'écailler comme si l'épée muait.
 
@@ -76,7 +76,7 @@ Une puissance incomparable se manifesta instantanément. Une fois l'âme de la m
 
 Cependant, l'âme illusoire de la montagne était toujours entre les mains de Cupidité!
 
-« La culture de ce vieil homme ne peut égaler celle du vieux Ling Tian ou de ce vieux voleur d'Omniscient, mais les sorts du vieux Cupidité sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre les techniques d'autrui en croyant qu'elles étaient les vôtres! » Les yeux de Cupidité débordaient de mépris alors que sa main droite s'abaissait.
+« La culture de ce vieil homme ne peut égaler celle du vieux Ling Tianhou ou de ce vieux voleur d'Omniscient, mais les sorts du vieux Cupidité sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre des techniques que d'autres vous ont accordées, en croyant qu'elles étaient les vôtres! » Les yeux de Cupidité débordaient de mépris alors que sa main droite s'abaissait.
 
 Dans un fracas assourdissant, l'âme de la montagne descendit.
 
@@ -100,7 +100,7 @@ Wang Lin prit une inspiration sifflante. S'il n'avait pas toujours conservé un 
 
 Grâce à l'appui de l'âme de la montagne, Cupidité parvint enfin à échapper au siège des bêtes moustiques. Il éclata d'un rire tonitruant: « Petits juniors, connaissez-vous cette montagne? C'est une montagne du Royaume Céleste! Ce vieil homme l'a extraite et scellée il y a des dizaines de milliers d'années! »
 
-À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de 330 mètres à 3,3 mètres, formant une sphère dense de brume pourpre.
+À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de 330 mètres à 3,3 mètres, formant une sphère dense de brume violette.
 
 Aucun son ne s'échappait encore de la sphère, mais Wang Lin savait qu'une personne vivante s'y trouvait: un disciple de la Secte de l'Épée Da Luo!
 
@@ -116,7 +116,7 @@ Le moustique de Wang Lin, au sein de la horde, poussa un rugissement et, subitem
 
 Non seulement ces moustiques utilisaient ce sort, mais chaque bête moustique en était capable. Elles s'effondraient et se régénéraient à l'instant même. Ce processus fulgurant permit d'encercler complètement Cupidité!
 
-Le brouillard violet se contracta rapidement et le jeton interne devint plus tangible. En un instant, la dernière étape fut franchie. Une fois toute la brume dissipée, un ancien jeton émettant une lumière pourpre flotta dans les airs.
+Le brouillard violet se contracta rapidement et le jeton interne devint plus tangible. En un instant, la dernière étape fut franchie. Une fois toute la brume dissipée, un ancien jeton émettant une lumière violette flotta dans les airs.
 
 Une lueur dorée se mêlait à la lumière violette...
 

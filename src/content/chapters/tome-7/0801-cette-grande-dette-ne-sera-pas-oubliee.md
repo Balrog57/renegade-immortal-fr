@@ -70,7 +70,7 @@ Alors que l'homme reculait, il forma un sceau et frappa son sac de rangement. Tr
 
 Lorsque les doigts de Wang Lin pressèrent sur le gaz violet, il ressentit immédiatement une force puissante à l'intérieur. Il ne put s'empêcher de marquer un temps d'arrêt, ses yeux se rétrécissant.
 
-Le messager profita de cet instant pour reculer de nouveau. Un sourire narquois apparut sur les lèvres de Wang Lin; il leva sa main droite et le Tatouage d'Os de Bête s'envola aussitôt. Une aura maléfique passa en éclair et une lumière grise apparut au pied du messager.
+Le messager profita de cet instant pour reculer de nouveau. Un sourire narquois apparut sur les lèvres de Wang Lin; il leva sa main droite et le Tatouage d'Os de Bête se mit à remuer et se matérialisa aussitôt. Une aura maléfique passa en éclair et une lumière grise apparut au pied du messager.
 
 Le visage de ce dernier devint livide alors que le gaz violet tentait de résister à la lumière grise. À cet instant, Wang Lin se rapprocha et utilisa le sort d'Arrêt.
 
@@ -82,11 +82,11 @@ Un bruit de craquement retentit aussitôt, puis le corps du messager se fragment
 
 À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Yang Corporel — soutenus par certains cultivateurs de l'Yin Illusoire — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
 
-C'est à cet instant qu'un éclat argenté jaillit et que du sang jaillit de la poitrine de l'un des messagers. Ses yeux s'éteignirent et son âme originelle s'échappa pour fuir.
+C'est à cet instant qu'un éclat argenté jaillit et que du sang jaillit de la poitrine de l'un des messagers. Ses yeux s'éteignirent et son âme originelle s'échappa pour fuir en emportant son sac de rangement.
 
 Avant que Wang Lin n'ait pu agir, des dizaines de cultivateurs Ascendants attaquèrent avec des yeux injectés de sang, accompagnant le rayon argenté qui poursuivait l'âme. Un instant plus tard, ce messager était mort!
 
-À cet instant, les trois messagers avaient fini d'activer la formation. Puis, sans aucune hésitation, ils entrelacèrent leurs bras et murmurèrent un chant complexe. Immédiatement, la réseau de transfert commença à s'effondrer sur ses bords!
+À cet instant, les trois messagers avaient fini d'activer la formation. Puis, sans aucune hésitation, ils entrelacèrent leurs bras et murmurèrent un chant complexe. Immédiatement, une lumière aveuglante jaillit de ses bords et la réseau de transfert commença à s'effondrer!
 
 En sacrifiant la stabilité des bords de la formation, ils accélérèrent son activation. En un instant, des ondulations apparurent et s'élancèrent vers le ciel. À l'intérieur de ces ondes, les trois messagers affichaient des regards malveillants tandis que leurs silhouettes se déformaient et disparaissaient lentement.
 

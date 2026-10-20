@@ -62,13 +62,13 @@ Sans hésiter, Wang Lin saisit une âme d'origine Yin Illusoire. Après l'avoir 
 
 L'âme d'origine Yin Illusoire trembla et laissa échapper un regard glacial et terrifiant. Wang Lin projeta l'âme d'origine qui disparut dans les profondeurs de la planète.
 
-Wang Lin respirait avec difficulté. Avant que Li Yuan ne parte, il avait enseigné à Wang Lin toutes les restrictions de l'Annihilation. Bien qu'il n'en possédât pas l'héritage complet — ce qui limitait son usage et leur puissance — certaines restaient utilisables!
+Wang Lin respirait avec difficulté. Avant que Li Yuan ne parte, il avait enseigné à Wang Lin toutes les restrictions de l'Annihilation. Bien qu'il n'ait pas hérité du cœur de restriction de l'Annihilation — ce qui limitait leur usage et leur puissance — certaines restaient utilisables!
 
 La Formation des Neuf Morts et du Périssement en faisait partie! Li Yuan l'appelait aussi l'une des trois grandes restrictions interdites.
 
 Cette formation ne nécessitait pas de cœur de restriction, mais une quantité massive d'âmes d'origine. Bien que Li Yuan fût capable de l'utiliser, ses exigences étaient si strictes qu'il ne l'avait jamais réellement mise en place auparavant.
 
-Le visage de Wang Lin était livide, mais il poursuivit sans relâche la collecte des âmes d'origine. Il ne disposait pas de beaucoup d'âmes Illusoires Yin, la plupart ayant été dévorées par lui-même. Il décida donc d'utiliser des âmes d'origine Ascendantes à la place. Il continua de leur appliquer des restrictions avant de les projeter dans la planète.
+Le visage de Wang Lin était légèrement pâle, mais il poursuivit sans relâche la collecte des âmes d'origine. Il ne disposait pas de beaucoup d'âmes Illusoires Yin, la plupart ayant été dévorées par lui-même. Il décida donc d'utiliser des âmes d'origine Ascendantes à la place. Il continua de leur appliquer des restrictions avant de les projeter dans la planète.
 
 Plusieurs heures passèrent et le visage de Wang Lin était devenu encore plus pâle. Ses yeux brillèrent alors qu'il fixait l'âme d'origine de l'Ancêtre Sanguin. Après une courte hésitation, son regard se fit résolu. Il saisit l'âme d'origine de l'Ancêtre Sanguin et plaça une restriction entre ses sourcils. Cependant, il ne la projeta pas dans la planète, la laissant au sein de la brume noire.
 
@@ -184,7 +184,7 @@ Ces cultivateurs arrivés en renfort se précipitèrent à la suite de Wang Lin.
 
 D'innombrables cultivateurs étaient morts à cause de cette grande formation, si bien que le nom de Xu Mu se répandit comme une traînée de poudre dans tout le Système Stellaire Luotian. Même certains vieux monstres portèrent leur regard sur ce conflit entre la famille Yao et Xu Mu.
 
-Tout en résistant de sa propre force aux innombrables familles de cultivateurs et à la famille Yao, non seulement il avait survécu, mais il avait également tué plusieurs personnes, s'adjugeant le titre de Maître Démon. Puis, en utilisant une formation, il avait massacré d'innombrables cultivateurs, ébranlant l'esprit de ses poursuivants!
+Tout en résistant de sa propre force aux innombrables familles de cultivateurs et à la famille Yao, non seulement il avait survécu, mais il avait également tué plusieurs personnes, lui valant le titre de Maître Démon. Puis, en utilisant une formation, il avait massacré d'innombrables cultivateurs, ébranlant l'esprit de ses poursuivants!
 
 Il avait même effrayé des familles de cultivateurs au point de les faire reculer. Cela fit de Xu Mu une nouvelle étoile montante dans le Système Stellaire Luotian!
 

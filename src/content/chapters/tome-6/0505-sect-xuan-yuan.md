@@ -24,7 +24,7 @@ Outre ces cinq planètes, de nombreux autres astres plus modestes orbitent autou
 
 Zhao Si était l'un des gardes chargés de cette zone. Il s'était réveillé tôt le matin et n'avait cessé de rester assis en position de lotus devant le réseau depuis lors.
 
-Zhao Si était un disciple de la cinquième génération de la Division Verte. Il cultivait depuis 700 ans et avait atteint le stade intermédiaire de la Formation de l'Âme. Il était plus ou moins satisfait de sa vie. Il faut dire que le simple fait d'être un disciple de la Secte du Destin Céleste lui conférait un rang très élevé sur cette planète. Partout où il allait, il était admiré et respecté.
+Zhao Si était un disciple de la cinquième génération de la Division Verte. Il cultivait depuis plus de 700 ans et avait atteint le stade intermédiaire de la Formation de l'Âme. Il était plus ou moins satisfait de sa vie. Il faut dire que le simple fait d'être un disciple de la Secte du Destin Céleste lui conférait un rang très élevé sur cette planète. Partout où il allait, il était admiré et respecté.
 
 Zhao Si ouvrit les yeux et laissa échapper un long soupir.
 
@@ -44,7 +44,7 @@ D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis q
 
 Au moment où le soleil commençait à poindre à l'horizon, le rayon de lumière violette ralentit, permettant à Zhao Si d'apercevoir l'individu qu'il transportait.
 
-L'homme avait de longs cheveux simplement noués derrière la tête. Vêtu d'une robe pourpre, il franchit la distance de 33 mètres devant Zhao Si en un seul pas. Il lança ensuite un regard glacial au garde.
+L'homme avait de longs cheveux simplement noués derrière la tête. Vêtu d'une robe pourpre, il s'immobilisa à 33 mètres devant Zhao Si. Il lança ensuite un regard glacial au garde.
 
 Le regard de Zhao Si tomba sur le jeton suspendu à la taille de l'inconnu. Sur ce jeton, un chiffre « sept » était clairement gravé.
 

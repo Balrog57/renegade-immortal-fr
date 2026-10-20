@@ -76,7 +76,7 @@ Ce n'est que lorsque Wang Lin fut loin que Yun Kong esquissa un sourire, mais c'
 
 L'ensemble de la Mer des Pilules était devenu le domaine du Continent du Démon Vert!
 
-À l'extérieur de la Mer des Pilules, au-dessus du Continent du Taureau Céleste, Wang Lin vola sur des dizaines de milliers de kilomètres. Du sang s'écoulait du coin de sa bouche alors qu'il se retournait pour contempler la restriction entourant la Mer des Pilules d'un regard venimeux.
+À l'extérieur de la Mer des Pilules, au-dessus du Continent du Taureau Céleste, Wang Lin vola sur mille kilomètres et s'arrêta un instant. Du sang s'écoulait du coin de sa bouche alors qu'il se retournait pour contempler la restriction entourant la Mer des Pilules d'un regard venimeux.
 
 « Tigre Blanc, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin de la Secte de la Grande Âme mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
 
@@ -98,7 +98,7 @@ Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la 
 
 « Depuis mon arrivée sur le Continent Astral Immortel, je n'ai jamais subi une telle perte! Yun Kong, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La culture de Yun Kong était très étrange; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée!
 
-Wang Lin avait déjà extrait le Sens Divin de Yan Luan de plusieurs trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
+Wang Lin avait déjà effacé le Sens Divin de Yan Luan de plusieurs trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
 
 Ayant pris sa décision, il chargea vers la Mer des Pilules.
 

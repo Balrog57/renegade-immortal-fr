@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 334 - Lifting a Mountain
 slug: soulever-une-montagne
 ---
-Les quatre d'entre eux survolèrent lentement la partie extérieure de la Mer des Diables jusqu'à ce qu'ils atteignent la Secte de la Lutte contre le Mal, près de la ville de Nan Dou.
+Les quatre d'entre eux survolèrent lentement la partie extérieure de la Mer des Démons jusqu'à ce qu'ils atteignent l'ancien siège de la Secte de la Lutte contre le Mal, près de la ville de Nan Dou.
 
 Devant eux se dressait une montagne gigantesque. Le sommet avait été sculpté par quelqu'un pour représenter une tête de dragon. Vu d'en haut, on aurait dit un dragon colossal s'enroulant autour de la montagne.
 
@@ -22,9 +22,9 @@ Wang Lin hocha la tête et répondit: « Le temps passe et les gens changent. »
 
 Li Muwan se tourna vers l'endroit où se trouvait autrefois leur grotte et dit: « Je me demande si notre ancienne demeure existe encore. »
 
-Wang Lin esquissa un léger sourire et passa son bras autour de la taille de Li Muwan. Tous deux disparurent dans un rayon de lumière. Lu Fei et Tie Yan les suivirent rapidement, leurs sens divins déployés. Après tout, c'était la Mer des Diables, pas Chu.
+Wang Lin esquissa un léger sourire et passa son bras autour de la taille de Li Muwan. Tous deux disparurent dans un rayon de lumière. Lu Fei et Tie Yan les suivirent rapidement, leurs sens divins déployés. Après tout, c'était la Mer des Démons, pas Chu.
 
-Resté en retrait derrière Wang Lin et Li Muwan, Lu Fei soupira: « Il semble que la rumeur selon laquelle l'Aînée Li avait vécu un temps dans la Mer des Diables soit vraie. »
+Resté en retrait derrière Wang Lin et Li Muwan, Lu Fei soupira: « Il semble que la rumeur selon laquelle l'Aînée Li avait vécu un temps dans la Mer des Démons soit vraie. »
 
 Tie Yan répondit: « C'est peut-être ainsi que le Maître de Secte et l'Aînée Li se sont rencontrés. Frère Lu, il semble que votre culture se soit un peu améliorée. »
 
@@ -74,13 +74,13 @@ Wang Lin se frotta le nez et sourit sans dire un mot.
 
 Après avoir passé trois jours dans la grotte, Li Muwan repartit à contrecœur. Wang Lin traça un sceau de la main droite et projeta une restriction sur la montagne, puis, avec Li Muwan, ils volèrent vers la Cité des Rebelles Démoniaques.
 
-Ce voyage dans la Mer des Diables avait rendu Wang Lin heureux; l'aura mortelle de Li Muwan avait nettement diminué.
+Ce voyage dans la Mer des Démons avait rendu Wang Lin heureux; l'aura mortelle de Li Muwan avait un peu diminué.
 
 En utilisant les anciens réseaux de transfert, ils apparurent devant la Cité des Rebelles Démoniaques après huit jours de voyage.
 
 Après avoir payé quelques pierres spirituelles pour entrer, Lu Fei trouva rapidement une auberge pour le groupe.
 
-Tie Yan ayant déjà voyagé dans la Mer des Diables lorsqu'il était jeune, il était bien plus expérimenté que Lu Fei. Wang Lin ordonna à Tie Yan de se rendre au Pavillon de Raffinage des Trésors; celui-ci revint avec une invitation.
+Tie Yan ayant déjà voyagé dans la Mer des Démons lorsqu'il était jeune, il était bien plus expérimenté que Lu Fei. Wang Lin ordonna à Tie Yan de se rendre au Pavillon de Raffinage des Trésors; celui-ci revint avec une invitation.
 
 « Maître de Secte, l'enchère aura lieu dans sept jours. Voici l'invitation. » Tie Yan remit respectueusement le précieux document à Wang Lin.
 
@@ -106,9 +106,9 @@ Mais ce qui choqua le plus l'assemblée, ce fut Lu Fei et Tie Yan!
 
 Des cultivateurs du stade avancé de l'Âme Naissante!
 
-Même dans la Mer des Diables, les cultivateurs de ce niveau étaient rares. Dans la grande salle même, moins de cinq personnes avaient atteint une telle culture.
+Même dans la Mer des Démons, les cultivateurs de ce niveau étaient rares. Dans la grande salle même, moins de cinq personnes avaient atteint une telle culture.
 
-Où que ce soit dans la Mer des Diables, ces individus étaient le genre de personnes capables de provoquer un séisme d'un simple pas.
+Où que ce soit dans la Mer des Démons, ces individus étaient le genre de personnes capables de provoquer un séisme d'un simple pas.
 
 L'apparition de ces deux-là n'aurait normalement pas été si extraordinaire, mais vu leur position, ils semblaient n'être que les serviteurs d'un mortel. Comment ne pas être scandalisé?
 
@@ -122,7 +122,7 @@ En sortant de la pièce, son dos était trempé de sueur. Il prit une grande ins
 
 Après que Wang Lin eut quitté le Pavillon ce jour-là, l'homme interrogea un vieillard à son sujet. Ce vieillard était pourtant un cultivateur du stade avancé de l'Âme Naissante, mais il s'était recroquevillé après avoir simplement croisé le regard de Wang Lin. Un tel comportement ne pouvait venir que d'un être ayant atteint le légendaire stade de la Formation de l'Âme. L'homme d'âge moyen ne voyait aucune autre explication possible.
 
-Les cultivateurs de la Formation de l'Âme étaient des entités que personne n'osait provoquer dans la Mer des Diables.
+Les cultivateurs de la Formation de l'Âme étaient des entités que personne n'osait provoquer dans la Mer des Démons.
 
 Si le Pavillon de Raffinage des Trésors avait pu s'implanter et prospérer ici, c'était précisément parce qu'il bénéficiait de la protection d'un cultivateur de la Formation de l'Âme.
 
@@ -144,4 +144,4 @@ Elle adressa quelques paroles respectueuses avant de s'éclipser.
 
 « Un cultivateur de la Formation de l'Âme suspect? » Les yeux du vieil homme s'illuminèrent, puis il disparut brusquement.
 
-Cet homme était celui que Wang Lin avait rencontré lorsqu'il n'était qu'au stade de la Formation du Noyau, et également celui croisé lors de sa seconde visite dans les Étoiles Brisées du Chaos. C'était le cultivateur qui chevauchait un taotie.
+Cet homme était celui que Wang Lin avait rencontré lorsqu'il n'était qu'au stade de la Formation du Noyau, et également celui croisé lors de sa seconde visite près des Étoiles Brisées du Chaos. C'était le cultivateur qui chevauchait un taotie.

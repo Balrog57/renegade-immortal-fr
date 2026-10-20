@@ -16,7 +16,7 @@ Le brouillard se mit à bouillonner comme s'il abritait un esprit, balayant les 
 
 Cette brume tourbillonnante s'étendit violemment dans toutes les directions. À l'origine, de nombreux cultivateurs observaient les lisières du brouillard; certains même, très puissants, s'aventuraient à l'intérieur pour inspecter la zone. Cependant, leurs expressions changèrent soudainement et ils entamèrent une retraite précipitée.
 
-L'ouverture de la Tombe de l'Ordre Ancien avait attiré l'attention de tous les puissants cultivateurs du Système Stellaire Antique. Tous avaient tout abandonné pour se précipiter ici.
+L'ouverture de la Tombe de l'Ordre Ancien avait attiré l'attention de la quasi-totalité des puissants cultivateurs du Système Stellaire Antique. Tous avaient tout abandonné pour se précipiter ici.
 
 Pourtant, à cet instant, ces êtres furent frappés de stupeur et durent fuir!
 
@@ -46,7 +46,7 @@ L'avatar du Maître Dao Miao Yin, ce magnifique jeune homme, battait en retraite
 
 « La Tombe de l'Ordre Ancien... c'est bien elle! Les rumeurs disent que cette tombe n'a été ouverte qu'une seule fois depuis l'aube des temps! Quiconque parviendra à y entrer obtiendra des fortunes inimaginables! »
 
-« Qu'il s'agisse de trésors, de sorts, de pilules ou même de méthodes permettant aux cultivateurs de la troisième étape d'atteindre le royaume du Tribulant du Vide! »
+« Qu'il s'agisse de trésors, de sorts, de pilules ou même de méthodes permettant aux cultivateurs de la troisième étape d'atteindre le royaume de la Tribulation du Vide! »
 
 L'expression du Maître Dao Miao Yin était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume de la Flamme Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
 
@@ -54,7 +54,7 @@ Il était encerclé par ces âmes; de prime abord, on voyait qu'il s'agissait de
 
 « Chargez! » Le visage du Maître Dao Miao Yin se crispa. Il cessa sa retraite pour charger en avant.
 
-Une puissance inimaginable émanait de l'intérieur du brouillard; une force à laquelle nul ne pouvait résister. Alors que cette puissance s'abattait sur le Maître Dao Miao Yin, plus de 40 % des âmes de Flamme Joss furent anéanties!
+Une puissance inimaginable émanait de l'intérieur du brouillard; une force à laquelle nul ne pouvait résister. Alors que cette puissance s'abattait sur le Maître Dao Miao Yin, 40 % des âmes de Flamme Joss furent anéanties!
 
 Le visage du Maître Dao Miao Yin devint livide. À cet instant, il n'avait fait que trois pas en avant!
 

@@ -42,7 +42,7 @@ Le nombre de créatures était terrifiant. Wang Lin ne pouvait absolument pas le
 
 Le roi moustique avait bu deux gorgées de sang et son corps dégageait désormais une lueur dorée. Une pression bien plus intense que la précédente s'abattit sur la zone!
 
-En un instant, près de 10 000 bêtes moustiques rouges tremblèrent. Elles étaient les plus proches du roi moustique de Wang Lin et, après un moment d'hésitation, une lueur d'adoration apparut dans leurs yeux. Elles encerclèrent le roi moustique de Wang Lin et formèrent un nuage rouge qui les emporta au loin.
+En un instant, près de 10 000 bêtes moustiques rouges tremblèrent. Elles étaient les plus proches du roi moustique de Wang Lin et, après un moment d'hésitation, une lueur de révérence apparut dans leurs yeux. Elles encerclèrent le roi moustique de Wang Lin et formèrent un nuage rouge qui les emporta au loin.
 
 Près de 1 000 bêtes moustiques bleues firent également leur choix et chargèrent dans le nuage rouge, poussant des rugissements comme pour répondre à l'appel du roi moustique.
 
@@ -54,7 +54,7 @@ Lorsqu'elle rugit, son hésitation disparut pour laisser place à un regard dét
 
 En voyant cette bête moustique violette, Wang Lin afficha une expression de joie! Une bête moustique violette possédait une aura équivalente à celle d'un cultivateur au sommet du Briseur du Nirvana!
 
-La joie de Wang Lin ne s'arrêta pas là; une autre émotion l'envahit. Alors que la première bête violette approchait, une autre, d'un violet pâle, décida elle aussi de suivre!
+La joie de Wang Lin ne s'arrêta pas là; une nouvelle joie l'envahit. Alors que la première bête violette approchait, une autre, d'un violet pâle, décida elle aussi de suivre!
 
 Wang Lin prit une profonde inspiration pour réprimer son excitation. Ce voyage en valait la peine!
 
@@ -80,7 +80,7 @@ Le roi moustique de Wang Lin survolait rapidement le monde avec plus de 10 000 b
 
 Après plusieurs heures, l'essaim traversait le ciel. Wang Lin, debout sur le dos du roi moustique, se retourna soudainement. Loin derrière lui, il apercevait un nuage rouge qui se propageait, accompagné par le bruit des formations qui s'effondraient. Les yeux de Wang Lin restèrent calmes; il afficha un regard glacial et leva la main pour poser une grande quantité de restrictions.
 
-Tandis que l'essaim traversait le ciel, Wang Lin continuait de déployer d'innombrables restrictions. C'était grâce à l'effondrement de ces barrières que son troupeau parvenait à garder l'avantage.
+Tandis que l'essaim traversait le ciel, Wang Lin continuait de déployer d'innombrables restrictions. C'était grâce à l'effondrement de ces barrières que son troupeau pouvait filer sans la moindre pause.
 
 Cependant, les bêtes moustiques poursuivantes se rapprochaient de plus en plus, et une bourrasque de vent à l'odeur fétide s'approchait d'eux. Les yeux de Wang Lin s'illuminèrent alors que son esprit pénétrait dans le Sceau Céleste pour fusionner avec l'âme de l'Omniscient.
 
@@ -98,7 +98,7 @@ Une boussole gigantesque surgit de nulle part. Large de 10 000 pieds, elle déga
 
 Dans sa rotation, une force puissante se propagea.
 
-Les yeux de Wang Lin s'illuminèrent alors que son esprit se sépare de celui de l'Omniscient. Son visage pâlit; après tout, il était trop gravement blessé et ne s'était pas encore rétabli. À cet instant, au lieu de contempler le résultat du sort des Désobéissants, il ouvrit les bras. Un gaz noir apparut et se transforma en dragons sombres qui encerclèrent l'essaim de moustiques, les emportant rapidement au loin!
+Les yeux de Wang Lin s'illuminèrent alors que son esprit se sépare de celui de l'Omniscient. Son visage pâlit; après tout, il était trop gravement blessé et ne s'était pas encore rétabli. À cet instant, au lieu de contempler le résultat du sort des Désobéissants, il ouvrit les bras. Un gaz noir apparut et se transforma en dragons sombres qui encerclèrent les dix mille bêtes de son essaim, qui reprit sa fuite au loin!
 
 Peu après, un grondement sourd provint de derrière Wang Lin. Le monde lui-même semblait trembler sous l'onde de choc puissante qui se propageait. Sans se retourner, Wang Lin fonça comme un fou avec son essaim.
 

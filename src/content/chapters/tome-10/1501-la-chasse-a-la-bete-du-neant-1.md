@@ -22,7 +22,7 @@ Le Sens Divin était affecté par la brume, rendant toute exploration de la zone
 
 La silhouette de Wang Lin apparut à la lisière de cette zone alors que des ondulations se propageaient sous lui. En contemplant le brouillard dense qui se dressait devant lui, ses yeux s'illuminèrent.
 
-Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici dans le corps de cette créature exotique. Puis, il avait fait sortir les membres du Clan des Immortels Délaissés et avait découvert ce brouillard.
+Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici dans le corps de cette créature exotique. Puis, il avait fait sortir les membres du Clan des Immortels Élus.
 
 Il avait également entrevu, en se retournant, cette immense créature semblable à une baleine: la Bête des Limbes!
 

@@ -60,7 +60,7 @@ Face à cette aura meurtrière, Du Qing recula encore de plusieurs pas. Il ne re
 
 La formation de l'essence du massacre signifiait que les mains de celui qui la possédait étaient trempées dans le sang. Il fallait avoir mis fin à d'innombrables vies pour qu'elle puisse émerger. Du moins, c'était ce que croyait Du Qing.
 
-« Damnation, il possède vraiment l'essence du massacre. Il... combien de personnes a-t-il tuées? C’est un homme extrêmement vicieux! »
+« Damnation, il possède vraiment l'essence du massacre. Il... combien de personnes a-t-il tuées? C’est un monstre sans pareil! »
 
 « Essence de la restriction, apparais! » Les paroles de Wang Lin frappèrent Du Qing comme un coup de poing massif, le faisant reculer de plus de cent pieds. Il vit des lignes de sang apparaître dans les yeux de Wang Lin; elles s'en échappèrent pour former une restriction.
 

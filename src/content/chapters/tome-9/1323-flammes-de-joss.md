@@ -66,7 +66,7 @@ Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sou
 
 Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, qui s'était échappé jadis du Royaume de la Pluie, et frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
 
-Cependant, cet homme s'était évidemment montré incapable de résister aux attaques dévastatrices de Tuo Sen et finit gravement blessé par ce dernier. Puis, lorsque l'os fut brisé en deux, son corps s'effondra sous la force de l'onde de choc de l'aura du dieu ancien.
+Cependant, cet homme s'était évidemment montré incapable de résister aux attaques dévastatrices de Tuo Sen et finit gravement blessé par ce dernier. Puis, lorsque l'os fut brisé en deux, son corps s'effondra et se dissipa sous la force de l'onde de choc de l'aura du dieu ancien.
 
 Même son âme originelle était lourdement endommagée, ce qui offrit à Wang Lin l'occasion de le capturer.
 
@@ -100,7 +100,7 @@ Le corps du vieillard fut secoué violemment et sa résistance s'effondra. Ses y
 
 Après un long moment, Wang Lin leva la main droite, l'expression extrêmement sérieuse.
 
-L'âme originelle du vieil homme aux cheveux blancs était désormais totalement transparente et commençait à se dissiper lentement. Cependant, au moment de sa disparition, une lueur de lumière sanguine jaillit: l'Épée de Sang perça son crâne et le détruisit complètement!
+L'âme originelle du vieil homme aux cheveux blancs était désormais totalement transparente et commençait à se dissiper lentement. Cependant, au moment de sa disparition, une lueur de lumière sanguine jaillit: l'Épée de Sang perça son crâne, traversa tout son être et le détruisit complètement!
 
 Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'intérieur du Monde du Vent et de la Pluie. Il s'y assit, dégageant une quantité phénoménale d'aura blanc laiteux...
 

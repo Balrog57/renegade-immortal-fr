@@ -38,17 +38,17 @@ Wang Lin haleta et fixa la veine métallique située non loin.
 
 « Si j'avais tenté de prendre cette veine, je crains que je n'eusse immédiatement réveillé ce Serpent aux yeux de lune. Je serais alors mort sur le coup. Il est peu probable qu'il s'éveille complètement, mais il lui suffirait d'un instant de conscience pour tuer quiconque tenterait de voler son os. » Wang Lin comprit enfin pourquoi aucun puissant cultivateur n'était venu tenter sa chance. Ce n'était pas par manque de désir, mais par manque d'audace.
 
-« Je pense que d'autres sont venus ici auparavant, mais ils ont tous péri. D'une certaine manière, l'homme de la famille Huan a été très intelligent. Il n'a prélevé qu'une petite partie en surface avant de partir immédiatement. S'il avait pris davantage, il aurait suffisamment stimulé le Serpent aux yeux de lune pour l'éveiller. La chance a peut-être aussi joué. Pour n'importe qui d'autre, la moindre incision aurait pu provoquer son réveil. »
+« Je pense que d'autres sont venus ici auparavant, mais ils ont tous péri. D'une certaine manière, l'homme de la famille Huan, mort depuis, a été très intelligent. Il n'a prélevé qu'une petite partie en surface avant de partir immédiatement. S'il avait pris davantage, il aurait suffisamment stimulé le Serpent aux yeux de lune pour l'éveiller. La chance a peut-être aussi joué. Pour n'importe qui d'autre, la moindre incision aurait pu provoquer son réveil. »
 
 Des centaines de pensées traversèrent l'esprit de Wang Lin. Il savait qu'il devait quitter les lieux sans plus tarder, mais en regardant la veine, il ressentit une immense frustration à l'idée de repartir les mains vides.
 
-« Ce que je désire, c'est l'os tout entier, mais le Serpent aux yeux de lune s'éveillera totalement si j'essaie de le prendre. Si je fais cela, son corps passera en mode offensif et je mourrai à coup sûr... Pourtant, je refuse de renoncer ainsi! Ah! » Wang Lin laissa échapper un soupir et ses yeux brillèrent d'une lueur nouvelle. Il se remémora tout ce qu'il savait sur le Serpent aux yeux de lune grâce aux souvenirs de l'Ancien Dieu.
+« Ce que je désire, c'est l'os tout entier, mais le Serpent aux yeux de lune s'éveillera totalement si j'essaie de le prendre. Si je fais cela, son corps passera en mode offensif et je mourrai à coup sûr... Pourtant, je refuse de renoncer ainsi! Ah! » Wang Lin laissa échapper un soupir et ses yeux brillèrent d'une lueur nouvelle. Il se remémora tout ce qu'il savait sur le Serpent aux yeux de lune grâce aux souvenirs de l'Ancien Dieu Tu Si.
 
 « Aucune autre existence ne connaît ces parasites aussi bien que les Anciens Dieux; c'est là mon avantage. Ce Serpent aux yeux de lune se nourrit du sang des Anciens Dieux... »
 
 « Les tentacules sont leurs organes les plus sensibles... Quelle méthode puis-je utiliser pour extraire l'os sans le réveiller... »
 
-Une lumière mystérieuse envahit le regard de Wang Lin alors qu'il murmurait pour lui-même: « À l'époque où j'ai dévoré tous ces Fruits de l'Ascension Céleste, j'étais empreint d'une forme de folie. À ce moment-là, même si quelqu'un avait arraché mes os, je crains que je ne l'aurais pas senti. Si je parviens à plonger ce Serpent aux yeux de lune dans un état d'illusion pendant qu'il dort encore, peut-être pourrai-je alors prendre son os... »
+Une lumière mystérieuse envahit le regard de Wang Lin alors qu'il murmurait pour lui-même: « À l'époque où j'ai avalé ce Fruit de l'Ascension Céleste, j'étais empreint d'une forme de folie. À ce moment-là, même si quelqu'un avait arraché mes os, je crains que je ne l'aurais pas senti. Si je parviens à plonger ce Serpent aux yeux de lune dans un état d'illusion pendant qu'il dort encore, peut-être pourrai-je alors prendre son os... »
 
 Wang Lin réfléchit un instant en contemplant la veine métallique avec regret, puis il poussa un soupir. D'un pas, il se retrouva déjà au-dessus du sol, avant de se téléporter dans les airs pour réapparaître à l'extérieur de la planète Yun Xia. La boussole stellaire apparut et le transporta rapidement loin de la planète.
 

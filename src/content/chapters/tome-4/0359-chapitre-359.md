@@ -36,7 +36,7 @@ Après avoir songé encore un moment, Wang Lin soupira de nouveau avant de quitt
 
 Pays de Xue Yu.
 
-À l'intérieur du Temple de la Glace Sacrée siégeait un homme d'âge moyen à l'apparence extrêmement ordinaire. Devant lui se trouvait un service à thé rouge sombre.
+À l'intérieur du Temple de la Glace Sacrée, dans un palais entièrement taillé dans des cristaux de glace, siégeait un homme d'âge moyen à l'apparence extrêmement ordinaire. Devant lui se trouvait un service à thé rouge sombre.
 
 À ses côtés se tenaient deux personnes, un homme et une femme, tous deux aux cheveux d'un blanc immaculé.
 
@@ -56,7 +56,7 @@ Les deux personnes s'approchèrent rapidement, saisirent les tasses et burent. C
 
 Le cœur de l'homme d'âge moyen se serra en voyant la vieille femme gaspiller ce thé précieux, et il répondit: « Ce Ceng Niu n'est qu'un moins que rien. Si le Mont Suzaku n'avait pas envoyé un message ordonnant de ne pas s'en prendre à lui, quelqu'un l'aurait déjà tué. »
 
-La vieille femme leva la tête et répliqua: « Mais il a osé prendre l'un des bras de Papillon Rouge! Rappelez-vous, Papillon Rouge est l'espoir de Xue Yu. Maître de secte, vous n'avez atteint le stade de la Transformation de l'Âme que grâce à elle! »
+La vieille femme leva la tête et répliqua: « Mais il a osé arracher un bras à Papillon Rouge! Rappelez-vous, Papillon Rouge est l'espoir de Xue Yu. Maître de secte, vous n'avez atteint le stade de la Transformation de l'Âme que grâce à elle! »
 
 Quant au vieil homme, il baissa la tête et but son thé en silence.
 
@@ -64,19 +64,19 @@ Le regard de l'homme d'âge moyen devint glacial et il dit lentement à la vieil
 
 La vieille femme réfléchit longuement avant de dire: « Je vais tout de même demander au Maître de secte d'agir. »
 
-L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions, une épée volante capable de briser n'importe quelle défense et, en plus de tout cela, Liao Fan a pu confirmer qu'il connaît la méthode de culture de l'Ascension des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
+L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions, une épée volante capable de briser n'importe quelle défense et, en plus de tout cela, Liao Fan a pu confirmer qu'il maîtrise les techniques de l'ancien Dao des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
 
 La vieille femme fut stupéfaite: « Il semble que le Maître de secte ait enquêté sur cet homme. »
 
-L'homme d'âge moyen hocha la tête: « Comment pourrais-je ignorer quelqu'un qui a attiré l'attention du Mont Suzaku, lequel a proposé un combat contre Papillon Rouge? Le titre de Suzaku doit appartenir à Papillon Rouge. Comment pourrais-je laisser un autre le lui ravir? J'ai envoyé Liao Fan sonder le terrain avec mes trésors, ce qui m'a permis d'apprendre quelques informations. »
+L'homme d'âge moyen hocha la tête: « Comment pourrais-je ignorer quelqu'un que le Mont Suzaku a remarqué et qui a proposé un combat contre Papillon Rouge? Le titre de Suzaku doit appartenir à Papillon Rouge. Comment pourrais-je laisser un autre le lui ravir? J'ai envoyé Liao Fan sonder le terrain avec mes trésors, ce qui m'a permis d'apprendre quelques informations. »
 
 La vieille femme inclina respectueusement la tête et ne dit plus rien.
 
-L'homme d'âge moyen prit une autre gorgée et poursuivit lentement: « Ce n'est pas encore le moment de l'exécuter. Nous devrons attendre la fin de son combat contre Papillon Rouge. À ce moment-là, qu'il gagne ou qu'il perde, j'agirai personnellement pour le tuer. Cet homme est aussi très doué pour la fuite. J'ai reçu des nouvelles de mes alliés du Clan des Démons Géants selon lesquelles leur compas stellaire pourrait également être en sa possession. Avec ce compas, une fois qu'il aura ouvert une faille spatiale pour entrer dans le vide, personne, si ce n'est un cultivateur au stade avancé de la Transformation de l'Âme, ne pourra le rattraper. »
+L'homme d'âge moyen prit une autre gorgée et poursuivit lentement: « Ce n'est pas encore le moment de l'exécuter. Nous devrons attendre la fin de son combat contre Papillon Rouge. À ce moment-là, qu'il gagne ou qu'il perde, j'agirai personnellement pour le tuer. Cet homme est aussi très doué pour la fuite. J'ai reçu des nouvelles de mes alliés du Clan des Démons Géants selon lesquelles leur boussole stellaire pourrait également être en sa possession. Avec ce compas, une fois qu'il aura ouvert une faille spatiale pour entrer dans le vide, personne, si ce n'est un cultivateur au stade avancé de la Transformation de l'Âme, ne pourra le rattraper. »
 
 La vieille femme fronça les sourcils et demanda: « Que voulez-vous dire par là, Maître de secte? »
 
-L'homme d'âge moyen répondit d'un ton neutre: « Si nous voulons le tuer, nous devons réussir du premier coup. Si j'interviens maintenant, il s'échappera à coup sûr. Ainsi, dès que le combat commencera, je déploierai une formation pour l'empêcher de déchirer l'espace, et je solliciterai également l'aide du Clan des Démons Géants. Avec deux cultivateurs au stade avancé de la Transformation de l'Âme, peu importe sa puissance, il ne reste qu'un cultivateur de la Formation de l'Âme. Si j'agis, je m'assurerai de réussir! »
+L'homme d'âge moyen répondit d'un ton neutre: « Si nous voulons le tuer, nous devons réussir du premier coup. Si j'interviens maintenant, il s'échappera à coup sûr. Ainsi, dès que le combat commencera, je déploierai une formation pour l'empêcher de déchirer l'espace, et je solliciterai également l'aide du Clan des Démons Géants. Avec deux cultivateurs au stade de la Transformation de l'Âme, peu importe sa puissance, il ne reste qu'un cultivateur de la Formation de l'Âme. Si j'agis, je m'assurerai de réussir! »
 
 Le respect sur le visage de la vieille femme s'intensifia.
 
@@ -134,6 +134,6 @@ C'était un fait connu de presque tous. Comment Wang Lin aurait-il pu ne pas com
 
 Il savait que ces vieux maîtres de Suzaku voulaient voir lequel des deux triompherait.
 
-S'il avait été au stade de la Transformation de l'Âme ou au stade avancé de la Formation de l'Âme lorsqu'il avait pris le bras de Papillon Rouge, il aurait certainement été tué. Mais comme il se trouvait au stade initial de la Formation de l'Âme, il avait attiré l'attention d'une grande figure, ce qui lui avait valu ces années de répit.
+S'il avait été au stade de la Transformation de l'Âme ou au stade avancé de la Formation de l'Âme lorsqu'il avait arraché un bras à Papillon Rouge, il aurait certainement été tué. Mais comme il se trouvait au stade initial de la Formation de l'Âme, il avait attiré l'attention d'une grande figure, ce qui lui avait valu ces années de répit.
 
 Les yeux de Wang Lin s'illuminèrent et il prit sa décision.

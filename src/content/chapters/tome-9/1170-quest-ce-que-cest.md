@@ -16,7 +16,7 @@ Après avoir détourné le regard, Wang Lin ne daigna même pas regarder l'homme
 
 Le vieil homme au stand restait calme et observait Wang Lin.
 
-« Cher compagnon cultivateur, de combien de cristaux originels disposez-vous? » demanda Wang Lin avec une nonchalance apparente, tout en jetant un œil à un jeton de jade attaché à la ceinture du vieillard.
+« Cher compagnon cultivateur, de combien de cristaux originels disposez-vous? » demanda Wang Lin avec une nonchalance apparente, tout en jetant un œil à un pendentif de jade attaché à la ceinture du vieillard.
 
 Le visage du vieil homme se crispa légèrement avant qu'il ne sourie. « Pas beaucoup, seulement un; cependant, je ne cherche que des jades célestes et rien d'autre. »
 
@@ -38,13 +38,13 @@ Les spectateurs ne pouvaient entendre ce que Wang Lin et le vieillard s'étaient
 
 Quant aux deux cultivateurs qui encerclaient Wang Lin, ils devinrent de plus en plus nerveux.
 
-Les yeux de Yang Yu s'illuminèrent et il dit: « Vous prenez de grands airs. Vous n'avez pas répondu à ma question! »
+Le regard de Yang Yu se fit perçant et il dit: « Vous prenez de grands airs. Vous n'avez pas répondu à ma question! »
 
 « Faites sortir votre seigneur pour qu'il me parle. » Bien que l'expression de Wang Lin fût calme, ses paroles étaient glaciales. Lorsqu'elles atteignirent leurs oreilles, elles résonnèrent comme un coup de tonnerre.
 
 Les expressions des deux cultivateurs du Purificateur du Nirvana au stade initial changèrent radicalement. Les pupilles de Yang Yu se rétractèrent et il s'apprêta à parler.
 
-Cependant, à cet instant précis, il bougea comme l'éclair et arriva immédiatement aux côtés du cultivateur situé à gauche. Ce dernier, qui était resté sur ses gardes, recula promptement tout en formant un sceau de sa main. Une fleur rouge gigantesque apparut soudainement, s'épanouissant sur plus de cent pieds de haut. Son centre s'ouvrit, révélant une gueule pleine de dents qui tentait d'engloutir Wang Lin.
+Cependant, à cet instant précis, Wang Lin bougea comme l'éclair et arriva immédiatement aux côtés du cultivateur situé à gauche. Ce dernier, qui était resté sur ses gardes, recula promptement tout en formant un sceau de sa main. Une fleur rouge gigantesque apparut soudainement, s'épanouissant sur plus de cent pieds de haut. Son centre s'ouvrit, révélant une gueule pleine de dents qui tentait d'engloutir Wang Lin.
 
 L'expression de Wang Lin resta neutre; au lieu de reculer, il avança. Il disparut sans laisser de trace et la fleur ne dévora que le vide. Wang Lin réapparut derrière le cultivateur et ses deux doigts se posèrent sur le dos de celui-ci.
 
@@ -90,7 +90,7 @@ Le corps de Yang Yu trembla violemment alors qu'il se tenait la tête. Il ne cri
 
 Voyant qu'il était sur le point de sombrer dans l'illusion, Yang Yu continua de reculer et appela à l'aide.
 
-« Maître-Oncle, sauvez-moi!! »
+« Oncle-Maître, sauvez-moi!! »
 
 À l'instant où il parla, une ombre verte apparut devant lui. Un doigt pointa impitoyablement entre les sourcils de Yang Yu. Des craquements résonnèrent dans son corps et un brouillard de sang éclata; il s'effondra alors inconscient.
 
@@ -114,6 +114,6 @@ Quoi qu'il en soit, dans le monde de la culture, les forts sont respectés. Mani
 
 En entendant le vieil homme l'appeler « Compagnon cultivateur Lu », Wang Lin fut encore plus certain de sa direction.
 
-Li Qianmei n'avait cultivé que depuis peu de temps et ne possédait ni le vécu ni l'expérience des joutes d'esprit que Wang Lin avait acquise en affrontant de vieux monstres durant des années. Elle n'avait pas perçu cet indice subtil avant que Wang Lin ne dise: « Faites sortir votre seigneur. » Les yeux de Li Qianmei s'illuminèrent comme si elle venait de comprendre quelque chose.
+Li Qianmei n'avait cultivé que depuis peu de temps et ne possédait ni le vécu ni l'expérience des joutes d'esprit que Wang Lin avait acquise dans l'Alliance en affrontant de vieux monstres durant des années. Elle n'avait pas perçu cet indice subtil avant que Wang Lin ne dise: « Faites sortir votre seigneur. » Les yeux de Li Qianmei s'illuminèrent comme si elle venait de comprendre quelque chose.
 
-« La ruse de cette personne... est encore plus effrayante que sa culture!!! » Li Qianmei regarda Wang Lin avec stupeur.
+« L'intelligence de cette personne... est encore plus effrayante que sa culture!!! » Li Qianmei regarda Wang Lin avec stupeur.

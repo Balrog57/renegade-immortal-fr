@@ -100,7 +100,7 @@ Il ne pouvait plus offrir ce présent avec la même sérénité qu'autrefois à 
 
 Le Maître Dao Bleu Rêve observa la scène, et la colère dans ses yeux fit place à la tristesse. Il regarda Li Qianmei et comprit que le cœur de sa fille était mort.
 
-Son cœur était brisé.
+Elle avait renoncé.
 
 Mu Bingmei observait également la scène. Son humeur était tourmentée et elle ne pouvait plus supporter ce spectacle. Pourtant, elle n'était pas en position de persuader Wang Lin, malgré son statut de mère de Wang Ping.
 
@@ -108,7 +108,7 @@ Voir le père de son propre enfant faire ses adieux à une autre femme infligeai
 
 « Rends-le-moi... » Li Qianmei sourit en s'avançant vers Wang Lin. Elle plongea son regard dans le sien et leva ses mains de jade pour ajuster ses vêtements et ses cheveux. Les larmes qu'elle tentait de contenir finirent par couler.
 
-Elle serra doucement Wang Lin dans ses bras, et ses pleurs mouillèrent sa robe blanche.
+Elle serra doucement Wang Lin dans ses bras, et ses pleurs mouillèrent la robe blanche de Wang Lin.
 
 « Si tu ne m'aimes pas, pourquoi m'as-tu sauvée dans la Mer des Nuages... N'aurait-il pas été préférable que je meure avec un espoir, pour rester gravée dans ta mémoire... Wang Lin... un bienfait n'est pas de l'amour... » murmura Li Qianmei à son oreille avant de se détacher. Elle tendit la main vers le tableau pour partir.
 

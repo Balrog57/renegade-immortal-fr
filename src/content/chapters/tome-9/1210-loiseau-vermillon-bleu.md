@@ -106,4 +106,4 @@ Sous l'Oiseau Vermillon Bleu, une silhouette gracile s'avança, un pas après l'
 
 Le troisième éveil de l'Oiseau Vermillon était une véritable renaissance par le feu!
 
-À cet instant, loin de la Mer des Nuages, dans la zone interdite de l'Alliance où se trouvait la Secte des Quatre Divinités, tous les membres de la Secte Divine de l'Oiseau Vermillon sentirent le feu en leur sein brûler avec frénésie. Pour la première fois, ils perdirent le contrôle de leurs flammes, qui jaillirent de leurs corps pour les envelopper.
+À cet instant, loin de la Mer des Nuages, dans la zone isolée de l'Alliance où se trouvait la Secte des Quatre Divinités, tous les membres de la Secte Divine de l'Oiseau Vermillon sentirent le feu en leur sein brûler avec frénésie. Pour la première fois, ils perdirent le contrôle de leurs flammes, qui jaillirent de leurs corps pour les envelopper.

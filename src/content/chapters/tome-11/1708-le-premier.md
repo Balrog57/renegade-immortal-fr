@@ -36,7 +36,7 @@ L'homme en robe royale resta calme, mais un rictus méprisant naquit en lui.
 
 L'homme en robe royale ne révéla nullement ses véritables pensées, affichant plutôt une pointe de regret. Il secoua la tête et sourit amèrement en s'adressant doucement au Grand Empyréen Xuan Luo à ses côtés:
 
-« Oncle, quatre gouttes, c'est considérable. L'héritier de Ye Mo peut être considéré comme un génie au sein de notre clan Dao. »
+« Oncle, quatre gouttes, c'est considérable. L'héritier de Ye Mo peut aussi servir de palanquin à notre clan Dao. »
 
 L'expression du Grand Empyréen Xuan Luo resta impassible, comme s'il n'avait pas entendu l'homme en robe royale. Il fixait les sourcils de la statue et observait la lumière rouge s'amenuiser jusqu'à ne devenir qu'un mince filet.
 
@@ -52,7 +52,7 @@ Le temps s'écoulait lentement sur le Continent Astral Immortel. À cet instant,
 
 Cette goutte flottait là, immobile et silencieuse, quand soudain un hurlement commença à résonner dans cet espace étrange. Des ondulations surgirent du néant et une aura ancienne et puissante se propagea lentement.
 
-Cette aura surpassait tout ce qui existait dans le monde des cavernes; même le Grand Empyréen ne pouvait lui être comparé. Pourtant, cette présence n'était pas effrayante et n'attira l'attention de personne d'autre. Seul Wang Lin pouvait la ressentir.
+Cette aura surpassait tout ce qui existait dans le monde des cavernes; même le Grand Empyréen ne pouvait lui être comparé. Pourtant, bien qu'effroyable, cette présence n'attira l'attention de personne d'autre. Seul Wang Lin pouvait la ressentir.
 
 Des ondulations parcoururent l'espace au-dessus de l'autel et un vortex gigantesque apparut. Il tourna lentement dans un grondement de tonnerre. Le vortex enveloppa l'autel tout entier et une force colossale se propagea, projetant l'avatar de Wang Lin hors de l'autel.
 
@@ -64,7 +64,7 @@ Wang Lin sentit la goutte de sang de son corps original brûler, libérant une l
 
 Alors que la lumière rouge émanait du vortex, une goutte de sang s'en échappa et fonça vers celle de l'original de Wang Lin. Rapidement, les deux gouttes fusionnèrent pour n'en former qu'une.
 
-À cet instant, l'avatar de Wang Lin se rassoit immédiatement. Une douleur intense lui lacéra l'esprit. Cette souffrance rendait le contrôle de son avatar presque impossible, et il dut concentrer toute son attention sur lui.
+À cet instant, l'avatar de Wang Lin se rassoit immédiatement. Une douleur intense lui lacéra l'esprit. Cette souffrance rendait le contrôle de son avatar presque impossible, et il dut concentrer toute son attention sur la volonté de son corps originel.
 
 Dès qu'il s'assit, sa conscience quitta son avatar pour s'immerger totalement dans cette goutte de sang.
 
@@ -96,7 +96,7 @@ Sa seule force résidait dans sa ténacité, son caractère inflexible et son re
 
 Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'homme en robe royale et de nombreux cultivateurs du pays ancien du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empyréen, ils ne rencontraient que rarement le péril de la mort.
 
-Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était escorté par d'innombrables serviteurs durant sa culture. Quoi qu'il désire, son clan le lui apportait sur un plateau.
+Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était protégé par d'innombrables membres de son clan durant sa culture. Quoi qu'il désire, son clan le lui apportait sur un plateau.
 
 Tandis que Wang Lin serrait Li Muwan contre lui en pleurant, luttant désespérément pour la ressusciter, l'homme en robe royale jouait avec des trésors exotiques offerts par son peuple. Il pouvait choisir n'importe quelle femme pour en faire l'une de ses nombreuses concubines.
 

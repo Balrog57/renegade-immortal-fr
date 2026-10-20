@@ -34,7 +34,7 @@ L'avidité dans ses yeux s'intensifia. D'un revers de main, il fit en sorte que 
 
 L'autre cultivateur s'accroupit pour fouiller une boîte dans un coin. Il poussa soudain un cri en saisissant une sculpture incomplète. Son expression se mua en une grimace étrange alors qu'il sentait une saveur sucrée monter dans sa gorge et qu'il recrachait une bouffée de sang.
 
-Il jeta précipitement l'objet et recula, comme s'il faisait face à une créature antique.
+Il jeta précipitement l'objet et recula, comme s'il faisait face à une bête féroce des temps anciens.
 
 En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur du sommet du stade de l'Âme Naissante. Avec son niveau de culture de Formation du Noyau, il était incapable de résister.
 
@@ -78,7 +78,7 @@ Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parvienn
 
 Après avoir réfléchi un instant, ils se considérèrent comme extrêmement chanceux et s'éclipsèrent rapidement. Ces deux cultivateurs étaient ceux du palais.
 
-Ayant remarqué l'anomalie de la sculpture, ils étaient allés trouver Xu Tao qui s'amusait, pour découvrir l'existence de cette boutique. Mais après ce qui venait de se passer, ils n'osaient plus songer à quoi que ce soit concernant cet établissement.
+Ayant remarqué le caractère extraordinaire de la sculpture, ils étaient allés trouver Xu Tao qui s'amusait, pour découvrir l'existence de cette boutique. Mais après ce qui venait de se passer, ils n'osaient plus songer à quoi que ce soit concernant cet établissement.
 
 Ils ignoraient que Wang Lin avait déjà laissé son sens divin sur eux. S'ils nourrissaient la moindre pensée malveillante à son égard, ils seraient instantanément tués.
 
@@ -113,15 +113,15 @@ Au fil de ces deux ans, la boutique de Wang Lin avait acquis une certaine renomm
 
 Cependant, les visiteurs les plus fréquents n'étaient pas des mortels, mais des cultivateurs. Six clients sur dix étaient des pratiquants.
 
-Chaque cultivateur venu achetait des sculptures avec de l'or mortel. En deux ans, il en avait vendu beaucoup et avait accumulé une fortune en or et en argent.
+Chaque cultivateur venu achetait des sculptures avec de l'or mortel. En deux ans, il en avait vendu beaucoup et avait amassé un grand panier d'or et d'argent.
 
 La rumeur selon laquelle un être extraordinaire résidait dans le quartier ouest de la capitale s'était progressivement propagée parmi les cultivateurs.
 
-Le cœur de Wang Lin demeurait serein. Son souhait était toujours de vivre une vie de mortel. La boutique n'était qu'un outil pour cette expérience, et les sculptures en étaient le support.
+Le cœur de Wang Lin demeurait serein. Son souhait était toujours de vivre une vie de mortel. La boutique n'était qu'un outil pour comprendre les cieux, et les sculptures en étaient de même.
 
 La nouvelle année approchait et la capitale était devenue très animée. Wang Lin sortit de sa boutique et s'assit à l'extérieur, le regard empreint de nostalgie.
 
-C'était le troisième Nouvel An qu'il traversait depuis son arrivée. Chaque fois, l'expérience était différente, sauf pour une chose: le regret qu'il éprouvait envers son enfance.
+C'était le troisième Nouvel An qu'il traversait depuis son arrivée. Chaque fois, l'expérience était différente, sauf pour une chose: la nostalgie de son enfance.
 
 Da Niu déboula de la forge située de l'autre côté de la rue, des feux d'artifice à la main, s'amusant joyeusement avec eux. En voyant l'enfant, un sentiment de bonheur traversa les yeux de Wang Lin. Il avait vu ce gamin grandir, passant d'un enfant de onze ans à un adolescent de quatorze ans.
 

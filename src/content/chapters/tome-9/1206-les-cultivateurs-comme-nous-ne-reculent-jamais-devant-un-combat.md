@@ -20,8 +20,6 @@ Pourtant, à cet instant, sans même savoir pourquoi, en voyant cette scène —
 
 Les cris des êtres célestes avant leur trépas semblaient résonner à ses oreilles.
 
-« Je refuse que cela se produise! Je refuse que cela se produise! Un jour viendra où une future génération de cultivateurs brisera cette formation et vous exterminera tous, vous les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
-
 Fixant la statue effondrée, le motif d'éclair dans l'œil droit de Wang Lin continuait de scintiller. Après un long moment, il se retourna et vola vers la montagne entourée par la Restriction Temporelle!
 
 Lorsque Wang Lin absorba le motif d'éclair, dans la brume lointaine, le jeune homme portant la marque de l'éclair du Royaume Extérieur devint extrêmement pâle et son corps commença à trembler légèrement.
@@ -76,7 +74,7 @@ Quant à la porte de pierre marquée du motif d'éclair, Wang Lin se contenta de
 
 Il atteignit bientôt le sommet de la montagne et balaya son trident. Un grondement tonitruant retentit et une fissure spatiale apparut rapidement devant lui.
 
-Il connaissait l'emplacement exact grâce aux souvenirs de Maître Pin Cendré et parce que son esprit avait parcouru cet endroit lorsqu'il comprenait le Dao.
+Il connaissait l'emplacement exact grâce aux souvenirs de Maître Pin Cendré et parce que son esprit avait parcouru cet endroit lorsqu'il avait étendu son Sens Divin.
 
 La fissure s'ouvrit et Wang Lin entra directement à l'intérieur! Peu après son entrée, les trois jeunes du Royaume Extérieur apparurent devant la barrière. Ils se regardèrent, serrèrent les dents, puis pénétrèrent dans la faille ouverte par Wang Lin pour se diriger vers la montagne.
 
@@ -84,11 +82,11 @@ Lorsque Wang Lin pénétra dans l'espace mystérieux, il vit immédiatement la t
 
 Une lumière noire semblait errer faiblement autour du squelette, et les inscriptions sur les os dégageaient une étrange attraction capable de rendre fou.
 
-Wang Lin s'approcha pas à pas. Il scella son Sens Divin et ne regarda pas le squelette; au lieu de cela, son regard se posa sur la tablette de pierre. Elle était faite d'un matériau inconnu et exhalait une aura antique.
+Wang Lin s'approcha pas à pas. Il scella son Sens Divin et ne regarda pas le squelette; au lieu de cela, son regard se posa sur la tablette de pierre. Elle était faite d'un matériau inconnu, exhalait une aura antique et portait les traces des années.
 
 Après l'avoir examinée attentivement, Wang Lin fronça les sourcils. Il avait l'impression que ce matériau lui était familier, sans pouvoir se rappeler où il l'avait déjà vu.
 
-Après réflexion, le regard de Wang Lin balaya le squelette. Bien qu'il s'y fût préparé, il fut tout de même frappé par la vision. Cependant, il parvint à reprendre ses esprits après avoir reculé de quelques pas.
+Après réflexion, le regard de Wang Lin balaya le squelette. Bien qu'il s'y fût préparé, et bien que ce ne fût pas la première fois qu'il la regardait, il fut tout de même frappé par la vision. Cependant, il parvint à reprendre ses esprits après avoir reculé de quelques pas.
 
 Ses yeux s'illuminèrent et il n'hésita pas à ouvrir son espace de stockage. Le mot doré « Bataille » s'en échappa. Dès son apparition, la lumière dorée du squelette commença à s'en extraire. Les lueurs noire et dorée du squelette changeaient constamment.
 
@@ -100,7 +98,7 @@ Le mot doré « Bataille » vola directement vers Wang Lin et se logea entre ses
 
 Le cœur de Wang Lin fut envahi par une intention de bataille monstrueuse, et d'innombrables scènes de Zhan Xingye affrontant le monde apparurent dans son esprit. Ces images contenaient une compréhension puissante du combat et, à mesure que sa compréhension s'approfondissait, son domaine commença à fusionner avec cette intention de bataille, provoquant un changement stupéfiant.
 
-Alors que Wang Lin était en pleine compréhension, une distorsion apparut dans l'espace et les trois jeunes firent irruption. Le jeune au motif de feu dévora Wang Lin du regard. À cette distance, il pouvait sentir la féroce énergie d'origine du feu qui émanait de lui.
+Alors que Wang Lin était en pleine compréhension, une distorsion apparut dans l'espace et les trois jeunes firent irruption. Le jeune au motif de feu dévora Wang Lin du regard. À cette distance, il pouvait sentir la puissance du feu qui émanait de lui et le rendait fou.
 
 « Si je le dévore, je pourrai évoluer! »
 
@@ -116,7 +114,7 @@ Les trois chargèrent Wang Lin simultanément, portés par une puissante intenti
 
 Trois craquements retentirent et leurs corps subirent des transformations choquantes. Le jeune au motif d'éclair grandit pour atteindre des centaines de pieds de large, couvert d'éclairs.
 
-Le jeune au motif de feu se vit soudainement pousser une paire d'ailes enflammées et une corne unique apparut sur son front. Son expression trahissait la douleur, mais restait féroce.
+Le jeune au motif de feu se vit soudainement pousser une paire d'ailes enflammées et une corne unique apparut sur son front. Des flammes enveloppèrent tout son corps. Son expression trahissait la douleur, mais restait féroce.
 
 Le jeune au motif de croissant lunaire fut le plus étrange. Son corps ne changea guère, mais sa peau prit la couleur de la lune. Cette teinte cristalline offrait un contraste saisissant avec la lumière dorée!
 

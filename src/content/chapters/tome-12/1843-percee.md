@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1843 - Breakthrough!"
 slug: percee
 ---
-Ils étaient trois: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient arrivés sur le Continent Astral Immortel il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
+Ils étaient trois généraux: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient arrivés sur le Continent Astral Immortel il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
 
 Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence; ils étaient simplement las et aspiraient au repos.
 
 Avec leurs niveaux de culture, ils auraient pu accomplir de grandes choses dans la Mer des Pilules, mais tous trois avaient choisi de mener une vie paisible.
 
-Pourtant, bien que le trio souhaitât la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. L'Oiseau Vermillon et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer des Pilules.
+Pourtant, « l'arbre veut le calme, mais le vent ne cesse de souffler » : le trio avait beau aspirer à la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. L'Oiseau Vermillon et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer des Pilules.
 
 Lorsque ces paroles parvinrent à ses oreilles, le visage pâle du Tigre Blanc esquissa un sourire amer.
 
@@ -34,7 +34,7 @@ Les trois lumières les plus importantes avaient disparu. Quant aux neuf points 
 
 La femme examina attentivement la boussole et fronça les sourcils avec encore plus d'intensité.
 
-« Il n'y a rien d'anormal... Comment le niveau de l'eau a-t-il pu chuter autant en deux jours... Il reste pourtant deux jours... Peu importe, je n'attendrai pas la fin. Cette baisse soudaine du niveau de la mer est trop suspecte... Je vais utiliser le Liquide de Corruption des Dix Mille Raffinements pour balayer les cultivateurs restants! »
+« Je ne trouve aucun indice... Comment le niveau de l'eau a-t-il pu chuter autant en deux jours... Il reste pourtant deux jours... Peu importe, je n'attendrai pas la fin. Cette baisse soudaine du niveau de la mer est trop suspecte... Je vais utiliser le Liquide de Corruption des Dix Mille Raffinements pour balayer les cultivateurs restants! »
 
 Un sentiment d'inquiétude l'envahit. Après une brève hésitation, elle serra les dents et sortit le liquide noir, qu'elle projeta vers la mer.
 

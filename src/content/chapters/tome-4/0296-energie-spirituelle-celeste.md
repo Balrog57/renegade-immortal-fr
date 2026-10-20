@@ -13,9 +13,9 @@ Les yeux de Wang Lin s'illuminèrent. Logiquement, cet endroit était abandonné
 
 Par conséquent, même s'il existait des fragments sur lesquels personne n'avait encore posé le pied, ils étaient extrêmement rares et difficiles à trouver. En somme, la plupart des fragments du Royaume Céleste avaient déjà été visités par des cultivateurs.
 
-Cette tablette de pierre était normalement un monument destiné à être placé à l'extérieur, pourtant elle se trouvait ici, près du centre du palais. Ajoutant à cela les marques indiquant qu'elle avait été enterrée sous terre durant une longue période, Wang Lin commença enfin à comprendre la situation.
+Cette tablette de pierre était normalement un monument destiné à être placé à l'extérieur, pourtant elle se trouvait ici, dans l'ensemble des palais. Ajoutant à cela les marques indiquant qu'elle avait été enterrée sous terre durant une longue période, Wang Lin commença enfin à comprendre la situation.
 
-Cette tablette avait dû être déplacée par un cultivateur lors de l'une des premières ouvertures du Royaume Céleste afin de dissimuler quelque chose. Autrement, ces marques sur la moitié inférieure de la pierre n'auraient pas existé; si elle était restée immobile, la partie inférieure aurait fini par sécher et se fissurer.
+Cette tablette avait dû être déplacée par un cultivateur lors d'une ouverture passée du Royaume Céleste afin de dissimuler quelque chose. Autrement, ces marques sur la moitié inférieure de la pierre n'auraient pas existé; si elle était restée immobile, la partie inférieure aurait fini par sécher et se fissurer.
 
 Après avoir confirmé cette hypothèse, ses yeux brillèrent et il leva le bras. Les quelque dix mètres de tablette enfouis sous terre furent extirpés par Wang Lin.
 
@@ -27,7 +27,7 @@ Un sourire de satisfaction apparut sur le visage de Wang Lin alors qu'il piégea
 
 Wang Lin le remarqua immédiatement et fronça les sourcils. Cependant, il ignora la vitesse de l'inconnu pour se concentrer sur le raffinage de l'énergie spirituelle céleste. Après un moment, ce mince filet d'énergie devint une goutte de liquide sous l'action du raffinage.
 
-Wang Lin savait que l'énergie céleste devait être raffinée par un cultivateur jusqu'à l'état de pierre spirituelle pour pouvoir être conservée. Toutefois, le temps nécessaire à ce processus dépendait du niveau de culture de chacun.
+Wang Lin savait que l'énergie céleste devait être raffinée par un cultivateur, au moyen de son âme originelle, jusqu'à l'état de pierre spirituelle pour pouvoir être conservée. Toutefois, le temps nécessaire à ce processus dépendait du niveau de culture de chacun.
 
 La vitesse du cultivateur aux robes vertes était fulgurante. Lorsqu'il réalisa que quelque chose ne tournait pas rond, son visage changea brusquement et il cria: « Arrête! » En utilisant une technique inconnue, sa vitesse devint encore plus prodigieuse.
 
@@ -43,7 +43,7 @@ Le visage de ce dernier changea radicalement; il craignait par-dessus tout cette
 
 La vitesse de l'attaque fut fulgurante. En percutant la boule de foudre, le qi d'épée la coupa en deux, projetant les fragments de chaque côté et créant deux cratères d'où s'échappait une fumée blanche.
 
-Le visage du cultivateur aux robes vertes devint pourpre alors qu'il réprimait le sang qui lui montait à la gorge. Cette épée, une arme spirituelle de rang suprême, était l'une des sept épées précieuses de la Secte de l'Épée Da Luo. Contre un adversaire plus faible, il aurait pu la contrôler aisément; même contre un égal, il aurait pu l'éliminer par la seule puissance du qi contenu dans la lame.
+Le visage du cultivateur aux robes vertes rougit légèrement alors qu'il réprimait le sang qui lui montait à la gorge. Cette épée, une arme spirituelle de rang suprême, était l'une des sept épées précieuses de la Secte de l'Épée Da Luo. Contre un adversaire plus faible, il aurait pu la contrôler aisément; même contre un égal, il aurait pu l'éliminer par la seule puissance du qi contenu dans la lame.
 
 Cependant, le Crapaud du Tonnerre avait une puissance comparable à celle d'un cultivateur au sommet du stade intermédiaire de la Formation de l'Âme. Bien que la boule de foudre ne possédât pas de domaine, elle n'était pas une chose qu'un cultivateur ordinaire pouvait simplement contrer. Il s'agissait d'une technique d'attaque unique accordée au crapaud par le ciel. Ainsi, le cultivateur ne pouvait que tout miser sur cette attaque, au risque de se blesser lui-même pour l'emporter.
 
@@ -57,7 +57,7 @@ Wang Lin ricana en plaçant sa main droite sur l'orifice et pressa violemment. D
 
 Le cultivateur aux robes vertes fixa Wang Lin. Il poussa un rugissement et le pointa du doigt. L'épée se tourna vers Wang Lin et un qi d'épée, deux fois plus imposant que le précédent, s'abattit du ciel comme pour fendre les cieux en deux.
 
-Après avoir libéré ce qi d'épée, il cracha du sang et son corps fut considérablement affaibli. Sans même attendre de voir le résultat, il prit immédiatement la fuite.
+Après avoir libéré ce qi d'épée, il cracha du sang et son corps fut considérablement affaibli. Sans même attendre de voir le résultat, il saisit son épée et prit immédiatement la fuite.
 
 Les yeux de Wang Lin s'illuminèrent. Sans un mot, il pointa son front, faisant jaillir un gaz noir qui se mua en une multitude d'âmes errantes. Celles-ci chargèrent et entrèrent en collision avec le qi d'épée. Simultanément, le Crapaud du Tonnerre poussa un cri. Son abdomen gonfla de nouveau et il cracha une autre boule de foudre, légèrement plus grande que la précédente.
 

@@ -42,7 +42,7 @@ Bien que Wang Lin ait consommé la majeure partie de sa force vitale, il avait d
 
 Bien que Wang Lin ne semblât pas avoir vieilli, si l'on faisait abstraction de ses cheveux blancs, la rupture de la rune le ferait instantanément vieillir jusqu'à ressembler à un vieillard de mille ans.
 
-La sensation du cycle de réincarnation des cieux l'appelant devint plus puissante encore. Pourtant, l'expression de Wang Lin ne vacilla pas. Son corps vacilla et se posa sur cette terre riche en vitalité. Une fois installé, Wang Lin prit une profonde inspiration et s'assit. Ta Shan émergea de son ombre et s'installa à quelques mètres de là. Les yeux de Ta Shan étaient froids: au moindre mouvement susceptible de nuire à Wang Lin, il attaquerait sans délai.
+La sensation du cycle de réincarnation des cieux l'appelant devint plus puissante encore. Pourtant, l'expression de Wang Lin ne vacilla pas. Son corps vacilla et se posa sur cette terre riche en vitalité. Une fois installé, Wang Lin prit une profonde inspiration et s'assit. Ta Shan sortit de derrière lui et s'installa à quelques mètres de là. Les yeux de Ta Shan étaient froids: au moindre mouvement susceptible de nuire à Wang Lin, il attaquerait sans délai.
 
 Après avoir laissé échapper un grand soupir, Wang Lin leva la main droite et forma un sceau. Une lumière noire commença à s'accumuler sur son index. Au début, cette lueur était faible, mais elle devint bientôt époustouflante.
 

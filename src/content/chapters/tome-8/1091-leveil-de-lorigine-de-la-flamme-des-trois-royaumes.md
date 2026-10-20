@@ -45,7 +45,7 @@ Les visages sombres de Ren Tao, des quelques anciens et des autres fidèles, for
 
 Ren Tao redressa brusquement la tête pour fixer Wang Lin, qui souriait avec la foule, et hurla: « Wang Lin, je te défie! » Il n'avait pas le choix. Si Wang Lin poursuivait ainsi, il n'aurait plus aucune chance de devenir le Divin Empereur.
 
-Au sein de la Secte Divine de l'Oiseau Vermillon, le Divin Empereur était un dieu! Quiconque osait s'opposer à lui devenait l'ennemi de toute la secte. Cependant, il existait une loi au sein de la Secte qui donnait à Ren Tao l'audace de défier Wang Lin!
+Au sein de la Secte Divine de l'Oiseau Vermillon, le Divin Empereur était le Ciel même! Quiconque osait s'opposer à lui devenait l'ennemi de toute la secte. Cependant, il existait une loi au sein de la Secte qui donnait à Ren Tao l'audace de défier Wang Lin!
 
 Ce rugissement traversa les étoiles et imposa immédiatement le silence. Tous les regards se tournèrent vers Ren Tao.
 
@@ -91,21 +91,21 @@ Non seulement la Nuit Déchirée avait tué Maître du Vide, mais deux avatars d
 
 Les Neuf Transformations Mystérieuses étaient un sortilège que seul le Divin Empereur pouvait apprendre.
 
-Le visage de Ren Tao pâlit instantanément, mais ses yeux se remplirent de ressentiment et d'amertume. Il poussa un rugissement, forma un sceau de la main et des flammes jaillirent de son corps. Une vague de chaleur créa une armure floue autour de lui.
+Le visage de Ren Tao pâlit instantanément, mais ses yeux se remplirent de ressentiment et d'amertume. Il poussa un rugissement, forma un sceau de ses deux mains, et des flammes jaillirent de son corps. Une vague de chaleur créa une armure floue autour de lui.
 
 Les yeux de Wang Lin restèrent froids alors qu'il agitait la main pour faire entrer l'esprit derrière lui dans son propre bras. Dans un mouvement fluide, il pointa le corps de Ren Tao.
 
-« Brûle! »
+« Feu, brûle! »
 
 La voix froide résonna, chargée de la puissance qui commande toutes les flammes du monde. À cet instant, tant qu'il s'agissait de feu, tout devait obéir à Wang Lin.
 
-Ces deux mots suffirent à faire trembler les flammes entourant Ren Tao, qui se précipitèrent contre lui de manière inattendue. En cette situation critique, l'armure floue de Ren Tao jaillit comme une épée volante vers Wang Lin.
+Ces deux mots suffirent à faire trembler les flammes entourant Ren Tao, qui se précipitèrent contre lui de manière inattendue. En cette situation critique, l'armure floue de Ren Tao jaillit, et Ren Tao tout entier fusa comme une épée volante vers Wang Lin.
 
-L'esprit de Ren Tao vacilla. Il ne pensait pas que Wang Lin puisse contrôler ses propres flammes. Il savait que c'était sa dernière chance: si ce coup ne blessait pas ou ne tuait pas sérieusement Wang Lin, il serait de nouveau en grand danger dès que les flammes derrière lui se propageraient.
+L'esprit de Ren Tao vacilla. Il ne pensait pas que Wang Lin puisse contrôler les propres flammes de Ren Tao. Il savait que c'était sa dernière chance: si ce coup ne blessait pas ou ne tuait pas sérieusement Wang Lin, il serait de nouveau en grand danger dès que les flammes derrière lui se propageraient.
 
 « Un seul coup suffira à lui ôter la vie! »
 
-L'expression de Wang Lin était sereine tandis que sa main droite formait un sceau pointé vers Ren Tao. La première transformation des Neuf Transformations Mystérieuses déployait toute sa puissance. À cet instant, Wang Lin sentit une chaleur intense irradier de sa main droite.
+L'expression de Wang Lin était sereine tandis que sa main droite formait un sceau pointé vers Ren Tao. Pour la première fois, les Neuf Transformations Mystérieuses se déployaient réellement dans son corps. À cet instant, Wang Lin sentit une chaleur intense irradier de sa main droite.
 
 « Éveil de l'Origine de la Flamme des Trois Vies! »
 

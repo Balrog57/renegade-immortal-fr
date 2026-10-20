@@ -14,7 +14,7 @@ Ces grondements étaient si féroces que toutes les bêtes sauvages évitaient l
 
 Des millions d'éclairs tombant simultanément possédaient une puissance terrifiante! C'était l'une des raisons pour lesquelles le Clan du Tonnerre Dispersé pouvait compter parmi les grands clans du Système Stellaire Antique sans posséder de cultivateur du troisième pas!
 
-De la même manière, le Clan du Tonnerre Dispersé jouissait d'un passé glorieux. Il y a d'innombrables années, ils étaient l'un des clans ayant placé un trésor dans la Formation du Domaine Scellé!
+De la même manière, le Clan du Tonnerre Dispersé jouissait d'un passé glorieux. Il y a d'innombrables années, ils étaient l'un des clans ayant placé un trésor dans la Formation du Royaume Scellé!
 
 Un tonnerre éternel résidait au sein du Clan du Tonnerre Dispersé. Il existait depuis l'aube des temps, surgi du vide. Il grondait sans fin, et le Clan du Tonnerre Dispersé avait édifié un temple en son honneur pour le vénérer.
 
@@ -36,17 +36,17 @@ Avant même de s'en approcher, il sentait distinctement chaque poil de son corps
 
 À l'époque où Wang Lin se trouvait à Luotian, même après avoir dévoré la moitié d'un ancien dragon du tonnerre et obtenu l'âme originelle du dragon du tonnerre, l'entrée aurait été extrêmement difficile. Il aurait probablement dû battre en retraite, sans quoi le tonnerre l'aurait tué avant même que le Clan du Tonnerre Dispersé n'ait à intervenir.
 
-Cependant, après avoir absorbé la puissance du tonnerre de la statue du clan, du fruit Dao, puis avoir engendré sa propre essence de tonnerre, le contrôle de Wang Lin sur l'électricité avait atteint un degré terrifiant. Il observa silencieusement devant lui et, après un long moment, il pénétra dans le domaine stellaire du Clan du Tonnerre Dispersé!
+Cependant, après avoir absorbé, dans le Royaume aux Sept Couleurs, la puissance du tonnerre de la statue du clan, dévoré le fruit Dao, puis, dans une crise de vie ou de mort, engendré sa propre essence de tonnerre, le contrôle de Wang Lin sur l'électricité avait atteint un degré terrifiant. Il observa silencieusement devant lui et, après un long moment, il pénétra dans le domaine stellaire du Clan du Tonnerre Dispersé!
 
 Le Clan du Tonnerre Dispersé n'avait personne pour garder le périmètre, car le tonnerre éternel constituait la meilleure des protections! Wang Lin avança lentement. Son arrivée ne suscita aucune attention de la part du clan!
 
 Wang Lin parcourut lentement cinquante kilomètres en environ quinze minutes. À chaque pas, les poils de son corps tremblaient et des traces de tonnerre pénétraient ses pores.
 
-Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Dispersé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait l'tonnerre éternel!
+Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Dispersé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait le tonnerre éternel!
 
 Après avoir franchi les cinquante kilomètres, il s'enfonça dans le lac de tonnerre. Le lac rugit et la foudre envahit le regard de Wang Lin, remplaçant toute autre vision. Cela illumina brusquement l'espace environnant!
 
-Telle l'aube sur une planète de culture!
+Comme en plein jour sur une planète de culture!
 
 Les éclairs nageaient dans le lac de tonnerre et encerclèrent Wang Lin dans un fracas assourdissant! Le pied gauche de Wang Lin était déjà dans le lac, ainsi que la moitié de son corps!
 

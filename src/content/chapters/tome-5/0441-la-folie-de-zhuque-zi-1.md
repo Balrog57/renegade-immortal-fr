@@ -24,7 +24,7 @@ Situ Nan rangea le jade, afficha un sourire espiègle et demanda: « Est-ce que 
 
 L'expression de Wang Lin resta imperturbable tandis qu'il formait un sceau de la main pour pointer le char. Un rayon de lumière noire s'échappa du char, se transforma en piège à bêtes et vola vers lui.
 
-« Pourquoi ne te l'offrirais-je pas?! » Wang Lin saisit le piège à bêtes et le rangea. Situ Nan allait chercher à se venger, et s'il ne disposait d'aucun trésor, Wang Lin s'inquiéterait pour lui; il décida donc de lui céder le char de guerre. Avec son nouveau corps et ce char, sa quête de vengeance serait bien plus aisée.
+« Pourquoi ne te l'offrirais-je pas?! » Wang Lin saisit le piège à bêtes et le rangea. Situ Nan allait chercher à se venger, et s'il ne disposait d'aucun trésor, Wang Lin s'inquiéterait pour lui; il décida donc de lui céder le char de guerre. Avec son niveau de culture et ce char, sa quête de vengeance serait bien plus aisée.
 
 Privé du piège qui le contrôlait, l'esprit de la bête poussa un rugissement, s'enroula autour du char de guerre et s'enfuit à toute allure.
 
@@ -44,7 +44,7 @@ Les deux arbres de réincarnation géants du continent Suzaku se mirent à brill
 
 Ces deux Esprits Ancestraux arboraient chacun une plante à dix feuilles sur le front. Dès leur apparition, ils foncèrent également vers le pays de Suzaku.
 
-Du côté du pays de Suzaku, les quatre lignes de défense furent immédiatement contraintes au repli.
+Du côté du pays de Suzaku, les quatre lignes de défense furent peu à peu contraintes au repli.
 
 C'était une guerre titanesque; tout le continent Suzaku tremblait tandis que le fracas d'innombrables sorts résonnait à travers la terre.
 
@@ -54,25 +54,25 @@ Chu Yuanfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s
 
 Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, une véritable folie!
 
-« Cultivateurs de la planète Suzaku, je suis l'actuel Suzaku. Vous n'avez plus besoin de vous défendre; laissez venir le Clan des Immortels Délaissés! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhu Quezi balaya l'intégralité du continent Suzaku.
+« Cultivateurs de la planète Suzaku, je suis Zhu Quezi. Vous n'avez plus besoin de vous défendre; laissez venir le Clan des Immortels Délaissés! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhu Quezi balaya l'intégralité du continent Suzaku.
 
-Tous les cultivateurs qui tenaient la défense poussèrent des soupirs en entendant cela et se dispersèrent pour sauver leur vie.
+Tous les cultivateurs qui tenaient la défense cessèrent le combat, poussèrent des soupirs en entendant cela et se dispersèrent pour sauver leur vie.
 
 Sans que les cultivateurs ne puissent les entraver, les quatre armées du Clan des Immortels Délaissés chargèrent vers le centre de Suzaku telles des tempêtes déchaînées.
 
 Vu d'en haut, on aurait dit que le continent entier était recouvert par quatre nuages noirs gigantesques convergeant rapidement vers le centre.
 
-Zhu Quezi, les mains derrière le dos, observa le ciel bleu et déclara: « Tout sera décidé! »
+Zhu Quezi, les mains derrière le dos, observa le ciel bleu et murmura: « Tout sera décidé! »
 
 Peu de temps après, deux silhouettes apparurent au loin et se figèrent aux côtés de Zhu Quezi. C'étaient Qian Feng et Liu Mei.
 
 Qian Feng portait une robe noire et ses yeux dégageaient une aura maléfique. Il fixait silencieusement Zhu Quezi avec une expression sombre.
 
-Liu Mei était toujours aussi belle. Sa robe de soie blanche lui donnait l'allure d'une fée. En cet instant, ses sourcils étaient étroitement froncés, mais elle restait également silencieuse.
+Liu Mei était toujours aussi belle. Sa robe de gaze blanche lui donnait l'allure d'une fée. En cet instant, ses sourcils étaient étroitement froncés, mais elle restait également silencieuse.
 
 La silhouette de Zhu Quezi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « La planète Suzaku ne peut repousser le Clan des Immortels Délaissés. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
 
-À ce moment précis, les nuages noirs se refermèrent comme des tsunamis impétueux. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan des Immortels Délaissés. »
+À ce moment précis, les nuages noirs se refermèrent comme des vagues furieuses. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan des Immortels Délaissés. »
 
 Une autre personne émergea du nuage noir de l'ouest. Cet homme paraissait très jeune et son corps entier était couvert de tatouages; cependant, ces derniers n'étaient pas noirs, mais dorés!
 
@@ -90,7 +90,7 @@ Zhu Quezi se tourna brusquement vers lui et demanda: « Dois-je t'appeler Yun Qu
 
 Yun Quezi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, frère aîné. »
 
-« Vous êtes tous venus. Le seul chamane à onze feuilles du Clan des Immortels Délaissés, le premier ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
+« Vous êtes tous venus. Le seul chaman à onze feuilles du Clan des Immortels Délaissés, le premier ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
 
 Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhouette transparente prit lentement forme. La figure descendit avec lenteur et dit: « Zhu Quezi. »
 
@@ -106,7 +106,7 @@ Le tatouage se mit immédiatement à briller d'un rouge sanglant et fonça vers 
 
 Le cinquième ancêtre savait que Zhu Quezi était puissant; ce n'était qu'une tentative pour tâter le terrain, il ne s'approcha donc pas davantage.
 
-Le regard de Zhu Quezi devint glacial et il ricana. Il sembla d'abord qu'il n'allait pas réagir, mais soudain une lueur dorée enveloppa son corps. Des bruits de craquements retentirent alors que des fissures apparurent sur le tatouage, qui finit par voler en éclats peu après.
+Le regard de Zhu Quezi devint glacial et il ricana. Il sembla d'abord qu'il n'allait pas réagir, mais soudain une lueur dorée scintilla devant lui. Des bruits de craquements retentirent alors que des fissures apparurent sur le tatouage, qui finit par voler en éclats peu après.
 
 Simultanément, l'expression du cinquième ancêtre changea et il recula précipitamment. À cet instant, un point sanglant apparut sur son front et le sang commença à s'en écouler.
 
@@ -116,7 +116,7 @@ L'expression de Zhu Quezi devint sombre alors qu'il se mouvait. Sa vitesse étai
 
 « Sceau de Suzaku, attaque! » La voix antique de Zhu Quezi résonna depuis le vide.
 
-Lorsqu'il réapparut, il se trouvait déjà dans les airs, la main droite pointée vers l'avant. Le ciel s'obscurcit tandis qu'une immense quantité de flammes enveloppait son corps. Les flammes recouvrirent tout dans un rayon de 3 300 mètres autour de lui, et le sol commença à montrer des signes de calcination.
+Lorsqu'il réapparut, il se trouvait déjà dans les airs, la main droite pointée vers l'avant. Le ciel s'obscurcit tandis qu'une immense quantité de flammes jaillit de son corps. Les flammes recouvrirent tout dans un rayon de 3 300 mètres autour de lui, et le sol commença à montrer des signes de calcination.
 
 À l'exception d'Yun Quezi et du premier ancêtre, tous reculèrent rapidement pour éviter l'impact des flammes.
 

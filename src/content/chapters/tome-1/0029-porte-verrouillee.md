@@ -18,7 +18,7 @@ Une très jolie disciple honoraire dit d'un air pitoyable et touchant: « Frère
 
 Parmi les disciples honoraires de la Secte Heng Yue, les femmes étaient rares; elles ne représentaient pas même un dixième de l'effectif. Après tout, lors des épreuves d'endurance, les hommes avaient un avantage certain.
 
-Les quelques disciples honoraires féminines étaient, bien entendu, très courtisées. Selon leur beauté, certaines jouissaient même de la faveur des disciples internes.
+Les quelques disciples honoraires féminines étaient, bien entendu, très courtisées. Grâce à leurs atouts naturels, certaines jouissaient même de la faveur des disciples internes.
 
 Soudain, une autre disciple honoraire lança un regard de séduction à Wang Lin et ajouta d'un ton coquet: « Frère Wang, le frère Liu ne m'a jamais imposé de travail difficile; je n'avais qu'à venir le servir chaque nuit. Je connais bien plusieurs sœurs parmi les disciples honoraires... Je les amènerai vous voir ce soir, voulez-vous? »
 
@@ -48,7 +48,7 @@ L'homme, ravi, tomba aussitôt à genoux et se prosterna devant Wang Lin. Il ré
 
 Tous les disciples honoraires restèrent médusés. Auparavant, le disciple Liu était discret sur ces questions, mais ce Wang Lin réclamait des pots-de-vin de la manière la plus audacieuse qui soit.
 
-Un instant plus tard, un disciple honoraire s'avança et sortit trois talismans utilisés pour les visites familiales. Il les présenta à Wang Lin en disant: « Frère Wang, ceci est ma façon de vous témoigner mon respect. »
+Un instant plus tard, un disciple honoraire s'avança et sortit trois talismans utilisés pour les visites familiales. Il les présenta à Wang Lin en disant: « Frère Wang, c'est là mon humble offrande, pour vous témoigner mon respect. »
 
 Wang Lin accepta d'un simple bruit d'assentiment. Il rangea les talismans et demanda: « Quelle tâche t'avait-on assignée plus tôt? »
 

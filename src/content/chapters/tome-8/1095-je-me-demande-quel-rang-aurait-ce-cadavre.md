@@ -28,7 +28,7 @@ Le cœur de Lie Yunzi sombra tandis qu'il fixait Wang Lin en serrant les dents. 
 
 L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Seriez-vous capable de prédire l'avenir? Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Luotian et les Quatre Sectes Divines.
 
-Le tuer n'entrait pas dans le plan de Wang Lin pour traiter avec Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divines et Luotian se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
+Le tuer n'entrait pas dans le plan de Wang Lin pour affronter Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divines et Luotian se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
 
 Qing Shui se trouvait très probablement au sein de l'Alliance, sans compter la bienveillance de l'ancien Empereur Divin. Tous ces paramètres empêchaient Wang Lin de tuer Lie Yunzi pour le moment.
 
@@ -36,7 +36,7 @@ Lie Yunzi réprima une fois de plus sa colère et demanda: « Que voulez-vous en
 
 Wang Lin répondit lentement: « Les dix Lou Fu! »
 
-« Espèce de...! » Des craquements sinistres émanèrent du corps de Lie Yunzi. Sa rage avait atteint son paroxysme. Son corps tremblait alors qu'il luttait pour reprendre son calme. Il finit par laisser échapper un profond soupir.
+« Vous...! » Des craquements sinistres émanèrent du corps de Lie Yunzi. Sa rage avait atteint son paroxysme. Son corps tremblait alors qu'il luttait pour reprendre son calme. Il finit par laisser échapper un profond soupir.
 
 « Après vous en avoir donné une dernière fois, il ne me reste plus que six Lou Fu! Je n'en ai plus d'autres, c'est tout ce que je peux vous offrir! » Lie Yunzi serra les dents.
 
@@ -68,7 +68,7 @@ En un instant, la vitesse de Lie Yunzi fut multipliée et il disparut sans laiss
 
 Quelques jours plus tard, après avoir quitté la région Est contrôlée par les Quatre Sectes Divines à sa vitesse maximale, Lie Yunzi se précipitait vers la région Nord sous l'égide de Luotian.
 
-Le deuxième jour de son entrée dans la région Nord, alors qu'il fonçait tête baissée, un rayon de lumière glaciale jaillit vers lui. Ce trait lumineux était d'une rapidité fulgurante et portait une puissance capable de fendre la terre.
+Le deuxième jour de son entrée dans la région Nord, alors qu'il fonçait tête baissée, un rayon de lumière glaciale jaillit vers lui. Ce trait lumineux était d'une rapidité à faire trembler ciel et terre.
 
 L'expression de Lie Yunzi changea radicalement; il voulut esquiver, mais son niveau de culture ne lui permit pas d'échapper à l'attaque imminente. Le rayon perça sa poitrine.
 
@@ -108,7 +108,7 @@ Wang Lin acquiesça.
 
 « C’est donc ainsi. Je pensais que les informations que j'avais reçues concernant un cadavre concernaient réellement le premier rang mondial! J'aurais voulu que le cultivateur Li vérifie, mais puisque c'est ainsi, laissons tomber. »
 
-La beauté de la femme s'intensifia et elle sourit: « Oh? Je me demande quel genre de cadavre pourrait inspirer une telle confiance à l'Empereur Divin. »
+Les yeux de la femme brillèrent et elle sourit: « Oh? Je me demande quel genre de cadavre pourrait inspirer une telle confiance à l'Empereur Divin. »
 
 Wang Lin ne perdit pas de temps. D'un revers de manche, il envoya un morceau de jade vers la femme. Elle le rattrapa en souriant, sans trop se soucier du contenu de l'information.
 

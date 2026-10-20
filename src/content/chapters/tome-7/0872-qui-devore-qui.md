@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 872 - Who Devours Who
 slug: qui-devore-qui
 ---
-L'esprit du tonnerre était empreint d'une grande fierté, mais il croisa soudainement le regard de Wang Lin. Ce regard pénétra son corps pour se poser sur son âme de tonnerre. Une force puissante, émanant de l'héritage niché au cœur de son âme, balaya son être. Terrifié, il laissa échapper un cri tandis que son corps tremblait violemment!
+L'esprit du tonnerre était empreint d'une grande fierté, mais il croisa soudainement le regard de Wang Lin. Ce regard pénétra son corps pour se poser sur son âme de tonnerre. Une force puissante, émanant de l'héritage niché au cœur de son âme, balaya son être. Terrifié, au point de presque perdre son âme, il laissa échapper un cri tandis que son corps tremblait violemment!
 
 Le corps qui fonçait vers Wang Lin s'arrêta net et recula. Il agit par pur instinct, comme si une force irrésistible l'obligeait à battre en retraite!
 

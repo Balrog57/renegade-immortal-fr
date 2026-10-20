@@ -68,7 +68,7 @@ Même son frère aîné avait secrètement emprunté le trésor principal de la 
 
 Cependant, ayant entendu tant de rumeurs sur le Fouet de l'Âmes, elle avait été tentée et n'avait pas refusé l'offre. Elle l'avait caché dans le Dieu de Glace pour s'en servir comme d'une arme secrète.
 
-Mais à présent, après tant d'échanges, leur combat atteignait son point de rupture. Les trésors de ce Ceng Niu étaient infinis, bien au-delà de ce qu'elle avait pu concevoir.
+Mais à présent, après tant d'échanges, leur combat atteignait son point culminant. Les trésors de ce Ceng Niu étaient infinis, bien au-delà de ce qu'elle avait pu concevoir.
 
 Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si la bête n'avait pas manqué de force sur la durée, elle était certaine que, face à ses assauts répétés, elle aurait perdu sans le Fouet de l'Âmes.
 
@@ -80,7 +80,7 @@ Elle n'avait vécu une telle fuite que deux fois dans sa vie: la première fois 
 
 Wang Lin la poursuivait de près, l'expression sombre. Observant la silhouette qui se téléportait sans cesse devant lui, il lança: « Papillon Rouge, où est passée ta fierté? La fille céleste de Suzaku doit-elle fuir devant moi, un simple cultivateur au milieu de la Formation de l'Âme? »
 
-« Ceng Niu!! Si je ne te tue pas, je ne m'appelle pas Papillon Rouge! Avatars! » Bien que Wang Lin la provoquât, son orgueil l'obligeait à lutter.
+« Ceng Niu!! Si je ne te tue pas, je ne m'appelle pas Papillon Rouge! Technique de l'avatar! » Bien que Wang Lin la provoquât, son orgueil l'obligeait à lutter.
 
 Un changement soudain survint.
 
@@ -92,7 +92,7 @@ Un avatar ressemblant trait pour trait à Papillon Rouge apparut, avec la seule 
 
 L'avatar de Papillon Rouge ouvrit les yeux, d'un calme olympien. Si la véritable Papillon Rouge était froide et impitoyable, cet avatar ne manifestait aucune émotion et restait d'une sérénité absolue.
 
-« Ceng Niu, je me fiche de renoncer à mon ascension vers le stade de la Transformation de l'Âme pour te tuer! »
+Depuis le géant, la véritable Papillon Rouge lança: « Ceng Niu, je me fiche de renoncer à mon ascension vers le stade de la Transformation de l'Âme pour te tuer! »
 
 Cet avatar était une entité qu'elle avait cultivée pour faciliter son passage vers la Transformation de l'Âme. À moins d'une nécessité absolue, elle ne l'aurait jamais invoqué.
 

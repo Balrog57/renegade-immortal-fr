@@ -14,7 +14,7 @@ La formation même de ce corps véritable et ce changement soudain devaient êtr
 
 « Il m'a capturé... non pas pour me tuer ou me blesser... mais pour s'emparer de mon essence de tonnerre et m'aider à former mon propre corps véritable d'essence de tonnerre... Son but... n'est pas de me supprimer, mais d'utiliser ce corps pour plonger mon esprit dans le chaos et l'effacer totalement! »
 
-Les yeux de Wang Lin s'illuminèrent. En un instant, des milliers de pensées traversèrent son esprit. Il avait diviné cette scène autrefois, ce qui l'avait profondément choqué. Afin de ne pas être pris au dépourvu, il avait déjà réfléchi à une issue!
+Les yeux de Wang Lin s'illuminèrent. En un instant, des milliers de pensées traversèrent son esprit. Il avait diviné cette scène autrefois, bien que partiellement, ce qui l'avait profondément choqué. Afin de ne pas être pris au dépourvu, il avait déjà réfléchi à une issue!
 
 Au moment même où le corps véritable d'essence de tonnerre s'apprêtait à le subjuguer, Wang Lin prit une profonde inspiration. Son âme originelle ferma les yeux et invoqua la Perle Défiant le Ciel.
 
@@ -80,7 +80,7 @@ Cela ne ressemblait plus du tout à un test; il semblait bien qu'ils voulaient r
 
 Les paroles du vieil homme avaient été soudaines; n'importe qui aurait réagi ainsi. Pourtant, le cœur de Wang Lin tressaillit un instant avant de retrouver son calme. Il était tel un puits antique: son esprit restait parfaitement imperturbable.
 
-Il ne croyait absolument pas que l'adversaire ait pu détecter la Perle Défiant le Ciel. C'était une bataille d'esprit!
+Il ne croyait absolument pas que l'adversaire ait pu détecter la Perle Défiant le Ciel. C'était un duel de calcul!
 
 Tout se déroula en un éclair. Les sorts des messagers du Démon Vert convergeaient vers Wang Lin, à moins de sept pouces de lui, mais son corps ne bougea pas. Sept pouces, six, cinq, trois, un pouce!!
 

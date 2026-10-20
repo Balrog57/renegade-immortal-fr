@@ -26,15 +26,15 @@ L'expression de Xu Liguo changea instantanément pour adopter un air mielleux, c
 
 L'ancêtre du Clan des Démons Géants laissa échapper un rire: « Comment Wang Lin t'a-t-il traité pour que tu le haïsses à ce point? »
 
-Xu Liguo serra les dents et répondit: « Maître, vous ne savez pas à quel point je déteste ce Wang Lin; non seulement il me forçait à travailler, mais il m'appelait aussi uniquement pour me frapper et m'insulter. Tout cela n'est rien, mais le plus grave est qu'il ne m'a jamais accordé le moindre avantage, contrairement à vous qui me donnez des pierres spirituelles à absorber. Maître, quand nous aurons tué Wang Lin, pourriez-vous m'offrir quelques femmes en récompense? Et pourquoi ne pas appeler la petite sœur fée? Je ne l'ai pas vue depuis plusieurs mois et elle me manque terriblement. »
+Xu Liguo serra les dents et répondit: « Maître, vous ne savez pas à quel point je déteste ce Wang Lin; non seulement il me forçait à travailler, mais il m'appelait aussi uniquement pour me frapper et m'insulter. Tout cela n'est rien, mais le plus grave est qu'il ne m'a jamais accordé le moindre avantage, contrairement à vous qui me donnez des pierres spirituelles à absorber. Maître, quand nous aurons tué Wang Lin, pourriez-vous m'offrir quelques cultivatrices en récompense? Et pourquoi ne pas appeler la petite sœur fée? Je ne l'ai pas vue depuis plusieurs mois et elle me manque terriblement. »
 
 L'ancêtre du Clan des Démons Géants esquissa un léger sourire: « C’est une chose aisée. Une fois Wang Lin mort, j'invoquerai l'âme de Feng Luan pour que tu puisses la rencontrer. À présent, ce vieil homme doit se retirer en culture fermée, alors retourne à l'intérieur! » Sur ces mots, il tendit la main. Bien qu'un sourire fût toujours sur le visage de Xu Liguo, il maudit intérieurement son sort. Il retourna dans l'épée céleste et fut replacé dans le sac.
 
 « Cet esprit d'épée est pétri de cupidité humaine. C'est une créature mystérieuse, mais cela le rend facile à manipuler. Je peux lui donner des pierres spirituelles et des cultivatrices, je ne crois pas qu'il puisse me trahir. De plus, cet esprit semble obsédé par l'âme de Feng Luan. Avec elle entre mes mains, il ne pourra jamais m'échapper! » ricana l'ancêtre du Clan des Démons Géants avant de refermer les yeux pour reprendre sa culture.
 
-L'âme de Feng Luan était celle d'un trésor qu'il avait acquis par accident un jour.
+L'âme de Feng Luan était une âme magique contenue dans un trésor qu'il avait acquis par accident un jour.
 
-Cette âme était d'une beauté sublime et empreinte de désir. Lorsqu'il la rencontra pour la première fois, même sa fermeté d'esprit d'alors avait failli le faire sombrer. Heureusement, l'âme était endommagée, ce qui lui permit d'échapper au désastre; pourtant, encore aujourd'hui, il en éprouvait une certaine crainte.
+Cette âme était d'une beauté sublime et empreinte de désir. Lorsqu'il la rencontra pour la première fois, même sa fermeté d'esprit d'alors avait failli le faire sombrer. Heureusement, l'âme était endommagée, ce qui lui permit d'échapper au désastre; pourtant, encore aujourd'hui, il en éprouvait une profonde appréhension.
 
 Après avoir obtenu l'épée céleste, il avait découvert le caractère mystérieux de Xu Liguo. Pour contrôler totalement l'esprit de l'épée, il avait invoqué l'âme de Feng Luan. Comme il s'y attendait, Xu Liguo s'était jeté sur elle tel un loup affamé, totalement captivé.
 
@@ -54,7 +54,7 @@ Un rictus aux lèvres, Wang Lin poussa un rugissement, chargea son poing et frap
 
 Boum!
 
-Un bruit assourdissant fit trembler la terre et une fissure apparut. Cette brèche se propagea dans toutes les directions, sur 330 mètres à la ronde, et s'enfonça rapidement dans les profondeurs du sous-sol.
+Un bruit assourdissant fit trembler la terre et d'innombrables fissures apparurent. Cette brèche se propagea dans toutes les directions, sur 330 mètres à la ronde, et s'enfonça rapidement dans les profondeurs du sous-sol.
 
 Des craquements sourds résonnèrent longtemps sous la terre avant de s'éteindre.
 

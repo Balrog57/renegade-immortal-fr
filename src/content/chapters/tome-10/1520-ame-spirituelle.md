@@ -8,7 +8,7 @@ slug: ame-spirituelle
 ---
 Les cultivateurs de la Mer des Nuages sont arrivés!
 
-Des dizaines de milliers de cultivateurs, d'innombrables rayons de lumière rouge... Les mortels ne pouvaient percevoir cela; seuls les cultivateurs participant à cette bataille pouvaient contempler une telle scène, et elle était inoubliable!
+Des dizaines de milliers de cultivateurs, d'innombrables longues traînées de lumière... Les mortels ne pouvaient percevoir cela; seuls les cultivateurs participant à cette bataille pouvaient contempler une telle scène, et elle était inoubliable!
 
 Un mortel aurait peut-être la chance de voir une pluie de météores une fois dans sa vie. Cependant, en cet instant, l'arrivée des cultivateurs de la Mer des Nuages était cent fois plus spectaculaire qu'une tempête de météores!
 
@@ -22,11 +22,10 @@ En cet instant, ces quatre caractères prirent vie! Ils devinrent l'aura même d
 
 Nul ne pouvait rester insensible à cette aura. Même les êtres les plus malveillants et vils, s'il restait en eux une trace d'attachement pour leur terre natale, verraient ce sentiment amplifié à l'infini et leur sang bouillir!
 
-Maître Hong Shan arriva dans sa robe rouge, l'expression solennelle. Bien que la tempête dorée du Shui Daozi ait été dévorée par la Bête des Limbes, empêchant ainsi la destruction de la Formation de Scellement du Royaume, il s'était déjà préparé à combattre jusqu'à la mort. La guerre avait déjà commencé dans son esprit!
-
+Maître Hong Shan arriva dans sa robe rouge, l'expression solennelle. Bien que la guerre ait connu un imprévu avec la tempête dorée du Shui Daozi, finalement dévorée par la Bête des Limbes, il s'était déjà préparé à combattre jusqu'à la mort.
 Bien que la bataille contre le Royaume Extérieur ait soudainement éclaté, Maître Hong Shan n'avait aucune crainte. Il s'avança avec un sourire!
 
-Une arrogance et une majesté indicibles émanaient de son rire. Il contenait l'aura impavide d'un cultivateur du troisième pas!
+Une bravoure et une grandeur indicibles émanaient de son rire. Il contenait l'aura impavide d'un cultivateur du troisième pas!
 
 Il y avait aussi Maître Nan Yunzi. Cet homme était très mystérieux, et Wang Lin ne savait que peu de choses à son sujet. Cependant, en cet instant, ses yeux étaient froids et il arriva rapidement aux côtés de Maître Hong Shan!
 
@@ -62,7 +61,7 @@ Ce monde était sans limites, et la multitude de ces êtres en noir était terri
 
 C'étaient les âmes des Flammes Joss de l'Estimé Nan Zhao, et cet endroit était son Royaume des Flammes Joss!
 
-L'attaque d'un cultivateur du Vide Spirituel peut entraîner sa cible dans son propre Royaume des Flammes Joss. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que les Flammes Joss sont générées!
+L'attaque d'un cultivateur du Vide Spirituel peut entraîner sa cible dans son propre Royaume des Flammes Joss. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que naît la force spirituelle!
 
 Wang Lin était sous le choc. Après tout, il ne connaissait pas grand-chose aux cultivateurs du troisième pas, et encore moins au stade du Vide Spirituel. Même Ling Dong ou Zhou Jin n'en savaient pas beaucoup à ce sujet. À moins de le vivre personnellement, personne ne pouvait l'expliquer!
 
@@ -118,6 +117,6 @@ Les yeux vides de Wang Lin retrouvèrent instantanément leur éclat, comme s'il
 
 La main droite de l'Estimé Nan Zhao trembla alors qu'elle se trouvait à moins de 30 pieds de Wang Lin. À cet instant, le sang jaillit du centre de sa paume, comme s'il avait été blessé par une force invisible. Ses yeux étaient remplis de choc et son corps fut frappé par une puissance colossale. Il ne put plus poursuivre sa course et recula de plusieurs pas, loin de l'oiseau de feu noir!
 
-« Quel corps puissant!!! » L'expression de l'Estimé Nan Zhao était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles prioritaires!
+« Quel corps puissant!!! » L'expression de l'Estimé Nan Zhao était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles à abattre!
 
 « Il n'a même pas encore atteint le troisième pas, et pourtant il a pu esquiver et riposter contre ma paume. S'il atteint le troisième pas, il sera absolument terrifiant!! Cet enfant ne doit pas être laissé en vie!! »

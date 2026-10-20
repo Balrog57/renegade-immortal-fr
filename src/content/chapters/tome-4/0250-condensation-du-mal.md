@@ -78,7 +78,7 @@ Sur ces mots, il inclina la cruche pour remplir sa coupe, mais vit que Wang Lin 
 
 « Ne m'aviez-vous pas dit que c'était la servante qui était malade? Comment se fait-il qu'il s'agisse maintenant de la jeune maîtresse? » demanda Wang Lin avec un sourire discret en regardant Lu Xing.
 
-Le visage ridé de Lu Xing rougit. Très embarrassé, il se frappa la cuisse et déclara: « Petit frère, c'est ma faute. Écoute, une fois arrivés à la capitale, si tu as le moindre problème, viens me trouver au magasin du Ciel Austral. Tant que j'en aurai la capacité, je n'hésiterai pas à t'aider. »
+Le visage de Lu Xing rougit. Très embarrassé, il se frappa la cuisse et déclara: « Petit frère, c'est ma faute. Écoute, une fois arrivés à la capitale, si tu as le moindre problème, viens me trouver au magasin du Ciel Austral. Tant que j'en aurai la capacité, je n'hésiterai pas à t'aider. »
 
 Wang Lin eut un sourire, mais ne parla plus. Il se contenta de savourer lentement le goût du vin.
 

@@ -8,7 +8,7 @@ slug: un-vin-corse
 ---
 Heureusement, ils étaient tous deux de ce genre de personnes.
 
-La neuvième épine était nichée dans sa colonne vertébrale; elle y était totalement enfouie, sans qu'un seul pouce ne dépasse. Il n’y avait même pas de blessure apparente, comme si elle se tapissait dans un vide à l’intérieur de son corps.
+La neuvième épine était nichée dans sa colonne vertébrale; elle y était totalement enfouie, sans qu'il dépasse d'un demi-pouce. Il n’y avait même pas de blessure apparente, comme si elle se tapissait dans un vide à l’intérieur de son corps.
 
 Le visage d'inconscience de Qing Shui restait tordu par la douleur, mais une nuance de soulagement et de joie perçait ses traits. Son soulagement était dû à Wang Lin, tout comme sa joie.
 
@@ -118,7 +118,7 @@ La partie reliée à son vaisseau sanguin tenta de se rétracter, mais Qing Shui
 
 Des bruits de craquements résonnèrent à l'intérieur de lui, et un rugissement misérable sembla émaner des veines gonflées avant de s'apaiser. Il semblait que l'épine, qui paraissait vivante, avait été instantanément annihilée par l'essence de massacre de Qing Shui.
 
-Le corps de Qing Shui trembla et il cracha une gorgée de sang noir. Son corps gracile commença à prendre du volume jusqu'à retrouver son apparence originelle.
+Le corps de Qing Shui trembla et il cracha une grande quantité de sang noir. Son corps gracile commença à prendre du volume jusqu'à retrouver son apparence originelle.
 
 À cet instant, l'essence de massacre en son sein explosa et le ciel s'obscurcit totalement. Alors que la neige noire tombait, une porte fantomatique apparut!
 

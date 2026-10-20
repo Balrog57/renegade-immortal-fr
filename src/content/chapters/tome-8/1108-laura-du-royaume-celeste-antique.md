@@ -40,7 +40,7 @@ Pourtant, Wang Lin ressentait clairement la puissante vitalité émanant de ce D
 
 Si cela avait été tout, cela n'aurait pas suffi à bouleverser Wang Lin. Cependant, il ne vit pas un seul Dieu Antique. Au sol se trouvaient pas moins de dix Dieux Antiques, ainsi que près de cent démons et diables anciens!
 
-Un jeune homme vêtu d'une robe daoïste était assis en tailleur sur la tête de l'une des statues de démons anciens. Il tenait un miroir à la main et fronçait les sourcils, plongé dans ses calculs.
+Un jeune homme vêtu d'une robe daoïste était assis en tailleur sur la tête de l'une des statues de diables anciens. Il tenait un miroir à la main et fronçait les sourcils, plongé dans ses calculs.
 
 « L'entrée de la rétribution divine dont l'oncle-maître Ma a parlé devrait se trouver ici... »
 
@@ -60,7 +60,7 @@ Dès l'apparition de cette lueur, une aura qui n'appartenait pas à ce monde se 
 
 «... J'ai accidentellement aidé à dissiper les quatre formes restantes de la rétribution divine, les plus puissantes... Peu importe, je suis enfin sorti de cet endroit maudit, alors il était juste de l'aider. » Des paroles exaltées s'échappèrent de la lumière vert-noir, avant qu'elle ne disparaisse sans laisser de trace.
 
-Au même moment, dans la région occidentale lointaine de l'Alliance, un vieil homme était assis sur la prairie d'une planète de culture très commune. Vêtu de noir, il était d'un calme imperturbable, comme si rien au monde ne pouvait troubler sa sérénité.
+Au même moment, dans la région occidentale de l'Alliance, un vieil homme était assis sur la prairie d'une planète de culture très commune. Vêtu de noir, il était d'un calme imperturbable, comme si rien au monde ne pouvait troubler sa sérénité.
 
 Si Wang Lin avait été là, il aurait immédiatement reconnu ce vieil homme comme celui qui avait stoppé le combat entre Qing Shui et l'ancêtre de la famille Yao à Luotian!
 

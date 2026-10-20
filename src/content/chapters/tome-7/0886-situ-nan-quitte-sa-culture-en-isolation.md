@@ -22,7 +22,7 @@ Qing Shui laissa échapper un soupir. En contemplant le visage vieilli de Wang L
 
 Le corps de Wang Lin trembla violemment. Son apparence se rétablit rapidement et, un instant plus tard, il retrouva son état initial, exception faite de ses cheveux blancs. Les dommages causés par la perte de force vitale ne se voyaient plus sur son corps; ils étaient totalement dissimulés.
 
-« Cette rune ne peut pas restaurer la force vitale et ne peut pas être utilisée sur une âme. Sinon, tu ne serais pas dans cet état. »
+« Cette rune ne peut pas restaurer la force vitale et ne peut pas être utilisée sur une Âme Naissante. Sinon, tu ne serais pas dans cet état. »
 
 Qing Shui se retourna, s'élança vers les étoiles et disparut progressivement.
 
@@ -84,7 +84,7 @@ Durant ce court laps de temps d'un demi-mois, un bain de sang avait éclaté dan
 
 C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est que l'Alliance de Culture ne bougeait pas. Ils ne semblaient nullement inquiets, comme s'ils se contentaient d'observer la scène depuis la lisière.
 
-Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même le Maître Yan Leizi et ses compagnons étaient rongés par le doute.
+Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même le Maître Flamespark et ses compagnons étaient rongés par le doute.
 
 Si la même chose s'était produite dans le Système Stellaire Luotian, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
 
@@ -94,7 +94,7 @@ Cette situation singulière troublait davantage les cultivateurs Luotian. En app
 
 Mais ce n'était pas là le point principal. Durant ces quinze jours de combats, l'efficacité martiale des pays de culture de rang 6 avait terriblement stupéfié les cultivateurs Luotian!
 
-Ces regards sanguinaires, ces plans rusés, ces trésors complexes et tant d'autres choses causèrent de lourdes pertes aux Luotian. Ce contraste saisissant leur fit comprendre que si leurs niveaux de culture étaient identiques, ce sont les Luotian qui perdraient!
+Ces regards sanguinaires, ces plans rusés, ces trésors redoutables et tant d'autres choses causèrent de lourdes pertes aux Luotian. Ce contraste saisissant leur fit comprendre que si leurs niveaux de culture étaient identiques, ce sont les Luotian qui perdraient!
 
 Ce qui choqua encore plus les Luotian, c'est que tous les cultivateurs de l'Alliance tuaient avec une détermination implacable et possédaient une expérience de combat phénoménale. Les Luotian avaient le sentiment que chaque membre de l'Alliance était issu de la planète Dong Lin!
 

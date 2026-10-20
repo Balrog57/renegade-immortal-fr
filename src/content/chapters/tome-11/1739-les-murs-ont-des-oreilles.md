@@ -96,13 +96,13 @@ Wang Lin ignorait que ce jeune homme nommé Yun Yifeng était très célèbre au
 
 Il avait suivi son oncle de secte et les autres dans le monde des grottes et, après d'innombrables années, il s'y était perfectionné pour y acquérir de grandes épreuves et de grandes opportunités. Une fois de retour sur le Continent Astral Immortel, il serait tel un fils glorieux du ciel, capable de briguer la première place parmi les disciples centraux!
 
-Avec son statut de premier disciple de la Secte Gui Yi, son nom se répandrait à travers les neuf sectes et les treize factions!
+Avec son statut de premier disciple de la Secte Gui Yi, son nom se répandrait à travers les neuf sectes et les treize factions, jusque parmi les clans immortels!
 
 Les deux combattants ne dirent mot. Wang Lin agita la main droite et trois des six fleurs noires se dissipèrent immédiatement. Les trois restantes s'effondrèrent pour permettre la récupération de son Corps Antique Immortel. Son bras droit fut totalement restauré.
 
 Quant au jeune homme, il possédait ses propres moyens. Ses mains formèrent un sceau, puis il pointa son corps à plusieurs reprises avant d'avaler une pilule semblable à une graine.
 
-La pilule fit soudainement jaillir une force étrange dans son organisme, annihilant les ombres du clan antique en lui. Cependant, sa récupération fut légèrement plus lente que celle de Wang Lin, car il avait dû ingérer ce remède!
+La pilule fit soudainement jaillir une force étrange dans son organisme, annihilant les ombres des trois clans antiques en lui. Cependant, sa récupération fut légèrement plus lente que celle de Wang Lin, car il avait dû ingérer ce remède!
 
 Ces quelques instants de répit suffirent à Wang Lin pour accomplir son dessein. Il n'attaqua pas le jeune homme, mais forma un poing et frappa la tour pendant que celui-ci se rétablissait.
 

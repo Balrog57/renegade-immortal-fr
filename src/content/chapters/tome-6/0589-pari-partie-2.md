@@ -38,7 +38,7 @@ Le Commandant Céleste restait impassible, ne montrant aucun signe d'impression,
 
 « C'est exact. D'après mes observations, cet enfant ne semble pas utiliser toute sa force. S'il s'y mettait vraiment, il pourrait peut-être atteindre une neuvième résonance! »
 
-« Être aussi perspicace à un âge si précoce est extrêmement rare! »
+« Avoir autant de finesse et de discrétion à un âge si précoce est extrêmement rare! »
 
 Les vice-commandants en chef discutaient également entre eux. Le Vice-Commandant en Chef Jaune sourit au Vice-Commandant en Chef Xuan et lui dit: « Allez-vous toujours refuser d'admettre votre défaite? »
 
@@ -90,11 +90,11 @@ L'homme à l'armure dorée ne cacha pas son intention meurtrière et rétorqua: 
 
 Wang Lin répondit: « Parle. »
 
-« Je parie que tu ne pourras pas faire résonner le tambour cinq fois! Si tu y parviens, je te recommanderai personnellement à l'Empereur Démon et je garantirai que tu obtiendras au moins le rang de général démoniaque. Mais si tu perds, tu devras assumer la responsabilité d'avoir blessé un général démoniaque! Si tu n'oses pas, alors dégage de cette scène et fuis la Cité du Démon Céleste! Tu n'es pas le bienvenu ici! » Une fois l'homme terminé, un brouhaha de discussions envahit la zone.
+« Je parie que tu ne pourras pas faire résonner le tambour cinq fois! Si tu y parviens, je te recommanderai personnellement à l'Empereur Démon et je garantirai que tu obtiendras le rang de général démoniaque. Mais si tu perds, tu devras assumer la responsabilité d'avoir blessé un général démoniaque! Si tu n'oses pas, alors dégage de cette scène et fuis la Cité du Démon Céleste! Tu n'es pas le bienvenu ici! » Une fois l'homme terminé, un brouhaha de discussions envahit la zone.
 
-« Le faire résonner cinq fois? Bien que cet étranger ait vaincu Ao Di, ce tambour est un véritable test! Au plus, je pense qu'il pourra atteindre trois résonances, ce qui serait déjà remarquable. Quant à Ao Di, il ne peut en faire qu'une! »
+« Le faire résonner cinq fois? Bien que cet étranger ait tué Ao Di, ce tambour est un véritable test! Au plus, je pense qu'il pourra atteindre trois résonances, ce qui serait déjà remarquable. Quant à Ao Di, il ne peut en faire qu'une! »
 
-« Ao Di n'est qu'un général de rang intermédiaire. Shi Xiao, Mo Fei, Yu Sen et bien d'autres l'écraseraient sans difficulté. Le fait que Wang Lin ait battu Ao Di ne signifie pas grand-chose. »
+« Ao Di n'est qu'un général de rang intermédiaire. Shi Xiao, Mo Fei, Yu Sen, Xie Lian et bien d'autres l'écraseraient sans difficulté. Le fait que Wang Lin ait battu Ao Di ne signifie pas grand-chose. »
 
 « Le Grand Intendant Doré est audacieux de parier avec cet étranger. »
 

@@ -66,7 +66,7 @@ La femme nommée Ge était rongée par le ressentiment, mais elle n'osait pas l'
 
 La femme nommée Ge laissa échapper un reniflement glacial sans répondre. Cependant, la voix de Li Yuan résonna soudainement dans son esprit:
 
-« Madame Ge, j'ai déjà enveloppé mon sens divin dans des restrictions, il ne peut donc pas nous entendre. Cet homme a entendu notre échange précédent, il sait donc que mon âme de vie est entre les mains de votre famille. Tant qu'il vous contrôle, il nous contrôle tous les deux. Cependant, Madame peut être rassurée, je trouverai un moyen de récupérer votre âme de vie! »
+« Madame Ge, j'ai déjà enveloppé mon sens divin dans des restrictions, il ne peut donc pas nous entendre. Cet homme a entendu notre échange précédent, il sait donc que mon âme de vie est entre les mains de votre famille. Tant qu'il vous contrôle, il nous contrôle tous les deux. Cependant, Madame peut être rassurée, je trouverai un moyen de récupérer votre âme! »
 
 La voix de Li Yuan était prudente, mais elle transmettait sincérité et détermination. Bien que la femme Ge ait laissé échapper un ricanement froid, son cœur s'apaisa. Il semblait qu'elle accordait du crédit à l'explication de Li Yuan.
 

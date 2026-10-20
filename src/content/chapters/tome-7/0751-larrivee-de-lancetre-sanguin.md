@@ -24,11 +24,11 @@ L'expression de Wang Lin resta neutre, mais son esprit s'agita. Par sa réponse,
 
 « En compensation, j'offre la Restriction d'Annihilation et la Restriction des 18 Pruniers! »
 
-Wang Lin regarda Li Yuan avec sérénité. Si l'affaire était aussi simple que ce qu'il avançait, prêter main-forte ne poserait aucun problème. Sans parler de la Restriction d'Annihilation, la seule Restriction complète des 18 Pruniers augmenterait considérablement sa puissance. Certains de ses aspects pourraient même servir à améliorer ses propres sorts.
+Wang Lin regarda Li Yuan avec sérénité. Si l'affaire était aussi simple que ce qu'il avançait, prêter main-forte ne poserait aucun problème. Sans parler de la Restriction d'Annihilation, la Restriction des 18 Pruniers, si elle était entièrement maîtrisée, augmenterait considérablement sa puissance. Certains de ses principes ont même des points communs avec ses propres sorts.
 
-Tout en réfléchissant, Wang Lin jeta un regard furtif vers la statue de pierre, évitant soigneusement l'empreinte de la main avant de détourner les yeux. Il semblait avoir vaguement remarqué quelque chose: l'apparence du céleste ressemblait... étrangement à celle de Ge Hong.
+Tout en réfléchissant, Wang Lin jeta un regard furtif vers la statue de pierre, évitant soigneusement l'empreinte de la main avant de détourner les yeux. Il semblait avoir vaguement remarqué quelque chose: l'apparence du céleste ressemblait... légèrement à celle de Ge Hong.
 
-« Frère Xu, ma culture ne peut égaler la vôtre; même avec les restrictions, je ne peux vous atteindre, sans parler de cette énergie d'épée, alors pourquoi douter encore de moi? Quoi qu'il en soit, pour prouver ma sincérité, je vous donnerai le reste de la Restriction des 18 Pruniers. Une fois le sceau brisé, je remettrai la Restriction d'Annihilation au frère Xu! » La voix de Li Yuan était empreinte de sincérité alors qu'il fixait Wang Lin.
+« Frère Xu, ma culture ne peut égaler la vôtre; même avec les restrictions, je ne pourrais résister à cette énergie d'épée, alors pourquoi douter encore de moi? Quoi qu'il en soit, pour prouver ma sincérité, je vous donnerai le reste de la Restriction des 18 Pruniers. Une fois le sceau brisé, je remettrai la Restriction d'Annihilation au frère Xu! » La voix de Li Yuan était empreinte de sincérité alors qu'il fixait Wang Lin.
 
 Wang Lin ne manifesta aucune émotion, mais il hocha la tête.
 
@@ -52,7 +52,7 @@ Chaque visage portait entre les sourcils une marque similaire. À mesure que les
 
 À cet instant précis, Li Yuan se mordit la langue et cracha du sang dans la flamme rouge. Le feu absorba le sang et grandit soudainement.
 
-Des hurlements fantomatiques s'élevèrent de la flamme, envahissant les environs. Toute la montagne fut enveloppée par ces lamentations d'outre-tombe.
+Des hurlements fantomatiques s'élevèrent de la flamme, envahissant les environs. Tout le sommet fut enveloppé par ces lamentations d'outre-tombe.
 
 Le visage de Li Yuan était illuminé par ce brasier rouge, lui conférant un aspect féroce. Il toucha son sac de rangement et une boussole en sortit. Dès qu'elle apparut, Li Yuan la projeta dans les flammes.
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin s'illuminèrent et il eut un rictus méprisant. Loin d'util
 
 Le retrait de Wang Lin força Li Yuan à tourner brusquement la tête vers lui. Affichant une expression féroce, il cria: « Confrère cultivateur Xu, si vous n'agissez pas maintenant, quand le ferez-vous!?!? »
 
-À cet instant, les fissures sur la statue s'accentuèrent, montrant des signes d'effondrement imminent. La sensation de l'éveil s'intensifia. La majeure partie du ressentiment dans les flammes avait été absorbée, tout comme la lumière blanche.
+À cet instant, les fissures sur la statue s'accentuèrent, montrant des signes d'effondrement imminent. La sensation de l'éveil s'intensifia. La majeure partie du ressentiment dans les flammes avait été absorbée, et la lumière blanche avait entièrement disparu.
 
 Ce ressentiment et cette lumière agissaient comme des nutriments, donnant à la statue la force de se libérer. Cependant, un sceau empêchait la statue de se libérer, et ce sceau tendait à la faire s'effondrer avec elle.
 
@@ -88,7 +88,7 @@ Wang Lin recula encore plus vite, parcourant trois cents mètres en un instant. 
 
 Sa charge fut semblable à une téléportation, lui permettant de rattraper directement Wang Lin, alors il hurla: « Confrère cultivateur Xu, pourquoi fuyez-vous ainsi!? »
 
-« Le récit du confrère Li est très séduisant, mais je crains que votre but ne soit pas de briser le sceau de la famille Li, mais bien de réveiller la statue céleste! » Tandis que Wang Lin reculait, une ombre vacilla derrière lui. Le garde céleste surgit et lança un coup de poing vers Li Yuan!
+« Le récit du confrère Li est très séduisant, mais je crains que votre but ne soit pas de briser le sceau de la famille Li, mais bien de ressusciter la statue céleste! » Tandis que Wang Lin reculait, une ombre vacilla derrière lui. Le garde céleste surgit et lança un coup de poing vers Li Yuan!
 
 L'impact fut d'une violence inouïe, produisant un fracas assourdissant.
 

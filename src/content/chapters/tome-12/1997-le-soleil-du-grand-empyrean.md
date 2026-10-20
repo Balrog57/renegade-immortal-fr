@@ -20,7 +20,7 @@ C'était l'apogée de l'adage: « Nous, les cultivateurs, pourquoi hésiterions-
 
 À l'époque, Jiu Di n'aurait jamais pu imaginer que Wang Lin survivrait au plan du clan Dao Wang. S'il l'avait su, il ne lui aurait jamais confié ce fragment!
 
-Après avoir fusionné ce fragment dans son corps, les yeux de Wang Lin aux cheveux noirs révélèrent une lueur étrange. Il fit un pas en avant et frappa sa poitrine du revers de la main droite.
+Après avoir fusionné ce fragment dans son corps, les yeux de Wang Lin aux cheveux noirs révélèrent une lueur étrange. Il fit un pas en avant et frappa sa poitrine de la main droite.
 
 « Vrai corps des cinq éléments, sors! »
 
@@ -64,7 +64,7 @@ L'eau et le feu se transformèrent en ondes ardentes et aquatiques balayant Dao 
 
 Simultanément, les yeux du Wang Lin aux cheveux noirs s'illuminèrent. Il fit un pas en avant et son corps explosa en d'innombrables éclairs noirs qui foncèrent sur Dao Yi!
 
-C'était son attaque la plus puissante: l'union du corps originel du massacre et du vrai corps des cinq éléments!
+C'était son attaque la plus puissante: l'union du corps du massacre et du vrai corps des cinq éléments!
 
 Des grondements tonitruants parcoururent le monde et Dao Yi poussa un cri déchirant. Ses vêtements étaient en lambeaux et le sang coulait de ses traits ravagés. Le soleil flou derrière lui s'effondra soudainement!
 
@@ -82,7 +82,7 @@ Il craignait non seulement Wang Lin, mais aussi la malédiction ancestrale qui v
 « Essence du commencement absolu, Nuit Brisée! »
 « Vie et mort, karma, vrai et faux, dispersion du vide, recouvrez le monde! » crièrent en même temps le Wang Lin aux cheveux noirs et le corps véritable des cinq éléments de Wang Lin!
 
-Alors que Dao Yi s'apprêtait à partir, le ciel déchiré au-dessus de lui flasha soudainement et une rune apparut. C'était la puissance de scellement de l'essence de restriction de Wang Lin!
+Alors que Dao Yi s'apprêtait à partir, le ciel, déjà brisé et réduit au néant, flasha soudainement au-dessus de lui et une rune apparut. C'était la puissance de scellement de l'essence de restriction de Wang Lin!
 
 Après l'essence de restriction, un soleil éclatant apparut. Il dégagea une lumière éblouissante qui fusionna avec la restriction, créant une scène où la lumière scellait le monde entier.
 

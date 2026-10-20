@@ -34,7 +34,7 @@ Elle dégageait une aura antique, profondément marquée par le passage du temps
 
 C'était une catapulte géante! Une immense boule de feu reposait dans l'engin. Cette flamme n'avait aucune couleur et demeurait invisible, mais on pouvait en ressentir une chaleur inimaginable.
 
-Dans un fracas assourdissant, la catapulte projeta la boule de feu droit sur Tuo Sen. Une seule boule de feu n'aurait été qu'un contretemps, mais presque immédiatement après le premier tir, la formation en forgea une autre, et la catapulte se mit à en lancer sans relâche!
+Dans un fracas assourdissant, la catapulte projeta la boule de feu droit sur Tuo Sen. Une seule boule de feu aurait pu être supportable, mais presque immédiatement après le premier tir, la formation en forgea une autre, et la catapulte se mit à en lancer sans relâche!
 
 Au cours des éons, alors que les gens du Royaume Scellé tentaient de briser la formation de scellement, un nombre inimaginable de personnes y avaient péri!
 
@@ -58,7 +58,7 @@ Avec l'étoile contenant l'origine d'un cultivateur du troisième pas ouvrant la
 
 Les six esprits de la formation attaquèrent frénétiquement pour tenter de l'arrêter. La catapulte lançait d'innombrables boules de feu et, tandis que les grondements célestes résonnaient, Tuo Sen accélérait encore!
 
-C'est à ce moment qu'un autre rayon de lumière jaillit de la formation. Il était noir, comme le vide lui-même, et en se dispersant, la formation sembla s'effacer. Cette lueur noire se condensa en un immense bâton enveloppé de brumes sombres. Dès son apparition, il dégagea une aura capable d'absorber l'âme même.
+C'est à ce moment qu'un autre rayon de lumière jaillit de la formation. Il était noir, comme le vide lui-même, et en se dispersant, la formation sembla s'effacer. Cette lueur noire se condensa en une immense massue à crocs enveloppée de brumes sombres. Dès son apparition, il dégagea une aura capable d'absorber l'âme même.
 
 À l'instant où le bâton apparut, il balaya Tuo Sen.
 

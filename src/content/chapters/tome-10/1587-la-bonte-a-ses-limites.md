@@ -22,7 +22,7 @@ Il avait également brisé le sceau, permettant ainsi à Wang Lin de se mouvoir 
 
 Wang Lin leva promptement la main droite et saisit la goutte de sang qui flottait au-dessus de lui. Cette goutte était d'une pureté extrême; elle constituait sa lignée céleste et ne pouvait donc pas être placée dans son espace de stockage. Il la serra dans sa paume et se précipita vers la brèche céleste.
 
-« Si je quitte cet endroit, je pourrai survivre à cette calamité de vie ou de mort! Maintenant que le ciel est ouvert, l'aura va s'échapper et tous les cultivateurs du troisième niveau du Royaume Intérieur vont s'en apercevoir! » Les yeux de Wang Lin brillaient de folie alors qu'il fonçait vers l'ouverture.
+« Si je quitte cet endroit, je pourrai survivre à cette calamité de vie ou de mort! Maintenant que le ciel est ouvert, l'aura va s'échapper et tous les puissants cultivateurs du Royaume Intérieur vont s'en apercevoir! » Les yeux de Wang Lin brillaient de folie alors qu'il fonçait vers l'ouverture.
 
 La loi d'origine du Souverain et la technique « Pêcher la Lune dans le Puits » avaient été utilisées pour extraire la lignée céleste de Wang Lin. Son but était de s'emparer de cette goutte de sang condensée. Bien que Wang Lin ne l'ait pas offerte de son plein gré, le Souverain possédait ses méthodes pour obtenir ce qu'il désirait.
 
@@ -56,9 +56,9 @@ Ces pensées traversèrent l'esprit de Wang Lin alors qu'il fonçait vers la br�
 
 C'était comme dans une maison de mortels plongée dans la nuit, toute noire à l'intérieur: le maître dormait et un voleur s'agitait dans l'ombre, quand soudain les lampes s'allumaient et éclairaient tout avec netteté.
 
-Ce lieu de mise à mort, autrefois dissimulé aux puissants du Royaume Intérieur, ne pouvait plus rester caché une fois cette brèche ouverte. Instantanément, elle fut ressentie par les divers cultivateurs du troisième niveau du Royaume Intérieur!
+Ce lieu de mise à mort, autrefois dissimulé aux puissants du Royaume Intérieur, ne pouvait plus rester caché une fois cette brèche ouverte. Instantanément, elle fut ressentie par les divers puissants cultivateurs du Royaume Intérieur!
 
-Dans la Mer des Nuages, Maître Hong Shan était en train de raffiner le cultivateur du troisième niveau capturé dans le Royaume aux Sept Couleurs au sein de la Rivière Invoquée. Il venait de remarquer une anomalie dans l'âme lorsqu'il leva soudainement les yeux vers l'horizon. Son expression changea radicalement.
+Dans la Mer des Nuages, Maître Hong Shan était en train de raffiner le puissant du Royaume Extérieur capturé dans le Royaume aux Sept Couleurs au sein de la Rivière Invoquée. Il venait de remarquer une anomalie dans l'âme lorsqu'il leva soudainement les yeux vers l'horizon. Son expression changea radicalement.
 
 « Ce n'est pas bon! » Sans hésiter, Maître Hong Shan écarta la marionnette qu'il manipulait et s'élança. Des ondulations se propagèrent alors qu'il disparaissait à toute allure.
 
@@ -78,7 +78,7 @@ Cet homme était Qing Shui. Il laissa échapper un soupir et s'apprêtait à rep
 
 « Wang Lin! » Après avoir ressenti l'aura imminente dans le Royaume Intérieur, Qing Shui ne songea plus à ses propres affaires. Le froid et l'intention meurtrière envahirent son regard alors qu'il chargeait vers le Vide Brillant.
 
-Dans la Rivière Invoquée, le jeune homme qui s'était échappé lors de la divine rétribution de Wang Lin ne parvenait toujours pas à localiser l'endroit. Il avait décidé de s'asseoir en tailleur dans la zone suspectée pour y réfléchir. Soudain, ses yeux s'illuminèrent et il tourna son regard vers le Vide Brillant.
+Dans la Rivière Invoquée, le jeune homme qui s'était échappé lors de la Tribulation Céleste de Wang Lin ne parvenait toujours pas à localiser l'endroit. Il avait décidé de s'asseoir en tailleur dans la zone suspectée pour y réfléchir. Soudain, ses yeux s'illuminèrent et il tourna son regard vers le Vide Brillant.
 
 « Oh? » Ses yeux se rétrécirent et, dans un fracas d'ondulations, il disparut.
 

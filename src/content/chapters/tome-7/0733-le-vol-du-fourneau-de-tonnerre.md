@@ -22,7 +22,7 @@ On pouvait dire que l'énergie originelle était la clé pour atteindre l'apogé
 
 S'ajoutait à cela le fait que les cultivateurs Ascendants ne pouvaient pas absorber l'énergie originelle du monde pour se rétablir; il était donc naturel que peu d'entre eux atteignent le sommet.
 
-Après avoir cultivé dans le lac de tonnerre, Wang Lin avait atteint la limite de l'énergie originelle que son âme originelle pouvait contenir, satisfaisant ainsi l'exigence fondamentale. À mesure que son domaine s'affinait, cela stimulait sa culture. Il progressait lentement vers le sommet du stade avancé de l'Ascendant en absorbant l'énergie spirituelle céleste.
+Après avoir cultivé dans le lac de tonnerre, Wang Lin avait atteint la limite de l'énergie originelle que son âme originelle pouvait contenir, satisfaisant ainsi l'exigence fondamentale. À mesure que son domaine s'élevait, cela stimulait sa culture. Il progressait lentement vers le sommet du stade avancé de l'Ascendant en absorbant l'énergie spirituelle céleste.
 
 Cependant, la quantité d'énergie spirituelle céleste requise pour atteindre l'apogée de la première étape était terrifiante. Après un an d'absorption, Wang Lin avait épuisé tous ses jades célestes. Il sortit alors le liquide céleste et le but sans la moindre hésitation.
 
@@ -106,7 +106,7 @@ Wang Lin hocha la tête et cessa de perdre son temps en futilités. L'ombre derr
 
 Ce coup dégageait une puissance sonore phénoménale alors qu'il fonçait vers le vieil homme.
 
-Le visage du vieil homme se décomposa. Il pensait que Wang Lin n'était qu'au sommet du stade avancé de l'Ascendant et croyait même que la Bête de Tonnerre était une illusion. Il n'aurait jamais imaginé que Wang Lin possède une telle marionnette.
+Le visage du vieil homme se décomposa. Il pensait que Wang Lin n'était qu'au sommet du stade avancé de l'Ascendant et croyait même que la Bête du Tonnerre était une illusion. Il n'aurait jamais imaginé que Wang Lin possède une telle marionnette.
 
 Après un reniflement méprisant, le vieil homme forma un sceau et pointa la main en avant. Une flamme noire jaillit soudainement de sa paume. D'un geste vif, la flamme fut projetée, se divisant en d'innombrables étincelles qui encerclèrent immédiatement la zone.
 
@@ -124,17 +124,17 @@ Alors que le son résonnait encore, le vieil homme recula, le visage blême. Le 
 
 Le vieil homme fixa Wang Lin. Le coup porté par la marionnette l'avait profondément stupéfié. À moins d'utiliser des sorts originels, il lui serait impossible de vaincre une marionnette dont le niveau de culture était comparable au sien.
 
-« Pour qu'un homme possède une telle marionnette, il ne peut être ordinaire. Même s'il usurpe l'identité d'un messager du Temple Céleste, cela ne me regarde pas. C'est juste que... si je lui remets simplement un fourneau, c'est toute la face de ma famille Zhang qui sera perdue... » Le vieil homme était dans une impasse. Si Wang Lin avait atteint la deuxième étape, il lui aurait sans doute cédé un fourneau sans discuter; après tout, la famille en possédait trois. Mais Wang Lin n'était qu'au sommet du stade avancé de l'Ascendant. S'il cédait sans combat, son honneur en serait mortellement affecté.
+« Pour qu'un homme possède une telle marionnette, il ne peut être ordinaire. Même s'il usurpe l'identité d'un messager du Temple Céleste, cela ne me regarde pas. C'est juste que... si je lui remets simplement un fourneau, c'est toute la face de ma famille Zhang qui sera perdue... » Le vieil homme était dans une impasse. Si Wang Lin avait atteint la deuxième étape, il lui aurait sans doute cédé un fourneau sans discuter; après tout, la famille en possédait trois. Mais Wang Lin n'était qu'au sommet du stade avancé de l'Ascendant. S'il cédait sans combat, son honneur en souffrirait.
 
 Wang Lin ne voulait pas s'attarder sur ces futilités. Bien que le niveau de culture de cet homme fût plus élevé que prévu, celui-ci venait tout juste d'atteindre le stade de l'Yin Illusoire et n'était pas encore stable. Avec sa culture au sommet de l'Ascendant, ses sorts et ses trésors, combattre ce vieil homme ne serait pas une tâche insurmontable.
 
-Il frappa son sac de rangement et une pierre de montagne apparut instantanément dans sa main. La pierre se métamorphosa pour devenir une montagne massive, dégageant une riche énergie spirituelle céleste doublée d'une pression écrasante.
+Il frappa son sac de rangement et une pierre de montagne apparut instantanément dans sa main. La pierre se métamorphosa pour devenir une montagne massive, dégageant une riche énergie spirituelle céleste doublée d'une légère pression.
 
 Wang Lin pressa sa main droite contre elle, faisant trembler la montagne. Une aura ancienne s'accumula sous sa paume. Lorsqu'il leva la main, des filaments de brume se rassemblèrent pour former un nuage de la taille d'un poing.
 
-En voyant cela, l'expression du vieil homme changea radicalement. Horrifié, il s'écria sans hésitation: « Le sort d'extraction d'âme! Tu n'es qu'au sommet de la première étape, comment peux-tu utiliser un tel sort? »
+En voyant cela, l'expression du vieil homme changea radicalement. Horrifié, il recula sans hésiter et s'écria: « Le sort d'extraction d'âme! Tu n'es qu'au sommet de la première étape, comment peux-tu utiliser un tel sort? »
 
-Le regard de Wang Lin resta calme alors que sa main droite projetait le brouillard, qui fonça vers le vieil homme avec une pression dévastatrice. Simultanément, Wang Lin chargea dans la foulée du nuage. Il leva sa main droite et un éclair se rassembla au creux de sa paume. Un rugissement tonitruant retentit parmi les étoiles et, en un éclair, un véritable coup de foudre prit forme dans sa main.
+Le regard de Wang Lin resta calme alors que sa main droite projetait le brouillard, qui fonça vers le vieil homme avec une pression dévastatrice. Simultanément, Wang Lin chargea dans la foulée du nuage. Il leva sa main droite et un éclair se rassembla au creux de sa paume. Un rugissement tonitruant retentit parmi les étoiles et, en un éclair, la foudre prit une forme concrète dans sa main.
 
 À cet instant, Wang Lin ressemblait à une divinité contrôlant la foudre. Tenant l'éclair, il avança vers le vieil homme d'un pas glacial.
 
@@ -150,7 +150,7 @@ L'expression de Wang Lin changea. Le sort de cet homme était d'une étrangeté 
 
 Sous l'effet de la lumière rouge, l'âme de la montagne commença à se désintégrer rapidement. Wang Lin plissa les yeux et lança sans hésiter l'éclair qu'il tenait en main.
 
-L'éclair fonça droit sur le vieil homme. Ce dernier fut incapable d'utiliser son sort originel à pleine puissance, car il n'était au stade de l'Yin Illusoire que depuis deux ans et manquait cruellement d'énergie originelle.
+L'éclair fonça droit sur le vieil homme. Ce dernier fut incapable d'utiliser son sort originel à pleine puissance, car il n'était au stade de l'Yin Illusoire que depuis moins de deux ans et manquait cruellement d'énergie originelle.
 
 De ce fait, la lumière rouge du troisième œil ne dura que trois respirations avant qu'il ne s'effondre sous la douleur. L'œil se referma automatiquement et la lueur disparut.
 

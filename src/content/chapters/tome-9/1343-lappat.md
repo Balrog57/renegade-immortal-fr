@@ -50,7 +50,7 @@ Le ciel était initialement couvert d'une infinité de nuages de rétribution, m
 
 Le fracas qui en résulta fut encore plus assourdissant; les nuages de rétribution furent lacérés, révélant une brèche! Un jeune homme vêtu de blanc sortit de cette ouverture!
 
-Dès l'apparition du jeune homme, l'expression de l'immortel changea radicalement et il rugit:
+Dès l'apparition du jeune homme, l'expression de l'être céleste changea radicalement et il rugit:
 
 « Qui es-tu?! Ce vieil homme était là le premier! »
 
@@ -82,7 +82,7 @@ L'individu qui venait d'arriver n'eut même pas le temps de comprendre ce qui lu
 
 L'homme d'âge moyen, toujours en pleine rétribution, sentit son cuir chevelu picoter. Malgré sa stupéfaction, il réalisa qu'il n'était autre que l'appât pour ce jeune homme en blanc...
 
-« Il peut tuer des êtres célestes instantanément! »
+« Il a vraiment tué un être céleste!! »
 
 Le temps passa. Bientôt, une autre personne sortit de la brèche. Ce nouveau venu était très prudent et déploya d'immenses protections autour de lui dès son apparition. Cependant, d'un simple geste de Wang Lin, toutes ces protections s'effondrèrent avec son corps. Le cultivateur poussa un cri déchirant avant de mourir!
 
@@ -114,4 +114,4 @@ Le vieil homme cracha un flot de sang, les yeux écarquillés par une peur monst
 
 Des ondulations apparurent dans le ciel. Le jeune homme chauve qui avait emporté le cadavre, connu sous le nom de « Daoïste Esprit Dispersé » par les habitants des 7 Millions de Mondes, fit son apparition.
 
-Wang Lin regarda calmement l'audacieux jeune homme et dit lentement: « Tu m'as suivi jusqu'à aujourd'hui. Je ne te donnerai qu'une seule chance de t'expliquer. Si ton explication ne me satisfait pas, tu mourras! »
+Wang Lin regarda calmement le jeune homme et dit lentement: « Tu m'as suivi jusqu'à aujourd'hui. Je ne te donnerai qu'une seule phrase pour t'expliquer. Si ton explication ne me satisfait pas, tu mourras! »

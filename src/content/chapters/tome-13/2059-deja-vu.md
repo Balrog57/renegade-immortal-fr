@@ -38,7 +38,7 @@ L'Empereur de Shi Antique avait presque terminé le transfert de pouvoir à Ji D
 
 À mesure que ce jour approchait, les regards des habitants passèrent de la statue de l'Ancêtre Ancien au sujet le plus crucial de Shi Antique: l'ascension d'un nouvel empereur sur le trône!
 
-Alors qu'il restait vingt-cinq ans avant l'intronisation de Ji Du, d'innombrables armées de Shi Antique lui furent progressivement confiées afin qu'il ait assez de temps pour s'en imprégner. C'était l'une des préparations pour la grande guerre entre les Célestes et Shi Antique qui éclaterait peut-être dans quelques centaines d'années.
+Alors qu'il restait vingt-cinq ans avant l'intronisation de Ji Du, d'innombrables armées de Shi Antique lui furent progressivement confiées afin qu'il ait assez de temps pour s'en imprégner. C'était l'une des préparations pour la grande guerre entre les clans célestes et les clans Anciens qui éclaterait peut-être dans quelques centaines d'années.
 
 Cinq ans... Cinq ans... Cinq ans...
 
@@ -100,7 +100,7 @@ Au centre même de la place trônait un fourneau gigantesque.
 
 À l'intérieur du fourneau reposait une terre meuble dans laquelle était planté un immense bâton d'encens. L'encens n'était pas encore allumé — le seul capable de l'allumer était Ji Du!
 
-C'était l'encens du pouvoir impérial. Dès que le bâton serait allumé, la fumée se transformerait en tambour. Ji Du était également le seul à pouvoir frapper ce tambour. Une fois qu'il aurait résonné neuf fois, Ji Du recevrait la révérence de tout Shi Antique.
+C'était l'encens du pouvoir impérial. Dès que le bâton serait allumé, la fumée ferait surgir nuées et vents et se condenserait en un tambour assourdissant. Ji Du était également le seul à pouvoir frapper ce tambour. Une fois qu'il aurait résonné neuf fois, Ji Du recevrait la révérence de tout Shi Antique.
 
 Tout le monde attendait; même l'ancien Empereur de Shi Antique attendait.
 

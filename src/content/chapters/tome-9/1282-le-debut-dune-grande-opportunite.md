@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1282 - Beginning of a Great Opportunity
 slug: le-debut-dune-grande-opportunite
 ---
-Shui Daozi laissa échapper un cri déchirant; à cet instant, une flamme invisible semblait consumer son âme. Une douleur fulgurante explosa dans tout son corps!
+Shui Daozi laissa échapper un cri déchirant; à cet instant, une flamme invisible semblait consumer son âme et son âme originelle. Une douleur fulgurante explosa dans tout son corps!
 
 Le clou aux sept couleurs avait été spécialement conçu pour tuer les cultivateurs du troisième niveau! Le météore mystérieux venu des étoiles extérieures de l'Antiquité, raffiné par le Souverain, contenait une trace de puissance d'étoiles extérieures que le Souverain lui-même ne pouvait pleinement concevoir. Ce pouvoir pouvait infliger des dommages inimaginables aux cultivateurs du troisième niveau!
 
@@ -14,11 +14,11 @@ Même le Seigneur du Royaume Scellé avait péri après avoir été transpercé 
 
 En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètement en Shui Daozi, il n'aurait pas été confronté à une telle crise de vie ou de mort. L'attaque de Wang Lin ne pouvait percer que d'un pouce; pour Shui Daozi, il suffisait de dépenser un peu de culture pour expulser le clou.
 
-Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait enfoncé le clou jusqu'à cinq pouces de profondeur. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
+Cependant, l'avatar du vieil homme de pierre du Royaume Céleste du Vent était arrivé, et son doigt, venu sans prévenir, avait enfoncé le clou jusqu'à cinq pouces de profondeur. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
 
 Mobilisant sa puissante culture du troisième niveau, Shui Daozi parvint de justesse à réprimer l'attaque par la force. Il comptait tuer Wang Lin pour ensuite entrer en méditation de porte close afin de guérir.
 
-Pourtant, il n'aurait jamais pu imaginer qu'au moment même où son sort s'abattait pour achever Wang Lin, la pierre de jade de son maître apparaîtrait!
+Pourtant, il n'aurait jamais pu imaginer qu'au moment même où son sort s'abattait pour achever Wang Lin, le jade de son maître apparaîtrait!
 
 Le choc provoqué par la pierre n'était en rien inférieur à celui de voir la Perle Défiant le Ciel ou son propre maître! Mais rien de tout cela ne lui inspira le désespoir, jusqu'à... l'apparition du doigt!
 
@@ -26,7 +26,7 @@ Shui Daozi connaissait trop bien ce doigt. Il le reconnut d'un seul regard. C'é
 
 Cette découverte lui fit perdre la raison. Il n'eut même pas le temps de supplier que le doigt descendit, enfonçant définitivement le clou aux sept couleurs dans son crâne!
 
-À cet instant précis, alors que le clou s'était totalement enfoncé dans le crâne de Shui Daozi, celui-ci commença à fondre. Il dégagea une puissante lueur arc-en-ciel qui envahit son cerveau!
+À cet instant précis, alors que le clou s'était totalement enfoncé dans le crâne de Shui Daozi, il commença à fondre. Il dégagea une puissante lueur arc-en-ciel qui envahit son cerveau!
 
 Tous les orifices de Shui Daozi se mirent à irradier cette lumière aux sept couleurs! Sa tête ressemblait à une passoire percée de sept petits trous d'où jaillissait cette lueur spectrale!
 
@@ -36,7 +36,7 @@ La douleur était atroce et Shui Daozi laissa échapper des hurlements de souffr
 
 « Maître, vous m'aviez donné un talisman pour m'exempter de trois dangers. Maintenant que ces trois chances sont épuisées, vous venez pour me tuer... Karma, karma, karma!!! » Shui Daozi esquissa un sourire misérable, bien que son visage fût d'une férocité effrayante.
 
-« Je ne vous obéirai pas! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte de Dieu. Je prendrai votre place! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi!! Donnez-moi vos Flammes Joss pour résister au Clou Divin aux Sept Couleurs!! » Shui Daozi poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte de Dieu.
+« Je ne vous obéirai pas! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte Divine. Je prendrai votre place! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi!! Donnez-moi vos Flammes Joss pour résister au Clou Divin aux Sept Couleurs!! » Shui Daozi poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte Divine.
 
 La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau explosèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Shui Daozi pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Shui Daozi avant de disparaître avec lui.
 
@@ -88,15 +88,15 @@ Pourtant, ces paroles firent briller les yeux de la femme d'une détermination f
 
 Le temps passa. Trois jours, dix jours, dix-neuf jours... jusqu'à ce que trente jours s'écoulent.
 
-Dans un recoin de la région de rang 5, la femme aperçut la statue du vieillard criblée de fissures. Elle serra l'idole de pierre dans ses bras et ses larmes tombèrent sur elle, mais aucune réponse ne vint de la pierre.
+Dans un recoin de la région de rang 5, la femme aperçut la statue du vieillard criblée de fissures. Elle serra la statue de pierre dans ses bras et ses larmes tombèrent sur elle, mais aucun son ne s'en échappa.
 
-Portant la statue et pleurant sans relâche, la femme s'éloigna progressivement vers un lieu hors de portée de tous: un continent sauvage caché dans une région inconnue de la Mer des Nuages.
+Portant la statue et pleurant sans relâche, la femme s'éloigna progressivement vers un lieu hors de portée de tous: un continent sauvage profondément caché dans le brouillard stellaire, dans une région de rang inconnu de la Mer des Nuages.
 
 Ce continent abritait de nombreuses bêtes féroces car très peu d'âmes l'avaient découvert au fil des millénaires. À l'arrivée de la femme, les monstres commencèrent à rugir, avant de se taire instantanément. L'aura émanant du corps de la femme semblait faire trembler les créatures, qui n'osaient plus émettre le moindre son.
 
 Dans la partie nord de ce continent sauvage, la femme descendit dans une vallée avec la statue de pierre. Elle aménagea l'endroit et contempla silencieusement la statue tandis qu'ils s'installaient ensemble.
 
-Chaque jour, la femme se tenait devant la statue, se mordait le bout du doigt et recouvrait l'idole de son sang. La pierre étant très rugueuse, la douleur au doigt était intense. Pourtant, la femme fixait les yeux de la statue comme si elle ignorait ce qu'était la souffrance.
+Chaque jour, la femme se tenait devant la statue, se mordait le bout du doigt et recouvrait la statue de son sang. La pierre étant très rugueuse, la douleur au doigt était intense. Pourtant, la femme fixait les yeux de la statue comme si elle ignorait ce qu'était la souffrance.
 
 La statue de pierre était imposante, de la taille d'un homme. La recouvrir de sang demandait un temps considérable, et sa blessure formait souvent une croûte avant qu'elle n'ait terminé; chaque fois, elle arrachait la croûte et pressait de nouveau son doigt pour en extraire du sang et continuer.
 
@@ -104,7 +104,7 @@ Après avoir répété cela maintes fois, cette douleur devint une véritable to
 
 Jour après jour, ce supplice était plus cruel que n'importe quelle agonie!
 
-Chaque fois qu'elle couvrait la statue de sang, celle-ci l'absorbait. Elle se mettait à briller comme si elle recouvrait une part de vitalité, et semblait même paraître moins âgée! Au début, l'absorption prenait une journée entière, mais avec le temps, la vitesse s'accéléra; le sang ne mettait plus que dix heures à disparaître, obligeant la femme à recommencer.
+Chaque fois qu'elle couvrait la statue de sang, celle-ci l'absorbait. Elle se mettait à briller comme si elle recouvrait une part de vitalité, et semblait même paraître moins âgée! Au début, l'absorption prenait une journée entière, mais avec le temps, la vitesse s'accéléra; le sang ne mettait plus que vingt heures à disparaître, obligeant la femme à recommencer.
 
 Un mois, deux mois... quatre mois... sept mois... un an!
 

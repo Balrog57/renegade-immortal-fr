@@ -32,7 +32,7 @@ Dès que l'ombrelle se manifesta, une vague de chaleur jaillit et se répandit d
 
 Wang Lin leva les yeux vers l'ombrelle incandescente et mordit sa langue pour en asperger l'objet de son sang. Le sang semblait s'enflammer tandis qu'il s'élevait vers les cieux. Des grondements tonitruants résonnèrent, puis l'ombrelle disparut lentement. Même la gigantesque armature devint transparente jusqu'à ce qu'il ne reste plus aucune trace d'elle.
 
-L'Ombrelle Brûlante du Royaume s'était fondue dans le vide, les rendant impossibles à distinguer. Cependant, quiconque pénétrerait sur cette planète serait enveloppé par les flammes.
+L'Ombrelle Brûlante du Royaume s'était fondue dans le vide, les rendant impossibles à distinguer. Cependant, quiconque pénétrerait sur cette planète serait enveloppé par l'ombrelle.
 
 C'était la première embuscade!
 

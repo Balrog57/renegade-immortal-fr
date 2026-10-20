@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1631 - Ancient Celestial Realm
 slug: royaume-celeste-antique
 ---
-Le Dieu Ancien portait une cicatrice béante sur la poitrine, comme si quelqu'un avait failli lui ouvrir le torse d'un seul coup dans des temps immémoriaux. Un Dieu Ancien à 8 étoiles, même dépourvu de lignée royale, possédait déjà une puissance phénoménale. Laisser une marque aussi terrifiante témoignait de l'étendue de leur force.
+Le Dieu Ancien portait une cicatrice béante sur la poitrine, comme si quelqu'un avait failli lui ouvrir le torse d'un seul coup dans des temps immémoriaux. Un Dieu Ancien à 8 étoiles, même dépourvu de lignée royale, possédait déjà un corps d'une solidité redoutable. Une telle blessure témoignait de la puissance de celui qui l'avait infligée.
 
 Rugissement!
 
@@ -16,15 +16,15 @@ Une tempête d'une puissance inouïe se propagea, soulevant les nuages. Une ombr
 
 Cette ombre était également un Dieu Ancien, mais il était revêtu d'une armure. Une aura de massacre incessant émanait de cette silhouette et, sur son front, se trouvaient... neuf étoiles!
 
-Wang Lin étant lui-même un Dieu Ancien, et de lignée royale pour ajouter au prestige, il comprit que l'ombre surgissant derrière le Dieu Ancien représentait une figure qu'ils respectaient profondément, ou bien un titre héréditaire.
+Wang Lin étant lui-même un Dieu Ancien, et de lignée royale, il comprit que l'ombre surgissant derrière un Dieu Ancien était soit son héritage, soit celui envers qui il était loyal.
 
 Cette ombre était le symbole de l'identité et des origines du Dieu Ancien. Le dieu à 8 étoiles était manifestement loyal envers ce Dieu Ancien à 9 étoiles portant l'armure!
 
 Bien que les yeux de Wang Lin fussent clos, il percevait tout avec une clarté absolue. Tandis que le poing du Dieu Ancien s'abattait, le monde entier trembla. Alors que l'impact se trouvait à moins de cent pieds de lui, Wang Lin n'ouvrit toujours pas les yeux. Au lieu de cela, il fit un pas en avant et leva la paume de sa main droite pour parer le coup.
 
-Grâce à ce blocage, le corps de Wang Lin ne bougea pas d'un iota et il parvint à dévier l'assaut du Dieu Ancien sur le côté. Les yeux vides de ce dernier se remplirent d'incrédulité en voyant son coup de poing, pourtant si puissant, être ainsi repoussé avec une telle aisance.
+Grâce à ce blocage, le corps de Wang Lin ne bougea pas d'un iota et il parvint à dévier l'assaut du Dieu Ancien sur le côté. Ses yeux ternes se remplirent d'incrédulité en voyant son coup de poing, pourtant si puissant, être ainsi repoussé avec une telle aisance.
 
-Après avoir dévié l'attaque, la paume de Wang Lin vint tapoter délicatement le sommet du crâne du Dieu Ancien.
+Après avoir dévié l'attaque, la paume de Wang Lin vint tapoter délicatement le vaste corps du Dieu Ancien.
 
 Dans un fracas de tonnerre, le Dieu Ancien recracha une gorgée de sang avant d'être projeté en arrière sur cent mille pieds.
 
@@ -46,11 +46,11 @@ Ces sortilèges étaient d'une étrangeté extrême. Ils se transformaient en ar
 
 Une hache de guerre noire et gigantesque apparut: un trésor de Diable Ancien. L'un des démons la fit surgir et l'abattit sur Wang Lin, provoquant un froid glacial dans le regard de ce dernier.
 
-Les Dieux Anciens appartenant au même clan, il s'était montré relativement indulgent. Les Diables Anciens appartenaient à la même race, mais pas au même clan. Alors que la hache descendait, le corps de Wang Lin vacilla et sa paume droite pressa la lame de l'arme. Le Diable Ancien frémit tandis que la hache se désintégrait en une énergie démoniaque infinie. Cette énergie fonça vers l'œil droit clos de Wang Lin.
+Les Dieux Anciens appartenant au même clan, il s'était montré relativement indulgent. Les Diables et les Démons Anciens appartenaient à la même race, mais pas au même clan. Alors que la hache descendait, le corps de Wang Lin vacilla et sa paume droite pressa la lame de l'arme. Le Diable Ancien frémit tandis que la hache se désintégrait en d'innombrables volutes d'énergie démoniaque. Cette énergie fonça vers l'œil droit clos de Wang Lin.
 
 En un éclair, elle fut intégralement absorbée par son œil.
 
-Tout en absorbant cette énergie, Wang Lin fit un pas en avant et se retrouva face à un Diable Ancien. Sa main droite pressa la poitrine de la créature, puis il referma le poing avant de le retirer brusquement.
+Tout en absorbant cette énergie, Wang Lin fit un pas en avant, fendant l'air à une vitesse prodigieuse, et se retrouva face à un Diable Ancien. Sa main droite pressa la poitrine de la créature, puis il referma le poing avant de le retirer brusquement.
 
 Un cri déchirant retentit et le Diable Ancien à 8 étoiles explosa. Wang Lin aspira le gaz noir et dense qui en émanait pour l'injecter dans son œil droit.
 

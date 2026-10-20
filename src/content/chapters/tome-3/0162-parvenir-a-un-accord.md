@@ -40,7 +40,7 @@ Même s'il tentait d'utiliser des restrictions, toutes seraient annihilées dès
 
 C'était précisément la raison pour laquelle il avait failli mourir lors de sa première incursion, mille ans auparavant. Il lui avait fallu un millénaire pour recouvrer sa culture et, bien qu'elle fût désormais légèrement supérieure à celle d'autrefois, il n'en pouvait éviter de frissonner chaque fois qu'il songeait à cet endroit.
 
-Par conséquent, il ne pouvait imposer aucune restriction à Wang Lin. En entendant les paroles de ce dernier, il se détendit un peu et, d'un geste de la main, relâcha la cage d'éclairs.
+Par conséquent, il ne pouvait imposer aucune restriction à Wang Lin, ni aller trop loin : il devait avant tout user d'appâts. En entendant les paroles de ce dernier, il se détendit un peu et, d'un geste de la main, relâcha la cage d'éclairs.
 
 Wang Lin ne cilla même pas face à la menace. Il se contenta de regarder calmement le vieil homme.
 

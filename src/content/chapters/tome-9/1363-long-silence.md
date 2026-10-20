@@ -24,7 +24,7 @@ Les passants portaient des vêtements simples et marchaient d'un pas rapide.
 
 L'arrivée de Wang Lin n'attira nul regard. Après avoir observé les environs, il trouva aisément quelques maisons à vendre; il choisit le quartier le plus dense et en acheta une.
 
-La demeure se situait au milieu de la rue, avec un grand arbre devant. Sous cet arbre se trouvait un stand de nouilles qui vendait également du vin de riz. Les familles pauvres, n'ayant pas les moyens de fréquenter les restaurants, se contentaient d'un bol de nouilles et d'une coupe de vin pour se rassasier.
+La demeure se situait au milieu de la rue, avec un grand arbre devant. Sous cet arbre se trouvait un stand de nouilles qui vendait également du vin de riz. Les familles pauvres, n'ayant pas les moyens de fréquenter les tavernes, se contentaient d'un bol de nouilles et d'une coupe de vin pour se rassasier.
 
 Le crépuscule tomba et le ciel s'assombrit. L'heure du dîner avait sonné. Les familles étaient animées, discutant et riant aux éclats. Des enfants jouaient dans la rue, lançant de petits cailloux les uns vers les autres.
 

@@ -82,7 +82,7 @@ Le frère de la jeune fille arqua les lèvres dans un léger sourire. Il n'étai
 
 La jeune fille tapa du pied et rattrapa le garçon. Elle marcha à ses côtés en bougonnant: « Ma question n'était pas inutile! Avec tes vêtements, peu importe comment on te regarde, on ne dirait pas que tu viens pour la secte. Regarde les autres. Personne n'est habillé comme toi. Tu devrais savoir que lorsque la Secte du Ciel Nuageux accepte des disciples... »
 
-Le jeune homme fronça de nouveau les sourcils et soupira intérieurement. À ses yeux, cette fille était comme un poussin nouveau-né, et un poussin particulièrement agaçant.
+Le jeune homme fronça de nouveau les sourcils et soupira intérieurement. À ses yeux, cette fille n'était qu'une gamine, et une gamine particulièrement agaçante.
 
 Si sa culture n'était pas trop faible en ce moment, il aurait déjà fait tournoyer ses manches pour partir plutôt que de subir les importunités de cette jeune fille.
 
@@ -196,7 +196,7 @@ Voyant qu'un candidat avait réussi l'examen, les gens sur l'estrade commencère
 
 Les yeux de Wang Lin brillèrent. Il avait clairement compris que ce n'était pas parce que la fille avait percé le mystère de la brume, mais que le morceau de jade à l'intérieur avait choisi la jeune fille.
 
-De plus, lorsque l'homme d'âge moyen vit le jade tomber dans sa main, il ne s'empressa pas de l'annoncer; il alla vérifier la pierre avant de valider son succès. De cette observation, Wang Lin conclut que l'homme était allé s'assurer que le jade avait réellement fait son choix. S'il avait agi à la légère tout à l'heure, il aurait sans doute déjà laissé paraître une faille.
+De plus, lorsque l'homme d'âge moyen vit le jade tomber dans la main de la jeune fille, il ne s'empressa pas de l'annoncer; il alla vérifier la pierre avant de valider son succès. De cette observation, Wang Lin conclut que l'homme était allé s'assurer que le jade avait réellement fait son choix. S'il avait agi à la légère tout à l'heure, il aurait sans doute déjà laissé paraître une faille.
 
 Wang Lin ricana intérieurement. La méthode de recrutement de la Secte du Ciel Nuageux était effectivement bien étrange.
 

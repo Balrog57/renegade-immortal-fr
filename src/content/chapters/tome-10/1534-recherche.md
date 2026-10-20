@@ -46,7 +46,7 @@ Sans la Formation de Scellement du Royaume, une fois la tempête passée, l'endr
 
 La Secte Fantôme avait également envoyé une grande quantité de cultivateurs pour se poster ici. Quant à la Secte Divine, sous la direction de Mu Bingmei, elle avait mis en place des formations puissantes et établi un blocus en prévision de la seconde bataille qui allait bientôt éclater.
 
-Les cultivateurs du Rivière Invoquée avaient laissé une partie de leur groupe stationnée ici, à l'extérieur du vortex de brume, avec la belle femme d'âge mûr comme chef, avant de s'y installer.
+Les cultivateurs de la Rivière Invoquée avaient laissé une partie de leur groupe stationnée ici, à l'extérieur du vortex de brume, avec la belle femme d'âge mûr comme chef, avant de s'y installer.
 
 Les cultivateurs de Luotian avaient également laissé une partie des leurs. Le reste était retourné chez lui pour se préparer au second affrontement!
 
@@ -56,7 +56,7 @@ Cette femme était très belle mais aussi extrêmement froide. La froideur de so
 
 Lors de la première bataille, le Grand Maître Yun Luo avait stupéfié Maître Hong Shan et les autres. C'était à cause d'elle que l'armée du Royaume Intérieur avait été extrêmement passive; ils n'avaient même pas pu déployer de formation.
 
-La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer la divination avait laissé une impression profonde sur le Grand Maître Hong Shan et ses compagnons! Si le Seigneur du Royaume Scellé n'avait pas tué son avatar, alors même avec l'arrivée des renforts du Rivière Invoquée et de Luotian, ils auraient subi de lourdes pertes!
+La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer la divination avait laissé une impression profonde sur le Grand Maître Hong Shan et ses compagnons! Si le Seigneur du Royaume Scellé n'avait pas tué son avatar, alors même avec l'arrivée des renforts de la Rivière Invoquée et de Luotian, ils auraient subi de lourdes pertes!
 
 Très peu de grandes guerres avaient eu lieu au sein du Royaume Intérieur. Au fil des dizaines de milliers d'années, ils avaient lentement perdu l'habitude de ce type de combat. Cette bataille fut une leçon, mais elle permit aussi à Maître Hong Shan et aux autres de comprendre que, même avec un niveau de culture élevé, une armée sans chef n'était qu'un tas de sable!
 
@@ -120,4 +120,4 @@ Tout cultivateur croisant ce groupe de moustiques s'arrêtait pour leur rendre h
 
 Dans le Système Stellaire de Vide Brillant, ou celui de l'Alliance, il existait une zone chaotique parsemée de débris rocheux dans la région septentrionale. À cet instant, un morceau de gravier de la taille d'un poing flottait là.
 
-Ce fragment de roche était criblé de trous communiquant avec l'intérieur… La Bête des Limbes qui s'était transformée en graine s'y cachait. Terrifiée par la tempête destructrice, elle avait perdu la raison. Fidèle à sa nature, elle était prête à rester tapie ici jusqu'à sa mort. Le monde extérieur était trop terrifiant, trop terrifiant...
+Ce fragment de roche était criblé de trous communiquant avec l'intérieur… La Bête des Limbes qui s'était transformée en graine s'y cachait. Terrifiée par la tempête destructrice, elle avait perdu tout courage. Fidèle à sa nature, elle était prête à rester tapie ici jusqu'à sa mort. Le monde extérieur était trop terrifiant, trop terrifiant...

@@ -12,7 +12,7 @@ Un éclair de froideur passa dans les yeux de Wang Lin et il hurla: « Effondre-
 
 À sa suite, la lumière noire émanant de la Lance Tueuse de Dieux s'intensifia jusqu'à ressembler à un soleil noir. Même le bras formé par l'océan parut obscur sous cette radiance.
 
-Au moment où cette lumière noire atteignit son apogée, un fracas assourdissant retentit à travers le monde et une force de destruction dévastatrice balaya les lieux. Le bras composé d'eau de mer s'effondra, et l'océan lui-même sembla se dissiper.
+Au moment où cette lumière noire atteignit son apogée, un fracas assourdissant retentit à travers le monde et une force de destruction dévastatrice balaya les lieux. Le bras composé d'eau de mer s'effondra et se vaporisa entièrement.
 
 Pourtant, loin de se détendre, l'expression de Wang Lin devint plus grave encore. Même le démon du vent changea de visage en fixant l'océan.
 

@@ -14,7 +14,7 @@ Wang Lin fut stupéfait, mais son visage resta impassible. Il renonça aussitôt
 
 Au moment où il pénétra dans le vortex, Wang Lin vit clairement de grands démons émerger de la faille; leurs yeux brillaient d'une extase sauvage alors qu'ils se jetaient sur lui.
 
-Le cœur de Wang Lin rata un battement. N'importe lequel de ces démons pouvait l'anéantir d'un simple revers de main. Avec une pointe d'inquiétude, il disparut dans le vortex.
+Le cœur de Wang Lin rata un battement. N'importe lequel de ces démons pouvait anéantir corps et esprit d'un simple revers de main. Avec une pointe d'inquiétude, il disparut dans le vortex.
 
 Tous les démons le suivirent sans la moindre hésitation.
 
@@ -30,7 +30,7 @@ Sans perdre un instant, il se précipita près du dispositif, mais ne s'y engouf
 
 L'épée disparut aussitôt dans son sac. Ses mains tracèrent des cercles illusoires, puis il appliqua des restrictions sur ces épines.
 
-Une fois terminé, il pointa son doigt vers son front et cracha une bouffée de Qi doré. Le Qi se transforma en fils ténus qui se fondirent dans les épines.
+Une fois terminé, il pointa son doigt vers son front, son visage rosissant légèrement, et cracha une bouffée de Qi doré. Le Qi se transforma en fils ténus qui se fondirent dans les épines.
 
 Le corps entier des épines trembla et se mit à tourbillonner, entraîné par les cercles illusoires.
 

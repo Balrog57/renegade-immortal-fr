@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1858 - Ambush!"
 slug: embuscade
 ---
-Un rugissement empreint de férocité jaillit du brouillard entourant Wang Lin. Yi Si, qui avait perdu un bras, chargea comme un fou vers Liu Zhiyuan.
+Un rugissement empreint de férocité jaillit du brouillard entourant Wang Lin. Une langue écarlate se déroula dans la brume, et Yi Si, qui avait perdu un bras, chargea comme un fou vers Liu Zhiyuan.
 
 Tout cela se produisit avec la rapidité de l'éclair. Il ne fallut qu'un instant à Yi Si pour parcourir plusieurs milliers de pieds. Au moment même où Liu Zhiyuan se retourna, Yi Si était déjà sur lui.
 
 L'expression de Liu Zhiyuan changea radicalement. Il sentit clairement les fluctuations d'un cultivateur du début du stade de la Tribulation du Vide dans le brouillard noir. Ses yeux trahirent une lueur de terreur. Il comprit immédiatement qu'il s'agissait d'une marionnette. Sans hésiter, il recula et agita sa manche; sept lotus noirs apparurent devant lui et entrèrent en collision avec Yi Si.
 
-Les grondements tonitruants attirèrent l'attention des six combattants au loin. L'expression des trois compagnons de Liu Zhiyuan changea et ils voulurent s'approcher, mais ils furent stoppés par les trois cultivateurs du Continent du Taureau Céleste. Occupés au combat, ils n'avaient pas le temps de déployer leur Sens Divin pour voir ce qui se passait, mais la situation leur était manifestement favorable!
+Les grondements tonitruants attirèrent l'attention des six combattants au loin. L'expression des trois compagnons de Liu Zhiyuan changea et ils voulurent s'approcher, mais ils furent stoppés par les trois cultivateurs du Continent du Taureau Céleste. Occupés au combat, ils n'avaient pas le temps de déployer leur Sens Divin pour voir ce qui se passait, mais la situation jouait manifestement en faveur du camp du Taureau Céleste!
 
 Les sept lotus noirs se désintégrèrent. Yi Si poussa un rugissement, son corps couvert de blessures, mais sa langue perça les sept lotus et vint frapper la poitrine de Liu Zhiyuan.
 
@@ -54,7 +54,7 @@ Des grondements tonitruants résonnèrent. Wang Lin le traqua sans relâche et p
 
 « Cela ne suffira pas pour me tuer! » s'écria Liu Zhiyuan. Il comprenait qu'il faisait face à l'une des rares crises de vie ou de mort de son existence. L'autre partie avait un timing parfait; il était évident qu'il s'était préparé depuis longtemps!
 
-En reculant, il encaissa l'un des coups de poing de Wang Lin et agita la main gauche pour sortir une cloche noire.
+En reculant, il encaissa l'un des coups de poing de Wang Lin, au moment où son lotus noir se brisait, et agita la main gauche pour sortir une cloche noire.
 
 C'était la première fois que Liu Zhiyuan parvenait à dégainer un trésor durant son combat contre Wang Lin, et c'était son arme la plus puissante! Dès l'apparition de la cloche, elle commença à émettre un tintement cristallin.
 
@@ -92,7 +92,7 @@ L'ombre défaite se transforma en une multitude d'âmes tourmentées qui semblai
 
 « Dieu Tremble, Formation d'Armée! »
 
-« Sort Démoniaque, Montagne du Vent et du Feu! »
+« Sort Démoniaque, Montagne de Feux de Signal! »
 
 « Voie Démoniaque, Inversion de la Vie et de la Mort! »
 

@@ -38,7 +38,7 @@ En voyant le Treize devenu un homme, Wang Lin afficha un regard de soulagement. 
 
 « Cet enfant ressemble de plus en plus à ce que j'étais à mes débuts. » Wang Lin soupira. L'aura froide de Treize rappelait étrangement la sienne lorsqu'il se trouvait sur la planète Suzaku.
 
-Treize prit une profonde inspiration et s'apprêta à parler, mais en voyant Wang Lin secouer la tête, il se tut. Cependant, l'excitation et le respect dans ses yeux étaient palpables.
+Treize prit une profonde inspiration et s'apprêta à parler, mais en voyant Wang Lin secouer la tête, il se tut. Cependant, la ferveur et le respect dans ses yeux étaient palpables.
 
 Pour lui, Wang Lin était son maître et son bienfaiteur. Sa vie entière avait basculé grâce à lui. Même s'il devait mourir, il n'oublierait jamais ce que Wang Lin lui avait offert.
 
@@ -108,7 +108,7 @@ Non seulement elle, mais tous les cultivateurs environnants se tournèrent égal
 
 Elle replaça machinalement une mèche de cheveux derrière son oreille et reprit le récit de ses souvenirs. En parlant, elle afficha un sourire mélancolique, se remémorant le sourire de Wang Lin lorsqu'il s'était retourné.
 
-Au sommet d'une haute montagne, le vent soufflait avec une telle force qu'il semblait vouloir renverser le pic. Wang Lin se tenait là, Treize étant agenouillé devant lui.
+Sur cette planète-marché, au sommet d'une haute montagne, le vent soufflait avec une telle force qu'il semblait vouloir renverser le pic. Wang Lin se tenait là, Treize étant agenouillé devant lui.
 
 « Maître, Treize souhaite rester à vos côtés pour toujours! »
 
@@ -116,13 +116,13 @@ Au sommet d'une haute montagne, le vent soufflait avec une telle force qu'il sem
 
 Treize hocha la tête avec respect, ses yeux brillant d'un profond attachement. Pour lui, Wang Lin était un maître qui lui était semblable à un père.
 
-« Cependant, si un oiseau veut grandir, il doit affronter seul le vent et la pluie, braver la puissance du monde et surmonter les tempêtes pour s'élever au-dessus des nuages. Tu as très bien agi... » Wang Lin tapota l'épaule de Treize.
+« Cependant, si un oiseau veut grandir, il doit affronter seul le vent et la pluie, braver la puissance du monde et surmonter les tempêtes pour devenir un Roc céleste qui foule les nuages. Tu as très bien agi... » Wang Lin tapota l'épaule de Treize.
 
 « Mais Maître... » Treize allait parler quand Wang Lin secoua la tête pour l'interrompre.
 
 Wang Lin fit face à Treize et dit lentement: « Treize, mon disciple ne peut être un cultivateur qui reste sous ma protection. Mon disciple doit posséder le cœur d'un cultivateur défiant les cieux. Il doit avoir la détermination de lutter contre le destin! »
 
-« Mon disciple doit être un dragon parmi les hommes, dominant le ciel lui-même. Il doit susciter l'admiration de tous lorsqu'il proclamera qu'il est mon premier disciple! »
+« Mon disciple doit être un dragon parmi les hommes, qui parcourt les neuf cieux. Il doit susciter l'admiration de tous lorsqu'il proclamera qu'il est mon premier disciple! »
 
 « Maître!! » Treize, exalté, hocha la tête vigoureusement.
 

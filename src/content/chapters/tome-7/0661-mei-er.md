@@ -86,15 +86,15 @@ L'énergie spirituelle émanant de l'océan en contrebas était encore plus inte
 
 Wang Lin prit une profonde inspiration, puis son corps vacilla et il disparut.
 
-Les quatre guides, le visage livide, rentrèrent immédiatement auprès de leurs familles pour raconter ce qui s'était passé.
+Les quatre guides, le visage livide, rentrèrent immédiatement auprès de leurs familles pour raconter ce qui s'était passé, au cas où.
 
-Alors que Wang Lin pénétrait sur la planète Ran Yun, un éclat noir et terrifiant traversait le système stellaire de l'Alliance. Cette lumière dégageait une aura sinistre. Telle un éclair fendant l'espace, elle exerçait une pression capable de faire trembler les fondations du monde.
+Alors que Wang Lin pénétrait sur la planète Ran Yun, un éclat noir et terrifiant traversait le système stellaire de l'Alliance. Cette lumière dégageait une aura sinistre. Telle un éclair fendant l'espace, elle exerçait une pression stupéfiante.
 
 Un vieil homme se trouvait au cœur de ce rayon noir. Son visage émacié, empreint d'arrogance, laissait parfois passer une lueur de cruauté. Le plus stupéfiant était qu'il n'utilisait aucun trésor magique pour voyager; chaque pas semblait être une téléportation.
 
-Il n'était pas seul. Une femme l'accompagnait, d'une beauté incomparable. Ses lèvres étaient rouges, ses sourcils parfaitement dessinés, et ses yeux de phénix, d'un noir profond, possédaient un éclat capable de couper le souffle à quiconque.
+Il n'était pas seul. Une femme l'accompagnait, d'une beauté incomparable. Ses lèvres étaient rouges, ses sourcils fins, paraissant froncés sans l'être, et ses yeux de phénix, d'un noir profond, possédaient un éclat capable de couper le souffle à quiconque.
 
-Ses longs cheveux, longs d'environ un mètre, étaient coiffés en trois mèches: l'une relevée par une broche en jade blanc en forme de deux papillons, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
+Ses longs cheveux, longs d'environ un mètre, étaient coiffés en trois mèches: l'une relevée par une épingle en jade blanc en forme de deux papillons, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
 
 Cette femme n'était en rien moins belle que Papillon Rouge; on pourrait sans exagération la qualifier de beauté nationale. Outre son apparence, elle dégageait un charme si envoûtant qu'il en devenait magnétique.
 

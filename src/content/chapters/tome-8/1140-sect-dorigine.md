@@ -36,7 +36,7 @@ Lu Yanfei regarda le jade violet qu'elle serrait impitoyablement. Après avoir s
 
 Xu Yun hésita un moment en observant le jade violet dans la main de Lu Yanfei. Elle ouvrit la bouche comme pour dire quelque chose, mais finit par pousser un soupir et quitta respectueusement la pièce.
 
-Ce n'est qu'une fois Xu Yun partie que l'intention de tuer envahit le regard de Lu Yanfei. Telle une Asura de jade, elle serra le jade violet; l'humiliation dans ses yeux fut totalement supplantée par une soif de sang.
+Ce n'est qu'une fois Xu Yun partie que l'intention de tuer envahit le regard de Lu Yanfei. Telle une Rakshasa de jade, elle serra le jade violet; l'humiliation dans ses yeux fut totalement supplantée par une soif de sang.
 
 « Lu Di, même si moi, Lu Yanfei, je devais mourir, je ne deviendrai jamais ton partenaire de culture! »
 
@@ -98,7 +98,7 @@ En vérité, Wang Lin avait fusionné avec son corps original dès qu'il avait q
 
 « La première épreuve implique la calamité de la chair et la calamité des os. Les deux sont en effet redoutables. » Tandis qu'il observait son corps original, Wang Lin agita la main droite. Une fente s'ouvrit dans son espace de stockage et des cristaux de sang de la taille d'un poing s'en échappèrent.
 
-Tous ces cristaux émettaient une lueur sanguine qui, étrangement, restait confinée dans la pièce sans aucune fuite. Wang Lin fit un geste de la main pour diriger les cristaux vers son corps original. Ils se posèrent sur la partie inférieure squelettique et commencèrent progressivement à recouvrir le membre.
+Tous ces cristaux émettaient une lueur sanguine qui, étrangement, restait confinée dans la pièce sans aucune fuite. Wang Lin fit un geste de la main pour diriger les cristaux vers son corps original. Ils se posèrent sur la partie inférieure squelettique et commencèrent progressivement à se fondre dans le membre.
 
 Le corps original ouvrit les yeux, puis s'enfonça dans le sol, disparaissant de la pièce. Il continua sa descente jusqu'à atteindre les profondeurs du continent de Mo Luo. Puis, il ferma les yeux pour commencer à absorber l'aura des cristaux de sang.
 

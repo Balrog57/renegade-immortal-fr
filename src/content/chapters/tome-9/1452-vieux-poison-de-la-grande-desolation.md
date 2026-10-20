@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1452 - Great Desolation Old Poison
 slug: vieux-poison-de-la-grande-desolation
 ---
-Les hurlements de cent mille bêtes moustiques emplirent le monde. À leur tête se trouvait le roi des moustiques de Wang Lin. Ce dernier possédait une allure véritablement royale, et Wang Lin était pour lui comme un père.
+Les hurlements de cent mille bêtes moustiques emplirent le monde. À leur tête se trouvait le roi des moustiques de Wang Lin. Ce roi était d'une loyauté absolue, et Wang Lin était pour lui comme un père.
 
-Dès qu'il sortit, la gueule béante du roi des moustiques vint immédiatement frotter celle de Wang Lin. Bien que ses yeux fussent féroces et son corps dégageât une aura terrifiante, il ne manifestait sa joie et son attachement qu'envers Wang Lin seul.
+Dès qu'il sortit, l'énorme appareil buccal du roi des moustiques vint immédiatement frotter contre le corps de Wang Lin. Bien que ses yeux fussent féroces et son corps dégageât une aura terrifiante, il ne manifestait sa joie et son attachement qu'envers Wang Lin seul.
 
-Un sourire apparut sur les lèvres de Wang Lin tandis qu'il caressait la tête de la créature. Puis, il pointa du doigt les rivières de sang en contrebas.
+Un sourire apparut sur les lèvres de Wang Lin tandis qu'il caressait les épines souples et acérées qui pendaient du corps de la créature. Puis, il pointa du doigt les rivières de sang en contrebas.
 
 Le roi des moustiques poussa un rugissement et l'un de ses sujets plongea vers le bas. Il s'abreuva dans la rivière de sang, puis des bruits d'éclatement résonnèrent dans son corps: il venait, de manière inattendue, de franchir un nouveau palier de croissance, son corps doublant de volume en un instant!
 
@@ -24,7 +24,7 @@ Voyant les bêtes moustiques s'étendre et devenir plus féroces après avoir bu
 
 Les trois clans de l'Ordre Antique. Ces trois-là étaient totalement morts, ne laissant derrière eux que leurs corps.
 
-La main droite de Wang Lin toucha le corps de l'Ancien Diable. Tandis que son énergie originelle y circulait, il murmura pour lui-même: « Si je pouvais trouver le corps d'un Ancien Diable qui n'est pas encore totalement éteint... peut-être mon avatar d'Ancien Diable serait-il enfin complet! »
+La main droite de Wang Lin toucha le corps de l'Ancien Diable. Tandis que son énergie originelle y circulait, il murmura pour lui-même: « Si je pouvais trouver le corps d'un Ancien Diable qui n'est pas encore totalement éteint... peut-être mon avatar d'Ancien Diable réussirait-il enfin! »
 
 Une demi-heure plus tard, les rivières étaient complètement asséchées, sans qu'une seule goutte de sang ne subsistât. Wang Lin semblait avoir tout pris. Même la plateforme qui reposait sur le dos de l'Ancien Dieu avait été récupérée et rangée dans son espace de stockage.
 
@@ -36,9 +36,9 @@ Après une courte réflexion, Wang Lin choisit de ne pas les emporter. Il fit vo
 
 En quittant la terre scellée, ce qui apparut devant lui fut un brouillard dense. Les bêtes moustiques rugissaient en traversant la brume, la faisant tourbillonner violemment.
 
-Wang Lin réfléchit un instant et la carte apparut dans son esprit. Après avoir identifié le chemin menant aux profondeurs de la tombe, ses yeux s'illuminèrent. La plateforme de rang 3 s'élança alors à une vitesse fulgurante!
+Wang Lin réfléchit un instant et trois cartes reliées entre elles apparurent dans son esprit. Après avoir identifié le chemin menant aux profondeurs de la tombe, ses yeux s'illuminèrent. La plateforme de rang 3 s'élança alors à une vitesse fulgurante!
 
-Tandis qu'il progressait, des cris déchirants résonnaient dans le brouillard. Une multitude de bêtes humanoïdes erraient dans la brume, mais elles étaient déchiquetées par les moustiques avant même de pouvoir approcher Wang Lin.
+Tandis qu'il progressait, des cris déchirants résonnaient dans le brouillard. Une multitude de bêtes humanoïdes se cachaient dans le brouillard, mais elles étaient déchiquetées par les moustiques avant même de pouvoir approcher Wang Lin.
 
 L'odeur du sang enveloppait Wang Lin alors qu'il avançait avec calme.
 
@@ -46,7 +46,7 @@ En chemin, il croisa un groupe d'une trentaine de cultivateurs. À l'exception d
 
 Leurs plateformes avançaient rapidement et ils faisaient preuve d'une prudence extrême. Cependant, ils étaient toujours encerclés par une masse de bêtes humanoïdes et livraient un combat acharné!
 
-Au milieu de leur lutte sanglante, le brouillard se souleva brusquement et une immense bête moustique surgit. Son regard glacial se posa sur les individus qui étaient alors assiégés par près de dix mille bêtes humanoïdes.
+Au milieu de leur lutte sanglante, le brouillard se souleva brusquement et une immense bête moustique surgit. Son regard féroce se posa sur les individus qui étaient alors assiégés par près de dix mille bêtes humanoïdes.
 
 Son apparition attira immédiatement l'attention du groupe!
 
@@ -60,7 +60,7 @@ Derrière cette nuée de bêtes, une plateforme gigantesque de trente mille pied
 
 « Une plateforme de rang 3! » Les pupilles du vieil homme debout sur la plateforme de rang 2 se rétractèrent.
 
-La plateforme de Wang Lin s'immobilisa et il leva la main droite. Les cent mille moustiques environnants poussèrent des rugissements d'excitation et chargèrent les dix mille bêtes humanoïdes. Ils entamèrent un massacre frénétique qui stupéfia les cultivateurs alentour.
+La plateforme de Wang Lin s'immobilisa et il pointa la main droite vers l'avant. Les cent mille moustiques environnants poussèrent des rugissements d'excitation et chargèrent les dix mille bêtes humanoïdes. Ils entamèrent un massacre frénétique qui stupéfia les cultivateurs alentour.
 
 Ces bêtes humanoïdes ne profitaient pas qu'aux cultivateurs, elles nourrissaient aussi les moustiques!
 
@@ -86,7 +86,7 @@ Les moustiques qui encerclaient les survivants passèrent devant eux pour regagn
 
 Les trente cultivateurs restèrent avec des expressions lugubres, fixant l'endroit où Wang Lin s'était volatilisé.
 
-Un homme d'âge moyen, empreint de regret, déclara: « Zhou Gong, malgré la présence de ces bêtes étranges, si nous avions résisté de toutes nos forces, nous aurions pu nous échapper! »
+Un homme d'âge moyen, plein de dépit, déclara: « Zhou Gong, malgré la présence de ces bêtes étranges, si nous avions résisté de toutes nos forces, nous aurions pu nous échapper! »
 
 « Cet homme possédait une plateforme de rang 3, comment aurait-il pu être faible? Il avait aussi ces bêtes féroces; même en tentant de fuir, nous aurions été gravement blessés. Cela n'en valait pas la peine... » Le vieillard propriétaire de la plateforme de rang 2 secoua la tête.
 
@@ -96,7 +96,7 @@ Wang Lin n'était pas parti très loin quand son corps fut soudainement secoué 
 
 Le brouillard sous les cultivateurs s'agita frénétiquement dans un grondement de tonnerre. Peu après, un bras d'une épaisseur de cent mille pieds surgit brusquement de la brume!
 
-C'était comme si un géant colossal sommeillait sous le brouillard et venait de tendre le bras. Ses doigts étaient pareils à des montagnes et ils encerclèrent instantanément les cultivateurs. Leurs visages se décomposèrent, mais ils n'eurent pas le temps de fuir avant que la main ne les saisisse!
+C'était comme si un géant colossal se tenait sous le brouillard et venait de tendre le bras. Ses doigts étaient pareils à des montagnes et ils encerclèrent instantanément les cultivateurs. Leurs visages se décomposèrent, mais ils n'eurent pas le temps de fuir avant que la main ne les saisisse!
 
 Dans un fracas tonitruant, les plateformes sous leurs pieds volèrent en éclats. Alors que d'innombrables rochers se brisaient, ils furent tous emportés par cette main géante.
 
@@ -118,7 +118,7 @@ Wang Lin détourna le regard et redoubla de prudence dans la brume, progressant 
 
 « Si cette carte est exacte, une autre terre scellée se trouve devant moi, et elle est déjà ouverte. Un autre esprit Dao de rang 4 y est scellé... Si j'atteins cet endroit, cela signifiera que je suis sur la bonne voie pour pénétrer dans les profondeurs de la tombe! »
 
-« Il y a aussi cette femme du Clan de l'Extermination des Sceaux. J'ai secrètement laissé une marque sur elle et je sens qu'elle est en amont... Elle me sera d'une grande utilité. Je dois découvrir comment elle a survécu à deux morts... Si je peux obtenir ce pouvoir... » Les yeux de Wang Lin s'illuminèrent et il accéléra encore sa course.
+« Il y a aussi cette femme du Clan de l'Extermination des Sceaux. J'ai secrètement laissé une marque sur elle et je sens qu'elle se trouve plus loin devant... Elle me sera d'une grande utilité. Je dois découvrir comment elle a survécu à deux morts... Si je pouvais l'appliquer à moi-même... » Les yeux de Wang Lin s'illuminèrent et il accéléra encore sa course.
 
 Très loin de lui, dans une autre terre scellée, une bataille sanglante faisait rage! Dans ce monde lugubre, deux silhouettes se livraient un combat dont les grondements résonnaient comme le tonnerre.
 

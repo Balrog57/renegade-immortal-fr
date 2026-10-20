@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 750 - Slave Imprint
 slug: empreinte-desclave
 ---
-La silhouette debout au sommet de l'épée s'élança vers les cieux. Une brise légère souffla sur lui, faisant trembler son corps, avant qu'il ne s'effondre soudainement, brisé en fragments qui retombèrent vers la terre.
+La silhouette debout à la pointe de l'épée s'élança vers les cieux. Une brise légère souffla sur lui, faisant trembler son corps, avant qu'il ne s'effondre soudainement, brisé en fragments qui retombèrent vers la terre.
 
 L'épée sembla pousser un cri de douleur en chutant du ciel et en se plantant au sommet de la montagne. Une onde de choc se propagea, et un pan entier de la montagne s'effondra.
 
 Une multitude de débris rocheux s'accumula autour de l'arme et, en un clin d'œil, l'épée se mua en une statue de pierre. À ses côtés, la statue de son propriétaire apparut également.
 
-La silhouette du serviteur se forma lentement au sommet de l'épée à mesure que les pierres brisées s'assemblaient. Bien que ces statues de pierre fussent d'aspect très brut, elles devinrent de plus en plus distinctes avec le temps, comme si elles gagnaient en esprit.
+La silhouette du serviteur se forma lentement à la pointe de l'épée à mesure que les pierres brisées s'assemblaient. Bien que ces statues de pierre fussent d'aspect très brut, elles devinrent de plus en plus distinctes avec le temps, comme si elles gagnaient en esprit.
 
 Le sceau émanant de la statue de pierre occupait l'esprit de Wang Lin. Aux yeux de Wang Lin, ce sceau rayonnait d'une splendeur éclatante; c'était comme si la statue prenait vie et que ses yeux de pierre commençaient à manifester une forme d'intelligence.
 
@@ -44,7 +44,7 @@ Li Yuan poussa un soupir amer et dit lentement: « Il y a fort longtemps, ma fam
 
 À cette époque, la famille Li était au zénith!
 
-Cependant, après que les ancêtres de ma famille ont pénétré en ce lieu, plus aucune génération future n'a pu franchir la première étape de culture. Le sommet du stade tardif de l'Ascendant était devenu notre limite... C'était comme si le potentiel des membres de la famille était lentement aspiré dès leur naissance...
+Cependant, après que les ancêtres de ma famille ont pénétré en ce lieu lors de la première ouverture du Royaume Céleste du Tonnerre, plus aucune génération future n'a pu franchir la première étape de culture. Le sommet du stade tardif de l'Ascendant était devenu notre limite... C'était comme si le potentiel des membres de la famille était lentement aspiré dès leur naissance...
 
 De plus, même nos espérances de vie ont commencé à décliner. À royaume de culture égal, les membres de ma famille Li n'ont qu'une longévité correspondant à 30 % de celle des autres... Tout cela est dû à l'empreinte d'esclave! » Li Yuan se retourna soudainement et fixa la statue avec une haine monstrueuse. Cette rage fut immédiatement remplacée par la mélancolie, et le visage de Li Yuan se crispa dans un combat intérieur.
 
@@ -58,7 +58,7 @@ Au fil des âges, c'est à cause de cette empreinte que la famille Li a progress
 
 Jusqu'à ce qu'il y ait des dizaines de milliers d'années, ma famille Li ait vu naître un génie incomparable; il possédait un talent bien supérieur à celui de tous nos ancêtres. Il avait une compréhension terrifiante des restrictions. S'il était né avant que la famille Li ne soit marquée par l'empreinte, il serait devenu l'être le plus puissant de notre lignée!
 
-Bien que la culture de cet ancêtre fût bloquée au sommet du stade tardif de l'Ascendant, sa maîtrise des restrictions faisait que même des cultivateurs de la seconde étape hésitaient à le provoquer. Afin de briser l'empreinte d'esclavage qui pesait sur ma famille, il quitta, dans les limites de sa longévité, le système stellaire Luotian. Il voyagea pour rencontrer les plus grands experts en restrictions, dans l'espoir de trouver un remède.
+Bien que la culture de cet ancêtre fût bloquée au sommet du stade avancé de l'Ascendant, sa maîtrise des restrictions faisait que même des cultivateurs de la seconde étape hésitaient à le provoquer. Afin de briser l'empreinte d'esclavage qui pesait sur ma famille, il quitta, dans les limites de sa longévité, le système stellaire Luotian. Il voyagea pour rencontrer les plus grands experts en restrictions, dans l'espoir de trouver un remède.
 
 Dans le système stellaire Alliance, il échangea ses connaissances contre un parchemin appartenant à un puissant cultivateur. Dans le système stellaire Yunchen, sous le Royaume Céleste du Vent, il troqua les économies de la famille contre une boussole.
 

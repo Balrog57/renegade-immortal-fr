@@ -34,7 +34,7 @@ Le vieux Hu réfléchit. Le troisième étage n'était pas excessivement dangere
 
 Il n'avait pas détaillé tous ces aspects à Wang Lin.
 
-Le vieux Hu se retourna face au gouffre. À cet instant précis, un bang sonore retentit au loin, attirant l'attention de tous.
+Le vieux Hu se retourna face au gouffre. À cet instant précis, un bruit de déchirure de l'air retentit au loin, attirant l'attention de tous.
 
 Ils virent une bête de la taille d'une colline apparaître soudainement devant eux. Sur la tête de la créature se tenait un jeune homme vêtu de blanc. C'était Wang Lin.
 
@@ -88,7 +88,7 @@ Le vieux Hu et Zi Xin discutèrent un instant pour confirmer que l'entrée du ni
 
 En chemin, Qiu Siping et ses compagnons volaient groupés, restant constamment sur leurs gardes.
 
-Seuls Wang Lin, le vieux Hu et le vieil homme en robe noire demeuraient calmes.
+Seuls Wang Lin, le vieux Hu et l'homme à la veste de toile bleue demeuraient calmes.
 
 Quant à la femme au voile blanc, elle semblait être dans un état de transe depuis son arrivée, comme si elle se remémorait des souvenirs enfouis.
 

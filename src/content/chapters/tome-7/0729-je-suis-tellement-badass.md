@@ -10,9 +10,9 @@ Shengong Hu laissa échapper un rugissement. Sa main tremblait légèrement sous
 
 Il serra les dents et sa main droite s'abattit soudainement. La foudre de la rétribution divine apparut et descendit avec une puissance inimaginable.
 
-L'expression de Zhan Konglie devint sombre. Ses mains formèrent rapidement des sceaux et il cracha un filet d'énergie vitale sur son épée en bois. L'épée poussa un rugissement avant de libérer une puissante énergie d'épée qui fonça droit sur la foudre de la rétribution divine.
+L'expression de Zhan Konglie devint sombre. Ses mains formèrent rapidement des sceaux et il cracha une gorgée d'énergie vitale sur son épée en bois. L'épée poussa un rugissement avant de libérer une puissante énergie d'épée qui fonça droit sur la foudre de la rétribution divine.
 
-Lorsque les deux forces entrèrent en collision, un choc assourdissant ébranla toute la zone. La foudre s'effondra et l'épée en bois fut repoussée. L'énergie originelle résiduelle atteignit sa limite, provoquant l'effondrement d'une multitude d'astéroïdes.
+Lorsque les deux forces entrèrent en collision, un choc assourdissant ébranla toute la zone. La foudre s'effondra et l'épée en bois fut repoussée. L'énergie originelle résiduelle atteignit sa limite, provoquant la destruction d'une multitude de fragments de roche.
 
 Le corps de Zhan Konglie trembla et il recula de quelques pas. Le visage pâle, il fixa sombrement Shengong Hu. Sa colère était immense, et ses yeux étaient désormais empreints d'une intention de combat féroce.
 
@@ -118,4 +118,4 @@ Wang Lin sauta de la Bête du Tonnerre. Celle-ci poussa un cri pitoyable et se t
 
 Alors qu'il s'apprêtait à foncer vers la planète, l'expression de Wang Lin changea soudainement. À l'intérieur de son sac, une puissante fluctuation émana de l'épée céleste. Cette fluctuation dégageait une aura imposante et une ancienne intention d'épée.
 
-« Maudite intention d'épée, ton grand-père Xu a fini par te dompter! Dorénavant, c'est moi le véritable esprit de l'épée. Je suis tellement badass! Tellement badass! »
+« Maudite intention d'épée, ton grand-père Xu a fini par te dompter! Dorénavant, c'est moi le véritable esprit de l'épée. Je suis trop fort! Vraiment trop fort! »

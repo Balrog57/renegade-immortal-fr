@@ -27,7 +27,7 @@ Wang Lin marmonna: « Ce n'est pas comme si je n'avais rien gagné pour autant! 
 
 Après l'échec du raffinage du second gardien céleste, l'âme originelle du Daoïste du Tonnerre avait perdu conscience pour se transformer en une lumière mystérieuse qui fusionna avec le corps. La Bête du Tonnerre avait également été écrasée et fusionnée avec lui.
 
-« Sommet du grade argent! » Wang Lin détourna le regard. Bien qu'il ait échoué, au moment critique, il avait résolument tranché l'âme originelle du Daoïste du Tonnerre pour abandonner le processus de raffinage. Cela avait forcé le gardien céleste, qui en était à la troisième étape de raffinage, à régresser à la première.
+« Sommet du grade argent! » Wang Lin détourna le regard. Bien qu'il ait échoué, au moment critique, il avait résolument coupé un fil le reliant à l'âme originelle du Daoïste du Tonnerre pour abandonner le processus de raffinage. Cela avait forcé le gardien céleste, qui en était à la troisième étape de raffinage, à régresser à la première.
 
 Il avait obtenu un corps de grade argent au sommet de ce qui pouvait être considéré comme un gardien céleste incomplet. Bien qu'il fût incapable d'utiliser des sorts, son corps était extrêmement robuste.
 
@@ -51,7 +51,7 @@ Les deux rayons d'énergie d'épée de Ling Tianhou flottaient dans les airs, é
 
 Le regard de Wang Lin se posa sur la Bête du Tonnerre.
 
-S'il n'avait pas été confronté à une situation de vie ou de mort, Wang Lin n'aurait jamais ouvert le troisième sceau du Char de Guerre Divin sans préparation. Après tout, ce char était extrêmement difficile à contrôler; la moindre erreur aurait provoqué un contrecoup dévastateur.
+S'il n'avait pas été confronté à une situation de vie ou de mort, Wang Lin n'aurait jamais ouvert le troisième sceau du Char de destruction des dieux sans préparation. Après tout, ce char était extrêmement difficile à contrôler; la moindre erreur aurait provoqué un contrecoup dévastateur.
 
 Pourtant, durant ces six mois, la réaction de la Bête du Tonnerre avait été inattendue. Non seulement elle n'avait montré aucun signe de contrecoup, mais elle avait suivi toutes ses commandes.
 
@@ -75,9 +75,9 @@ Après une courte réflexion, le regard de Wang Lin devint résolu.
 
 « Puisque cette bête refuse de retourner dans le sac, je la laisserai faire! » Ses yeux s'illuminèrent et les deux rayons d'énergie d'épée de Ling Tianhou retournèrent dans son corps. Quant au gardien céleste, il resta à l'entrée de la grotte pour assurer sa protection.
 
-Wang Lin sortit un sac de rangement. Ce sac contenait tout le patrimoine du Daoïste du Tonnerre. Lorsque la conscience de ce dernier s'était dissipée lors de la troisième étape du raffinage, son sens divin avait disparu, rendant le sac sans maître.
+Wang Lin sortit un sac de rangement. Ce sac appartenait au Daoïste du Tonnerre. Lorsque la conscience de ce dernier s'était dissipée lors de la troisième étape du raffinage, son sens divin avait disparu, rendant le sac sans maître.
 
-Le contenu était vaste. Outre quelques objets du quotidien, quatre éléments captèrent l'attention de Wang Lin. Le premier était un jade.
+Le contenu était hétéroclite. Outre quelques objets du quotidien, quatre éléments captèrent l'attention de Wang Lin. Le premier était un jade.
 
 Une féroce Bête du Tonnerre y était sculptée. Elle possédait une corne dorée et des éclairs parcouraient son corps, lui donnant un aspect extrêmement puissant. Une grande rune était gravée au revers du jade.
 
@@ -97,7 +97,7 @@ Malgré sa grande force mentale, les yeux de Wang Lin s'écarquillèrent de surp
 
 L'idée consistait à faire de son propre Dao un fourneau capable d'affiner le monde. Ce fourneau fusionnait avec l'énergie originelle pour créer un sort d'une puissance phénoménale!
 
-Il était clair que c'était ce sort que le Daoïste du Tonnerre utilisait. Wang Lin en avait une compréhension profonde.
+Il était clair que c'était ce sort que le Daoïste du Tonnerre utilisait. Wang Lin en avait été profondément frappé.
 
 « Malheureusement, ce sort exige trop d'énergie originelle. Il est impossible de l'utiliser avant d'atteindre le stade de l'Yin Illusoire. »
 

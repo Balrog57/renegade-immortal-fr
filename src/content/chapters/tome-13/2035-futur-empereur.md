@@ -82,7 +82,7 @@ Ye Wei manifesta une certaine hésitation face à Luo Chen, puis, après un long
 
 « Je vais poursuivre ma culture en reclusion. Quant au candidat royal, je laisse Seigneur Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
 
-Jusqu'ici, le Grand Empyréen Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
+Jusqu'ici, le Grand Empyréen Gu Dao n'était jamais apparu. Même l'émissaire venu apporter ses présents de félicitations restait absent, comme s'il évitait délibérément la situation.
 
 Malgré la mort de l'Empereur du Dao Antique, le Grand Empyréen Gu Dao, gardien des familles royales, n'avait toujours pas agi. Les membres du Dao Antique ne parlaient pas de ce silence, enterrant leur doute au plus profond de leurs cœurs.
 

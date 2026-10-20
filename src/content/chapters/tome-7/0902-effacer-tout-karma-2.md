@@ -56,7 +56,7 @@ Après un long moment, il laissa échapper un profond soupir. Son visage paraiss
 
 « Ancêtre Sanguin Écarlate, si je, Li Qiqing, ne parviens pas à me venger, alors je ne suis plus humain! » Une expression hideuse se dessina sur son visage, trahissant une haine inimaginable accumulée en lui.
 
-Cette haine était presque monstrueuse. Un cercle bleu pâle de mille pieds de large l'entourait. Sa culture avait attiré l'attention de certaines bêtes de la Mer des Démons. Les monstres s'approchèrent rapidement, mais ils poussèrent des cris de douleur dès qu'ils touchèrent ces traces bleues.
+Cette haine était presque monstrueuse. Un cercle bleu pâle s'étendait à mille pieds autour de lui. Sa culture avait attiré l'attention de certaines bêtes de la Mer des Démons. Les monstres s'approchèrent rapidement, mais ils poussèrent des cris de douleur dès qu'ils touchèrent ces traces bleues.
 
 Leurs corps se flétrissaient à vue d'œil. À ce moment précis, les yeux du vieil homme s'ouvrirent brusquement et son corps se déplaça en un éclair. Il apparut aux côtés d'une bête démoniaque et l'agrippa. Il se jeta sur la créature, lui mordit le cou et aspira son essence sans merci!
 

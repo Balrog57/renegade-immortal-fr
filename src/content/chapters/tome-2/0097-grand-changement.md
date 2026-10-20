@@ -46,7 +46,7 @@ Sur ce, il ouvrit les yeux et ajouta: « Le nettoyage du champ de bataille étra
 
 La silhouette se lécha les lèvres et rit d'une voix rauque. « Cette fois, une fois que le messager de l'Union de la Culture aura ouvert le portail vers le champ de bataille étranger, je n'aurai besoin d'aspirer que trois bouffées de l'énergie spirituelle de l'extérieur du domaine pour achever aussitôt la dévoration finale. Ye Zizai, selon mon accord avec la Secte des Cadavres, une fois que je t'aurai possédé, je garderai ta conscience intacte. Dès que tu auras choisi un candidat, je t'aiderai une fois en échange de ton corps, et j'élèverai la culture de cette personne jusqu'au stade de la Formation du Noyau pour faciliter ta possession. »
 
-Depuis qu'il avait découvert le secret de la Secte des Cadavres, Ye Zizai savait que ce jour viendrait. Le nettoyage du champ de bataille étranger, qui a lieu tous les cent ans, est le moment où la majorité des individus achèvent leur possession. Ye Zizai soupira intérieurement. Il ferma les yeux et ne dit plus un mot.
+Depuis qu'il avait découvert le secret de la Secte des Cadavres, Ye Zizai savait que ce jour viendrait. Le nettoyage du champ de bataille étranger, qui a lieu tous les cent ans, est le moment où un grand nombre d'individus achèvent leur possession. Ye Zizai soupira intérieurement. Il ferma les yeux et ne dit plus un mot.
 
 Quant à Wang Lin, il se déplaçait rapidement avec Mu Rong à travers les cavernes. Il sentait clairement qu'ils s'enfonçaient profondément sous terre. Plus ils progressaient, plus il percevait l'énergie Yin émanant des profondeurs.
 
@@ -80,7 +80,7 @@ Wang Lin ouvrit la bouche pour aspirer tout le gaz blanc dans son corps, mais bi
 
 Dès que le gaz blanc pénétrait en lui, il était absorbé par son énergie spirituelle.
 
-Wang Lin afficha une expression singulière. Ses deux mains formèrent un sceau tandis qu'il projetait un pilier de lumière. Ce dernier se condensa rapidement en une sphère lumineuse.
+Wang Lin afficha une expression singulière. Ses deux mains formèrent un sceau tandis qu'il projetait un faisceau de lumière. Ce dernier se condensa rapidement en une sphère lumineuse.
 
 Sans même sourciller, Wang Lin observa la sphère devenir bleu clair, puis scintiller une fois. Son regard brilla alors qu'il murmurait: « Terre Yin, qualité ordinaire, rang 1... »
 

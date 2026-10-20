@@ -112,7 +112,7 @@ Cette zone de 5 000 kilomètres fut remplie de glaciers qui s'effondrèrent tous
 
 « Un simple sortilège. Et alors si vous avez atteint le stade du Vide du Nirvana et que vous avez une compréhension des lois, et après?! » Les yeux de Tuo Sen brillaient d'une arrogance monstrueuse alors qu'il laissait échapper un rire et lança un autre coup de poing!
 
-« Le clan de mes Dieux Anciens ne cultive pas les lois, car les lois sont des choses que mon clan brise! » Lorsque le coup de poing de Tuo Sen s'abattit, des craquements résonnèrent à travers le monde de glace. Que ce soient les glaciers qui fonçaient sur lui ou l'immense étendue de glace couvrant ces 5 000 kilomètres, tout s'effondra devant son coup!
+« Le clan de mes Dieux Anciens ne cultive pas les lois, car les lois sont des choses que mon clan brisera! » Lorsque le coup de poing de Tuo Sen s'abattit, des craquements résonnèrent à travers le monde de glace. Que ce soient les glaciers qui fonçaient sur lui ou l'immense étendue de glace couvrant ces 5 000 kilomètres, tout s'effondra devant son coup!
 
 L'homme en noir surgit d'un éclair, le visage grave. Les 5 000 kilomètres de glace s'effondrèrent en une tempête qui s'éleva vers le ciel, mais dans cet effondrement, le corps de Tuo Sen s'éleva dans les airs.
 

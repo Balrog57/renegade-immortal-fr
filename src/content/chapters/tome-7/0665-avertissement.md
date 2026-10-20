@@ -26,7 +26,7 @@ Tout en réfléchissant, il baissa la tête pour contempler le miroir de bronze 
 
 Bien qu'il ignorât le pouvoir réel du miroir de bronze, tant qu'il s'agissait d'un trésor d'héritage, il ne saurait être faible.
 
-Ce n'était pas qu'il n'avait pas envisagé de tuer pour s'emparer du trésor, mais en observant le jeune homme, il nota que ses yeux étaient d'un calme olympien. Ce point était secondaire; le plus important était que si ce jeune homme pouvait sortir deux trésors magiques de cette trempe, il était manifestement un membre éminent d'une grande famille de culture.
+Ce n'était pas qu'il n'avait pas envisagé de tuer pour s'emparer du trésor, mais en observant le jeune homme, il nota que son attitude restait d'un calme olympien. Ce point était secondaire; le plus important était que si ce jeune homme pouvait sortir deux trésors magiques de cette trempe, il était manifestement un membre éminent d'une grande famille de culture.
 
 Après réflexion, le vieil homme sortit un sac de rangement. Il en tira dix mille jades célestes, puis jeta le reste avec le sac de rangement vers Wang Lin.
 
@@ -34,7 +34,7 @@ Wang Lin les attrapa. Après avoir utilisé son sens divin pour vérifier l'exac
 
 Ce dernier l'attrapa immédiatement et l'examina avec soin. Son visage s'illumina de joie avant qu'il ne demande avec hésitation: « En avez-vous d'autres? »
 
-Wang Lin regarda le vieil homme et sortit une broche à cheveux de son sac de rangement.
+Wang Lin regarda le vieil homme et sortit une épingle à cheveux de son sac de rangement.
 
 « Ceci est également un pseudo-trésor céleste. » Une pointe de déception passa dans les yeux du vieil homme. Il adressa un signe de tête à Wang Lin avant de se retourner et de quitter le Pavillon du Bambou Vert.
 
@@ -52,7 +52,7 @@ La moquerie dans les yeux de Wang Lin s'intensifia et des éclairs y jaillirent.
 
 Un fracas retentit et la main disparut instantanément. Même le brouillard qui l'accompagnait fut balayé avec violence, et un gémissement misérable s'éleva de la brume.
 
-« Tu n'es pas un cultivateur de la Formation du Noyau! » Le brouillard se dissipa, révélant un homme d'âge moyen et svelte. Il cracha du sang tandis que des éclairs parcouraient son corps. Son visage fut envahi par la terreur et il recula sans hésiter. Des éclairs noirs émanaient de lui; il avait manifestement activé une sorte de sortilège.
+« Tu n'es pas un cultivateur de la Formation du Noyau! » Le brouillard se dissipa, révélant un homme d'âge moyen et svelte. Il cracha du sang tandis que des éclairs parcouraient son corps. Son visage fut envahi par la terreur et il recula sans hésiter. Des lueurs noires émanaient de lui; il avait manifestement activé une sorte de sortilège.
 
 Wang Lin lui jeta un regard calme et le poursuivit avec désinvolture. Cet homme n'était qu'au stade intermédiaire de l'Âme Naissante. Si Wang Lin voulait le tuer, cela ne lui demanderait aucun effort.
 
@@ -84,9 +84,9 @@ Wang Lin sourit, pointa l'Ancien Sun du doigt et déclara: « Je suis venu pour 
 
 L'expression de l'Ancien Sun se renfrogna davantage et il s'exclama: « Jeune homme, l'échange que tu as eu avec ce vieillard est terminé. Serais-tu en train d'en regretter les termes?! »
 
-Wang Lin secoua la tête. Il désigna l'homme inconscient et sourit: « Il est curieux que cette personne m'ait intercepté juste après avoir quitté la boutique. Après sa défaite, il a fui jusqu'ici. »
+Wang Lin secoua la tête. Il désigna l'homme inconscient et sourit: « Quelle coïncidence que cette personne m'ait intercepté juste après avoir quitté la boutique. Après sa défaite, il a fui jusqu'ici. »
 
-L'Ancien Sun laissa échapper un reniflement de mépris, mais les deux vieillards à ses côtés froncèrent les sourcils. Pour eux, l'affaire était limpide: ils supposèrent que le vieil homme Sun avait été avide des biens de cet inconnu et qu'incapable d'agir lui-même, il avait envoyé un subalterne.
+L'Ancien Sun laissa échapper un reniflement de mépris, mais les deux vieillards à ses côtés froncèrent les sourcils. Pour eux, l'affaire était limpide: ils supposèrent que le vieil homme Sun avait été avide des biens de cet inconnu et qu'incapable d'agir lui-même, il avait envoyé un membre de son clan.
 
 Cependant, l'Ancien Sun était bien un aîné de la famille Sun. Les faits étant ce qu'ils étaient, ils devaient à tout prix prendre son parti. Le vieillard au visage rouge sourit froidement: « Absurde. Quelle que soit ta lignée, tu resteras ici aujourd'hui. Attends que ton propre ancien arrive, et nous déciderons alors si tu vis ou si tu meurs! »
 
@@ -118,7 +118,7 @@ Ce n'est que lorsque Wang Lin fut loin que le vieil homme en noir se détendit e
 
 Le vieillard au visage rouge hésita et murmura: « Deux cents mille jades célestes... Même dans la famille principale, c'est une somme considérable. »
 
-Le vieil homme en noir trancha froidement: « Plus tôt, le sens divin de notre ancêtre m'a contacté pour m'ordonner d'accepter toutes les requêtes. Ne parlons même pas de deux cents mille, même quatre cents mille seraient versés! De plus, les détails de ce qui s'est passé aujourd'hui doivent rester secrets. Diffusez l'ordre familial et ne dérangez plus cet individu. »
+Le vieil homme en noir trancha froidement: « Plus tôt, le sens divin de notre ancêtre s'est manifesté en moi pour m'ordonner d'accepter toutes les requêtes. Ne parlons même pas de deux cents mille, même quatre cents mille seraient versés! De plus, les détails de ce qui s'est passé aujourd'hui doivent rester secrets. Faites passer un ordre de silence dans la famille et ne dérangez plus cet individu. »
 
 À cet instant précis, dans l'immensité de l'océan à l'est de la planète Ran Yun, un homme aux longs cheveux, le torse nu, méditait en position de lotus dans les profondeurs marines. Soudain, il ouvrit les yeux, lesquels brillèrent comme deux lampes éclatantes dans l'abîme.
 

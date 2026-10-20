@@ -42,13 +42,13 @@ Le bombardement dura plusieurs jours consécutifs... Si une troisième personne 
 
 « Petite Rose, reçois mon attaque! » Le fou leva la main droite. Le monde trembla et une empreinte de paume gigantesque apparut. Cependant, l'empreinte semblait manquer de puissance et s'effondra dès qu'elle toucha le corps.
 
-Pourtant, la paume était empreinte de force et de majesté. C'était l'Empreinte de l'Esprit de Guerre la plus authentique! Elle ressemblait à celle que le Seigneur du Royaume Scellé avait laissée à la Secte Divine, mais celle utilisée par ce fou était encore plus juste!
+Pourtant, la paume était empreinte de force et de majesté. C'était l'Empreinte de l'Esprit Guerrier la plus authentique! Elle ressemblait à celle que le Seigneur du Royaume Scellé avait laissée à la Secte Divine, mais celle utilisée par ce fou était encore plus juste!
 
 « Petit Argent, regarde comment ce roi te frappe! » rugit le fou, puis il pointa le ciel. Le firmament se transforma soudainement en une voûte et un pilier gigantesque soutenant la voûte céleste apparut. C'était un parapluie colossal!
 
-« Parapluie de la Brûlure du Royaume, brûle pour ce roi! » Le fou agita sa main droite et le parapluie rétrécit jusqu'à ce qu'il puisse le tenir en main. Il le planta contre le corps au sol, mais bien que l'objet fût puissant, il se révéla impuissant. Dès qu'il toucha le cadavre, il se dissipa instantanément.
+« Ombrelle Brûlante du Royaume, brûle pour ce roi! » Le fou agita sa main droite et le parapluie rétrécit jusqu'à ce qu'il puisse le tenir en main. Il le planta contre le corps au sol, mais bien que l'objet fût puissant, il se révéla impuissant. Dès qu'il toucha le cadavre, il se dissipa instantanément.
 
-« Vieux Li Guang, reçois la flèche de cet homme! » Le fou sourit et leva les mains comme s'il tenait un arc. Aucun arc n'était visible, mais une flèche apparut soudainement et fila vers Wang Lin.
+« Vieux Li Guang, reçois la flèche de ce roi! » Le fou sourit et leva les mains comme s'il tenait un arc. Aucun arc n'était visible, mais une flèche apparut soudainement et fila vers Wang Lin.
 
 « Petite Fille aux Sept Couleurs, ton mari a été chassé par mon grand frère. Je te le dis, tu ferais mieux de suivre ce roi. Vois-tu, je peux aussi utiliser les sorts aux sept couleurs! » Le fou leva la main droite et une lueur multicolore jaillit. Cette lumière se mua en un disque de sorts qui fonça en avant.
 

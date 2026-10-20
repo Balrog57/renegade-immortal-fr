@@ -90,7 +90,7 @@ Cette chance survint lorsque le jeune homme aux cheveux blancs ferma les yeux, p
 
 Tout cela avait été anticipé alors que Wang Lin était sous l'effet du sort « Arrêt », et il l'avait mis en œuvre sans la moindre hésitation pour obtenir ce résultat.
 
-Sans cette ruse, il aurait été extrêmement difficile de tuer cette rétribution divine qui ne différait pas de lui. Même ainsi, Wang Lin n'aurait pas pu anéantir le corps de ce jeune homme en si peu de temps. Il avait ressenti profondément la difficulté de l'épreuve et le malaise de combattre son propre reflet.
+Sans cette ruse, il aurait été extrêmement difficile de tuer cette rétribution divine personnelle qui ne différait pas de lui. Même ainsi, Wang Lin n'aurait pas pu anéantir le corps de ce jeune homme en si peu de temps. Il avait ressenti profondément la difficulté de l'épreuve et le malaise de combattre son propre reflet.
 
 À cet instant, le jeune homme aux cheveux blancs comprit enfin la raison; les pupilles de Wang Lin se contractèrent lorsqu'il vit son adversaire fuir vers la barrière d'eau.
 

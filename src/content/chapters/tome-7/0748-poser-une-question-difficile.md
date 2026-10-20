@@ -56,7 +56,7 @@ Une pointe d'intention meurtrière traversa ses yeux. Il ne ferait aucune grâce
 
 À ce moment précis, Li Yuan s'arrêta également. Sans se retourner, il déclara: « Frère Xu, je ne suis pas aussi indigne que vous le pensez... Vous rencontrer faisait partie de mon plan, mais le destin y est aussi pour quelque chose! » Sa façon d'appeler Wang Lin avait changé inconsciemment.
 
-Le regard de Wang Lin devint glacial alors qu'il demandait calmement: « Que se cache-t-il exactement au sommet de cette montagne? »
+Le regard de Wang Lin devint glacial alors qu'il demandait calmement: « Que se cache-t-il au plus profond de cette montagne? »
 
 Li Yuan réfléchit en silence avant de lever les yeux vers la cime qui s'évanouissait dans les nuages. Une lueur de mélancolie passa dans son regard et il murmura: « Mon maître est là... »
 

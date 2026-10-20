@@ -80,11 +80,11 @@ Huan Dong se détendit un peu et répondit: « La culture de l'ancêtre a déjà
 
 Wang Lin regarda l'ancêtre de la famille Ran et ses compagnons avec un sourire qui n'en était pas un. Une pointe de dérision dans son regard fit baisser la tête à l'ancêtre de la famille Ran.
 
-Wang Lin dit calmement: « Je vous le remets. Cela ne me concerne plus. » Puis, d'un geste de la main, il fit en sorte que la Formation d'Épées des Sept Étoiles encercle Huan Dong pour sceller son âme originelle. Les épées retournèrent ensuite aux côtés de Wang Lin.
+Wang Lin dit calmement: « Je vous le remets. Cela ne me concerne plus. » Puis, d'un geste de la main, il fit en sorte que la Formation d'Épées des Sept Étoiles parcoure le corps de Huan Dong pour sceller son âme originelle. Les épées retournèrent ensuite aux côtés de Wang Lin.
 
 « J'ai encore d'importantes affaires à régler et je reviendrai dans quelques mois! » Sur ces mots, Wang Lin fit volte-face et partit.
 
-Le désespoir se lut dans les yeux de Huan Dong qui hurla: « Si vous me tuez, ma dame ne vous pardonnera pas! La lady Huan Mei est l'unique disciple de l'ancêtre, elle sera la chef de la famille Huan à l'avenir! »
+Le désespoir se lut dans les yeux de Huan Dong qui hurla: « Si vous me tuez, ma dame ne vous pardonnera pas! Mademoiselle Huan Mei est l'unique disciple de l'ancêtre, elle sera la chef de la famille Huan à l'avenir! »
 
 Wang Lin s'arrêta brusquement et se retourna. Il regarda Huan Dong et demanda calmement: « Huan Mei? Quel était son nom d'origine? »
 
@@ -98,7 +98,7 @@ La culture de Huan Dong étant au milieu du stade Ascendant, Wang Lin dut emprun
 
 Les souvenirs de Huan Dong n'étaient que fragments que Wang Lin parcourait avec l'aide du garde céleste. Tandis qu'il les consultait, le corps de Huan Dong se mit à trembler violemment et ses yeux exprimèrent une lutte douloureuse.
 
-En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une femme magnifique, et son expression s'assombrit. Il relâcha sa pression et frappa le corps de Huan Dong. Celui-ci s'effondra en une masse de chair et de sang, tandis que son âme originelle était capturée par Wang Lin, qui la jeta dans le Étendard de l'Âme.
+En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une femme magnifique, et son expression s'assombrit. Il relâcha sa pression et frappa le corps de Huan Dong. Celui-ci s'effondra en une masse de chair et de sang, tandis que son âme originelle était capturée par Wang Lin, qui la jeta dans l'Étendard de l'Âme.
 
 Cette scène soudaine fit sursauter l'ancêtre de la famille Ran et ses compagnons, qui furent chacun plongés dans leurs propres réflexions.
 

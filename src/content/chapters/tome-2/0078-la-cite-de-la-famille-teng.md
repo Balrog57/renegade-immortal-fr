@@ -30,7 +30,7 @@ Le lettré d'âge moyen fut l'un des rares à garder son calme. Il s'empressa de
 
 Avant qu'il n'ait pu achever sa phrase, Zhang Hu fronça les sourcils et ricana: « Promettre de se taire? Cela ne dépend pas de vous. Une fois que votre âme aura été extraite et raffinée, vous raconterez tout. » Bien qu'il s'adressât au lettré, son regard restait fixé sur Wang Lin.
 
-Wang Lin réfléchit un instant. Il fit un geste de la main et les six ou sept personnes restantes furent contraintes de se déplacer jusqu'à atterrir devant lui.
+Wang Lin réfléchit un instant. Il fit un geste de la main et les six ou sept personnes restantes furent contraintes de s'élever dans les airs et de flotter jusqu'à se trouver devant lui.
 
 Zhang Hu retira ses boules de feu et se tint silencieux sur le côté.
 
@@ -58,7 +58,7 @@ Un regard d'envie passa sur le visage de Zhang Hu lorsqu'il dit: « Wang Lin, no
 
 Wang Lin secoua la tête. « Je n'ai pas encore atteint l'Établissement des Fondations. Sais-tu d'où vient cette épée volante? »
 
-Zhang Hu parut surpris, mais n'insista pas. Après une réflexion attentive, il répondit: « Je crois qu'il en a parlé une fois. Il disait l'avoir trouvée dans une grotte, grâce à une opportunité exceptionnelle. Il la considérait comme un trésor précieux. De plus, ce fourreau est lui aussi un trésor; mon maître le chérissait bien plus que l'épée elle-même. J'ai entendu dire qu'à part lui, à moins d'atteindre le stade de la Formation du Noyau, personne ne peut la raffiner. »
+Zhang Hu parut surpris, mais n'insista pas. Après une réflexion attentive, il répondit: « Je crois qu'il en a parlé une fois. Il disait l'avoir trouvée dans une grotte, grâce à une opportunité exceptionnelle. Il la considérait comme un trésor précieux. De plus, ce fourreau est lui aussi un trésor; mon maître le chérissait bien plus que l'épée elle-même. J'ai entendu dire qu'à part lui, à moins d'atteindre le stade de la Formation du Noyau, personne ne peut la raffiner à nouveau. »
 
 Wang Lin s'assit sur un rocher. Après un moment de réflexion, il demanda: « Parle-moi du vieux Jimo, afin que nous puissions au moins nous prémunir contre lui. »
 

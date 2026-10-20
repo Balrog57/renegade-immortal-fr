@@ -42,7 +42,7 @@ Dans le palais impérial, l'Empereur Céleste siégeait sur le trône du dragon;
 
 Quoi qu'il en soit, laissons Ming Dao donner une leçon à ce Wang Lin. Même s'il a passé le 13e palais, il devra s'incliner lorsqu'il viendra dans ma cité impériale! »
 
-Continent Oriental, Secte Yang Pourpre. Un homme d'âge moyen regardait son reflet dans un miroir et fronça les sourcils.
+Continent Oriental, Secte Yang Pourpre. Un homme d'âge moyen regardait le miroir devant lui et fronça les sourcils.
 
 « Ming Dao... Cet homme va trop loin. Comment peut-il parler ainsi devant tous les Exaltés Empyréens? Il affiche clairement son mépris! »
 
@@ -122,7 +122,7 @@ Cela montrerait à tous la puissance de l'Ascendant Empyréen Ming Dao, juste ap
 
 Les Grands Empyréens Dao Yi et Wu Feng froncèrent les sourcils. Dao Yi hésita et resta silencieux, mais Wu Feng laissa échapper un reniflement glacial.
 
-« Ming Dao, tu as du cran! Tu oses attaquer ici? » Tout en parlant, il agita la main droite. À cet instant, un rire s'éleva d'un cultivateur en contrebas. Une lumière dorée enveloppa l'un des Exaltés Empyréens et une image se matérialisa autour de lui: une ombre vêtue d'une robe dorée et d'une couronne — c'était l'Empereur Céleste!
+« Ming Dao, tu as du cran! Tu oses attaquer ici? » Tout en parlant, il agita sa manche droite. À cet instant, un rire s'éleva d'un cultivateur en contrebas. Une lumière dorée enveloppa l'un des Exaltés Empyréens et une image se matérialisa autour de lui: une ombre vêtue d'une robe dorée et d'une couronne — c'était l'Empereur Céleste!
 
 Cet Empereur Céleste était apparu en utilisant son propre sort spécial! Il fit un geste de la main vers Wu Feng, neutralisant ainsi la puissance de sa manche.
 

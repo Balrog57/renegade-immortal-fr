@@ -50,7 +50,7 @@ L'expression de Wang Lin resta calme, ses yeux brûlant d'intention de combat. I
 
 Peu après, sa main droite forma un sceau et pointa vers l'avant. Le ciel aux sept couleurs fut envahi par un vent noir rugissant. De nombreux dragons noirs se formèrent, mais ils ne se dispersèrent pas; au contraire, ils foncèrent tous vers la silhouette floue aux sept couleurs dans le ciel.
 
-Après avoir invoqué le Vent, Wang Lin fit venir la Pluie. Il agita ses manches et des milliers de gouttes de pluie cristalline apparurent dans un rayon de plusieurs dizaines de milliers de pieds. Elles foncèrent rapidement contre l'incommensurable énergie d'épée projetée par le Maître Pin Cendré, tandis qu'une partie d'entre elles poursuivait le géant de pierre.
+Après avoir invoqué le Vent, Wang Lin fit venir la Pluie. Il agita ses manches et des milliers de gouttes de pluie cristalline apparurent dans un rayon de plusieurs dizaines de milliers de pieds. Elles foncèrent rapidement contre l'incommensurable énergie d'épée projetée par le Maître Pin Cendré, tandis qu'une partie d'entre elles, transformée en cristaux de glace, enveloppait le géant de pierre.
 
 Des bruits de craquements résonnèrent alors que Wang Lin avançait, le poing serré. Il lança un coup vers l'énergie d'épée aux sept couleurs qui approchait.
 
@@ -86,7 +86,7 @@ Les yeux du Maître Pin Cendré devinrent injectés de sang, révélant une poin
 
 À l'instant où la marque apparut, le monde entier s'obscurcit, comme si toute la lumière de l'univers avait été absorbée par elle.
 
-« Par l'essence de sang de cent vies changée en Âmes Naissantes, j'invoque l'esprit de la septième formation du Domaine Scellé! » rugit le Maître Pin Cendré alors que la marque d'éclair fulgurait. À cet instant précis, la paume de Wang Lin s'abattit sur la marque.
+« Par l'essence de sang de cent vies changée en Âmes Naissantes, j'invoque l'esprit de la septième formation du Royaume Scellé! » rugit le Maître Pin Cendré alors que la marque d'éclair fulgurait. À cet instant précis, la paume de Wang Lin s'abattit sur la marque.
 
 Un grondement tonitruant retentit et la paume se brisa. Au moment de sa destruction, un rayon d'éclair jaillit vers Wang Lin. Il fut si rapide que Wang Lin ne put l'esquiver; il frappa de plein fouet sa poitrine.
 

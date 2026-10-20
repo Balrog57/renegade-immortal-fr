@@ -18,7 +18,7 @@ Quant au jeune homme au regard froid et aux autres, ils restèrent silencieux, p
 
 « Quoi? Aucun autre cultivateur du Royaume Intérieur n'ose s'emparer de cet arc? » Le disciple principal du Souverain secoua la tête en observant les cultivateurs du Royaume Intérieur.
 
-L'ouverture de la Formation de Scellement du Royaume avait retrouvé ses cent pieds de large et les bords de la formation étaient sur le point de se refermer totalement. Cependant, alors qu'elle ne mesurait plus que soixante-dix pieds, la paume gigantesque apparue plus tôt dans le Système Stellaire Antique réapparut soudainement pour saisir la Formation de Scellement du Royaume. Des grondements tonitruants résonnèrent tandis qu'elle déployait une force colossale pour déchirer l'ouverture. La brèche, qui avait presque cicatrisé, fut violemment élargie sur plusieurs milliers de pieds.
+L'ouverture de la Formation de Scellement du Royaume s'était refermée à moins de cent pieds de large et les bords de la formation étaient sur le point de se refermer totalement. Cependant, alors qu'elle ne mesurait plus que soixante-dix pieds, la paume gigantesque apparue plus tôt dans le Système Stellaire Antique réapparut soudainement pour saisir la Formation de Scellement du Royaume. Des grondements tonitruants résonnèrent tandis qu'elle déployait une force colossale pour déchirer l'ouverture. La brèche, qui avait presque cicatrisé, fut violemment élargie sur plusieurs milliers de pieds.
 
 Le fracas était assourdissant et une pression irrésistible émanait de cette main. Maître Hong Shan et ses compagnons furent terrassés par cette force et reculèrent précipitamment!
 
@@ -52,7 +52,7 @@ L'onde de choc se propagea dans la Formation de Scellement du Royaume, faisant t
 
 Au milieu de ce chaos, l'arc flottait toujours, comme si cette force était insignifiante à ses yeux. La douce lumière qui l'entourait ne fit que se distordre légèrement.
 
-La paume, privée de ses cinq doigts, libéra une lumière aux cinq couleurs, comme si les membres s'apprêtaient à se régénérer!
+La paume, privée de ses cinq doigts, libéra cinq traînées de lumière, comme si les membres s'apprêtaient à se régénérer!
 
 Cependant, un changement stupéfiant survint. L'espace derrière Wang Lin et les autres trembla. Un rugissement d'une puissance capable de terrasser n'importe qui jaillit du Royaume Intérieur, juste derrière eux!
 
@@ -106,4 +106,4 @@ Le mot « Bataille » provoqua l'effondrement du croissant de lune!
 
 « Tu es aussi timide qu'une souris. Petit Serviteur à l'Empreinte de Paume, oses-tu te prétendre 'Souverain'? Hormis les membres de la famille Li, personne d'autre ne peut la reconnaître comme son maître. Puisque tu l'as utilisée comme appât, ce vieil homme l'accepte à sa place! » La voix de la silhouette floue était calme tandis qu'il avançait vers l'arc qui flottait là.
 
-« Vieux Fantôme Zhan!! Tu n'es donc pas mort!! » L'ombre noire leva la tête. Le haut de sa robe était en lambeaux, révélant enfin son visage!
+« Vieux Fantôme Zhan!! Tu n'es donc pas mort!! » L'ombre noire leva la tête. Sa capuche était en lambeaux, révélant enfin son visage!

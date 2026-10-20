@@ -30,7 +30,7 @@ La vieille femme répondit calmement: « Cela ne te regarde pas. Souviens-toi de
 
 L'Ancien aux robes violettes regarda une dernière fois Wang Lin avant de lui faire une salutation respectueuse et de partir.
 
-C'est ainsi que Du Tian emmena Wang Lin à travers Pilu, pillant une quantité massive de jades célestes. En chemin, Wang Lin comprit réellement à quel point Du Tian était tyrannique. Du Tian sortait le drapeau d'âmes d'un milliard pour exiger des jades célestes. S'ils refusaient, il libérait les fragments d'âmes et utilisait le peu de temps qu'il lui restait à vivre pour tenir tête à la secte.
+C'est ainsi que Du Tian emmena Wang Lin à travers Pilu, pillant une quantité massive de jades célestes. En chemin, Wang Lin comprit réellement à quel point Du Tian était tyrannique. Du Tian sortait le drapeau d'âmes d'un milliard pour exiger des pierres spirituelles. S'ils refusaient, il libérait les fragments d'âmes et utilisait le peu de temps qu'il lui restait à vivre pour tenir tête à la secte.
 
 La notoriété de la Secte de l'Affinement de l'Âme était tristement célèbre. Les deux autres sectes de Pilu étaient furieuses, mais comme la Secte de l'Affinement de l'Âme avait toujours agi ainsi, elles finissaient par céder les jades célestes.
 
@@ -38,7 +38,7 @@ Du Tian tapota son sac de rangement et sourit à Wang Lin: « Tu vois tout ceci?
 
 Bien que son corps fût imprégné d'une aura de mort, Wang Lin pouvait ressentir un certain soulagement dans le cœur de Du Tian.
 
-« Il y a bien longtemps, un ancêtre de ma Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir passé en revue toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau d'âmes d'un milliard, même les cultivateurs Ascendants n'osaient pas s'en prendre à lui. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
+« Il y a bien longtemps, un ancêtre de ma Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir presque balayé toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau d'âmes d'un milliard, même les cultivateurs Ascendants ne voulaient pas facilement s'en mêler. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
 
 Wang Lin eut un sourire amer. Il pouvait imaginer le mal de tête que les cultivateurs Ascendants de Suzaku avaient dû ressentir à l'époque. Donner les jades célestes revenait presque à leur offrir de l'argent gratuitement. Après tout, chaque génération détenant ce drapeau était une tyrannie.
 

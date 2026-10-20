@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 602 - Crazy Battle Intent
 slug: une-folle-intention-de-bataille
 ---
-Les yeux de Wang Lin étaient totalement injectés de sang alors qu'il contemplait le sol sous ses pieds. La quantité de Fruits d'Ascension Céleste qu'il avait absorbée ne représentait que le dixième de la récolte présente ici. Il tendit sa main gauche vers la terre, et grâce à sa culture au stade précoce de l'Ascendant, il fit trembler le sol! Aussitôt, d'innombrables fruits s'envolèrent des arbres pour converger vers lui.
+Les yeux de Wang Lin étaient totalement injectés de sang alors qu'il contemplait le sol sous ses pieds. La quantité de Fruits d'Ascension Céleste qu'il avait absorbée ne représentait que le dixième de la récolte présente ici. Il tendit sa main gauche vers la terre, et grâce à sa culture de l'Ascendant, il fit trembler le sol! Aussitôt, d'innombrables fruits s'envolèrent des arbres pour converger vers lui.
 
 Près de 100 000 Fruits d'Ascension Céleste furent ainsi stockés dans son sac de rangement. À cet instant, Wang Lin ne pouvait plus réprimer l'intention de bataille et de meurtre qui bouillonnait dans son cœur. Il laissa échapper un rugissement et s'apprêta à partir.
 
@@ -16,7 +16,7 @@ Il frappa de plein fouet l'esprit de Wang Lin!
 
 L'esprit de Wang Lin trembla; il cracha une bouchée de sang et chuta du ciel. Une fois au sol, il redressa brusquement la tête vers les cieux, ses yeux brillant d'une intention de meurtre et de bataille surpuissante!
 
-Il ne put s'empêcher d'être blessé. En temps normal, si l'esprit de Wang Lin avait été ainsi atteint par un simple reniflement glacial, il se serait immédiatement enfui. Cependant, il était différent aujourd'hui, et une lueur de folie dansait dans son regard!
+Il ne put s'empêcher d'être blessé. En temps normal, si l'esprit de Wang Lin avait été ainsi atteint par un simple reniflement glacial, il se serait immédiatement téléporté pour fuir. Cependant, il était différent aujourd'hui, et une lueur de folie dansait dans son regard!
 
 Loin de diminuer son intention de bataille, la blessure infligée à son corps ne fit que le rendre plus déchaîné!
 
@@ -36,7 +36,7 @@ Le choc atteignit Wang Lin, le forçant à cracher une nouvelle et large bouché
 
 Sans aucune hésitation, Wang Lin tendit la main et les 100 000 fruits s'effondrèrent un à un. Leurs jus se condensèrent et se raffinèrent jusqu'à ce que les 100 000 fruits ne forment plus qu'une seule goutte!
 
-Wang Lin contempla ce liquide d'un rouge démoniaque, capable de consumer n'importe quel être, et l'avala.
+Wang Lin contempla ce liquide d'un rouge démoniaque, capable de briser n'importe quel être, et l'avala.
 
 Au moment où il ingurgita ce liquide rouge démoniaque, Wang Lin eut la sensation que son corps allait exploser; la vitesse de circulation de son sang atteignit sa limite absolue!
 

@@ -66,7 +66,7 @@ Après une explosion fracassante, le membre du clan des Démons Géants vola en 
 
 Le visage de Wang Lin devint légèrement pâle et il recula vers le bois géant comme s'il était blessé. En réalité, terrasser un membre du clan des Démons Géants de 10 000 pieds n'était absolument pas difficile pour Wang Lin, qui possédait le corps d'un Ancien Dieu!
 
-La femme en robe de palais sur le bois géant sourit: « J'admire les sorts du compagnon de culture Xu. Ce sort qui vous permet d'accroître instantanément la puissance de votre corps est particulièrement impressionnant. »
+La femme en robe de palais sur le bois géant sourit: « J'admire les sorts du compagnon de culture Xu. Ce sort qui vous permet de raffermir instantanément votre corps est particulièrement impressionnant. »
 
 Lie Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa le second Parchemin de Bataille et y injecta son Sens Divin.
 

@@ -27,13 +27,13 @@ Mais le simple fait de posséder ce pouvoir ne suffit pas. Même si un nourrisso
 
 Pour former une âme originelle, il faut un domaine et un Sens Divin. Ceux-ci fusionnent ensuite pour former une partie de l'Âme Naissante, et ainsi, une nouvelle âme naît. C'est l'âme originelle!
 
-Quant au pouvoir qui peut être utilisé, il s'agit du pouvoir des cieux. Les cultivateurs de la Formation de l'Âme peuvent invoquer le pouvoir céleste, ce que les cultivateurs de l'Âme Naissante ne peuvent faire. Ce pouvoir des cieux est le domaine. Selon le domaine que l'on comprend des cieux, on sera capable de manifester différentes puissances célestes.
+Quant au pouvoir qui peut être utilisé, il s'agit du pouvoir des cieux. Les cultivateurs de la Formation de l'Âme peuvent invoquer le pouvoir céleste, ce que les cultivateurs de l'Âme Naissante ne peuvent faire. C'est l'une des raisons pour lesquelles on les appelle « divins ». Ce pouvoir des cieux est le domaine. Selon le domaine que l'on comprend des cieux, on sera capable de manifester différentes puissances célestes.
 
-À cet instant, Wang Lin comprit tout. Il regarda lentement la terre devant lui et, après un long moment, son âme originelle redescendit lentement. Son âme originelle retourna dans la grotte et pénétra par le sommet de son crâne, finissant par fusionner de nouveau avec son corps.
+À cet instant, Wang Lin comprit tout. Il regarda lentement la terre devant lui et, après un long moment, son âme originelle redescendit lentement et s'enfonça dans la falaise. Elle retourna dans la grotte et pénétra par le sommet de son crâne, finissant par fusionner de nouveau avec son corps.
 
 À ce moment précis, toute l'énergie spirituelle du corps de Wang Lin disparut pour fusionner avec son âme originelle.
 
-Après un long moment, Wang Lin ouvrit lentement les yeux. Son regard évoquait celui d'un nouveau-né, avec une distinction parfaite entre le noir et le blanc, imprégné d'une aura singulière.
+Après un long moment, Wang Lin ouvrit lentement les yeux. Son regard évoquait celui d'un nouveau-né, avec une distinction parfaite entre le noir et le blanc, imprégné d'une aura spirituelle à peine perceptible.
 
 Wang Lin prit une profonde inspiration et leva sa main droite. Il referma la main d'un geste négligent et une faille spatiale apparut. Un air glacial s'en échappa, un souffle qui semblait capable d'anéantir toute vie.
 
@@ -79,7 +79,7 @@ Une voix douce résonna dans sa tête: « N'y pense plus. Une fois que tu auras 
 
 L'homme frémit. En levant les yeux, il vit que Wang Lin lui adressait un sourire évanescent.
 
-Wang Lin prit une profonde inspiration et contempla le pays qui s'étendait devant lui. À moins d'un événement exceptionnel, il ne reviendrait pas à Zhao avant qu'un habitant de Zhao n'atteigne le stade avancé de l'Âme Naissante. Son corps s'éleva lentement dans les airs et finit par disparaître dans l'immensité du ciel. Au sol, tous les cultivateurs levèrent la tête, le regard empreint d'une détermination nouvelle. C'était particulièrement vrai pour l'homme d'âge moyen.
+Wang Lin prit une profonde inspiration et contempla avec nostalgie le pays qui s'étendait devant lui. À moins d'un événement exceptionnel, ce serait son dernier retour à Zhao avant qu'un habitant de Zhao n'atteigne le stade avancé de l'Âme Naissante. Son corps s'éleva lentement dans les airs et finit par disparaître dans l'immensité du ciel. Au sol, tous les cultivateurs levèrent la tête, le regard empreint d'une détermination nouvelle. C'était particulièrement vrai pour l'homme d'âge moyen.
 
 « J'atteindrai le stade de l'Âme Naissante! Je le ferai! »
 

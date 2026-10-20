@@ -14,7 +14,7 @@ Une lueur de sagesse brilla dans les yeux de Wang Lin lorsqu'il dit: « Senior d
 
 Zhou Yi hocha la tête. « Tu dois être prudent en y allant seul. » Le poids des paroles de Wang Lin s'était considérablement accru dans son cœur après les avoir entendues.
 
-Wang Lin sourit discrètement et dit: « Senior peut être rassuré. Plus tôt, Cupidité ne s'est contenté que de crier au lieu de nous poursuivre, comme s'il était préoccupé par quelque chose. C'est un homme prudent. »
+Wang Lin sourit discrètement et dit: « Senior peut être rassuré. Plus tôt, Cupidité ne s'est contenté que de crier au lieu de nous poursuivre, comme s'il était préoccupé par quelque chose. C'est un homme prudent, ou du moins méfiant. »
 
 Zhou Yi laissa échapper un soupir et ses yeux révélèrent une admiration sans réserve pour Wang Lin. Réussir à tirer une telle conclusion à partir de quelques simples indices n'était pas l'apanage des gens ordinaires!
 
@@ -44,7 +44,7 @@ Une voix basse s'éleva de la bouche de Chen Long: « Je suis Chen Long. Es-tu W
 
 Wang Lin garda une expression neutre en regardant Chen Long. Il ne répondit pas, attendant de voir si ces membres de la Secte de l'Épée Da Luo étaient ici de leur plein gré ou s'ils y étaient piégés. C'était un point crucial: s'ils étaient là volontairement, son intuition précédente était erronée.
 
-« Quelle arrogance! Mon frère aîné te pose une question et tu oses ne pas répondre?! » L'impatience de l'un des disciples de la Secte de l'Épée Da Luo, retenu ici depuis cent ans, avait atteint un point de rupture. Profitant de cette opportunité, il s'avança en criant. L'épée précieuse derrière lui vola et, lorsqu'il la mania, une monture équine noire apparut derrière lui!
+« Quelle arrogance! Mon frère aîné te pose une question et tu oses ne pas répondre?! » L'impatience de l'un des disciples de la Secte de l'Épée Da Luo, retenu ici depuis cent ans, avait atteint un point de rupture. Profitant de cette opportunité, il s'avança en criant. L'épée précieuse derrière lui vola et, lorsqu'il la mania, une monture équine noire apparut sur la lame!
 
 Le souffle du cheval était vert et dégageait une aura maléfique. Il se fondit dans l'épée, fusionnant avec l'énergie de l'arme qui chargeait Wang Lin.
 

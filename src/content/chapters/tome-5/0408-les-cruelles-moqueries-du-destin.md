@@ -108,7 +108,7 @@ Li Muwan dit doucement: « Promets-moi... de prendre soin de toi... » Elle leva
 
 Une trace de tristesse marqua son visage. Elle regarda Wang Lin et murmura: « Zhou Ru n'est qu'une enfant; ne lui rends pas la vie difficile. C'est mon propre choix. »
 
-À cet instant, l'Émissaire des Cieux contourna le dieu ancestral pour rejoindre Wang Lin. Il tendit la main vers la roue et la manipula. Le pouvoir du cycle de la réincarnation réapparut une fois de plus.
+À cet instant, l'Émissaire des Cieux contourna le dieu ancestral pour se placer au-dessus de Wang Lin. Il tendit la main vers la roue et la manipula. Le pouvoir du cycle de la réincarnation réapparut une fois de plus.
 
 Une puissante force d'aspiration émana de la roue vers Li Muwan.
 
@@ -142,13 +142,13 @@ La pluie tombait avec fracas sur le sol. Elle s'écrasait sur son corps et coula
 
 « Moi, Wang Lin, j'ai passé ma vie sur le chemin du massacre et j'ai compris la loi céleste lorsque je suis devenu un mortel. Je voyais la vie comme la vie et la mort comme la mort. Cette pluie naît dans le ciel et meurt lorsqu'elle frappe la terre... »
 
-« Grâce à l'obsession de Senior Zhou Yi, la dépouille céleste s'est éveillée. Les émotions entre les deux — comment, si l'un vit, l'autre meurt, et si l'un meurt, l'autre vit — tout cela m'a permis de comprendre le sens de voir la vie non plus comme la vie, et la mort non plus comme la mort... »
+« Grâce à l'amour passionné de Senior Zhou Yi, la dépouille céleste s'est éveillée. Les émotions entre les deux — comment, si l'un vit, l'autre meurt, et si l'un meurt, l'autre vit — tout cela m'a permis de comprendre le sens de voir la vie non plus comme la vie, et la mort non plus comme la mort... »
 
 « Renaître au milieu d'une catastrophe m'a permis de percevoir les mutations de l'existence. Zhou Ru oscillant entre la vie et la mort; la mort de Wan Er au cœur de la vie, et la vie au cœur de la mort. C'est la volonté céleste qui a finalement permis à moi, Wang Lin, de voir la vie toujours comme la vie et la mort toujours comme la mort! »
 
 « Après 19 ans... Wan Er, merci de m'avoir permis de comprendre... Je dois laisser ce qui est perdu dans ce monde rester perdu, et ce qui existe encore continuer d'exister. »
 
-« Cette pluie est née dans le ciel mais ne meurt pas en frappant la terre. Sur la terre, elle acquerra une nouvelle vie; elle aidera les plantes à croître avant de redevenir nuage. Ce changement, c'est la vie! »
+« Cette pluie est née dans le ciel mais ne meurt pas en frappant la terre. Sur la terre, elle acquerra une nouvelle vie; elle aidera les plantes à croître, fera monter brume et brouillard, avant de redevenir nuage. Ce changement, c'est la vie! »
 
 « Je ne peux me défaire de l'âme de mes parents ni de ton départ. En vérité, je n'ai pas été un fils exemplaire envers mes parents, et envers toi, j'ai toujours été passif. Bien que cette émotion soit réelle, elle tenait davantage de la responsabilité... d'une émotion d'avoir été touché... »
 

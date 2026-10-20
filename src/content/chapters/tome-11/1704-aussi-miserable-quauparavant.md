@@ -20,7 +20,7 @@ Porté par ces ambitions, Cupidité suivit son instinct à l'intérieur de la fa
 
 L'excitation de Cupidité atteignit des sommets lorsqu'il aperçut cet autel. Il vit également le monde contenu dans la faille sur laquelle l'un des coins de l'autel était ancré. Devant ce spectacle, il manqua de pousser un hurlement de loup.
 
-Il découvrit d'innombrables herbes célestes. Beaucoup d'entre elles n'étaient que des spécimens qu'il avait vus dans les livres, et d'autres étaient totalement inconnues. Presque toutes pourraient accroître son niveau de culture une fois raffinées.
+Il découvrit d'innombrables herbes célestes. Beaucoup d'entre elles, qu'il ne connaissait que par les livres sans jamais les avoir vues de sa vie. Presque toutes pourraient accroître son niveau de culture une fois raffinées.
 
 Il y avait tout simplement trop d'herbes célestes, une telle abondance qu'il en eut le souffle coupé.
 
@@ -44,7 +44,7 @@ Pourtant, il ne pourrait jamais oublier le sort misérable qui lui attendit. Il 
 
 — Tu ne crois pas qu'il est fou? Ce sont des herbes pour les petites bêtes, pourquoi les met-il à la bouche...?
 
-Les deux fillettes restèrent un instant interdites. Puis, la fille nommée Wa Wa fit un pas en avant, ignorant totalement l'emprisonnement de Cupidité. Elle apparut derrière lui et lui asséna un coup de pied.
+Les deux fillettes restèrent un long moment interdites. Puis, la fille nommée Wa Wa fit un pas en avant, ignorant totalement l'emprisonnement de Cupidité. Elle apparut derrière lui et lui asséna un coup de pied.
 
 Après ce coup, le calvaire de Cupidité commença.
 
@@ -60,7 +60,7 @@ Il ne pouvait pas les battre. À l'époque, un seul coup de pied avait failli ru
 
 Alors que Cupidité racontait douloureusement son histoire, à l'extérieur de la faille, dans l'immense ciel étoilé où se trouvait l'autel, Wang Lin cracha une nouvelle bouchée de sang et utilisa l'Évasion Sanguine, le visage livide.
 
-Derrière lui, l'espace lui-même semblait s'embraser alors que neuf oiseaux de feu le poursuivaient. Une puissante vague de chaleur émanait de ces créatures. Derrière elles, le Daoïste aux Sept Couleurs avançait d'un pas décontracté, mais imprégné d'une intention meurtrière.
+Derrière lui, l'espace lui-même semblait s'embraser alors que neuf oiseaux de feu le poursuivaient. Une puissante vague de chaleur émanait de ces créatures. Derrière elles, le Daoïste aux Sept Couleurs avançait d'un pas tranquille, le visage empreint d'intention meurtrière et de colère.
 
 « Je veux voir jusqu'où tu pourras fuir. Je réduirai ton corps ancien en cendres. Plus tu te rétabliras, plus tu souffriras. Je vais extraire ton âme originelle pour la raffiner en un trésor. Ce n'est qu'ainsi que je pourrai apaiser la haine dans mon cœur! »
 

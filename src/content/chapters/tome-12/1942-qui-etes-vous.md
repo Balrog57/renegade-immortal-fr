@@ -44,7 +44,7 @@ Wang Lin avait tout observé et ne put s'empêcher d'être choqué. Il s'attenda
 
 Le vieil homme fixait Liu Jinbiao qui, désormais, se tenait à l'extérieur du palais, entouré par les disciples de la Secte du Nuage.
 
-« Si j'avais su que cela serait si complexe, je l'aurais ignoré. Pourquoi même l'avoir capturé? Certes, mieux vaut le croire que ne pas le croire. Mais si je le laisse partir ainsi, cela signifierait que j'ai été intimidé par ses paroles, et ma perte serait trop grande... » Le vieil homme serra les dents, prêt à intervenir.
+« Si j'avais su que cela serait si complexe, je l'aurais ignoré. Pourquoi même l'avoir capturé? Certes, mieux vaut le croire que ne pas le croire. Mais si je le laisse partir ainsi, cela signifierait que j'ai été intimidé par ses paroles, et ce serait trop humiliant... » Le vieil homme serra les dents, prêt à intervenir.
 
 Cependant, au même instant, Liu Jinbiao se retourna et effleura son sac de rangement de la main droite. Il en sortit un jeton de bois de la taille d'une paume et le lança vers le vieil homme.
 
@@ -92,9 +92,9 @@ Il n'avait jamais ressenti cela, même au sein de la Secte du Nuage. En réalit�
 
 « Mon maître est sous les ordres du Grand Empyréen Gémeaux, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
 
-Wang Lin l'examina un instant puis sourit: « C'est une belle imitation. Vous avez dû vous tromper vous-même en utilisant la seconde étape de la tromperie, vous répétant sans cesse que vous êtes l'Exalté Empyréen Gu Ya avant même de graver le nom. »
+Wang Lin l'examina un instant puis sourit: « C'est une belle imitation. Vous avez dû vous tromper vous-même en utilisant la seconde étape de la tromperie, vous répétant sans cesse que vous êtes l'Exalté Empyréen Gu Ya, puis en avez gravé le nom trait par trait. »
 
-« Quant à l'aura sur ce jeton... Cette puissante aura de mort... Vous avez dû trouver le corps d'un puissant cultivateur. Vous avez placé le jeton près du cadavre pendant de nombreuses années, et cette effroyable aura de mort s'est accumulée sur lui! »
+« Quant à l'aura sur ce jeton... Cette puissante aura de mort... Vous avez dû trouver le corps d'un puissant cultivateur. Vous avez placé le jeton près du cadavre pendant de nombreuses années, et cette effroyable aura de mort s'est imprégnée dans le jeton! »
 
 À chaque mot prononcé par Wang Lin, le visage de Liu Jinbiao pâlissait davantage. Tandis que Wang Lin lui souriait, l'esprit de Liu Jinbiao sembla bouillonner. La seconde étape de la tromperie — celle consistant à se tromper soi-même — s'effondra, et il s'écroula au sol.
 

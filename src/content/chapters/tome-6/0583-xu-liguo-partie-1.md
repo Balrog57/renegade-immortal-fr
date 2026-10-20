@@ -16,7 +16,7 @@ Des murmures de discussion s'élevèrent parmi les spectateurs alors que Wang Li
 
 « Cet homme est d'une arrogance sans nom, et pourtant il n'a pas osé accepter le défi du Général Démon Shi Xiao. Ridicule! »
 
-« En tant qu'étranger sur notre Terre des Esprits Démons, il ferait mieux de ne pas être trop arrogant, faute de quoi la mort sera sa seule issue. On dirait que cet homme ne connaît toujours pas sa place! »
+« En tant qu'étranger sur notre Terre des Esprits Démoniaques, il ferait mieux de ne pas être trop arrogant, faute de quoi la mort sera sa seule issue. On dirait que cet homme ne connaît toujours pas sa place! »
 
 Tandis que la foule débattait, le Vice-Commandant Xuan, assis dans la zone nord, laissa échapper un léger reniflement. Un homme était assis à ses côtés: un homme d'âge moyen vêtu d'une armure bleue. Son apparence était très ordinaire, mais il dégageait une aura de majesté.
 
@@ -62,7 +62,7 @@ Des ondes de choc se propagèrent à partir des pieds de Wang Lin comme autant d
 
 Ao Di fut expulsé du sol à seize mètres et demi de Wang Lin, les yeux écarquillés par l'incrédulité. Cette technique d'évasion terrestre était utilisée en symbiose avec sa bête démoniaque liée à sa vie; même si son ennemi avait utilisé un sort pour faire s'effondrer le terrain, il n'aurait pas dû être aussi facilement débusqué. En réalité, il aurait dû pouvoir changer de stratégie et attaquer par le flanc au moment de l'impact.
 
-De plus, la chose la plus cruciale était que cette place carrée de trente-trois kilomètres de côté était saturée d'innombrables restrictions; faire s'effondrer le sol ici était au moins dix fois plus difficile qu'à l'extérieur! Il se déplaçait avec une prudence extrême en utilisant son art d'évasion, étudiant attentivement la meilleure trajectoire pendant que Shi Xiao combattait.
+De plus, la chose la plus cruciale était que cette place de trente-trois kilomètres de côté était saturée d'innombrables restrictions; faire s'effondrer le sol ici était au moins dix fois plus difficile qu'à l'extérieur! Il se déplaçait avec une prudence extrême en utilisant son art d'évasion, étudiant attentivement la meilleure trajectoire pendant que Shi Xiao combattait.
 
 Mais il n'eut pas le temps de réfléchir. Alors qu'il flottait dans les airs, le regard de Wang Lin lui tomba dessus comme une lame acérée traversant le vent et le sable. En croisant ce regard, son cuir chevelu se glaça soudainement et un pressentiment funeste l'envahit!
 
@@ -78,7 +78,7 @@ Le regard de Wang Lin demeura imperturbable. Avant même que la flèche de sang 
 
 Les yeux de Wang Lin s'illuminèrent. Loin de s'arrêter, il envoya une dose supplémentaire d'énergie spirituelle céleste pour achever la destruction des méridiens déjà dévastés. Puis, il relâcha sa prise et le corps d'Ao Di fut projeté au loin par l'inertie.
 
-Tandis qu'Ao Di volait dans les airs, son corps laissait échapper des bruits d'explosions et une épaisse brume de sang. La douleur... une douleur indescriptible! C'était la seule chose qu'il pouvait ressentir. L'énergie spirituelle démoniaque de son corps luttait désespérément contre l'énergie céleste, et ce conflit interne lui donnait l'impression de traverser les flammes de l'enfer!
+Tandis qu'Ao Di volait dans les airs, son corps laissait échapper des bruits d'explosions et une épaisse brume de sang. La douleur... une douleur atroce! C'était la seule chose qu'il pouvait ressentir. L'énergie spirituelle démoniaque de son corps luttait désespérément contre l'énergie céleste, et ce conflit interne lui donnait l'impression de traverser les flammes de l'enfer!
 
 Le Vice-Commandant Xuan retint son souffle. Cette scène lui rappelait son propre combat contre Wang Lin; voir Ao Di, c'était comme revoir son passé.
 
@@ -98,13 +98,13 @@ Le choc fit vibrer l'arme; il la frappa une seconde fois de la même main. Les d
 
 Wang Lin retira sa main droite et lança un regard froid à l'homme en armure dorée: « Quel est le sens de ce geste, mon Seigneur? Prétendez-vous violer les règles?! » Bien que son ton fût calme, il était extrêmement vigilant. Cette lance dorée possédait une puissance redoutable!
 
-L'homme en armure dorée lança un regard énigmatique à Wang Lin avant de serrer le poing. La lance qui venait de passer près de lui trembla, puis se brisa en mille éclats de lumière solaire avant de s'évanouir.
+L'homme en armure dorée lança un regard énigmatique à Wang Lin avant de serrer le poing. La lance qui venait de passer près de lui trembla, puis se transforma en rayons de soleil avant de disparaître.
 
 Un silence de mort tomba sur l'assemblée. Tous étaient stupéfaits devant ce spectacle incroyable! Les spectateurs ne pouvaient croire qu'un général démon ait été ainsi terrassé par un étranger. Bien qu'il fût encore en vie, ses méridiens et ses os étaient réduits en miettes. Un tel homme était désormais bon pour rien!
 
 Il était impensable que l'Empereur Démon lui accorde la précieuse Pilule Démoniaque Céleste; même pour un commandant en chef, il fallait accomplir des exploits incalculables pour en obtenir une. Comment un simple général comme Ao Di aurait-il pu espérer une telle récompense?
 
-Si Ao Di avait perdu après un combat acharné, cela aurait été acceptable, mais cette bataille s'était jouée en un clin d'œil. Cet instant venait de briser leur fierté de peuple de la Terre des Esprits Démons. Il fallait admettre qu'à de très rares exceptions près, un général démon n'avait jamais été réduit à un tel état.
+Si Ao Di avait perdu après un combat acharné, cela aurait été acceptable, mais cette bataille s'était jouée en un clin d'œil. Cet instant venait de briser leur fierté de peuple de la Terre des Esprits Démoniaques. Il fallait admettre qu'à de très rares exceptions près, un général démon n'avait jamais été réduit à un tel état.
 
 Et être humilié ainsi par un étranger... c'était une première!
 

@@ -90,7 +90,7 @@ Wang Lin logea dans le bâtiment sud, juste en face de la montagne artificielle.
 
 Mo Lihai affecta deux sergents sous les ordres de Wang Lin avant de partir rejoindre l'Empereur Démon. Il s'entretint avec Wang Lin avant son départ, convenant de boire ensemble à son retour.
 
-Wang Lin s'assit en position du lotus dans sa chambre. Outre son aide envers Mo Lihai, son autre objectif lors de ce voyage à la capitale était d'obtenir le poste de général démon. Cet endroit étant la capitale du Pays du Démon Céleste, les experts y étaient aussi nombreux que les nuages. Il savait qu'en se distinguant des autres, il lui serait bien plus facile d'obtenir ce rang.
+Wang Lin s'assit en position du lotus dans sa chambre. Outre son aide envers Mo Lihai, son autre objectif lors de ce voyage à la capitale était d'obtenir le poste de général démon. Cet endroit étant la capitale du Pays du Démon Céleste, les experts y étaient aussi nombreux que les nuages. Il savait qu'en se distinguant des autres et en attirant l'attention de l'Empereur Démon, il lui serait bien plus facile d'obtenir ce rang.
 
 « Même la culture de Sun Tao, qui était au stade médian de l'Ascendant, a été brisée par quelqu'un, le forçant à chuter au sommet du stade tardif de la Transformation de l'Âme. Il a mentionné la Secte de l'Épée Da Luo. Plus de dix membres de cette secte sont entrés ici; à moins qu'ils ne se soient ligués contre lui, il est impossible qu'il soit si gravement atteint... »
 

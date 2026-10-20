@@ -16,9 +16,9 @@ Les yeux de Wang Lin s'illuminèrent. Il était resté sur ses gardes face à Su
 
 À l'instant même où la glace noire scella la zone, le domaine temporel de la sculpture en bois fut libéré.
 
-Avancer fait partie du temps, reculer fait partie du temps, et s'arrêter fait aussi partie du temps. C'est là toute la puissance d'un domaine temporel: la manipulation du temps selon sa propre volonté.
+Avancer fait partie du temps, reculer fait aussi partie du temps. C'est là toute la puissance d'un domaine temporel: la manipulation du temps selon sa propre volonté.
 
-Wang Lin avait cultivé longtemps dans la perle défiant le ciel et maîtrisait parfaitement l'art de manipuler le temps. C'était aussi ce qui lui avait permis de graver ce domaine temporel au sein même de la sculpture.
+Wang Lin avait cultivé longtemps dans la perle défiant le ciel et maîtrisait parfaitement l'art de manipuler le temps. C'était l'une des raisons pour lesquelles il avait pu reproduire ce domaine temporel dans la sculpture.
 
 Une lumière mystérieuse émana de la gravure et se répandit dans la glace noire. Bien que la glace noire fût puissante, Wang Lin ne l'affrontait pas de front; le domaine temporel la rendit seulement un peu moins rigide, ce qui ne fut pas trop difficile.
 
@@ -36,7 +36,7 @@ Sun Lei maudit intérieurement, mais sachant que le temps pressait — car la mo
 
 Une fois entré, il vit Wang Lin ramasser le morceau de métal doré sur la poitrine du squelette et, sans un mot, s'avancer pour saisir l'épée céleste.
 
-Mais dès que sa main toucha l'arme, il poussa un gémissement misérable alors que des trous se formaient dans sa chair.
+Mais dès que sa main toucha l'arme, il poussa un gémissement misérable alors que de petites taches de sang apparaissaient sur sa main.
 
 Wang Lin ne daigna même pas un regard vers lui et s'élança hors de la grotte. Il sortit son drapeau de restriction, qui émit de nombreux dragons faits de brume noire. Ces derniers encerclèrent Wang Lin, puis il chargea directement vers le haut, perçant les parois.
 
@@ -54,7 +54,7 @@ De plus, le domaine temporel de Wang Lin avait légèrement ralenti la glace noi
 
 Sun Lei fut terrassé par le choc. Il n'avait pas le temps d'esquiver. Sentant la mort approcher alors qu'il regardait Wang Lin s'éloigner, un profond sentiment de frustration l'envahit.
 
-Une lueur de folie apparut dans son regard; il frappa son front et une perle noire en jaillit. Il afficha alors une expression de désespoir déchirant, jamais vue auparavant.
+Une lueur de folie apparut dans son regard; il frappa son front et une perle noire en jaillit. Son visage exprima alors une douleur profonde, jamais vue auparavant.
 
 Cette perle noire était le fruit de centaines d'années de culture et n'avait pris une forme solide qu'en atteignant le stade de la Formation de l'Âme. Selon la méthode de culture de sa secte, cette perle était la clé pour former une seconde âme originelle. En perdant cette perle, son niveau de culture chuterait drastiquement, passant du milieu du stade de la Formation de l'Âme au stade de l'Âme Naissante.
 
@@ -112,7 +112,7 @@ Le corps de Wang Lin s'élança soudainement vers le haut tel une météore. Au 
 
 À l'instant où il émergea, la majeure partie du sol de ce fragment s'était déjà effondrée dans le néant.
 
-Sous lui s'étendait un espace parsemé de quelques piliers qui semblaient soutenir le ciel, mais même ceux-ci rétrécissaient et disparaissaient lentement.
+Sous lui s'étendait un néant obscur, parsemé de quelques piliers qui semblaient soutenir le ciel, mais même ceux-ci rétrécissaient et disparaissaient lentement.
 
 Le ciel était saturé de failles spatiales.
 

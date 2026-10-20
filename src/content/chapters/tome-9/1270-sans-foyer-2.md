@@ -26,7 +26,7 @@ L'amertume sur le visage de Li Qianmei s'intensifia, mais sa détermination devi
 
 « Je veux y aller... »
 
-« Une personne ordinaire ne peut pas forcer la Secte Divine à annuler un concours de rang 8. Cet ordre a été émis par le Grand Ancien de la Secte Divine, Shui Daozi! Avec ton niveau de culture, peux-tu faire quoi que ce soit face à Shui Daozi? Peux-tu l'arrêter? Sans parler de toi, même si toute ma Secte Brise-Ciel s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
+« Un membre ordinaire de la Secte Divine ne pourrait pas faire annuler un concours de rang 8. Cet ordre a été émis par le Grand Ancien de la Secte Divine, Shui Daozi! Avec ton niveau de culture, peux-tu faire quoi que ce soit face à Shui Daozi? Peux-tu l'arrêter? Sans parler de toi, même si toute ma Secte Brise-Ciel s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
 
 Li Qianmei se mordit la lèvre inférieure jusqu'au sang... La détermination dans ses yeux ne faiblit pas, elle devint plus ardente encore.
 
@@ -76,7 +76,7 @@ Un ancien, projeté au loin, rugit: « Maître de Secte! Si Li Qianmei offense l
 
 Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillard: « Dégage, dégage, dégage!! » Sa culture du Fléau Céleste éclata, forçant l'ancien à cracher sans cesse du sang tandis qu'il était renvoyé comme un cerf-volant brisé. Dans un fracas, son corps s'effondra et son âme originelle s'échappa en hurlant.
 
-« La Secte Brise-Ciel a été l'esclave de la Secte Divine pendant des dizaines de milliers d'années. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Shui Daozi, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
+« La Secte Brise-Ciel a été l'esclave de la Secte Divine pendant dix-huit mille ans. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Shui Daozi, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
 
 Sa voix résonna comme le tonnerre à travers toute la Secte Brise-Ciel. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des dizaines de milliers d'années!
 

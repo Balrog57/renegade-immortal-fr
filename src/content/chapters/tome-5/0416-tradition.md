@@ -14,7 +14,7 @@ Au même instant, le jade céleste derrière lui se brisa également.
 
 Les cheveux de Wang Lin flottaient dans l'air, bien qu'aucun vent ne soufflât. La quantité d'énergie spirituelle céleste dans son corps était désormais des milliers de fois supérieure à celle d'auparavant. Une aura puissante commença à émaner de lui, projetant les sept drapeaux blancs qui ne purent en supporter la pression.
 
-Wang Lin leva lentement la tête. Lorsqu'il se redressa, ses yeux projetèrent une lueur dorée avant de retrouver leur calme.
+Wang Lin leva lentement la tête. Lorsqu'il se redressa, ses yeux projetèrent une vive lueur avant de retrouver leur calme.
 
 « J'en ai accompli un tiers... » Les yeux de Wang Lin se posèrent sur Du Tian, assis dans un coin.
 
@@ -56,13 +56,13 @@ Il s'agissait de Du Tian et Wang Lin.
 
 Du Tian semblait parfaitement connaître les lieux, car il avait conduit Wang Lin directement ici. Il regarda le marais en contrebas et soupira: « Ceng Niu, même s'ils se cachent tous comme des rats, ne méprise pas les membres de la Secte des Insectes Démoniaques. Je peux te dire que ces gens étaient tous des rats dans leur vie antérieure. Lorsque mon maître m'a amené ici, la quantité de jades célestes que nous avons volés était presque le triple de celle d'une secte ordinaire. »
 
-Sur ces mots, il tendit la main vers le vide et le drapeau d'âmes d'un milliard apparut dans sa paume. Dès qu'il s'en saisit, l'aura de Du Tian changea radicalement. Il fixa le marais et agita le drapeau. D'innombrables fragments d'âmes s'envolèrent instantanément pour couvrir la zone. Le ciel changea de teinte et le temps sembla se suspendre.
+Sur ces mots, il tendit la main vers le vide et le drapeau d'âmes d'un milliard, long d'une dizaine de mètres, apparut dans sa paume. Dès qu'il s'en saisit, l'aura de Du Tian changea radicalement. Il fixa le marais et agita le drapeau. D'innombrables fragments d'âmes s'envolèrent instantanément pour couvrir la zone. Le ciel changea de teinte et le temps sembla se suspendre.
 
 Tout le secteur fut enveloppé par des fragments d'âmes qui émettaient des gémissements fantomatiques incessants. Les ondes sonores de ces lamentations se propagèrent dans tout le marais, n'étant pas moins puissantes que les attaques de trésors magiques.
 
 Plus de dix fragments d'âmes aux lueurs pourpres et dorées chargèrent avec une excitation manifeste, fonçant en avant sans même attendre d'ordre. Tous les insectes venimeux s'enfuirent comme s'ils avaient rencontré leur prédateur naturel.
 
-Les yeux de Du Tian s'illuminèrent et il hurla: « Rats de la Secte des Insectes Démoniaques, votre grand-père Du Tian est arrivé! La règle est la même que d'habitude: remettez vite les jades célestes! »
+Les yeux de Du Tian s'illuminèrent et il hurla: « Rats de la Secte des Insectes Démoniaques, votre grand-père Du Tian de la Secte de l'Affinement de l'Âme est arrivé! La règle est la même que d'habitude: remettez vite les jades célestes! »
 
 En entendant cela, Wang Lin ne put s'empêcher de rire. Existait-il vraiment une règle pour le vol de jades célestes?
 
@@ -84,7 +84,7 @@ La vieille femme trembla et son expression vacilla.
 
 Le visage du vieil homme à la robe violette se renfrogna et il grommela: « Vous, les gens de la Secte de l'Affinement de l'Âme, vous êtes tous des fous. Quand votre espérance de vie touche à sa fin, vous sortez le drapeau d'âmes d'un milliard pour voler les autres... »
 
-Du Tian rit: « C'est exact. Il ne me reste pas deux ans, alors je ne crains plus la mort. Donnez-moi les jades et je partirai. Si vous refusez, je ne me battrai pas, mais je m'efforcerai d'anéantir tous les insectes venimeux de ce marais. »
+Du Tian rit: « C'est exact. Il ne me reste pas deux ans, alors je ne crains plus la mort. Donnez-moi les jades et je partirai. Si vous refusez, je ne me battrai pas, mais je vais anéantir tous les insectes venimeux de ce marais. »
 
 Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Sans parler de la vengeance que nous deux pourrions exercer contre votre Secte de l'Affinement de l'Âme, ce junior à vos côtés mourra à coup sûr. »
 
@@ -96,13 +96,13 @@ Le visage de la vieille femme changea radicalement; elle plongea la main dans so
 
 Boum!
 
-Un fracas retentit alors que la carapace de tortue se pulvérisait sous l'impact de l'énergie de l'épée.
+Un fracas retentit alors que la carapace de tortue se pulvérisait en cendres sous l'impact de l'énergie de l'épée, dont la lame de lumière se dissipa aussitôt.
 
 L'expression de la vieille femme était devenue affreuse. Le vieil homme à la robe violette affichait la même mine en fixant Wang Lin.
 
 Wang Lin demanda calmement: « Pensez-vous toujours que je vais mourir aujourd'hui? »
 
-La vieille femme demanda d'un ton grave: « Qui es-tu?! » Cette énergie de l'épée contenait de l'énergie spirituelle céleste, mais ce n'était pas là le plus surprenant; elle avait déjà remarqué que Wang Lin se situait entre les stades de la Formation de l'Âme et de la Transformation de l'Âme.
+La vieille femme demanda d'un ton grave: « Qui es-tu?! » Elle ne s'étonnait pas que cette épée contienne de l'énergie spirituelle céleste; elle avait déjà remarqué que Wang Lin se situait entre les stades de la Formation de l'Âme et de la Transformation de l'Âme.
 
 Elle ne considérait pas un cultivateur de ce niveau comme une menace, mais elle n'aurait jamais pu imaginer qu'il possède un trésor céleste.
 
@@ -110,7 +110,7 @@ Quelle que soit sa qualité, tant qu'un trésor utilise de l'énergie spirituell
 
 En revanche, les trésors utilisant l'énergie spirituelle céleste sont appelés trésors célestes.
 
-Ces derniers sont capables de supporter la puissance de l'énergie spirituelle céleste et d'en manifester parfaitement toute la force. C'est une rareté absolue. Pour les cultivateurs en Transformation de l'Âme, outre l'atteinte du stade d'Ascendant, leur seul désir est de s'approprier un tel trésor.
+Ces derniers sont capables de supporter la puissance de l'énergie spirituelle céleste et d'en manifester parfaitement toute la force. Ces trésors ne sont pas très courants dans le monde des cultivateurs. Pour les cultivateurs en Transformation de l'Âme, outre l'atteinte du stade d'Ascendant, leur seul désir est de s'approprier un tel trésor.
 
 Posséder un trésor céleste change radicalement la donne pour un expert de la Transformation de l'Âme. Un tel objet permet d'exploiter le plein potentiel de l'énergie spirituelle céleste, tandis qu'un autre doit se contenter de l'intégrer à des techniques, lesquelles resteront toujours moins puissantes que l'objet lui-même.
 

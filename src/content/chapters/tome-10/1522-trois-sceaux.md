@@ -32,7 +32,7 @@ Une lumière sanglante jaillit, et l'épée de sang enveloppa Wang Lin, fauchant
 
 À cet instant précis, trois lumières fantomatiques jaillirent de l'armée du Royaume Extérieur vers Wang Lin. À leur approche, elles se transformèrent en trois cultivateurs vêtus de robes violettes!
 
-Ces trois cultivateurs flottaient dans les airs. Leurs mains formèrent des sceaux et ils commencèrent à incanter!
+Ces trois cultivateurs flottaient dans les airs, disposés en triangle. Leurs mains formèrent des sceaux et ils commencèrent à incanter!
 
 « En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute son énergie originelle! Scellement! »
 
@@ -50,7 +50,7 @@ Sur ce champ de bataille, tous les sorts devenaient rudimentaires: il ne fallait
 
 Les trois sceaux du Clan de l'Extermination des Sceaux hurlèrent à travers l'espace et percutèrent instantanément Wang Lin. Les sceaux de ce clan étaient irrésistibles!
 
-Si leurs sceaux pouvaient être stoppés, le Clan de l'Extermination des Sceaux ne serait pas une puissance aussi redoutable!
+Si leurs sceaux pouvaient être stoppés, le Clan de l'Extermination des Sceaux ne compterait pas parmi les étranges clans des temps antiques!
 
 Wang Lin poussa un rugissement. À l'instant où les trois sceaux arrivèrent, il projeta un coup de poing de la main droite. Le coup fendit l'air dans un hurlement et un immense poing fantomatique apparut. Il traversa les sceaux sans les affecter. Au moment précis où les trois sceaux atteignirent Wang Lin, le poing fantomatique percuta les trois figures violettes!
 
@@ -92,7 +92,7 @@ Après cette pluie de trésors, les dizaines de milliers de cultivateurs se rapp
 
 « Meurs! » Sa paume fendit l'air vers le sommet du crâne de Wang Lin et frappa violemment!
 
-Pourtant, au moment de l'impact, le vieil homme poussa un cri de douleur atroce en levant sa main droite. Le corps de Wang Lin était si robuste que les os de la main du vieillard se brisèrent net!
+Pourtant, au moment de l'impact, le vieil homme poussa un cri de douleur atroce en levant sa main droite. Le corps de Wang Lin était si robuste que les os du bras droit du vieillard se brisèrent net!
 
 À cet instant, d'autres cultivateurs du Royaume Extérieur arrivèrent. Les sorts pleuvaient et plus de dix paumes frappèrent simultanément Wang Lin. Dans un fracas de tonnerre, il cracha encore du sang.
 
@@ -132,4 +132,4 @@ Le deuxième sceau céda. Le visage de vieillard de Wang Lin redevint instantan�
 
 Le troisième sceau s'effondra et son pouvoir de Dieu Ancien jaillit de ses sourcils, remplissant tout son corps!
 
-« Avez-vous fini de vous déchaîner?! » La voix de Wang Lin résonna depuis le cœur de la tempête!
+« Vous avez assez frappé?! » La voix de Wang Lin résonna depuis le cœur de la tempête!

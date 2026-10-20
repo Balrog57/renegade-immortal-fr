@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 277 - Papillon Rouge
 slug: le-papillon-rouge
 ---
-Son maître lui avait autrefois dit que ses Cinq Esprits Élémentaires étaient apparus à sa naissance pour la protéger éternellement.
+Son maître lui avait autrefois dit que ses Cinq Esprits Élémentaires étaient apparus à sa naissance, alors que le ciel présentait des signes étranges, pour la protéger éternellement.
 
 Les Cinq Esprits Élémentaires n'étaient pas au stade avancé de la Formation de l'Âme lors de leur formation. Ils avaient grandi aux côtés du Papillon Rouge. Chaque fois qu'elle réalisait une percée, les Cinq Esprits Élémentaires en faisaient autant.
 
@@ -34,11 +34,11 @@ Parmi ces huit individus, sept étaient vêtus de la même manière. Il y avait 
 
 Le dernier était un homme d'âge moyen vêtu d'une robe noire. Son visage était d'un jaune pâle, lui donnant une apparence très maladive.
 
-Il hocha la tête avec nonchalance après avoir entendu la femme parler, puis fit un pas en avant pour se placer immédiatement entre le dragon azur et la créature serpentine. Il regarda le dragon azur et sourit: « Je n'ai pas le droit de tuer ce dragon, mais je peux en supprimer la lignée. »
+Il hocha la tête avec nonchalance après avoir entendu la femme parler, puis fit un pas en avant pour se placer immédiatement entre le dragon azur et la créature serpentine. Il regarda le dragon azur et sourit: « Je n'ai pas le droit de tuer ce dragon, mais je peux en extraire la lignée. »
 
 Sur ces mots, il leva la main droite et la pointa légèrement, provoquant un spasme dans le corps de Zhou Wutai qui cracha une bouffée de sang. Ce dernier sentit alors la présence d'une force colossale. Cette puissance projeta son corps au loin comme une météorite.
 
-Le sang que Zhou Wutai avait recraché se condensa en une goutte de sang pourpre dans la main de l'homme d'âge moyen. Celui-ci fit ensuite jaillir la goutte sur le front du dragon azur.
+Le sang que Zhou Wutai avait recraché se condensa en une goutte de sang violet sombre dans la main de l'homme d'âge moyen. Celui-ci fit ensuite jaillir la goutte sur le front du dragon azur.
 
 Le dragon azur poussa un rugissement de colère, empreint de tristesse, mais une sensation de libération accompagnait ce cri. Le dragon regarda le sol, puis tout son corps s'immobilisa soudainement tandis que l'âme du dragon s'envolait pour disparaître au loin.
 
@@ -54,7 +54,7 @@ Wang Lin contemplait la scène, le cuir chevelu engourdi par la terreur. Bien qu
 
 À mesure que l'aura bleu foncé se répandait, l'Alliance des Quatre Sectes entière se transformait en un monde de glace.
 
-Les cultivateurs de l'Alliance sortirent de leurs sectes respectives, les traits tirés par l'indignation. Après avoir jeté un regard vers leur foyer, ils tentèrent tous de s'enfuir.
+Les cultivateurs de l'Alliance sortirent de leurs sectes respectives, les traits tirés par l'indignation. Après avoir jeté un regard vers leur foyer, ils tentèrent tous de s'enfuir en volant sur leurs épées.
 
 Mais comment les cultivateurs de Xue Yu pouvaient-ils les laisser partir ainsi?
 
@@ -74,7 +74,7 @@ Tout en volant dans le ciel, Wang Lin utilisa son puissant sens divin pour effac
 
 Cependant, au moment où il rangeait le sac, son expression changea brusquement. Une tour de glace de plus de quatre-vingts étages apparut devant lui. Une vieille femme vêtue de blanc en sortit. Elle lança un regard glacial à Wang Lin et leva sa main droite.
 
-Wang Lin recula précipitamment et pointa son front. Plusieurs membres du clan Teng, transformés en démons par lui, s'envolèrent.
+Wang Lin recula précipitamment et pointa son front. Plusieurs des neuf fils du clan Teng, transformés en démons par lui, s'envolèrent.
 
 Dès leur apparition, les démons se précipitèrent sur la vieille femme. Celle-ci afficha un air de mépris et fit un geste du doigt. Les démons furent aussitôt encerclés par une glace bleue.
 
@@ -100,13 +100,13 @@ Simultanément, au cœur de l'explosion, un éclair rouge chargea vers la vieill
 
 Cet éclair rouge était le Royaume Ji de Wang Lin. Bien que son effet sur les cultivateurs de la Formation de l'Âme fût limité, il suffisait à ébranler leur conscience.
 
-La vieille femme ne se soucia guère de l'éclair rouge, mais elle fronça légèrement les sourcils face à l'explosion de la marionnette d'Âme Naissante. Elle posa sa main sur la tour de glace, faisant jaillir des rayons de lumière blanche de toutes les fenêtres. Ces rayons se condensèrent autour d'elle, formant un bouclier de glace de 33 mètres de diamètre.
+La vieille femme ne se soucia guère de l'éclair rouge, mais elle fronça légèrement les sourcils face à l'explosion de la marionnette d'Âme Naissante. Elle posa sa main sur la tour de glace, faisant jaillir des rayons de lumière blanche de toutes les fenêtres. Ces rayons se condensèrent devant elle, formant un bouclier de glace de 33 mètres de diamètre.
 
 Cependant, la vieille femme n'aurait jamais imaginé que l'éclair rouge traverserait ce bouclier comme s'il n'existait pas. Son expression changea alors qu'elle tentait de bloquer l'attaque, mais l'éclair rouge pénétra soudainement son corps par le bras.
 
 L'éclair rouge traversa directement son organisme pour atteindre sa conscience, embrumant sa vision. Cela ne dura que quelques instants avant qu'elle ne reprenne ses esprits, mais une pointe de crainte s'était désormais glissée dans ses yeux.
 
-Cette brève confusion affaiblit le bouclier de glace qui l'entourait. Privé du contrôle de la vieille femme, le bouclier absorba une partie des dégâts et finit par s'effondrer. Le reste de l'explosion frappa alors la vieille femme de plein fouet.
+Cette brève confusion affaiblit le bouclier de glace qui se dressait devant elle. Privé du contrôle de la vieille femme, le bouclier absorba une partie des dégâts et finit par s'effondrer. Le reste de l'explosion frappa alors la vieille femme de plein fouet.
 
 C'est à ce moment précis que la vieille femme retrouva ses sens. Elle laissa échapper un reniflement glacial et sa robe blanche se gonfla. Dans une série de craquements, l'explosion de la marionnette fut stoppée par la formation mystérieuse inscrite sur son vêtement.
 

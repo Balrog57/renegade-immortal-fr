@@ -80,30 +80,30 @@ Ces changements semblaient dépourvus de logique, mais lorsque les lignes de san
 
 À part Wang Lin, personne ne pouvait remarquer ce phénomène. Le Général de l'Eau n'en avait aucune idée. Son expression était féroce, teintée elle aussi d'une pointe d'excitation.
 
-Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant l'essence et accélérant la contraction de l'eau. En seulement une demi-baguette d'encens, la masse d'eau passa d'une taille infinie à quelques dizaines de milliers de pieds!
+Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant l'essence et accélérant la contraction de l'eau. En seulement une demi-baguette d'encens, la masse d'eau passa d'une taille infinie à quelques centaines de milliers de pieds!
 
 L'essence au sein de cette sphère devint encore plus puissante à mesure que l'eau de mer et la pluie se condensaient!
 
-« Même si ta culture défie le ciel, avec cette Goutte de l'Univers, la puissance de mon sort a décuplé. Je vais te comprimer en une seule goutte et te raffiner jusqu'à la mort! » Le Général de l'Eau traçait des sceaux avec frénésie et frappait la sphère. Chaque impact faisait onduler le pouvoir de l'armure à travers l'eau, accélérant sa réduction.
+« Même si ta culture défie le ciel, dans cette formation d'eau, avec cette Goutte de l'Univers, la puissance de mon sort est illimitée. Je vais te comprimer en une seule goutte et te raffiner jusqu'à la mort! » Le Général de l'Eau traçait des sceaux avec frénésie et frappait la sphère. Chaque impact faisait onduler le pouvoir de l'armure à travers l'eau, accélérant sa réduction.
 
 Wang Lin ressentit presque de la gratitude envers le Général de l'Eau. Les actions de ce dernier lui permettaient d'observer encore plus de changements dans l'essence et de mieux la comprendre!
 
-La sphère de plusieurs dizaines de milliers de pieds se contracta de moins de moitié pour atteindre 20 000 pieds. Le Général de l'Eau, bien qu'exalté, haletait lourdement, comme épuisé.
+La sphère de plusieurs centaines de milliers de pieds se contracta de moins de moitié pour atteindre 200 000 pieds. Le Général de l'Eau, bien qu'exalté, haletait lourdement, comme épuisé.
 
 Il leva les yeux vers le ciel et poussa un rugissement: « Na Duo, aide-moi!! »
 
 À la suite de son cri, un vortex apparut dans le ciel. Une puissance métallique en jaillit et se propagea instantanément.
 
-Dans les cinq éléments, le métal engendre l'eau! Les avis divergeaient sur l'origine de ce principe. Certains disaient qu'il s'agissait de métal fondu dans l'eau; d'autres croyaient que l'eau se rassemblait naturellement sur le métal après une exposition prolongée.
+Dans les cinq éléments, le métal engendre l'eau! Les avis divergeaient sur l'origine de ce principe. Certains disaient qu'il s'agissait de métal fondu qui se transformait en eau; d'autres croyaient que l'eau se rassemblait naturellement sur le métal après une exposition prolongée.
 
 Mais quelle que soit la vérité, tous les anciens sages s'accordaient pour dire que le métal pouvait engendrer l'eau!
 
-C'était bel et bien la réalité. Dès que l'élément métal arriva, l'eau autour de Wang Lin se contracta encore plus rapidement. Le rire du Général de l'Eau se mua en un ricanement sinistre.
+C'était bel et bien la réalité. Dès que l'élément métal arriva, l'eau autour de Wang Lin se contracta encore plus rapidement. L'excitation du Général de l'Eau se mua en un ricanement sinistre.
 
 « Wang Lin, tu es mort!! »
 
-À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du mystérieux Grand Empyréen Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
+À cet instant, à l'extérieur de la planète des Cinq Éléments, les yeux du Grand Empyréen Xuan Luo brillèrent d'une lumière étrange. Face au spectacle qui se déroulait, il restait sans voix. Hormis cette lueur inhabituelle, il ne savait s'il devait pleurer ou rire.
 
-« Comment cela pourrait-il le raffiner? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage ancien mais aussi les sorts des Célestes. C'est extrêmement rare! »
+« Comment cela pourrait-il le raffiner? C'est clairement en train de l'aider à comprendre l'essence de l'eau... Cet enfant possède le lignage du Dao Antique mais aussi les sorts des Célestes. C'est extrêmement rare! »
 
 « Et il porte réellement sept essences dans son corps, c'est extraordinaire!! Utiliser les lignes de sang dans les yeux pour contenir l'essence de la restriction... je n'ai jamais vu personne faire cela auparavant! Une double culture, ancienne et céleste... »

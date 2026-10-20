@@ -20,15 +20,15 @@ Le Grand Ancien fut projeté en arrière par ce fracas assourdissant et cracha d
 
 « Le tonnerre se divise en six types: le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre du Dao et le Tonnerre Spirituel! Que tous les types apparaissent! » rugit-il, et six éclairs d'environ mille pieds d'épaisseur jaillirent de sa marque de clan, semblables à des colonnes reliant le ciel et la terre!
 
-Le Ciel était l'étoile, et le Tonnerre Céleste était une planète de culture! Il avait été formé par un sort secret du Clan du Tonnerre Dispersé!
+Le Ciel était le firmament étoilé, et le Tonnerre Céleste était une planète de culture! Il avait été formé par un sort secret du Clan du Tonnerre Dispersé!
 
-Le Tonnerre Terrestre représentait l'innombrable poussière et les fragments de planètes. Ils avaient été raffinés pour se transformer en tonnerre!
+Le Tonnerre Terrestre représentait l'innombrable poussière et les fragments de planètes. Ils avaient été raffinés par un rite sacrificiel pour se transformer en tonnerre!
 
-Le Tonnerre Originel était le plus simple. Un cultivateur devait rassembler l'énergie originelle avec une ferveur folle jusqu'à ce qu'il brise son âme originelle. À cet instant, un trou noir capable d'absorber une énergie originelle infinie apparaîtrait. Tel était le prix pour créer le Tonnerre Originel!
+Le Tonnerre Originel était le plus simple. Un cultivateur devait rassembler l'énergie originelle avec une ferveur folle jusqu'à ce qu'il brise son âme originelle. Au moment de sa mort, un trou noir capable d'absorber une énergie originelle infinie apparaîtrait. Tel était le prix pour créer le Tonnerre Originel!
 
 Quant au Tonnerre Magnétique, il existait des zones spéciales dans l'espace contenant une force magnétique si puissante qu'elle rendait tous les trésors et sorts inutiles. Le Clan du Tonnerre Dispersé utilisait une méthode unique pour faire naître un éclair de tonnerre tous les 3 000 ans. C'était le Tonnerre Magnétique!
 
-Le Tonnerre du Dao était rare dans le Royaume Extérieur. L'ancêtre du Clan du Tonnerre Dispersé avait massacré des êtres dans le Royaume Intérieur pour en récolter l'intention du Dao, puis l'avait raffinée en Tonnerre du Dao!
+Le Tonnerre du Dao était rare dans le Système Stellaire Antique. L'ancêtre du Clan du Tonnerre Dispersé avait massacré des êtres dans le Royaume Intérieur pour en récolter l'intention du Dao, puis l'avait raffinée en Tonnerre du Dao!
 
 Ces six types de tonnerre différents l'entourèrent et formèrent un vortex géant devant lui. Il poussa ce vortex et chargea en avant!
 
@@ -52,7 +52,7 @@ Saisissant ce moment de répit, Wang Lin ne se retint plus. La bataille d'aujour
 
 À cet instant précis, la main gauche de Wang Lin forma un sceau qu'il agita. Une lumière infinie apparut autour de lui et se rassembla rapidement sur son corps, formant une silhouette lumineuse géante!
 
-Tandis que Wang Lin utilisait le Bouclier d'Ombre Lumineuse, tout ce qui se trouvait à l'intérieur des 7 Millions de Mondes émit une lumière qui perça le vide pour converger vers lui. Cela fit croître la silhouette lumineuse jusqu'à atteindre un niveau sans précédent!
+Tandis que Wang Lin utilisait le Bouclier de Lumière et d'Ombre, tout ce qui se trouvait à l'intérieur des 7 Millions de Mondes émit une lumière qui perça le vide pour converger vers lui. Cela fit croître la silhouette lumineuse jusqu'à atteindre un niveau sans précédent!
 
 Aussitôt qu'il eut terminé, les dix millions d'énergies d'épée s'abattirent sur le vortex et se désintégrèrent. Le vortex se referma et frappa la silhouette de lumière entourant Wang Lin.
 
@@ -76,7 +76,7 @@ S'ils avaient été en dehors des 7 Millions de Mondes et que le Grand Ancien av
 
 « Vous tous qui avez été tués par moi, adorez-moi et devenez mes disciples. Au prix de vos âmes, consacrez-vous aux Flammes Joss. Rassemblez-les pour moi! »
 
-Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes Joss jaillirent des têtes des innombrables âmes au sein du Monde du Vent et de la Pluie! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
+Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes Joss jaillirent des têtes des innombrables âmes, qui n'étaient pas entrées dans le cycle de la réincarnation, au sein du Monde du Vent et de la Pluie! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
 
 Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient le tiers du total!
 
@@ -102,10 +102,10 @@ Le vortex des six tonnerres s'effondra et les flammes restantes chargèrent l'en
 
 Des grondements tonitruants déchirèrent le monde tandis que le Grand Ancien crachait du sang à plusieurs reprises. Une armure de lumière de tonnerre azurée avait surgi autour de lui sans qu'il s'en aperçoive. Son corps fut repoussé, ses yeux devinrent vitreux et injectés de sang, habités par la folie.
 
-« Je sacrifie ma vitalité pour invoquer l'tonnerre éternel de mon clan afin qu'il descende sur les 7 Millions de Mondes et punisse tous les êtres vivants! » rugit-il. À l'extérieur des 7 Millions de Mondes, l'tonnerre éternel du temple de la terre sainte s'agita soudainement. C'était...
+« Je sacrifie ma vitalité pour invoquer le tonnerre éternel de mon clan afin qu'il descende sur les 7 Millions de Mondes et punisse tous les êtres vivants! » rugit-il. À l'extérieur des 7 Millions de Mondes, le tonnerre éternel du temple de la terre sainte s'agita soudainement. C'était...
 
 L'intégralité du tonnerre sembla s'éveiller et quitta la terre sainte. Il perça le vide et chargea vers les 7 Millions de Mondes!
 
 « Ce qui vient ensuite est ce dont je disais être sûr à 70 %! » Le Daoïste Esprit Dispersé prit une profonde inspiration et s'assit. Ses yeux étaient empreints de tristesse, mais aussi de détermination.
 
-« Formation de la Vie des 100 Millions des 7 Millions de Mondes, activez! »
+« Formation de Vie des Cent Millions d'Êtres des 7 Millions de Mondes, activez! »

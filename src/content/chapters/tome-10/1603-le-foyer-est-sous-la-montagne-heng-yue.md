@@ -22,7 +22,7 @@ Il fit un pas en avant et posa ses mains sur le dos de son compagnon de secte. I
 
 À cet instant, il entrevit faiblement une aura émanant de Wang Lin qui le fit frémir. Cette aura était si puissante qu'un simple regard suffit à envahir son esprit d'innombrables pensées complexes. Elle semblait prête à briser son esprit et lui fit cracher une gorgée de sang.
 
-« J'ai compris le monde, alors qu'importe si je vois les immortels comme des fourmis? Oubliez ces deux-là; même si tous les immortels de la planète Suzaku venaient ici, qu'adviendrait-il? » Wang Lin leva les yeux, et des éclairs semblaient briller dans son regard. Ses longs cheveux flottaient au vent tandis qu'il buvait une gorgée de vin.
+« J'ai compris le Ciel et la Terre, alors qu'importe si je vois les immortels comme des fourmis? Oubliez ces deux-là; même si tous les immortels de la planète Suzaku venaient ici, qu'adviendrait-il? » Wang Lin leva les yeux, et des éclairs semblaient briller dans son regard. Ses longs cheveux flottaient au vent tandis qu'il agitait ses manches et buvait une gorgée de vin.
 
 Terrifié, le jeune homme sentit son cuir chevelu s'engourdir. Une telle chose dépassait son imagination. Bien que Wang Lin paraisse fragile, il percevait en lui une aura puissante et droite qui ne craignait ni les cieux ni la terre. Elle était comparable à un sortilège capable de les blesser, et elle lui inspirait une terreur qui faisait trembler son âme, mêlée d'un profond respect.
 
@@ -104,7 +104,7 @@ Il afficha un sourire empreint de douceur. Il ne pouvait oublier, sous un arbre 
 
 La réprimande de la jeune fille nommée Xu Fei résonnait encore à ses oreilles.
 
-Son propre rougissement, les battements de son cœur dans ce bateau et la beauté de ces deux jeunes filles étaient toujours gravés dans sa mémoire; ils ne s'étaient jamais effacés. Ce manteau épais, rangé jadis dans son sac en bambou par Wang Lin, était toujours là, intact.
+Son propre rougissement, les battements de son cœur dans ce bateau et la beauté de ces deux jeunes filles étaient toujours gravés dans sa mémoire; ils ne s'étaient jamais effacés. Ce manteau épais, rangé jadis par Wang Lin dans le radeau de bambou, était toujours là, intact.
 
 Wang Lin soupira. Il toucha ses cheveux blancs mais n'appela pas les femmes. Il resta assis et but son vin.
 

@@ -44,7 +44,7 @@ Les yeux de Wang Lin brillèrent; il prit une profonde inspiration et expira ave
 
 Wang Lin resta calme et laissa échapper un froid reniflement. Il frappa son sac de rangement et en sortit un jade céleste. Il le tint dans sa main gauche tandis que sa main droite traçait un sceau. Pointant la brume blanche, il murmura: « Vent, déploie-toi! »
 
-C'était une compétence de vent basique, utilisable par des cultivateurs au stade de l'Établissement des Fondations, mais Wang Lin l'utilisait ici avec une énergie spirituelle céleste, rendant sa puissance dépassant l'entendement. Une bourrasque plusieurs fois plus puissante jaillit et s'élança vers la brume blanche.
+C'était une compétence de vent basique, utilisable par des cultivateurs au stade de l'Établissement des Fondations, mais Wang Lin l'utilisait ici avec une énergie spirituelle céleste, rendant sa puissance dépassant l'entendement. Une bourrasque incomparablement plus puissante jaillit et s'élança vers la brume blanche.
 
 Ce souffle ressemblait à une vague déferlante balayant le brouillard, avant de se transformer en tornade pour aspirer toute la brume qui s'en approchait.
 
@@ -62,13 +62,13 @@ C'était lui qui, armé de sa hache monumentale, s'était jeté dans l'armée du
 
 Wang Lin comprenait désormais parfaitement la hiérarchie du Clan des Immortels Délaissés. En faisant abstraction de ceux qui n'atteignaient pas le stade des sept feuilles, les chamans à sept et huit feuilles étaient comparables à des cultivateurs au stade de la Transformation de l'Âme, tandis que les chamans à neuf feuilles s'apparentaient à des cultivateurs au début du stade Ascendant.
 
-Parvenir à tuer trois cultivateurs de niveau Ascendant n'était pas une mince affaire, d'autant plus qu'il l'avait fait en chargeant au cœur même des troupes ennemies. Une telle férocité et une telle force de combat étaient rarissimes.
+Parvenir à tuer trois cultivateurs de niveau Ascendant n'était pas une mince affaire, d'autant plus qu'il l'avait fait en chargeant au cœur même du camp ennemi. Une telle férocité et une telle force de combat étaient rarissimes.
 
 « Sauvez-moi... » L'appel à l'aide était encore plus limpide ici et continuait de marteler les oreilles de Wang Lin.
 
-Wang Lin ignora la supplication. Au lieu de cela, il examina de plus près le corps colossal. Il percevait une force vitale puissante émanant du corps, mais une formation mystérieuse semblait en entraver la circulation.
+Wang Lin ignora la supplication. Au lieu de cela, il examina de plus près le corps colossal. Il percevait une force vitale puissante émanant du corps, mais une technique mystérieuse semblait en entraver la circulation.
 
-Quant aux plantes pourpres et verdâtres, leurs racines ressemblaient à des aiguilles acérées qui perçaient le corps du géant. Elles absorbaient son énergie vitale infinie pour la transformer en énergie Yin.
+Quant aux plantes pourpres et verdâtres, leurs racines ressemblaient à des aiguilles acérées qui perçaient le corps du géant. Elles absorbaient son énergie vitale pour la transformer en énergie Yin.
 
 Ce n'était pas la première fois que Wang Lin assistait à une telle scène, mais il en restait tout de même frappé.
 
@@ -86,7 +86,7 @@ Wang Lin lança un regard froid aux plantes, puis d'un geste de la main, il reco
 
 Il ne souhaitait pas détruire ces plantes. Fort de son expérience, il devinait qu'elles étaient liées aux restrictions qui maintenaient le géant prisonnier. S'il les annihilait, il risquait de rompre le sceau et de libérer la créature. Et Wang Lin n'avait aucune intention de s'asseoir avec ce géant pour lui demander poliment s'il pouvait lui emprunter du sang.
 
-Profitant du recul des plantes, Wang Lin frappa son sac de rangement et fit apparaître l'épée céleste. Il abattit la lame sur le corps du géant.
+Profitant du recul des plantes, Wang Lin frappa son sac de rangement et fit apparaître l'épée céleste. Il enfonça la lame dans le corps du géant.
 
 Un bruit de friction métallique retentit et des étincelles jaillirent au point d'impact. Une pression colossale repoussa soudainement l'arme.
 
@@ -112,7 +112,7 @@ Tenant la fiole d'une main, Wang Lin pressa l'autre sur une plaie du corps du g�
 
 « Sauvez-moi... » Wang Lin se tenait sur le géant. Cet appel à l'aide lui semblait être murmuré directement à son oreille; il était d'une clarté absolue.
 
-Wang Lin continua d'ignorer l'ancêtre fondateur du Clan des Démons Géants; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois que cet être aurait retrouvé sa culture, il n'aurait plus aucune utilité pour Wang Lin.
+Wang Lin continua d'ignorer l'ancêtre fondateur du Clan des Démons Géants; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois libre, cet être ne lui apporterait aucun avantage.
 
 Et même si cet homme lui promettait de riches trésors, cela ne suffirait pas à tenter Wang Lin. Hormis le sang qu'il était venu chercher, il ne voulait s'embarrasser d'aucun trouble inutile.
 

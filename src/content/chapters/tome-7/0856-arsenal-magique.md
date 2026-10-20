@@ -10,7 +10,7 @@ slug: arsenal-magique
 
 À cet instant, le premier éclair vira au rouge et fondit du ciel avec une rapidité extrême.
 
-Cependant, au moment où l'éclair rouge s'approcha, les yeux de Qing Shui projetèrent une lueur écarlate. Une immense quantité de lumière rouge jaillit telle un filet et dévora l'éclair instantanément!
+Cependant, au moment où l'éclair rouge s'approcha, les yeux de Qing Shui projetèrent une lueur écarlate. Une immense quantité de lumière rouge jaillit telle une gueule béante et dévora l'éclair instantanément!
 
 L'œil droit de Qing Shui brilla d'un rouge vif tandis qu'il chargeait vers le second éclair, le tonnerre de la tribulation divine orange!
 
@@ -40,7 +40,7 @@ Tandis que Qing Shui parlait, toutes les lumières cristallines disparurent pour
 
 « Céleste du Ciel de Rang 5, Chen Feng. Je l'ai tué lors de la bataille du Royaume Céleste! »
 
-« Céleste du Ciel de Rang 8, Rou Dei. J'ai tué cette femme lors de la Bataille des Déserteurs! »
+« Céleste du Ciel de Rang 8, Rou Die. J'ai tué cette femme lors de la Bataille des Déserteurs! »
 
 « Roi Céleste de Rang 3, Sheng Tianhou. Je l'ai tué lors de la bataille du Royaume Céleste du Vent! »
 
@@ -98,7 +98,7 @@ Cela faisait une éternité qu'il n'avait pas ressenti une telle menace de mort!
 
 Le Dieu de Sang redoutait par-dessus tout ces âmes qui furent autrefois des seigneurs célestes, car chacune d'elles possédait une aura terrifiante!
 
-S'il n'y en avait eu qu'une seule, il aurait pu la détruire aisément; même deux n'auraient pas été un problème. Mais étant blessé, il se retrouvait dans un état pitoyable.
+S'il n'y en avait eu qu'une seule, il aurait pu la détruire aisément; même deux n'auraient pas été un problème. Mais étant blessé, avec Qing Shui à ses côtés, il se retrouvait dans un état pitoyable.
 
 « Qing Shui, comptes-tu me tuer?! » L'expression du Dieu de Sang était féroce alors qu'il agitait ses larges manches. Une quantité phénoménale d'énergie originelle, capable de faire s'effondrer le ciel et de briser les lois, commença à s'accumuler frénétiquement.
 

@@ -12,11 +12,11 @@ La clé résidait dans le nombre de sorts pouvant être fusionnés, et non dans 
 
 Tout était une question de quantité!
 
-Depuis que l'Art Rapide des Sorts avait atteint six Veines de Sortilèges, permettant à Wang Lin de créer 97 images rémanentes, sa vitesse avait atteint un degré terrifiant. Il pouvait désormais utiliser cette technique pour lancer instantanément 98 sorts.
+Depuis que l'Art Magique Rapide avait atteint six Veines Magiques, permettant à Wang Lin de créer 97 images rémanentes, sa vitesse avait atteint un degré terrifiant. Lui seul pouvait désormais utiliser cette technique pour lancer instantanément 98 sorts.
 
-Il y parvenait parce que sa puissance de combat actuelle avait atteint le stade d'Exalté Empyréen. Si quelqu'un n'avait pas atteint ce niveau, même avec neuf Veines de Sortilèges, des centaines d'images rémanentes et le lancement de centaines de sorts, il ne ferait pas le poids face à un Exalté Empyréen.
+Il y parvenait parce que sa puissance de combat actuelle avait atteint le stade d'Exalté Empyréen. Si quelqu'un n'avait pas atteint ce niveau, même avec neuf Veines Magiques, des centaines d'images rémanentes et le lancement de centaines de sorts, il ne ferait pas le poids face à un Exalté Empyréen.
 
-Même si un Exalté Empyréen apprenait l'Art Rapide des Sorts, s'il ne pouvait utiliser que 27 sorts, même si des centaines d'images rémanentes utilisaient ces sorts, ils n'afficheraient qu'une puissance équivalente à celle des 27 sorts que son corps original pouvait produire.
+Même si un Exalté Empyréen apprenait l'Art Magique Rapide, s'il ne pouvait utiliser que 27 sorts, même si des centaines d'images rémanentes utilisaient ces sorts, ils n'afficheraient qu'une puissance équivalente à celle des 27 sorts que son corps original pouvait produire.
 
 Car sa limite resterait de 27 sorts, et elle ne pourrait être dépassée. Tout comme une bouteille ne peut contenir qu'une certaine quantité d'eau: peu importe la quantité que vous tentez d'y verser, elle ne pourra en contenir qu'un certain volume.
 
@@ -30,7 +30,7 @@ La fusion de ces trois puissances était la raison pour laquelle Wang Lin possé
 
 Son corps était la bouteille, sa culture était l'eau, et son avatar le plus puissant rendait la bouteille flexible, comme si elle était élastique et pouvait continuer à s'étendre.
 
-L'existence du sang de l'âme avait provoqué un changement chez Wang Lin. Normalement, ce changement ne se manifestait pas, mais il constituait l'une des sources de sa force. C'était une différence fondamentale qui empêchait les autres membres du clan Antique d'égaler Wang Lin.
+L'existence du sang de l'âme avait provoqué un changement chez Wang Lin. Normalement, ce changement ne se manifestait pas, mais il constituait l'une des sources de sa force. C'était une différence fondamentale qui empêchait les autres membres du Clan Ancien d'égaler Wang Lin.
 
 Toutes ces fortunes pouvaient sembler insignifiantes prise individuellement, mais une fois cumulées, elles produisaient un effet stupéfiant!
 

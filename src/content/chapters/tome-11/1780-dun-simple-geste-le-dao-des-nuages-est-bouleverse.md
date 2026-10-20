@@ -90,7 +90,7 @@ Les nuages entourant le corps de Wang Lin devinrent si denses qu'ils enveloppèr
 
 À cet instant, la vingtième respiration sonnait; Zhou Li avait à peine réussi à faire un cycle pour produire quelques nuages. Comparé à Wang Lin, c'était insignifiant.
 
-Dès que les nuages sortirent de son corps, l'énergie de Wang Lin entra en furie et prit la forme d'une tête de dragon gigantesque!
+Au moment où les nuages de Zhou Li jaillirent de son corps, ceux de Wang Lin entrèrent en furie et prirent la forme d'une tête de dragon gigantesque!
 
 Cette tête de dragon était féroce, ses yeux brûlant d'un éclat sauvage alors qu'elle dévorait Zhou Li. Les nuages de ce dernier furent rapidement absorbés par le dragon. Zhou Li cracha du sang, paraissant totalement affaibli.
 

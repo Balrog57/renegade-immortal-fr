@@ -16,7 +16,7 @@ Grâce à l'intervention de Tuo Sen, Wang Lin avait utilisé son bras droit comm
 
 La terrifiante dix-huitième respiration descendit!
 
-Au même instant, Tuo Sen vit distinctement la septième étoile qui se forgeait entre les sourcils de Wang Lin!
+Au même instant, Tuo Sen vit distinctement la septième étoile qui émergeait de son cocon entre les sourcils de Wang Lin!
 
 Personne ne connaissait mieux le corps de dieu ancien de Wang Lin que Tuo Sen. En voyant cela, il comprit instantanément la situation. Il réalisa que Wang Lin était en train de recevoir l'héritage qui lui appartenait originellement!!
 
@@ -24,7 +24,7 @@ Personne ne connaissait mieux le corps de dieu ancien de Wang Lin que Tuo Sen. E
 
 Il se déplaçait avec une rapidité extrême et allait immédiatement franchir le filet qu'il avait brisé. Il était sur le point d'entrer!
 
-Lorsque la dix-huitième respiration frappa, la force de rejet fut impossible à calculer. La taille de Wang Lin s'effondra et la décomposition se propagea rapidement à travers son corps. En un instant, sa poitrine explosa.
+Lorsque la dix-huitième respiration frappa, la force de rejet fut impossible à calculer. La taille de Wang Lin s'effondra et la décomposition se propagea rapidement à travers son corps. En un instant, sa poitrine explosa et ses os volèrent en éclats.
 
 Son bras gauche restant émit des craquements sinistres. Juste avant qu'il ne s'effondre, Wang Lin afficha un regard de démence et pointa l'espace entre ses sourcils, faisant apparaître 20 Feuilles Anciennes. D'un revers de la main gauche, il projeta les 20 Feuilles Anciennes en avant.
 
@@ -40,7 +40,7 @@ Des grondements de tonnerre résonnèrent et trois des 20 feuilles s'effondrère
 
 Ling Dong serra les dents et chargea, faisant fi de ses blessures. Ses mains formèrent des sceaux et une mer pourpre monstrueuse jaillit, contenant d'innombrables âmes de Flammes Joss. Cette vague impétueuse se précipita vers l'avant!
 
-Zhou Jin bondit également dans les airs et rugit en agitant la main: « Meute de loups, adorez la lune! »
+Zhou Jin, du clan du Loup Céleste, bondit également dans les airs et rugit en agitant la main: « Meute de loups, adorez la lune! »
 
 Alors qu'il parlait, des loups illusoires apparurent autour de lui. En un éclair, des centaines de milliers de loups surgirent, envahissant le monde.
 
@@ -50,7 +50,7 @@ Ces centaines de milliers de loups poussèrent des hurlements et se transformèr
 
 Après avoir absorbé la meute, la lune de sang plongea vers le poing de Tuo Sen!
 
-Deux cultivateurs au stade initial du Vide du Nirvana utilisaient leurs sorts les plus puissants contre lui!
+Deux cultivateurs du troisième stade, au début du Vide du Nirvana, utilisaient leurs sorts les plus puissants contre lui!
 
 Le tonnerre gronda. Au moment où la mer pourpre de Ling Dong descendit, la lune de sang s'écrasa. La main droite de Tuo Sen fut forcée de battre en retraite!
 
@@ -58,7 +58,7 @@ Cependant, alors que son bras se retirait, la tête de Tuo Sen surgit à travers
 
 Le rugissement du dieu ancien!
 
-Son cri était comme le tonnerre et se propagea dans tout le palais. Ce rugissement assourdissant, chargé de la puissance d'un dieu ancien, créa une tempête dévastatrice qui balaya le lieu avec une aura tyrannique. Ling Dong cracha du sang et sa mer pourpre s'effondra; il tomba au sol, vidé de toute force!
+Son cri était comme le tonnerre et se propagea dans tout le palais. Ce rugissement assourdissant, chargé de la puissance d'un dieu ancien, créa une tempête dévastatrice qui balaya le lieu avec une aura tyrannique. Ling Dong cracha du sang et sa mer pourpre s'effondra; il fut projeté en arrière, vidé de toute force!
 
 La lune de sang de Zhou Jin se distordit sous des cris déchirants. Les loups absorbés disparurent un à un, et bientôt la lune elle-même se désintégra!
 
@@ -72,7 +72,7 @@ Tuo Sen était devenu fou!
 
 Il laissa échapper un cri féroce! Wang Lin avait volé son héritage de mémoire, et maintenant il allait lui voler son héritage d'Ordre Ancien; comment ne pas sombrer dans la démence? Même au prix de blessures graves, il allait reprendre ce qu'il considérait comme le sien!
 
-Maintenant que Ling Dong et Zhou Jin ne pouvaient plus l'entraver, son bras s'engouffra dans la brèche laissée par les Feuilles Anciennes. Il les déchira et s'apprêtait à charger à l'intérieur!
+Maintenant que Ling Dong et Zhou Jin ne pouvaient plus l'entraver, ses deux bras s'engouffrèrent dans la brèche laissée par les Feuilles Anciennes. Il les déchira et s'apprêtait à charger à l'intérieur!
 
 Tout cela se passa à une vitesse prodigieuse!
 
@@ -110,7 +110,7 @@ Les yeux de Wang Lin s'ouvrirent brusquement. Son corps resta assis sur le trôn
 
 Les sept étoiles tournèrent lentement avant d'accélérer brutalement tandis que la puissance du dieu ancien remplissait son être. Wang Lin sentit qu'il pourrait pulvériser une planète d'un seul coup de poing!
 
-De plus, à cet instant précis, le coup le plus puissant du Clan de la Tortue Noire, enseigné sur la Planète du Grand Empereur par la deuxième génération de l'Oiseau Vermillon, surgit dans son esprit. La compréhension de la maîtrise de la force inonda sa conscience!
+De plus, à cet instant précis, le coup le plus puissant de la Tortue Noire, enseigné sur la Planète du Grand Empereur par la deuxième génération de l'Oiseau Vermillon, surgit dans son esprit. La compréhension de la maîtrise de la force inonda sa conscience!
 
 Des scènes de pouvoirs divins issus de l'héritage jaillirent du trône!! Ces sorts étaient tels des fragments de Sens Divin, et ils devinrent ses propres souvenirs!
 

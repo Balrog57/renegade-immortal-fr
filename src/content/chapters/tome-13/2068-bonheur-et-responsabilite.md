@@ -16,7 +16,7 @@ On ignorait depuis combien de temps, mais un groupe de fonctionnaires venus se r
 
 De la fumée s'échappait de la cheminée. C'était le petit matin et l'on devinait qu'un petit-déjeuner se préparait à l'intérieur de la demeure.
 
-Tout en nourrissant les oiseaux, la jeune fille riait et lançait des paroles vers la maison: « Maman, j'ai encore rêvé cette nuit. J'ai rêvé que je redevenais une divinité céleste. »
+Tout en nourrissant les oiseaux, la jeune fille riait et lançait des paroles vers la maison: « Maman, j'ai encore rêvé cette nuit. J'ai rêvé que je devenais une divinité céleste. »
 
 « Espèce d'enfant, tu es déjà grande et tu fantasmes toujours sur le fait de devenir une divinité céleste. À ton âge, j'étais déjà mariée à ton père », répondit une voix douce provenant de la maison.
 
@@ -122,4 +122,4 @@ Après le départ de Wang Lin, le fou ouvrit les yeux et fixa l'endroit où Wang
 
 « J'ai trouvé la compréhension durant mon sommeil. » Le fou se redressa, révélant une rare trace de détermination tandis qu'il marmonnait amèrement pour lui-même.
 
-« Garder le clan céleste afin que les générations puissent perdurer. Quand je sentirai que je n'ai plus de responsabilités à porter, je viendrai te trouver, Wang Lin... » Le fou se leva. Il portait désormais la robe et la couronne royales. Il ne subsistait plus aucune trace de la folie passée; il dégageait désormais l'aura d'autorité propre à un Empereur Céleste.
+« Garder le clan céleste afin que les générations puissent perdurer. Quand je sentirai que je n'ai plus de responsabilités à porter, je viendrai te trouver, Wang Lin... » Le fou se leva. Il portait désormais la robe et la couronne impériales. Il ne subsistait plus aucune trace de la folie passée; il dégageait désormais l'aura d'autorité propre à un Empereur Céleste.

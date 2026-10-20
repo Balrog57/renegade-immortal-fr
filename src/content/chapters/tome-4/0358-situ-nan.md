@@ -42,7 +42,7 @@ C'était rapide comme l'éclair.
 
 Le corps de Wang Lin disparut dans une téléportation et réapparut dans le ciel. Le gaz généré par l'image semblait doué d'une volonté propre et le poursuivit.
 
-« Ceng Niu, si tu n'es pas plus fort que cela, alors meurs! » Liao Fan fixa Wang Lin et ricana en sortant une horloge de bronze.
+« Ceng Niu, si tu n'as que ces moyens, alors meurs aujourd'hui! » Liao Fan fixa Wang Lin et ricana en sortant une horloge de bronze.
 
 Douze symboles ornaient cette horloge. Ils représentaient les douze mois de Suzaku. Sous eux se trouvaient d'innombrables lignes plus fines représentant chaque jour du mois.
 
@@ -68,7 +68,7 @@ Wang Lin renifla, toucha son sac de rangement et en sortit l'épée céleste. D'
 
 Liao Fan fut également frappé à la poitrine par cette attaque, ce qui le fit cracher du sang. Repoussé de plusieurs pas, le visage pâle, ses yeux révélèrent pourtant une pointe de joie alors qu'il riait: « Ceng Niu, prépare-toi à mourir! »
 
-Wang Lin fronça les sourcils. À cet instant précis, un rugissement jaillit de l'intérieur de l'horloge de bronze. De nouvelles fissures apparurent sur l'objet et, soudainement, un bras desséché surgit. Après avoir tremblé une fois, l'horloge de bronze tomba en poussière.
+Wang Lin fronça les sourcils. À cet instant précis, un rugissement jaillit de l'intérieur de l'horloge de bronze. De nouvelles fissures apparurent sur l'objet et, soudainement, un bras desséché surgit. Après avoir tremblé une fois, l'horloge de bronze se transforma en fragments de ferraille qui s'effondrèrent au sol.
 
 Un nuage de gaz noir, se mouvant comme une flamme, s'échappa du bras qui flottait dans les airs.
 
@@ -98,7 +98,7 @@ Cette aura se propagea avec frénésie et enveloppa Wang Lin. L'énergie glacial
 
 En percevant cette aura, le cœur de Wang Lin trembla et ses yeux s'illuminèrent. Il connaissait trop bien cette sensation. C'était exactement la même aura que celle issue de la culture de la Méthode d'Ascension des Enfers!
 
-Cependant, l'énergie froide émise par cette silhouette était des milliers de fois plus puissante que celle qu'il avait cultivée. Seule l'aura de Situ Nan, lorsqu'il avait utilisé le corps de Wang Lin, égalait celle de cette créature.
+Cependant, l'énergie froide émise par cette silhouette était d'innombrables fois plus puissante que celle qu'il avait cultivée. Seule l'aura de Situ Nan, lorsqu'il avait utilisé le corps de Wang Lin, égalait celle de cette créature.
 
 Il recula immédiatement, puis sa main droite forma un sceau et pointa vers l'avant. Soudain, la flamme bleue issue de la Méthode d'Ascension des Enfers, qu'il n'avait pas utilisée depuis une éternité, apparut au bout de son doigt.
 

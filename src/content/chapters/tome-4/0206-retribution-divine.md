@@ -42,7 +42,7 @@ En vérité, c'était précisément l'intention de Wang Lin. Qiu Siping avait d�
 
 Après tout, Wang Lin était déjà au stade avancé de la Formation du Noyau. L'Âme Naissante était une étape cruciale, et sa formation devait être sa priorité constante.
 
-Une fois son Âme Naissante formée, il ne lui resterait plus qu'à retourner dans le pays de Zhao pour le faire saigner. Il ferait en sorte que le ciel du pays de Zhao devienne rouge sang et que sa terre se change en bouillie rouge. Il ferait en sorte que tous les cultivateurs du pays de Zhao n'oublient jamais ce jour de sang, et que tous ses ennemis du pays de Zhao offrent leur sang en sacrifice aux ancêtres de la famille Wang.
+Une fois son Âme Naissante formée, il ne lui resterait plus qu'à retourner dans le pays de Zhao pour y semer le chaos et le faire saigner. Il ferait en sorte que le ciel du pays de Zhao devienne rouge sang et que sa terre se change en bouillie rouge. Il ferait en sorte que tous les cultivateurs du pays de Zhao n'oublient jamais ce jour de sang, et que tous ses ennemis du pays de Zhao offrent leur sang en sacrifice aux ancêtres de la famille Wang.
 
 Il voulait exterminer toute la famille Teng, des anciens jusqu'aux descendants, et même tous ceux qui lui étaient liés... sans laisser en vie ni poule ni chien.
 
@@ -170,7 +170,7 @@ Il suivait désormais Qiu Siping de près. Peu importe la vitesse du cultivateur
 
 Cet homme était au stade intermédiaire de la Formation du Noyau. Il avait d'abord dû l'estropier un peu avant de le dévorer. Quant à son noyau, comme le maître ne l'avait pas réclamé, il l'avait secrètement dévoré.
 
-Il fixa Qiu Siping devant lui, une idée gourmande germant dans son esprit: si seulement le maître pouvait laisser ce cultivateur de la Formation du Noyau à moitié mort avant de le lui offrir, ce serait parfait.
+Il fixa Qiu Siping devant lui, une idée gourmande germant dans son esprit: si seulement le maître pouvait laisser ce cultivateur au stade avancé de la Formation du Noyau à moitié mort avant de le lui offrir, ce serait parfait.
 
 À ses yeux, cet homme était très rusé. Il ne volait jamais en ligne droite, multipliant les virages et se retournant sans cesse pour vérifier ses arrières, mais Xu Liguo parvenait tout de même à le suivre. Le démon pensait: « Je ne savais pas que le vol pouvait comporter autant de ruses. À l'avenir, quand je rivaliserai avec le numéro deux, j'utiliserai ces techniques. »
 
@@ -206,7 +206,7 @@ Le temps passa. Deux jours s'écoulèrent. Durant cette période, Wang Lin ne qu
 
 D'un coup d'œil, on pouvait en dénombrer entre deux cents et trois cents.
 
-Sur le drapeau, les points formaient des grappes de neuf. Aucun groupe n'était identique à un autre. Pour ce drapeau de restriction, outre la difficulté de rassembler certains matériaux, le processus de raffinage n'était pas trop complexe.
+Sur le drapeau, les points formaient des grappes de neuf. Aucun groupe n'était identique à un autre, et leurs effets étaient aussi variés qu'imprévisibles. Pour ce drapeau de restriction, outre la difficulté de rassembler certains matériaux, le processus de raffinage n'était pas trop complexe.
 
 Tout cultivateur maîtrisant les restrictions pouvait en fabriquer un.
 
@@ -290,7 +290,7 @@ Au sein du nuage rouge, des précipitations gazeuses commencèrent à tomber. D�
 
 À cet instant, dans la partie orientale de la zone intérieure de la Mer des Démons, un homme sortit d'une montagne faite de crânes. Il était imprégné d'une odeur de mort et sa silhouette restait indistincte.
 
-Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela: « Rétribution divine? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de rétribution divine. Tous les cultivateurs actuels trompent les cieux pour cultiver; comment cela pourrait-il provoquer une telle réaction? Se peut-il que des anciens cultivateurs aient survécu? Si tel est le cas, ce seront des suppléments de très haute qualité! » Sur ces mots, son corps s'élança vers la formation du nuage rouge.
+Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela: « Rétribution divine? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de rétribution divine. Tous les cultivateurs actuels trompent les cieux pour cultiver; comment cela pourrait-il provoquer une telle réaction? Se peut-il que des anciens cultivateurs aient survécu? Si tel est le cas, ce seront des suppléments de très haute qualité! » Sur ces mots, son corps se téléporta vers la formation du nuage rouge.
 
 Dans l'extrême ouest de la Mer des Démons se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que la brume se transforme en mer, le spectacle était prodigieux.
 

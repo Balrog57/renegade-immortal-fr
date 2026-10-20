@@ -21,11 +21,11 @@ La Cité du Démon Céleste se dresse face au Lac des Dragons!
 
 Pour être plus précis, cette cité est composée de neuf villes de tailles similaires à la Cité du Démon Antique. Ces neuf cités sont disposées selon les huit trigrammes divinatoires, avec le palais royal en leur centre!
 
-Une rivière entoure le palais royal et huit ponts relient celui-ci à chacune des huit cités! Le palais royal est la demeure de l'Empereur Démon et regorge de pavillons exquis. Les huit autres villes sont tout aussi distinctes, possédant chacune leur propre style.
+Une rivière entoure le palais royal et huit ponts relient celui-ci à chacune des huit cités! Le palais royal est la demeure de l'Empereur Démon et regorge de pavillons exquis. Les huit autres villes présentent aussi des différences, mais leurs détails ne sont pas décrits.
 
-À l'aube, toute la Cité du Démon Céleste est enveloppée d'une légère brume verdâtre émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
+À l'aube, toute la Cité du Démon Céleste est enveloppée d'une légère brume émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
 
-La Cité du Démon Céleste ressemble à un monstre colossal. À mesure que la brume verte se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
+La Cité du Démon Céleste ressemble à un monstre colossal. À mesure que la brume se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
 
 Dix-huit tableaux de transfert se trouvent aux abords de la Cité du Démon Céleste, gardés par des soldats démons en permanence. Parmi ces dix-huit tableaux, huit sont destinés aux civils, tels que les marchands, pour leurs déplacements.
 
@@ -47,7 +47,7 @@ Le capitaine fit rouler ses épaules et sourit: « Oui, c'est plutôt bon. Parmi
 
 « Vous n'êtes que des recrues de la dernière centaine d'années, il est donc normal que vous l'ignoriez. Tous les trois cents ans, une grande compétition oppose les généraux démons, et l'Empereur Démon y assiste personnellement. Les récompenses sont parfois des trésors ou des sorts démoniaques! Cependant, cette fois, la compétition revêt une signification tout à fait différente!
 
-« Car il y a deux cents ans, nous avons subi de lourdes pertes face au Pays Démon du Feu, incluant deux vice-commandants en chef. C'est pourquoi l'Empereur Démon choisira deux nouveaux vice-commandants en chef lors de cette compétition! »
+« Car il y a deux cents ans, les deux camps ont subi de lourdes pertes face au Pays Démon du Feu, et nous avons perdu deux vice-commandants en chef. C'est pourquoi l'Empereur Démon choisira deux nouveaux vice-commandants en chef lors de cette compétition! »
 
 À ces mots, les yeux des soldats démons s'écarquillèrent et leurs visages furent frappés par la stupeur.
 
@@ -91,7 +91,7 @@ Il regarda dans la direction où Wang Lin et Mo Lihai s'étaient éclipsés en p
 
 Mo Lihai étant un général démon, les soldats de la porte ouest l'accueillirent avec une immense déférence. Ils les guidèrent à l'intérieur de la ville avant de retourner respectueusement à leurs postes.
 
-Mo Lihai regarda Wang Lin et dit sincèrement: « Frère Wang, les diverses factions de la Cité du Démon Céleste sont très instables, surtout avec le rassemblement de tous ces généraux démons. Le mieux serait que vous ne logiez pas en ville, mais que vous veniez avec moi dans mon manoir. Qu'en dites-vous? »
+Mo Lihai regarda Wang Lin et dit sincèrement: « Frère Wang, les diverses factions de la Cité du Démon Céleste sont très instables, surtout avec le rassemblement de tous ces généraux démons et les factions de ministres. Le mieux serait que vous ne logiez pas en ville, mais que vous veniez avec moi dans mon manoir. Qu'en dites-vous? »
 
 Deux cités étaient reliées à la porte ouest: la première était la Ville Xuan, et la seconde, la Ville Hong!
 

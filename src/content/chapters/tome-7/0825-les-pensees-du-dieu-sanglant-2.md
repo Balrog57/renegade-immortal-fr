@@ -104,7 +104,7 @@ Cette aura était extrêmement terrifiante.
 
 « Je ne peux pas résister! » Tous les poils sur le corps de Wang Lin se hérissèrent et il sentit un sentiment de crise l'envelopper. Il recula sans hésiter, mais loin de se dissiper, le talisman accéléra encore davantage.
 
-Face à cette urgence, Wang Lin frappa son sac de rangement sans attendre et le Chariot de Guerre qui Tue les Dieux s'élança. Il pointa Yao Changdong du doigt puis sortit également un talisman. Copiant le geste de son adversaire, il se mordit la langue et cracha son sang essentiel.
+Face à cette urgence, Wang Lin frappa son sac de rangement sans attendre et le Chariot Tueur de Dieux s'élança. Il pointa Yao Changdong du doigt puis sortit également un talisman. Copiant le geste de son adversaire, il se mordit la langue et cracha son sang essentiel.
 
 Le sang essentiel fit briller le talisman qui brûla intensément. Il entra en collision avec celui de Yao Changdong, provoquant une immense onde de choc. Le talisman de Wang Lin s'effondra immédiatement, réduit en poussière.
 
@@ -116,7 +116,7 @@ Le corps de Wang Lin trembla. Il ressentit une chaleur entre ses sourcils, comme
 
 Son corps devint instantanément très faible. Si Ta Shan n'était pas accouru pour permettre à Wang Lin de s'asseoir en tailleur sur sa main gauche, ce dernier serait immédiatement tombé dans le vide infini.
 
-À ses côtés, le Chariot de Guerre qui Tue les Dieux se transforma en papillon. Il battait doucement des ailes, paraissant inoffensif.
+À ses côtés, le Chariot Tueur de Dieux se transforma en papillon. Il battait doucement des ailes, paraissant inoffensif.
 
 Yao Changdong éclata de rire. Sans énergie originelle, tous les trésors de Wang Lin avaient perdu leur efficacité et le sort Invoque le Vent avait disparu. Yao Changdong forma une épée avec ses deux doigts de la main droite et chargea directement vers lui.
 

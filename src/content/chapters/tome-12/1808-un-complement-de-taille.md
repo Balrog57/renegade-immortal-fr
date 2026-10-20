@@ -20,11 +20,11 @@ Cette énergie céleste était telle une rivière impétueuse traversant le corp
 
 Pourtant, le fou restait inconscient et ne reprenait pas connaissance.
 
-« Hum... » L'homme d'âge mûr fronça les sourcils et agita sa manche. L'ombre d'un soleil géant apparut derrière lui; cette ombre enveloppa rapidement tout le palais avant de s'étendre loin dans le monde. Même de loin, on pouvait voir un soleil doré napper le palais de sa lumière.
+« Hum... » L'homme d'âge mûr fronça les sourcils et agita sa manche. L'ombre d'un soleil géant apparut derrière lui; cette ombre enveloppa rapidement tout le palais avant de s'étendre loin dans le monde. Même de loin, on pouvait voir un soleil doré baigner le palais de sa lumière.
 
 « Dao Fei, réveille-toi! » L'homme agita sa main droite et la pressa contre la poitrine du fou. Une énergie céleste dorée se précipita dans le corps du fou pour remonter vers sa tête, ouvrant immédiatement certains vaisseaux et veines sanguins obstrués!
 
-Une fois libérées, les auras nauséabondes qui s'étaient accumulées durant d'innombrables années furent dispersées.
+Une fois libérées, les souffles stagnants accumulés durant d'innombrables années furent dispersées.
 
 « Grand frère... » À cet instant, le visage du fou devint rouge et il ouvrit les yeux. Il laissa échapper un cri de surprise, cracha une bouchée de sang, puis sombra de nouveau dans l'inconscience.
 

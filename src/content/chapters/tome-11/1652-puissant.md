@@ -10,7 +10,7 @@ Wang Lin se trouvait dans la Mer des Nuages!
 
 Il ne s'était pas rendu directement à Luotian. Il ne pouvait pas renverser cette guerre par sa seule force. Même en utilisant l'Arc Li Guang, il ne pourrait que modifier temporairement le cours de la bataille.
 
-Il devait réfléchir à la manière de tenir bon pendant trois ans.
+Il devait peser ces trois années.
 
 Dans trois ans, lorsque les habitants du Royaume Céleste Antique sortiraient, il devrait encore aller détruire le Royaume Céleste Antique du Royaume Extérieur. Tout cela nécessitait l'Arc Li Guang, et il n'avait pas assez d'énergie céleste pour utiliser l'arc à maintes reprises!
 
@@ -84,9 +84,9 @@ L'épée émit un son monstrueux, comme si elle était transportée par une exci
 
 Fixant la tête au regard impitoyable, une lueur de froideur traversa les yeux de Wang Lin. Sa main droite brandit l'épée et abattit un coup sans merci!
 
-Lorsque l'épée frappa, un grondement sourd envahit le ciel, étouffant tout le reste. Un puissant rayon d'énergie tranchante, capable de tout fendre, descendit et frappa la tête géante en un instant. Le regard impitoyable de la femme s'effondra, remplacé par la peur et le désespoir. Son sortilège fut rompu et sa tête se fendit en deux!
+Lorsque l'épée frappa, un grondement sourd envahit le ciel, étouffant tout le reste. Un puissant rayon d'énergie tranchante, capable de tout fendre, descendit et frappa la tête géante en un instant. Le regard impitoyable de la femme s'effondra, remplacé par la peur et le désespoir. Son sortilège fut rompu, sa tête se fendit en deux et la planète fut tranchée!
 
-Un éclat de lumière jaillit et l'énergie de l'épée transperça tout. La tête du corps originel de la femme se sépara également de son tronc, ses yeux remplis de confusion.
+Un éclat de lumière jaillit et l'énergie de l'épée transperça tout, laissant une cicatrice fendue sur son visage. La tête du corps originel de la femme se sépara également de son tronc, ses yeux remplis de confusion.
 
 La main droite de Wang Lin retomba et l'épée de sang se dissipa. Il ne lui prêta plus attention et passa devant la planète. En passant, sa main gauche s'élança négligemment vers la tête.
 

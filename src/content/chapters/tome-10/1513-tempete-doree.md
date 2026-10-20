@@ -54,9 +54,9 @@ Des fissures de plusieurs dizaines de millions de pieds de long apparurent parto
 
 Tout cela se produisit en un instant!
 
-Dans la Secte Divine, l'homme en rouge apparut derrière Wang Lin. Il fit un pas en avant et sa main s'abattit sur la tempête monstrueuse.
+Sur la planète de culture, dans la Secte Divine, l'homme en rouge apparut derrière Wang Lin. Il fit un pas en avant et sa main s'abattit sur la tempête monstrueuse.
 
-Peu après, à l'opposé de lui, le vieil homme de la Secte des Cadavres de l'Alliance apparut également. L'expression sérieuse, il forma un sceau de sa main et pressa vers le bas!
+Peu après, à l'opposé de lui, le vieil homme de la Secte des Cadavres de l'Alliance apparut également. L'expression sérieuse, il forma des sceaux de ses deux mains et les pressa vers l'avant!
 
 Zhou De et Maître Bord-des-Nuages étaient livides. Ignorant leurs propres combats, ils se précipitèrent. Leurs mains bougeaient frénétiquement dans une tentative désespérée d'endiguer cette explosion de puissance!
 
@@ -70,7 +70,7 @@ Des dizaines de cultivateurs de la Souillure Céleste de la Secte Démon apparur
 
 Au sein même de la Secte Divine, les Anciens qui étaient du côté du Shui Daozi se précipitèrent pour tenter désespérément d'empêcher l'explosion de la tempête dorée!
 
-Il y avait aussi Tai Aluo, flottant là, dont l'expression changea radicalement lorsqu'il pressa sa main pour résister à la tempête!
+Il y avait aussi Tai Aluo, flottant là, dont l'expression changea radicalement. Sa longue chevelure s'agitant, il pressa ses deux mains vers l'avant pour résister à la tempête!
 
 À cet instant, le monde se distordit et les membres de la Secte Fantôme arrivèrent. L'Estimé Grand Vide de la Secte Fantôme affichait une expression sombre et rejoignit immédiatement les autres pour contenir la tempête.
 
@@ -100,7 +100,7 @@ La masse immense de cultivateurs et d'innombrables créatures de la Mer des Nuag
 
 La Bête des Limbes semblait être dans un état second, fixant la tempête dorée. C'était comme si elle se demandait ce qu'était cette chose... L'apparition de la Bête des Limbes attira immédiatement l'attention des cultivateurs environnants! Même Maître Hong Shan fut stupéfait par cette vision. Tout le monde n'avait pas eu le temps de suivre chaque mouvement de Wang Lin; personne ici ne savait qu'il avait obtenu la Bête des Limbes!
 
-« Bête des Limbes, dévore! » Wang Lin agita la main et poussa un rugissement fracassant alors que tout le monde s'éloignait de la tempête dorée!!
+« Bête des Limbes, dévore! » Wang Lin agita les bras et poussa un rugissement fracassant alors que tout le monde s'éloignait de la tempête dorée!!
 
 La Bête des Limbes, toujours hébétée, cligna des yeux comme si elle reprenait lentement ses esprits. Elle ouvrit lentement sa gueule immense et, à cet instant, l'énorme Bouche de l'Âme apparut!
 

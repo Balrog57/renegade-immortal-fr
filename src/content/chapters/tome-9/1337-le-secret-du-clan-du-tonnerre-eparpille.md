@@ -12,13 +12,13 @@ Wang Lin rangea le jade provenant du bassin et s'apprêtait à partir. À ce mom
 
 L'expression de Wang Lin resta calme et il hocha la tête.
 
-Le vieil homme examina Wang Lin et dit lentement: « Pas mal. Être capable de rester serein sous ma pression signifie que ton cœur est fort. Avoir accumulé des ressources pendant plusieurs années pour tout échanger aujourd'hui prouve que tu es très sage. Très bien! »
+Le vieil homme examina Wang Lin et dit lentement: « Pas mal. Être capable de rester serein sous ma pression signifie que ton cœur est fort. Avoir accumulé des ressources pendant plusieurs années pour tout échanger aujourd'hui prouve que tu es un homme aux pensées profondes. Très bien! »
 
 « Tu es qualifié pour entrer par la porte ouest afin de voir si tu peux y trouver une tâche appropriée. Seuls les cultivateurs de bas rang échangent des ressources contre des cristaux de tonnerre. Puisque tu figures désormais dans le classement du Clan du Tonnerre Dispersé, tu peux accomplir les missions confiées par le clan et gagner bien plus de cristaux de tonnerre. » Le vieil homme regarda Wang Lin avec admiration; il était satisfait de son calme imperturbable.
 
 Wang Lin esquissa un mince sourire. Il hocha légèrement la tête sans toutefois prendre la parole.
 
-« Je ne pensais pas voir, sous nos yeux à tous les trois, le moment où tu intégrerais le classement du Clan du Tonnerre Dispersé. Selon la tradition, les responsables de la porte est doivent offrir un présent à celui qui entre pour la première fois dans le classement. Voici une excellente pilule de tonnerre. Elle a été personnellement fabriquée par moi et a subi une compression de 8 900 fois. Utilise-la pour te protéger! » Le vieil homme agita sa main droite, et une sphère de tonnerre de la taille d'un pouce apparut, flottant devant Wang Lin.
+« Je ne pensais pas voir, sous nos yeux à tous les trois, le moment où tu intégrerais le classement du Clan du Tonnerre Dispersé. Selon la tradition, les responsables de la porte est doivent offrir un présent à celui qui entre pour la première fois dans le classement. Voici une Pilule de Rassemblement du Tonnerre. Elle a été personnellement fabriquée par moi et a subi une compression de 8 900 fois. Utilise-la pour te protéger! » Le vieil homme agita sa main droite, et une sphère de tonnerre de la taille d'un pouce apparut, flottant devant Wang Lin.
 
 Les deux autres vieillards se sourirent mutuellement. L'un d'eux agita la main et un jade apparut. Il le lança à Wang Lin en disant: « Ce jade contient une méthode de culture du Clan du Tonnerre Dispersé. Elle m'est inutile, mais si tu la pratiques, elle pourra davantage éveiller ta marque tribale. Considère cela comme un cadeau de bienvenue de la part de ce vieil homme. »
 
@@ -44,7 +44,7 @@ Six vieillards au stade Yin et Yang étaient assis là. Leurs regards étaient i
 
 Des centaines de jades flottaient dans les airs, chacun émettant une intensité lumineuse différente. Les lumières faibles étaient douces, tandis que les plus vives étaient aveuglantes.
 
-Outre Wang Lin et les six vieillards chargés des lieux, une douzaine d'autres cultivateurs étaient dispersés ici. Leurs sens divins s'étendaient sur les jades flottants.
+Outre Wang Lin et les six vieillards chargés des lieux, plus d'une dizaine d'autres cultivateurs étaient dispersés ici. Leurs sens divins s'étendaient sur les jades flottants.
 
 Le Roi Démon Noir était parmi eux!
 
@@ -64,7 +64,7 @@ Le regard de Wang Lin parcourut l'ensemble et finit par se poser sur un jade éc
 
 Le jade contenait une quantité massive d'informations. Une fois la lecture terminée, une immense vague de choc déferla dans son esprit; il n'osait y croire.
 
-Dans ce monde, tout possédait un esprit: la végétation, les bêtes, les cultivateurs et bien plus encore. Une fois le sommet du stade de Formation de l'Âme atteint, ils ascendaient vers le Royaume Céleste!
+Dans ce monde, tout possédait un esprit: la végétation, les bêtes, les cultivateurs et bien plus encore. Une fois le sommet du stade de Formation de l'Âme atteint, ils ascendaient vers le Royaume Céleste et devenaient des immortels!
 
 Wang Lin connaissait ce principe; il l'avait appris sur la planète Suzaku. Si le Royaume Céleste de la Pluie n'avait pas été détruit, un cultivateur atteignant le sommet de la Formation de l'Âme devait faire face à la rétribution divine pour ascendre au Royaume Céleste. Le stade de Transformation de l'Âme appartenait, en réalité, à la culture céleste, ce qui expliquait pourquoi les cultivateurs de ce stade avaient besoin de jades célestes pour progresser!
 
@@ -92,7 +92,7 @@ Depuis son entrée dans le Système Stellaire Antique, Wang Lin avait ressenti s
 
 L'expression de Wang Lin était complexe. Il devait admettre qu'il avait sous-estimé la puissance du Clan du Tonnerre Dispersé...
 
-« Cependant, même si tel est le cas, je dois toujours dévorer l'tonnerre éternel et détruire le Clan du Tonnerre Dispersé! » Wang Lin avait affronté bien des adversités, mais il n'avait jamais été brisé. Ni Zhu Quezi, ni l'Omniscient, ni l'Alliance, ni Luotian, ni même le Shui Daozi n'avaient pu l'abattre!
+« Cependant, même si tel est le cas, je dois toujours dévorer le tonnerre éternel et détruire le Clan du Tonnerre Dispersé! » Wang Lin avait affronté bien des adversités, mais il n'avait jamais été brisé. Ni Zhu Quezi, ni l'Omniscient, ni l'Alliance, ni Luotian, ni même le Shui Daozi n'avaient pu l'abattre!
 
 Il se rapprochait lentement du secret du Clan du Tonnerre Dispersé et des mystères du Système Stellaire Antique, mais cela ne faisait qu'attiser sa volonté indomptable!
 

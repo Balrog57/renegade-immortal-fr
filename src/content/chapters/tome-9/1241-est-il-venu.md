@@ -76,7 +76,7 @@ Lu Yanfei réfléchit en silence, puis après un moment, elle secoua la tête. B
 
 Li Qianmei mordilla sa lèvre inférieure, secoua la tête et murmura doucement: « Oublie cela. » Puis, avec un éclair de froideur, elle tourna son regard vers Lu Yanfei et demanda calmement: « Tu es blessée? La blessure est récente. Qui a fait ça? »
 
-Lu Yanfei garda un visage impassible et répondit avec indifférence: « Tout à l'heure, Lu Yingjie a prétendu que, lorsque la Secte de l'Origine serait dissoute, je deviendrais son réceptacle de culture, et il a menacé de combattre l'Oncle-Maître. À ses côtés se trouve Zhao Long, un ancien de rang 7 de la Secte de la Recherche Montagnarde. Il a jugé que la voix de cette jeune femme était désagréable et que je n'étais pas digne de prendre la parole, alors il m'a punie. »
+Lu Yanfei garda un visage impassible et répondit avec indifférence: « Tout à l'heure, Lu Yingjie a prétendu que, lorsque la Secte de l'Origine serait dissoute, je deviendrais son réceptacle de culture, et il a menacé de combattre l'Oncle-Maître. À ses côtés se trouve Zhao Long, un ancien de rang 7 de la Secte de la Recherche Montagnarde. Il a jugé que la voix de cette jeune femme était désagréable et que je n'étais pas digne de prendre la parole, alors il m'a légèrement punie. »
 
 En entendant cela, le visage de Lu Yingjie se décomposa. Il lança un regard à Lu Yanfei avant de s'exclamer: « Elle raconte n'importe quoi! » En réalité, ce qu'il avait dit était vrai. Il n'avait pas explicitement déclaré vouloir faire de Lu Yanfei son réceptacle de culture, mais il en avait l'intention.
 

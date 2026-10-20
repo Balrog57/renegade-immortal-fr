@@ -88,7 +88,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 « Le mot "inutile" décrit bien ce vieil homme. Puisque je ne peux pas utiliser mon Sens Divin pour contrôler les épées, je suis incapable de les manier au combat. Je suis une honte pour mon maître. »
 
-« À 80 ans, j'ai rêvé que j'étais un esprit d'épée balayant la terre et rugissant sur les Neuf Provinces. J'étais le roi des épées. »
+« Passé 80 ans, j'ai rêvé que j'étais un esprit d'épée balayant la terre et rugissant sur les Neuf Provinces. J'étais le roi des épées. »
 
 « À mon réveil, l'épée de mon rêve était restée gravée dans mon esprit comme si c'était ma quête ultime, comme si c'était ma vie antérieure... J'ai renoncé à dépasser le stade de l'Établissement des Fondations pour me consacrer à la forge! »
 
@@ -108,7 +108,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 « Mon âme semblait fusionner totalement avec cette épée; je me suis alors précipité pour résoudre la calamité de ma Secte Heng Yue. Puis je suis mort en souriant, après avoir laissé une technique d'épée à l'intérieur de Richesse. J'espère que les futurs disciples traiteront cette épée avec bienveillance. »
 
-Wang Lin reposa le jade et ferma les yeux, secoué intérieurement. Si sa motivation première était de découvrir le sort de la Secte Heng Yue, il cherchait aussi à en savoir plus sur Richesse.
+Wang Lin reposa le jade et ferma les yeux, secoué intérieurement. Il était venu revoir l'ancienne Secte Heng Yue, mais chercher l'origine de Richesse était aussi l'un de ses buts.
 
 « Un esprit d'épée dans sa vie antérieure... Cette épée est identique à l'Épée Céleste. Se pourrait-il que l'âme de cet aîné contienne un fragment de l'esprit de l'Épée Céleste... »
 
@@ -126,11 +126,11 @@ Une demi-lune plus tard, il ressortit de la faille spatiale, le sourcil froncé.
 
 « Je dois vite retourner à la Secte de l'Affinement de l'Âme et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation; il l'activa et quitta Zhao.
 
-Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan des Immortels Délaissés, dont les habitants étaient devenus leurs serviteurs — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
+Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan des Immortels Délaissés, dont les habitants étaient devenus leurs vassaux — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
 
 « Wang Lin, tu es enfin revenu. L'Aîné sait déjà que tu es de retour. J'espère que tu ne le décevras pas. » L'homme tapa sur son sac de stockage et un morceau de jade apparut dans sa main.
 
-« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yu. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai acquis au prix de ma vie. J'espère que tu sauras combler les espoirs de l'Aîné: dévore le cœur du Dao de Liu Mei et deviens le prochain Suzaku. »
+« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yu. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai acquis au prix de ma vie. J'espère que tu sauras combler les espoirs de l'Aîné: dévore le cœur du Dao de Liu Mei et fais triompher la puissance de Suzaku. »
 
 Il fit un pas et disparut.
 

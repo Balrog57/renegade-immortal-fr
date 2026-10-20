@@ -56,7 +56,7 @@ L'envie se lut sur tous les visages et les éloges commencèrent à pleuvoir.
 
 « Deuxième frère, Wang Lin est de retour! Regardez comme ce garçon est beau! On dirait un immortel! »
 
-« N'est-ce pas? Même les Immortels ont commis une erreur en regrettant leur décision et ont pris Wang Lin comme disciple. À l'avenir, notre famille Wang pourra compter sur ces trois enfants. »
+« N'est-ce pas? Même les Immortels se sont trompés : ils ont fini par regretter leur erreur et ont pris Wang Lin comme disciple. À l'avenir, notre famille Wang pourra compter sur ces trois enfants. »
 
 « C'est à cause de mes vieux yeux que je n'ai pas su voir les qualités de ce garçon, mais en le regardant maintenant, quelle partie de lui pourrait être comparée à Wang Zhuo ou Wang Hao? C'est clairement un dragon parmi les hommes! Bien, bien, bien! » s'exclama à haute voix le troisième oncle, le plus âgé de la famille Wang, en caressant sa barbe toute blanche, comme s'il avait oublié son visage venimeux du mois précédent.
 
@@ -68,6 +68,6 @@ Wang Lin eut un reniflement méprisant en pensée. À ce moment-là, son père a
 
 Wang Lin regarda son père et remarqua que ses rides s'étaient considérablement estompées. Il était manifestement très heureux ces derniers temps. « Père, ne vous inquiétez pas. Tous les disciples de la secte ont droit à trois visites familiales par an. Une fois votre anniversaire passé, je repartirai rapidement. »
 
-Le père de Wang Lin regarda fièrement ses proches et entraîna son fils vers la porte en criant: « Femme, regarde qui est de retour! »
+Le père de Wang Lin regarda fièrement ses proches et entraîna son fils à l'intérieur de la maison en criant: « Femme, regarde qui est de retour! »
 
 La mère de Wang Lin était entourée d'un groupe de parentes. En entendant la voix de son mari, elle se tourna vers lui et fut frappée de surprise en voyant Wang Lin. Elle se précipita vers lui et commença à l'interroger sur sa santé et son voyage.

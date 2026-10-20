@@ -38,7 +38,7 @@ Au début, Shengong Hu ne remarqua rien, mais il finit par soupirer. C'était be
 
 Pourtant, en suivant Wang Lin du regard, il le vit marcher cent pas dans le lac de tonnerre avant de s'asseoir.
 
-Shengong Hu prit une profonde inspiration, les yeux empreints de révérence. En raison de ses blessures, il ne pouvait faire que dix pas avant d'être incapable de progresser. Il s'assit alors précipitamment pour commencer à cultiver le sort d'origine du tonnerre.
+Shengong Hu prit une profonde inspiration, les yeux empreints de révérence. En raison de ses blessures, il ne pouvait faire que dix pas avant d'être incapable de progresser. Il s'assit alors précipitamment pour commencer à cultiver le sort d'origine du tonnerre et à absorber la foudre dans son corps.
 
 Sa Bête du Tonnerre s'avança également avec prudence. Sa tête massive se tournait par intermittence vers Wang Lin, et son œil se remplissait de terreur. En tant que bête spirituelle, ses instincts la poussaient à craindre d'autant plus le regard de Wang Lin; ce dernier avait presque fait perdre l'esprit à la créature.
 
@@ -66,7 +66,7 @@ L'énergie originelle est une ressource extrêmement difficile à récupérer po
 
 À mesure que l'énergie originelle pénétrait Wang Lin et nourrissait son âme originelle, cette dernière se rétablissait lentement.
 
-Le processus était très lent. La main de Wang Lin traça un sceau qui se mit ensuite à trembler. Une immense onde de tonnerre se propagea instantanément, et une quantité de foudre dix fois supérieure convergea vers lui.
+Le processus était très lent. Les deux mains de Wang Lin tracèrent un sceau qui se mit ensuite à trembler. Une immense onde de tonnerre se propagea instantanément, et une quantité de foudre dix fois supérieure convergea vers lui.
 
 Même lui ne put s'empêcher de ressentir un certain engourdissement. Wang Lin prit une profonde inspiration et entama immédiatement le processus de raffinement.
 
@@ -74,7 +74,7 @@ L'action de Wang Lin provoqua une série d'explosions qui tirèrent Shengong Hu 
 
 « Il est digne de son rang de Senior. Il a osé attirer autant de tonnerre dans son corps à cent pas de profondeur, sans même changer d'expression. Si j'avais été à sa place, ma chair n'aurait pu le supporter et même mon âme originelle en aurait été endommagée. » Les yeux de Shengong Hu s'illuminèrent d'excitation.
 
-« Il semble que je doive redoubler d'efforts! » Ses yeux brillèrent, puis il attira davantage de tonnerre dans son corps. Son torse trembla tandis qu'il commençait aussitôt l'absorption.
+« Il semble que je doive redoubler d'efforts! » Il ferma les yeux, puis il attira davantage de tonnerre dans son corps. Son torse trembla tandis qu'il commençait aussitôt l'absorption.
 
 Wang Lin activa le sort d'origine du tonnerre, et dix fois la quantité normale de foudre pénétra son corps. Sous cette intensité accrue, l'énergie originelle au sein de son âme commença progressivement à se régénérer plus vite. Cependant, elle était encore loin d'être totalement restaurée.
 
@@ -92,7 +92,7 @@ En observant et en découvrant peu à peu certains indices, il comprit que cela 
 
 C'était cette caractéristique qui créait un tel écart entre les différents niveaux de la deuxième étape.
 
-Pendant ces deux ans, Wang Lin avait gravé dans son cœur tout ce qu'il percevait de la troisième étape, les méditant souvent, ce qui lui permit de récolter des fruits précieux. Ce jour-là, il se leva et marcha vers le centre du lac de tonnerre. Des craquements secouèrent l'air à chacun de ses pas.
+Pendant ces deux ans, Wang Lin avait gravé dans son cœur tout ce qu'il percevait de la troisième étape, les méditant souvent, ce qui lui permit de récolter quelques fruits. Ce jour-là, il se leva, et la foudre autour de lui crépita en se déversant vers le lac.
 
 Ce changement attira l'attention de Shengong Hu. Il ouvrit les yeux pour fixer Wang Lin; l'excitation dans son regard n'avait pas faibli, elle était désormais teintée d'attente.
 

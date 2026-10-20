@@ -44,7 +44,7 @@ Ces âmes se transformèrent en un gaz noir et jaillirent de la formation. Elles
 
 L'illusion ressemblait à une image reflétant les terres du clan céleste!
 
-Sur les terres du clan céleste, sur le Continent Mer et Montagne, quelques cultivateurs éparpillés contemplaient la mer avec stupeur. Le niveau de l'océan sembla chuter, puis un immense pilier noir jaillit soudainement des profondeurs. Il s'élança vers le ciel avant de disparaître.
+Sur les terres du clan céleste, sur le Continent Mer et Montagne, quelques cultivateurs éparpillés contemplaient la mer avec stupeur. Le niveau de l'océan sembla chuter, puis un immense pilier noir, large de cent mille pieds et d'une longueur insondable, jaillit soudainement des profondeurs. Il s'élança vers le ciel avant de disparaître.
 
 Wang Lin vit la scène à l'intérieur du vortex. Il ne comprit pas sa signification, mais il sentit ses cheveux se hérisser, comme si une chose capable de bouleverser tout le Continent Astral Immortel venait d'apparaître!
 
@@ -72,7 +72,7 @@ Son corps physique restait ici, mais son pied droit avait franchi le seuil de ce
 
 C'était là sa limite: il ne pouvait y faire entrer tout son être, mais son pied droit suffisait à accomplir son dessein. Une lueur noire jaillit de son pied lorsqu'il le retira. Aussitôt, une masse de gaz noir s'engouffra dans la brèche alors que le filet se refermait.
 
-Dans l'espace de la formation, le gaz noir s'agglutina sur les bords pour donner forme à un Wang Lin aux cheveux noirs. Ses yeux étaient froids et indifférents, dépourvus de toute émotion. C'était le véritable corps d'essence du Tonnerre de Massacre de Wang Lin. Son nom était...
+Dans l'espace de la formation, le gaz noir s'agglutina sur les bords pour donner forme à un Wang Lin aux cheveux noirs. Ses yeux étaient froids et indifférents, dépourvus de toute émotion. C'était le véritable corps d'essence de la Foudre de Massacre de Wang Lin. Son nom était...
 
 « Massacre! » C'est l'Ancien Maître Impérial Dao qui prononça ce nom!
 

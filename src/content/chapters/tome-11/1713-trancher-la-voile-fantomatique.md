@@ -42,7 +42,7 @@ Les yeux du troisième Wang Lin révélèrent une étrange lumière alors qu'il 
 
 Alors que les trois Wang Lin parlaient, les trois corps firent tous un pas en avant. Ils se superposèrent et commencèrent à fusionner. Après un long moment, ils ne formèrent plus qu'une seule personne!
 
-Ses cheveux blancs dansaient alors qu'il ouvrait les yeux, flottant là, immobile. Il sentit la puissante vitalité couler dans son corps. Il y avait trois parties, et chacune équivalait à tout ce qu'il était auparavant.
+Ses cheveux blancs dansaient alors qu'il flottait là, les yeux clos. Il sentit la puissante vitalité couler dans son corps. Il y avait trois parties, et chacune équivalait à tout ce qu'il était auparavant.
 
 « Le sortilège des Trois Vies est en effet mystérieux. Avec cela, j'aurai trois vies! » Wang Lin ouvrit les yeux, désormais empreints de confiance.
 
@@ -62,7 +62,7 @@ Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lign�
 
 « Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Spirituel! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantôme apparut.
 
-« L'essence de restriction n'est que secondaire. Plus important encore, puisque Fan Shanmeng a pu l'emprunter pour exécuter le sortilège d'illusion, cette voile doit contenir le sortilège du Dao de l'Illusion de la Secte de la Grande Âme...
+« L'essence de restriction n'est que secondaire. Plus important encore, puisque Fan Shanmeng a pu s'en servir comme médium pour exécuter le sortilège d'illusion, cette voile doit contenir le sortilège du Dao de l'Illusion de la Secte de la Grande Âme...
 
 « Le Dao de l'Illusion est la clé, je dois l'étudier. Si je peux en tirer une quelconque compréhension, peut-être pourrai-je utiliser ce trésor pour chercher la troisième âme, tout comme le Daoïste aux Sept Couleurs tentait de le faire!
 
@@ -94,7 +94,7 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « Si la troisième âme s'est retrouvée dans le Vide Brillant, alors il est fort probable qu'il s'agisse de l'Omniscient... S'il est vraiment la troisième âme, ce serait bien trop facile à trouver... Est-ce lui ou non... » Wang Lin fronça les sourcils. Il n'avait jamais pu percer le mystère de l'Omniscient. Dès l'instant où Wang Lin était devenu son disciple, une crainte avait germé en lui. Elle ne faisait que croître à mesure que l'Omniscient devenait plus mystérieux.
 
-« L'Omniscient a dévoré une multitude de disciples, et j'ai vu trois mille avatars dans son corps... J'ignorais pourquoi il agissait ainsi, pensant qu'il cherchait simplement à atteindre la troisième étape...
+« L'Omniscient a dévoré une multitude de disciples, et j'ai vu trois mille avatars dans son esprit... J'ignorais pourquoi il agissait ainsi, pensant qu'il cherchait simplement à atteindre la troisième étape...
 
 « Cependant, avec le recul, peut-être essayait-il de former des Flammes Joss avec ces trois mille avatars. C'est possible... Ou avait-il un autre dessein? » Wang Lin songea à bien des choses, mais plus il réfléchissait, moins il comprenait les intentions de l'Omniscient.
 
@@ -114,7 +114,7 @@ Ce ne fut qu'au sixième jour que Wang Lin leva lentement la tête, les yeux inj
 
 « Elles peuvent évoluer d'elles-mêmes, il est impossible d'en calculer le nombre exact », dit Wang Lin en fronçant les sourcils et en se massant les tempes. Ces dix jours l'avaient épuisé.
 
-« Ceci est un groupe de restrictions parfait qui a été fusionné avec cette voile. Ce n'est qu'en brisant la voile que je pourrai comprendre comment elles ont été formées... » Wang Lin fixa la voile, une hésitation brillant dans ses yeux.
+« Ceci est un groupe de restrictions parfait contenu dans cette voile. Ce n'est qu'en le brisant parfaitement que je pourrai les déduire et les fusionner... » Wang Lin fixa la voile, une hésitation brillant dans ses yeux.
 
 Après un long moment, il serra les dents et tendit sa main gauche vers le vide. Un éclair de lumière sanguine jaillit et l'épée de sang apparut dans sa main. Une lueur froide brilla dans le regard de Wang Lin alors qu'il frappait avec son épée.
 

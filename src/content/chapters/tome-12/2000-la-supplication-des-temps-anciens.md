@@ -26,15 +26,15 @@ La malédiction ancestrale était si puissante que les Exaltés Dorés moururent
 
 Seuls les Ascendants Empyréens purent survivre grâce à leur puissante culture, mais le prix à payer fut immense.
 
-Une fois que tous les Exaltés et Ascendants Empyréens sous les ordres de Dao Yi eurent aidé à porter le fardeau, Dao Yi chercha des cultivateurs du troisième niveau avec acharnement. Même s'ils ne pouvaient l'aider qu'à supporter une infime fraction de la malédiction, cela lui serait d'un immense secours.
+Une fois que tous les Exaltés et Ascendants Empyréens sous les ordres de Dao Yi eurent aidé à porter le fardeau, Dao Yi chercha des cultivateurs de la troisième étape avec acharnement. Même s'ils ne pouvaient l'aider qu'à supporter une infime fraction de la malédiction, cela lui serait d'un immense secours.
 
 Cette méthode cruelle consistant à partager le poids de la malédiction ancestrale fit que la Secte Dao Yi manqua de devenir une secte morte...
 
 Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
-Seule Gémeaux, Grand Empyréen, ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables d'réparer complètement la faiblesse causée par l'incident lors de leur réincarnation.
+Seule Gémeaux, Grand Empyréen, ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables de réparer complètement la faiblesse causée par l'incident lors de leur réincarnation.
 
-Le clan céleste comptait encore cinq Grands Empyréens, mais le cinquième dormait simplement dans l'espace sous le palais. Il s'était transformé en une montagne dorée pour réprimer les 72 esprits des 72 continents.
+Le clan céleste comptait encore cinq Grands Empyréens, mais le cinquième dormait simplement dans l'espace sous le palais. Il s'était transformé en une montagne dorée pour réprimer les esprits des 72 continents.
 
 Sous cette montagne, le fou ne s'était toujours pas éveillé, comme s'il attendait la prochaine arrivée de Wang Lin.
 
@@ -58,7 +58,7 @@ Yan Luan, une ancienne du passé, occupait désormais un poste élevé dans la s
 
 Mais elle ne partit jamais. Du sommet de sa montagne, elle pouvait apercevoir la grotte de Wang Lin au loin. Chaque fois qu'elle se remémorait le passé, elle restait là, debout, contemplant silencieusement la montagne de Wang Lin.
 
-Fan Shanmeng et Fan Shanlu étaient toujours ses disciples. Ses griefs personnels envers Wang Lin s'étaient résolus. Les années avaient passé — assez de temps pour que tout soit oublié.
+Fan Shanmeng et Fan Shanlu étaient toujours ses disciples. Leurs griefs personnels envers Wang Lin s'étaient résolus. Les années avaient passé — assez de temps pour que tout soit oublié.
 
 Dans la Secte de la Grande Âme, il y avait un autre Ancien nommé Du Qing. Son corps n'était pas fait de chair et de sang, mais d'un morceau de bois. Après avoir condensé son âme originelle à l'intérieur, il en fit son corps.
 
@@ -72,7 +72,7 @@ Wang Lin se tenait devant la Secte de la Grande Âme, contemplant ce lieu famili
 
 « En fin de compte, son plan consistant à lever le sceau sur son clan et à faire disparaître la lignée de l'Ancêtre Céleste a réussi. Tout cela pour permettre à son dernier membre survivant de gagner sa liberté... »
 
-Wang Lin regarda la Secte de la Grande Âme avec une expression complexe. Il était arrivé sur le Continent Astral Immortel depuis longtemps, mais ce n'est que maintenant qu'il découvrait que ce lointain Continent du Taureau Céleste, méprisé par les êtres omnipotents, recelait un secret dont les racines remontaient à des temps immémoriaux.
+Wang Lin regarda la Secte de la Grande Âme avec une expression complexe. Il était arrivé sur le Continent Astral Immortel depuis longtemps, mais ce n'est que maintenant qu'il découvrait que ce lointain Continent du Taureau Céleste, insignifiant aux yeux de nombreux puissants, recelait un secret dont les racines remontaient à des temps immémoriaux.
 
 Dans un soupir, Wang Lin s'avança vers la Secte de la Grande Âme.
 

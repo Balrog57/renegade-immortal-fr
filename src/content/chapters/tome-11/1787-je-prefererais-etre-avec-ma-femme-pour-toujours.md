@@ -38,7 +38,7 @@ L'expression de Wang Lin était singulière alors qu'il hochait de nouveau la t�
 
 Wang Lin réfléchit un instant avant de prendre la parole: « L'un des neuf soleils du Continent Astral Immortel, le Grand Empyréen Dao Antique! » Lorsqu'il avait découvert cela via l'âme de l'avatar, une immense vague de choc avait déferlé dans son cœur. Cependant, il l'avait parfaitement dissimulée, si bien que personne n'avait rien remarqué.
 
-Wang Lin regarda Xuan Luo et poursuivit lentement: « La raison pour laquelle les cultivateurs de la Planète des Cinq Éléments ont renoncé à la lutte pour la troisième âme est due à vous, Senior. Ils sont même venus en aide grâce à vous. Ce Junior vous en est reconnaissant. »
+Wang Lin regarda Xuan Luo et poursuivit lentement: « La raison pour laquelle les cultivateurs de la Planète des Cinq Éléments ont renoncé à la lutte pour la troisième âme est due à vous, Senior. Ils sont même venus en aide à ce Junior grâce à vous. Ce Junior vous en est reconnaissant. »
 
 Plus Xuan Luo observait Wang Lin, plus il était satisfait. Il l'appréciait énormément tout au long de ce parcours et, en entendant les paroles humbles du jeune homme, il éclata de rire.
 
@@ -46,7 +46,7 @@ Il appréciait d'autant plus que, bien que Wang Lin sache sa présence, celui-ci
 
 Xuan Luo n'hésita plus: il prendrait Wang Lin pour son unique disciple.
 
-« Suis-moi pour retourner dans les terres du Clan Dao Antique, sur le Continent Astral Immortel. Deviens mon seul disciple et protège le Clan Dao Antique. Petit camarade, en es-tu capable? » Xuan Luo regarda Wang Lin avec un regard bienveillant. Sa voix n'était pas exigeante, mais portait le ton d'un aîné discutant avec son cadet.
+« Suis-moi pour retourner dans les terres du Clan Dao Antique, sur le Continent Astral Immortel. Deviens mon seul disciple et protège le Clan Dao Antique. Petit camarade, y consens-tu? » Xuan Luo regarda Wang Lin avec un regard bienveillant. Sa voix n'était pas exigeante, mais portait le ton d'un aîné discutant avec son cadet.
 
 Cette expression et ce ton insufflèrent une sensation de chaleur dans le cœur de Wang Lin. Pourtant, Wang Lin ne donna pas son accord immédiatement et se mit à réfléchir.
 

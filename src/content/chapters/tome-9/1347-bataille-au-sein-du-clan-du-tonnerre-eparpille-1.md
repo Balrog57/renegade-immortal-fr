@@ -36,7 +36,7 @@ Il s'enfonça dans le tonnerre, créant un fracas assourdissant qui faisait trem
 
 Wang Lin, drapé de foudre et foulant les éclairs, marcha vers la terre sainte du Clan du Tonnerre Dispersé!
 
-L'tonnerre éternel résidant dans le temple du continent rugit également, semblant se préparer à affronter Wang Lin!
+Le tonnerre éternel résidant dans le temple du continent rugit également, semblant se préparer à affronter Wang Lin!
 
 Wang Lin n'était plus loin de la terre sainte du Clan du Tonnerre Dispersé. Il s'en approcha immédiatement, et une voix puissante retentit soudainement depuis le lieu sacré.
 
@@ -80,7 +80,7 @@ Des grondements tonitruants retentirent comme des coups de foudre et la barrièr
 
 « Quelle arrogance! Le tonnerre du monde devrait-il obéir à tes ordres? Quand mon Clan du Tonnerre Dispersé a-t-il produit un enfant aussi ingrat? » Une voix sombre émana de la terre sainte. Un vieil homme vêtu de noir sortit du temple. Il avait les cheveux gris et une expression morne. Sa culture dépassait le stade Briseur du Nirvana; il était un puissant cultivateur au premier niveau de Fléau Céleste!
 
-Dès que le vieil homme parla, des des milliers, voire des dizaines de milliers de cultivateurs s'élancèrent depuis les seize planètes environnantes.
+Dès que le vieil homme parla, des milliers, voire des dizaines de milliers de cultivateurs s'élancèrent depuis les seize planètes environnantes.
 
 « Voyons si tu as les qualifications pour être aussi arrogant! » Le vieil homme ricana, une intention meurtrière brillant dans ses yeux. Il jaillit hors de la terre sainte, sa main droite formant un sceau. Puis son empreinte brilla et un dragon de tonnerre géant apparut, fonçant sur Wang Lin!
 
@@ -118,12 +118,12 @@ On pouvait voir le lac de tonnerre déferler depuis des distances lointaines!
 
 Cette scène spectaculaire donnait l'impression que le lac de tonnerre venait pour tout anéantir. Les expressions de tous les cultivateurs venus des planètes changèrent radicalement! Même celle de l'homme grand fut profondément affectée!
 
-Le fracas du tonnerre submergea tout. Cependant, à ce moment précis, un rugissement puissant émana de l'tonnerre éternel à l'intérieur du temple de la terre sainte.
+Le fracas du tonnerre submergea tout. Cependant, à ce moment précis, un rugissement puissant émana du tonnerre éternel à l'intérieur du temple de la terre sainte.
 
 « Qui es-tu?! »
 
-Cette voix ne provenait pas du temple, mais des profondeurs mêmes de l'tonnerre éternel. C'était l'Ancien principal du Clan du Tonnerre Dispersé, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
+Cette voix ne provenait pas du temple, mais des profondeurs mêmes du tonnerre éternel. C'était l'Ancien en chef du Clan du Tonnerre Dispersé, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
 
-Un visage de mille pieds apparut au sein de l'tonnerre éternel. Ce visage était semblable à un soleil, illuminant tout le ciel étoilé!
+Un visage de mille pieds apparut au sein du tonnerre éternel. Ce visage était semblable à un soleil, illuminant tout le ciel étoilé!
 
-Les yeux de Wang Lin brillèrent et il déclara lentement: « Je suis Wang Lin. Aujourd'hui, je suis venu pour m'emparer de l'tonnerre éternel et détruire votre Clan du Tonnerre Dispersé! »
+Les yeux de Wang Lin brillèrent et il déclara lentement: « Je suis Wang Lin. Aujourd'hui, je suis venu pour m'emparer du tonnerre éternel et détruire votre Clan du Tonnerre Dispersé! »

@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1696 - The Guest Becomes the Host
 slug: linvite-devient-lhote
 ---
-Lorsque Fan Shanmeng entendit les paroles de Wang Lin, ses yeux s'illuminèrent. Elle esquissa un sourire, mais au moment même où elle allait parler, le navire trembla violemment.
+Lorsque Fan Shanmeng entendit les paroles de Wang Lin, un éclat à peine perceptible traversa son regard. Elle esquissa un sourire, mais au moment même où elle allait parler, le navire trembla violemment.
 
 Ce choc vint de l'extérieur comme un vent impétueux. La secousse fit vibrer tout le vaisseau et un grondement sourd résonna à l'intérieur, propulsant le navire en arrière de plusieurs centaines de kilomètres.
 
@@ -26,7 +26,7 @@ Wang Lin bondit et resta en lévitation à quelques centimètres du pont, dériv
 
 Wang Lin ne laissa rien paraître de ses pensées et dit d'un ton lent: « Il n'est pas nécessaire de précipiter l'échange du Serment de Sang. Je suis très intéressé par votre Navire Démon des Âmes. Trois jours devraient me suffire pour l'étudier. »
 
-« Vous voulez étudier les restrictions de ce navire? » Fan Shanmeng fut stupéfaite. Ni elle ni sa sœur ne connaissaient le talent exceptionnel de Wang Lin pour les restrictions, et ses paroles la laissèrent perplexe. Après un long silence, elle reprit:
+« Vous voulez étudier les restrictions de ce navire? » Fan Shanmeng fut stupéfaite. Ni elle ni sa sœur ne connaissaient la maîtrise de Wang Lin en matière de restrictions, et ses paroles la laissèrent perplexe. Après un long silence, elle reprit:
 
 « Ce Navire Démon des Âmes est un trésor de mon Secte de la Grande Âme. Bien qu'il ne soit pas de rang suprême, il demeure un trésor de rang moyen. Même moi, je ne l'ai pas encore pleinement maîtrisé, sans parler de vous.
 
@@ -56,11 +56,11 @@ S'il parvenait réellement à comprendre le Navire Démon des Âmes et à en pre
 
 L'expression de Fan Shanmeng se crispa un instant avant de redevenir normale. Elle afficha un sourire et dit doucement:
 
-« Le Cultivateur Wang est fort singulier. Puisque vous êtes si confiant, étudiez ce navire. Je vais attendre sur le côté. » Bien qu'elle ait dit cela, elle ricana intérieurement; elle ne croyait absolument pas que Wang Lin en fût capable.
+« Cher Cultivateur Wang, vous plaisantez. Puisque vous êtes si confiant, étudiez ce navire. Je vais attendre sur le côté. » Bien qu'elle ait dit cela, elle ricana intérieurement; elle ne croyait absolument pas que Wang Lin en fût capable.
 
 « Il semble que le Cultivateur soit un peu mécontent, mais détendez-vous. Même si je comprends toutes les restrictions et que j'en prends le contrôle, je ne le garderai pas; je vous le rendrai », dit lentement Wang Lin tout en conservant son sourire énigmatique.
 
-Fan Shanmeng regarda calmement Wang Lin et sourit: « Le Cultivateur est donc si sûr de lui? Soit. Si vous êtes si certain de pouvoir comprendre les restrictions de ce navire, alors je n'ai aucun problème à vous l'offrir!
+Fan Shanmeng regarda calmement Wang Lin et sourit: « Le Cultivateur est donc si sûr de lui? Soit. Si vous êtes si certain de pouvoir comprendre entièrement les restrictions de ce navire, alors je n'ai aucun problème à vous l'offrir!
 
 « Cependant, si vous échouez, ne perdons plus de temps. Procédons à l'échange du Serment de Sang et je vous escorterai en sécurité. »
 
@@ -102,7 +102,7 @@ Ces restrictions étaient toutes distinctes et si densément compactées qu'elle
 
 « Il a brisé la protection des restrictions du pont! Il ne se contente pas de connaître quelques formules, sa maîtrise est extrêmement élevée... » Fan Shanmeng prit une profonde inspiration et son regard envers Wang Lin changea radicalement.
 
-« Peu importe qu'il soit doué en restrictions, qu'importe sa maîtrise! Les restrictions de ce monde des grottes ne sont qu'une infime fraction de celles du Continent Astral Immortel. En seulement trois jours, il ne pourra jamais en prendre le contrôle total! » Fan Shanmeng songea silencieusement tout en ricanant.
+« Peu importe qu'il soit doué en restrictions, qu'importe sa maîtrise! Les restrictions de ce monde des grottes ne sont qu'une partie de celles du Continent Astral Immortel. En seulement trois jours, il ne pourra jamais en prendre le contrôle total! » Fan Shanmeng songea silencieusement tout en ricanant.
 
 L'expression de Wang Lin resta imperturbable alors qu'il pointait l'une des restrictions. Des processus de déduction commencèrent à briller dans ses yeux.
 

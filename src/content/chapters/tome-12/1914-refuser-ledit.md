@@ -76,7 +76,7 @@ Le propriétaire du dragon, l'Ancien Ancêtre de la Secte du Dao Démoniaque, n'
 
 Hormis les Grands Empyréens, nul ne pouvait asservir une telle créature céleste; on ne pouvait maintenir qu'une relation d'égalité. C'était le cas entre le dragon et son ancien maître.
 
-Mais au moment de sa reddition, une aura d'âme verte jaillit de la tête du dragon. Wang Lin la saisit de la main.
+Mais au moment de sa reddition, une aura d'âme verte jaillit du front du dragon. Wang Lin la saisit de la main.
 
 Même l'ancien propriétaire n'avait pu s'emparer de cette aura d'âme. Pourtant, dans cet état de transe et d'illumination, le dragon de mer l'avait offerte à Wang Lin!
 

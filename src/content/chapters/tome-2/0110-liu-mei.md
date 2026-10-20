@@ -12,7 +12,7 @@ La disciple serra les dents et répondit précipitamment: « C'est au point de r
 
 Le visage de Li Shan changea soudainement, puis il laissa échapper un sourire amer sous le regard de Wang Lin qui pesait sur lui.
 
-« Il est entre les mains de l'Ancienne Liu Mei... » Il voulut mentir, mais dès qu'il croisa le regard de Wang Lin, il ne put s'empêcher de dire la vérité. Il n'avait jamais ressenti une telle pression, même lors de sa rencontre avec l'ancêtre Pu Nanzi.
+« Il est entre les mains de l'Ancienne Liu Mei... » Il voulut mentir, mais dès qu'il croisa le regard de Wang Lin, il ne put s'empêcher de dire la vérité. Il n'avait jamais ressenti une telle frayeur, même lors de sa rencontre avec l'ancêtre Pu Nanzi.
 
 « L'Ancienne Liu Mei? » Wang Lin réfléchit un instant. L'image d'une femme d'une grande beauté lui vint à l'esprit. Il regarda Li Shan et demanda: « A-t-elle atteint le stade de l'Établissement des Fondations? »
 
@@ -46,7 +46,7 @@ La jeune femme ouvrit soudainement les yeux. Au début, en voyant Li Shan, elle 
 
 Parmi les dix membres de la Secte Xuan Dao, un jeune homme d'une trentaine d'années regarda Wang Lin avec une expression complexe et dit: « Wang... frère aîné Wang, cela faisait longtemps... »
 
-Cet homme était le frère de Liu Mei, Liu Feng. Wang Lin l'examina de son Sens Divin et découvrit qu'il avait lui aussi atteint le stade précoce de l'Établissement des Fondations. Cependant, son énergie spirituelle était instable; il était évident qu'il venait tout juste d'entrer dans ce stade.
+Cet homme était le frère de Liu Mei, Liu Feng. Wang Lin l'examina de son Sens Divin et découvrit qu'il avait atteint le stade précoce de l'Établissement des Fondations. Cependant, son énergie spirituelle était instable; il était évident qu'il venait tout juste d'entrer dans ce stade.
 
 Wang Lin les fixa et soupira: « Secte Xuan Dao... peu importe. Remettez-moi votre jeton et je ne vous compliquerai pas la tâche. »
 

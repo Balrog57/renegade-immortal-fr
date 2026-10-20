@@ -68,7 +68,7 @@ Alors que sa voix s'éteignait, une onde sonore se propagea. Les dizaines de mil
 
 Maître Lu Fu se tenait à mille pieds de Wang Lin, surplombant la formation. Il pointa les étoiles et d'innombrables lueurs commencèrent à briller à travers le domaine stellaire. En un clin d'œil, tout le domaine fut baigné par la lumière des astres. Puis, une scène d'une splendeur inouïe apparut!
 
-« Aujourd'hui, ce vieil homme utilisera la lumière stellaire comme racine! » Sa main droite s'étira et l'infinie clarté des étoiles commença à converger frénétiquement vers sa paume.
+« Aujourd'hui, ce vieil homme utilisera la lumière stellaire de Luotian comme racine! » Sa main droite s'étira et l'infinie clarté des étoiles commença à converger frénétiquement vers sa paume.
 
 En un éclair, une ombre de lumière stellaire se dessina: c'était l'ombre d'un arbre géant! Cet arbre, fait de pure lumière astrale, dégageait un éclat éblouissant. À première vue, il semblait constitué d'innombrables planètes. Ce colosse de centaines de milliers de pieds de haut flottait ainsi parmi les étoiles.
 
@@ -78,13 +78,13 @@ Cela se transforma en d'innombrables ondulations. À cet instant, une multitude 
 
 Ces particules n'étaient, en réalité, que de la simple poussière. Mais lorsqu'elles pénétrèrent dans l'arbre céleste, elles cessèrent d'être diffuses pour prendre rapidement une forme définie.
 
-L'expression de Wang Lin resta sereine alors qu'il observait le raffinage de Maître Lu Fu. L'arbre de lumière stellaire, haut de centaines de milliers de pieds, apparut instantanément comme s'il avait toujours été solide! En utilisant l'espace pour la terre, la poussière pour les nutriments et la lumière des étoiles pour l'âme, c'était comme si un arbre ancestral venait soudainement de surgir!
+L'expression de Wang Lin resta sereine alors qu'il observait le raffinage de Maître Lu Fu. L'arbre de lumière stellaire, haut de centaines de milliers de pieds, apparut instantanément comme s'il avait toujours été solide! En utilisant l'espace pour la terre, la poussière pour les nutriments et la lumière des étoiles pour l'âme, c'était comme si un arbre immémorial qui touche le ciel venait soudainement de surgir!
 
 Une puissance colossale émana lentement de cet arbre, accompagnée d'une vitalité débordante. Cela galvanisa les dizaines de milliers de cultivateurs de Luotian qui se tenaient derrière Maître Lu Fu!
 
 « Le trésor a pris forme, mais il lui manque une essence. Bien que ce vieil homme soit originaire de Luotian, j'ai été honoré par le Royaume Céleste du Vent et j'y ai acquis la compréhension de l'essence du vent. Maintenant, fusionnons mon essence de vent dans cet arbre! »
 
-Maître Lu Fu ouvrit les bras et, d'un geste, un vent puissant jaillit de son corps. Neuf vortex apparurent dans ses yeux et, à chaque rotation, la bourrasque s'intensifiait. En un instant, toutes les tempêtes du monde semblèrent converger et être emprisonnées. Une puissance terrifiante se forma et chargea l'arbre géant.
+Maître Lu Fu ouvrit les bras et, d'un geste, un vent puissant jaillit de son corps. Neuf vortex apparurent dans ses yeux et, à chaque rotation, la bourrasque s'intensifiait. En un instant, toutes les tempêtes de ce firmament semblèrent converger et être emprisonnées. Une puissance terrifiante se forma et chargea l'arbre géant.
 
 Wang Lin resta calme lorsque le vent frappa son corps. Ses essences de tonnerre et de feu s'illuminèrent dans ses yeux; après avoir neutralisé les couches de vent, son corps ne bougea pas d'un iota.
 

@@ -50,7 +50,7 @@ D'un seul mot, un grondement de tonnerre jaillit du vortex. Pour les cultivateur
 
 Depuis des temps immémoriaux, tous les cultivateurs ressentaient une crainte révérencieuse envers la Porte du Vide. L'ancien Seigneur du Royaume Scellé était le même. Seul Wang Lin oserait utiliser le sort « Arrêt » sur le vortex de la Porte du Vide!
 
-Si c'était avant le Dao des Rêves, Wang Lin ne l'aurait peut-être pas fait, mais après avoir atteint le Dao des Rêves, il possédait l'aura d'un grand érudit. Il avait compris la vérité du monde et pouvait contempler les cieux, la terre et tous les êtres vivants comme de simples fourmis. Ce n'était pas de l'arrogance, mais une forme d'égalité. Que quelque chose existe ou non dans ce monde n'avait plus d'importance.
+Si c'était avant le Dao du Rêve, Wang Lin ne l'aurait peut-être pas fait, mais après avoir atteint le Dao du Rêve, il possédait l'aura d'un grand érudit. Il avait compris la vérité du monde et pouvait contempler les cieux, la terre et tous les êtres vivants comme de simples fourmis. Ce n'était pas de l'arrogance, mais une forme d'égalité. Que quelque chose existe ou non dans ce monde n'avait plus d'importance.
 
 Il ne ressentait aucune crainte; il n'avait qu'un regard aussi calme que l'eau.
 

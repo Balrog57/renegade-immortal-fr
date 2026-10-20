@@ -74,7 +74,7 @@ Son âme originelle n'était pas le seul élément devenu puissant. Son corps av
 
 « Je me demande comment je me compare désormais au Grand Empyréen Gu Dao... » murmura Wang Lin en sortant du temple ancestral.
 
-C'était la première fois qu'il quittait le sanctuaire depuis cent ans. En franchissant le seuil, il vit le soleil éclatant et le ciel limpide, mais son maître, Xuan Luo, était absent.
+C'était la première fois qu'il quittait le sanctuaire depuis cent ans. En franchissant le seuil, il vit le soleil éclatant, le ciel limpide et les flots bleus de la mer s'étendant à perte de vue, mais son maître, Xuan Luo, était absent.
 
 Lorsque la deuxième goutte de sang d'âme était descendue, Xuan Luo avait décidé de partir. Il n'avait pas rencontré Wang Lin et s'était retiré silencieusement vers le Dao Antique.
 
@@ -86,7 +86,7 @@ Observant le ciel et la direction prise par Xuan Luo, Wang Lin resta pensif. Ses
 
 « Les Ponts du Piétinement des Cieux... je me demande si je peux atteindre le quatrième pont! Mais quoi qu'il advienne, mon temps au sein du clan Antique est terminé. Il reste encore 300 ans avant l'ouverture du Royaume Divin Immémorial. Je ne veux pas passer ce temps sur le Continent Astral Immortel, je veux rentrer chez moi... »
 
-« Je ramènerai Wan Er à la maison. » Wang Lin détourna les yeux du ciel et se dirigea vers le palais.
+« Je ramènerai Wan Er à la maison. » Wang Lin détourna les yeux du ciel et fit un pas en direction du palais.
 
 Il avait promis à Ji Du qu'il serait témoin de son accession au trône!
 
@@ -94,7 +94,7 @@ Il avait promis à Ji Du qu'il serait témoin de son accession au trône!
 
 « Vous serez un excellent empereur! » dit lentement Wang Lin.
 
-Ji Du fixa son parrain. Il sentait que ce dernier avait l'intention de partir.
+Ji Du, interdit, fixa son parrain. Il sentait que ce dernier avait l'intention de partir.
 
 « Soyez un bon empereur, guidez votre peuple vers la grandeur! » La main droite de Wang Lin s'élança vers le vide et la couronne qui reposait sur le trône impérial vola vers lui.
 
@@ -120,7 +120,7 @@ Wang Lin retrouva dans cette maison la chaleur d'il y a deux cents ans. Il avait
 
 Wang Lin resta dans les montagnes arrières du Temple du Dao Antique pendant trois ans.
 
-Ces trois années furent une expérience spirituelle lui permettant de maîtriser son immense montée en puissance. Il resta aux côtés de Xuan Luo car ce dernier avait renoncé à sa réincarnation. Après trois ans, Xuan Luo regarda Wang Lin repartir.
+Ces trois années furent une expérience spirituelle lui permettant de maîtriser son immense montée en puissance. Il resta aux côtés de Xuan Luo car ce dernier avait renoncé à sa réincarnation. Après trois ans, Wang Lin s'inclina devant Xuan Luo, puis se retourna et s'envola vers le ciel.
 
 Le maître observa son disciple. Il savait qu'une fois Wang Lin parti, leur prochaine rencontre pourrait ne pas avoir lieu avant trois cents ans.
 
@@ -136,4 +136,4 @@ Derrière lui se trouvaient trois ponts.
 
 Il se tenait actuellement devant le quatrième pont, là où il s'était arrêté cent ans auparavant.
 
-Après un long moment, il détourna son regard de la scène illusoire située derrière le neuvième pont. Il fixa le quatrième pont, puis leva le pied et fit un pas en avant!
+Après un long moment, il détourna son regard de la scène illusoire située derrière le neuvième pont. Il fixa le quatrième pont, puis leva son pied droit et fit un pas en avant!

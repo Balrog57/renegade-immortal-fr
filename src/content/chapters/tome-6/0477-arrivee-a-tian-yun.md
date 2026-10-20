@@ -46,7 +46,7 @@ Ces individus passaient la majeure partie de leur temps dans l'espace, et aucun 
 
 Wang Lin en avait croisé quelques-uns, mais ces derniers étaient si expérimentés dans la détection des niveaux de culture qu'aucun n'avait osé tenter de l'arrêter.
 
-Cependant, un Cultivateur Marginal inexpérimenté, pourtant au début du stade de la Transformation de l'Âme, avait tenté d'attaquer Wang Lin. Il s'était enfui bien loin après avoir été lourdement blessé par ce dernier.
+Cependant, un Cultivateur Marginal inexpérimenté, lui aussi au début du stade de la Transformation de l'Âme, avait tenté d'attaquer Wang Lin. Il s'était enfui bien loin après avoir été lourdement blessé par ce dernier.
 
 Les faibles ne pouvaient survivre dans l'espace; Wang Lin n'avait donc plus caché son aura, la libérant avec toute sa puissance, notamment l'intention de tuer émanant de son corps original.
 
@@ -70,7 +70,7 @@ L'excitation fit battre le cœur de Wang Lin alors que son regard se verrouillai
 
 Et même à cette distance, il pouvait déjà ressentir la densité de l'énergie spirituelle émanant de la planète. S'il posait le pied sur son sol, la concentration de cette énergie serait inimaginable.
 
-La planète Suzaku était loin de pouvoir rivaliser avec Tian Yun. L'Omniscient avait dit autrefois que Suzaku était une planète à moitié dévastée; en contemplant Tian Yun, Wang Lin n'en doutait plus.
+La planète Suzaku était loin de pouvoir rivaliser avec Tian Yun. L'Omniscient avait dit autrefois que Suzaku était une planète à moitié abandonnée; en contemplant Tian Yun, Wang Lin n'en doutait plus.
 
 En voyant la planète Tian Yun, le cœur de Wang Lin fut secoué par une émotion violente, comme une immense vague déferlant en lui. C'était le même sentiment qu'il avait éprouvé lorsqu'il était sorti pour la première fois de son village de montagne pour gagner le chef-lieu, avant de commencer sa culture.
 
@@ -122,7 +122,7 @@ Un sourire singulier apparut sur les lèvres du jeune homme. Il agita la main et
 
 Le regard de Wang Lin resta serein. Il rangea la boussole stellaire et fit un pas en avant. En approchant de lui, les tentacules dragonines fusionnèrent pour former une épée volante verte.
 
-Wang Lin monta alors sur la garde de l'épée.
+Wang Lin monta alors sur la poignée de l'épée.
 
 « Je vous remercie! » L'expression de Wang Lin ne changea pas tandis qu'il joignait les mains en signe de respect.
 

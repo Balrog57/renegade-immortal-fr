@@ -30,7 +30,7 @@ Alors que Ta Shan s'approchait, son visage pâlit instantanément. Il sentit cla
 
 Cette force était d'une puissance extrême, comme un instinct profondément imprimé dans sa chair. Lorsqu'il se trouva à environ 66 mètres de l'homme, Ta Shan fut incapable de faire un pas de plus. Son visage se crispa de douleur tandis que son corps tremblait et que de larges gouttes de sueur s'écoulaient.
 
-Il comprit avec certitude que la puissance qui entravait ses mouvements provenait de ses propres tatouages. Cette force les rendait impossibles à résister.
+Il comprit avec certitude que la puissance qui entravait ses mouvements provenait de ses propres tatouages. Cette force rendait toute résistance impossible.
 
 C'était comme s'il avait rencontré son ennemi naturel. Peu importe sa propre force, il n'oserait jamais attaquer cet homme.
 
@@ -50,7 +50,7 @@ Deux filets de sang coulèrent de ses yeux. Son regard mêlait tristesse et obst
 
 Il n'avait d'autre choix que de s'agenouiller!
 
-L'homme d'âge moyen ricana: « Clan infâme, vous osez résister à l'empreinte d'esclave! Si je n'avais pas refusé de vous tuer, vous seriez déjà morts sur une simple pensée de cet être céleste! Maintenant, disparaissez! »
+L'homme d'âge moyen ricana: « Clan inférieur, vous osez résister à l'empreinte d'esclave! Si je n'avais pas refusé de vous tuer, vous seriez déjà morts sur une simple pensée de cet être céleste! Maintenant, disparaissez! »
 
 Comme si le corps de Ta Shan avait été frappé par un poing invisible, des bruits d'explosions résonnèrent en lui alors qu'il était projeté en arrière. Il s'écrasa au sol à environ 330 mètres de là.
 
@@ -94,7 +94,7 @@ Wang Lin fronça les sourcils en observant la scène. Il put en tirer de nombreu
 
 « De plus, puisqu'il y a des membres du Clan des Immortels Délaissés sur la planète Suzaku, il est évident qu'ils sont bien nombreux! » Les yeux de Wang Lin devinrent graves alors qu'une idée audacieuse germait en lui.
 
-« Il est probable qu'il y a d'innombrables années, avant l'effondrement du Royaume Céleste, il existait un clan très puissant, capable de défier les êtres célestes. Cependant, ils furent finalement vaincus. Il est même possible que les quatre Royaumes Célestes se soient unis pour lancer un sortilège si puissant qu'il a transformé toutes les générations futures de ce clan en esclaves éternels! » Wang Lin ne put qu'expirer en voyant les membres du clan trembler et s'agenouiller au sol.
+« Il est probable qu'il y a d'innombrables années, avant l'effondrement du Royaume Céleste, il existait un clan très puissant, capable de défier les êtres célestes. Cependant, ils furent finalement vaincus. Il est même possible que les quatre Royaumes Célestes se soient unis pour lancer un sortilège si puissant qu'il a transformé toutes les générations futures de ce clan en esclaves éternels! » Wang Lin ne put que pousser un soupir intérieur en voyant les membres du clan trembler et s'agenouiller au sol.
 
 Le regard de l'homme en bleu se posa sur Ta Shan. Il fronça les sourcils, leva sa main droite et le pointa du doigt. Un craquement retentit à l'intérieur de Ta Shan, puis une quantité massive de sang jaillit de ses pores, le recouvrant de rouge.
 
@@ -108,16 +108,16 @@ La bête moustique tournait dans les airs, les yeux rivés sur l'homme d'âge mo
 
 L'homme en bleu fixait Wang Lin, mais il n'agissait pas avec précipitation. Il avait naturellement perçu le niveau de culture de ce dernier, et le papillon aux côtés de Wang Lin lui inspirait un très fort sentiment de danger.
 
-« Cet individu n'appartient pas à ce clan insignifiant. Comment est-il entré? À en juger par son aura, ce n'est pas un être céleste... Qui est-il...? »
+« Cet individu n'appartient pas à ce clan inférieur. Comment est-il entré? À en juger par son aura, ce n'est pas un être céleste... Qui est-il...? »
 
 Les yeux de l'homme s'illuminèrent, mais il ne chercha pas à provoquer Wang Lin. Au lieu de cela, sa main gauche pressa l'autel sous lui et la porte de celui-ci s'ouvrit.
 
 À l'ouverture de la porte, des volutes de brouillard noir jaillirent, se transformant en hideuses créatures de brume. La femme qui se trouvait dans le fourneau apparut également, mais elle ne franchit pas le seuil; elle se contenta de fixer froidement Wang Lin.
 
-Dès l'apparition des bêtes de brouillard, les expressions des membres du Clan des Immortels Élus changèrent. Toutefois, la force de l'empreinte d'esclave les empêchait de se relever. C'était un instinct auquel ils ne pouvaient opposer aucune résistance.
+Dès l'apparition des bêtes de brume, les expressions des membres du Clan des Immortels Élus changèrent. Toutefois, la force de l'empreinte d'esclave les empêchait de se relever. C'était un instinct auquel ils ne pouvaient opposer aucune résistance.
 
 Les créatures de brume prirent forme et ouvrirent brusquement leurs yeux, tandis que de stridents cris retentissaient. Leurs regards froids brillèrent intensément alors que l'homme en bleu pointait le sol du doigt.
 
-Ces bêtes de brouillard s'élancèrent avec rapidité vers la terre.
+Ces bêtes de brume s'élancèrent avec rapidité vers la terre.
 
 Cette scène fit contracter les pupilles de Wang Lin.

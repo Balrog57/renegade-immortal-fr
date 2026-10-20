@@ -20,7 +20,7 @@ L'autre vieillard, nommé Zhao, fit un pas en avant, prêt à rejoindre le comba
 
 En n'importe quel autre lieu, même en unissant leurs forces, ces trois-là ne feraient pas le poids face à un cultivateur du stade intermédiaire de la Tribulation du Vide. La différence de royaume entre les cultivateurs de la Tribulation du Vide est immense, tel l'écart entre le ciel et la terre.
 
-Wang Lin, doté de sept essences, pouvait combattre des cultivateurs au stade initial de la Tribulation du Vide; mais même avec ses huit essences actuelles, il ne pouvait toujours affronter que le stade initial sans pouvoir ébranler ceux du stade intermédiaire.
+Wang Lin, doté de sept essences, pouvait combattre des cultivateurs au stade initial de la Tribulation du Vide en engageant toutes ses techniques; mais même avec ses huit essences actuelles, il ne pouvait toujours affronter que le stade initial sans pouvoir ébranler ceux du stade intermédiaire.
 
 Cependant, à l'intérieur de la formation du Méridien du Taureau Céleste, alors que le brouillard pénétrait leurs corps, la donne changea. Les trois affrontaient de justesse le vieillard nommé Zhao! Bien qu'ils ne puissent vaincre, ils parvenaient à le contenir!
 
@@ -38,13 +38,13 @@ Wang Lin progressait rapidement au milieu du combat, enveloppé d'une couche de 
 
 En s'approchant du combat impliquant les sept cultivateurs du stade initial de la Tribulation du Vide, Wang Lin ralentit. Finalement, il s'arrêta à des dizaines de milliers de pieds de l'affrontement. Il resta là, le regard brillant.
 
-« Il est très difficile de tuer des cultivateurs au stade initial de la Tribulation du Vide... Un tel être est presque impossible à abattre... Même avec la Poupée Yi Si, cela ne suffira pas... » Wang Lin savait parfaitement à quel point il était ardu d'éliminer un cultivateur ayant traversé les neuf Tribulations Arcanes pour atteindre le stade de la Tribulation du Vide. Ce n'était pas comparable au meurtre du cultivateur nommé Qian ou de l'homme et de la femme sous les bannières à la Mer des Pilules.
+« Il est très difficile de tuer des cultivateurs au stade initial de la Tribulation du Vide... Un tel être est presque impossible à abattre... Même avec la Poupée Yi Si, cela ne suffira pas... » Wang Lin savait parfaitement à quel point il était ardu d'éliminer un cultivateur ayant traversé les neuf Tribulations Arcanes pour atteindre le stade de la Tribulation du Vide. Ce n'était pas comparable au meurtre du cultivateur nommé Qian ou de l'homme et de la femme sous les trois bannières à la Mer des Pilules.
 
-Ces trois-là n'étaient qu'au neuvième niveau de la Tribulation Arcane, et bien que cela semble infiniment proche de la Tribulation du Vide, l'écart était trop vaste. Ces deux individus pouvaient vaincre Tigre Blanc et ses compagnons et, dans un environnement spécifique, les pousser à bout. Après tout, le niveau de culture de Tigre Blanc et des autres se situait autour de la septième ou huitième Tribulation Arcane, proche de celui de Du Qing.
+Ces trois-là n'étaient qu'au neuvième niveau de la Tribulation Arcane, et bien que cela semble infiniment proche de la Tribulation du Vide, l'écart était trop vaste. Ces deux individus pouvaient vaincre Tigre Blanc et ses compagnons et, dans un environnement spécifique, les contraindre à fuir. Après tout, le niveau de culture de Tigre Blanc et des autres se situait autour de la septième ou huitième Tribulation Arcane, proche de celui de Du Qing.
 
 Dans le monde des cavernes, seuls le Vieux Fantôme Zhan et le Daoïste aux Sept Couleurs atteignaient le stade initial de la Tribulation du Vide. S'ils avaient fusionné avec la troisième âme pour devenir le nouveau Souverain Céleste aux Sept Couleurs, ils auraient atteint le sommet du stade intermédiaire de la Tribulation du Vide.
 
-Avec son niveau de culture actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Astral Immortel, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire; même la Secte de la Grande Âme ne pourrait supporter un tel coup.
+Avec son niveau de culture actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Astral Immortel, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire; même la Secte de la Grande Âme ne souhaiterait pas voir un tel coup.
 
 Observant le brouillard tourbillonner devant lui, il regardait les sept combattants engagés dans une lutte acharnée pour leur survie. Il était extrêmement difficile de décider d'un vainqueur; en réalité, c'était presque impossible. Tant qu'ils restaient prudents, ils ne mourraient pas, au pire seraient-ils blessés.
 
@@ -56,9 +56,9 @@ Il guettait l'instant où il pourrait achever un cultivateur du stade initial de
 
 En un éclair, plusieurs heures passèrent. Le fracas des combats ne faiblissait pas, il devenait même plus intense. Le nombre de morts s'alourdissait de chaque côté. Pourtant, Wang Lin restait assis là. Il attendait.
 
-Liu Zhiyuan était un Ancien de la Secte du Dao Démoniaque qui venait d'atteindre le stade initial de la Tribulation du Vide, ce qui lui valait une certaine renommée. Étant également un descendant du Maître de la secte, il possédait des liens de sang prestigieux. Il avait rejoint l'invasion du Continent du Taureau Céleste avec un autre Ancien nommé Xu Wei et deux autres compagnons. Ils affrontaient actuellement trois cultivateurs du stade initial de la Tribulation du Vide du Continent du Taureau Céleste.
+Liu Zhiyuan était un Ancien de la Secte du Dao Démoniaque qui venait d'atteindre le stade initial de la Tribulation du Vide, ce qui lui valait une grande renommée. Étant également un descendant du Maître de la secte, il possédait des liens de sang prestigieux. Il avait rejoint l'invasion du Continent du Taureau Céleste avec un autre Ancien nommé Xu Wei et deux autres compagnons. Ils affrontaient actuellement trois cultivateurs du stade initial de la Tribulation du Vide du Continent du Taureau Céleste.
 
-L'adversaire semblait posséder une énergie inépuisable, utilisant une multitude de sorts. Les quatre compères avaient leurs Sens Divins obstrués par le brouillard et ne pouvaient pas non plus s'y ressourcer. Après plusieurs heures, ils commençaient à être acculés.
+L'adversaire semblait posséder une énergie inépuisable, utilisant une multitude de sorts. Les quatre compères avaient leurs Sens Divins obstrués par le brouillard et ne pouvaient pas non plus s'y ressourcer. Après plusieurs heures, ils commençaient à reculer.
 
 La bataille chaotique entre les sept continuait sous des grondements tonitruants. Liu Zhiyuan, ayant récemment atteint la Tribulation du Vide, commençait à épuiser son énergie céleste. Le brouillard environnant en absorbait également une part considérable.
 
@@ -76,7 +76,7 @@ Cependant, à cet instant précis, non loin de là, Wang Lin, qui s'était tapi 
 
 Les yeux de Wang Lin brillèrent d'une intention meurtrière. La première promesse qu'il avait faite à la Secte de la Grande Âme était de tuer dix cultivateurs du stade initial de la Tribulation du Vide. Aujourd'hui, il allait abattre le premier!
 
-Alors que Wang Lin bondissait tel un éclair, une lueur sanglante jaillit de sa main. Cette lumière frappa Liu Zhiyuan, qui lui tournait le dos! L'épée de sang possédait un tranchant inégalé; alors qu'elle fonçait sur sa cible, Liu Zhiyuan était sur le point d'engloutir ses sphères lumineuses. Sentant soudain un péril imminent, il abandonna son festin et agita sa manche pour invoquer un lotus noir derrière lui. Le lotus percuta l'épée de sang dans un fracas assourdissant!
+Alors que Wang Lin bondissait tel un éclair, une lueur sanglante jaillit de sa main. Cette lumière fondit sur Liu Zhiyuan, qui lui tournait le dos! L'épée de sang possédait un tranchant inégalé; alors qu'elle fonçait sur sa cible, Liu Zhiyuan était sur le point d'engloutir ses sphères lumineuses. Sentant soudain un péril imminent, il abandonna son festin et agita sa manche pour invoquer un lotus noir derrière lui. Le lotus percuta l'épée de sang dans un fracas assourdissant!
 
 Dans un grondement de tonnerre, Liu Zhiyuan se retourna brusquement, les yeux emplis d'une rage meurtrière.
 

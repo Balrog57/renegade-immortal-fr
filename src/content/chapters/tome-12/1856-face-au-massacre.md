@@ -8,11 +8,11 @@ slug: face-au-massacre
 ---
 Dans le monde de la culture, les forts étaient respectés. Le niveau de culture de Wang Lin n'était pas vraiment élevé; il était donc logique que ces trois individus ne lui accordent aucune attention. Les autres, témoins de cette scène, tirèrent naturellement leurs propres conclusions.
 
-Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement chercher une grotte isolée pour se retirer en culture.
+Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement chercher une grotte souterraine isolée pour se retirer en culture.
 
 Lu Wenran ricana intérieurement, son regard balayant le dos de Wang Lin.
 
-« Pour le bien de la Secte de la Grande Âme, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur errant afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
+« Pour le bien de la Secte de la Grande Âme, je me suis éloigné de ma secte, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur errant afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
 
 « Tout cela pour que le Continent du Démon Vert ne soupçonne rien et envahisse le Continent du Taureau Céleste, comme l'avait prévu l'Ancien Ancêtre... J'ai tout sacrifié, et pourtant l'Ancien Ancêtre ne m'a pas transmis le sortilège d'illusion multicouche complet. Quelles qualifications a-t-il pour le détenir?! »
 
@@ -54,7 +54,7 @@ Si les cultivateurs du Continent du Démon Vert voulaient briser la barrière, i
 
 Bientôt, le ciel serein de la Prairie du Ciel Extrême serait obscurci par les cultivateurs du Continent du Démon Vert.
 
-Yan Luan choisit également d'entrer en culture fermée afin de maintenir son niveau à son apogée. Xu Dongde et Lu Wenran firent de même, mais ils optèrent pour un palais plutôt qu'une grotte. Après tout, leur statut élevé faisait d'eux la force principale de la défense.
+Yan Luan choisit également d'entrer en culture fermée afin de maintenir son niveau à son apogée. Xu Dongde et Lu Wenran firent de même, mais ils optèrent pour un palais plutôt qu'une grotte. Après tout, leur statut élevé faisait d'eux la dernière force de défense.
 
 En réalité, quatre autres personnes parmi les 10 000 cultivateurs se trouvaient au stade initial de la Tribulation du Vide. Bien qu'issus de petites sectes ou étant des cultivateurs errants, leur importance était capitale; ils furent invités dans les palais en tant que forces décisives de cette bataille!
 
@@ -64,13 +64,13 @@ Ce vieil homme était celui qui avait discuté avec Wang Lin dans la Prairie du 
 
 En vérité, compte tenu de son identité, Wang Lin aurait pu choisir un palais s'il l'avait souhaité, mais cela ne l'intéressait pas. Il préférait la tranquillité de cet endroit plutôt que de subir les murmures et les regards indiscrets s'il avait occupé un palais.
 
-Assis là, il cultivait lentement, laissant son Sens Divin se propager avec parcimonie. Profitant de ce temps, il affina le parapluie bleu et l'Origine de la Fantaisie de l'Âme à un niveau plus profond.
+Assis là, il cultivait lentement, laissant son Sens Divin se répandre tout autour de lui. Profitant de ce temps, il affina le parapluie bleu et l'Origine de la Fantaisie de l'Âme à un niveau plus profond.
 
 Il sortit également la restriction du compas et la déploya sur la prairie. Cet objet était d'un mystère extrême; même en le dispersant, nul ne s'en aperçut, pas même Lu Wenran, qui possédait le niveau de culture le plus élevé ici.
 
 Les jours défilèrent sans compter. Hormis les bruits sourds de la culture, un silence de mort régnait entre les palais et les grottes.
 
-Soudain, Wang Lin ouvrit les yeux. À l'instant même, le compas devant lui trembla. Une ligne verte apparut brusquement sur la carte de la Prairie du Ciel Extrême.
+Soudain, Wang Lin ouvrit les yeux. À l'instant même, le compas devant lui trembla. Une ligne verte apparut brusquement en bordure de la carte de la Prairie du Ciel Extrême.
 
 Cette ligne était composée d'innombrables points verts qui se multipliaient à vue d'œil.
 
@@ -88,7 +88,7 @@ Un hurlement terrifiant déchira le ciel de la Prairie du Ciel Extrême. Plus de
 
 Parmi cette légion, six individus étaient les plus rapides.
 
-Ces six guerriers comprenaient quatre hommes et deux femmes. Somptueusement vêtus, leur niveau de culture représentait le sommet du Continent du Démon Vert! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 hommes.
+Ces six guerriers comprenaient quatre hommes et deux femmes. Somptueusement vêtus, leur niveau de culture représentait le sommet du Continent du Démon Vert! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 cultivateurs.
 
 Les quatre autres se situaient au stade initial de la Tribulation du Vide.
 

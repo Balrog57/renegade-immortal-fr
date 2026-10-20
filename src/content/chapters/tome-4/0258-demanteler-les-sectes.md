@@ -12,7 +12,7 @@ L'expression étrange sur le visage du vieil homme devint encore plus singulièr
 
 Wang Lin prit la cruche sur le poêle, versa une coupe, la but et répondit: « Ce junior ne fait que lutter au sein du monde mortel. Comment pourrais-je être aussi détendu que le Senior, qui se plaît à jouer dans ce monde? »
 
-Le vieil homme prit une profonde inspiration. Il saisit la cruche de vin, versa une coupe et dit: « J'ai vu beaucoup de cultivateurs au stade de la Formation de l'Âme, mais tu es le premier capable de se fondre parmi les mortels en seulement six ans. »
+Le vieil homme prit une profonde inspiration. Il saisit la cruche de vin, versa une coupe et dit: « J'ai vu beaucoup de cultivateurs au stade de la Formation de l'Âme, mais tu es le premier à redevenir mortel en seulement six ans. »
 
 Wang Lin ne répondit pas. Son cœur ne vacilla point; il se contenta d'afficher un sourire discret tout en observant la scène.
 
@@ -60,7 +60,7 @@ Cette aura de rage se propagea dans les environs et l'énergie spirituelle de Wa
 
 Sous ce souffle de rage, une trace de terreur apparut dans les yeux de Wang Lin. L'énergie spirituelle à l'intérieur de son corps ne lui obéissait plus. Il eut même le sentiment que sa propre Âme Naissante était en train d'être assimilée par cette fureur. À ce moment précis, il eut l'impression que ses 400 ans de culture acharnée n'étaient devenus qu'un outil pour permettre au vieil homme de l'attaquer.
 
-« C'est mon Domaine de la Rage. J'ai utilisé ce domaine autrefois pour atteindre le stade de la Formation de l'Âme. Sous l'influence de ce domaine, toute énergie spirituelle est assimilée et contrôlée par moi. » Une pointe de folie perçait dans la voix du vieil homme. Après un bref regard vers Wang Lin, le domaine disparut, comme s'il n'avait jamais existé.
+« C'est mon Domaine de la Frénésie. J'ai utilisé ce domaine autrefois pour atteindre le stade de la Formation de l'Âme. Sous l'influence de ce domaine, toute énergie spirituelle est assimilée et contrôlée par moi. » Une pointe de folie perçait dans la voix du vieil homme. Après un bref regard vers Wang Lin, le domaine disparut, comme s'il n'avait jamais existé.
 
 En quelques respirations seulement, Wang Lin fut couvert de sueur froide. Ses mains tremblaient encore lorsqu'il saisit la cruche pour prendre une grande gorgée de vin. Il fallut un long moment avant que l'énergie spirituelle dans son corps ne se stabilise.
 
@@ -72,7 +72,7 @@ Wang Lin eut un sourire amer et regarda le vieil homme. Il marmonna pour lui-mê
 
 Les yeux du vieil homme s'animèrent. Affichant un air fuyant, il murmura: « Se transformer en mortel pour expérimenter son propre domaine, puis utiliser ce domaine pour franchir le stade de l'Âme Naissante et atteindre la Formation de l'Âme... C'est une épreuve que tout cultivateur doit traverser s'il souhaite transcender l'Âme Naissante. Gamin, veux-tu expérimenter les domaines d'autrui? Ce serait très bénéfique pour toi. »
 
-Les yeux de Wang Lin brillèrent. Il fallait admettre que, bien que l'expérience des domaines d'autres cultivateurs de la Formation de l'Âme fût extrêmement périlleuse, les bénéfices étaient immenses.
+Les yeux de Wang Lin brillèrent. Il fallait admettre que, bien que l'expérience des domaines d'autres cultivateurs de la Formation de l'Âme comportât un certain danger, les bénéfices étaient immenses.
 
 Il regarda le vieil homme sans accepter immédiatement. Il demanda lentement: « Quel prix dois-je payer? »
 

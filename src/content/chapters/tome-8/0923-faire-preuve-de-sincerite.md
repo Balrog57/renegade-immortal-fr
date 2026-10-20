@@ -38,7 +38,7 @@ Ji Xiantian laissa échapper un reniflement glacial et ses yeux brillèrent. Au 
 
 À cet instant, une force destructrice s'engouffra dans la glace. Cette puissance s'accumula mystérieusement pour charger vers Maître Yan Leizi.
 
-Pourtant, à l'intérieur de la glace, les yeux de Maître Yan Leizi laissèrent transparaître un éclat froid et il esquissa un sourire. La culture qu'il avait dissimulée commença à déferler comme une folie, passant du stade tardif du Briseur du Nirvana à un niveau phénoménal.
+Pourtant, à l'intérieur de la glace, les yeux de Maître Yan Leizi laissèrent transparaître un éclat froid et il esquissa un sourire. La culture qu'il avait dissimulée commença à déferler comme une folie, passant du stade avancé du Briseur du Nirvana à un niveau phénoménal.
 
 « Tu... Tu as percé le niveau!!! » L'expression de Ji Xiantian changea radicalement et il s'apprêta à reculer sans délai.
 
@@ -126,4 +126,4 @@ Même Maître Yan Leizi hésita un instant avant de pousser un soupir et de batt
 
 Après avoir repoussé les trois puissants cultivateurs, le visage de Ji Xiantian était livide et il cracha une large traînée de sang. Il avait utilisé l'explosion de son intention bleue pour s'échapper et hurla: « Maître Yan Leizi, si ce vieil homme ne se venge pas, alors je ne suis plus un homme! » Derrière lui, le Serpent aux yeux de lune approchait. Il tendit la main vers le vide et des fissures apparurent. À cet instant, il se moquait d'être perdu dans les failles; il s'apprêtait à s'y engouffrer.
 
-À ce moment-là, Wang Lin se tenait sur le bois géant. Bien qu'un peu éloigné, il fut tout de même affecté par l'impact, qui rendit l'énergie originelle de son corps instable. Il regarda Ji Xiantian s'éloigner à toute vitesse, puis fixa Maître Yan Leizi. Serrant les dents, il pointa le doigt vers l'avant et cria: « Arrêtez! »
+À ce moment-là, Wang Lin se tenait sur le bois géant. Bien qu'un peu éloigné, il fut tout de même affecté par l'impact, qui rendit l'énergie originelle de son corps instable. Il regarda Ji Xiantian s'éloigner à toute vitesse, puis fixa Maître Yan Leizi. Serrant les dents, il pointa le doigt vers l'avant et cria: « Arrête! »

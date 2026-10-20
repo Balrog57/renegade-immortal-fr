@@ -26,7 +26,7 @@ Il ressentit soudainement une envie irrésistible de quitter cette Terre des Esp
 
 Cette pulsion devint de plus en plus forte, jusqu'à occuper tout son esprit. La coupe se brisa sous sa prise et les éclats lui lacérèrent la main. Cependant, Wang Lin n'y prêta aucune attention, car il était submergé par la nostalgie.
 
-À cet instant, si un cultivateur avait vu Wang Lin, il en aurait été stupéfait. Après tout, les cultivateurs aspiraient à posséder un Dao de fer; comment pouvaient-ils se laisser envahir par de telles émotions et s'immerger ainsi dans la nostalgie?
+À cet instant, si un cultivateur avait vu Wang Lin, il en aurait été stupéfait. Après tout, les cultivateurs aspiraient à posséder un cœur de Dao inébranlable; comment pouvaient-ils se laisser envahir par de telles émotions et s'immerger ainsi dans la nostalgie?
 
 Treize remarqua immédiatement que quelque chose n'allait pas. Il se tourna soudainement vers Wang Lin, le visage empreint d'inquiétude.
 
@@ -86,7 +86,7 @@ Le corps de Treize fut projeté en arrière de plusieurs pas. Il se força à av
 
 L'homme au visage sombre hurla immédiatement: « Dégagez! Je suis de mauvaise humeur aujourd'hui! Vous trois, vous n'avez vraiment aucun respect! »
 
-Le regard de Hu Pao devint glacial alors qu'il fixait la table des démons. Il pouvait ressentir une puissante énergie spirituelle démoniaque émaner de chacun d'eux. Il savait qu'il pourrait en vaincre un seul, mais contre deux, le combat serait acharné. Surtout cet homme qui avait lancé le pot, dont l'énergie spirituelle démoniaque ne fuyait plus du tout. Lorsque le regard de Hu Pao croisa celui de cet homme, il ressentit une douleur fulgurante au cœur et détourna précipitamment les yeux.
+Le regard de Hu Pao devint glacial alors qu'il fixait la table des démons. Il pouvait ressentir une puissante énergie spirituelle démoniaque émaner de chacun d'eux. Il savait qu'il pourrait en vaincre un seul, mais contre deux, ce serait difficile. Surtout cet homme qui avait lancé le pot, dont l'énergie spirituelle démoniaque ne fuyait plus du tout. Lorsque le regard de Hu Pao croisa celui de cet homme, il ressentit une douleur fulgurante au cœur et détourna précipitamment les yeux.
 
 Treize prit une profonde inspiration, posa le pot de vin, s'approcha de Wang Lin et murmura: « Ancêtre! »
 

@@ -24,7 +24,7 @@ La peur envahit le regard de l'Ancien Démon Ta Jia. D'autres ignoraient peut-ê
 
 L'Omniscient criait le nom de chaque couleur, et les sept teintes se détachèrent une à une. Elles fusionnèrent pour s'élancer en un rayon arc-en-ciel.
 
-« Sept lumières, ne faites qu'une pour former le diagramme des cieux! » Les cheveux noirs de l'Omniscient s'agitèrent sans qu'aucun vent ne soufflât. Sur ce dernier rugissement, la lumière aux sept couleurs tourna brusquement, formant un vortex multicolore.
+« Sept lumières, ne faites qu'une pour former le diagramme de la destinée céleste! » Les cheveux noirs de l'Omniscient s'agitèrent sans qu'aucun vent ne soufflât. Sur ce dernier rugissement, la lumière aux sept couleurs tourna brusquement, formant un vortex multicolore.
 
 Trois fragments d'écorce apparurent au sein du vortex. L'Omniscient les saisit et les projeta en avant. Les trois coquilles de bois entrèrent en collision et tombèrent pour former un diagramme. L'Omniscient fixa la formation tandis que ses mains traçaient un sceau, puis il pointa le doigt.
 
@@ -42,7 +42,7 @@ Wang Lin contemplait l'aura émanant des trois fragments de bois. Il se souvenai
 
 Voyant l'aura des fragments s'intensifier, les yeux de l'Empereur Divin de l'Oiseau Vermillon se plissèrent. Sans hésiter, il pointa sa main droite en avant et activa lui-même le troisième style du Trésor Sacré de l'Oiseau Vermillon. Il rugit: « Ciel de Feu! »
 
-La longue épée laissa échapper un chant d'épée tonitruant et des flammes se déchaînèrent. Les flammes envahirent le ciel, s'engouffrant même par la brèche céleste. En un instant, la moitié du champ d'étoiles fut consumée par les flammes.
+La longue épée laissa échapper un chant d'épée tonitruant et des flammes se déchaînèrent. Les flammes envahirent le ciel, s'engouffrant même par la brèche céleste. En un instant, près de la moitié du champ d'étoiles fut consumée par les flammes.
 
 Une aura similaire à celle des morceaux de bois surgit de l'épée, mais avec une intensité bien plus grande!
 
@@ -54,7 +54,7 @@ Un vacarme assourdissant fut suivi d'une puissante onde de choc. Les trois morce
 
 L'Omniscient cracha une bouchée de sang et recula frénétiquement.
 
-La longue épée, brisant tous les obstacles sur sa course, vint frapper le front de Ta Jia. À cet instant, une brume noire et dense se concentra entre les sourcils du démon, et son véritable corps d'Ancien Démon apparut. Il jaillit de l'espace entre ses sourcils avec l'intention même de renverser le ciel.
+La longue épée, brisant tous les obstacles sur sa course, vint frapper le front de Ta Jia. À cet instant, une brume noire et dense se concentra entre les sourcils du démon, et son véritable esprit d'Ancien Démon apparut. Il jaillit de l'espace entre ses sourcils avec l'intention même de renverser le ciel.
 
 Il était un Ancien Démon, membre de l'un des trois Clans Anciens, un clan défiant les cieux. Tandis que l'épée s'abattait, le rugissement colérique du démon résonna à travers le monde.
 

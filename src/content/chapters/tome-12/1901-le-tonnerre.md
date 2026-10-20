@@ -10,13 +10,13 @@ Le tonnerre, puissance ultime du monde. Il n'était pas le numéro un, il était
 
 Le tonnerre était la puissance des cieux et régnait au-dessus du monde. Lorsqu'il descendait occasionnellement parmi les mortels, ses grondements résonnaient comme la colère céleste!
 
-L'essence de tonnerre de Wang Lin était née d'une moitié d'ancien dragon du tonnerre. Cet ancien dragon avait été créé pour porter le pouvoir du tonnerre et constituait l'incarnation même de cette force dans le monde.
+L'essence de tonnerre de Wang Lin était née d'une moitié d'ancien dragon du tonnerre. Cet ancien dragon exerçait, au nom du ciel et de la terre, le pouvoir du tonnerre et constituait l'incarnation même de cette force dans le monde.
 
-Grâce à cette moitié d'ancien dragon, Wang Lin possédait l'embryon d'une essence. Puis, après avoir absorbé le tonnerre du Clan du Tonnerre Dispersé, son essence n'était plus qu'à un pas de la perfection!
+Grâce à cette moitié d'ancien dragon, Wang Lin possédait l'embryon d'une essence. Puis, après avoir absorbé l'indestructible tonnerre du Clan du Tonnerre Dispersé, son essence n'était plus qu'à un pas de la perfection!
 
 Ce pas ne fut pas facile à franchir, mais Wang Lin traça une voie inédite en créant des tonnerres d'accompagnement. Il utilisa l'âme du Crapaud du Tonnerre et son Royaume Ji pour parfaire ces tonnerres, rapprochant ainsi son essence de la complétion totale!
 
-Puis, il y a plus de cent ans, dans le temple du scorpion, le maître de la Secte du Dao Démoniaque, qui possédait une essence de tonnerre différente, versa la sienne dans Wang Lin. Il avait même dévoré deux Perles de l'Empereur du Tonnerre pour en transférer le pouvoir à Wang Lin!
+Puis, il y a plus de cent ans, dans le temple du scorpion, le maître de la Secte du Dao Démoniaque, qui possédait une essence de tonnerre différente, versa la sienne dans Wang Lin, sans reculer devant aucun sacrifice. Il avait même dévoré deux Perles de l'Empereur du Tonnerre pour en transférer le pouvoir à Wang Lin!
 
 Tout cela s'était accumulé pour permettre à l'essence de tonnerre de Wang Lin de changer radicalement et de condenser un corps véritable d'essence!
 
@@ -31,7 +31,7 @@ En son temps, l'essence de massacre de Qing Shui lui permettait de combattre des
 
 Wang Lin n'avait pas souvent utilisé l'essence de massacre; il s'en servait principalement pour projeter une aura imposante. Cependant, lorsqu'elle fusionna avec l'essence de tonnerre, tout bascula!
 
-Ce changement dépassait l'entendement de Wang Lin. Une telle occurrence était extrêmement rare. La fusion du tonnerre et du massacre forgea un type de carnage qui transcendait toute chose. Il pouvait anéantir toute forme de vie!
+Ce changement dépassait l'entendement de Wang Lin. Une telle occurrence était extrêmement rare dans ce monde, depuis des dizaines de milliers d'années. La fusion du tonnerre et du massacre forgea un tonnerre de massacre qui dominait les neuf cieux. Il pouvait anéantir toute forme de vie!
 
 Plus important encore, ce massacre avait une mission. Une mission qui débuterait dès l'apparition du massacre et ne prendrait fin qu'avec sa disparition!
 
@@ -73,7 +73,7 @@ On ne voyait aucune trace de tonnerre sur ce corps véritable. L'intérieur et l
 
 Tandis qu'il réfléchissait, sa culture de milieu du Vide Arcanique explosa soudainement. Sa puissance se mua en une tempête qui tourbillonna rapidement pour devenir un vortex.
 
-Chaque rotation augmentait considérablement le niveau de Wang Lin. Non seulement il absorbait l'énergie du monde, mais aussi la puissance accumulée dans son corps destinée au Scorpion du Démon Vert.
+Chaque rotation augmentait considérablement le niveau de Wang Lin. Non seulement il absorbait l'énergie du monde, mais aussi la puissance accumulée dans son corps, qui appartenait au Scorpion du Démon Vert.
 
 Porté par cette force, les cheveux blancs de Wang Lin s'agitèrent comme sous une violente bourrasque. Des claquements résonnèrent et ses yeux brillèrent. La puissance en lui croît, croît et croît encore jusqu'à atteindre un sommet. Puis, un grondement tonitruant retentit.
 

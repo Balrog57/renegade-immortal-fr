@@ -32,7 +32,7 @@ Alors que Wang Lin reculait, la lame de chair et de sang redescendit. Le hurleme
 
 Un fracas tonitruant retentit et Wang Lin fut repoussé de plusieurs dizaines de pieds. La lame géante trembla et des hurlements s'en échappèrent alors que des milliers d'âmes s'effondraient. La taille de la lame changea légèrement.
 
-Wang Lin chargea immédiatement après avoir été repoussé. Il projeta son poing droit pour entrer en collision avec la lame de chair et de sang. Un grondement assourdissant résonna alors que le bombardement se poursuivait, faisant rapidement rétrécir la lame.
+Wang Lin chargea immédiatement après avoir été repoussé. Il projeta son poing droit pour entrer en collision avec la lame de chair et de sang. Un grondement assourdissant résonna alors que le bombardement se poursuivait : la lame, repoussée de plus en plus haut, rétrécissait rapidement.
 
 Finalement, Wang Lin poussa un rugissement et détruisit la lame d'un seul coup! La lame vola en éclats et toute la chair et le sang se transformèrent en cendres!
 

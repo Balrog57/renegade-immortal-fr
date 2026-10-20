@@ -26,7 +26,7 @@ Ce dernier trembla et recracha une immense quantité de sang; ses blessures devi
 
 Au même moment, la silhouette dorée entourée de lumière observa froidement Wang Lin. Il brandit l'édit impérial et poussa un rugissement empreint de majesté.
 
-« Tuer quelqu'un sous l'égide d'un édit impérial... Tu as du cran! Tu ne recules toujours pas? »
+« Tuer quelqu'un sous l'égide d'un édit impérial... Tu as du cran! Recule immédiatement! »
 
 Wang Lin ignora totalement la silhouette dorée et s'avança vers le maître de la Secte du Dao Démoniaque gravement blessé. Il fit fi des sphères de foudre!
 
@@ -44,7 +44,7 @@ Dans sa charge, une lumière dorée jaillit de la silhouette, se transformant en
 
 En voyant cela, le maître de la Secte du Dao Démoniaque, dans sa folie, crut déceler une chance de survie. D'un air hagard, il forma un sceau avec ses mains et un vortex apparut entre ses sourcils. Neuf couteaux volants noirs s'élancèrent vers Wang Lin.
 
-« Dégage! » Un éclat de froideur brilla dans les yeux de Wang Lin alors qu'il rugissait vers le messager impérial qui arrivait. Il fit un geste de la main vers lui.
+« Dégage! » Un éclat de froideur brilla dans les yeux de Wang Lin alors qu'il rugissait vers le messager impérial qui arrivait. Il se retourna brusquement et, de sa main droite, frappa en arrière.
 
 Soudain, le monde gronda et une empreinte de paume gigantesque apparut. Emportant avec elle la puissance du monde, elle vola vers le messager impérial.
 

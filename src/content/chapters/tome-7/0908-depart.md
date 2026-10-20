@@ -86,7 +86,7 @@ Dans ce rugissement, une voix froide et impitoyable s'éleva:
 
 L'expression de Lei Ji devint paniquée et il s'apprêta à esquiver. À cet instant, le garçon à grosse tête regarda Wang Lin, serra les dents et s'avança. Ses deux mains tracèrent un sceau et l'énergie d'origine céleste jaillit. Cette énergie forma une tempête autour de son corps et, bientôt, un sortilège céleste apparut.
 
-Le garçon à grosse tête cria en projetant ses mains en avant. L'énergie d'origine céleste se transforma en fils qui s'approchèrent du grand rocher comme un filet fin.
+Le garçon à grosse tête cria en projetant ses mains en avant. L'énergie d'origine céleste se transforma en fils fins, pareils à des rameaux de saule, qui s'approchèrent du grand rocher.
 
 Cependant, à cet instant précis, les yeux de l'homme en robe rouge virèrent au rouge sang. L'une des sept épées de sang jaillit comme l'éclair vers le garçon à grosse tête.
 

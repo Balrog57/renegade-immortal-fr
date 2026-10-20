@@ -80,10 +80,10 @@ Wang Lin continua de le fixer avec froideur. Plus Wang Lin agissait ainsi, plus 
 
 Le corps de Xu Liguo se transforma instantanément en un nuage de brume noire. Au moment où Wang Lin le déconnecta de l'épée, Xu Liguo ressentit une intention de tuer qu'il n'avait pas éprouvée depuis plus d'un siècle!
 
-« Par tous les dieux, c'est une véritable intention de tuer! Ce démon veut vraiment ma peau! » Xu Liguo hurla et voulut s'enfuir immédiatement. Depuis qu'il avait aidé Wang Lin contre l'Ancêtre du Clan des Démons Géants, il n'avait plus jamais ressenti une telle volonté meurtrière qui le poursuivait depuis si longtemps!
+« Par tous les dieux, c'est une véritable intention de tuer! Ce démon veut vraiment ma peau! » Xu Liguo hurla et voulut s'enfuir immédiatement. Depuis qu'il avait aidé Wang Lin contre l'Ancêtre du Clan des Démons Géants, il n'avait plus jamais ressenti une telle volonté meurtrière qui l'avait accompagné pendant la majeure partie de sa vie!
 
 « Un tigre reste un tigre; peu importe à quel point il devient docile, il ne deviendra jamais un chat! » sourit amèrement Xu Liguo dans son cœur en se remémorant ce vieux proverbe de sa terre natale.
 
-Alors que Xu Liguo s'apprêtait à prendre la fuite, les yeux de Wang Lin devinrent d'acier et d'innombrables restrictions apparurent devant lui. Xu Liguo poussa un dernier cri avant que son corps ne se transforme en un rayon d'énergie d'épée tranchante. Il parvint à briser les restrictions imposées par Wang Lin et s'élança au loin.
+Alors que Xu Liguo s'apprêtait à prendre la fuite, les yeux de Wang Lin devinrent d'acier et d'innombrables restrictions apparurent autour de lui. Xu Liguo poussa un dernier cri avant que son corps ne se transforme en un rayon d'énergie d'épée tranchante. Il parvint à briser les restrictions imposées par Wang Lin et s'élança au loin.
 
 Wang Lin plissa les yeux avec un sourire narquois. Ce Xu Liguo avait bel et bien dissimulé de nombreux secrets, comme cette capacité de se transformer en épée. C'était une faculté qu'il ignorait totalement lorsqu'ils étaient sur la planète Suzaku.

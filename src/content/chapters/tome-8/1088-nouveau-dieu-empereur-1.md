@@ -20,7 +20,7 @@ La douleur cuisante fit saillir les veines de son visage. Le simple afflux de de
 
 Cependant, Wang Lin n'était pas prêt à abandonner ainsi. Il serra les dents, ignorant la sueur qui inondait son corps, et leva sa main gauche pour pointer de nouveau un tatouage sur son bras droit.
 
-Le septième tatouage de feu commença immédiatement à brûler, puis s'envola du corps de Wang Lin pour se transformer en une autre fleur de feu épanouie. Au même instant, les craquements à l'intérieur de son corps atteignirent un paroxysme. Les grondements tonitruants émanant de lui se propagèrent avec frénésie.
+Le septième tatouage de feu commença immédiatement à brûler et s'épanouit sur son bras droit, se transformant en une nouvelle fleur de feu. Au même instant, les craquements à l'intérieur de son corps atteignirent un paroxysme. Les grondements tonitruants émanant de lui se propagèrent avec frénésie.
 
 Une brume de sang jaillit de ses pores et l'enveloppa. Pourtant, dès que cette brume apparut, elle fut évaporée par la chaleur et se dissipa en gaz.
 
@@ -50,7 +50,7 @@ L'action insensée de Wang Lin fit se rétracter les pupilles de l'Empereur Divi
 
 L'apport de quatre fois sa capacité d'énergie d'origine, s'ajoutant à l'énergie déjà présente dans son corps et son armure, signifiait que sept fois son énergie habituelle affluait désormais en lui. Dans un bruit sourd, Wang Lin cracha du sang et leva immédiatement la main droite pour pointer entre ses sourcils.
 
-Un Oiseau Vermillon blanc jaillit instantanément du sommet de son crâne. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
+Un Oiseau Vermillon blanc jaillit instantanément du sommet de son crâne et poussa aussitôt son cri. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
 
 Cet Oiseau Vermillon avait été capturé par l'Omniscient, mais depuis l'arrivée de l'Empereur Divin de l'Oiseau Vermillon, comment pouvait-il laisser cet homme s'emparer de l'esprit de l'Oiseau Vermillon?
 

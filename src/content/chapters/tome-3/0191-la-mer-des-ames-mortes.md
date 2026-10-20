@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 191 - Dead Soul Sea
 slug: la-mer-des-ames-mortes
 ---
-La Mer de Connaissance Zifu qui se dressait devant Wang Lin ressemblait à une immense sphère, clairement divisée en deux: l'une d'un rouge sanglant, l'autre d'un gris-noir.
+La Mer de Connaissance Zifu qui se dressait devant Wang Lin ressemblait à une immense sphère, d'une taille impossible à estimer, clairement divisée en deux: l'une d'un rouge sanglant, l'autre d'un gris-noir.
 
 La moitié rouge devait être la Mer de Sang, et la partie noire, la Mer des Âmes Mortes.
 
@@ -22,7 +22,7 @@ Dès que son corps approcha de la zone noire, une brume grise jaillit soudaineme
 
 Wang Lin tenta de changer de direction, mais peu importe sa trajectoire, le brouillard gris surgissait pour lui barrer la route. Malgré la force de ses assauts, il était incapable de franchir cette brume.
 
-Après une réflexion, Wang Lin sortit son sac de rangement et but une grande gorgée d'énergie spirituelle liquide. Il s'assit ensuite en tailleur dans les airs et respira quelques instants. Une lueur acérée jaillit de ses yeux tandis que ses mains exécutaient divers sceaux devant lui. Rapidement, d'innombrables cercles illusoires apparurent autour de lui.
+Après une réflexion, Wang Lin sortit son sac de rangement et but une grande gorgée d'énergie spirituelle liquide. Il s'assit ensuite en tailleur dans les airs et respira quelques instants. Une lueur acérée jaillit de ses yeux tandis que ses mains exécutaient divers sceaux devant lui. Rapidement, plusieurs cercles illusoires apparurent autour de lui.
 
 Son regard devint de plus en plus intense et la cadence de ses mains s'accéléra. Les cercles illusionnaires de restriction commencèrent à se multiplier. Après un long moment, ses mains s'arrêtèrent brusquement pour presser l'air vers l'avant.
 
@@ -70,7 +70,7 @@ Les ondes commençaient à s'effondrer. Juste avant que l'ouverture ne soit scel
 
 S'il ne pouvait entrer dans la Mer des Âmes Mortes, il ne pourrait jamais quitter le corps du Dieu Ancien. Mais avec sa force actuelle, y pénétrer était impossible. Même le Seigneur Démon des Six Désirs et ses semblables n'en avaient pas la capacité.
 
-La seule personne capable d'entrer était celle qui possédait l'héritage de puissance du Dieu Ancien.
+La seule personne capable d'entrer était celle qui possédait l'héritage de puissance du Dieu Ancien: l'homme aux cheveux roux.
 
 Wang Lin songea alors en observant l'autre moitié de la sphère géante: la Mer de Sang.
 
@@ -188,7 +188,7 @@ Wang Lin nota cette hésitation. Il avait la confirmation de ses soupçons. Il n
 
 Le visage de Bossu Meng devint sombre et incertain. Il laissa échapper un reniflement froid et sa main plongea vers Wang Lin avec une rapidité accrue.
 
-Wang Lin affichait une expression d'acier, immobile. Il avait déjà préparé des pièges ici. Si l'un d'eux tentait de le capturer, une faille proche s'ouvrirait pour l'évacuer. Après tout, ils étaient dans le corps du Dieu Ancien, et personne n'en connaissait mieux les recoins que lui.
+Wang Lin affichait une expression d'acier, immobile. Il avait déjà préparé des pièges ici. Si l'un d'eux tentait de le capturer, une faille proche s'ouvrirait pour l'évacuer. Après tout, ils étaient dans le corps du Dieu Ancien, et personne n'en connaissait mieux les recoins que lui, qui avait reçu une part de l'héritage de mémoire.
 
 Ses yeux étaient sereins. Si Meng frappait et qu'aucun autre démoniaque n'intervenait, sa prédiction serait erronée: cela signifierait qu'ils se moquaient de savoir si le Dévoreur d'Âmes était mort ou vivant.
 

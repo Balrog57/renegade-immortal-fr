@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1024 - She, the Buried Celestial
 slug: elle-la-celeste-enterree
 ---
-« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme se muera en néant. Je deviendrai l'âme du démon ancien. Moi, le démon dispersé issu de la division de l'Ancien Démon Ta Jia, je dissipe mes pensées démoniaques pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin de l'Enterrement Céleste! »
+« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme se muera en néant. Je deviendrai l'âme du démon ancien. Moi, le démon dispersé issu de la division de l'Ancien Démon Ta Jia, je dissipe mes pensées démoniaques pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin Funéraire Céleste! »
 
 Ce démon dispersé en armure afficha un sourire étrange tandis que sa voix résonnait. Puis, il leva le pied et l'abattit avec impitoyabilité!
 
@@ -48,7 +48,7 @@ Une immense quantité de flammes jaillit de son pied pour le repousser. Bien que
 
 L'Ancien Démon Bei Luo laissa échapper un rire et ignora totalement l'aspiration du vortex. Son corps vacilla et il apparut au loin.
 
-Son œil droit brilla, entouré d'une puissante force démoniaque. Il souffla devant lui, créant des ondulations dans l'air. Avant de s'engager dans ces rides spatiales, il se retourna pour observer ceux qui luttaient dans le vortex. Son regard croisa celui de Wang Lin et il sourit: « Jeune ami Wang Lin, puisque tu as permis à ce vieil homme d'entrer, je ne te traiterai pas mal. Je vais t'indiquer la voie de sortie. Ce lieu est le Bassin de l'Enterrement Céleste de l'Empereur Céleste Qing Lin, jadis célèbre dans tout le Royaume Céleste. Le nombre de Célestes qui y ont péri est incalculable. Si tu es aspiré par mégarde, je crains que tu ne meures. Ta seule option est de te libérer le plus vite possible! »
+Son œil droit brilla, entouré d'une puissante force démoniaque. Il souffla devant lui, créant des ondulations dans l'air. Avant de s'engager dans ces rides spatiales, il se retourna pour observer ceux qui luttaient dans le vortex. Son regard croisa celui de Wang Lin et il sourit: « Jeune ami Wang Lin, puisque tu as permis à ce vieil homme d'entrer, je ne te traiterai pas mal. Je vais t'indiquer la voie de sortie. Ce lieu est le Bassin Funéraire Céleste de l'Empereur Céleste Qing Lin, jadis célèbre dans tout le Royaume Céleste. Le nombre de Célestes qui y ont péri est incalculable. Si tu es aspiré par mégarde, je crains que tu ne meures. Ta seule option est de te libérer le plus vite possible! »
 
 Les paroles de Bei Luo résonnèrent à travers le vortex. Wang Lin réfléchit en silence avant de frapper son sac de rangement; plus de dix grandes épées s'envolèrent, tournoyant autour de lui pour créer une force de contrepoids qui, alliée à son énergie originelle et aux flammes, luttait contre la succion.
 
@@ -78,7 +78,7 @@ Les pupilles du Maître du Vide se rétractèrent lorsqu'il vit la femme dans le
 
 « C'est elle!!! Ça doit être elle! Elle a donc été scellée ici par l'Empereur Céleste Qing Lin!! Maudit soit-il, la rumeur disait qu'elle était morte, mais l'Empereur Céleste Qing Lin ne l'a pas tuée! »
 
-Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifié cette silhouette vague, il en perdit presque la raison. L'Alliance possédait de nombreuses informations sur le Royaume Céleste et, en tant qu'Ancien de l'Alliance, il détenait des secrets que nul autre ne connaissait.
+Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifié cette silhouette vague, il eut l'impression que son âme se dispersait. L'Alliance possédait de nombreuses informations sur le Royaume Céleste et, en tant qu'Ancien de l'Alliance, il détenait des secrets que nul autre ne connaissait.
 
 Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de culture, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
 

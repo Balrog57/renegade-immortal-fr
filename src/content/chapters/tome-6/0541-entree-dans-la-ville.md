@@ -8,7 +8,7 @@ slug: entree-dans-la-ville
 ---
 Alors que les membres de la tribu du Affinement de l'Âme sortaient lentement, quelqu'un s'agenouilla soudainement et, bientôt, chaque membre de la tribu s'inclina dans la direction où Wang Lin s'était envolé.
 
-Dans leurs cœurs, Wang Lin était l'ancêtre de toute la tribu du Affinement de l'Âme. Tant qu'il serait là, la tribu ne serait jamais détruite.
+Dans leurs cœurs, Wang Lin était le chef de leur clan et l'ancêtre de toute la tribu du Affinement de l'Âme. Tant qu'il serait là, la tribu ne serait jamais détruite.
 
 Ouyang Hua s'agenouilla également. Ces quatre dernières années défilèrent dans son esprit. Sa culture avait grimpé en flèche durant cette période, et tout cela lui semblait n'être qu'un rêve.
 
@@ -34,7 +34,7 @@ Sitôt apparue, la bête moustique laissa échapper un rugissement strident. Ce 
 
 Après avoir rugi, la bête moustique se posa aux côtés de Wang Lin et commença à frotter sa gueule contre lui, comme pour chercher à lui plaire.
 
-Wang Lin esquissa un léger sourire et caressa la bête avant de bondir sur son dos.
+Wang Lin esquissa un léger sourire et caressa la bête avant de bondir sur son dos et de s'asseoir en tailleur.
 
 Puis Wang Lin dit calmement: « Vous deux, montez aussi! »
 

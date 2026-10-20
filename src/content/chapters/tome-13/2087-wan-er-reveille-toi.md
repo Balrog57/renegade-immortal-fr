@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2087 - Wan Er, Wake Up
 slug: wan-er-reveille-toi
 ---
-La voix de l'Omniscient résonna dans le Royaume Divin Immémorial, avec la montagne enneigée aux sept couleurs comme centre. Son immense corps de brume noire se précipita vers Wang Lin, animé d'un refus rageur et d'une folie désespérée.
+La voix de l'Omniscient résonna dans le Royaume Divin Immémorial, en partant de la montagne enneigée aux sept couleurs, et se répandit dans toutes les directions. Son immense corps de brume noire se précipita vers Wang Lin, animé d'un refus rageur et d'une folie désespérée.
 
 Il refusait d'accepter cette issue. Il avait attendu si longtemps, traversé d'innombrables réincarnations jusqu'à ce jour fatidique, mais il ne s'était jamais attendu à ce que tout se termine ainsi.
 
@@ -36,7 +36,7 @@ Selon lui, après avoir pris le contrôle de Wang Lin, la Boussole des Limites d
 
 Outre sa force, son utilité la plus cruciale était de permettre de quitter le Royaume de la Terre Défiante!
 
-Quant à l'origine de la Boussole des Limites, il avait quelques intuitions, mais elles restaient floues. Il ignorait qui l'avait créée et pourquoi il se trouvait en son sein.
+Quant à l'origine de la Boussole des Limites, il y avait déjà songé, mais tout restait flou, sans aucun souvenir. Il ignorait qui l'avait créée et pourquoi il se trouvait en son sein.
 
 Il savait seulement qu'une fois libre, il chercherait une réponse.
 
@@ -92,7 +92,7 @@ S'il n'avait pas levé les yeux, peut-être que tout aurait été différent.
 
 Dans la Mer des Démons, pendant ces années, à l'instant où il avait ouvert les yeux et vu cette silhouette fragile mais déterminée se tenir à l'entrée de la grotte, son cœur avait tremblé un instant. Il ne savait pas pourquoi il avait dit: « N'aie pas peur, je vais t'emmener pour tuer... », mais il savait qu'à ce moment-là, ces mots étaient sortis naturellement...
 
-Cette silhouette délicate qui avait utilisé son sang pour graver des écailles sur la grande formation du Dragon Azur et se changer en jade protecteur de vie, ce visage pâle qui lui brisait le cœur. Mais il portait alors une haine du sang aussi profonde que la mer. Il ne pouvait que fermer les yeux et se dire d'oublier.
+Cette silhouette délicate qui avait utilisé son sang pour graver des écailles sur la grande formation du Dragon Azur et se changer en jade protecteur de vie, ce visage pâle qui lui brisait le cœur. Mais il portait alors une vendetta aussi profonde que la Mer de Sang. Il ne pouvait que fermer les yeux et se dire d'oublier.
 
 La scène à la Secte du Nuage, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
 

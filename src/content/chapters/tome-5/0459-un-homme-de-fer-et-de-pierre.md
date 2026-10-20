@@ -48,11 +48,11 @@ Liu Mei s'arrêta. Elle regarda Wang Lin et demanda: « Pourrais-tu vraiment êt
 
 Le regard de Wang Lin resta calme alors qu'il lâchait froidement: « Pars! »
 
-Liu Mei éclata de rire. « Alors, quelle place occupe Li Muwan dans ton cœur? »
+Liu Mei eut un sourire. « Alors, quelle place occupe Li Muwan dans ton cœur? »
 
 Les yeux de Wang Lin furent envahis par une intention meurtrière: « Dégage! Bien que ton domaine ait atteint sa perfection, si je voulais te tuer, ce ne serait pas difficile. Ne cherche pas la mort! »
 
-Le but des paroles de Liu Mei était de briser le cœur Dao de Wang Lin, mais elle ignorait que Li Muwan était un sujet tabou pour lui. Il tuerait quiconque mentionnerait son nom. S'il n'avait pas été dans un lieu aussi périlleux, il aurait déjà sorti l'étendard de l'âme pour l'exterminer.
+Le but des paroles de Liu Mei était de briser le cœur Dao de Wang Lin, mais elle ignorait que Li Muwan était un sujet tabou pour lui. Il tuerait quiconque mentionnerait son nom. Si le moment ne se prêtait pas à l'attaque, il aurait déjà sorti l'étendard de l'âme pour l'exterminer.
 
 Wang Lin accordait une immense importance aux bienfaits reçus, mais restait impitoyable envers les étrangers.
 
@@ -118,9 +118,9 @@ Il était déterminé à capturer Wang Lin!
 
 Wang Lin leva la tête et scruta l'homme âgé avec désinvolture. Cette fois, son regard se fixa sur le petit singe.
 
-Grâce à cette intuition, Wang Lin put immédiatement voir clair en eux. La lumière rouge qui brillait dans les yeux du petit singe était l'aura unique des êtres résidant dans la mer de sang.
+Grâce à cette intuition, Wang Lin put immédiatement voir clair en eux. La lumière rouge qui brillait dans les yeux du petit singe était l'aura unique des êtres résidant dans la Mer de Sang.
 
-Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démon des Six Désirs, à Bossu Meng, à l'Ancien Empereur et aux autres. Tous étaient soit morts, soit devenus des cultivateurs dans la mer de sang.
+Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démon des Six Désirs, à Bossu Meng, à l'Ancien Empereur et aux autres. Hormis les morts, la plupart étaient devenus des cultivateurs de la Mer de Sang.
 
 Il y avait aussi ces anciens cultivateurs, qui existaient déjà avant qu'il y ait le moindre cultivateur sur la planète Suzaku et qui y étaient prisonniers. Leurs niveaux de culture étaient également très élevés.
 

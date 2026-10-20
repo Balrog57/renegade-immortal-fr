@@ -106,7 +106,7 @@ Wang Lin réfléchissait en silence.
 
 « Ce fut une bataille sanglante qui dura des éons. Le drapeau d'un milliard d'âmes fut achevé durant ce conflit. »
 
-« Bien que nous ayons finalement triomphé, la planète Suzaku fut endommagée et le pays Suzaku perdit de nombreux cultivateurs Ascendants. »
+« Bien que nous ayons finalement triomphé, la planète Suzaku fut endommagée, la puissance du pays Suzaku chuta d'innombrables niveaux et il perdit de nombreux cultivateurs Ascendants. »
 
 « C'est pour cette raison que le premier Suzaku créa le Mont Suzaku afin d'en faire le point de contrôle central de la planète, au moment où les six sectes se scindèrent en pays de culture de rang 5. »
 

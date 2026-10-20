@@ -48,9 +48,9 @@ Le cœur de Zhou Wutai s'emballa. Excité, il ne put s'empêcher de trembler lé
 
 Zhou Wutai esquissa un sourire amer et soupira intérieurement. Il savait que son niveau de culture était insuffisant et qu'il n'avait aucune chance d'obtenir le titre de Suzaku.
 
-« Fourneau de culture... il y a quelque chose d'étrange chez elle! » Les yeux de Wang Lin s'illuminèrent. Il avait eu des différends avec Zi Xin par le passé, ils étaient donc plus ennemis qu'amis. Il remarqua un changement dans son corps; il y avait un lien entre Zi Xin et Qian Feng. Bien qu'il ignorât les détails exacts, Zi Xin avait été autrefois le fourneau de culture de Qian Feng.
+« Fourneau de culture... il y a quelque chose d'étrange chez elle! » Les yeux de Wang Lin s'illuminèrent. Il avait eu des différends avec Zi Xin par le passé, ils étaient donc plus ennemis qu'amis. Il remarqua un changement dans son corps; il y avait un lien entre Zi Xin et Qian Feng. Bien qu'il ignorât les détails exacts, Zi Xin était le fourneau de culture de Qian Feng.
 
-Le fait qu'il ait tué Qian Feng avait, d'une certaine manière, profité à cette jeune fille, un mystère que Wang Lin ne parvenait pas à percer. Il cultivait depuis longtemps, mais il n'avait jamais entendu parler d'un sort capable de permettre au fourneau de culture de voler la puissance de son maître. Ce sort était extrêmement mystérieux et étrange, mais les techniques les plus singulières possèdent toujours des failles mortelles. Wang Lin reporta alors son attention sur Yun Quezi; il était convaincu que cette affaire était liée à lui.
+Le fait qu'il ait tué Qian Feng avait, d'une certaine manière, profité à cette jeune fille, un mystère que Wang Lin ne parvenait pas à percer. Il cultivait depuis longtemps, mais il ne se souvenait d'aucun sort capable de permettre au fourneau de culture de voler la puissance de son maître. Ce sort était extrêmement mystérieux et étrange, mais les techniques les plus singulières possèdent toujours des failles mortelles. Wang Lin reporta alors son attention sur Yun Quezi; il était convaincu que cette affaire était liée à lui.
 
 Après une courte réflexion, Wang Lin dit: « Seigneur Messager... »
 
@@ -92,7 +92,7 @@ Simultanément, le corps de Zhou Wutai s'enfonça lentement dans la mer avant de
 
 Désormais, seuls Mo Zhi et Wang Lin restaient.
 
-Après un instant de réflexion, Wang Lin joignit les mains et dit: « Merci infiniment! »
+Après un instant de réflexion, Wang Lin joignit les mains et dit: « Merci! »
 
 Mo Zhi rit et répondit: « Frère Da Niu, peut-être qu'à l'avenir, j'aurai besoin de votre aide. Le moment venu, ne me refusez pas. Je dois quitter la planète Suzaku pour rendre compte à l'Alliance de la Culture. Si le destin le veut, nous nous reverrons. Maintenant, partons ensemble. »
 
@@ -126,11 +126,11 @@ L'épisode du Tombeau de Suzaku touchait à sa fin.
 
 Quant au Clan des Immortels Délaissés, après la sortie d'Yun Quezi de la tombe, ils se retirèrent tous vers le nord-ouest pour s'installer sur un continent. Ils n'auraient plus de contacts fortuits avec les autres cultivateurs.
 
-De nombreux cultivateurs étaient tombés durant la guerre sur la planète Suzaku, laissant de nombreuses sectes extrêmement affaiblies; ces dernières commencèrent donc à recruter massivement des disciples.
+De nombreux cultivateurs étaient tombés durant la guerre sur la planète Suzaku, laissant les sectes de tous les royaumes extrêmement affaiblies; ces dernières commencèrent donc à recruter massivement des disciples.
 
 Beaucoup de personnes n'ayant pas un talent exceptionnel furent acceptées par les sectes.
 
-D'autres, pourtant très douées, furent arrachées à leurs foyers par certaines organisations. Traitées comme de véritables trésors, elles recevaient l'enseignement personnel de maîtres dévoués afin de devenir les piliers de leur secte.
+D'autres, pourtant très douées, furent découvertes par certaines sectes. Traitées comme de véritables trésors, elles recevaient l'enseignement personnel de maîtres dévoués afin de devenir les piliers de leur secte.
 
 Sur la planète Suzaku, il ne restait qu'un seul cultivateur au stade initial de l'Ascendant. C'était l'ancêtre de la Secte de la Terre Brisée, qui passait ses journées en culture isolée, indifférent aux affaires du monde. Bien qu'il fût mécontent de la nomination de Zhou Wutai par le Messager de l'Alliance de la Culture, il ne put que l'accepter.
 

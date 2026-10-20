@@ -12,11 +12,11 @@ Wang Hao hésita avant de répondre: « Au moins deux cents. »
 
 « Autant? Pour quoi faire? » Wang Lin fut stupéfait. Il possédait effectivement deux cents talismans, ayant reçu près de cinq cents pièces grâce à divers pots-de-vin.
 
-Wang Hao soupira et, le visage empreint d'amertume, déclara: « Frère Tie Zhu, dans deux mois se tiendra la compétition des disciples internes. Bien que je puisse y participer, je n'ai aucune chance de gagner. Mais je refuse d'abandonner. Ce Wang Zhuo a déjà atteint le sommet du premier niveau de Condensation de Qi et j'ai entendu dire qu'il tente désormais d'atteindre le second. »
+Wang Hao soupira et, le visage empreint d'amertume, déclara: « Frère Tie Zhu, dans deux mois se tiendra la compétition de fin d'année des disciples internes. Bien que je puisse y participer, je n'ai aucune chance de gagner. Mais je refuse d'abandonner. Ce Wang Zhuo a déjà atteint le sommet du premier niveau de Condensation de Qi et j'ai entendu dire qu'il tente désormais d'atteindre le second. »
 
 « Comment peut-il cultiver si rapidement? » Wang Lin n'avait pas vu Wang Zhuo depuis un certain temps et en était surpris. Il semblait que le talent jouait un rôle primordial.
 
-Wang Hao afficha une expression de colère et reprit: « C'est uniquement parce qu'il a un maître puissant. Son maître ne s'est pas soucié du prix et a supplié mon propre maître de lui fournir un lot de pilules de Bonne Fortune. Ce sont des pilules extrêmement précieuses au sein de la secte. Une fois consommées, la vitesse de culture augmente de façon draconienne. »
+Wang Hao afficha une expression de colère et reprit: « C'est uniquement parce qu'il a un maître puissant. Son maître ne s'est pas soucié du prix et a demandé à mon propre maître de lui fournir un lot de pilules de Bonne Fortune. Ce sont des pilules extrêmement précieuses au sein de la secte. Une fois consommées, la vitesse de culture augmente de façon draconienne. »
 
 Wang Lin hocha la tête et demanda: « Quel est le rapport avec ton emprunt de talismans? »
 
@@ -62,7 +62,7 @@ Bien que tremper la perle mystérieuse dans la rosée soit la méthode optimale,
 
 D'un léger mouvement de la main, il activa la Technique d'Attraction. Des amas de neige se mirent à tourbillonner telle une traînée de dragon pour s'engouffrer dans une grande jarre située dans la pièce.
 
-Peu de temps après, Wang Lin avait rempli la moitié de la jarre. Il interrompit la technique et s'approcha du récipient. Il forma un sceau de la main droite et, après plus de dix tentatives, réussit enfin à créer une boule de feu de la taille du poing d'un nourrisson. La chaleur intense dégagée par la flamme fit fondre la neige rapidement.
+Peu de temps après, Wang Lin avait rempli un peu moins de la moitié de la jarre. Il interrompit la technique et s'approcha du récipient. Il forma un sceau d'une seule main et, après plus de dix tentatives, réussit enfin à créer une boule de feu de la taille du poing d'un nourrisson. La chaleur intense dégagée par la flamme fit fondre la neige rapidement.
 
 Une fois la neige totalement fondue, il essuya la sueur sur son front. L'usage successif de deux techniques l'avait épuisé.
 

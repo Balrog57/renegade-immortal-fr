@@ -68,7 +68,7 @@ Zhao Xinmeng poussa un soupir et envoya une transmission vocale. Le visage de Ch
 
 « Wang Lin! » Les yeux de Wang Lin étaient sereins. Dès l'apparition de Chen Tao, celui-ci n'avait pas caché sa culture. Wang Lin pouvait vaguement percevoir que sa puissance dépassait le stade de la Transformation de l'Âme pour atteindre celui de l'Ascendant.
 
-Quant au niveau exact de son Ascension, Wang Lin ne pouvait le déterminer.
+Quant au stade exact de l'Ascendant, Wang Lin ne pouvait le déterminer.
 
 « Tu n'es pas digne d'être mon septième frère! Sun Yun est mon seul septième frère! » dit Chen Tao d'un ton égal, détournant les yeux de Wang Lin.
 

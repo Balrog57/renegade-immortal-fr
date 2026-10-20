@@ -88,7 +88,7 @@ Cette mer de feu couvrant la voûte céleste devint de plus en plus puissante, t
 
 L'âme de Wang Lin se reforma au sommet du Oiseau Vermillon noir, au cœur des flammes. Il leva les yeux vers le firmament et agita la main.
 
-*Rumble, rumble, rumble!*
+*Grondements, grondements, grondements!*
 
 Des grondements tonitruants résonnèrent dans le ciel, se transformant en une force capable de déchirer la voûte céleste.
 
@@ -124,9 +124,9 @@ Les neuf rétributions karmiques étaient le châtiment du feu du karma. La prem
 
 À cet instant, Wang Lin allait affronter les neuf rétributions en tant que sixième génération de l'Oiseau Vermillon, sans personne pour le protéger!
 
-Des feux rouges, orangés, jaunes, verts, indigo, bleus et violets apparurent dans le monde, encadrés par le blanc et le noir. Ces neuf couleurs représentaient les neuf rétributions. Le cycle commençait et se terminait par le feu noir, formant une boucle parfaite.
+Des feux rouges, orangés, jaunes, verts, indigo, bleus et violets apparurent dans le monde, encadrés par le blanc et le noir. Ces neuf couleurs représentaient les neuf rétributions, chaque couleur marquant un tour. Le cycle commençait et se terminait par le feu noir, formant une boucle parfaite.
 
-S'il parvenait à toutes les franchir, il pourrait enflammer le feu karmique, permettant ainsi à l'Oiseau Vermillon de s'éveiller pour la quatrième fois. Son feu corporel entrerait alors dans le domaine du Feu Éthéré!
+S'il parvenait à toutes les franchir, il pourrait enflammer le feu karmique, permettant ainsi à l'Oiseau Vermillon de s'éveiller pour la quatrième fois. Son feu réel se transformerait alors et il entrerait dans le royaume du Feu Éthéré!
 
 Neuf rétributions karmiques, descendez!
 

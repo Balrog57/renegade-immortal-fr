@@ -46,7 +46,7 @@ Qing Lin regarda froidement l'Ancêtre Sainte du Clan du Tatouage. Il leva une n
 
 Au moment où la rune apparut, un rugissement jaillit du Vortex Funéraire Céleste que la femme avait partiellement extrait du sol.
 
-Une à une, des âmes s'élancèrent du Bassin Funéraire Céleste. Au début, elles n'étaient que quelques-unes, mais bientôt, elles surgirent en masse, comme une déferlante folle.
+Une à une, des âmes s'élancèrent du Vortex Funéraire Céleste. Au début, elles n'étaient que quelques-unes, mais bientôt, elles surgirent en masse, comme une déferlante folle.
 
 Le vortex gigantesque se libéra rapidement du contrôle de la femme. Après un grondement qui fit trembler le ciel, le vortex commença à tourner, tournant encore plus vite qu'auparavant. Des bruits de déchirure retentirent, comme si le monde lui-même était en train d'être lacéré.
 
@@ -104,8 +104,8 @@ La main droite de Qing Lin ne s'arrêta pas. Après avoir stoppé la tempête, s
 
 Elles fusionnèrent avec les deux sceaux précédents pour former une formation à neuf sceaux!
 
-Les neuf sceaux encerclèrent le corps de la femme et libérèrent une lumière mystérieuse. À l'instant où ils apparurent, le Bassin Funéraire Céleste sous elle entra soudainement en éruption!
+Les neuf sceaux encerclèrent le corps de la femme et libérèrent une lumière mystérieuse. À l'instant où ils apparurent, le Vortex Funéraire Céleste sous elle entra soudainement en éruption!
 
-Le bassin forma un vortex gigantesque qui tourna avec frénésie. Alors qu'il continuait de s'étendre, d'innombrables âmes furent projetées vers la femme.
+Le vortex gigantesque tourna avec frénésie. Alors qu'il continuait de s'étendre, d'innombrables âmes furent projetées vers la femme.
 
 En un clin d'œil, elle fut encerclée par les âmes. Celles-ci se regroupèrent pour former des chaînes noires qui l'emprisonnèrent et la tirèrent impitoyablement vers les profondeurs.

@@ -42,7 +42,7 @@ Wang Lin leva soudain la tête.
 
 Ses yeux étaient injectés de sang et sa culture s'activa instantanément. Conjuguée à son pouvoir ancien, elle atteignit le sommet de sa puissance.
 
-« Je n'ai aucune culture du clan céleste! Ce que je possède est ma propre force, acquise au cours de mes plus de 3 000 ans de vie! De quel droit m'ordonnez-vous de la dissiper?! » Wang Lin rugit et les sons des cloches à l'intérieur de son corps éclatèrent. Ils entrèrent en collision avec sa culture et il cracha une bouchée de sang. Il continua de reculer comme poussé par une force invisible, jusqu'à ce qu'il se retrouve au milieu de la montagne.
+« Je n'ai aucune culture du clan céleste! Ce que je possède est ma propre force, acquise au cours de mes plus de 3 000 ans de vie! De quel droit m'ordonnez-vous de la dissiper?! » Wang Lin rugit et les sons des cloches à l'intérieur de son corps éclatèrent. Ils entrèrent en collision avec sa culture et il cracha une bouchée de sang. Il continua de reculer comme poussé par une force invisible, sur plusieurs centaines de marches, jusqu'à ce qu'il se retrouve au milieu de la montagne.
 
 « Mes essences sont la sédimentation de ma vie, elles portent mon destin et mes luttes! De quel droit m'ordonnez-vous de les dissiper?! » Wang Lin leva les yeux, son regard de plus en plus injecté de sang. Il poussa un rugissement vital.
 
@@ -64,7 +64,7 @@ Au sommet de la tour siégeait une silhouette enveloppée de brume, et devant el
 
 « Senior Gu Dao... » Xuan Luo devint anxieux.
 
-« Je ne reconnais pas ton disciple! » Une voix indifférente provint de l'ombre dissimulée par la brume.
+« Je n'approuve pas ton disciple! » Une voix indifférente provint de l'ombre dissimulée par la brume.
 
 « Mais puisque tu l'as amené ici, s'il peut gravir 300 marches, je te laisserai l'emporter. Cependant, je n'aiderai pas à l'éveil de cette goutte de sang de l'âme en son sein. »
 
@@ -80,7 +80,7 @@ Wang Lin se tenait au pied du Mont Gu Dao et leva les yeux. Il savait que son ma
 
 « Wang Lin, utilise ta culture la plus puissante et franchis ces 300 marches! Que le Grand Empyréen Gu Dao voie si mon disciple est digne! » La voix de Xuan Luo descendit du sommet de la montagne, empreinte d'une pointe de colère.
 
-C'était la colère de Xuan Luo. Il avait prononcé ces mots au sommet de sa puissance, ignorant totalement Gu Dao qui se trouvait pourtant à ses côtés.
+C'était la colère de Xuan Luo. Il avait prononcé ces mots au sommet de la tour, sans se soucier le moins du monde de la silhouette de Gu Dao dans la brume.
 
 Xuan Luo regarda la silhouette dans la brume et dit: « Je l'ai sorti du monde des grottes pour le conduire ici. La seule façon pour que je ne le reprenne pas est ma mort! » Son dos était droit, il ne s'inclinait plus.
 
@@ -114,8 +114,8 @@ Dans le palais de la cité impériale de l'Ancien Dao, l'Empereur de l'Ancien Da
 
 « Mais désormais, une femme a réussi à fusionner avec l'âme! » La voix du vieillard était vibrante de joie. Ils menaient ce plan en secret depuis des siècles. Ce qui l'attendait devait être une récompense grandiose!
 
-« D'où vient cette femme et quel est son nom? » L'Empereur de l'Ancien Dao paraissait calme, mais il brûlait d'impatience. Il ne pouvait oublier les paroles de l'instructeur impérial. Cette âme pourrait lui permettre de devenir un véritable empereur antique, régnant sur l'ensemble du clan ancien!
+« D'où vient cette femme et quel est son nom? » L'Empereur de l'Ancien Dao paraissait calme, mais il brûlait d'impatience. Il ne pouvait oublier les paroles de l'Enseignant Impérial. Cette âme pourrait lui permettre de devenir un véritable empereur antique, régnant sur l'ensemble du clan ancien!
 
-L'un des autres vieillards s'exclama rapidement: « Elle vient du Clan Shi Antique, elle s'appelle Song Zhi! »
+L'un des autres vieillards s'exclama rapidement: « Elle vient du clan de l'Ancien Shi, elle s'appelle Song Zhi! »
 
 « Faites entrer cette Song Zhi dans le palais. Je veux rencontrer cette femme en personne. Proclamez au monde que dans trois mois, j'organiserai une cérémonie grandiose! Je prendrai Song Zhi pour épouse et ferai d'elle l'Impératrice Antique! » L'Empereur de l'Ancien Dao éclata de rire en se levant, ses yeux brillant d'une lumière monstrueuse.

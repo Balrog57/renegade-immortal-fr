@@ -96,7 +96,7 @@ Ling Er se mordit la lèvre inférieure en regardant Wang Lin. Elle secoua la t�
 
 Les yeux de Wang Lin se rétrécirent légèrement et il demanda calmement: « Pourquoi affirmes-tu cela? »
 
-Ling Er baissa la tête et réfléchit longuement. Finalement, elle serra les dents comme si elle avait pris une décision. Un sentiment étrange mêlé à son regard alors qu'elle fixait Wang Lin lui fit dire doucement: « Junior a toujours eu un rêve en elle depuis l'enfance, et je m'y perdais souvent... Dans ce rêve, j'ai vu... le géant qui est apparu hier soir! Bien que ce ne soit pas exactement le même, ils avaient tous les deux une étoile entre les sourcils! »
+Ling Er baissa la tête et réfléchit longuement. Finalement, elle serra les dents comme si elle avait pris une décision. Un sentiment étrange mêlé à son regard alors qu'elle fixait Wang Lin lui fit dire doucement: « Ce junior a toujours été hanté par un rêve depuis l'enfance, et je m'y perdais souvent... Dans ce rêve, j'ai vu... le géant qui est apparu hier soir! Bien que ce ne soit pas exactement le même, ils avaient tous les deux une étoile entre les sourcils! »
 
 Ling Er n'en avait jamais parlé à personne. Inconsciemment, elle avait voulu garder cela secret. Pourtant, face à Wang Lin, elle ressentit un étrange élan et lui confia son plus grand secret.
 
@@ -110,6 +110,6 @@ Le visage de Ling Er devint instantanément livide; elle recula de quelques pas 
 
 Après un court instant de réflexion, le regard de Ling Er devint résolu. Elle n'était pas aussi faible qu'elle en avait l'air. Une fois sa décision prise, elle n'en démordrait pas.
 
-Sans hésiter, Ling Er s'agenouilla sur un genou et ses mains formèrent la silhouette d'une bouteille de trésor. Elle leva la tête, exposant son cou gracile, et exécuta le geste qu'elle avait répété des milliers de fois dans ses rêves!
+Sans hésiter, Ling Er s'agenouilla sur un genou et ses mains formèrent la silhouette d'une bouteille de trésor. Elle leva la tête, exposant son cou gracile, et exécuta le geste qu'elle avait vu des milliers de fois dans ses rêves!
 
 Les yeux de Wang Lin se contractèrent soudainement; c'était comme si un coup de tonnerre venait d'exploser dans son esprit.

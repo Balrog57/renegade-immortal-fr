@@ -62,7 +62,7 @@ Non loin de là, Treize regardait le ciel avec indifférence, bien qu'une lueur 
 
 « Dès qu'elle laissera échapper un soupçon de son aura, je pourrai la détecter... Même si je suis revenu dans le monde des grottes, je peux toujours ressentir sa présence... » murmura Wang Lin. Li Qianmei était spéciale pour lui. Bien qu'elle ne fût pas comme Li Muwan, elle était la deuxième femme à avoir marqué son cœur.
 
-« Cependant... Je sens qu'elle... m'évite intentionnellement et ne veut pas que je la trouve... » Wang Lin ferma les yeux. Son cœur était en proie à une douleur profonde. Cette souffrance n'était pas aussi intense que le manque de Li Muwan, mais elle n'en demeurait pas moins déchirante.
+« Cependant... Je sens qu'elle... m'évite intentionnellement et ne veut pas que je la trouve... » Wang Lin ferma les yeux. Son cœur était en proie à une douleur profonde. Cette souffrance différait de celle que lui causait l'absence de Li Muwan, mais elle n'en demeurait pas moins déchirante.
 
 Il se souvenait encore des paroles que Li Qianmei lui avait murmurées avec une émotion indescriptible.
 

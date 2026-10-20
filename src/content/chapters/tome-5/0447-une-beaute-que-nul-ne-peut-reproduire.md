@@ -26,7 +26,7 @@ Certains furent dupés par l'autel, mais Qian Feng n'était pas tombé dans le p
 
 Bien que la section intérieure fût plus restreinte que la section extérieure, elle demeurait vaste. Les formes de vie y étaient bien plus nombreuses et certaines d'entre elles étaient extrêmement puissantes. Qian Feng ne pouvant les vaincre, il fut contraint de battre en retraite.
 
-Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé le premier Tombeau de Suzaku. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan de l'Immortel Délaissé pénétraient dans cette zone.
+Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé la tombe du premier Zhu Quezi. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan de l'Immortel Délaissé pénétraient dans cette zone.
 
 Qian Feng avait vu de ses propres yeux les yeux d'un cultivateur de la Transformation de l'Âme qu'il connaissait s'éteindre et mourir, après que quelques membres du Clan de l'Immortel Délaissé eurent déployé une grande puissance des runes pour terrasser l'une de ces formes de vie.
 
@@ -54,7 +54,7 @@ Qian Feng déclara: « Le temps est écoulé, il devrait avoir récupéré ses f
 
 Sans dire un mot, le Papillon Rouge s'avança lentement dans la grotte.
 
-Qian Feng prit une grande inspiration, forma un sceau et activa l'énergie spirituelle céleste qui coulait en lui. Cette énergie se concentra lentement sur son doigt jusqu'à former une petite sphère dorée.
+Qian Feng prit une grande inspiration, forma un sceau et activa l'énergie spirituelle céleste qui coulait en lui. Cette énergie se concentra lentement sur son doigt jusqu'à former une petite sphère de lumière cristalline.
 
 Le visage de Qian Feng était livide tandis qu'il scrutait les profondeurs de la cavité.
 
@@ -68,11 +68,11 @@ Un rugissement de rage s'échappa du géant tandis que son corps se désintégra
 
 Qian Feng hurla: « Explose! »
 
-D'un seul mot, la sphère de lumière explosa soudainement, créant une onde de choc dévastatrice qui se propagea dans toutes les directions.
+D'un seul mot, la sphère de lumière explosa soudainement, créant une onde de choc dévastatrice qui se propagea dans toutes les directions, à une vitesse supérieure à celle de la foudre.
 
 La montagne entière trembla et une pluie de rochers commença à s'abattre. Tous les filaments de fumée noire qui tentaient de s'échapper furent anéantis sans exception.
 
-« C'est déjà le soixante-neuvième... et je n'ai toujours pas trouvé mon fragment d'âme... » Qian Feng fronça les sourcils. Il savait que cette méthode n'était pas la plus efficace, mais le Tombeau de Suzaku était si vaste et recelait tant de dangers qu'il n'avait pas la puissance nécessaire pour explorer tous les recoins; il ne pouvait donc s'en remettre à cette méthode rudimentaire en espérant un miracle.
+« C'est déjà le soixante-neuvième... et je n'ai toujours pas trouvé mon fragment d'âme... » Qian Feng fronça les sourcils. Il savait que cette méthode n'était pas la plus efficace, mais le Tombeau de Suzaku était si vaste et recelait tant de dangers qu'il n'avait pas la puissance nécessaire pour explorer tous les recoins; il n'avait donc d'autre choix que de s'en remettre à cette méthode rudimentaire, en espérant un miracle.
 
 Sur la montagne abritant l'autel de la section extérieure du Tombeau de Suzaku, Wang Lin, tenant la sphère dans laquelle la forme de vie était scellée, sauta au sol.
 

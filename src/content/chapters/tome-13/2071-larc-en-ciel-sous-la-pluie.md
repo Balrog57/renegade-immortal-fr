@@ -8,7 +8,7 @@ slug: larc-en-ciel-sous-la-pluie
 ---
 « La réincarnation... Qu'est-ce que la réincarnation exactement... Je pensais que la réincarnation était le Ciel, mais en vérité, elle est bien plus que cela. » Wang Lin marchait dans les airs tandis que les visages de Zhou Ru, de Situ Nan et du Fou défilaient dans son esprit.
 
-« Le choix du Fou n'était peut-être pas celui de la réincarnation, mais Zhou Ru et Situ, eux, l'ont choisie... Ils n'ont pas choisi de partir, mais de s'intégrer ici, car ils avaient trop d'attaches et de liens auxquels ils ne voulaient renoncer.
+« L'expérience du Fou n'était peut-être pas celle de la réincarnation, mais Zhou Ru et Situ, eux, l'ont choisie... Ils n'ont pas choisi de partir, mais de s'intégrer ici, car ils avaient trop d'attaches et de liens auxquels ils ne voulaient renoncer.
 
 « Zhou Ru ne pouvait abandonner ses parents et son affection dans cette existence. Situ ne pouvait abandonner les soldats qui le suivaient depuis toute une vie. Comme Situ l'a dit, chaque réincarnation est une vie entière, et l'on possède tant d'attaches au cours d'une vie. Comment pourrait-on tout trancher si facilement?
 
@@ -20,7 +20,7 @@ La confusion dans le regard de Wang Lin se dissipa progressivement pour laisser 
 
 « Je me demande quels seront les choix des autres... » Wang Lin regarda au loin, poussa un soupir et poursuivit sa route.
 
-Clan Céleste, une chaîne de montagnes du Continent Nord. La forêt y était dense et extrêmement périlleuse; en contrebas, une route officielle serpentait comme un mince ruban de ciel.
+Dans les terres du Clan Céleste, au Continent Nord, au cœur d'une chaîne de montagnes. La forêt y était dense et extrêmement périlleuse; en contrebas, une route officielle serpentait comme un mince ruban de ciel.
 
 Une grotte se trouvait là, isolée, sans âme autour, hormis les oiseaux et les bêtes. Pourtant, depuis qu'elle était apparue des années auparavant, aucune créature n'avait osé s'en approcher.
 
@@ -36,7 +36,7 @@ Ce cultivateur à la grosse tête était d'un tempérament morose, et au fur et 
 
 Le cœur du cultivateur tressaillit et il ouvrit brusquement les yeux. Sans hésiter, il projeta un rayon de lumière verte qui fonça vers la silhouette blanche apparue dans la grotte.
 
-Wang Lin afficha une expression étrange. La lumière verte était en réalité un mille-pattes qui se précipitait vers lui, gueule ouverte. Wang Lin pointa du doigt le mille-pattes, et celui-ci se figea instantanément dans les airs.
+Wang Lin afficha une expression étrange. La lumière verte était en réalité un mille-pattes qui se précipitait vers lui, gueule ouverte, dans un souffle fétide. Wang Lin pointa du doigt le mille-pattes, et celui-ci se figea instantanément dans les airs.
 
 Le cultivateur à la grosse tête fut stupéfait. Ce mille-pattes avait été raffiné dans son âme originelle; il pouvait donc tenir tête à quelqu'un de plus fort que lui. Cela aurait dû lui donner le temps de s'échapper ou de lancer une nouvelle attaque.
 
@@ -50,7 +50,7 @@ Le corps de Grosse Tête trembla et la confusion se lut dans ses yeux. Divers so
 
 Cette lame, forgée par les forces de l'univers et créée grâce au sort de foi de Wang Lin, était un trésor absolu!
 
-D'un geste, la petite épée fendit le brouillard et se planta dans la paroi. Au cœur de la brume, Grosse Tête retrouvait peu à peu la mémoire. Un léger sourire apparut sur les lèvres de Wang Lin; d'un revers de manche, il rassembla l'énergie du monde pour en faire une grande quantité de pilules qui tombèrent dans une calebasse. Il la déposa au sol avant de partir.
+D'un geste, la petite épée fendit le brouillard et se planta dans la paroi. Wang Lin le regarda longuement, tandis que Grosse Tête retrouvait peu à peu la mémoire au cœur de la brume. Un léger sourire apparut sur ses lèvres; d'un revers de manche, il rassembla l'énergie du monde pour en faire une grande quantité de pilules qui tombèrent dans une calebasse. Il la déposa au sol avant de partir.
 
 Longtemps après, la brume se dissipa et Grosse Tête sortit, l'expression complexe et l'esprit embrumé. Il resta assis là, contemplant la grotte vide pendant un long moment, avant de lever les yeux et de murmurer:
 
@@ -62,13 +62,13 @@ Personne ne remarqua qu'au moment où l'éclat s'effaça, il pénétra entre les
 
 Le garçon trembla de tout son corps et les souvenirs enfouis dans son esprit s'éveillèrent peu à peu.
 
-Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, ils se précipitèrent de nouveau en avant. Les yeux du garçon en rouge étaient empreints de confusion et, après quelques heures, le groupe fit halte sur le flanc d'une montagne. Le trouble dans son regard s'estompa pour laisser place à une émotion complexe.
+Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, ils se précipitèrent de nouveau en avant. Les yeux du garçon en rouge étaient empreints de confusion et, après quelques heures, le groupe fit halte sur le flanc d'une montagne. Le trouble dans son regard s'estompa pour laisser place à une émotion complexe, teintée d'hébétude.
 
-« Je suis... le Maître Hongshan... » Le garçon en rouge leva les yeux vers le ciel et esquissa un lent sourire. Il prit une profonde inspiration, contemplant la terre devant lui avec une immense excitation.
+« Je suis... le Maître Hong Shan... » Le garçon en rouge leva les yeux vers le ciel et esquissa un lent sourire. Il prit une profonde inspiration, contemplant la terre devant lui avec une immense excitation.
 
 Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, quelques milliers de personnes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
 
-Depuis que les édits de plusieurs Grands Empyréens et de l'Empereur Immortel avaient ordonné à toutes les sectes du clan céleste de se préparer pleinement à la guerre, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
+Depuis que les édits de plusieurs Grands Empyréens et de l'Empereur Céleste avaient ordonné à toutes les sectes du clan céleste de se préparer pleinement à la guerre, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
 
 La guerre était imminente, et une modeste secte comme celle-ci aurait du mal à subsister dans l'affrontement entre les Anciens et les Célestes.
 
@@ -120,6 +120,6 @@ Elle avait toujours eu le sentiment de ne pas appartenir à ce monde. Ce pressen
 
 Le tonnerre gronda et la pluie s'abattit sur la terre, formant un rideau de gouttelettes.
 
-Vêtue d'une robe rouge qui la faisait ressembler à un papillon écarlate vue de loin, elle se tenait là face au papillon, semblant prête à suivre le vent et la pluie vers des contrées inconnues.
+Vêtue d'une robe rouge qui la faisait ressembler à un papillon écarlate vue de loin, elle se tenait là face au papillon, semblant prête à suivre le vent et la pluie vers des contrées inconnues, sans que personne ne s'en soucie.
 
 « Papillon Rouge... » Une voix douce s'éleva derrière la femme.

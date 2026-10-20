@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 397 - Giant Demon Clan
 slug: le-clan-des-demons-geants
 ---
-L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient les douze ancêtres de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme qui avaient volontairement abandonné leur essence pour être scellées dans le drapeau de l'âme.
+L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient celles de douze cultivateurs du stade de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme, qui, à l'approche de leur mort, avaient volontairement offert leur âme pour être scellées dans le drapeau.
 
 Avec ces douze fragments d'âmes de la Transformation de l'Âme, la puissance de ce drapeau était déjà suffisante pour ébranler les cieux.
 
@@ -22,7 +22,7 @@ L'âme originelle de Wang Lin s'avança et saisit le drapeau. Il sentit soudain 
 
 Au sommet de la Montagne de l'Affinement de l'Âme, Wang Lin ouvrit les yeux. Rien ne semblait être devant lui, pourtant il pouvait sentir, au plus profond de lui, un drapeau pourpre et doré que son âme originelle était en train de raffiner.
 
-« Ancêtre du Clan des Démons Géants, ceci sera une calamité dont vous aurez bien du mal à vous échapper! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte de l'Affinement de l'Âme.
+« Ancêtre du Clan des Démons Géants, vous ne pourrez pas échapper à cette calamité! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte de l'Affinement de l'Âme.
 
 Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Du Tian pratiquait sa culture en méditation fermée.
 
@@ -40,11 +40,11 @@ Après tout, on est au plus bas de sa puissance lors d'une possession. C'est pou
 
 Ce jour-là, Chi Hu était assis dans le troisième palais, un morceau de jade à la main. Son visage était pâle et empreint de confusion.
 
-« Ceng Niu a tué Li Yuanfeng de Xue Yu. D'après ce que je sais de lui, je crains que sa prochaine cible ne soit l'ancêtre... S'il vient, c'est qu'il est certain de son coup... Que dois-je faire... »
+« Ceng Niu a tué Li Yuanfeng de Xue Yu. D'après ce que je sais de lui, je pense que sa prochaine cible sera forcément l'ancêtre... S'il vient, c'est qu'il est certain de son coup... Que dois-je faire... »
 
 « Bien que l'ancêtre ait tort, il est l'espoir du Clan des Démons Géants; tout ce qu'il a fait l'était pour le futur de notre clan. »
 
-« Mais Ceng Niu me considère comme un véritable ami... Ah! »
+« Mais Ceng Niu me considère comme un ami... Ah! »
 
 Chi Hu secoua amèrement la tête, les yeux perdus dans ses pensées.
 
@@ -68,7 +68,7 @@ Il déploya son sens divin, qui couvrit immédiatement la majeure partie du pays
 
 « Ancêtre du Clan des Démons Géants, sortez maintenant! » Le message de Wang Lin, porté par son sens divin, fut instantanément entendu par d'innombrables membres du clan.
 
-Certains étaient en pleine culture ou s'entraînaient, mais dès qu'ils entendirent l'appel, ils cessèrent toute activité et tournèrent leurs regards vers Wang Lin.
+Certains étaient en pleine culture ou s'affrontaient, mais dès qu'ils entendirent l'appel, ils cessèrent toute activité et tournèrent leurs regards vers Wang Lin, stupéfaits.
 
 Chi Hu soupira et disparut du palais.
 
@@ -80,7 +80,7 @@ Outre ces individus, une multitude d'autres arrivaient en volant.
 
 À cet instant, un vieil homme apparut de nulle part et tous les autres membres du clan s'écartèrent pour lui laisser le passage.
 
-Le vieil homme s'arrêta à 330 mètres de Wang Lin. Il fronça les sourcils et cria: « Qui es-tu? »
+Le vieil homme s'arrêta à 330 mètres de Wang Lin. Il fronça les sourcils et cria: « Compagnon cultivateur, qui êtes-vous? »
 
 Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha: « Ceng Niu! »
 
@@ -88,7 +88,7 @@ Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha
 
 « Ceng Niu... c'est lui qui a vaincu Papillon Rouge! »
 
-« C'est le Ceng Niu qui a tué Li Yuanfeng, qui a transformé Xue Yu en un pays de culture de rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yu! »
+« C'est le Ceng Niu qui a tué Li Yuanfeng, qui a fait tomber le pays de Xue Yu du rang 5 au rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yu! »
 
 « Le numéro un des cultivateurs sous le stade de la Transformation de l'Âme! »
 
@@ -100,7 +100,7 @@ Les yeux de Wang Lin étaient glacials lorsqu'il répondit: « Tuer! »
 
 L'expression du vieillard se décomposa. Il laissa échapper un rire furieux en pointant Wang Lin du doigt: « On m'avait dit que tu étais arrogant. Maintenant que je te vois, je constate que c'est vrai! Ceng Niu, mon Clan des Démons Géants n'est pas Xue Yu; comment pourrions-nous te laisser massacrer qui bon te semble? Aujourd'hui, sans même que l'ancêtre ait besoin de se montrer, mon clan va te tuer! »
 
-Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émergea. Il brandit le jeton et hurla: « En ma qualité d'Ancien du Clan des Démons Géants, j'ordonne à tous les membres du clan d'utiliser toutes leurs forces pour éliminer Ceng Niu! »
+Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émergea. Il brandit le jeton et hurla: « En ma qualité d'Ancien du Clan des Démons Géants, j'ordonne à tous les membres du clan de tuer Ceng Niu à tout prix! »
 
 À l'instant même, le jeton se changea en poussière et une puissance mystérieuse se propagea instantanément dans tout le territoire.
 
@@ -132,9 +132,9 @@ Hormis Chi Hu, Wang Lin n'avait aucune intention bienveillante envers le reste d
 
 Alors qu'il parlait, il ne daigna même pas regarder les membres qui chargeaient vers lui et activa plutôt son domaine. Le ciel au-dessus du Clan des Démons Géants s'obscurcit soudainement.
 
-Une puissance mystérieuse enveloppa le ciel et la terre. Le parchemin de la réincarnation de la vie et de la mort apparut dans les cieux, accompagné de la silhouette de l'Ancien Dieu.
+Une puissance mystérieuse enveloppa le ciel et la terre. Le parchemin de la réincarnation de la vie et de la mort apparut dans les cieux, accompagné de la silhouette du Dieu Ancien.
 
-L'Ancien Dieu, suspendu dans le firmament, tenait le parchemin de la vie et de la mort. À cet instant, il était la seule chose visible dans le ciel.
+Le Dieu Ancien, suspendu dans le firmament, tenait le parchemin de la vie et de la mort. À cet instant, il était la seule chose visible dans le ciel.
 
 Le regard de Wang Lin devint impitoyable et il ordonna calmement: « Sceller! »
 
@@ -144,7 +144,7 @@ L'expression de l'Ancien changea radicalement. Il serra les dents, mais ne recul
 
 Sous la seule puissance de ce mot, le corps de l'Ancien trembla et son âme originelle devint instable; cependant, il poussa un rugissement et utilisa une technique inconnue pour se rétablir et poursuivre sa course meurtrière.
 
-Surpris par cette résistance, Wang Lin lança un coup de poing fulgurant.
+Surpris par cette résistance, Wang Lin lança un coup de poing fulgurant à distance.
 
 Bang!
 

@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1508 - Despicable !!"
 slug: meprisable
 ---
-Dans le domaine stellaire de la Mer des Nuages, au sein de la Secte Divine de rang 9, l'Ancien en chef, le Shui Daozi, était assis au sommet de la plus haute montagne de la planète. Il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
+Dans le domaine stellaire de la Mer des Nuages, au sein de la Secte Divine de rang 9, l'Ancien en chef, le Shui Daozi, était assis au sommet de la plus haute montagne de la planète. Vêtu d'une robe verte, il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
 
 Quatre montagnes l'entouraient. Si l'on observait la scène depuis les cieux, on aurait l'impression que ces cinq sommets étaient tels cinq doigts perçant le firmament!
 
@@ -36,7 +36,7 @@ Il leva le second jade. Son expression devint féroce et il projeta un message p
 
 Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le Shui Daozi ne s'arrêta pas là. Il saisit le troisième jade.
 
-« Mu Bingmei, ce vieil homme t'a aidée à guérir, a restauré ta culture et a permis l'augmentation de ton niveau de cultivation. Je demande que tu me rendes cette faveur. Je veux que tu dévores cette pilule et que tu sortes pour m'aider! »
+« Mu Bingmei, ce vieil homme t'a aidée à guérir, a restauré ta culture et a permis l'augmentation de ton niveau de cultivation. Je demande que tu me rendes cette faveur. Je veux que tu avales cette pilule et que tu sortes pour m'aider! »
 
 Il agita la main droite et le troisième jade disparut.
 
@@ -82,11 +82,11 @@ Le Shui Daozi s'agenouilla et leva la main vers les cieux. Son espace de stockag
 
 Cette carapace exhalait une aura antique et était saturée d'une énergie spirituelle céleste extrêmement dense!
 
-« Cette tortue est mon signe distinctif. Je suis le serviteur du Seigneur du Royaume Scellé. Ô Céleste Antique, descendez et accordez-nous un trésor!! » Le Shui Daozi s'inclina au sol tout en brandissant la carapace.
+« Cette carapace est mon signe distinctif. Je suis le serviteur du Seigneur du Royaume Scellé. Ô Céleste Antique, descendez et accordez-nous un trésor!! » Le Shui Daozi s'inclina au sol tout en brandissant la carapace.
 
 Des rugissements tonnèrent dans le ciel de sang, et un regard émergea du vortex. Il fixa lentement la carapace que le Shui Daozi présentait.
 
-« Cultivateur du royaume inférieur, cette tortue est bel et bien un trésor du Seigneur du Royaume Scellé. Je t'accorderai un trésor. Prends ceci et fusionne-le avec la Formation de Scellement du Royaume; cela pourra retarder l'invasion extérieure de cent ans... Cent ans devraient suffire pour que plusieurs Vénérables s'éveillent, il n'y aura donc aucun problème... » Tandis que ces paroles majestueuses résonnaient depuis le vortex, un trésor doré descendit des cieux!
+« Cultivateur du royaume inférieur, cette carapace est bel et bien un emblème du Seigneur du Royaume Scellé. Je t'accorderai un trésor. Prends ceci et fusionne-le avec la Formation de Scellement du Royaume; cela pourra retarder l'invasion extérieure de cent ans... Cent ans devraient suffire pour que plusieurs Vénérables s'éveillent, il n'y aura donc aucun problème... » Tandis que ces paroles majestueuses résonnaient depuis le vortex, un trésor doré descendit des cieux!
 
 C'était une cloche, une cloche d'or!!
 

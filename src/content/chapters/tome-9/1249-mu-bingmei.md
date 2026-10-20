@@ -18,7 +18,7 @@ L'étoile de la loi tourna et des éclairs de tonnerre jaillirent. La foudre cir
 
 Simultanément, des flammes bleues s'engouffrèrent dans la fissure et balayèrent l'espace. Cela permit de dissiper l'air glacial et l'espace s'étendit considérablement.
 
-Peu après, Wang Lin sortit des jades célestes et des cristaux originels pour les lancer dans l'espace de stockage. Ils explosèrent, comblant le vide d'une énergie céleste et originelle suffisante.
+Peu après, Wang Lin sortit des jades célestes et des cristaux originels pour les lancer dans l'espace de stockage. Ils comblèrent le vide d'une énergie céleste et originelle suffisante.
 
 Tout fut accompli en un instant, sans aucun gaspillage. Une fois l'espace de stockage stabilisé, d'un ordre mental, le roi des moustiques, situé en dessous de lui, poussa immédiatement un rugissement.
 
@@ -30,7 +30,7 @@ Le roi des moustiques fut le dernier à entrer. Il jeta un regard vers Wang Lin 
 
 Désormais, il était le seul être vivant dans le Royaume Céleste du Vent!
 
-Derrière lui, une horde infinie de moustiques le poursuivait avec acharnement, se rapprochant sans cesse! Wang Lin prit une profonde inspiration et sortit un talisman de vitesse. Il l'appliqua sur son corps sans hésiter, et son âme originelle commença à s'activer, faisant fi de ses blessures. L'aura d'un cultivateur du Briseur du Nirvana se propagea et fusionna avec son pouvoir de Dieu Ancien.
+Derrière lui, une horde infinie de moustiques le poursuivait avec acharnement, se rapprochant sans cesse! Wang Lin prit une profonde inspiration et sortit un talisman de vitesse. Il l'appliqua sur son corps sans hésiter, et son âme originelle commença à s'activer, faisant fi de ses blessures. L'aura d'un cultivateur du Briseur du Nirvana se propagea et fusionna avec son pouvoir d'Ancien Dieu.
 
 Il se retourna pour fixer la horde de moustiques, et plus particulièrement le gigantesque roi des moustiques. Un doute l'assaillit: ce roi était extrêmement puissant, pourtant il n'avait utilisé aucun sortilège et sa vitesse n'était pas si prodigieuse que cela.
 
@@ -72,13 +72,13 @@ Wang Lin sortit de la fissure et pénétra dans la région de rang 8. Il contemp
 
 « Secte Éternelle... » Wang Lin s'élança dans la Mer des Nuages et, suivant la direction que lui indiquaient les nombreux jades dont il avait mémorisé le contenu, fonça droit vers la Secte Éternelle!
 
-« J’ai obtenu une grande quantité de bêtes moustiques lors de ce voyage dans le Royaume Céleste du Vent, bien que cela ne suffise pas encore. Cependant, si mes blessures guérissent et que je peux compter sur la coopération des bêtes moustiques, je ne serai plus impuissant face à Tuo Sen! J’ai juste besoin de plus de temps pour permettre au roi des moustiques d'évoluer, puis je pourrai obtenir encore plus de bêtes! »
+« J’ai obtenu une grande quantité de bêtes moustiques lors de ce voyage dans le Royaume Céleste du Vent, bien que cela ne suffise pas encore. Cependant, si mes blessures guérissent et que je peux compter sur la coopération des bêtes moustiques, je ne serai pas dépourvu de moyens de fuite face à Tuo Sen! J’ai juste besoin de plus de temps pour permettre au roi des moustiques d'évoluer, puis je pourrai obtenir encore plus de bêtes! »
 
 Dans la Secte Éternelle de rang 8, la compétition régionale de rang 5 se déroulait sur une plateforme qui occupait près de la moitié d'une planète. La Secte du Dao Pourpre dominait la compétition, et presque personne ne pouvait rivaliser avec eux.
 
 Des grondements résonnèrent sur la plateforme, attirant l'attention de près de 100 000 cultivateurs environnants. Feng Hai et les autres membres de la Secte Éternelle étaient assis dans la partie la plus intérieure des gradins. À ses côtés se trouvaient le vieil homme aux cheveux roux et quelques puissants cultivateurs de la Secte Éternelle.
 
-Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte du Dao Pourpre est entièrement due à Lu Yuncong! Camarade cultivateur Wang, cette fois, la Secte Divine ne doit pas emmener Lu Yuncong. »
+Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte du Dao Pourpre doit beaucoup à Lu Yuncong! Camarade cultivateur Wang, cette fois, la Secte Divine ne doit pas emmener Lu Yuncong. »
 
 Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de culture était élevé; il révélait sans hésitation l'aura d'un cultivateur Briseur du Nirvana.
 
@@ -86,7 +86,7 @@ Deux femmes étaient assises près du vieil homme. Toutes deux possédaient une 
 
 Sa beauté semblait presque irréelle, telle une véritable fée. Par sa simple présence, elle captivait tous les cultivateurs alentour. Cependant, elle était si glaciale qu'elle paraissait totalement déconnectée de son environnement, dégageant un sentiment de solitude.
 
-Telle une fleur de lys s'épanouissant dans l'isolement ou ou une visiteuse venue d'une terre lointaine. Tout était inconnu, et aucun visage ne lui semblait familier...
+Telle une fleur de lys s'épanouissant dans l'isolement ou une visiteuse venue d'une terre lointaine. Tout était inconnu, et aucun visage ne lui semblait familier...
 
 À ses côtés se trouvait une autre femme. Bien qu'elle fût moins éclatante, son visage doux et magnifique aurait charmé n'importe qui. Son sourire ressemblait à une fleur blanche épanouie capable d'enivrer les âmes.
 

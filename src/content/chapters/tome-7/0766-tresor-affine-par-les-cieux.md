@@ -16,7 +16,7 @@ Après avoir décelé une planète de culture de rang 6, Wang Lin s'y infiltra. 
 
 Le lien entre son âme et son avatar devenait plus stable.
 
-Il convient de noter que bien que ce voyage ait attiré l'attention de certains cultivateurs puissants, aucun ne soupçonna qu'il s'agissait d'un dieu ancien. Après tout, ces derniers avaient disparu depuis bien trop longtemps.
+Il convient de noter que bien que ce voyage ait attiré l'attention de certains cultivateurs puissants, aucun ne soupçonna qu'il s'agissait d'un dieu ancien. Après tout, ces derniers étaient bien trop éloignés du monde de la culture actuel.
 
 Dans le Système Stellaire de Luotian, un fragment dérivait lentement dans le vide du Royaume Céleste du Tonnerre. À cet instant, une masse de nuages qui n'auraient jamais dû apparaître se condensa rapidement autour de ce fragment, et des grondements sourds se cachaient en leur sein.
 
@@ -52,9 +52,9 @@ D'innombrables éclairs jaillirent des nuages pour frapper le fragment. Le tonne
 
 De puissants rugissements tonitruants résonnèrent à travers le vide. Le fragment continuait de s'effondrer sous les assauts du tonnerre. L'électricité traversa le fragment pour se précipiter vers Wang Lin, toujours inconscient.
 
-Le corps de Wang Lin tremblait à chaque fois qu'un éclair pénétrait en lui, et d'innombrables décharges avaient déjà déferlé dans ses veines. Xu Liguo était terrifié et ne pouvait que se cacher à l'intérieur de l'épée céleste; un seul de ces éclairs lui aurait été fatal.
+Le corps de Wang Lin tremblait à chaque fois qu'un éclair pénétrait en lui, et d'innombrables décharges avaient déjà déferlé dans ses veines. Xu Liguo était terrifié et ne pouvait que se cacher à l'intérieur de l'épée céleste; un seul de ces éclairs aurait failli briser son âme.
 
-À cet instant, au cœur du corps de Wang Lin, la puissance de l'homme âgé et celle de l'Ancêtre Sanguin s'annulaient et fusionnaient mutuellement. Normalement, ce processus aurait pris une éternité, mais les éclairs constants qui infiltraient son corps l'accéléraient prodigieusement.
+À cet instant, au cœur du corps de Wang Lin, la puissance de l'homme âgé et celle de l'Ancêtre Sanguin s'annulaient et fusionnaient mutuellement. Normalement, ce processus aurait pris très longtemps, mais les éclairs constants qui infiltraient son corps l'accéléraient prodigieusement.
 
 L'énergie originelle à l'intérieur de lui augmentait de façon effrénée. Loin de détruire son corps, le tonnerre de la rétribution divine lui apportait des bénéfices inimaginables.
 

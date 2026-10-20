@@ -42,7 +42,7 @@ Les racines de l'herbe étaient déjà en décomposition; il n'en restait que pe
 
 « Je ne vais pas briser cette restriction. Au lieu de cela, je vais y imprimer ma propre marque et ma propre restriction avant qu'elle ne s'active totalement. De la sorte, je prendrai le contrôle de cette restriction à l'insu de la vieille femme... Avec ma Restriction de l'Annihilation et la Restriction de la Vie et de la Mort, j'aurai deux des quatre grandes restrictions anciennes. Même si Maître Pin Cendré y pénétrait par inadvertance, il serait gravement blessé! » Wang Lin progressa prudemment à travers le champ, ne se détendant qu'une fois entré dans la vallée.
 
-Après avoir inspecté les lieux, Wang Lin tourna son regard vers l'extrémité de la vallée, qui rejoignait la chaîne de montagnes semblable à un mur. La paroi était extrêmement escarpée, telle une tour.
+Après avoir inspecté les lieux, Wang Lin tourna son regard vers l'extrémité de la vallée, qui rejoignait la chaîne de montagnes semblable à un mur. La paroi était extrêmement escarpée, d'une majesté imposante.
 
 Sans perdre un instant, Wang Lin grimpa la montagne avec la rapidité de l'éclair. En songeant à la Restriction de la Vie et de la Mort, il ne put s'empêcher de se remémorer les paroles de Li Yuan:
 
@@ -60,9 +60,9 @@ Cette chaîne de montagnes en forme de mur agissait comme un anneau séparant l'
 
 En regardant devant lui, Wang Lin sentait distinctement que Maître Pin Cendré se trouvait dans la brume. Le regard de Wang Lin devint glacial alors qu'il dévalait la montagne pour disparaître au loin.
 
-Maître Pin Cendré portait l'Armure Divine Démoniaque et faisait preuve d'une prudence extrême. Il devait surveiller chacun de ses pas au sein du brouillard. La vieille femme en vert l'accompagnait, entourée d'un gaz noir. Le silence régnait, seul le bruit de leurs pas venait troubler le calme.
+Maître Pin Cendré portait l'armure démoniaque et faisait preuve d'une prudence extrême. Il devait surveiller chacun de ses pas au sein du brouillard. La vieille femme en vert l'accompagnait, entourée d'un gaz noir. Le silence régnait, seul le bruit de leurs pas venait troubler le calme.
 
-« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Marque d'Esprit de Guerre. C'est l'un des grands sorts de la Secte Divine. » Maître Pin Cendré avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
+« Cet individu nommé Lu devrait être mort à présent. Pang Decai est un expert en recherche d'âmes; il doit avoir fait une belle récolte, surtout avec cette Empreinte de l'Esprit Guerrier. C'est l'un des grands sorts de la Secte Divine. » Maître Pin Cendré avait calculé le temps. Ils avaient souvent collaboré, ce qui leur permettait de deviner les pensées de l'autre d'un simple regard.
 
 « Pang Decai doit être en route... » Les yeux de Maître Pin Cendré brillèrent d'une lueur indéchiffrable.
 
@@ -84,7 +84,7 @@ Il s'agissait d'un rocher colossal d'environ mille pieds de haut, dans lequel é
 
 « Éveillé, toute vie doit avancer éternellement pour résoudre l'ère moderne. Échappez à la volonté céleste et obtenez la voie de la vie. Attendez le chemin de la culture... »
 
-« Éveillé, scellez la volonté des cieux. Gravez les jours sombres. Ceux des êtres qui n'atteignent pas le véritable Dao sombrent sans fin dans la mer d'amertume et perdent à jamais le véritable Dao. Attendez le chemin de la culture... »
+« Éveillé, verrouille le destin du ciel défunt, imprime la cour des ténèbres. Ceux des êtres qui n'atteignent pas le véritable Dao sombrent sans fin dans la mer d'amertume et perdent à jamais le véritable Dao. Attendez le chemin de la culture... »
 
 Ce passage sinistre résonnait à travers la brume, emplissant l'espace.
 
@@ -96,7 +96,7 @@ Le visage de Maître Pin Cendré pâlit instantanément et il regarda autour de 
 
 « Maître Pin Cendré, qui sont exactement les Éveillés? » Le visage de la vieille femme était livide tandis que les passages résonnaient en elle. Elle sentait qu'elle touchait à ses limites.
 
-« Les Perdus ont égaré leur Dao et errent dans la confusion au sein du Royaume aux Sept Couleurs. Ils cherchent aveuglément... Les Éveillés possèdent un Dao, mais après avoir contemplé les Écrits du Dao, leurs cœurs Dao se sont effondrés sans pouvoir se reformer. Ils ne peuvent que flotter dans cette brume et chercher éternellement. Il se peut qu'ils soient déjà morts; ce n'est alors qu'une âme Dao formée de leur volonté! » murmura Maître Pin Cendré en écoutant ces paroles résonner en lui.
+« Les Perdus ont égaré leur Dao et errent dans la confusion au sein du Royaume aux Sept Couleurs. Ils cherchent aveuglément... Les Éveillés possèdent un royaume du Dao, mais après avoir contemplé les Écrits du Dao, leurs cœurs Dao se sont effondrés sans pouvoir se reformer. Ils ne peuvent que flotter dans cette brume et chercher éternellement. Il se peut qu'ils soient déjà morts; ce n'est alors qu'une âme Dao formée de leur volonté! » murmura Maître Pin Cendré en écoutant ces paroles résonner en lui.
 
 « Les Écrits du Dao? » Les yeux de la vieille femme en vert se plissèrent.
 

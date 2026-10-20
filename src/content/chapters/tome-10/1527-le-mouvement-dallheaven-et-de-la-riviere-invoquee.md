@@ -30,7 +30,7 @@ Un rare sentiment d'impuissance apparut dans les yeux du Grand Maître Yun Luo. 
 
 Tout cela se produisit avec une rapidité fulgurante. Alors que la hache approchait, le Grand Maître Yun Luo n'eut que le temps de se mordre la langue et de cracher une gorgée de sang. Ce sang forma un bouclier sanguin de la taille d'une paume!
 
-Ce bouclier était un octogone aux contours très irréguliers. Dès qu'il apparut, la hache s'abattit sur lui.
+Ce bouclier était un octogone couvert de runes fines, en relief et scintillantes. Dès qu'il apparut, la hache s'abattit sur lui.
 
 Un bruit fracassant résonna à travers les étoiles. Le bouclier sanguin fut comme un morceau de tofu; il ne put supporter ne serait-ce qu'un seul coup!
 
@@ -54,7 +54,7 @@ Dans leur chute, deux filaments furent extraits par le sort de Wang Lin. Ils s'e
 
 Cependant, juste au moment où le trou noir apparut, le tatouage de tonnerre dans l'œil droit de Wang Lin étincela. Le Royaume Ji, scellé sous la forme de l'un des neuf tonnerres accompagnateurs, jaillit sans hésitation de son œil droit pour s'engouffrer dans le trou noir!
 
-Simultanément, l'essence du feu se précipita dans le vortex, suivant le tonnerre du Royaume Ji. Le tonnerre et le feu fusionnèrent dans leur course!
+Simultanément, l'essence du feu se précipita à la suite du tonnerre du Royaume Ji et se fondit en lui. Le tonnerre et le feu fusionnèrent dans leur course!
 
 Dans le Système d'Étoiles Anciennes, l'une des trois terres interdites du Conseil Souverain, une faille spatiale qui n'existait pas dans le ciel étoilé, se trouvait la terre sainte transmise de génération en génération par les ancêtres du Grand Maître Yun Luo!
 

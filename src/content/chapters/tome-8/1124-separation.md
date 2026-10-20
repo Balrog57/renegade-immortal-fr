@@ -34,7 +34,7 @@ Le vide spatial était si sombre que même la lueur des nébuleuses et des étoi
 
 Wang Lin raccompagna Zhou Ru vers le nouveau Royaume Céleste de la Pluie. Les yeux de la jeune fille étaient empreints de réticence tandis que Wang Lin lui caressait la tête avec un sourire bienveillant. Depuis qu'il avait recueilli cette petite fille pour l'élever, il avait progressivement ressenti ce qu'était l'amour paternel.
 
-Après avoir quitté Zhou Ru, Wang Lin pensa à Wang Ping et Li Muwan.
+En voyant Zhou Ru, Wang Lin pensait à Wang Ping et Li Muwan.
 
 « Sois sage ici et ne gaspille pas ta culture. Tu... as bien grandi. » Wang Lin regarda cette jeune fille pleine de vie, et la tendresse dans son regard s'intensifia.
 

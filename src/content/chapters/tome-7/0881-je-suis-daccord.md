@@ -44,7 +44,7 @@ C'est pour cette promesse que Wang Lin était venu dans le Système Stellaire de
 
 Lorsque Wang Lin sortit l'Âme Naissante de Li Muwan, Xi Zifeng, dont les yeux étaient rivés sur lui, faillit s'effondrer. Son visage devint livide, son corps trembla et elle sentit son cœur se briser.
 
-« Alors c'est donc ça... Il a traversé toutes ces épreuves pour cette femme... » Des larmes coulèrent sur les joues de Xi Zifeng. En regardant l'Âme Naissante dans sa main, son cœur se serra d'amertume.
+« Alors c'est donc ça... S'il a traversé toutes ces épreuves pour décrocher la première place de la compétition des titres célestes, c'était pour cette femme... » Des larmes coulèrent sur les joues de Xi Zifeng. En regardant l'Âme Naissante dans sa main, son cœur se serra d'amertume.
 
 « Avoir son amant prêt à tout cela, même si son Âme Naissante est endommagée et endormie... c'est là un véritable bonheur. »
 
@@ -106,6 +106,6 @@ Une trace de nostalgie resta dans les yeux de Qing Shui. Avec une pointe de mél
 
 Wang Lin regarda Qing Shui, ses yeux exprimant sa gratitude. Il hocha la tête. Il savait que Qing Shui craignait qu'il ne lui arrive malheur sur la planète Dong Lin et décida de l'escorter pour garantir le bon déroulement des événements.
 
-Après cela, les autres présentèrent leurs requêtes. Il est à noter que Xu Ting et Nangong Han firent la même demande: ils souhaitaient entrer dans le Pavillon des Trésors pour apprendre des sorts célestes. Une fois que chacun eut reçu sa récompense, le don céleste prit fin!
+Après cela, les autres présentèrent leurs requêtes. Il est à noter que Xu Ting et Nangong Han firent la même demande: ils souhaitaient entrer dans le Pavillon des Trésors pour apprendre des sorts célestes. Une fois que les 36 Célestes du Ciel eurent reçu chacun leur récompense, le don céleste prit fin!
 
 À l'instant même où il s'acheva, le rire de Maître Yan Leizi retentit. Flottant au-dessus de son tapis de prière, il agita ses manches. Ses yeux brillèrent et il cria: « Compagnons cultivateurs, aidez-moi à ouvrir le passage vers le Système Stellaire de l'Alliance! La guerre est sur le point de commencer! »

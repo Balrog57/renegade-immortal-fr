@@ -34,7 +34,7 @@ Ces trois cadeaux étaient précieux, et puisqu'il les avait acceptés, il devai
 
 « Il reste encore neuf cultivateurs de stade initial de la Tribulation du Vide à éliminer... Si j'ai pu en tuer un, je peux certainement en tuer neuf autres! Le plus crucial est d'abattre les trois de stade intermédiaire de la Tribulation du Vide. Même si j'explose les 30 millions d'âmes dao, cela ne pourra en tuer qu'un seul... Quant aux deux restants... » Wang Lin fronça les sourcils, mais il ne recula pas. Une lueur froide traversa son regard.
 
-« L'Ancêtre Taureau Vert m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent du Taureau Céleste et le Continent du Démon Vert. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Secte de la Grande Âme, puis quitter cet endroit! » Wang Lin baissa les yeux vers son corps qui se fondait dans l'obscurité de la grotte.
+« L'Ancêtre Taureau Vert m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent du Taureau Céleste et le Continent du Démon Vert. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Secte de la Grande Âme, puis quitter cet endroit! » Wang Lin baissa les yeux vers le sol de la grotte, qui se fondait dans l'obscurité.
 
 À cet instant précis, Wang Lin leva soudainement la tête et regarda hors de la grotte. Son regard semblait transpercer la roche pour scruter l'extérieur. À ce moment-là, les palais souterrains étaient silencieux; seuls quelques bruits de respiration se faisaient entendre. Une faible lueur émanait des pierres lunaires disposées ici.
 
@@ -82,7 +82,7 @@ Wang Lin marqua une pause et répondit calmement: « Sans commentaire! » Il n'y
 
 C'était là la véritable raison de la venue de Yan Luan. Elle sortit une pilule, la déposa au sol, puis s'inclina devant Wang Lin. Une légère brise souffla à l'entrée de la grotte, et elle disparut.
 
-En définitive, les réponses de Wang Lin aux interrogations incessantes de Yan Luan n'avaient été que ces quelques mots: « Sans commentaire ». Après le départ de la femme, Wang Lin ouvrit les yeux, et deux éclats semblables à des flammes brillèrent dans l'obscurité.
+En définitive, les réponses de Wang Lin aux questions de Yan Luan n'avaient été que ces quelques mots: « Sans commentaire ». Après le départ de la femme, Wang Lin ouvrit les yeux, et deux éclats semblables à des flammes brillèrent dans l'obscurité.
 
 Il fixa la porte, pensa au dos de Yan Luan qui s'éloignait, puis réfléchit. D'un geste de la main droite, il fit voler la pilule vers lui. Il l'examina avec soin. Elle dégageait un parfum exquis; c'était manifestement une pilule médicinale extraordinaire pour la guérison. Un léger sourire se dessina sur les lèvres de Wang Lin.
 

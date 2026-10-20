@@ -38,7 +38,7 @@ Il avait ensuite rapporté ses observations au Maître de la Secte. Après une l
 
 « Qu'il appartienne ou non à la Secte Divine n'a aucune importance pour ma Secte du Jade Précieux. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
 
-Wang Lin réfléchit un instant. Il possédait effectivement quelques objets qu'il souhaitait mettre en vente pour obtenir autant de cristaux d'origine que possible. Après un moment, il sourit: « Très bien. J'ai justement deux trésors que je souhaite enchérir. »
+Wang Lin réfléchit un instant. Il possédait effectivement quelques objets qu'il souhaitait mettre en vente pour obtenir autant de cristaux d'origine que possible. Après un moment, il sourit: « Très bien. J'ai justement deux trésors que je souhaite mettre aux enchères. »
 
 « Oh? Les trésors que le Compagnon Cultivateur Lu accepte de vendre ne doivent pas être ordinaires », manifesta l'Ancien avec une pointe d'intérêt.
 
@@ -48,7 +48,7 @@ Wang Lin regarda l'Ancien avec un sourire qui n'en était guère un et lui adres
 
 « Cet Ancien est un homme intéressant », pensa Wang Lin en suivant du regard le départ de l'homme.
 
-Une fois l'Ancien parti, d'autres cultivateurs vinrent parler à Wang Lin, parmi lesquels le lettré en blanc et la belle femme rencontrée lors des enchères du Maître Pin Cendré. Les trois n'étaient pas étrangers les uns aux autres. Après quelques échanges, la place se mit à trembler et un silence s'installa. Le sol secoua plus violemment encore et des fissures apparurent tout autour de la place. Soudain, seize immenses tablettes de pierre jaillirent dans les airs!
+Une fois l'Ancien parti, d'autres cultivateurs vinrent parler à Wang Lin, parmi lesquels le lettré en blanc et la belle femme rencontrée lors de la réunion privée du Maître Pin Cendré. Les trois n'étaient pas étrangers les uns aux autres. Après quelques échanges, la place se mit à trembler et un silence s'installa. Le sol secoua plus violemment encore et des fissures apparurent tout autour de la place. Soudain, seize immenses tablettes de pierre jaillirent dans les airs!
 
 Ces seize tablettes surgirent de la terre et s'immobilisèrent à mille pieds d'altitude, entourées d'une lueur émanant de leur surface. Simultanément, le sol continua de vibrer et plus de quarante tablettes plus petites s'envolèrent à huit cents pieds de hauteur. Le spectacle ne s'arrêta pas là: une centaine d'autres tablettes apparurent pour se stabiliser à cinq cents pieds, formant ainsi une gigantesque formation!
 
@@ -108,4 +108,4 @@ Li Qianmei resta pensive. Après un long moment, elle sourit et accepta le prés
 
 Une fois ses paroles prononcées, elle ne regarda plus Wang Lin et s'élança telle un papillon dansant. Ses cheveux noirs se transformèrent soudainement en une magnifique teinte bleue et elle disparut progressivement sous les yeux des cultivateurs. Elle tenait toujours la peinture contre elle.
 
-« Ne serait-il pas mieux de s'oublier l'un l'autre... Est-ce que... »
+« Ne serait-il pas mieux de s'oublier l'un l'autre... Est-ce vraiment ainsi...? »

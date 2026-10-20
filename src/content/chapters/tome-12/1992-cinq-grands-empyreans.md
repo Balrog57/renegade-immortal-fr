@@ -60,7 +60,7 @@ Dès que l'épée se manifesta, Wang Lin ressentit un profond appel.
 
 L'épée était silencieuse, mais le monde changea de couleur, comme si l'espace lui-même allait être tranché en deux. L'expression du Grand Empyréen Jiu Di se crispa. Ses mains formèrent des sceaux et un soleil blanc apparut. Ce soleil blanc trônait dans le ciel aux côtés du soleil pourpre. Un loup blanc jaillit de l'astre blanc et poussa un hurlement vers l'épée dorée!
 
-Simultanément, les mains du Grand Empyréen Gémeaux formèrent des sceaux et la lumière pourpre enveloppa le monde. Des bambous violets apparurent derrière elle, se transformant instantanément en une forêt de bambou pourpre. Tous ces bambous s'élancèrent dans les airs pour foncer sur l'épée dorée.
+Simultanément, les mains du Grand Empyréen Gémeaux formèrent des sceaux et la lumière pourpre enveloppa le monde. Des bambous pourpres apparurent derrière elle, se transformant instantanément en une forêt de bambou pourpre. Tous ces bambous s'élancèrent dans les airs, comme si dix mille épées jaillissaient à la fois, pour foncer sur l'épée dorée.
 
 « Dao Yi, Wu Feng, si vous n'agissez pas maintenant, quand le ferez-vous?! » rugit Jiu Di alors que le loup blanc bondissait en avant. Un changement stupéfiant survint sur les flancs de l'Empereur Céleste!
 
@@ -94,13 +94,13 @@ L'expression de l'Empereur Céleste était sombre lorsqu'il répondit lentement:
 
 L'objectif du Grand Empyréen Gémeaux était limpide. Elle fixa l'Empereur Céleste et dit calmement: « Libère Wang Lin! Et je partirai! »
 
-Jiu Di regarda la tête de l'Ancêtre Céleste et déclara lentement: « Ce vieil homme espère que l'Empereur Céleste resellera le crâne qui opprime les esprits des 72 continents du clan céleste. Ce crâne est crucial pour notre clan, et ce n'est pas un objet qu'un Empereur Céleste devrait détenir! »
+Jiu Di regarda la tête de l'Ancêtre Céleste et déclara lentement: « Ce vieil homme espère que l'Empereur Céleste rescellera le crâne qui opprime les esprits des 72 continents du clan céleste. Ce crâne est crucial pour notre clan, et ce n'est pas un objet qu'un Empereur Céleste devrait détenir! »
 
-« Mes pensées rejoignent celles de Jiu Di! Empereur Céleste, maintenir l'équilibre des pouvoirs que nous partagions entre nous cinq est la meilleure chose à faire; il n'y a aucune raison de le changer! » dit Dao Yi d'un ton lugubre. Il contemplait la tête de l'Ancêtre Céleste sous l'Empereur avec effroi.
+« Mes pensées rejoignent celles de Jiu Di! Empereur Céleste, maintenir l'équilibre des pouvoirs que nous partagions entre nous cinq est la meilleure chose à faire; il n'y a aucune raison de le changer! » dit Dao Yi d'un ton lugubre. Il contemplait la tête de l'Ancêtre Céleste sous l'Empereur avec appréhension.
 
 Wu Feng réfléchit un instant et ajouta: « C'est aussi ce que je désire! »
 
-L'Empereur Céleste se mit à rire, d'un rire glacial. Il leva la main, provoquant un changement d'expression chez Dao Yi et Wu Feng. Il pressa sa main contre sa poitrine et du sang doré jaillit de sa bouche. Les yeux de l'Ancêtre Céleste révélèrent une lumière dorée monstrueuse et il ouvrit la bouche pour libérer davantage de clarté. Même ses oreilles et son nez émettaient une lumière dorée infinie.
+L'Empereur Céleste se mit à rire, d'un rire glacial. Il leva la main, provoquant un changement d'expression chez Dao Yi et Wu Feng. Il pressa sa main contre sa poitrine et du sang doré jaillit de sa bouche. Les yeux de l'Ancêtre Céleste révélèrent une lumière dorée monstrueuse et il ouvrit la bouche pour libérer davantage de clarté. Ses sept orifices, oreilles et nez compris, émettaient une lumière dorée infinie.
 
 Cette radiance se propagea soudainement, formant une onde dorée. Cela fit changer le visage de Gémeaux et des autres, qui furent tous forcés de reculer.
 

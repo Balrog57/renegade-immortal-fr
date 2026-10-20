@@ -24,7 +24,7 @@ Une douleur intense submergea Wang Lin. Si cela avait été n'importe qui d'autr
 
 L'épée de sang étincela et frappa sa cible. Au moment où elle s'approchait, la main tenta de la saisir, mais l'épée de sang la transperça directement!
 
-Un gémissement faible et délicat retentit alors que la main était tranchée en deux, se dissipant dans le monde comme si elle n'avait jamais existé. Le jade qui siégeait devant la femme en blanc vola en poussière...
+Un gémissement faible et délicat retentit alors que la main était tranchée en deux, se dissipant dans le monde comme si elle n'avait jamais existé. Le pendentif de jade devant la femme en blanc éclata en fragments...
 
 La femme en blanc devint livide et cracha du sang. Elle recula précipitamment et fusionna avec le monde pour s'échapper!
 
@@ -44,7 +44,7 @@ Wang Lin continua de fusionner avec le monde pour la traquer et entamer sa chass
 
 Des ondulations résonnèrent parmi les étoiles du Système Stellaire Antique tandis que la femme en blanc surgissait, titubante. Son visage trahissait une panique rare; elle était sur le point de se téléporter loin d'ici.
 
-Cependant, son expression changea brusquement. Elle serra les dents et choisit de fusionner avec le monde pour s'échapper. Dès qu'elle disparut, des ondulations apparurent et la silhouette de Wang Lin jaillit. Il ne choisit pas d'apparaître, mais disparut à son tour.
+Cependant, son expression changea brusquement. Elle serra les dents et choisit de fusionner avec le monde pour s'échapper. Dès qu'elle disparut, des ondulations apparurent et la silhouette de Wang Lin jaillit. Il ne se montra pas, mais fit discrètement un pas en avant avant de disparaître à son tour.
 
 Leur poursuite fut brève mais intense. En moins de quinze minutes, ils se croisèrent plusieurs fois, les intervalles entre leurs apparitions devenant de plus en plus courts. La femme était extrêmement anxieuse, la pression exercée par Wang Lin devenait insupportable.
 

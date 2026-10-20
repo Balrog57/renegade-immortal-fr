@@ -40,13 +40,13 @@ Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que
 
 « Qu'a donc découvert ce Cupidité... » Les yeux de Wang Lin s'illuminèrent.
 
-« Malheureusement, à cause de lui, j'ai perdu l'occasion de continuer à collecter l'énergie d'épée de Ling Tianhou. Cependant, je ne peux pas précipiter les choses non plus. » Wang Lin ricana en utilisant la téléportation supérieure pour s'éloigner.
+« Malheureusement, à cause de lui, j'ai perdu l'occasion de continuer à collecter l'énergie d'épée de Ling Tianhou. Cependant, je ne peux pas précipiter les choses non plus. » Wang Lin ricana en utilisant la grande téléportation pour s'éloigner.
 
 « Cette guerre qui se déroule sous mes yeux est ma meilleure chance de collecter l'énergie de la boucherie, je ne peux pas la laisser passer. Mais je n'ai que la force d'un seul homme. Cette chose... Oui, je devrais procéder ainsi! » Le regard de Wang Lin devint glacial avant qu'il ne disparaisse.
 
 Wang Lin ne prit pas part à la bataille du Pays des Démons de Feu. Il se téléporta pendant plusieurs jours jusqu'au Tribu de l'Affinement de l'Âme, dans le Pays du Démon Céleste. Après dix ans de développement, le Tribu de l'Affinement de l'Âme avait pris une forme solide; il était devenu l'un des quatre plus grands clans des terres sauvages.
 
-Le retour de Wang Lin provoqua une immense excitation au sein du clan. Bien que beaucoup n'eussent jamais vu son visage, la rumeur avait fait de lui une figure légendaire, semblable à un Démon Antique. Tous le vénéraient en leur for intérieur. Cette vallée était devenue leur terre sacrée!
+Le retour de Wang Lin provoqua une immense excitation au sein du clan. Bien que beaucoup n'eussent jamais vu son visage, la rumeur avait fait de lui une figure légendaire, semblable à l'Ancien Démon. Tous le vénéraient en leur for intérieur. Cette vallée était devenue leur terre sacrée!
 
 Dès son retour, Wang Lin convoqua rapidement Treize et Ouyang Hua pour rassembler dix mille membres du clan. Il distribua une parcelle d'énergie de la boucherie à chacun d'eux. Chaque fois que ces membres tuaient quelqu'un, la vitalité de leur victime était absorbée par cette parcelle d'énergie. Plus ces dix mille individus massacraient, plus l'énergie de la boucherie en leur sein se renforçait. Elle pouvait même se transformer en sceaux de vie pour protéger ces guerriers lors de crises majeures.
 
@@ -54,7 +54,7 @@ Ces dix mille hommes furent ensuite envoyés dans le conflit du Pays des Démons
 
 Dix mille personnes ne représentaient pas grand-chose dans une guerre impliquant des dizaines de millions de soldats démons. Wang Lin en était conscient, c'est pourquoi il envoya également Ouyang Hua et Treize. Il leur remit des trésors et leur donna trois mois pour mener le reste du clan à dévorer les trois autres tribus restantes!
 
-Il passa ce temps dans la vallée, continuant à graver son empreinte sur le démon dispersé en lui. Il utilisa le reste de ses jours pour réparer le drapeau de restriction.
+Il passa ce temps dans la vallée, continuant à graver son empreinte sur le démon dispersé en lui. Il utilisa le temps qui lui restait pour réparer le drapeau de restriction.
 
 Trois mois passèrent rapidement. Grâce aux trésors confiés par Wang Lin, Treize et Ouyang Hua réussirent à dévorer les trois tribus une à une. Un grand nombre de membres de tribus étrangères furent contraints de boire la soupe d'effacement de mémoire pour devenir membres du Tribu de l'Affinement de l'Âme.
 
@@ -62,7 +62,7 @@ Pour ces nouveaux membres n'ayant jamais pratiqué le sort d'affinement de l'âm
 
 Ensuite, Wang Lin propagea son énergie de la boucherie pour la fusionner avec ces personnes. C'est ainsi qu'une seconde vague de trente mille hommes fut envoyée au Pays des Démons de Feu!
 
-Le Tribu de l'Affinement de l'Âme comptait désormais encore de nombreux membres. Wang Lin utilisa à plusieurs reprises la téléportation supérieure pour déplacer tout le monde hors des terres sauvages, choisissant comme nouveau lieu l'ancien champ de bataille où résidaient les démons dispersés.
+Le Tribu de l'Affinement de l'Âme comptait désormais encore de nombreux membres. Wang Lin utilisa à plusieurs reprises la grande téléportation pour déplacer tout le monde hors des terres sauvages, choisissant comme nouveau lieu l'ancien champ de bataille où résidaient les démons dispersés.
 
 Wang Lin utilisa un sort pour ériger une haute tour là où se trouvait autrefois la tour des démons, puis s'installa en position du lotus à l'intérieur. Quant aux membres du clan, ils commencèrent leur nouvelle vie ici. De nombreuses maisons simples furent construites et, bientôt, un nouveau clan vit le jour!
 
@@ -72,7 +72,7 @@ Après que les trois grandes armées du Pays du Démon Céleste eurent ouvert la
 
 Durant cette période, des vagues de membres du Tribu de l'Affinement de l'Âme, imprégnés de l'énergie de la boucherie de Wang Lin, rejoignirent les combats. Parallèlement, le clan continuait de croître, et les tribus sauvages du Pays des Démons de Feu étaient devenues leurs cibles privilégiées.
 
-Wang Lin semblait avoir oublié la guerre au Pays des Démons de Feu. Il passa ces dix ans à cultiver dans sa tour, gravant son empreinte sur le démon dispersé. Il se préparait! Il se préparait à devenir encore plus puissant avant l'expiration du délai de cent ans, car c'était la seule façon d'honorer l'accord passé avec le Démon Antique.
+Wang Lin semblait avoir oublié la guerre au Pays des Démons de Feu. Il passa ces dix ans à cultiver dans sa tour, gravant son empreinte sur le démon dispersé. Il se préparait! Il se préparait à devenir encore plus puissant avant l'expiration du délai de cent ans, car c'était la seule façon d'honorer l'accord passé avec l'Ancien Démon.
 
 Cette culture incessante permit au stade initial Ascendant de Wang Lin de devenir encore plus stable. Il sentait que, bien qu'une partie de l'énergie de la boucherie envoyée disparaisse, une quantité toujours plus grande croissait chaque jour. Quant aux membres du clan, plus ils massacraient, plus leur énergie de la boucherie se renforçait, garantissant ainsi leur survie et augmentant leur puissance.
 

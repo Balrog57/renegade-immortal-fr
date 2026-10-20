@@ -24,7 +24,7 @@ Il y avait au total cinq sectes dans la région de rang 8: la Secte Éternelle, 
 
 Ce festival sacré n'était pas une bataille chaotique et totale. Les sectes étaient divisées par régions, et les plus puissantes des régions de rang quatre à sept étaient sélectionnées. Bien sûr, elles pouvaient également défier des sectes de rang supérieur; ce fut le cas il y a 1 000 ans, lorsque la Secte du Dao Pourpre défia une secte de rang 6. Bien qu'elles aient échoué, leur défaite fut glorieuse, car elle avait attiré l'attention de la Secte Éternelle de rang 8.
 
-Chaque grande compétition des sectes de rang 8 se déroulait en présence d'un membre d'une secte de rang 9. Si des disciples les enchantaient, ils les recrutaient directement sur-le-champ. Bien que les sectes de rang 8 s'en sentent impuissantes, elles ne pouvaient rien refuser.
+Chaque grande compétition des sectes de rang 8 se déroulait en présence d'un membre d'une secte de rang 9. Si des disciples leur plaisaient, ils les recrutaient directement sur-le-champ. Bien que les sectes de rang 8 s'en sentent impuissantes, elles ne pouvaient rien refuser.
 
 Le paradoxe, à la fois chanceux et triste, était que très peu de personnes attiraient l'attention des sectes de rang 9. Au cours des 10 000 dernières années, seules trois personnes avaient captivé leur intérêt.
 
@@ -56,7 +56,7 @@ L'un des vieillards dit amèrement: « Les trois autres sectes restantes sont to
 
 Alors que les trois étaient plongés dans leurs pensées, une aura oppressante envahit la pièce. Soudain, un hurlement strident déchira le ciel et la terre. Ce rugissement força immédiatement les trois hommes à lever les yeux.
 
-Un morceau de jade traversa la barrière protectrice du continent et le toit du bâtiment. Il descendit des cieux pour atterrir juste entre les trois vieillards. Une aura extrêmement puissante se propagea soudainement depuis le jade, remplissant la salle. Elle s'étendit sur toute la Secte de la Grande Ourse, faisant trembler l'édifice tout entier.
+Un morceau de jade traversa la barrière protectrice de la secte et le toit du bâtiment. Il descendit des cieux pour atterrir juste entre les trois vieillards. Une aura extrêmement puissante se propagea soudainement depuis le jade, remplissant la salle. Elle s'étendit sur toute la Secte de la Grande Ourse, faisant trembler l'édifice tout entier.
 
 Face à cette puissance, les expressions des trois anciens changèrent radicalement. Ils se levèrent un à un, fixant le jade, l'esprit vacillant. La peur envahit leurs cœurs alors que cette aura leur faisait ressentir la force d'un sort de Briseur du Nirvana.
 
@@ -70,7 +70,7 @@ Simultanément, une voix arrogante émana du jade et résonna dans la salle.
 
 « Ce vieil homme a-t-il prononcé un seul mensonge? »
 
-« Tout ce que le Senior a dit est exact. Qui êtes-vous, Senior? » Les trois étaient sous le choc. Chaque détail prononcé par cette voix était d'une précision chirurgicale; certains faits étaient même des souvenirs qu'ils avaient oubliés, et pourtant cet inconnu les connaissait parfaitement. De plus, l'aura du Briseur du Nirvana les terrassait au point de leur faire perdre la raison.
+« Tout ce que le Senior a dit est exact. Qui êtes-vous, Senior? » Les trois étaient sous le choc. Chaque détail prononcé par cette voix était d'une précision chirurgicale; certains faits étaient même des souvenirs qu'ils avaient oubliés, et pourtant cet inconnu les connaissait parfaitement. De plus, l'aura du Briseur du Nirvana les terrassait au point qu'ils eurent l'impression que leur âme se dispersait.
 
 « Le nom de ce vieil homme est Liu Jinbiao! Nom Dao: Maître du Tigre d'Or! »
 
@@ -98,6 +98,6 @@ Tandis que Liu Jinbiao déployait sa puissance, sur un continent sauvage situé 
 
 Wang Lin s'écrasa au sol. Son visage était livide et il cracha une bouchée de sang. Cependant, son Sens Divin se propagea instantanément pour verrouiller la fissure sous le continent sauvage qui menait au Royaume aux Sept Couleurs.
 
-Cette fissure n'était plus multicolore. Sous l'observation du Sens Divin de Wang Lin, elle s'effondra rapidement avant de disparaître. Voyant cela, une incertitude envahit Wang Lin, avant que son regard ne se pose sur le bracelet de jade. Le bracelet ne diffusait plus de lueur bleue; il était redevenu d'un vert émeraude.
+Cette fissure n'était plus multicolore. Sous l'observation du Sens Divin de Wang Lin, elle se referma rapidement avant de disparaître. Voyant cela, une incertitude envahit Wang Lin, avant que son regard ne se pose sur le bracelet de jade. Le bracelet ne diffusait plus de lueur bleue; il était redevenu d'un vert émeraude.
 
 Après un long moment, Wang Lin leva la tête vers le Système Stellaire de la Mer des Nuages et murmura: « Je suis de retour! »

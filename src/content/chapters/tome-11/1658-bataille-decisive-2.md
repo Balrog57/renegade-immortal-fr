@@ -28,7 +28,7 @@ Tous les cultivateurs du Royaume Intérieur jaillirent de la formation planétai
 
 Son objectif était de massacrer tous les cultivateurs de la troisième étape présents ici!
 
-Son regard balaya la foule; parmi les centaines de milliers de combattants, la première personne que Wang Lin vit fut la concubine impériale céleste à la harpe! Cette femme avait utilisé le Sortilège des Cinq Enterrements pour infliger une douleur atroce à Wang Lin autrefois. Il se souvenait encore de ses cinq organes internes flétrissant pour devenir une eau noire. Cette souffrance suffisait à engendrer une haine profonde. Wang Lin fit abstraction de son identité et de sa beauté; elle devait mourir!
+Son regard balaya la foule; parmi les centaines de milliers de combattants, la première personne que Wang Lin vit fut la concubine impériale céleste à la harpe! Cette femme avait utilisé le Sortilège des Cinq Viscères pour infliger une douleur atroce à Wang Lin autrefois. Il se souvenait encore de ses cinq organes internes flétrissant pour devenir une eau noire. Cette souffrance suffisait à engendrer une haine profonde. Wang Lin fit abstraction de son identité et de sa beauté; elle devait mourir!
 
 D'un seul pas, Wang Lin se changea en un rayon de lumière et pénétra dans l'armée du Royaume Extérieur. Il fendit les rangs, provoquant un fracas monstrueux. Quiconque se trouvait sur son passage s'effondrait et mourait. En avançant, Wang Lin laissait derrière lui un sillage sanglant!
 
@@ -56,7 +56,7 @@ D'un pas, l'espace lui-même gronda sous l'écho des ondes sonores incessantes. 
 
 Voyant Wang Lin approcher, la concubine impériale céleste devint livide. Sans hésiter, ses mains formèrent un sceau et elle frappa la harpe. L'instrument résonna avec fracas, libérant cinq ondes sonores.
 
-« Sortilège des Cinq Enterrements: cœur, foie, rate, poumons, rein! » La concubine impériale poussa un cri strident. Elle leva la main droite et pressa sa puissance vers Wang Lin!
+« Sortilège des Cinq Viscères: cœur, foie, rate, poumons, rein! » La concubine impériale poussa un cri strident. Elle leva la main droite et pressa sa puissance vers Wang Lin!
 
 Sous cette pression, le corps de Wang Lin trembla et une douleur fulgurante l'assaillit. Cependant, il n'était plus le même homme qu'autrefois. Il était désormais un cultivateur du stade intermédiaire du Vide Spirituel et, avec son corps d'Ancien Dieu, il pouvait terrasser des cultivateurs du Vide Arcanique!
 
@@ -70,7 +70,7 @@ Instantanément, ce coup illusoire percuta la concubine et entra en collision av
 
 Un fracas assourdissant secoua le champ de bataille. Le coup illusoire se brisa, révélant la concubine impériale en pleine retraite, toussant du sang.
 
-Du sang jaillit également du coin de la bouche de Wang Lin. Cette fois, il combattait le corps originel de la concubine, et non une simple ombre comme auparavant. Elle était une intruse, une habitante du Continent des Immortels Célestes!
+Du sang jaillit également du coin de la bouche de Wang Lin. Cette fois, il combattait le corps originel de la concubine, et non une simple ombre comme auparavant. Elle était une intruse, une habitante du Continent Astral Immortel!
 
 La concubine impériale essuya le sang sur ses lèvres, la terreur dans ses yeux s'intensifiant. Elle chérissait sa vie plus que quiconque. Elle savait qu'elle n'était pas de ce monde; ceci n'était qu'un monde caverneux, et son statut était bien supérieur à cette simple grotte. Plus elle y pensait, plus elle craignait la mort.
 
@@ -106,7 +106,7 @@ L'empreinte d'une paume géante fonça sur la concubine dès son apparition.
 
 L'expression de celle-ci changea radicalement et elle forma précipitamment un sceau pour rassembler l'énergie céleste. Une ombre vague se dessina devant elle, mais avant qu'elle ne puisse prendre forme, la voix de Wang Lin pénétra son esprit:
 
-« Cultivatrice du Continent des Immortels Célestes. Concubine du Maître de la Secte des Sept Dao. Penses-tu que je ne sache rien? »
+« Cultivatrice du Continent Astral Immortel. Concubine du Maître de la Secte des Sept Dao. Penses-tu que je ne sache rien? »
 
 La vérité étant exposée, le sort de la concubine vacilla un instant. Ses yeux se remplirent d'incrédulité; elle n'aurait jamais imaginé que Wang Lin soit au courant!
 

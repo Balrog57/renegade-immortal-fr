@@ -42,7 +42,7 @@ Après la mort de Xu Fenghan, son corps s'était dissipé. Le sens divin de Wang
 
 Il fixa le lotus démoniaque, les yeux étincelants. Cet objet ne pouvait pas quitter la rivière des enfers trop longtemps sous peine de disparaître; seule sa présence dans les eaux de la rivière permettait de ralentir sa dissipation.
 
-À cet instant, la flamme démoniaque s'était déjà éteinte, ne laissant derrière elle qu'un lotus terne et livide ainsi que son socle. La main de Wang Lin forma un sceau et l'énergie spirituelle céleste se concentra dans son regard.
+À cet instant, la flamme démoniaque s'était déjà éteinte, ne laissant derrière elle qu'un lotus terne et sans éclat, ainsi que son socle. La main de Wang Lin forma un sceau et l'énergie spirituelle céleste se concentra dans son regard.
 
 Il scruta le lotus!
 

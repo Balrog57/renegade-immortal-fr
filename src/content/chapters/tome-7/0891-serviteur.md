@@ -58,17 +58,17 @@ Il cracha violemment une bouchée de sang. Ce sang n'était pas projeté au hasa
 
 Chaque goutte contenait une puissante énergie spirituelle céleste. Si ce sang touchait le corps de Wang Lin, celui-ci s'effondrerait sur-le-champ! Après tout, la culture du garçon à la grosse tête n'était pas dérisoire: c'était un cultivateur de la deuxième étape, au stade Scruteur du Nirvana!
 
-L'expression de Wang Lin resta neutre; il ne chercha même pas à esquiver. Alors que le sang frais approchait, il murmura doucement: « Lier! »
+L'expression de Wang Lin resta neutre; il ne chercha même pas à esquiver. Alors que le sang frais approchait, il murmura doucement: « Arrête! »
 
-Grâce à sa culture au stade Scruteur du Nirvana, le sort de Liaison était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, l'origine céleste laissée par Qing Shui, devenue haricot céleste dans son corps, tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde!
+Grâce à sa culture au stade Scruteur du Nirvana, le sort d'Arrêt était bien plus puissant qu'auparavant. De plus, au moment où Wang Lin l'utilisa, l'origine céleste laissée par Qing Shui, devenue haricot céleste dans son corps, tourna frénétiquement, libérant une trace d'énergie originelle céleste dans ce monde!
 
-Cela permit instantanément au sort de Liaison d'atteindre un niveau de puissance inédit depuis que Wang Lin l'avait appris!
+Cela permit instantanément au sort d'Arrêt d'atteindre un niveau de puissance inédit depuis que Wang Lin l'avait appris!
 
 D'un seul mot, tout le sang projeté vers lui fut figé en plein air. Non seulement le sang, mais même le garçon à la grosse tête, qui tentait de s'enfuir, se retrouva pétrifié, les yeux écarquillés par la peur.
 
 Du début à la fin, Wang Lin demeura serein. Il esquiva le sang et sa main fendit l'air comme l'éclair pour frapper entre les sourcils du garçon.
 
-Le corps de ce dernier trembla violemment sous l'impact tandis qu'il était projeté au loin, des craquements sinistres résonnant dans ses os. Le sort de Liaison ne s'était pas encore dissipé quand Wang Lin fit un pas pour le poursuivre.
+Le corps de ce dernier trembla violemment sous l'impact tandis qu'il était projeté au loin, des craquements sinistres résonnant dans ses os. Le sort d'Arrêt ne s'était pas encore dissipé quand Wang Lin fit un pas pour le poursuivre.
 
 Cependant, à cet instant précis, son expression changea: des rayons d'énergie d'épée descendirent du ciel. C'étaient les cultivateurs de Luotian qui, ayant pressenti une anomalie, avaient percé l'atmosphère pour descendre avec une puissance colossale.
 
@@ -90,7 +90,7 @@ Menés par quelques individus, tous les cultivateurs de Luotian suivirent le mou
 
 Ce revirement soudain fit comprendre à tous les cultivateurs de la planète Suzaku que l'ancêtre de leur monde, Wang Lin, jouissait d'un rang extrêmement élevé parmi les puissants de Luotian!
 
-Wang Lin atterrit au fond du cratère et fixa le garçon à la grosse tête. Le sort de Liaison venait de prendre fin; le visage du garçon était livide, couvert de sang, ses yeux pétris de terreur alors qu'il contemplait Wang Lin.
+Wang Lin atterrit au fond du cratère et fixa le garçon à la grosse tête. Le sort d'Arrêt venait de prendre fin; le visage du garçon était livide, couvert de sang, ses yeux pétris de terreur alors qu'il contemplait Wang Lin.
 
 Wang Lin le regarda avec froideur. Il leva la main et une lueur verdâtre en jaillit. Des nuages d'orage commencèrent à s'amonceler dans le ciel de la planète Suzaku, et des éclairs crépitaient entre les masses nuageuses. Puis, comme s'ils étaient soumis à sa volonté, tous les éclairs convergèrent vers la main droite de Wang Lin.
 

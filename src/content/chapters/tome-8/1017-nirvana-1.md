@@ -44,7 +44,7 @@ D'innombrables quantités de sable, provenant d'encore plus loin, semblaient con
 
 La progression du sable était trop rapide; il venait de tous côtés comme pour dévorer Wang Lin. Vu d'en haut, on aurait dit que des vagues de sable convergeaient pour l'engloutir.
 
-L'expression de Wang Lin changea et il cracha un objet. Les 18 Tampons Célestes de Scellement de l'Enfer s'envolèrent, se transformant en une petite montagne. Il cria alors: « Arsenal Magique! » en agitant sa main droite.
+L'expression de Wang Lin changea et il cracha un objet. Les Sceaux Célestes des 18 Enfers s'envolèrent, se transformant en une petite montagne. Il cria alors: « Arsenal Magique! » en agitant sa main droite.
 
 Un cri fantomatique résonna dans le ciel et des éclats de lumière remplirent le monde. D'innombrables âmes apparurent, y compris l'âme de l'Ancêtre Sanguin.
 
@@ -62,7 +62,7 @@ Ming Hai garda un visage calme et pointa l'espace entre ses sourcils. Un éclair
 
 Cette épée était d'un blanc immaculé et, dès son apparition, elle libéra une énergie tranchante terrifiante. Cette puissance était si grande qu'elle semblait pouvoir déchirer le ciel!
 
-« Cette épée m'a été offerte par l'Empereur Céleste. Elle se nomme Fang Zhu! » Une pointe de mélancolie perçait dans la voix de Ming Hai alors qu'il lançait la petite arme.
+« Cette épée m'a été offerte autrefois par l'Empereur Céleste. Elle se nomme Fang Zhu! » Une pointe de mélancolie perçait dans la voix de Ming Hai alors qu'il lançait la petite arme.
 
 Un éclat blanc jaillit lorsque l'épée vola. Sa vitesse était telle qu'elle ne formait plus qu'une ligne blanche fonçant sur Wang Lin.
 
@@ -96,13 +96,13 @@ Bien que Wang Lin ait hérité de nombreux sorts de Dieu Ancien, un Dieu Ancien 
 
 Ce sort représentait la limite de puissance qu'un Dieu Ancien à 5 étoiles pouvait déployer: il s'appelait Esprit de Mérite!
 
-Plutôt que de viser l'épée blanche, le sort visait directement Ming Hai. Les yeux de Wang Lin prirent une lueur spectrale alors qu'il projetait le sceau vers l'avant. Une immense quantité de puissance de Dieu Ancien emplit son corps et se concentra rapidement sur le sceau entre ses mains.
+Plutôt que de viser l'épée blanche, le sort visait directement Ming Hai. Les yeux de Wang Lin prirent une lueur spectrale alors qu'il projetait le sceau vers l'avant. Une immense quantité de puissance de Dieu Ancien emplit son corps, s'écoula en grande partie par son front, puis se concentra rapidement sur le sceau entre ses mains.
 
 « Voler le mérite des cieux! »
 
 À cet instant, le monde entier bascula. Le ciel sombre sembla être déchiré par une paire de mains gigantesques. Tout le sable environnant fut instantanément repoussé par une onde de choc, permettant aux âmes de l'Arsenal Magique de charger.
 
-Dans le ciel étoilé infini à l'extérieur de la cinquième grotte et de la Terre des Esprits Démoniaques, le monde changea, et une énergie originelle infinie commença à converger. Cette énergie perça le vortex des marées de la Mer de l'Est pour s'y engouffrer.
+Dans le ciel étoilé infini à l'extérieur de la cinquième grotte et de la Terre des Esprits Démoniaques, le monde changea, et de fins filaments d'énergie originelle commencèrent à converger. Cette énergie perça le vortex des marées de la Mer de l'Est pour s'y engouffrer.
 
 Elle traversa tout ce qui se trouvait dans la Terre des Esprits Démoniaques et s'engouffra dans la cinquième grotte, via la formation des Neuf Dragons!
 

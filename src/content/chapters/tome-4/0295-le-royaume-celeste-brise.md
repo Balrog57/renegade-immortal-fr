@@ -12,7 +12,7 @@ Le corps de Wang Lin s'élança et il chargea dans l'un d'eux, disparaissant pro
 
 Une lumière aveuglante lui brûla les yeux et il eut l'impression de tomber du ciel. Cependant, il se força à garder les yeux ouverts et vit une scène qu'il n'oublierait jamais.
 
-Sous lui, des fragments dorés étaient éparpillés comme un miroir tombé au sol et brisé en mille morceaux.
+Sous lui, des fragments scintillants étaient éparpillés comme un miroir tombé au sol et brisé en mille morceaux.
 
 Le Royaume Céleste ressemblait à un miroir fracassé. Maintenant que toute l'énergie spirituelle céleste s'était évaporée, il n'en restait qu'une infime quantité dans certains fragments seulement.
 
@@ -22,7 +22,7 @@ Dès son arrivée, il frappa rapidement sa sacoche de rangement et une cloche de
 
 Une fois au sol, Wang Lin regarda autour de lui et fut frappé de stupeur.
 
-Le terrain ne présentait aucun signe de vie. Il n'y avait que de l'herbe morte. Au loin, le sommet d'une montagne avait été tranché en deux. La coupe était si lisse qu'il était évident qu'elle avait été faite par une main capable de tout fendre.
+Le terrain ne présentait aucun signe de vie. Il n'y avait que de l'herbe morte. Au loin, le sommet d'une montagne avait été tranché en deux. La coupe était si lisse qu'il était évident qu'elle avait été faite par une puissance capable de tout fendre.
 
 Au pied de la montagne gisaient quelques palais, mais ils n'étaient plus que ruines. L'autre moitié du sommet s'était effondrée sur les édifices. De loin, l'ensemble ressemblait à une immense montagne reliée à une plus petite.
 
@@ -48,7 +48,7 @@ Bien que Wang Lin eût déjà vu des édifices faits de pierres spirituelles pur
 
 Wang Lin ne pouvait même pas distinguer la fin du complexe de palais au loin. Rien qu'en observant les ruines, on pouvait deviner la splendeur incroyable de cet endroit avant sa destruction.
 
-Cependant, après toutes ces années, ces pierres spirituelles avaient perdu toute leur énergie. En réalité, beaucoup d'entre elles se transformeraient en poussière à la moindre caresse.
+Cependant, après toutes ces années, ces pierres spirituelles avaient perdu toute leur énergie. En réalité, beaucoup d'entre elles se transformeraient en poussière au moindre contact.
 
 Wang Lin laissa échapper un soupir. « Alors, c'est donc cela, le Royaume Céleste... »
 

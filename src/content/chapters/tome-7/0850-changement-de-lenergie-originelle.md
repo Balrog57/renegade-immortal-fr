@@ -54,7 +54,7 @@ Le visage du vieil homme Xie était marqué par l'amertume, mais ses yeux brilla
 
 « Les humains sont les poissons, les cieux sont l'eau, le dao est le filet, et celui qui tient le filet est le Créateur! » Ce jour-là, il atteignit enfin le sommet. Là, il vit un homme en pleine culture, dont le regard semblait contenir l'univers entier.
 
-Bien que le vieil homme Xie fût épuisé et que le sang sur ses genoux ait coagulé, cet instant fut pour lui comme un coup de tonnerre. Un rugissement retentit dans son corps, lui donnant l'impression que son âme quittait son enveloppe charnelle. Pendant un instant, il crut voir une image yin et yang en noir et blanc. Il s'agenouilla immédiatement, tel un adorateur.
+Bien que le vieil homme Xie fût épuisé et que le sang sur ses genoux ait coagulé, cet instant fut pour lui comme un coup de tonnerre. Un grondement résonna à ses oreilles, lui donnant l'impression que son âme quittait son enveloppe charnelle. Pendant un instant, il crut voir une image yin et yang en noir et blanc. Il s'agenouilla immédiatement, tel un adorateur.
 
 « Veuillez m'enseigner le dao! »
 
@@ -70,7 +70,7 @@ Le vieil homme Xie regarda Wang Lin, les yeux empreints de détermination: « À
 
 « Cependant, ce vent qui a pénétré ma chambre m'a permis de trouver la source de ce brouillard. Qu'est-ce que le dao...? L'illumination au bord de la rivière a fait lutter en moi une force qui me poussait à venir ici, même si je devais mourir, pour... trouver le dao! Veuillez m'enseigner le dao! Acceptez-moi comme disciple! »
 
-Le regard de Wang Lin se posa sur Xie Qing. Il scruta les yeux du vieil homme comme s'il pouvait lire dans son esprit. Il entrevint vaguement une scène de réincarnation derrière lui!
+Le regard de Wang Lin se posa sur le vieil homme Xie. Il scruta les yeux du vieil homme comme s'il pouvait lire dans son esprit. Il entrevint vaguement une scène de réincarnation derrière lui!
 
 Après un long moment, Wang Lin détourna le regard et demanda calmement: « Quel est votre nom? »
 
@@ -78,7 +78,7 @@ Le vieil homme prit une grande inspiration: « Xie Qing! »
 
 « Durant toute ma vie, je n'ai jamais eu de disciples. Puisque votre illumination est une cause karmique que j'ai moi-même engendrée, je peux vous accepter comme disciple honorifique! Je vous confie cette montagne pour un temps afin de cultiver. Je ne vous enseignerai aucun sortilège; je ne vous offrirai qu'une chance de compréhension! » Wang Lin leva la main droite et pointa l'avant. Les poissons yin et yang se mirent soudain à tourner. Ils semblèrent pénétrer le doigt de Wang Lin avant de s'insérer entre les sourcils de Xie Qing.
 
-Le corps de Xie Qing trembla. Ses yeux, emplis de confusion, s'éteignirent alors qu'il s'effondrait au sol.
+Le corps de Xie Qing trembla. Ses yeux se remplirent de confusion alors qu'il s'effondrait au sol.
 
 Wang Lin jeta un dernier regard sur Xie Qing avant d'agiter ses manches. Une épaisse brume blanche émana sous ses pieds et il disparut au loin.
 

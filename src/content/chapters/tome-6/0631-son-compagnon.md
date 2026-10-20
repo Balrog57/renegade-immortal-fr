@@ -16,7 +16,7 @@ Lorsqu'il avait touché l'os, il était entré dans un état mystérieux. Après
 
 Le temps s'écoula et plusieurs mois supplémentaires passèrent. Ce jour-là, Wang Lin ouvrit les yeux.
 
-Au moment où ses paupières s'ouvrirent, une lueur dorée jaillit de ses pupilles. Son aura actuelle était bien différente de celle qu'il arborait avant de se rendre au Pays des Démons de Feu. Il ressemblait désormais davantage à un érudit mortel. On aurait dit qu'aucune énergie spirituelle céleste ne résidait plus en lui, le faisant paraître comme une personne ordinaire.
+Au moment où ses paupières s'ouvrirent, un éclat vif jaillit de ses pupilles. Son aura actuelle était bien différente de celle qu'il arborait avant de se rendre au Pays des Démons de Feu. Il ressemblait désormais davantage à un érudit mortel. On aurait dit qu'aucune énergie spirituelle céleste ne résidait plus en lui, le faisant paraître comme une personne ordinaire.
 
 Pourtant, un parfum émanait de son corps, dégageant une sensation de raffinement.
 

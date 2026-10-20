@@ -86,7 +86,7 @@ Aux yeux de Wang Lin, son sexe n'avait plus d'importance. Après tout, leur rela
 
 Cette nuit-là, Wang Lin était très heureux. Leurs paroles respectives résonnaient dans la cour. Bien que sa voix fût rauque, elle lui semblait toujours être le rire cristallin d'une cloche d'il y a mille ans.
 
-Même la fraîcheur du vent d'automne sembla se dissiper pour devenir un souffle printanier et chaleureux.
+Vieillesse vacillante comme une bougie au vent, sur une route inconnue, un vieil ami est venu. Même la fraîcheur du vent d'automne sembla se dissiper pour devenir un souffle printanier et chaleureux.
 
 La lueur lunaire s'estompa progressivement tandis qu'une blancheur apparut à l'horizon, comme si les yeux des cieux s'ouvraient lentement.
 

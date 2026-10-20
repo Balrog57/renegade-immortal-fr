@@ -10,7 +10,7 @@ La bibliothèque de la montagne de l'Affinement de l'Âme n'était pas vaste; el
 
 De loin, cette bibliothèque semblait tout à fait ordinaire. Lorsque Wang Lin pénétra à l'intérieur, son regard se posa sur un vieil homme assis au centre. Ce dernier était très proche du stade de l'Âme Naissante; il n'était plus qu'à une étape.
 
-Le visage du vieil homme était livide, son corps chétif et il paraissait épuisé. Lorsqu'il remarqua l'intrusion, il ouvrit les yeux et lança: « Jeton! »
+Le visage du vieil homme était jaunâtre, son corps chétif et il paraissait épuisé. Lorsqu'il remarqua l'intrusion, il ouvrit les yeux et lança: « Jeton! »
 
 Wang Lin lui tendit son jeton. Le vieil homme l'examina et déclara: « Tu peux parcourir les lieux à ta guise, mais l'accès au troisième étage est interdit. Tu as trois jours. »
 
@@ -34,7 +34,7 @@ Le vieil homme bâilla. Il dévisagea Wang Lin et répondit: « Tu ne peux pas m
 
 Le regard de Wang Lin se glaça alors qu'il fixait l'homme.
 
-Le vieil homme fronça les sourcils. Il grommela quelque chose avant de dire avec impatience: « Inutile de me fixer ainsi. Tu cherches la méthode pour fabriquer le drapeau de l'âme, n'est-ce pas? Je te le dis d'emblée: elle n'est pas ici, et elle n'est pas non plus au troisième étage. Il n'existe que dix fragments de jade contenant cette méthode. Si tu la veux, va les voler. Regarde, cette grotte là-bas en possède un. Si tu arrives à le dérober, tu pourras l'apprendre. »
+Le vieil homme fronça les sourcils. Il grommela quelque chose avant de dire avec impatience: « Inutile de me fixer ainsi. Tu cherches la méthode pour fabriquer le drapeau de l'âme, n'est-ce pas? Je te le dis d'emblée: elle n'est pas ici, et elle n'est pas non plus au troisième étage. Il n'existe que dix fragments de jade contenant la méthode du drapeau de restriction. Si tu la veux, va les voler. Regarde, cette grotte là-bas en possède un. Si tu arrives à le dérober, tu pourras l'apprendre. »
 
 Wang Lin regarda dans la direction indiquée par le vieillard. Il y avait effectivement une grotte à cet endroit.
 
@@ -60,7 +60,7 @@ Wang Lin relâcha sa prise. Le vieil homme s'effondra au sol et se releva après
 
 Wang Lin jeta un dernier regard au vieil homme et s'en alla. Peu après, il arriva devant la grotte que l'homme avait désignée. Des restrictions protégeaient l'entrée. Wang Lin déploya son Sens Divin et découvrit qu'un homme d'âge moyen y cultivait. Une pièce latérale abritait également deux femmes cultivatrices.
 
-Les yeux de Wang Lin s'illuminèrent. Sa main droite bougea, tissant de nombreuses restrictions illusoires. Dans un fracas retentissant, toutes les protections de la grotte s'effondrèrent avec la porte.
+Les yeux de Wang Lin s'illuminèrent. Sa main droite bougea, tissant de nombreuses restrictions illusoires. Dans un fracas retentissant, toutes les protections de la grotte, ainsi que la pierre Tianhe qui scellait l'entrée, s'effondrèrent.
 
 Au loin, le vieil homme frissonna. Il se dit que la montagne de l'Affinement de l'Âme venait d'accueillir une nouvelle entité qu'on ne pouvait point offenser.
 

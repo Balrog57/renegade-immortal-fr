@@ -124,10 +124,10 @@ Tandis qu'il volait sur le dos de la bête, Wang Lin observa les environs. Aucun
 
 Cet endroit était le monde des moustiques!
 
-Alors que le roi des moustiques filait en tête, une immense chaîne de montagnes apparut à la lisière du continent. Les sommets semblaient percer le ciel et dégageaient une aura majestueuse.
+Quelques heures plus tard, alors que le roi des moustiques filait en tête, une immense chaîne de montagnes apparut à la lisière du continent. Les sommets semblaient percer le ciel et dégageaient une aura majestueuse.
 
 « C'est ici! » Wang Lin rassembla son Âme Originelle au sein de l'Étoile de la Loi et commença une observation minutieuse.
 
 À l'extérieur de cette chaîne de montagnes, des milliers de moustiques rouges et des centaines de moustiques bleus circulaient. Ces derniers étaient extrêmement arrogants; souvent, lorsque les moustiques rouges croisaient les bleus, ils devaient s'écarter précipitamment pour les laisser passer.
 
-Plus profondément, survolant la montagne, Wang Lin aperçut deux moustiques blancs. Ils ne volaient pas, mais se tenaient sur le flanc de la montagne. Leurs grandes gueules frottaient la roche, produisant des sons stridents.
+Plus profondément, près de la montagne, Wang Lin aperçut deux moustiques blancs. Ils ne volaient pas, mais se tenaient sur le flanc de la montagne. Leurs grandes gueules frottaient la roche, produisant des sons stridents.

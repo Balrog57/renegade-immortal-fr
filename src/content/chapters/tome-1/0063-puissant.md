@@ -44,7 +44,7 @@ La montagne descendit encore de 3,3 cm, et le dernier ancien de l'Établissement
 
 « Brise-toi! » Sur le cri de Pu Nanzi, la montagne s'abattit avec une force telle qu'elle s'enfonça de 10 cm. Le Pic des Pins trembla. Dans un grondement de tonnerre, des rochers dévalèrent et la poussière s'éleva; le pic entier s'enfonça de dizaines de mètres dans le sol.
 
-Le pont de pierre relié à la Secte Heng Yue se brisa en deux et bascula dans le précipice.
+Le pont de pierre relié au Pic Heng Yue se brisa en deux et bascula dans le précipice.
 
 Simultanément, la formation défensive de la Secte Heng Yue ne put plus tenir; elle vola en éclats dans un bruit de miroir brisé et disparut.
 
@@ -54,9 +54,9 @@ Pu Nanzi laissa échapper un froid reniflement. Il redescendit lentement vers le
 
 Une fois au sol, il demanda d'un ton glacial: « Qui ici est Wang Lin? »
 
-Wang Lin s'était déjà replié dans la foule des disciples internes. Il n'aurait jamais imaginé que la première chose que cet expert de l'Âme Naissante ferait serait de le traquer lui.
+Wang Lin s'était déjà replié dans la foule des disciples internes. Il n'aurait jamais imaginé que la première chose que cet expert de l'Âme Naissante ferait serait de le chercher, lui.
 
-Tous les regards des disciples environnants se tournèrent vers lui. Pu Nanzi balaya le groupe du regard et ses yeux tombèrent sur Wang Lin. Il haussa un sourcil, comprenant qu'il s'agissait bien de lui. Auparavant, son neveu-disciple Ouyang avait mentionné Wang Lin à maintes reprises, affirmant que toutes leurs pertes étaient entièrement dues à ce dernier. Il voulait absolument le recruter.
+Tous les regards des disciples environnants se tournèrent vers lui. Pu Nanzi balaya le groupe du regard et ses yeux tombèrent sur Wang Lin. Il haussa un sourcil, comprenant qu'il s'agissait bien de lui. Auparavant, son neveu-disciple Ouyang avait mentionné Wang Lin à maintes reprises, affirmant que toutes leurs pertes étaient entièrement dues à ce dernier. Il avait bien envie de le recruter.
 
 Pu Nanzi avait toujours convoité les terres de la Secte Heng Yue. Cette fois, il pensait qu'avec Zhou Peng, ils l'emporteraient sans avoir à recourir ouvertement à la force. Mais l'intervention de Wang Lin avait perturbé ses plans, le forçant à se montrer et à s'emparer du territoire par la contrainte.
 
@@ -68,9 +68,9 @@ Pu Nanzi hocha la tête. Il se tourna vers Liu Wenju et la vieille femme de la F
 
 Liu Wenju lança un regard amer à la vieille femme et dit: « Senior, je vous en prie, considérez les bonnes relations entre nos deux sectes et ne... »
 
-Sans laisser Liu Wenju terminer sa phrase, Pu Nanzi l'interrompit avec impatience: « Partez! Vous ne pouvez rien emporter! Si vous continuez à me harceler, je n'hésiterai pas à anéantir la secte tout entière! »
+Sans laisser Liu Wenju terminer sa phrase, Pu Nanzi l'interrompit avec impatience: « Dégagez! Vous ne pouvez rien emporter, hormis vos personnes! Si vous continuez à me harceler, je n'hésiterai pas à anéantir la secte tout entière! »
 
-La vieille femme, furieuse, s'apprêta à charger, mais Liu Wenju la retint. Il prit une grande inspiration et dit respectueusement: « Ce disciple obéit, mais cette montagne de Heng Yue est le siège de notre secte depuis mille ans et je n'ai pas le droit de l'aliéner. Je ne peux qu'accepter de la prêter. Si dans le futur... »
+La vieille femme, furieuse, s'apprêta à protester, mais Liu Wenju la retint. Il prit une grande inspiration et dit respectueusement: « Ce disciple obéit, mais cette montagne de Heng Yue est le siège de notre secte depuis mille ans et je n'ai pas le droit de l'aliéner. Je ne peux qu'accepter de la prêter. Si dans le futur... »
 
 Pu Nanzi ricana. Il l'interrompit une fois de plus: « Prêter? Très bien. Prêtez-la à ma Secte Xuan Dao pour cent mille ans. »
 
@@ -80,4 +80,4 @@ Le regard de Pu Nanzi balaya la zone et se posa sur Huang Long. Il dit: « Toi. 
 
 Huang Long endura l'humiliation et serra les poings. Il regarda Liu Wenju et la vieille femme. En constatant que ni l'un ni l'autre ne disait mot, il poussa un soupir résigné, sortit l'épée et la jeta au sol.
 
-Pu Nanzi tendit sa main droite et l'Épée Zi Yue vola vers lui. Au moment où l'arme entra dans sa paume, une brume pourpre s'en échappa et prit la forme d'un dragon gigantesque.
+Pu Nanzi tendit sa main droite et l'Épée Zi Yue vola vers lui. Au moment où l'arme entra dans sa paume, une brume pourpre s'en échappa et prit la forme d'un dragon violet gigantesque.

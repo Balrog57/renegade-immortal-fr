@@ -82,7 +82,7 @@ Tout en contemplant la montagne fusionnée avec l'os du Serpent aux yeux de lune
 
 « Cupidité! » lâcha Wang Lin, le visage sombre.
 
-Il avait déjà vu cette montagne. C'était le trésor que Cupidité avait sorti et dont il avait extrait l'âme de la montagne pour attaquer.
+Il avait déjà vu cette montagne, dans la Terre des Esprits Démoniaques. C'était le trésor que Cupidité avait sorti et dont il avait extrait l'âme de la montagne pour attaquer.
 
 « Ils m'ont bel et bien poursuivi! » Les yeux de Wang Lin brillèrent. Il n'était plus pressé d'extraire l'os du Serpent aux yeux de lune.
 
@@ -92,7 +92,7 @@ Les parois de l'os étaient irrégulières et la grande quantité de minerai mé
 
 « La formation des sept étoiles a été emportée par les tentacules et j'ignore où elle se trouve. Cependant, je ne peux pas abandonner cette montagne. Avec le statut et les habitudes de Cupidité, ses trésors ne peuvent être ordinaires! » Une lueur étrange passa dans le regard de Wang Lin. Il inspecta soigneusement les environs avant d'atteindre la montagne.
 
-Le rebord de la montagne était déjà assimilé à l'os, rendant la séparation impossible. On pouvait clairement voir que du métal flamboyant apparaissait au sein de la montagne.
+Le rebord de la montagne était déjà assimilé à l'os, rendant la séparation impossible. On pouvait clairement voir que des pierres de feu d'or s'étaient incrustées dans la montagne.
 
 « L'assimilation est très poussée, ce sera donc délicat. Je ne peux pas utiliser les Fruits d'Ascension Céleste pour le moment. » Wang Lin réfléchit un instant avant de former une lame avec ses deux doigts pour tester la dureté de la roche. La montagne était extrêmement résistante; bien que son doigt fût imprégné d'énergie spirituelle céleste, il n'en laissa aucune trace. Ses yeux s'illuminèrent et il transféra une partie de l'énergie de l'épée de Ling Tianhou dans son doigt. Renonçant à tenter de prendre la montagne entière, il en retrancha trois pieds, contourna la partie assimilée et frappa d'un coup sec.
 

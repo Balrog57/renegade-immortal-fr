@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2021 - Suddenly Looking Back !"
 slug: soudain-un-regard-en-arriere
 ---
-Wang Lin était habitué à ce que les regards se fixent sur lui lors de ce genre d'événements. Son expression resta impassible tandis que ses vêtements blancs flottaient et qu'il avançait calmement.
+Wang Lin était habitué à ce que les regards se fixent sur lui lors de ce genre d'événements. Son expression resta impassible tandis que ses vêtements blancs flottaient, que ses cheveux blancs restaient immobiles et qu'il avançait calmement.
 
 « Cet homme... Qui est-il? »
 
@@ -60,13 +60,13 @@ En vérité, ils n'ignoraient pas totalement qui était Wang Lin. Xuan Luo l'ava
 
 Parmi les regards tournés vers Wang Lin, l'un d'eux était empreint d'excitation. Ce regard provenait de l'une des plateformes flottantes où se trouvait le Prince Ji Du.
 
-Le Prince Ji Du avait observé l'apparition de Wang Lin jusqu'à ce qu'il attire l'attention générale. Voyant le calme olympien de Wang Lin, il prit une profonde inspiration.
+Le Prince Ji Du avait observé l'apparition de Wang Lin jusqu'à ce qu'il attire l'attention générale. Voyant le calme olympien de Wang Lin, il expira profondément.
 
 « Le nom de mon parrain est connu des clans anciens! Son nom suffit à terrasser tout le monde. Si mon parrain peut m'aider... » Le Prince Ji Du serra les poings.
 
 Wang Lin ignora tous les regards qui convergeaient vers lui. Il s'assit et ferma les yeux, mais à cet instant, son cœur était très agité. C'était comme si un démon intérieur avait pris le contrôle, et il sentait qu'il perdait pied.
 
-Ce sentiment apparut alors que Wang Lin faisait route vers le palais, issu de l'inquiétude qu'il avait ressentie auparavant. Il éclata soudainement lorsqu'il s'assit, ce qui le surprit lui-même.
+Ce sentiment était apparu depuis que Wang Lin était arrivé au palais, issu de l'inquiétude qu'il avait ressentie auparavant. Il éclata soudainement lorsqu'il s'assit, ce qui le surprit lui-même.
 
 Bien qu'il puisse être réprimé, cela affectait l'humeur de Wang Lin. Autrement, lorsque le Général Immortel s'était levé, Wang Lin n'aurait pas laissé transparaître un soupçon de sa culture.
 
@@ -74,7 +74,7 @@ Un personnage de ce rang n'était pas qualifié pour provoquer une telle réacti
 
 « Quelle en est la raison? Pourquoi deviens-je ainsi en arrivant au palais de l'Ancien Dao... » Wang Lin ferma les yeux et fit circuler sa culture. Son esprit se calma lentement, mais il devint encore plus sombre.
 
-« Quelque chose ne va pas. Se pourrait-il que le palais ait activé des restrictions pour m'affecter ainsi? Pourtant, en regardant autour de moi, aucune restriction ne semble active... » Wang Lin ouvrit les yeux et resta assis en silence.
+« Quelque chose ne va pas. Se pourrait-il que le palais ait activé des formations et des restrictions pour m'affecter ainsi? Pourtant, en regardant autour de moi, aucune restriction ne semble active... » Wang Lin ouvrit les yeux et resta assis en silence.
 
 « Et ce sentiment de folie s'est transformé en une anxiété profonde. Je l'avais vaguement pressenti il y a quelques jours, et maintenant c'est encore plus intense. »
 
@@ -92,13 +92,13 @@ Cet homme portait une robe royale et une couronne impériale. Il dégageait une 
 
 « Saluons tous l'Empereur!! » Sur la place et les plateformes, tout le monde, y compris les 18 Rois, s'inclina devant l'Empereur de l'Ancien Dao!
 
-Les membres n'appartenant pas à l'Ancien Dao n'avaient pas l'obligation de s'agenouiller, mais tous les membres de l'Ancien Dao devaient mettre un genou à terre. Wang Lin se leva et, après avoir silencieusement réfléchi un instant, il s'inclina sans pour autant s'agenouiller!
+Les membres n'appartenant pas à l'Ancien Dao n'avaient pas l'obligation de s'agenouiller, mais tous les membres de l'Ancien Dao devaient mettre un genou à terre. Wang Lin se leva en silence et s'inclina sans pour autant s'agenouiller!
 
 Bien que son expression semblât normale, cette sensation de massacre déchaînée submergeait son esprit comme une vague impétueuse. Il arrivait à peine à la contenir.
 
 Ce sentiment devint extrêmement violent au moment même où l'Empereur de l'Ancien Dao apparut!!
 
-« Tout le monde, c'est un événement joyeux pour moi. Célébrons cela par ce banquet, et buvez tous avec moi! » L'Empereur de l'Ancien Dao sourit, mais lorsque son regard balaya Wang Lin, son cœur fut assombri par l'insatisfaction. Cependant, son expression resta imperturbable et il adressa même un sourire à Wang Lin, comme s'il se souciait de lui.
+« Relevez-vous tous! C'est un événement joyeux pour moi. Célébrons cela par ce banquet, et buvez tous avec moi! » L'Empereur de l'Ancien Dao sourit, mais lorsque son regard balaya Wang Lin, son cœur fut assombri par l'insatisfaction. Cependant, son expression resta imperturbable et il adressa même un sourire à Wang Lin, comme s'il se souciait de lui.
 
 « Je suis très heureux que tous ces amis aient pu venir dans mon Ancien Dao. Aujourd'hui, je ne dirai pas grand-chose. Permettez-moi de lever mon verre à tous les amis présents! » L'Empereur de l'Ancien Dao leva la main droite et une ombre apparut pour lui présenter une coupe de vin.
 

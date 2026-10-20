@@ -76,11 +76,11 @@ Lorsqu'il atteignit la 219e marche, le corps de Wang Lin s'effondra, mais il ne 
 
 Il était prêt à utiliser même le pouvoir du massacre pour renforcer son corps. Tant que son âme n'était pas détruite, il pouvait répéter cette fusion forcée autant de fois qu'il le souhaitait!
 
-Cependant, sous une telle pression, même s'il pouvait reconstruire son corps des milliers de fois, il risquait de ne pas y arriver, car son âme finirait par succomber!
+Cependant, sous une telle pression, même en répétant cette fusion des milliers de fois, elle ne servirait à rien, car son âme finirait par succomber!
 
 Mais cette pression mortelle était l'outil parfait pour fusionner ses pouvoirs célestes et anciens. Wang Lin poussa un rugissement et planta son pied sur la 220e marche!
 
-Des détonations résonnèrent follement à travers le monde. Le pied de Wang Lin se désintégra en gaz noir des dizaines de fois avant qu'il ne parvienne enfin à se stabiliser!
+Des détonations résonnèrent follement à travers le monde. Le corps de Wang Lin se désintégra en gaz noir des dizaines de fois avant qu'il ne parvienne enfin à se stabiliser!
 
 Dès qu'il fut immobile, un son retentit soudainement dans ce ciel doré et cette terre noire. Ce son n'était pas très net au début, mais bientôt, il balaya l'horizon, devenant plus distinct.
 
@@ -112,7 +112,7 @@ Pourtant, au moment où le sang toucha la pierre, un second son surgit dans le C
 
 C'était le son du tonnerre. Des grondements tonnants résonnèrent de toutes parts. Ce tonnerre semblait rugir, mais il possédait un rythme propre. C'était comme une symphonie céleste de foudre!
 
-Le tonnerre résonna et fusionna avec le chant du vent. Le souffle et la foudre se mêlèrent, comme si des millions de chevaux chargeaient à travers le ciel doré et la terre noire!
+Le tonnerre résonna et fusionna avec le chant du vent. Le souffle et la foudre se mêlèrent, comme si dix mille chevaux chargeaient à travers le ciel doré et la terre noire!
 
 « À la naissance de l'Ancêtre Ancien, neuf chants l'accompagnèrent. Si les neuf chants apparaissent tous, ils peuvent composer une chanson de naissance... Depuis les temps anciens, la rumeur dit que lorsque les neuf chants et les trois signes se manifestent sur le Continent Astral Immortel, le successeur de l'Ancêtre Céleste et de l'Ancêtre Ancien apparaîtra... » Xuan Luo regarda Wang Lin. Il eut soudain l'impression de ne plus rien comprendre à son disciple...
 

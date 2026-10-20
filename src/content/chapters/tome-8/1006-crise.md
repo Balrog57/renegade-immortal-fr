@@ -12,7 +12,7 @@ Désormais, il ne restait plus qu'un seul soldat!
 
 Juste au moment où le soldat allait charger dans la brume blanche, les yeux de Maître Fu Fengzi s'illuminèrent. Sa main tendue fit trembler le soldat, puis le tira en arrière. Maître Fu Fengzi affrontait désormais quatre soldats célestes.
 
-Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Fu Fengzi et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre des Esprits Démoniaques à l'époque, mais s'était obstiné à briser les restrictions de ce palais céleste, même en arrivant jusqu'ici, il n'aurait eu aucun moyen de faire face aux esprits de fleur ou aux soldats célestes.
+Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Fu Fengzi et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre des Esprits Démoniaques à l'époque, mais s'était obstiné à briser les restrictions de cette grotte céleste, même en arrivant jusqu'ici, il n'aurait eu aucun moyen de faire face aux esprits de fleur ou aux soldats célestes.
 
 L'expression de Wang Lin demeurait calme alors qu'il marchait vers le palais central. Cependant, avant même qu'il ne puisse s'en approcher, un changement choquant se produisit.
 
@@ -62,7 +62,7 @@ Boum, boum, boum, boum!
 
 Alors que des grondements fracassants résonnaient, le python fut encerclé par les vingt-sept épées. Celles-ci le transpercèrent rapidement, arrachant à la créature des cris de douleur déchirants.
 
-Bien que tout cela semble lent, l'action se déroula en un éclair. La grotte intérieure s'obscurcit soudainement alors que la montagne céleste pénétrait la brume blanche pour s'écraser!
+Bien que tout cela semble lent, l'action se déroula en un éclair. Le ciel au-dessus de la grotte s'obscurcit soudainement alors que la montagne céleste pénétrait la brume blanche pour s'écraser!
 
 L'expression de Wang Lin resta imperturbable tandis qu'il projetait un objet: le Sceau Céleste des 18 Enfers! Dès son apparition, l'objet grandit et chargea la montagne céleste.
 
@@ -90,13 +90,13 @@ Un grondement assourdissant retentit, comme si la grotte entière tremblait, et 
 
 « Brisez cette formation! » Sur un ordre de Wang Lin, chacun utilisa ses divers sorts en ciblant la carapace.
 
-Alors que des grondements tonitruants résonnaient, la carapace vacilla une nouvelle fois. Le pont de pierre commença à s'effondrer avant d'être totalement détruit.
+Alors que des grondements tonitruants résonnaient, la carapace vacilla une nouvelle fois. Au loin, le pont de pierre commença à s'effondrer avant d'être totalement détruit.
 
 Cependant, la carapace de la tortue resta intacte et ne perdit qu'un peu de son éclat.
 
 Wang Lin fronça les sourcils, secrètement stupéfait. La capacité protectrice de cette carapace dépassait ses espérances. Ni son propre poing de Dieu Ancien, ni les assauts de nombreux vieux monstres n'avaient réussi à la faire céder.
 
-« Je me demande si les grottes célestes où l'Omniscient et Ling Tianhou sont entrés possédaient des carapaces semblables. S'ils en avaient une, comment ont-ils fait pour la briser... » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'objet.
+« Je me demande si les grottes célestes que possédaient l'Omniscient et Ling Tianhou avaient des carapaces semblables. S'ils en avaient une, comment ont-ils fait pour la briser... » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'objet.
 
 Non seulement lui était sous le choc, mais Maître Fu Fengzi et ses compagnons l'étaient tout autant, leurs regards convergeant vers la carapace.
 
@@ -106,7 +106,7 @@ Le palais était plongé dans une obscurité totale, rendant toute vision imposs
 
 Ces pas possédaient une force étrange; dès qu'ils atteignirent les oreilles de chacun, ils se synchronisèrent inopinément avec leur propre rythme cardiaque. C'était comme si chaque pas martelait leurs cœurs.
 
-L'expression de Maître Fu Fengzi changea; il fit circuler l'énergie d'origine dans son corps avec rapidité pour réussir à dissocier ses battements cardiaques du son des pas.
+L'expression de Maître Fu Fengzi changea; il fit circuler l'énergie originelle dans son corps avec rapidité pour réussir à dissocier ses battements cardiaques du son des pas.
 
 Cependant, les trois frères Chen, Da Tou et Lei Ji n'avaient pas une culture suffisante pour y parvenir. À mesure que les pas approchaient, leurs visages devinrent livides.
 

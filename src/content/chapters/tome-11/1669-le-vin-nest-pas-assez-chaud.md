@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1669 - The Wine is Not Warm Enough
 slug: le-vin-nest-pas-assez-chaud
 ---
-Les chars étaient recouverts de peaux de bêtes inconnues. Au premier coup d'œil, ils ne ressemblaient pas à des chars, mais plutôt à des créatures antiques.
+Les chars étaient recouverts de peaux de bêtes inconnues. Au premier coup d'œil, ils ne ressemblaient pas à des chars, mais plutôt à des bêtes féroces ancestrales.
 
 Des runes complexes, tracées d'un rouge vif, ornaient ces peaux. Elles scintillaient dans l'obscurité de l'espace, leur conférant un aspect encore plus étrange.
 
@@ -36,7 +36,7 @@ Dès que les 100 000 âmes originelles furent sorties, cinq cultivateurs de la t
 
 Ces cinq experts n'avaient pas participé à la guerre contre le Royaume Intérieur, restant en réserve pour protéger le Royaume Extérieur. Cependant, l'ordre du Conseil Souverain était tombé: même si le Royaume Extérieur devait périr, ils devaient mourir au combat.
 
-Les cinq s'assirent en ligne. Ils savaient à quel point Wang Lin était puissant. Même en attaquant de concert, ils pourraient ne pas être de taille face au Seigneur du Royaume Scellé, Wang Lin.
+Les cinq s'assirent en ligne. Ils savaient à quel point Wang Lin était puissant. Même en attaquant de concert, ils ne seraient certainement pas de taille face au Seigneur du Royaume Scellé, Wang Lin.
 
 Toutefois, avec l'appui des 100 000 âmes originelles et du secret antique du Conseil Souverain, ils croyaient posséder la puissance nécessaire. Les cinq formèrent un sceau et projetèrent leur énergie dans le dos de celui qui les précédait.
 
@@ -70,7 +70,7 @@ Alors qu'elle se brisait, les 100 000 âmes originelles se dispersèrent, perdan
 
 Ses mains formèrent un sceau et pointèrent vers le ciel. Sa voix rauque résonna à travers le système stellaire.
 
-D'un visage féroce, il rugit: « 100 000 âmes originelles, 100 000 cultivateurs, condensez toute votre force vitale! Condensez vos innombrables années de vie! Nous, les 100 000 cultivateurs, sacrifions toute notre essence en échange d'un coup issu des temps anciens pour détruire cette formation et tuer cet homme! » Le vieillard et ses quatre compagnons crachèrent du sang.
+D'un visage féroce, il rugit: « 100 000 âmes originelles, 100 000 cultivateurs, condensez toute votre force vitale! Condensez vos innombrables années de vie! Nous, les 100 000 cultivateurs, sacrifions toute notre longévité en échange d'un coup issu des temps anciens pour détruire cette formation et tuer cet homme! » Le vieillard et ses quatre compagnons crachèrent du sang.
 
 Simultanément, les corps des 100 000 cultivateurs expulsèrent du sang. Jeunes ou d'âge mûr, ils vieillirent instantanément. Ceux qui étaient déjà vieux exhalèrent une odeur de décomposition.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 351 - Escape
 slug: evasion
 ---
-L'esprit bestial avala l'âme et se tourna vers Wang Lin. Bien que la bête fût sous le contrôle du piège à bêtes, elle restait extrêmement hostile. Comment pourrait-elle accepter d'être asservie par Wang Lin?
+L'esprit bestial avala l'âme résiduelle et se tourna vers Wang Lin. Bien que la bête fût sous le contrôle du piège à bêtes, elle restait extrêmement hostile. Comment pourrait-elle accepter d'être asservie par Wang Lin?
 
 Wang Lin resta d'un calme imperturbable alors que la bête bondissait vers lui. Il traça un sceau et l'envoya vers le char de guerre. Immédiatement, des chaînes jaillirent du char et emprisonnèrent l'esprit bestial.
 
@@ -34,7 +34,7 @@ Un chaman aux sept feuilles, dont la puissance équivalait à celle d'un cultiva
 
 « Cependant, c'est un peu étrange. Pourquoi aucun chaman aux sept feuilles n'est-il apparu lors du tumulte sous l'arbre de la réincarnation? » Les yeux de Wang Lin s'illuminèrent et il accéléra encore sa course.
 
-Il était très visible en survolant le troisième étage avec l'arbre de la réincarnation sur l'épaule. Il passa sa main sur l'arbre et le coupa en plusieurs morceaux.
+Il était très visible en survolant le troisième étage avec l'arbre de la réincarnation sur l'épaule. D'un geste de la main droite, il trancha l'arbre en plusieurs morceaux.
 
 « La branche d'autrefois pouvait entrer dans le sac, mais l'arbre entier ne passera pas. Je vais le découper pour voir si cela fonctionne. » Wang Lin sectionna un morceau et fit l'essai.
 
@@ -84,7 +84,7 @@ Cela faisait longtemps qu'il n'avait pas eu besoin de se terrer dans la Perle D�
 
 Face à un chaman aux sept feuilles, dont la puissance égalait celle d'un cultivateur de la Transformation de l'Âme, Wang Lin savait qu'il n'avait aucune chance. Une fois repéré, la seule issue possible serait la mort.
 
-Dès son apparition, il atteignit sa vitesse maximale. Il ne pensait plus à rien d'autre qu'à s'enfuir et utilisa toute son énergie spirituelle pour voler le plus vite possible. S'il n'avait pas été contraint par le fait que la boussole stellaire ne pouvait fonctionner que dans le vide, il l'aurait déjà utilisée.
+Dès son apparition, il atteignit sa vitesse maximale. Il ne pensait plus à rien d'autre qu'à s'enfuir et utilisa toute son énergie spirituelle pour voler le plus vite possible. S'il n'avait pas été contraint par le fait que la boussole stellaire ne pouvait fonctionner que dans le ciel étoilé ou dans le vide, il l'aurait déjà utilisée.
 
 Il multipliait les téléportations tout en tenant une pierre spirituelle de qualité supérieure. Alors qu'il s'apprêtait à pénétrer dans le tunnel menant au premier étage, un tatouage doré apparut et scella le passage.
 
@@ -94,7 +94,7 @@ D'un seul regard, Wang Lin eut l'impression d'être totalement mis à nu. Un fro
 
 Il n'osa pas reculer. Il sentait que s'il faisait le moindre pas en arrière, le vieil homme le tuerait sur-le-champ. Il fixa froidement le vieillard, sa main gauche agrippant le piège à bêtes.
 
-Le vieil homme toussa et dit lentement: « Tu as tué Mo Mo, Di Ya, Ca Gu et Chi Mu. Je vois sur toi les âmes de tatouage de ces quatre-là. Tuer les juniors de mon clan avec ton simple niveau de culture, qui frôle à peine le stade intermédiaire de la Formation de l'Âme, et surtout un guerrier aux six feuilles comme Chi Mu, doit faire de toi un nom célèbre dans le monde de la culture. Quel est ton nom? »
+Le vieil homme toussa et dit lentement: « Tu as tué Mo Mo, Di Ya, Ca Gu et Chi Mu. Je vois sur toi les âmes de tatouage de ces quatre-là. Tuer les juniors de mon clan avec ton simple niveau de culture, qui frôle à peine le stade intermédiaire de la Formation de l'Âme, et surtout un chaman aux six feuilles comme Chi Mu, doit faire de toi un nom célèbre dans le monde de la culture. Quel est ton nom? »
 
 Wang Lin répondit calmement: « Wang Lin! » Sa main gauche pressait fermement le piège à bêtes. Le char de guerre présentait un défaut fatal: son activation était trop lente. Wang Lin n'était pas certain de pouvoir gagner assez de temps pour l'ouvrir.
 
@@ -118,7 +118,7 @@ Bang!
 
 L'énergie de l'épée laissa une marque rouge sur le doigt du vieillard. Il l'observa et dit: « Pas mal. Cette épée doit également être un trésor précieux. »
 
-Wang Lin sentit son cuir chevelu se hérisser. Le drapeau de restriction était inutile, l'épée céleste était inutile, et même le Char de Guerre Divin semblait impuissant face à cet homme.
+Wang Lin sentit son cuir chevelu se hérisser. Le drapeau de restriction était inutile, l'épée céleste était inutile, et le Char de Guerre Divin, qui exigeait un temps de préparation, était tout aussi inutile face à cet homme.
 
 Ses yeux devinrent encore plus froids alors qu'il sortait un second drapeau de restriction de son sac. Il créa une restriction dans sa main et fixa le vieillard.
 

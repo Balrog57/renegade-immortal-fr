@@ -66,7 +66,7 @@ Le corps de plusieurs centaines de milliers de pieds du dragon de feu apparut et
 
 « Nous ne pouvons pas le laisser partir! Le Vieil Ancêtre est en route et sera bientôt ici. Nous devons juste le retenir un instant! » L'homme d'âge moyen, le visage blême, poussa un rugissement rauque et chargea vers Wang Lin.
 
-Les trois autres serrèrent les dents et se précipitèrent désespérément. Bien qu'ils fussent terrifiés, ils craignaient encore plus la colère du Vieil Ancêtre. Si celui-ci s'emportait, même leur culture de Vide Nirvana ne suffirait pas à les protéger.
+Les trois autres serrèrent les dents et se précipitèrent désespérément. Bien qu'ils fussent terrifiés, ils craignaient encore plus la colère du Vieil Ancêtre. Si celui-ci s'emportait, même leur culture de Vide du Nirvana ne suffirait pas à les protéger.
 
 La Secte du Dragon Bleu était presque détruite à ce stade. On pouvait imaginer la fureur du Vieil Ancêtre à son retour.
 

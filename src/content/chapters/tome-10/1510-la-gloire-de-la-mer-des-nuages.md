@@ -22,13 +22,13 @@ Un éclair de froideur brilla dans ses yeux et il laissa échapper un reniflemen
 
 Il marchait vers le sommet de la Mer des Nuages pour affronter le cultivateur de la troisième étape, le Shui Daozi!
 
-Derrière lui, les craquements de monstrueux blocs de glace envahissaient la zone. De loin, le brouillard gelé paraissait terrifiant! Ce brouillard dégageait une intention meurtrière titanesque!
+Derrière lui, sur plusieurs centaines de milliers de pieds, les craquements de monstrueux blocs de glace envahissaient la zone. De loin, le brouillard gelé paraissait terrifiant! Ce brouillard dégageait une intention meurtrière titanesque!
 
-Cette intention émanait du brouillard et fusionna avec le corps de Wang Lin pour créer un fragment d'essence de massacre. C'était cette essence qui donnait à Wang Lin l'apparence d'un tueur d'immortels!
+Cette intention émanait du brouillard et fusionna avec le corps de Wang Lin pour créer un fragment d'essence du massacre. C'était cette essence qui donnait à Wang Lin l'apparence d'un tueur d'immortels!
 
-Dès l'apparition de ce fragment d'essence de massacre, tous les puissants cultivateurs des quatre systèmes stellaires furent sous le choc! Ce fut particulièrement vrai pour le Shui Daozi. Lorsqu'il ressentit cette essence, son visage devint extrêmement sombre et ses yeux se remplirent d'incrédulité.
+Dès l'apparition de ce fragment d'essence du massacre, tous les puissants cultivateurs des quatre systèmes stellaires furent sous le choc! Ce fut particulièrement vrai pour le Shui Daozi. Lorsqu'il ressentit cette essence, son visage devint extrêmement sombre et ses yeux se remplirent d'incrédulité.
 
-« Une autre essence! Il en possédait déjà plusieurs, mais il en a encore davantage! Et voici l'essence de massacre... Cette essence que même le Seigneur du Royaume Scellé ne pouvait comprendre! »
+« Une autre essence! Il en possédait déjà plusieurs, mais il en a encore davantage! Et voici l'essence du massacre... Cette essence que même le Seigneur du Royaume Scellé ne pouvait comprendre! »
 
 « Mais alors quoi?! » L'expression du Shui Daozi était hideuse, la folie brillant dans ses yeux. Il serra la cloche dorée qu'il tenait à la main et leva les yeux avec un sourire narquois.
 
@@ -40,11 +40,11 @@ On aurait dit que Wang Lin n'était plus un simple cultivateur, mais un dieu dé
 
 Un dieu démon qui massacrait les immortels!
 
-Tout ce que le Shui Daozi avait préparé rappelait à Wang Lin le passé. À l'époque, dans la Mer des Nuages, Wang Lin avait utilisé l'âme de l'Omniscient pour effectuer une série de prédictions et de préparatifs afin de lutter pour sa survie face à la puissance céleste qu'incarnait le Shui Daozi!
+Tout ce que le Shui Daozi avait préparé rappelait à Wang Lin le passé. À l'époque, sur une planète sauvage de la Mer des Nuages, Wang Lin avait utilisé l'âme de l'Omniscient pour effectuer une série de prédictions et de préparatifs afin de lutter pour sa survie face à la puissance céleste qu'incarnait le Shui Daozi!
 
 Cependant, aujourd'hui, la situation s'était totalement inversée. À cet instant, Wang Lin était la puissance céleste, et c'était le Shui Daozi qui luttait pour sa survie!
 
-« Mon inimitié avec le Shui Daozi n'a rien à voir avec vous. Partez! » Wang Lin avança. À chacun de ses pas, les quelque 10 000 cultivateurs étaient contraints de reculer de plusieurs pas. La puissance d'un homme seul, utilisant des couches infinies de brouillard gelé et l'essence de massacre, suffisait à repousser une multitude de personnes!
+« Mon inimitié avec le Shui Daozi n'a rien à voir avec vous. Partez! » Wang Lin avança. À chacun de ses pas, les quelque 10 000 cultivateurs étaient contraints de reculer de plusieurs pas. La puissance d'un homme seul, s'appuyant sur le brouillard gelé qui s'étendait sur plusieurs centaines de milliers de pieds et sur l'essence du massacre, suffisait à repousser une multitude de personnes!
 
 « Tuez! »
 

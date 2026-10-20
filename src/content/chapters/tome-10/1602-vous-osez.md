@@ -26,7 +26,7 @@ Dans une auberge située sur la route officielle, à cinq cents kilomètres de l
 
 Un léger reniflement de mépris provint d'une table près de la fenêtre de l'auberge. Quatre personnes y étaient assises: trois jeunes gens et un vieil homme. Ce dernier buvait son thé tout en écoutant, l'air calme, bien qu'un profond dédain se lisât dans ses yeux.
 
-« Un simple lauréat du premier examen ose donner des conférences! Ce monsieur n'aurait pas dû l'accepter à l'époque! Le titre de Grand Érudit devrait m'appartenir, à moi, Su Yi! »
+« Un simple lauréat du premier examen ose donner des conférences! Notre maître n'aurait pas dû l'accepter à l'époque! Le titre de Grand Érudit devrait m'appartenir, à moi, Su Yi! »
 
 Des propos similaires résonnaient partout dans le pays de Zhao. Plus on s'approchait de la ville de Su, plus ces discours se multipliaient.
 

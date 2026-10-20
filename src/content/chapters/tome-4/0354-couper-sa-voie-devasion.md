@@ -8,7 +8,7 @@ slug: couper-sa-voie-devasion
 ---
 Le vieil homme fronçait toujours les sourcils. Cela faisait plus de quatre mois qu'il pourchassait Wang Lin. À plusieurs reprises, il avait failli le rattraper, mais le trésor sur lequel Wang Lin voyageait libérait alors une lumière blanche et se téléportait soudainement ailleurs.
 
-Cela le choquait et l'exaspérait de plus en plus. Un grand shaman aux sept feuilles ne pouvait même pas capturer un simple junior. Pour lui, c'était une honte.
+Cela le choquait et l'exaspérait de plus en plus. Un grand chaman aux sept feuilles ne pouvait même pas capturer un simple junior. Pour lui, c'était une honte.
 
 Cependant, il n'était pas un cultivateur; toute sa puissance provenait des tatouages sur son corps. Il ne s'attendait pas à ce que ce junior puisse maintenir une telle vitesse pendant quatre mois.
 
@@ -64,7 +64,7 @@ Son expression changea brusquement et il tourna la tête vers la sortie. La dire
 
 « Senior, le junior va détruire la sortie pour que nous puissions rester ici pour toujours! Ne serait-ce pas amusant?! » La voix irritante de Wang Lin parvint aux oreilles du vieil homme.
 
-Le vieil homme poussa un rugissement et chargea soudainement. Sa haine envers Wang Lin avait atteint son paroxysme. Sans ce trésor étrange, il l'aurait rattrapé depuis longtemps; comment se serait-il retrouvé dans cette impasse où poursuivre était aussi risqué que de renoncer?
+Le vieil homme poussa un rugissement et chargea soudainement. Sa haine envers Wang Lin avait atteint son paroxysme. Sans ce trésor étrange, il l'aurait rattrapé depuis longtemps; comment se serait-il retrouvé dans cette impasse où ni poursuivre ni renoncer ne lui était possible?
 
 Wang Lin n'avait effectivement plus beaucoup de pilules, mais il possédait encore des pierres spirituelles de qualité supérieure. Grâce à elles, il était certain de pouvoir tenir face à la poursuite du vieil homme.
 

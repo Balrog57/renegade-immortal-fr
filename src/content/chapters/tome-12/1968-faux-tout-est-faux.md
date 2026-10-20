@@ -56,7 +56,7 @@ Tout en parlant, Gu Ya regarda Wang Lin avec embarras et joignit les mains.
 
 Wang Lin réfléchit silencieusement et observa Cupidité, qui affichait un visage amer.
 
-« Petite Gu Ya, pourquoi parles-tu autant? Petit Wang Lin, maintenant qu'il n'y a plus d'autres Grands Empyréens ici, nous te posons la question: viendras-tu ou non? » La petite fille nommée Han Han fit la moue et lança un regard noir à Wang Lin.
+« Petite Gu Ya, pourquoi parles-tu autant? Petit Wang Lin, maintenant qu'il n'y a plus d'autres Grands Empyréens ici, nous te posons la question: viendras-tu ou non? » La petite fille nommée Han Han fit la moue et lança un regard de travers à Wang Lin.
 
 Cela lui donnait un air très mignon. En l'observant, Wang Lin songea à l'apparence de Zhou Ru lorsqu'elle était enfant.
 
@@ -74,7 +74,7 @@ Wang Lin fut stupéfait.
 
 « Faux, tout est faux... » Le corps de Gu Ya trembla tandis qu'il pensait: *« Ah, petites ancêtres, vous ne pouvez pas lui dire ça! »* Ne se souciant plus de rien d'autre, il envoya rapidement un message de Sens Divin à Wang Lin:
 
-« Ces deux enfants... Ce que le Grand Empyréen Gémeaux appelle son père est leur père mortel après leur réincarnation. Elles ont perdu une partie de leurs souvenirs lors de la réincarnation, et j'avais peur qu'elles ne soient tristes, alors j'ai inventé des choses pour les rassurer. Senior, je vous en prie, ne leur en tenez pas rigueur... Hélas. »
+« Ces deux enfants... Ce que le Grand Empyréen Gémeaux appelle son père est leur père mortel après leur réincarnation. Elles ont perdu une partie de leurs souvenirs lors de la réincarnation, et quand elles me l'ont demandé étant petites, j'avais peur qu'elles ne soient tristes, alors j'ai inventé des choses pour les rassurer. Senior, je vous en prie, ne leur en tenez pas rigueur... Hélas. »
 
 « Eh, Petite Gu Ya, quel message de Sens Divin envoies-tu là? Laisse-moi écouter! » Wa Wa regarda soudainement Gu Ya avec intérêt, voulant espionner la communication. Cependant, Gu Ya fut très rapide et resta sur ses gardes.
 
@@ -88,7 +88,7 @@ En particulier... Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda Cupidit
 
 « Mais le niveau de culture de Cupidité n'est pas élevé, et pourtant il a été extrait sans effort du monde des grottes par le Grand Empyréen Gémeaux. » Wang Lin prit une profonde inspiration et son regard balaya les deux fillettes devant lui, s'attardant sur Han Han. Son expression fière était très mignonne.
 
-« Même après avoir subi un accident lors de la réincarnation, le Grand Empyréen Gémeaux possède encore une telle puissance. S'ils n'avaient pas eu cet accident... ils seraient les Grands Empyréens les plus puissants du clan céleste. Je me demande comment elle se comparerait au Grand Empyréen Dong Lin... »
+« Même après avoir subi un accident lors de la réincarnation, le Grand Empyréen Gémeaux possède encore une telle puissance. Sans cet accident... elle serait la plus puissante des Grands Empyréens du clan céleste. Je me demande comment elle se comparerait au Grand Empyréen Dong Lin... »
 
 « Le plus important est que j'ai négligé le fait qu'au sein de la Secte Yang Pourpre du Grand Empyréen Gémeaux, il existe un lieu connecté au monde des grottes... »
 

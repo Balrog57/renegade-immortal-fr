@@ -56,7 +56,7 @@ Wang Lin regarda silencieusement la pierre de jade et, après un long moment, la
 
 Non seulement il avait récolté une grande quantité d'herbes sur le continent sauvage, mais il avait également rassemblé de nombreuses âmes de bêtes. Il s'agissait principalement de bêtes de rang 5, parfaitement adaptées au niveau de culture actuel de Wang Lin.
 
-Il restait d'autres âmes dans son sac: celles des bêtes spirituelles des membres de la Secte de la Fleur Claire, tuées par le cadavre femelle argenté puis collectées.
+Il restait d'autres âmes dans son sac: celles des bêtes spirituelles des membres de la Secte de la Fleur Claire, dont les maîtres avaient été tués par Wang Lin après sa sortie du continent sauvage, puis collectées par le cadavre femelle argenté.
 
 De même, il possédait un serpent spirituel, la bête spirituelle liée à la vie de la Vieille Femme Poisonneuse, qui avait atteint le sommet du rang 6!
 

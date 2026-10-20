@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1851 - Soul Order
 slug: ordre-de-lame
 ---
-Parmi les dizaines de milliers de cultivateurs, d'innombrables personnes périrent dans la Mer des Pilules. L'avatar de Yun Kong était trop proche et fut le premier à mourir. Peu importait la puissance de son intention d'épée, face à l'explosion de la Pilule Céleste, il fut aussi fragile qu'un morceau de papier!
+Parmi les dizaines de milliers de cultivateurs, d'innombrables personnes périrent dans la Mer des Pilules. L'avatar de Yun Kong était trop proche et fut le premier à mourir. Peu importait la puissance de son intention d'épée, face à l'explosion de cette demi-Pilule Céleste, il fut aussi fragile qu'un morceau de papier!
 
 Sous l'effet de l'effondrement, toute la Mer des Pilules disparut. Le Continent du Démon Vert perdit plus de dix mille cultivateurs. Les autres ne purent échapper à cette force destructrice et furent envahis par le désespoir lorsqu'une ombre gigantesque apparut. Cette silhouette ressemblait à une personne, mais il était impossible d'en distinguer les traits clairement. D'un revers de manche, elle enveloppa les cultivateurs restants du Continent du Démon Vert.
 
@@ -42,7 +42,7 @@ S'il avait été un cultivateur ordinaire, s'il n'était pas mort, il aurait dû
 
 Le soir du troisième jour, Wang Lin ouvrit les yeux pour la première fois et prit quelques inspirations. Il fronça les sourcils, car la poussière en suspension rendait l'air amer. Il leva les yeux vers le ciel. Bien qu'au crépuscule, la poussière empêchait de distinguer le soleil ou la lune.
 
-« Cela en valait la peine! Malgré mes blessures... Lorsqu'il a dit qu'il ne me laisserait pas partir avant sa mort, cela signifiait probablement qu'il était venu avec son avatar. Or, cet avatar est désormais totalement mort! »
+« Cela en valait la peine! Malgré mes blessures... Lorsqu'il a juré, à l'article de la mort, qu'il ne me laisserait jamais partir, cela signifiait probablement qu'il était venu avec son avatar. Or, cet avatar est désormais totalement mort! »
 
 « La mort de l'avatar affectera le corps original! J'ignore seulement l'ampleur de l'impact... Il ne devrait pas être négligeable! »
 

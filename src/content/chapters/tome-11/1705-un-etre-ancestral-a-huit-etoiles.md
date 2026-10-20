@@ -30,11 +30,11 @@ Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient 
 
 « Ils ont dit qu'ils allaient s'amuser dans le Domaine de la Ferme des Bêtes, mais... mais... » murmura l'un des Anciens, accablé d'impuissance.
 
-« S'amuser? L'aura d'un Grand Empyréen s'est propagée, comment cela pourrait-il encore être un jeu?! » rugit l'homme d'âge moyen, bien que ses yeux fussent également remplis de désespoir.
+« S'amuser? L'aura d'un Grand Empyréen s'est propagée, comment cela pourrait-il encore être un jeu?! » rugit l'homme d'âge moyen, bien que ses yeux fussent également remplis d'impuissance.
 
 « Nous ne pouvons pas ouvrir le Domaine de la Ferme des Bêtes. Ils l'ont scellé et refusent de nous laisser entrer... » Un autre vieil homme secoua amèrement la tête.
 
-« Aucune erreur n'est permise dans la réincarnation du Grand Empyréen. Ils sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empyréen... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte du Soleil Violet trembla. Même le monde extérieur en fut ébranlé.
+« Aucune erreur n'est permise dans la réincarnation du Grand Empyréen. Elles sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empyréen... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte du Soleil Violet trembla. Même le monde extérieur en fut ébranlé.
 
 À l'intérieur de la faille spatiale, Wang Lin était assis sur l'autel et vit l'aura terrifiante qui avait jailli de Cupidité. Un choc apparut dans ses yeux.
 
@@ -90,7 +90,7 @@ L'espace était plongé dans un silence absolu et toute lumière s'était étein
 
 « Le Daoïste aux Sept Couleurs n'osera plus revenir ici. Ce sera l'endroit le plus sûr. Je dois comprendre l'essence de la restriction, fusionner ces huit gouttes de sang, et ce bras... » Wang Lin regarda le membre qui mesurait plus de cent pieds de long.
 
-« Si j'absorbe ce bras et que j'utilise le sortilège "Déchirer les Cieux", je me demande quelle part de la force de Ye Mo je pourrai déployer! » Les yeux de Wang Lin étincelèrent. Après s'être calmé, il pointa l'espace entre ses sourcils et les huit gouttes de sang s'envolèrent.
+« Si j'absorbe ce bras et que j'utilise le sortilège "Déchirer les Cieux", je me demande quelle part de la force de Ye Mo je pourrai déployer! » Les yeux de Wang Lin étincelèrent. Après s'être calmé, il pointa l'espace entre ses sourcils et les huit gouttes de sang du fils de Ye Mo s'envolèrent.
 
 Ces huit gouttes flottaient devant lui. Elles ne dégageaient aucune lumière, mais une puissante aura antique s'en échappait. Les sept étoiles de Dieu Ancien de Wang Lin tournèrent rapidement pour former un vortex.
 
@@ -112,9 +112,9 @@ Le corps de Wang Lin gonfla de manière incontrôlée et l'ombre d'un Être Ance
 
 Quelques jours plus tard, Wang Lin ouvrit les yeux et agita ses manches. Les cinq gouttes restantes explosèrent en une brume sanguine avant de pénétrer dans son corps par ses pores et ses orifices.
 
-Tandis que la brume se dissipait, des gémissements étouffés s'élevèrent de la brume. La huitième étoile d'Ancien Démon apparut lentement dans son œil gauche!!
+Tandis que la brume se dissipait, des grondements étouffés s'élevèrent de la brume. La huitième étoile d'Ancien Démon apparut lentement dans son œil gauche!!
 
-À l'instant où cette étoile surgit, une tempête monstrueuse d'énergie démoniaque balaya le monde à l'intérieur de la faille. Toutes les bêtes s'agenouillèrent, n'osant plus bouger.
+À l'instant où cette étoile surgit, une tempête monstrueuse d'énergie démoniaque balaya le monde à l'intérieur de la faille. Toutes les bêtes se prosternèrent, n'osant plus bouger.
 
 Simultanément, dans son œil droit, la huitième étoile d'Ancien Diable apparut!
 

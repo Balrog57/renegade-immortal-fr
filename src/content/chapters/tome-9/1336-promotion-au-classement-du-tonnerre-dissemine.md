@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1336 - Promoting into the Scatter Thunder Ranking
 slug: promotion-au-classement-du-tonnerre-dissemine
 ---
-Le brouillard vert tourbillonnait, d'où jaillissaient des éclairs de tonnerre. Cela inspirait un sentiment d'effroi et de respect à presque tous les cultivateurs qui y pénétraient.
+Le brouillard vert tourbillonnait, d'où jaillissaient des éclairs de tonnerre et des grondements sourds. Cela inspirait un sentiment d'effroi et de respect à presque tous les cultivateurs qui y pénétraient.
 
 Ils n'osaient nullement s'approcher du brouillard vert, préférant voler au centre du passage, comme craignant qu'une main géante ne surgisse de la brume pour les saisir.
 
@@ -40,7 +40,7 @@ Désormais arrivé dans un lieu crucial du Clan du Tonnerre Dispersé, il faisai
 
 Si le Clan du Tonnerre Dispersé l'apprenait, il serait sous le choc et terrifié. Cela dépassait l'entendement!
 
-Le passage dans la brume n'était pas long; il ne fallut que quinze minutes pour le traverser. Bien que le Sens Divin de Wang Lin submerge le brouillard, personne ne remarqua rien. Après tout, l'âme originelle de Wang Lin étant elle aussi faite de tonnerre, utiliser le tonnerre pour comprendre le tonnerre ne laissait aucune faille.
+Le passage dans la brume n'était pas long; il ne fallut que quinze minutes pour le traverser. Bien que le Sens Divin de Wang Lin submerge le brouillard, personne ne remarqua rien. Après tout, le Sens Divin de Wang Lin étant lui aussi fait de tonnerre, utiliser le tonnerre pour comprendre le tonnerre ne laissait aucune faille.
 
 Dès qu'il sortit du brouillard, Wang Lin retira son Sens Divin. Ses yeux brillèrent et une rune apparut faiblement dans son regard.
 
@@ -70,7 +70,7 @@ Le lieu grouillait de membres du Clan du Tonnerre Dispersé. Certains étaient s
 
 En particulier, une foule de cultivateurs se pressait à la porte est. Ils dissimulaient visiblement leur excitation en s'éloignant rapidement. Il y avait aussi ceux qui, ayant vécu bien trop longtemps, restaient calmes, ne laissant transparaître aucune pensée.
 
-Cette force mentale était liée à la personnalité et à l'âge. Wang Lin cultivait depuis 2 000 ans et avait beaucoup vu. Il était très rusé, et sa capacité de manipulation n'était en rien inférieure à celle de ces vieux monstres ayant vécu des dizaines de milliers d'années, parfois même davantage.
+Cette force mentale était liée à la personnalité et à l'âge. Wang Lin cultivait depuis 2 000 ans et avait beaucoup vu. Il était très rusé, et sa capacité de manipulation n'était en rien inférieure à celle de ces vieux monstres ayant vécu des dizaines de milliers d'années, et la dépassait même parfois.
 
 Après tout, au-delà du niveau de culture, la ruse est une clé essentielle à la survie.
 

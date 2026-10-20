@@ -105,4 +105,4 @@ Wang Lin regarda froidement le pavillon. Il tendit la main et saisit l'édifice 
 
 Parmi les grondements assourdissants, la Planète du Sang devint encore plus instable. Des ondes de choc se propagèrent et la poussière vola partout. Un instant plus tard, Wang Lin s'éleva et disparut au loin, laissant derrière lui une planète en lambeaux. Aucun esclave ou gardien ne tenta de l'arrêter. En réalité, la plupart d'entre eux joignirent les mains vers la direction où il avait disparu.
 
-Peu après le départ de Wang Lin, leurs yeux se remplirent de confusion. C'était comme si des chaînes invisibles venaient de se briser; ils se dispersèrent tous pour retourner vers leurs foyers qu'ils n'avaient pas vus depuis une éternité.
+Peu après le départ de Wang Lin, leurs yeux se remplirent de confusion. C'était comme si des chaînes invisibles venaient de se briser; ils se dispersèrent tous pour retourner vers leurs foyers qu'ils n'avaient pas revus depuis de nombreuses années.

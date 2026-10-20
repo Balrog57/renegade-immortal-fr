@@ -116,7 +116,7 @@ Ces pensées traversèrent l'esprit de Wang Lin et il hésita.
 
 « Ce sceau a été placé par l'Ancêtre Céleste lui-même. Si je prends ce fragment... je risque de déclencher toute la puissance du sceau! »
 
-Depuis le début, 15 souffles s'étaient écoulés. Wang Lin recula d'un pas décisif et ne fit pas bouger son corps original. Au lieu de cela, son Corps Véritable d'Essence de Tonnerre s'élança vers le fragment. Il chargea et saisit directement l'objet!
+Depuis le début, 15 souffles s'étaient écoulés. Wang Lin, le regard déterminé, recula de plusieurs pas et ne fit pas bouger son corps original. Au lieu de cela, son Corps Véritable d'Essence de Tonnerre s'élança vers le fragment. Il chargea et saisit directement l'objet!
 
 « Le Temple du Scorpion du Démon Vert possédait également un sceau, mais ce n'était pas un problème majeur. Cependant, celui-ci est différent... Mais la richesse se trouve dans le danger, je ne peux repartir les mains vides! » Le Corps Véritable d'Essence de Tonnerre tendit la main et empoigna le fragment d'épée.
 

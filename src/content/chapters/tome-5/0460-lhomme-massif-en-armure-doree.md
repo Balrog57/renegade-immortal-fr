@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 460 - The Metal Armored Burly man.
 slug: lhomme-massif-en-armure-doree
 ---
-Même les formes de vie composées de fragments d'âmes disparurent lors de l'effondrement...
+Même parmi les formes de vie composées de fragments d'âmes, beaucoup disparurent lors de l'effondrement...
 
 La mort de ces créatures déclencha une série de réactions en chaîne. À cet instant, des mortels, des cultivateurs et même des bêtes sur la planète Suzaku commençaient à succomber.
 
@@ -48,7 +48,7 @@ Yun Quezi s'engouffra dans l'ouverture dans un éclat de lumière rouge, suivi d
 
 Ensuite, les autres personnes présentes sur la montagne spirituelle activèrent divers sorts pour charger à l'intérieur.
 
-Wang Lin fut la quatrième personne à franchir l'ouverture. En faisant un pas à l'intérieur, il créa un nuage de fumée et disparut en son sein.
+Wang Lin fut la quatrième personne à franchir l'ouverture. En faisant un pas à l'intérieur, il se transforma en un mince nuage de fumée et disparut.
 
 Derrière la porte se déployait une mer dorée. Cette mer était immense, sans fin visible.
 
@@ -88,7 +88,7 @@ En un clin d'œil, l'île fut submergée par la mer dorée et disparut.
 
 L'expression d'Yun Quezi était mécontente. Alors qu'il était sur le point de sombrer dans la mer dorée, l'homme massif en armure dorée fit tournoyer son épée. Une vague d'énergie de sabre de 330 mètres de long s'abattit sur lui.
 
-Yun Quezi poussa un rugissement. Ses cheveux se mirent à onduler sans vent et il pointa le ciel. Une lueur rouge apparut là où il désignait et entra en collision avec l'énergie de l'épée.
+Yun Quezi poussa un rugissement. Ses cheveux se mirent à onduler sans vent et il pointa le vide. Une lueur rouge se condensa dans sa main et entra en collision avec l'énergie de l'épée.
 
 Dans un fracas, le corps d'Yun Quezi fut projeté comme une météorite dans la mer avant de disparaître.
 
@@ -130,6 +130,6 @@ L'homme massif en armure dorée ne les poursuivit pas, mais tourna son regard ve
 
 Le regard de Wang Lin devint glacial. Cette énergie de sabre était aussi puissante qu'une attaque d'un cultivateur Ascendant. C'est pour cette raison que le vieil homme avait dû libérer l'âme qui le possédait pour y résister.
 
-Seul Yun Quezi avait pu bloquer l'attaque et s'en servir pour entrer dans la mer.
+Seul Yun Quezi avait pu bloquer l'attaque sans peine et s'en servir pour entrer dans la mer.
 
 Toutefois, cet homme massif n'avait aucune intention malveillante; autrement, Zhou Wutai et Zi Xin ne seraient pas encore en vie à cet instant.

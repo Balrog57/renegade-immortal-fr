@@ -28,23 +28,23 @@ Au moment où Wang Lin regagnait sa boutique, deux jeunes ouvriers transportère
 
 Wang Lin leur remit nonchalamment quelques pièces d'argent et les renvoya. Puis, il referma la porte de la boutique, s'assit près du foyer et commença à méditer en silence.
 
-S'il ne lui portait pas secours, Xu Tao ne survivrait pas. Wang Lin soupira. Considérant la déférence dont Xu Tao avait fait preuve durant ces dix dernières années, Wang Lin sortit de son sac de rangement la pilule la plus médiocre et la poussa dans la bouche de l'homme.
+S'il ne lui portait pas secours, Xu Tao ne survivrait pas. Wang Lin soupira. Considérant la déférence dont Xu Tao avait fait preuve durant ces dix dernières années, Wang Lin sortit de son sac de rangement la pilule la plus médiocre et la lança dans la bouche de l'homme.
 
 Puis il saisit une cruche de vin et but tout en attendant que Xu Tao reprenne connaissance.
 
-Quant au jeune cultivateur, il s'était enfui en panique. Ne se souciant guère d'alerter les mortels, il sortit son épée volante et s'élança vers l'est.
+Quant au jeune cultivateur, il s'était enfui en panique. Ne se souciant guère d'alerter les mortels, il lança son épée volante, qui se transforma en arc-en-ciel, et s'élança vers l'est.
 
-À la périphérie est de la ville se trouvait un temple. Ce lieu était empreint d'une grande quiétude; devant lui s'étalait un étang parsemé de fleurs de lotus roses. Les feuilles de nénuphars, d'un vert éclatant, flottaient à la surface tandis que les poissons les effleuraient doucement, créant des ondulations apaisantes.
+À la périphérie est de la ville se trouvait un temple. Ce lieu était empreint d'une grande quiétude et d'un air presque détaché du monde; devant lui s'étalait un étang parsemé de fleurs de lotus roses. Les feuilles de nénuphars, d'un vert éclatant, flottaient à la surface tandis que les poissons les effleuraient doucement, créant des ondulations apaisantes.
 
 Un chemin pavé de galets descendait du temple, bordé de saules pleureurs. Lorsque le vent soufflait, le bruissement des feuilles créait un spectacle d'une grande beauté.
 
-À cet instant, bien qu'une brise soufflât, le frémissement du feuillage fut couvert par le sifflement du vol. Le jeune cultivateur se posa soudainement devant la porte du temple et cracha un jet de sang. Le visage livide, il ouvrit les portes et s'engouffra à l'intérieur.
+À cet instant, bien qu'une brise soufflât, le frémissement du feuillage fut couvert par le sifflement du vol. Transformé en arc-en-ciel, le jeune cultivateur se posa soudainement devant la porte du temple et cracha un jet de sang. Le visage livide, il ouvrit les portes et s'engouffra à l'intérieur.
 
 Les quelques cultivateurs assis en tailleur dans le temple ouvrirent les yeux. L'un d'eux, constatant l'état critique du jeune homme, s'approcha et demanda: « Cher frère apprenti, comment un simple mortel a-t-il pu t'infliger de telles blessures? »
 
 Le jeune cultivateur repoussa l'homme et s'écria: « Je dois voir le Maître! Maître! »
 
-« Quel est ce tumulte? » Un homme d'âge mûr émergea du temple. Il avait un visage large et des yeux étroits. Ses grandes oreilles étaient très marquées, mais au premier regard, il paraissait assez digne.
+« Pourquoi cette panique? » Un homme d'âge mûr émergea du temple. Il avait un visage large et des yeux étroits. Ses grandes oreilles étaient très marquées, mais au premier regard, il paraissait assez digne.
 
 À son apparition, tous les cultivateurs en pleine méditation se levèrent et se tinrent respectueusement sur les côtés.
 
@@ -56,7 +56,7 @@ Le cultivateur pointa alors le crâne du doigt, le saisit et, sans un mot, l'enf
 
 Le cultivateur aux grandes oreilles agita sa main droite et dit d'une voix lente: « Raconte-moi ce qui s'est passé. »
 
-Le jeune cultivateur prit une profonde inspiration et raconta promptement les événements, en ajoutant de nombreux détails superflus. Il s'exprimait avec aisance et de façon très vivante tandis que le maître écoutait en silence. Les autres disciples ne dirent mot, mais leurs regards étaient empreints d'une étrange perplexité.
+Le jeune cultivateur prit une profonde inspiration et raconta promptement les événements, en ajoutant de nombreux détails superflus. Il s'exprimait avec aisance et de façon très vivante tandis que le maître écoutait en silence. Les autres disciples baissèrent la tête et ne dirent mot, mais leurs regards étaient empreints d'une étrange perplexité.
 
 Bientôt, le récit prit fin. Les yeux du jeune homme brillaient de haine. « Maître, je lui ai déjà révélé votre nom, mais cet homme était d'une arrogance sans limite. Maître, quoi qu'il en coûte, nous devons lui donner une leçon! » ajouta-t-il.
 
@@ -88,7 +88,7 @@ En marchant, le jeune cultivateur se sentait transporté par la fierté. Il sava
 
 Depuis son enfance, chaque fois qu'un problème surgissait, il suffisait d'en parler au Maître. Ce dernier l'emmenait alors et annihilait quiconque lui déplaisait. Durant toutes ces années, son Maître ne lui avait jamais opposé de refus.
 
-Il ricana intérieurement. Maintenant que son Maître était là, il ferait en sorte que cet homme meure sans repos, afin qu'il comprenne les conséquences de s'être joué de lui.
+Il ricana intérieurement. Maintenant que son Maître était là, il ferait en sorte que cet homme meure sans même avoir de sépulture, afin qu'il comprenne les conséquences de s'en être pris à lui.
 
 Pensant cela, il jeta un regard furtif vers son maître et constata qu'il restait impassible. Il sourit secrètement, car il savait que plus le visage de son Maître était inexpressif, plus sa colère était profonde.
 
@@ -98,7 +98,7 @@ La fierté du jeune cultivateur gonfla en lui comme une friandise sucrée. Il pr
 
 Soudain, le cultivateur aux grandes oreilles s'arrêta net. Le jeune apprenti fit quelques pas en arrière et vit son maître contempler un étal de bonbons.
 
-Une lueur de douceur passa dans les yeux du grand cultivateur qui, s'approchant, demanda doucement: « Combien coûte ce bonbon? »
+Une lueur de douceur passa dans les yeux du cultivateur aux grandes oreilles qui, s'approchant, demanda doucement: « Combien coûte ce bonbon? »
 
 En voyant ce cultivateur, le marchand éprouva pour une raison inconnue un sentiment de sympathie et répondit: « Une seule pièce de cuivre suffira. »
 

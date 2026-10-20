@@ -66,7 +66,7 @@ Son visage était pâle. Elle sembla percevoir quelque chose; ses cils tremblèr
 
 Elle sourit, mais ce sourire était empreint de mort... « Je sais que tu m'as toujours détestée... »
 
-« Je sais que tu as toujours eu mal au cœur... »
+« Je sais que tu as toujours eu le cœur meurtri... »
 
 « Je sais que Liu Mei t'a fait du tort... Liu Mei, c'est moi, et je suis Liu Mei... »
 
@@ -82,7 +82,7 @@ Elle sourit, mais ce sourire était empreint de mort... « Je sais que tu m'as t
 
 Elle ferma les yeux, leva sa main droite et la pressa entre ses sourcils!
 
-Le Shui Daozi fut saisi d'effroi. À cet instant, il semblait se soucier plus que jamais de la vie de cette femme. Wang Lin réfléchit silencieusement. Lorsqu'il vit la main de Mu Bingmei s'abaisser pour mettre fin à ses jours, ses yeux brillèrent. Son poing, qui avait hésité à trois pouces du Shui Daozi, ne faiblit plus et jaillit!
+Le Shui Daozi fut saisi d'effroi. À cet instant, il semblait se soucier plus que jamais de la vie de cette femme. Wang Lin réfléchit silencieusement. Lorsqu'il vit la main de Mu Bingmei s'abaisser pour mettre fin à ses jours, ses yeux brillèrent. Son poing, arrêté à trois pouces du Shui Daozi, jaillit sans la moindre hésitation!
 
 Simultanément, il leva sa main gauche et pointa l'image distordue. D'un mot, le corps de Mu Bingmei fut soudainement figé.
 
@@ -90,11 +90,11 @@ Des grondements tonitruants retentirent et une force inimaginable s'engouffra da
 
 Le Shui Daozi, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divine et cultivateur de la troisième étape du Système Stellaire de la Mer des Nuages, était mort!!
 
-Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens; seul le démon ancien à neuf étoiles de la Secte Fantôme, en train de disparaître, fut stupéfait en l'entendant!
+Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens; seul le démon ancien à neuf étoiles de la Secte Fantôme, en train de disparaître, fut profondément bouleversé en l'entendant!
 
 « Le Sort de Transformation de Vie de l'Ordre Ancien!! C'est le Sort de Transformation de Vie de l'Ordre Ancien!! Ce fameux sort dont les rumeurs disent que les ancêtres ne pouvaient l'utiliser que trois fois dans leur vie!! »
 
-Le Sort de Transformation de Vie de l'Ordre Ancien était une technique que Wang Lin avait acquise via son héritage. Il était inutile pour Li Muwan, mais il pouvait maintenant transférer toute la vitalité du Shui Daozi à Mu Bingmei, qui était liée à lui!
+Le Sort de Transformation de Vie de l'Ordre Ancien était une technique que Wang Lin avait apprise dans l'héritage qu'il avait obtenu dans une tombe antique. Il était inutile pour Li Muwan, mais il pouvait maintenant transférer toute la vitalité du Shui Daozi à Mu Bingmei, qui était liée à lui!
 
 L'âme du Shui Daozi fut détruite, mais son essence vitale subsista. Au dernier moment, Wang Lin ne l'avait pas totalement anéanti, conservant l'essence vitale liée à Mu Bingmei!
 

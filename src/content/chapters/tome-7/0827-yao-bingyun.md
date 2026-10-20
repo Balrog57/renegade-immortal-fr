@@ -102,7 +102,7 @@ Une intention meurtrière traversa le regard de Wang Lin alors qu'il s'élançai
 
 Alors que Wang Lin s'élevait, sa main droite fit un geste: la brume noire se rassembla pour former un immense drapeau de cent pieds qu'il rangea aussitôt dans sa sacoche.
 
-C'est à ce moment précis que la silhouette gracieuse de Yao Bingyun apparut à l'orée de la planète où Wang Lin s'était soigné. Le visage froid, elle sortit un miroir et l'interrogea. L'image reflétée montrait Wang Lin s'envolant vers le ciel.
+C'est à ce moment précis que la silhouette gracieuse de Yao Bingyun apparut à l'orée de la planète où Wang Lin s'était soigné. Le visage froid, elle sortit un miroir et le consulta. L'image reflétée montrait Wang Lin s'envolant vers le ciel.
 
 D'un air impavide, elle leva la main pour presser le miroir de son doigt. Cependant, le miroir se brisa avant même qu'elle ne puisse le toucher.
 

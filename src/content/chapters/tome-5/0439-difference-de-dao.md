@@ -44,7 +44,7 @@ Wang Lin trouva le chemin de culture de Situ Nan intéressant, alors il demanda:
 
 « Maudit soit-il! Pour ce rêve, ce vieux a cultivé sans fin et l'a suivi partout. Finalement, il est devenu le chef de toutes les sectes du pays de Suzaku et nous avons élevé ensemble un pays de culture de rang 4 pour en faire un pays de rang 6. Lui comme moi avons réussi à atteindre le stade Ascendant et cette planète de merde nous a été donnée par l'Alliance de la Culture. »
 
-« Ce vieux avait vraiment hâte de s'amuser sur cette planète Suzaku. Malheureusement, le Clan des Immortels Délaissés était là. Le Clan des Immortels Délaissés a osé voler ce vieux, alors comment aurais-je pu les laisser partir? À ce moment-là, la guerre couvrait la planète et le ciel était sombre. Le Clan des Immortels Délaissés comptait quelques femmes formidables que ce vieux a prises pour s'amuser. »
+« Ce vieux avait vraiment hâte de s'amuser sur cette planète Suzaku. Malheureusement, le Clan des Immortels Délaissés était là. Le Clan des Immortels Délaissés a osé voler les biens de ce vieux, alors comment aurais-je pu les laisser partir? À ce moment-là, la guerre couvrait la planète et le ciel était sombre. Le Clan des Immortels Délaissés comptait quelques belles femmes que ce vieux a prises pour s'amuser. »
 
 « Plus tard, Ye Wuyou s'est sacrifié avec certains vieux amis pour sceller le Clan des Immortels Délaissés. À ce moment-là, j'étais très déprimé et je m'apprêtais à quitter la planète Suzaku pour trouver une planète de culture plus faible afin de continuer ma vie de prince. Malheureusement, ce vieux voleur de Ye Wuyou a même comploté contre moi dans sa mort en me faisant devenir le deuxième Suzaku. »
 

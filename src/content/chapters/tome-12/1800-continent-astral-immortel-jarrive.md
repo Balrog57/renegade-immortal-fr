@@ -32,11 +32,11 @@ Tout revint à la normale, mais la peur qui s'était ancrée dans le cœur de ch
 
 Cet événement agissait comme un présage pesant sur les esprits, rendant la respiration difficile et faisant surgir d'innombrables pensées.
 
-Sur le Continent Astral Immortel, après la disparition des trois vortex, dans une ville quelque part, se trouvait un enfant de dix ans. Il avait une main sur la hanche avec l'assurance d'un roi et agitait un bâton de bois. Un groupe d'enfants était conduit par deux cultivateurs au visage renfrogné vers une secte voisine pour y être testés.
+Sur le Continent Astral Immortel, après la disparition des trois vortex, dans une ville quelque part, se trouvait un enfant de dix ans. Il avait une main sur la hanche avec l'assurance d'un prince et agitait un bâton de bois. Un groupe d'enfants était conduit par deux cultivateurs au visage renfrogné vers une secte voisine pour y être testés.
 
 Si l'un d'eux possédait un talent suffisant, il serait admis dans la secte en tant que disciple.
 
-« Un jour, je deviendrai un roi! » Une voix obstinée résonna dans le cœur de cet enfant.
+« Un jour, je deviendrai prince! » Une voix obstinée résonna dans le cœur de cet enfant.
 
 Ailleurs sur ce continent, quelque part au loin, un jeune garçon portait une robe de Dao trouvée par hasard, ressemblant à un enfant céleste. Il se trouvait dans la demeure d'une grande famille. Un sourire flottait sur son visage tandis que plusieurs personnes s'inclinaient respectueusement devant lui.
 
@@ -48,7 +48,7 @@ Une sensation de décomposition rendait toute la pièce sombre et lugubre.
 
 Observant le mortel tremblant, frappé par cette aura de déclin, l'enfant paraissait normal, mais dans son cœur, il souriait comme une fleur.
 
-« Hmph, hmph, l'art de la tromperie de ce petit seigneur est une chose que j'ai maîtrisée sans maître. Ces paroles semblaient vraies même pour moi, comme si je m'étais réellement réincarné! Bon sang, si je suis vraiment réincarné, alors j'ai dû être un menteur capable de faire trembler le ciel! »
+« Hmph, hmph, l'art de la tromperie de ce petit seigneur est une chose que j'ai maîtrisée sans maître. Ces paroles semblaient vraies même pour moi, comme si je m'étais réellement réincarné! Bon sang, si je suis vraiment réincarné, alors j'ai dû être un escroc capable de faire trembler le ciel! »
 
 « Je vais rester ici un certain temps pour ne pas gaspiller les quelques mois passés avec les corps du cimetière... Il y a aussi les frais du voyage dans le comté voisin. Je dois tout récupérer au centuple... »
 
@@ -76,9 +76,9 @@ Il avait déjà perdu la notion du temps. Il ignorait depuis combien de temps il
 
 « D'un autre côté, je dois rapidement augmenter mon niveau de culture sur le Continent Astral Immortel... Il y a aussi la Secte Dong Lin que je dois visiter. Si je peux entrer dans le Bassin Dong Lin... » À cette pensée, le cœur de Wang Lin s'emballa. On pouvait dire qu'il brûlait d'envie d'entrer dans le Bassin Dong Lin!
 
-Il aspirait à faire de l'illusion de la cinquième fleur une réalité. Il désirait posséder des corps véritables d'essence pour pouvoir affronter la Tribulation du Vide!
+Il aspirait à faire de l'illusion des Cinq Fleurs et Huit Portes une réalité. Il désirait posséder des avatars d'essence pour pouvoir affronter la Tribulation du Vide!
 
-« Il y a encore de vieux amis sur le Continent Astral Immortel... J'ignore qui a réussi sa réincarnation... Hehe, je me demande si Situ Nan est devenu un roi. Je ne sais pas si Liu Jinbiao poursuivra son chemin de tromperie. Et il y a ce démon, Xu Liguo. Je me demande quel destin l'attend sur le Continent Astral Immortel. »
+« Il y a encore de vieux amis sur le Continent Astral Immortel... J'ignore qui a réussi sa réincarnation... Hehe, je me demande si Situ Nan est devenu un prince. Je ne sais pas si Liu Jinbiao poursuivra son chemin de tromperie. Et il y a ce démon, Xu Liguo. Je me demande quel destin l'attend sur le Continent Astral Immortel. »
 
 « Il y a aussi Qing Shui, Papillon Rouge... Et Li Qianmei... » Wang Lin avait ses souvenirs et le Roi Moustique pour l'accompagner dans ce vide; il n'était donc pas seul.
 

@@ -8,7 +8,7 @@ slug: lintrus
 ---
 Cette épée brisée était d'un rouge éclatant et, dès son apparition, une monstrueuse énergie de massacre se manifesta. Cette énergie était si puissante qu'elle déferla instantanément hors de la planète, repoussant même les flammes qui l'entouraient.
 
-Cette épée brisée était la source de l'énergie de massacre de l'Omniscient en robe grise. Après la bataille dans la Terre des Esprits Démoniaques, la moitié brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui s'était fondue dans son âme originelle avait déjà été affinée, ne laissant que cette épée brisée dans son corps.
+Cette épée brisée était la source de l'énergie de massacre de l'Omniscient en robe grise. Après la bataille dans la Terre des Esprits Démoniaques, l'épée brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui s'était fondue dans son âme originelle avait déjà été affinée, ne laissant que cette épée brisée dans son corps.
 
 « Après trois ans d'affinage, j'ai acquis une certaine compréhension de base. Une fois cet affinage achevé, je pourrai cultiver l'Art Céleste du Massacre sans aucun problème. Il n'y aura plus aucun risque d'explosion lorsque j'atteindrai un million de brins d'énergie de massacre. »
 
@@ -54,7 +54,7 @@ Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée d
 
 Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; douze heures s'étaient déjà écoulées depuis le début de l'opération.
 
-Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps. Si cela perdurait, non seulement son énergie originelle ne pourrait plus suivre, mais il consumerait également l'énergie originelle céleste obtenue en dévorant ces dizaines de Célestes.
+Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps. Si cela perdurait, non seulement son énergie originelle ne pourrait plus suivre, mais il consumerait également l'énergie originelle céleste obtenue en dévorant les âmes originelles de dizaines de Célestes.
 
 Après douze heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
 
@@ -86,7 +86,7 @@ Dès l'apparition de Wang Lin, le jeune homme noir fut pris d'un mélange d'exci
 
 En voyant Wang Lin, l'expression de la femme devint encore plus amère, mais elle garda le silence.
 
-Wang Lin adressa un signe de tête à Treize et dit doucement à la femme: « Ling Er, emmène-moi rencontrer ton arri-grand-père. »
+Wang Lin adressa un signe de tête à Treize et dit doucement à la femme: « Ling Er, emmène-moi rencontrer ton arrière-grand-père. »
 
 « Arri-grand-père... il... il ne va plus durer longtemps. » Les larmes coulèrent sur les joues de Ling Er.
 

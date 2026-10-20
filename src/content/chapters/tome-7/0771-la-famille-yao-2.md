@@ -75,7 +75,7 @@ Après tout, l'intelligence du Serpent aux yeux de lune était très limitée.
 
 Yao Xixue était la faiblesse de l'Ancêtre Sanguin. Pour sceller ce dernier, Wang Lin avait dû utiliser cela! Face à la survie, la notion de bassesse n'existe pas!
 
-Wang Lin regarda le drapeau d'âme et dit: « Ancêtre Sanguin, je respecte votre amour paternel. J'ai moi aussi un fils. Si quelqu'un s'en prenait à mon enfant... je pourrais comprendre votre colère... Cependant, m'avez-vous laissé une chance de m'expliquer? Je n'ai pas touché à votre fille une seule fois alors qu'elle était ma captive. Si ce n'était pas parce que votre fille complotait contre moi, pourquoi aurais-je osé provoquer l'Ancêtre Sanguin? »
+Wang Lin regarda le drapeau d'âme et dit: « Ancêtre Sanguin, je respecte votre amour paternel. J'ai moi aussi un fils. Si quelqu'un s'en prenait à mon enfant... je pourrais comprendre votre colère... Cependant, m'avez-vous laissé une chance de m'expliquer? Je n'ai pas touché à votre fille une seule fois alors qu'elle était ma captive. Si ce n'était pas parce que votre fille complotait contre moi, pourquoi aurais-je osé provoquer l'Ancêtre Sanguin en connaissant sa puissance? »
 
 Il savait que l'Ancêtre Sanguin pouvait entendre!
 

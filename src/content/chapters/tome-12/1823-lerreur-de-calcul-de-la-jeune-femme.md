@@ -60,7 +60,7 @@ Ce bouleversement attira l'attention de la Secte de la Grande Âme. Les disciple
 
 Des rugissements résonnèrent tandis que de plus en plus de disciples de la Secte de la Grande Âme arrivaient sur les lieux.
 
-Sous terre, la jeune femme ressentit évidemment le changement en surface. Son visage magnifique se voila d'une expression sombre et glaciale. Elle regarda Wang Lin qui s'échappait et forma un sceau de sa main droite. Un miroir de bronze apparut dans sa paume.
+Sous terre, la jeune femme ressentit bien plus fortement ces changements de la terre. Son visage magnifique se voila d'une expression sombre et glaciale. Elle regarda Wang Lin qui s'échappait et forma un sceau de sa main droite. Un miroir de bronze apparut dans sa paume.
 
 « Motif Dao du Miroir Antique, transforme-toi en l'ombre des cieux et de la terre, et tue cet individu! » La jeune femme agita sa main droite et le miroir antique brilla d'un éclat intense. Une masse de gaz noir s'en échappa pour former un visage fantomatique.
 

@@ -8,7 +8,7 @@ slug: le-desir-de-fouler-le-ciel-limpide
 ---
 Une lueur sanglante jaillit. Wang Lin leva la main droite et l'épée de sang s'abattit au sol.
 
-« Cette épée devrait suffire! »
+« Cette épée suffit! »
 
 Le regard de Yan Luan parcourut l'épée de sang. Elle savait qu'il s'agissait d'un trésor du clan Dao Antique, digne d'être parié contre son parapluie bleu.
 
@@ -20,7 +20,7 @@ L'expression de Wang Lin était calme et il ne prêta plus attention à Yan Luan
 
 Elle ressentit un vague regret; elle n'aurait pas dû chercher à provoquer Wang Lin. Ce parapluie bleu était un trésor puissant doté d'une force défensive redoutable.
 
-« Humph, cet homme est très rusé, et c'est un menteur. Je crains qu'après sa défaite, il ne trouve un moyen de se retirer du pari! » lança Yan Luan en regardant Wang Lin marcher vers les marches antiques.
+« Humph, cet homme est très rusé et affecte le mystère. Je crains qu'après sa défaite, il ne trouve un moyen de se retirer du pari! » lança Yan Luan en regardant Wang Lin marcher vers les marches antiques.
 
 Wang Lin observa l'escalier. Il y avait au total dix-neuf marches pour atteindre le septième étage. L'ascension semblait aisée au premier abord, mais dès qu'il s'en approcha, l'aura périlleuse le mit en garde. Si sa volonté flanchait, gravir ces marches reviendrait à tenter de survivre sur une mer déchaînée depuis un esquif solitaire.
 
@@ -96,7 +96,7 @@ Ce visage était le corps véritable d'essence de Wang Lin!
 
 En un éclair, ce feu monstrueux se précipita vers l'escalier illusoire et vers Wang Lin, fusionnant avec son corps.
 
-Au même moment, dans le Pavillon des Écritures de l'Âme, sur les marches menant au septième étage, Wang Lin fut enveloppé par une mer de flammes et son corps véritable d'essence se manifesta!
+Au même moment, dans le Pavillon des Écritures de l'Âme, sur les marches menant au septième étage, les flammes qui enveloppaient Wang Lin se dispersèrent et son corps véritable d'essence se matérialisa derrière lui!
 
 Dès que son corps véritable apparut, ses yeux brillèrent d'un éclat intense. Puisant dans cette nouvelle force, il leva le pied et s'élança à nouveau!
 

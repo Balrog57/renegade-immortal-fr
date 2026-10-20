@@ -16,7 +16,7 @@ Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis 
 
 Après avoir écarté Xu Liguo, Wang Lin fit un pas de côté et disparut.
 
-Ta Shan était toujours assis sur une planète de culture quelque part au sein de la Secte Divine de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser la puissance des tatouages.
+Ta Shan était toujours assis sur une planète de culture quelque part au sein de la Secte Divine de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser, avec son sang, la puissance des tatouages.
 
 Alors qu'il dessinait, la main droite de Ta Shan trembla et il leva la tête. Wang Lin était apparu sans qu'il s'en aperçoive et le regardait calmement.
 

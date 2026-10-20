@@ -16,7 +16,7 @@ Au cours de ces dix années, l'apparence de Wang Lin s'était encore vieillie. D
 
 La fréquence de ses sculptures avait progressivement diminué. Durant ces dix dernières années, Wang Lin n'avait achevé qu'une seule œuvre: celle de la vieille femme de la Secte Nuage Blanc.
 
-En réalité, il avait terminé cette sculpture il y a neuf ans. Bien qu'elle fût similaire à celle de l'homme d'âge mûr et loin d'égaler l'original en puissance, il savait que cela était dû au fait qu'il n'avait pas encore atteint le stade de la Formation de l'Âme.
+En réalité, il avait terminé cette sculpture il y a neuf ans. Bien qu'elle fût similaire à celle de l'homme d'âge mûr et loin d'égaler l'original, il savait que cela était dû au fait qu'il n'avait pas encore atteint le stade de la Formation de l'Âme.
 
 La raison pour laquelle Wang Lin n'avait pas terminé d'autre sculpture était l'homme âgé à la robe cyan.
 

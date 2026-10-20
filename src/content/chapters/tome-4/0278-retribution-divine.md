@@ -8,7 +8,7 @@ slug: retribution-divine
 ---
 Mais il était trop tard!
 
-Plus tôt, lorsque Wang Lin avait sorti la marionnette, il avait pris une décision. En ce moment même, il jouait sa vie. La vieille femme n'était clairement pas une simple cultivatrice au stade initial de la Formation de l'Âme; elle se situait très probablement au sommet du stade intermédiaire. Les techniques d'une telle femme renfermaient naturellement un domaine; si elles le touchaient, le danger serait absolu.
+Plus tôt, lorsque Wang Lin avait sorti la marionnette, il avait pris une décision. En ce moment même, il jouait sa vie. La vieille femme n'était clairement pas une simple cultivatrice au stade initial de la Formation de l'Âme; elle se situait très probablement au sommet du stade intermédiaire. Les techniques d'une telle femme renfermaient naturellement un domaine; s'il était touché par elles, il risquait la mort.
 
 L'écart entre leurs niveaux de culture était trop immense; même en tentant de fuir, il ne serait pas plus rapide qu'elle.
 
@@ -52,7 +52,7 @@ Soudain, un éclair rouge jaillit des nuages. Cet éclair était d'une rapidité
 
 La vieille femme était sur le point d'esquiver à l'intérieur de la tour de glace lorsqu'elle réalisa que ses environs étaient verrouillés par une force destructrice, la rendant incapable de tout mouvement.
 
-Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la rétribution divine alors qu'elle ne faisait que traquer un simple junior de l'Âme Naissante.
+Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la rétribution divine alors qu'elle ne faisait que traquer un simple junior de l'Âme Naissante au stade avancé.
 
 Même si elle était peu perspicace, elle comprit qu'il s'agissait de la mythique rétribution divine.
 

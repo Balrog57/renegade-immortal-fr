@@ -60,7 +60,7 @@ Les grondements continuèrent. Bien que le tonnerre ait éclaté, Wang Lin n'ét
 
 Sa main droite saisit Li Qianmei et il la fit basculer pour qu'elle soit sur son dos. Son énergie originelle forma des cordes pour les attacher ensemble. Une fois cela fait, les mains de Wang Lin formèrent des sceaux et il fit un geste ample. Le domaine de tonnerre, prenant Wang Lin pour centre, rugit une fois de plus!
 
-« Je suis le tonnerre. En exerçant mon droit de contrôler le tonnerre, ô tout tonnerre, écoutez mes ordres. Montez! » Les paroles de Wang Lin étaient empreintes d'une puissance suprême. Dès que sa voix résonna, l'éclair violet rugit et se précipita vers lui.
+« Je suis le tonnerre. En exerçant mon droit de contrôler le tonnerre, ô tout tonnerre, écoutez mes ordres. Montez! » Les paroles de Wang Lin étaient empreintes d'une puissance suprême. Dès que sa voix résonna, l'éclair violet rugit et s'élança vers les nuages.
 
 L'éclair était infini et tourbillonnait autour de Wang Lin. Les gens de la Secte Démon étaient tous terrifiés et stupéfaits par ce spectacle!
 
@@ -104,7 +104,7 @@ Son regard perça les nuages et il vit clairement le pavillon en jade blanc qui 
 
 À cet instant précis, l'une des deux épées de pierre devant la statue trembla et libéra un gaz vert. Ce gaz ressemblait à un nuage et se transforma instantanément en une épée verte. Elle dégageait une énergie d'épée indescriptible qui déchirait les cieux alors qu'elle perçait les nuages pour foncer sur Wang Lin!
 
-L'expression de Wang Lin devint grave. Au moment où l'épée verte se rapprochait, il leva un doigt et pointa le ciel. Deux cerfs apparurent soudainement et dix millions de rayons d'énergie d'épée jaillirent. Un rugissement retentit, mais les dix millions de rayons ne se dispersèrent pas. Au lieu de cela, ils se condensèrent en une seule épée pour s'élancer contre l'épée verte.
+L'expression de Wang Lin devint grave. Au moment où l'épée verte se rapprochait, il leva un doigt et pointa devant lui. Deux cerfs apparurent soudainement et dix millions de rayons d'énergie d'épée jaillirent. Un rugissement retentit, mais les dix millions de rayons ne se dispersèrent pas. Au lieu de cela, ils se condensèrent en une seule épée pour s'élancer contre l'épée verte.
 
 Un fracas tonitruant retentit lors de la collision entre l'épée verte et les dix millions d'épées de Wang Lin. L'énergie d'épée fulgurait et des bruits de craquements résonnaient tandis que l'épée verte était constamment affaiblie, sans toutefois s'effondrer. À ce moment-là, l'épée qui émettait l'énergie trembla et des fissures apparurent sur sa surface. Finalement, l'épée se libéra, dégageant une puissante lueur verte, et fonça vers Wang Lin!
 

@@ -40,7 +40,7 @@ D'innombrables âmes tourmentées gravitaient autour de l'instrument, poussant d
 
 Ce tambour semblait d'un poids colossal. Près de cent cultivateurs déployaient toute leur puissance pour le porter, mais ils progressaient avec lenteur.
 
-Dès que Wang Lin aperçut ce grand tambour, ses yeux se plissèrent. Il se mua en gaz et resta immobile. Il sentait clairement qu'un cultivateur était dissimulé à l'intérieur de l'artefact.
+Dès que Wang Lin aperçut ce grand tambour, ses yeux se plissèrent. Il se mua en brume et resta immobile. Il sentait clairement qu'un cultivateur était dissimulé à l'intérieur de l'artefact.
 
 Ce cultivateur semblait ne faire qu'un avec le tambour et, lorsqu'il passa au-dessus de Wang Lin, un sens divin s'en déploya. Après avoir balayé la zone, il s'éloigna lentement.
 
@@ -100,7 +100,7 @@ Neuf vortex apparurent en divers points de la mer. Ils tournaient lentement, tan
 
 « Le Senior Frère a commencé! » La femme cessa d'examiner la boussole pour regarder l'horizon avec impatience.
 
-Simultanément, un groupe d'une douzaine de cultivateurs surgit des flots et vola vers la femme. Il s'agissait d'un détachement de Soldats du Démon Vert qui revenaient après avoir exécuté les ordres de la femme.
+Simultanément, un groupe de plus d'une douzaine de cultivateurs surgit des flots et vola vers la femme. Il s'agissait d'un détachement de Soldats du Démon Vert qui revenaient après avoir exécuté les ordres de la femme.
 
 Ces plus d'une douzaine de soldats traversèrent le ciel à toute allure. Ils n'attirèrent ni l'attention de la femme, ni celle des cultivateurs environnants; ce genre de mouvement était tout à fait habituel.
 
@@ -118,6 +118,6 @@ Le jeune homme à l'éventail remarqua le changement sur son visage et demanda p
 
 Le jeune homme au visage de jade leva sa main droite et la posa sur le dos de la femme sans hésiter. Celle-ci prit une profonde inspiration, ses yeux brillant d'une lueur étrange. Elle fixa la boussole et, appliquant la méthode transmise par son maître, traça un sceau de la main gauche en pointant l'instrument.
 
-Elle ne remarqua pas que les douze cultivateurs du Continent du Démon Vert qu'elle avait envoyés étaient déjà de retour. Ils se rapprochaient d'elle inexorablement!
+Elle ne remarqua pas que les plus d'une douzaine de cultivateurs du Continent du Démon Vert qu'elle avait envoyés étaient déjà de retour. Ils se rapprochaient d'elle inexorablement!
 
-Une intention meurtrière, dissimulée, planait désormais au sein de ces douze cultivateurs!
+Une intention meurtrière, dissimulée, planait désormais au sein de ces plus d'une douzaine de cultivateurs!

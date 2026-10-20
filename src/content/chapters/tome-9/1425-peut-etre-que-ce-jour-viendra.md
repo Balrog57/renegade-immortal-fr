@@ -80,7 +80,7 @@ Le jeune homme se mordit la lèvre jusqu'au sang, laissant quelques gouttes tomb
 
 Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Brise-Ciel et, porté par une détermination hors du commun, il devint le plus brillant de la génération junior!
 
-Dans le fief du Gang des Chevaux, plus de mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit vieillards subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
+Au sein du Gang des Chevaux, plus de mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit vieillards subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
 
 Leurs âmes avaient été extraites et soumises à un raffinage cruel, les empêchant d'entrer dans le cycle de la réincarnation... Pourtant, Sima Mo ressentait toujours une douleur semblable à des aiguilles transperçant son cœur. Le principal coupable qui avait outragé sa petite sœur était mort de maladie des années auparavant. Grâce à la recherche d'âme, il avait découvert que ce dernier n'avait pas vraiment souffert avant de mourir, et il refusait de laisser cela ainsi!
 

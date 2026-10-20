@@ -82,7 +82,7 @@ C'est alors que des craquements retentirent. Le gaz noir se condensa autour de l
 
 La lame en sa main devint également noire et s'allongea, prenant la forme d'un croissant de lune!
 
-Wang Lin leva son arme et rit. Vêtu de son armure noire, il chargea de nouveau, maniant sa lame pour semer une mort toujours plus grande. En moins d'un quart d'heure, les dix soldats en armure noire furent tous terrassés!
+Wang Lin leva son arme et rit. Vêtu de son armure noire, il chargea de nouveau, maniant sa lame pour semer une mort toujours plus grande. Au bout d'un quart d'heure, les dix soldats en armure noire furent tous terrassés!
 
 Après ce massacre, l'armure de Wang Lin enveloppait presque tout son corps; seul le casque lui manquait encore. Il dégageait une puissance écrasante au milieu de la troupe!
 

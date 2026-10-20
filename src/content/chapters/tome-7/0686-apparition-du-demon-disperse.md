@@ -8,13 +8,13 @@ slug: apparition-du-demon-disperse
 ---
 Une épaisse énergie démoniaque qui se répandait à travers le monde apparut avec ce hurlement. Cette énergie était si dense qu'elle fit jaillir des flammes démoniaques dans le ciel, lesquelles entrèrent immédiatement en collision avec l'énergie spirituelle céleste de la silhouette qui s'avançait!
 
-Au cœur des flammes démoniaques, une épaisse fumée noire jaillit du sommet de la tête de Wang Lin. Cette fumée se condensa pour former la silhouette d'un démon à une seule corne. Une fois apparu, il poussa un autre hurlement strident.
+Au cœur des flammes démoniaques, une épaisse fumée noire jaillit du sommet de la tête de Wang Lin. Cette fumée se condensa pour former la silhouette d'un démon entièrement noir à une seule corne. Une fois apparu, il poussa un autre hurlement strident.
 
 Sa voix possédait une puissance de pénétration infinie, telle une pointe acérée capable de transpercer le monde.
 
 Le Démon Dispersé!
 
-Wang Lin projetait de le raffiner pour en faire sa seconde âme originelle! Après un siècle de raffinage, tout ce que Wang Lin avait réussi était d'en approfondir le contrôle, sans toutefois parvenir à le raffiner véritablement.
+Wang Lin projetait de le raffiner pour en faire sa seconde âme originelle! Après plus d'un siècle de raffinage, tout ce que Wang Lin avait réussi était d'en approfondir le contrôle, sans toutefois parvenir à le raffiner véritablement.
 
 Depuis que l'empreinte de contrôle avait été posée sur lui, son sens divin était tombé en léthargie, réduisant considérablement sa force. Autrement, s'il avait été pleinement éveillé, Wang Lin aurait eu beaucoup de mal à le maîtriser.
 
@@ -44,7 +44,7 @@ En un instant, une puissante aura démoniaque se propagea autour de lui. Simulta
 
 Au cours de ce processus, le visage de Wang Lin trahit une expression de douleur. Cependant, son regard devint plus glacial encore, et une fumée noire semblait circuler au fond de ses yeux.
 
-C'était la raison pour laquelle Wang Lin était venu seul: il suivait cette idée folle. S'il voulait tuer Liu Mei, protégé par l'ancêtre de la famille Huan, c'était tout simplement impossible. Même avec la garde céleste, la tâche était hors de portée.
+C'était la raison pour laquelle Wang Lin était venu seul: il suivait cette idée folle. S'il voulait tuer Liu Mei, protégé par l'ancêtre de la famille Huan, c'était tout simplement impossible. Même avec les marionnettes de la garde céleste, la tâche était hors de portée.
 
 La famille Huan existait depuis des éons et possédait certainement des secrets particuliers; Wang Lin l'avait bien compris. C'est pourquoi il avait renoncé à raffiner le Démon Dispersé. Au lieu de cela, il l'avait éveillé et lui avait promis la liberté pour qu'il combatte en son nom!
 
@@ -66,7 +66,7 @@ Ce coup de poing portait la puissance du Démon Dispersé et la force de l'armur
 
 La main droite de la figure céleste traça un sceau et pointa vers l'avant. L'énergie spirituelle céleste environnante se condensa immédiatement pour former un vortex gigantesque. Celui-ci se précipita sur le dragon noir et, en un instant, les deux furent réduits à néant.
 
-La figure céleste retira sa main et ouvrit les bras. Chacune de ses mains portait un sceau différent, et une énergie spirituelle infinie convergeait vers lui depuis toute la planète Mille Illusions. Par une méthode mystérieuse, cette énergie fut transformée en énergie spirituelle céleste.
+La figure céleste retira sa main et ouvrit les bras. Chacune de ses mains portait un sceau différent. Mille Illusions frémit soudain, et une énergie spirituelle infinie convergeait vers lui depuis toute la planète. Par une méthode mystérieuse, cette énergie fut transformée en énergie spirituelle céleste.
 
 Cette énergie était si dense qu'elle semblait devenir solide, se condensant frénétiquement au-dessus de la main droite de l'entité céleste. En un clin d'œil, une faille apparut soudainement dans le cycle de l'énergie spirituelle de la planète Mille Illusions!
 
@@ -76,7 +76,7 @@ Toute l'énergie avait été convertie en énergie spirituelle céleste, formant
 
 Cette méthode fit plisser les yeux de Wang Lin, mais le Démon Dispersé qui dirigeait son corps eut un sourire glacial: « Un simple sort de transformation céleste. Ce n'est qu'un art provenant d'une branche du clan des anciens démons, et tu oses l'exhiber devant moi! »
 
-Le regard de Wang Lin restait calme, mais l'énergie démoniaque autour de lui s'intensifia. Sous le contrôle du Démon Dispersé, il pointa le ciel de sa main droite et tonna: « Ancien Démon! »
+Le regard de Wang Lin restait calme, mais la fumée démoniaque autour de lui s'épaissit. Sous le contrôle du Démon Dispersé, il pointa le ciel de sa main droite et tonna: « Ancien Démon! »
 
 Ces deux mots furent prononcés dans la langue du clan ancien. À cet instant, la main droite de Wang Lin se mua en griffe, entourée de flammes démoniaques. Ces flammes quittèrent son corps pour former une gigantesque griffe démoniaque de plusieurs dizaines de pieds de long.
 

@@ -58,7 +58,7 @@ On pouvait distinguer qu'après que le corps de Wang Lin eut tenté de se reform
 
 Cette sensation d'être déchiré par la force était bien plus intense que lors de sa fusion initiale. Le visage de Wang Lin se crispa dans une grimace atroce, mais il ne poussa aucun cri; il se contenta de fixer le Souverain. Il allait s'en souvenir... il n'oublierait rien de ce qui lui arrivait aujourd'hui!
 
-S'il obtenait une autre vie, s'il survivait à cette journée, alors toute la douleur endurée serait remboursée au centuple!
+S'il obtenait une autre vie, s'il survivait à cette journée, alors toute la douleur endurée serait remboursée dix fois, cent fois, mille fois, dix mille fois!
 
 Il lui restait encore un atout qu'il n'avait pas utilisé!
 
@@ -80,7 +80,7 @@ En un éclair, sous l'effet d'une agonie indescriptible, tout le sang de Wang Li
 
 De loin, la scène était terrifiante. Le sang doré qui jaillissait du corps de Wang Lin prit une forme humaine, calquée sur sa propre silhouette!
 
-C'était comme une âme. Wang Lin semblait avoir été scindé en deux, et cette figure de lumière dorée se détacha lentement de son corps. Elle flottait à quelques centimètres au-dessus de lui, alors que les derniers filaments de lumière les reliant s'amenuisaient!
+C'était comme une âme. Wang Lin semblait avoir été scindé en deux, et cette figure de lumière dorée se détacha lentement de son corps. Elle flottait à sept pieds au-dessus de lui, alors que les derniers filaments de lumière les reliant s'amenuisaient!
 
 Lorsque la silhouette dorée s'élança, les étoiles du Dieu Antique entre les sourcils de Wang Lin changèrent, et n'avaient plus aucune lueur d'or. Même les étoiles du Démon Antique dans son œil droit avaient perdu leur éclat doré!
 
@@ -100,7 +100,7 @@ Le Souverain perdait rarement son sang-froid; seul ce sang pouvait provoquer une
 
 Mais au moment où il allait la saisir, un regard d'une froideur monstrueuse s'illumina dans les yeux de Wang Lin. Il mordit le bout de sa langue et cracha une bouffée de son sang antique, qui se mua en lame de sang. Cela ouvrit son espace de stockage et un palais noir s'en échappa!
 
-Dès l'apparition du palais, le monde s'obscurcit; le sang antique de Wang Lin atterrit sur l'une des fenêtres, la teintant de pourpre.
+Dès l'apparition du palais, le monde s'obscurcit; le sang antique de Wang Lin atterrit sur l'une des trois fenêtres, la teintant de pourpre.
 
 « En mon nom, Wang Lin l'Antique, je romps votre sceau pour vous accorder la liberté et m'aider à terrasser mon ennemi! » Avec son niveau de culture actuel, Wang Lin ne pouvait ouvrir qu'une seule fenêtre et libérer une seule des puissantes âmes scellées par Ye Mo!
 

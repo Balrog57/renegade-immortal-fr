@@ -34,11 +34,11 @@ Le quarante-neuvième fragment sembla soudainement prendre vie, animé d'un espr
 
 Ce ne fut que le début. Sous les yeux de Wang Lin, des ondulations se succédèrent sur le miroir ancien. Tandis que le Maître Yan Leizi lançait ses appels, ces âmes originelles de cultivateurs de l'Yin Illusoire disparurent dans les divers fragments. Bientôt, vingt-huit des quarante-neuf fragments en rotation rapide contenaient une âme de trésor.
 
-« Âme de trésor, apparais encore une fois! » Les yeux du Maître Yan Leizi étaient empreints d'excitation alors que la surface du miroir se tordait violemment pour libérer une autre âme originelle. L'énergie émanant de celle-ci était manifestement plus puissante que les vingt-huit précédentes. Wang Lin inspira brusquement en reconnaissant l'âme originelle d'un cultivateur du Corporel Yang.
+« Âme de trésor, apparais encore une fois! » Les yeux du Maître Yan Leizi étaient empreints d'excitation alors que la surface du miroir se tordait violemment pour libérer une autre âme originelle. L'énergie émanant de celle-ci était manifestement plus puissante que les vingt-huit précédentes. Wang Lin inspira brusquement en reconnaissant l'âme originelle d'un cultivateur du Yang Corporel.
 
 L'expression du jeune homme maléfique resta neutre: « Rang 9 Céleste Supérieur, pas mal! »
 
-À la suite de cette âme du Corporel Yang, treize autres s'échappèrent et disparurent dans les fragments. Parmi les quarante-neuf pièces, quarante-deux changèrent soudainement d'état. Non seulement elles furent investies d'un esprit, mais la puissance de la formation grimpa en flèche sans fin.
+À la suite de cette âme du Yang Corporel, treize autres s'échappèrent et disparurent dans les fragments. Parmi les quarante-neuf pièces, quarante-deux changèrent soudainement d'état. Non seulement elles furent investies d'un esprit, mais la puissance de la formation grimpa en flèche sans fin.
 
 « Encore une fois! » Le Maître Yan Leizi riait comme un fou. Il s'était préparé pendant des dizaines de milliers d'années pour ce jour précis!
 

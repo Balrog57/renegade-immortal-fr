@@ -36,7 +36,7 @@ Les cultivateurs au stade du Scruteur du Nirvana devaient prêter attention aux 
 
 C'est aussi pour cette raison qu'il y avait si peu de cultivateurs de la deuxième étape. Certains avaient réussi à saisir certaines lois, ce qui permettait d'augmenter leur niveau de culture. Pourtant, en fin de compte, ils ne parvenaient toujours pas à progresser et leurs sorts manquaient de puissance. La raison principale était que leur façon de saisir les lois était passive plutôt qu'active!
 
-Wang Lin effleura vaguement l'essence même de la loi. Un sourire apparut sur ses lèvres tandis qu'il agitait la main. Les nuages devinrent progressivement transparents et finirent par disparaître.
+Wang Lin effleura vaguement le bord d'une loi. Un sourire apparut sur ses lèvres tandis qu'il agitait la main. Les nuages devinrent progressivement transparents et finirent par disparaître.
 
 Tout en riant, il regagna le sommet de la montagne d'un seul pas. Il se tint là et leva les yeux vers les nuages. À cet instant, la pluie tombait toujours, mais elle se transformait en vapeur d'eau à trois pouces de lui. Bientôt, une couche de nuages enveloppa Wang Lin.
 
@@ -44,7 +44,7 @@ Cette scène était identique à celle de l'arrivée de Maître Yan Leizi. Cepen
 
 Pourtant, si le sens divin de Maître Yan Leizi descendait sur la planète et voyait cela, il en serait stupéfait. Car ce nuage n'était pas causé par un sort d'énergie originelle, mais était un signe manifeste des lois.
 
-C'était l'œuvre du pouvoir de la loi. Ce n'était pas une action délibérée; cela consistait à modifier subtilement l'espace environnant pour que les gouttes de pluie se transmutent en nuages. Ce nuage lui-même était un sort d'une puissance infinie!
+C'était l'œuvre du pouvoir de la loi. Ce n'était pas une action délibérée; cela consistait à modifier subtilement l'espace environnant pour que les gouttes de pluie se transmutent en nuages. Ce nuage lui-même était un sort d'une puissance infinie, qui obéissait à sa volonté!
 
 « L'Empereur Céleste Bai Fan était véritablement un être divin! » Wang Lin soupira. Il avait hérité du sort *Invoquer la Pluie* de la part de Qing Shui. Ce sort céleste provenait de l'Empereur Céleste Bai Fan. Rien qu'en comprenant ce sort, il avait réussi à effleurer les lois.
 
@@ -70,7 +70,7 @@ En vérité, quelque chose avait toujours existé autour de lui, mais à moins d
 
 À cet instant, Wang Lin comprit parfaitement.
 
-« Je comprends enfin la dimension liée à la loi de l'eau de la perle défiant le ciel après mille ans... Cette partie était la première étape révélée par la perle... Même maintenant, je ne l'ai pas pleinement maîtrisée, je n'ai fait que l'effleurer. » Wang Lin toucha l'espace entre ses sourcils, empreint de regret.
+« Je comprends enfin la dimension liée à la loi de l'eau de la perle défiant le ciel après mille ans... Cette partie était la première étape révélée par la perle... Même maintenant, je ne l'ai pas pleinement maîtrisée, je n'ai fait que l'effleurer. » Wang Lin toucha l'espace entre ses sourcils, empreint d'émotion.
 
 Il regarda la pluie tomber du ciel et agita légèrement la main en murmurant: « Dispersez-vous! »
 
@@ -86,11 +86,11 @@ Un arc-en-ciel se dessina à l'horizon. C'était une scène digne du Royaume Cé
 
 Dans cette atmosphère, même les bêtes féroces qui apparaissaient ne rugissaient pas; elles se contentaient de grogner bassement vers le ciel.
 
-Plusieurs oiseaux s'envolèrent avec des pépiements joyeux par-dessus l'horizon. Il était évident que la longue saison des pluies les avait empêchés de voler pendant longtemps.
+Plusieurs oiseaux s'envolèrent en pépiant joyeusement et en tournoyant dans le ciel. Il était évident que la longue saison des pluies les avait empêchés de voler pendant longtemps.
 
 Le regard de Wang Lin était calme. Sa main droite traça un sceau et un vent noir apparut soudainement à dix pieds devant lui. Ce vent se transforma en deux dragons noirs qui projetèrent un air glacial. Cet air froid fusionna avec la brume pour former des nuages, puis les gouttelettes d'eau se condensèrent. L'énergie originelle du monde environnant afflua alors vers ces nuages.
 
-D'une simple commande de Wang Lin, la pluie pouvait se disperser à travers le monde et le sort *Invoquer la Pluie* pouvait être manifesté!
+D'une simple commande de Wang Lin, la pluie pouvait se disperser à travers le monde et le sort *Invoquer la Pluie* était désormais pleinement compris et pouvait être manifesté!
 
 Il agita sa main droite et les nuages disparurent. Les dragons noirs s'évanouirent également, et tout revint à la normale.
 
@@ -126,4 +126,4 @@ Regardant son propre corps, le cultivateur aux six doigts esquissa un sourire si
 
 Derrière lui, les cultivateurs Luotian sortirent un à un, arborant tous des sourires étranges.
 
-« Le plan du Palais Xuan pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Saint Démon Noir et le Saint de l'Origine du Dao Céleste sont arrivés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »
+« Le plan du Palais Xuan pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Saint Démon Noir et le Saint de l'Origine du Dao Céleste ont été dépêchés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »

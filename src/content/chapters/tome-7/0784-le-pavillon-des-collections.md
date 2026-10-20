@@ -18,9 +18,9 @@ Les yeux de ces trois individus étaient injectés de sang. Ils n'avaient qu'une
 
 Wang Lin était encore en état de transe, son esprit restait captivé par les changements prodigieux du sort "Invoquer le Vent". Alors que les trois assaillants approchaient, il leva presque inconsciemment la main droite, dos aux trois hommes, et murmura: « Invoquer le Vent. »
 
-À l'instant même où il prononça ces mots, un vent noir jaillit de la main de Wang Lin. Ce souffle s'amplifia aussitôt pour envelopper toute la zone. Tandis que ce vent glacial soufflait, le ciel s'obscurcit comme s'il se repliait sur lui-même.
+À l'instant même où il prononça ces mots, un vent noir jaillit de la main de Wang Lin. Ce souffle s'amplifia aussitôt pour envelopper toute la zone. Tandis que ce vent noir soufflait, le ciel s'obscurcit comme s'il se repliait sur lui-même.
 
-Le fragment entier commença à trembler et une aura puissante emplit le monde. Tout cela était dû au vent noir! À cause de ce sort céleste! C'était comme si la terre gardait le souvenir de ce sort, comme si le ciel avait déjà été fustigé par lui par le passé.
+Le fragment entier commença à trembler et une aura puissante emplit le monde. Tout cela était dû au vent noir! À cause de ce sort céleste! C'était comme si la terre gardait le souvenir de ce sort, comme si le ciel avait déjà sombré sous ce sort par le passé.
 
 Au moment où le vent noir apparut, le sort de l'empereur céleste, disparu depuis d'innombrables années, venait de renaître!
 
@@ -40,7 +40,7 @@ Quant au cultivateur nommé Lu, l'éventail qu'il tenait se désintégra dès qu
 
 À cet instant, le vent noir disparut soudainement, comme s'il n'avait jamais existé. Les yeux de Wang Lin quittèrent leur état de transe pour retrouver toute leur clarté.
 
-« Ainsi donc, c'est cela, le sort céleste "Invoquer le Vent"! » Il prit une profonde inspiration, le visage pâle alors qu'il faisait un pas en avant. Le drapeau des mille millions d'âmes surgit de sa sacoche et la brume noire se propagea, traquant le cultivateur Lu.
+« Ainsi donc, c'est cela, le sort céleste "Invoquer le Vent"! » Il prit une profonde inspiration, le visage pâle alors qu'il faisait un pas en avant. Le Drapeau des Âmes d'un Milliard surgit de sa sacoche et la brume noire se propagea, traquant le cultivateur Lu.
 
 De son côté, le regard de Wang Lin devint glacial; il cracha un grain de sable qui se mua en un sceau pour poursuivre le cultivateur Song. L'artefact le rattrapa instantanément et s'abattit sur lui sans merci.
 

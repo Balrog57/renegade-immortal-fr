@@ -40,7 +40,7 @@ Sur ce, il emporta Murong Yun et accéléra soudainement, disparaissant au loin.
 
 Les yeux de Wang Lin s'illuminèrent. Il agita sa main droite et la femme laide fut immédiatement enveloppée par une puissance mystérieuse. Wang Lin s'envola à son tour en l'emportant avec lui.
 
-« Senior est-il Ceng Niu? » La femme se trouvait derrière Wang Lin, et un soupçon de son parfum parvint jusqu'à ses narines.
+« Senior est-il Ceng Niu? » La femme se trouvait à côté de Wang Lin, et un soupçon de son parfum parvint jusqu'à ses narines.
 
 Wang Lin répondit calmement: « C'est bien moi. »
 
@@ -60,7 +60,7 @@ Puis, il frappa son sac de rangement pour en extraire un objet. D'un geste sec, 
 
 La montagne nichée dans le nuage semblait floue; c'était comme si quelque chose enveloppait le sommet, lui conférant un aspect éthéré. Au sommet se trouvait une vaste plateforme, et au centre de celle-ci trônait un autel noir d'environ 330 mètres.
 
-Cet autel prenait la forme d'une tour dont les marches menaient au sommet. Une concavité se trouvait au faîte de la tour, où s'engouffrait une brume noire.
+Cet autel prenait la forme d'une tour dont les marches menaient au sommet. Une concavité se trouvait au faîte de la tour, d'où s'échappait une brume noire.
 
 Mo Yunhai saisit Murong Yun et atterrit sur l'autel. Wang Lin les rejoignit peu après.
 
@@ -94,7 +94,7 @@ Wang Lin eut un ricanement et ne daigna pas regarder l'autel. Au lieu de cela, i
 
 Dès que le sort atteignit sa cible, Murong Yun ouvrit brusquement les yeux, intercepta l'attaque et la broya. Il se redressa et fixa Wang Lin. Un gaz noir surgit soudainement pour recouvrir son visage, transformant ses traits autrefois séduisants en une expression féroce.
 
-« Comment as-tu deviné?! » Sa voix était empreinte d'une puissance mystérieuse.
+« Quand t'en es-tu aperçu?! » Sa voix était empreinte d'une puissance mystérieuse.
 
 Le regard de Wang Lin restait serein lorsqu'il répondit: « Je peux te le dire, mais tu devras répondre à quelques questions de ma part. »
 
@@ -122,7 +122,7 @@ Un drapeau de 10 mètres de haut, dont le tissu mesurait 33 mètres de long, jai
 
 Parmi ces âmes primaires se trouvait un Qilin doré et pourpre, dont les yeux brillaient d'une férocité sauvage.
 
-Wang Lin avait raffiné le drapeau d'âme du milliard d'âmes une fois de plus en chemin avec Situ Nan. Il y avait fusionné ses deux autres drapeaux; désormais, le Qilin et Li Yuanfeng étaient tous deux des âmes primaires de ce même drapeau.
+Wang Lin avait raffiné le drapeau d'âme du milliard d'âmes une fois de plus en chemin avec Situ Nan. Il y avait fusionné ses deux autres drapeaux; désormais, l'âme résiduelle du Qilin et Li Yuanfeng étaient tous deux des âmes primaires de ce même drapeau.
 
 À présent, ce drapeau d'âme du milliard d'âmes comptait 28 âmes primaires!
 

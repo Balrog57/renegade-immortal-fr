@@ -76,7 +76,7 @@ En particulier, Wang Lin avait fusionné les trois grandes restrictions, atteign
 
 « Restriction d'Annihilation, scelle le monde! Restriction de la Vie et de la Mort, scelle le corps! Restriction du Temps, scelle l'âme originelle! Trois grandes restrictions n'en font qu'une: Scelle! Scelle! Scelle! Scelle ton monde, scelle ton corps et scelle ton âme originelle! » Wang Lin pointa le doigt vers l'avant.
 
-Des grondements de tonnerre résonnèrent. Hormis le continent sauvage sous le contrôle de Wang Lin, tous les autres continents sauvages encerclèrent Shui Daozi pour former une matrice. Une pression colossale apparut et s'écrasa sur lui!
+Des grondements de tonnerre résonnèrent. Hormis le continent sauvage sous le contrôle de Wang Lin, tous les autres continents sauvages encerclèrent Shui Daozi pour former une formation circulaire. Une pression colossale apparut et s'écrasa sur lui!
 
 Les restrictions qui avaient été contenues dans ces cent continents sauvages éclatèrent. La restriction d'Annihilation jaillit, formant une cage gigantesque qui emprisonna le monde!
 

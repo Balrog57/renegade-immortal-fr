@@ -22,7 +22,7 @@ L'examen de qualification pour accéder au champ de bataille étranger avait ét
 
 Les sourcils froncés, il murmura: « Es-tu certain de pouvoir tuer Pu Nanzi? »
 
-Une voix rauque s'échappa du corps de Ye Zizai: « Bien que ce junior ne soit qu'au milieu du stade de l'Âme Naissante, il se trouve au sommet de cette étape. S'il a de la chance, il pourra percer le stade avancé d'ici cent ans et devenir le maître d'un pays de culture de rang 3. Si j'avais fini de dévorer ce corps, il ne serait naturellement pas un problème, mais pour l'instant, c'est difficile à dire. »
+Une voix rauque s'échappa du corps de Ye Zizai: « Bien que ce junior ne soit qu'au milieu du stade de l'Âme Naissante, il se trouve au sommet de cette étape. S'il a de la chance, il pourra percer le stade avancé d'ici cent ans et devenir l'expert suprême d'un pays de culture de rang 3. Si j'avais fini de dévorer ce corps, il ne serait naturellement pas un problème, mais pour l'instant, c'est difficile à dire. »
 
 Ye Zizai resta longuement en silence pour réfléchir. Après un moment, il sortit un morceau de jade d'un vert émeraude, sur lequel de minuscules runes couleur de sang scintillaient sans cesse.
 

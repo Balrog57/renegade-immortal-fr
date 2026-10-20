@@ -76,7 +76,7 @@ Wang Lin se redressa et contempla les sourires radieux de ses parents. Un sentim
 
 Le retour de Wang Lin provoqua une agitation sans précédent dans tout le village pendant quelques jours. Les voisins se précipitèrent, désireux d'apercevoir ce Grand Érudit de Zhao qui faisait leur fierté. Même les érudits et les fonctionnaires du district accoururent dès qu'ils apprirent la nouvelle, accompagnés des membres de la famille Wang.
 
-Durant ces quelques jours, le père de Wang Lin était rayonnant, la tête haute. La plus grande fierté de sa vie était son fils. Voyant tant de monde affluer, il se sentit encore plus honoré et sortit de l'argent pour organiser un banquet dans le village.
+Durant ces quelques jours, le père de Wang Lin était rayonnant, la tête haute. La plus grande fierté de sa vie était son fils. Voyant tant de monde affluer, il se sentit encore plus honoré et sortit de l'argent pour organiser un banquet sur la place du village.
 
 Le banquet devait être simple à l'origine, mais sous l'insistance des villageois, il devint extrêmement luxueux. Un chef fut amené du district avec toutes les provisions nécessaires pour cuisiner personnellement tous les mets.
 

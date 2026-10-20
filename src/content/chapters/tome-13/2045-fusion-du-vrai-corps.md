@@ -64,7 +64,7 @@ La personne qui intéresse ton maître n'est pas cet homme, mais le Grand Empyr�
 
 Le jeune homme poussa un soupir de soulagement avant de demander, après une hésitation:
 
-« Maître, si Wang Lin sort d'une culture en porte fermée après cent ans, cela signifie que son niveau a progressé, sans quoi il ne pourrait dégager une telle pression. »
+« Maître, si Wang Lin sort de sa culture fermée après cent ans, cela signifie que son niveau a progressé, sans quoi il ne pourrait dégager une telle pression. »
 
 L'homme d'âge moyen resta silencieux, mais ses pupilles se contractèrent imperceptiblement. Après un long moment de réflexion, il prit la parole:
 
@@ -80,7 +80,7 @@ Après un long silence, la silhouette murmura pour elle-même: « Fusion des cor
 
 Alors que la brume enveloppait le palais du prince Ji Du, un soleil apparut dans le ciel, et le monde changea brusquement de teinte pour basculer dans la nuit!
 
-En peu de temps, le ciel alternait entre le jour et la nuit. Après neuf cycles, toute la brume se mua en runes scintillantes, chacune imprégnée du pouvoir de l'essence de restriction.
+En peu de temps, le ciel alternait entre le jour et la nuit. Après neuf cycles, un léger murmure s'éleva du palais, et toute la brume se mua en runes scintillantes, chacune imprégnée du pouvoir de l'essence de restriction.
 
 Plusieurs heures s'écoulèrent lentement. Durant ce laps de temps, les restrictions se multiplièrent et l'alternance jour-nuit devint encore plus fréquente, mais aucun signe de fusion n'apparaissait.
 
@@ -94,7 +94,7 @@ Pourtant, il ne s'agissait pas de son corps originel, mais de son véritable cor
 
 Cette force était celle des cinq éléments du ciel et de la terre!
 
-Le corps de mille pieds inspira une nouvelle fois. La terre trembla, un feu céleste jaillit, une brume pluvieuse s'éleva, l'herbe se flétrit et même les métaux célestes s'animèrent. Le pouvoir des cinq éléments fut aspiré dans sa bouche.
+Le corps de mille pieds inspira une nouvelle fois. La terre trembla, un feu céleste jaillit, une brume pluvieuse s'éleva, l'herbe se flétrit et même l'essence du Métal s'agita. Le pouvoir des cinq éléments fut aspiré dans sa bouche.
 
 Dans un fracas de tonnerre, l'ombre de mille pieds grandit encore pour devenir un géant de dix mille pieds!
 

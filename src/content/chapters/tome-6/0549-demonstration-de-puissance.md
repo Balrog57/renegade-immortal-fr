@@ -76,7 +76,7 @@ L'un des soldats démons cria avec rage: « Frères, vengons notre chef de régi
 
 Le regard de Wang Lin devint plus glacial encore et il murmura doucement: « Se révolter contre son supérieur... »
 
-Il esquissa alors un sourire effroyable. Sans s'envoler, il frappa son sac de rangement et en sortit son épée céleste. D'un seul mouvement, un rayon d'énergie d'épée jaillit comme pour fendre les cieux. La lame en croissant suivit rapidement la trajectoire et chargea de plein fouet les soldats démons.
+Il esquissa alors un sourire effroyable. Sans se lever, il frappa son sac de rangement et en sortit son épée céleste. D'un seul mouvement, un rayon d'énergie d'épée jaillit comme pour fendre les cieux. La lame en croissant suivit rapidement la trajectoire et chargea de plein fouet les soldats démons.
 
 Des cris commencèrent immédiatement à résonner dans la zone. Pour l'épée céleste, traiter avec ces soldats démons qui n'étaient qu'au stade de la Formation du Noyau était d'une facilité déconcertante. En un éclair, des têtes de soldats démons roulèrent au sol.
 
@@ -92,7 +92,7 @@ L'énergie démoniaque était si dense qu'elle créa un tourbillon dont Wang Lin
 
 En un laps de temps très court, plus de la moitié du régiment d'un millier d'hommes du chef de régiment Sun avait péri! Les survivants reculèrent tous; la colère dans leurs yeux s'était dissipée, remplacée par une intention de tuer sans limite et une once de peur profondément enfouie.
 
-Les neuf chefs de régiment, vêtus de leurs armures noires, encerclèrent Wang Lin. Leurs regards se posèrent immédiatement sur le cadavre du chef de régiment Sun.
+Les neuf chefs de régiment, vêtus de leurs armures noires, s'approchèrent de Wang Lin. Leurs regards se posèrent immédiatement sur le cadavre du chef de régiment Sun.
 
 Les neuf mille soldats démons se déployèrent pour entourer la position de Wang Lin, et une épaisse intention de tuer emplit instantanément la zone. Ils ne se contentaient pas de l'encercler; ils mettaient en place une formation dont la cible était Wang Lin!
 
@@ -100,7 +100,7 @@ Treize et Hu Pao se levèrent d'un bond, le regard froid. Surtout Hu Pao qui, l�
 
 Wang Lin était toujours assis en position de lotus sur le sol. Même lors du massacre précédent, il ne s'était pas levé. À cet instant, bien qu'entouré de neuf mille soldats démons, son expression restait sereine, et il demanda calmement: « Comptez-vous tous vous révolter contre votre supérieur? »
 
-Le cœur des neuf chefs de régiment se glaça subitement. Les traces de sang sur le sol n'avaient pas encore séché et des crânes tranchés jonchaient encore les lieux. Tout cela changea instantanément la perception que ces chefs avaient de Wang Lin.
+Le cœur des neuf chefs de régiment se glaça subitement. Les traces de sang sur le sol n'avaient pas encore séché et des bras et des crânes tranchés jonchaient encore les lieux. Tout cela changea instantanément la perception que ces chefs avaient de Wang Lin.
 
 Après avoir entendu ses paroles, ils échangèrent des regards sans dire un mot.
 

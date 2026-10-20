@@ -64,7 +64,7 @@ En voyant cela, les cent personnes devant la ville furent prises d'une ferveur f
 
 Leurs voix semblaient fusionner en une seule, témoignant de nombreuses répétitions. À cet instant, leurs cris se propagèrent dans le ciel comme une musique divine pour ceux qui étaient en bas.
 
-« Grand Céleste Jin Biao, l'immortel céleste! Grand Céleste Jin Biao, pilier du monde! Grand Céleste Jin Biao, la réincarnation d'un sage! » Tandis que les quatre colosses rugissaient, les enfants autour d'eux scandaient leurs prières à leur tour, faisant résonner leurs voix dans l'air.
+« Grand Céleste Jin Biao, l'immortel céleste! Grand Céleste Jin Biao, pilier du monde! Grand Céleste Jin Biao, le Continent du Grand Sage renaît! » Tandis que les quatre colosses rugissaient, les enfants autour d'eux scandaient leurs prières à leur tour, faisant résonner leurs voix dans l'air.
 
 Le vieil homme sur le siège affichait un visage bienveillant, mais cette bienveillance recelait une pointe de majesté lorsqu'il observa la foule agenouillée. Il leva la main droite et agita sa manche.
 
@@ -93,7 +93,7 @@ Devant la cité, alors que le siège descendait lentement du ciel, le vieil homm
 « Bienvenue, Grand Céleste Jin Biao! »
 « Bienvenue, Grand Céleste Jin Biao!! »
 
-« Tout va bien, cet être céleste est toujours simple de nature. Mon temps est compté, je ne resterai que trois jours. Durant ces trois jours, amenez-moi vos enfants pour que je voie s'ils possèdent le destin d'un être céleste, et je les emmènerai avec moi. » Le vieil homme sourit et ses paroles étaient empreintes de douceur. Cependant, plus il agissait ainsi, plus son aura semblait divine.
+« Ça suffit, cet être céleste est toujours d'un naturel accommodant. Mon temps est compté, je ne resterai que trois jours. Durant ces trois jours, amenez-moi vos enfants pour que je voie s'ils possèdent le destin d'un être céleste, et je les emmènerai avec moi. » Le vieil homme sourit et ses paroles étaient empreintes de douceur. Cependant, plus il agissait ainsi, plus son aura semblait divine.
 
 Il paraissait habitué à l'exaltation de la foule. Il souriait, le cœur empli d'une pointe de fierté.
 

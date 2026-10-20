@@ -40,7 +40,7 @@ Fixant cette scène avec stupéfaction, le visage de Maître Simo pâlit instant
 
 « Il... Il n'a utilisé aucune Flamme Joss. Il n'y a pas la moindre trace de Flammes Joss sur lui... En réalité, il ne s'est pas appuyé sur les Flammes Joss, mais a provoqué l'apparition de la Porte du Vide uniquement par l'accomplissement de son essence! Ceci... c'est du jamais vu... Et il a réussi à entrouvrir la Porte du Vide! »
 
-« Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes Joss. Personne ne peut déclencher la Porte du Vide sans utiliser de Flammes Joss! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par un calme et une sérénité de façade. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant anxieusement Wang Lin sur sa trace.
+« Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes Joss. Personne ne peut déclencher la Porte du Vide sans utiliser de Flammes Joss! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par une obscurité insondable. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant Wang Lin en hâte sur sa trace.
 
 Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua la Porte du Vide, au sein du Clan de la Soie Bleue, les mains du Maître du Dao Rêve Bleu tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
 
@@ -54,17 +54,17 @@ Le Maître du Dao Rêve Bleu fixa ces visions et les examina minutieusement. Son
 
 « Ton père... a sous-estimé un homme... C'est la première fois que je me trompe... » Après un long moment, le Maître du Dao Rêve Bleu poussa un soupir, l'incrédulité brillant toujours dans ses yeux.
 
-« Vous continuerez à vous tromper. Personne ne peut percer son avenir. Même si vous étiez l'un des Cinq Maîtres du Système Stellaire Antique, vous n'y parviendriez pas. » Li Qianmei regarda l'homme tentant de briser le vide sur les images et sourit doucement.
+« Tu continueras à te tromper. Personne ne peut percer son avenir. Même si tu étais l'un des Cinq Maîtres du Système Stellaire Antique, tu n'y parviendrais pas. » Li Qianmei regarda l'homme tentant de briser le vide sur les images et sourit doucement.
 
 « Tu... tu blâmes ton père...? » Le Maître du Dao Rêve Bleu regarda sa fille avec une expression complexe.
 
 Li Qianmei secoua la tête et dit doucement: « Je n'ai pas retrouvé tous mes souvenirs, seulement quelques fragments. Si je l'avais vraiment oublié, il aurait été préférable que nous ne nous rencontrions plus jamais. Mais puisque je me souviens de certaines choses, je ne lâcherai pas prise... Quand ma mémoire sera restaurée, j'irai le retrouver. »
 
-Dans le domaine stellaire du clan Piaomiao, la femme qui avait deviné la position de Wang Lin cultivait sur l'île située au centre du lac lorsque celui-ci activa la Porte du Vide.
+Dans le domaine stellaire du clan Brumeux, la femme qui avait deviné la position de Wang Lin cultivait sur l'île située au centre du lac lorsque celui-ci activa la Porte du Vide.
 
 Les nombreuses fleurs et plantes flétrirent et s'effondrèrent instantanément. Le lac entourant l'île devint violent, formant un vortex autour de celle-ci. Les yeux de la femme s'ouvrirent soudainement, révélant une lumière mystérieuse et terrifiante.
 
-« Le premier signe est le flétrissement des fleurs... Le deuxième est le tourbillon du lac... Le troisième est la descente du tonnerre... Le quatrième est la mer de feu... Le cinquième est la fracture de l'île... Le sixième est le fracas des restes ancestraux... »
+« Le premier signe est le flétrissement des fleurs... Le deuxième est le tourbillon du lac... Le troisième est la descente du tonnerre... Le quatrième est la mer de feu... Le cinquième est la fracture de l'île... Le sixième est l'éclatement des restes ancestraux... »
 
 Alors qu'elle parlait, le ciel gronda et un éclair frappa le lac entourant l'île dans un fracas assourdissant! Cela provoqua un changement radical sur le visage de la femme en noir!
 
@@ -90,6 +90,6 @@ Bien que cet endroit ne fût pas totalement sûr, il en allait de même pour les
 
 La Terre Déchue n'acceptait que les pilules et les trésors, plus ils étaient insolites, mieux c'était. Même de grandes quantités de cristaux d'origine s'y échangeaient. Wang Lin avait troqué quelques pilules contre cent ans de résidence dans cette grotte.
 
-Wang Lin cultivait ici depuis plusieurs jours et consommait des pilules pour favoriser la guérison de ses blessures. Quant à ses lésions physiques, grâce à la robustesse de son corps de Dieu Ancien, il était entièrement rétabli.
+Wang Lin cultivait ici depuis plusieurs jours et consommait des pilules pour favoriser la guérison de ses blessures, qui s'étaient déjà nettement atténuées. Quant à ses lésions physiques, grâce à la robustesse de son corps de Dieu Ancien, il était entièrement rétabli.
 
 Ce jour-là, alors que ses yeux étaient clos, son expression changea et il les ouvrit lentement. Une silhouette apparut à l'entrée de la grotte et s'y engouffra rapidement.

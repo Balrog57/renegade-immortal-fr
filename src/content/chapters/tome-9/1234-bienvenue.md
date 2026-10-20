@@ -44,7 +44,7 @@ Les cultivateurs environnants regardèrent tous Wang Lin devant la fissure spati
 
 Seuls les vieux monstres de leurs diverses sectes tenteraient une telle chose, et ce uniquement parce qu'ils possédaient la force d'entrer seuls dans le Royaume Céleste du Vent.
 
-Li Yuanlei sourit également en s'avançant vers Wang Lin pour lui rendre les honneurs en joignant les mains. « Je crains que ce ne soit pas la première fois que ce Compagnon Cultivateur se trouve à l'entrée du Royaume Céleste du Vent. Déployer votre Sens Divin ici est très dangereux. Si vous souhaitez explorer le Royaume Céleste du Vent, vous pouvez venir avec nous. Une fois que les autres seront arrivés, nous pourrons entrer ensemble afin de pouvoir entrer et ressortir en toute sécurité. »
+Li Yuanlei sourit également en s'avançant vers Wang Lin pour lui rendre les honneurs en joignant les mains. « Je crains que ce ne soit la première fois que ce Compagnon Cultivateur se trouve à l'entrée du Royaume Céleste du Vent. Déployer votre Sens Divin ici est très dangereux. Si vous souhaitez explorer le Royaume Céleste du Vent, vous pouvez venir avec nous. Une fois que les autres seront arrivés, nous pourrons entrer ensemble afin de pouvoir entrer et ressortir en toute sécurité. »
 
 Wang Lin regardait toujours la fissure comme s'il était plongé dans ses pensées. Après l'intervention de Li Yuanlei, il ne se retourna pas et se contenta de dire calmement:
 

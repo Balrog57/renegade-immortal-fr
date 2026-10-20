@@ -36,7 +36,7 @@ Le bassin d'eau explosa et l'eau s'écarta, révélant le tunnel en dessous. L'h
 
 Les yeux du vieil homme brillèrent et il le suivit sans tarder.
 
-Papillon Rouge serra les dents. Ses pertes étaient immenses cette fois et elle était très réticente à l'idée de repartir sans rien avoir gagné. Même s'il s'agissait d'un lieu interdit, elle devait au moins essayer. Forte de cette résolution, elle se précipita dans le tunnel.
+Papillon Rouge serra les dents. Ses pertes étaient immenses cette fois et elle était très réticente à l'idée de repartir sans rien avoir gagné. Même s'il fallait affronter un repaire de dragons et de tigres, elle devait au moins essayer. Forte de cette résolution, elle se précipita dans le tunnel.
 
 Chi Hu regarda Wang Lin avec un sourire amer. « Frère Ceng, comptez-vous entrer ou allez-vous partir? »
 
@@ -52,7 +52,7 @@ Wang Lin réfléchit un instant et hocha la tête. Les deux hommes s'élancèren
 
 Le tunnel n'était pas très profond et, comme ils se déplaçaient à grande vitesse, ils le traversèrent rapidement. Lorsqu'ils en sortirent, ils pénétrèrent dans un monde de cristaux.
 
-L'endroit était recouvert de cristaux blancs qui libéraient une puissante énergie spirituelle céleste, flottant partout autour d'eux.
+L'endroit était recouvert de cristaux blancs, acérés comme des lames, qui libéraient une puissante énergie spirituelle céleste, flottant partout autour d'eux.
 
 Au loin, Papillon Rouge collectait l'énergie spirituelle céleste à l'aide d'une gourde.
 
@@ -88,9 +88,9 @@ Dès que les deux combattants déployèrent leurs techniques, l'énergie spiritu
 
 Le vieil homme fixa le tourbillon et éclata d'un rire tonitruant. « La Loi Spirituelle Impériale! Haha, donc tu es Zhou Yi. Cet Amoureux des Cadavres, Zhou Yi. Je me demandais pourquoi tu dégageais une si puissante odeur de mort. »
 
-Puis il frappa le cercueil, qui émit un bruit strident, semblable à des ongles grattant un couvercle. Ce son était perçant, comme s'il contenait une puissance infinie. Simultanément, une fumée noire s'échappa du cercueil pour former une main gigantesque.
+Puis il frappa le cercueil, qui émit un bruit strident, semblable à des ongles grattant un couvercle. Ce son était perçant, comme s'il contenait une puissance infinie. Simultanément, une fumée noire s'échappa du cercueil pour former une griffe gigantesque, comme venue des Neuf Abîmes.
 
-Cette main, d'un noir absolu, se projeta vers le tourbillon.
+Cette griffe, d'un noir absolu, se projeta vers le tourbillon.
 
 Bang!
 
@@ -106,7 +106,7 @@ Papillon Rouge tourna brusquement la tête. Le vieil homme lui adressa un sourir
 
 « Petite fille, je vais t'emprunter ton corps pour un moment. »
 
-Soudain, plusieurs filaments de fumée noire s'échappèrent de son corps et s'insinuèrent dans celui de la jeune femme comme de petits serpents.
+Soudain, plusieurs filaments de fumée noire s'échappèrent de ses sept orifices et s'insinuèrent dans ceux de la jeune femme comme de petits serpents.
 
 Pour la première fois, Papillon Rouge paniqua. Sachant que lutter était vain, elle leva précipitamment sa main droite pour révéler un bracelet de jade. Sa voix, stridente, cria: « Aîné, connaissez-vous cet objet? »
 
@@ -128,7 +128,7 @@ Le visage de Chi Hu s'assombrit immédiatement. Il hésita un instant, mais n'os
 
 Grâce à une technique inconnue, Zhou Yi s'assit en lotus dans les airs. Un immense arc-en-ciel aux sept couleurs jaillit du sommet de son crâne et s'abattit sur celui de Chi Hu, dont les yeux se mirent à lutter.
 
-Zhou Yi dit calmement: « Deviens mon avatar pour un temps. Non seulement tu ne mourras pas, mais tu pourras expérimenter mon domaine. »
+Zhou Yi dit calmement: « Deviens mon avatar pour un temps. Tant que tu obéis, non seulement tu ne mourras pas, mais tu pourras expérimenter mon domaine. »
 
 Chi Hu hésita encore avant d'abandonner toute résistance. Ses yeux brillèrent de plus en plus intensément alors que son niveau de culture s'envolait soudainement.
 

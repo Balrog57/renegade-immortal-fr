@@ -136,7 +136,7 @@ Wang Lin eut un petit rire: « Un immortel... en quelque sorte. » En voyant que
 
 Il réfléchit un instant, regarda la jeune femme et dit: « À vrai dire, je suis aussi considéré comme ton ancêtre. J'avais conclu un pacte avec le quatrième oncle: si je devenais immortel, je protégerais sa famille en reconnaissance de l'opportunité qu'il m'avait offerte. » Sur ce, il frappa son sac de rangement et en sortit des flacons de pilules: « Il y a ici 72 pilules. Chaque descendant de la lignée directe ne peut en prendre qu'une dans sa vie. Ils ne doivent pas être gourmands, mais tu es autorisée à en prendre trois. »
 
-Après avoir remis le flacon à la jeune femme, il réfléchit encore et pointa son doigt entre ses sourcils. Après en avoir extrait une goutte de sang, il sortit un morceau de jade de son sac. Il y déposa une marque de son Royaume Ji, puis se tourna vers elle. Son expression devint grave et froide: « J'ai laissé un fragment de mon sens divin dans ce jade. Aucun cultivateur à Zhao ne pourra résister plus d'un instant à sa puissance. Cependant, ce jade ne peut être utilisé que trois fois. Garde-le pour l'instant. Seuls les descendants de la famille Wang peuvent l'utiliser. Sois prudente et utilise-le avec sagesse. »
+Après avoir remis le flacon à la jeune femme, il réfléchit encore et pointa son doigt entre ses sourcils. Après en avoir extrait une goutte de sang, il sortit un morceau de jade de son sac. Il y déposa une marque de son Royaume Ji, puis se tourna vers elle. Son expression devint grave et froide: « J'ai laissé un fragment de mon sens divin dans ce jade. Aucun cultivateur à Zhao ne pourra résister plus d'un instant à sa puissance. Cependant, ce jade ne peut être utilisé que trois fois. Garde-le jusqu'à ta mort. Seuls les descendants de la lignée directe de la famille Wang peuvent l'utiliser. Sois prudente et utilise-le avec sagesse. »
 
 Après avoir lancé le jade à la jeune femme, Wang Lin agita ses manches et disparut de la pièce.
 
@@ -176,7 +176,7 @@ Soudain, le dieu démon illusionnaire ouvrit la bouche et engloutit la goutte de
 
 La lumière descendit lentement. Wang Lin la saisit et l'illusion du dieu démon se dissipe peu à peu.
 
-C'était une technique mineure apprise des souvenirs hérités de l'Ancien Dieu. Elle permettait de récupérer l'âme de quiconque avait été tué, bien que celle-ci ne durât que quinze minutes.
+C'était une technique mineure apprise des souvenirs hérités de l'Ancien Dieu Tu Si. Elle permettait de récupérer l'âme de quiconque avait été tué, bien que celle-ci ne durât que quinze minutes.
 
 L'âme récupérée n'avait aucun souvenir, seulement quelques instincts primaires. Pour un Ancien Dieu, c'était une technique inutile qui ne servait qu'à augmenter temporairement la puissance des trésors magiques.
 

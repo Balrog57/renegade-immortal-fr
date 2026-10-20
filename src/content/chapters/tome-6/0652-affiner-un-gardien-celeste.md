@@ -18,7 +18,7 @@ slug: affiner-un-gardien-celeste
 
 Après que Du Jian eut révélé son plus grand secret à Wang Lin, celui-ci l'avait observé avec prudence. Il pouvait voir l'expression de Wang Lin changer légèrement; il réfléchissait manifestement à ce qui venait d'être dit.
 
-Du Jian expira longuement. Ce qu'il craignait par-dessus tout, c'était que Wang Lin ne le croie pas. Après tout, une telle chose était tout simplement trop étrange. Il regarda la fissure, confus.
+Du Jian poussa un soupir de soulagement. Ce qu'il craignait par-dessus tout, c'était que Wang Lin ne le croie pas. Après tout, une telle chose était tout simplement trop étrange. Il regarda la fissure, confus.
 
 « Où suis-je exactement? » Du Jian fixa l'ouverture de la brèche, et ses yeux trahirent une trace persistante de peur. Cette sensation que son âme originelle soit arrachée de son corps était quelque chose qu'il n'oublierait jamais.
 
@@ -56,7 +56,7 @@ Bien que le taux de réussite fût infime, s'il réussissait, il obtiendrait un 
 
 Le jade mentionnait également certains sorts que seuls les Gardiens Célestes pouvaient utiliser. Lorsqu'ils étaient déployés, ces sortilèges étaient absolument prodigieux.
 
-Si Du Jian ne l'avait pas provoqué, tout aurait été différent; Wang Lin ne l'aurait pas saisi pour le transformer en gardien. Cependant, cet homme avait manifesté une intention meurtrière envers lui, et Wang Lin n'avait aucune intention de le laisser s'échapper.
+Si Du Jian ne l'avait pas provoqué, tout aurait été différent; Wang Lin ne l'aurait pas saisi pour le transformer en gardien. Cependant, cet homme avait manifesté une intention meurtrière envers lui, et et, de par son caractère, Wang Lin ne ferait pas preuve de clémence.
 
 « Si vous échouez et mourez sur la voie du Dao, cela pourra être considéré comme une mort digne pour un cultivateur. Si vous réussissez, je vous offrirai une grande fortune. Quant au succès ou à l'échec, tout dépendra de votre chance! »
 
@@ -104,7 +104,7 @@ Wang Lin ne perdit plus de temps. Sa main forma un sceau et il commença à exé
 
 Le corps de Du Jian trembla tandis qu'il fermait les yeux, devenant parfaitement immobile.
 
-Le regard de Wang Lin se fit sérieux. Le processus de création d'un Gardien Céleste était d'une complexité inouïe. La moindre erreur conduirait au désastre.
+Le regard de Wang Lin se fit sérieux. Le processus de création d'un Gardien Céleste était d'une complexité inouïe. La moindre erreur conduirait à l'échec.
 
 Même sans erreur, le taux de réussite demeurait faible. Mais Wang Lin n'avait pas d'autre option: il devait tenter le tout pour le tout!
 
@@ -118,7 +118,7 @@ La deuxième étape consistait à transformer l'âme originelle: l'ouvrir et la 
 
 La troisième étape consistait à raffiner les organes. Faire flétrir tous les organes internes afin qu'ils ne soient plus nourris par l'énergie spirituelle céleste. Cela isolait le corps des cinq sens, lui permettant de ne plus ressentir la douleur.
 
-La dernière étape consistait à effacer la conscience divine tout en préservant l'intelligence. Cela faisait du Gardien Céleste un être sans émotion, mais capable de réfléchir. Il possédait un corps puissant, aucune émotion et aucune sensation de douleur. C'était une marionnette qui ne sourcillerait pas, même si on lui coupait la tête.
+La dernière étape consistait à effacer la conscience divine tout en préservant l'intelligence. Cela faisait du Gardien Céleste un être sans émotion, mais capable de réfléchir. Il possédait un corps puissant, aucune émotion et aucune sensation de douleur. C'était une marionnette qui ne sourcillerait pas, même si on lui coupait la tête ou le mettait en pièces.
 
 C'était cela, un Gardien Céleste!
 

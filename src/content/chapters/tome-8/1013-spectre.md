@@ -35,7 +35,7 @@ Cependant, loin d'apaiser Wang Lin, l'effondrement du gaz gris fit rétrécir se
 
 Les grondements se poursuivirent alors que Wang Lin était contraint de battre en retraite, et le gaz gris accéléra sa course pour le poursuivre. Bien qu'il fût bloqué par le bouclier, les impacts firent trembler tout son corps.
 
-Il recula jusqu'à dix mille pieds de là. Lorsqu'il vit le gaz gris attaquer à nouveau, Wang Lin cracha une bouffée d'énergie d'origine essentielle vers lui. Au moment de la collision, sa main se referma en un poing et il asséna un coup. La scène qui fit haleter Wang Lin se produisit une fois de plus sous les grondements incessants: la dizaine de filaments de gaz gris s'effondrèrent, mais se transformèrent en plusieurs centaines de nouveaux filaments qui chargèrent sur lui.
+Il recula jusqu'à dix mille pieds de là. Lorsqu'il vit le gaz gris attaquer à nouveau, Wang Lin cracha vers lui une bouffée de son énergie d'âme originelle. Au moment de la collision, sa main se referma en un poing et il asséna un coup. La scène qui fit haleter Wang Lin se produisit une fois de plus sous les grondements incessants: la dizaine de filaments de gaz gris s'effondrèrent, mais se transformèrent en plusieurs centaines de nouveaux filaments qui chargèrent sur lui.
 
 « Qu'est-ce que c'est que ce truc?! » Wang Lin sentit son cuir chevelu picoter. S'il n'avait pas beaucoup subi de contrecoup lors du premier coup, celui du second fut immense. Son poing droit était encore engourdi et douloureux à cause de l'impact.
 

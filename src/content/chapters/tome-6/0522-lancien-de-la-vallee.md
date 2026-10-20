@@ -32,7 +32,7 @@ L'homme allait battre en retraite quand Wang Lin tendit la main; son corps fut p
 
 Wang Lin le regarda froidement et fit un geste de la main droite. Il projeta l'individu sur le côté, le capturant ainsi avec les six autres.
 
-Une fois cela fait, Wang Lin examina brièvement la formation avant de se rasseoir pour se plonger dans une profonde réflexion.
+Une fois cela fait, Wang Lin examina brièvement la formation avant de se rasseoir en silence.
 
 Cette démonstration de puissance tonitruante avait réduit tout le monde au silence à l'intérieur de la vallée. Ce silence perdura trois jours.
 

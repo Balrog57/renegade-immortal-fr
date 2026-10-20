@@ -10,9 +10,9 @@ Cinq années passèrent en un éclair. Tous les cultivateurs de la planète Qing
 
 Cependant, la famille Zhang fut désignée comme l'unique messagère de Wang Lin.
 
-Au cours de ces cinq années, les cultivateurs parcoururent le monde des mortels pour collecter sans relâche leur ressentiment. Cette aura imprégnait presque chaque mortel; seule la quantité variait.
+Au cours de ces cinq années, les cultivateurs parcoururent le monde des mortels pour collecter sans relâche le ressentiment des mortels. Cette aura imprégnait presque chaque mortel; seule la quantité variait.
 
-Les mortels étaient si nombreux sur la planète Qing Ling qu'en cinq ans, moins de 40 % du ressentiment avait été collecté. Voyant que la moitié du temps s'était déjà écoulée, Zhang Xinhai devint anxieux. Pourtant, ils atteignaient déjà leur rythme le plus soutenu.
+Les mortels étaient si nombreux sur la planète Qing Ling qu'en cinq ans, moins de 40 % du ressentiment avait été collecté. Voyant que la moitié du temps s'était déjà écoulée, Zhang Xinhai devint quelque peu anxieux, sans pouvoir y faire quoi que ce soit. Ils atteignaient déjà leur rythme le plus soutenu.
 
 Lui-même était sorti pour collecter cette énergie auprès du monde mortel. Tous les membres de la famille ayant atteint au moins le cinquième niveau de Condensation de Qi furent dépêchés sur le terrain.
 
@@ -38,13 +38,13 @@ Ce fouet semblait tout à fait ordinaire, mais le fantôme céleste avait failli
 
 Son domaine avait progressivement évolué du domaine de la vie et de la mort vers le domaine du karma. Ce domaine était d'une immensité telle que Wang Lin n'en avait touché que la pointe de l'iceberg, mais il pouvait déjà en ressentir toute la majesté.
 
-« Ma compréhension actuelle du domaine du karma est insuffisante pour créer une entité réelle, comme le rouleau illusoire de la vie, de la mort et de la réincarnation. Cependant, après avoir entrevu le chemin vers la troisième étape, j'ai acquis un nouvel éclairage... »
+« Ma compréhension actuelle du domaine du karma est insuffisante pour créer une entité réelle, comme le rouleau illusoire de la vie, de la mort et de la réincarnation. Cependant, après avoir entrevu le chemin vers la troisième étape, je peux me permettre un léger raccourci... »
 
 Alors que sa main droite caressait le Fouet des Âmes, son regard s'illumina de plus en plus.
 
 Il conçut un moyen d'utiliser la puissance d'un domaine du karma matérialisé avant même de pouvoir réellement le manifester. C'était pour s'assurer d'être parfaitement préparé pour son voyage vers le Royaume Céleste du Tonnerre.
 
-« Utiliser le Fouet des Âmes pour remplacer la condensation du domaine du karma devrait fonctionner! » Après réflexion, Wang Lin prit sa décision. Si cela avait été un autre, il aurait hésité par crainte, incapable de trancher, ne sachant pas si ce choix était correct ou s'il interférerait avec la compréhension de son propre être.
+« Utiliser le Fouet des Âmes pour remplacer la condensation du domaine du karma devrait fonctionner! » Après réflexion, Wang Lin prit sa décision. Si cela avait été un autre, il aurait hésité par crainte, incapable de trancher, ne sachant pas si ce choix était correct ou s'il interférerait avec l'existence de son domaine.
 
 Mais Wang Lin était différent; il avait clairement entrevu le chemin à suivre. Il savait que cela n'affecterait son domaine qu'au plus légèrement, sans conséquence majeure.
 
@@ -54,11 +54,11 @@ Après avoir mûri sa réflexion, les yeux de Wang Lin s'animèrent et il saisit
 
 Son esprit devait rester connecté au trésor pour que le domaine puisse lentement s'y infuser.
 
-Le temps passa, sans laisser de trace. Le printemps laissa place à l'automne. En un éclair, trois années supplémentaires s'écoulèrent.
+Le temps passa, sans laisser de trace. Les saisons se succédèrent à plusieurs reprises. En un éclair, trois années supplémentaires s'écoulèrent.
 
 Wang Lin avait vécu sur cette planète Qing Ling pendant huit ans. Durant toute cette période, il n'avait jamais quitté la montagne. En réalité, hormis Zhang Xinhai, aucun autre cultivateur de la planète ne l'avait aperçu.
 
-Cependant, le nom du propriétaire de la planète Qing Ling, son ancêtre, pesait de plus en plus lourd dans l'esprit des cultivateurs.
+Cependant, le nom du propriétaire de la planète Qing Ling, son ancêtre, pesait insensiblement de plus en plus lourd dans l'esprit des cultivateurs.
 
 En particulier, l'épais brouillard noir qui entourait la montagne avait glacé le cœur de nombreux pratiquants. Pourtant, certains cultivateurs faisaient preuve d'une stupidité crasse, tentant de défier la puissance de ce prétendu « maître » de la planète.
 
@@ -66,23 +66,23 @@ Tous furent instantanément dévorés par le brouillard noir dès qu'ils s'y pr�
 
 Quant aux mortels, ils étaient moins problématiques. En voyant ce brouillard noir, ils comprirent qu'il était empreint de danger et s'en détournèrent.
 
-Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. Le drapeau des âmes contenait sa volonté: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région, à 5 000 kilomètres de la montagne.
+Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. L'Étendard des Mille Millions d'Âmes contenait sa volonté: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région, à 5 000 kilomètres de la montagne.
 
 Pendant ces trois années, Wang Lin se concentra sur l'affinage de ses trésors. La seule source de nuisance était Xu Liguo. Il avait réussi, d'une manière ou d'une autre, à briser le sceau que Wang Lin avait placé sur la sacoche de stockage. Bien qu'il ne puisse toujours pas en sortir, il n'arrêtait pas de clamer sans cesse.
 
 Ce jour-là, le Fouet des Âmes, posé sur les genoux de Wang Lin, était imprégné d'une partie du domaine du karma. Cela le rendait plus facile à contrôler que par le seul sens divin. Parallèlement, grâce à la fusion de cette phase du domaine karmique, le Fouet des Âmes était devenu encore plus puissant.
 
-C'est alors que cette voix étrange réapparut.
+C'est alors que cette voix discordante réapparut.
 
 « Petit Lin, oses-tu refuser de laisser sortir ton grand-père Xu? Je suis puissant désormais, alors tu n'oses plus me libérer! Rassure-toi, ce vieil homme ne t'agressera pas. J'y ai réfléchi: désormais, c'est toi qui me suivras. Nos rôles vont s'inverser et c'est moi qui serai le maître! » La voix arrogante de Xu Liguo était d'un ton extrêmement impérieux.
 
 Wang Lin fronça les sourcils. S'il n'avait pas été conscient du peu de temps dont il disposait pour traiter avec Xu Liguo, il lui aurait déjà donné une leçon. Non seulement Xu Liguo ne comprenait rien, mais il était devenu encore plus présomptueux.
 
-Le regard de Wang Lin se glaça. Il frappa sa sacoche et ordonna froidement: « Sors d'ici! »
+Le regard de Wang Lin se glaça. Il frappa sa sacoche et ordonna froidement: « Sors de là! »
 
 « Oh? Tu oses parler ainsi à ton grand-père Xu!?!? Petit Lin, tu ne sembles pas comprendre la situation. Je ne suis plus le vieux Xu Liguo! » La voix de Xu Liguo retentit, accompagnée d'une brume noire qui s'échappa de la sacoche. Cette brume, chargée d'énergie d'épée, se projeta immédiatement dans les airs et prit l'apparence de Xu Liguo.
 
-Dès son apparition, il éclata d'un rire tonitruant et rugit: « Même moi, Xu Liguo, j'aurai mon heure de gloire! Les cieux ne sont pas aveugles; je pourrai enfin lever la tête bien haut! »
+Dès son apparition, il éclata d'un rire tonitruant et rugit: « Moi, Xu Liguo, j'ai enfin mon heure! Ha ha, le ciel a pitié de moi, je me suis enfin sorti du pétrin! »
 
 Wang Lin le regarda froidement sans dire un mot.
 
@@ -100,13 +100,13 @@ Xu Liguo fut le premier à en ressentir l'effet. Il s'exclama et la grande épé
 
 À cet instant, la voix de Wang Lin résonna lentement:
 
-« Il est difficile pour les choses de ce monde d'échapper au karma. Il n'existe point de lieu sans cause karmique, et l'effet karmique est partout... » Le Fouet des Âmes scintilla et provoqua une explosion, comme s'il venait d'ouvrir les portes du destin.
+« Il est difficile pour les choses de ce monde d'échapper au karma. Il n'existe point de lieu sans cause karmique, et l'effet karmique est partout... » Le Fouet des Âmes scintilla et provoqua un grondement, comme s'il venait d'ouvrir les portes du destin.
 
 Le Fouet des Âmes se connecta d'une extrémité à l'autre, formant un cercle parfait. L'épée massive de Xu Liguo fut aspirée involontairement dans ce cercle avant de se désintégrer rapidement.
 
 « L'effet karmique est la source de toute cause karmique! » La voix de Wang Lin retentit de nouveau.
 
-La désintégration de l'épée fut quasi instantanée, ne laissant derrière elle qu'un nuage de brume noire. Le visage de Xu Liguo apparut dans cette brume, marqué par la terreur et les yeux emplis d'effroi.
+La désintégration de l'épée fut quasi instantanée, ne laissant derrière elle qu'un nuage de brume noire. Le visage de Xu Liguo apparut dans cette brume, marqué par la terreur, avec une lueur de peur dans les yeux.
 
 « Maître, Maître, j'ai eu tort! Le petit Xu a eu tort, vraiment tort cette fois! Épargnez-moi, je vous en prie, épargnez-moi cette fois!! » Xu Liguo se mit immédiatement à supplier d'une voix misérable.
 

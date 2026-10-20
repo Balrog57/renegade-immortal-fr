@@ -76,7 +76,7 @@ Sans Li Qianmei à ses côtés, Wang Lin ne s'embêta plus à se cacher et comme
 
 Cependant, son expression ne changea pas et il ne montra aucun signe qu'il avait remarqué sa présence.
 
-« Il semble que les indices sur le continent sauvage aient déjà été perçus... » Wang Lin soupira, de plus en plus impatient d'acheter des cartes stellaires. Cependant, leurs prix étaient exorbitants et il était difficile de distinguer les authentiques des contrefaçons. Après trois jours, Wang Lin en avait acheté quelques-unes, mais il n'en était pas satisfait.
+« Il semble que les indices sur le continent sauvage aient déjà été perçus... » Wang Lin soupira, de plus en plus impatient d'acheter des cartes stellaires. Cependant, leurs prix étaient exorbitants et il était difficile de distinguer les authentiques des contrefaçons. Après trois jours, Wang Lin en avait acheté quelques-unes, mais il n'en était toujours pas certain.
 
 Au crépuscule du troisième jour, Wang Lin retourna à l'auberge et s'assit sur son lit. Il regarda les six fragments de jade représentant des cartes stellaires dans sa main et commença à réfléchir.
 
@@ -84,7 +84,7 @@ Peu après, son expression changea légèrement et il leva les yeux vers le haut
 
 Un instant plus tard, on frappa à la porte.
 
-« Il est enfin venu... » Wang Lin esquissa un sourire et fit un signe de la main droite. La porte s'ouvrit sur un homme d'âge mûr, robuste, à l'allure héroïque.
+« Il est enfin venu... » Wang Lin esquissa un sourire et fit un signe de la main droite. La porte s'ouvrit sur un homme d'âge mûr, robuste, au visage plein de vigueur.
 
 Ce dernier ne pénétra pas dans la pièce, mais joignit les mains: « Senior, mon maître, Ouyang Long, vous invite. »
 
@@ -108,7 +108,7 @@ Wang Lin joignit les mains et sourit: « Aucun problème. » Il comprenait parfa
 
 « Je vais vous encombrer, cher cultivateur Ouyang. » Wang Lin resta poli en suivant Ouyang Long jusqu'au pied du pavillon. Son Sens Divin était déployé avec prudence. Tout ce qu'il découvrait le frappait de stupeur, mais il n'en laissa rien paraître.
 
-Le bas du pavillon était totalement creux et menait de manière inattendue à une plateforme de pierre de 100 000 pieds de large. De nombreux cultivateurs y étaient assis, et les rugissements de bêtes féroces parvenaient jusqu'à eux.
+Le bas du pavillon était totalement creux et menait de manière inattendue à une plateforme de pierre de près de 100 000 pieds de large. De nombreux cultivateurs y étaient assis, et les rugissements de bêtes féroces parvenaient jusqu'à eux.
 
 Sur la plateforme, deux bêtes spirituelles de 1 000 pieds de long se livraient un combat acharné, leurs hurlements faisant vibrer l'air.
 

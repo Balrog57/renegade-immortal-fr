@@ -108,7 +108,7 @@ Cependant, dans la cruauté de cette faille spatiale, les bêtes moustiques avai
 
 En particulier, le roi des moustiques poussa un rugissement monstrueux de sa gueule capable de déchirer le monde. Quiconque croiserait son regard impitoyable ressentirait un frisson glacial au cœur.
 
-L'épée de sang fendait la mer de sang, dégageant une lueur démoniaque. Elle hurlait, exhalant une aura féroce! C'était comme si une âme dévorait le sang et s'éveillait lentement.
+L'épée de sang fendait la mer de sang, dégageant une lueur démoniaque. Elle hurlait, exhalant une aura féroce! C'était comme si l'âme de l'arme dévorait le sang et s'éveillait lentement.
 
 Dans un rayon de plusieurs dizaines de milliers de pieds, il n'y avait plus qu'une mer de sang. Aucune autre bête féroce n'osait faire un pas de plus; elles ne pouvaient que contempler Wang Lin avec effroi.
 

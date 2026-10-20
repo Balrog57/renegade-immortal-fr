@@ -30,7 +30,7 @@ L'Ancêtre Sanguin fut stupéfait. Son expression changea lorsqu'il réalisa que
 
 « De plus, votre pavillon de sang est assez intéressant! » La voix de Wang Lin surgit du vide.
 
-« Vous étiez ici pour me tuer, mais je me demande si vous savez que votre fille Yao Xixue, une fois ressuscitée, est revenue sur la planète de sang, comme un mouton entrant dans la gueule du tigre! » Depuis que Wang Lin avait vu l'Ancêtre Sanguin pour la première fois après son réveil, il n'avait pas aperçu la moindre trace de Yao Xixue. Même l'Ancêtre Sanguin n'aurait sans doute pas pu la protéger de l'effondrement de l'espace de stockage. Wang Lin en déduisit que le scénario le plus probable était que Yao Xixue avait déjà été ressuscitée grâce à l'aide de l'Ancêtre Sanguin.
+« Vous étiez ici pour me tuer, mais je me demande si vous savez que votre fille Yao Xixue, une fois ressuscitée, est revenue sur la planète de sang, comme un mouton entrant dans la gueule du tigre! » Depuis que Wang Lin avait vu l'Ancêtre Sanguin, il n'avait pas aperçu la moindre trace de Yao Xixue. Même l'Ancêtre Sanguin n'aurait sans doute pas pu la protéger de l'effondrement de l'espace de stockage. Wang Lin en déduisit que le scénario le plus probable était que Yao Xixue avait déjà été ressuscitée grâce à l'aide de l'Ancêtre Sanguin.
 
 Les paroles de Wang Lin furent comme une rétribution divine invisible frappant le cœur de l'Ancêtre Sanguin. Son âme originelle ayant déjà été endommagée auparavant, il fut profondément ébranlé dans cet état instable.
 
@@ -86,7 +86,7 @@ Avec ses sorts et ses trésors magiques actuels — comme ce Fragment de Royaume
 
 La pression liée à sa fuite du Système Stellaire de l'Alliance vers le Système Stellaire de Luotian disparut totalement. Le Sens Divin de Wang Lin s'étendit et il se dirigea rapidement vers la direction prise par l'Ancêtre Sanguin.
 
-« Éliminer la racine pour ne laisser aucun problème à l'avenir! » Les yeux de Wang Lin s'illuminèrent. Sa culture du Yang Corporel s'activa, multipliant sa vitesse par plusieurs fois par rapport au sommet de l'Ascendant.
+« Éliminer la racine pour ne laisser aucun problème à l'avenir! » Une intention meurtrière brilla dans les yeux de Wang Lin. Sa culture du Yang Corporel s'activa, multipliant sa vitesse par plusieurs fois par rapport au sommet de l'Ascendant.
 
 Il était tel une météorite traversant le vide.
 

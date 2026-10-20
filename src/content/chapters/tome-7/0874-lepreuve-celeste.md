@@ -112,13 +112,13 @@ Xu Ting avait montré une intention meurtrière envers lui à plusieurs reprises
 
 À ces mots, beaucoup de cultivateurs environnants ressentirent de la jalousie, bien qu'ils ne le laissassent paraître. Xu Ting regarda Lie Yunzi. Malgré son arrogance habituelle, il se montra respectueux: « Merci, Senior Lie Yunzi. »
 
-Même Zhan Konglie en éprouva une pointe d'amertume. Il savait que même au sein de la famille, seuls environ dix membres étaient qualifiés pour voir le second parchemin. Quant au troisième, seuls le chef de famille et les deux anciens l'avaient vu; il n'y avait pas de quatrième personne.
+Même Zhan Konglie en éprouva une pointe d'amertume. Il savait que même au sein de la famille, seuls environ dix membres étaient qualifiés pour voir le second parchemin. Quant au troisième, seuls l'ancêtre de la famille et les deux anciens l'avaient vu; il n'y avait pas de quatrième personne.
 
 Xu Ting hocha la tête et se retira respectueusement, jetant un regard sombre à Wang Lin. Ce dernier lui rendit son regard avec une expression glaciale. Il fit ensuite quelques pas vers la place. Initialement, un cultivateur nommé Zhao Yidao devait passer le test, mais lorsqu'il vit Wang Lin s'avancer, il recula immédiatement, affichant un air embarrassé. Cet homme était celui-là même que Luo Su avait convoqué et que Wang Lin avait chassé d'un simple revers de manche lors du combat entre Wang Lin et Luo Su. En cet instant, il maudit sa malchance et se retira prestement.
 
 L'apparition de Wang Lin attira immédiatement l'attention générale. Après tout, lors de cette compétition pour le titre céleste, son nom avait ébranlé les esprits. Il avait combattu Luo Su à l'épreuve humaine et dévoré l'esprit du tonnerre à l'épreuve terrestre. Tous les cultivateurs attendaient avec impatience la performance de Xu Mu lors de la troisième épreuve!
 
-Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Outre eux, la dizaine de vieux monstres sur les tapis de prière, au sommet du Système Stellaire Luotian, regardaient eux aussi avec un sourire.
+Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Outre eux, une douzaine de vieux monstres sur les tapis de prière, au sommet du Système Stellaire Luotian, regardaient eux aussi avec un sourire.
 
 Seul le Dieu de Sang laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 

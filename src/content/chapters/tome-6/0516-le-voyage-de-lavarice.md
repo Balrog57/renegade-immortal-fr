@@ -10,7 +10,7 @@ Après que Sun Yunshan eut fini de parler, un rayon de lumière violette se pré
 
 Wang Lin sourit légèrement et joignit les mains. « J'ai pris un peu de retard sur le chemin. Je ne pensais pas que frère Sun m'attendrait. »
 
-Sun Yunshan rit et dit: « Ce n'est rien. Je comptais me rendre dans la Mer des Esprits Démoniaques de l'Est hier, mais j'ai appris que frère Wang était celui que l'Omniscient avait choisi pour y aller. Après réflexion, j'ai décidé d'attendre quelques jours pour que nous puissions partir ensemble. Je ne suis pas pressé. »
+Sun Yunshan rit et dit: « Ce n'est rien. Je comptais me rendre dans la Mer des Esprits Démoniaques de l'Est hier, mais j'ai appris que frère Wang était celui que l'Omniscient avait choisi pour y aller. Après réflexion, j'ai décidé d'attendre quelques jours pour que nous puissions partir ensemble. Ne serait-ce pas agréable ? »
 
 Wang Lin lui adressa un sourire chaleureux: « Merci de votre considération. » Sur ce, il reporta son regard sur les personnes entourant Sun Yunshan.
 
@@ -20,9 +20,9 @@ Wang Lin sourit. « Frère Sun est plein d'humour! »
 
 Quant à la jeune fille vêtue de rose, son regard vacilla en fixant Wang Lin, laissant paraître une pointe de surprise.
 
-Sun Yunshan pointa la jeune fille du doigt et déclara: « Frère Wang, voici ma petite sœur, Sun Ruonan! » Puis, lui lançant un regard sévère, il s'exclama: « C'est le disciple central de l'Omniscient, Wang Lin. Pourquoi ne l'as-tu pas encore salué?! »
+Sun Yunshan pointa la jeune fille du doigt et déclara: « Frère Wang, voici ma petite sœur, Sun Ruonan! » Puis, lui lançant un regard sévère, il s'exclama: « C'est le disciple direct de l'Omniscient, Wang Lin. Pourquoi ne l'as-tu pas encore salué?! »
 
-Sun Rounan fronça le nez et salua Wang Lin d'une voix mélodieuse, pareille au chant d'un oiseau: « Ruonan salue le grand frère Wang! »
+Sun Ruonan fronça le nez et salua Wang Lin d'une voix mélodieuse, pareille au chant d'un oiseau: « Ruonan salue le grand frère Wang! »
 
 Wang Lin sourit et hocha la tête. Il ne lui accorda pas un second regard avant que son attention ne se porte sur la matrice de transfert.
 
@@ -66,7 +66,7 @@ Le nombre de cultivateurs environnants avait atteint un seuil effrayant; on comp
 
 Après tout, ce phénomène ne se produisait qu'une fois tous les 5 000 ans, ce qui représentait une vie entière, voire l'éternité, pour certains cultivateurs.
 
-Si l'on n'est pas capable d'atteindre le stade Yin et Yang et de franchir la première étape, on ne peut espérer vivre 5 000 ans.
+Si l'on n'est pas capable d'atteindre le stade Yin et Yang et de franchir la première étape, sa longévité ne peut s'élever et l'on ne peut espérer vivre 5 000 ans.
 
 Même les vieux monstres qui apparaissaient rarement étaient présents devant la Mer des Esprits Démoniaques de l'Est. Certains venaient seuls, d'autres étaient accompagnés de leurs disciples. Chacun d'eux s'octroyait de force une place, avec une grande arrogance.
 
@@ -100,7 +100,7 @@ Chacun de ces douze portait une épée antique dans le dos. Des illusions de div
 
 Tous les habitants de la planète Tian Yun savaient que le Saint de l'Épée Ling Tianhou était en rivalité constante avec l'Omniscient. Une lutte qui durait depuis d'innombrables années et qui perdurait encore.
 
-Bien que l'Omniscient ait toujours eu une longueur d'avance, le Saint de l'Épée ne s'était jamais découragé et n'avait jamais cessé de progresser.
+Bien que l'Omniscient ait toujours eu une longueur d'avance, le Saint de l'Épée n'avait jamais cédé et ne cessait de lui tenir tête.
 
 L'Omniscient possédait les Sept Disciples du Destin Céleste, tandis qu'il avait formé les Douze Épées de la Secte de l'Épée Da Luo!
 

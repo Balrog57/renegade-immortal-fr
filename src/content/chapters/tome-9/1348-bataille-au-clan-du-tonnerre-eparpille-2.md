@@ -12,11 +12,11 @@ Ses paroles étaient calmes; tandis qu'il parlait, le lac de tonnerre entourant 
 
 Cette scène fit se contracter les pupilles de l'homme grand et d'âge moyen. Avec son niveau de culture, il pouvait clairement ressentir la puissance du tonnerre presque suffocante qui émanait de Wang Lin!
 
-« Ainsi, tu n'es pas un membre de mon Clan du Tonnerre Dispersé! » dit d'une voix basse le visage gigantesque qui surgit de l'tonnerre éternel à l'intérieur du temple.
+« Ainsi, tu n'es pas un membre de mon Clan du Tonnerre Dispersé! » dit d'une voix basse le visage gigantesque qui surgit du tonnerre éternel à l'intérieur du temple.
 
 « Tu oses agir avec une telle insolence au sein de mon Clan du Tonnerre Dispersé, malgré ton faible niveau de culture, et déclarer que tu vas nous détruire? Quelle arrogance! » La voix était empreinte de moquerie, et son rugissement fut tel un coup de tonnerre qui étouffa le bruit du lac de tonnerre!
 
-L'âme originelle de Wang Lin flottait dans l'espace. Tandis que la lumière de la foudre jaillissait, l'image vague d'un dragon vacillait. Il resta impassible face au rugissement de l'Ancien et n'en fut nullement affecté. Une lueur de froideur traversa son regard alors qu'il pointait l'tonnerre éternel et disait froidement: « Oses-tu me défier dans le lac de tonnerre? »
+L'âme originelle de Wang Lin flottait dans l'espace. Tandis que la lumière de la foudre jaillissait, l'image vague d'un dragon vacillait. Il resta impassible face au rugissement de l'Ancien et n'en fut nullement affecté. Une lueur de froideur traversa son regard alors qu'il pointait le tonnerre éternel et disait froidement: « Oses-tu me défier dans le lac de tonnerre? »
 
 Il n'y avait ni ruse ni stratagème: Wang Lin était venu aujourd'hui pour un combat!
 
@@ -30,13 +30,13 @@ Les yeux de l'homme grand et d'âge moyen s'illuminèrent et il s'apprêta à le
 
 Ces neuf auras appartenaient toutes à des cultivateurs du Fléau Céleste!
 
-« Combattre avec moi... Très bien! » Un grondement semblable au tonnerre résonna. L'tonnerre éternel rugit, le visage gigantesque se fragmenta en de brillants éclairs, puis un homme en sortit.
+« Combattre avec moi... Très bien! » Un grondement semblable au tonnerre résonna. Le tonnerre éternel rugit, le visage gigantesque se contracta en de brillants éclairs, puis un homme en sortit.
 
-Cet individu paraissait avoir une quarantaine d'années et son regard ne laissait paraître aucune émotion. Ses lèvres étaient fines, signe d'un tempérament impitoyable. À cet instant, il sortit de l'tonnerre éternel et quitta la terre sainte!
+Cet individu paraissait avoir une quarantaine d'années et son regard ne laissait paraître aucune émotion. Ses lèvres étaient fines, signe d'un tempérament impitoyable. À cet instant, il sortit du tonnerre éternel et quitta la terre sainte!
 
-« Salutations, Ancien principal! » L'homme grand et d'âge moyen s'inclina immédiatement. Les yeux des cultivateurs du Clan du Tonnerre Dispersé brillèrent de ferveur à l'apparition de l'Ancien principal!
+« Salutations, Ancien en chef! » L'homme grand et d'âge moyen s'inclina immédiatement. Les yeux des cultivateurs du Clan du Tonnerre Dispersé brillèrent de ferveur à l'apparition de l'Ancien en chef!
 
-L'Ancien principal était le chef du Clan du Tonnerre Dispersé, son sommet absolu. Tous l'admiraient; pour eux, il était le ciel lui-même!
+L'Ancien en chef était la divinité du Clan du Tonnerre Dispersé, le sommet absolu de son pouvoir. Tous l'admiraient; pour eux, il était le ciel lui-même!
 
 Même les neuf auras qui avaient ciblé Wang Lin se manifestèrent, révélant neuf individus d'âges divers. Tous s'inclinèrent.
 
@@ -66,17 +66,17 @@ Il projeta ses mains en avant, et le halo autour de son âme originelle se propa
 
 Wang Lin leva la main droite et pointa le vide à plusieurs reprises. La confusion qui habitait chaque dragon qu'il désignait s'effondra, puis ils se retournèrent pour attaquer l'Ancien!
 
-Ce changement soudain plongea le sortilège de l'Ancien dans le chaos! Les yeux de l'Ancien principal s'illuminèrent et il ricana.
+Ce changement soudain plongea le sortilège de l'Ancien dans le chaos! Les yeux de l'Ancien en chef s'illuminèrent et il ricana.
 
-« Intéressant, vraiment intéressant! » Tout en parlant, sa main droite forma un sceau et pointa vers le ciel. Il déclara lentement: « En tant qu'Ancien principal du Clan du Tonnerre Dispersé, esclave du tonnerre sacré, je commande au tonnerre du monde par ma volonté infinie pour désintégrer la création! »
+« Intéressant, vraiment intéressant! » Tout en parlant, sa main droite forma un sceau et pointa vers le ciel. Il déclara lentement: « En tant qu'Ancien en chef du Clan du Tonnerre Dispersé, esclave du tonnerre sacré, je commande au tonnerre du monde par ma volonté infinie pour désintégrer la création! »
 
-À ces mots, les près de mille dragons de tonnerre entourant Wang Lin déchaînèrent une foudre incessante et rugirent comme des déments en chargeant vers lui. Même les dragons contrôlés par Wang Lin commencèrent à lutter. Il ne fallut qu'un instant pour qu'ils se libèrent de son emprise et retombent sous le contrôle de l'Ancien principal!
+À ces mots, les près de mille dragons de tonnerre entourant Wang Lin déchaînèrent une foudre incessante et rugirent comme des déments en chargeant vers lui. Même les dragons contrôlés par Wang Lin commencèrent à lutter. Il ne fallut qu'un instant pour qu'ils se libèrent de son emprise et retombent sous le contrôle de l'Ancien en chef!
 
 *Boum, boum, boum, boum!*
 
 Ces dragons bombardèrent Wang Lin, menaçant de faire s'effondrer son âme originelle. Il continua de reculer, son âme devenant de plus en plus transparente!
 
-Chaque dragon de tonnerre contenait la volonté de l'Ancien principal. Non seulement cela endommageait son âme originelle, mais cette volonté tentait de l'envahir pour le soumettre!
+Chaque dragon de tonnerre contenait la volonté de l'Ancien en chef. Non seulement cela endommageait son âme originelle, mais cette volonté tentait de l'envahir pour le soumettre!
 
 C'était la première fois que Wang Lin était confronté à une telle force, et son esprit vacilla. Sous le bombardement, il recula encore plus vite!
 
@@ -88,15 +88,15 @@ Bien que Wang Lin ait esquivé le danger immédiat, il fut percuté par l'onde d
 
 « Pas mal pour l'esquive... mais combien de fois pourras-tu encore l'éviter? » L'Ancien émergea des ondulations, une pointe de moquerie dans son regard calme dirigé vers Wang Lin.
 
-« Tu as prétendu vouloir prendre l'tonnerre éternel de mon clan et détruire le Clan du Tonnerre Dispersé. Si c'est là toute ta puissance, tu n'y parviendras jamais. »
+« Tu as prétendu vouloir prendre le tonnerre éternel de mon clan et détruire le Clan du Tonnerre Dispersé. Si c'est là toute ta puissance, tu n'y parviendras jamais. »
 
 Wang Lin ne prononça pas un mot; il recula et changea sa forme humaine en celle d'un dragon du tonnerre antique, chargeant vers le lac de tonnerre au loin.
 
-L'Ancien principal ricana et agita la main droite. Les centaines de dragons restants se lancèrent à la poursuite de Wang Lin. C'était une scène qui aurait terrifié n'importe quel témoin!
+L'Ancien en chef ricana et agita la main droite. Les centaines de dragons restants se lancèrent à la poursuite de Wang Lin. C'était une scène qui aurait terrifié n'importe quel témoin!
 
 Un ancien dragon de tonnerre en tête, suivi par des centaines d'autres, tandis qu'un homme d'âge moyen marchait lentement derrière eux, les mains dans le dos.
 
-« Tu veux fuir vers l'infini lac de tonnerre pour l'utiliser contre ce vieil homme... Mais tout le tonnerre ici contient ma volonté, comment pourrais-tu en emprunter la moindre parcelle! » La voix de l'Ancien principal résonnait avec une clarté absolue parmi les grondements incessants.
+« Tu veux fuir vers l'infini lac de tonnerre pour l'utiliser contre ce vieil homme... Mais tout le tonnerre ici contient ma volonté, comment pourrais-tu en emprunter la moindre parcelle! » La voix de l'Ancien en chef résonnait avec une clarté absolue parmi les grondements incessants.
 
 Wang Lin resta silencieux et se déplaça comme un possédé, rejoignant instantanément le lac de tonnerre rugissant!
 

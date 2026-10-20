@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 749 - The Hilt and the Tip of the Sword
 slug: la-garde-et-la-pointe-de-lepee
 ---
-« Je veux votre méthode des 18 Pruniers Restrictifs! » La voix de Wang Lin était calme, mais ses paroles étaient un choc.
+« Je veux votre Restriction des 18 Pruniers! » La voix de Wang Lin était calme, mais ses paroles étaient un choc.
 
-Wang Lin savait que la méthode des 18 Pruniers Restrictifs était très célèbre dans l'Antiquité, mais qu'elle avait été gardée secrète. Les étrangers ne pouvaient jamais l'apprendre et, quant aux disciples, selon leur statut, ils ne pouvaient apprendre que jusqu'aux 9 Pruniers Restrictifs! Seul le maître de secte pouvait maîtriser l'intégralité des 18 Pruniers Restrictifs!
+Wang Lin savait que la Restriction des 18 Pruniers était très célèbre dans l'Antiquité, mais qu'elle avait été gardée secrète. Les étrangers ne pouvaient jamais l'apprendre et, quant aux disciples, selon leur statut, ils ne pouvaient apprendre que jusqu'aux 9 Pruniers Restrictifs! Seul le maître de secte pouvait maîtriser l'intégralité des 18 Pruniers Restrictifs!
 
 De nos jours, cette méthode de restriction était perdue depuis longtemps, et de nombreux maîtres des restrictions la regrettaient amèrement.
 
-La première fois que Wang Lin avait vu de vrais vestiges des 18 Pruniers Restrictifs, c'était dans la grotte du Territoire de l'Esprit Démon. Lorsqu'il vit apparaître 18 restrictions au moment même où Li Yuan bougeait la main, Wang Lin commença à soupçonner quelque chose.
+La première fois que Wang Lin avait vu de vrais vestiges des 18 Pruniers Restrictifs, c'était dans la grotte de la Terre des Esprits Démoniaques. Lorsqu'il vit apparaître 18 restrictions au moment même où Li Yuan bougeait la main, Wang Lin commença à soupçonner quelque chose.
 
 Ce qui renforça ses soupçons fut que lorsqu'il reçut le jade contenant les informations sur la restriction cachée, 18 statues apparurent au moment même où il l'examina!
 
@@ -22,19 +22,19 @@ Bien que sa voix fût calme, il ne faisait que tester Li Yuan. Si ce dernier ref
 
 C'était la raison principale pour laquelle Wang Lin les avait suivis tout ce chemin. S'il n'avait été qu'à la recherche de l'infime possibilité de trouver l'outil d'origine, Wang Lin ne les aurait pas suivis jusqu'ici.
 
-Cependant, ce Li Yuan était trop mystérieux. Wang Lin n'était pas certain que cet homme ne soit réellement qu'au sommet du dernier stade de l'Ascendant. C'est pourquoi il n'avait pas agi en chemin.
+Cependant, ce Li Yuan était trop mystérieux. Wang Lin n'était pas certain que cet homme ne soit réellement qu'au sommet du stade avancé de l'Ascendant. C'est pourquoi il n'avait pas agi en chemin.
 
 Wang Lin n'agirait qu'une fois arrivés à destination!
 
-Li Yuan réfléchit un instant avant de sourire. « Seulement les 18 Pruniers Restrictifs? Si le Frère Xu les désire, je les lui cède volontiers. » Il tapota son sac et en sortit une pierre de jade. Il plaça le jade entre ses sourcils pendant quelques instants avant de le lancer à Wang Lin.
+Li Yuan réfléchit un instant avant de sourire. « Seulement la Restriction des 18 Pruniers? Si le Frère Xu les désire, je les lui cède volontiers. » Il tapota son sac et en sortit une pierre de jade. Il plaça le jade entre ses sourcils pendant quelques instants avant de le lancer à Wang Lin.
 
-« Voici la méthode des 13 Pruniers Restrictifs. Je vous donnerai naturellement les cinq restants après que nous serons entrés dans la montagne. »
+« Voici la Restriction des 13 Pruniers. Je vous donnerai naturellement les cinq restants après que nous serons entrés dans la montagne. »
 
 Wang Lin attrapa le jade et l'examina. Bien que son expression fût neutre, son cœur se mit à battre la chamade. Il n'y avait aucune incantation à l'intérieur, seulement 13 grandes statues et un total de 13 fleurs de prunier, sous les pieds de chacune des statues. Elles s'accordaient entre elles de façon extrêmement subtile, avec un naturel parfait, et recelaient une certaine loi.
 
 Du début à la fin, la femme nommée Ge était restée silencieuse, comme si rien de tout cela ne la concernait. Elle contemplait la montagne devant elle, plongée dans une sorte de transe.
 
-« Frère Xu, les 18 Pruniers Restrictifs ne sont pas la seule restriction que je connaisse. Connaissez-vous les quatre grandes restrictions? » Li Yuan se tourna vers la montagne et commença à marcher. Il semblait n'avoir aucune crainte que Wang Lin ne s'enfuie avec le jade.
+« Frère Xu, la Restriction des 18 Pruniers n'est pas la seule restriction que je connaisse. Connaissez-vous les quatre grandes restrictions? » Li Yuan se tourna vers la montagne et commença à marcher. Il semblait n'avoir aucune crainte que Wang Lin ne s'enfuie avec le jade.
 
 Après avoir rangé le jade, le regard de Wang Lin resta calme tandis qu'il marchait vers le sommet.
 
@@ -42,7 +42,7 @@ Après avoir rangé le jade, le regard de Wang Lin resta calme tandis qu'il marc
 
 « Le Ciel, la Terre, le Mystère et le Jaune furent les quatre grades de restrictions pendant une longue période! » Li Yuan ne se retourna pas, marchant nonchalamment vers le sommet. La femme nommée Ge le suivait, toujours dans son état second.
 
-« Cependant, il existe un autre grade au-dessus de ces quatre, que nous appelons le grade du Vide! Le grade du Vide se divise lui-même en quatre grandes restrictions. Cette montagne possède la Restriction de l'Annihilation, l'une des quatre restrictions du grade du Vide. Personne n'a jamais pu atteindre le sommet, car ce pic est sans fin! » La voix de Li Yuan parvint lentement à l'oreille de Wang Lin.
+« Cependant, il existe un autre grade au-dessus de ces quatre, que nous appelons le grade du Vide! Le grade du Vide se divise lui-même en quatre grandes restrictions. Cette montagne possède la Restriction d'Annihilation, l'une des quatre restrictions du grade du Vide. Personne n'a jamais pu atteindre le sommet, car ce pic est sans fin! » La voix de Li Yuan parvint lentement à l'oreille de Wang Lin.
 
 « Le Frère Xu doit être perplexe de savoir comment je peux connaître tout cela. » Li Yuan enjamba un rocher saillant, puis sa main droite traça un sceau qu'il pressa indistinctement dans le vide.
 

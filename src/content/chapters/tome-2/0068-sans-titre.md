@@ -36,15 +36,15 @@ Wang Lin resta silencieux, affichant un sourire glacial.
 
 « Frère aîné, je... » En voyant l'expression de Wang Lin, le cœur de Zhang Kuang rata un battement. Il recula encore tout en portant la main à son sac de rangement.
 
-« Zhang Kuang, tu ne cherchais pas ma maison? Elle est par là », dit Wang Lin en désignant sa demeure du doigt.
+« Zhang Kuang, tu ne cherchais pas ma maison? Elle est juste là », dit Wang Lin en désignant sa demeure du doigt.
 
-Le cœur de Zhang Kuang martelait sa poitrine comme un fou. Il s'effondra à genoux, le visage déformé par la honte, et cria: « Frère aîné, j'ai eu tort! C'est la faute de Zhou Peng! Il m'a forcé à venir! Je... » À cet instant, il sortit un morceau de jade et le lança en l'air avec une expression grave.
+Le cœur de Zhang Kuang martelait sa poitrine comme un fou. Il s'effondra à genoux, le visage déformé par la honte, et cria: « Frère aîné, j'ai eu tort! C'est la faute de Zhou Peng! Il m'a forcé à venir! Je... » À cet instant, il sortit un morceau de jade et le lança en l'air d'un geste rapide de la main droite, le visage soudain féroce.
 
 Le jade se transforma soudainement en une épée volante qui fonça vers Wang Lin. Zhang Kuang commença aussitôt une incantation tout en sortant des fragments de bois noir. Ces morceaux fusionnèrent pour former un fouet.
 
-Dès que le fouet apparut, il dégagea une aura périlleuse. Zhang Kuang le projeta vers Wang Lin, mais sans même attendre de voir le résultat, il prit la fuite.
+Dès que le fouet apparut, il dégagea une aura périlleuse, et sa pointe se balança comme dotée d'une volonté propre. Zhang Kuang le projeta vers Wang Lin, mais sans même attendre de voir le résultat, il prit la fuite.
 
-Wang Lin eut un sourire moqueur. Il activa sa technique d'attraction qui enveloppa son corps tandis qu'il se déplaçait sur le côté. Il projeta deux mains invisibles grâce à cette technique: l'une intercepta l'épée, tandis que l'autre s'élança vers Zhang Kuang. Ce dernier sentit soudain une douleur atroce au cou, comme si une main invisible le serrait avec force. Son visage vira au violet. Il abandonna son incantation pour tenter de saisir sa gorge.
+Wang Lin eut un sourire moqueur. Il activa sa technique d'attraction qui enveloppa son corps tandis qu'il se déplaçait sur le côté. Il projeta deux mains invisibles grâce à cette technique: l'une intercepta l'épée, tandis que l'autre s'élança vers Zhang Kuang. Ce dernier sentit soudain une douleur atroce au cou, comme si une main invisible le serrait avec force. Ses yeux saillirent et son visage vira au violet. Il abandonna son incantation pour tenter de saisir sa gorge.
 
 Une intention de meurtre traversa le regard de Wang Lin. Dans un craquement sinistre, le cou de Zhang Kuang se brisa sous l'effet de la pression. Ses yeux furent remplis de désespoir. Du sang jaillit de sa bouche et, une fois que Wang Lin relâcha sa technique, il s'effondra au sol. Son corps eut quelques tressaillements avant de devenir définitivement inerte.
 
@@ -78,7 +78,7 @@ Il s'adressa immédiatement à Situ Nan: « Senior Situ, existe-t-il un moyen de
 
 Situ Nan répondit calmement: « Il y en a un... mais... »
 
-Wang Lin fronça les sourcils et trancha d'un ton grave: « Si Zhou Peng s'échappe, je prendrai mes parents et nous partirons loin d'ici. Quant à la culture, j'abandonnerai tout pour vivre comme un simple mortel. »
+Wang Lin fronça les sourcils et trancha d'un ton grave: « Si Zhou Peng s'échappe, au pire je prendrai mes parents et nous partirons loin d'ici. Quant à la culture, j'abandonnerai tout pour vivre comme un simple mortel. »
 
 Situ Nan rétorqua aussitôt: « Pourquoi es-tu si pressé? Je prenais juste mon temps pour parler. Si j'étais le moi d'autrefois, je t'aurais tué d'une seule gifle pour avoir été un disciple aussi irrespectueux! »
 

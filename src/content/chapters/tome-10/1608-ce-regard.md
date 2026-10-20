@@ -54,7 +54,7 @@ Un adolescent de moins de vingt ans essuya la sueur de son visage et rugit: « N
 
 « Ne fermez pas les yeux, nous devons encore voir le soleil se lever... »
 
-« Les cieux et la terre sont puissants, mais ils ne pourront étouffer nos voix! Nous vivons de la mer, comment pourrions-nous craindre la mort?! La fureur de l'esprit marin peut nous effrayer, elle peut nous noyer, mais elle ne pourra jamais arrêter notre chant! »
+« Les cieux et la terre sont immenses, mais ils ne pourront étouffer nos voix! Nous vivons de la mer, comment pourrions-nous craindre la mort?! La fureur de l'esprit marin peut nous effrayer, elle peut nous noyer, mais elle ne pourra jamais arrêter notre chant! »
 
 Tous les membres d'équipage se mirent à hurler ce chant, transmis depuis des temps immémoriaux sur les mers de la planète Suzaku!
 
@@ -114,4 +114,4 @@ Une vague de chaleur souffla depuis le lointain et vint caresser son corps. Wang
 
 Il vit une silhouette blanche émerger de la fumée noire. C'était une femme, d'une grande beauté. Elle semblait collecter quelque chose auprès du volcan en éruption et tenait une fiole de jade à la main. Elle se retourna et aperçut Wang Lin au loin.
 
-Ce regard était une chose que Wang Lin ne pourrait jamais oublier et qui fit trembler son corps tout entier. C'était comme s'il avait attendu plus de mille ans pour ce regard. Comme s'il avait attendu toute une vie, simplement pour venir ici et croiser ses yeux.
+Ce regard était une chose que Wang Lin ne pourrait jamais oublier et qui fit trembler son corps tout entier. C'était comme s'il avait attendu plus de mille ans pour ce regard. Comme s'il avait attendu toute une vie, simplement pour venir ici et croiser ses yeux, à l'instant où elle se retournait.

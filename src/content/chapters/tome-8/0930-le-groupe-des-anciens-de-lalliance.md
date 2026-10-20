@@ -86,7 +86,7 @@ L'estimé Xuan Bao occupait un rang très élevé au sein du Palais Xuan. Ce qui
 
 Hormis les membres du Groupe des Anciens de l'Alliance, nul ne savait exactement combien ils étaient. Cependant, chacun d'eux était d'une puissance telle qu'il pouvait renverser les cieux!
 
-Si Omniscient était respecté et que l'Alliance de Culture avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient entaché son statut, il en demeurait un membre!
+Si Omniscient était respecté et que l'Alliance de Culture avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient fait chuter son statut, il en demeurait un membre!
 
 Si Omniscient n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens; il s'était retiré du monde.
 

@@ -50,7 +50,7 @@ Un fracas tonitruant retentit alors que le clou aux sept couleurs s'enfonçait d
 
 Le visage de Shui Daozi devint livide tandis qu'il composait un sceau, tentant de résister au clou. Pourtant, il avait une fois de plus sous-estimé Wang Lin!
 
-Il avait voulu sortir la femme du cercueil pour franchir la limite de Wang Lin! Le dragon a une écaille inversée : la toucher, c'est s'attirer sa colère! Li Muwan était le point de non-retour de Wang Lin!
+Il avait voulu sortir la femme du cercueil, touchant ainsi l'écaille inversée de Wang Lin! Le dragon a une écaille inversée : la toucher, c'est s'attirer sa colère! Li Muwan était l'écaille inversée de Wang Lin!
 
 Si Wang Lin était déjà en proie à la démence face à une crise de vie ou de mort, il devint véritablement insensé lorsque Shui Daozi s'en prit à Li Muwan. Cette folie n'était pas différente d'être transpercé par le clou aux sept couleurs!
 
@@ -62,7 +62,7 @@ Une force indescriptible jaillit de son être. Des bruits de craquements résonn
 
 Trident en main, Wang Lin fonça droit sur Shui Daozi!
 
-Ses yeux étaient injectés de sang, une lueur écarlate s'étendant sur plusieurs pieds devant lui. Des craquements incessants émanaient de son corps; il était impossible de dire s'il s'agissait de ses battements de cœur ou de ses os qui se brisaient sous la pression.
+Ses yeux étaient injectés de sang, une lueur écarlate s'étendant sur plusieurs dizaines de pieds devant lui. Des craquements incessants émanaient de son corps; il était impossible de dire s'il s'agissait de ses battements de cœur ou de ses os qui se brisaient sous la pression.
 
 Même Shui Daozi fut terrifié par ce spectacle! En particulier, la lumière rouge monstrueuse émanant du corps de Wang Lin fit se rétracter ses pupilles. Il recula d'un pas, augmentant soudainement sa vitesse de retraite.
 
@@ -80,7 +80,7 @@ La lumière aux sept couleurs entre les sourcils de Shui Daozi brilla intenséme
 
 « Même avec le Clou Divin du Vide aux Sept Couleurs, c'est inutile. Laisse-moi te montrer l'abîme qui sépare un cultivateur du troisième niveau d'une fourmi comme toi! » Une indifférence glaciale émanait de Shui Daozi alors qu'il agitait sa main droite, y concentrant une fraction de son pouvoir.
 
-« Je voulais fouiller ton âme, mais puisque tu cherches la mort, ce vieil homme va exaucer ton vœu! Dao de l'Extinction Insouciante: éteignez tout sur votre passage! » La main droite de Shui Daozi forma un sceau et poussa vers l'avant.
+« Je voulais fouiller ton âme, mais puisque tu cherches la mort, ce vieil homme va exaucer ton vœu! Dao de l'Extinction Insouciante: éteignez tous les êtres vivants devant moi! » La main droite de Shui Daozi forma un sceau et poussa vers l'avant.
 
 Cette paume provoqua un rugissement tonitruant, et une masse d'air fut aspirée de toutes les directions dans un rayon de 10 millions de kilomètres. Des lignes blanches commencèrent à se dessiner; de loin, on aurait pu voir qu'une gigantesque forme de diamant se forgeait au cœur de cette zone!
 

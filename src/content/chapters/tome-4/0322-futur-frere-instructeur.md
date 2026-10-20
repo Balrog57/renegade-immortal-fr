@@ -8,7 +8,7 @@ slug: futur-frere-instructeur
 ---
 Quelque part dans le vide, le vieil homme perché sur le Qilin entendit également l'hymne des épées alors qu'un groupe de lames fonçait derrière lui.
 
-Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte de l'Épée Da Luo deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser Cet Omniscient.
+Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte de l'Épée Da Luo deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser l'Omniscient.
 
 Après une longue lutte intérieure, il poussa un soupir. Il décida de ne pas bloquer les épées célestes et s'écarta du chemin.
 
@@ -28,7 +28,7 @@ Toutefois, la vitesse des épées célestes était si prodigieuse que tout le mo
 
 Certains cultivateurs manquaient de connaissances et d'expérience. Lorsqu'ils virent les épées célestes pour la première fois, la cupidité les emporta et ils tentèrent d'en saisir une ou deux. Aucun d'eux ne vécut assez longtemps pour en témoigner.
 
-Pourtant, malgré ces morts, certains refusèrent de croire aux rumeurs et tentèrent de s'emparer des épées par la force.
+Pourtant, malgré ces morts, certains refusèrent d'y croire et tentèrent de s'emparer des épées par la force.
 
 À cet instant précis, sept ou huit cultivateurs étaient éparpillés dans le vide, chacun activant sa propre technique. Au loin, ils voyaient un groupe d'épées célestes foncer vers eux.
 
@@ -56,7 +56,7 @@ Au loin, cette lueur se mua en une boussole stellaire sur laquelle Chi Hu tenait
 
 Wang Lin sourit. Tout au long du trajet, ils avaient vu de nombreuses personnes tenter d'intercepter les épées, sans jamais y parvenir. Certains sacs furent détruits par les lames, mais ceux qui restaient intacts tombaient entre leurs mains.
 
-La vitesse de leur boussole stellaire était très élevée, et ils n'avaient aucun mal à suivre le rythme des épées célestes. Une fois qu'il eut remarqué l'anomalie, Wang Lin n'eut aucune intention de lâcher prise. Grâce à leur célérité, ils purent rester en tête et glaner des trésors en cours de route, ce qui exaltait Chi Hu.
+La vitesse de leur boussole stellaire était très élevée, dépassant même celle des épées célestes, et ils n'avaient aucun mal à les suivre. Une fois qu'il eut remarqué l'anomalie, Wang Lin n'eut aucune intention de lâcher prise. Grâce à leur célérité, ils purent rester en tête et glaner des trésors en cours de route, ce qui exaltait Chi Hu.
 
 Wang Lin contrôlait la boussole tandis que Chi Hu ramassait les sacs. On pouvait dire que leur travail d'équipe était parfaitement fluide.
 
@@ -82,7 +82,7 @@ Sur ces mots, il pointa simplement son doigt.
 
 Un gaz gris se mua en une flèche qui fonça vers Chi Hu. Dès l'apparition de ce gaz, une intention meurtrière envahit l'air.
 
-« Un domaine de mort? » D'un seul regard, Wang Lin reconnut le type de domaine utilisé par cet homme. Hormis son corps original, il n'avait que rarement vu une intention meurtrière aussi puissante.
+« Un domaine de mort? » D'un seul regard, Wang Lin reconnut le type de domaine utilisé par cet homme. Hormis son corps original, qui n'était pas inférieur, il n'avait que rarement vu une intention meurtrière aussi puissante.
 
 « Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant d'une dizaine de mètres de haut. La hache sur son front scintillait frénétiquement.
 
@@ -98,7 +98,7 @@ L'homme d'âge moyen s'interrompit. Il ricana en frappant son sac de rangement, 
 
 En voyant ce cristal, Chi Hu fut saisi d'un frisson. Toutes sortes de pensées meurtrières faillirent troubler son esprit et son cœur fut ébranlé.
 
-Les yeux de Wang Lin se fixèrent sur la roche et il dit: « Chi Hu, partons! »
+Les yeux de Wang Lin se fixèrent sur le cristal et il dit: « Chi Hu, partons! »
 
 Chi Hu rit. Sans un mot, il fit volte-face et remonta sur la boussole en disant: « Je ne peux pas te battre, alors j'arrête de jouer! »
 

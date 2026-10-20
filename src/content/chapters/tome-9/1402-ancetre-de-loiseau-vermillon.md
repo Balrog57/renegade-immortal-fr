@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1402 - Vermillion Bird Ancestor
 slug: ancetre-de-loiseau-vermillon
 ---
-Le vieil homme marmonna un instant, puis regarda Wang Lin avec haine tout en secouant la tête.
+Le vieil homme marmonna un instant, puis regarda Wang Lin avec exaspération tout en secouant la tête.
 
 « Puisque le Yang de son âme originelle est brisé, non seulement il ne pourra pas cultiver le sortilège de ce vieil homme, mais il lui sera bien plus difficile d'atteindre le royaume du Feu Éthéré que ceux dont le Yang est intact. Malheureux, malheureux! » Le vieil homme soupira en observant Wang Lin qui était en pleine culture. Cependant, alors qu'il le regardait, ses yeux s'écarquillèrent soudainement et il s'exclama:
 
-« Quelque chose ne va pas... Le corps de ce petit gars... C'est... » Les yeux du vieil homme s'agrandirent et il s'approcha de Wang Lin. Une pointe d'excitation et d'incrédulité brillait dans son regard. Il décida simplement de poser sa paume sur le front de Wang Lin.
+« Quelque chose ne va pas... Le corps de ce petit gars... C'est... » Les yeux du vieil homme s'agrandirent et il s'approcha de Wang Lin. Une pointe d'excitation et d'incrédulité brillait dans son regard. Il décida simplement de poser sa paume sur le sommet du crâne de Wang Lin.
 
 Il ne blessa pas Wang Lin, mais une force mystérieuse pénétra dans son corps.
 
-Lorsque le vieil homme retira sa main droite, ses yeux s'écarquillèrent et il fixa le front de Wang Lin. À cet instant précis, un feu invisible jaillit du front du jeune homme. Dès qu'il apparut, ce feu remplit le monde, dégageant une chaleur inimaginable!
+Lorsque le vieil homme retira sa main droite, ses yeux s'écarquillèrent et il fixa le sommet du crâne de Wang Lin. À cet instant précis, un feu invisible jaillit du sommet du crâne du jeune homme. Dès qu'il apparut, ce feu remplit le monde, dégageant une chaleur inimaginable!
 
 Soudain, ce feu invisible se rétracta jusqu'à ne devenir qu'une faible flamme. Bien que vacillante, cette flamme dégageait une aura suffocante.
 
@@ -22,7 +22,7 @@ C'était l'essence de feu de Wang Lin!
 
 En voyant cette essence de feu, l'expression du vieil homme ne changea pas; c'était comme s'il s'y attendait déjà.
 
-Après l'essence de feu, une autre lumière émana du front de Wang Lin. Cette lumière était tonitruante et d'une brillance extrême. Le tonnerre gronda et des éclairs jaillirent du front de Wang Lin! Dès que cette foudre apparut, elle forma un tatouage, tandis que neuf fins éclairs tournaient autour d'elle, dégageant une force terrifiante!
+Après l'essence de feu, une autre lumière émana du sommet du crâne de Wang Lin. Cette lumière était tonitruante et d'une brillance extrême. Le tonnerre gronda et des éclairs jaillirent du sommet du crâne de Wang Lin! Dès que cette foudre apparut, elle forma un tatouage, tandis que neuf fins éclairs tournaient autour d'elle, dégageant une force terrifiante!
 
 Le ciel changea de couleur et les nuages se dispersèrent. L'essence de la foudre était extrêmement puissante!
 
@@ -30,23 +30,23 @@ C'était la deuxième essence de Wang Lin!
 
 « Quel prodige. Non seulement il possède l'essence de feu issue de ses multiples éveils de l'Oiseau Vermillon, mais il possède aussi cette essence de foudre! Je l'avais remarqué auparavant, mais en la voyant ainsi, je ne peux m'empêcher d'être surpris! Cette essence de foudre est complète, elle aussi! Elle est à un stade où elle peut défier la Porte du Vide! Comment a-t-il pu la cultiver? Aurait-il vraiment dévoré un ancien dragon de la foudre? » Le vieil homme prit une profonde inspiration.
 
-Cependant, à cet instant précis, une autre lueur jaillit du front de Wang Lin. Les yeux du vieil homme s'écarquillèrent, révélant une pointe d'excitation.
+Cependant, à cet instant précis, une autre lueur jaillit du sommet du crâne de Wang Lin. Les yeux du vieil homme s'écarquillèrent, révélant une pointe d'excitation.
 
 « C'est ça, c'est ce que j'ai vu auparavant. Le corps de ce petit gars... »
 
-Une autre lueur apparut et une lumière noire et blanche brilla sur le front de Wang Lin. Le monde trembla et une longue rivière illusoire apparut dans le ciel! Cette rivière était la Rivière des Enfers, formée par l'essence de vie et de mort de Wang Lin! La rivière balaya le ciel et sa tête rejoignit sa queue. L'intérieur était embrumé et une aura de vie et de mort en jaillissait.
+Une autre lueur apparut et une lumière noire et blanche jaillit du sommet du crâne de Wang Lin. Le monde trembla et une longue rivière illusoire apparut dans le ciel! Cette rivière était la Rivière des Enfers, formée par le cycle de la vie, de la mort et de la réincarnation de Wang Lin! La rivière balaya le ciel et sa tête rejoignit sa queue. L'intérieur était embrumé et une aura de vie et de mort en jaillissait.
 
 C'était la troisième essence de Wang Lin, née de son domaine de la vie et de la mort!
 
 Le vieil homme afficha une excitation inimaginable; une joie qu'il n'avait pas ressentie depuis des dizaines de milliers d'années apparut sur son visage. Ses yeux s'écarquillèrent et il sourit: « Bien, bien, bien, il y a vraiment une troisième essence. Ce vieil homme n'avait pas regardé de plus près auparavant, c'est inattendu! Je... »
 
-Avant qu'il n'ait pu finir sa phrase, il fut saisi d'un sursaut. Une autre lumière jaillit du front de Wang Lin et un symbole Yin et Yang illusoire s'en échappa. Ce symbole contenait le karma. Lorsqu'il apparut, il sembla déchirer le monde. Le ciel et la terre parurent se confondre, créant un cycle karmique.
+Avant qu'il n'ait pu finir sa phrase, il fut saisi d'un sursaut. Une autre lumière jaillit du sommet du crâne de Wang Lin et un symbole Yin et Yang illusoire s'en échappa. Ce symbole contenait le karma. Lorsqu'il apparut, il sembla déchirer le monde. Le ciel et la terre parurent se confondre, créant un cycle karmique.
 
 Heureusement, aucun autre cultivateur ne se trouvait à proximité. Autrement, ils auraient été aussitôt enlacés par cette force karmique et auraient sombré dans leurs démons intérieurs, incapables de s'en extraire! Toute la causalité qu'ils avaient semée serait devenue un effet karmique venant les détruire, et ils auraient péri corps et âme en un instant!
 
 « Il y en a encore d'autres!! » Le vieil homme était totalement stupéfait, son expression empreinte de choc.
 
-« Quatre essences... Ceci... Comment cet enfant a-t-il pu cultiver pour obtenir quatre essences? C'est trop anormal... » Les pupilles du vieil homme se rétractèrent à nouveau et il s'interrompit brusquement car une autre lueur jaillit du front de Wang Lin.
+« Quatre essences... Ceci... Comment cet enfant a-t-il pu cultiver pour obtenir quatre essences? C'est trop anormal... » Les pupilles du vieil homme se rétractèrent à nouveau et il s'interrompit brusquement car une autre lueur jaillit du sommet du crâne de Wang Lin.
 
 Cette fois, la lumière était extrêmement bizarre; elle semblait présente tout en étant absente, alternant constamment entre le vrai et le faux. Des images réelles et illusoires commencèrent à apparaître, rendant toute distinction impossible au premier coup d'œil.
 
@@ -76,11 +76,11 @@ Le vieil homme rit et secoua la tête. « Ce vieil homme n'est pas l'Oiseau Verm
 
 Wang Lin resta silencieux un moment, puis demanda avec hésitation: « Êtes-vous le Grand Empereur? »
 
-« Je suis comme toi, un Jeune Empereur! » Le vieil homme sourit. Voyant Wang Lin plongé dans ses pensées, il expliqua: « Ce vieil homme et le petit de la quatrième génération, nous sommes tous deux des Jeunes Empereurs! Quant au Grand Empereur, ce n'est qu'un nom utilisé par les étrangers. Pour le clan de l'Oiseau Vermillon, il n'a qu'un seul nom: l'Ancêtre de l'Oiseau Vermillon de la première génération! Il est également l'un des quatre généraux les plus puissants sous l'ancien Empereur Céleste! »
+« Je suis comme toi, un Jeune Empereur! » Le vieil homme sourit. Voyant Wang Lin plongé dans ses pensées, il expliqua: « Ce vieil homme et le petit de la quatrième génération, nous sommes tous deux des Jeunes Empereurs! Quant au Grand Empereur des Terres Déchues, ce n'est qu'un nom utilisé par les étrangers. Pour le clan de l'Oiseau Vermillon, il n'a qu'un seul nom: l'Ancêtre de l'Oiseau Vermillon de la première génération! Il est également l'un des quatre généraux les plus puissants sous l'ancien Empereur Céleste! »
 
 L'esprit de Wang Lin trembla et il leva soudainement les yeux.
 
-Le vieil homme sourit: « Pour les détails, tu les connaîtras une fois que tu auras passé l'épreuve. Cette épreuve est nécessaire, et pour toi, elle pourrait être une chance inouïe de percer vers le royaume du Feu Éthéré. Cependant, elle est extrêmement difficile, alors ne te laisse pas écraser par la pression. » Le vieil homme regarda vers le nord-ouest. Après une courte réflexion, il ajouta avec une pointe d'insatisfaction:
+Le vieil homme sourit: « Pour les détails, tu les connaîtras une fois que tu auras passé l'épreuve. Cette épreuve est nécessaire, et pour toi, elle pourrait être une chance inouïe de percer la transformation du feu réel en Feu Éthéré. Cependant, elle est extrêmement difficile, alors ne te laisse pas écraser par la pression. » Le vieil homme regarda vers le nord-ouest. Après une courte réflexion, il ajouta avec une pointe d'insatisfaction:
 
 « Pourquoi n'as-tu pas accepté le défi du Maître Simo? Les membres de mon clan ne craignent pas les combats! Une fois l'épreuve tentée, libère ta puissance et affronte-le. Ceux qui sont invités ici ne pourront rien te faire! La sélection des Anciens Délaissés n'est qu'un jeu d'enfant. La raison principale d'inviter autant de cultivateurs de la troisième étape est de leur faire savoir qu'un nouveau Jeune Empereur est apparu dans les Terres Déchues!
 
@@ -96,4 +96,4 @@ Lorsqu'il prononça ces mots, son expression devint très étrange.
 
 « Parmi les trois clans, celui de la Tortue Noire a la plus grande force. J'ai examiné ton corps auparavant et j'ai découvert que tu étais devenu, d'une manière ou d'une autre, un Dieu Ancien. La puissance des Dieux Anciens devrait rendre ce sort encore plus redoutable! Ce n'est pas vraiment un sort, mais une méthode pour manipuler la force. Observe attentivement! »
 
-Après avoir parlé, le vieil homme s'avança vers le lac. Il leva la main et fit un geste vers l'eau! Sa paume créa une dépression dans l'élément liquide, mais juste au moment où cette onde se formait, il frappa violemment la surface de l'eau.
+Après avoir parlé, le vieil homme s'avança vers le lac. Il leva la main et fit un geste vers l'eau! Sa paume creusa une dépression dans l'eau, mais au moment même où cette dépression se formait, il frappa la surface de l'eau à distance.

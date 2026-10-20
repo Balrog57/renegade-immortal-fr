@@ -10,7 +10,7 @@ Alors qu'il sortait de la grotte, Wang Lin jeta un regard froid autour de lui et
 
 Parmi les disciples de la Vallée Wu Feng, l'un d'eux renifla et lança: « Li Shan, remets ces jetons ou tu mourras à coup sûr! »
 
-L'homme qu'ils encerclaient était Li Shan, une connaissance de Wang Lin rencontrée autrefois à la Secte Heng Yue. Il représentait ici la Secte Xuan Dao et était l'unique disciple au stade de la Condensation de Qi de sa secte. La Vallée Jue Ming n'imposait qu'une limite supérieure et non inférieure pour y accéder; ainsi, même un disciple de la Condensation de Qi était autorisé à entrer. La plupart des sectes n'auraient toutefois pas envoyé un disciple de ce niveau.
+L'homme qu'ils encerclaient était Li Shan, une connaissance de Wang Lin rencontrée autrefois à la Secte Heng Yue. Il représentait ici la Secte Xuan Dao et était le seul de la délégation au stade de la Condensation de Qi. La Vallée Jue Ming n'imposait qu'une limite supérieure et non inférieure pour y accéder; ainsi, même un disciple de la Condensation de Qi était autorisé à entrer. La plupart des sectes n'auraient toutefois pas envoyé un disciple de ce niveau.
 
 Si Li Shan avait pu venir, c'est parce qu'il excellait dans la fabrication de faux trésors magiques et de fausses pilules et qu'il était un maître hors pair du vol.
 
@@ -30,7 +30,7 @@ Il n'avait fait que quelques pas lorsqu'il se retourna et vit plus de cent écla
 
 Et c'est ainsi que la situation se présenta.
 
-Li Shan s'agenouilla et jeta les trois jetons au sol sans la moindre hésitation.
+Li Shan s'agenouilla et posa les trois jetons au sol sans la moindre hésitation.
 
 Un silence soudain tomba sur les environs. Les trois sectes ayant perdu leurs jetons envoyèrent plusieurs hommes charger, mais comment les autres sectes auraient-elles pu les laisser récupérer leur bien? Elles dépêchèrent donc des combattants pour les en empêcher.
 

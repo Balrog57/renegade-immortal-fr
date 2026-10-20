@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1121 - No Worries About Consequences
 slug: pas-de-soucis-quant-aux-consequences
 ---
-Qing Lin regarda Wang Lin et dit lentement: « Le Maître a été gravement blessé à l'époque et a dû affronter Bei Luo et Ta Jia par la suite. Finalement, Ta Jia a envahi mon corps... »
+Qing Lin regarda Wang Lin et dit lentement: « Le Maître a été gravement blessé à l'époque et a dû affronter Bei Luo et Ta Jia par la suite. Finalement, Ta Jia a envahi mon corps et me tourmente jusqu'à aujourd'hui... »
 
 « Bien que je ne sois pas à bout de forces, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
 
@@ -62,7 +62,7 @@ L'esprit de Wang Lin trembla et sa respiration devint saccadée.
 
 « Malheureusement, le Maître ne connaît pas l'incantation... » Les paroles de Qing Lin offrirent un espoir à Wang Lin, avant de le briser aussitôt.
 
-C'était comme si un marteau céleste lui avait frappé la poitrine; le visage de Wang Lin devint pâle et amer. Si Qing Lin ne connaissait pas l'incantation, alors qui le pourrait...?
+C'était comme si un lourd marteau lui avait frappé la poitrine; le visage de Wang Lin devint pâle et amer. Si Qing Lin ne connaissait pas l'incantation, alors qui le pourrait...?
 
 « Cependant... » Qing Lin regarda Wang Lin.
 

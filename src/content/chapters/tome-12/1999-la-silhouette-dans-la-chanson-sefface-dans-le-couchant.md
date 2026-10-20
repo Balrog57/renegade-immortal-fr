@@ -22,9 +22,9 @@ Après un long moment, Wang Lin dit avec difficulté: « Donnez-moi une raison! 
 
 Elle regarda Wang Lin et dit calmement: « Cet endroit est le palais interdit. Bien qu'il se soit effondré, il se régénérera de lui-même... Au sein du clan céleste, le palais interdit est d'une importance capitale car la tête de l'Ancêtre Céleste s'y trouve... »
 
-« La tête de l'Ancêtre Céleste sert à supprimer les 72 esprits du clan céleste. C'est grâce à elle que ces 72 esprits sont restés scellés. Une fois la tête endommagée, elle perd son pouvoir de suppression sur les esprits encore vivants. Même ceux qui sont morts retourneront vers le vide si la suppression disparaît... »
+« La tête de l'Ancêtre Céleste sert à supprimer les esprits des 72 continents du clan céleste. C'est grâce à elle que ces esprits des 72 continents sont restés scellés. Une fois la tête endommagée, elle perd son pouvoir de suppression sur les esprits encore vivants. Même ceux qui sont morts retourneront vers le vide si la suppression disparaît... »
 
-« À ce moment-là, tout le clan céleste sombrera dans le chaos, les continents s'effondreront et se dissiperont. Le clan entier fera face à une catastrophe... Selon le plan initial de notre clan, nous ne voulions pas détruire le clan céleste; ainsi, après avoir divisé la tête, nous devions choisir une personne pour s'endormir ici. Cette personne remplacerait la tête de l'Ancêtre Céleste et deviendrait l'entité chargée de supprimer les 72 esprits... »
+« À ce moment-là, tout le clan céleste sombrera dans le chaos, les continents s'effondreront et se dissiperont. Le clan entier fera face à une catastrophe... Selon le plan initial de notre clan, nous ne voulions pas détruire le clan céleste; ainsi, après avoir divisé la tête, nous devions choisir une personne pour s'endormir ici. Cette personne remplacerait la tête de l'Ancêtre Céleste et deviendrait l'entité chargée de supprimer les esprits des 72 continents... »
 
 « La personne que nous avons choisie est Lian Daofei! »
 
@@ -32,7 +32,7 @@ Elle regarda Wang Lin et dit calmement: « Cet endroit est le palais interdit. B
 
 « Avec sa culture de Grand Empyréen et le sort secret de notre clan, un effet de suppression pourra être maintenu. C'est pourquoi vous ne pouvez pas l'emmener... Si vous tentez de le prendre par la force, alors... je devrai également vous arrêter », dit doucement Hai Zi.
 
-Gémeaux soupira en regardant Wang Lin et reprit pour la seconde fois: « Wang Lin, laisse Lian Daofei ici. Sa vie ne sera pas en danger; il restera ici pour supprimer les 72 esprits. »
+Gémeaux soupira en regardant Wang Lin et reprit pour la seconde fois: « Wang Lin, laisse Lian Daofei ici. Sa vie ne sera pas en danger; il restera ici pour supprimer les esprits des 72 continents. »
 
 Jiu Di observa la scène froidement sans dire un mot.
 
@@ -48,7 +48,7 @@ Le visage de Wang Lin pâlit instantanément, ses yeux tourmentés par un confli
 
 Le temps passa lentement tandis que le dilemme de Wang Lin agitait son cœur comme une grande vague. Après un long moment, il poussa un soupir. Il ne pouvait pas emmener le fou par la force. Le Grand Empyréen Gémeaux l'en empêcherait, et Jiu Di interviendrait également, et Hai Zi aussi. Si les trois s'alliaient, Wang Lin ne pourrait pas lutter contre eux pour emporter l'homme.
 
-De plus, emmener le fou plongerait le clan céleste dans le chaos. Wang Lin s'en souciait peu, mais cela affecterait le Grand Empyréen Gémeaux qui l'avait tant aidé... La Secte du Yang Pourpre pourrait même être anéantie.
+De plus, emmener le fou plongerait le clan céleste dans le chaos. Wang Lin s'en souciait peu, mais cela affecterait le Grand Empyréen Gémeaux qui l'avait tant aidé... La Secte Yang Pourpre pourrait même être anéantie.
 
 Tout en méditant silencieusement, une expression amère se dessina sur le visage de Wang Lin. Il regarda le fou inconscient et ferma lentement les yeux.
 
@@ -58,11 +58,11 @@ Tout en méditant silencieusement, une expression amère se dessina sur le visag
 
 Mais en fin de compte, il ne pouvait toujours pas emmener le fou...
 
-S'il avait eu le choix, Wang Lin aurait rendu toutes ces richesses pour pouvoir l'emporter, mais tout cela était scellé depuis le début.
+S'il avait eu le choix, Wang Lin aurait rendu toutes ces richesses pour pouvoir l'emporter, mais tout cela était déjà décidé depuis le début.
 
-« Avec la divination de l'ancêtre du clan Dao Wang, il avait probablement prévu que l'Empereur Céleste tente de posséder le fou... Cette possession faisait peut-être partie de son plan, mais je l'ai brisée sans le vouloir... »
+« Avec la divination de l'ancêtre de la Secte de la Grande Âme du clan Dao Wang, il avait probablement prévu que l'Empereur Céleste tente de posséder le fou... Cette possession faisait peut-être partie de son plan, mais je l'ai brisée sans le vouloir... »
 
-« Même l'autodestruction de l'Empereur Céleste et la répartition de la malédiction ancestrale entre les quatre Grands Empyréens étaient sans doute prévues par l'ancêtre du clan Dao Wang. Mais il ne leur a rien dit, et n'a pas tenté de l'empêcher... »
+« Même l'autodestruction de l'Empereur Céleste et la répartition de la malédiction ancestrale entre les quatre Grands Empyréens étaient sans doute prévues par l'ancêtre de la Secte de la Grande Âme du clan Dao Wang. Mais il ne leur a rien dit, et n'a pas tenté de l'empêcher... »
 
 « Peut-être l'a-t-il fait pour un membre de son clan de cette génération, Hai Zi... Tout cela pour apaiser ma colère envers son clan... Que voyait-il pour se montrer si bienveillant envers moi... Est-ce parce que, dans son esprit, mon existence est plus terrifiante qu'un Grand Empyréen... »
 
@@ -76,7 +76,7 @@ Il vit Hai Zi utiliser le sort secret de son clan. Le fou inconscient projeta un
 
 Cette puissance de Grand Empyréen n'était pas une simple esquisse comme le soleil de Wang Lin, mais un astre pleinement formé. Lian Daofei était devenu le cinquième Grand Empyréen du clan céleste après la chute de l'Empereur Céleste.
 
-Toutefois, ce cinquième Grand Empyréen dormirait éternellement sans jamais s'éveiller. Le but de son existence était de remplacer la tête de l'Ancêtre Céleste pour maintenir le sceau des 72 esprits!
+Toutefois, ce cinquième Grand Empyréen dormirait éternellement sans jamais s'éveiller. Le but de son existence était de remplacer la tête de l'Ancêtre Céleste pour maintenir le sceau des esprits des 72 continents!
 
 Wang Lin observa le fou se métamorphoser en une montagne alors que le soleil doré enveloppait son corps. Cette montagne, entièrement d'or, s'élança vers les nuages!
 
@@ -86,7 +86,7 @@ Le ciel se rétablit, et peu à peu, le monde entier retrouva son aspect origine
 
 Le regard de Wang Lin resta un instant suspendu sur la montagne dorée avant qu'il ne se détourne. Se souvenant du serment qu'il avait prêté, il s'éclipsa brusquement!
 
-Après avoir quitté le palais interdit pour traverser le palais souterrain effondré, Wang Lin fit un pas en avant et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait dans le palais impérial de la cité ancestrale.
+Après avoir quitté le palais interdit pour traverser le palais souterrain effondré, Wang Lin fit un pas en avant et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait sur le Continent Astral Immortel, dans le palais impérial de la cité ancestrale de la province centrale du clan céleste.
 
 Le palais était en ruines; à première vue, seule la statue se dressait là, solitaire. C'était celle de l'Ancêtre Céleste, les bras tendus vers le ciel comme s'il lançait un sortilège.
 
@@ -100,13 +100,13 @@ Wang Lin dit calmement: « Merci... »
 
 « C'était ma promesse envers vous, même si le prix fut exorbitant... Mais je dois vous remercier de m'avoir choisie quand je n'étais que deux petites filles. »
 
-Gémeaux reprit lentement: « Vous ne pouviez effectivement pas emmener Lian Daofei, j'espère que vous le comprenez... Après tout, je suis du clan céleste et vous appartenez au clan Ancien. »
+Gémeaux reprit lentement: « Vous ne pouviez effectivement pas emmener Lian Daofei, j'espère que vous le comprenez... Après tout, je suis du clan céleste et vous pouvez appartenir au clan Antique. »
 
 L'expression de Wang Lin resta imperturbable alors qu'il se tournait vers elle. Quant à la manière dont elle avait percé son identité, il ne posa aucune question et n'essaya pas de le dissimuler.
 
 « Merci... » Wang Lin joignit les mains et s'inclina devant le Grand Empyréen Gémeaux.
 
-« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte du Yang Pourpre pour entrer en retraite. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte du Yang Pourpre? »
+« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte Yang Pourpre pour entrer en retraite. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte Yang Pourpre? »
 
 Wang Lin tourna son regard vers le Continent de l'Est avant de déclarer: « Je veux retourner à la Secte de la Grande Âme... Puis je quitterai le clan céleste... »
 

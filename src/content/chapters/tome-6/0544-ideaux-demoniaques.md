@@ -46,7 +46,7 @@ Un seul doigt pour défier les cieux!
 
 À cet instant, le tourbillon au-dessus du palais disparut brusquement. Le ciel entier fut recouvert par un nuage noir qui s'obscurcit rapidement, au point que l'on croyait entendre des fantômes hurler en son sein.
 
-Un doigt démoniaque!
+Un doigt, transformation démoniaque!
 
 L'énergie spirituelle démoniaque envahit la zone. L'énergie spirituelle céleste contenue dans le corps de Wang Lin ne s'inversa pas, mais se mua silencieusement en énergie spirituelle démoniaque! Cette dernière était radicalement différente de celle formée après l'inversion de l'énergie céleste.
 

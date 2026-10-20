@@ -22,7 +22,7 @@ Cette route menait au Continent Astral Immortel; elle était semblable au sentie
 
 C'était un monde de neige, dominé par une montagne glacée perçant les cieux! La montagne était si haute qu'elle semblait infinie. Recouverte d'un blanc immaculé, elle aurait pu terrifier quiconque la contemplerait.
 
-« Une illusion bloquera le chemin de la réincarnation. Cette montagne est un démon, une ancienne montagne du Continent Astral Immortel que j'ai moi-même raffinée. J'y ai rassemblé d'innombrables âmes de montagne jusqu'à ce qu'elle devienne un démon céleste! »
+« La réincarnation comporte des illusions qui enferment les âmes. Cette montagne est un démon, une ancienne montagne du Continent Astral Immortel que j'ai moi-même raffinée. J'y ai rassemblé d'innombrables âmes de montagne jusqu'à ce qu'elle devienne un démon céleste! »
 
 « Cela protégera vos âmes contre la dispersion! » Xuan Luo agita sa main droite et la montagne enneigée s'élança vers la porte. Des craquements résonnèrent alors que le chemin tracé par le dragon se retrouvait figé sous la glace blanche, s'étendant à l'infini.
 
@@ -60,9 +60,9 @@ Ce soleil était initialement invisible, mais sous le regard de Xuan Luo, des cr
 
 On pouvait le toucher, le sentir et le saisir!
 
-« Wang Lin, ceci est forgé à partir de la puissance de Grand Empyréen de ce vieil homme; il peut accroître indéfiniment la puissance de tes sorts de Dao. Utilise-le avec ton Dao du Rêve! »
+« Wang Lin, ceci est forgé à partir de la puissance de Grand Empyréen de ce vieil homme; il peut accroître indéfiniment la puissance de tes sorts de Dao. Utilise-le de toutes tes forces avec ton Dao du Rêve! »
 
-« Emploie cette méthode pour sceller leurs souvenirs dans un rêve jusqu'au jour où tu viendras les éveiller! »
+« Emploie cette méthode sur tous ceux qui t'entourent pour sceller leurs souvenirs dans un rêve jusqu'au jour où tu viendras les éveiller! »
 
 « Pour eux, cette réincarnation sera un rêve! » Le soleil rouge sang, de la taille d'un poing, flotta vers Wang Lin qui le saisit.
 

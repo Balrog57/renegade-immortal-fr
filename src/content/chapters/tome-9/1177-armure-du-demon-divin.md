@@ -42,7 +42,7 @@ Cependant, la majorité de ces doutes furent dissipés par le départ de Li Qian
 
 « L'objet suivant mis aux enchères est un rocher de montagne! » L'Ancien en charge de l'enchère regarda Wang Lin et fit apparaître quelque chose dans sa main.
 
-Il s'agissait d'une pierre de montagne incomplète. Elle était endommagée de toutes parts, un véritable désastre; elle avait une apparence très laide.
+Il s'agissait d'une pierre de montagne incomplète. Elle était endommagée de toutes parts, il n'en restait que des débris; son apparence était quelconque.
 
 En contemplant cette pierre, Wang Lin sembla revivre tous les combats qu'il avait menés à Luotian. La montagne s'y était également effondrée. Wang Lin n'avait pu en rassembler qu'un fragment et l'avait condensé. Elle était devenue un trésor inutile dans son espace de stockage.
 
@@ -52,7 +52,7 @@ Le lettré en blanc qui connaissait Wang Lin dit doucement: « 5 000 jades céle
 
 L'Ancien de la Secte des Sorts Dao, assis sur l'une des tablettes à l'avant, déclara calmement: « 10 000 jades célestes! »
 
-Personne d'autre n'enchérissait pour cette pierre. Hormis quelques cultivateurs puissants, la plupart la jugeaient sans valeur. Cependant, plus tôt, lorsque Wang Lin avait remis ses objets à la Secte du Jade Précieux, tout le monde avait pu observer de près la nature de ces deux trésors.
+Personne d'autre n'enchérissait pour cette pierre. Hormis quelques cultivateurs puissants, la plupart la jugeaient sans valeur. Cependant, plus tôt, lorsque Wang Lin avait remis ses objets à la Secte du Jade Précieux, tout le monde avait pu clairement voir la forme de ces deux trésors.
 
 Tous savaient que cette pierre de montagne appartenait à Wang Lin.
 
@@ -84,7 +84,7 @@ Bien que cette pierre de montagne fût rare, elle n'avait provoqué qu'un léger
 
 Dès l'apparition de ce gaz noir, les expressions de certains cultivateurs changèrent et ils se figèrent. Parmi eux figuraient le vieil homme au visage balafré, le lettré en blanc et sa compagnie.
 
-« Je demande au collègue cultivateur Lu de lever le sceau afin que nous puissions mieux l'examiner. » Le vieil homme joignit les mains vers Wang Lin, révélant que cet objet lui appartenait.
+« Je demande au collègue cultivateur Lu de lever le sceau afin que nous puissions mieux l'examiner. » Le vieil homme joignit les mains vers Wang Lin, soulignant que cet objet appartenait à Wang Lin.
 
 Wang Lin observa attentivement l'expression du vieillard. Après une courte réflexion, sa main droite pointa l'armure et une restriction jaillit vers le gaz noir. Ce dernier sembla bouillir en tourbillonnant violemment tandis que les couches de restrictions se dissipaient. Finalement, toutes les entraves disparurent et le gaz noir perdit son aspect flou. Il se contracta rapidement pour former une armure noire, dégageant une énergie démoniaque monstrueuse.
 

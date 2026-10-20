@@ -8,7 +8,7 @@ slug: sept-couleurs-encore-1
 ---
 Son cri était perçant et strident, empreint d'une terreur immense. C'était comme si cet homme lui avait infligé tant de maux que, même si ses souvenirs n'étaient pas encore totalement revenus, elle ne pouvait s'empêcher de pousser un tel cri de désespoir.
 
-Le changement soudain de la femme en argent était une réaction imprévue pour Wang Lin, une facette d'elle qu'il n'avait jamais vue auparavant. Il se leva rapidement et rangea la statue.
+Le changement soudain de la femme en argent était une réaction imprévue pour Wang Lin, une facette d'elle qu'il n'avait jamais vue auparavant. Ses pupilles se contractèrent; il se leva brusquement et rangea la statue d'un geste de la main droite.
 
 La femme en argent s'était déjà repliée vers le fond de la grotte. Son corps était parcouru par une peur monstrueuse et elle tremblait violemment. Son visage était livide; à première vue, elle ressemblait à une barque solitaire en pleine mer déchaînée, d'une tristesse infinie.
 
@@ -62,7 +62,7 @@ Cette paume n'utilisait aucune énergie originelle, mais elle fit trembler la pl
 
 Cette obscurité engloutit le soleil et occulta le firmament; la planète entière fut plongée dans les ténèbres! Dans ce noir absolu, un grondement retentit. Ce n'était pas le tonnerre, mais un son bien plus puissant encore. Un immense gouffre s'ouvrit dans le ciel sous l'impact de ce fracas!
 
-Cette faille différait des déchirures spatiales ordinaires; elle était bien plus profonde! Sa profondeur défiait toute explication, comme si elle menait vers un espace mystérieux et insondable au cœur même du système stellaire!
+Cette faille différait des déchirures spatiales ordinaires; elle était bien plus profonde! Sa profondeur défiait toute explication, comme si elle menait vers un espace mystérieux et insondable au plus profond de ce système stellaire!
 
 Dès l'apparition de la faille, un gaz vert s'en échappa et fondit sur la grotte de Wang Lin. Les restrictions furent totalement inefficaces pour stopper ce flux qui chargea et s'enroula autour de la paume droite de la femme!
 
@@ -110,7 +110,7 @@ Même après cela, il fronçait toujours les sourcils en observant le gaz vert d
 
 « C'est une autre force, distincte de l'énergie originelle! Ce n'est pas le pouvoir des Flammes Joss ni de l'essence, pourtant c'est très similaire à l'essence! Qu'est-ce que c'est donc... Est-ce lié à cette statue... Cette femme en argent recèle trop de secrets... Quelle est son identité exacte?! »
 
-« L'une des huit concubines impériales antiques... » Wang Lin ne parvenait pas à conclure.
+« Serait-elle l'une des huit concubines impériales antiques? » Wang Lin ne parvenait pas à conclure.
 
 « Cette femme a dit que les Flammes Joss étaient toxiques. Au début, j'ai pensé qu'elle avait cultivé les Flammes Joss et que c'était la cause de son état... Cependant, avec le recul, cela semble bien plus complexe! »
 

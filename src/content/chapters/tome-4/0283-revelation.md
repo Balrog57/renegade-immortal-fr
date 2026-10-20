@@ -8,13 +8,13 @@ slug: revelation
 ---
 L'expression de Wang Lin était calme, mais il était extrêmement vigilant. Cet homme était très étrange. Il ne dégageait pas la moindre trace d'énergie spirituelle et ressemblait à un mortel au premier abord; pourtant, comment un simple mortel aurait-il pu percer à jour ma véritable identité? Wang Lin joignit calmement les mains et répondit: « Je ne suis qu'un homme des montagnes. Inutile de me donner un nom; appelez-moi simplement Da Niu. »
 
-Le colosse regarda Wang Lin d'un air curieux et éclata de rire: « Frère Da Niu, pourquoi ne pas nous asseoir pour discuter en cette nuit pluvieuse? »
+Le colosse regarda Wang Lin d'un air curieux et éclata de rire: « Frère Da Niu, pourquoi ne pas nous asseoir pour échanger sur le Dao cette nuit pluvieuse? »
 
 Wang Lin esquissa un léger sourire et hocha la tête avant de s'asseoir en tailleur sur le sol. D'un geste de la main droite, il fit apparaître une gourde de vin et prit une gorgée.
 
 Depuis la destruction de l'Alliance des Quatre Sectes, les réserves de ce vin de fruits de Wang Lin avaient diminué; il en buvait donc beaucoup moins souvent désormais.
 
-Le colosse laissa échapper un rire, s'assit et déclara: « La culture du frère Da Niu est vraiment stupéfiante. Si je ne m'abuse, vous êtes sur le point d'obtenir votre domaine. »
+Le colosse laissa échapper un rire, s'assit et déclara: « La culture du frère Da Niu est vraiment stupéfiante. Si je ne m'abuse, vous avez déjà atteint votre domaine, et les sommets célestes vous sont à portée. »
 
 Le cœur de Wang Lin rata un battement. Il devint encore plus méfiant envers cet individu, mais en apparence, il se contenta de rire discrètement pour esquiver la question.
 

@@ -106,7 +106,7 @@ Au moment où la main de l'homme atteignit la sienne, les deux doigts de la main
 
 Le prisonnier trembla et recula précipitamment. Son corps fut pris de convulsions, du sang noir jaillit de ses orifices et son visage se déforma sous une douleur indicible.
 
-Les cris des prisonniers environnants redoublèrent d'intensité. Mais une seconde plus tard, un hurlement misérable s'éleva de la gorge de l'homme. Ce cri fut comme une lame acérée qui transperça tous les autres et fit taire tout le monde!
+Les cris des prisonniers environnants redoublèrent d'intensité. Mais au même instant, un hurlement misérable s'éleva de la gorge de l'homme. Ce cri fut comme une lame acérée qui transperça tous les autres et fit taire tout le monde!
 
 À cet instant, tous les voisins cessèrent de crier. Le cri de détresse continua, chargé d'une peur absolue, tandis que Wang Lin observait la scène avec indifférence. L'homme dans la cage, déjà chétif, dépérissait à vue d'œil jusqu'à devenir une momie!
 

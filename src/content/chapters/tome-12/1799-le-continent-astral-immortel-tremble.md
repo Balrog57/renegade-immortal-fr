@@ -64,13 +64,13 @@ Wang Lin médita longuement en silence. Lorsqu'il se trouvait dans le Monde des 
 
 Tandis qu'ils progressaient, Wang Lin jeta un dernier regard vers l'endroit où reposait son avatar. Ses yeux brillaient d'une intensité vive. Au-delà des théories du Feng Shui, il nourrissait de grandes attentes envers la croissance de cet être. Il sentait clairement ce lien indéfectible avec l'avatar. Un jour, quand l'avatar aurait fini de croître et sortirait de sa coquille, Wang Lin était convaincu qu'il changerait le monde!
 
-Portant le Cercueil d'Évitement Céleste contenant Li Muwan, Wang Lin, porté par le moustique, fonça vers la sortie!
+Portant le Cercueil d'Évitement Céleste contenant Li Muwan, Wang Lin, porté par le moustique, fonça vers les profondeurs du vide, vers la sortie!
 
 À cet instant précis, au cœur du vide, il ignorait le troisième bouleversement titanesque qui venait de frapper le Continent Astral Immortel au moment même où le Roi Moustique avait apporté le sang sur la plateforme et que celui-ci avait été absorbé.
 
 Ce changement colossal ébranla l'intégralité du Continent Astral Immortel. D'innombrables cultivateurs puissants sortirent de leur culture de porte close. Les chefs et les Anciens de sectes infinies émergèrent, leurs Sens Divins jaillissant vers le ciel.
 
-Cette agitation attira même l'attention des neuf soleils, créant une occurrence rare où les neuf astres apparurent simultanément!
+Cette agitation attira même l'attention des neuf soleils, créant une occurrence rare où les neuf soleils apparurent simultanément!
 
 Personne ne pourrait oublier cette scène; elle resterait gravée dans les mémoires pendant des années. Elle devint un mystère sur lequel tout le monde spéculerait.
 

@@ -132,7 +132,7 @@ La marque descendant du ciel s'effondra instantanément, et l'onde de choc forç
 
 Wang Lin recula de trois pas. Chaque pas provoquait d'innombrables fissures dans le sol.
 
-Le combat entre les deux avait attiré l'attention de tout Xue Yu. Hormis le vieillard mort et les deux autres, les dix-sept survivants de la Formation de l'Âme se téléportaient frénétiquement vers le palais.
+Le combat entre les deux avait attiré l'attention de tout Xue Yu. Hormis le vieillard mort et les deux autres, les dix-sept autres cultivateurs de la Formation de l'Âme se téléportaient frénétiquement vers le palais.
 
 Pour eux, Li Yuanfeng était le maître de secte de tout le pays. Tant qu'il vivait, ils étaient un pays de culture de rang 5. S'il mourait, ils ne pourraient pas produire d'autre cultivateur de Transformation de l'Âme de sitôt, ce qui signifierait inévitablement la chute du rang de leur nation.
 

@@ -30,7 +30,7 @@ Arrivé au 14e palais, alors qu'il était sur le point d'y pénétrer, il s'arr�
 
 « J'attends de voir si tu passeras le 15e palais! » Pourtant, ses pupilles se rétractèrent imperceptiblement.
 
-Wang Lin ricana. Puisque tous les faux-semblants avaient été déchirés, il n'avait plus besoin de politesse. Plus il agirait ainsi, plus son voyage vers la cité impériale serait sûr une fois cette affaire réglée.
+Wang Lin ricana. Puisque tous les faux-semblants avaient été déchirés, il n'avait plus besoin de politesse. Plus il agirait ainsi, plus son voyage vers la cité impériale serait sûr une fois que l'affaire se serait ébruitée.
 
 Il pénétra dans le 14e palais!
 
@@ -108,7 +108,7 @@ Ce mouvement fut vu par tous, et les cultivateurs s'écrièrent soudainement:
 
 « Oui, il doit y avoir un secret impensable entre lui et l'Empereur Céleste, ce qui explique pourquoi ce dernier l'a ainsi attaqué! »
 
-Des pensées similaires circulèrent également parmi les Ascendant Empyréens. À cet instant, ils ne ressentaient plus de mépris pour Wang Lin, mais des sentiments complexes mêlés d'admiration!
+Des pensées similaires circulèrent également parmi les Ascendants Empyréens. À cet instant, ils ne ressentaient plus de mépris pour Wang Lin, mais des sentiments complexes mêlés d'admiration!
 
 Quelle que soit la méthode, franchir le 15e palais était une preuve de force absolue!
 
@@ -144,6 +144,6 @@ L'Exalté Empyréen Hai Zi regarda le ciel avec nervosité avant de laisser écl
 
 À l'extérieur du 16e palais, Wang Lin sortit. Son visage était légèrement pâle, mais il ne se dirigea pas immédiatement vers le 17e palais. Il resta là, contemplant le palais comme s'il attendait l'Ascendant Empyréen Ming Dao!
 
-Cette scène fit écarquiller les yeux de Dao Yi. Wu Feng fut frappé par le choc. Quant à l'Empereur Céleste, son expression changeait sans cesse, tentant désespérément de masquer son incrédulité.
+Cette scène fit écarquiller les yeux de Dao Yi. Wu Feng fut frappé par le choc. Quant à l'Empereur Céleste, son expression changeait sans cesse, tentant de masquer son incrédulité.
 
 Et même le Grand Empyréen Jiu Di, au Mont de l'Empereur, en eut le souffle coupé.

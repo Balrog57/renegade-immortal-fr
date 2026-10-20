@@ -10,7 +10,7 @@ Les compagnons de Wang Lin partirent les uns après les autres. Avant de s'en al
 
 Treize s'agenouilla dans le vide devant Wang Lin. Il leva la tête, le regard empreint d'une détermination sans faille.
 
-« Maître, Treize s'en va. Même si ma mémoire ne s'éveille pas, je n'oublierai jamais la bonté avec laquelle vous m'avez transmis le Dao. Même lors de ma réincarnation, je ne l'oublierai pas! » Les paroles de Treize étaient chargées d'une volonté farouche. Sa résolution était si puissante que, même si ses souvenirs étaient effacés, son instinct subsisterait.
+« Maître, Treize s'en va. Même si ma mémoire ne s'éveille pas, je n'oublierai jamais la bonté avec laquelle vous m'avez transmis le Dao. Même lors de ma réincarnation, je ne l'oublierai pas! » Les paroles de Treize étaient chargées d'une volonté farouche. Sa résolution était si puissante que, même si ses souvenirs étaient scellés, son instinct subsisterait.
 
 Cet instinct était ce qui lui importait le plus: son lien avec Wang Lin en tant que disciple.
 
@@ -58,11 +58,11 @@ La planète était recouverte de sable jaune. Le jour n'y existait pas, seule la
 
 Au sommet de la structure en croissant, le sable jaune flottait dans les airs au-dessus d'un sol sombre. Une faille s'y ouvrait, et au milieu de celle-ci siégeait un vieil homme. Le visage pâle et les yeux clos, il tentait de se soigner. Cependant, du sang noir jaillissait du coin de sa bouche et perlait sur le sol dans un crépitement sinistre.
 
-Tandis qu'il guérissait, des auras semblables à de la fumée émanaient de la planète pour pénétrer son corps et favoriser sa convalescence.
+Tandis qu'il guérissait, des auras semblables à de la fumée émanaient de la planète pour pénétrer son corps par ses sept orifices et favoriser sa convalescence.
 
 Ce vieil homme n'était autre que le Maître Démon Neuf Cieux, gravement blessé par Rêve Bleu!
 
-À l'époque, son Royaume de la Flamme Joss avait été détruit et son âme endommagée. Il avait survécu de justesse, parvenant à préserver le peu de force vitale qui lui restait. Il utilisait l'aura de mort de la planète pour restaurer son Royaume de la Flamme Joss. Le silence régnait et le ciel était obscur, mais soudain, le vieil homme leva la tête. Ses yeux s'ouvrirent brusquement et ses pupilles se rétractèrent.
+À l'époque, son Royaume des Flammes Joss avait été détruit et son âme endommagée. Il avait survécu de justesse, parvenant à préserver le peu de force vitale qui lui restait. Il utilisait l'aura de mort de la planète pour restaurer son Royaume des Flammes Joss. Le silence régnait et le ciel était obscur, mais soudain, le vieil homme leva la tête. Ses yeux s'ouvrirent brusquement et ses pupilles se rétractèrent.
 
 Simultanément, une lumière éclatante jaillit dans l'obscurité céleste. Tandis que cette clarté inondait la planète, un jeune homme vêtu de blanc en sortit.
 
@@ -100,7 +100,7 @@ Miao Yin était assis au fond de l'océan, entouré par l'obscurité. Pourtant, 
 
 Ces ossements étaient principalement ceux d'animaux. Tandis que Miao Yin se soignait dans les abysses, un rugissement sembla se propager à travers l'eau par une méthode mystérieuse.
 
-« Wang Lin, Rêve Bleu... vous deux ne mourrez pas une belle mort! » Les yeux de Miao Yin s'ouvrirent grand, son visage déformé par la rage. Blessé par Rêve Bleu, son niveau de culture avait chuté au stade Vide Spirituel. Il lui faudrait au moins cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
+« Wang Lin, Rêve Bleu... vous deux ne mourrez pas une belle mort! » Les yeux de Miao Yin s'ouvrirent grand, son visage déformé par la rage. Blessé par Rêve Bleu, son niveau de culture avait chuté au stade Vide Spirituel. Il lui faudrait cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
 
 Dans son rugissement, Miao Yin tendit la main droite vers l'océan. Un vortex apparut, aspirant un long serpent de mer noir, long de mille pieds, qui trembla, incapable de lutter face à la puissance du tourbillon.
 

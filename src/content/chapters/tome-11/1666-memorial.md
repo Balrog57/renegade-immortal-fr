@@ -46,7 +46,7 @@ Après les êtres célestes vinrent les cultivateurs de cette ère, ceux qui ava
 
 Le premier à l'atteindre fut un ancien cultivateur. Son expression était évanescente et son âme lugubre. Il apparut à cent pieds de Wang Lin et le regarda avec profondeur. Wang Lin maintint sa posture de révérence. L'âme joignit les mains en signe de respect devant lui.
 
-Après avoir salué, il se précipita dans la roue géante, acceptant volontairement de devenir l'un des esprits de la formation!
+Après avoir salué, il se précipita dans la roue géante formée des trois essences, acceptant volontairement de devenir l'un des esprits de la formation!
 
 Derrière lui, toutes les âmes mortes de l'ère antique suivirent le mouvement. Elles joignirent toutes les mains vers Wang Lin à cent pieds de distance avant d'entrer sans hésitation dans la roue de la formation.
 
@@ -76,13 +76,13 @@ Maître Nan Yunzi, Situ Nan, Maître Hong Shan, Qing Lin et les autres se levèr
 
 Non seulement eux, mais dans les trois autres systèmes stellaires, les rares groupes de cultivateurs du Royaume Intérieur encore en vie levèrent également les yeux. Les souvenirs de la guerre défilèrent devant eux tandis qu'ils s'inclinaient vers les étoiles!
 
-Il y avait aussi les trois femmes réunies dans la Mer des Nuages, encore un peu éloignées de Wang Lin. Leurs yeux étaient noyés de larmes alors qu'elles saluaient les ombres qui passaient.
+Il y avait aussi les trois femmes réunies dans la Mer des Nuages, encore un peu éloignées de Wang Lin. Leur expression était empreinte de tristesse alors qu'elles saluaient les ombres qui passaient.
 
 Au même instant, dans le Vide Brillant, au sein du système stellaire désert, le Vieux Fantôme Zhan affichait une rare expression sombre. Il se tenait là, observant les âmes défiler avec un visage tourmenté.
 
 « Lu Cai... Li Dong, Chang Yi... Êtes-vous tous là... Vous êtes morts depuis si longtemps et je suis le seul à être encore en vie... À l'époque, nous cherchions à comprendre pourquoi les Royaumes Intérieur et Extérieur se déchiraient... Je n'aurais jamais pensé devenir un jour la source de cette guerre que je détestais tant... Nous avions juré ensemble de changer tout cela, de détruire la Formation de Scellement du Royaume pour permettre au Royaume Intérieur de s'en libérer... »
 
-« Cependant, ils ignorent ce que j'ai découvert grâce à l'origine céleste. J'ai découvert un secret terrifiant... »
+« Cependant, ils ignorent ce que j'ai découvert grâce à cette fortune céleste. J'ai découvert un secret terrifiant... »
 
 La douleur envahissait le Vieux Fantôme Zhan. Bien qu'il fût considéré comme l'être le plus puissant de la grotte, il restait un homme, une vie née au sein de ce lieu.
 
@@ -102,6 +102,6 @@ Toujours dans la Rivière Invoquée, il y avait une personne que même l'Omnisci
 
 Il était assis, son corps flou et indistinct, impossible à saisir clairement.
 
-À cet instant, il ouvrit les yeux, laissant poindre un éclat doré dans son regard, avant que le mépris ne s'y installe.
+À cet instant, il ouvrit les yeux, laissant poindre un éclat dans son regard, avant que le mépris ne s'y installe.
 
 « À quoi bon s'incliner devant ces âmes pitoyables? Une bande d'oiseaux en cage. Je ne parviens pas à trouver l'endroit mentionné par l'Oncle-Maître Ma, alors je ne m'en donnerai pas la peine. Si je calcule bien, l'Oncle-Maître Ma devrait bientôt s'éveiller. Cette grotte de la Secte des Sept Dao devient de plus en plus intéressante... »

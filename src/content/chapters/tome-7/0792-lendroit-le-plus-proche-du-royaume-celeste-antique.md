@@ -20,11 +20,11 @@ Wang Lin ne parvenait déjà plus à percevoir la célérité de leur progressio
 
 C'était une pure illusion, mais Wang Lin ne trouvait aucun autre moyen d'expliquer une telle vitesse.
 
-Cela était également dû au fait que Wang Lin avait déjà saisi le concept de « Déformation Spatiale », un sort appartenant aux cultivateurs du deuxième niveau. Bien qu'il ne puisse pas fusionner avec le monde aussi naturellement que le vieil homme, qui le faisait comme s'il respirait, il pourrait néanmoins l'utiliser avec suffisamment de préparation.
+Cela était également dû au fait que Wang Lin avait déjà saisi le concept de « Distorsion Spatiale », un sort appartenant aux cultivateurs du deuxième niveau. Bien qu'il ne puisse pas fusionner avec le monde aussi naturellement que le vieil homme, qui le faisait comme s'il respirait, il pourrait néanmoins l'utiliser avec suffisamment de préparation.
 
-S'il n'avait été qu'un cultivateur au stade du Yang Corporel n'ayant pas maîtrisé la Déformation Spatiale, son âme originelle ne pourrait avoir résisté à une telle accélération. Dans le meilleur des cas, il aurait été gravement blessé; dans le pire, son âme originelle se serait effondrée.
+S'il n'avait été qu'un cultivateur au stade du Yang Corporel n'ayant pas maîtrisé la Distorsion Spatiale, son âme originelle ne pourrait avoir résisté à une telle accélération. Dans le meilleur des cas, il aurait été gravement blessé; dans le pire, son âme originelle se serait effondrée.
 
-Même si Wang Lin maîtrisait la Déformation Spatiale, il sentait que son âme originelle ne pourrait supporter un voyage dans cet état sur une période aussi prolongée.
+Même si Wang Lin maîtrisait la Distorsion Spatiale, il sentait que son âme originelle ne pourrait supporter un voyage dans cet état sur une période aussi prolongée.
 
 Sous le contrôle du vieil homme, son corps ne quittait jamais l'état de fusion avec le monde. C'était comme si chaque parcelle de son être, y compris son âme originelle, était divisée en d'innombrables grains faisant partie intégrante de l'univers.
 
@@ -42,7 +42,7 @@ Plus on s'intègre étroitement au monde, plus on acquiert le droit d'explorer s
 
 Malgré la douleur, les bienfaits étaient bien réels!
 
-Son âme originelle se fondait de plus en plus étroitement dans le monde, comme s'il en avait toujours fait partie. Simultanément, le domaine de Wang Lin commença lui aussi à fusionner avec le monde; son domaine karmique se confirmait mutuellement avec le Dao karmique de l'univers.
+Son âme originelle se fondait de plus en plus étroitement dans le monde, comme s'il en avait toujours fait partie. Simultanément, le domaine de Wang Lin fut lui aussi touché; son domaine karmique se confirmait mutuellement avec le Dao karmique de l'univers.
 
 Au-delà de son âme originelle, son corps physique en bénéficiait également. Après avoir subi le nettoyage précédent, son énergie originelle avait pleinement fusionné avec sa chair.
 
@@ -52,7 +52,7 @@ Mais ce n'était pas encore l'essentiel. Le point crucial était que, dans ce pr
 
 Le fait de subir ce processus sur une longue durée signifiait que son corps avait naturellement acquis la puissance de l'énergie originelle du monde. C'était comme si chaque muscle et chaque goutte de sang étaient imprégnés de cette essence primordiale.
 
-Bien entendu, rien de tout cela n'était intentionnel de la part du vieil homme mystérieux. Si Wang Lin n'avait pas réuni toutes ces conditions, dès que le vieil homme réapparaîtrait et quitterait son corps, l'âme originelle de Wang Lin se serait effondrée, entraînant sa mort.
+Bien entendu, rien de tout cela n'était intentionnel de la part du vieil homme mystérieux. Si Wang Lin n'avait pas réuni toutes ces conditions, dès que le vieil homme sortirait du monde pour rejoindre son véritable corps, l'âme originelle de Wang Lin se serait effondrée, entraînant sa mort.
 
 Wang Lin et le jeune homme maléfique traversèrent le monde à toute allure. Peu après, la silhouette de Wang Lin apparut sur un fragment situé à l'extrémité nord du Royaume Céleste du Tonnerre.
 
@@ -66,7 +66,7 @@ Après avoir jailli de l'explosion, Wang Lin s'envola au loin sans la moindre h�
 
 Plusieurs craquements retentirent, puis une multitude de fissures apparurent autour de Wang Lin. Une force invisible qui tentait de l'emprisonner fut déchirée par ses Coups Célestes.
 
-L'expression de Wang Lin était sombre alors qu'il accélérait sa fuite. Il avait déjà souffert par le passé en se laissant surprendre par derrière, et il ne permettrait pas que cela se reproduise.
+L'expression de Wang Lin était sombre alors qu'il accélérait sa fuite. Il avait déjà souffert par le passé d'avoir été enfermé de toutes parts, et il ne permettrait pas que cela se reproduise.
 
 Le regard du jeune homme maléfique devint glacial tandis qu'il inspectait les fragments environnants en fronçant les sourcils.
 

@@ -22,13 +22,13 @@ L'illumination de Maître Yi Chen fut interrompue. Il sursauta avant de secouer 
 
 L'homme d'âge mûr nommé Maître Yi Xing hocha la tête et dit: « Oui, c'est comme un cultivateur excentrique dont la personnalité change constamment et qu'il est impossible de percer à nu. »
 
-Lorsque ces paroles atteignirent les oreilles de Wang Lin, elles le firent frissonner. Il leva soudainement les yeux vers le ciel au-delà du pavillon, sa coupe de vin à la main. C'était comme s'il avait été frappé par la foudre. Initialement, il était perplexe face à l'affaire Bai Wei, mais désormais, c'était comme si une paire de mains invisibles lui avait ouvert la voie.
+Lorsque ces paroles atteignirent les oreilles de Wang Lin, elles le firent frissonner. Il leva soudainement les yeux vers le ciel au-delà du pavillon, sa coupe de vin à la main. C'était comme s'il avait été frappé par la foudre. Initialement, il était perplexe face à l'affaire Bai Wei, mais désormais, c'était comme si une paire de mains invisibles avait écarté le brouillard.
 
 « C'est comme la personnalité d'une personne; elle est étrange et change constamment. Impossible à comprendre... »
 
 « Plus tôt, Bai Wei a dit que le climat de la planète Tian Yun changerait dans quelques mois. Ces changements brusques entre le ciel nuageux et le soleil sont une caractéristique unique à cette planète. »
 
-« Bien que cela semble ordinaire, c'est en réalité profond. Les changements constants du climat sur la planète Tian Yun font en fait référence à la personnalité de Maître qui change sans cesse. C'était la même chose que ma spéculation sur ses avatars qui changent constamment! »
+« Bien que cela semble ordinaire, c'est en réalité profond. Les changements constants du climat sur la planète Tian Yun font en fait référence à la personnalité de Maître qui change sans cesse. C'était la même chose que ma compréhension selon laquelle ses innombrables avatars ne formaient qu'un seul corps et changeaient sans cesse! »
 
 Les réactions de Wang Lin firent se regarder les trois frères Chen. Ils ne pouvaient pas deviner ce que Wang Lin pensait et ne purent s'empêcher de se murer dans le silence.
 
@@ -36,7 +36,7 @@ Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans s
 
 « Il y avait un arbre blanc planté dans la montagne arrière; on disait qu'il ne fleurirait jamais, et pourtant, il a fleuri. Cependant, la couleur de la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de se dissiper en brume... Si l'on pouvait sauver cette fleur, ce serait merveilleux. »
 
-« Il y avait un sens caché derrière ses paroles. Cet arbre blanc faisait référence à Bai Wei lui-même! Le fait que l'arbre blanc ne puisse pas fleurir signifie qu'il était initialement un homme, mais qu'il est devenu une femme... Puis il a dit que les fleurs blanches avaient inopinément fleuri, mais qu'au lieu d'être blanches, elles étaient noires. C'est encore plus explicite: il me disait que pour une raison quelconque, le noir et le blanc s'étaient inversés et qu'il était passé du masculin au féminin! »
+« Il y avait un sens caché derrière ses paroles. Cet arbre blanc faisait référence à Bai Wei lui-même! Le fait que l'arbre blanc ne puisse pas fleurir signifie qu'il était initialement un homme, mais qu'il est devenu une femme... Puis il a dit que l'arbre blanc avait inopinément fleuri, mais que sa fleur, au lieu d'être blanche, était noire. C'est encore plus explicite: il me disait que pour une raison quelconque, le noir et le blanc s'étaient inversés et qu'il était passé du masculin au féminin! »
 
 « Le fait que la fleur ne vive que trois respirations signifie qu'il ne lui restait plus beaucoup de temps. Il m'a dit tout cela pour que je puisse le sauver! »
 
@@ -68,7 +68,7 @@ Bai Wei avait disparu!
 
 « La personne qui a pris Bai Wei doit posséder un niveau de culture bien supérieur au mien et à celui des frères Chen! » L'expression de Wang Lin était sombre, mais ses yeux se rétrécirent rapidement.
 
-« Faux! Si quelqu'un avait enlevé Bai Wei, pourquoi aurait-il placé une restriction pour garder la chambre... » Wang Lin réfléchit silencieusement, puis un sourire narquois apparut sur son visage.
+« Faux! Si quelqu'un avait enlevé Bai Wei, pourquoi aurait-il placé une restriction empêchant de sonder la chambre par le Sens Divin... » Wang Lin réfléchit silencieusement, puis un sourire narquois apparut sur son visage.
 
 Le corps de Wang Lin vacilla et il disparut instantanément. Lorsqu'il réapparut, il était dans les airs. À cet instant, le monde était enveloppé par la pluie, des éclairs déchiraient les nuages et le tonnerre grondait sur toute la planète.
 

@@ -90,7 +90,7 @@ Le visage de Sun Tai devint sombre alors qu'il fixait Wang Lin. Après un moment
 
 Wang Lin secoua la tête en souriant: « Je ne connais pas la technique pour lever le sceau, alors comment pourrais-je le faire? »
 
-Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis l'Ancien principal de la Secte des Cadavres de Suzaku, un cultivateur de la Transformation de l'Âme. Même mort, je ne me soumettrai jamais à personne, à plus forte raison à un junior comme toi que je pourrais écraser d'un doigt! »
+Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis le Grand Ancien de la Secte des Cadavres de la planète Suzaku, un cultivateur de la Transformation de l'Âme. Même mort, je ne me soumettrai jamais à personne, à plus forte raison à un junior comme toi que je pourrais écraser d'un doigt! »
 
 « De plus, ne crois pas pouvoir me tuer par un simple ordre. Je peux te dire que je n'ai pas seulement trois âmes, mais une quatrième également. Cette quatrième âme se trouve dans le corps à l'intérieur du cercueil. Tu peux briser l'âme de mon corps actuel, mais au moment où cela arrivera, ma quatrième âme te tuera. »
 
@@ -110,7 +110,7 @@ Cette lumière blanche contenait le domaine d'obsession de niveau Ascendant de Z
 
 Sun Tai poussa un gémissement de douleur et recula précipitamment.
 
-Les yeux de Wang Lin brillèrent. Zhou Yi avait dit que cette pagode pouvait contrer Sun Tai, mais il n'avait rien mentionné de la quatrième âme. Il ne devait surtout pas laisser Sun Tai le découvrir.
+Les yeux de Wang Lin brillèrent. Zhou Yi avait dit que cette pagode pouvait contrer Sun Tai, mais il n'avait rien mentionné de la quatrième âme, dont il ignorait si elle était réelle. Il ne devait surtout pas laisser Sun Tai le découvrir.
 
 Fort de cette pensée, il saisit la pagode et s'élança soudainement vers l'avant. Ses yeux brillaient d'une lueur étrange lorsqu'il ricana: « Sun Tai, le domaine de cette pagode ne sert normalement qu'à repousser les gens sans effet nocif. Pourtant, il est dévastateur pour vous. C'est une chose que Senior Zhou Yi a secrètement préparée pour vous contrer. »
 
@@ -124,7 +124,7 @@ Le visage de Sun Tai était livide. Sa voix, rauque, tonna: « Si tu ne me crois
 
 Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama: « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup? Avec la culture de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous? Une seule pensée suffirait à vous faire mourir! Même si vous possédez une âme brisée, Senior Zhou Yi l'avait déjà prévu! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous osez mordre votre maître, alors vous devez mourir! »
 
-Les yeux de Sun Tai vacillèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior?
+Les yeux de Sun Tai vacillèrent. Bien qu'il ne le montrât pas, il commença à douter. C'était vrai; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior?
 
 Se pourrait-il que Zhou Yi ait, d'une manière ou d'une autre, anticipé toutes ses manigances?
 

@@ -86,11 +86,11 @@ Sous la puissance de cette aura de massacre, son âme originelle, qui était dé
 
 « Peu importe qui vous êtes, ne jouez pas avec moi... » Wang Lin recula d'un pas et, simultanément, enchaîna plusieurs sorts de téléportation. En un clin d'œil, il disparut.
 
-Le bras osseux n'était pas la véritable menace; ce qui était terrifiant, c'était cette protection de poignet. Le Doigt de la Mort que Wang Lin avait utilisé pour sonder la situation lui avait permis de percevoir l'étrangeté de cette protection. Les terres des esprits démoniaques regorgeaient d'êtres mystérieux. Wang Lin venait de franchir le stade d'Ascendant et avait besoin de quelques jours pour que son âme originelle fusionne totalement; il ne voulait pas s'attirer de tourments inutiles pour l'instant.
+Le bras osseux n'était pas la véritable menace; ce qui était terrifiant, c'était cette protection de poignet. Le Doigt de la Mort que Wang Lin avait utilisé pour sonder la situation lui avait permis de percevoir l'étrangeté de cette protection. Les Terres des Esprits Démoniaques regorgeaient d'êtres mystérieux. Wang Lin venait de franchir le stade d'Ascendant et avait besoin de quelques jours pour que son âme originelle fusionne totalement; il ne voulait pas s'attirer de tourments inutiles pour l'instant.
 
 Au moment où Wang Lin partit, une exclamation étouffée retentit depuis la tour noire sur l'ancien champ de bataille.
 
-« Pas étonnant qu'il soit un cultivateur défiant les cieux; il a pu résister de force à mon Vent Démoniaque Céleste grâce à son cœur de massacre! Mais plus tu es ainsi, plus ton énergie originelle m'intéresse! Dans ces terres des esprits démoniaques, ceux qui cultivent la voie de l'ancien démon ne peuvent former d'énergie originelle. Celle-ci n'apparaît que lorsque les cultivateurs atteignent le stade d'Ascendant. Durant ces innombrables années, presque chaque Ascendant de ce pays a vu son énergie dévorée par moi... Tu ne feras pas exception! »
+« Pas étonnant qu'il soit un cultivateur défiant les cieux; il a pu résister de force à mon Vent Démoniaque Céleste grâce à son cœur de massacre! Mais plus tu es ainsi, plus ton énergie originelle m'intéresse! Dans ces Terres des Esprits Démoniaques, ceux qui cultivent la voie de l'ancien démon ne peuvent former d'énergie originelle. Celle-ci n'apparaît que lorsque les cultivateurs atteignent le stade d'Ascendant. Durant ces innombrables années, presque chaque Ascendant de ce pays a vu son énergie dévorée par moi... Tu ne feras pas exception! »
 
 Wang Lin réapparut après sa téléportation. Il se trouvait dans une zone désolée, dépourvue de montagnes ou de cours d'eau. Seuls des arbres desséchés jonchaient le paysage. Cependant, ses yeux se plissèrent aussitôt en remarquant des restrictions au loin.
 

@@ -10,7 +10,7 @@ Chaque cultivateur possédant un fourneau de tonnerre était entraîné par son 
 
 Lorsqu'ils regardaient autour d'eux, outre la lumière émanant de leurs propres corps, il n'y avait que l'obscurité.
 
-Cependant, à cet instant précis, un puissant éclair traversa le vide tel une météorite, emportant avec lui un rugissement tonitruant. La vitesse de cet éclair était si prodigieuse qu'elle atteignait un degré inconcevable.
+Cependant, à cet instant précis, un puissant éclair, semblable à une aurore boréale, traversa le vide tel une météorite, emportant avec lui un rugissement tonitruant. La vitesse de cet éclair était si prodigieuse qu'elle atteignait un degré inconcevable.
 
 Il passa instantanément devant plusieurs cultivateurs. L'impact de son passage fit vaciller la lumière autour d'eux, comme si leurs flammes étaient sur le point de s'éteindre.
 
@@ -20,9 +20,9 @@ Il ne resta que la confusion et la terreur dans les yeux des cultivateurs.
 
 L'un d'eux marmonna: « Quoi... Qu'est-ce que c'était? »
 
-Wang Lin se trouvait à l'intérieur de cet éclair semblable à une météorite. Sa vitesse extrême lui interdisait de garder les yeux ouverts. C'était comme si quelque chose s'agitait au plus profond de son corps, et d'innombrables concavités étaient apparues sur sa chair.
+Wang Lin se trouvait à l'intérieur de cet éclair semblable à une météorite. Sa vitesse extrême lui interdisait de garder les yeux ouverts. C'était comme si quelque chose s'agitait au plus profond de son corps, et d'innombrables creux et reliefs étaient apparus sur sa chair.
 
-Il n'osait même pas déployer son sens divin. À sa vitesse actuelle, il atteindrait la limite de portée de son sens divin dès qu'il tenterait de l'étendre. En raison de cette vélocité démente, il perdrait cette partie de son sens divin et endommagerait son âme originelle.
+Il n'osait même pas déployer son sens divin. À sa vitesse actuelle, il atteindrait la limite de portée de son sens divin dès qu'il tenterait de l'étendre. En raison de cette vélocité démente, cela endommagerait immédiatement son âme originelle.
 
 Sa vitesse était trop rapide. Cet éclair météorique ravageait le chemin menant au Royaume Céleste du Tonnerre. Certains cultivateurs qui s'y rendaient pour la première fois étaient encore portés par l'excitation d'atteindre la porte céleste avant de voir cette terrifiante météore.
 
@@ -36,7 +36,7 @@ Qu'y avait-il exactement à l'intérieur de cette météorite? Ce fut la premiè
 
 Au bout de cet espace vide se trouvait la porte du Royaume Céleste du Tonnerre. Cette porte était un immense éclair, si vaste qu'il était impossible d'en percevoir l'extrémité.
 
-Cet éclair était rouge sombre; il émergeait du néant et son autre extrémité s'y perdait comme un fleuve. Cependant, aucune trace de vie n'en émanait, comme s'il s'agissait d'un être dont la vie s'était éteinte.
+Cet éclair était rouge sombre; il émergeait du néant et son autre extrémité s'y perdait comme un fleuve. Cependant, aucune trace de vie n'en émanait, comme si la vie d'un homme était parvenue à son terme.
 
 De nombreuses légendes circulaient sur cet éclair dans le Système Stellaire de Luotian. La plus acceptée soutenait qu'à l'origine, il n'y avait pas de porte vers le Royaume Céleste du Tonnerre. Le Royaume entier était une immense étendue de tonnerre qui ne nécessitait aucune entrée.
 

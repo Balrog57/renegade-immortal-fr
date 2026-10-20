@@ -8,7 +8,7 @@ slug: reprimande-au-secte-everlasting-8
 ---
 « Merci, Compagnon Cultivateur Lu, pour votre clémence! » Le visage de Du Lin était livide alors qu'il joignait les mains. Le sang coulait du coin de sa bouche et il s'éclipsa rapidement sous la pluie, le dos empreint d'une profonde défaite.
 
-En tant que disciple principal de la Vallée du Pin Pourpre de rang 7 et l'une des figures centrales de la secte principale, depuis plusieurs millénaires, une quantité immense de pilules et de techniques lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
+En tant que disciple principal de la Vallée du Pin Pourpre de rang 7, formé avec soin par la secte principale depuis plusieurs millénaires, une quantité immense de pilules et de techniques lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
 
 En vérité, lorsqu'il avait vu Wang Lin extraire l'âme de la planète, il avait su qu'il était perdu. Il espérait néanmoins pouvoir résister un instant ou deux. Mais la réalité était cruelle: ce fut une défaite totale.
 

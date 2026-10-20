@@ -8,7 +8,7 @@ slug: le-maitre-celeste-dieu-du-vide
 ---
 « L'essence aussi est karma: la paume ouverte est la cause, le poing fermé est l'effet... Puisqu'il n'a pas été facile pour vous d'atteindre votre niveau de culture, je ne vous tuerai pas aujourd'hui. Je vais saisir votre essence et la sceller pendant mille ans; maintenant, quittez le champ de bataille! » Les yeux de Wang Lin semblaient contenir les cieux et la terre. Une aura puissante jaillit de son corps et percuta le regard du jeune homme aux robes vertes.
 
-Le jeune homme trembla et son esprit fut assailli de grondements. Il cracha de nouveau du sang, et d'un revers de manche, Wang Lin le força à reculer de plus de 10 000 pieds. Ses yeux étaient ternis, empreints d'une terreur monstrueuse.
+Le jeune homme trembla et son esprit fut assailli de grondements. Il cracha de nouveau du sang, et d'un revers de manche, Wang Lin le força à reculer de plusieurs milliers de pieds. Ses yeux étaient ternis, empreints d'une terreur monstrueuse.
 
 « Tu... Ceci... Quel genre de sort est-ce là?! »
 
@@ -56,7 +56,7 @@ Sa main gauche représentait la vie, sa main droite la mort. La paume de Wang Li
 
 Il sentit clairement que la paume de Wang Lin charriait l'aura de la mort. Lors de l'impact, une absence totale de vie sembla envahir le domaine stellaire environnant, comme si cette zone était devenue un domaine de mort. Dès lors, d'innombrables fissures apparurent dans l'espace et s'effondrèrent, libérant une aura de mort infinie.
 
-Le corps du Maître Céleste Dieu du Vide fut projeté en arrière de plusieurs centaines de pieds dans un fracas assourdissant. Alors qu'il relevait la tête, Wang Lin le pointa du doigt.
+Le corps du Maître Céleste Dieu du Vide fut projeté en arrière de plusieurs dizaines de pieds dans un fracas assourdissant. Alors qu'il relevait la tête, Wang Lin le pointa du doigt.
 
 « Arrêt! »
 

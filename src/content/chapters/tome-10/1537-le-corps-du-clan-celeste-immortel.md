@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1537 - Immortal Celestial Clan Body !"
 slug: le-corps-du-clan-celeste-immortel
 ---
-Bien que l'essence de tonnerre de Wang Lin ait atteint sa perfection, elle demeurait encore incomplète! Cependant, grâce à la puissance de son nouveau sang, cette imperfection disparut et son tonnerre devint soudainement... un tonnerre céleste! Un véritable tonnerre céleste!
+Bien que l'essence de tonnerre de Wang Lin ait atteint le grand accomplissement, elle demeurait encore incomplète! Cependant, grâce à la puissance de son nouveau sang, cette imperfection disparut et son tonnerre devint soudainement... un tonnerre céleste! Un véritable tonnerre céleste!
 
 Le feu doré dans son œil gauche n'était qu'à l'état éthéré et était encore loin de devenir un feu du Dao. Pourtant, alors que la puissance de son nouveau sang affluait, le feu évolua soudainement pour devenir un feu céleste, d'un niveau surpassant tout autre feu!
 
@@ -16,7 +16,7 @@ Le feu et le tonnerre célestes suffisaient à lui seul pour que Wang Lin puisse
 
 Même les cultivateurs du stade avancé du Vide du Nirvana seraient ébranlés par ce feu et ce tonnerre célestes et choisiraient la retraite!
 
-Tandis que le nouveau sang généré par sa moelle osseuse circulait dans le corps de Wang Lin, les trois essences restantes — vie et mort, karma, et vrai et faux — commencèrent lentement à atteindre la perfection. Elles n'avaient plus besoin que d'une opportunité pour atteindre le Grand Dao!
+Tandis que le nouveau sang généré par sa moelle osseuse circulait dans le corps de Wang Lin, les trois essences restantes — vie et mort, karma, et vrai et faux — commencèrent lentement à atteindre la perfection. Elles n'avaient plus besoin que d'une opportunité, sous l'effet de cette lignée céleste, pour atteindre le Grand Dao!
 
 L'apparition du fou était une chance immense, comparable à l'héritage qu'il avait obtenu dans la Terre de l'Ancien Dieu. Cela suffisait à changer sa destinée!
 
@@ -26,7 +26,7 @@ L'esprit de Wang Lin était clair, mais il restait incapable de bouger. Il resse
 
 Le nouveau sang issu de sa moelle osseuse dégageait une aura extrêmement puissante. C'était de l'énergie spirituelle céleste! À mesure que le sang coulait dans ses veines, son âme originelle changeait rapidement!
 
-Ce que Wang Lin ignorait, c'est que dans les quatre Royaumes Célestes, même les quatre empereurs célestes, tels que Qing Lin, ne seraient que de simples mortels comparés à lui!
+Ce que Wang Lin ignorait, c'est que dans les anciens quatre Royaumes Célestes, même les quatre empereurs célestes, tels que Qing Lin, ne seraient que de simples mortels comparés à lui!
 
 La lignée à l'intérieur de Wang Lin avait atteint un niveau capable de secouer les cieux!
 
@@ -42,7 +42,7 @@ Si cela persistait, Wang Lin deviendrait un mort-vivant, ou serait raffiné pour
 
 Ce trésor serait une chose que l'Ordre Antique et les Célestes pourraient tous deux utiliser!
 
-À cet instant, il devait faire un choix. Il devait choisir entre son héritage précédent de l'Ordre Antique et renoncer à cette fortune stupéfiante, ou choisir cette nouvelle fortune et abandonner l'héritage de l'Ordre Antique qui l'avait accompagné durant des milliers d'années!
+À cet instant, il devait faire un choix. Il devait choisir entre son héritage précédent de l'Ordre Antique et renoncer à cette fortune stupéfiante, ou choisir cette nouvelle fortune et abandonner l'héritage de Dieu Ancien qui l'avait accompagné durant des milliers d'années!
 
 C'était un dilemme déchirant. Même si Wang Lin voulait choisir, il en était incapable. Son âme originelle ne pouvait plus bouger, car elle s'était, dans une certaine mesure, séparée de son corps!
 
@@ -50,7 +50,7 @@ C'était un dilemme déchirant. Même si Wang Lin voulait choisir, il en était 
 
 Après un instant, l'excitation sur le visage du fou s'estompa pour laisser place à une colère infinie!
 
-« Espèce de salaud!! Tu ne t'es toujours pas rétabli!! Mon sang... ah, ce sang pourrait être échangé contre tant de choses. Tant de sang, ah!!! Tout ce sang que je t'ai donné suffirait à convaincre cette petite beauté aux sept couleurs de se rallier à ce roi!! Si mon grand frère savait, il deviendrait fou, ah!! » Le fou bondit et saisit l'épaule de Wang Lin, commençant à le secouer frénétiquement.
+« Toi, toi!! Tu ne t'es toujours pas rétabli!! Mon sang... ah, ce sang pourrait être échangé contre tant de choses. Tant de sang, ah!!! Tout ce sang que je t'ai donné suffirait à convaincre cette petite beauté aux sept couleurs de se rallier à ce roi!! Si mon grand frère savait, il deviendrait fou, ah!! » Le fou bondit et saisit l'épaule de Wang Lin, commençant à le secouer frénétiquement.
 
 « Rends-moi mon sang!! Tu as pris le sang de ce roi mais tu ne t'es toujours pas remis. Tu essaies de m'exaspérer. Petite Rouge, sors cet homme et tranche-lui la tête!! »
 

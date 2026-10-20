@@ -27,7 +27,7 @@ Une lueur de folie apparut dans les yeux de Zhu Quezi et il éclata de rire. « 
 
 Les yeux d'Yun Quezi restèrent sereins lorsqu'il répondit: « Oh? Expliquez-moi cela. »
 
-Zhu Quezi rit de plus belle. Son regard devint glacial alors qu'il poursuivait: « Le Cristal de la Planète de Culture se trouve dans les tombes des Suzaku successifs. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Culture. Soit l'Alliance de Culture anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux de votre Clan nés depuis des dizaines de milliers d'années mourront avec le Cristal! »
+Zhu Quezi rit de plus belle. Son regard devint glacial alors qu'il poursuivait: « Le Cristal de la Planète de Culture se trouve dans les tombes des Suzaku successifs. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Culture, et nous mourrons tous ensemble. Soit l'Alliance de Culture anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux de votre Clan nés depuis des dizaines de milliers d'années mourront avec le Cristal! »
 
 Yun Quezi esquissa un léger sourire: « Le Cristal de la Planète de Culture contient les fragments d'âme de chaque cultivateur de la planète. Si vous le détruisez, mon frère, vos propres disciples mourront avec vous! » Sur ces mots, il lança un regard nonchalant vers Qian Feng et Liu Mei.
 
@@ -37,7 +37,7 @@ En entendant cela, une lueur mystérieuse brilla dans les yeux de Qian Feng. Il 
 
 « La vie et la mort ne dépendent que du destin. Qian Feng, Liu Mei, ce vieil homme vous donne une chance d'aller récupérer vos fragments d'âme. Si vous réussissez, vous vivrez; sinon, vous mourrez. Ne me blâmez pas. »
 
-Une fois son discours achevé, Zhu Quezi agita la main, faisant s'agiter ses cheveux comme en présence d'un vent invisible. Il entonna une incantation puis cracha une bouchée de sang. Peu après, une lumière rouge jaillit de son corps et prit la forme d'un cristal rouge en forme de cœur.
+Une fois son discours achevé, Zhu Quezi agita la main, faisant s'agiter ses cheveux comme en présence d'un vent invisible. Il murmura une incantation puis cracha une bouchée de sang. Peu après, une lumière rouge jaillit de sa poitrine et prit la forme d'un cristal rouge en forme de cœur.
 
 La folie dans les yeux de Zhu Quezi s'intensifia alors qu'il hurlait: « Brise-toi! »
 
@@ -67,7 +67,7 @@ Sur ces mots, il agita la main et tout le Mont Suzaku se mit à gronder. Sous l'
 
 « J'ai ouvert le Tombeau de Suzaku. Yun Quezi, le jeu commence! Vous connaissez les règles du Tombeau de Suzaku: tout cultivateur n'ayant pas atteint le stade d'Ascendant peut y entrer, mais les Ascendants ne le peuvent pas! » Les yeux de Zhu Quezi étaient embrasés par la folie.
 
-Le premier ancêtre observait le Cœur de la Planète de Culture qui se brisait lentement. Il s'apprêtait à attaquer quand Yun Quezi secoua la tête et murmura: « C'est inutile. Le Cœur de la Planète de Culture et Zhu Quezi ont fusionné depuis longtemps. Il n'a même pas besoin de le sortir pour qu'il se brise; il a tout orchestré pour nous mettre sous pression et nous forcer à contempler notre mort. Même si vous l'emportiez, nous ne pourrions empêcher sa destruction. Je suis certain qu'avec la folie qui l'habite, il finira par détruire le Cristal de la Planète de Culture! »
+Le premier ancêtre observait le Cœur de la Planète de Culture qui se brisait lentement. Il s'apprêtait à attaquer quand Yun Quezi secoua la tête et murmura: « C'est inutile. Le Cœur de la Planète de Culture et Zhu Quezi ont fusionné depuis longtemps. Il n'a même pas besoin de le sortir pour qu'il se brise; il a tout orchestré pour nous mettre sous pression et nous forcer à contempler notre mort. Même si vous l'emportiez, nous ne pourrions empêcher sa destruction. Je suis certain qu'avec la folie qui l'habite, il fera exploser le Cristal de la Planète de Culture immédiatement! »
 
 « S'il y a trois mois, il n'aurait probablement même pas proposé ce jeu et aurait fait exploser le Cristal directement. Mais puisqu'il a eu le temps d'y réfléchir, il nous offre cette chance inespérée. Hélas, si vous m'aviez écouté, nous ne serions pas dans un tel dilemme! »
 
@@ -83,4 +83,4 @@ Zhou Wutai fut l'un d'entre eux, accompagné de la femme toujours voilée, Zi Xi
 
 Le quatrième jour, Wang Lin et Situ Nan arrivèrent au Mont Suzaku. Zhu Quezi avait disparu, ne laissant derrière lui que le Cœur de la Planète de Culture qui se brisait lentement dans les airs. Yun Quezi et sa compagnie n'étaient pas non plus là; nul ne savait où ils s'étaient rendus.
 
-Une multitude de cultivateurs et de membres du Clan de l'Immortel Délaissé étaient assis autour du Mont Suzaku, les yeux rivés sur l'entrée du tombeau. Pour l'heure, aucun d'eux n'était intéressé par le combat. Wang Lin observa le passage au pied du mont et s'en approcha lentement.
+Une multitude de cultivateurs et de membres du Clan de l'Immortel Délaissé rôdaient autour du Mont Suzaku, les yeux rivés sur l'entrée du tombeau. Pour l'heure, aucun d'eux n'était intéressé par le combat. Wang Lin observa le passage au pied du mont et s'en approcha lentement.

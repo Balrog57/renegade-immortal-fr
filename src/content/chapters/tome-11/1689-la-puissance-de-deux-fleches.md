@@ -30,7 +30,7 @@ Ce changement colossal attira l'attention de tous les autres Célestes. Cependan
 
 Alarmés, les Célestes qui venaient de sortir reculèrent comme des déments. Ils voulaient regagner le Royaume Céleste Antique. Rencontrer quelqu'un possédant l'arc Li Guang capable de le bander dès leur sortie était un véritable cauchemar.
 
-Pourtant, malgré leur rapidité, ils n'étaient pas assez véloces pour échapper à l'arc Li Guang. Le Souverain n'y était pas parvenu, et eux non plus n'en étaient pas dignes!
+Pourtant, malgré leur rapidité, ils n'étaient pas assez véloces pour échapper à l'arc Li Guang. Même le Souverain n'aurait pu y échapper, et eux non plus!
 
 La main droite de Wang Lin tira davantage sur la corde en laissant échapper un rugissement. À cet instant, il semblait que Wang Lin allait briser l'arc lui-même!
 
@@ -38,7 +38,7 @@ Il fixa les Célestes terrifiés qui reculaient, une intention meurtrière monst
 
 « Vous ne valez pas mieux que les membres du Clan du Tonnerre Dispersé! » La main droite de Wang Lin se relâcha et un bourdonnement résonna dans tout le système stellaire. La corde de l'arc se rétracta soudainement, transmettant une force colossale à la flèche!
 
-Ce sifflement hurlant était assez puissant pour briser les cieux. La puissance de l'arc Li Guang fit trembler la terre et les cieux. Le monde devant la flèche s'effondra et se fragmenta tandis qu'elle s'élançait.
+Ce sifflement hurlant était assez puissant pour briser les cieux. La puissance de l'arc Li Guang fit trembler la terre et les cieux. Le monde devant la flèche s'effondra et se fragmenta tandis qu'elle s'élançait. À si courte distance, elle fut presque instantanée.
 
 Le Céleste qui comptait tuer Wang Lin n'eut nulle part où se réfugier. Il hurla alors que son corps volait en éclats sous l'impact de la flèche. Son âme originelle fut instantanément éteinte!
 

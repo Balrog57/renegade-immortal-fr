@@ -8,7 +8,7 @@ slug: quatrieme-etape-de-la-culture-existe-t-elle
 ---
 Un éclair fendait les étoiles. À l'intérieur de cette foudre voyageait une Bête du Tonnerre à la corne argentée, teintée d'une pointe d'or. Son corps tout entier irradiait des éclairs, affichant une majesté impressionnante.
 
-Wang Lin était assis en position de lotus sur le dos de la Bête du Tonnerre. Ses cheveux ondulaient sans qu'aucun vent ne les agitât et ses yeux brillaient d'un éclat singulier. Bien que son apparence fût ordinaire, il dégageait une aura extraordinaire.
+Wang Lin était assis en position de lotus sur le dos de la Bête du Tonnerre. Ses longs cheveux flottaient vers l'arrière et ses yeux brillaient d'un éclat singulier. Bien que son apparence fût ordinaire, il dégageait une aura extraordinaire.
 
 Si quelqu'un l'apercevait en cet instant, il penserait sans aucun doute qu'il s'agissait d'un messager du Temple Céleste du Tonnerre. Il ressemblait trop étrangement au Daoïste du Tonnerre.
 

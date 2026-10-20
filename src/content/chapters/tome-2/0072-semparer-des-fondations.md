@@ -34,9 +34,9 @@ Le jeune homme était si terrifié qu'il avait perdu toute trace de couleur sur 
 
 Les bêtes elles aussi ressentirent un frisson lorsque le Sens Divin se propagea. Elles affichaient toutes des expressions de choc et de terreur, gisant au sol, incapables de bouger.
 
-« Secte Xuan Dao... » Une voix très ancienne résonna dans les environs. Il était difficile de dire si elle exprimait la joie ou la colère.
+« Secte Xuan Dao... » Une voix très ancienne résonna dans les environs. Il était impossible de savoir si elle exprimait de la sympathie ou de l'hostilité.
 
-L'homme d'âge moyen gémit intérieurement. S'il avait été seul, il se serait simplement enfui dès qu'il aurait senti que quelque chose n'allait pas, mais avec une sœur et un frère juniors ici, s'il partait, leurs maîtres le tiendraient certainement pour responsable. Il ne pouvait qu'espérer que la proximité de la Secte Xuan Dao et le fait qu'ils n'aient encore rien fait pour offenser ce Senior lui permettraient d'être épargnés.
+L'homme d'âge moyen gémit intérieurement. S'il avait été seul, il se serait simplement enfui dès qu'il aurait senti que quelque chose n'allait pas, mais avec une sœur et un frère juniors ici, s'il partait, son maître le tiendrait certainement pour responsable. Il ne pouvait qu'espérer que la proximité de la Secte Xuan Dao et le fait qu'ils n'aient encore rien fait pour offenser ce Senior lui permettraient d'être épargnés.
 
 Mais après cette unique phrase, l'autre retomba dans le silence. Le cœur battant la chamade, l'homme serra les dents et se dit que sa vie était prioritaire: si le Senior passait à l'acte pour tuer, il ne se soucierait pas des autres et se sauverait d'abord.
 

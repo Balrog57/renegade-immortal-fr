@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 900 - Resentment Hall Vice Hall Master (2)
 slug: le-vice-maitre-de-la-salle-des-rancunes-2
 ---
-La silhouette de Wang Lin apparut devant Liu Qingyun. Il était calme et son corps ne portait aucune blessure. L'image d'un four disparut lentement autour de lui.
+La silhouette de Wang Lin apparut devant Liu Qingyun. Il était calme et son corps ne portait aucune blessure. L'image d'un fourneau disparut lentement autour de lui.
 
 Non seulement Liu Qingyun était plongé dans l'incrédulité, mais le garçon à la grosse tête, au loin, laissa échapper un halètement, ses yeux écarquillés par le choc. Il savait que Wang Lin était puissant, mais il n'imaginait pas qu'il puisse s'échapper sans une seule égratignure. Il n'osait plus défier Wang Lin; il éprouvait désormais une crainte encore plus profonde à son égard.
 
@@ -18,9 +18,9 @@ Un fracas retentit et Liu Qingyun fut projeté au loin. Son visage était livide
 
 Wang Lin avait clairement percé la ruse de Liu Qingyun. Ayant grandi dans le Système Stellaire de l'Alliance, il avait été témoin de trop de complots sinistres. S'il s'était laissé berner par Liu Qingyun, il n'aurait pas été Wang Lin.
 
-Lorsque Liu Qingyun avait sorti le cadavre de feu, Wang Lin avait déjà pressenti une anomalie et avait activé le four de l'Ancien Dieu. Au moment où le cadavre de feu s'était effondré, il avait pu tout éviter avec aisance grâce au four.
+Lorsque Liu Qingyun avait sorti le cadavre de feu, Wang Lin avait déjà pressenti une anomalie et avait activé le fourneau de l'Ancien Dieu. Au moment où le cadavre de feu s'était effondré, il avait pu tout éviter avec aisance grâce au fourneau.
 
-Wang Lin avait ses raisons pour laisser cette opportunité à Liu Qingyun. Il savait qu'en tant que Vice-Maître de la Secte des Cadavres, Liu Qingyun devait posséder des moyens de survie secrets.
+Wang Lin avait ses raisons pour laisser cette opportunité à Liu Qingyun. Il savait qu'en tant que Vice-Maître de la Secte des Cadavres, Liu Qingyun devait posséder des moyens de survie.
 
 Si Wang Lin s'était contenté d'attaquer, il aurait été difficile de tuer cet homme sans subir de blessures au plus fort du combat. Ainsi, Wang Lin avait simplement attendu que Liu Qingyun utilise son atout pour pouvoir l'esquiver facilement. Le moment où Liu Qingyun déploierait sa force ultime serait aussi le moment de sa mort!
 
@@ -36,11 +36,11 @@ Il ne s'agissait pas de la totalité de son âme originelle. Avec sa ruse, il n'
 
 À cet instant, il décida de tout miser. Une aura destructrice émana de son âme originelle. Son expression était féroce alors qu'il était sur le point d'exploser. L'autodestruction d'un cultivateur du stade Scruteur du Nirvana était bien plus puissante que celle du cadavre de feu. Une fois l'explosion déclenchée, la planète Suzaku s'effondrerait!
 
-Toute vie sur la planète, à l'exception de quelques rares élus, s'éteindrait!
+Toute vie sur la planète, à l'exception de quelques rares survivants, s'éteindrait!
 
-L'impact sur le Cristal de Planète de Culture serait inimaginable. C'était l'une des principales préoccupations de Wang Lin qui l'avait empêché d'attaquer immédiatement.
+L'impact sur le Cristal de la Planète de Culture serait inimaginable. C'était l'une des principales préoccupations de Wang Lin qui l'avait empêché d'attaquer immédiatement.
 
-Voyant que Liu Qingyun choisissait l'explosion, Wang Lin resta serein et murmura doucement: « Sortilège Céleste, Arrête! » Instantanément, le sortilège apparut. Sa puissance avait été décuplée après y avoir infusé l'énergie originelle céleste de Qing Shui. L'âme originelle de Liu Qingyun, en pleine explosion, fut figée sur place.
+Voyant que Liu Qingyun choisissait l'explosion, Wang Lin resta serein et murmura doucement: « Sortilège Céleste: Stase! » Instantanément, le sortilège apparut. Sa puissance avait été décuplée après y avoir infusé l'énergie originelle céleste de Qing Shui. L'âme originelle de Liu Qingyun, en pleine explosion, fut figée sur place.
 
 Wang Lin arriva devant l'âme originelle de Liu Qingyun. Alors qu'il la saisissait, des ondulations apparurent sous ses pieds, puis il disparut sans laisser de trace.
 
@@ -64,7 +64,7 @@ La terre trembla tandis que l'immense corps de Lei Ji s'élevait lentement dans 
 
 Il avait observé la bataille et restait profondément marqué par l'étrange sortilège de Wang Lin et son calme olympien. Il resta là et dit respectueusement: « Lei Ji salue le Maître. »
 
-« Désormais, tu es ma monture. Si une seule pensée rebelle traverse ton esprit, ton âme originelle sera détruite! » Lorsque le regard de Wang Lin se posa sur Lei Ji, celui-ci eut l'impression que deux rayons d'énergie tranchante lui perçaient les yeux. Son esprit trembla et il hocha précipitamment la tête.
+« Désormais, tu es ma monture. Si une seule pensée rebelle traverse ton esprit, ton corps et ton âme originelle seront anéantis! » Lorsque le regard de Wang Lin se posa sur Lei Ji, celui-ci eut l'impression que deux rayons d'énergie tranchante lui perçaient les yeux. Son esprit trembla et il hocha précipitamment la tête.
 
 Wang Lin frappa son sac de rangement et en sortit une fiole. Il la lança à Lei Ji et dit: « Extrais un peu de ton sang vital pour remplir cette fiole. »
 
@@ -96,7 +96,7 @@ Soudain, la silhouette du jeune homme apparut à des milliers de pieds de là, c
 
 « Y a-t-il une trace de Xu Mu? » Après un moment de silence, l'un des vieillards au sommet de la statue prit la parole. Bien que sa voix fût douce, la température grimpa soudainement, comme si les lois de la nature en étaient modifiées.
 
-Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pas s'effondrer et répondit: « L'emplacement du Céleste du Tonnerre de Luotian, Xu Mu, est toujours inconnu. Nous le recherchons activement! »
+Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pas s'effondrer et répondit: « L'emplacement du Céleste du Tonnerre de rang principal de Luotian, Xu Mu, est toujours inconnu. Nous le recherchons activement! »
 
 Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs de Luotian sont bien rigoureux. »
 

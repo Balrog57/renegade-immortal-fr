@@ -44,11 +44,11 @@ Les vêtements du Shui Daozi explosèrent en lambeaux. Même ses cheveux furent 
 
 Un cultivateur du troisième niveau venait d'être blessé!
 
-« Je l'ai sous-estimé... » Puisque le Shui Daozi était blessé, il ne pouvait plus contenir le clou aux sept couleurs. Ce dernier brilla intensément et rugit une fois de plus, s'enfonçant de trois pouces supplémentaires et brisant son crâne!
+« Je l'ai sous-estimé... » Puisque le Shui Daozi était blessé, il ne pouvait plus contenir le clou aux sept couleurs. Ce dernier brilla intensément et rugit une fois de plus, s'enfonçant jusqu'à trois pouces et brisant son crâne!
 
 Une douleur fulgurante l'envahit tandis qu'il crachait du sang. Ce sang se mua en d'innombrables runes qui devinrent des sceaux pour contenir le clou.
 
-« Bien, très bien! Qu'une fourmi comme toi parvienne à me blesser, même alors que je résiste au Clou du Vide Divin aux Sept Couleurs... Tu as stupéfié le monde et tu pourras rire dans l'au-delà! » Le Shui Daozi essuya le sang de sa bouche, puis une intention meurtrière monstrueuse envahit son regard. Il fit un pas vers Wang Lin et leva la main droite. Sa main couvrit instantanément le ciel avant de descendre sur Wang Lin!
+« Bien, très bien! Qu'une fourmi comme toi parvienne à me blesser, même alors que je résiste au Clou Divin du Vide aux Sept Couleurs... Tu as stupéfié le monde et tu pourras rire dans l'au-delà! » Le Shui Daozi essuya le sang de sa bouche, puis une intention meurtrière monstrueuse envahit son regard. Il fit un pas vers Wang Lin et leva la main droite. Sa main couvrit instantanément le ciel avant de descendre sur Wang Lin!
 
 « Tu peux mourir maintenant! Même si tu te réincarnes, je te tuerai! Dao de la Réincarnation Insouciante! Ce vieil homme te supprimera en cent cycles de réincarnation. Je veux voir comment tu parviendras à renaître! »
 

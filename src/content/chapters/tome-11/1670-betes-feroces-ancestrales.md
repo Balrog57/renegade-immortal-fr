@@ -20,7 +20,7 @@ Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept C
 
 Au moment où la Lance aux Sept Couleurs apparut dans le Système Stellaire Antique, le Souverain afficha un regard complexe, empreint de haine. Il apercevait la lance au loin. Il avait vu son maître utiliser ce sort et avait personnellement été témoin de sa puissance lors des guerres passées.
 
-« Maître, je vous ai suivi pendant longtemps, mais durant ces innombrables années, vous ne m'avez jamais enseigné un sort d'une telle envergure. Pourtant, vous l'avez transmis à une simple fourmi des cavernes... Votre nature était excentrique et capricieuse. Durant toutes ces années, je vous suis resté fidèle, mais vous avez toujours été avare envers moi! » murmura le Souverain en serrant les poings.
+« Maître, je vous ai suivi depuis mon enfance, mais durant ces innombrables années, vous ne m'avez jamais enseigné un sort d'une telle envergure. Pourtant, vous l'avez transmis à une simple fourmi des cavernes... Votre nature était cruelle, excentrique et capricieuse. Durant toutes ces années, je vous suis resté fidèle, mais vous avez toujours été avare envers moi! » murmura le Souverain en serrant les poings.
 
 À l'extérieur de la formation circulaire, la Lance aux Sept Couleurs fulgura et fonça vers le vortex. Elle s'en rapprocha et percuta la lumière antique.
 
@@ -78,7 +78,7 @@ Des rugissements tonitruants jaillirent des chars, tandis que les cultivateurs p
 
 Ces hommes dégageaient une aura de mort et de folie. Une fois installés, un fracas retentit et leurs corps moribonds furent projetés comme des météores vers la formation circulaire.
 
-Ces cultivateurs étaient prêts au sacrifice; en étant lancés, ils explosaient. Ils troquaient leur vie contre l'éruption de leurs attaques les plus puissantes sur la formation.
+Ces cultivateurs étaient prêts au sacrifice; en étant lancés, ils explosaient. Ils troquaient leur corps et leur âme contre l'éruption de leurs attaques les plus puissantes sur la formation.
 
 Si la formation circulaire était la surface d'un lac, ces cultivateurs fous étaient des pierres jetées dans l'eau, créant d'innombrables ondulations.
 

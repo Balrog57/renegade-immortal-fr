@@ -34,7 +34,7 @@ Aux yeux de Wang Lin, la brume violette autour du palais semblait se condenser e
 
 Cette silhouette dégageait une aura pure du clan Ancien!
 
-La cité impériale de l'Ancien Dao n'était pas aussi vaste que la cité ancestrale, et ses palais ne pouvaient rivaliser avec elle. Cependant, la présence des gardes et la force de la suppression surpassaient de loin celles du palais de l'Empereur Céleste.
+La cité impériale de l'Ancien Dao n'était pas aussi vaste que la cité ancestrale, et son palais ne pouvait rivaliser avec celui de l'Empereur Céleste. Cependant, la présence des gardes et la force de la suppression surpassaient de loin celles de ce dernier.
 
 D'innombrables gardes impériaux montaient la garde à l'intérieur comme à l'extérieur du palais. Même les serviteurs de la cour possédaient des niveaux de culture décents.
 
@@ -108,7 +108,7 @@ Simultanément, dans le palais impérial de l'Ancien Dao, un homme vêtu d'une r
 
 Un vieil homme se tenait derrière lui et s'adressa à lui respectueusement: « Votre Majesté, trente et une femmes ont été choisies pour cette sélection. Toutes ont été préparées pour tenter de fusionner avec l'âme... »
 
-Cependant, avant d'avoir pu terminer sa phrase, il fut lui aussi saisi par la rage de la fumée verte au loin.
+Cependant, avant d'avoir pu terminer sa phrase, il fut lui aussi frappé de stupeur par la fumée verte au loin.
 
 « Pour que l'encensoir du temple de l'Ancien Dao libère une telle quantité de fumée... Vérifiez qui est cette personne... » dit l'homme en robe royale d'un ton sévère, mais avant qu'il n'ait fini, son corps se mit à trembler. Ses yeux reflétèrent une lueur monstrueuse!
 

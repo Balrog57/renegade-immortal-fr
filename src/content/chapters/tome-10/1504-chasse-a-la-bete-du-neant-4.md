@@ -22,7 +22,7 @@ Alors que les hurlements résonnaient, toutes les Feuilles Anciennes s'envolère
 
 Des grondements tonitruants retentirent. Tandis que la force d'aspiration faiblissait, la cinquième étoile brilla!
 
-Cependant, alors qu'elle scintillait, les Feuilles Anciennes furent aspirées par le trou noir et la force de succion s'intensifia davantage. Une lueur de froideur passa dans les yeux de Wang Lin. Il avait déjà payé un prix immense. S'il réussissait, Ling Dong et ses compagnons seraient sauvés, mais en cas d'échec, le tribut serait extrêmement lourd!
+Cependant, alors qu'elle scintillait, les Feuilles Anciennes furent aspirées par le trou noir et la force de succion s'intensifia davantage. Une lueur de froideur passa dans les yeux de Wang Lin, qui restait très calme. Il avait déjà payé un prix immense. S'il réussissait, Ling Dong et ses compagnons seraient sauvés, mais en cas d'échec, le tribut serait extrêmement lourd!
 
 Pourtant, il avait tout analysé en détail avant de commencer, et chaque chose était encore conforme à ses calculs!
 
@@ -36,7 +36,7 @@ La sixième étoile s'alluma!
 
 La septième étoile brilla intensément!!
 
-Les sept étoiles dans la bouche spirituelle de la Bête des Limbes brillèrent de mille feux et, dans leur rotation, le sceau de l'âme fut achevé!
+Les sept étoiles dans la bouche de l'âme de la Bête des Limbes brillèrent de mille feux et, dans leur rotation, le sceau de l'âme fut achevé!
 
 Le sceau extérieur, le sceau de l'âme et le sceau intérieur; Wang Lin en avait complété deux et n'en avait besoin que d'un seul de plus! Une fois que les sept étoiles de l'Ancien Dieu eurent terminé le sceau, elles laissèrent leur empreinte et retournèrent entre les sourcils de Wang Lin.
 
@@ -86,7 +86,7 @@ Cependant, elle avait manifestement oublié la pression émanant de son corps, c
 
 Tandis qu'elle errait, la Bête des Limbes restait dans un état embrumé. Elle manquait d'intelligence et avait passé la majeure partie de sa vie à dormir. Même lors des rares moments d'éveil, elle restait dans la léthargie.
 
-Pourtant, après le départ de Wang Lin avec le Clan des Immortels Délaissés, la Bête des Limbes s'éveilla. Elle ressentit soudain la faim, mais craignant de quitter la brume, elle ne put que errer lentement à l'intérieur de celle-ci.
+Pourtant, après le départ de Wang Lin avec le Clan des Immortels Élus, la Bête des Limbes s'éveilla. Elle ressentit soudain la faim, mais craignant de quitter la brume, elle ne put que errer lentement à l'intérieur de celle-ci.
 
 Après un temps indéterminé, une gigantesque faille spatiale apparut devant elle. Des éclats de lumière aux sept couleurs jaillirent de la faille et brillèrent dans ses yeux.
 

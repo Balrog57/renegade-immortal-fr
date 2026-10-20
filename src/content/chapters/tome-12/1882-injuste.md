@@ -14,7 +14,7 @@ Tout en s'approchant, il leva sa main droite telle une lame. Une lueur dorée ja
 
 Cette lame possédait le pouvoir de fendre les cieux et fit changer les couleurs du monde. Le ciel fut inondé d'un éclat doré, au point de sembler prêt à s'effondrer, tandis que toute l'énergie céleste des environs convergeait vers elle. C'était comme si cette lame d'or avait le pouvoir d'engloutir le monde entier.
 
-Ce changement soudain fit vaciller les expressions des cultivateurs qui suivaient Wang Lin, y compris celles de l'homme d'âge mûr. Sans hésiter, ils reculèrent rapidement pour s'écarter de Wang Lin.
+Ce changement soudain fit vaciller les expressions des cultivateurs qui suivaient Wang Lin, y compris celles de l'homme d'âge moyen. Sans hésiter, ils reculèrent rapidement pour s'écarter de Wang Lin.
 
 Les pupilles de Ta Jia se rétractèrent alors qu'elle fixait la silhouette du jeune homme dont la main droite était devenue une lame. Cette forme se superposait rapidement à l'image fière qu'elle gardait en mémoire.
 
@@ -84,7 +84,7 @@ Un rayon de lumière bleue jaillit de la grande salle, se transformant en une me
 
 Yun Yifeng devint solennel et fit un pas en avant avec une révérence.
 
-« Tu as gardé le quatrième méridien et accompli des mérites. Comme tu possèdes déjà l'armure élémentaire de la secte, je t'enseignerai l'une des quatre techniques héritées de notre secte et te remettrai l'un de nos trésors célestes: la Dague de l'Esprit Massacreur! » Tandis que ses paroles résonnaient, deux rayons de lumière jaillirent de la salle. L'un était un jade et l'autre une dague. Cette dernière était singulière, dotée de neuf pointes dégageant une aura terrifiante.
+« Tu as gardé le quatrième méridien et accompli des mérites. Comme tu possèdes déjà l'armure élémentaire de bois de la secte, je t'enseignerai l'une des quatre techniques héritées de notre secte et te remettrai l'un de nos trésors célestes: la Dague de l'Esprit Massacreur! » Tandis que ses paroles résonnaient, deux rayons de lumière jaillirent de la salle. L'un était un jade et l'autre une dague. Cette dernière était singulière, dotée de neuf pointes dégageant une aura terrifiante.
 
 « Merci, Maître de Secte! » Yun Yifeng, ravi, accepta les deux objets en s'inclinant devant la grande salle.
 

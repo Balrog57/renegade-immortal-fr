@@ -28,7 +28,7 @@ Le visage de Yun Yifeng était d'une pâleur mortelle et de grosses perles de su
 
 « Enfant, tu n'es pas mauvais! » Le Grand Empyréen Xuan Luo avait les mains derrière le dos. Après avoir balayé la foule du regard, ses yeux revinrent sur Yun Yifeng.
 
-« Il est très difficile de continuer à résister sous ma pression. Hélas, tu n'appartiens pas à l'Ancien Dao... Quel dommage... » Xuan Luo laissa échapper un soupir. Lorsqu'il détourna le regard, Yun Yifeng ne put plus supporter la pression. Il cracha du sang et s'effondra à genoux.
+« Il est très difficile de continuer à résister sous ma pression. Hélas, tu n'appartiens pas au Dao Antique... Quel dommage... » Xuan Luo laissa échapper un soupir. Lorsqu'il détourna le regard, Yun Yifeng ne put plus supporter la pression. Il cracha du sang et s'effondra à genoux.
 
 Le vieil homme Ma tint bon quelques respirations de plus. Le visage pâle, il esquissa un sourire amer avant d'abandonner toute résistance. Il savait que s'il continuait ainsi, il mourrait sans aucun doute. Son expression s'assombrit alors qu'il s'agenouillait et restait immobile.
 
@@ -80,7 +80,7 @@ Wang Lin se leva et rangea la Bête des Limbes. Il resta là, silencieux pendant
 
 « Aujourd'hui est un jour spécial... » Wang Lin soupira et fit un pas en avant. Il se changea en un rayon de lumière et plongea dans la rivière argentée, traversant le flux pour pénétrer dans le Royaume Céleste.
 
-Peu après que Wang Lin fut entré dans le Royaume Céleste, le Grand Empyréen Xuan Luo en sortit. Il contempla le royaume avant d'agiter sa manche et de suivre Wang Lin. Sa silhouette était floue et invisible; même si l'on se tenait devant lui, on ne remarquerait pas sa présence.
+Peu après que Wang Lin fut entré dans le Royaume Céleste, le Grand Empyréen Xuan Luo sortit du ciel étoilé. Il contempla le royaume avant d'agiter sa manche et de suivre Wang Lin. Sa silhouette était floue et invisible; même si l'on se tenait devant lui, on ne remarquerait pas sa présence.
 
 Cependant, juste au moment où il entrait, Wang Lin s'arrêta brusquement et se retourna. Le regard de Wang Lin était glacial alors qu'il fixait Xuan Luo.
 

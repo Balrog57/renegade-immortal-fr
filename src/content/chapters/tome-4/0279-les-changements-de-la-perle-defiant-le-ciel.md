@@ -13,7 +13,7 @@ La perle défiant le ciel avait subi un changement mystérieux après avoir abso
 
 Un changement majeur résidait dans le fait que l'espace défiant le ciel contenait désormais une certaine quantité d'énergie spirituelle; il n'y en avait aucune auparavant. Cette énergie spirituelle était beaucoup plus pure que celle de l'extérieur. Bien que Wang Lin n'eût jamais ressenti d'énergie spirituelle céleste, il sentait que celle à l'intérieur de la perle était légèrement moins pure que cette essence céleste.
 
-Outre cela, le changement le plus important était que toutes les petites sources de lumière à l'intérieur de la perle s'étaient rassemblées pour former cinq grandes masses lumineuses dans le ciel. Parmi ces cinq masses, trois brillaient intensément, une ne scintillait que faiblement, et la dernière était très terne, dépourvue de toute couleur.
+Outre cela, le changement le plus important était que toutes les sources de lumière allongées à l'intérieur de la perle s'étaient rassemblées pour former cinq grandes masses lumineuses dans le ciel. Parmi ces cinq masses, trois brillaient intensément, une ne scintillait que faiblement, et la dernière était très terne, dépourvue de toute couleur.
 
 Wang Lin avait passé des années à l'intérieur de la perle à observer ces masses de lumière. Grâce à sa perception, il réalisa que ces cinq masses étaient liées aux éléments. Il était fort probable qu'elles fussent les Esprits Élémentaires absorbés par la perle. Les trois plus brillantes représentaient les éléments de l'eau, de la terre et du feu. La masse semi-lumineuse représentait l'élément bois. Quant à la lumière totalement éteinte, elle correspondait à l'élément métal.
 
@@ -21,7 +21,7 @@ Au fil des années passées à observer la perle, Wang Lin ressentit une sensati
 
 Cette découverte accrut soudainement son intérêt pour elles.
 
-Situ Nan avait dit autrefois que l'apparition de la perle défiant le ciel avait poussé tous les plus grands cultivateurs de Suzaku, et même ceux d'autres planètes, à se battre pour s'en emparer. Après avoir perdu son corps, son Âme Naissante s'était échappée dans la perle et avait survécu de justesse. Après une série d'événements, il avait réussi à échapper à ces cultivateurs. Bien des années plus tard, la perle s'était retrouvée dans l'estomac d'un oiseau avant d'être trouvée par Wang Lin.
+Situ Nan avait dit autrefois que l'apparition de la perle défiant le ciel avait poussé les grands cultivateurs de Suzaku, et même ceux d'autres planètes, à se battre pour s'en emparer. Après avoir perdu son corps, son Âme Naissante s'était échappée dans la perle et avait survécu de justesse. Après une série d'événements, il avait réussi à échapper à ces cultivateurs. Bien des années plus tard, la perle s'était retrouvée dans l'estomac d'un oiseau avant d'être trouvée par Wang Lin.
 
 Wang Lin possédait cette perle depuis plus de 400 ans, mais il n'avait toujours pas réussi à en comprendre la véritable fonction. À ses yeux, cette perle ne pouvait que modifier le temps dans une certaine mesure et transformer l'eau ordinaire en eau chargée d'énergie spirituelle. Ces capacités étaient très utiles pour les cultivateurs inférieurs au stade de la Formation de l'Âme, mais elles ne l'étaient guère pour ceux ayant atteint la Formation de l'Âme ou au-delà.
 

@@ -44,7 +44,7 @@ Cette tête ressemblait à celle d'un dragon! Une petite protubérance marquait 
 
 Ce vieil homme ne pêchait pas des poissons; il pêchait un dragon!
 
-La tête du dragon était immense; elle s'ouvrit, la ligne de pêche coincée entre ses lèvres. Le corps qui émergeait du lac mesurait plus de dix mille pieds de long!
+La tête du dragon était immense; elle s'ouvrit, la ligne de pêche coincée entre ses lèvres. Le corps qui émergeait du lac mesurait plus de dix mille pieds de long, occultant le ciel et la lune!
 
 Cette scène soudaine fit changer l'expression de Wang Lin, dont les yeux trahissaient un choc profond. Face à ce dragon, Wang Lin n'était qu'une fourmi. La créature écarlate laissa échapper un rugissement et agita son corps dans une tentative désespérée de se libérer de l'hameçon.
 
@@ -92,7 +92,7 @@ En un clin d'œil, ce bec perça une protubérance sur le crâne du dragon, proj
 
 « Pourquoi es-tu si stupéfait? Vite, saisis le pichet! Crois-tu que ce vieux corps puisse tenir ainsi très longtemps?! » Le vieil homme leva les yeux et son rugissement résonna comme le tonnerre dans les oreilles de Wang Lin.
 
-Wang Lin saisit le pichet sans hésiter pour recueillir le sang. Cependant, le récipient atteignit vite sa capacité maximale. Voyant qu'il restait encore du précieux liquide, Wang Lin sortit immédiatement une fiole pour le contenir.
+Wang Lin bondit et saisit le pichet sans hésiter pour recueillir le sang. Cependant, le récipient atteignit vite sa capacité maximale. Voyant qu'il restait encore du précieux liquide, Wang Lin sortit immédiatement une fiole pour le contenir.
 
 Pourtant, dès que la fiole toucha le sang, elle fondit. Elle était incapable de contenir cette substance!
 
@@ -100,7 +100,7 @@ Tout se passa en un instant. Constatant que le sang ne pouvait être recueilli e
 
 Il engloutit ainsi tout le sang de dragon qui menaçait de disparaître dans les eaux. Cette gorgée contenait à peu près autant de sang que trois grandes gorgées de tout à l'heure.
 
-En voyant l'exploit de Wang Lin, le vieil homme sourit. Il sauta de la tête du dragon et reprit sa canne à pêche. En quittant la créature, son pied droit frappa le sol avec puissance.
+En voyant l'exploit de Wang Lin, le vieil homme sourit. Il sauta de la tête du dragon et reprit sa canne à pêche. En quittant la créature, son pied droit s'abattit avec puissance sur sa tête.
 
 Le dragon, furieux, n'osa pas rugir. Utilisant l'onde de choc du coup de pied du vieil homme, il plongea rapidement dans les profondeurs et disparut sans laisser de trace.
 

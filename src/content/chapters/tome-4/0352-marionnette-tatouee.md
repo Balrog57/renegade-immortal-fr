@@ -38,7 +38,7 @@ Le vieil homme murmura pour lui-même: « Ce parchemin ressemble quelque peu au 
 
 Après une brève réflexion, le vieil homme reprit sa poursuite.
 
-Assis sur la boussole, Wang Lin se concentrait de toutes ses forces sur sa maîtrise. Il progressait à une vitesse fulgurante sans rencontrer aucune forme de vie; c'était comme si cet endroit n'était qu'un vide noir et infini.
+Assis sur la boussole, Wang Lin se concentrait de toutes ses forces sur le contrôle de la boussole. Il progressait à une vitesse fulgurante sans rencontrer aucune forme de vie; c'était comme si cet endroit n'était qu'un vide noir et infini.
 
 Cela différait nettement du vide qu'il avait connu jusqu'alors. Le sentiment de danger pesant derrière lui persistait; le vieil homme le talonnait sans relâche.
 
@@ -46,7 +46,7 @@ L'expression de Wang Lin devint sombre alors qu'il poussait la boussole stellair
 
 Le vieil homme traversait le vide, les mains derrière le dos. Bien que chaque pas lui permette de franchir des distances colossales, il ne parvenait toujours pas à rattraper Wang Lin.
 
-Il était stupéfait et songeait que ce junior possédait réellement une multitude de trésors précieux, utiles en toutes circonstances. Il jugeait que, parmi les cultivateurs d'en haut, l'identité de Wang Lin devait être extrêmement noble, et son désir de faire de lui sa marionnette tatouée ne fit que croître.
+Il était stupéfait et songeait que ce junior possédait réellement une multitude de trésors précieux, chacun doté de qualités extraordinaires. Il jugeait que, parmi les cultivateurs d'en haut, l'identité de Wang Lin devait être extrêmement noble, et son désir de faire de lui sa marionnette tatouée ne fit que croître.
 
 Ce vide était singulier. Plus Wang Lin avançait, plus cette sensation s'intensifiait. Durant ses jours de course, il n'avait rien aperçu. Il n'y avait même pas la moindre trace d'énergie spirituelle.
 
@@ -82,7 +82,7 @@ C'est à ce moment précis que l'esprit bestial fondit sur lui en poussant un ru
 
 Ce qui l'arrêta, c'étaient divers tatouages brillant d'un éclat sauvage.
 
-Toutefois, le Char de Guerre du Dieu Massacreur était si puissant que le vieil homme fut repoussé sur trois cent trente mètres. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement; les tatouages s'écartèrent de son corps, passant de dix à seize centimètres de distance.
+Toutefois, le Char de Guerre Divin était si puissant que le vieil homme fut repoussé sur trois cent trente mètres. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement; les tatouages s'écartèrent de son corps, passant de dix à seize centimètres de distance.
 
 L'esprit bestial rugit tout en étant lentement repoussé.
 
@@ -106,7 +106,7 @@ Puis, changeant brusquement de direction, il frappa de nouveau.
 
 Les rayons d'énergie de l'épée percutèrent le vieil homme, forçant les tatouages à se rapprocher de son corps. Cela poussa l'esprit bestial à charger avec encore plus de violence pour tenter de dévorer le vieil homme qui lui barrait la route.
 
-Voyant que la bête était sur le point de le dévorer, les yeux du vieil homme émissionnèrent une lueur mystérieuse. Le bracelet fait d'os enfilés se détacha soudainement de son poignet.
+Voyant que la bête était sur le point de le dévorer, les yeux du vieil homme émirent une lueur mystérieuse. Le bracelet fait d'os enfilés se détacha soudainement de son poignet.
 
 Le bracelet libéra instantanément des ondes de lumière verte spectrale et un tatouage apparut.
 

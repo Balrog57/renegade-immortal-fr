@@ -39,7 +39,7 @@ Le cuir chevelu de Wang Lin s'engourdit alors qu'il était traqué par ces monst
 
 Alors que les Serpents aux yeux de lune se précipitaient pour dévorer Wang Lin, celui-ci afficha un regard féroce et un rugissement puissant résonna à travers le corps du Serpent aux yeux de lune. Sous l'effet de ce cri, tous les petits serpents qui chargeaient s'arrêtèrent net et reculèrent, créant ainsi un passage.
 
-Les yeux de Wang Lin se rétrécirent, mais à cet instant précis, des bruits de rupture retentirent. Un immense Serpent aux yeux de lune d'environ 33 kilomètres de long surgit soudainement du passage. Sa vitesse était prodigieuse et l'aura qu'il dégageait n'était pas moins puissante que celle de l'Ancêtre Sanguin. Ce spectacle fit chanceler l'expression de Wang Lin.
+Les yeux de Wang Lin se rétrécirent, mais à cet instant précis, des bruits de rupture retentirent. Un immense Serpent aux yeux de lune d'environ 33 kilomètres de long surgit soudainement du passage. Sa vitesse était prodigieuse et l'aura qu'il dégageait n'était pas moins puissante que celle de l'Ancêtre Sanguin. Ce spectacle bouleversa l'expression de Wang Lin.
 
 S'élançant avec une vélocité incroyable, le Serpent aux yeux de lune engloutit directement Wang Lin, avant de plonger rapidement sous terre pour disparaître. Tous les autres Serpents aux yeux de lune s'élancèrent à sa suite dans le lointain.
 
@@ -49,7 +49,7 @@ Il n'y avait aucun sol ici, seulement un immense vortex. À chaque cycle complet
 
 Une fois arrivé, le Serpent aux yeux de lune ouvrit brusquement la gueule et cracha. Wang Lin fut instantanément projeté au-dehors. Il n'eut même pas le temps de tenter une résistance avant de disparaître dans le vortex. Les nombreux Serpents aux yeux de lune restèrent alors immobiles et prostrés.
 
-À l'intérieur du vortex, dès que Wang Lin y pénétra, ses yeux s'illuminèrent. Au moment où il fut englouti par le serpent, un pouvoir mystérieux pénétra immédiatement son corps, paralysant la circulation de son énergie originelle. C'était comme si son âme originelle avait été arrachée à son corps, le faisant passer du rang de cultivateur à celui de simple mortel!
+À l'intérieur du vortex, dès que Wang Lin y pénétra, ses yeux s'illuminèrent. Au moment où il fut englouti par le serpent, un pouvoir mystérieux pénétra immédiatement son corps, paralysant la circulation de son énergie originelle. C'était comme si son énergie originelle avait été séparée de son corps, le faisant passer du rang de cultivateur à celui de simple mortel!
 
 Ce choc ébranla profondément l'esprit de Wang Lin. Cependant, il remarqua aussitôt que l'Armure de Cuir de l'Ancien Dieu dégageait une force d'aspiration qui absorba immédiatement ce pouvoir mystérieux. Par conséquent, son énergie originelle reprit son cours normal.
 

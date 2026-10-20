@@ -20,7 +20,7 @@ Le jeune homme trembla, et son corps explosa instantanément. Il disparut sous l
 
 « Très bien, je vais simplement obtenir la première place de cet essai. » D'un revers de manche, Wang Lin rangea les trois jetons et disparut.
 
-Lorsqu'il réapparut, il se trouvait aux côtés d'un rayon de lumière fendant le ciel. Le jeune homme était sur ses gardes, scrutant les alentours avec prudence. Cependant, l'apparition soudaine de Wang Lin le projeta hors du ciel, assommé.
+Lorsqu'il réapparut, il se trouvait aux côtés d'un rayon de lumière fendant le ciel. Le jeune homme était sur ses gardes, scrutant les alentours avec prudence. Cependant, l'apparition soudaine de Wang Lin le fit tomber du ciel, tremblant.
 
 Wang Lin ne tuait pas sans raison. Il leva la paume et un jeton apparut. En un éclair, il disparut à nouveau.
 

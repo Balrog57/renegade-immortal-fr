@@ -30,7 +30,7 @@ Soudain, une sensation de déchirure surgit. Le corps de Wang Lin trembla et il 
 
 Il projeta son sens divin et découvrit deux disciples internes, un homme et une femme, marchant furtivement vers lui. À environ trente-trois mètres, les deux s'arrêtèrent pour s'embrasser et flirter. Bientôt, ils se dévêtirent tous deux, leurs gémissements résonnant dans les environs.
 
-Wang Lin connaissait bien ces deux disciples; tous deux avaient participé à l'entraînement collectif avec lui. Il les observa avec curiosité un moment, particulièrement la disciple féminine, avant de s'éloigner avec réticence.
+Wang Lin reconnaissait ces deux disciples; tous deux avaient participé à l'entraînement collectif avec lui. Il les observa avec curiosité un moment, particulièrement la disciple féminine, avant de s'éloigner avec réticence.
 
 De retour chez lui, Wang Lin songea aux paroles de Situ Nan. Il ne croyait pas ses paroles, mais ce qu'il avait dit sur les pays de culture classés par rangs lui avait ouvert les yeux. Il ne pensait pas que l'homme mentirait sur de tels faits.
 

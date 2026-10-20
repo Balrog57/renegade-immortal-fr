@@ -42,7 +42,7 @@ Les paroles du messager avaient déclenché une onde de choc dans le cœur des c
 
 Wang Lin avança lentement dans le passage qui venait de s'ouvrir, accompagné du messager.
 
-En voyant cela, le 13e Ancien Déchu se détendit. Il sentit que Wang Lin n'était pas un homme rancunier et qu'il ne lui compliquerait pas la tâche. Quoi qu'il en soit, il restait un Ancien Déchu. Même si l'autre partie était le Jeune Empereur, ce dernier devait encore accorder une certaine dignité à son rang. Peut-être pourrait-il même profiter de cette situation pour gagner une faveur.
+En voyant cela, le 13e Ancien Déchu se détendit. Il sentit que Wang Lin n'était pas un homme rancunier et qu'il ne lui compliquerait pas la tâche. Quoi qu'il en soit, il restait un Ancien Déchu. Même si l'autre partie était le Jeune Empereur, ce dernier devait encore accorder une certaine dignité à son rang. Peut-être pourrait-il même profiter de cette situation pour se le concilier.
 
 « Cet homme est bienveillant. Bien qu'il soit le Jeune Empereur, c'est un homme facile à intimider... » Mais alors qu'il pensait avoir de la chance, ses pupilles se contractèrent.
 
@@ -66,7 +66,7 @@ L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche des 
 
 Le cœur de ce dernier rata un battement et son visage devint livide.
 
-Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan du Scorpion Noir pendant cent ans! »
+Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan des Scorpions Noirs pendant cent ans! »
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
@@ -102,7 +102,7 @@ La première était une femme aux longs cheveux soyeux d'une grande beauté. Ses
 
 « Les Flammes Joss! Un cultivateur du troisième pas!!! » Certains reconnurent immédiatement la nature de cette fumée, et leurs visages se décomposèrent.
 
-« Cette jeune fille est Yun Luo. Je suis venue représenter le Conseil Souverain pour saluer le Grand Empereur. J'ai été invitée à assister à la cérémonie de sélection des Anciens du Conseil Déchu, et je salue tous les cultivateurs de la Terre Déchue. »
+« Cette humble jeune fille est Yun Luo. Je suis venue représenter le Conseil Souverain pour saluer le Grand Empereur. J'ai été invitée à assister à la cérémonie de sélection des Anciens du Conseil Déchu, et je salue tous les cultivateurs de la Terre Déchue. »
 
 « Maître Simo salue le Grand Empereur! » L'homme aux côtés de la femme regarda la Planète du Grand Empereur d'un air indifférent. Cependant, son expression changea brusquement pour se charger d'une intention meurtrière! Il avait repéré Wang Lin à l'intérieur du passage menant à la Planète du Grand Empereur.
 

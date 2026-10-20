@@ -10,7 +10,7 @@ Tous les Grands Empyréens du Continent Astral Immortel furent alertés. Sept ra
 
 Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de culture de Wang Lin ou de Gu Dao.
 
-Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancien. Près de dix mille sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des centaines de pieds tandis que la lumière qui l'enveloppait s'effondrait.
+Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancien. Près de dix mille sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des centaines de pieds, cracha une nouvelle gorgée de sang, et la lumière qui l'enveloppait s'effondra.
 
 La brume autour de Gu Dao se brisa complètement dans un cri misérable. Elle disparut rapidement avec la bête de brume. Une fois la brume dissipée, son visage mystérieux allait être révélé.
 
@@ -58,17 +58,17 @@ D'un geste, d'innombrables particules de lumière se rassemblèrent derrière lu
 
 L'énergie infinie du monde fut absorbée et l'ombre lumineuse s'étendit. Le vortex d'aspiration se propagea vers le clan Céleste et le clan Ancien.
 
-Du côté du clan Céleste, près de la vaste mer, les quatre Grands Empyréens Célestes s'immobilisèrent tous. Ils regardaient au loin, l'impression de perdre la raison. Il en fut de même pour le clan Ancien avec Song Tian et ses compagnons; ils sentirent cette force d'aspiration titanesque drainer l'énergie du monde vers le bassin.
+Du côté du clan Céleste, près de la vaste mer, Jiu Di et les trois autres Grands Empyréens célestes s'immobilisèrent tous. Ils regardaient au loin, l'impression de perdre la raison. Il en fut de même pour le clan Ancien avec Song Tian et ses compagnons; ils sentirent cette force d'aspiration titanesque drainer l'énergie du monde vers le bassin.
 
 Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu'elle absorbait l'énergie du monde. Elle dépassait déjà les dizaines de milliers de pieds de haut et ne cessait de croître. En quelques instants, Wang Lin ne pouvait plus voir que les jambes de cette ombre — le torse avait disparu!
 
-Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atteindrait, mais il imaginait que si l'on regardait depuis l'extérieur du Continent Astral Immortel, on y verrait un géant colossal! Elle transperçait les cieux!
+Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atteindrait, mais il imaginait que si l'on regardait depuis l'extérieur du Continent Astral Immortel, on y verrait un géant colossal! Elle soutenait le ciel et se dressait sur la terre!
 
 « Ancêtre... » Wang Lin observait l'ombre continuer de s'étendre. Il ne savait pas quelle serait sa taille finale. Peut-être que si elle recevait assez d'énergie, elle deviendrait un système stellaire entier... Elle continuerait de croître jusqu'à ce que toute l'énergie du monde sur le Continent Astral Immortel soit absorbée. Pourtant, sa taille actuelle suffisait déjà à exercer sur Wang Lin une pression indescriptible.
 
-« Monde Ancien... » Wang Lin leva les yeux au ciel et déploya son Sens Divin. Il perçut alors une scène étrange. Les yeux de cette immense ombre lumineuse changèrent: l'un devint le soleil éclatant, l'autre la lune. Le sang qui s'en écoulait se mua progressivement en rivières et en mers. Ses mains s'élevèrent vers la voûte céleste, tandis que son corps s'abattait pour devenir la terre, ses os devenant des chaînes de montagnes.
+« Monde Ancien... » Wang Lin leva les yeux au ciel et déploya son Sens Divin. Il perçut alors une scène étrange. Les yeux de cette immense ombre lumineuse changèrent: l'un devint le soleil éclatant, l'autre la lune. Le sang qui s'en écoulait se mua progressivement en rivières et en mers. Ses mains se levèrent et, couvrant le ciel, devinrent une voûte d'azur, tandis que son corps s'abattait pour devenir la terre, ses os devenant des chaînes de montagnes.
 
-Alors qu'il observait ce spectacle, Wang Lin ressentit soudain une douleur atroce dans les yeux. C'était comme si une puissance immense voulait lui arracher les globes oculaires pour en faire le soleil et la lune! Ses mains tremblaient également, semblant vouloir s'élever pour devenir le ciel, tandis que son corps était attiré par une force étrange pour se fondre dans la terre.
+Alors qu'il observait ce spectacle, Wang Lin ressentit soudain une douleur atroce dans les yeux, et un mince filet de sang en coula. C'était comme si une puissance immense voulait lui arracher les globes oculaires pour en faire le soleil et la lune! Ses mains tremblaient également, semblant vouloir s'élever pour devenir le ciel, tandis que son corps était attiré par une force étrange pour se fondre dans la terre.
 
 C'était un sort de foi! Un sort d'une puissance inouïe où, lorsque la foi d'un être atteint un niveau capable de modifier le monde, le temps et l'espace, quiconque est enveloppé par cette foi devient l'un de ses éléments!
 

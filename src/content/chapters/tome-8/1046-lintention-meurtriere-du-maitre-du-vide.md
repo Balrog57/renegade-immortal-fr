@@ -12,7 +12,7 @@ L'homme en noir n'était pas moins rapide que Wang Lin. Fixant les pas de ce der
 
 Derrière eux progressait la belle femme. Étant une puissante cultivatrice, elle prit rapidement une décision: voyant Wang Lin et l'homme en noir s'enfuir avec une telle hâte, elle serra les dents et les suivit sans tarder.
 
-Cependant, bien que la belle femme maîtrisât les restrictions, elle n'égalait pas le talent de Wang Lin. De plus, son retard lui fut préjudiciable, car elle fut bientôt bloquée par certaines barrières.
+Cependant, bien que la belle femme connût les restrictions, elle ne les maîtrisait pas aussi bien que Wang Lin. De plus, son retard lui fut préjudiciable, car elle fut bientôt bloquée par certaines barrières.
 
 Le rugissement furieux qui résonnait au loin se rapprochait de plus en plus, ponctué par des bruits secs et successifs, signes évidents de restrictions en train de voler en éclats. Wang Lin accéléra encore et bondit dans les airs devant un pavillon. Des lueurs de restrictions jaillirent de la structure, et une lumière envahit la zone comme pour interdire tout passage à Wang Lin.
 
@@ -26,7 +26,7 @@ C'est à cet instant précis qu'un rugissement violent retentit derrière elle, 
 
 La belle femme eut le souffle coupé. Elle n'avait jamais vu cette silhouette humaine auparavant, mais elle sentit un puissant sentiment de péril l'envelopper.
 
-Le regard glacial de cette créature était empreint de rage. Elle laissa échapper un rugissement et chargea droit sur la belle femme, levant sa main droite pour tenter de lui lacérer le visage.
+Le regard glacial de cette créature était empreint de rage. Elle laissa échapper un rugissement et chargea droit sur la belle femme, levant sa main droite en forme de griffe pour la balayer.
 
 Cependant, à cet instant précis, un cri retentit.
 
@@ -102,7 +102,7 @@ Bien qu'il ait atteint le sommet de l'étape Scruteur du Nirvana et possède un 
 
 La belle femme laissa échapper un renâclement glacial. Elle s'apprêtait à parler, mais le Maître du Vide l'interrompit en faisant un pas vers Wang Lin et dit d'un ton lent: « Junior, que ce soit ta faute ou non, point n'est besoin d'explications. Je vais te donner une chance: sors d'ici et attire cette chose humanoïde loin de nous! »
 
-Bien que les paroles du Maître du Vide semblassent calmes, elles étaient empreintes de pouvoir. À mesure qu'il avançait, une ondulation se propagea entre lui et Wang Lin. Mais il ne s'agissait pas d'une simple onde invisible; des milliers d'ondulations invisibles apparurent soudainement.
+Bien que les paroles du Maître du Vide semblassent calmes, elles étaient empreintes de pouvoir. À mesure qu'il avançait, une ondulation se propagea entre lui et Wang Lin. Mais il ne s'agissait pas d'une simple onde invisible; plusieurs ondulations invisibles apparurent soudainement.
 
 Elles surgirent avec une rapidité fulgurante. Dès leur apparition, elles libérèrent la puissance brute d'un cultivateur Briseur du Nirvana, fonçant à une vitesse inimaginable vers la poitrine de Wang Lin.
 
@@ -116,4 +116,4 @@ Tout cela se produisit si vite que même la belle femme fut stupéfaite et les p
 
 Voyant le corps de Wang Lin être impitoyablement projeté, le Maître du Vide fut surpris. Bien que cette attaque n'ait pas été empreinte de sa pleine puissance, elle aurait aisément pu terrasser un cultivateur Scruteur du Nirvana!
 
-Il songea qu'avec un tel coup, l'éventuel Empereur Divin de l'Oiseau Vermillon mourrait à coup sûr, entraînant l'Oiseau Vermillon dans sa chute.
+Il songea qu'avec un tel coup, l'éventuel Empereur Divin de l'Oiseau Vermillon mourrait à coup sûr, et l'Oiseau Vermillon avec lui.

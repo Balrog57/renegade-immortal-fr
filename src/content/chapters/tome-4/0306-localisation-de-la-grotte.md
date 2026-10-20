@@ -57,7 +57,7 @@ Malheureusement, ce rêve s'était brisé avec la destruction du Royaume Célest
 
 Wang Lin prit une grande inspiration. La méthode de fabrication de ce charriot était extrêmement complexe. Beaucoup des matériaux requis avaient déjà disparu, rendant sa production impossible. Cependant, d'après les écrits, Wang Lin comprit qu'il existait plusieurs de ces Chars de Guerre Divin dans sa grotte, ce qui l'excitait au plus haut point.
 
-Après réflexion, il se leva, rangea le drapeau de restriction et marcha vers le vortex. Les personnes sur la plateforme, voyant Wang Lin approcher, reculèrent. La plupart d'entre eux étaient au stade de l'Âme Naissante; ils n'osaient pas entrer dans le vortex, espérant seulement pouvoir dépouiller un voyageur blessé à sa sortie du Royaume Céleste.
+Après réflexion, il se leva, rangea le drapeau de restriction et marcha vers le vortex. Les personnes sur la plateforme, voyant Wang Lin approcher, détournèrent le regard. La plupart d'entre eux étaient au stade de l'Âme Naissante; ils n'osaient pas entrer dans le vortex, espérant seulement pouvoir dépouiller un voyageur blessé à sa sortie du Royaume Céleste.
 
 Wang Lin ne leur jeta même pas un regard et sauta dans le vortex.
 
@@ -65,7 +65,7 @@ Wang Lin ne leur jeta même pas un regard et sauta dans le vortex.
 
 Le corps de Wang Lin continua sa descente jusqu'à ce qu'il atterrisse sur un fragment de la partie est. Il observa les environs avant de s'envoler rapidement pour retourner sur la plateforme. Puis, il entra à nouveau dans le vortex. Il répéta l'opération maintes fois avant de finir par atterrir sur un fragment de la partie ouest.
 
-Selon les descriptions du Céleste des Trésors Célestes, sa grotte se trouvait à l'intérieur d'une montagne en forme de tigre. Wang Lin scruta l'horizon, mais ne vit aucune montagne de cette forme. Il réfléchit un moment. Bien que la tâche fût ardue, il ne renonça pas et continua ses recherches. En chemin, il croisa deux autres cultivateurs qui se contentèrent de s'observer avant de passer leur chemin.
+Selon les descriptions du Céleste des Trésors Célestes, sa grotte se trouvait au pied d'une montagne en forme de tigre. Wang Lin scruta l'horizon, mais ne vit aucune montagne de cette forme. Il réfléchit un moment. Bien que la tâche fût ardue, il ne renonça pas et continua ses recherches. En chemin, il croisa deux autres cultivateurs qui se contentèrent de s'observer avant de passer leur chemin.
 
 De nombreux jours passèrent sans qu'il ne trouve quoi que ce soit; il retourna donc sur la plateforme pour entrer une nouvelle fois dans le vortex. Les gens sur la plateforme l'avaient vu revenir et plonger dans le vortex à plusieurs reprises, mais nul ne savait ce qu'il cherchait, et personne n'osait poser de question.
 
@@ -81,9 +81,9 @@ L'homme réapparut à 330 mètres de Wang Lin. En y regardant de plus près, Wan
 
 Le cultivateur en robe blanche regarda Wang Lin et joignit les mains: « Camarade cultivateur, cela ne vous concerne pas. Veuillez partir », dit-il.
 
-Le jeune homme répliqua promptement: « Camarade cultivateur, cet individu a tenté de me voler mon cristal d'énergie céleste! Si vous m'aidez, nous pourrons nous partager le butin! »
+Le jeune homme répliqua promptement: « Camarade cultivateur, cet individu m'a volé mon cristal d'énergie céleste! Si vous m'aidez, nous pourrons nous partager le butin! »
 
-Les yeux du jeune homme en robe blanche se plissèrent: « Quelles absurdités. C'est toi qui m'as volé! »
+Les yeux du jeune homme en robe blanche se plissèrent et il éclata de rire: « Quelles absurdités. C'est toi qui m'as volé! »
 
 Wang Lin fronça les sourcils. Il n'avait aucune intention de s'impliquer dans ce chaos. Sans un mot, il recula et s'envola. Le jeune homme changea brusquement d'expression et se lança à la poursuite de Wang Lin en criant: « Camarade cultivateur, considérez que nous venons de la même planète et aidez-moi pour cette fois! »
 

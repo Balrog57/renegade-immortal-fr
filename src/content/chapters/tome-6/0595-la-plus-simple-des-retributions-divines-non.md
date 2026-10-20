@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 595 - The Simplest Divine Retribution No!"
 slug: la-plus-simple-des-retributions-divines-non
 ---
-À l'extérieur de la Terre des Esprits Démoniaques, à l'entrée de la Mer des Esprits Démoniaques Orientale, l'obscurité était totale. Seules quelques lueurs lointaines éclairaient partiellement la zone.
+À l'extérieur de la Terre des Esprits Démoniaques, à l'entrée de la Mer des Esprits Démoniaques Orientale, l'obscurité était totale. De nombreuses étoiles lointaines parsemaient la zone de lueurs.
 
 À cet instant précis, un rayon de lumière jaillit du vide à une vitesse qu'aucun cultivateur ni aucun sortilège ne pourrait jamais atteindre!
 
@@ -54,7 +54,7 @@ Même ceux qui veulent suivre la voie des immortels errants ne peuvent y échapp
 
 Le cœur Dao de Wang Lin sonna pour la quinzième fois, libérant toute la tristesse contenue en lui. Son cœur Dao subissait une métamorphose rapide vers la complétion!
 
-Autour de la place, tout le monde méditait silencieusement. En une seule journée, Wang Lin leur avait fait vivre tant de choses incroyables que sa silhouette était désormais gravée dans leurs cœurs!
+Autour de la place, tout le monde gardait le silence. En une seule journée, Wang Lin leur avait fait vivre tant de choses incroyables que sa silhouette était désormais gravée dans leurs cœurs!
 
 À cet instant précis, les éclairs et le tonnerre disparurent du ciel pour laisser place à une rougeur flamboyante.
 
@@ -96,7 +96,7 @@ Il ne restait qu'un seul son dans ce monde: le grondement représentant la colè
 
 Il ne restait qu'une seule couleur dans ce monde: le rouge sang de l'éclair de la rétribution divine!
 
-Il ne restait qu'une seule intention meurtrière dans ce monde: celle des cieux, plus puissante que celle que l'on acquiert après avoir massacré cent millions d'êtres!
+Il ne restait qu'une seule intention meurtrière dans ce monde: celle des cieux, plus puissante que celle que l'on acquiert après avoir massacré dix millions de milliards d'êtres!
 
 Les cieux voulaient tuer un homme!
 

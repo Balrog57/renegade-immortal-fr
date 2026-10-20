@@ -112,7 +112,7 @@ Contrairement aux cités mortelles, il n'y avait aucune garde à la porte. C'ét
 
 Au crépuscule, le ciel était gris. Tandis que le vent et la neige soufflaient, Wang Lin franchit la porte orientale. Son pied toucha le sol à l'intérieur de la Cité Ancestrale.
 
-Une puissante pression céleste se jeta sur lui dès qu'il pénétra la cité. Elle était suffisante pour briser le corps de n'importe quel mortel, mais les cultivateurs parvenaient tout juste à la supporter. Pour celui qui pratiquait ici, l'effet était encore supérieur à celui des plus prestigieuses sectes.
+Une puissante pression céleste se jeta sur lui dès qu'il pénétra la cité. Elle était suffisante pour briser le corps de n'importe quel mortel, mais les cultivateurs parvenaient tout juste à la supporter. Pour celui qui pratiquait ici, l'effet était encore supérieur à celui des monts célèbres et des grands fleuves, et même à celui de certaines grandes sectes.
 
 Cependant, cette pression céleste n'eut aucun effet sur Wang Lin. Il n'avait nul besoin de forcer la culture de cette énergie céleste. Marchant sur les dalles de pierre bleue des rues de la ville, Wang Lin observa les alentours.
 

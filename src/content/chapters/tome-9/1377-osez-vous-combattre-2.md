@@ -36,7 +36,7 @@ Le Patriarche du Scorpion Noir hocha la tête. Craignant de poser des questions,
 
 L'expression de Wang Lin resta calme. Il marchait lentement dans la cité du Clan du Dragon Blindé. Il avait posé l'appât et attendait maintenant que sa cible morde.
 
-« J'ai chargé directement le Clan du Tonnerre Dispersé auparavant, mais pour le Clan des Moineaux de Feu, je vais les laisser venir à moi! » Wang Lin marcha un moment avant de faire brusquement demi-tour.
+« J'ai chargé directement le Clan du Tonnerre Dispersé auparavant, mais pour le Clan des Moineaux de Feu, ce sont eux qui me feront entrer! » Wang Lin marcha un moment avant de faire brusquement demi-tour.
 
 « Vous me suivez depuis tout à l'heure. Cherchez-vous la mort? »
 
@@ -116,7 +116,7 @@ Dans une demeure de la cité située sur le flanc est de la planète, le vieil h
 
 Devant lui, les 100 pilules d'âme brûlaient et fondaient progressivement. Même les âmes furent consumées jusqu'à leur dissipation, ne laissant qu'une goutte de sang qui émettait une lueur démoniaque!
 
-« Comme je l'avais prévu, la raison pour laquelle ces pilules contiennent de l'essence est cette goutte de sang! C'est... quel genre de sang est-ce là?! » Le vieil homme prit une profonde inspiration, mais à cet instant précis, un rire empreint de défi et d'une intention meurtrière résonna.
+« Comme je l'avais prévu, la raison pour laquelle ces pilules contiennent de l'essence est cette goutte de sang! C'est... quel genre de sang est-ce là?! » Le vieil homme prit une profonde inspiration, mais à cet instant précis, un cri empreint de défi et d'une intention meurtrière résonna.
 
 Le vieil homme du Clan des Moineaux de Feu leva brusquement la tête vers les cieux.
 
@@ -124,10 +124,10 @@ Simultanément, dans la terre sainte du Clan du Dragon Blindé, le Patriarche et
 
 « Père, j'ai déjà remis les 10 000 Pilules d'Effondrement du Dragon, comme vous l'aviez ordonné. »
 
-L'expression du Patriarche était sombre alors qu'il regardait Maître Simo et déclarait: « Cet individu a volé 10 000 de nos pilules. Je demande à Maître Simo de m'aider à le capturer. Je récompenserai grandement le Senior une fois l'individu appréhendé! »
+L'expression du Patriarche était sombre alors qu'il regardait Maître Simo et déclarait: « Cet individu a volé 10 000 de nos pilules. Je demande à Maître Simo de m'aider à le capturer et à l'abattre. Je récompenserai grandement le Senior une fois l'individu appréhendé! »
 
-Maître Simo esquissa un sourire. Mais juste au moment où il s'apprêtait à parler, un rire déchira le ciel!
+Maître Simo esquissa un sourire. Mais juste au moment où il s'apprêtait à parler, un cri déchira le ciel!
 
-Ce rire était un défi. Il était froid et chargé d'une intention meurtrière sans fin!
+Ce cri était un défi. Il était froid et chargé d'une intention meurtrière sans fin!
 
 « Je vous attends ici, osez-vous me défier?! »

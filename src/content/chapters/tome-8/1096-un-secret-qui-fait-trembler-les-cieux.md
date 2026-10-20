@@ -54,7 +54,7 @@ Tandis qu'ils débattaient du Dao, le temps s'écoula. Au petit matin, Mo Zhi pr
 
 Les informations contenues dans ces quatre jades suffiraient à ébranler l'Alliance tout entière. Mo Zhi devait s'empresser de les remettre à son maître, pour qu'ils soient ensuite transmis aux trois autres forces de l'Alliance. Quant à leur pays de Chu Yun, grâce aux vagues allusions de Wang Lin, Mo Zhi avait compris le message et ne laisserait naturellement pas son maître s'impliquer.
 
-Après le départ de Mo Zhi, d'autres vinrent féliciter Wang Lin, mais il ne reçut personne. Le temps passa et le jour de la cérémonie d'investiture arriva enfin.
+Après le départ de Mo Zhi, d'autres vinrent féliciter Wang Lin, mais il ne les reçut pas en personne. Le temps passa et le jour de la cérémonie d'investiture arriva enfin.
 
 Ce jour-là, toute la Secte Divine Oiseau Vermillon était en émoi. Les anciens et les membres des trois autres sectes étaient également présents pour assister au couronnement du nouvel Empereur Divin. Bien que cette cérémonie fût fastidieuse, elle relevait de la tradition et dura toute une journée. Une fois les trois autres sectes parties, la Secte Divine Oiseau Vermillon retrouva peu à peu son calme.
 
@@ -70,7 +70,7 @@ Wang Lin réfléchit silencieusement.
 
 « Pour l'instant, 90 % de mon âme originelle est séparée de moi. Je vais aller absorber tous les avatars que j'ai dispersés. J'ai laissé 10 % de mon âme originelle dans mon corps physique. Une fois le cristal obtenu, j'utiliserai une méthode secrète de transfert d'âme pour l'envoyer vers mon corps. Après avoir reçu le cristal, si tu peux sauver l'Empereur Divin Dragon Azure, fais-le. Sinon, assure d'abord ta propre sécurité. » L'homme parlait comme s'il organisait ses derniers préparatifs pour sa mort.
 
-« Grâce à la pierre de feu blanc qui se trouve sur mon corps, celui-ci ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta culture. Souviens-t'en bien! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon corps. Utilise les Neuf Transformations Mystérieuses pour le faire exploser. Peut-être cela permettra-t-il à toi ou à la Secte Divine Oiseau Vermillon de surmonter une crise. »
+« Grâce à la pierre de feu blanc qui se trouve sur mon corps, celui-ci ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta culture. Souviens-t'en bien! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon âme. Utilise les Neuf Transformations Mystérieuses pour faire exploser mon corps. Peut-être cela permettra-t-il à toi ou à la Secte Divine Oiseau Vermillon de surmonter une crise. »
 
 L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointaines de la Secte Divine Oiseau Vermillon. La mélancolie et la réticence marquaient son visage.
 

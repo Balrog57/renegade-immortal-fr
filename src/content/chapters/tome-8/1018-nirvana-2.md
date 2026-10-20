@@ -14,7 +14,7 @@ Après avoir clamé « Voler le mérite des cieux », bien que l'énergie origin
 
 Ces deux lignes s'entrecoupèrent pour former une rune en forme de diamant!
 
-Cette rune surpassait tout ce que possédait le Clan du Tatouage. Sa complexité était telle que l'on ressentait le vertige rien qu'en la contemplant.
+Cette rune surpassait tout ce que possédait le Clan des Immortels Délaissés. Sa complexité était telle que l'on ressentait le vertige rien qu'en la contemplant.
 
 « Unir le clan antique, pensée éternelle! » Dès que Wang Lin prononça la dernière phrase, la rune de diamant libéra un éclat noir et blanc et commença à flotter lentement vers l'avant!
 
@@ -74,7 +74,7 @@ Ming Hai pointa le ciel en riant, et une flamme aux neuf couleurs commença à b
 
 La flamme jaillit vers les cieux suivant le doigt de Ming Hai. Le ciel fut enveloppé d'une lumière écarlate et commença à s'embraser!
 
-Et cela ne faisait que commencer. Alors que la lueur cramoisie emplissait l'étendue céleste, les autres couleurs se mirent à briller. Les flammes aux neuf couleurs inondèrent le ciel, et en un instant, elles couvrirent la mer!
+Et cela ne faisait que commencer. Alors que la lueur cramoisie emplissait l'étendue céleste, les autres couleurs se mirent à briller. Les flammes aux neuf couleurs inondèrent le ciel, et en un instant, tout ce que l'on voyait n'était plus que flammes ardentes!
 
 Brûlez les Cieux!
 Brûlez le ciel!

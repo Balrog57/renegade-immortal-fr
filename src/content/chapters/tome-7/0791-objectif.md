@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 791 - Objective
 slug: objectif
 ---
-Chaque fois qu'une crise survenait pour l'homme aux cheveux blancs, celui-ci se transformait en statue. Lorsqu'il s'en extrayait, son apparence changeait et il rajeunissait considérablement.
+Après chaque crise, l'homme aux cheveux blancs se transformait en statue. Lorsqu'il s'en extrayait, son apparence changeait et il rajeunissait considérablement.
 
 D'un vieillard au début, il était devenu un homme d'âge moyen, pour finir par devenir un jeune homme. Cette scène bizarre fit frissonner tous les cultivateurs environnants.
 

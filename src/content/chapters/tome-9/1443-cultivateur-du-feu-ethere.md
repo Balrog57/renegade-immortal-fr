@@ -34,9 +34,9 @@ Au centre de ce monde se dressait une figure colossale: un dieu ancien haut de d
 
 Son genou s'était effondré, laissant apparaître des os déjà noircis. Il était évident qu'il n'avait pas souhaité s'agenouiller il y a des millénaires, mais que sa jambe avait été brisée, l'obligeant à cette posture!
 
-Le dos courbé sous le poids d'une plateforme de dix mille pieds, il portait cette structure rouge sang entourée d'une brume sanguine qui en masquait l'intérieur. Cependant, une restriction oppressante émanait de cette brume, comme si elle scellait quelque chose de redoutable.
+Le dos courbé sous le poids d'une plateforme de dix mille pieds, il portait cette structure rouge sang entourée d'une brume sanguine qui en masquait l'intérieur. Cependant, une restriction violente émanait de cette brume, comme si elle scellait quelque chose de redoutable.
 
-Sur la droite du dieu ancien se tenait une figure d'environ quatre mille pieds de haut, également agenouillée. Cette silhouette possédait une corne sur le front et arborait un visage féroce. Son œil gauche était empreint de folie et de regret, tandis que son œil droit était vide, comme si on l'avait arraché; du sang s'en écoulait encore.
+Sur la droite du dieu ancien se tenait une figure d'environ quatre mille pieds de haut, également agenouillée. Cette silhouette possédait une corne sur le front et arborait un visage féroce. Son œil gauche était empreint de folie et de rancune, tandis que son œil droit était vide, comme si on l'avait arraché; du sang s'en écoulait encore.
 
 Sur la gauche du dieu ancien se trouvait un démon ancien de trois mille pieds. Il était lui aussi à genoux, l'œil gauche creux et l'œil droit pétrifié par la peur.
 
@@ -82,7 +82,7 @@ Le comportement de Wang Lin exaspéra la foule. Une intention de tuer monta en f
 
 Les bêtes féroces qui avaient bondi dans les airs poussèrent des cris de détresse, leurs yeux emplis d'effroi. Tandis que leurs visages se déformaient, leurs hurlements devinrent plus stridents encore.
 
-En un instant, près de mille bêtes furent encerclées par le Feu Éthéré et brûlées vives!
+En un instant, près de mille bêtes furent embrasées par le Feu Éthéré né dans leur corps, et brûlées vives!
 
 Des filaments de force vitale blanche jaillirent de leurs corps pour être absorbés par Wang Lin!
 

@@ -28,7 +28,7 @@ Peu après, l'expression de Ling Tianhou devint encore plus lugubre et il marmon
 
 Des pensées fulgurantes traversèrent l'esprit de Ling Tianhou.
 
-« Cependant, si Wang Lin est vraiment si important pour lui, pourquoi est-il parti avec autant de calme... Même le diagramme de divination n'a rien pu percevoir. Étrange! » Ling Tianhou laissa échapper un sombre soupir en regardant Wang Lin, puis dit lentement: « Wang Lin, même si je n'étais pas venu t'aider aujourd'hui, l'Omniscient n'aurait pas osé te tuer aussi facilement. Après tout, tu fais partie de la Série de l'Oiseau Vermillon. »
+« Cependant, si Wang Lin est vraiment si important pour lui, pourquoi est-il parti avec autant de calme... Même le diagramme de divination ne permet pas de dire si cela présage le bien ou le mal. Étrange! » Ling Tianhou laissa échapper un sombre soupir en regardant Wang Lin, puis dit lentement: « Wang Lin, même si je n'étais pas venu t'aider aujourd'hui, l'Omniscient n'aurait pas osé te tuer aussi facilement. Après tout, tu fais partie de la Série de l'Oiseau Vermillon. »
 
 Wang Lin réfléchissait sans relâche à la relation entre Ling Tianhou et l'Omniscient. À cet instant, il joignit ses mains: « Il y a trois personnes dans la Série de l'Oiseau Vermillon, et je ne suis que l'une d'entre elles. En bref, ce junior se souviendra de l'aide du Saint de l'Épée! »
 

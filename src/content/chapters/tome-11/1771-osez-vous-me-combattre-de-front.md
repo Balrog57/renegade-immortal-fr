@@ -30,7 +30,7 @@ La troisième concubine hésita un instant, puis dit doucement: « Tang Shan... 
 
 « Activez vos sept portes dorées et reculez! » La voix de Wang Lin devint soudainement glaciale alors qu'il fixait l'horizon.
 
-Les yeux de Tang Shan se rétrécirent. Son niveau de culture n'était pas bas, elle remarqua immédiatement l'anomalie. Elle obéit à Wang Lin sans hésiter et une lumière dorée l'enveloppa. Sept portes dorées apparurent autour d'elle.
+Les yeux de Tang Shan se rétrécirent. Son niveau de culture n'était pas bas, elle remarqua immédiatement l'anomalie. Elle obéit à Wang Lin sans hésiter, d'un geste de la main droite, et une lumière dorée l'enveloppa. Sept portes dorées apparurent autour d'elle.
 
 Un rayon de lumière fonçait vers eux depuis le lointain. Ce rayon transportait une immense plateforme de pierre qui brillait, sur laquelle se tenait un jeune homme vêtu de bleu.
 
@@ -42,7 +42,7 @@ Le jeune homme vacilla légèrement et fit un demi-pas en arrière. Il fixa Wang
 
 « Wang Lin! Je vous ai enfin rattrapé. Je suis Yun Yifeng. Notre combat sur la Planète des Cinq Éléments fut précipité et peu satisfaisant. Aujourd'hui, osez-vous me combattre de front, sans stratagème ni l'Arc de Li Guang? » La lumière disparut de la plateforme de pierre. Le jeune homme en bleu fixa Wang Lin droit dans les yeux.
 
-« Si vous parvenez à me vaincre, je suivrai tous vos ordres tant que nous serons au cœur du monde caverneux! » Yun Yifeng s'avança hors de la plateforme pour faire face à Wang Lin. Dans son regard, la troisième concubine, Tang Shan, n'existait pas. Seul Wang Lin comptait!
+« Si vous parvenez à me vaincre, je suivrai tous vos ordres tant que nous serons au cœur du monde caverneux! » Yun Yifeng s'avança hors de la plateforme pour faire face à Wang Lin, à mille pieds de distance. Dans son regard, la troisième concubine, Tang Shan, n'existait pas. Seul Wang Lin comptait!
 
 En observant Yun Yifeng, la froideur dans les yeux de Wang Lin s'intensifia. Il manquait l'âme d'un puissant cultivateur, et cet homme était venu seul. Cela ferait gagner du temps à Wang Lin, mais le niveau de culture de cet homme n'était pas si élevé. Wang Lin sentait que sa seule âme ne suffirait pas.
 
@@ -102,7 +102,7 @@ S'il avait tenté quoi que ce soit, Wang Lin l'aurait tué sans hésiter, même 
 
 « Ils arrivent juste à temps... Peut-être pourrai-je emprunter sa puissance pour sonder cette personne... »
 
-Alors que ce combat touchait à sa fin, le brouillard autour de la montagne commença à bouger pour former une immense tête chauve. Un rugissement tonitruant retentit.
+Alors que ce combat touchait à sa fin, le brouillard autour de la montagne commença à bouger pour former une immense tête chauve. Un rugissement tonitruant retentit, et un vent violent se mit à hurler.
 
 Le corps de Wang Lin fut enveloppé par son aura de Dao Antique et il recula de mille pieds pour y résister. Tang Shan, témoin de la bataille, se retira rapidement aux côtés de Wang Lin.
 
@@ -120,4 +120,4 @@ Tang Shan ne resta pas en retrait non plus. Elle n'hésita pas à former un scea
 
 La plupart des sorts étaient orientés vers l'attaque, et même les sorts de protection ne pouvaient généralement être utilisés que sur soi-même. Ceux capables d'agir sur autrui étaient extrêmement rares. C'était la première fois que Wang Lin voyait un tel sort capable de protéger quelqu'un d'autre!
 
-La Secte de la Porte Céleste à laquelle appartenait Tang Shan n'était qu'une petite secte et ne faisait pas partie des Neuf Sectes et Treize Factions, mais elle était pourtant célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!
+La Secte de la Porte Céleste du Continent Astral Immortel, à laquelle appartenait Tang Shan, n'était qu'une petite secte et ne faisait pas partie des Neuf Sectes et Treize Factions, mais elle était pourtant célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!

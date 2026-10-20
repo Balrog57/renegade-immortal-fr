@@ -54,7 +54,7 @@ Wang Lin murmura pour lui-même: « Ce grain cyan est le meilleur trésor magiqu
 
 Après être resté silencieux un instant, il fit demi-tour. De retour dans sa grotte, il consacra à nouveau de longues heures à la création d'un autre grain cyan.
 
-En contemplant le minuscule grain, Wang Lin soupira et le rangea. En créer un seul consommait déjà une quantité colossale d'énergie spirituelle. Il semblait qu'il soit devenu trop faible après en avoir fabriqué deux.
+En contemplant le minuscule grain, Wang Lin soupira et le rangea. En créer un seul l'avait déjà éprouvé. En entamant le deuxième, son énergie spirituelle s'était révélée nettement insuffisante.
 
 Bien que le grain fût extrêmement puissant, sa production exigeait trop de ressources. Wang Lin eut un sourire amer et but une gorgée de rosée glacée pour récupérer. À la tombée de la nuit, il en avait recouvré la majeure partie.
 

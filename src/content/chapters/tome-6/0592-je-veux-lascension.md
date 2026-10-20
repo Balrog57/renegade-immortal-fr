@@ -82,7 +82,7 @@ Wang Lin ne lui laissa pas le temps de réagir. Il détourna le regard et, pour 
 
 Parmi les six vice-commandants, tous sauf un détournèrent les yeux lorsque Wang Lin les fixa. Celui qui maintint le contact avait le regard limpide.
 
-Il s'agissait du vice-commandant Xuan. Ses yeux étaient clairs et trahissaient une pointe de regret en observant Wang Lin. Puis, il joignit les mains en signe de respect envers lui.
+Il s'agissait du vice-commandant Xuan. Ses yeux étaient clairs et trahissaient une pointe d'émotion en observant Wang Lin. Puis, il joignit les mains en signe de respect envers lui.
 
 Wang Lin hocha la tête et déplaça son attention vers les huit commandants. Leurs regards se croisèrent, et ce fut comme s'ils avaient appris énormément l'un de l'autre en un instant.
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 482 - Purple Forest Palace
 slug: palais-de-la-forêt-violette
 ---
-Le visage du vieil homme était d'une pâleur cadavérique. Il n'aurait jamais imaginé qu'un cultivateur issu d'une planète de culture stérile, qu'il considérait comme un simple paysan, puisse être aussi puissant. Cet individu l'avait pris au piège en quelques instants et était actuellement en train de raffiner un autre Ancien.
+Le visage du vieil homme était d'une pâleur cadavérique. Il n'aurait jamais imaginé qu'un cultivateur issu d'une planète de culture stérile, qu'il considérait comme un simple autochtone, puisse être aussi puissant. Cet individu l'avait pris au piège en quelques instants et était actuellement en train de raffiner un autre Ancien.
 
 Un tel niveau de puissance n'était comparable qu'à celui de cultivateurs du stade moyen de la Transformation de l'Âme!
 
@@ -30,7 +30,7 @@ Le regard de Wang Lin se fit sérieux alors qu'il demandait calmement: « Quel r
 
 « En temps normal, aucun. Mais il y a cent ans, Sun Yun a trahi la secte et s'est enfui pour une raison inconnue. Malgré cela, l'Ancêtre n'a pas envoyé de chasseur, il est parti personnellement. Un mois plus tard, l'Ancêtre est revenu seul; il a alors scellé le Pavillon des Nuages Pourpres et a proclamé que la prochaine personne à y résider serait l'un des sept véritables disciples! » Le vieil homme marqua une pause à ce passage. Il regarda Wang Lin d'un air tourmenté, puis reprit: « Parmi les sept disciples de la division violette, les six autres ont grandi sur la planète Tian Yun; vous seul venez d'une planète à la culture déclinante. Même aux yeux des disciples ordinaires, vous êtes considéré comme un roturier et votre statut est inférieur au leur. Si tout était normal, ce ne serait pas si grave, mais puisque l'on vous a attribué le Pavillon des Nuages Pourpres, la discrimination est inévitable!
 
-De plus, votre niveau de culture n'est même pas si élevé; il est donc naturel que vos frères apprentis vous voient comme une nuisance. À cause de l'Ancêtre, ils ne peuvent pas agir directement contre vous, mais les complots et les trahisons sont inéluctables! J'ai dit tout ce que je pouvais dire. Ce qui s'est passé aujourd'hui est notre faute. À partir de maintenant, mon frère et moi ne prendrons plus jamais part à la lutte de succession entre vous, frères apprentis! »
+De plus, votre niveau de culture n'est même pas si élevé; il est donc naturel que vos frères apprentis vous voient comme une nuisance. À cause de l'Ancêtre, ils ne peuvent pas agir directement contre vous, mais les manœuvres dans l'ombre sont inévitables! J'ai dit tout ce que je pouvais dire. Ce qui s'est passé aujourd'hui est notre faute. À partir de maintenant, mon frère et moi ne prendrons plus jamais part à la lutte de succession entre vous, frères apprentis! »
 
 En disant cela, le vieil homme jeta un regard vers la lame en croissant de lune. Il la redoutait profondément.
 
@@ -88,7 +88,7 @@ Le regard de Wang Lin restait glacial tandis qu'il fixait la femme et déclarait
 
 Un rayon de lumière verte jaillit et frappa les trois caractères de « Pavillon des Nuages Pourpres ». Lorsque la lueur disparut, le mot « Nuages » fut remplacé par « Forêt »!
 
-Le mot « Forêt » était calligraphié d'un trait défiant et arrogant, comme un dragon chargé vers les cieux. Une aura dominante et impérieuse émanait de cette écriture, capable de faire trembler les cœurs de ceux qui la contemplaient.
+Le mot « Forêt » était calligraphié d'un trait défiant et arrogant, comme un dragon en furie jaillissant de la mer, comme un phénix sauvage fondant sur le ciel. Une aura dominante et impérieuse émanait de cette écriture, capable de faire trembler les cœurs de ceux qui la contemplaient.
 
 La femme en pourpre resta pétrifiée devant l'inscription « Pavillon de la Forêt Violette », et deux traînées de larmes coulèrent sur ses joues. Soudain, elle tourna violemment la tête vers Wang Lin et cria d'une voix brisée: « Je vais te tuer!!! »
 

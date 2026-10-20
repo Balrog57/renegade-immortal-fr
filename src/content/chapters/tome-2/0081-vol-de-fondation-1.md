@@ -16,13 +16,13 @@ Wang Lin marchait lentement à travers la ville en examinant chaque étal. Certa
 
 En marchant, il s'arrêta soudainement. Devant lui se trouvait l'étal d'un cultivateur proposant diverses épées volantes, des talismans de jade et un livre relié par une ficelle.
 
-Quelques mots étaient inscrits sur l'ouvrage: « Recherche de formations de base ».
+Quelques mots étaient inscrits sur l'ouvrage: « Notes de recherche sur les formations de base ».
 
 « Des formations? » Wang Lin se frotta le menton et prit le livre. Le petit ouvrage était assez épais, comptant environ cinquante ou soixante pages.
 
 Le propriétaire de l'étal était un homme d'une trentaine d'années. Il leva la tête et déclara d'un ton lent: « Dix pierres spirituelles de qualité moyenne pour ce livre. Si tu n'as pas l'intention de l'acheter, ne le touche pas n'importe comment. »
 
-Dix pierres spirituelles de qualité moyenne représentaient tout ce que Wang Lin possédait à cet instant. Après avoir parcouru le livre un peu plus longuement, constatant l'impatience du marchand, il posa les dix pierres et partit.
+Dix pierres spirituelles de qualité moyenne représentaient tout ce que Wang Lin possédait à cet instant. Après avoir parcouru le livre un peu plus longuement, constatant l'impatience du marchand, il posa les dix pierres et partit avec le livre.
 
 Il examina quelques autres étals et trouva des matériaux d'élément bois, mais ils étaient tous très coûteux. Il y avait même un morceau de bois de fer, dont le prix était exorbitant.
 

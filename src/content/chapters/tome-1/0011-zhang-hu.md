@@ -38,7 +38,7 @@ Wang Lin poursuivit ainsi jusqu'au crépuscule. Il ne parvint à remplir qu'une 
 
 Wang Lin réfléchit un instant, puis transporta un demi-seau d'eau vers une zone déserte. Il scruta les environs pour s'assurer que personne ne se trouvait à proximité. Il lâcha la perle de pierre dans le seau et remua l'eau. Puis, il retira la perle et but l'eau. Il sentit immédiatement une chaleur envahir son estomac et ses douleurs musculaires s'estompèrent peu à peu.
 
-Bien que l'effet fût inférieur à celui de la rosée, Wang Lin était transporté par l'excitation. Il toucha sa poitrine pour ajuster la position de la perle. Il décida de ne révéler ce trésor à personne.
+Bien que l'effet fût inférieur à celui de la rosée, Wang Lin était transporté par l'excitation. Il toucha sa poitrine, à l'endroit où se trouvait la perle. Il décida de ne révéler ce trésor à personne.
 
 Après avoir bu ce demi-seau d'eau, ses muscles n'étaient plus endoloris et il se sentait plein d'énergie. Il reprit rapidement sa tâche de porteur d'eau.
 
@@ -50,7 +50,7 @@ Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé depui
 
 Wang Lin apprit que le travail de Zhang Hu consistait à couper du bois de chauffage. Il devait en couper chaque jour une quantité suffisante avant de pouvoir manger. Cela faisait trois ans qu'il accomplissait cette tâche depuis qu'il était devenu disciple honoraire de la Secte Heng Yue. Il y a trois ans, il ne mangeait qu'une fois tous les trois ou quatre jours, se remplissant l'estomac uniquement d'eau, mais désormais, il avait réussi à réduire ce délai à une fois tous les deux jours.
 
-D'après lui, les disciples honoraires devaient accomplir des corvées pendant dix ans et être capables de prendre trois repas par jour avant même d'apprendre la technique de culture la plus rudimentaire.
+D'après lui, les disciples honoraires devaient accomplir des corvées pendant dix ans et être capables de prendre trois repas par jour avant même d'apprendre quelques techniques immortelles de base.
 
 Les disciples intérieurs n'étaient pas dans leur situation. Ils avaient leur propre maître, ne faisaient aucune corvée et disposaient de leurs propres chambres. Leur seule occupation était la culture.
 

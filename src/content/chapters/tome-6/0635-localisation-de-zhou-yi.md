@@ -86,7 +86,7 @@ Wang Lin se retourna et agita le pinceau de sa main, faisant revenir les symbole
 
 Cependant, cette lumière dorée semblait infinie; peu importait la quantité dévorée, elle ne diminuait pas.
 
-Les yeux de Wang Lin s'illuminèrent et il tendit son index gauche. Un doigt de mort jaillit et traversa le symbole doré comme si celui-ci n'existait pas.
+Les yeux de Wang Lin s'illuminèrent et il tendit son index gauche. Un Doigt de la Mort jaillit et traversa le symbole doré comme si celui-ci n'existait pas.
 
 Cette scène, où le sort passait à travers le symbole, ainsi que tous les échecs des attaques de Murong Zhuo, captèrent immédiatement l'attention des deux femmes. Une pointe de choc apparut dans les yeux de Murong Zhuo qui déclara d'un ton grave: « Immunité aux sorts! »
 
@@ -130,7 +130,7 @@ Il était extrêmement rare que Wang Lin tienne un tel discours compte tenu de s
 
 Wang Lin ne dit rien de plus. Murong Zhuo esquissa un rare sourire, hocha la tête à Wang Lin et s'envola silencieusement vers les profondeurs.
 
-Wang Lin réfléchit un instant puis envoya une transmission vocale à Murong Zhuo: « Frère Murong, méfiez-vous de ces deux femmes. Si je ne me trompe pas, elles appartiennent à la Secte des Cadavres. L'une d'elles doit être un cadavre dont l'âme originelle est déjà éveillée! »
+Wang Lin réfléchit un instant puis envoya une transmission vocale à Murong Zhuo: « Frère Murong, méfiez-vous de ces deux femmes. Si je ne me trompe pas, elles appartiennent à la Secte des Cadavres. L'une d'elles doit être un cadavre habité par une âme originelle! »
 
 Murong Zhuo ne regarda pas les deux femmes et n'eut aucun geste suggérant qu'il avait entendu Wang Lin. Il continua sa descente, mais nul ne remarqua que ses yeux brillèrent un instant et qu'il devint plus vigilant.
 

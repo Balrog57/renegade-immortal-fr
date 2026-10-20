@@ -16,7 +16,7 @@ Le regard de Wang Lin s'illumina, mais il ne fit preuve d'aucune imprudence. Si 
 
 « Puisqu'il n'est pas parti et qu'il reste entouré de cette brume aux dix couleurs, cela signifie qu'il se trouvait au moment critique de l'exécution d'un sort. » Wang Lin fixa la brume et, tandis qu'il méditait, des grondements de tonnerre sourdirent de l'intérieur.
 
-La brume tourbillonna rapidement et un sphinx géant en jaillit. Son corps massif dégageait une vapeur noire qui exerçait une pression écrasante tout autour de lui.
+La brume tourbillonna rapidement et un sphinx géant en jaillit. Son corps massif, entièrement noir, dégageait une vapeur noire qui exerçait une pression écrasante tout autour de lui.
 
 Dès l'apparition de la bête, le totem des six Daos Extrêmes de Wang Lin descendit sur elle. La créature hurla et chargea le totem, provoquant un fracas de tonnerre.
 
@@ -26,7 +26,7 @@ L'expression de Wang Lin resta imperturbable. D'un revers de manche, il fit appa
 
 D'innombrables petites épées dorées surgirent, formant une tempête de lames. Cette tempête, chargée d'une puissante essence métallique, fonça sur la bête géante. Alors que la créature s'apprêtait à résister, le totem qui la surplombait s'abattit sur elle et l'immobilisa. Simultanément, la tempête d'épées atteignit sa cible, arrachant à la bête un cri de douleur déchirant.
 
-Alors que ce cri résonnait, la brume aux dix couleurs tourbillonna violemment et quatre silhouettes gigantesques apparurent. La première était un python colossal dont le corps immense laissait échapper un cri semblable à celui d'un nouveau-né. Il ouvrit la gueule pour cracher une immense quantité d'aura rouge qui enveloppa le corps véritable des cinq éléments.
+Alors que ce cri résonnait, la brume aux dix couleurs tourbillonna violemment et quatre silhouettes gigantesques apparurent. La première était un python colossal à tête humaine, dont le corps immense, entouré de lueurs rouges, laissait échapper un cri semblable à celui d'un nouveau-né. Il ouvrit la gueule pour cracher une immense quantité d'aura rouge qui enveloppa le corps véritable des cinq éléments.
 
 La deuxième bête fut un lézard colossal. Très étrange, il était entièrement blanc, tel du jade pur. À son apparition, il tira sa langue et une onde de froid se propagea vers le corps véritable des cinq éléments de Wang Lin.
 
@@ -66,13 +66,13 @@ La dernière bête était une créature humanoïde: un géant à deux têtes. Se
 
 Au total, neuf bêtes étaient sorties de la brume pour empêcher l'entrée de Wang Lin!
 
-« Il doit encore en rester une dixième! » ricana Wang Lin en levant la main gauche vers le roc dans le ciel. L'espace autour de la créature sembla se détacher du monde avant d'être brusquement compressé. Un éclat jaillit de son doigt: c'était le Doigt de l'Ancêtre Ancien!
+« Il doit encore en rester une dixième! » ricana Wang Lin en levant la main gauche vers le roc dans le ciel. L'espace autour de la créature sembla se détacher du monde avant d'être brusquement compressé. Une lueur argentée jaillit de son doigt: c'était le Doigt de l'Ancêtre Ancien!
 
-Simultanément, une ombre superposée apparut sur le corps de Wang Lin et son corps véritable de la Foudre de Massacre sortit. Les cheveux de cette essence véritable devinrent noirs, dégageant une intention meurtrière terrifiante tout en affichant un sourire cruel. Ses yeux étaient froids et impitoyables alors qu'il avançait, se transformant en d'innombrables fils noirs qui transpercèrent le phénix violet. Le phénix poussa un cri déchirant avant d'exploser, laissant place au corps véritable de la Foudre de Massacre. Ce dernier lécha ses lèvres et chargea une autre bête.
+Simultanément, une ombre superposée apparut sur le corps de Wang Lin et son corps véritable de la Foudre de Massacre sortit. Les cheveux de cette essence véritable devinrent noirs, dégageant une intention meurtrière terrifiante tout en affichant un sourire cruel. Ses yeux étaient froids et impitoyables alors qu'il avançait, se transformant en d'innombrables fils noirs qui transpercèrent le phénix violet. Le phénix poussa un cri déchirant avant d'exploser, laissant place au corps véritable de la Foudre de Massacre. Ce dernier lécha ses lèvres, poussa un grognement vers les cieux et chargea une autre bête.
 
 Quant à la neuvième bête, le géant à deux têtes n'était plus qu'à quelques centaines de pieds de Wang Lin. Une odeur nauséabonde l'assaillit alors que la créature chargeait férocement.
 
-« Tu cherches la mort! » Une intention meurtrière fulgurante traversa ses yeux. Bien que son corps véritable des cinq éléments et celui de la Foudre de Massacre soient éloignés, ne lui laissant que ses essences éthérées, il n'était pas une proie facile pour cette simple bête.
+« Tu cherches la mort! » Une intention meurtrière fulgurante traversa ses yeux. Bien que son corps véritable des cinq éléments et celui de la Foudre de Massacre soient éloignés, ne lui laissant que son corps principal, qui renferme l'origine du Vide, il n'était pas une proie facile pour cette simple bête.
 
 Wang Lin possédait encore la capacité divine la plus puissante du clan Ancien, qu'il n'avait jamais utilisée sur ce continent. Parmi les trois lignées du clan, c'était la capacité innée la plus redoutable!
 

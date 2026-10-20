@@ -22,7 +22,7 @@ Lui-même ne sentit qu'un trouble dans sa vision, comme si quelqu'un venait de p
 
 Wang Lin aperçut également Maître Lu Fu, mais le temps pressait; il ne s'arrêta pas et fit son deuxième pas!
 
-À ce deuxième pas, il atteignit le centre du Vide Brillant. Cette zone était assez déserte, et bientôt, des failles spatiales apparurent telles des cicatrices.
+À ce deuxième pas, il atteignit une zone proche du centre du Vide Brillant. Cette zone était assez déserte, et bientôt, des failles spatiales apparurent telles des cicatrices.
 
 On aurait dit qu'une bataille titanesque avait eu lieu ici des années auparavant! Le combat avait été si féroce qu'il avait provoqué l'effondrement de l'espace. C'est en raison de ces effondrements que d'innombrables failles spatiales étaient apparues, comme si cette zone avait été coupée du système stellaire du Vide Brillant. Ces déchirures rendaient également très difficile la couverture de la zone par le Sens Divin.
 
@@ -56,7 +56,7 @@ Des grondements tonitruants se firent entendre alors que les fragments explosaie
 
 « Cultivateurs résiduels du Royaume Extérieur, si Maître Hong Shan n'était pas piégé, si Maître Nan Yunzi ne sortait pas de sa culture recluse, si le Seigneur du Royaume Scellé n'était pas porté disparu, comment oseriez-vous être aussi arrogants? »
 
-La voix de Maître Yan Leizi était empreinte de tristesse et ses yeux brillaient de folie. Il savait que tant qu'il parviendrait à s'échapper, ces deux-là ne le poursuivraient plus. Après tout, une fois hors de cette zone, il n'y aurait plus de failles spatiales pour entraver ses mouvements et il pourrait utiliser la courbure spatiale. S'ils continuaient la poursuite, ils auraient des ennuis.
+La voix de Maître Yan Leizi était empreinte de tristesse et ses yeux brillaient de folie. Il savait que tant qu'il parviendrait à s'échapper, ces deux-là ne le poursuivraient plus. Après tout, une fois hors de cette zone, il n'y aurait plus de failles spatiales pour entraver ses mouvements et il pourrait utiliser la courbure spatiale. Même s'ils le poursuivaient, ils hésiteraient à le faire.
 
 Toutefois, il était encore à une certaine distance de la limite de la zone. Maître Yan Leizi serra les dents et recula de toutes ses forces. Le cultivateur du Clan de l'Hirondelle de Feu et celui du Clan du Loup Céleste franchirent l'onde de choc de l'effondrement et se rapprochèrent inexorablement.
 
@@ -72,11 +72,11 @@ L'intention meurtrière dans les yeux du cultivateur du Clan de l'Hirondelle de 
 
 Le visage du cultivateur du Clan du Loup Céleste changea radicalement. Les poils verts sur son bras s'allongèrent jusqu'à recouvrir la majeure partie de son torse. Son bras droit se métamorphosa soudainement en une tête de loup gigantesque!
 
-« Va retrouver ton Seigneur du Royaume Scellé dans les enfers! » Dans un rugissement, le cultivateur du Clan du Loup Céleste lança un coup de poing. Un hurlement de loup terrifiant résonna et son bras droit se détacha de son corps, se transformant en un loup géant qui fonça sur Maître Yan Leizi!
+« Va retrouver ton Seigneur du Royaume Scellé dans les enfers! » Dans un rugissement, le cultivateur du Clan du Loup Céleste agita brusquement la main droite. Un hurlement de loup terrifiant résonna et son bras droit se détacha de son corps, se transformant en un loup géant qui fonça sur Maître Yan Leizi!
 
 Simultanément, le cultivateur du Clan de l'Hirondelle de Feu poussa un rugissement. L'oiseau de feu noir laissa échapper un sifflement tandis qu'une mer monstrueuse de flammes noires l'enveloppait. Il chargea vers Maître Yan Leizi à une vitesse fulgurante, aux côtés du loup géant.
 
-Tout cela se produisit en un instant. Maître Yan Leizi esquissa un sourire amer et abandonna toute idée de fuite. La folie s'empara de son regard et un sentiment d'arrogance déferla sur lui!
+Tout cela se produisit en un instant. Maître Yan Leizi esquissa un sourire amer et abandonna toute idée de fuite. La folie s'empara de son regard et une bravoure héroïque déferla sur lui!
 
 « Ce vieil homme ne craint pas la mort! Si je dois mourir, je mourrai dans une explosion éclatante! » Il ne recula pas, mais rit comme un possédé. Il allait s'autodétruire pour obtenir cette ultime poussée de puissance!
 

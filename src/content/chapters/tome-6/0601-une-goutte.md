@@ -98,7 +98,7 @@ Sous cette stimulation colossale, l'esprit de Wang Lin atteignit un paroxysme d'
 
 Les yeux de Wang Lin étaient injectés de sang et les veines de son front bombèrent comme s'il endurait une agonie insupportable.
 
-« Disparais! »
+« Dégage! »
 
 Wang Lin laissa échapper un rugissement sourd qui résonna à travers toute la terre. Une ombre noire fut alors expulsée de son corps par sa main droite!
 
@@ -108,7 +108,7 @@ L'expression de Wang Lin devint féroce tandis que l'effet mystérieux du fruit 
 
 Il réprima simultanément la douleur et le plaisir. La confrontation de ces deux sensations créa une force explosive sans précédent!
 
-« DISPARAIS!!! »
+« DÉGAGE!!! »
 
 Wang Lin redressa brusquement la tête et leva les deux mains. Une onde de choc explosa de son corps, projetant l'ombre noire hors de lui!
 
@@ -118,9 +118,9 @@ L'ombre émit un gémissement misérable en s'effondrant. Elle se transforma en 
 
 Mais Wang Lin l'ignora totalement. À cet instant, la puissance des fruits était sur le point d'exploser. Toujours sous leur influence, il fit un pas en avant et, sans hésiter, pointa le petit doigt de sa main gauche vers l'ombre!
 
-Le Doigt de l'Inframonde!
+Le Doigt des Enfers!
 
-Il utilisa sa culture de niveau Ascendant pour invoquer le Doigt de l'Inframonde. Il pointa vers les abysses pour activer le domaine niché au cœur de son âme originelle. Ce doigt portait le domaine de la vie et de la mort; il contenait toute la volonté de Wang Lin!
+Il utilisa sa culture de niveau Ascendant pour invoquer le Doigt des Enfers. Il pointa vers les abysses pour activer le domaine niché au cœur de son âme originelle. Ce doigt portait le domaine du cycle de la vie et de la mort; il contenait toute la volonté de Wang Lin!
 
 Ce doigt atteignit son apogée sous l'effet du Fruit de l'Ascension Céleste!
 

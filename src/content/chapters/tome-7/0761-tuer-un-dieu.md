@@ -110,7 +110,7 @@ Il n'eut même pas le temps de lever la restriction qu'il rangea précipitamment
 
 « Tu veux me tuer? Alors je tuerai un dieu, et c'est toi qui mourras! » Les doigts de Wang Lin pointèrent neuf points de son corps tandis qu'il accélérait encore davantage. L'aiguille rouge derrière lui le talonnait de près.
 
-Tenant la sphère de restriction de Yao Xixue, l'Ancêtre Sanguin se déplaçait comme un possédé. Le calme qui l'habitait avait totalement disparu; il ressemblait désormais à un fou enveloppé d'une lueur rouge. Il chargea frénétiquement vers la matrice de transfert qu'il avait solidifiée par son sens divin.
+Tenant la sphère de restriction de Yao Xixue, l'Ancêtre Sanguin se déplaçait comme un possédé. Le calme qui l'habitait avait totalement disparu; il ressemblait désormais à un fou enveloppé d'une lueur rouge. Il chargea frénétiquement vers la matrice de transfert qu'il avait solidifiée par son sceau.
 
 L'espace de stockage autour de lui commençait à s'écrouler et les deux montagnes furent instantanément dévastées. Une puissance capable de tout détruire en un instant emplit la zone, comme si cette force cherchait à l'engloutir!
 

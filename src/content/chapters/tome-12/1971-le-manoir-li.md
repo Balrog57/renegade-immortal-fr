@@ -12,7 +12,7 @@ Un silence absolu régnait autour de ce manoir; aucune trace d'activité humaine
 
 Le vent soufflait, accumulant une épaisse couche de neige sur le sol. La lumière argentée se reflétant sur la blancheur donnait au lieu une sensation de froid glacial. Cette clarté argentée brillait sur la porte du manoir, dégageant une pression puissante.
 
-Devant le portail se dressaient deux lions de pierre. Leurs yeux étaient clos, mais ils dégageaient une aura d'une férocité choquante; on aurait dit qu'ils foudroieraient du regard quiconque oserait les voir ouvrir les paupières.
+Devant le portail se dressaient deux lions de pierre. Leurs yeux étaient clos, mais ils dégageaient une aura d'une férocité choquante; on aurait dit qu'ils mordraient avec fureur quiconque si leurs paupières venaient à s'ouvrir.
 
 Au-dessus de la porte, un cadre vert sur fond rouge arborait deux grands caractères dorés:
 
@@ -52,7 +52,7 @@ Wang Lin marcha silencieusement dans la ville jusqu'à ce que la lune apparaisse
 
 La pièce n'était pas grande et restait très simple, mais l'énergie céleste y était encore plus dense qu'à l'extérieur. Bien qu'il ne s'agisse pas d'une grotte, les murs, la porte et la fenêtre étaient couverts de restrictions. Celles-ci pouvaient être activées pour faire de cet endroit un lieu propice à la culture en vase clos.
 
-À ce moment-là, Liu Jinbiao se tenait à ses côtés et regardait autour de lui. Le dragon marin d'Exalté Doré avait rétréci jusqu'à la taille d'un doigt et reposait sur l'épaule de Liu Jinbiao, paraissant très paresseux.
+À ce moment-là, Liu Jinbiao se tenait à ses côtés et regardait autour de lui. Le dragon marin d'Exalté Doré avait rétréci jusqu'à la grosseur d'un doigt et reposait sur l'épaule de Liu Jinbiao, paraissant très paresseux.
 
 Le lien entre le dragon marin et Liu Jinbiao était excellent. Wang Lin n'était pas surpris; après tout, il était tout à fait normal que Liu Jinbiao utilise ses capacités pour agir ainsi.
 

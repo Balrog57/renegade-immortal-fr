@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2004 - Star of Disaster for the Prince
 slug: letoile-du-desastre-pour-le-prince
 ---
-« Quant à savoir si cette affaire est vraie, ce petit ne le sait pas. Cependant, avec la présence du prince à leurs côtés, cela signifie que l'Empereur Antique a dû donner son accord, sinon le seigneur de la ville n'aurait pas ordonné le confinement de la cité », expliqua l'homme corpulent.
+« Quant à savoir si cette affaire est vraie, ce petit ne le sait pas. Cependant, avec la présence du prince à leurs côtés, cela signifie que l'empereur du Shi Antique a dû donner son accord, sinon le seigneur de la ville n'aurait pas ordonné le confinement de la cité », expliqua l'homme corpulent.
 
 « Choisir une concubine? » Wang Lin fut surpris et ne s'attarda pas sur la question. Il pensa simplement qu'il était absurde que l'Empereur de l'Ancien Dao, le lieu même qu'il devait protéger, envoie des émissaires jusque dans les deux autres pays pour choisir une concubine.
 
@@ -76,7 +76,7 @@ C'était manifestement un démon ancien! Ses yeux étaient rouge sang, empreints
 
 Lorsqu'il toucha le sol, une onde de choc se propagea de toutes parts, soulevant la terre comme une vague.
 
-En contemplant ce démon ancien, le cœur de Wang Lin trembla et ses yeux se rétrécirent.
+En contemplant ce démon ancien, le cœur de Wang Lin trembla et ses yeux se firent perçants.
 
 « Ceci... Ce n'est pas un démon ancien ordinaire! » Wang Lin comprit immédiatement le problème. Il avait vu des démons anciens dans le Monde de la Grotte, mais, tout comme les Dieux Antiques, à moins qu'ils ne révèlent leur véritable forme, ils ressemblaient à des humains ordinaires.
 
@@ -92,7 +92,7 @@ L'homme en armure dorée remarqua immédiatement que Wang Lin restait debout. Il
 
 Comment un simple prince pourrait-il contraindre Wang Lin à s'agenouiller? Même un Grand Empyréen ne l'y aurait pas forcé. Devant l'Empereur Céleste lui-même, Wang Lin n'avait eu besoin que de joindre les mains.
 
-Wang Lin observa calmement le démon ancien qui rugissait et vit la personne debout sur sa tête. Elle portait une robe royale et ses cheveux noirs flottaient au vent. C'était un jeune homme à l'apparence ordinaire, mais doté d'un tempérament indicible.
+Wang Lin observa calmement le démon ancien qui rugissait et vit le jeune homme debout sur sa tête. Il portait une robe royale et ses cheveux noirs flottaient au vent. C'était un jeune homme à l'apparence ordinaire, mais doté d'un tempérament indicible.
 
 Derrière lui se tenait une femme en bleu. Elle paraissait assez jeune et, lorsque son regard croisa celui de Wang Lin, elle parut surprise.
 
@@ -100,11 +100,11 @@ Le jeune homme royal vit également Wang Lin, l'unique personne debout. Le ciel 
 
 Une autre ombre gigantesque émergea de la faille béante. Cette silhouette était légèrement plus petite, haute d'environ cent mille pieds; en sortant, elle révéla deux cornes sur sa tête et un corps noir. C'était un diable ancien!
 
-Les yeux de ce démon étaient également rouges, habités par la folie et la violence, comme s'il était sur le point de perdre tout contrôle. Il poussa un hurlement. Sept personnes se tenaient debout sur sa tête.
+Les yeux de ce diable étaient également rouges, habités par la folie et la violence, comme s'il était sur le point de perdre tout contrôle. Il poussa un hurlement. Sept personnes se tenaient debout sur sa tête.
 
 Parmi elles figuraient cinq hommes et deux femmes. Ils saluèrent le jeune homme d'un geste des mains, puis, en regardant vers le sol, leur attention fut captée par Wang Lin, le seul à rester debout.
 
-« Mon clan manque de respect. Vous avez tous été témoins de cette scène embarrassante. » Le jeune homme sourit aux sept individus sur la tête du démon. Puis il se tourna vers l'homme corpulent en armure dorée qui se tenait près de Wang Lin.
+« Mon clan manque de respect. Vous avez tous été témoins de cette scène embarrassante. » Le jeune homme sourit aux sept individus sur la tête du diable. Puis il se tourna vers l'homme corpulent en armure dorée qui se tenait près de Wang Lin.
 
 « Liang Yun, est-ce là votre nouvelle recrue? »
 

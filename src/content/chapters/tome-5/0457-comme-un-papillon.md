@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 457 - Like a butterfly
 slug: comme-un-papillon
 ---
-À cet instant, à 5 000 kilomètres de la bataille entre Wang Lin et Papillon Rouge, Zhou Wutai continuait de voler. Son niveau de culture étant inférieur à celui de Wang Lin, il s'efforçait de rattraper son retard.
+À cet instant, à 5 000 kilomètres de la bataille entre Wang Lin et Papillon Rouge, Zhou Wutai continuait de voler. Son niveau de culture n'atteignant pas celui de la Transformation de l'Âme, sa vitesse était inférieure à celle de Wang Lin et il s'efforçait de rattraper son retard.
 
 Lorsque la lame en forme de demi-lune fila devant lui, il fut profondément stupéfait; il n'avait jamais rien vu d'aussi rapide de toute sa vie.
 
@@ -90,7 +90,7 @@ La rose rouge devant elle libéra une lumière aveuglante tandis que ses pétale
 
 « L'année prochaine, quand les fleurs écloront, il y aura un champ de roses sur la planète Suzaku. Il y aura une rose bleue qui fleurira dans les plaines du Nord. Wang Lin, c'est là mon cadeau pour toi... »
 
-La rose n'était plus qu'une tige privée de ses pétales. Lorsque la hache la percuta, elle s'effondra et disparut totalement. Une marque rouge apparut entre les sourcils de la jeune femme alors que le sang jaillissait, un spectacle terrifiant.
+La rose n'était plus qu'un pistil privé de ses pétales. Lorsque la hache la percuta, elle s'effondra et disparut totalement. Une marque rouge apparut entre les sourcils de la jeune femme alors que le sang jaillissait, un spectacle terrifiant.
 
 « Papillon Rouge, tu affronteras une épreuve dans ta vie! Ce sera une épreuve de vie ou de mort. Si tu la surmontes, le reste de ton existence sera paisible. Si tu échoues, tout sera perdu. Ta Maîtresse a consacré l'effort de toute sa vie à prédire ce présage pour toi, alors sois prudente... »
 

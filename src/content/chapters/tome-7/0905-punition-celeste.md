@@ -8,7 +8,7 @@ slug: punition-celeste
 ---
 Des craquements émanèrent du tatouage tandis que le tonnerre tournait autour de lui. Chaque fois que deux éclairs entraient en collision, le tatouage tremblait. Dans ses secousses, il commença à se briser et des couches de sceaux s'effondrèrent.
 
-Le regard de Wang Lin devint glacial; il leva sa main droite et la Paire Dao du Flétrissement apparut soudainement. Une fois l'os de bête révélé, une lueur jaillit et une aura maléfique envahit les environs.
+Le regard de Wang Lin devint glacial; il leva sa main droite et la Paire de Dao Fanée apparut soudainement. Une fois l'os de bête révélé, une lueur jaillit et une aura maléfique envahit les environs.
 
 Le tatouage en pleine désintégration trembla soudainement lorsqu'une lumière grise apparut, commençant à le pétrifier. À cet instant, Ta Shan surgit et lança un coup de poing!
 
@@ -90,7 +90,7 @@ Dès que l'énergie du garçon s'activa, elle commença à se disperser et à s'
 
 Voyant la momie approcher, le regard de Wang Lin se fit glacial et il fit un pas en avant. Il pressa sa main contre le vide, libérant l'énergie d'origine de son corps. Dans un bruit sourd, la momie fut projetée en arrière de plusieurs dizaines de pieds.
 
-Ta Shan chargea tel un éclair, le poing fermé. Un tatouage apparut sur sa main et, en le voyant, la momie se montra instantanément respectueuse et recula, comme si elle n'osait affronter Ta Shan.
+Ta Shan chargea tel un éclair, le poing fermé. Un tatouage apparut sur son poing et, en le voyant, la momie se montra instantanément respectueuse et recula, comme si elle n'osait affronter Ta Shan.
 
 Yun Quezi resta pétrifié par la scène. À cet instant, il eut l'impression d'être frappé par la foudre en se remémorant une rumeur ancienne!
 

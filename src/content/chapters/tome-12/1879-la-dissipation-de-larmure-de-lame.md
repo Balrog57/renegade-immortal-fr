@@ -38,7 +38,7 @@ Le Messager du Démon Vert était scellé par ce réseau; il n'avait aucune chan
 
 En un éclair, il disparut.
 
-À l'ouest de la Prairie de l'Extrême Ciel, l'autre Messager du Démon Vert, assis sur une grue de papier, affichait un visage pâle. Il fuyait à une vitesse folle, comme s'il était possédé par la démence.
+À l'ouest de la Prairie de l'Extrême Ciel, l'autre Messager du Démon Vert, assis sur une grue de papier, affichait un visage pâle. Il fuyait à une vitesse folle.
 
 De son point de vue, ce qui venait de se produire était tout simplement terrifiant. Ils étaient venus ici pour accomplir la tâche confiée par le Vieil Ancêtre: tuer Wang Lin.
 

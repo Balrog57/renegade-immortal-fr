@@ -104,7 +104,7 @@ Un son assourdissant, faisant bourdonner les oreilles des cultivateurs environna
 
 Wang Lin se déplaça comme un éclair. Dès que le tambour fut détruit, il bondit sur le dragon noir restant et chargea Luo Su, porté par une intention meurtrière implacable.
 
-Wang Lin savait que puisque le sort de sens divin de Luo Su avait été brisé, l'esprit de ce dernier était ébranlé et une faille s'était ouverte. S'il ne saisissait pas cette opportunité pour attaquer, en laissant à Luo Su le temps de se rétablir, la bataille s'éterniserait! Ce serait d'autant plus vrai si Luo Su commençait à utiliser des sorts d'origine. Dans ce cas, la moindre inattention de Wang Lin pourrait lui coûter la victoire. Bien qu'avec Qing Shui présent, sa mort soit peu probable, il perdrait sa qualification!
+Wang Lin savait que puisque le sort de sens divin de Luo Su avait été brisé, l'esprit de ce dernier était ébranlé et une faille s'était ouverte. S'il ne saisissait pas cette opportunité pour attaquer, en laissant à Luo Su le temps de se rétablir, la bataille s'éterniserait! Ce serait d'autant plus vrai si Luo Su commençait à utiliser des sorts d'énergie originelle. Dans ce cas, la moindre inattention de Wang Lin pourrait lui coûter la victoire. Bien qu'avec Qing Shui présent, sa mort soit peu probable, il perdrait sa qualification!
 
 En chargeant, Wang Lin leva la main et le Sceau Céleste s'élança. Il fonça sur Luo Su à une vitesse fulgurante. Le visage de Luo Su était pâle, mais ses yeux brillaient intensément. Il cessa de se soucier de son sort de sens divin brisé et sa main droite traça un sceau. L'énergie originelle convergea dans sa paume pour former un éclair de tonnerre enflammé.
 
@@ -114,7 +114,7 @@ En un seul mot, Luo Su sentit d'innombrables fils surgir du vide pour l'envelopp
 
 Simultanément, des centaines de milliers de runes dorées volèrent et encerclèrent Luo Su.
 
-Le cœur de Luo Su était oppressé. Les sorts d'origine n'étaient pas sa spécialité; sa force résidait dans son sens divin. Or, celui-ci n'avait aucun effet sur Wang Lin, ce qui l'exaspérait au plus haut point.
+Le cœur de Luo Su était oppressé. Les sorts d'énergie originelle n'étaient pas sa spécialité; sa force résidait dans son sens divin. Or, celui-ci n'avait aucun effet sur Wang Lin, ce qui le remplissait d'amertume.
 
 Après s'être libéré du sort *Arrête*, Luo Su lança la foudre enflammée qu'il tenait en main. L'éclair grandit instantanément pour atteindre une quarantaine de mètres de large. Une gueule béante apparut au sein de la foudre, tentant d'engloutir le Sceau Céleste.
 
@@ -128,7 +128,7 @@ Le sort *Arrête* ayant été brisé, l'esprit de Wang Lin fut secoué et il sub
 
 Le Fouet du Karma s'agita pour continuer à frapper devant Wang Lin. Les ondes furent immédiatement brisées, mais certaines réussirent à passer et frappèrent le corps de Wang Lin.
 
-Le visage de Wang Lin pâlit. Bien que l'Armure de Cuir de l'Ancien Dieu fût robuste, des vibrations atteignirent son sens divin. Ses yeux brillèrent d'intention meurtrière et il fit un pas en avant. Ses deux mains formèrent un sceau et des *Coups Célestes* apparurent dans ses paumes, s'élançant une à une vers son adversaire.
+Le visage de Wang Lin pâlit. Bien que l'Armure de Cuir de l'Ancien Dieu fût robuste, des vibrations atteignirent son sens divin. Ses yeux brillèrent d'intention meurtrière et il fit un pas en avant. Ses deux mains formèrent un sceau, ses deux doigts une épée, et des *Coups Célestes* apparurent dans ses paumes, s'élançant une à une vers son adversaire.
 
 Luo Su et Wang Lin accélérèrent de plus en plus. L'un attaquait avec son sens divin tout en se défendant avec son énergie originelle; l'autre attaquait avec son énergie originelle tout en se protégeant par son sens divin. Les deux engagèrent une bataille titanesque!
 

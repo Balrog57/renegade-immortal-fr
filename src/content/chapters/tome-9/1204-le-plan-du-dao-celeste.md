@@ -24,7 +24,7 @@ Pourtant, cet espace n'était pas noir, mais de sept couleurs!
 
 Ce monde était devenu un royaume aux sept couleurs!
 
-Le vieillard en blanc redressa brusquement la tête et agita sa main droite. Le mot « Bataille » apparut! Il entoura son corps et dégagea une lueur dorée infinie qui repoussa la lumière arc-en-ciel.
+Le vieillard en blanc redressa brusquement la tête et agita sa main droite. Le mot « Bataille » apparut! Il entoura son corps et dégagea une lueur dorée infinie qui repoussa la lumière aux sept couleurs.
 
 À cet instant précis, une voix puissante résonna à travers l'univers.
 
@@ -104,8 +104,8 @@ Dans les souvenirs du Maître Pin Cendré, sa méthode de culture s'intitulait: 
 
 Cette technique permettait de cultiver un total de neuf entités semblables à des Âmes Naissantes, mais bien plus puissantes que de véritables Âmes Naissantes. Plus important encore, elles permettaient au Maître Pin Cendré d'augmenter neuf fois la vitesse de culture de ses sortilèges.
 
-Le plus stupéfiant était que chaque Âme Naissante pouvait forger un sort unique. Souvent, les cultivateurs devaient choisir entre plusieurs sorts incompatibles; peu importe leur puissance, l'un devait être sacrifié pour l'autre, comme c'était le cas pour le sort ancestral Ying Yang de la vieille femme.
+Le plus stupéfiant était que chaque Âme Naissante pouvait forger un sort unique. Souvent, les cultivateurs devaient choisir entre plusieurs sorts incompatibles; peu importe leur puissance, l'un devait être sacrifié pour l'autre, comme c'était le cas pour le sort ancestral « Prendre le Yang, rassembler le Yin, retour aux Ancêtres » de la vieille femme.
 
 Cependant, ce n'était pas un obstacle pour le Maître Pin Cendré: ses neuf Âmes Naissantes de sang pouvaient cultiver des sorts séparément.
 
-Mais avant son combat contre Wang Lin, l'une de ces âmes avait été capturée par la vieille femme, et lors de leur affrontement, les deux furent si gravement blessés qu'il n'avait pu utiliser les pouvoirs qu'elles renfermaient.
+Mais avant son combat contre Wang Lin, l'une de ces âmes avait été capturée par la vieille femme, et lors de leur affrontement, les deux furent si gravement blessés qu'il n'avait pu toutes les déployer.

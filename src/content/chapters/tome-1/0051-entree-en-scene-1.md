@@ -28,7 +28,7 @@ Zhou Peng ricana. Il leva sa main droite et saisit Zhang Kuang par le cou. « Re
 
 Le dernier disciple vêtu de pourpre se précipita pour rattraper Zhang Kuang, mais incapable de contrer la force de l'impact, ils furent tous deux entraînés dans une longue glissade sur le sol avant de s'immobiliser enfin.
 
-Le visage de Zhang Kuang était livide. Ses yeux étaient clos et son corps tremblait sans cesse. Sur son cou marquait une empreinte noire, comme si une main l'avait violemment étranglé.
+Le visage de Zhang Kuang était livide. Ses yeux étaient clos et son corps tremblait sans cesse. Sur son cou marquait une empreinte de main noire, comme une pince qui s'était refermée sur sa gorge.
 
 Le disciple en pourpre qui l'avait rattrapé affichait un regard d'horreur et restait muet.
 

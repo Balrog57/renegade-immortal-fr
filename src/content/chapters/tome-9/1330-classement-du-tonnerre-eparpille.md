@@ -58,11 +58,11 @@ Il n'avait pas tué beaucoup de membres du Clan du Tonnerre Dispersé dans le Sy
 
 « Outre les trois planètes mères où vit la majorité des membres du clan, les 13 autres planètes sur les 16 que compte le système servent de terrains d'essai! Tous les cent ans, un seul accès à la Terre Sainte est ouvert, et tous ceux résidant sur ces 13 planètes doivent se battre pour l'obtenir! »
 
-« Une fois qu'ils pénètrent dans cette Terre Sainte et entrent en contact direct avec l'tonnerre éternel, leur marque sera renforcée. Cela augmentera considérablement le niveau de culture de celui qui y parvient! »
+« Une fois qu'ils pénètrent dans cette Terre Sainte et entrent en contact direct avec le tonnerre éternel, leur marque sera renforcée. Cela augmentera considérablement le niveau de culture de celui qui y parvient! »
 
 « Il reste sept ans avant la prochaine compétition... Cependant, la méthode choisie par le Clan du Tonnerre Dispersé pour départager ses membres est intéressante... Elle ne dépend ni du niveau de culture, ni des compétences de combat, mais des cristaux de tonnerre! »
 
-« Dans sept ans, celui qui possédera le plus de cristaux de tonnerre pourra entrer dans la Terre Sainte! C'est une opportunité que je ne peux laisser passer. Je pourrai ainsi entrer ouvertement dans la Terre Sainte pour absorber l'tonnerre éternel! » Les yeux de Wang Lin brillèrent et sa main droite s'élança vers le vide. La marque de tonnerre entre les sourcils du vieil homme vacilla, et un morceau de jade en jaillit.
+« Dans sept ans, celui qui possédera le plus de cristaux de tonnerre pourra entrer dans la Terre Sainte! C'est une opportunité que je ne peux laisser passer. Je pourrai ainsi entrer ouvertement dans la Terre Sainte pour absorber le tonnerre éternel! » Les yeux de Wang Lin brillèrent et sa main droite s'élança vers le vide. La marque de tonnerre entre les sourcils du vieil homme vacilla, et un morceau de jade en jaillit.
 
 Les habitants de ce Système Stellaire Antique utilisaient rarement des sacs de rangement; les marques entre leurs sourcils contenaient un espace de stockage où tout pouvait être placé.
 

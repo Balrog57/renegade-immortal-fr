@@ -8,11 +8,11 @@ slug: lepee-de-fer
 ---
 Contemplant la tête de l'ancien dieu, empreinte de regrets et de rage, Wang Lin médita en silence. Après tant d'épreuves, il comprenait désormais que les anciens dieux n'étaient pas des existences éternelles parmi les étoiles. Cependant, ils formaient le clan le plus puissant!
 
-À cette époque, le clan des anciens dieux était presque éteint. Wang Lin ne croyait pas que cela fût dû aux cultivateurs. Même le puissant Royaume Céleste du Tonnerre avait dû déployer une puissance colossale pour combattre un ancien dieu de 8 étoiles affaibli. Ce n'est qu'en lançant d'innombrables êtres célestes qu'ils avaient réussi à l'emporter, au prix de lourdes pertes.
+À cette époque, le clan des anciens dieux était presque éteint. Wang Lin ne croyait pas que cela fût dû aux cultivateurs. Même le puissant Royaume Céleste du Tonnerre avait dû mobiliser toute sa puissance pour combattre un ancien dieu de 8 étoiles affaibli. Ce n'est qu'en lançant d'innombrables êtres célestes qu'ils avaient réussi à l'emporter, au prix de lourdes pertes.
 
 Quel genre de puissance pouvait encore trancher la tête de cet ancien dieu après que celui-ci eut brisé ses huit étoiles?
 
-Bien que le fait de briser huit étoiles d'un coup ne suffît pas à atteindre la puissance d'un ancien dieu de 9 étoiles, cela restait assez pour bouleverser les cieux et la terre.
+Bien que le fait de briser huit étoiles d'un coup ne suffît pas à atteindre la puissance d'un ancien dieu de 9 étoiles, cela restait assez pour anéantir le ciel et la terre.
 
 Tout en réfléchissant, Wang Lin descendit lentement et atteignit un bloc de glace qui obstruait le passage. De l'énergie originelle jaillit de son bras pour pénétrer la glace.
 
@@ -20,7 +20,7 @@ En un instant, des flammes apparurent à la surface et au cœur même de la glac
 
 Une fois le passage ouvert, Wang Lin s'approcha de la tête gigantesque de l'ancien dieu. Alors qu'il l'examinait de près, la pression d'un véritable ancien dieu de 8 étoiles s'abattit soudainement sur lui.
 
-Après un soupir, Wang Lin descendit lentement le long de la tête de l'ancien dieu jusqu'à la zone où elle avait été tranchée. La tête était enveloppée dans une épaisse couche de glace. La coupure au niveau du cou était d'une netteté et d'une fluidité extrêmes.
+Après un soupir, Wang Lin descendit lentement le long de la tête de l'ancien dieu jusqu'à la zone où elle avait été tranchée. La tête était enveloppée dans une épaisse couche de glace. La coupure au niveau du cou était d'une netteté et d'une fluidité extrêmes, sans la moindre dentelure.
 
 Tout en fixant le cou de l'ancien dieu, son expression demeura calme, mais ses pupilles se rétractèrent et un choc envahit son cœur. À en juger par cette blessure, la tête de cet ancien dieu avait été tranchée en un instant. Il n'y eut aucun délai; la coupe était d'une précision absolue!
 

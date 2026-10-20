@@ -8,7 +8,7 @@ slug: localisation-de-zhao
 ---
 Wang Lin resta dans une auberge de la ville pendant trois jours. Durant cette période, de nombreuses personnes vinrent le visiter. Il abandonna son attitude habituelle d'indifférence pour faire la connaissance de plusieurs individus.
 
-La plupart de ces cultivateurs de l'Âme Naissante ne venaient pas de la ville; ils étaient venus participer au marché secret. La bataille de Wang Lin contre l'homme chauve avait captivé toute leur attention. Après tout, dans la Mer des Démons, seule la force importait, et Wang Lin avait aisément vaincu cet homme. C'était cette démonstration de puissance qui avait poussé tous ces cultivateurs de l'Âme Naissante à venir le rencontrer personnellement.
+La plupart de ces cultivateurs de l'Âme Naissante ne venaient pas de la ville; ils étaient venus participer au marché secret. La bataille de Wang Lin contre l'homme chauve avait captivé toute leur attention. Après tout, dans le monde de la culture, seule la force importait, et Wang Lin avait aisément vaincu cet homme. C'était cette démonstration de puissance qui avait poussé tous ces cultivateurs de l'Âme Naissante à venir le rencontrer personnellement.
 
 Les trois jours passèrent et vint enfin le jour du marché secret. Ce matin-là, un cultivateur au stade de la Formation du Noyau s'approcha et remit poliment une invitation à Wang Lin, avant de le guider jusqu'à la boutique.
 
@@ -82,7 +82,7 @@ Un bouclier de lumière verte entourait les jades; il était clair qu'il s'agiss
 
 « Ceci est un catalogue ancien des bêtes. Ceci est un texte secret du monde des anciens cultivateurs. Ceci est une recette de fabrication pour tableaux de transfert anciens. Et ceci... Je n'accepte que des cœurs de bêtes spirituelles de qualité moyenne. Cinq cœurs pour l'un d'eux. » Il attendit alors que les gens s'enquièrent des textes.
 
-Les occupants de la pièce froncèrent tous les sourcils. Même cinq jades contre un seul cœur de bête de qualité moyenne n'était pas une affaire avantageuse, comment l'inverse pourrait-il être vrai?
+Les occupants de la pièce froncèrent tous les sourcils. Cinq jades pour une seule pilule de qualité moyenne n'étaient déjà pas une bonne affaire, alors dans l'autre sens, n'en parlons pas.
 
 En réalité, l'homme à la robe de paille soupira intérieurement. Il n'avait vraiment rien d'autre à vendre que ces jades, qu'il avait trouvés dans la demeure secrète d'un ancien cultivateur. Ce dernier était très pauvre et ne possédait que ces fragments.
 

@@ -66,7 +66,7 @@ Une marque supplémentaire était apparue entre les sourcils de Ling Er. Cette m
 
 À cet instant, il comprit pourquoi il éprouvait une certaine bienveillance envers Ling Er. Au début, il pensait que c'était à cause de sa racine spirituelle de l'eau, qui lui rappelait le passé et éveillait en lui une certaine nostalgie. Mais il comprenait désormais que ce n'était pas cela: c'était parce qu'elle portait une trace du sceau d'esclave divin remontant à d'innombrables réincarnations.
 
-« Je pensais avoir tout compris de l'ancien Dieu Ancien Tu Si, mais il semble que certains souvenirs soient encore scellés... C'est probablement parce qu'il me manquait un cristal de mémoire lorsque j'ai obtenu l'héritage de la connaissance... Si je parviens à obtenir ce dernier cristal, l'héritage sera véritablement complet. »
+« Je pensais avoir tout compris de l'ancien Dieu Ancien Tu Si, mais il semble que certains souvenirs soient encore scellés... Cela tient sans doute à mon passage, jadis, sur la terre de l'Ancien Dieu de la planète Suzaku : les souvenirs de Tu Si que j'y ai obtenus sont incomplets, car il me manque un cristal de mémoire... Si je parviens à obtenir ce dernier cristal, l'héritage sera véritablement complet. »
 
 Le temps s'écoula rapidement et, sans qu'il ne s'en aperçoive, le soleil se coucha. Alors que la lumière s'estompait et que la terre était de nouveau plongée dans les ténèbres, Wang Lin sombra lentement une fois de plus dans cet état étrange.
 

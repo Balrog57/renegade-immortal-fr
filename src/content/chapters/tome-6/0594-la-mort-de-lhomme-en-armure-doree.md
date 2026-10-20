@@ -16,7 +16,7 @@ Les yeux du Commandant Céleste se remplirent de choc alors qu'il retirait son s
 
 Le corps de ce dernier tremblait et il cracha une immense bouffée de sang. Toute l'énergie spirituelle démoniaque de son corps s'était évaporée et des fissures étaient apparues sur ses méridiens. À cet instant, il était passé du statut de dragon féroce à celui d'un simple insecte!
 
-« Ce... ce rugissement était trop terrifiant; il était des milliers de fois plus puissant que celui de l'Empereur Démon. Non, on ne peut même pas dire des milliers de fois. C'était un niveau totalement différent. Il ne voulait pas me tuer; s'il l'avait vraiment voulu, je serais déjà mort! » L'homme en armure dorée avait été blessé deux fois de suite. Toute son énergie spirituelle démoniaque s'était effondrée, son visage était livide et une sueur froide trempait son corps.
+« Ce... ce reniflement était trop terrifiant; il était des milliers de fois plus puissant que celui de l'Empereur Démon. Non, on ne peut même pas dire des milliers de fois. C'était un niveau totalement différent. Il ne voulait pas me tuer; s'il l'avait vraiment voulu, je serais déjà mort! » L'homme en armure dorée avait été blessé deux fois de suite. Toute son énergie spirituelle démoniaque s'était effondrée, son visage était livide et une sueur froide trempait son corps.
 
 À cet instant, les graves blessures de l'homme en armure dorée semblaient avoir été causées par le Commandant Céleste, mais Wang Lin, qui se trouvait très près, savait que le sort du Commandant n'avait même pas touché sa cible!
 
@@ -42,7 +42,7 @@ Cinq coups de tambour prennent un bras, dix coups prennent deux bras, quinze cou
 
 Celui qui l'avait tué n'était pas Wang Lin, mais celui qui l'avait gravement blessé! Si une seule des voix s'était manifestée, il n'aurait pas été si affaibli qu'il ne pouvait plus se défendre; il ne serait pas devenu un mortel.
 
-Cependant, ces deux rugissements avaient transformé une puissance extrêmement célèbre du Pays du Démon Céleste en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
+Cependant, ces deux sons avaient transformé une puissance extrêmement célèbre du Pays du Démon Céleste en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
 
 Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité du Démon Céleste et percer le vide.
 

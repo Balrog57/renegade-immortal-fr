@@ -106,7 +106,7 @@ Dans la grotte, les vaisseaux sanguins dans les yeux de Wang Lin étaient devenu
 
 Pour être plus précis, il utilisait cette méthode pour stimuler son avatar qui croissait à l'intérieur de la coquille de pierre dans le vide!
 
-Après plusieurs jours d'essais, Wang Lin comprit qu'avec son niveau de culture, peu importaient ses efforts, il ne pourrait jamais briser cette pression exercée par le monde.
+Après plusieurs jours d'essais, Wang Lin comprit qu'avec son niveau de culture, même en tentant pendant dix ans, cent ans ou davantage, il ne pourrait jamais briser cette pression exercée par le monde.
 
 Cependant, il lui restait un ultime recours: l'avatar grandissant dans le vide! Cet avatar était né au sein des lois du Continent Astral Immortel et pouvait même être considéré comme faisant partie de ces lois. Ainsi, la capacité de son Sens Divin à s'intégrer au monde dépendait de cet avatar.
 

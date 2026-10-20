@@ -34,7 +34,7 @@ L'expression de Wang Lin était glaciale alors qu'il se rapprochait à nouveau.
 
 En s'avançant, il lança froidement: « Li Yuanfeng, est-ce là le pouvoir d'un cultivateur de la Transformation de l'Âme? »
 
-Li Yuanfeng regarda Wang Lin tout en reculant et poussa un rugissement. Ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Il cracha soudainement un rayon de lumière dorée.
+Li Yuanfeng regarda Wang Lin tout en reculant et poussa un rugissement. Ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Il cracha soudainement un rayon de lumière cristalline.
 
 Cette lumière se transforma rapidement en un géant de glace de trente-trois mètres de haut, dans lequel Li Yuanfeng disparut.
 
@@ -112,7 +112,7 @@ Simultanément, Wang Lin sentit son âme originelle faiblir, comme si une part d
 
 Le visage de Li Yuanfeng était livide. Son corps tremblait tandis qu'il crachait une large traînée de sang.
 
-« Tu n'es pas encore au stade avancé de la Formation de l'Âme... ton domaine a déjà atteint le stade de la Transformation de l'Âme... » La douleur se lisait sur le visage de Li Yuanfeng alors qu'il fixait Wang Lin, mais ses yeux étaient empreints de folie.
+« Tu n'es pas au stade avancé de la Formation de l'Âme... ton domaine a déjà atteint le stade de la Transformation de l'Âme... » La douleur se lisait sur le visage de Li Yuanfeng alors qu'il fixait Wang Lin, mais ses yeux étaient empreints de folie.
 
 « Énergie spirituelle céleste! » Li Yuanfeng décida d'ignorer les blessures qui le lacéraient pour user de l'énergie spirituelle céleste. Un petit cristal d'énergie spirituelle céleste apparut dans sa main, et l'énergie céleste en son corps commença à circuler.
 

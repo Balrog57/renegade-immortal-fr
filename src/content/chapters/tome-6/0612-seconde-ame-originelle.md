@@ -40,7 +40,7 @@ La seconde âme originelle est un sort unique que les cultivateurs ne peuvent ut
 
 La force de cet embryon détermine le taux de réussite. Si un cultivateur échoue à créer sa seconde âme originelle, il subit un terrible contrecoup!
 
-De plus, la création d'une seconde âme originelle inflige des pertes considérables au cultivateur, c'est pourquoi la plupart des Ascendants choisissent de s'en abstenir. Presque aucun des Ascendants que Wang Lin avait rencontrés jusqu'ici n'en possédait une, et Wang Lin n'avait jamais vu personne au-delà de ce stade en posséder une.
+De plus, la création d'une seconde âme originelle inflige des pertes considérables au cultivateur, c'est pourquoi la plupart des Ascendants choisissent de s'en abstenir. Presque aucun des Ascendants que Wang Lin avait rencontrés jusqu'ici n'en possédait une. Quant à ceux qui dépassaient ce stade, Wang Lin ignorait s'ils en possédaient une.
 
 Wang Lin songea: « C'est l'un des démons dispersés sous les ordres de l'Ancien Diable. Il n'existe pratiquement aucun autre embryon plus apte à la création d'une seconde âme originelle. Je suis absolument certain de pouvoir réussir avec lui! »
 
@@ -78,7 +78,7 @@ Wang Lin esquissa un léger sourire. « Très bien, mais il me sera difficile d'
 
 « À partir d'aujourd'hui, vous êtes mon messager. Votre identité surpasse désormais celle de l'Empereur Démon. Mon Pays du Démon Céleste entamera officiellement la guerre contre le Pays du Démon de Feu pour vous soutenir. Une fois que vous aurez atteint la source démoniaque dans la capitale du Pays du Démon de Feu, n'oubliez pas l'incantation que je vous ai transmise! »
 
-Wang Lin joignit les mains et s'approcha de l'homme prisonnier du cristal. Il fit un pas et quitta le Lac du Dragon. En un instant, il disparut sans laisser de trace.
+Wang Lin joignit les mains et saisit dans le vide, de la main droite, l'homme prisonnier du cristal. Il fit un pas et quitta le Lac du Dragon. En un instant, il disparut sans laisser de trace.
 
 S'il avait demandé à l'Ancien Démon de chercher Zhou Yi et de lui permettre d'accéder à l'héritage, c'était parce que l'Ancien Démon avait déjà énormément fait pour lui. S'il s'était comporté comme s'il n'avait plus aucune requête, l'Ancien Démon aurait pu douter de sa sincérité.
 

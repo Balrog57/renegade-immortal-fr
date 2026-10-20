@@ -12,13 +12,13 @@ Ce gaz semblait infini et continuait de pénétrer dans le membre de Wang Lin. S
 
 Ce n'est qu'après le temps d'un bâton d'encens que la dernière parcelle de gaz pénétra dans son bras gauche. Cette sensation de pouvoir déchirer le monde, qu'il avait ressentie lorsqu'il avait obtenu le bras droit, envahit son cœur.
 
-Il fit bouger lentement ses cinq doigts de la main gauche dans un craquement sinistre. Après un long moment, Wang Lin serra le poing et avança d'un pas dans le vide. Il se retrouva en plein ciel, au-dessus du bassin de glace.
+Il fit bouger lentement ses cinq doigts de la main gauche dans un craquement sinistre. Après un long moment, Wang Lin serra le poing, se leva et avança d'un pas dans le vide. Il se retrouva en plein ciel, au-dessus du bassin de glace.
 
 Wang Lin leva les deux mains et sentit une puissance colossale emplir son corps. Après avoir absorbé le bras gauche de Ye Mo, un changement stupéfiant s'opéra au niveau des trois étoiles des anciens clans situées entre ses sourcils et dans ses yeux!
 
 Ce changement était le signe de l'apparition de la neuvième étoile. Un vague vortex venait de se former!
 
-Wang Lin ferma les yeux pour ressentir le pouvoir du Dao Ancien et la force impétueuse qui bouillonnait en lui. Un instant plus tard, il ouvrit brusquement les yeux et fixa le bassin de glace en contrebas. Ses yeux irradiaient d'une lueur dorée tandis qu'il tendait ses mains vers la glace pour la déchirer impitoyablement!
+Wang Lin ferma les yeux pour ressentir le pouvoir du Dao Ancien et la force impétueuse qui bouillonnait en lui. Un instant plus tard, il ouvrit brusquement les yeux et fixa le bassin de glace en contrebas. Ses yeux étincelaient d'un éclat vif tandis qu'il tendait ses mains vers la glace pour la déchirer impitoyablement!
 
 « Déchirure du Ciel! »
 
@@ -48,7 +48,7 @@ Après l'avoir contemplée un long moment, ses yeux s'illuminèrent. Finalement,
 
 Avec un soupir, Wang Lin fit un pas en avant et disparut devant la fleur morte. Il se dirigea vers l'espace de la quatrième fleur!
 
-Lorsqu'il apparut dans l'espace de la quatrième fleur, il vit une fleur noire derrière lui. Un liquide sombre s'écoulait des pétales et, après d'innombrables années, ce liquide avait formé un océan noir sous la fleur.
+Lorsqu'il apparut dans l'espace de la quatrième fleur, il vit une fleur noire devant lui. Un liquide sombre s'écoulait des pétales et, après d'innombrables années, ce liquide avait formé un océan noir sous la fleur.
 
 Cet océan était parfaitement calme, sans vent ni vagues. Seule la fleur émergeait de cette étendue.
 
@@ -118,6 +118,6 @@ Elle n'avait que peu d'amis sur le Continent Astral Immortel. Même au sein de l
 
 On pouvait dire que Wang Lin était la première personne à l'avoir réellement aidée dans sa vie. Ce sentiment inédit lui causait une confusion mêlée d'émotion qu'elle ne parvenait pas à nommer.
 
-« Il m'a aidée une fois, je dois donc lui rendre la pareille... Je veux rentrer chez moi... Je me demande si Maître est toujours là... Et aussi ma petite sœur. Elle est plus talentueuse que moi... » La troisième concubine songeait en silence, envahie par le mal du pays.
+« Il m'a aidée une fois, je dois donc lui rendre la pareille... Je veux rentrer chez moi... Je me demande si mon maître est toujours là... Et aussi ma petite sœur. Elle est plus talentueuse que moi... » La troisième concubine songeait en silence, envahie par le mal du pays.
 
 Alors que Wang Lin pénétrait dans la tombe, à l'intérieur du palais où il avait obtenu son héritage, celui qui était Tuo Sen — ou Tu Si — ouvrit les yeux.

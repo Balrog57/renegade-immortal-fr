@@ -14,7 +14,7 @@ Cependant, le Dao était différent. Il était très rare que quelqu'un maîtris
 
 Une bataille de domaines était une confrontation entre les domaines respectifs et une lutte de l'esprit. En revanche, un sort Dao était un pouvoir sublime spécialisé dans la destruction de l'âme!
 
-Chacun acquiert une compréhension différente au sein du Royaume du Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan de l'Extermination des Sceaux, il eut le privilège d'entrer brièvement dans le Royaume du Dao. Là, il comprit une vérité sur les origines d'un être.
+Chacun acquiert une compréhension différente au sein du Royaume du Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan de l'Extermination Scellée, il eut le privilège d'entrer brièvement dans le Royaume du Dao. Là, il comprit une vérité sur les origines d'un être.
 
 Quelle était l'origine d'une personne? À ses yeux, c'étaient les souvenirs de l'âme. Il croyait que la vie entière d'un individu n'était en réalité qu'une succession de souvenirs. Si ces souvenirs n'étaient pas éteints, alors même si cette personne mourait, elle pourrait vivre indéfiniment...
 
@@ -78,7 +78,7 @@ Les yeux de Wang Lin trahirent une trace de confusion. Ne sachant que faire, il 
 
 En entendant cela, le corps de Wang Lin tressaillit. Il regarda son oncle puis son père. Sa vision se brouilla à nouveau et les scènes de son rêve semblèrent être agitées par une force étrange, surgissant l'une après l'autre dans son esprit.
 
-Il se vit sortir du village de montagne et échouer à l'épreuve. Sous les moqueries des siens, il quitta le village de ses propres forces pour se reposer sur une falaise. Un tigre l'attaqua soudainement par derrière et, alors qu'il chutait dans le vide, il fut aspiré dans une grotte mystérieuse.
+Il se vit sortir du village de montagne et échouer à l'épreuve. Sous les moqueries des siens, il quitta seul le village pour se reposer sur une falaise. Un tigre l'attaqua soudainement par derrière et, alors qu'il chutait dans le vide, il fut aspiré dans une grotte mystérieuse.
 
 À l'intérieur de la grotte, il ramassa une perle.
 
@@ -92,7 +92,7 @@ Cependant, ce cri fut remplacé par un gémissement misérable. C'était encore 
 
 En un instant, sa vision se troubla, comme si la puissance contrôlant ses propres souvenirs avait échappé à tout contrôle pour bondir plusieurs années en avant. Son environnement changea radicalement; il était en pleine fuite. La forêt apparut au coin de son regard. Il courait à une vitesse folle, le sentiment d'une crise de vie ou de mort emplissant son esprit.
 
-« Tu ne peux pas m'échapper, Teng Li! » Une voix lugubre retentit derrière lui alors qu'un jeune homme au regard glacial le poursuivait avec calme.
+« Entre les mains de Teng Li, tu ne pourras pas t'échapper! » Une voix lugubre retentit derrière lui alors qu'un jeune homme au regard glacial le poursuivait avec calme.
 
 Au plus fort de cette lutte pour la survie, la vision de Wang Lin devint soudainement floue tandis que le cri misérable résonnait dans ses oreilles. Le son devenait de plus en plus net, et il sentit qu'il était sur le point de se souvenir à qui appartenait cette voix!
 

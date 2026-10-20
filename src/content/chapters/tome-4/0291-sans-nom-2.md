@@ -9,7 +9,7 @@ slug: sans-nom-2
 
 Après avoir placé dix-huit nouveaux ensembles de restrictions différentes sur le drapeau, Wang Lin laissa échapper un soupir. Il avait déjà fait de son mieux. S'il souhaitait continuer, il lui faudrait étudier davantage de restrictions, en combinant les atouts de toutes les écoles; c'était l'unique moyen d'augmenter la proportion de restrictions purement offensives.
 
-Wang Lin avait déjà pris la décision d'apprendre davantage de restrictions à l'avenir. Dès sa première complétion, le drapeau était déjà si puissant qu'il brûlait d'impatience de voir ce qu'il deviendrait lors de sa seconde complétion. À ce stade, il pourrait probablement effrayer des cultivateurs de la Transformation de l'Âme.
+Wang Lin avait déjà pris la décision d'apprendre davantage de restrictions à l'avenir. Dès sa première complétion (quatre-vingt-dix-neuf ensembles de restrictions), le drapeau était déjà si puissant qu'il brûlait d'impatience de voir ce qu'il deviendrait lors de sa seconde complétion (neuf cent quatre-vingt-dix-neuf ensembles). À ce stade, il pourrait probablement effrayer des cultivateurs de la Transformation de l'Âme.
 
 En songeant à cela, Wang Lin fut transporté par l'excitation. Il rangea le drapeau achevé et sortit celui qui était endommagé. Après l'avoir examiné, il renonça à y placer la dernière restriction. L'usage principal de ce second drapeau serait d'invoquer la foudre de la rétribution divine.
 
@@ -35,7 +35,7 @@ Sans dire un mot, Wang Lin se cala dans la roche. Il déploya son Sens Divin pou
 
 Il vit le dragon rouge ouvrir la gueule et enrouler son corps. Lorsqu'il se détendit, il s'élança avec une vélocité fulgurante, fouettant son corps pour s'enrouler autour du crapaud. Ce dernier marqua un temps d'arrêt alors que le dragon tentait de l'encercler. Soudain, un éclat éblouissant jaillit du crapaud, illuminant toute la zone. Une fois la lumière dissipée, une sphère de foudre entourait la créature.
 
-Le dragon rouge poussa un rugissement et esquiva promptement, semblant terrifié par cette foudre. Wang Lin prit une profonde inspiration, stupéfait. Bien que l'éclair du crapaud ne parût pas extraordinaire, il lui avait procuré la même sensation qu'au premier contact avec la foudre de la rétribution divine. Ce crapaud pourrait bien être une bête désolée s'il était capable de tenir tête à un tel dragon.
+Le dragon rouge poussa un rugissement et esquiva promptement, semblant terrifié par cette foudre. Wang Lin prit une profonde inspiration, stupéfait. Bien que l'éclair du crapaud ne parût pas extraordinaire, il lui avait procuré la même sensation qu'au premier contact avec la foudre de la rétribution divine. Ce crapaud pourrait bien être une bête désolée s'il était capable de tenir tête à un tel dragon, celui qui avait parasité le dragon de trente-trois kilomètres.
 
 Il rejeta toutefois cette idée en voyant le crapaud descendre et se poser sur un rocher voisin, le regard empreint de désespoir. À vue d'œil, il ne semblait pas être une bête désolée; après tout, un combat entre deux créatures désolées ne se déciderait pas en une seule attaque.
 

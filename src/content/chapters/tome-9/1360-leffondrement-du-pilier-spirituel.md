@@ -52,7 +52,7 @@ Wang Lin leva les bras comme s'il soutenait le gigantesque lac de tonnerre. Une 
 
 Le lac de tonnerre semblable à un miroir gronda et un rugissement assourdissant en jaillit. Une tête de dragon gigantesque émergea des flots de foudre en poussant un cri féroce!
 
-Cette tête était immense, couverte d'écailles vertes, dégageant une aura terrifiante. Telle une créature démoniaque capable de détruire le monde, elle s'élança dans un fracas assourdissant!
+Cette tête était immense, couverte d'écailles vertes, dégageant une aura terrifiante. Telle une créature démoniaque de tonnerre capable de détruire le monde, elle s'élança dans un fracas assourdissant!
 
 Sa tête seule mesurait au moins 100 000 pieds. Tandis que les grondements de tonnerre résonnaient, le reste du corps du dragon surgit à son tour du lac!
 
@@ -72,7 +72,7 @@ Des craquements retentirent et des fissures apparurent sur la barrière. La stru
 
 Un tumulte éclata à l'intérieur de la formation. Les membres du Clan étaient stupéfaits, leurs yeux empreints de peur, de panique, mais surtout d'une incrédulité totale!
 
-« Le corps de votre Ancien en chef a péri et son âme originelle est entre mes mains. Même le tonnerre éternel de votre clan a fui pour revenir ici, et vous pensez qu'une simple formation défensive pourra m'arrêter? » La voix froide de Wang Lin, telle un coup de tonnerre, traversa la barrière pour frapper les oreilles des membres du Clan.
+« Le corps de votre Grand Ancien a péri et son âme originelle est entre mes mains. Même le tonnerre éternel de votre clan a fui pour revenir ici, et vous pensez qu'une simple formation défensive pourra m'arrêter? » La voix froide de Wang Lin, telle un coup de tonnerre, traversa la barrière pour frapper les oreilles des membres du Clan.
 
 À ces mots, leurs corps tremblèrent de choc!
 
@@ -106,7 +106,7 @@ Le Clan comptait onze personnes au stade du Fléau Céleste. À cet instant, sep
 
 Le dragon de tonnerre chargea au cœur du Clan. Les grondements résonnèrent et les expressions des cultivateurs qui tentaient de barrer la route de Wang Lin changèrent radicalement avant qu'ils ne reculent!
 
-« L'Ancien en chef reviendra bientôt, nous devons faire tout notre possible pour les retarder! »
+« Le Grand Ancien reviendra bientôt, nous devons faire tout notre possible pour les retarder! »
 
 « Dès son retour, ils seront sans aucun doute anéantis! »
 
@@ -114,6 +114,6 @@ Les yeux des membres du Clan étaient injectés de sang alors qu'ils se précipi
 
 Tout cela parce qu'ils refusaient d'admettre la défaite de leur chef. Ils étaient convaincus qu'une fois l'Ancien revenu, le Clan serait hors de danger!
 
-L'Ancien en chef était le pilier spirituel de tout le Clan du Tonnerre Dispersé!
+Le Grand Ancien était le pilier spirituel de tout le Clan du Tonnerre Dispersé!
 
 Wang Lin ricana. Tandis que le dragon avançait, il agita sa main droite et le Fouet de l'Âme apparut. Le fouet doré se déroula, révélant une âme originelle brisée. C'était l'âme du Grand Ancien du Clan du Tonnerre Dispersé!!!

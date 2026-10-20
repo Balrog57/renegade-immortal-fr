@@ -80,7 +80,7 @@ Wang Lin rit, prit la petite Zhou Ru dans ses bras, puis tourna son regard vers 
 
 Tie Yan se redressa et dit respectueusement: « Salutations, bienfaiteur. »
 
-Wang Lin déclara: « Tie Yan, tu es sur le point d'atteindre le stade de Formation de l'Âme. Va à la capitale de Chu et vis là-bas pour découvrir le monde. Tu atteindras certainement ce stade dans trois ans! »
+Wang Lin déclara: « Tie Yan, tu es sur le point d'atteindre le stade de Formation de l'Âme. Va à la capitale de Chu et vis là-bas pour méditer sur la vie. Tu atteindras certainement ce stade dans trois ans! »
 
 Bien que son visage restât impassible, ses mains se mirent à trembler: « Vraiment... D'accord! » Il regarda Zhou Ru, puis les environs, avant de serrer les dents et de disparaître.
 

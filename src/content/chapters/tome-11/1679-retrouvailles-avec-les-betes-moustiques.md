@@ -16,7 +16,7 @@ En effet, le Maître du Dao Rêve Bleu pouvait entrer dans la Tribulation Arcane
 
 Li Qianmei disparut dans le Royaume Extérieur avec son père. Après leur départ, la lumière bleue à l'extérieur de la formation se dissipa lentement et le système stellaire redevint sombre.
 
-Lorsqu'elle partit, Li Qianmei était très heureuse. Son sourire était identique à celui d'autrefois. Elle se retournait parfois vers Wang Lin, le regard infiniment tendre. C'était l'homme qu'elle avait choisi. Elle ne l'avait pas regretté auparavant et elle ne le regretterait pas maintenant. Même si elle devait mourir pour cela, elle n'aurait aucun regret.
+Lorsqu'elle partit, Li Qianmei était très heureuse. Son sourire était identique à celui d'autrefois. Elle se retournait parfois vers Wang Lin, le regard infiniment tendre. C'était l'homme qu'elle avait choisi. Elle ne l'avait pas regretté auparavant, elle ne reculerait pas maintenant et ne le regretterait pas davantage. Même si elle devait mourir pour cela, elle n'aurait aucun regret.
 
 Telle était la personnalité de Li Qianmei.
 
@@ -96,9 +96,9 @@ Chacun de ces deux groupes comptait plus de dix mille individus et, au fil du co
 
 Ce groupe de bêtes moustiques était, en réalité, indemne!
 
-En un instant, l'essaim qui subissait de lourdes pertes poussa des cris lugubres et se retira en déroute. Le groupe de moustiques féroces s'élança pour les encercler. Une bête moustique géante et dorée d'environ mille pieds de long, aussi imposante qu'une petite montagne, surgit d'un pic lointain.
+En un instant, l'essaim qui subissait de lourdes pertes poussa des cris lugubres et se retira en déroute. Le groupe de moustiques féroces s'élança pour les encercler. Une bête moustique géante et dorée d'environ cent pieds de long, aussi imposante qu'une petite montagne, surgit d'un pic lointain.
 
-Dès son apparition, une pression écrasante se propagea. Elle paraissait féroce, dotée d'une trompe acérée de plusieurs centaines de pieds de long. Sa présence marquait l'arrivée d'un roi.
+Dès son apparition, une pression écrasante se propagea. Elle paraissait féroce, dotée d'une trompe acérée de plusieurs dizaines de pieds de long. Sa présence marquait l'arrivée d'un roi.
 
 La bête géante se précipita sur le groupe en retraite. Elle ravagea tout sur son passage avec une férocité extrême. Des cris de détresse résonnèrent et, en quelques instants seulement, plus d'un millier de moustiques périrent.
 

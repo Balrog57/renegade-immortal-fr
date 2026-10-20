@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1385 - Frightened Bird (2)
 slug: oiseau-effraye-2
 ---
-Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan des Scorpions Noirs. La culture de Zhong Grand Rouge étant insuffisante et ignorant l'identité de Cupidité, il vomit directement.
+Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan du Scorpion Noir. La culture de Zhong Grand Rouge étant insuffisante et ignorant l'identité de Cupidité, il vomit directement.
 
 Ce vomissement rendit l'expression de Cupidité extrêmement sombre. D'un revers de manche, il fit apparaître un grand éventail qui se mit à briller avant de s'élancer violemment vers l'avant.
 
 Des grondements tonitruants résonnèrent tandis que la terre tremblait et que les montagnes s'effondraient. Même la grotte de Wang Lin fut anéantie.
 
-Les membres du Clan des Scorpions Noirs ne purent résister à ce souffle et crachèrent du sang, projetés impitoyablement en arrière comme des feuilles mortes dans la tempête. Le Patriarche du Clan des Scorpions lutta amèrement, mais il fut incapable de résister et se vit lentement repoussé.
+Les membres du Clan du Scorpion Noir ne purent résister à ce souffle et crachèrent du sang, projetés impitoyablement en arrière comme des feuilles mortes dans la tempête. Le Patriarche du Clan du Scorpion Noir lutta amèrement, mais il fut incapable de résister et se vit lentement repoussé.
 
 La terre s'effondra et le ciel sembla se déchirer. L'homme nommé Zhang cracha du sang avant de sombrer dans le coma; projeté au loin, il disparut sans laisser de trace. La puissance de l'éventail stupéfia tous les cultivateurs présents!
 
@@ -22,17 +22,17 @@ Cupidité fixa Zhong Grand Rouge et demanda lentement: « Puant? »
 
 « Pas puant, pas puant... » L'esprit de Zhong Grand Rouge tremblait, mais il s'efforça d'endurer l'odeur. Craignant que cet homme ne le croie, il prit une profonde inspiration et fit semblant d'être en extase devant le sortilège. Cependant, ce geste fut comme « dessiner des pieds sur un serpent » — une maladresse inutile qui le fit vomir une fois de plus.
 
-Voyant l'intention meurtrière dans les yeux de Cupidité, Zhong Grand Rouge s'efforça de hurler: « La culture de mon maître défie le ciel! Si vous me tuez, vous mourrez sans aucun doute! Même le Patriarche du Clan des Scorpions ne peut résister à un seul coup de mon maître. Bien que votre niveau de culture soit élevé, vous n'êtes pas son égal! »
+Voyant l'intention meurtrière dans les yeux de Cupidité, Zhong Grand Rouge s'efforça de hurler: « La culture de mon maître défie le ciel! Si vous me tuez, vous mourrez sans aucun doute! Même le Patriarche du Clan du Scorpion Noir ne peut résister à un seul coup de mon maître. Bien que votre niveau de culture soit élevé, vous n'êtes pas son égal! »
 
 Cupidité ricana.
 
-À ce moment crucial entre la vie et la mort, Zhong Grand Rouge joua le tout pour le tout et rugit: « Mon maître est en route et peut revenir à tout instant! Si vous osez me toucher, vous mourrez sans aucun doute! Le Clan des Scorpions Noirs est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous! »
+À ce moment crucial entre la vie et la mort, Zhong Grand Rouge joua le tout pour le tout et rugit: « Mon maître est en route et peut revenir à tout instant! Si vous osez me toucher, vous mourrez sans aucun doute! Le Clan du Scorpion Noir est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous! »
 
 « Sa culture défie le ciel? Si vous n'aviez rien dit, cela aurait été une chose, mais maintenant, ce vieil homme devra voir de quel pouvoir dispose votre maître. Puisque l'esclave a offensé ce vieil homme, le maître est également coupable. Quiconque franchit ma limite doit mourir! »
 
 Cupidité agita la main droite et une vague d'énergie originelle s'engouffra dans le corps de Zhong Grand Rouge. Ce dernier cracha du sang comme si son corps entier allait se briser, puis s'effondra non loin de là.
 
-« Si vous étiez membres du Clan des Scorpions Noirs, il serait regrettable de vous tuer tous les deux, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Cupidité déchaîna une bourrasque monumentale qui balaya tous les membres du Clan des Scorpions Noirs hors de la planète.
+« Si vous étiez membres du Clan du Scorpion Noir, il serait regrettable de vous tuer tous les deux, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Cupidité déchaîna une bourrasque monumentale qui balaya tous les membres du Clan du Scorpion Noir hors de la planète.
 
 Après cela, il agita à nouveau sa manche et s'adressa avec arrogance au Clan de l'Évasion Nuageuse: « Tous, accompagnez ce vieil homme et attendez le retour de cet esclave. Je vais vous montrer la puissance de mes trésors! »
 

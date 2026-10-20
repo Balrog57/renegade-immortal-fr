@@ -32,7 +32,7 @@ L'expression de Wang Lin se glaça alors qu'il laissait échapper un rire: « Ou
 
 Le corps de Sun Youcai s'immobilisa soudainement. Il força un sourire et dit: « Frère Ma... »
 
-Avant qu'il n'ait pu achever sa phrase, des grondements de vent et de tonnerre retentirent au loin, accompagnés d'une épée noire. En un clin d'œil, l'arme arriva à leur hauteur. Lorsque la lumière se dissipa, elle révéla un homme d'âge moyen, svelte, dont le regard rayonnait de cruauté.
+Avant qu'il n'ait pu achever sa phrase, des grondements de vent et de tonnerre retentirent au loin, accompagnés d'une épée noire. En un clin d'œil, l'arme arriva à leur hauteur. Lorsque la lumière se dissipa, elle révéla un homme d'âge moyen, maigre, au visage sinistre, dont le regard trahissait une froideur impitoyable.
 
 Cet homme était vêtu de noir intégral. Même l'épée volante sous ses pieds émettait une lueur sombre. Ses deux mains étaient enveloppées de brume noire. Sans même accorder un regard à Wang Lin, il demanda à Sun Youcai: « Est-ce lui, le mouton gras? »
 

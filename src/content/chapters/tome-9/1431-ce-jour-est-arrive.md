@@ -32,7 +32,7 @@ L'onde de choc destructrice créée par la collision entre le bec de l'Oiseau Ve
 
 Une douleur intense envahit son corps alors qu'il arrachait l'armure qui avait déjà fusionné avec sa chair. L'armure émit une lueur grise et se transforma soudainement en une paume gigantesque!
 
-« Comment l'Ancienne Ombrelle Brûlante du Royaume pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, elle est amplement suffisante pour rivaliser avec une ombrelle pas encore entièrement ouverte! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
+« Comment l'Ancienne Ombrelle Brûlante du Royaume pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, c'est un trésor des temps les plus reculés, elle est amplement suffisante pour rivaliser avec une ombrelle pas encore entièrement ouverte! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
 
 Elle était d'une rapidité extrême et semblait couvrir tout le ciel, égalant presque la taille du bec de l'Oiseau Vermillon. En balayant le firmament, elle s'apprêtait à percuter l'ombrelle antique.
 
@@ -90,7 +90,7 @@ Dès que le gantelet apparut, la paume s'abattit dessus dans un fracas de tonner
 
 La planète entière fut déchirée! D'immenses fissures parcoururent sa surface. Elle ressemblait à une bulle d'eau éclatée, se désintégrant instantanément!
 
-Wang Lin fut projeté en arrière et heurta le centre de la planète. Il traversa le cœur du monde effondré pour ressortir de l'autre côté! Il reculait frénétiquement; son corps était au bord de l'effondrement et son âme originelle était affaiblie.
+Wang Lin fut projeté en arrière et heurta le centre de la planète. Il traversa le cœur du monde effondré pour ressortir de l'autre côté, dans le ciel étoilé du Système Stellaire Antique! Il reculait frénétiquement; son corps était au bord de l'effondrement et son âme originelle était affaiblie.
 
 Heureusement, il possédait un corps d'Ancien Dieu; autrement, seul l'impact aurait suffi à le tuer!
 
@@ -98,7 +98,7 @@ Malgré cela, il avait réussi à bloquer directement un coup du Souverain!
 
 « Toujours pas mort!! » Le Souverain traversa l'espace et projeta de nouveau sa main droite. Une autre paume fut lancée vers Wang Lin avec une vitesse et une force encore plus grandes!
 
-L'expression de Wang Lin devint féroce alors qu'il levait la main gauche pour pointer son bras droit. Il rugit: « Sortilège de sauvetage d'Ancien Dieu à 8 étoiles, Bénédiction Ancienne!! »
+L'expression de Wang Lin devint féroce alors qu'il posait la main gauche sur le gantelet de son bras droit. Il rugit: « Sortilège de sauvetage d'Ancien Dieu à 8 étoiles, Bénédiction Ancienne!! »
 
 La puissance d'Ancien Dieu à l'intérieur de Wang Lin se précipita dans le gantelet à une vitesse fulgurante. Tandis que ses paroles résonnaient, une puissante aura d'Ancien Dieu apparut parmi les étoiles!
 
@@ -128,9 +128,9 @@ Une lueur glaciale passa dans les yeux de Wang Lin. Il aurait dû choisir la fui
 
 Le Souverain sortit un trésor inconnu pour bloquer l'épée de sang, la repoussant. Wang Lin soupira. Ses blessures étaient trop lourdes; il ne tenait plus qu'à un fil. S'il perdait ce dernier souffle, il s'effondrerait instantanément. À cet instant, il saisit son épée de sang et s'échappa sans attendre.
 
-Cependant, juste au moment où Wang Lin allait utiliser la Distorsion Spatiale pour fuir, la voix affaiblie du Souverain résonna à travers le monde. Lorsque ces mots atteignirent les oreilles de Wang Lin, il se figea net.
+Cependant, juste au moment où Wang Lin allait utiliser la Déformation Spatiale pour fuir, la voix affaiblie du Souverain résonna à travers le monde. Lorsque ces mots atteignirent les oreilles de Wang Lin, il se figea net.
 
-« Wang Lin... Wang Lin, tu es audacieux, cruel, décisif et rusé! Veux-tu devenir mon soldat? Si tu acceptes, je peux ressusciter ta femme!! Pas seulement éveiller son âme, mais la ressusciter complètement!!! »
+« Wang Lin... Wang Lin, tu es audacieux et méticuleux, cruel, décisif et rusé! Veux-tu devenir mon soldat? Si tu acceptes, je peux ressusciter ta femme!! Pas seulement éveiller son âme, mais la ressusciter complètement!!! »
 
 L'esprit de Wang Lin bourdonna comme s'il venait d'être frappé par la foudre. La folie se lut dans ses yeux alors qu'il fixait l'homme d'âge moyen qui se tenait la poitrine.
 

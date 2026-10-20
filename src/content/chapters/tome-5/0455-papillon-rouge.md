@@ -40,7 +40,7 @@ Wang Lin laissa échapper un rire en se retournant pour observer l'innombrable n
 
 Cependant, sitôt qu'il réapparut, les épées du trésor qui étaient sur le point de le rattraper libérèrent un éclat aveuglant et comblèrent instantanément la distance.
 
-Un grondement tonnerre résonna dans la tombe, et l'aura de destruction qui avait accompagné l'effondrement de la sépulture sembla ressurgir.
+Un grondement de tonnerre se répandit sur toute la terre, et l'aura de destruction qui avait accompagné l'effondrement du Cristal de la Planète de Culture sembla ressurgir.
 
 Alors que les deux rayons de lumière s'enfuyaient à toute allure, Wang Lin les reconnut immédiatement. L'un était un homme, l'autre une femme. Rien qu'à la forme de ses oreilles, il sut qu'il s'agissait de Zhou Wutai. Quant à la femme, elle portait un voile violet. Les yeux de Wang Lin pétillèrent en la reconnaissant également.
 
@@ -48,7 +48,7 @@ Bien qu'il soit traqué par une armée d'épées, l'expression de Wang Lin demeu
 
 Le visage de Zhou Wutai se décomposa tandis qu'il grommelait: « Quelle malchance! » Il fit mine de ne pas entendre Wang Lin et accéléra encore davantage.
 
-Quant à la femme, dès qu'elle aperçut Wang Lin, son visage fut envahi par la terreur et elle s'enfuit promptement.
+Quant à la femme, dès qu'elle aperçut Wang Lin, son regard trahit une pointe de crainte et elle s'enfuit promptement.
 
 C'est ainsi que les deux individus filaient devant, avec Wang Lin à leurs trousses, suivi d'une mer d'épées. La lame en forme de demi-lune surgissait par intermittence, projetant des ondes d'énergie tranchante.
 
@@ -58,13 +58,13 @@ La lame en forme de demi-lune était singulière. Grâce à son Sens Divin, il r
 
 Les trois individus volaient à leur vitesse maximale. Après le temps de brûler trois bâtons d'encens, la limite de la zone des bassins apparut à l'horizon. Les yeux de Wang Lin s'illuminèrent et il utilisa immédiatement la téléportation. Lorsqu'il réapparut, il se trouvait déjà à la lisière de la zone. Dès son apparition, il s'élança sans marquer la moindre pause.
 
-Zhou Wutai hésita un instant avant de suivre Wang Lin. La femme, elle, choisit aussitôt une autre direction et de se séparer de Zhou Wutai.
+Zhou Wutai hésita un instant avant de suivre Wang Lin. La femme, elle, choisit aussitôt une autre direction et se sépara de Zhou Wutai.
 
 Toutes les épées du trésor s'arrêtèrent là; seule la lame en forme de demi-lune poursuivit sa course, sortant de la zone des bassins sans ralentir.
 
 Une fois hors de cette zone, la vitesse de la lame explosa soudainement. La force mystérieuse qui la freinait semblait s'être affaiblie, lui permettant d'atteindre une célérité inimaginable.
 
-En un clin d'œil, la lame passa devant Zhou Wutai pour foncer sur Wang Lin.
+En un clin d'œil, la lame passa à côté de Zhou Wutai pour foncer sur Wang Lin.
 
 Le front de Zhou Wutai fut couvert de sueur froide. La lame l'avait tellement dépassé qu'il ne l'avait même pas sentie; il n'avait perçu qu'un vent violent et vu un point noir disparaître à l'horizon.
 
@@ -72,13 +72,13 @@ Le front de Zhou Wutai fut couvert de sueur froide. La lame l'avait tellement d�
 
 Pendant que Wang Lin s'échappait, il dut ralentir car, après avoir quitté la zone des bassins, les failles spatiales commençaient à apparaître de plus en plus fréquemment. Après avoir passé un certain temps à les esquiver, il choisit de s'arrêter au sommet d'une montagne.
 
-En regardant au loin, il aperçut une montagne émettant une lueur arc-en-ciel. Elle ressemblait trait pour trait à la montagne spirituelle que Situ Nan lui avait décrite.
+En regardant au loin, il distingua vaguement une montagne émettant une lueur arc-en-ciel. Elle ressemblait trait pour trait à la montagne spirituelle que Situ Nan lui avait décrite.
 
 Presque instantanément après son arrêt, un rugissement tonitruant déferla depuis le lointain. Wang Lin, déjà sur ses gardes, se téléporta immédiatement à 3,3 kilomètres de là. Dans un fracas, la montagne où il se trouvait s'effondra. Un éclair bleu jaillit des décombres: la lame en forme de demi-lune venait d'en sortir.
 
 Simultanément, un message divin émana de la lame:
 
-« Laisse-le... ici! »
+« Laisse-le... »
 
 Le corps de Wang Lin disparut de nouveau, mais cette fois, il ressentit une vive douleur au bras gauche. Lorsqu'il réapparut à 3,3 kilomètres, sa manche avait disparu et une blessure béante était apparue.
 
@@ -88,7 +88,7 @@ En conséquence, chaque fois que Wang Lin se téléportait, un éclair bleu trav
 
 La lame en forme de demi-lune semblait avoir sombré dans la folie pour traquer Wang Lin.
 
-Dans un éclair, Wang Lin se téléporta à cinquante kilomètres et se déplaça immédiatement sur le côté. Une faille apparut silencieusement là où il se trouvait l'instant d'avant.
+Dans un éclair, Wang Lin se téléporta à cinquante kilomètres et se déplaça immédiatement sur le côté. Une faille s'ouvrit silencieusement à son côté, en forme d'arc.
 
 Juste après sa téléportation, un éclat bleu balaya son ancienne position. Tout sur la trajectoire de cette lumière fut détruit: montagnes, terre, et même certaines des failles qui s'étaient formées furent pulvérisées.
 

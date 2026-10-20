@@ -74,9 +74,9 @@ Bien que la puissance du gaz gris fût forte au début, il pouvait encore y rés
 
 Ce sentiment était très étrange, et il découlait de plus de mille ans passés par Wang Lin à comprendre les lois célestes.
 
-Après avoir réfléchi un moment, les yeux de Wang Lin s'illuminèrent et il frappa son sac de stockage. Le drapeau d'âme apparut dans sa main et s'ouvrit dans un bruissement. La main gauche de Wang Lin plongea à l'intérieur pour en extraire un fragment d'âme.
+Après avoir réfléchi un moment, les yeux de Wang Lin s'illuminèrent et il frappa son sac de stockage. L'Étendard de l'Âme apparut dans sa main et s'ouvrit dans un bruissement. La main gauche de Wang Lin plongea à l'intérieur pour en extraire un fragment d'âme.
 
-Ce fragment d'âme arborait une expression féroce, mais il avait depuis longtemps perdu sa volonté après avoir été raffiné dans le drapeau d'âme. Il flotta respectueusement devant Wang Lin. Ce dernier rangea le drapeau et pointa l'espace entre les sourcils du fragment d'âme, y laissant une parcelle de son sens divin.
+Ce fragment d'âme arborait une expression féroce, mais il avait depuis longtemps perdu sa volonté après avoir été raffiné dans l'Étendard de l'Âme. Il flotta respectueusement devant Wang Lin. Ce dernier rangea l'étendard et pointa l'espace entre les sourcils du fragment d'âme, y laissant une parcelle de son sens divin.
 
 Une fois cela fait, il s'élança en avant. Quinze minutes plus tard, il se trouvait très loin du fragment d'âme. Il prit une profonde inspiration mais ne déploya pas son sens divin. Au lieu de cela, il mit sa pensée en mouvement!
 

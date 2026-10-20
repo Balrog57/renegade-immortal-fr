@@ -56,7 +56,7 @@ Face à la question de Zhao Xingsha, Wang Lin demanda calmement: « Qui est Sun 
 
 À ces mots, les visages de l'assistance changèrent instantanément. Zhao Xingsha fixa Wang Lin un moment avant de dire: « Septième frère, tu as tort. Ton frère aîné ne peut rien pour toi ici! » Sur ce, il relâcha l'homme d'âge moyen.
 
-En une seule enjambée, l'homme franchit près de 330 mètres pour s'arrêter à 33 mètres de Wang Lin. Il se dressa devant lui et cracha: « Déchet d'une planète de culture stérile, aujourd'hui, je vais te montrer ce qu'est un véritable sort! »
+En une seule enjambée, l'homme franchit près de 330 mètres pour s'arrêter à 33 mètres de Wang Lin. Il se dressa devant lui et cracha: « Cultivateur autochtone d'une planète de culture stérile, aujourd'hui, je vais te montrer ce qu'est un véritable sort! »
 
 Une aura meurtrière émanait de cet homme. Wang Lin le dévisagea et posa la main sur son sac de rangement.
 
@@ -88,7 +88,7 @@ Wang Lin esquissa un sourire moqueur, retira promptement son pouce et effleura s
 
 Dans un grand « pa », le fouet frappa l'homme d'âge moyen. Son visage devint livide; son âme originelle fut presque arrachée de son corps et sa lumière dorée disparut totalement.
 
-Comprenant qu'un troisième coup approchait, l'homme recula précipitamment sur plus d'une centaine de mètres.
+Comprenant qu'un troisième coup approchait, l'homme recula précipitamment sur plus d'une centaine de mètres. Le visage sombre, il s'écria: « Quel est ce trésor magique?!!! »
 
 Wang Lin le fixa avec un sourire ténu: « Il reste encore une attaque! »
 
@@ -118,7 +118,7 @@ Wang Lin recula d'un pas, les yeux étincelants. Il agita la main et le piège �
 
 Une intention meurtrière envahit le regard de Wang Lin. Cet adversaire avait commencé par cette fameuse technique interdite; elle était extrêmement puissante, et sans la multitude de trésors dont disposait Wang Lin, il n'aurait pu tenir tête.
 
-La brume noire chargea Wang Lin avec acharnement. L'épée céleste, toujours dans les airs, plongea vers le nuage, suivie de près par la lame en demi-lune. En un instant, l'épée traversa la masse sombre.
+La brume noire chargea Wang Lin avec acharnement. L'épée céleste, toujours dans les airs, plongea vers le nuage, suivie de près par la lame en demi-lune. En un instant, l'épée et la lame traversèrent la masse sombre.
 
 Un reniflement glacial émana de l'homme caché au sein de la brume. Ignorant l'épée et la lame, il fonça droit sur Wang Lin.
 

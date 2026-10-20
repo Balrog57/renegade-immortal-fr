@@ -34,7 +34,7 @@ Wang Lin envoya une commande mentale, et le Gardien Céleste derrière lui se tr
 
 Le mouvement de la marionnette fit sombrer l'expression du vieil homme.
 
-Peu après, le Gardien Céleste revint, tenant une bête féroce entre ses mains. La créature paraissait extrêmement sauvage, son corps couvert d'épines, et elle tenait dans sa gueule la moitié d'un bras de mortel. Apparemment, elle était en train de manger lorsque le Gardien Céleste l'avait capturée.
+Peu après, le Gardien Céleste revint, tenant une bête féroce entre ses mains. La créature paraissait extrêmement sauvage, son corps couvert d'épines, et, au coin de sa gueule, pendait encore la moitié d'un bras de mortel. Apparemment, elle était en train de manger lorsque le Gardien Céleste l'avait capturée.
 
 Les deux doigts de la main droite de Wang Lin formèrent une épée. Il n'avait pas utilisé l'Art du Massacre Céleste depuis longtemps. Les innombrables brins d'énergie de massacre qu'il avait condensés autrefois résidaient dans la marionnette, mais ils avaient tous été consommés lors d'une bataille.
 
@@ -54,9 +54,9 @@ Avec son niveau de culture, il put presque immédiatement percer les secrets de 
 
 Bien qu'il ne fût pas très puissant, ce sort pouvait être utilisé de multiples fois et stocké.
 
-« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait des milliards de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
+« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait des centaines de millions de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
 
-Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. La crédibilité de l'apprentissage auprès d'un senior briseur de Nirvana avait une certaine crédibilité.
+Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. Ses propos sur l'apprentissage auprès d'un senior briseur de Nirvana paraissaient assez crédibles.
 
 Cependant, ce sort du troisième œil était un héritage familial; il ne pouvait donc pas être enseigné ainsi à des étrangers. L'origine de la technique était inconnue, semblant provenir d'une acquisition fortuite de ses ancêtres.
 
@@ -70,7 +70,7 @@ Le sceau de vie dans la main du vieil homme se dissipa en un gaz gris, provoquan
 
 En voyant Wang Lin disparaître à l'horizon, l'expression du vieil homme changea radicalement. Il serra les dents et cria: « Confrère, arrête! Je l'échange contre l'Art du Massacre Céleste, ainsi que le Doigt de la Mort et le Doigt Démoniaque! »
 
-Wang Lin s'arrêta. La Bête du Tonnerre poussa un rugissement et fit volte-face, s'immobilisant à cent pieds du vieil homme. Des éclairs s'échappaient de son museau et ses yeux étaient empreints de mépris.
+Wang Lin s'arrêta. La Bête du Tonnerre, dotée d'intelligence, fit volte-face, s'immobilisant à cent pieds du vieil homme. Des éclairs s'échappaient de son museau et ses yeux étaient empreints de mépris.
 
 Le vieil homme serra les dents et dit: « Marché conclu. Ce vieil homme accepte l'échange, mais tu dois promettre de ne pas le divulguer! »
 

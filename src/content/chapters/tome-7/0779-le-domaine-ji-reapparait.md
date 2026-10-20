@@ -44,7 +44,7 @@ Il recula sans réfléchir et, dans sa retraite, se fondit dans les environs. L'
 
 Simultanément, la formation à l'entrée s'ouvrit. Wang Lin saisit Li Yuan et s'élança hors du tunnel. Ils n'eurent même pas le temps de refermer l'entrée avant de disparaître dans le vide.
 
-Wang Lin et Li Yuan réapparurent à plus de 5 000 kilomètres de là sur le même fragment. Le corps de Wang Lin trembla et son visage pâlit. Il ouvrit la bouche pour cracher un grain de sable. Ce grain grossit instantanément pour devenir un sceau géant surplombant les deux hommes, dégageant des ondes de pression écrasantes.
+Wang Lin et Li Yuan réapparurent à plus de 5 000 kilomètres de là. Le corps de Wang Lin trembla et son visage pâlit. Il ouvrit la bouche pour cracher un grain de sable. Ce grain grossit instantanément pour devenir un sceau géant surplombant les deux hommes, dégageant des ondes de pression écrasantes.
 
 Wang Lin s'assit immédiatement en position du lotus et leva sa main droite. L'os de bête du dos de sa main apparut, tournant autour de lui en dégageant une lueur démoniaque.
 
@@ -102,7 +102,7 @@ Mais ses yeux brillèrent d'une lueur particulière et il retira sa main.
 
 « Si je me contentais d'expulser le Royaume Ji, ce serait un tel gâchis. Il vaut mieux le garder en moi; il pourrait bien me sauver la vie à un moment crucial! » Wang Lin réfléchit un instant en observant son âme originelle. La trace du Royaume Ji l'obligerait à consommer énormément d'énergie originelle pour la maintenir sous contrôle.
 
-Mais comparée à l'énergie originelle, la valeur de ce Royaume Ji était inestimable. Le cœur de Wang Lin manqua un battement alors qu'il prenait sa décision après une courte réflexion.
+Mais comparée à l'énergie originelle, la valeur de ce Royaume Ji était inestimable. Le cœur de Wang Lin s'emballa alors qu'il prenait sa décision après une courte réflexion.
 
 Il se leva et rangea son trésor. À cet instant précis, il sentit une secousse provenant du sol. Ce tremblement émanait du tunnel situé à 5 000 kilomètres de là.
 

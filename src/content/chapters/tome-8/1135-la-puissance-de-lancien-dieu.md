@@ -70,7 +70,7 @@ Alors qu'un grondement tonnerreux retentissait, le bras de l'Ancien Dieu fut ino
 
 « Tu es digne de ce nom d'Ancien Dieu Royal à 8 étoiles, celui qui transcende les lois et que seuls les cultivateurs du Vide du Nirvana peuvent combattre. J'ai autrefois participé à la mort d'un Ancien Dieu ordinaire à 8 étoiles, et la différence est celle du ciel et de la terre! »
 
-Le vieil homme recula, et la rougeur de son visage s'effaça pour laisser place à une pâleur extrême. Cependant, ses yeux brillaient comme la lune et étaient empreints d'une intention de combat féroce.
+Le vieil homme recula, et la rougeur de son visage s'effaça pour laisser place à une pâleur extrême. Cependant, ses yeux brillaient comme la lune et étaient empreints d'une intention de combat.
 
 Après avoir reculé de sept pas, le vieil homme redressa brusquement la tête et s'élança en avant. Il utilisa le bras de l'Ancien Dieu comme tremplin pour bondir vers le visage de Tuo Sen!
 
@@ -82,7 +82,7 @@ Seul Wang Lin fixait Tuo Sen, et plus particulièrement l'étoile située sur so
 
 « Enterrer le vide pour affiner les étoiles! »
 
-« Déchets! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Déformation Spatiale et encerclèrent instantanément le vieil homme. Ses deux mains étaient comme deux planètes de culture s'écrasant sur lui.
+« Déchets! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Déformation Spatiale et encerclèrent instantanément le vieil homme. Ses deux bras étaient comme deux planètes de culture s'écrasant sur lui.
 
 Le visage du vieil homme devint à nouveau pourpre et ses vêtements gonflèrent. Il écarta ses bras gauche et droit dans un rugissement, faisant condenser une énergie originelle infinie devant lui. Des glaciers apparurent soudainement, suivis d'une mer de flammes. Puis, par-delà cela, d'innombrables montagnes surgirent, suivies d'un tonnerre infini...
 
@@ -92,4 +92,4 @@ Ces innombrables sorts apparurent en un instant, se superposant les uns aux autr
 
 Cependant, ces sorts ne firent qu'interrompre momentanément le mouvement de l'Ancien Dieu, ce qui permit au vieil homme en noir de sortir de la portée de ses bras et de charger vers la tête de Tuo Sen.
 
-« Maître Wuji! Si vous refusez toujours de paraître, ne blâmez pas ce vieil homme de ne pas tenir sa promesse! Auriez-vous oublié notre accord?! » hurla le vieil homme en noir en s'élançant.
+« Maître Wuji! Si vous refusez toujours de paraître, ne blâmez pas ce vieil homme de ne pas tenir sa promesse! Vous vous cachez ici, auriez-vous oublié notre accord?! » hurla le vieil homme en noir en s'élançant.

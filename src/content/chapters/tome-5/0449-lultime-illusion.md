@@ -11,7 +11,7 @@ Un grondement sourd émana du parchemin, suivi d'une immense volute de gaz gris.
 
 Le paon poussa un cri; un cri si cristallin qu'il aurait pu ébranler les cieux. Il leva ensuite sa tête fière et déploya sa magnifique queue. Les plumes septicolores de son plumage diffusèrent une lueur démoniaque tandis que son domaine impitoyable se projeta vers l'avant.
 
-À cet instant, une autre couleur apparut sous le parchemin de la vie et de la mort. Cette impitoyabilité pouvait rendre la glace plus froide encore et forcer les quatre saisons à changer instantanément.
+À cet instant, un autre domaine apparut sous le parchemin de la vie et de la mort. Cette impitoyabilité pouvait rendre la glace plus froide encore et forcer les quatre saisons à changer instantanément.
 
 Wang Lin ressentit cette froideur au cœur de la vallée; c'était l'impitoyabilité, une indifférence naturelle. À ce moment précis, le paon n'était qu'une illusion; celle qui contemplait réellement le dragon était Liu Mei.
 
@@ -49,7 +49,7 @@ Wang Lin déclara froidement: « Ce qui doit disparaître disparaîtra naturelle
 
 À cet instant, un point rose apparut sur le parchemin et se mua en une silhouette charmante. Cette figure n'était pas Li Muwan, mais celle que Xu Liguo appelait sans cesse la « petite sœur fée ».
 
-La troisième ancêtre du Clan des Immortels Délaissés s'était réincarnée en cultivatrice et avait obtenu son propre domaine; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à sa culture et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
+La troisième ancêtre du Clan des Immortels Délaissés s'était réincarnée en cultivatrice et avait obtenu son propre domaine; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à son domaine et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
 
 Après l'avoir capturée, Wang Lin l'avait conservée dans son sac de rangement. C'était là le véritable atout de Wang Lin contre Liu Mei.
 
@@ -93,9 +93,9 @@ Le paon commença à émettre une fumée rosée, puis son corps trembla une dern
 
 Cependant, les yeux de Wang Lin demeuraient froids. Que Mei Ji réussisse à prendre le contrôle de Liu Mei ou que cette dernière accomplisse son ultime illusion n'avait aucune importance pour lui.
 
-Il n'y avait ni rancune ni haine profonde entre eux; leur relation était simplement complexe. S'il n'avait pas eu pour seule motivation de contrer les provocations incessantes de Liu Mei, il n'aurait probablement pas fait appel à Mei Ji.
+Il n'y avait ni rancune ni haine profonde entre eux; leur relation était simplement complexe. Si Liu Mei n'avait pas insisté pour se battre, il n'aurait probablement pas fait appel à Mei Ji.
 
-Bien qu'il exauçât le souhait de Liu Mei, elle avait raison: utiliser un domaine de luxure pour briser son domaine impitoyable était d'une bassesse absolue.
+Liu Mei avait raison: utiliser un domaine de luxure pour briser son domaine impitoyable était d'une bassesse absolue.
 
 Mais Wang Lin ne s'en souciait guère. Il reprit sa marche.
 

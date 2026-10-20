@@ -52,7 +52,7 @@ Une rumeur disait qu'il avait été secrètement entraîné par Suzaku et qu'il 
 
 Une autre rumeur affirmait qu'il était le disciple d'une puissance occulte et que son talent surpassait de loin celui de Papillon Rouge. On disait également qu'au sein de cette force secrète résidaient de nombreux cultivateurs bien plus puissants que Ceng Niu, raison pour laquelle Suzaku n'osait pas s'en prendre à lui.
 
-De plus, des rumeurs plus insensées encore prétendaient que Ceng Niu n'avait même pas pratiqué la culture pendant soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Papillon Rouge elle-même.
+De plus, des rumeurs plus insensées encore prétendaient que Ceng Niu ne pratiquait la culture que depuis moins de soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Papillon Rouge elle-même.
 
 Les histoires et les légendes de ce genre étaient légion.
 
@@ -140,4 +140,4 @@ Wang Lin la regarda et dit: « Dix ans se sont écoulés depuis notre séparatio
 
 La femme voilée murmura: « En ce temps-là, cette humble personne ignorait l'identité de l'Aîné. J'espère que l'Aîné pardonnera ma rudesse passée. »
 
-Le nom de Ceng Niu résonnait avec force sur toute la Planète Suzaku. Si le vieil homme Hu en avait été bouleversé, elle ne saurait l'être moins.
+Comme on dit, le nom d'un homme est l'ombre d'un arbre : celui de Ceng Niu résonnait avec force sur toute la Planète Suzaku. Si le vieil homme Hu en avait été bouleversé, elle ne saurait l'être moins.

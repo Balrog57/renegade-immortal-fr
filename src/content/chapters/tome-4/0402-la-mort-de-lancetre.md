@@ -28,7 +28,7 @@ Le regard de Wang Lin était glacial alors qu'il observait l'ancêtre du Clan de
 
 Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la Perle Défiant le Ciel. Il devait le tuer, quoi qu'il en coûte.
 
-Le ciel entier sembla être déplacé par une main gigantesque, puis un vortex colossal apparut soudainement au-dessus de l'ancêtre du Clan des Démons Géants.
+Le ciel entier sembla être déplacé par une main gigantesque, puis un vortex noir colossal apparut soudainement au-dessus de l'ancêtre du Clan des Démons Géants.
 
 Cette scène était identique à celle que Wang Lin avait vue lorsque l'ancêtre l'avait utilisé contre Sun Tai.
 
@@ -46,7 +46,7 @@ Sa chair avait déjà été asséchée et son âme originelle était brisée.
 
 Le regard de Wang Lin demeura calme. Alors qu'il était aspiré par le vortex, il fixa l'ancêtre du Clan des Démons Géants avec un sourire énigmatique et murmura: « Dévorez! »
 
-À ces mots, la voracité des fragments d'âmes redoubla de vitesse. L'ancêtre du Clan des Démons Géants poussa plusieurs gémissements de douleur avant que son âme originelle ne soit totalement dévorée.
+À ces mots, la voracité des fragments d'âmes redoubla de vitesse. L'ancêtre du Clan des Démons Géants poussa plusieurs gémissements de douleur avant que son âme originelle ne s'effondre totalement et se dissipe.
 
 L'ancêtre de cette génération du Clan des Démons Géants était mort!
 
@@ -130,9 +130,9 @@ Cependant, deux objets captèrent l'attention de Wang Lin.
 
 L'un était une bouteille de jade rouge à moitié vide contenant un liquide semblable à du sang. En le sentant, Wang Lin confirma qu'il s'agissait bien de sang. Cette substance lui était étrangement familière. La bouteille était rangée à part, dans un coin du sac.
 
-En tenant la bouteille, il se souvint soudainement: lors de l'extermination de la famille Teng, il avait trouvé une fiole similaire sur Teng Yi.
+En tenant la bouteille, il se souvint soudainement: lors de l'extermination de la famille Teng au pays de Zhao, il avait trouvé une fiole similaire sur Teng Yi.
 
-« Ce sang contient une trace du lignage des anciens dieux. À l'époque, j'avais utilisé cette bouteille pour activer une capacité d'ancien dieu! » Les yeux de Wang Lin s'illuminèrent.
+« Ce sang renferme une trace de sang d'ancien dieu. À l'époque, j'avais utilisé cette bouteille pour activer une capacité d'ancien dieu! » Les yeux de Wang Lin s'illuminèrent.
 
 « Bien que mon corps originel soit devenu un ancien dieu par la pratique de la Formule de l'Ancien Dieu, cela reposait entièrement sur ma propre culture. À l'époque, je n'avais obtenu que l'héritage des souvenirs de l'ancien dieu Tu Si et non celui du pouvoir; certaines capacités me manquent donc encore. C'est un atout précieux, que je laisse mon corps originel l'absorber ou que je m'en serve pour déclencher une capacité. Quel que soit le prix de cette bataille, l'obtention de ceci en valait la peine! »
 

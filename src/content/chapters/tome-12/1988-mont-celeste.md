@@ -18,7 +18,7 @@ Un rugissement furieux retentit faiblement dans le ciel, semblant provenir de l'
 
 Pourtant, peu après, le rugissement s'interrompit, remplacé par les voix cristallines de deux fillettes. Il était évident que l'Empereur Céleste avait été stoppé par le Grand Empyréen Gémeaux!
 
-Le visage de l'Enseignant Impérial était livide et il haletait. Semblant avoir atteint la fin de sa vie, il rugit: « Wang Lin, l'Empereur Céleste est temporairement contenu, mais il est impatient de nous rejoindre. Nous n'avons plus beaucoup de temps! Nous devons d'abord unir nos forces pour soumettre Ming Dao! »
+Le visage de l'Enseignant Impérial était livide et il haletait. Semblant avoir atteint la fin de sa vie, il rugit: « Wang Lin, l'Empereur Céleste est temporairement contenu, mais, impatient, il pourrait arriver à tout moment. Nous n'avons plus beaucoup de temps! Nous devons d'abord unir nos forces pour soumettre Ming Dao! »
 
 « Une fois qu'il sera maîtrisé, j'utiliserai un sort pour te transférer son héritage! »
 
@@ -60,7 +60,7 @@ Simultanément, l'Enseignant Impérial, le visage livide, mordit sa langue. Util
 
 Wang Lin et l'Enseignant Impérial lancèrent tous deux des sorts dévastateurs contre Ming Dao!
 
-Ming Dao n'avait pas été aussi puissant initialement, mais la lumière dorée en son sein était indestructible et capable de neutraliser tout sort. Elle était assez puissante pour repousser quiconque et interdire toute approche. Tel un feu, que le papillon de nuit s'y précipite ou que la flamme s'abatte sur lui, l'insecte ne serait que cendres!
+Ming Dao n'avait pas été aussi puissant initialement, mais la lumière dorée en son sein était indestructible et capable de remplacer tout sort et tout trésor magique. Elle était assez puissante pour repousser quiconque et interdire toute approche. Tel un feu, que le papillon de nuit s'y précipite ou que la flamme s'abatte sur lui, l'insecte ne serait que cendres!
 
 Alors que l'homme de sang et le sort *Nuit Brisée* convergeaient vers Ming Dao, celui-ci hurla vers les cieux. Sa douleur semblait avoir atteint son paroxysme. Son corps, déjà largement décomposé, trembla puis explosa soudainement!
 

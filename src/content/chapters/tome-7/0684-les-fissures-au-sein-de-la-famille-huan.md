@@ -38,7 +38,7 @@ Les yeux de Liu Mei trahissaient une émotion complexe. Elle détourna la tête,
 
 « Arrogant! » Les yeux de l'ancêtre de la famille Huan s'illuminèrent et il cria: « Jeune homme, brise la formation de ma famille Huan avant de proférer de telles paroles! »
 
-L'expression de Wang Lin demeura impassible alors qu'il caressait la tête de la Bête du Tonnerre. Celle-ci poussa immédiatement un rugissement qui déclencha d'innombrables éclairs. Le monde fut subitement envahi par le tonnerre.
+L'expression de Wang Lin demeura impassible alors qu'il tapotait la tête de la Bête du Tonnerre. Celle-ci poussa immédiatement un rugissement qui déclencha d'innombrables éclairs. Le monde fut subitement envahi par le tonnerre.
 
 Le ciel se refroidit instantanément et d'épais nuages sombres commencèrent à s'amonceler. Tandis que la Bête du Tonnerre continuait de rugir, une multitude d'éclairs crépita dans les nuages.
 

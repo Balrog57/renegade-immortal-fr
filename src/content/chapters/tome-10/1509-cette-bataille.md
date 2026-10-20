@@ -22,7 +22,7 @@ Tous les puissants cultivateurs des quatre systèmes stellaires qui se préparai
 
 La Perle Défiant le Ciel était réapparue!!
 
-Cette nouvelle suffisait à rendre fou quiconque la connaissait! En ce moment crucial de préparation à la guerre, le Shui Daozi avait bouleversé les cœurs!
+Quelle manœuvre cruelle! Cette nouvelle suffisait à rendre fou quiconque la connaissait! En ce moment crucial de préparation à la guerre, le Shui Daozi avait bouleversé les cœurs!
 
 Qui pouvait encore se préparer au combat? Bien que la plupart des gens ne sachent rien de la Perle Défiant le Ciel, les trois autres choses promises par le Shui Daozi suffisaient à les émouvoir!
 
@@ -60,7 +60,7 @@ Situ Nan fixa Qing Lin, mais il ne fut pas ébranlé par ses paroles et ricana: 
 
 « Wang Lin est le disciple de cet Empereur Céleste. Qui ose lui faire du mal?! » Ce message de Sens Divin jaillit du Royaume Céleste de la Pluie et se propagea à travers toute l'Alliance, s'étendant sans fin.
 
-Dans la Mer des Nuages, dans la vallée où se trouvait l'homme en rouge, Maître Lu Fu était également présent. Il se tenait respectueusement aux côtés des membres de la Secte Démon.
+Dans la Mer des Nuages, dans la vallée où se trouvait l'homme en rouge, Maître Lu Fu était également présent. Il se tenait respectueusement aux côtés du maître de la Secte Démon et des siens.
 
 L'homme en rouge écoutait attentivement Maître Lu Fu. Bien qu'il restât calme, une lueur de froideur brillait dans ses yeux.
 
@@ -128,7 +128,7 @@ La glace était partout, pétrifiant le système stellaire. Wang Lin chargea ver
 
 En pleine charge, l'intention de tuer de Wang Lin subit un étrange changement. Cette mutation se produisit inconsciemment, sans que personne ne puisse comprendre comment. Ce changement fit apparaître une parcelle d'essence au cœur même de son intention de tuer!!
 
-L'Essence de Massacre!! Tout dans ce monde pouvait devenir essence, mais l'Essence de Massacre était extrêmement difficile à former. Il ne s'agissait pas seulement de tuer massivement; le changement singulier requis était une chose que les autres n'avaient pas encore comprise.
+L'Essence du Massacre!! Tout dans ce monde pouvait devenir essence, mais l'Essence du Massacre était extrêmement difficile à former. Il ne s'agissait pas seulement de tuer massivement; le changement singulier requis était une chose que les autres n'avaient pas encore comprise.
 
 À mesure qu'il avançait, Wang Lin accélérait. Des craquements résonnaient alors qu'il gelait tout sur son passage pour pénétrer dans les profondeurs de la Mer des Nuages. La région de rang 9!
 

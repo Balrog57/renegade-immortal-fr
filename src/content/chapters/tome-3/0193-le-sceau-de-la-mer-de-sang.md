@@ -156,7 +156,7 @@ Un éclat noir passa dans les yeux de Wang Lin. En vérité, ce n'est qu'à cet 
 
 L'homme aux cheveux rouges détourna son regard. D'un geste de la main, il ouvrit une faille dans les airs et l'agrandit brusquement. Toute la Mer de Sang trembla lorsqu'une immense silhouette illusoire émergea de la déchirure.
 
-À l'apparition de cette figure, Wang Lin ressentit instantanément l'aura d'un dévoreur d'âmes. Cette silhouette était clairement celle du dévoreur d'âmes du troisième royaume.
+À l'apparition de cette figure, Wang Lin ressentit instantanément l'aura d'un dévoreur d'âmes. Cette silhouette était clairement celle du dévoreur d'âmes du troisième essai.
 
 La silhouette s'étira comme un nuage à travers la faille pour révéler son corps entier. Les yeux de l'homme aux cheveux rouges s'illuminèrent. Son corps trembla tandis que des traînées de lumière rouge sang s'en échappaient, et de la brume écarlate jaillit de lui. Presque immédiatement, il fut enveloppé par cette brume, semblant endurer une agonie inimaginable. Après un long moment, il leva la tête, le visage ensanglanté, et cria d'une voix rauque: « Sortez, fragments d'âme de Tu Si! »
 
@@ -176,4 +176,4 @@ L'homme aux cheveux rouges afficha une expression de douleur en jetant un regard
 
 Wang Lin comprit enfin pourquoi deux dévoreurs d'âmes étaient nécessaires. Si un seul était présent, la Mer de Sang produirait de nouveaux fragments avant même que la digestion ne soit terminée. Ainsi, au lieu de lever le sceau, on ne ferait qu'augmenter le nombre de fragments.
 
-Il fallait un temps tampon. Mais serait-il possible de réussir en faisant alterner deux dévoreurs d'âmes ou plus? Même dans ce cas, les chances de succès restaient infimes.
+Il fallait un temps tampon. Avec deux dévoreurs d'âmes ou plus qui se relaieraient, il restait peut-être une chance, mais elle était infime.

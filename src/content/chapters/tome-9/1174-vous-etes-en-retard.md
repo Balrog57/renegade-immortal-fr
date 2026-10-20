@@ -14,7 +14,7 @@ Son départ ne manqua pas d'attirer l'attention de nombreux vieux monstres, en p
 
 « Si je retourne là-bas avec autant de jades célestes, je réussirai à coup sûr! » Il prit une profonde inspiration et s'apprêtait à revoir son plan une dernière fois lorsqu'il redressa brusquement la tête. C'était comme si son regard pouvait percer les murs pour voir Wu Qing fendre les airs à l'extérieur.
 
-« Bien que Wu Qing soit désormais au stade de Briseur du Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zhihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Pin Cendré afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
+« Bien que Wu Qing soit désormais au stade de Briseur du Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Pin Cendré afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
 
 Au quatrième étage d'un restaurant de la ville principale, un homme et une femme étaient assis l'un face à l'autre. L'homme était vêtu de blanc, et sa compagne était une magnifique jeune femme dont la robe fleurie sublimait la beauté du visage.
 
@@ -32,7 +32,7 @@ Un vieil homme au visage balafré marchait lentement dans la rue, les mains derr
 
 « Quel magnifique exemple de la loi de la jungle, où le fort opprime le faible! Il tente ouvertement de tuer quelqu'un pour ses trésors! » Le vieil homme éclata de rire et apparut sur un toit avant de s'y asseoir. Son sens divin se propagea, prêt à assister au spectacle.
 
-Dans l'auberge d'une petite ville, loin de la cité principale, un vieillard maigre vêtu de noir tenait deux sphères entre ses mains. Debout près de la fenêtre, il contemplait le ciel radieux. Son sens divin s'était déjà propagé très loin.
+Dans l'auberge d'une cité annexe, en périphérie de la cité principale, un vieillard maigre vêtu de noir tenait deux sphères entre ses mains. Debout près de la fenêtre, il contemplait le ciel radieux. Son sens divin s'était déjà propagé très loin.
 
 « J'ai laissé Wu Qing prendre l'avantage... Quel malheur... »
 
@@ -90,7 +90,7 @@ Toute l'énergie originelle sur des dizaines de milliers de kilomètres se rasse
 
 Les deux sorts se rejoignirent et entrèrent en collision, provoquant un tonnerre céleste qui fit vibrer une bonne partie de Peng Lai! La main gauche de Wang Lin ne s'arrêta pas et pointa une seconde fois le dos de sa main droite.
 
-Lors de ce second contact, toute l'énergie originelle dans un rayon de 50 000 kilomètres se précipita frénétiquement pour pénétrer le vortex créé par Wu Qing.
+Lors de ce second contact, toute l'énergie originelle dans un rayon de 100 000 kilomètres se précipita frénétiquement pour pénétrer le vortex créé par Wu Qing.
 
 Mais ce n'était pas fini. Wang Lin retira négligemment sa main gauche. Puis, comme s'il tentait de saisir les cieux, il forma un troisième doigt!
 
@@ -118,7 +118,7 @@ Dans la Terre des Esprits Démoniaques, il en avait saisi à nouveau la techniqu
 
 Lors de sa seconde visite dans la Terre des Esprits Démoniaques, l'empreinte de sa paume fit trembler les cieux et détruisit le huitième étage de la grotte céleste, laissant Ling Tianhou profondément ébranlé!
 
-Dans l'Alliance, pour empêcher les membres de la Secte du Dao Pourpre de la Mer des Nuages de s'enfuir, il avait utilisé cette technique une fois de plus, massacrant tout ce qui se trouvait sur son passage! C'est à cet instant que Wang Lin avait appris le nom de ce sortilège!
+Dans les décombres de l'Alliance, pour empêcher les membres de la Secte du Dao Pourpre de la Mer des Nuages de s'enfuir, il avait utilisé cette technique une fois de plus, massacrant tout ce qui se trouvait sur son passage! C'est à cet instant que Wang Lin avait appris le nom de ce sortilège!
 
 L'Empreinte de l'Esprit Guerrier!
 
@@ -196,7 +196,7 @@ Le lettré en blanc et la belle femme quittèrent également le restaurant lorsq
 
 La jeune femme était livide, ses pupilles rétractées. Son esprit était bouleversé et elle restait sans voix. Elle qui venait de qualifier Wang Lin de « petit gars » ressentait désormais une incrédulité infinie et un froid glacial.
 
-« Tuer Wu Qing et utiliser l'Empreinte de l'Esprit Guerrier. Cet homme... Cet homme est intouchable! »
+« Tuer Wu Qing et utiliser l'Empreinte de l'Esprit Guerrier. Cet homme... Cet homme ne doit surtout pas être provoqué! »
 
 Le lettré en blanc inspira brusquement, mais ses yeux brillèrent d'un éclat vif. Cependant, cette lumière ne pouvait masquer le choc qui ébranlait son âme.
 

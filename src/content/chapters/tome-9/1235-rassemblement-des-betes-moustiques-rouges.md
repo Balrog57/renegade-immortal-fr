@@ -76,7 +76,7 @@ Le regard de Wang Lin balaya l'assemblée. Il y trouva six bêtes rouge foncé p
 
 Il disposait désormais de près de 300 moustiques de niveau Scruteur du Nirvana et de 16 moustiques au stade avancé du Scruteur du Nirvana. Avec une telle force, Wang Lin pourrait facilement piéger et tuer un cultivateur du stade Purificateur du Nirvana sans même avoir à bouger.
 
-« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 10 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi! Et si je pouvais en obtenir 100 000... même les puissants du Briseur du Nirvana à la grande perfection s'enfuiraient loin de moi! »
+« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 10 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi, sans même que j'aie à utiliser une seule technique! Et si je pouvais en obtenir 100 000... même les puissants du Briseur du Nirvana à la grande perfection s'enfuiraient à cent li de moi! »
 
 « Si j'en avais plus de 100 000, peu importe qu'ils soient au stade Fléau Céleste! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
 

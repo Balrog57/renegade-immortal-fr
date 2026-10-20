@@ -22,7 +22,7 @@ Une puissante culture circula au sein de son corps et l'énergie originelle conv
 
 C'était Wang Lin!
 
-Pour être plus précis, c'était une portion du sens divin de Wang Lin qui possédait ce corps. Son corps original était toujours en train de fusionner avec l'infini lac de tonnerre! Wang Lin n'était pas assez arrogant pour penser qu'il pourrait affronter seul tout le Clan du Tonnerre Dispersé. Ce clan était l'une des puissantes familles du Système Stellaire Antique, ils possédaient donc nécessairement de nombreux cultivateurs redoutables.
+Pour être plus précis, c'était une portion de l'âme originelle de Wang Lin qui possédait ce corps. Son corps original était toujours en train de fusionner avec l'infini lac de tonnerre! Wang Lin n'était pas assez arrogant pour penser qu'il pourrait affronter seul tout le Clan du Tonnerre Dispersé. Ce clan était l'une des puissantes familles du Système Stellaire Antique, ils possédaient donc nécessairement de nombreux cultivateurs redoutables.
 
 Si Wang Lin se précipitait directement pour absorber le tonnerre éternel, la seule chose qui l'attendrait serait la mort!
 
@@ -106,9 +106,9 @@ Quant au jeune homme en blanc, son noyau vola en éclats. Il regarda l'endroit o
 
 « Toi... Toi... »
 
-Les trois restèrent là, incapables de prononcer un mot, pétrifiés par la peur qui persistait dans leurs cœurs. Ils n'osaient même plus nourrir de pensée de ressentiment.
+Les trois restèrent là, incapables de prononcer un mot, pétrifiés par la peur qui persistait dans leurs cœurs. Ils n'osaient même plus nourrir de pensée de ressentiment. Ils éprouvaient plutôt le sentiment d'avoir survécu à une catastrophe.
 
-La grotte dont Yu Fei s'était souvenu apparut bientôt devant Wang Lin. Elle était effectivement remarquable et jouxtait une veine spirituelle. Wang Lin vit également une petite rivière à l'intérieur; elle traversait la veine spirituelle et était d'une clarté cristalline, dégageant une faible énergie spirituelle.
+La grotte dont Yu Fei s'était souvenu apparut bientôt devant Wang Lin. Elle était effectivement remarquable et jouxtait une veine spirituelle. Wang Lin vit également une petite rivière dans la vallée; elle traversait la veine spirituelle et était d'une clarté cristalline, dégageant une faible énergie spirituelle.
 
 Certaines restrictions protégeaient la grotte, mais aux yeux de Wang Lin, elles étaient tout simplement... trop faibles.
 

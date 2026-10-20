@@ -100,7 +100,7 @@ Après y avoir insufflé de l'énergie originelle, l'aiguille se mit à tournoye
 
 « Cela devrait suffire! » Wang Lin frappa à nouveau son sac de rangement et le cadavre argenté apparut devant lui. En l'observant, il régula sa respiration un instant avant de presser impitoyablement le point entre ses sourcils!
 
-À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex tournoyant apparut entre ses sourcils, stoppant le doigt de l'homme à environ trois centimètres de sa peau.
+À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex tournoyant apparut entre ses sourcils, stoppant le doigt de Wang Lin à environ trois centimètres de sa peau.
 
 Un regard féroce traversa les yeux du cadavre et elle recula. Cependant, au moment même de son retrait, la boussole sous elle émit un gémissement et se mit à tourner. Des restrictions jaillirent de la boussole pour se lier parfaitement à toutes les autres présentes dans la pièce. Quelle que soit la sortie qu'elle emprunte, elle toucherait une restriction, et en déclencher une seule revenait à toutes les déclencher!
 

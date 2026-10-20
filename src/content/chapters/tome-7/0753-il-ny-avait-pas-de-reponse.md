@@ -22,7 +22,7 @@ Wang Lin se méfiait énormément de ce pouvoir. Il l'avait remarqué pour la pr
 
 À cet instant, Wang Lin s'était contenté de garder cela en mémoire. Ce n'est que lorsqu'il vit le regard de Ge Hong posé sur la statue avant sa mort que Wang Lin fut frappé par un éclair de compréhension, comme si la foudre l'avait transpercé.
 
-La famille Ge était la descendante des Célestes! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur culture et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
+La famille Ge descendait des Célestes! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur culture et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
 
 La famille Li avait peut-être réellement voulu se rebeller, mais il était évident qu'elle avait échoué à chaque tentative. Ce n'est que l'ancêtre de la famille Li, il y a des dizaines de milliers d'années, qui avait donné de l'espoir à la famille Li. Cependant, l'empreinte d'esclave, qui avait nourri son maître pendant des dizaines de milliers d'années, avait accumulé suffisamment d'énergie pour que l'âme cachée à l'intérieur s'éveille. C'est ainsi que l'ancêtre talentueux de la famille Li était apparu.
 
@@ -60,7 +60,7 @@ Pour être plus précis, il y avait bien une seule âme dans le corps de Li Yuan
 
 Le conflit entre les deux empêchait Li Yuan d'utiliser toute la puissance des restrictions de sa famille. Chaque fois qu'il utilisait une restriction, celle-ci montrait des signes d'effondrement. La Restriction des 18 Pruniers était ainsi, tout comme les lignes noires formées par la Restriction d'Annihilation.
 
-Après avoir compris tout cela, Wang Lin resta à l'intérieur du Écran des Montagnes et des Rivières et fixa silencieusement Li Yuan.
+Après avoir compris tout cela, Wang Lin resta à l'intérieur de l'Écran Montagne et Rivière et fixa silencieusement Li Yuan.
 
 Il trouva ce Li Yuan quelque peu pitoyable.
 
@@ -80,9 +80,9 @@ De plus en plus de fissures apparurent sur la statue à cet instant. À mesure q
 
 « Pourquoi ne voulez-vous pas vous réveiller... Je veux juste que la garde de l'épée ne soit plus vide. Le maître pourra toujours se tenir sur la garde, et moi, je me tiendrai au bout de l'épée pour vous aider à combattre les cieux et la terre... » murmura Li Yuan, les yeux emplis de chagrin.
 
-Wang Lin, immobile dans le Écran des Montagnes et des Rivières, observait la scène en silence. Il n'avait aucun grief, de vie ou de mort, contre Li Yuan. Il poussa un soupir et rangea le Fouet du Karma.
+Wang Lin, immobile dans l'Écran Montagne et Rivière, observait la scène en silence. Il n'avait aucun grief, de vie ou de mort, contre Li Yuan. Il poussa un soupir et rangea le Fouet du Karma.
 
-« C'est à cause d'une paranoïa extrême qu'il s'est égaré. Après le premier échec il y a des dizaines de milliers d'années, sa conviction était instable. Maintenant qu'il a échoué une seconde fois, sa foi s'est effondrée. »
+« C'est à cause d'un fanatisme extrême qu'il s'est égaré. Après le premier échec il y a des dizaines de milliers d'années, sa conviction était instable. Maintenant qu'il a échoué une seconde fois, sa foi s'est effondrée. »
 
 Les fissures se multiplièrent sur la statue; même l'épée de pierre sur laquelle reposait le serviteur était criblée de cassures. Une lumière rouge jaillit des fentes et colora la moitié du ciel.
 

@@ -66,13 +66,13 @@ Le combat intérieur de Wang Lin s'intensifia et sa respiration devint anxieuse.
 
 L'Oiseau Vermillon de la première génération réfléchit, et un instant plus tard, sa voix résonna dans le monde:
 
-« Vous emmener tous les trois est ma limite... Peu importe, le jour du départ viendra, ce vieil homme pourra t'accorder une place supplémentaire! Si d'autres viennent, je crains de ne pas pouvoir revenir. »
+« Vous emmener tous les trois est ma limite... Soit, le jour du départ viendra, ce vieil homme pourra t'accorder une place supplémentaire! Si d'autres viennent, je crains de ne pas pouvoir revenir. »
 
 « Une place... » Li Muwan apparut dans l'esprit de Wang Lin... Puis Situ Nan, Qing Shui et Zhou Ru... Li Qianmei apparut également... Toutes les figures rencontrées au cours de ses deux mille ans de culture, celles qui rendaient cette décision si déchirante, se manifestèrent à lui.
 
 « Maintenant, dis-moi, quel est ton choix? » Les mots de l'Oiseau Vermillon de la première génération percutèrent l'esprit de Wang Lin.
 
-Une vague monstrueuse s'éleva dans le cœur de Wang Lin. Ce choix le faisait lutter et hésiter... Un instant plus tard, la main droite de Wang Lin s'élança vers le vide et une faille s'ouvrit sur son espace de stockage. Un cercueil en émergea lentement, et Li Muwan reposait paisiblement à l'intérieur.
+Une vague monstrueuse s'éleva dans le cœur de Wang Lin. Ce choix le faisait lutter et hésiter... Après un long moment, la main droite de Wang Lin s'élança vers le vide et une faille s'ouvrit sur son espace de stockage. Un cercueil en émergea lentement, et Li Muwan reposait paisiblement à l'intérieur.
 
 « Le Senior peut-il la ressusciter? » Wang Lin leva les yeux, le regard injecté de sang. Ce choix était pour lui une véritable bataille acharnée!
 

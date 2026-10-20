@@ -23,7 +23,7 @@ Le garçon à la grosse tête balaya la planète Suzaku de son sens divin et lai
 
 Les deux frères rirent. L'un d'eux dit: « Messager Céleste, soyez rassuré. Avec une planète de culture pareille, quinze minutes ne sont pas nécessaires. Il ne nous faudra que sept! » Sur ces mots, il chargea comme une météorite vers la planète Suzaku.
 
-Son frère le suivit, chargé d'une intention meurtrière. En un clin d'œil, les deux percèrent l'atmosphère et arrivèrent au-dessus de la planète Suzaku.
+Son frère le suivit, chargé d'une intention meurtrière. En un clin d'œil, les deux percèrent l'atmosphère et atterrirent sur la planète Suzaku.
 
 Zhou Wutai se tenait au sommet du Mont Suzaku. Ses yeux brillaient comme des éclairs et une aura puissante émanait de son corps. Une fine épée flottait devant lui tandis qu'il affichait un regard déterminé. Derrière lui, les cultivateurs se tenaient silencieusement.
 

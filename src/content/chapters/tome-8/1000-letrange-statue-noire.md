@@ -15,9 +15,9 @@ Wang Lin leva les yeux vers le ciel et murmura: « Maître Dun Tian, ce disciple
 
 Bien que la méthode de culture pratiquée par les millions de disciples de la Secte ne fût pas complète, il n'hésita pas à leur transmettre les méthodes intégrales dès son retour. Bien entendu, Wang Lin avait laissé une faille lui permettant de reprendre les fragments d'âme à tout moment, et il n'avait nullement l'intention de la combler.
 
-Une fois les méthodes de culture de la Secte transmises aux disciples, tous entrèrent dans une phase de culture effrénée. De plus, après avoir hésité un instant, Wang Lin laissa une copie de la Tactique de Raffinement Céleste du Cycle Neuf qu'il avait obtenue auprès de sa quatrième sœur aînée du Divin Pourpre. Celle-ci devint le premier sort interdit de la Secte du Raffinement des Âmes!
+Une fois les méthodes de culture de la Secte transmises aux disciples, tous entrèrent dans une phase de culture effrénée. De plus, après avoir hésité un instant, Wang Lin laissa une copie de la Tactique de Raffinement Céleste en Neuf Cycles qu'il avait obtenue auprès de sa quatrième sœur aînée de la Division Pourpre de la Secte Tianyun. Celle-ci devint le premier sort interdit de la Secte du Raffinement des Âmes!
 
-Si la Tactique de Raffinement Céleste du Cycle Neuf était cultivée à son paroxysme, l'énergie en spirale qu'elle produisait s'avérait extrêmement puissante. Bien qu'elle fût inutile pour Wang Lin, elle représentait un véritable sort céleste pour les disciples de la Secte!
+Si la Tactique de Raffinement Céleste en Neuf Cycles était cultivée à son paroxysme, l'énergie en spirale qu'elle produisait s'avérait extrêmement puissante. Bien qu'elle fût inutile pour Wang Lin, elle représentait un véritable sort céleste pour les disciples de la Secte!
 
 Par ailleurs, Wang Lin prit une décision majeure. Après avoir mis en place de nombreuses restrictions, il pénétra dans le Pavillon des Trésors sous le couvert d'innombrables fragments d'âme!
 
@@ -53,7 +53,7 @@ Mais cela ne suffisait pas. Wang Lin sortit de son sac de rangement une multitud
 
 Après tout, Wang Lin n'avait aucune intention de transformer Treize en un gardien céleste!
 
-Wang Lin éprouvait une profonde affection pour Treize, l'ayant vu grandir. Dans son cœur, il considérait avoir deux disciples: le premier était Treize, et le second était Xie Qing, à Luotian! Wang Lin ne serait jamais avare envers ses disciples, surtout un être aussi loyal. Il choisit un sort céleste de qualité moyenne nommé Âme Céleste, le divisa en trois parties et les transmit à Treize! Tant que ce dernier maîtriserait ces trois volets, il pourrait véritablement cultiver l'Âme Céleste!
+Wang Lin éprouvait une profonde affection pour Treize, l'ayant vu grandir. Dans son cœur, il considérait avoir deux disciples: le premier était Treize, et le second était Xie Qing, à Luotian! Wang Lin ne serait jamais avare envers ses disciples, surtout un être aussi loyal. Il choisit un sort céleste complet de qualité moyenne nommé Âme Céleste, le divisa en trois parties et les transmit à Treize! Tant que ce dernier maîtriserait ces trois volets, il pourrait véritablement cultiver l'Âme Céleste!
 
 Outre Treize et Ouyang Hua, plusieurs autres dirigeants furent autorisés à pratiquer les sorts interdits que Wang Lin avait spécialement préparés pour la Secte du Raffinement des Âmes.
 

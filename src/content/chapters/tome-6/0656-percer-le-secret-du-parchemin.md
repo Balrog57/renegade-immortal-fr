@@ -22,7 +22,7 @@ Wang Lin resta pensif et garda le silence.
 
 « Je ne peux rien faire pour vous aider, je ne peux rien vous offrir, mais je vous en conjure, emmenez-moi là-bas... »
 
-Wang Lin baissa la tête et regarda vers les profondeurs. Là-dessous, l'obscurité était totale et le froid extrême.
+Wang Lin baissa la tête et regarda vers les profondeurs. Là-dessous, l'obscurité était totale et le froid extrême, chargé de givre.
 
 « Je ne peux pas vous aider. Si vous voulez partir, alors partez. » Wang Lin secoua la tête et cessa de regarder le parchemin pour entamer sa remontée. Il avait trop de choses à accomplir. Il devait lever toutes les restrictions de la grotte avant que l'Omniscient et son groupe n'arrivent sur la Terre des Esprits Démoniaques, afin de pouvoir accéder à la véritable caverne.
 
@@ -80,7 +80,7 @@ La femme à l'intérieur du parchemin laissa échapper un soupir et dit doucemen
 
 Wang Lin ne répondit rien, sa poigne sur le parchemin se faisant plus pressante. C'était comme s'il ne tenait pas un simple rouleau, mais l'espoir même.
 
-Le froid émanant des parois devenait plus intense et la force d'aspiration plus puissante.
+Le froid émanant des parois devenait plus intense, des reflets cristallins luisaient faiblement sur la roche, et la force d'aspiration devenait plus puissante.
 
 Une durée indéterminée s'écoula; le gouffre semblait véritablement sans fond. Peu importe la profondeur de sa descente, seule l'obscurité semblait s'étendre à l'infini.
 

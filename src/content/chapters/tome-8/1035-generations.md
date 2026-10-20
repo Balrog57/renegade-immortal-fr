@@ -44,7 +44,7 @@ Bei Luo était un démon ancien de la 79e génération, mais son trésor avait u
 
 Toutefois, le démon du vent ayant renoncé à son identité de démon ancien, son corps d'origine s'était dissipé; elle ne pouvait donc plus utiliser le véritable trésor. À cet instant, les trois drapeaux étaient formés en condensant son énergie démoniaque pour créer des fantômes. C'était un processus semblable à celui par lequel Wang Lin invoquait la Lance Tueuse de Dieux.
 
-Le démon du vent pointa l'avant, et le dieu ancien ainsi que les démons démoniaques issus des drapeaux chargèrent Wang Lin. Ce dernier parvint immédiatement à percer l'illusion des trois drapeaux. Sa main droite s'élança dans le vide et une fissure apparut dans un fracas de tonnerre.
+Le démon du vent pointa l'avant, et le dieu ancien ainsi que les démons démoniaques issus des drapeaux chargèrent Wang Lin. Ce dernier parvint immédiatement à percer l'illusion des trois drapeaux. Sa main droite saisit le vide et une fissure apparut dans un fracas de tonnerre.
 
 C'était comme si une immense faille s'était ouverte dans le ciel. Des éclairs serpentaient le long de la brèche et des grondements assourdissants résonnaient.
 
@@ -60,13 +60,13 @@ Alors que le tonnerre résonnait à travers le monde, un rayon de lumière noire
 
 Wang Lin, tenant la Lance Tueuse de Dieux dans sa main droite, la balaya vers l'avant. Le corps du dieu ancien à six étoiles trembla en fixant la lance, et son regard terne s'illumina soudainement.
 
-Il n'était qu'un ordinaire dieu ancien à six étoiles; en termes de génération, il était même inférieur à Bei Luo. Mais face au trésor sacré de son propre clan, son corps fut pétrifié par l'émotion.
+Il n'était qu'un ordinaire dieu ancien à six étoiles; en termes de génération, il était même inférieur à Bei Luo. Mais face au trésor sacré de son propre clan, son corps, tremblant d'émotion, s'immobilisa.
 
 Si le Drapeau de Scellement des Âmes avait été réellement présent, il n'aurait pas agi ainsi, mais ce que le démon du vent avait invoqué n'était qu'un fantôme. Il était bien plus faible que l'original, et même les âmes scellées à l'intérieur en étaient considérablement affaiblies.
 
 Le démon du vent maudit intérieurement Yao Xixue d'avoir provoqué une existence aussi terrifiante. Si elle avait su que Yao Xixue s'en était prise à quelqu'un comme Wang Lin, elle n'aurait jamais fusionné avec elle.
 
-« Damnation! Dans les souvenirs de Yao Xixue, il était si faible qu'on pouvait le tuer d'un simple revers de main. Comment peut-il être un dieu ancien, et même de lignée royale?! »
+« Damnation! Dans les souvenirs de Yao Xixue, il était si faible qu'un seul doigt suffisait à le tuer. Comment peut-il être un dieu ancien, et même de lignée royale?! »
 
 Le démon du vent savait que la lignée royale était devenue si rare qu'elle frôlait l'extinction parmi les trois clans; il était presque impossible d'en trouver un. Bei Luo n'avait rencontré un démon ancien royal que par pur hasard.
 
@@ -86,7 +86,7 @@ Les pupilles du démon du vent se rétractèrent. Face à l'imminence de la mort
 
 Les drapeaux verts formant les trois fantômes tournèrent frénétiquement avant de s'effondrer sur l'ordre du démon du vent. L'impact puissant se mua en un dragon vert qui chargea la Lance Tueuse de Dieux.
 
-Lorsque les petits drapeaux s'effondrèrent, le dieu ancien et le démon démoniaque restants furent entraînés dans leur chute. Ils pénétrèrent dans le dragon vert, décuplant sa puissance!
+Lorsque les petits drapeaux s'effondrèrent, le dieu ancien et le démon démoniaque restants furent entraînés dans leur chute. Ils pénétrèrent dans le dragon vert, renforçant sa puissance!
 
 La Lance Tueuse de Dieux et le dragon vert entrèrent en collision à une vitesse fulgurante. Au moment du contact, une sphère d'un millier de pieds de large apparut entre les deux trésors.
 
@@ -108,7 +108,7 @@ Le démon du vent cracha du sang. Son trésor était détruit et, bien qu'il ne 
 
 L'expression de Wang Lin était glaciale et il la poursuivit sans relâche.
 
-Le démon du vent, hors d'elle, maudit: « Je ne suis pas impliquée dans ton histoire avec Yao Xixue! Tu ne cesses de parler de karma, de karma... Je suis un démon du vent, pas une maudite fatalité! »
+Le démon du vent, hors d'elle, maudit: « Je ne suis pas impliquée dans ton histoire avec Yao Xixue! Tu ne cesses de parler de karma, de karma... Moi, démon du vent, quel karma ai-je donc à voir là-dedans ?! »
 
 « Tu étais initialement en dehors de ce karma, mais tu t'y es mêlée de force. Si tu acceptes d'abandonner le corps de Yao Xixue, je te laisserai partir! »
 

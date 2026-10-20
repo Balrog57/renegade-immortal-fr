@@ -20,7 +20,7 @@ Le temps s'écoulait lentement. Le premier jour, le deuxième jour...
 
 Cependant, au troisième jour, la condensation progressive de l'Âme Naissante de Li Muwan s'interrompit, car la force vitale de Wang Lin avait entièrement disparu.
 
-L'ancêtre de la famille Xiang dit lentement: « Hélas... le sortilège Qixi remonte à des temps anciens et peut défier les cieux. Ce sort est extrêmement puissant; il peut même ramener un mort à la vie, pourvu qu'il y ait suffisamment de force vitale! »
+L'ancêtre de la famille Xiang dit lentement: « Hélas... le sortilège Qixi remonte à des temps anciens et est le premier sortilège pour défier les cieux et changer le destin. Ce sort est extrêmement puissant; il peut même ramener un mort à la vie, pourvu qu'il y ait suffisamment de force vitale! »
 
 « La force vitale transférée par le sortilège Qixi n'est pas équivalente; elle est totalement disproportionnée. Qixi représente sept jours. Pour chaque jour qui passe, la force vitale requise est cent fois supérieure à celle du jour précédent. Le septième jour est le plus crucial, et la quantité de force vitale nécessaire est inimaginable! Ta force vitale n'était suffisante que pour deux jours. Même si je n'avais pas exigé la moitié de ta force vitale comme prix de mon intervention, elle n'aurait pas suffi pour tenir le troisième jour! »
 

@@ -56,7 +56,7 @@ Le jeune homme en blanc à ses côtés ricana: « Cher frère cadet, va me cherc
 
 Wang Lin resta silencieux et fixa le jeune homme en blanc.
 
-Ce dernier reprit avec un regard méprisant: « Qu'est-ce que ça signifie? Tu veux te battre? Laisse-moi te prévenir, le deuxième frère apprenti a déjà dit que les disciples intérieurs pouvaient se battre entre eux. Si tu ne te comportes pas comme il se doit, ne t'étonne pas si je te donne une leçon. »
+Ce dernier reprit avec un regard méprisant: « Qu'est-ce que ça signifie? Tu veux te battre? Laisse-moi te prévenir, le deuxième frère apprenti a déjà dit que dans la montagne arrière, les disciples intérieurs pouvaient se battre entre eux. Si tu ne te comportes pas comme il se doit, ne t'étonne pas si je te donne une leçon. »
 
 « Ça suffit! Taisez-vous tous! » Un cri retentit depuis la falaise. Rapidement, une ombre fendit l'air comme un éclair: c'était celle du frère apprenti Zhang. Il fronça les sourcils en regardant l'assemblée et grogna: « Wang Zhuo, Sun Hao, au lieu de cultiver, vous êtes ici à intimider un junior qui n'est qu'au premier niveau de Condensation de Qi? Est-ce là un divertissement si intéressant que cela? »
 

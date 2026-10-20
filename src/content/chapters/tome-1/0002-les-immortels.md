@@ -70,7 +70,7 @@ Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par
 
 Une telle grotte-paradis bénie était naturellement l'emplacement de la porte de montagne de la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle avait un temps dominé tout le monde de la culture du pays de Zhao, avec plusieurs vieux monstres au stade de l'Âme Naissante, et sa gloire était sans égale. Hélas, avec le passage du temps et après plusieurs bouleversements, la grande secte d'autrefois s'était rétrécie au point de n'avoir plus qu'une assise précaire dans le monde de la culture.
 
-Pourtant, pour les mortels vivant à proximité de la Secte Heng Yue, elle demeurait une entité lointaine et inaccessible.
+Pourtant, pour les mortels vivant dans un rayon de dix mille li autour de la Secte Heng Yue, elle demeurait une entité lointaine et inaccessible.
 
 « Junior frère Zhang, sont-ce là les trois jeunes recommandés par la famille Wang? » Un homme d'âge moyen, vêtu de noir et dégageant une aura immortelle, s'avança en flottant depuis le pied de la montagne.
 

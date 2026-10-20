@@ -12,7 +12,7 @@ Après plus de 2 000 ans de culture, Wang Lin avait enfin permis à son corps de
 
 Un corps de Dieu Antique à 7 étoiles n'était pas une chose qu'un cultivateur du second pas pouvait facilement endommager, à moins que le Dieu Antique ne soit en train de subir une épreuve. Autrement, il faudrait une armée de puissances célestes pour assiéger un Dieu Antique durant plusieurs jours avant de pouvoir l'abattre.
 
-On pourrait même dire qu'un corps de Dieu Antique à 7 étoiles complet possédait la force nécessaire pour combattre des cultivateurs du Vide du Nirvana au premier stade!
+On pourrait même dire qu'un corps de Dieu Antique à 7 étoiles complet possédait la force nécessaire pour combattre des cultivateurs du Vide du Nirvana au premier stade du troisième pas!
 
 Plus important encore, sept étoiles signifiaient que le Dieu Antique était entré dans la phase de maturation rapide vers l'âge adulte. Au fil du temps, le corps d'un Dieu Antique à 7 étoiles continuerait de gagner en puissance!
 
@@ -22,7 +22,7 @@ Le Dieu Antique à 7 étoiles Wang Lin n'était pas plus faible que Tu Si lorsqu
 
 Wang Lin oserait même affronter des cultivateurs du Vide du Nirvana au stade intermédiaire. Bien qu'il risquât probablement de perdre, ils auraient extrêmement de mal à le tuer!
 
-Au troisième pas, les stades Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulant du Vide comprenaient toutes les phases initiale, intermédiaire, tardive et parfaite, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Purificateur du Nirvana et un Briseur du Nirvana!
+Au troisième pas, les stades Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulation du Vide comprenaient toutes les phases initiale, intermédiaire, tardive et parfaite, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Purificateur du Nirvana et un Briseur du Nirvana!
 
 Les yeux de Wang Lin brillaient comme le feu alors qu'il siégeait sur le trône, laissant la force de rejet secouer son corps aussi violemment qu'au dix-huitième souffle. Cependant, la puissance qui, au dix-huitième souffle, suffisait à briser son corps ne pouvait plus l'affecter outre mesure.
 
@@ -54,11 +54,11 @@ Au même moment, le corps du démon ancien se remplissait de l'énergie de démo
 
 Son œil droit, autrefois terne, brillait intensément et une étoile de démon ancien était sur le point de se former! Elle se condensait lentement, devenant de plus en plus nette!
 
-À ce moment précis, Tuo Sen, qui guérissait à l'extérieur du filet, bougea soudainement. Sa chair s'animait et il avait récupéré 80 % de ses forces!
+À ce moment précis, Tuo Sen, qui guérissait à plusieurs milliers de pieds, à l'extérieur du filet, bougea soudainement. Sa chair s'animait et il avait récupéré 80 % de ses forces!
 
 Le corps de Tuo Sen était celui de Tu Si. À l'époque, Tu Si était infiniment proche de devenir un Dieu Antique royal à 9 étoiles. Il s'était même enlisé à huit étoiles pendant bien trop longtemps, son corps ayant atteint la limite d'un Dieu Antique à 8 étoiles!
 
-Afin de franchir le seuil des neuf étoiles, Tu Si avait utilisé le sort interdit des Dieux Antiques, la technique de l'Encre Fluide. Cependant, l'opération avait échoué, et c'est ainsi que le démon intérieur Tuo Sen était apparu!
+Afin de franchir le seuil des neuf étoiles, Tu Si avait utilisé le sort secret des Dieux Antiques, la Technique Divine de Division de l'Encre Fluide. Cependant, l'opération avait échoué, et c'est ainsi que le démon intérieur Tuo Sen était apparu!
 
 La capacité de récupération de Tuo Sen était bien plus grande que celle de Wang Lin. S'il n'avait pas été si gravement blessé par le rugissement, il ne se serait pas laissé attendre aussi longtemps pour guérir.
 
@@ -100,7 +100,7 @@ Alors que Tuo Sen frappait l'air, une ombre gigantesque apparut derrière lui. C
 
 Cette ombre illusoire était Tu Si!
 
-Un Dieu Antique au sommet des 8 étoiles, l'ombre de Tu Si! Tuo Sen était le démon intérieur de Tu Si, et bien qu'il ait attaqué son propre maître, son âme et sa volonté appartenaient toujours à Tu Si!
+Un Dieu Antique au sommet des 8 étoiles, l'ombre de Tu Si! Tuo Sen était le démon intérieur de Tu Si, et bien que ce démon ait pris le dessus, son âme et sa volonté appartenaient toujours à Tu Si!
 
 À cet instant, avec un coup de poing de pleine puissance, l'ombre de Tu Si se manifesta. L'ombre lança également un coup vers Wang Lin!
 

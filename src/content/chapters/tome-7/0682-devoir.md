@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 682 - Duty
 slug: devoir
 ---
-L'esprit tourmenté pouvait clairement entendre les paroles de Wang Lin, mais ses yeux étaient empreints de froideur et de ressentiment. Il continuait de mordre le doigt de Wang Lin, comme s'il voulait que celui-ci ressente ces centaines d'années de ressentiment d'un seul coup.
+L'esprit vengeur pouvait clairement entendre les paroles de Wang Lin, mais ses yeux étaient empreints de froideur et de ressentiment. Il continuait de mordre le doigt de Wang Lin, comme s'il voulait que celui-ci ressente ces centaines d'années de ressentiment d'un seul coup.
 
 Wang Lin observa l'enfant un long moment avant de laisser échapper un soupir. Le ressentiment qui pénétrait son corps ne pouvait l'affecter; il lui suffisait de laisser le tonnerre en lui balayer le corps pour que tout soit dissipé.
 
@@ -16,7 +16,7 @@ Finalement, Wang Lin ramassa délicatement la sphère de restriction contenant l
 
 Wang Lin murmura: « Quand j'aurai réglé les affaires en cours, je me retirerai en culture fermée pour dissiper ton ressentiment. Ping Er, ne t'inquiète pas. » Puis sa main droite s'étira et saisit immédiatement la quatrième âme. Il sortit le Étendard de l'Âme et y projeta l'âme.
 
-« Maître Du Tian, ce disciple a récupéré la puissance de la quatrième âme. La véritable puissance du Étendard de l'Âme va apparaître une fois de plus! » Wang Lin se retourna et son regard se posa sur la ville au loin.
+« Maître Dun Tian, ce disciple a récupéré la puissance de la quatrième âme. La véritable puissance du Étendard de l'Âme va apparaître une fois de plus! » Wang Lin se retourna et son regard se posa sur la ville au loin.
 
 Wang Lin dit calmement: « Sors. »
 

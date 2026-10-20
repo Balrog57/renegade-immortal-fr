@@ -30,11 +30,11 @@ L'homme d'âge moyen ressentit cet effet avec une intensité accrue. Son corps f
 
 Il avait perdu le contrôle de son corps. Lorsque Wang Lin avait parlé, il eut l'impression que cent mille montagnes s'étaient abattues sur lui. L'homme d'âge moyen recula de nouveau en crachant davantage de sang. Il fut projeté tel un cerf-volant à la corde rompue, balayé hors de la grotte.
 
-Sous les yeux des dizaines de milliers de cultivateurs à l'extérieur, l'homme d'âge moyen fut expulsé et recracha une troisième fois du sang. Il fut projeté à des dizaines de milliers de pieds avant de s'immobiliser. Son visage était d'une pâleur mortelle et la terreur dans ses yeux était indescriptible.
+Sous les yeux des dizaines de milliers de cultivateurs à l'extérieur, l'homme d'âge moyen fut expulsé et recracha une troisième fois du sang. Il fut projeté à plus de dix mille pieds avant de s'immobiliser. Son visage était d'une pâleur mortelle et la terreur dans ses yeux était indescriptible.
 
 « Qui êtes-vous?! » hurla immédiatement l'homme d'âge moyen.
 
-Cette scène soudaine choqua non seulement tous les disciples de la Secte du Dragon Bleu, mais aussi les deux anciens qui s'étaient transformés en dragons. Le maître de Nuage Virtuel écarquilla les yeux, remplis d'incrédulité.
+Cette scène soudaine choqua non seulement tous les disciples de la Secte du Dragon Bleu, mais aussi les deux anciens qui s'étaient transformés en dragons. Le maître de Xu Yun écarquilla les yeux, remplis d'incrédulité.
 
 « Qui est donc dans cette grotte?! Même l'Ancien Zhao, au stade avancé du Vide Spirituel, a été instantanément repoussé et gravement blessé?! »
 
@@ -68,7 +68,7 @@ Les yeux de Kang Ren rencontrèrent le regard de Wang Lin, et son esprit fut sec
 
 Wang Lin ignora Kang Ren. Son Sens Divin jaillit de sa main droite pour pénétrer l'esprit du jeune homme. Après avoir extrait les souvenirs dont il avait besoin, il projeta Kang Ren hors du feu et le maîtrisa à nouveau.
 
-« Maître de secte au stade précoce du Vide Arcanique et Ancêtre au stade précoce de la Tribulation du Vide, Du Qing... » Wang Lin fronça les sourcils. Le stade précoce du Vide Arcanique n'était pas une menace, mais le stade précoce du Tribulant du Vide était plus problématique.
+« Maître de secte au stade précoce du Vide Arcanique et Ancêtre au stade précoce de la Tribulation du Vide, Du Qing... » Wang Lin fronça les sourcils. Le stade précoce du Vide Arcanique n'était pas une menace, mais le stade précoce de la Tribulation du Vide était plus problématique.
 
 « Il n'est pas opportun d'ouvrir mon espace de stockage, car un accident pourrait survenir. Je ne peux donc ni sortir mes trésors, ni utiliser la Marionnette Yi Si... Par conséquent, je serai désavantagé face à un cultivateur Tribulant du Vide... »
 

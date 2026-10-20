@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1767 - Seize the Remanent Soul
 slug: saisir-lame-residuelle
 ---
-Wang Lin médita silencieusement, assis non loin de la femme. Ses paroles résonnaient dans son cœur. Il n'avait jamais entendu parler de cela auparavant; après tout, il n'avait pas encore fusionné avec la troisième âme.
+Wang Lin médita silencieusement, assis non loin de la femme. Ses paroles résonnaient dans son cœur. Il n'avait jamais entendu parler de cela auparavant; après tout, il n'avait pas entièrement fusionné avec la troisième âme.
 
 En regardant autour de lui, il constata que l'endroit était recouvert d'une glace infinie, semblable à ce que la femme avait décrit.
 
@@ -16,7 +16,7 @@ La femme remarqua également ces ondulations et dit rapidement: « Vous êtes la
 
 « Cependant, si celui qui s'élance est trop puissant, elle ne pourra pas le contenir longtemps. »
 
-Après avoir parlé, elle fixa Wang Lin. Voyant celui-ci hocher la tête, elle agita la main. Des craquements résonnèrent et de la glace surgit du néant. Elle commença à se propager depuis ce point central. Un grondement tonitruant balaya le monde. Wang Lin vit que l'univers entier était en train d'être rapidement gelé.
+Après avoir parlé, elle fixa Wang Lin. Voyant celui-ci hocher la tête, elle agita la main. Des craquements résonnèrent et de la glace surgit du néant. Elle commença à se propager depuis ce point central. Un grondement tonitruant balaya le monde. Wang Lin vit que le monde entier était en train d'être rapidement gelé.
 
 Cette glace ne présentait aucune fissure, donnant l'impression que le monde tout entier s'était transformé en un bloc de glace monolithique. Tandis que l'énergie glaciale se répandait partout, le monde s'assombrissait.
 
@@ -84,7 +84,7 @@ Cependant, l'ombre qui l'entourait à présent n'était pas issue de sa culture,
 
 L'âme originelle de Ye Mo était devenue complète grâce au rassemblement de tout le sang du cœur. Son ombre se solidifia progressivement pour prendre la forme d'une personne réelle flottant derrière Wang Lin. C'était un phénomène très étrange.
 
-Simultanément, l'aura de Ye Mo émanait de son âme originelle. Cette aura était capable de faire trembler les cieux, et tout membre des trois anciens clans né de sa lignée ressentirait qu'il faisait face à son ancêtre en la percevant!
+Simultanément, l'aura de Ye Mo émanait de son âme originelle. Cette aura n'avait rien de spectaculaire, mais tout membre des trois anciens clans né de sa lignée ressentirait qu'il faisait face à son ancêtre en la percevant!
 
 La pression exercée par l'âme et l'esprit était suffisante pour faire trembler et prosterner n'importe quel membre des trois clans issus du sang de Ye Mo.
 
@@ -94,7 +94,7 @@ Sous cette pression, la femme Ancien Dieu pâlit. Elle se prosterna lentement et
 
 Xuan Luo regarda l'âme de Ye Mo derrière Wang Lin avec une pointe de pitié et soupira.
 
-« Cet enfant, Ye Mo, était assez talentueux pour disperser son sang dans ce monde caverneux afin de former les trois clans. Heureusement, Wang Lin est apparu, ainsi Ye Mo a accompli une bonne œuvre! Seulement, si vous voulez prendre le corps de Wang Lin... c'est impossible! » Xuan Luo ferma les yeux. S'il n'était pas venu pour Wang Lin mais avait rencontré cette situation, il aurait aidé Ye Mo. Cependant, son choix était désormais fait.
+« Cet enfant, Ye Mo, était assez talentueux pour, après sa mort, disperser son sang dans ce monde caverneux afin de former les trois clans. Heureusement, Wang Lin est apparu, ainsi Ye Mo a accompli une bonne œuvre! Seulement, si vous voulez prendre le corps de Wang Lin... c'est impossible! » Xuan Luo ferma les yeux. S'il n'était pas venu pour Wang Lin mais avait rencontré cette situation, il aurait aidé Ye Mo. Cependant, son choix était désormais fait.
 
 Ye Mo avait dispersé son sang, dont quelques gouttes de sang d'âme originelle. Une fois le sang d'âme réuni, son âme originelle se reformerait et il pourrait posséder le corps. Comme ce corps appartiendrait à l'un de ses descendants, il n'y aurait aucun risque d'échec.
 

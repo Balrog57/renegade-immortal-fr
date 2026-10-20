@@ -20,7 +20,7 @@ Dans son corps, la quatrième et la cinquième Veine Magique apparurent!
 
 Un seul Exalté Doré avait permis l'apparition de deux Veines Magiques! Wang Lin agita légèrement les bras et des ombres se formèrent. Il sentit clairement non seulement que sa vitesse d'incantation augmentait, mais aussi que sa force physique était devenue terrifiante.
 
-C'était là la clé de l'Art du Sort Rapide; c'était ce qui avait attiré Wang Lin!
+C'était là la clé de l'Art Magique Rapide; c'était ce qui avait attiré Wang Lin!
 
 « Testons la rapidité de mon corps! » Wang Lin leva les yeux et son corps s'élança. Bien qu'il fût toujours assis sous le soleil, la lumière solaire se déforma et un second Wang Lin apparut à trente pieds de là.
 
@@ -38,7 +38,7 @@ Chacune de ces 98 silhouettes pouvait être considérée comme un avatar. Il s'a
 
 Il était très simple d'atteindre une telle vitesse avec l'aide de sorts, mais y parvenir uniquement par la force du corps physique n'avait rien d'ordinaire!
 
-« Désormais, j'ai six Veines Magiques. L'Art du Sort Rapide peut former neuf Veines Magiques, mais il n'est pas dit que neuf est la limite. Peut-être qu'une fois que j'en aurai neuf, de nouveaux changements surviendront... »
+« Désormais, j'ai six Veines Magiques. L'Art Magique Rapide peut former neuf Veines Magiques, mais il n'est pas dit que neuf est la limite. Peut-être qu'une fois que j'en aurai neuf, de nouveaux changements surviendront... »
 
 « Ce sort est extrêmement puissant, je dois m'y consacrer! » Wang Lin se rassit, le regard brillant. Le chemin à parcourir était tracé; il ne lui restait plus qu'à décider comment l'emprunter.
 
@@ -58,7 +58,7 @@ Il était très simple d'atteindre une telle vitesse avec l'aide de sorts, mais 
 
 « Mais si je peux fusionner mes trois Corps Véritables d'Essence en un seul, peut-être pourrai-je devenir un Grand Empyréen! » Tandis que Wang Lin méditait silencieusement, ses yeux étincelaient. Tout ceci n'était que ses propres analyses, et il lui faudrait du temps pour les vérifier.
 
-« Si mon analyse est correcte, il doit exister un niveau au-delà des Grands Empyréens! Peut-être est-ce la quatrième étape, ou peut-être non... Ce niveau nécessiterait que mes trois Corps Véritables d'Essence fusionnent en un seul pour atteindre le stade de l'Âme Véritable!! »
+« Si mon analyse est correcte, il doit exister un niveau au-delà des Grands Empyréens! Peut-être est-ce la quatrième étape, ou peut-être non... Ce niveau nécessiterait que mes trois Corps Véritables d'Essence fusionnent en un seul pour atteindre le niveau de Vrai Dieu!! »
 
 « Ce niveau devrait être quelque chose que même les Grands Empyréens n'ont pas encore atteint, une quête perpétuelle! Ou peut-être est-ce le niveau de l'Ancêtre Céleste et de l'Ancêtre Ancien!! » L'esprit de Wang Lin était d'une clarté limpide à cet instant. Bien qu'il ne s'agisse que de spéculations, c'était la voie qu'il devait emprunter.
 
@@ -96,7 +96,7 @@ Wang Lin fixa l'homme et dit simplement: « Oui! »
 
 « Bien! » L'ancêtre de la Secte du Dao Démoniaque ne montra ni mépris ni colère. À son niveau de culture, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalté Empyréen subordonné au Grand Empyréen Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Empyréens, il se situait toujours au sommet du Clan Céleste.
 
-« Je vais t'accorder l'opportunité de me défier. Si tu peux encaisser trois de mes coups, alors j'oublierai la destruction de ma Secte! » L'ancêtre agita sa manche et lança un coup de poing vers Wang Lin.
+« Je vais t'accorder l'opportunité de me défier. Si tu peux encaisser trois de mes coups, alors j'oublierai la destruction de ma Secte! » L'ancêtre agita sa manche et, à mille pieds de distance, lança un coup de poing vers Wang Lin.
 
 Ce coup fit changer les couleurs du monde et déforma les ruines de la Secte du Dao Démoniaque. Tout bascula; c'était comme si cet espace était devenu une existence distincte.
 

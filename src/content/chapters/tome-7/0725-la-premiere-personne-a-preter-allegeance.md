@@ -78,7 +78,7 @@ Wang Lin avait décidé d'étudier attentivement le changement de la perle défi
 
 Le cœur de Wang Lin battait rapidement. Il ne pouvait imaginer les conséquences.
 
-De plus, ce rêve avait assoupli son domaine. Il n'était plus loin du sommet du stade avancé de l'Ascendant, marquant la fin de la première étape de culture.
+De plus, ce rêve avait assoupli son domaine. Il n'était plus loin du sommet du stade avancé de l'Ascendant, qui le rapprochait de la fin de la première étape de culture.
 
 Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puissant devait être ainsi, car c'était lui qui avait perturbé la culture de ce Senior. Ce dernier s'était montré clément en ne le tuant pas.
 

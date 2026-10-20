@@ -18,7 +18,7 @@ Le coup partit et percuta la lance de flammes Joss du Shui Daozi. Le monde chang
 
 Rien ne put l'arrêter, tel un bambou qui se fend!
 
-La lance entière vola en éclats, déclenchant une vague de hurlements déchirants. La majorité des âmes de flammes Joss périrent misérablement sous la force de ce coup. Du sang jaillit de la bouche du Shui Daozi et il fut projeté en arrière, sous le choc. Chaque pas qu'il faisait pour reculer faisait trembler le monde.
+La lance entière vola en éclats, déclenchant une vague de hurlements déchirants. Un grand nombre des âmes de flammes Joss périrent misérablement sous la force de ce coup. Du sang jaillit de la bouche du Shui Daozi et il fut projeté en arrière, sous le choc. Chaque pas qu'il faisait pour reculer faisait tonner le ciel.
 
 Le Shui Daozi fut instantanément repoussé de neuf pas et cracha neuf bouffées de sang. Une force brutale s'engouffra dans son corps et des bruits de craquements résonnèrent alors qu'une destruction déchaînée commençait à ravager son organisme!
 
@@ -32,7 +32,7 @@ La montagne trembla, parcourue de fissures semblables à une toile d'araignée, 
 
 Un nuage de poussière s'éleva dans les airs avant de se propager en un large anneau. Wang Lin flottait dans les airs et contemplait le Shui Daozi comme il regarderait une fourmi. Il commença à descendre lentement.
 
-De l'autre côté, le vieil homme en noir qui combattait l'Estimé Ling Dong fut repoussé. À ce moment-là, son visage était pâle et il fulminait intérieurement. Il ressentait une peur profonde envers Wang Lin, qui ne lui avait même pas jeté un regard.
+De l'autre côté, le vieil homme en noir qui combattait l'Estimé Ling Dong fut repoussé. À ce moment-là, son visage était pâle et il se lamentait intérieurement. Il ressentait une peur profonde envers Wang Lin, qui ne lui avait même pas jeté un regard.
 
 « Qui est cet homme pour avoir des cultivateurs du troisième pas comme esclaves?! Comment ai-je pu offenser une telle personne? Tout est la faute de ce Shui Daozi!! »
 
@@ -46,7 +46,7 @@ Une lueur d'intention meurtrière traversa le regard calme de Wang Lin. Il s'ava
 
 « Tai Aluo!! »
 
-Alors que le Shui Daozi rugissait, un soupir résonna à travers le monde. Une silhouette sortit lentement du monde qui avait déjà commencé à se distordre sous l'effet des massacres.
+Alors que le Shui Daozi rugissait, un soupir résonna à travers le monde. Une silhouette sortit lentement du ciel, déjà distordu par les massacres.
 
 Le corps de cet homme était flou et il avançait pieds nus.
 
@@ -64,7 +64,7 @@ L'expression du Shui Daozi changea.
 
 « Nous parlerons de votre affaire plus tard. » Wang Lin se détourna et ne prêta plus attention à cet homme. Au lieu de cela, il se rapprocha du Shui Daozi et lança un nouveau coup!
 
-« Ce coup, au nom du Seigneur du Royaume Scellé, détruira le corps de cet esclave! » L'aura de Wang Lin était telle qu'elle ressemblait à une inondation lorsqu'il agita la main. Le monde gronda et un vent puissant balaya les environs. Le fantôme de la tête derrière Wang Lin se transforma en un poing colossal qui descendit du ciel!
+« Ce coup, au nom du Seigneur du Royaume Scellé, détruira le corps de cet esclave! » L'aura de Wang Lin était d'une puissance écrasante lorsqu'il agita la main. Le monde gronda et un vent puissant balaya les environs. Le fantôme d'un crâne antique derrière Wang Lin se transforma en un poing colossal qui descendit du ciel!
 
 Vu de loin, le monde entier fut recouvert par l'ombre de ce poing. Les yeux du Shui Daozi étaient injectés de folie. Avec son niveau de culture, il pouvait clairement ressentir l'intention meurtrière et cette aura puissante qui faisait trembler son cœur.
 
@@ -92,7 +92,7 @@ Le Shui Daozi projeta cette cloche vers le poing de Wang Lin!
 
 Une énergie spirituelle céleste d'une pureté extrême se répandit à travers le monde. La cloche dorée émit un son cristallin et, au moment où elle rencontra le poing de Wang Lin, une ondulation dorée éclata!
 
-Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis la Secte Divine comme épicentre... La Mer des Nuages, l'Alliance, la Rivière Invoquée et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
+Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis cette planète de culture comme épicentre... La Mer des Nuages, l'Alliance, la Rivière Invoquée et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
 
 La gigantesque Formation de Scellement du Royaume, qui emprisonnait le Royaume Intérieur, apparut pour la première fois depuis des dizaines de milliers d'années!
 
@@ -120,7 +120,7 @@ L'immensité de cette formation qui enveloppait tout le Royaume Intérieur étai
 
 « Tout était donc vrai!! Les habitants du Système Stellaire Antique sont à l'extérieur de la Formation de Scellement du Royaume!! »
 
-Dans la région de rang 1 de la Mer des Nuages, l'expression de Maître Hong Shan changea radicalement. Il fit un pas en avant, brisa le vide et chargea vers la Secte Divine!
+Dans la vallée de la région de rang 1 de la Mer des Nuages, l'expression de Maître Hong Shan changea radicalement. Il fit un pas en avant, brisa le vide et chargea vers la Secte Divine!
 
 « Damnation, c'est l'aura du Royaume Céleste Antique. Ce Shui Daozi possède réellement un tel objet!! »
 

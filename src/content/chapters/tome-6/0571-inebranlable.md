@@ -38,7 +38,7 @@ Mo Lihai esquissa un mince sourire: « Combien de temps comptez-vous y rester? �
 
 Les yeux de Mo Lihai se plissèrent: « Pour cultiver? »
 
-Wang Lin hocha la tête: « Je dois tuer pour entraîner mon sort, et si je le faisais ici, en pleine ville, cela causerait des troubles inutiles. » Il ajouta aussitôt: « Si j'y parviens, ma capacité à vous aider n'en sera que décuplée! »
+Wang Lin hocha la tête: « Je dois tuer pour entraîner mon sort, et si je le faisais ici, en pleine ville, cela causerait des troubles inutiles. » Il ajouta aussitôt: « Si j'y parviens, je serai bien plus sûr de pouvoir vous aider! »
 
 Mo Lihai se leva, fixa Wang Lin et demanda avec insistance: « En êtes-vous certain? »
 

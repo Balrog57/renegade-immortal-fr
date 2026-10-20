@@ -34,7 +34,7 @@ Wang Lin réfléchit un instant, puis joignit les mains en signe de respect enve
 
 « Ma sœur aînée est si désespérée de se venger que même moi, j'ai été utilisée... Nous pouvons coopérer, et je ferai de mon mieux pour vous aider. Je n'ai qu'une seule requête: lorsque vous ouvrirez la porte du Continent Astral Immortel, emmenez-moi avec vous... Je veux rentrer chez moi... »
 
-« Il est très difficile d'ouvrir cette grotte. Seule la troisième âme possède les souvenirs et sait où se trouve le Dao Céleste. Ce n'est qu'en invoquant le Dao Céleste que vous pourrez entrer dans la demeure du Souverain Céleste, dans le monde de la grotte de la Secte des Sept Dao... »
+« Il est très difficile d'ouvrir cette grotte. Il faut que la troisième âme apparaisse : elle seule possède les souvenirs et sait où se trouve le Dao Céleste. Ce n'est qu'en invoquant le Dao Céleste que vous pourrez entrer dans la demeure du Souverain Céleste, dans le monde de la grotte de la Secte des Sept Dao... »
 
 « La demeure du Souverain Céleste fut le théâtre de la grande guerre d'autrefois. Bien qu'elle soit en ruines, il s'y trouve une porte qui mène au Continent Astral Immortel. Ouvrir cette porte revient à ouvrir la grotte. »
 
@@ -76,7 +76,7 @@ Bien que son Sens Divin soit étendu, il restait pleinement concentré. Au moind
 
 Après plusieurs heures, Wang Lin s'arrêta brusquement et son expression changea. Sans hésiter, il recula rapidement, prêt à disparaître.
 
-Cependant, juste avant de s'éclipser, il laissa échapper un cri de surprise et fixa l'horizon, le visage oscillant entre plusieurs émotions.
+Cependant, juste avant de s'éclipser, il laissa échapper une exclamation de surprise et fixa l'horizon, le visage oscillant entre plusieurs émotions.
 
 Son Sens Divin percevait une silhouette assise là, immobile, à des centaines de milliers de kilomètres de distance, parmi les cadavres d'innombrables bêtes féroces. L'expression de cette silhouette passait tantôt par la complexité, tantôt par la confusion, tantôt par une tristesse mêlée d'excitation.
 
@@ -92,7 +92,7 @@ De l'autre côté, Wang Lin sentait qu'il s'agissait d'une opportunité inespér
 
 Il sentait faiblement que s'il renonçait à cette chance unique, il le regretterait amèrement!
 
-Après sept ou huit minutes de lutte intérieure, une lueur froide traversa le regard de Wang Lin.
+Après quinze minutes de lutte intérieure, une lueur froide traversa le regard de Wang Lin.
 
 « Chercher la richesse au cœur du danger! » Wang Lin avança avec une prudence extrême et sa silhouette disparut. Lorsqu'il réapparut, il se trouvait à 100 000 pieds du Daoïste aux Sept Couleurs.
 
@@ -106,7 +106,7 @@ Cependant, à l'instant où le cadavre franchit cette distance, une lumière aux
 
 Il n'y eut ni chair, ni sang, ni débris. Tout avait été totalement effacé.
 
-« Précisément! » Wang Lin médita intérieurement et avança avec précaution. Il ne pressait pas le pas, le cœur battant la chamade. Il franchit les 100 000 pieds de distance pour s'arrêter à 1 000 pieds du Daoïste aux Sept Couleurs, là où le cadavre avait disparu.
+« Précisément! » Wang Lin médita intérieurement et avança avec précaution. Il ne pressait pas le pas, le cœur battant la chamade. Il franchit près de 100 000 pieds de distance pour s'arrêter à 1 000 pieds du Daoïste aux Sept Couleurs, là où le cadavre avait disparu.
 
 Après un moment de réflexion, Wang Lin serra les dents et s'assit. Sa main droite pointa vers l'espace entre ses sourcils, semblant plonger profondément dans son âme. Sa vision devint floue alors qu'il retirait sa main pour la pointer vers le Daoïste aux Sept Couleurs.
 
@@ -116,4 +116,4 @@ Le doigt de Wang Lin trembla tandis qu'il pointait sa cible. Du sang coula du co
 
 Le sort du Dao du Rêve ne nécessitait pas de contact physique direct, mais le niveau de culture élevé du Daoïste aux Sept Couleurs et la barrière qui l'entourait empêchaient Wang Lin de pénétrer son illusion par ce moyen.
 
-Wang Lin fronça les sourcils, affichant une expression de regret.
+Wang Lin fronça les sourcils, affichant une expression de dépit.

@@ -28,7 +28,7 @@ Il y avait aussi cet incident au bord de la rivière. En y repensant, Zhang Kuan
 
 Ce n'est pas qu'il ne se demandait pas comment Wang Lin était devenu si fort, mais face au niveau de culture actuel de ce dernier, il s'interrompit aussitôt. Il sentait que s'il continuait à chercher la réponse, il mettrait sa propre vie en péril.
 
-Le frère Zhang, qui avait toujours réprimandé Wang Lin pour qu'il s'entraîne plus dur, se sentait profondément perplexe. Il regarda Wang Lin et dit d'un ton sombre: « Ce Wang Lin est un jeune homme que j'ai personnellement ramené de la famille Wang. C'était clairement un adolescent ordinaire. Quand il a tenté de se suicider, c'est moi qui l'ai sauvé. Cinq ans ont passé, et tant de choses ont changé. Il est désormais le premier disciple de la Secte Heng Yue. Le destin est vraiment trop cruel! Moi qui ai cultivé avec acharnement pendant dix ans, je n'ai atteint que le 6ème niveau. »
+Le frère Zhang, qui avait toujours réprimandé Wang Lin pour qu'il s'entraîne plus dur, se sentait profondément perplexe. Il regarda Wang Lin et dit d'un ton sombre: « Ce Wang Lin est un jeune homme que j'ai personnellement ramené de la famille Wang. C'était clairement un adolescent ordinaire. Quand il a tenté de se suicider, c'est moi qui l'ai sauvé. Cinq ans ont passé, et tant de choses ont changé. Il est désormais le plus grand expert parmi les disciples internes de la Secte Heng Yue. Le destin est vraiment étrange, chacun suit un chemin différent! Moi qui ai cultivé avec acharnement pendant dix ans, je n'ai atteint que le 6ème niveau. »
 
 Si la Secte Xuan Dao avait été surprise auparavant, elle était maintenant sous le choc!
 

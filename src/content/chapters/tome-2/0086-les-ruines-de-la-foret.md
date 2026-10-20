@@ -40,9 +40,9 @@ Sans un mot, Wang Lin sauta dans le trou. La terre fut alors ramenée pour combl
 
 Assis en tailleur sous terre, Wang Lin concentra son attention pour organiser l'énergie spirituelle dans son corps. Sa physiologie changeait constamment pour atteindre l'Établissement des Fondations.
 
-Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième séance de culture en méditation.
+Profitant du silence de l'obscurité et de l'absence de toute distraction, Wang Lin entama sa troisième retraite.
 
-Le temps s'écoula et, en un clin d'œil, trois années passèrent.
+Le temps filait, les années s'écoulaient comme une chanson, et en un clin d'œil trois années passèrent.
 
 La terre au-dessus de l'endroit où Wang Lin pratiquait était désormais recouverte de couches de feuilles en décomposition où grouillaient des insectes venimeux.
 
@@ -54,7 +54,7 @@ Dès l'apparition de la silhouette, tous les insectes poussèrent des cris de te
 
 Le regard de Wang Lin était électrique et tout son corps débordait d'une puissante énergie spirituelle. Il ouvrit la bouche et cracha une lumière verte qui se mua en son épée volante.
 
-Ses yeux brillèrent. Il tendit le doigt de la main droite et le fourreau, rangé dans son sac de rangement, s'éleva lentement dans les airs tandis qu'il murmurait: « Après trois ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
+Ses yeux brillèrent. Il tendit le doigt de la main droite et le fourreau, rangé dans son sac de rangement, s'éleva lentement dans les airs tandis qu'il murmurait, le visage toujours aussi calme: « Après trois ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
 
 Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea: « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a trois ans. Il s'est encore davantage affaibli lorsqu'il a lancé, pendant ma retraite, le sort qui masque la malédiction. Il dort depuis plus de deux ans et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Le plus important à présent est de trouver un lieu d'énergie Yin extrême pour la pratiquer. »
 
@@ -62,7 +62,7 @@ Ayant pris sa décision, Wang Lin prit une profonde inspiration et déploya son 
 
 Assis sur un rocher près de l'eau, il se remémora ce qu'il venait de vivre, le cœur plein d'émotion. Il ignorait si Zhang Hu était toujours en vie et priait pour qu'il ait survécu.
 
-Soupirant, Wang Lin chassa ces pensées pour se concentrer. Après un long moment, il forma un sceau de la main droite et projeta un rayon de lumière blanche. Dès son apparition, la couleur changea: passant du blanc au gris, elle s'assombrit progressivement tout en volant vers l'ouest.
+Soupirant, Wang Lin chassa ces pensées pour se concentrer. Après un long moment, il forma un sceau de la main droite et projeta un rayon de lumière blanche. Dès son apparition, la couleur changea: passant du blanc au gris, elle s'assombrit progressivement tout en scintillant et en filant vers l'ouest.
 
 Wang Lin était stupéfait. Cette technique lui avait été enseignée par Situ Nan pour débusquer les lieux à forte concentration d'énergie Yin. Plus la lumière était sombre, plus il approchait d'une énergie Yin extrême. Si la lumière devenait noire, cela signifierait qu'il avait trouvé sa destination.
 

@@ -66,7 +66,7 @@ Wang Lin se mua en un rayon de lumière blanche et fendit la foule. En moins de 
 
 Pas une seule goutte de sang n'avait souillé sa robe blanche, et son expression demeurait imperturbable. Derrière lui flottaient plusieurs dizaines de têtes dont les traits étaient encore figés par l'horreur de leur mort.
 
-« Ces têtes sont loin d'être suffisantes! » Wang Lin resta calme et s'élança de nouveau. Peu après, les milliers de cultivateurs arrivèrent; ils virent les restes sanglants flotter dans le vide et ressentirent l'intention meurtrière persistante.
+« Ces têtes sont loin d'être suffisantes! » Wang Lin resta calme et s'élança de nouveau. Peu après, les milliers de cultivateurs arrivèrent; ils virent les restes sanglants flotter dans le vide et ressentirent l'intention meurtrière persistante et sentirent l'odeur du sang.
 
 Wang Lin ne ralentissait pas. Aucun cultivateur du Royaume Extérieur qu'il croisait dans le Vide Brillant n'échappait à la mort.
 

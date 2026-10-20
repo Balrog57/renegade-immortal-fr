@@ -66,7 +66,7 @@ L'Omniscient sourit. « Peu importe. Tu arrives à point nommé. Je vais t'utili
 
 Les yeux de Ling Tianhou devinrent froids et il sourit: « C'est précisément mon intention! »
 
-L'Omniscient sourit à nouveau, leva sa main droite pour former un sceau et déclara: « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidance Céleste. Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, un puissant sort descendra des cieux; je vous prie donc d'être extrêmement attentifs! »
+L'Omniscient sourit à nouveau, leva sa main droite pour former un sceau et déclara: « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidance Céleste. Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, une immense puissance divine approchera; je vous prie donc d'être extrêmement attentifs! »
 
 Le Saint de l'Épée Ling Tianhou laissa échapper un renâclement froid, le regard glacial fixé sur l'Omniscient.
 
@@ -78,7 +78,7 @@ Le ciel ressemblait désormais à une mer déchaînée, et une pression céleste
 
 Alors que Wang Lin scrutait le ciel, l'énergie spirituelle céleste dans son corps devint chaotique. Une force mystérieuse semblait descendre des cieux, faisant trembler son corps de manière incontrôlable. Seule l'énergie spirituelle céleste métallique de son bras gauche, générée après trois cycles, n'était pas affectée et circulait calmement.
 
-Wang Lin envoya une commande pour libérer cette énergie métallique dans son corps. Il la contrôla avec précision pour qu'elle ne touche pas l'énergie spirituelle ordinaire lors de sa circulation. Après un cycle complet, ses tremblements se stabilisèrent en grande partie. Bien que son visage fût toujours pâle, il parvint à rester droit.
+Wang Lin libéra aussitôt cette énergie métallique et la fit circuler dans son corps. Il la contrôla avec précision pour qu'elle ne touche pas l'énergie spirituelle ordinaire lors de sa circulation. Après un cycle complet, ses tremblements se stabilisèrent en grande partie. Bien que son visage fût toujours pâle, il parvint à rester droit.
 
 Quant à Bai Wei, il tint bon un moment avant de pousser un soupir et de descendre au sol pour cultiver. Dans toute la Division Pourpre, à l'exception de Wang Lin, seule la Quatrième Sœur observait calmement le ciel. Aucun des disciples ordinaires de la Division Pourpre ne pouvait supporter la pression et ils s'étaient tous posés.
 

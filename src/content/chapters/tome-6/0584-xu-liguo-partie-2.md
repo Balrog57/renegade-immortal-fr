@@ -10,7 +10,7 @@ slug: xu-liguo-partie-2
 
 « Intéressant. Je ne m'attendais pas à ce que Mo Lihai possède un allié aussi incroyable... Je me demande combien il pourrait en supporter si j'utilisais les Sept Sorts Démoniaques... » Parmi les généraux démons se trouvait un homme aux cheveux noirs. Il toucha l'anneau à son doigt et esquissa un léger sourire.
 
-« Impitoyable! » Le Vice-Commandant Xuan serra le repose-bras, le cœur tourmenté.
+« Impitoyable! » Le Vice-Commandant Xuan serra le repose-bras en fixant Wang Lin, le cœur tourmenté.
 
 Les huit commandants en chef avaient tous porté leur attention sur Wang Lin. L'un d'eux, vêtu d'une chemise verte, affichait une élégance naturelle et regardait Wang Lin avec une pointe d'admiration.
 
@@ -34,7 +34,7 @@ Un reniflement glacial retentit sur la place, tel un coup de tonnerre. Cet écho
 
 L'homme à l'armure dorée pointa Wang Lin du doigt et s'écria: « Vous savez que quiconque tue un général démon sera exécuté! Puisque le général démon Ao Di n'est pas mort, je vous épargne pour cette fois. L'assistant d'Ao Di, apparais! »
 
-Un silence pesant s'installa sur les deux côtés de la place avant qu'une voix faible ne dise: « Je me rends! »
+Un silence pesant s'installa sur les deux côtés de la place avant qu'une voix faible ne dise: « J'abandonne! »
 
 Le regard de l'homme à l'armure dorée se fit sombre alors qu'il fixait Wang Lin: « Tu as gagné ce round. Retire-toi! »
 
@@ -44,17 +44,17 @@ Lorsqu'il rejoignit Mo Lihai, les yeux de ce dernier s'illuminèrent et il murmu
 
 Wang Lin esquissa un léger sourire mais resta silencieux.
 
-À cet instant précis, au plus profond du pavillon de l'Épée Impériale, l'Épée de l'Empereur se trouvait dans la formation, émettant des vagues de chants d'épées. Puisqu'elle se trouvait également dans la cité impériale au moment où Wang Lin avait attaqué, elle avait ressenti la même sensation, ce qui la rendait furieuse.
+À cet instant précis, au plus profond du pavillon de l'Épée Impériale, l'Épée de l'Empereur était plantée dans le sol, au cœur de la formation, émettant des vagues de chants d'épées. Puisqu'elle se trouvait également dans la cité impériale au moment où Wang Lin avait attaqué, elle avait ressenti la même sensation, ce qui la rendait furieuse.
 
-Dans sa rage, elle s'élança hors du sol, prête à charger et à anéantir cet individu comme elle l'avait fait tant de fois contre la Prison Hong. Cependant, alors qu'elle s'envolait, elle commença à hésiter.
+Dans sa rage, elle s'élança hors du sol, prête à charger et à réduire cet individu en morceaux comme elle l'avait fait tant de fois contre la Prison Hong. Cependant, alors qu'elle s'envolait, elle commença à hésiter.
 
 Après tout, l'Empereur Démon lui avait ordonné de rester discrète pendant quelques jours et de ne pas apparaître lors de la compétition des généraux démons, sous peine d'être envoyée au lac du dragon.
 
-Pensant cela, l'Épée de l'Empereur laissa échapper quelques chants d'épées frustrés, la pointe de sa lame dirigée vers la Porte Démoniaque Céleste. Après une longue lutte intérieure, elle finit par se transformer en une jeune fille d'environ vingt ans. Son corps entier était cristallin et ses traits d'une grande beauté. En atterrissant, elle commença immédiatement à donner des coups de pied dans le vide; à chaque mouvement, un éclair d'énergie d'épée jaillissait.
+Pensant cela, l'Épée de l'Empereur laissa échapper quelques chants d'épées frustrés, la pointe de sa lame dirigée vers la Porte du Démon Céleste. Après une longue lutte intérieure, elle finit par se transformer en une jeune fille d'environ vingt ans. Son corps entier était cristallin et ses traits d'une grande beauté. En atterrissant, elle commença immédiatement à donner des coups de pied dans le vide; à chaque mouvement, un éclair d'énergie d'épée jaillissait.
 
 De nombreuses parties du pavillon furent détruites, car ce n'était qu'en causant ces dégâts que sa colère s'apaisait un peu. Soudain, elle roula des yeux, une idée en tête.
 
-« L'Empereur Démon interdit à l'Épée de l'Empereur de sortir, mais je suis l'esprit de l'épée, alors cela devrait aller... Ça devrait être bon... D'accord, je n'attaquerai pas. Je vais juste jeter un coup d'œil à ce "casse-croûte" répugnant et mémoriser son aura pour le retrouver plus facilement. Oui, ça ne devrait poser aucun problème... » La jeune fille cligna des yeux avant de s'envoler du pavillon pour charger directement vers la Porte Démoniaque Céleste.
+« L'Empereur Démon interdit à l'Épée de l'Empereur de sortir, mais je suis l'esprit de l'épée, alors cela devrait aller... Ça devrait être bon... D'accord, je n'attaquerai pas. Je vais juste jeter un coup d'œil à ce "casse-croûte" répugnant et mémoriser son aura pour le retrouver plus facilement. Oui, ça ne devrait poser aucun problème... » La jeune fille cligna des yeux avant de s'envoler du pavillon pour charger directement vers la Porte du Démon Céleste.
 
 Alors qu'elle approchait de la place de trente-trois kilomètres de côté, son corps se mua en néant et elle se posa sur le toit du palais qui faisait face à la place pour observer la scène.
 
@@ -82,19 +82,19 @@ Wang Lin fronça les sourcils et frappa son sac de rangement pour en ouvrir une 
 
 Xu Liguo laissa échapper un sourire obscène en s'élançant vers la jeune fille.
 
-La fille était sur le point de chercher cet individu répugnable parmi la foule lorsqu'elle aperçut, stupéfaite, Xu Liguo qui fonçait sur elle d'un air menaçant. Elle fut totalement prise au dépourvu.
+La fille était sur le point de chercher ce « casse-croûte » répugnant parmi la foule lorsqu'elle aperçut, stupéfaite, Xu Liguo qui fonçait sur elle d'un air menaçant. Elle fut totalement prise au dépourvu.
 
 Voyant l'expression surprise de la petite beauté, Xu Liguo se sentit fier et bondit vers elle. La jeune fille lui lança un regard noir et, d'un coup de pied, projeta un rayon d'énergie d'épée vers lui.
 
 Xu Liguo eut un sourire espiègle: « Nous sommes tous deux des esprits d'épées, pourquoi tant de ferveur! » Sur ces mots, son corps se changea en brume, laissant l'énergie d'épée le traverser sans l'atteindre. L'instant d'après, il reprit forme et fondit à nouveau sur la jeune fille tel un loup sauvage.
 
-La fille fixa Xu Liguo avec rage. N'ayant plus le temps de chercher son "casse-croûte", elle s'enfuit immédiatement. Xu Liguo éclata de rire et la poursuivit de près. Les deux esprits d'épées disparurent rapidement dans les profondeurs du palais.
+La fille fixa Xu Liguo avec rage. N'ayant plus le temps de chercher son "casse-croûte", elle s'enfuit immédiatement. Xu Liguo éclata de rire et la poursuivit de près. Les deux esprits d'épées disparurent rapidement au-dessus du palais.
 
 « Petite beauté, suis simplement ton grand frère! Si tu me suis, je te promets une vie de bonheur. Ne pense pas que je suis laid; j'ai même un petit frère qui s'appelle la petite lame noire... »
 
 La réponse qu'il reçut fut un rayon d'énergie d'épée.
 
-« Oh? Petite beauté, tu as du caractère, mais ce n'est pas un problème! Ton grand frère Xu adore les filles de tempérament! Mon maître a dit un jour que plus une petite fille est vicieuse, plus sa taille est gracile! »
+« Oh? Petite beauté, tu as du caractère, mais ce n'est pas un problème! Ton grand frère Xu adore les filles de tempérament! Mon maître a dit un jour que plus une petite fille est emportée, plus sa taille est gracile! »
 
 Un nouveau rayon d'énergie d'épée vola vers lui, accompagné d'un cri de colère: « Ton maître n'est pas un homme bien! Va-t'en! »
 

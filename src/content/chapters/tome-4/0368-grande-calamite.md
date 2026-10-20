@@ -64,7 +64,7 @@ Il s'élança à la poursuite de Wang Lin.
 
 L'homme volait exactement à la même vitesse que lui. Il maintenait une vitesse trop lente pour le rattraper, tel un chat jouant avec une souris.
 
-Le visage de Wang Lin se décomposa davantage. Il frappa son sac de rangement et en sortit un morceau de jade. En le remplissant d'énergie spirituelle, une flamme bleue l'enveloppa rapidement avant qu'il ne disparaisse.
+Le visage de Wang Lin s'assombrit davantage. Il frappa son sac de rangement et en sortit un morceau de jade. En le remplissant d'énergie spirituelle, une flamme bleue l'enveloppa rapidement avant qu'il ne disparaisse.
 
 « Sun Tai, viens vite! » soupira Wang Lin.
 

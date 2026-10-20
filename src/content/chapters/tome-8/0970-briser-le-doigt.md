@@ -74,11 +74,11 @@ Les innombrables gouttes de pluie s'effondrèrent toutes, et le doigt toucha sou
 
 À cet instant précis, Wang Lin forma un sceau de sa main et pointa le cristal en criant: « Invocation de la Pluie! »
 
-Le cristal explosa. Au moment où il se brisa, le fantôme de Qing Shui derrière Wang Lin s'élança. Sa vitesse était telle qu'il laissait une traînée derrière lui. Il pénétra dans les débris du cristal et se transforma en une multitude de gouttes de pluie qui se répandirent sur cinq mille kilomètres à la ronde et convergèrent vers le doigt!
+Le cristal explosa. Au moment où il se brisa, le fantôme de Qing Shui derrière Wang Lin s'élança. Sa vitesse était telle qu'il laissait une traînée derrière lui. Il pénétra dans les débris du cristal et se transforma en une multitude de gouttes de pluie qui se répandirent sur dix mille kilomètres à la ronde et convergèrent vers le doigt!
 
 Cette fois, ce ne furent pas des gouttes éparses qui percutèrent la cible, mais toutes se condensèrent en une seule goutte unique! Cette gouttelette libéra une lueur rouge. Elle entra en collision directe avec le sort de l'Omniscient!
 
-Lors du choc, la gouttelette rouge dégagea une aura féroce et forma inopinément un vortex. Ce tourbillon entra en lutte contre les ondulations aux sept couleurs qui entouraient le doigt.
+Lors du choc, la gouttelette rouge dégagea une aura féroce et forma inopinément un vortex, telle une vrille tournoyante. Ce tourbillon entra en lutte contre les ondulations aux sept couleurs qui entouraient le doigt.
 
 Les ondulations aux sept couleurs s'effondrèrent aussitôt, avant de se transformer en sept dragons de couleurs différentes qui encerclèrent le doigt en rugissant avec fureur.
 

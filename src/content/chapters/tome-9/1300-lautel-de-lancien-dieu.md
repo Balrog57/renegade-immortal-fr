@@ -20,7 +20,7 @@ En quelques respirations seulement, le corps du scorpion se dessécha, vidé de 
 
 Le roi des moustiques poussa un sifflement d'extase. Son corps trembla tandis que son niveau de culture augmentait considérablement. Et il n'était pas le seul: les 5 000 autres bêtes moustiques poussèrent toutes des sifflements exaltés!
 
-Après avoir goûté au sang des bêtes et absorbé leurs essences, elles traversaient une phase de croissance fulgurante. Elles se dispersèrent alors pour traquer les bêtes féroces; dès qu'une proie était capturée, elles attaquaient en masse pour la vider de toute substance.
+Après avoir goûté au sang des bêtes et absorbé leurs essences, elles traversaient une phase de croissance fulgurante. Elles se dispersèrent alors pour traquer les bêtes féroces; dès qu'une proie était capturée, elles attaquaient en masse, à moitié folles, pour la vider de toute substance.
 
 Wang Lin détourna son regard des moustiques pour s'approcher du scorpion géant. D'un geste de sa main gauche, il arracha les sept queues restantes. Il ouvrit la bouche, cracha une bouffée de flammes bleues et mit les queues en feu.
 

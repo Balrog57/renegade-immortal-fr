@@ -74,9 +74,9 @@ Suspendu là, Wang Lin baissa la tête et contempla le Royaume Céleste du Vent 
 
 L'effondrement du Royaume Céleste du Vent n'était pas irréversible et, grâce aux bêtes moustiques, il n'avait pas été total. Cet endroit était bien plus préservé que les Royaumes Célestes de la Pluie ou du Tonnerre.
 
-Quant au Royaume Céleste du Tonnerre, Wang Lin ne s'y étant jamais rendu, il ignorait l'état des changements qui s'y étaient produits.
+Quant au Royaume Céleste de l'Éclair, Wang Lin ne s'y étant jamais rendu, il ignorait l'état des changements qui s'y étaient produits.
 
-« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste du Tonnerre est aussi bien préservé, je pourrai l'intégrer également! » Wang Lin prit une profonde inspiration et leva les mains. Sa culture de Vide Spirituel intermédiaire jaillit dans son Sens Divin qui enveloppait tout le royaume.
+« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste de l'Éclair est aussi bien préservé, je pourrai l'intégrer également! » Wang Lin prit une profonde inspiration et leva les mains. Sa culture de Vide Spirituel intermédiaire jaillit dans son Sens Divin qui enveloppait tout le royaume.
 
 Les fragments du Royaume Céleste du Vent convergèrent de toutes parts, comme poussés par une force invisible vers le centre!
 
@@ -104,6 +104,6 @@ Il y a fort longtemps, le Seigneur du Royaume Scellé avait créé ces quatre co
 
 Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler, tapies au sol, en suivant le mouvement du continent.
 
-Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste du Tonnerre!
+Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste de l'Éclair!
 
-Le Royaume Céleste du Tonnerre était le seul qu'il n'avait pas encore visité. Cet endroit diffusait d'innombrables éclats lumineux créant un reflet magnifique.
+Le Royaume Céleste de l'Éclair était le seul qu'il n'avait pas encore visité. Cet endroit diffusait d'innombrables éclats lumineux créant un reflet magnifique.

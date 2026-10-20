@@ -16,7 +16,7 @@ Bien que la progression fût lente, elle était stable. Grâce à la formation d
 
 Wang Lin avait calculé la distance parcourue pour traverser le brouillard la dernière fois; lorsqu'il estima qu'il restait moins de mille pieds, il ressentit soudain un sentiment de crise au plus profond de son cœur.
 
-La Bête du Tonnerre détecta ce danger encore plus tôt. Sans attendre l'ordre de Wang Lin, elle changea immédiatement de direction et chargea en avant.
+La Bête du Tonnerre détecta ce danger encore plus tôt. Sans attendre l'ordre de Wang Lin, elle changea immédiatement de direction et fonça en biais.
 
 Un tentacule gracile apparut comme une image rémanente et balaya l'endroit où Wang Lin se trouvait à l'instant même. Il était d'une rapidité telle qu'il ne sembla ne faire qu'une minuscule déchirure dans le brouillard.
 
@@ -32,7 +32,7 @@ Wang Lin eut le souffle coupé. « Cette chose ressemble étrangement à la troi
 
 Le Serpent aux yeux de lune possédait trois formes. La première était sa forme errante, flottante, dépourvue de tout pouvoir offensif. Lors de la première venue de Wang Lin, c'était l'état dans lequel il se trouvait.
 
-La deuxième forme apparaissait lorsque tous les tentacules étaient rétractés et que le Serpent aux yeux de lune changeait de configuration: c'était l'état de sommeil. Le serpent actuel se trouvait dans cet état.
+La deuxième forme apparaissait lorsque tous les tentacules étaient rétractés et que le Serpent aux yeux de lune changeait de configuration: c'était l'état de sommeil. Le serpent actuel, qui a pris la forme de la planète Yun Xia, se trouvait dans cet état.
 
 La troisième forme était celle de l'assaut. Tous les tentacules étaient alors déployés et pouvaient s'étendre aussi loin que le corps du serpent lui-même. Si l'on rencontrait un Serpent aux yeux de lune sous cette forme, il fallait fuir impérativement, sous peine d'être attaqué.
 
@@ -40,7 +40,7 @@ En y pensant, l'expression de Wang Lin devint plus sombre encore. Il regarda les
 
 « La dernière fois que je suis venu ici, il y avait deux Serpents aux yeux de lune. L'un était dans le premier état et le second dormait. Pourquoi ont-ils changé maintenant? J'ignore à quel serpent appartient ce tentacule. » Wang Lin réfléchit un instant. S'il partait maintenant, non seulement il aurait gaspillé son temps à récolter les Fruits d'Ascension Céleste, mais il perdrait également la formation d'épées aux sept étoiles.
 
-« Je ne vais pas perdre un trésor avant même de m'en approcher! » Les yeux de Wang Lin brillèrent d'un regard déterminé. Il n'était vraiment pas disposé à repartir ainsi. Il tapota la tête de la Bête du Tonnerre, qui chargea alors à travers le brouillard sans émettre le moindre rugissement.
+« Je ne vais pas perdre un trésor avant même de m'en approcher! » Les yeux de Wang Lin brillèrent d'un regard déterminé. Il n'était vraiment pas disposé à repartir ainsi. Il tapota la tête de la Bête du Tonnerre, qui chargea alors à travers le brouillard sans émettre le moindre rugissement, et franchit d'un bond les mille pieds restants.
 
 Une fois sorti du brouillard, son sens divin ne fut plus entravé. Le spectacle qui s'offrit à lui lui fit pousser un cri de stupeur.
 
@@ -100,7 +100,7 @@ La quantité de tentacules surgissant du sol était immense. Au début, la Bête
 
 Cependant, l'instant d'après, une puissance mystérieuse émana des tentacules qui se mirent à briller d'un éclat rouge. Cette lumière était aveuglante et, en un instant, toute la planète fut baignée de rouge.
 
-Les tentacules se déplacèrent avec une célérité accrue et, en un clin d'œil, ils encerclèrent la Bête du Tonnerre. Peu importait la force avec laquelle elle luttait ou les éclairs qu'elle déchaînait, rien n'avait d'effet sur eux. Elle ne parvenait même pas à briser un seul tentacule!
+Les tentacules se déplacèrent avec une célérité accrue et, en un clin d'œil, ils encerclèrent la Bête du Tonnerre. Peu importait la force avec laquelle elle luttait, ses morsures ou les éclairs qu'elle déchaînait, rien n'avait d'effet sur eux. Elle ne parvenait même pas à briser un seul tentacule!
 
 Wang Lin, resté à distance, affichait une expression extrêmement sombre. Le Serpent aux yeux de lune, sous sa troisième forme, était extrêmement sensible aux sons; ainsi, plus la Bête du Tonnerre rugissait, plus les tentacules se resserraient autour d'elle. Le mépris dans les yeux de la créature disparut, remplacé par une terreur pure.
 
@@ -110,6 +110,6 @@ Wang Lin envoya une transmission vocale: « Arrête de rugir! » Son visage éta
 
 Des brins de tentacules, aussi épais que des bras, étaient enroulés autour du fourneau. Ils ondulaient constamment, comme s'ils absorbaient une substance.
 
-L'expression de l'homme devint sombre lorsqu'il ouvrit soudainement les yeux. Les parois de la caverne se mirent à bouger et une masse de brume rouge jaillit des parois. Des résidus fétides contenant des traces d'électricité parvinrent également, rendant l'odeur absolument insupportable.
+L'expression du vieillard devint sombre lorsqu'il ouvrit soudainement les yeux. Les parois de la caverne se mirent à bouger et une masse de brume rouge jaillit des parois. Des résidus fétides contenant des traces d'électricité parvinrent également, rendant l'odeur absolument insupportable.
 
-Cet homme était Cupidité. Si Wang Lin avait été présent, il aurait reconnu cet endroit après un instant de réflexion comme le lieu où le Serpent aux yeux de lune absorbe ses nutriments et expulse ses déchets.
+Ce vieillard était Cupidité. Si Wang Lin avait été présent, il aurait reconnu cet endroit après un instant de réflexion comme le lieu où le Serpent aux yeux de lune absorbe ses nutriments et expulse ses déchets.

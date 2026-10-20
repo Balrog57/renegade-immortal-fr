@@ -10,7 +10,7 @@ Après avoir clairement identifié le symbole, Wang Lin tourna la tête. Au mome
 
 Yao Xixue s'était déjà éloignée dans le lointain, et Wang Lin la suivit d'un pas nonchalant.
 
-Son esprit était encore habité par ce symbole aperçu sur la statue. Ce signe ressemblait au symbole à trois traits dans les yeux de Yao Xixue ainsi qu’au symbole doré qui brillait dans ses propres yeux.
+Son esprit était encore habité par ce symbole aperçu sur la statue. Ce signe avait des traits communs avec le symbole à trois traits dans les yeux de Yao Xixue, et il était exactement identique au symbole doré qui brillait dans ses propres yeux.
 
 Tout en marchant, Wang Lin leva la main et son regard se posa sur sa paume. Le symbole à six traits réapparut sur sa peau.
 
@@ -22,7 +22,7 @@ Wang Lin réfléchit un instant avant de mémoriser le symbole, puis cessa d'y p
 
 « Elle possède la Pilule de l'Âme Sanguine; si je tentais une attaque surprise, elle ne ferait que ressusciter. Il serait difficile de l'éliminer... »
 
-Sept jours plus tard, une autre plateforme apparut au bout du Chemin du Dragon Sacré. Cette plateforme était de taille identique à la précédente et, tout comme elle, une statue en trônait au centre.
+Sept jours plus tard, une autre plateforme apparut au bout du Chemin du Dragon Sacré. Cette plateforme était de taille identique aux deux précédentes et, tout comme elle, une statue en trônait au centre.
 
 L'apparence de cette statue était presque indiscernable de la première. La seule différence résidait dans le troisième œil mi-clos qui ornait son front.
 
@@ -52,7 +52,7 @@ La statue poussa un rugissement, bondit en avant et porta un coup de poing. Les 
 
 Wang Lin effleura son sac de rangement et en sortit le drapeau de restriction. Il secoua l'étendard, et la force qui fonçait sur lui fut instantanément aspirée par le drapeau avant de disparaître.
 
-Au cours des centaines d'années passées à y ajouter des runes, le drapeau de Wang Lin avait déjà atteint 999 ensembles. Cependant, ce qui l'intriguait, c'était que la rétribution divine ne s'était jamais manifestée!
+Au cours des centaines d'années passées à y ajouter des restrictions, le drapeau de Wang Lin avait déjà atteint 999 ensembles. Cependant, ce qui l'intriguait, c'était que la rétribution divine ne s'était jamais manifestée!
 
 Ces 999 ensembles de restrictions étaient tous de type offensif et se révélaient extrêmement puissants lors de leur usage.
 

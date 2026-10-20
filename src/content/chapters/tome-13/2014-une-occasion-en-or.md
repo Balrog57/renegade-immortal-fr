@@ -60,7 +60,7 @@ La silhouette floue dit lentement: « Il a brûlé la puissance de l'aura solair
 
 Au moment où le pied de Wang Lin se posa sur la 200e marche, l'individu assis sur le pilier nord des quatre piliers entourant la tour ouvrit soudainement les yeux. Une lueur grise jaillit et il disparut sans laisser de trace.
 
-Lorsqu'il réapparut, il était sur l'escalier et marchait vers Wang Lin. Il agita la main, le visage totalement inexpressif, comme s'il portait un masque humain. Il pointa alors le doigt vers Wang Lin!
+Lorsqu'il réapparut, il était sur l'escalier et marchait vers Wang Lin. Il agita sa manche, le visage totalement inexpressif, comme s'il portait un masque humain. Il pointa alors le doigt vers Wang Lin!
 
 À cet instant, le monde bascula. C'était comme si un trou géant s'était ouvert dans la voûte céleste. La terre trembla et toute la montagne fut ébranlée.
 
@@ -88,7 +88,7 @@ Une fois immobile, il sentit clairement que les pouvoirs anciens et célestes de
 
 « Que ce soient les Exaltés Empyréens ou les Ascendants Empyréens du clan céleste, ils ne peuvent fouler mon mont. Seuls les Grands Empyréens le peuvent. Atteindre la 200e marche signifie que tu possèdes déjà les pouvoirs initiaux d'un Grand Empyréen. Continue, et montre-moi si tu peux atteindre la 300e marche. » Une voix indifférente résonna à l'oreille de Wang Lin.
 
-« Grand Empyréen Gu Dao, il est mon disciple! » Le rugissement de Xuan Luo retentit depuis le sommet de la montagne. Un rayon de lumière jaillit de la tour voisine de Wang Lin: c'était Xuan Luo.
+« Grand Empyréen Gu Dao, il est mon disciple! » Le rugissement de Xuan Luo retentit depuis le sommet de la montagne. Un rayon de lumière jaillit de la tour du sommet et se posa aux côtés de Wang Lin: c'était Xuan Luo.
 
 « C'est moi qui l'ai amené ici et c'est moi qui l'emmène! Grand Empyréen Gu Dao, moi, Xuan Luo, j'ai vécu ma vie pour le Dao Ancien, sans jamais me soucier de mes intérêts personnels. Depuis des temps immémoriaux, je ne me suis jamais plaint et j'ai toujours servi le clan ancien avec dévouement!
 
@@ -106,7 +106,7 @@ Xuan Luo afficha une expression complexe et s'inclina devant la tour. Il s'appr�
 
 « Toi… » Les yeux de Xuan Luo trahirent son inquiétude.
 
-« Maître, la pression du Mont Gu Dao est la meilleure des cultures pour ce disciple. Veuillez permettre au disciple de continuer! » Wang Lin joignit les mains et s'inclina devant Xuan Luo. Puis, il se retourna et marcha vers la 201e marche!
+« Maître, la pression du Mont Gu Dao est le meilleur lieu de cultivation pour ce disciple. Veuillez permettre au disciple de continuer! » Wang Lin joignit les mains et s'inclina devant Xuan Luo. Puis, il se retourna et marcha vers la 201e marche!
 
 Au moment où son pied toucha le sol, les bruits de son corps luttant contre la pression devinrent assourdissants, mais ses yeux brillaient d'une intensité rare.
 

@@ -16,7 +16,7 @@ Selon ses calculs, il aurait dû s'éveiller après cinq calamités, mais il s'�
 
 Il gardait des souvenirs flous de ce qui se trouvait dans la direction d'où émanait cette aura.
 
-« Cet endroit doit être celui du Gardien... » Après une courte réflexion, l'homme d'âge moyen se redressa lentement. Lorsqu'il se leva, une lumière spectrale brilla et une robe noire apparut. La robe recouvrait son visage, ne laissant apparaître que ses cheveux d'une longueur déconcertante qui perçaient le tissu par une méthode spéciale.
+« Ce doit être là que se trouve la lignée des Gardiens... » Après une courte réflexion, l'homme d'âge moyen se redressa lentement. Lorsqu'il se leva, une lumière spectrale brilla et une robe noire apparut. La robe recouvrait son visage, ne laissant apparaître que ses cheveux d'une longueur déconcertante qui perçaient le tissu par une méthode spéciale.
 
 Il marcha vers les cieux, ses longs cheveux flottant derrière lui tels un dragon noir. À mesure qu'il s'élevait, sa silhouette se transformait en celle d'un dragon noir, donnant l'impression que cet homme était lui-même une créature mythique. Il vola en direction du Continent Astral Immortel, situé à une distance extrême de cet endroit.
 
@@ -68,7 +68,7 @@ La fusion des trois essences se mua en une ligne imprégnée de ses souvenirs. C
 
 Au moment où l'anneau fut imprimé, la nostalgie dans le regard de Wang Lin disparut, remplacée par une lumière dorée.
 
-Dans cette clarté, le niveau de culture de Wang Lin augmenta de nouveau. En même temps que sa progression, il absorba toute la puissance qui était destinée au Scorpion Vert!
+Dans cette clarté, le niveau de culture de Wang Lin augmenta de nouveau. En même temps que sa progression, il absorba toute la puissance qui appartenait au Scorpion Vert!
 
 Même la majeure partie de l'âme du Scorpion Vert, que Wang Lin avait dévorée après l'échec de la possession, fut absorbée par son âme originelle.
 
@@ -106,7 +106,7 @@ Peu après, il agita de nouveau la main et le terrifiant corps véritable d'esse
 
 Dès que le corps véritable du tonnerre fut intégré, le corps de Wang Lin dégagea une aura choquante. Il sentit sa force croître de manière exponentielle. À ce stade, il pouvait affronter des cultivateurs du stade avancé de la Tribulation du Vide, même sans l'armure d'âme du Taureau Céleste!
 
-Et cela, sans même utiliser le tonnerre de massacre. S'il risquait d'employer ce tonnerre terrifiant, lui-même ignorait à quel point cette puissance serait dévastatrice...
+Et cela, sans même utiliser le tonnerre de massacre. S'il employait ce tonnerre terrifiant sans compter le prix, lui-même ignorait à quel point cette puissance serait dévastatrice...
 
 Ce tonnerre était une force qu'il avait créée par inadvertance et qu'il ne parvenait pas à contrôler!
 

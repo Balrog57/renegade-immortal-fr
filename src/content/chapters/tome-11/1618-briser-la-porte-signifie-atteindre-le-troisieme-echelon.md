@@ -82,7 +82,7 @@ Le jeune homme aux robes vertes fut tout aussi frappé. Il avait initialement vo
 
 Si ces trois-là étaient ainsi affectés, il ne fallait même pas parler des dizaines de milliers de cultivateurs du Royaume Extérieur. Ils reculèrent tous devant les paroles de Wang Lin, le fixant avec une peur infinie.
 
-Wang Lin agita ses manches. Après avoir fait reculer le Maître Céleste Dieu du Vide par un rugissement, il leva la main droite vers la Porte du Vide.
+Wang Lin agita ses manches. Après avoir fait reculer le Maître Céleste Dieu du Vide par un rugissement, sans même le regarder, il leva la main droite vers la Porte du Vide.
 
 « Tonnerre, feu, karma, vie et mort, vrai et faux, massacre. Six essences portant mon nom, Wang Lin, je vous ordonne de briser la Porte du Vide! » Les paroles de Wang Lin se propagèrent et la Porte du Vide émit une pression infinie.
 

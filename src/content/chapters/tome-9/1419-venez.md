@@ -20,7 +20,7 @@ Si quitter ce monde signifiait devenir un être céleste, alors les paroles de W
 
 Après avoir médité un instant, le premier Oiseau Vermillon laissa échapper un soupir.
 
-« Peut-être as-tu raison... Peu importe, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Oiseau Vermillon sur une planète abandonnée des Terres Déchues pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
+« Peut-être as-tu raison... Soit, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Oiseau Vermillon sur une planète abandonnée des Terres Déchues pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
 
 « Bien que ce traître ait été fabriqué par quelqu'un, c'était la personne la plus talentueuse que j'aie jamais vue. Bien que je l'aie gravement blessé, sa culture était puissante et son esprit rusé. Il a dû se ménager une issue de secours.
 
@@ -56,7 +56,7 @@ Vingt-septième respiration!
 
 « Regardez son corps. Il semblait être face à une crise de vie ou de mort, mais maintenant il est redevenu calme! »
 
-Les cultivateurs environnants commençaient à débattre. Chaque respiration qui passait ébranlait davantage leur esprit. À ce moment précis, le feu de l'encens céleste devint monstrueux et couvrit presque la moitié du ciel.
+Les cultivateurs environnants commençaient à débattre. Chaque respiration qui passait ébranlait davantage leur esprit. À ce moment précis, le feu de l'encens céleste devint monstrueux et illumina la majeure partie du ciel.
 
 Cette flamme déchaînée chargea vers la petite partie restante de l'encens. En un instant, le bâton fut entièrement consumé.
 
@@ -78,9 +78,9 @@ Sous leurs yeux, le feu de l'encens descendit rapidement et dévora Wang Lin. L'
 
 Les cultivateurs environnants étaient en plein tumulte. Maître Simo prit une profonde inspiration et la joie apparut dans ses yeux. Cependant, sitôt apparue, cette joie s'évanouit pour laisser place à une noirceur sans fin.
 
-La main droite de la Grande Maîtresse Yun Luo fut de nouveau ensanglantée alors qu'elle était interrompue une fois de plus. Cette fois, ce n'était pas une force étrange qui l'avait stoppée, mais un regard indifférent émanant de l'encens en flammes!
+La main droite de la Grande Maîtresse Yun Luo fut de nouveau ensanglantée alors qu'elle était interrompue une fois de plus. Cette fois, ce n'était pas une force étrange qui l'avait stoppée, mais deux regards indifférents émanant de l'encens en flammes!
 
-Ce regard était fait de feu et de tonnerre, et dès son apparition, il fit trembler le monde!
+Ces regards étaient faits de feu et de tonnerre, et dès leur apparition, ils firent trembler le monde!
 
 Une ombre noire sortit progressivement du bâton d'encens calciné et apparut devant tous les cultivateurs présents!
 
@@ -112,11 +112,11 @@ En un instant, le feu éthéré qui s'était allumé au sein des dizaines de mil
 
 La scène était proprement stupéfiante. Le monstrueux Feu Éthéré ressemblait à de la fumée, se transformant en un immense vortex qui fut absorbé par Wang Lin. Les flammes l'enveloppèrent, formant une tempête de feu titanesque!
 
-Cette tempête tourbillonnait violemment, générant des rafales de vent impétueuses. Les cultivateurs alentour furent tous projetés en arrière de dix mille pieds par la bourrasque.
+Cette tempête tourbillonnait violemment, générant des rafales de vent impétueuses. Les cultivateurs alentour furent tous projetés en arrière de plusieurs dizaines de milliers de pieds par la bourrasque.
 
 « C'est... un rassemblement de Feu Éthéré externe!! » Les yeux du vieux Oiseau Vermillon s'écarquillèrent, remplis de choc.
 
-Le visage de la Grande Maîtresse Yun Luo était pâle et son esprit tremblait. À cet instant, si Wang Lin avait eu une perle et une aiguille flottant devant lui, il aurait ressemblé exactement à la figure qu'elle avait vue autrefois.
+Le visage de la Grande Maîtresse Yun Luo était pâle et son esprit tremblait. À cet instant, si Wang Lin avait eu une perle et une aiguille flottant devant lui, il aurait ressemblé presque exactement à la figure qu'elle avait vue autrefois.
 
 Le corps de Wang Lin s'éleva au cœur de la tempête de Feu Éthéré. Il regarda vers le bas, passant au-dessus de Yun Luo pour fixer directement le sombre Maître Simo.
 

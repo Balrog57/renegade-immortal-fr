@@ -58,7 +58,7 @@ Après une courte réflexion, Wang Lin s'engagea sur le petit sentier entre les 
 
 En progressant, Wang Lin observa la surface des deux montagnes qui bordaient ce passage étroit. Des zones humides marquaient les parois lisses, et parfois, des gouttes d'eau s'en écoulaient.
 
-Après avoir parcouru une centaine de mètres, l'expression de Wang Lin changea: il réalisa que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
+Après avoir parcouru plusieurs dizaines de mètres, l'expression de Wang Lin changea: il réalisa que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
 
 « Si cet endroit est humide toute l'année, de la mousse devrait y pousser. Après tout, le reste du lieu ressemble à la planète extérieure. Pourtant, ici, on dirait que l'humidité n'est apparue que récemment! »
 
@@ -88,7 +88,7 @@ Wang Lin resta immobile devant l'entrée et réfléchit.
 
 Wang Lin fronça les sourcils. Il resta en retrait un instant et, au moment où il s'apprêtait à partir, son expression changea brusquement et il fit volte-face.
 
-Une douleur fulgurante lui transperça le cœur. C'était comme si un fragment d'âme se trouvait à l'intérieur, l'appelant faiblement.
+Une douleur fulgurante lui transperça le cœur. C'était comme si, au fond de la vallée, un fragment d'âme l'appelait faiblement.
 
 « Wan Er! » Wang Lin fut saisi de stupeur et comprit enfin!
 
@@ -96,11 +96,11 @@ Wan Er était à l'intérieur de la Perle Défiant le Ciel, et cette perle rési
 
 Le regard de Wang Lin devint glacial. Cette fois, il n'hésita plus et s'élança vers les profondeurs des deux montagnes.
 
-Dès qu'il pénétra dans le passage, la femme qui l'avait bloqué reprit forme pour lui barrer la route. Elle leva sa main droite et l'agita; aussitôt, une épaisse vapeur d'eau remplit le sentier.
+Dès qu'il pénétra dans le passage, la femme qui l'avait bloqué reprit forme pour lui barrer la route. Elle leva sa main droite et la frappa vers l'avant; aussitôt, une épaisse vapeur d'eau remplit le sentier.
 
 Les yeux de Wang Lin se firent sombres. Sans un mot, il sortit son épée céleste sans ralentir sa course et la projeta en avant dans un cri. Puis, il plaça sa main gauche entre ses sourcils.
 
-Le corps de Wang Lin trembla un instant tandis que son âme originelle émergeait de lui. Son âme originelle, haute d'une trentaine de mètres, rattrapa l'épée céleste en un instant et continua sa charge.
+Le corps de Wang Lin trembla un instant, les yeux clos, tandis que son âme originelle émergeait de lui. Son âme originelle, haute d'une trentaine de mètres, rattrapa l'épée céleste en un instant et continua sa charge.
 
 En un clin d'œil, l'âme originelle de Wang Lin traversa le corps de la femme tandis que l'épée céleste la transperçait.
 

@@ -62,7 +62,7 @@ La femme trembla, recula inconsciemment de quelques pas pour se cacher derrière
 
 « Zhou Yiting… » Après avoir entendu ce nom, Wang Lin fixa la femme d'un regard profond.
 
-« Autrefois, Zhou Yi appelait Qing Shuang "Ting Er"… Ce caractère « Yi » de Yiting signifie à la fois « souvenir » et « Yi »… Elle ne devrait plus jamais, de toute cette vie, retrouver les souvenirs de sa vie antérieure… » Wang Lin ferma les yeux. À l'époque, il avait commis un acte.
+« Autrefois, Zhou Yi appelait Qing Shuang "Ting Er"… Ce caractère « Yi » de Yiting signifie à la fois « souvenir » et, par homophonie, le « Yi » de Zhou Yi… Elle ne devrait plus jamais, de toute cette vie, retrouver les souvenirs de sa vie antérieure… » Wang Lin ferma les yeux. À l'époque, il avait commis un acte.
 
 Il n'aurait pas dû le faire, car chacun a droit à ses souvenirs. Mais lors de la réincarnation de Qing Shuang, il avait effacé sa mémoire!!
 

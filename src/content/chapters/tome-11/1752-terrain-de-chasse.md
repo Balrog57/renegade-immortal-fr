@@ -16,7 +16,7 @@ Sa main droite se serra devant tout le monde et la troisième âme disparut à n
 
 « Porte de la grotte, ouvre-toi! »
 
-Quiconque possédait la troisième âme pouvait ouvrir la porte menant au cœur de la grotte. Parmi les personnes présentes, seul Wang Lin en était capable! Il ne se souciait guère de l'intention meurtrière qui émanait de la foule. Il n'avait nullement l'intention de partir; il se trouvait au centre du cœur de la grotte, sur le point d'entamer son ultime massacre dans ce monde caverneux!
+Quiconque possédait la troisième âme pouvait ouvrir la porte menant au cœur de la grotte. Parmi les personnes présentes, seul Wang Lin en était capable! Il ne se souciait guère de l'intention meurtrière qui émanait de la foule. Il n'avait nullement l'intention de partir; il comptait se rendre au cœur de la grotte pour y mener son ultime massacre dans ce monde caverneux!
 
 Wang Lin ferait tout ce qui est nécessaire lors de ce carnage!
 
@@ -58,7 +58,7 @@ Après ces trois-là vint le Maître du Dao Rêve Bleu. Depuis le début, il ét
 
 Après un bref silence, tous les autres finirent par prendre leur décision et entrèrent, chacun poursuivant des desseins différents. Cependant, la plupart ne pensaient pas que Wang Lin puisse conserver la troisième âme. Il était fort probable qu'un nouveau Souverain aux Sept Couleurs émerge de ce duel entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan!
 
-Ils étaient venus par cette porte et, après d'innombrables années, ils y pénétraient à nouveau. C'était comme un cycle de réincarnation, ou un retour au point d'origine!
+Ils en étaient jadis sortis par cette porte et, après d'innombrables années, ils y pénétraient à nouveau. C'était comme un cycle de réincarnation, ou un retour au point d'origine!
 
 Alors que les divers cultivateurs entraient un à un, les derniers furent les membres de la planète des Cinq Éléments, menés par le vieil homme nommé Ma. Ils n'avaient pas d'autre choix et entrèrent dans un soupir.
 
@@ -86,7 +86,7 @@ Wang Lin portait la troisième âme en lui. Elle était scellée par Xie Qing, c
 
 Sous ses pieds, parmi les débris, il devinait qu'il s'était agi autrefois d'un royaume féerique rempli de chants d'oiseaux et de parfums de fleurs. Cet endroit était la véritable grotte du Souverain Céleste aux Sept Couleurs, le lieu même où il avait pratiqué sa culture en isolement. On pourrait dire que c'était le centre névralgique de tout le monde de la grotte!
 
-Pourtant, tout n'était plus que désolation, et un sentiment de vide envahit le cœur de Wang Lin. Il ressentit une vague nostalgie en contemplant ces ruines, sachant que ce sentiment ne venait pas de lui, mais de la troisième âme.
+Pourtant, tout n'était plus que désolation, et une profonde mélancolie envahit le cœur de Wang Lin. Il ressentit une vague nostalgie en contemplant ces ruines, sachant que ce sentiment ne venait pas de lui, mais de la troisième âme.
 
 Wang Lin réfléchit silencieusement tout en survolant les décombres. Toutes les restrictions avaient été brisées et n'existaient plus. Cependant, il s'arrêta à moins de dix mille pieds de son point de départ. Il regarda vers le bas, ses yeux brillant d'une lueur étrange.
 

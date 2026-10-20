@@ -74,7 +74,7 @@ Des tourbillons noirs s'agitaient sur les bords de la faille et de grandes bouff
 
 Il avait fallu tant d'efforts pour ouvrir une brèche dans la barrière spatiale vers le Système Stellaire de l'Alliance; comment Maître Yan Leizi aurait-il pu la laisser se refermer? Il avait trop attendu ce jour. Ses yeux étaient injectés de sang et son visage affichait une expression féroce. Sa main droite forma un sceau, il pointa le ciel et hurla: « Contenez les Cieux! »
 
-À l'intérieur du vortex, l'un des fragments se rétracta soudainement pour se refermer instantanément sur la fissure. Puis, le fragment reprit immédiatement de l'ampleur. Un grondement retentit tandis que la brèche était maintenue ouverte par la pression du fragment.
+À l'intérieur du vortex, l'un des fragments se rétracta soudainement pour se refermer instantanément sur la fissure. Puis, le fragment reprit immédiatement de l'ampleur. Un grondement retentit tandis que la brèche était maintenue ouverte par la pression du fragment, collé à la fissure comme une pièce sur une déchirure.
 
 Cependant, la déchirure dans la barrière spatiale possédait une puissance à laquelle aucun cultivateur ne pouvait résister. Le fragment fut instantanément broyé et s'effondra!
 

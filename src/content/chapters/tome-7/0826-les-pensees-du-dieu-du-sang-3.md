@@ -20,7 +20,7 @@ La bataille des domaines est la bataille du Dao. La bataille du Dao est en const
 
 Wang Lin étendit les bras et déclara calmement: « Ma main gauche détient la cause karmique du monde. Ma main droite détient l'effet karmique du monde. Voici le karma, mon karma! »
 
-Il ouvrit les yeux. Son œil gauche renfermait un soleil et son œil droit une lune. Il fixa Yao Changdong et le pointa du doigt.
+Il ouvrit les yeux. Son œil gauche renfermait un soleil et son œil droit une lune. Il fixa Yao Changdong et le pointa du doigt de sa main gauche.
 
 « Cause karmique, apparais! »
 
@@ -56,7 +56,7 @@ Le cercle karmique s'élança soudainement vers l'ombre du Céleste. Lorsqu'il a
 
 « Les Célestes ne cultivaient pas de domaines. Utiliser leur puissante énergie spirituelle céleste pour ouvrir les cieux fut une erreur fatale! Autrement, pourquoi le Royaume Céleste se serait-il effondré? Même l'Empereur Céleste, malgré sa puissance, est devenu fou en défiant les cieux et il en est mort. Quelle était la force de ton ancêtre comparée à celle de l'Empereur Céleste? Le fait que l'Empereur Céleste n'ait pas cultivé de domaine fut la cause karmique, et sa folie causant sa mort fut l'effet karmique! »
 
-« Le statut et la culture célestes de ta famille ne peuvent égaler l'Empereur Céleste. Ne pas cultiver de domaine et s'approprier par la force le pouvoir des cieux a causé la perte de ton ancêtre. C'est cela, le karma! À mon sens, ta gloire est vide! »
+« Le statut, la culture et les pouvoirs célestes de ta famille ne peuvent égaler l'Empereur Céleste. Ne pas cultiver de domaine et s'approprier par la force le pouvoir des cieux a causé la perte de ton ancêtre. C'est cela, le karma! À mon sens, ta gloire est vide! »
 
 « S'ils ont été détruits par les cieux, où réside donc leur gloire? Yao Changdong, le domaine que tu as cultivé et le Dao en lequel tu crois sont tous deux nuls! Ton ancêtre céleste est mort, mais plutôt que de chercher comment résister, tu as choisi de cultiver sa gloire. Non seulement ton Dao est vide, mais celui de l'ancêtre de ta famille Yao l'est aussi. En fin de compte, ta famille Yao périra! »
 
@@ -68,7 +68,7 @@ L'ombre du Céleste à l'extérieur du cercle karmique devint floue, comme si el
 
 « Tu es au début du stade Scruteur du Nirvana, et pourtant tu ne possèdes pas la moindre compréhension de ton propre Dao. Tout cela est né d'une illusion, comment pourrais-tu lutter contre moi? Mon Dao a radicalement changé au travers de mes expériences de vie. La douleur des séparations, la haine née des massacres, l'amertume de la perte d'un être cher et le devoir d'apaiser la rancœur de mon fils défunt... C'est ainsi que j'ai pris conscience du domaine de la vie et de la mort et que j'ai compris le monde. Bien que je sache que certaines choses doivent disparaître, je marche contre les cieux et refuse d'être asservi par le destin! Cela m'a permis de parfaire mon domaine de la vie et de la mort! »
 
-« Puis, mon domaine a évolué et j'ai conçu le domaine du karma! »
+« Puis, mon domaine a évolué et j'en ai tiré le domaine du karma! »
 
 « Ton domaine n'est qu'une gloire fallacieuse. Cette gloire s'est éteinte avec ton ancêtre et a disparu avec l'effondrement du Royaume Céleste!! Yao Changdong, tu te trompes lourdement! »
 
@@ -82,7 +82,7 @@ Le corps de Yao Changdong fut secoué par un dernier tremblement et l'ombre du C
 
 Le domaine karmique de Wang Lin se dissipa également. Le dernier fragment de talisman entre ses sourcils s'était brisé lors de cette bataille du Dao. L'énergie originelle remplit son corps et il s'élança hors de la zone de combat.
 
-À cet instant, le papillon à ses côtés battit doucement des ailes. Le corps de Yao Changdong s'effondra, et même son sac de rangement fut pulvérisé par cette puissance destructrice.
+À cet instant, le papillon à ses côtés battit doucement des ailes. Le corps de Yao Changdong s'effondra en une masse de chair et de sang, et même son sac de rangement fut pulvérisé par cette puissance destructrice.
 
 Toutes les traces de son existence furent effacées du monde.
 

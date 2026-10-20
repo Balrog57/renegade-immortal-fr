@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1103 - Cloud Sea
 slug: mer-de-nuages
 ---
-Au centre de l'Alliance, un champ d'étoiles jonché de débris s'étendait à perte de vue. Trois jeunes gens vêtus de jaune avançaient avec prudence. Leur état était lamentable: l'un d'eux présentait une large plaie à la jambe droite qui laissait apparaître l'os; bien que bandée, la blessure était ensanglantée et son visage était d'une pâleur extrême.
+Au centre de l'Alliance, un champ d'étoiles jonché de débris. Trois jeunes gens vêtus de jaune avançaient avec prudence. Leur état était lamentable: l'un d'eux présentait une large plaie à la jambe droite qui laissait apparaître l'os; bien que bandée, la blessure était ensanglantée et son visage était d'une pâleur extrême.
 
 Les deux autres étaient également blessés, en particulier celui qui se trouvait au milieu et tenait l'encens. Une plaie béante lui avait percé le côté droit de la poitrine, d'où le sang jaillissait par intermittence. Bien qu'il tentât de tenir bon, un autre compagnon devait le soutenir.
 
@@ -35,7 +35,7 @@ Ils échangèrent un regard et poursuivirent leur vol. Un instant plus tard, une
 
 Deux vieillards se tenaient au sommet de la formation. Vêtus de pourpre et arborant des cheveux blancs, leurs yeux dégageaient un regard puissant. Ils discutaient à voix basse en désignant la structure du doigt.
 
-L'arrivée des trois jeunes attira l'attention de l'assemblée, mais sans grande importance. Cependant, lorsque les regards se posèrent sur les bêtes moustiques qui les suivaient, les visages se décomposèrent. Certains, plus craintifs, s'écrièrent avec effroi:
+L'arrivée des trois jeunes attira l'attention de l'assemblée, mais sans grande importance. Cependant, lorsque les regards se posèrent sur les bêtes moustiques qui les suivaient, les visages se décomposèrent. Certains, plus craintifs et traumatisés par ces bêtes dans la Mer des Nuages, s'écrièrent avec effroi:
 — Des... des moustiques géants!
 
 Un tumulte soudain éclata. Les cent cultivateurs cessèrent leur tâche pour fixer les créatures du regard. Les trois jeunes en jaune, loin d'être intimidés, se sentirent fiers de l'effet produit; car, à vrai dire, lorsqu'ils avaient vu ces bêtes pour la première fois, ils avaient eu à peu près la même réaction.
@@ -86,4 +86,4 @@ Les pilules de Wang Lin étaient toutes des pilules célestes. Après leur inges
 
 Elle était manifestement indignée. Sans l'encens, comment un roi des moustiques aurait-il pu être ainsi terrassé par trois petits cultivateurs et voir ses subordonnés capturés? Elle n'avait jamais connu une telle humiliation depuis qu'elle suivait Wang Lin. Avec la présence de son maître, elle retrouva soudainement toute son énergie et chargea dans une direction précise.
 
-L'expression de Wang Lin s'assombrit tandis qu'il suivait la trace de ses compagnons. À mesure qu'il progressait, sa colère devenait monstrueuse. Autour de lui, des illusions de volcans miniatures commencèrent à se manifester.
+L'expression de Wang Lin s'assombrit tandis qu'il suivait la bête, qui pistait l'odeur de ses congénères. À mesure qu'il progressait, sa colère devenait monstrueuse. Autour de lui, des illusions de volcans miniatures commencèrent à se manifester.

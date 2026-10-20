@@ -8,7 +8,7 @@ slug: obtenir-lepee-en-bravant-le-danger
 ---
 À l'instant même où Wang Lin reconnut l'épée de fer, il s'immobilisa, une pointe d'hésitation dans le regard.
 
-Après avoir cultivé jusqu'à ce stade, Wang Lin savait que son héritage mémoriel était incomplet et qu'il lui manquait une partie extrêmement importante. Il était fort probable que les informations concernant cette épée de fer y fussent consignées. Cette mémoire se trouvait entre les mains de Tuo Sen; il pouvait donc connaître l'origine de cet objet.
+Après avoir cultivé jusqu'à ce stade, Wang Lin savait que son héritage mémoriel était incomplet et qu'il lui manquait une partie extrêmement importante. Il était fort probable que les informations concernant cette épée de fer y fussent consignées. Cette mémoire se trouvait entre les mains de Tuo Sen; il pouvait peut-être connaître l'origine de cet objet.
 
 Cependant, une épée de fer capable de plonger même Tuo Sen dans l'extase ne pouvait être un objet ordinaire!
 
@@ -30,7 +30,7 @@ Une fois sa décision prise, Wang Lin leva les yeux vers le puits. De là, il po
 
 Après avoir calculé la distance qu'il avait parcourue en descendant, il réfléchit un instant. Soudain, il redressa la tête et fixa l'épée de fer enfouie profondément dans la glace.
 
-Il serra les dents, ses mains tracèrent un sceau et des flammes jaillirent de ses yeux. À cet instant, sa culture au sommet du stade Scruteur du Nirvana explosa. Les cinq étoiles entre ses sourcils apparurent et tournèrent avec frénésie, tandis que des craquements résonnaient dans tout son corps.
+Il serra les dents, ses mains tracèrent un sceau et des flammes jaillirent de ses yeux. À cet instant, sa culture au sommet du stade Scruteur du Nirvana explosa. Les étoiles entre ses sourcils apparurent et tournèrent avec frénésie, tandis que des craquements résonnaient dans tout son corps.
 
 La puissance de l'Ancien Dieu irrigua ses membres et il serra le poing avec une force implacable. Se sentant capable de dompter les cieux, Wang Lin n'hésita plus. Il projeta son bras droit en avant.
 
@@ -88,7 +88,7 @@ Sa vitesse était telle qu'il allait rattraper Wang Lin en un éclair.
 
 Entre les innombrables cadavres aux yeux rouges qui fondaient sur lui par le haut et ce fantôme étrange qui le talonnait par le bas, la situation était critique. Les yeux de Wang Lin brillèrent d'une lueur déterminée alors qu'il chargeait sans hésiter.
 
-Les cadavres manquaient d'agilité. Bien que féroces, ils n'étaient pas doués d'intelligence et leur niveau de culture restait limité, se situant autour du stade Yin et Yang.
+Les cadavres manquaient d'agilité. Bien que féroces, leur puissance était fortement réduite, à peu près équivalente au stade Yin et Yang.
 
 Grâce à sa culture au sommet du stade Scruteur du Nirvana, Wang Lin pouvait percevoir les lignes rouges qui scintillaient entre les sourcils de ces créatures.
 

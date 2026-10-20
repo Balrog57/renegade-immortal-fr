@@ -78,7 +78,7 @@ Un roulement de tonnerre secoua l'air et l'homme massif recracha plusieurs bouff
 
 Pourtant, il ne fut pas coupé. L'énergie de meurtre faiblit soudainement jusqu'à se dissiper.
 
-L'homme pâlit, persuadé d'avoir péri. Il leva les yeux et vit Qing Shui être repoussé en arrière, crachant des gorgées de sang noir.
+L'homme pâlit, persuadé d'avoir péri. Rescapé de l'épreuve, il leva les yeux et vit Qing Shui être repoussé en arrière, crachant des gorgées de sang noir.
 
 Qing Shui n'avait pu porter le coup fatal; son corps ne pouvait plus supporter une telle puissance. À cet instant, alors qu'il rendait l'âme, la femme en rose le rattrapa.
 

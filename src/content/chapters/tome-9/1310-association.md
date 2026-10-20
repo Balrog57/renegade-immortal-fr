@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1310 - Association
 slug: association
 ---
-Le sort de dévoration céleste reposait sur la destruction totale pour une absorption absolue. Le corps du vieil homme s'effondra soudainement. Étrangement, sa chair et son sang ne se dispersèrent pas, mais se consumèrent rapidement en cendres.
+Le Sort d'Extinction Céleste reposait sur la destruction totale pour une absorption absolue. Le corps du vieil homme s'effondra soudainement. Étrangement, sa chair et son sang ne se dispersèrent pas, mais se consumèrent rapidement en cendres.
 
 Une brume s'échappa du corps déchu du vieil homme, révélant la silhouette de Wang Lin. Son visage était rubicond, mais une vague ligne noire marquait l'espace entre ses sourcils.
 
@@ -28,7 +28,7 @@ Des grondements tonitruants résonnaient tandis qu'il progressait, et une aura a
 
 Au fil du temps, son âme originelle guérit. Hormis la blessure sur sa poitrine infligée par la Hache Brise-Ciel, qui saignait encore, il n'y avait pas de problème majeur. Même cette plaie montrait des signes de cicatrisation après avoir absorbé tant de choses. Cependant, l'aura de la Hache Brise-Ciel ralentissait le processus de récupération.
 
-« Si je ne parviens pas à expulser cette aura, la guérison de cette blessure prendra une éternité! » Les yeux de Wang Lin devinrent glacials alors qu'il contemplait la région stellaire étincelante au loin.
+« Si je ne parviens pas à expulser cette aura, la guérison de cette blessure prendra un temps extrêmement long! » Les yeux de Wang Lin devinrent glacials alors qu'il contemplait la région stellaire étincelante au loin.
 
 « Absorber la chair et le sang de ces cultivateurs ordinaires ne suffira pas à l'expulser. Je dois absorber la puissance d'un Dieu Ancien... Dans ce Système Stellaire Antique, je ne connais qu'un seul endroit où trouver une telle puissance! »
 
@@ -104,6 +104,6 @@ Le rugissement de Tuo Sen résonna parmi les étoiles. Être pourchassé depuis 
 
 Bien qu'impulsif, il n'en demeurait pas moins rusé. Ces trois individus devaient avoir un dessein bien précis en le traquant ainsi! Cependant, alors qu'il était sur le point de rattraper et de dévorer Wang Lin, les trois l'entravèrent davantage. Cela fit atteindre à la colère de Tuo Sen son paroxysme.
 
-« Si je ne repousse pas ces trois-là, je n'aurai aucune chance de dévorer Wang Lin, même si je le rattrape! » Après avoir surgi de la fissure, ses yeux projetèrent une lueur monstrueuse et glaciale. Il fixa l'endroit où Wang Lin avait disparu, puis se retourna brusquement. Son corps s'étendit d'innombrables fois pour reprendre sa forme de Dieu Ancien!
+« Si je ne repousse pas ces trois-là, je n'aurai aucune chance de dévorer Wang Lin, même si je le rattrape! » Après avoir surgi de la fissure, ses yeux projetèrent une lueur monstrueuse et glaciale. Il fixa l'endroit où Wang Lin avait disparu, puis se retourna brusquement. Son corps s'étendit d'innombrables fois pour reprendre sa forme de Dieu Ancien, aussi haut que le ciel!
 
-« Cela fait dix ans que vous me poursuivez. Serait-ce pour attendre que ce Dieu s'épuise? Alors, ce Dieu va vous donner une chance! » Le rugissement de Tuo Sen fut apocalyptique, faisant trembler l'espace lui-même. Il se retourna et fit un pas direct vers les trois individus qui le poursuivaient à travers la fissure spatiale!
+« Cela fait dix ans que vous me poursuivez. Vous ne faites qu'attendre que ce Dieu s'épuise! Alors, ce Dieu va vous donner une chance! » Le rugissement de Tuo Sen fut apocalyptique, faisant trembler l'espace lui-même. Il se retourna et fit un pas direct vers les trois individus qui le poursuivaient à travers la fissure spatiale!

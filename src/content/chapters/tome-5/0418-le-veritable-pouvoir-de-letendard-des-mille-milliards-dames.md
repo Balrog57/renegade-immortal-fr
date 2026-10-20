@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 418 - The true power of the 1 billion soul soul flag
 slug: le-véritable-pouvoir-de-letendard-des-mille-milliards-dames
 ---
-Dès son apparition, il tua immédiatement plusieurs membres puissants du Clan des Immortels Délaissés et livra combat au jeune maître de ce dernier. Tout cela secoua instantanément la planète entière.
+Dès son apparition, il s'enfonça au cœur du Clan des Immortels Délaissés et tua plusieurs de ses membres puissants et livra combat au jeune maître de ce dernier. Tout cela secoua instantanément la planète entière.
 
 Leur affrontement était un duel prédestiné entre les futurs chefs de chaque camp.
 
@@ -54,9 +54,9 @@ Les fragments d'âmes devinrent soudainement frénétiques, s'élançant dans to
 
 L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante du drapeau d'âmes d'un milliard; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'une des armes les plus craintes par le Clan des Immortels Délaissés.
 
-En la voyant de ses propres yeux, son visage s'assombrit. Il agita la main pour faire reculer le nuage noir, ordonnant aux membres du clan à l'intérieur de créer une brèche au centre.
+En la voyant de ses propres yeux, son visage s'assombrit. Il agita la main: le nuage noir se dispersa aussitôt, et les membres du clan reculèrent, laissant une zone vide autour d'eux.
 
-Du Tian rit en entraînant Wang Lin pour charger hors du nuage et s'enfoncer dans les terres.
+Du Tian rit en entraînant Wang Lin pour charger hors du nuage et s'éloigner au loin.
 
 « Mu Ye, emmène les membres du clan rejoindre le jeune maître. Je vais tester la puissance du drapeau d'âmes d'un milliard! » ordonna l'homme d'âge moyen avant de poursuivre Du Tian.
 

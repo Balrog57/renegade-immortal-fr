@@ -32,7 +32,7 @@ Le visage de Wang Lin resta imperturbable. Il ricana et leva sa main droite pour
 
 L'impact entre le poing de Wang Lin et celui formé par le croissant lunaire provoqua un rugissement assourdissant.
 
-« Comment le sort d'un clan esclave peut-il défier un ancien dieu? » Wang Lin chargea et son poing droit enchaîna les coups contre le vortex. Le fracas se poursuivait tandis que le jeune homme, prisonnier du tourbillon, était repoussé sans cesse. Chaque pas en arrière lui arrachait du sang et faisait trembler violemment son corps.
+« Comment le sort d'un clan esclave peut-il rivaliser avec un ancien dieu! » Wang Lin chargea et son poing droit enchaîna les coups contre le vortex. Le fracas se poursuivait tandis que le jeune homme, prisonnier du tourbillon, était repoussé sans cesse. Chaque pas en arrière lui arrachait du sang et faisait trembler violemment son corps.
 
 À cet instant, Wang Lin ressemblait à un dieu de la guerre. Empli d'une intention de combat infinie, il progressait pas à pas!
 

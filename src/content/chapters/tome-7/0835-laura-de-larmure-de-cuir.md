@@ -8,7 +8,7 @@ slug: laura-de-larmure-de-cuir
 ---
 De l'autre côté, l'homme en robe noire apparut soudainement. Sa main droite traça un sceau et s'empara du vide, créant un immense vortex. Ce tourbillon traversa l'espace, et tout cultivateur qui le touchait disparaissait instantanément.
 
-Maître Yan Leizi et l'homme en robe noire étaient d'une rapidité extrême. Tandis que le vieil homme en robe rouge immobilisait le Serpent aux yeux de lune, ils repoussèrent les cultivateurs environnants un par un.
+Maître Yan Leizi et l'homme en robe noire étaient d'une rapidité extrême. Tandis que le vieil homme en robe rouge immobilisait le Serpent aux yeux de lune, ils firent disparaître les cultivateurs environnants un par un.
 
 S'ils croisaient un membre de la famille Yao, le regard de Maître Yan Leizi se glaçait et il utilisait intentionnellement dix pour cent de force supplémentaire. Cela leur infligeait de graves blessures avant qu'ils ne fusionnent avec le monde pour disparaître.
 
@@ -70,7 +70,7 @@ Le regard du Serpent aux yeux de lune devint glacial; il ouvrit la gueule et tou
 
 À cet instant, dans une pièce secrète du Temple Céleste du Tonnerre, trois personnes étaient assises. Une formation ancienne occupait la pièce, et les trois hommes siégeaient aux points clés de celle-ci.
 
-Parmi eux se trouvait Maître Yan Leizi. Il ouvrit les yeux, affichant une certaine hésitation. Simultanément, les deux autres ouvrirent également les yeux: le vieil homme en robe rouge et l'homme d'âge moyen en robe noire.
+Parmi eux se trouvait Maître Yan Leizi. Il ouvrit les yeux, affichant un air songeur. Simultanément, les deux autres ouvrirent également les yeux: le vieil homme en robe rouge et l'homme d'âge moyen en robe noire.
 
 L'homme en robe noire déclara: « Très puissant! »
 

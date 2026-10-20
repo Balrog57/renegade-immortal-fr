@@ -104,7 +104,7 @@ Wang Lin marcha lentement vers le Temple Dong Lin. Dès qu'il fut complètement 
 
 Dans le temple, juste devant Wang Lin, se dressaient trois grandes statues représentant deux hommes et une femme. Ils regardaient tous vers l'est avec un sourire, dégageant une aura imposante.
 
-Au pied des statues se tenait un vieil homme vêtu d'une robe grise. Son visage était parsemé de taches brunes, semblable à celui d'un mortel approchant du crépuscule de sa vie. Son expression était misérable, empreinte d'une tristesse infinie.
+Au pied des statues, un vieil homme vêtu d'une robe grise était assis en tailleur. Son visage était parsemé de taches brunes, semblable à celui d'un mortel approchant du crépuscule de sa vie. Son expression était misérable, empreinte d'une tristesse infinie.
 
 Outre sa mélancolie, une aura puissante résidait au plus profond de son être. Cette puissance surpassait celle de n'importe quel Exalté Empyréen que Wang Lin ait jamais rencontré.
 
@@ -138,6 +138,6 @@ Quelle émotion pouvait transformer un être en une telle créature? Quelle tris
 
 « Si ce jour arrive vraiment, peut-être ferai-je la même chose... »
 
-Le vieil homme parla soudainement, et ses paroles firent trembler le cœur de Wang Lin! « Verrouillez le destin des cieux et scellez les enfers. Ceux qui n'atteignent pas le véritable Dao sombreront dans un océan de souffrance et perdront à jamais la voie du vrai Dao. Suivez le chemin du véritable Dao! »
+Le vieil homme parla soudainement, et ses paroles firent trembler le cœur de Wang Lin! « Verrouillez la fortune du ciel et scellez le monde souterrain. Ceux qui n'atteignent pas le véritable Dao sombreront dans un océan de souffrance et perdront à jamais la voie du vrai Dao. Suivez le chemin du véritable Dao! »
 
 « C'était écrit sur une tablette de pierre, avec le sang de ma Secte Dong Lin, par le coupable... »

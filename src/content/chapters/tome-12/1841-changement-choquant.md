@@ -8,7 +8,7 @@ slug: changement-choquant
 ---
 Alors que ces mots résonnaient, la terre trembla et un poing géant de terre apparut, fonçant vers Wang Lin.
 
-L'expression de Wang Lin resta imperturbable, mais une lueur de froideur traversa son regard. Tandis que le poing de terre se rapprochait, il lança en retour un coup de poing de sa main desséchée.
+L'expression de Wang Lin resta imperturbable, mais une lueur de froideur traversa son regard. Tandis que le poing de terre se rapprochait, il lança en retour un coup de poing de sa main droite desséchée.
 
 Un fracas tonitruant retentit. Wang Lin ne bougea pas d'un pouce, mais le poing de terre trembla avant de s'effondrer. Un cri terrifié s'éleva des profondeurs du sol.
 
@@ -34,7 +34,7 @@ Alors qu'il fuyait, l'herbe derrière lui se desséchait plus vite encore. Certa
 
 « Bon sang, comment peut-il être aussi fort?! Mais il est seul! S'il s'attire la colère de tous, il mourra! »
 
-L'individu qui avait utilisé l'évasion terrestre était très rapide et chargeait vers les grottes. L'herbe derrière lui se fanait si vite qu'elle allait presque le rattraper. Lorsqu'il fut proche des cavités, une lueur de froid passa dans ses yeux lorsqu'une aura puissante éclata soudainement de l'une d'elles. Un vieil homme aux cheveux blancs en sortit alors.
+L'individu qui avait utilisé l'évasion terrestre était très rapide et chargeait vers les grottes. L'herbe derrière lui se fanait si vite qu'elle allait presque le rattraper. Quelques instants plus tard, lorsqu'il fut proche des cavités, une lueur de froid passa dans ses yeux lorsqu'une aura puissante éclata soudainement de l'une d'elles. Un vieil homme aux cheveux blancs en sortit alors.
 
 Dès son apparition, l'aura d'un cultivateur au début du stade de la Tribulation du Vide se propagea. Le vieil homme n'hésita pas et chargea le fuyard en agitant la main.
 
@@ -78,7 +78,7 @@ Dix jours passèrent en un éclair. Wang Lin croisa quelques cultivateurs, mais 
 
 Après dix jours, Wang Lin utilisa sa troisième Distorsion Spatiale et disparut de cette chaîne de montagnes.
 
-Le Continent de l'Est était immense, et entre le Continent du Taureau Céleste et le Continent du Démon Vert s'étendait une mer intérieure appelée la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
+Le Continent de l'Est était immense, et entre le Continent du Taureau Céleste et le Continent du Démon Vert s'étendait une mer intérieure appelée la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel, qui avait explosé avant de se transformer en mer.
 
 Cependant, cette légende était si ridicule qu'il paraissait impossible d'imaginer quelle sorte de pilule aurait pu engendrer un tel océan. Personne n'y croyait vraiment, mais le récit se transmettait de génération en génération.
 

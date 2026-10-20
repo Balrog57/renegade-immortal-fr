@@ -38,11 +38,11 @@ Wang Lin ignorait tout de cela. Il était déjà en culture fermée depuis dix j
 
 Il continuait à raffiner et à absorber la vaste quantité d'énergie originelle de Yao Bingyun. Lentement mais sûrement, cette énergie devenait la sienne!
 
-Pour Wang Lin, Yao Bingyun était semblable à un précieux élixir faisant progresser lentement son niveau de culture. Yao Bingyun, au stade intermédiaire du Scruteur du Nirvana, possédait une immense réserve d'énergie originelle. Après dix jours, Wang Lin n'en avait absorbé que 30 %.
+Pour Wang Lin, Yao Bingyun était semblable à un excellent fortifiant faisant progresser lentement son niveau de culture. Yao Bingyun, au stade intermédiaire du Scruteur du Nirvana, possédait une immense réserve d'énergie originelle. Après dix jours, Wang Lin n'en avait absorbé que 30 %.
 
 Après avoir raffiné et absorbé ces 30 % de l'énergie originelle de Yao Bingyun, la culture de Wang Lin franchit une étape pour atteindre le sommet du stade du Yang Corporel. Il n'était plus qu'à un pas du stade du Scruteur du Nirvana!
 
-Cependant, ce passage était semblable à un goulet d'étranglement. Ce n'était pas par manque d'énergie originelle, mais par manque de compréhension des cieux et par l'absence d'un changement dans son domaine!
+Cependant, ce passage était semblable à un gouffre. Ce n'était pas par manque d'énergie originelle, mais par manque de compréhension des cieux et par l'absence d'un changement dans son domaine!
 
 « Le domaine du karma est bien plus mystérieux que celui de la vie et de la mort. Je ne semble pas pouvoir le percer... Karma... Karma... » Tandis que Wang Lin méditait, ses yeux trahissaient une pointe de confusion.
 
@@ -52,7 +52,7 @@ Cependant, ce passage était semblable à un goulet d'étranglement. Ce n'était
 
 Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le domaine du karma contenait trop de complexités; à ce jour, Wang Lin ne le comprenait toujours pas pleinement. Cela différait du domaine de la vie et de la mort qu'il parvenait à appréhender clairement.
 
-« La compréhension d'un domaine ne peut être forcée. Sans l'opportunité adéquate, il est incroyablement difficile de parvenir à l'illumination! » Wang Lin soupira et renonça à ses réflexions sur le karma. Bien que cela paraisse simple, atteindre une véritable compréhension était extrêmement ardu.
+« La compréhension d'un domaine ne peut être forcée. Sans une illumination soudaine, il est très difficile d'en saisir tous les fils! » Wang Lin soupira et renonça à ses réflexions sur le karma. Bien que cela paraisse simple, atteindre une véritable compréhension était extrêmement ardu.
 
 « Je comprends enfin pourquoi le niveau de culture devient si difficile à augmenter après un certain point. L'énergie originelle y joue un rôle, mais ce qui importe davantage, c'est la compréhension de l'individu... » Wang Lin esquissa un sourire amer.
 

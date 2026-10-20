@@ -48,7 +48,7 @@ Cependant, juste au moment où elle allait pénétrer dans le filet, Tuo Sen arr
 
 La femme charmante ne s'attendait pas à ce que Tuo Sen l'attaque. Face au coup, ses mains formèrent rapidement un sceau. Un ruban apparut autour d'elle et elle parvint à contenir l'impact de force!
 
-Un grondement tonitruant retentit. Déjà gravement blessée, elle cracha du sang en étant projetée de quelques pas en arrière. Sa beauté charmante s'était évanouie, remplacée par une expression hideuse.
+Un grondement tonitruant retentit. Déjà gravement blessée, elle cracha du sang en étant projetée de quelques pas en arrière. Sa beauté charmante s'était évanouie, remplacée par une expression hideuse et une voix stridente.
 
 « Tuo Sen, oses-tu te rebeller contre ma volonté?! »
 

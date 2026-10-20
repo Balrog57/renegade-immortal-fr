@@ -30,11 +30,11 @@ Qing Shui resta silencieux; lui seul comprenait ce qu'il avait découvert et app
 
 Wang Lin ne répondit rien, mais hocha la tête.
 
-« Si un jour je meurs, et que mon corps est encore intact, prends-le et enterre-moi dans ma ville natale. Ne laisse aucun nom sur la pierre tombale; un simple lopin de terre sera le meilleur lieu de repos pour moi... » Qing Shui leva les yeux vers le ciel.
+« Si un jour je meurs, et que mon corps est encore intact, prends-le et enterre-moi dans ma ville natale. Ne laisse aucun nom sur la pierre tombale; un lopin de terre d'un zhang sera le meilleur lieu de repos pour moi... » Qing Shui leva les yeux vers le ciel.
 
 Wang Lin réfléchit en silence. Après un long moment, il demanda: « Et s'il n'y a plus de ville natale...? »
 
-« Alors enterre-moi dans le monde entier! » Qing Shui but une gorgée de sang de dragon. Un peu de liquide s'écoula du coin de sa bouche et brilla d'un éclat rouge sous la lumière du soleil.
+« Alors enterre-moi entre ciel et terre! » Qing Shui but une gorgée de sang de dragon. Un peu de liquide s'écoula du coin de sa bouche et brilla d'un éclat rouge sous la lumière du soleil.
 
 « Très bien! » Wang Lin prit la cruche des mains de Qing Shui et but à son tour. Son expression devint grave et ses yeux s'illuminèrent.
 
@@ -110,7 +110,7 @@ Dès qu'il franchit les limites du royaume au sein de la Rivière Invoquée, Wan
 
 Toutefois, cette zone n'était plus que des fragments de continents; seuls trois restaient intacts. Le Maître Long Pan combattait un homme en robe noire. À chaque mouvement de leurs mains, des grondements assourdissants faisaient trembler le ciel.
 
-Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais de la Punition Céleste, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer des Nuages!
+Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais de la Punition Céleste du Conseil Souverain, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer des Nuages!
 
 Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur: il était au début du stade Vide Arcane! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture!
 

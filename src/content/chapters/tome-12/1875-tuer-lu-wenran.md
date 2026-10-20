@@ -66,7 +66,7 @@ Aucune Tribulation de l'Arcane ne survint; c'était extrêmement sûr. L'aura de
 
 Stade initial de la Tribulation du Vide!!
 
-Au moment où Wang Lin atteignit le stade initial de la Tribulation du Vide, il ouvrit soudainement les yeux. L'ombre du Taureau Céleste derrière lui ouvrit également les siennes, révélant un regard féroce et défiant les cieux!
+Au moment où Wang Lin atteignit le stade initial de la Tribulation du Vide, il ouvrit soudainement les yeux. L'ombre du Taureau Céleste derrière lui ouvrit également les siennes, révélant un regard féroce, une fureur démesurée et une folie destructrice qui défiait les cieux!
 
 Grrraaah!!
 
@@ -106,11 +106,11 @@ Mais Wang Lin fit un autre pas et se rapprocha à nouveau. D'un geste de la main
 
 « Mon rang à la Secte de la Grande Âme est très noble, tu... » Sa tête reculait en hurlant. À cet instant, il était véritablement terrifié. Il ne voulait pas mourir. En tant que cultivateur du stade médian de la Tribulation du Vide, sa mort aurait dû être difficile, mais à ce moment précis, il sentit la mort descendre sur lui comme jamais auparavant.
 
-« Ne me tue pas! » À peine eut-il prononcé ces mots que Wang Lin apparut aux côtés de sa tête, revêtu de l'effrayante armure noire. L'expression de Wang Lin était froide et indifférente tandis que sa main s'abattait.
+« Ne me tue pas! » À peine eut-il prononcé ces mots que Wang Lin apparut aux côtés de sa tête, revêtu de l'effrayante armure noire. L'expression de Wang Lin était froide et empreinte d'intention meurtrière tandis que sa main s'abattait.
 
 « Je ne te raccompagnerai pas! »
 
-Un grondement tonitruant retentit lorsque la paume descendit. La tête de l'âme originelle de Lu Wenran explosa: il était mort!
+Un grondement tonitruant retentit lorsque la paume descendit. La tête de l'âme originelle de Lu Wenran explosa, se dissipa sans laisser de trace, corps et esprit anéantis: il était mort!
 
 C'était Wang Lin. Il se souciait peu de l'identité ou du rang des gens qu'il tuait. S'il n'avait pas tué Lu Wenran aujourd'hui, une fois l'effet de l'armure dissipé, Lu Wenran ne le laisserait pas tranquille.
 

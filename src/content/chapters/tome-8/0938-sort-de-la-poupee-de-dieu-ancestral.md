@@ -34,7 +34,7 @@ L'œil droit de Qing Shui n'était plus qu'un carnage sanglant et son œil gauch
 
 La puissance de ses huit dragons n'était surpassée que par l'« Appel du Vent » de Bai Fan, capable d'invoquer neuf dragons noirs. La force de huit dragons était plusieurs fois supérieure à celle de sept!
 
-Tandis que les huit dragons de l'« Appel du Vent » rugissaient, ils chargèrent directement l'âme originelle du vénérable Xuan Bao. Ils ne la détruisirent pas, mais en passant, ils provoquèrent l'effondrement quasi total de son origine. Alors que les huit dragons encerclaient l'âme originelle, ils la scellaient continuellement, plongeant l'âme du vénérable Xuan Bao dans un état de coma. Puis, ils projetèrent l'âme vers le vortex à l'entrée.
+Tandis que les huit dragons de l'« Appel du Vent » rugissaient, ils chargèrent directement l'âme originelle du vénérable Xuan Bao. Ils ne la détruisirent pas, mais en passant, ils provoquèrent l'effondrement quasi total de son âme originelle. Alors que les huit dragons encerclaient l'âme originelle, ils la scellaient continuellement, plongeant l'âme du vénérable Xuan Bao dans un état de coma. Puis, ils projetèrent l'âme vers le vortex à l'entrée.
 
 Au moment même où l'âme originelle du vénérable Xuan Bao était expulsée vers l'entrée, le corps de Wang Lin jaillit du vortex. Il saisit immédiatement l'âme et recula avec célérité. En un éclair, il s'échappa du vortex.
 
@@ -52,7 +52,7 @@ Son corps massif marqua un arrêt involontaire!
 
 En voyant la tête du dragon géant, Wang Lin fut ébranlé. La proximité exerçait une pression telle qu'il en eut le souffle coupé. L'autre partie marqua également un temps d'arrêt, et Wang Lin s'engouffra immédiatement dans la paroi de chair voisine. Il se déplaça avec rapidité, non pas vers le bas, mais vers le haut.
 
-Tout en s'échappant, les mains de Wang Lin formèrent un sceau; il sentit les coups de réserve qu'il avait disposés autour de lui. Son visage affichait une expression sombre et impitoyable.
+Tout en s'échappant, les mains de Wang Lin formèrent un sceau; il sentit les dispositions de secours qu'il avait prises autour de lui. Son visage affichait une expression sombre et impitoyable.
 
 Le corps gigantesque du dragon doré était bien plus rapide que celui de Wang Lin. À ses yeux, Wang Lin n'était qu'une fourmi, et une telle fourmi avait osé dérober l'âme originelle du vénérable Xuan Bao sous son regard.
 

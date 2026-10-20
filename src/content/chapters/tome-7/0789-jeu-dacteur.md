@@ -26,7 +26,7 @@ Tous les poils sur le corps de Wang Lin se hérissèrent. Sentant le péril, il 
 
 Instantanément, un vent noir apparut sur la main droite de Wang Lin. Un instant plus tard, il s'étira et se propagea comme s'il avait supplanté tout ce qui existait au monde.
 
-Dès son apparition, le vent noir balaya immédiatement la zone. Wang Lin se trouvait au cœur de cette tempête noire alors qu'il se retournait brusquement. Ses yeux dégageaient une lueur sinistre et ses cheveux flottaient sauvagement dans les rafales. À cet instant, il ne ressemblait plus à un être céleste, mais plutôt à un démon!
+Dès son apparition, le vent noir balaya immédiatement la zone. Wang Lin se trouvait au cœur de cette tempête noire alors qu'il se retournait brusquement. Ses yeux dégageaient une lueur sinistre et ses cheveux flottaient sauvagement dans les rafales. À cet instant, il ne ressemblait plus à un être céleste, mais plutôt à un seigneur démon!
 
 Son regard fut comme une épée s'abattant sur l'homme aux cheveux blancs qui approchait.
 
@@ -60,7 +60,7 @@ Les yeux de l'homme aux cheveux blancs s'illuminèrent et sa main droite tendit 
 
 Au même moment, la main droite de Wang Lin forma un sceau et pressa en avant. Le Tatouage d'Os de Bête se transforma immédiatement en l'immense os de bête doté de quatre pointes. Un éclat fantomatique jaillit tandis que l'aura maléfique fonçait vers l'homme aux cheveux blancs.
 
-« La Paire de Dao Flétrie du Maître Xiaoyaozi!! » Les yeux de l'homme aux cheveux blancs trahirent une incrédulité totale.
+« La Paire de Dao Fanée du Maître Xiaoyaozi!! » Les yeux de l'homme aux cheveux blancs trahirent une incrédulité totale.
 
 Les yeux de l'os de bête projetèrent un éclat spectral et l'aura maléfique fit apparaître une teinte grise au pied de l'homme aux cheveux blancs, qui se propagea rapidement. Ce dernier esquissa un sourire sinistre et fit un pas impitoyable en avant. Un bang retentit à l'intérieur de son corps, et les zones grises externes s'effondrèrent instantanément!
 

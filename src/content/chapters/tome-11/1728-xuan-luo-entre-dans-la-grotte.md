@@ -119,4 +119,4 @@ Des ondulations se formèrent dans le ciel où la lune était suspendue. Ces dis
 
 Le jeune homme paraissait épuisé en contemplant la terre en contrebas. Pourtant, son visage las affichait un sourire empreint d'attente. Il semblait que, malgré le prix immense payé pour arriver jusqu'ici, tout en valait la peine.
 
-« Enfant de mon Clan du Dao Antique, je suis venu te ramener chez toi... Le chemin du retour sera ardu, mais je sais que tu ne craindras rien. » Le jeune homme sourit en avançant.
+« Enfant de mon Clan du Dao Antique, je suis venu te ramener chez toi... Le chemin du retour sera ardu, mais je sais que tu ne craindras rien. » Le jeune homme sourit en s'avançant vers la chaîne de montagnes.

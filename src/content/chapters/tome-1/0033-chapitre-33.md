@@ -48,7 +48,7 @@ L'homme en pourpre réfléchit un instant. Il lança un morceau de jade et dit: 
 
 Wang Lin saisit le jade et l'examina pour s'assurer qu'il contenait ce dont il avait besoin. Il sortit un second flacon et déposa les deux récipients au sol, sans pour autant se rapprocher de l'homme.
 
-L'homme en pourpre regarda Wang Lin, puis d'un geste de la main, fit voler les deux flacons vers lui. Après les avoir inspectés avec son Sens Divin, il déclara: « Si tu trouves davantage de ce liquide, viens me chercher dans les montagnes arrières. Qu'il s'agisse de Pilules de Bonne Fortune, d'épées volantes, de talismans de jade ou même d'incantations du 10e niveau ou plus... je peux tout obtenir! » Sur ces mots, il fit volte-face et partit.
+L'homme en pourpre regarda Wang Lin, puis d'un geste de la main, fit voler les deux flacons vers lui. Après les avoir inspectés avec son Sens Divin, il déclara: « Si tu trouves davantage de ce liquide, viens me trouver dans les montagnes arrières. Qu'il s'agisse de Pilules de Bonne Fortune, d'épées volantes, de talismans de jade ou même d'incantations du 10e niveau ou plus... je peux tout obtenir! » Sur ces mots, il fit volte-face et partit.
 
 Les yeux de Wang Lin se plissèrent et son regard devint glacial. Les dernières paroles de cet homme étaient d'une perfidie absolue. Si les autres membres de la foule n'avaient peut-être pas saisi l'implication immédiate, Wang Lin, toujours avisé, en avait percé le sens profond.
 

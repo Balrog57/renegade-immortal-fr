@@ -100,7 +100,7 @@ Wang Lin ouvrit la bouche et aspira. Les âmes primaires autour de lui se transf
 
 Après avoir rangé les âmes primaires, Wang Lin atterrit près de la fissure et la dévisagea froidement.
 
-« Selon les souvenirs de Lou Yun, le fantôme céleste est une entité surnaturelle unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent le sang de femmes enceintes mortelles comme appât, le sang chaud d'hommes vigoureux comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
+« Selon les souvenirs de Lou Yun, le fantôme céleste est une entité surnaturelle unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent une rivière de sang de femmes enceintes mortelles comme appât, le sang chaud d'hommes vigoureux comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
 
 Lou Yun occupait un rang très élevé au sein de la Secte du Fantôme Céleste. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Lou Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
 

@@ -10,7 +10,7 @@ slug: le-tambour-demoniaque
 
 « Maudits, tous maudits! Toi, sale gosse, tu mérites de mourir, et cette punition divine plus encore! »
 
-« Haha, une punition divine? Magnifique! Mon ancêtre est né de la punition divine et a cultivé en la traversant. Aujourd'hui, je veux voir quelle est la puissance de cette rétribution! »
+« Haha, une punition divine? Magnifique! Mon ancêtre est né pour répondre à la punition divine et a cultivé en la traversant. Aujourd'hui, je veux voir quelle est la puissance de cette rétribution! »
 
 Des rugissements furieux jaillirent du sol. Puis, des grondements tonitruants montèrent des profondeurs, non moins puissants que le tonnerre de la punition divine.
 
@@ -80,13 +80,13 @@ Les yeux de Wang Lin restaient grands ouverts. Même à cet instant, son regard 
 
 « Lorsque d'autres font face à l'Ascendant, ils suivent soit le Dao céleste, soit ils l'évitent, et ainsi la punition divine n'advient pas. Mais toi, tu as choisi de l'affronter, et c'est ce qui a provoqué la descente de cette rétribution... »
 
-« Le Dao céleste ne permettra jamais un troisième type de culture défiant les cieux... Il y a d'innombrables années, lors de la formation de l'univers, il existait une race aussi ancienne que le Dao céleste lui-même. Les membres de cette race possédaient un pouvoir immense. Ils utilisaient ce pouvoir pour forger leur propre Dao, et ils utilisaient ce Dao pour combattre les cieux. Certains possédaient des sorts prodigieux; d'un simple revers de main, ils pouvaient détruire le Dao et utiliser leurs sortilèges pour lutter contre les cieux. Il y avait aussi ceux qui marchaient sur la voie du massacre; ils vivaient dans la boucherie et utilisaient la mort pour combattre les cieux! »
+« Le Dao céleste ne permettra jamais un troisième type de culture défiant les cieux... Il y a d'innombrables années, lors de la formation de l'univers, il existait une race aussi ancienne que le Dao céleste lui-même. Les membres de cette race possédaient un pouvoir immense. Ils utilisaient ce pouvoir pour forger leur propre Dao, et ils utilisaient ce Dao pour combattre les cieux. Certains possédaient des sorts prodigieux; d'un simple revers de main, ils pouvaient détruire le Dao et utiliser leurs sortilèges pour lutter contre les cieux. Il y avait aussi ceux qui marchaient sur la voie du massacre; ils étaient avides de sang, et leur intention meurtrière plongeait les peuples dans la misère; ils utilisaient la mort pour transformer le ciel! »
 
-« Ils se faisaient appeler l'Ordre Ancestral! »
+« Ils se faisaient appeler l'Ordre Ancien! »
 
 « La punition divine ne put détruire leurs corps, et la puissance céleste ne put les faire plier. Ils furent les premières formes de vie à cultiver tout en défiant les cieux... »
 
-« Après d'innombrables années, l'Ordre Ancestral se scinda! Ceux qui possédaient un pouvoir extrême s'appelèrent dieux anciens... Ceux qui marchaient sur la voie du massacre s'appelèrent diables anciens... Ceux dont les sorts détruisaient le Dao s'appelèrent démons anciens! Ils furent les secondes formes de vie à cultiver tout en défiant les cieux! »
+« Après d'innombrables années, l'Ordre Ancien se scinda! Ceux qui possédaient un pouvoir extrême s'appelèrent dieux anciens... Ceux qui marchaient sur la voie du massacre s'appelèrent diables anciens... Ceux dont les sorts détruisaient le Dao s'appelèrent démons anciens! Ils furent les secondes formes de vie à cultiver tout en défiant les cieux! »
 
 Une voix faible résonnait dans l'esprit de Wang Lin. Bien que son corps se soit déjà effondré, son esprit était d'un calme absolu.
 
@@ -96,23 +96,23 @@ Une voix faible résonnait dans l'esprit de Wang Lin. Bien que son corps se soit
 
 Wang Lin réfléchit.
 
-« Cependant, je suis incomplet... À mon réveil, j'étais dans le tambour démoniaque. Je sens que ce tambour m'appartenait autrefois. Pendant d'innombrables années, je ne pouvais pas m'éloigner trop de lui; j'ai donc utilisé des sorts pour créer le lac du dragon et j'ai instruit les gens... »
+« Cependant, je suis incomplet... À mon réveil, j'étais dans le tambour démoniaque. Je sens que la peau de ce tambour m'appartenait autrefois. Pendant d'innombrables années, je ne pouvais pas m'éloigner trop de lui; j'ai donc utilisé des sorts pour créer le lac du dragon et j'ai instruit les gens... »
 
-« Je sens qu'en cette Terre Spirituelle Démoniaque, huit autres existences comme moi résident dans les autres pays. Ils ont tous choisi la même méthode que moi; ils ont créé quelque chose de semblable au lac du dragon et ont commencé à éduquer le peuple... »
+« Je sens qu'en cette Terre des Esprits Démoniaques, huit autres existences comme moi résident dans les autres pays. Ils ont tous choisi la même méthode que moi; ils ont créé quelque chose de semblable au lac du dragon et ont commencé à éduquer le peuple... »
 
 « J'ai communiqué avec ces êtres similaires pendant d'innombrables années, mais nous n'avons jamais pu parvenir à une décision commune. Chaque existence comme moi voulait dévorer l'autre pour devenir plus forte... Peut-être est-ce là la seule façon pour nous de devenir complets! »
 
-« C'est pourquoi la guerre entre les neuf pays perdure depuis des éons dans la Terre Spirituelle Démoniaque... L'apparition de vous, les cultivateurs, fait basculer la balance de cette guerre sans fin. C'est pour cela que vous êtes autorisés à exister en Terre Spirituelle Démoniaque... »
+« C'est pourquoi la guerre entre les neuf pays perdure depuis des éons dans la Terre des Esprits Démoniaques... L'apparition de vous, les cultivateurs, fait basculer la balance de cette guerre sans fin. C'est pour cela que vous êtes autorisés à exister en Terre des Esprits Démoniaques... »
 
 Wang Lin projeta un message par son Sens Divin: « Tu dois avoir une raison d'apparaître et de me révéler tout cela. »
 
 « C'est exact. Je peux t'aider à réparer ton corps et à surmonter cette punition divine. Je peux aussi te donner du pouvoir dans le Pays du Démon Céleste, mais tu devras faire quelque chose pour moi. Tu dois récupérer les huit reliques sacrées des huit autres pays! »
 
-Wang Lin réfléchit. Peu après, il dit lentement: « Je ne peux pas être le seul cultivateur défiant les cieux depuis l'aube de la Terre Spirituelle Démoniaque... »
+Wang Lin réfléchit. Peu après, il dit lentement: « Je ne peux pas être le seul cultivateur défiant les cieux depuis l'aube de la Terre des Esprits Démoniaques... »
 
 Avant que Wang Lin n'ait pu achever sa phrase, la voix l'interrompit avec un soupir et murmura lentement: « Tu n'es pas le premier cultivateur défiant les cieux, mais tu es le premier mortel à cultiver la voie du dieu ancien! Je peux sentir son aura... Cette aura est très ténue, mais elle est d'une pureté absolue! »
 
-« Les habitants de la Terre Spirituelle Démoniaque que j'ai éclairés ne peuvent supporter mon pouvoir. Leurs corps sont incapables de le contenir, peu importe leur force... car je suis d'une race différente! »
+« Les habitants de la Terre des Esprits Démoniaques que j'ai éclairés ne peuvent supporter mon pouvoir. Leurs corps sont incapables de le contenir, peu importe leur force... car je suis d'une race différente! »
 
 « Bien que les corps des cultivateurs soient légèrement plus résistants que ceux des gens d'ici, ils ont tout de même leurs limites. Très peu peuvent endurer ma puissance... »
 

@@ -20,7 +20,7 @@ Pourtant, ils ne cessaient de reculer… Peu de gens n'avaient pas peur de la mo
 
 « Plutôt que de mourir ici, autant survivre maintenant… La guerre n'est pas terminée. Bien que cette bataille soit perdue, si je rejoins un autre système stellaire, j'aurai une autre chance… » De nombreuses excuses affluèrent dans leurs esprits pour justifier leur fuite. Ils reculèrent plus vite encore… Maître Hong Shan ne recula pas. Il combattait six cultivateurs du troisième niveau et savait qu'il ne pouvait pas battre en retraite. Il était impuissant face à la fuite des autres cultivateurs mus par la peur, mais il était un cultivateur du troisième niveau. S'il reculait, cette bataille serait véritablement terminée!
 
-L'échec de cette première bataille porterait un coup fatal au Royaume Intérieur, qui n'avait pas encore achevé ses préparatifs de guerre.
+L'échec de cette première bataille porterait un coup fatal au Royaume Intérieur, qui n'avait pas encore achevé ses préparatifs de guerre et n'aurait plus la force de poursuivre le combat.
 
 Maître Nan Yunzi ne recula pas non plus. Il parlait peu de toute sa vie, mais tenait ses promesses. Le Seigneur du Royaume Scellé lui avait jadis rendu un grand service, qu'il voulait rembourser. Le Royaume Intérieur était son foyer, et il le protégerait. Il n'avait aucune raison, en tant que grand puissant au sommet du Royaume Intérieur, de battre en retraite… Dans le silence, une intention meurtrière s'éveilla dans les yeux de Nan Yunzi!
 
@@ -60,7 +60,7 @@ Après un bref moment de silence, des rugissements jaillirent de l'armée du Roy
 
 Wang Lin ne dit mot. Il leva la main droite et l'épée de sang apparut. Il saisit l'épée et fit un pas en avant. Le rugissement du tatouage de tonnerre gronda tandis que la tempête de feu pivotait autour de lui.
 
-À l'instant où les cultivateurs du Royaume Extérieur se rapprochèrent, plus de mille personnes commencèrent à brûler sous l'effet du Feu Éthéré et reculèrent dans des cris de douleur. Plus de mille autres furent frappés par la foudre et leurs corps s'effondrèrent!
+À l'instant où les cultivateurs du Royaume Extérieur se rapprochèrent, plus de mille personnes commencèrent à brûler sous l'effet du Feu Éthéré et reculèrent dans des cris de douleur. Près de mille autres furent frappés par la foudre et leurs corps s'effondrèrent!
 
 Cependant, les cultivateurs du Royaume Extérieur étaient trop nombreux, et beaucoup d'entre eux étaient puissants. Wang Lin n'avait pas encore atteint le troisième niveau, mais même s'il l'avait fait, il ne pourrait pas résister à plus de 100 000 cultivateurs!
 
@@ -70,7 +70,7 @@ Ses yeux étaient injectés de sang, son visage marqué par l'épuisement, son �
 
 Les plaies couvraient tout son être!
 
-Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Royaume Scellé, tous ceux qu'il connaissait dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer des Nuages qui fuyait s'arrêta.
+Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Royaume Scellé, ses amis et ses bienfaiteurs dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer des Nuages qui fuyait s'arrêta.
 
 C'était un jeune homme, seulement au début du stade du Scruteur du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
 

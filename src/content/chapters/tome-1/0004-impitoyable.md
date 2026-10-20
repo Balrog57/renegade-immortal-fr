@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 4 - Heartless
 slug: impitoyable
 ---
-Les marches de pierre irrégulières étaient extrêmement périlleuses. Le moindre faux pas pouvait entraîner une chute mortelle.
+Les marches de pierre, escarpées et irrégulières, bordées de gouffres de part et d'autre, étaient extrêmement périlleuses. Le moindre faux pas pouvait entraîner une chute mortelle.
 
 Après moins d'une demi-journée, les jambes de Wang Lin lui semblaient faites de plomb. Trempé de sueur et à bout de souffle, il peinait à faire le moindre mouvement. En levant les yeux depuis le pied de la montagne, le sentier ne paraissait pas si long, mais à présent, il semblait interminable. Le cœur de Wang Lin sombra; il ne put s'empêcher d'être envahi par un sentiment de désespoir.
 
@@ -28,7 +28,7 @@ L'homme croisa Wang Lin. C'était le sixième jeune qu'il croisait, et le plus p
 
 La vision de Wang Lin était trouble. Sa seule pensée était d'atteindre le sommet ou de mourir. Il n'entendit même pas la question de l'homme. À ses yeux, seul comptait ce mince sentier.
 
-L'homme observa les yeux de Wang Lin. Au fond de lui, il fut touché. Il posa sa main sur la tête du garçon. « Une persévérance excellente, mais hélas des aptitudes trop ordinaires. Sans destinée, sans destinée... » Après un dernier regard profond porté sur Wang Lin, il continua sa descente.
+L'homme observa les yeux de Wang Lin. Au fond de lui, il fut touché. Il posa sa main sur la tête du garçon. « Une persévérance excellente, mais hélas des aptitudes trop ordinaires. Sans affinité, sans affinité... » Après un dernier regard profond porté sur Wang Lin, il continua sa descente.
 
 La nuit suivante, les mains de Wang Lin étaient ensanglantées. Il laissait une traînée de sang derrière lui en montant les marches. Il ignorait comment il tenait encore, mais une force invisible alimentait son corps pour le pousser à continuer. Il sentait qu'il pouvait mourir à tout instant.
 
@@ -76,4 +76,4 @@ Les autres jeunes le regardèrent avec des expressions moqueuses. Ils pensaient 
 
 Dans un rire amer, Wang Lin sentit les plaies béantes de son cœur s'agrandir. Le regard plein d'espoir de ses parents s'effaça progressivement de son esprit.
 
-Les yeux de l'homme en blanc redevinrent froids et il trancha: « Échec. Suivant. »
+Les yeux de l'homme en blanc redevinrent froids et il trancha: « Non qualifié. Suivant. »

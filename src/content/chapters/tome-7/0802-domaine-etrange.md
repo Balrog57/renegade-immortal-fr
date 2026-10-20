@@ -98,7 +98,7 @@ Alors que les ondulations disparaissaient, son regard s'assombrit, mais tous ses
 
 Sans réfléchir, le tonnerre en son sein s'activa et sa main forma immédiatement un sceau. Deux sphères de tonnerre, émettant des grondements sourds, se rassemblèrent dans ses paumes.
 
-Ces deux sphères étaient extrêmement brillantes. Dès leur apparition, l'éclat fit brusquement reculer le brouillard. Comme s'il avait été attaqué, celui-ci se retira à plus de 3 000 mètres.
+Ces deux sphères étaient extrêmement brillantes. Dès leur apparition, l'éclat fit brusquement reculer le brouillard, qui avait déjà englouti un rayon d'environ 330 mètres autour de lui. Comme s'il avait été attaqué, celui-ci se retira à plus de 3 000 mètres.
 
 L'expression de Wang Lin était sombre alors qu'il fixait la brume devant lui. Puis il regarda autour de lui et ne put s'empêcher de froncer les sourcils.
 
@@ -130,7 +130,7 @@ Au moment où il émergea, son expression changea.
 
 C'était effectivement la fin du brouillard, mais à une dizaine de mètres devant lui se dressait un mur de chair rouge sombre. Il était colossal et semblait s'étendre à l'infini. Même en levant les yeux, le mur recouvrait encore tout le ciel.
 
-Le visage de Wang Lin devint extrêmement sombre. Lorsqu'il avait tenté de fusionner avec le monde, il pensait à sa planète de culture. Pourtant, il avait eu l'impression de heurter un obstacle, avant d'être violemment expulsé de sa fusion et projeté ici.
+Le visage de Wang Lin devint extrêmement sombre. Lorsqu'il avait tenté de fusionner avec le monde, il pensait à sa planète de culture. Pourtant, il avait eu l'impression de heurter un obstacle, avant d'être expulsé de sa fusion et projeté ici.
 
 En voyant ce mur de chair, Wang Lin comprit que l'obstacle qu'il avait percuté était cet immense rempart organique!
 

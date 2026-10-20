@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 832 - Moongazer Serpents Joy
 slug: la-joie-des-serpents-lunaires
 ---
-Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans le Étendard de l'Âme qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
+Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans l'Étendard de l'Âme qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
 
 Le Serpent aux yeux de lune, long de 330 mètres, surgit de derrière lui et une aura glaciale emplit les environs. Après avoir cherché un instant, la créature ouvrit sa gueule et aspira toute l'aura résiduelle de Wang Lin. Tous les tentacules de son corps s'enroulèrent autour d'elle, comme si elle savourait ce moment.
 
@@ -48,7 +48,7 @@ Yao Bingyun utilisa toute sa puissance. En pointant vers le sol, une rune de san
 
 Ces runes de sang étaient singulières: elles ignorèrent l'existence du Sceau Céleste pour charger directement vers Wang Lin. Ce dernier, le visage sombre, hurla: « Sceller! »
 
-Sur cet ordre, des centaines de milliers de runes dorées apparurent pour former des sceaux. Parmi elles, deux possédaient une aura extrêmement puissante. Les runes d'or continuèrent de briser la puissance du Sceau de Dommage Spirituel des Dix Cycles.
+Sur cet ordre, des centaines de milliers de runes dorées apparurent pour former des sceaux. Parmi elles, deux possédaient une aura extrêmement puissante. Les runes d'or continuèrent d'affaiblir la puissance du Sceau de Dommage Spirituel des Dix Cycles.
 
 Cependant, le sort était trop puissant et perça presque instantanément les défenses. Bien que sa force fût réduite de dix cycles à quatre, il frappa la poitrine de Wang Lin comme l'éclair.
 

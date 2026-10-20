@@ -26,7 +26,7 @@ Wang Lin eut un léger sourire. « Cette question n'est pas urgente. Nous pourro
 
 Le vieil homme Hu pensa secrètement que bien que Wang Lin ne cultivât pas depuis longtemps, il était un vieux renard capable de détourner la conversation avec aisance. Après avoir entendu Wang Lin, il rit et dit: « C'est vrai. Alors, lorsque ce vieil homme sera sur le point d'atteindre le stade de la Transformation de l'Âme, je devrai revenir vous en demander. Quant au Cimetière des Immortels, vous devrez demander à la cultivatrice Zi Xin de vous l'expliquer. »
 
-La femme au voile blanc regarda Wang Lin et dit: « Aîné, il y a un Arbre de Réincarnation à l'intérieur du Cimetière des Immortels. Cette junior possède une carte qui peut nous y conduire. »
+La femme au voile blanc regarda Wang Lin et dit: « Aîné, il y a un Arbre de Réincarnation au plus profond du Cimetière des Immortels. Cette junior possède une carte qui peut nous y conduire. »
 
 Wang Lin prit calmement une gorgée de thé.
 
@@ -44,7 +44,7 @@ Hélas, elle ne percevait toujours aucun changement sur le visage de Wang Lin.
 
 Wang Lin esquissa un sourire ténu. Il regarda le vieil homme Hu et dit: « Ridicule. Le domaine d'un cultivateur de la Formation de l'Âme est une chose qu'il doit comprendre par lui-même. Cet Arbre de Réincarnation pourrait avoir un effet sur des cultivateurs au sommet du stade avancé de l'Âme Naissante ou au début de la Formation de l'Âme, dont la culture n'est pas encore stabilisée, mais son effet est presque nul pour les cultivateurs de la Formation de l'Âme au stade intermédiaire ou plus avancé. Je présume que le vieil homme Hu a d'autres objectifs pour ce voyage. »
 
-La femme au voile blanc fut stupéfaite. Elle regarda l'homme en manteau noir et vit qu'il fronçait également les sourcils.
+La femme au voile blanc fut stupéfaite. Elle regarda l'homme à la veste de toile bleue et vit qu'il fronçait également les sourcils.
 
 Le vieil homme Hu rit, sans chercher à se cacher: « Frère Wang est véritablement érudit. Je suis impressionné. Vous avez tout à fait raison. »
 
@@ -58,7 +58,7 @@ En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était 
 
 Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer: « Frère Wang est vraiment très bien informé! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, à la grande perfection, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de plus de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
 
-Wang Lin réfléchit. D'après les souvenirs de l'Ancien Dieu Tu Si, peu de fruits étaient réellement bénéfiques pour un jeune Ancien Dieu. En raison de la nature de leur corps, la plupart des fruits étaient inutiles. Même les fruits célestes ne pouvaient augmenter leur énergie spirituelle que très légèrement.
+Wang Lin réfléchit. D'après les souvenirs de l'Ancien Dieu Tu Si, quelques rares fruits étaient d'excellents compléments pour un jeune Ancien Dieu. En raison de la nature de leur corps, la plupart des fruits avaient peu d'effet, même avalés. Même les fruits célestes ne pouvaient qu'augmenter leur énergie spirituelle.
 
 Seuls quelques rares fruits spirituels pouvaient avoir un effet. Bien qu'ils n'augmentent pas le niveau de culture, si l'on étalait l'un de ces fruits sur tout son corps, cela produirait un effet comparable à l'Établissement des Fondations.
 

@@ -30,7 +30,7 @@ La colère de Cupidité était telle qu'elle aurait pu consumer son cœur. Impui
 
 Le corps de ces moustiques était extrêmement résistant, particulièrement leurs pièces buccales qui étaient dures comme de l'essence de fer. Si cela avait été leur seul atout, la situation n'aurait pas été si critique, mais chaque fois qu'un moustique était tué, il se dissolvait instantanément en un nuage rouge. Ce nuage se rétractait pour se condenser à nouveau en une bête moustique. Bien que plus faible, elle se précipitait de nouveau sur lui avec fureur.
 
-Dès l'apparition de la petite silhouette, celle-ci se transforma en un rayon de lumière. Sa main traça un sceau et des éclairs noirs commencèrent à crépiter autour de son corps. Puis, ces éclairs s'élancèrent comme des météores vers Chen Long.
+Dès l'apparition de la petite silhouette, celle-ci se transforma en un rayon de lumière. Ses mains tracèrent des sceaux et des éclairs noirs commencèrent à crépiter autour de son corps. Puis, ces éclairs s'élancèrent comme des météores vers Chen Long.
 
 L'expression de Chen Long changea radicalement. S'il ne retirait pas sa main droite, les éclairs noirs l'atteindraient. Pourtant, tout serait vain s'il le faisait!
 
@@ -48,7 +48,7 @@ Piégé par les bêtes moustiques, les yeux de Cupidité révélèrent une point
 
 Dès son apparition, un parfum s'en dégagea. Ce bois semblait tout à fait ordinaire, comme un objet du monde mortel, mais les yeux de Cupidité étaient emplis de tristesse!
 
-« Enfant, tu as forcé ce vieil homme à utiliser un trésor du monde céleste: l'Encens de la Confusion Céleste! Ce vieux va sans aucun doute te couper en morceaux! » Cupidité serra les dents et leva la main gauche. Il alluma aussitôt l'encens, d'où commença à s'élever une fumée bleue.
+« Vous, petits juniors, m'avez forcé à utiliser un trésor du Royaume Céleste: l'Encens de la Confusion Céleste! Ce vieil homme va sans aucun doute vous couper en morceaux! » Cupidité serra les dents et leva la main gauche. Il alluma aussitôt l'encens, d'où commença à s'élever une fumée bleue.
 
 Cette fumée était singulière. Bien qu'elle fût ténue en se propageant, elle forma rapidement un nuage. Les bêtes moustiques furent soudainement piégées dans cette brume, tandis que Cupidité s'extrayait de l'essaim. Il s'avança sur la fumée et poursuivit Chen Long.
 
@@ -74,7 +74,7 @@ Cupidité marqua un temps d'arrêt. Bien qu'il soit immédiatement revenu à son
 
 « Wang Lin!!! Tu oses voler les biens de ce vieil homme!! » Les yeux de Cupidité devinrent injectés de sang alors qu'il rugissait et se précipitait.
 
-Chen Long s'était déjà rétabli, le visage sombre. Enveloppé par la fumée, il forma un sceau pour tenter de percer la brume, mais celle-ci lui barrait la route, l'empêchant de fuir.
+Chen Long s'était déjà rétabli, le visage sombre. Enveloppé par la fumée, il forma des sceaux des deux mains pour tenter de percer la brume, mais celle-ci lui barrait la route, l'empêchant de fuir.
 
 Les trois individus étaient désormais très proches de la sortie du Pays du Démon de Feu. Grâce à la vitesse de Zhou Yi, Wang Lin touchait au but; il pouvait déjà apercevoir la lumière du soleil provenant de l'extérieur.
 

@@ -44,7 +44,7 @@ Durant ces quatre années, le vieil homme en robe verte n'était jamais apparu. 
 
 Des lumières vertes semblables à des œufs apparurent dans ses 108 000 pores. Ces lueurs étaient apparues deux ans plus tôt et, après avoir éclaté, elles avaient absorbé la chair et le sang de Wang Lin pour former de jeunes scorpions!
 
-Les scorpions utilisaient le corps de Wang Lin comme un nid et une source de nutriments. Après quatre ans, leur nombre avait doublé dans cet espace. Ils ne se contentaient plus de recouvrir Wang Lin; ils jonchaient désormais la majeure partie du sol. C'était un spectacle effroyable.
+Les scorpions utilisaient le corps de Wang Lin comme un nid et une source de nutriments. Après quatre ans, leur nombre avait doublé dans cet espace. Ils ne se contentaient plus de recouvrir Wang Lin; ils formaient désormais une épaisse couche sur le sol. C'était un spectacle effroyable.
 
 L'apparition de ces jeunes scorpions provoquait des rides sur la peau de Wang Lin. Son corps s'étiolait progressivement, consommé par les créatures.
 

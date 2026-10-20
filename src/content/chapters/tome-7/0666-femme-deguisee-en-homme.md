@@ -48,7 +48,7 @@ Ce jeune homme était en réalité une femme déguisée en homme. Son visage ét
 
 Après être retourné dans sa demeure, Wang Lin s'assit en position du lotus. Il frappa son sac de rangement et mille jades célestes s'en échappèrent immédiatement. Sa main traça un sceau, projetant plusieurs rayons de lumière sur les jades célestes qui l'entouraient. La riche énergie spirituelle céleste fut instantanément contenue autour de lui, sans la moindre fuite.
 
-Wang Lin ferma les yeux et commença sa culture. Des filaments d'énergie spirituelle céleste pénétrèrent son corps et circulèrent lentement en lui.
+Wang Lin ferma les yeux et commença sa culture. Des filaments d'énergie spirituelle céleste pénétrèrent son corps par ses sept orifices et circulèrent lentement en lui.
 
 Le temps s'écoula lentement. Trois jours plus tard, Wang Lin ouvrit les yeux. Les mille jades célestes qui l'entouraient s'étaient transformés en poussière et avaient disparu. Il scruta les environs.
 
@@ -86,7 +86,7 @@ Un silence de mort s'installa dans la pièce. Pour le vieil homme, chaque second
 
 Cette absence de bruit créait une pression invisible qui le faisait frémir. Il n'en avait pas envie, mais la famille lui avait ordonné de tester la culture de cet homme; il devait donc prendre son courage à deux mains et poser la question. Pourtant, au fond de lui, il espérait que ce silence ne soit pas dû au fait que le Senior Xu Mu avait percé à jour ses intentions, mais qu'il avait été simplement tenté par la pilule fausse divine de rang 8.
 
-Peu après, Wang Lin ouvrit lentement la bouche: « Apportez-la moi! »
+Peu après, Wang Lin ouvrit lentement la bouche: « Donnez-le-moi! »
 
 Le visage du vieil homme devint livide alors qu'il fixait Wang Lin. Réagissant aussitôt, il sortit un jeton rouge et murmura: « Voici un jeton pour la vente aux enchères. »
 

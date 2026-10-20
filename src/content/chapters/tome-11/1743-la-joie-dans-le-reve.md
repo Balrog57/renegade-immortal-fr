@@ -64,7 +64,7 @@ Wang Lin jeta la cruche et pointa son doigt droit vers l'espace entre ses sourci
 
 Xuan Luo médita silencieusement, l'expression complexe. Ayant une intuition, il soupira et pointa la brume entourant Wang Lin. Son Sens Divin pénétra dans le brouillard.
 
-« Wang Lin, ce n'est pas que ce vieil homme ne puisse te déranger, mais j'ai besoin de tout comprendre de toi. Celui que je choisis sera mon unique disciple et, plus encore, la personne la plus importante, celle qui protégera ma réincarnation et gardera mon Clan du Dao Antique! » Xuan Luo ferma les yeux.
+« Wang Lin, ce n'est pas que ce vieil homme veuille te déranger, mais j'ai besoin de tout comprendre de toi. Celui que je choisis sera mon unique disciple et, plus encore, la personne la plus importante, celle qui protégera ma réincarnation et gardera mon Clan du Dao Antique! » Xuan Luo ferma les yeux.
 
 Dès qu'il eut les paupières closes, son esprit pénétra dans le monde onirique où se trouvait Wang Lin. Il ressentit la tristesse qui émanait de ce monde!
 
@@ -74,7 +74,7 @@ Wang Lin se tenait là, et la confusion dans ses yeux s'estompait peu à peu. Il
 
 Après un long moment, deux traînées de lumière passèrent devant lui. C'était un homme et une femme. La femme devant semblait pâle et effrayée, son corps tremblant de peur. Elle était telle une fée lotus, douce et élégante. C'était Li Muwan.
 
-L'homme derrière elle affichait un visage empreint de luxure tandis qu'il la poursuivait sans ménagement.
+L'homme derrière elle affichait un visage empreint de luxure tandis qu'il la poursuivait sans se presser.
 
 « Petite fille, ton groupe de treize personnes a été massacré par moi. Où comptes-tu fuir? » Tout en parlant, il agita la main droite. Une grande partie des vêtements de Li Muwan fut déchirée, exposant sa peau.
 

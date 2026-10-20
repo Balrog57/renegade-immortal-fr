@@ -129,7 +129,7 @@ Mais Sun Tai hurla: « Dégage! » Une force jaillit de son corps, faisant hési
 
 « Oses-tu?! » L'ancêtre du Clan des Démons Géants lança un coup de poing. Un vortex noir apparut soudainement et se referma sur Sun Tai.
 
-La main droite de Sun Tai pointa le cercueil derrière lui. Le couvercle bougea légèrement et un corps momifié s'en échappa pour affronter l'ancêtre du Clan des Démons Géants.
+La main droite de Sun Tai pointa le cercueil suspendu dans les airs. Le couvercle bougea légèrement et un corps momifié s'en échappa pour affronter l'ancêtre du Clan des Démons Géants.
 
 Sun Tai profita de cette diversion pour tendre la main et saisir Wang Lin. Ce dernier était extrêmement faible; ses yeux étaient clos et son visage d'une pâleur mortelle.
 
@@ -137,7 +137,7 @@ Sans un mot, Sun Tai fit volte-face et s'engouffra dans la faille.
 
 L'expression de l'homme d'âge moyen était troublée. Il hésita un instant, puis resta immobile.
 
-Comment l'ancêtre du Clan des Démons Géants pouvait-il laisser ce "mouton gras" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre plus de 33 mètres de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
+Comment l'ancêtre du Clan des Démons Géants pouvait-il laisser ce "morceau de choix" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre plus de 33 mètres de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
 
 Une immense vague d'énergie de hache jaillit, assombrissant le visage de Sun Tai. Il savait que le Clan des Démons Géants était une puissance redoutable. Sa main droite traça un sceau qu'il projeta contre l'onde de choc.
 

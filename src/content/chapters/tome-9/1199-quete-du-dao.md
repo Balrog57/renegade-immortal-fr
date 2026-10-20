@@ -82,7 +82,7 @@ Soudain, une voix vague apparut dans son esprit. Cette voix semblait murmurer et
 
 « Éveillé, prisonnier du Dao des cieux. Tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Toute vie doit avancer éternellement et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
 
-« Les êtres qui n'obtiennent pas le vrai Dao sombrent toujours dans la mer d'amertume et perdent à jamais le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent une partie du Royaume aux Sept Couleurs.
+« Les êtres qui n'obtiennent pas le vrai Dao sombrent toujours dans la mer d'amertume et perdent à jamais le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent près de la moitié du Royaume aux Sept Couleurs.
 
 Maître Pin Cendré se trouvait à 10 000 pieds de la grotte de Sima Mo. Son visage était extrêmement pâle tandis qu'il fixait l'horizon, restant pourtant immobile. Il était arrivé là il y a deux jours, mais avant même d'avoir pu faire un pas de plus, il avait ressenti ces intentions du Dao chaotiques et infinies.
 

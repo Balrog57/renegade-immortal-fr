@@ -68,7 +68,7 @@ Des salutations telles que « Salutations, Céleste du Tonnerre! » émanaient d
 
 L'effondrement de la région occidentale avait plongé la grande majorité des cultivateurs de Luotian dans la panique. Les morts s'étaient multipliés et les survivants étaient dispersés.
 
-Parallèlement, l'apparition des cultivateurs de l'Alliance aggravait la situation pour Luotian! À présent, le Drapeau du Tigre Volant de Wang Lin était devenu leur unique point d'ancrage moral!
+Parallèlement, l'apparition des cultivateurs de l'Alliance aggravait la situation pour Luotian! À présent, le Drapeau du Tigre Volant de Wang Lin était devenu leur point d'ancrage moral!
 
 Les rugissements du Tigre Volant ravivaient le moral des cultivateurs de Luotian!
 
@@ -100,7 +100,7 @@ Il était évident que d'innombrables vies avaient été fauchées par l'impact 
 
 Wang Lin n'avait jamais vu un tel objet auparavant. Il lui suffit d'un regard pour ressentir un choc indescriptible. Il savait pertinemment que s'il était percuté par ce morceau de bois, il serait instantanément gravement blessé. Un seul moment d'inattention et il pourrait mourir, à moins de l'avoir anticipé pour s'échapper en fusionnant avec le monde.
 
-Bien que ce bois colossal puisse faire trembler son esprit, cela ne l'aurait pas laissé aussi ébranlé. Ce qui terrifia véritablement Wang Lin, c'était la chose qui suivait ce morceau de bois!
+Bien que ce bois colossal puisse faire trembler son esprit, cela ne l'aurait pas laissé aussi ébranlé. Ce qui stupéfia véritablement Wang Lin, c'était la chose qui suivait ce morceau de bois!
 
 Le Serpent aux yeux de lune!!
 

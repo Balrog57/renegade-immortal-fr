@@ -74,7 +74,7 @@ Wang Lin ne regarda pas l'objet; aucune trace de surprise ne marqua son visage, 
 
 « Descends... » Il ne pouvait voir le visage de la femme, mais sa voix se propagea lentement. Sa voix était semblable à une brume qui résonnait dans la fissure.
 
-Wang Lin ne répondit pas. Son doigt prit la forme d'une épée et fendit l'air. Le geste fut simple, mais le corps de Wang Lin se trouvait dans un état mental mystérieux. Après ce mouvement, le parchemin se referma instantanément et plus aucun son n'en sortit.
+Wang Lin ne répondit pas. Ses deux doigts prirent la forme d'une épée et fendirent l'air. Le geste fut simple, mais le corps de Wang Lin se trouvait dans un état mental mystérieux. Après ce mouvement, le parchemin se referma instantanément et plus aucun son n'en sortit.
 
 Wang Lin retira son doigt. Après avoir jeté un regard sur le parchemin, il s'en saisit et le rangea dans son sac de rangement.
 
@@ -94,13 +94,13 @@ C'était le crapaud du tonnerre!
 
 Il s'était éveillé un an auparavant, d'où sa taille actuelle. Le crapaud du tonnerre était celui qui ressentait le plus fortement la puissance de la foudre dans l'âme originelle de Wang Lin. Depuis son éveil, il refusait de retourner dans le sac de rangement et restait simplement aux côtés de son maître.
 
-Wang Lin projeta soudainement un éclair depuis son doigt vers le crapaud. Ce dernier ouvrit les yeux et sa langue s'étira brusquement pour happer l'éclair dans sa bouche. Un grondement sourd émana du ventre du crapaud, qui afficha une expression de contentement.
+Wang Lin projeta soudainement un éclair depuis ses doigts vers le crapaud. Ce dernier ouvrit les yeux et sa langue s'étira brusquement pour happer l'éclair dans sa bouche. Un grondement sourd émana du ventre du crapaud, qui afficha une expression de contentement.
 
 Wang Lin ferma les yeux et s'immergea dans son Dao.
 
 Son Dao se composait de deux parties: le fleuve des enfers, et la formation de l'âme du fleuve des enfers.
 
-Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des centaines de millions d'âmes issues du drapeau des âmes, condensées ensemble. Il lui manquait encore l'intention de tuer.
+Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des centaines de millions d'âmes issues du drapeau d'âme, condensées ensemble. Il lui manquait encore l'intention de tuer.
 
 Bien que le fantôme céleste possédât la férocité, elle était insuffisante pour devenir l'âme du fleuve des enfers de Wang Lin. Car il n'était que féroce, mais dépourvu d'intention de tuer!
 
@@ -124,7 +124,7 @@ Auparavant, en cultivant l'Art Céleste du Massacre, Wang Lin avait acquis le c�
 
 Ce genre de changement risquait de le rendre fou, comme lorsqu'il avait absorbé tous ces Fruits d'Ascension Céleste. Cela lui donnait même l'impulsion immédiate de reprendre toute l'énergie du massacre.
 
-Les yeux de Wang Lin s'illuminèrent, puis il afficha un regard résolu et fit un pas. Ce mouvement le fit franchir la ligne de démarcation.
+Les yeux de Wang Lin s'illuminèrent, puis il afficha un regard résolu, se leva et fit un pas. Ce mouvement le fit franchir la ligne de démarcation.
 
 Une puissante force d'aspiration déchira soudainement le corps de Wang Lin pour l'arracher de la fissure.
 
@@ -142,4 +142,4 @@ Parmi cet essaim, une bête-moustique émettait une lumière violette violente. 
 
 Pourtant, cette bête-moustique violette affichait une expression anxieuse, errant autour de l'entrée du puits depuis trois ans. À plusieurs reprises, elle eut envie de plonger dans le gouffre, mais après avoir jeté un regard à ses congénères, elle s'en ravisa.
 
-Des cris s'échappaient de sa bouche et résonnaient dans la zone... Comme un être séparé des siens, appelant désespérément les noms de sa famille...
+Des cris s'échappaient de sa bouche et résonnaient dans la zone... Comme un jeune enfant séparé des siens, appelant désespérément les noms de sa famille...

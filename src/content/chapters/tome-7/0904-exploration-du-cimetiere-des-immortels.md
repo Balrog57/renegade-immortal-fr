@@ -18,7 +18,7 @@ Ce jour-là, quatre rayons de lumière traversèrent le ciel, et le vieil homme 
 
 Wang Lin atterrit sur le sol et observa la fosse profonde ainsi que le vieil homme qui dévorait des yeux Ta Shan. Après une courte réflexion, il dit lentement: « Cela fait longtemps, Senior Yun Quezi. »
 
-Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'avant toi, nul besoin de m'appeler "Senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
+Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Sur la voie du Dao, celui qui réussit en premier passe devant; nul besoin de m'appeler "Senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
 
 Yun Quezi pointa Ta Shan du doigt.
 
@@ -80,7 +80,7 @@ Au centre trônait une mare d'eau noire. Elle dégageait des ondes d'énergie Yi
 
 « Cet endroit est assez intéressant », murmura Wang Lin en se rapprochant de la mare pour l'examiner avec attention.
 
-Yun Quezi resta silencieux un instant avant de déclarer: « À l'époque, seuls les ancêtres ayant atteint le stade des douze feuilles pouvaient entrer. Ces cercueils sont sans doute ceux d'ancêtres de mon Clan des Immortels Délaissés. La rumeur prétend que la dix-huitième couche renferme l'origine même de notre clan! Quant à la dix-neuvième, on dit qu'elle abrite les âmes résiduelles du premier ancêtre... Compagnon cultivateur Wang, si vous parvenez à forcer l'entrée de la dix-huitième couche, je vous prie de jeter un œil sur notre passé et de me permettre de comprendre l'origine de mon ancêtre. »
+Yun Quezi resta silencieux un instant avant de déclarer: « À l'époque, seuls les ancêtres ayant atteint le stade des douze feuilles pouvaient entrer. Ces cercueils sont sans doute ceux d'ancêtres de mon Clan des Immortels Délaissés. La rumeur prétend que la dix-huitième couche renferme l'origine même de notre clan! Quant à la dix-neuvième, on dit qu'elle abrite les âmes résiduelles du premier ancêtre... Compagnon cultivateur Wang, si vous parvenez à forcer l'entrée de la dix-huitième couche, je vous prie, en souvenir de notre ancienne amitié, de me permettre de comprendre l'origine de mon ancêtre. »
 
 Il regarda Wang Lin. Le petit garçon d'autrefois avait disparu, remplacé par un puissant cultivateur capable de faire s'effondrer la planète Suzaku d'un simple piétinement.
 

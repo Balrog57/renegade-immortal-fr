@@ -21,7 +21,7 @@ Wang Lin esquissa un léger sourire, puis reporta son attention sur la boussole 
 
 Wang Lin demanda: « La dernière fois que tu t'es rendu sur cette planète de commerce, c'était il y a des dizaines de milliers d'années. Je me demande si elle existe toujours. »
 
-Situ Nan réfléchit un moment avant de répondre: « Elle devrait toujours être là. C'est une planète de libre-échange qui existe depuis fort longtemps. À moins qu'un bouleversement céleste ne soit survenu, elle n'aurait pas dû disparaître. Il y règne d'innombrables trésors et matériaux. Ceux qui s'y rendent proviennent généralement des planètes de culture environnantes. J'y suis allé une fois avec Ye Wuyou et j'y avais acquis pas mal de trésors. »
+Situ Nan réfléchit un moment avant de répondre: « Elle devrait toujours être là. C'est une planète de libre-échange qui existe depuis fort longtemps. À moins qu'un bouleversement céleste ne soit survenu, elle n'aurait pas dû disparaître. Il y règne d'innombrables trésors et matériaux. Ceux qui s'y rendent proviennent généralement des planètes de culture environnantes, et l'endroit est très animé. J'y suis allé une fois avec Ye Wuyou et j'y avais acquis pas mal de trésors. »
 
 Wang Lin acquiesça. L'une des raisons de ce voyage était d'escorter Situ Nan; celui-ci prévoyait d'acquérir certains outils nécessaires pour voyager sur de longues distances à travers l'espace. La seconde raison résidait dans la volonté de Wang Lin de trouver des matériaux pour réparer sa boussole stellaire. Après tout, cet objet n'était qu'une imitation et il lui manquait encore certains composants essentiels.
 
@@ -29,7 +29,7 @@ Avec ces matériaux, Wang Lin pourrait affiner la boussole et la parfaire. Dès 
 
 Après plusieurs jours de vol, une petite planète apparut au loin. Ce n'était pas la planète de commerce dont parlait Situ Nan, mais la lune de la planète Suzaku! Son corps original y cultivait depuis tout ce temps.
 
-Alors que la boussole s'approchait de la lune, le corps original, enfoui dans ses profondeurs, lança un coup de poing. Des fissures semblables à des dragons terrifiants se propagèrent des entrailles du sol jusqu'à la surface. Une série de craquements retentit, suivie d'un fracas assourdissant provenant d'un bassin lunaire. Simultanément, une silhouette noire s'en extirpa.
+Alors que la boussole s'approchait de la lune, le corps original, enfoui dans ses profondeurs, ouvrit soudain les yeux et lança un coup de poing. Des fissures semblables à des dragons terrifiants se propagèrent des entrailles du sol jusqu'à la surface. Une série de craquements retentit, suivie d'un fracas assourdissant provenant d'un bassin lunaire. Simultanément, une silhouette noire s'en extirpa.
 
 Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un visage aux traits acérés dégageant une aura de rudesse. Trois étoiles tournaient lentement sur son front, et ses yeux, d'une lueur glaciale comme un bloc de glace éternelle, projetaient un froid immense. D'innombrables crevasses marquaient son corps de bronze, rendant sa peau très rugueuse; mais c'était cette texture même qui conférait à son être une aura sauvage. À cet instant, le corps original ressemblait à une bête primordiale dégageant une aura monstrueuse.
 
@@ -37,7 +37,7 @@ Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un
 
 « Magnifique! » Les yeux de Situ Nan brillèrent d'un vif éclat.
 
-Le regard glacial du corps original se fit un peu plus chaleureux en apercevant Situ Nan. Ce dernier hocha la tête et atterrit sur la boussole stellaire.
+Le regard glacial du corps original se fit un peu plus chaleureux en apercevant Situ Nan. Le corps original hocha la tête et atterrit sur la boussole stellaire.
 
 Situ Nan observa le corps original, puis Wang Lin. Il acquiesça et dit: « Impressionnant. Même avec ma culture, il est difficile de percevoir que vous deux ne formez qu'un seul être; me voilà rassuré. Une fois votre fusion accomplie, votre niveau de culture augmentera sans doute d'un cran! »
 
@@ -63,7 +63,7 @@ Ce jour-là, une planète de culture bleue apparut devant lui. Un anneau de lumi
 
 Wang Lin esquissa un sourire amer. La boussole stellaire laissa derrière elle une traînée de lumière tandis qu'il fonçait vers la planète. La douce aura lumineuse ne chercha nullement à les barrer; en leur approche, elle s'écarta pour leur ouvrir le passage.
 
-La boussole stellaire perça l'atmosphère et pénétra dans l'orbite de la planète. À cet instant précis, trois rayons de lumière foncèrent rapidement vers eux. Situ Nan les vit et hurla: « Dégagez de là, face à ce vieux! »
+La boussole stellaire perça l'atmosphère et pénétra à l'intérieur de la planète. À cet instant précis, trois rayons de lumière foncèrent rapidement vers eux. Situ Nan les vit et hurla: « Dégagez de là! Ce vieux est là! »
 
 Les trois rayons s'arrêtèrent brusquement. Après une courte hésitation, ils firent demi-tour et disparurent. Situ Nan éclata d'un rire sonore, sauta de la boussole stellaire et vola vers la surface en lançant: « Wang Lin, ce vieux va aller faire quelques larcins. Va te promener tranquillement. Je reviendrai te retrouver dans trois jours! »
 
@@ -77,7 +77,7 @@ La ville de Ming Mei était l'une des plus vastes de la planète. Aucun mortel n
 
 Le secteur nord était moins fréquenté, mais c'était là que se trouvaient les boutiques les plus prestigieuses. On n'y dénombrait que neuf magasins, chacun ressemblant à un pavillon sculpté du Royaume Céleste, et tous leurs employés possédaient des niveaux de culture élevés. C'était particulièrement vrai pour la neuvième boutique, réputée comme l'établissement numéro un de la ville de Ming Mei.
 
-À cet instant, un jeune homme vêtu d'une robe verte entra par la porte est. Il se tenait droit, ses longs cheveux flottant derrière lui, lui conférant une élégance certaine. Cet homme n'était autre que Wang Lin. Après avoir payé des pierres spirituelles pour entrer, son regard balaya les boutiques les unes après les autres.
+À cet instant, un jeune homme vêtu d'une robe verte entra par la porte est. Il se tenait droit, ses longs cheveux noués derrière la tête, lui conférant une élégance certaine. Cet homme n'était autre que Wang Lin. Après avoir payé des pierres spirituelles pour entrer, son regard balaya les boutiques les unes après les autres.
 
 L'objectif de Wang Lin était limpide: il lui fallait deux matériaux pour réparer la boussole stellaire. Ces composants étaient extrêmement rares et ne se trouvaient point dans les commerces ordinaires. Tandis qu'il progressait, il inspectait chaque boutique, marquant parfois une pause avant de reprendre sa marche.
 

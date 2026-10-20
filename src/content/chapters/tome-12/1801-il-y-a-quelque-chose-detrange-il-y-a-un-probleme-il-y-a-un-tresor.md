@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1801 - There is Something Strange, There is a Problem, There is a Treasure!"
 slug: il-y-a-quelque-chose-detrange-il-y-a-un-probleme-il-y-a-un-tresor
 ---
-Le continent du Taureau Céleste faisait partie du Continent Oriental, la terre appartenant aux êtres célestes. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
+Le continent du Taureau Céleste faisait partie du Continent Oriental. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
 
 La rumeur prétendait qu'aux premiers âges, le continent du Taureau Céleste était une bête maléfique venue d'au-delà du ciel, que l'Ancêtre Céleste avait tuée, et dont le corps s'était transformé en ce continent. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces!
 
@@ -30,7 +30,7 @@ Sous la Secte Gui Yi et la Secte de la Grande Âme se trouvaient de nombreuses p
 
 La Secte des Sept Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Secte de la Grande Âme pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Secte de la Grande Âme.
 
-Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié de nombreux disciples centraux de la Secte de la Grande Âme et les avait tous vaincus. Même les anciens ordinaires de la Secte de la Grande Âme n'étaient pas de taille contre lui.
+Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié plusieurs disciples centraux de la Secte de la Grande Âme et les avait tous vaincus. Même les anciens ordinaires de la Secte de la Grande Âme n'étaient pas de taille contre lui.
 
 Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du continent du Taureau Céleste!
 
@@ -80,17 +80,17 @@ On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. 
 
 Les disciples de la Secte du Dragon Bleu excellaient dans l'art de créer des marionnettes pour les assister au combat. Ils devaient souvent affiner leurs propres marionnettes de vie avant de pouvoir s'aventurer à l'extérieur. Ces marionnettes possédaient leurs propres rangs et pouvoirs.
 
-Outre l'utilisation de bois spécial ou de mécanismes, des cadavres de bêtes ou de cultivateurs pouvaient également être transformés en marionnettes.
+Parmi les meilleures, outre l'utilisation de bois spécial ou de mécanismes, des cadavres de bêtes ou de cultivateurs pouvaient également être transformés en marionnettes.
 
 L'art des marionnettes n'était pas si mystérieux; les cultivateurs d'autres sectes en connaissaient les rudiments. Cependant, le sortilège de la Secte du Dragon Bleu possédait une particularité unique: il permettait de convertir son propre corps en marionnette afin d'atteindre l'immortalité.
 
-La rumeur disait que le premier membre de la secte à avoir atteint le stade de la Tribulation du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
+La rumeur disait que le premier membre de la secte à avoir atteint le stade initial de la Tribulation du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
 
 Sur le continent du Taureau Céleste, la Secte du Dragon Bleu jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
 
 Cependant, le Grand Ancien Du Qing entretenait des liens profonds avec la Secte de la Grande Âme; ils pouvaient donc agir à leur guise, et peu de sectes osaient les provoquer.
 
-La Secte du Dragon Bleu choisissait également soigneusement ses cibles. Si une puissance était trop risquée, elle l'évitait. Leurs proies de prédilection étaient les voyageurs des autres continents. Si un cultivateur étranger passait par là, il devenait leur cible idéale.
+La Secte du Dragon Bleu choisissait également soigneusement ses cibles. Si une puissance était trop risquée, elle l'évitait. Une partie de leurs cibles était aussi constituée de voyageurs des autres continents. Si un cultivateur étranger passait par là, il devenait leur cible idéale.
 
 Durant l'année, les disciples erraient principalement à l'extérieur pour collecter des informations pour la secte. S'ils rencontraient un ennemi difficile, ils n'hésitaient pas à appeler des renforts pour attaquer en groupe.
 
@@ -98,7 +98,7 @@ Kang Ren était un disciple de troisième génération de la Secte du Dragon Ble
 
 Il était un bel homme, ce qui rendait sa cruauté difficile à imaginer. Même certains disciples de deuxième génération hésitaient à le provoquer.
 
-Ce jour-là, Kang Ren volait dans les airs, patrouillant aux frontières du continent du Taureau Céleste pour débusquer d'éventuels étrangers. Soudain, alors qu'il survolait la région, un changement brusque se produisit au loin!
+Ce jour-là, Kang Ren volait dans les airs, les yeux plissés, patrouillant aux frontières du continent du Taureau Céleste pour débusquer d'éventuels étrangers. Soudain, alors qu'il survolait la région, un changement brusque se produisit au loin!
 
 Il vit une déchirure apparaître dans l'espace et, dans un éclat de lumière spectrale, une silhouette en tomba. La forme semblait porter un cercueil en chutant vers le sol.
 

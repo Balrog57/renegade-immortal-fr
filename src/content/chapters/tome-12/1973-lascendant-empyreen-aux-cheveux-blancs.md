@@ -80,7 +80,7 @@ Même les quatre rois devaient témoigner un immense respect à l'Ascendant Empy
 
 Désormais, Wang Lin avait subjugué l'Ascendant Empyréen Ming Dao. Si le Manoir Li avait su que l'arc se trouvait entre les mains de Wang Lin, ils auraient prétendu ne rien savoir et n'auraient jamais osé le réclamer.
 
-« Le Pavillon des Flèches? » L'expression de Wang Lin changea. Il s'attendait à cela de la part du Manoir Li. Il percevait que, derrière la peur dans les yeux du vieil homme, se cachait une profonde nostalgie pour l'arc de son ancêtre.
+« Le Pavillon des Flèches? » L'expression de Wang Lin changea. Il s'attendait à cela de la part du Manoir Li. Il percevait que, derrière la peur dans les yeux du vieil homme, se cachait un vif désir pour l'arc de son ancêtre.
 
 Ne pouvant le reprendre par la force, ils traitaient Wang Lin avec respect dans l'espoir qu'il rende l'objet.
 
@@ -110,16 +110,16 @@ Une lueur dorée jaillit et une silhouette émergea. L'individu portait une robe
 
 « Lisez-le! » La voix glaciale de Wang Lin résonna depuis les profondeurs du Pavillon des Flèches.
 
-« Espèce de... » L'homme en robe verte fut stupéfait. Il était venu proclamer la volonté de l'Empereur Céleste, ce qui équivalait à la présence physique de l'Empereur lui-même, mais ce Wang Lin refusait même de montrer son visage.
+« Toi... » L'homme en robe verte fut stupéfait. Il était venu proclamer la volonté de l'Empereur Céleste, ce qui équivalait à la présence physique de l'Empereur lui-même, mais ce Wang Lin refusait même de montrer son visage.
 
 Après une hésitation, l'homme renifla avec mépris dans son cœur, mais n'osa manifester son agacement. Il déploya l'édit et commença sa lecture.
 
-Wang Lin n'écouta pas les détails; il comprit simplement que l'Empereur Céleste lui ordonnait de se présenter dans sept jours, à l'aube, devant la Salle du Dao Immortel du palais impérial pour la cérémonie de titre!
+Wang Lin n'écouta pas les détails; il comprit simplement que l'Empereur Céleste lui ordonnait de se présenter dans sept jours, à l'aube, devant le Temple du Dao Céleste du palais impérial pour la cérémonie de titre!
 
-Wang Lin avait appris à la Secte Yang Pourpre que chaque Ascendant Empyréen recevait personnellement son titre de la part de l'actuel Empereur Céleste. C'était une formalité, un symbole.
+Wang Lin avait appris à la Secte Yang Pourpre que chaque Ascendant Empyréen recevait personnellement son titre de la part des Empereurs Célestes successifs. C'était une formalité, un symbole.
 
 Lors de la cérémonie, il existait une possibilité d'être défié, mais par le passé, cela était généralement ignoré. Après tout, les Ascendants Empyréens recevaient la reconnaissance de l'ombre de l'Ancêtre Céleste, et peu de gens se sentaient assez oisifs pour s'y risquer.
 
 Une fois la lecture terminée, l'homme en robe verte constata que Wang Lin ne sortait pas, ce qui accroissait sa frustration. Il laissa l'édit derrière lui et s'en alla en agitant rageusement ses manches.
 
-« Je me demande ce que Lian Daozhen fera lors de cette cérémonie... Je devrais pouvoir croiser le regard de ce fou... » Songea Wang Lin. Il avait étendu son Sens Divin à travers toute la ville est, mais il n'avait pas trouvé trace de Lian Daofei.
+« Je me demande ce que Lian Daofei fera lors de cette cérémonie... Je devrais pouvoir voir ce fou... » Songea Wang Lin. Il avait étendu son Sens Divin à travers toute la ville est, mais il n'avait pas trouvé trace de Lian Daofei.

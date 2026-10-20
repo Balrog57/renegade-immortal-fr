@@ -8,7 +8,7 @@ slug: la-froideur
 ---
 Wang Lin sourit et dit: « C'est vrai. Une fois que l'oncle aura amassé une belle fortune, il retournera au village pour se marier. »
 
-Da Niu allait répondre quand son père l'appela. Da Niu obtempéra et dit à Wang Lin avec un sourire amer: « Je dois retourner à la forge. » Sur ces mots, il rentra chez lui, impuissant.
+Da Niu allait répondre quand son père l'appela. Da Niu obtempéra et dit à Wang Lin avec un sourire amer: « Je dois retourner à la forge. » Sur ces mots, il retourna à la forge, impuissant.
 
 Quelques cris provenant de la forge se firent entendre. Wang Lin prit une gorgée de vin et continua de rester assis dehors. Lentement, les flocons commencèrent à tomber; la première neige de l'année apparaissait en silence.
 
@@ -24,7 +24,7 @@ Cette chaleur, au-delà de la simple sensation physique, réchauffait également
 
 Lentement, une tristesse envahit le regard de Wang Lin. Le froid apporté par la neige n'était rien pour lui, mais à cet instant précis, en voyant toutes les lumières briller dans les boutiques alors que la sienne était la seule plongée dans l'obscurité, une pointe de froideur s'installa dans son cœur.
 
-Ce froid, aucun feu ne pouvait le chasser et aucune technique ne pouvait le combler. Cette froideur provenait de la compréhension des cieux et était une étape indispensable pour éprouver la vie.
+Ce froid, aucun feu ne pouvait le chasser et aucune technique ne pouvait le combler. Cette froideur était le prix de la compréhension des cieux, et une étape indispensable pour éprouver la vie.
 
 Pour atteindre la Formation de l'Âme, il faut d'abord devenir mortel.
 
@@ -32,11 +32,11 @@ Redevenir mortel semble facile à dire, mais en réalité, est-ce si simple? En 
 
 Cette solitude n'était rien comparée à ce qui l'attendait des années plus tard, quand tous ceux qu'il connaît mourraient les uns après les autres jusqu'à ce qu'il soit le dernier survivant. C'était cela, la véritable solitude.
 
-Wang Lin se mit à songer. Après un long moment, il se leva. Il semblait avoir vieilli de plusieurs années. Il ramassa lentement sa chaise, retourna dans sa boutique et ferma doucement la porte.
+Wang Lin resta silencieux. Après un long moment, il se leva en chancelant. Il semblait avoir vieilli de plusieurs années. Il ramassa lentement sa chaise, retourna dans sa boutique et ferma doucement la porte.
 
 Après un long moment, un feu s'alluma à l'intérieur. Bien que ce feu ressemblât à ceux des autres boutiques, celui-ci n'était qu'une apparence, car il cachait en lui une profonde solitude.
 
-Wang Lin s'assit près de l'âtre. Il faisait très chaud dans la boutique, mais son cœur devint plus froid encore. Après avoir longuement médité, il sortit une sculpture en bois et la posa à ses côtés.
+Wang Lin s'assit près de l'âtre. Il faisait très chaud dans la boutique, mais son cœur devint plus froid encore. Après avoir longuement médité, il sortit de son sac de rangement une sculpture en bois et la posa à ses côtés.
 
 C'était la sculpture de son père.
 
@@ -44,7 +44,7 @@ En contemplant l'œuvre, la froideur dans le cœur de Wang Lin s'atténua un peu
 
 Il y avait des représentations d'hommes et de femmes, de jeunes et de vieux. Tous étaient des habitants du petit village.
 
-En regardant ces figurines, Wang Lin esquissa un sourire. Bien que ce sourire fût empreint de satisfaction, quiconque l'aurait vu aurait dit: « Comment peut-on appeler cela un sourire? C'est manifestement un cri silencieux. »
+En regardant ces figurines, Wang Lin esquissa un sourire. Bien que ce sourire fût empreint de satisfaction, quiconque l'aurait vu aurait dit: « Comment peut-on appeler cela un sourire? C'est manifestement des pleurs silencieux. »
 
 Le feu vacillait, éclairant parfois le visage de Wang Lin, le plongeant parfois dans l'ombre. Lorsque la lumière atteignait les sculptures, elles dégageaient une sensation étrange.
 
@@ -52,11 +52,11 @@ Il prit délicatement chaque figurine, tandis que la froideur en son cœur s'apa
 
 Wang Lin murmura pour lui-même: « Je ne peux pas lâcher prise, je ne peux pas lâcher prise... » Durant ses premières années de culture, il n'arrivait pas à se détacher de sa famille. Aujourd'hui encore, il n'y parvenait toujours pas.
 
-Mais ce sentiment différait de celui d'autrefois. Pour atteindre la Formation de l'Âme, il devait d'abord redevenir mortel. S'il avait renoncé à toutes ses émotions envers sa famille, il n'aurait plus aucun moyen de comprendre la mortalité.
+Mais ce sentiment différait de celui d'autrefois. Pour atteindre la Formation de l'Âme, il devait d'abord redevenir mortel. S'il avait renoncé à toutes ses émotions envers sa famille, devenir mortel lui serait absolument impossible.
 
-Chaque cultivateur de la Formation de l'Âme était puissant non seulement grâce à sa culture, mais aussi parce que son cœur abritait une infime parcelle d'émotion au plus profond de lui-même. Ils utilisaient ce fragment d'émotion pour franchir le stade de l'Âme Naissante et atteindre celui de la Formation de l'Âme.
+Chaque cultivateur de la Formation de l'Âme était puissant non seulement grâce à sa culture, mais aussi parce que son cœur abritait une émotion profondément enfouie au plus profond de lui-même. Ils utilisaient ce fragment d'émotion pour franchir le stade de l'Âme Naissante et atteindre celui de la Formation de l'Âme.
 
-C'est grâce à cette émotion que Wang Lin ne rencontra aucune difficulté à devenir mortel et commença progressivement à ressentir ce que ressentent les mortels.
+C'est grâce à cette émotion que Wang Lin ne rencontra pas de grand obstacle pour devenir mortel et commença progressivement à ressentir ce que ressentent les mortels.
 
 À cet instant, il était plongé dans ses pensées sur ses parents, vivant silencieusement ce sentiment. L'énergie spirituelle dans son corps se remit à tourbillonner frénétiquement. Ce tourbillon s'échappa peu à peu de lui. Des éclats d'énergie spirituelle jaillirent de toutes les sculptures de la pièce et se mirent à tourbillonner avec l'aura de Wang Lin.
 
@@ -124,7 +124,7 @@ Le père de Da Niu fixa à nouveau son fils. Il prit la cruche, en but une grand
 
 Wang Lin eut un petit rire. En regardant ce père et son fils, la froideur en son cœur s'était dissipée. Il ressentait à présent une légère chaleur.
 
-Cette nuit-là, le père de Da Niu but énormément. Deux cruches furent manifestement insuffisantes. Da Niu servit les plats, et ce n'est qu'à la dixième cruche qu'ils furent enfin ivres.
+Cette nuit-là, le père de Da Niu but énormément. Deux cruches furent manifestement insuffisantes. Da Niu le servit, et ce n'est qu'à la dixième cruche qu'il fut enfin ivre.
 
 Finalement, le père de Da Niu s'effondra sous l'effet de l'alcool, mais sa main serrait fermement l'or tandis que Da Niu le raccompagnait.
 

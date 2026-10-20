@@ -54,7 +54,7 @@ Dès que l'arc apparut, la flèche géante sous lui trembla. Comme si elle avait
 
 Wang Lin resta calme et ordonna lentement: « Plus petite! »
 
-À peine eut-il prononcé ces mots que la flèche géante trembla et se rétracta. Elle glissa immédiatement hors de son logement et tomba sur des dizaines de milliers de pieds avant de se coincer à nouveau.
+À peine eut-il prononcé ces mots que la flèche géante trembla et se rétracta. Elle glissa immédiatement hors de son logement et tomba sur plusieurs milliers de pieds avant de se coincer à nouveau.
 
 « Un peu plus petite! » La voix de Wang Lin était glaciale. La flèche frémit et rétrécit davantage, continuant sa chute depuis le trou jusqu'à ce qu'elle atteigne le sol.
 
@@ -62,7 +62,7 @@ Un grondement de tonnerre résonna lorsque la flèche percuta la terre, s'y enfo
 
 Ces neuf plumes étaient d'une grande souplesse. Wang Lin se tenait sur la flèche et son corps oscillait au rythme des vibrations de l'arme.
 
-Après deux rétrécissements, la flèche mesurait encore 100 000 pieds de long pour des milliers de pieds de large. Elle ressemblait à un pilier gigantesque planté en diagonale dans le sol.
+Après deux rétrécissements, la flèche mesurait encore 10 000 pieds de long pour plusieurs centaines de pieds de large. Elle ressemblait à un pilier gigantesque planté en diagonale dans le sol.
 
 Depuis son perchoir, Wang Lin observa le trou dans le ciel. L'intérieur était d'un noir absolu, menant vers un lieu inconnu. Les bords du gouffre bougeaient lentement; il était en train de cicatriser.
 
@@ -74,7 +74,7 @@ La flèche géante trembla une fois de plus et se rétracta rapidement. Finaleme
 
 En tenant l'arme, les yeux de Wang Lin s'illuminèrent. Il aperçut quatre runes sur la flèche. Elles étaient fines, s'étirant sur toute sa longueur et dégageant une lueur ténue.
 
-« Ces quatre runes sont liées à l'âme et peuvent décupler la puissance du projectile! À l'époque, Li Guang utilisa cette flèche pour abattre l'œil gauche de Ye Mo... Je me demande quelles âmes il a bien pu utiliser. » Wang Lin réfléchit un instant avant de porter sa main gauche à son front. Ses étoiles de Dieu Ancien apparurent et le Fourneau Impérial s'éleva.
+« Ces quatre runes sont liées à l'âme et peuvent accroître la puissance de la flèche! À l'époque, Li Guang utilisa cette flèche pour abattre l'œil gauche de Ye Mo... Je me demande quelles âmes il a bien pu utiliser. » Wang Lin réfléchit un instant avant de porter sa main gauche à son front. Ses étoiles de Dieu Ancien apparurent et le Fourneau Impérial s'éleva.
 
 Dès que le gigantesque Fourneau Impérial apparut, il se mit à tourner lentement. Wang Lin pouvait clairement distinguer les âmes de deux individus à l'intérieur du four!
 
@@ -88,7 +88,7 @@ Les runes sur la flèche vibrèrent violemment et les hurlements des âmes cess�
 
 Cette aura était si puissante que même Wang Lin en fut stupéfait.
 
-« Il reste encore deux âmes... Quant au choix de celles que je vais sceller... » Wang Lin songea, puis sa main gauche s'étira. La faille vers son espace de stockage s'ouvrit et un pavillon gigantesque en sortit!
+« Il reste encore deux runes... Quant aux âmes à sceller... » Wang Lin songea, puis sa main gauche s'étira. La faille vers son espace de stockage s'ouvrit et un pavillon gigantesque en sortit!
 
 C'était le Palais Terrestre que Wang Lin avait découvert dans la Tombe Antique!
 
@@ -100,13 +100,13 @@ Tout en méditant, le regard de Wang Lin se posa sur le cercle situé à la poin
 
 Cependant, malgré son insistance, Wang Lin ne parvint pas à percer le mystère de ce cercle. Il poussa un soupir et renonça à l'observer. D'un geste de la main droite, il fit en sorte que la flèche se dissipe en sept filaments de lumière qui pénétrèrent dans son corps par ses orifices.
 
-Après avoir rangé la flèche, Wang Lin scruta les environs. Il fit un pas et son corps s'enfonça dans la terre. Il suivit les anneaux de pierre et se dirigea vers la porte monumentale.
+Après avoir rangé la flèche, Wang Lin scruta les environs. Il fit un pas et son corps s'enfonça dans la terre. Il suivit les anneaux et se dirigea vers la porte monumentale.
 
 D'un calme olympien, il atteignit le dernier cercle où se dressait la porte de pierre. Sans hésiter, il agita la main pour l'ouvrir. Il franchit ensuite le seuil et retourna dans la 18e couche.
 
 Debout dans la 18e couche, Wang Lin regarda la porte de pierre qui se refermait derrière lui. Il posa de nombreux sceaux avant de se préparer à partir.
 
-« Je dois affiner les Fruits du Dao pour que mes essences de vie et de mort, de karma, ainsi que de vrai et de faux, atteignent leur plénitude... » Wang Lin se détourna pour partir, mais s'arrêta brusquement. Son regard fut attiré par le mur qui avait subi l'impact de la force utilisée pour ouvrir la porte.
+« Je dois affiner les Fruits du Dao pour que mes essences de vie et de mort, de karma, ainsi que de vrai et de faux, atteignent leur plénitude... » Wang Lin se détourna pour partir, mais s'arrêta brusquement. Son regard fut attiré par le mur contre lequel il avait été projeté par le choc de l'ouverture de la porte.
 
 Ce mur était criblé de fissures et une grande quantité de roche s'en était détachée. L'une d'elles était si profonde qu'elle semblait transpercer la structure, révélant ce qui se cachait derrière.
 

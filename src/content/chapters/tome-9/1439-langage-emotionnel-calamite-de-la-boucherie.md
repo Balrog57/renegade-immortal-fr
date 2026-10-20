@@ -108,7 +108,7 @@ Les pupilles de Wang Lin se contractèrent et, sans hésiter, ses mains formère
 
 Pourtant, il restait près de 200 cultivateurs pour seulement 43 plateformes disponibles. S'ils ne parvenaient pas à trouver refuge, ils seraient balayés par le brouillard qui s'élançait vers le ciel!
 
-Pour survivre, il fallait voler et être rapide. Sinon, si deux personnes atteignaient la plateforme en même temps, elles seraient toutes deux annihilées avec elle!
+Pour survivre, il fallait s'emparer d'une plateforme, et vite. Sinon, si deux personnes atteignaient la plateforme en même temps, elles seraient toutes deux annihilées avec elle!
 
 À cet instant précis, plus de dix cultivateurs chargèrent Wang Lin, les yeux injectés de sang!
 

@@ -64,7 +64,7 @@ Lorsque la brise disparut, la femme retrouva ses sens. Son épée trancha la tê
 
 La pluie tombait sur une cité mortelle. Des ombrelles fleuries parsemaient les rues où les passants se hâtaient. Leurs pas créaient des ondulations à la surface de l'eau au sol.
 
-Une après l'autre... comme si chaque ride était un karma incessant s'intégrant au Dao.
+Une après l'autre... comme si chaque ride était un karma incessant se fondant dans le ciel et la terre pour devenir une part du Dao.
 
 Un coup de vent pouvait briser ces cercles, mais ce n'était que temporaire; les ondulations revenaient aussitôt, comme si elles ne devaient jamais cesser.
 
@@ -82,7 +82,7 @@ Une brise légère souffla, apportant avec elle un soupir antique qui enveloppa 
 
 Les joies et les peines, les larmes sincères comme les feintes, répondirent en silence à cette question, et la voix antique se dissipa peu à peu.
 
-Dans la cité impériale, des milliers de soldats et de chevaux fonçaient sur le palais principal. Encerclé par les armures, un homme d'âge moyen vêtu d'une robe jaune se tenait sur la grande estrade du palais. Il fixait l'ennemi avec colère, son corps dégageant une profonde tristesse.
+Dans la cité impériale, des milliers de soldats et de chevaux fonçaient sur le palais principal. Encerclé par les armures, un homme d'âge moyen vêtu d'une robe jaune se tenait sur la grande estrade du palais. Il fixait droit devant lui avec colère, son corps dégageant une profonde tristesse.
 
 Des rangs des soldats en contrebas sortit un homme. Entièrement revêtu d'une armure, il paraissait très puissant. En y regardant de plus près, il ressemblait étrangement à l'homme en robe jaune.
 
@@ -112,7 +112,7 @@ La porte s'ouvrit. Un vieil homme mortel au regard sage apparut et répondit dou
 
 Le garçon regarda le vieillard et demanda calmement: « Maître, savez-vous ce qu'est le Dao? »
 
-« Le Dao? » Le vieil homme regarda l'enfant et agita ses manches. « Ce vieux serviteur enseigne les arts humains, il n'y a point de Dao ici! »
+« Le Dao? » Le vieil homme regarda l'enfant et agita ses manches. « Ce vieux serviteur enseigne les relations humaines et les choses du monde, il n'y a point de Dao ici! »
 
 Le garçon réfléchit en silence puis partit. Alors que la brise s'éloignait, le corps du garçon trembla et il reprit ses esprits, perplexe face à son propre comportement.
 

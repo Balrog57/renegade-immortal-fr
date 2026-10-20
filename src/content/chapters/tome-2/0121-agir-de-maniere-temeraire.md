@@ -22,21 +22,21 @@ Quant à la formation de ces champs de bataille et aux destinations de ces faill
 
 Chaque pays de rang 5 contrôle de nombreux pays de rang 4, et chaque pays de rang 4 en contrôle de nombreux de rang 3. Quant aux pays de rang 1 et 2, l'Union a instauré des règles strictes pour empêcher quiconque d'entraver leur croissance.
 
-Zhao est un pays de culture de rang 3, contrôlé par le pays de rang 4 du Dragon Vert, lui-même soumis au pays de rang 5 du Clan du Démon Géant.
+Zhao est un pays de culture de rang 3 de la Planète Suzaku, contrôlé par le pays de rang 4 du Dragon Vert, lui-même soumis au pays de rang 5 du Clan des Démons Géants.
 
-Chaque fois qu'une bataille de grande ampleur éclate dans un champ de bataille étranger, tous les cultivateurs de l'Âme Naissante de Zhao sont réquisitionnés pour combattre. Ils n'ont ni le droit de retarder leur départ, ni celui de résister. Autrefois, les cinq ancêtres de l'Âme Naissante de la Secte Heng Yue avaient été appelés. S'ils partaient, la Secte Heng Yue serait en sécurité, mais leur survie était incertaine. S'ils refusaient, non seulement la Secte Heng Yue serait anéantie, mais ils seraient eux aussi exécutés.
+Chaque fois qu'une bataille de grande ampleur éclate dans un champ de bataille étranger, tous les cultivateurs de l'Âme Naissante de Zhao sont réquisitionnés pour combattre. Ils n'ont ni le droit de retarder leur départ, ni celui de résister. Autrefois, les cinq ancêtres de l'Âme Naissante de la Secte Heng Yue avaient été appelés. S'ils partaient, la Secte Heng Yue serait en sécurité, mais leur survie était incertaine. S'ils refusaient, non seulement la Secte Heng Yue serait anéantie, mais eux aussi ne pourraient y échapper.
 
 En réalité, ce sort touche presque tous les pays de culture de rang 3.
 
 C'est la sélection naturelle. Un monde où la loi du plus fort fait rage. L'ordre d'un puissant est une sentence que le faible doit suivre sans pouvoir s'y opposer. Peut-être est-ce parce qu'ils doivent survivre dans ce monde cruel que les cultivateurs deviennent plus opportunistes que les mortels.
 
-Ou peut-être, aux yeux de ceux qui siègent au sommet de l'Union, cet univers n'est qu'un immense chaudron de raffinage. Que ce soient les mortels ou les cultivateurs, tous sont raffinés sans pitié. Dans l'Antiquité, la culture se concentrait sur la compréhension des cieux, la culture du cœur du Dao et la poursuite d'un seul Dao. Les cultivateurs dégageaient une aura d'élégance et de divinité.
+Ou peut-être, aux yeux de ceux qui siègent au sommet de l'Union, cet univers n'est qu'un immense chaudron de raffinage. Que ce soient les mortels ou les cultivateurs, tous sont raffinés sans pitié. Dans l'Antiquité, la culture se concentrait sur la compréhension du Dao céleste, la culture du cœur du Dao et la poursuite d'un seul Dao. Les cultivateurs dégageaient une aura d'élégance, de détachement du monde, de grâce immortelle et de sérénité céleste.
 
 Mais le monde antique de la culture s'est soudainement effondré lors d'un grand désastre. L'Union de la Culture a alors surgi pour prendre sa place. C'est à ce moment-là que le concept même de Dao s'est brisé.
 
 Il est désormais prouvé qu'une culture dépourvue de désir mène à la destruction : c'était une voie erronée. Seule la voie où règnent la loi du plus fort et la sélection naturelle permet réellement de survivre. Bien qu'ils en ignorent le résultat final, du moins pour l'instant, sous la direction de l'Union, les cultivateurs actuels sont bien plus puissants que ceux des temps anciens. Et cela suffit amplement.
 
-À cet instant, un événement étrange se produisait dans l'un des champs de bataille étrangers appartenant au Clan du Démon Géant. Chaque cultivateur ayant acquis le Sens Divin au cours des trois dernières années fut pris de panique. Une immense pluie de météores semblait recouvrir le champ de bataille alors que chaque fragment de Sens Divin convergeait vers un point unique.
+À cet instant, un événement étrange se produisait dans l'un des champs de bataille étrangers appartenant au Clan des Démons Géants. Chaque cultivateur ayant acquis le Sens Divin au cours des trois dernières années fut pris de panique. Une immense pluie de météores semblait recouvrir le champ de bataille alors que chaque fragment de Sens Divin convergeait vers un point unique.
 
 Peu après, le champ de bataille étranger, déjà au bord de l'effondrement, ne put supporter la puissance de ce Sens Divin et commença véritablement à s'écrouler. Une immense brèche apparut, comme si une gueule invisible avait englouti la moitié du champ de bataille, qui disparut sans un bruit.
 
@@ -44,18 +44,18 @@ Simultanément, un immense Sens Divin émergea prudemment de la brèche, puis bo
 
 D'innombrables créatures mystérieuses en sortirent et se jetèrent sur tout ce qu'elles rencontraient; on pourrait les décrire comme une invasion de sauterelles. Chaque cultivateur utilisa toute sa force pour fuir frénétiquement vers la matrice de transfert, craignant qu'un seul instant d'hésitation ne les condamne à être dévorés. On ne voyait que des traînées de lumière d'épée filer à toute vitesse, sans aucun égard pour rien d'autre.
 
-Dès l'apparition des trois âmes gigantesques, Wang Lin les remarqua immédiatement. Il connaissait très bien ces trois Sens Divins, car c'étaient ses trois voisins dans la faille spatiale. À cet instant, la conscience qu'il avait projetée au cours des trois dernières années lui revenait progressivement. À chaque fragment récupéré, son Sens Divin s'étendait jusqu'à retrouver sa taille originale.
+Dès l'apparition des trois grands Sens Divins, Wang Lin les remarqua immédiatement. Il connaissait très bien ces trois Sens Divins, car c'étaient ses trois voisins dans la faille spatiale. À cet instant, le Sens Divin qu'il avait projeté au cours des trois dernières années lui revenait progressivement. À chaque fragment récupéré, son Sens Divin s'étendait jusqu'à retrouver sa taille originale.
 
 Wang Lin n'était pas pressé. Il s'assit en tailleur pour s'acclimater à ce corps étranger. Plusieurs créatures mystérieuses passèrent près de lui; elles hésitèrent un instant, mais ne purent résister à la tentation et bondirent vers lui.
 
-Lorsqu'elles furent à quelques dizaines de mètres, il ouvrit les yeux et tonna:
+Lorsqu'elles furent à quelques dizaines de mètres, il ouvrit les yeux, un éclat glacial dans le regard, et dit froidement:
 — Insensés, vous tenez donc tant à mourir!
 
 Son immense Sens Divin se déploya soudainement; les créatures mystérieuses, comme si elles faisaient face à leur prédateur naturel, poussèrent des cris de terreur avant de reculer frénétiquement. Elles n'étaient pas allées bien loin que le Sens Divin de Wang Lin les rattrapa et en avala plusieurs d'une bouchée. Alors qu'il s'apprêtait à continuer à dévorer, un grand Sens Divin, venu de loin, tenta de l'arrêter.
 
 Wang Lin laissa échapper un froid renâclement. Loin de reculer, il accéléra pour les rattraper et dévora toutes les créatures qui l'avaient offensé. L'autre grand Sens Divin poussa un soupir et garda le silence.
 
-Bien que la majeure partie du Sens Divin de Wang Lin soit revenue dans son corps, certains fragments n'étaient pas restés dans le champ de bataille étranger et ne pouvaient donc pas lui revenir. Néanmoins, en termes de puissance, son Sens Divin était presque identique à celui qu'il possédait autrefois.
+Bien que la majeure partie du Sens Divin de Wang Lin soit revenue dans son corps, certains fragments, pour une raison inconnue, n'étaient pas restés dans le champ de bataille étranger et ne pouvaient donc pas lui revenir. Néanmoins, en termes de puissance, son Sens Divin était presque identique à celui qu'il possédait autrefois.
 
 — Vous avez tous franchi la limite! lança-t-il en balayant les environs de son Sens Divin, d'où partit une onde.
 
@@ -78,7 +78,7 @@ Après avoir conclu cet accord, Wang Lin se dirigea vers la matrice de transfert
 
 Tout au long du trajet, Wang Lin se sentait très mal à l'aise dans ce nouveau corps. Bien que le talent et la racine spirituelle de Ma Liang fussent plutôt bons, plusieurs fois supérieurs à ceux qu'il avait autrefois, il s'agissait néanmoins d'un corps possédé. Il lui faudrait du temps pour le raffiner avant de pouvoir le maîtriser totalement.
 
-Pour l'heure, son corps était dépourvu d'énergie spirituelle et il devait compter sur son Sens Divin pour se déplacer. Sa priorité était de trouver un endroit pour une culture en vase clos afin de raffiner ce corps tout en élevant sa culture, pour l'allier à son immense Sens Divin et retourner à Zhao tout massacrer sur son passage.
+Pour l'heure, son corps était dépourvu d'énergie spirituelle et il devait compter sur son Sens Divin pour se déplacer. Sa priorité était de trouver un endroit pour une culture en vase clos afin de raffiner ce corps tout en élevant sa culture, pour l'allier à son immense Sens Divin et retourner à Zhao pour y tout massacrer.
 
 Alors qu'il volait, Wang Lin s'arrêta brusquement et regarda vers le nord-ouest. Après une courte réflexion, il changea de cap. Peu de temps après, il vit trois faisceaux de lumière foncer vers lui, poursuivis par plus de dix âmes errantes.
 

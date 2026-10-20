@@ -13,7 +13,7 @@ Il s'agissait de deux hommes. L'un était assez jeune et n'était qu'au stade in
 
 Mai Guorong était un disciple de la Secte Hao Ran. Suivant les ordres de son maître, il se rendait à la Secte Ciel Nuageux pour leur rassemblement biennal Kai-Ling. Ce prétendu rassemblement n'était en réalité qu'une vente aux enchères de pilules organisée par la Secte Ciel Nuageux.
 
-La Secte Ciel Nuageux était célèbre pour sa production de pilules dans le pays de culture Chu. Même certains pays de rang 4 venaient y échanger des ressources, mais cela ne se produisait que tous les dix ans, lors du plus grand rassemblement Kai-Ling. Quant à ces rencontres biennales, elles étaient principalement destinées aux jeunes générations du pays de culture Chu pour se rencontrer et rivaliser.
+La Secte Ciel Nuageux était célèbre pour sa production de pilules dans le pays de culture Chu. Même certains pays de rang 4 venaient y échanger des ressources, mais cela ne se produisait que tous les dix ans, lors du plus grand rassemblement Kai-Ling. Quant à ces rencontres biennales, elles étaient principalement destinées aux jeunes générations du pays de culture Chu pour se rencontrer et s'aguerrir.
 
 Lors de ces petits rassemblements Kai-Ling, on ne trouvait pas de pilules précieuses, seulement des produits standards. Cependant, pour ces jeunes cultivateurs, cela restait une aubaine dont ils ne se lassaient jamais.
 
@@ -85,7 +85,7 @@ Xu Li expliqua lentement: « Chaque fois que l'on tue, on accumule un peu d'aura
 
 Mai Guorong prit une inspiration. Il demanda avec hésitation: « Maître, d'après vos paroles, cet homme n'a pas encore atteint le stade de l'Âme Naissante? »
 
-Xu Li réfléchit un instant, puis acquiesça: « Bien qu'il ne soit pas au stade de l'Âme Naissante, il est très proche. Si ma perception est juste, il a déjà atteint le sommet du stade avancé de la Formation du Noyau, celui de la pseudo-Formation du Noyau. Pour éviter tout problème inutile, ne parle de cela à personne. Même après notre retour à la Secte Hao Ran, garde le silence. Compris? »
+Xu Li réfléchit un instant, puis acquiesça: « Bien qu'il ne soit pas au stade de l'Âme Naissante, il est très proche. Si ma perception est juste, il a déjà atteint le sommet du stade avancé de la Formation du Noyau, celui de la pseudo-Âme Naissante. Pour éviter tout problème inutile, ne parle de cela à personne. Même après notre retour à la Secte Hao Ran, garde le silence. Compris? »
 
 Mai Guorong hocha vigoureusement la tête. Même si Xu Li n'avait rien dit, il n'aurait pas osé parler du redoutable cultivateur qu'ils venaient de croiser; l'impression laissée par cet homme était trop terrifiante pour risquer de tels ennuis.
 

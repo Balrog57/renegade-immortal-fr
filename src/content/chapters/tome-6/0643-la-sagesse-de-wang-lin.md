@@ -61,8 +61,7 @@ Le brouillard violet n'affectait pas du tout la bête moustique, qui disparut en
 
 Wang Lin était troublé. Il ignorait ce qui arrivait à la bête, mais fort heureusement, son lien avec elle subsistait. Il réfléchit un instant: ce n'était pas le moment de s'inquiéter pour l'insecte. Il soupira, se concentra et reprit son ascension lente. À l'intérieur de l'épée céleste, Zhou Yi tournoyait autour de Wang Lin, déployant son sens divin d'épée pour observer les environs.
 
-Cupidité ne remarqua pas l'intrusion de cultivateurs dans le brouillard. S'il avait pu détecter l'impact des sens divins de Wang Lin et de Ling Tianhou, c’était uniquement parce que l'onde de choc s'était propagée directement à travers les parois. C'était là son unique moyen de perception.
-
+Cupidité ne remarqua pas l'intrusion de cultivateurs dans le brouillard. S'il avait pu détecter l'impact des sens divins de Wang Lin et de Ling Tianhou, c’était uniquement parce que l'onde de choc s'était propagée directement à travers les parois.
 Wang Lin progressait lentement dans la brume, extrêmement vigilant. Son sens divin n'avait presque aucun effet ici; il ne voyait qu'une épaisseur opaque. Un million de sceaux de vie scintillaient sur son front, recouvrant son corps: en cas de crise, cela lui offrirait une chance de survie.
 
 Alors qu'il volait, Zhou Yi envoya soudainement un message par sens divin:

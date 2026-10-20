@@ -34,7 +34,7 @@ La voix de la jeune fille du Clan de l'Extermination des Sceaux trembla et elle 
 
 « Je suis la servante du Maître Dao Miao Yin. Vous m'avez capturée, il vous tuera donc certainement... » La jeune fille mordit sa lèvre inférieure et regarda Wang Lin. Sa timidité persistait, mais elle la réprimait de toutes ses forces.
 
-Wang Lin déclara lentement: « Il ne peut pas entrer dans le Tombeau de l'Ordre Ancien. »
+Wang Lin déclara lentement: « Il ne peut plus entrer dans l'Ancien Tombeau. »
 
 En entendant cela, le visage de la jeune fille devint encore plus livide. Elle était intelligente et comprit immédiatement le sens des paroles de Wang Lin.
 
@@ -82,7 +82,7 @@ Ce qui était remarquable chez ce clan, outre son étrange sortilège de scellem
 
 C'était précisément dans cette intention que le Maître Dao Miao Yin s'était donné tant de mal pour trouver un membre du Clan de l'Extermination des Sceaux et en faire sa servante. Cependant, la méthode pour obtenir le sortilège des trois vies était trop ardue: il fallait se rendre à l'autel du clan, avec peu de chances de succès, et un échec provoquerait un contrecoup. De plus, l'autel avait disparu depuis trop longtemps; l'affaire avait donc toujours été repoussée.
 
-Après avoir examiné la marque du clan, Wang Lin la rangea silencieusement. Quant à la jeune fille, il n'avait pas l'intention de la tuer. Il n'y avait aucune haine entre eux et il avait déjà pris sa marque. Une fois sorti du Tombeau de l'Ordre Ancien, il la libérerait.
+Après avoir examiné la marque du clan, Wang Lin la rangea silencieusement. Quant à la jeune fille, il n'avait pas l'intention de la tuer. Il n'y avait aucune haine entre eux et il avait déjà pris sa marque. Une fois sorti de l'Ancien Tombeau, il la libérerait.
 
 Alors qu'il rangeait la marque, Wang Lin leva soudainement les yeux vers les dix-neuf arbres qu'il nourrissait. Ces arbres débordaient de vie et étaient d'un vert éclatant. D'innombrables feuilles commençaient à apparaître.
 

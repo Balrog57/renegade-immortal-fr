@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1802 - Bring It Back to the Cave
 slug: ramenez-le-dans-la-grotte
 ---
-Kang Ren effectua d'abord plusieurs fois le tour de la zone. Après avoir observé attentivement les lieux pendant un moment, il s'approcha lentement de la montagne effondrée où se trouvait Wang Lin.
+Kang Ren effectua d'abord plusieurs fois le tour de la zone. Après avoir observé attentivement les lieux pendant un moment, il s'approcha lentement de la montagne effondrée, jusqu'à quelques centaines de pieds de Wang Lin.
 
 Il fixa Wang Lin, allongé là, et ses yeux furent envahis par une excitation et une cupidité qu'il ne pouvait dissimuler.
 
@@ -16,7 +16,7 @@ Il fixa Wang Lin, allongé là, et ses yeux furent envahis par une excitation et
 
 Il ne s'attendait pas à ce qu'une telle aubaine lui tombe dessus alors qu'il ne faisait que survoler la région.
 
-« L'aura de cet homme a disparu et il est dans un état semi-mort, c'est parfait pour que je le transforme en marionnette. Avec une telle créature, je pourrai balayer tous les disciples de deuxième génération de la Secte du Dragon Bleu! Si je parviens à attirer l'attention de l'Ancêtre Ancestral et à devenir son disciple, alors je pourrai défier les cieux! » À ces pensées, l'excitation de Kang Ren monta d'un cran.
+« L'aura de cet homme a disparu et il est dans un état semi-mort, c'est parfait pour que je le transforme en marionnette. Avec une telle créature, je pourrai balayer tous les disciples de deuxième génération de la Secte du Dragon Bleu! Si je parviens à attirer l'attention du Vieil Ancêtre et à devenir son disciple, alors je m'élèverai d'un bond vers les cieux! » À ces pensées, l'excitation de Kang Ren monta d'un cran.
 
 Bien qu'exalté, il n'en oublia pas la prudence. Il s'arrêta à quelques centaines de pieds de Wang Lin, prêt à s'enfuir pour appeler sa secte si la situation tournait mal. Après tout, s'il ne pouvait s'approprier le butin, rapporter cette découverte à sa secte constituerait déjà un exploit majeur.
 
@@ -30,7 +30,7 @@ Sous le choc, Kang Ren recula de plusieurs milliers de pieds, l'éclat dans ses 
 
 Bien que l'impact du jade fût puissant, il ne put en rien blesser Wang Lin. En vérité, même des dizaines ou des centaines de jades dotés seulement de la puissance d'un Purificateur du Nirvana n'auraient pas pu lui infliger la moindre égratignure.
 
-Quant au Cercueil d'Évitement Céleste, il était toujours protégé par Wang Lin et demeurait intact. Sans parler de Kang Ren, même un cultivateur ayant traversé plusieurs Tribulations Arcanes aurait eu du mal à endommager le coffre ni à le séparer de Wang Lin.
+Quant au Cercueil d'Évitement Céleste, il restait sous la protection de Wang Lin, fondu à son aura, et demeurait intact. Sans parler de Kang Ren, même un cultivateur ayant traversé plusieurs Tribulations Arcanes aurait eu du mal à endommager le coffre ni à le séparer de Wang Lin.
 
 En s'approchant de Wang Lin, les yeux de Kang Ren se rétrécirent lorsqu'il aperçut le Cercueil d'Évitement Céleste derrière lui. Il vit la femme à l'intérieur. Bien qu'elle ne fût pas d'une beauté extrême, son apparence endormie fit naître des pensées impures dans son regard.
 
@@ -52,7 +52,7 @@ Alors que Kang Ren s'apprêtait à entrer dans la vallée, un rugissement retent
 
 « Qui ose pénétrer dans la vallée? Déclare ton nom! Si tu ne te présentes pas dans trois respirations, tu en subiras les conséquences! »
 
-Un éclat de froideur traversa le regard de Kang Ren. Il s'arrêta à l'entrée de la vallée et rugit: « Nuage Virtuel, qu'est-ce que cela signifie? »
+Un éclat de froideur traversa le regard de Kang Ren. Il s'arrêta à l'entrée de la vallée et rugit: « Xu Yun, qu'est-ce que cela signifie? »
 
 « Oh? Il s'agit donc du Frère Cadet Kang. Le brouillard était trop épais pour que je te reconnaisse. Le Frère Cadet n'était-il pas parti? Comment se fait-il que tu sois déjà de retour? Qu'as-tu capturé avec ton filet à marionnettes? » La voix était désinvolte, et un jeune homme bossu sortit de la vallée.
 
@@ -60,7 +60,7 @@ Le jeune homme était très beau, mais sa bosse gâchait toute l'aura positive q
 
 « Tu es trop curieux! » Kang Ren lâcha un reniflement méprisant et chargea dans la vallée. Le jeune homme bossu afficha une expression malveillante en observant la direction prise par Kang Ren.
 
-« Il y a quelque chose d'étrange... il y a un problème, il y a un trésor! » Tout en méditant sur ces pensées, il laissa une marionnette sur place et s'envola vers la vallée.
+« Il y a un problème... il y a quelque chose d'étrange, il y a un trésor! » Tout en méditant sur ces pensées, il laissa une marionnette sur place et s'envola vers la vallée.
 
 Quant à Kang Ren, il traversa la vallée et se rapprocha d'une montagne. Il pénétra instantanément dans l'une des grottes et agita la main gauche.
 
@@ -68,7 +68,7 @@ La porte de la grotte se referma lentement tandis qu'une formation s'activait po
 
 Simultanément, deux autres silhouettes de bois sombre apparurent à l'intérieur de la grotte. Alors que Kang Ren passait devant elles, les yeux de ces deux hommes de bois s'illuminèrent d'une lueur fantomatique.
 
-Kang Ren ne leur accorda même pas un regard et s'enfonça dans les profondeurs de la cavité. Une perle nocturne y diffusait une lumière douce qui éclairait faiblement les lieux, laissant la grotte plongée dans une pénombre mystérieuse.
+Kang Ren ne leur accorda même pas un regard et s'enfonça dans les profondeurs de la cavité. Une perle nocturne grosse comme un poing y diffusait une lumière douce qui éclairait faiblement les lieux, laissant la grotte plongée dans une pénombre mystérieuse.
 
 Une formation d'environ cent pieds de large émettait des éclats d'aura violette sous la lueur de la perle. Cette aura conférait à la structure un aspect très singulier.
 
@@ -76,7 +76,7 @@ Près de la formation, Kang Ren agita sa main droite. Wang Lin, qu'il avait appo
 
 Kang Ren se frotta les mains d'excitation en contemplant la formation entourée de brume, ses yeux brillant d'un éclat intense.
 
-« Je dois procéder à la transformation au plus vite. Ce Nuage Virtuel est très sournois. Dès qu'il saura que j'ai ramené une marionnette, il complotera contre moi! » Kang Ren agita la main droite et des matériaux destinés à la création de marionnettes s'envolèrent vers la formation.
+« Je dois procéder à la transformation au plus vite. Ce Xu Yun est très sournois. Dès qu'il saura que j'ai ramené une marionnette, il complotera contre moi! » Kang Ren agita la main droite et des matériaux destinés à la création de marionnettes s'envolèrent vers la formation.
 
 Au même moment, sa main gauche traça un sceau qu'il pressa contre le dispositif. La formation gronda et commença à s'activer. Le brouillard se transforma en vortex, puis une source de feu fut extraite du sol sous la formation, remplissant la grotte d'une chaleur intense.
 
@@ -92,7 +92,7 @@ Il continuait d'injecter des matériaux dans la formation, l'excitation se lisan
 
 Alors que la formation s'activait, à l'extérieur de la grotte, le jeune homme bossu se tenait respectueusement au sommet d'une autre montagne devant un vieil homme aux cheveux blancs.
 
-Le visage de ce vieil homme était d'un noir violacé, créant un contraste saisissant avec sa chevelure blanche. L'aura d'un cultivateur du stade initial du Vide du Nirvana émanait de son corps.
+Le visage de ce vieil homme était d'un noir violacé, créant un contraste saisissant avec sa chevelure blanche. L'aura d'un cultivateur du troisième pas du Vide du Nirvana, au stade initial, émanait de son corps.
 
 « Oses-tu perturber la culture isolée de ce vieux pour une affaire aussi dérisoire? Même si tu as une rancune personnelle contre Kang Ren... » Tandis que le vieil homme parlait, ses yeux s'illuminèrent et son regard perça la paroi de la grotte où se trouvait Kang Ren.
 

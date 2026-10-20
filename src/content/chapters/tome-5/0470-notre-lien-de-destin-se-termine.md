@@ -16,7 +16,7 @@ Sa silhouette, légèrement voûtée, portait les marques du temps. La fumée du
 
 « Maman de Ru... » Une voix l'appela depuis la pièce voisine de la cuisine.
 
-La femme posa l'éventail et essuya ses mains sur sa robe. Elle quitta précipitamment la cuisine pour rejoindre la pièce d'où provenait la voix.
+La femme posa l'éventail et essuya ses mains sur son tablier. Elle quitta précipitamment la cuisine pour rejoindre la pièce d'où provenait la voix.
 
 Après avoir ouvert la porte, elle vit un vieil homme assis sur le lit. Ses yeux étaient enfoncés dans leurs orbites et de profondes rides couvraient son visage.
 
@@ -46,7 +46,7 @@ Le fait que Zhou Ru ait été emmenée par ce taoïste était une épine constan
 
 Le père de Zhou Ru ne parvenait pas à oublier cela. Depuis qu'il était tombé malade, son état ne s'était jamais amélioré, et il s'étiolait de jour en jour.
 
-Toutes les charges du foyer pesaient sur la mère de Zhou Ru. Cette femme au foyer devait subvenir aux besoins de toute la famille, mais dans ses rêves, les larmes inondaient ses yeux alors qu'elle murmurait le nom de Zhou Ru.
+Toutes les charges du foyer pesaient sur la mère de Zhou Ru. Cette femme au foyer devait subvenir aux besoins de toute la famille, mais au milieu de la nuit, en sortant de ses rêves, les larmes lui inondaient les yeux et elle murmurait le nom de Zhou Ru.
 
 « Notre fille rentrera à la maison. Mari, tu as rêvé d'elle hier. Ton rêve se réalisera sûrement... » La femme essuya ses larmes.
 
@@ -62,13 +62,13 @@ La femme murmura avec hésitation: « Toi... »
 
 « Ru Er... c'est vraiment Ru Er! Mari, elle est vraiment revenue! » La femme, transportée par l'émotion, laissa les larmes couler sur ses joues. Elle serra la jeune fille dans ses bras et éclata en sanglots.
 
-Le père de Zhou Ru sembla soudain investi d'une force inimaginable; il se redressa seul. Il regarda Zhou Ru, les larmes aux yeux, et s'exclama: « Que le Ciel nous fasse grâce! Que le Ciel nous fasse grâce! Ma fille est revenue à la maison! »
+Le père de Zhou Ru sembla soudain investi d'une force inimaginable; il se redressa seul. Il regarda Zhou Ru, les larmes aux yeux, et s'exclama: « Le Ciel a ouvert les yeux! Le Ciel a ouvert les yeux! Ma fille est revenue à la maison! »
 
 À l'extérieur de la maison, Wang Lin soupira. Il éprouvait un sentiment de regret envers ces deux êtres. D'un geste de la main droite, il envoya un rayon d'énergie spirituelle pénétrer silencieusement les corps des parents de Zhou Ru.
 
 Le corps du père retrouva instantanément sa vitalité et sa santé; il en fut de même pour la mère.
 
-« Ru Er, l'oncle doit partir! » Après une courte réflexion, Wang Lin s'en alla. Il paraissait d'une tristesse et d'une solitude infinies.
+« Ru Er, l'oncle doit partir! » Après un bref silence, Wang Lin s'en alla. Il paraissait d'une tristesse et d'une solitude infinies.
 
 À l'intérieur, Zhou Ru sembla percevoir quelque chose; elle regarda par la fenêtre et aperçut cette silhouette mélancolique.
 

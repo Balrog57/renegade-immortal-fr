@@ -76,7 +76,7 @@ Une aura violente jaillit de son corps, formant une tempête qui se propagea rap
 
 Les vêtements de Maître Simo voltèrent et ses longs cheveux ondulaient. Ses yeux étaient sombres, et la lueur qu'ils dégageaient s'estompa lentement pour ne laisser place qu'à une froideur glaciale et à une intention meurtrière.
 
-La mort de son avatar n'avait pas grand impact sur sa culture; il l'avait raffiné pour l'aider à progresser en cas de stagnation. Cependant, la perte de cet avatar anéantissait le plan sur lequel il travaillait depuis fort longtemps. En conséquence, c'était comme si des années d'efforts s'étaient évaporées.
+La mort de son avatar n'avait pas grand impact sur sa culture; il l'avait raffiné afin que, si sa culture stagnait, il puisse en faire naître un cultivateur de troisième étape. Cependant, la perte de cet avatar anéantissait le plan sur lequel il travaillait depuis fort longtemps. En conséquence, c'était comme si des années d'efforts s'étaient évaporées.
 
 « Le Grand Empereur de la Terre Déchue!!! » Maître Simo grinça des dents, l'expression féroce.
 

@@ -16,7 +16,7 @@ Les sceaux de force vitale étaient l'assurance de Wang Lin pour l'avenir. Il av
 
 Voyant que l'ennemi n'avait pas l'intention de combattre et qu'il tentait de battre en retraite, le regard de Wang Lin devint glacial alors qu'il se lança aussitôt à la poursuite de l'homme en robe noire. Il effleura son sac de rangement et le Fouet de l'Âme apparut instantanément dans sa main.
 
-En pleine poursuite, il fit soudainement tournoyer le fouet.
+En pleine poursuite, il fit soudainement tournoyer le fouet. Celui-ci s'allongea aussitôt comme un dragon noir et se mit à fouetter furieusement l'air en direction de son adversaire.
 
 Le visage de l'homme en robe noire s'assombrit; il se retourna brusquement pour tenter de saisir le fouet et hurla: « Sale gosse ingrat! Très bien, aujourd'hui, je vais te donner une leçon à la place de ton maître! »
 

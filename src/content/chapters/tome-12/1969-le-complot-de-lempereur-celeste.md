@@ -68,7 +68,7 @@ Son existence remontait à l'Ancêtre Ancien. Lorsqu'il devint un Grand Empyrée
 
 Après la disparition de l'Ancêtre Ancien et de l'Ancêtre Céleste, une guerre éclata entre le clan Ancien et le clan céleste. Durant ce conflit, le clan céleste comptait huit Grands Empyréens tandis que le clan Ancien n'en possédait que quatre!
 
-Mais alors que la guerre atteignait son paroxysme et que les Célestes avaient envahi la moitié du territoire du clan Ancien, le Grand Empyréen Gu Dao sortit de sa méditation de porte close. Il affronta seul d'innombrables Célestes et combattit deux Grands Empyréens célestes simultanément. À la fin, il tua les deux et, sur le chemin du retour, bien qu'attaqué en embuscade par un autre Grand Empyréen céleste, il parvint également à l'éliminer!
+Mais alors que la guerre atteignait son paroxysme et que les Célestes avaient envahi la moitié du territoire du clan Ancien, le Grand Empyréen Gu Dao sortit de sa méditation de porte close. Il se rendit seul chez les Célestes et, devant d'innombrables témoins, affronta deux Grands Empyréens célestes simultanément. À la fin, il tua les deux et, sur le chemin du retour, bien qu'attaqué en embuscade par un autre Grand Empyréen céleste, il parvint également à l'éliminer!
 
 Après cette bataille, le Grand Empyréen Gu Dao ébranla le Continent Astral Immortel! Ce combat força les Célestes à battre en retraite, mettant fin à la guerre.
 
@@ -130,7 +130,7 @@ Il leva la main droite comme pour effleurer la barrière. Ses yeux étaient empr
 
 Au loin, des éclats de rire cristallins retentirent. Les rires joyeux de petites filles apaisèrent le cœur de Wang Lin.
 
-« Petit Biaozi, ne malmène pas le Petit Loup. Tu lui as tout volé! »
+« Petit Biaozi, ne malmène pas le Petit Loup. Tu lui as tout escroqué! »
 
 « Petit Biaozi, descendons la montagne pour piéger les gens, c'est tellement amusant! »
 

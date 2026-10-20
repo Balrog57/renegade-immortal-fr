@@ -70,13 +70,13 @@ Wang Lin fixa Chen Tao et répondit lentement: « Tu n'as pas les qualifications
 
 Chen Tao regarda Wang Lin, éclata de rire et déclara: « Combattre cette bête va me coûter un peu de temps, mais dès que je t'aurai capturé, cette bête ne pourra plus s'échapper! Regarde donc si j'ai, oui ou non, la qualification pour être ton aîné! »
 
-L'adversaire était un cultivateur Ascendant; Wang Lin savait qu'il n'était pas de taille, mais il ne pouvait pas simplement capituler. Même en cas de défaite, il voulait que cet homme sache qu'on ne devait pas le sous-estimer.
+L'adversaire était un cultivateur Ascendant; Wang Lin savait qu'il n'était pas de taille, mais il ne pouvait pas simplement capituler. Même en cas de défaite, il voulait que cet homme sache qu'on ne devait pas s'en prendre à lui.
 
 À ce moment, Chen Tao s'élança. L'expression de Wang Lin resta sereine et il ne bougea pas d'un iota. Au lieu de cela, il leva sa main droite et, cette fois, tendit son petit doigt.
 
 Situ Nan avait longtemps hésité avant d'enseigner enfin à Wang Lin le dernier de ses trois sorts mortels. Il l'avait prévenu avec la plus grande gravité: ne jamais utiliser ce sort avant d'avoir atteint le stade avancé de la Transformation de l'Âme. S'il tentait de l'utiliser au stade initial, il subirait un contrecoup qu'un cultivateur de ce niveau ne pourrait supporter, avant même d'avoir blessé l'ennemi.
 
-Ce n'est qu'au stade intermédiaire de la Transformation de l'Âme qu'il pouvait à peine l'employer, et sans en utiliser toute la puissance sous peine de subir un retour de flamme. Même au stade avancé, une prudence extrême restait de mise pour ce troisième sort mortel! Il ne pourrait l'utiliser à sa guise qu'une fois le stade Ascendant atteint!
+Ce n'est qu'au stade intermédiaire de la Transformation de l'Âme qu'il pouvait à peine l'employer, et sans en utiliser toute la puissance sous peine de subir un contrecoup. Même au stade avancé, une prudence extrême restait de mise pour ce troisième sort mortel! Il ne pourrait l'utiliser à sa guise qu'une fois le stade Ascendant atteint!
 
 Le petit doigt droit de Wang Lin pointait vers Chen Tao. À cet instant, il n'y avait plus aucune énergie spirituelle céleste dans son corps, et même son aura vitale s'étiolait lentement. Il ne restait plus aucune trace de vie en lui.
 
@@ -106,7 +106,7 @@ L'intention de combat dans les yeux de Chen Tao s'intensifia; son corps vacilla 
 
 Un bruit fracassant, capable de briser le ciel, résonna devant Chen Tao. Le firmament sembla être déchiré par une tornade et le domaine de la vie et de la mort se dissipa.
 
-Le corps de Wang Lin fut projeté en arrière d'une centaine de mètres, puis recula encore de plus de trois cents mètres avant de cracher une gorgée de sang. L'énergie spirituelle céleste dans son corps était totalement déréglée. Il leva les yeux vers Chen Tao et dit d'un ton sombre: « Je me rends! »
+Le corps de Wang Lin fut projeté en arrière d'une centaine de mètres, puis recula encore de plus de trois cents mètres avant de cracher une gorgée de sang. L'énergie spirituelle céleste dans son corps était totalement déréglée. Il leva les yeux vers Chen Tao et dit d'un ton sombre: « J'abandonne! »
 
 Quant à Chen Tao, son expression était redevenue normale alors qu'il baissait ses bras, fixant Wang Lin d'un regard indifférent. Son intention de combat ne faiblit pas, elle s'intensifia même lorsqu'il déclara solennellement: « Une fois que tu auras atteint le stade Ascendant, nous nous battrons à nouveau, Septième Frère! »
 

@@ -26,7 +26,7 @@ Cette attitude hautaine lui inspirait un profond dégoût. N'attendant pas la r�
 
 Dans un fracas assourdissant, la porte s'effondra!
 
-Tous ceux que le vieil homme nommé Zhou avait appelés pour la patrouille étaient sortis pour l'accueillir poliment. En voyant l'indifférence de Wang Lin, ils étaient naturellement mécontents.
+Tous ceux que le vieil homme nommé Zhou avait appelés pour la patrouille étaient sortis pour l'accueillir poliment. En voyant l'indifférence de Wang Lin, le vieil homme était naturellement mécontent.
 
 Alors que la porte s'écroulait, le vieil homme entra d'un reniflement méprisant. Mais alors qu'il faisait un pas, il s'arrêta brusquement. Il vit Wang Lin, assis au fond de la grotte, le fixant d'un regard glacial.
 
@@ -46,7 +46,7 @@ Wang Lin ne répondit pas et continua d'avancer. Sa silhouette émergea lentemen
 
 Les battements étaient si violents que leur son finit par étouffer tout le reste dans l'esprit de l'homme. Son cœur semblait vouloir jaillir de sa poitrine pour éclater.
 
-Cette sensation de puissance combla les yeux du vieil homme d'incrédulité et de peur.
+Cette sensation intense combla les yeux du vieil homme d'incrédulité et de peur.
 
 Wang Lin s'arrêta à dix pieds devant lui et observa calmement ses yeux.
 

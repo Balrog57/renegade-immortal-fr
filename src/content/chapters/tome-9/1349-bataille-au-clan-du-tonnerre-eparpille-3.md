@@ -12,7 +12,7 @@ Bien que les dragons de tonnerre restants ne se soient pas effondrés, la pressi
 
 À ce moment précis, l'âme originelle du dragon de tonnerre antique de Wang Lin se précipita dans le lac de tonnerre. Il se retourna soudainement pour faire face à l'Ancien en chef et reprit rapidement sa forme humaine.
 
-« Moi, Wang Lin, suis venu réclamer l'Éclair Éternel et détruire votre clan du Tonnerre Dispersé! » Wang Lin répéta lentement ce qu'il avait déjà déclaré, tandis que son âme originelle se retirait dans le lac de tonnerre.
+« Moi, Wang Lin, suis venu réclamer le tonnerre éternel et détruire votre clan du Tonnerre Dispersé! » Wang Lin répéta lentement ce qu'il avait déjà déclaré, tandis que son âme originelle se retirait dans le lac de tonnerre.
 
 Les yeux de l'Ancien en chef s'illuminèrent et il ricana en s'avançant dans le lac de tonnerre. Le lac, qui bouillonnait et grondait jusque-là, devint soudainement silencieux dès que l'Ancien y pénétra, comme si une force invisible l'avait écrasé.
 
@@ -62,7 +62,7 @@ L'Ancien en chef recula de quelques pas et agita la main droite et la claqua sur
 
 « Quel puissant coup de poing de tonnerre. Ce vieil homme va te combattre! » Au moment où sa main toucha la marque du clan entre ses sourcils, celle-ci brilla intensément et un trésor s'en échappa!
 
-Ce trésor était un ancien miroir vert arborant une marque de tonnerre au dos. Cette marque était identique à l'Éclair Éternel du clan du Tonnerre Dispersé!
+Ce trésor était un ancien miroir vert arborant une marque de tonnerre au dos. Cette marque était identique au tonnerre éternel du clan du Tonnerre Dispersé!
 
 « Miroir de Massacre de la Foudre, brise tout pour moi! » rugit l'Ancien en lançant le miroir. Un grondement sourd émana de l'objet, qui grandit de multiples fois!
 
@@ -72,7 +72,7 @@ Lorsque le poing de tonnerre de Wang Lin arriva, un poing de foudre de taille id
 
 Ce Miroir de Massacre de la Foudre était l'un des trésors principaux du clan du Tonnerre Dispersé. Tout sortilège inférieur au troisième niveau y était immédiatement copié, et sa puissance n'était pas moindre que l'original. Il pouvait contrer n'importe quel sort!
 
-Ce trésor était déjà capable de défier les cieux; comparé au trésor du Vide Nirvana de rang 9 de l'Estimé Xuan Bao, ce miroir était un trésor du Vide Nirvana de rang 2. Il surpassait de loin un simple trésor du Vide et se rapprochait infiniment d'un trésor du Nirvana!
+Ce trésor était déjà capable de défier les cieux; comparé à la Flèche du Pseudo-Vide du Nirvana de rang 9 de l'Estimé Xuan Bao, ce miroir était un trésor du Pseudo-Vide du Nirvana de rang 2. Il surpassait de loin un simple trésor du Vide et se rapprochait infiniment d'un trésor du Nirvana!
 
 Le poing géant de tonnerre jaillit du Miroir de Massacre de la Foudre. À cet instant, c'était comme si un géant se cachait à l'intérieur du miroir pour porter un coup!
 

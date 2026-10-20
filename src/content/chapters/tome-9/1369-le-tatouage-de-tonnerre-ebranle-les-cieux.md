@@ -86,7 +86,7 @@ Cette scène fut si choquante qu'elle fit renaître la terreur dans les yeux des
 
 C'était un spectacle capable de stupéfier n'importe qui: la chaîne de montagnes, enveloppée de tonnerre, s'élevait dans le ciel. Wang Lin poussa un rugissement et, d'un revers de main, fit éclater la chaîne de montagnes en cent mille pics de tonnerre qui se dispersèrent dans toutes les directions!
 
-Les trésors et les sorts entrèrent en collision avec ces innombrables montagnes de tonnerre, créant un vacarme assourdissant. De nombreux cultivateurs ne purent esquiver assez vite et furent percutés par les débris montagneux. Ils crachèrent du sang et leurs corps s'effondrèrent!
+Les trésors et les sorts entrèrent en collision avec ces innombrables montagnes de tonnerre, créant un vacarme assourdissant. De nombreux cultivateurs ne purent esquiver assez vite et furent percutés par les montagnes de tonnerre. Ils crachèrent du sang et leurs corps s'effondrèrent!
 
 Pour certains, l'âme originelle se désintégra complètement!
 

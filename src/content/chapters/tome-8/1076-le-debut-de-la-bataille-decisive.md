@@ -12,7 +12,7 @@ Nuit Brisée était extrêmement puissant, mais il n'avait qu'une compréhension
 
 L'effet de ce sortilège était sans précédent en raison de l'apparition de la loi d'origine, de l'esprit véritable de l'Oiseau Vermillon, du second éveil de Wang Lin et de sa contre-attaque désespérée. Tous ces éléments avaient permis d'atteindre un paroxysme. C'était une prouesse qu'il ne pourrait reproduire, et même s'il y parvenait, elle ne serait pas aussi dévastatrice.
 
-Son âme originelle était encore affaiblie, et il devait composer avec l'épée de sang de l'Omniscient aux robes grises, issue de son attaque désespérée. Bien que la partie de l'épée située à l'extérieur de son corps ait disparu, la lame demeurait en lui et avait pénétré son âme originelle.
+Son âme originelle était encore affaiblie, et il devait composer avec l'épée de sang de l'Omniscient aux robes grises, issue de son attaque désespérée. Bien que la partie de l'épée située à l'extérieur de son corps ait disparu, la lame demeurait en lui, comme si elle lui avait transpercé le cœur, et avait pénétré son âme originelle.
 
 À chaque inspiration, une douleur fulgurante irradiait de sa poitrine, rendant le visage de Wang Lin plus livide encore.
 
@@ -48,11 +48,11 @@ Ces couleurs noire et blanche s'entrelacèrent dans le ciel, formant un chaos é
 
 Tandis qu'il murmurait, une voix ancestrale, chargée de siècles, sembla émerger lentement du chaos. C'était comme un murmure indistinct, impossible à saisir. Pourtant, en l'entendant, chacun ressentit une terreur primale, comme s'ils faisaient face à leur ennemi naturel. La pression émanant du ciel fit trembler la terre avec fracas.
 
-En un clin d'œil, les secousses atteignirent un point critique et des grondements tonitruants éclatèrent. D'innombrables fissures apparurent soudainement et, en se propageant, commencèrent à se rejoindre.
+En un clin d'œil, les secousses atteignirent un point critique et des grondements tonitruants éclatèrent. D'innombrables fissures apparurent soudainement à cinquante kilomètres de là et, en se propageant, commencèrent à se rejoindre.
 
-Presque instantanément, le sol sur cinquante kilomètres se brisa et s'éleva vers le ciel, tel un pilier gigantesque plongeant dans le chaos noir et blanc suspendu dans les airs.
+Presque instantanément, le sol sur cinquante kilomètres se brisa et s'éleva vers le ciel, tel un pilier gigantesque de cinquante kilomètres de large plongeant dans le chaos noir et blanc suspendu dans les airs.
 
-L'expression de Wang Lin était sombre. La terre continuait de trembler et la zone était enveloppée d'un brouillard noir et blanc qui entravait tant la vue que le Sens Divin.
+L'expression de Wang Lin était sombre. La terre continuait de trembler et la zone, sur cinquante kilomètres à la ronde, était enveloppée d'un brouillard noir et blanc qui entravait tant la vue que le Sens Divin.
 
 L'Ancien Démon Ta Jia se déplaça avec une rapidité fulgurante. Les six anciens du niveau Briseur du Nirvana de la Secte Divine de l'Oiseau Vermillon devinrent graves et s'élancèrent promptement. Leurs mains formèrent des sceaux, faisant jaillir une mer de flammes qui balaya l'espace devant eux.
 
@@ -94,6 +94,6 @@ C'était le Sceau Céleste des 18 Enfers!
 
 Sans hésiter, la main droite de Wang Lin plongea dans le vide et une lumière cristalline apparut dans sa paume. Il projeta violemment cette lumière vers l'avant et, tandis qu'elle scintillait devant lui, il hurla: « Arsenal Magique! »
 
-À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent des 18 Sceaux Célestes de l'Enfer pour se précipiter vers les éclats de lumière. Ces derniers gagnèrent en puissance, dégageant des effluves d'énergie Yin.
+À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent des 18 Sceaux Célestes de l'Enfer pour se précipiter vers les éclats de lumière. Ces derniers prirent une consistance presque tangible, dégageant des effluves d'énergie Yin.
 
 Le plus terrifiant fut de voir l'âme du Maître du Vide surgir de la 18e couche de l'enfer! Les yeux injectés de sang, il poussa un rugissement bestial et chargea l'être sans tête.

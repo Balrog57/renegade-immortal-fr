@@ -8,7 +8,7 @@ slug: la-cupidite-disparue
 ---
 Wang Lin se frotta les tempes, pris d'une migraine.
 
-Tandis qu'il hésitait, la nouvelle se répandit: un individu nommé Wang avait déclenché le feu terrestre, brûlé la Secte du Dragon Bleu, éveillé l'âme de la branche de la veine de feu, balayé des dizaines de milliers de cultivateurs, massacré des milliers de ses disciples, et vaincu quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.
+Tandis qu'il hésitait, la nouvelle se répandit: un individu nommé Wang avait déclenché le feu terrestre, brûlé la Secte du Dragon Bleu, éveillé l'âme de la branche de la veine de feu, balayé des dizaines de milliers de cultivateurs, massacré des milliers de ses disciples, et gravement blessé quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.
 
 La Secte du Dragon Bleu était enragée. Ils lancèrent tous leurs disciples dans une recherche effrénée. De nombreuses sectes se gaussèrent de cette affaire, n'ayant que peu d'estime pour la Secte du Dragon Bleu. Cependant, face au niveau de culture de Du Qing et à ses liens avec la Secte de la Grande Âme, elles préférèrent s'en tenir à distance.
 

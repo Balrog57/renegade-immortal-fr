@@ -28,7 +28,7 @@ Celle-ci émit des éclats de lumière bleue pendant un long moment, avant que l
 
 Wang Lin fronça les sourcils en ramassant la couronne pour l'examiner. Peu après, il sembla réaliser quelque chose.
 
-Cette couronne semblait avoir acquis une once d'esprit par rapport à auparavant. Wang Lin l'examina attentivement et put vaguement distinguer, à l'intérieur, la silhouette d'un être tenant une épée.
+Cette couronne semblait avoir acquis une once d'esprit par rapport à auparavant. Wang Lin l'examina attentivement et put vaguement distinguer, à l'intérieur, la silhouette d'un être qui dansait avec une épée.
 
 Au-delà de cela, il ne trouva aucun autre indice.
 
@@ -72,7 +72,7 @@ Ce symbole était extrêmement complexe, et chaque trait dégageait une aura anc
 
 L'aura ancienne devint extrêmement dense à cet instant. L'aura que le démon dispersé dégageait lorsqu'il avait pris possession du corps de Wang Lin pour extraire l'âme de la planète Mille Illusions ne pouvait en aucun cas lui être comparée.
 
-À mesure que l'aura ancienne se propageait, la planète entière en fut affectée. Toute la vitalité de la planète fut progressivement réprimée et des fissures apparurent partout.
+À mesure que l'aura ancienne se propageait, la planète entière en fut affectée. Toute la vitalité de la planète fut progressivement réprimée et des fissures apparurent partout, la terre se réduisant peu à peu en poussière.
 
 Wang Lin prit une profonde inspiration. Au moment où le symbole fut achevé, il frappa du plat de la main. Le symbole flotta alors lentement vers la perle défiant le ciel qui levitait dans les airs.
 
@@ -116,7 +116,7 @@ Wang Lin n'avait pas ressenti cela depuis très longtemps. Même face au Serpent
 
 C'était comme s'il redevenait l'adolescent mortel debout au pied du pic de la Secte Heng Yue, levant les yeux vers cette immense secte de culture. Il ressentait ce genre de crainte révérencieuse qui vient du plus profond du cœur!
 
-À mesure que la culture et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la tribulation céleste lors de son Ascendant dans la Terre des Esprits Démoniques, il s'était appuyé sur sa conviction du Dao et sa ténacité pour résister de toutes ses forces!
+À mesure que la culture et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la tribulation céleste lors de son Ascendant dans la Terre des Esprits Démoniaques, il s'était appuyé sur sa conviction du Dao et sa ténacité pour résister de toutes ses forces!
 
 Mais en cet instant, bien que cette porte gigantesque ne dégageât aucune pression directe, son esprit et son corps tremblaient!
 

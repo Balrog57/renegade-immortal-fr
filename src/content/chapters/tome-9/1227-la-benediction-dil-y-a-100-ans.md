@@ -8,7 +8,7 @@ slug: la-benediction-dil-y-a-100-ans
 ---
 Une fois leur conversation terminée, les yeux de Wang Lin s'illuminèrent et il se déplaça avec une célérité accrue. Les six étoiles du Dieu Ancien entre ses sourcils tournèrent rapidement et l'énergie du Dieu Ancien emplit son corps. Sa stature grandit instantanément pour devenir celle d'un Dieu Ancien de plusieurs milliers de pieds!
 
-Wang Lin poussa un rugissement vers le ciel et agita sa gigantesque main. Tandis que l'annulaire se refermait, il saisit le trident et balaya le doigt d'un revers puissant.
+Wang Lin poussa un rugissement vers le ciel et agita sa gigantesque main. Tandis que l'annulaire se refermait, il saisit le trident et, d'un puissant coup de pied droit, balaya le doigt.
 
 Le corps de Wang Lin trembla violemment. Même avec son corps de Dieu Ancien, il sentait que sa structure allait s'effondrer. Il s'appuya sur cette force pour arracher le trident!
 
@@ -64,7 +64,7 @@ Lorsqu'on forme un poing, l'auriculaire et l'index se ferment en premier, suivis
 
 Wang Lin savait que même s'il brisait toutes ses étoiles restantes, il ne pourrait échapper à ce coup ultime. Cependant, il refusait de rester là et de se laisser broyer.
 
-« Vivant, un héros parmi les hommes; mort, un héros parmi les fantômes! Nous, cultivateurs, ne reculons jamais devant le combat!! Moi, Wang Lin, j'ai cultivé pendant près de 2 000 ans. Si j'étais encore un mortel, je serais déjà retourné à la poussière. Alors, et si je meurs? Qu'ai-je à craindre? » Wang Lin laissa échapper un sourire pitoyable tandis que sa voix puissante résonnait. Il chargea directement le pouce!
+« Vivant, un héros parmi les hommes; mort, un héros parmi les fantômes! Nous, cultivateurs, ne reculons jamais devant le combat!! Moi, Wang Lin, j'ai cultivé pendant près de 2 000 ans. Si j'étais encore un mortel, je serais déjà retourné à la poussière. Aujourd'hui, ma longévité dépasse de loin celle des mortels. Alors, et si je meurs? Qu'ai-je à craindre? » Wang Lin laissa échapper un sourire pitoyable tandis que sa voix puissante résonnait. Il chargea directement le pouce!
 
 « Père, Mère, s'il y a une autre vie, Tie Zhu ne cultivera pas! Je passerai un siècle à sourire avec vous deux!
 « Situ, toi et moi ne pourrons plus jamais nous revoir.
@@ -120,7 +120,7 @@ L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un d
 
 « Lorsque le Souverain pénétra autrefois dans le Royaume aux Sept Couleurs, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Antique inspire encore la crainte chaque fois qu'on y pense.
 
-« Le lieu où sont plantées les Fleurs aux Sept Couleurs a été scellé par le Souverain. À part le gardien, personne ne peut y pénétrer avec son corps réel. Il prétend que c'est pour éviter de perturber l'intention du Dao et permettre la croissance ininterrompue des fleurs, mais quelle est la véritable raison?
+« Le lieu où sont plantées les Fleurs aux Sept Couleurs a été scellé par le Souverain. Seul le double du gardien peut y entrer, mais personne ne peut y pénétrer avec son corps réel. Il prétend que c'est pour éviter de perturber l'intention du Dao et permettre la croissance ininterrompue des fleurs, mais quelle est la véritable raison?
 
 « De plus, cet enfant n'est pas ordinaire. Sa puissance fait trembler le ciel et il possède le corps d'un Dieu Ancien Royal. Son caractère ressemble au mien; avec sa puissance actuelle, il a réussi l'incroyable de briser quatre de mes doigts. Parmi tous les jeunes, même dans le Système Stellaire Antique, il serait considéré comme le plus puissant. S'il dispose de suffisamment de temps, il atteindra certainement les Royaumes du Vide. Il bénéficie aussi de la bénédiction et du soutien de Yue Er. J'ai fait du tort à Yue Er dans sa vie passée, et dans cette vie, je ne laisserai personne lui nuire... Je soutiendrai celui qu'elle soutient! Même le Souverain ne pourra m'arrêter! »
 

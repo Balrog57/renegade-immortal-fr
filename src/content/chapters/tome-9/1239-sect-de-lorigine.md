@@ -68,7 +68,7 @@ L'ensemble de la Secte Éternelle bouillonnait d'activité lors de cette compét
 
 Certains puissants cultivateurs du secteur avaient même été invités pour assister à l'événement, renforçant l'effervescence. Des cultivateurs solitaires étaient également venus observer ce grand spectacle.
 
-Une plateforme monumentale, occupant une partie de la planète, servait de lieu de compétition. Tout autour, d'innombrables gradins s'élevaient vers le ciel, remplis de cultivateurs.
+Une plateforme monumentale, occupant près de la moitié de la planète, servait de lieu de compétition. Tout autour, d'innombrables gradins s'élevaient vers le ciel, remplis de cultivateurs.
 
 La Secte de l'Origine occupait une petite zone à la lisière nord. Comparé aux autres sectes qui comptaient des centaines de membres, la Secte de l'Origine n'en comptait que moins de dix, ce qui lui donnait un air particulièrement dérisoire.
 

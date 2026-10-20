@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 981 - Do You Still Remember Ling Er
 slug: te-souviens-tu-encore-de-ling-er
 ---
-Wang Lin hésita un instant, puis tourna son regard vers la planète située derrière les frères Chen. L'énergie spirituelle qui en émanait était si dense qu'un simple coup d'œil lui permit de deviner la splendeur de ce monde.
+Wang Lin hésita un instant, puis tourna son regard vers la planète située derrière les frères Chen. L'énergie spirituelle qui en émanait était si dense qu'un simple coup d'œil lui permit de sentir sa légèreté et sa beauté.
 
 Voyant l'hésitation de Wang Lin, Maître Yi Chen s'empressa de dire: « Frère Wang, hormis notre planète Esprit d'Eau, aucune autre dans un rayon de centaines de milliers de kilomètres n'est aussi propice à la culture. De plus, cette planète est vaste; nous ne perturberons nullement votre culture. »
 
@@ -60,7 +60,7 @@ Elle aimait énormément cette paire de clochettes; elle les portait constamment
 
 À cet instant, Zhao Xue lança quelques regards furtifs vers Wang Lin, mais ne remarqua rien de particulier.
 
-Maître Yi Chen sourit en observant la scène. En regardant Wang Lin, une idée germa dans son esprit. Il sourit: « Ling Er, le Senior Wang va rester quelque temps. Ne le dérange pas. » Sur ces mots, il entraîna Wang Lin vers l'intérieur.
+Maître Yi Chen sourit en observant la scène. En regardant Wang Lin, une idée germa dans son esprit. Il sourit: « Ling Er, le Senior Wang va rester quelque temps. Ne le dérange pas. » Sur ces mots, il s'éleva en tête et entraîna Wang Lin vers l'avant.
 
 Wang Lin adressa un signe de tête à Ling Er et s'avança. Da Tou et Ta Shan le suivirent. Maître Fu Fengzi jeta un regard aux deux femmes et poussa un soupir avant de les suivre à son tour.
 
@@ -106,7 +106,7 @@ Wang Lin était assis au cœur du palais. Après trois jours d'immobilité absol
 
 À l'instant où ses yeux s'ouvrirent, ce fut comme si un éclair avait transpercé l'obscurité du palais, le baignant de lumière.
 
-« Trois jours de repos ajoutés à la culture effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Scruteur du Nirvana... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Purificateur du Nirvana au stade intermédiaire! Cependant, cela ne suffira pas pour le voyage vers la Terre des Esprits Démoniaques... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
+« Trois jours de repos ajoutés à la culture effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Scruteur du Nirvana... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Purificateur du Nirvana au stade intermédiaire! Cependant, cela ne suffira pas pour le voyage vers la grotte céleste de la Terre des Esprits Démoniaques... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
 
 Cette lueur azur rendit immédiatement le palais brumeux. À l'intérieur de cette lumière se trouvait un petit bouclier, de la taille d'une paume, entièrement bleu azur. Il avait été raffiné avec une matière inconnue et des volutes de nuages semblaient flotter en son sein. Il était d'une beauté remarquable.
 

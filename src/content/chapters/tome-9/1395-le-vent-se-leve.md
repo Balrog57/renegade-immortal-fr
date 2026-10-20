@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1395 - Wind Rises
 slug: le-vent-se-leve
 ---
-Un instant plus tard, les yeux de Wang Lin étaient empreints de détermination tandis que sa main droite pointait vers la Bouteille d'Âme Démoniaque. La bouteille laissa immédiatement échapper un rugissement lugubre. Ce cri semblait doté d'une force pénétrante qui s'engouffra directement dans l'esprit de Wang Lin.
+Un instant plus tard, les yeux de Wang Lin étaient empreints de détermination tandis que sa main droite pointait vers la Bouteille d'Âme Démoniaque. La bouteille laissa immédiatement échapper un rugissement strident. Ce cri semblait doté d'une force pénétrante qui s'engouffra directement dans l'esprit de Wang Lin.
 
 « Même la puissance d'une luciole oserait rivaliser avec la clarté de la lune! » grogna Wang Lin, sa voix se transformant en ondulations qui vinrent percuter les plaintes funèbres.
 
@@ -38,7 +38,7 @@ Wang Lin se détendit légèrement et tendit sa main droite pour saisir la Boute
 
 Le temps passa lentement tandis que Wang Lin affinait les âmes démoniaques. Un mois s'écoula.
 
-Il restait moins d'un mois avant la Sélection des Anciens Délaissés. Wang Lin était en culture fermée depuis deux mois! Durant cette période, un événement majeur s'était produit dans les Terres Déchues!
+Il restait moins d'un mois avant la Sélection des Anciens Délaissés. Wang Lin était en culture fermée au sein du Clan des Scorpions Noirs depuis plus de deux mois! Durant cette période, un événement majeur s'était produit dans les Terres Déchues!
 
 À la périphérie des Terres Déchues, sur une planète abandonnée, l'astre entier s'embrasa. Les flammes étaient bleues et enveloppèrent la planète tout entière.
 
@@ -50,7 +50,7 @@ Leurs flammes se prosternèrent vaguement en direction de cette planète abandon
 
 Ce phénomène étrange stupéfia tous les cultivateurs du feu! En particulier, les membres du Clan des Moineaux de Feu ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine culture quand le feu en son sein apparut soudainement pour se transformer en un moineau de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien!
 
-Cet événement attira l'attention des cultivateurs du feu des Terres Déchues. L'Ancien du Clan des Moineaux de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle des pilules!
+Cet événement attira l'attention des cultivateurs du feu des Terres Déchues. L'Ancien du Clan des Moineaux de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle de la pilule!
 
 Par ailleurs, durant ces jours, un événement qui ébranla tout le clan se produisit au sein du Clan des Moineaux de Feu!
 
@@ -106,7 +106,7 @@ Le patriarche des Moineaux de Feu s'apprêtait à quitter les profondeurs, le vi
 
 En un éclair, la main ramena le vieil homme au bord de la mer de flammes violettes.
 
-Avant qu'il ne puisse réagir, il entendit la voix exaltée de l'Ancêtre: « Où as-tu obtenu ce sang?! » Il resta figé un instant. Il n'avait jamais vu l'Ancêtre aussi enthousiaste. Il répondit promptement: « Un membre du clan des Terres Déchues l'a rapporté! »
+Avant qu'il ne puisse réagir, il entendit la voix exaltée de l'Ancêtre: « Où as-tu obtenu ce sang?! » Il resta figé un instant. Il n'avait jamais vu l'Ancêtre aussi enthousiaste. Il répondit promptement: « Des membres du clan l'ont rapporté des Terres Déchues! »
 
 En entendant cela, l'homme d'âge moyen éclata de rire. L'extase brillait dans ses yeux, et les trois marques de flammes commencèrent à brûler sauvagement.
 

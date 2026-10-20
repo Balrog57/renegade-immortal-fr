@@ -48,7 +48,7 @@ Cependant, Wang Lin avait préparé sept embuscades; comment aurait-il pu laisse
 
 Le Vieux Fantôme Zhan s'immobilisa brusquement, le regard empreint de confusion. Un grondement de tonnerre retentit alors qu'un brouillard sanglant surgissait devant lui. La brume se mua en un visage rouge et spectral qui dévora le Vieux Fantôme Zhan.
 
-Cette illusion pouvait piéger jusqu'au Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan ne pouvait donc l'esquiver non plus. Une fois dévoré par ce visage fantomatique, il se laissa tomber assis, son expression oscillant de façon erratique.
+Cette illusion pouvait piéger jusqu'au Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan ne pouvait donc l'esquiver non plus. Une fois dévoré par ce visage fantomatique, il s'assit en tailleur, son expression oscillant de façon erratique.
 
 Simultanément, la hache de Wang Lin convergeait vers le Daoïste aux Sept Couleurs, et le sifflement de l'arme déchirant le vide résonna. Wang Lin savait que ce coup ne pourrait blesser le Daoïste, il préféra donc briser son arme!
 

@@ -60,7 +60,7 @@ Il pressa sa main contre sa poitrine en regardant les gens sortir par la porte. 
 
 Tard dans la nuit, alors que tout le monde s'était endormi, il quitta secrètement la maison. Le vent glacé le faisait trembler, mais il s'enfonça malgré tout dans la neige.
 
-Des troupes militaires encadraient la zone, mais elles ne pouvaient pas empêcher indéfiniment les gens de fuir. Dans cette région, ils avaient au moins une chance de survivre; partir revenait sans doute à courir vers la mort.
+Des troupes militaires encadraient la zone, mais elles ne s'en souciaient guère. Dans cette région, ils avaient au moins une chance de survivre; partir revenait sans doute à courir vers la mort.
 
 Au début, les soldats les interceptaient, mais avec le temps, ils finirent par abandonner. Après tout, si quelqu'un cherche la mort, nul ne peut vraiment l'en empêcher.
 

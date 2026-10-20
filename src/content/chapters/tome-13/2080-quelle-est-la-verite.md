@@ -88,7 +88,7 @@ Lorsque le soleil pointa à nouveau à l'horizon, Mo Zhi se leva. Il regarda Wan
 
 « Je m'en vais... J'espère que tu réussiras... » Il cessa de conseiller Wang Lin et se détourna pour partir. Arrivé à la sortie de la vallée, il s'arrêta, mais sans faire demi-tour. Son dos restait tourné vers Wang Lin.
 
-« Le Maître m'a chargé de te demander quand tu rendras la boussole frontalière du Royaume de la Terre Défiante... » La voix de Mo Zhi résonna dans la vallée. Après avoir parlé, il quitta la vallée et disparut.
+« Le Maître m'a chargé de te demander quand tu rendras la Boussole des Limites du Royaume de la Terre Défiante... » La voix de Mo Zhi résonna dans la vallée. Après avoir parlé, il quitta la vallée et disparut.
 
 Wang Lin resta là, assis, à boire son vin. Il ne fit aucun commentaire sur les paroles ou le départ de Mo Zhi.
 
@@ -100,7 +100,7 @@ Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence 
 
 « Je suis moi... » Il n'y avait aucune confusion dans le regard de Wang Lin; ses yeux étaient d'une clarté absolue.
 
-« Que ce soit Mo Zhi ou Papillon Rouge, même le maître de Mo Zhi et l'Omniscient... Ils pensent tous que ce monde, le monde des grottes, le Continent Astral Immortel, n'ont été formés que par mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
+« Que ce soit Mo Zhi ou Papillon Rouge, même le maître de Mo Zhi et l'Omniscient... Ils pensent tous que ce monde, le monde des grottes, le Continent Astral Immortel, n'ont été formés que par un unique cycle de réincarnation de mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
 
 « Cependant, est-ce vraiment ainsi? » Wang Lin esquissa un léger sourire. Il se leva, leva les yeux vers le ciel, et son regard brilla d'un éclat intense.
 
@@ -132,7 +132,7 @@ Leurs corps s'étant réincarnés et ayant grandi sur le Continent Astral Immort
 
 Cependant, avant leur départ, le groupe de Xu Liguo vint rendre visite à Wang Lin pour le servir et le flatter. Finalement, Wang Lin rit. Il laissa son aura et son empreinte sur eux pour assurer leur protection. Les trois partirent avec enthousiasme.
 
-Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer d'Exalté Doré, ils étaient convaincus de pouvoir tromper n'importe qui sur le Continent Astral Immortel!
+Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer d'Exalté Doré, ils étaient convaincus de pouvoir berner le Continent Astral Immortel comme en terrain sans défense!
 
 Soixante ans après le départ de Xu Liguo et de sa troupe, Wang Lin sortit Li Muwan de la vallée et quitta la planète Suzaku. Ils abandonnèrent le monde des grottes pour se diriger vers le Continent Astral Immortel.
 

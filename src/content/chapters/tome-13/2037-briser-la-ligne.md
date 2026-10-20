@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2037 - Breaking the Line!"
 slug: briser-la-ligne
 ---
-À l'intérieur de la montagne déserte, transformée en ruines, une immense formation se dévoila lorsque le brouillard se dissipa. Une silhouette était assise au centre de la formation aux dix couleurs, et Wang Lin pouvait désormais distinguer son apparence.
+À l'intérieur de la montagne déserte, transformée en ruines, une immense formation se dévoila lorsque le brouillard se dissipa. Une silhouette, enveloppée d'une faible lueur aux dix couleurs, était assise au centre de la formation, et Wang Lin pouvait désormais distinguer son apparence.
 
 C'était un vieil homme, et il ressemblait étrangement à l'Omniscient!
 
@@ -66,7 +66,7 @@ Wang Lin réfléchit un instant avant de déclarer: « Après tout ce temps, vou
 
 Wang Lin ferma les yeux et son corps se rétracta; la silhouette gigantesque disparut en un instant pour laisser place à un Wang Lin de taille normale, vêtu d'une robe blanche. En raison de cette réduction soudaine, l'image du géant sembla se dissiper comme un mirage.
 
-Une fois revenu à sa taille normale, il avança vers la formation. Il regarda cet homme qui portait les traits de l'Omniscient et du Souverain Céleste aux Sept Couleurs. D'un geste de la main droite, il réintégra le corps véritable des cinq éléments et celui de l'essence du tonnerre de massacre en lui.
+Une fois revenu à sa taille normale, il avança vers la formation. Il regarda cet homme qui portait les traits de l'Omniscient et du Souverain Céleste aux Sept Couleurs. D'un geste de la main droite, il réintégra le corps véritable des cinq éléments et celui de la Foudre de Massacre en lui.
 
 Le vieil homme dit lentement: « Cette formation n'est effectivement pas qu'un simple réseau de transfert... Son véritable effet est d'ouvrir une porte antique... Malheureusement, ton massacre n'est pas assez puissant... »
 

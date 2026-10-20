@@ -66,7 +66,7 @@ En regardant la statue de pierre devant lui, il avait l'impression qu'elle ne fa
 
 « Cependant, c'est un fragment de sens démoniaque. S'il dispose d'assez d'énergie démoniaque, il grandira et atteindra le niveau d'un démon ancien… » Les yeux de Wang Lin brillèrent. Il savait qu'il ne pouvait pas précipiter les choses et qu'il devait agir avec patience.
 
-Après avoir réglé l'affaire de la Secte du Raffinement des Âmes, Wang Lin ne prit pas la statue avec lui. Au lieu de cela, il posa des restrictions puissantes et ordonna à la Secte du Raffinement des Âmes de continuer à l'adorer.
+Après avoir donné ses instructions à la Secte du Raffinement des Âmes, Wang Lin ne prit pas la statue avec lui. Au lieu de cela, il posa des restrictions puissantes et ordonna à la Secte du Raffinement des Âmes de continuer à l'adorer.
 
 « Ce deuxième avatar est une graine. Pour l'instant, il ne me sert à rien, mais une fois qu'il aura grandi… » Une lueur d'anticipation brilla dans les yeux de Wang Lin. Puis son corps vacilla et il disparut.
 
@@ -110,7 +110,7 @@ Un soupir répondit à son propre soupir. Un homme d'âge moyen, vêtu de pourpr
 
 Wang Lin la prit et en but une gorgée. Il sourit: « C'est le vin d'autrefois! »
 
-« Je savais que tu reviendrais, alors j'en ai gardé beaucoup pour boire avec toi toute une nuit! » L'homme d'âge moyen fit un geste de la main et une autre cruche apparut. Il prit une longue gorgée avant de sourire: « Frère Wang, te sens-tu mélancolique sans la musique de la cithare d'autrefois? »
+« Je savais que tu reviendrais, alors j'en ai gardé beaucoup pour boire avec toi toute une nuit! » L'homme d'âge moyen fit un geste de la main et une autre cruche apparut. Il en avala d'un trait plus de la moitié avant de sourire: « Frère Wang, te sens-tu mélancolique sans la musique de la cithare d'autrefois? »
 
 Le son de la cithare commença alors à s'élever au loin, portant en lui une trace de solitude et de tristesse. Un instant plus tard, un grand navire descendit la rivière.
 

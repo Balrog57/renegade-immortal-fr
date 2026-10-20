@@ -104,7 +104,7 @@ Il allait trouver la tête de l'âme du dragon de la veine de feu principale! Il
 
 En un éclair, trois jours passèrent. Fan Shanlu ouvrit les yeux. Elle ne percevait plus la présence de Wang Lin. Après une réflexion, elle se leva et quitta la chambre de pierre.
 
-Après le départ de Fan Shanlu, personne ne vint dans la pièce ni ne remarqua l'existence de Wang Lin, mais ce n'était que temporaire! Le Sens Divin de Wang Lin descendait dans les entrailles du monde tout en bravant la pression incessante de la volonté de feu. Il chargeait vers la source de cette volonté — la tête de la veine de feu — comme s'il faisait la course contre le temps!
+Après le départ de Fan Shanlu, personne ne vint dans la pièce ni ne remarqua l'existence de Wang Lin, mais ce n'était que temporaire! Son corps d'essence descendait dans les entrailles du monde tout en bravant la pression incessante de la volonté de feu. Il chargeait vers la source de cette volonté — la tête de la veine de feu — comme s'il faisait la course contre le temps!
 
 Trois autres jours s'écoulèrent. Au crépuscule du troisième jour, Wang Lin avait descendu une distance incalculable sous terre. Il pouvait désormais voir la tête de l'âme du dragon de la veine de feu!
 

@@ -30,7 +30,7 @@ Des clameurs retentirent dans la Cité aux Yeux Fantômes alors que l'effondreme
 
 L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux n'avaient pas libéré son sens divin, cela ne serait pas arrivé.
 
-Trois rayons de lumière blanche jaillirent de la ville et se téléportèrent soudain devant Wang Lin. Ces rayons se révélèrent être les trois frères Chen!
+Trois rayons de lumière jaillirent de la ville et se téléportèrent soudain devant Wang Lin. Ces rayons se révélèrent être les trois frères Chen!
 
 Le vieil homme aux cheveux blancs était Maître Yi Chen. Derrière lui se trouvaient le vieillard en robe verte et l'homme d'âge moyen en robe violette. Tous trois affichaient des expressions amères. Ils ne comprenaient pas comment cet individu avait pu détruire si facilement leurs sens divins alors que son propre sens divin était clairement au stade initial du Scruteur du Nirvana.
 
@@ -72,7 +72,7 @@ Wang Lin se retourna et regarda au loin. À la porte de la ville, Bai Wei le fix
 
 Bai Wei hésita un instant avant de s'élancer dans les airs. Xu Liguo regarda le dos de Bai Wei avec fascination et le suivit rapidement.
 
-Lorsque les trois frères virent Bai Wei, ils furent surpris, mais ne dirent rien. Ils se dirigèrent vers la partie est de la ville, vers un magnifique bâtiment de quatre étages entouré d'une cour remplie de jardins rocailleux et de rivières artificielles. L'énergie spirituelle y était extrêmement dense.
+Lorsque les trois frères virent Bai Wei, ils furent surpris, mais ne dirent rien. Ils se dirigèrent vers la partie est de la ville, vers un magnifique bâtiment de quatre étages entouré d'une cour remplie de jardins rocailleux et de rivières artificielles. L'énergie spirituelle y était assez dense.
 
 Maître Yi Chen sourit: « C'est ici que nous logeons en ville. Le Camarade Cultivateur Wang peut choisir une chambre. »
 
@@ -92,7 +92,7 @@ Bientôt, des serviteurs arrivèrent pour installer les deux hommes. Il y avait 
 
 La chambre que choisit Wang Lin était élégante, située au deuxième étage. La table et la chaise en bois violet, l'armoire en bois rouge et le tableau accroché au mur apportaient une certaine sérénité à son esprit.
 
-Un abat-jour jaune brodé recouvrait une lampe sculptée en forme de dragon. La lumière qui filtrait à travers le tissu était vive mais douce, se diffusant dans chaque recoin de la pièce.
+Un abat-jour jaune pâle, brodé de montagnes et de rivières, recouvrait une lampe sculptée en forme de dragon. La lumière qui filtrait à travers le tissu était vive mais douce, se diffusant dans chaque recoin de la pièce.
 
 La chambre n'était pas vaste, mais Wang Lin s'en montrait très satisfait. Xu Liguo flottait dans les airs, observant les lieux d'un air méprisant; il se demandait ce qu'il y avait de si spécial ici. Ce démon ne savait vraiment pas profiter de la vie. Si cela ne tenait qu'à lui, il aurait trouvé un endroit rempli de jeunes filles. Oh, comme ce serait confortable!
 

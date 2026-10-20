@@ -58,7 +58,7 @@ Il avait obtenu cette montagne céleste de la part d'Avarice. Elle renfermait un
 
 Au moment où l'hirondelle ensanglantée approchait, la montagne céleste explosa, créant une tempête violente. Cette tempête était redoutable et, grâce à l'âme qu'elle renfermait, elle forma un immense vortex. Des rafales d'aura destructrice s'échappaient de ce tourbillon.
 
-Wang Lin recula rapidement et libéra le Sceau Céleste. Sa main traçant un sceau, l'artéfact s'agrandit démesurément et s'élança vers l'avant.
+Sans hésiter, Wang Lin recula rapidement et libéra le Sceau Céleste. Sa main traçant un sceau, l'artéfact s'agrandit démesurément et s'élança vers l'avant.
 
 Cependant, à cet instant précis, une scène fit se rétracter les pupilles de Wang Lin.
 

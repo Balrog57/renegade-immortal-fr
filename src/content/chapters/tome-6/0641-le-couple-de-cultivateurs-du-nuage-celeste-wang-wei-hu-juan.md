@@ -10,7 +10,7 @@ Les pupilles de Wang Lin se rétractèrent instantanément et il baissa les yeux
 
 « Descends... »
 
-Wang Lin n'était pas étranger à cette silhouette sublime au sein du parchemin. Sur Suzaku, lorsqu'il avait dû affronter les bêtes libérées par le troisième ancêtre, cette figure l'avait aspiré dans le parchemin d'un seul appel.
+Wang Lin n'était pas étranger à cette silhouette sublime au sein du parchemin. Sur Suzaku, lorsqu'il avait dû affronter les bêtes libérées par les trois ancêtres, cette figure l'avait aspiré dans le parchemin d'un seul appel.
 
 Wang Lin s'était toujours interrogé sur ce parchemin. Juste après avoir atteint le stade Ascendant, il l'avait sorti alors qu'il se trouvait dans la Tribu de l'Affinement de l'Âme, mais n'avait fait aucun progrès. Bien qu'il puisse y laisser une empreinte, il ne parvenait pas à le contrôler.
 
@@ -92,7 +92,7 @@ Zhou Yi se déplaçait à une vitesse fulgurante. Wang Lin envoya un message par
 
 Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de rangement. Ce bref examen lui avait permis de déceler des indices sur l'épée. Si sa culture n'avait pas été suffisante, il n'aurait rien vu, mais avec le stade Ascendant, ses perceptions étaient tout autres. Toutefois, ce n'était pas le moment d'étudier; il prévoyait de s'y consacrer pleinement après avoir quitté l'Abîme des Marées.
 
-« Le voyage à l'Abîme des Marées est terminé. Hélas, je n'ai toujours aucune piste sur l'emplacement du mystérieux jeton... » commença à méditer Wang Lin.
+« Le voyage à l'Abîme des Marées s'est achevé sur une réussite. Hélas, je n'ai toujours aucune piste sur l'emplacement du mystérieux jeton... » commença à méditer Wang Lin.
 
 Dans son sac de rangement, la bête moustique ouvrit les yeux avec un air dubitatif. Normalement, à l'intérieur d'un sac, à moins d'utiliser un sort prodigieux, elle ne devrait rien ressentir de l'extérieur. Pourtant, à cet instant, elle percevait de nombreuses auras lui procurant une sensation très familière. Après avoir hésité, la moustique ne parvint pas à identifier la source. Elle regarda le crapaud tonnerre qui dormait toujours, se coucha sur son dos et ferma les yeux.
 

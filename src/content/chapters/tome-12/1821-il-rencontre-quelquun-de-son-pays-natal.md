@@ -8,7 +8,7 @@ slug: il-rencontre-quelquun-de-son-pays-natal
 ---
 L’homme parut paniqué et répondit précipitamment. Ils se transformèrent en rayons de lumière qui s'envolèrent vers la montagne rouge.
 
-Wang Lin était sur le point de quitter le corps de l'homme lorsqu'une pensée le fit hésiter. Il maintint son état actuel et les suivit.
+Wang Lin était sur le point de quitter le corps de l'homme lorsqu'une pensée le fit hésiter. Il conserva sa forme de tourbillon et les suivit.
 
 Peut-être parce qu'un sens divin venait d'être déployé, les trois ne furent pas détectés par d'autres sens divins. Ils réussirent ainsi à approcher la montagne rouge.
 
@@ -20,7 +20,7 @@ Wang Lin n'hésita pas à se transformer en fumée pour quitter l'homme. Il ence
 
 La disciple nommée Song Ying ne paraissait pas vieille et était d'une grande beauté; son corps dégageait le parfum d'une vierge. Elle se changea en un rayon de lumière et s'élança vers le sommet de la montagne.
 
-Elle s'arrêta dans les airs, devant la montagne, protégée par un flou rideau de lumière. Elle sortit un jade rouge, s'apprêtant à le presser contre la barrière. À cet instant, Wang Lin projeta une partie de son sens divin vers le jade rouge et utilisa toute sa puissance pour l'analyser.
+Elle s'arrêta dans les airs, devant la montagne, protégée par un flou rideau de lumière. Elle sortit un jade rouge, s'apprêtant à le presser contre la barrière. À cet instant, une partie de la fumée de Wang Lin se détacha, fonça vers le jade rouge et déploya toute sa puissance pour en analyser les interdictions.
 
 Un léger craquement émana du jade. Lorsque celui-ci fut pressé contre le rideau de lumière, Wang Lin retira son sens divin.
 
@@ -84,7 +84,7 @@ Wang Lin s'assit. Après avoir écouté ses explications et observé ses réacti
 
 « Tu es toujours aussi prudent... Mais c'est une bonne chose; il faut savoir l'être sur le Continent Astral Immortel pour survivre... » sourit Fan Shanlu en le regardant.
 
-« Il y a trois ans, j'ai rencontré Yun Yifeng de la Secte Gui Yi et je lui ai parlé de toi. Selon nos calculs, tu aurais dû arriver sur le Continent Astral Immortel il y a longtemps, mais nous n'avions toujours pas eu de tes nouvelles. Peut-être qu'un incident s'est produit ou que tu te trouvais dans un lieu très reculé. Je ne m'attendais pas à te retrouver ici aujourd'hui. » Fan Shanlu cligna des yeux en riant.
+« Il y a trois ans, j'ai rencontré Yun Yifeng de la Secte Gui Yi et je lui ai parlé de toi. En principe, tu aurais dû arriver sur le Continent Astral Immortel il y a longtemps, mais nous n'avions toujours pas eu de tes nouvelles. Peut-être qu'un incident s'est produit ou que tu te trouvais dans un lieu très reculé. Je ne m'attendais pas à te retrouver ici aujourd'hui. » Fan Shanlu cligna des yeux en riant.
 
 « Il y a eu quelques imprévus en chemin, je suis donc un peu en retard. Je suis heureux de te voir », répondit Wang Lin avec un sourire. Rencontrer une connaissance sur le Continent Astral Immortel était rare, et cela lui procura une sensation de chaleur intérieure.
 

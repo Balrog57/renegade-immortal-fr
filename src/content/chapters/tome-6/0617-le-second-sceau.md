@@ -34,11 +34,11 @@ Une fois le premier sceau libéré, ce Char de Guerre Divinx pouvait menacer des
 
 À travers ces éclairs, Wang Lin comprit que si le second sceau était levé, la bête deviendrait extrêmement puissante! Il est fort probable que ce second sceau scellait le pouvoir de foudre de l'esprit de la bête!
 
-Il faut dire que ce Char Anti-Dieux provenait du Royaume Céleste. Ses créateurs affirmaient qu'il s'agissait d'armes redoutables. Bien que le nom « Anti-Dieux » puisse paraître arrogant, après avoir passé des centaines d'années à ses côtés, même si Wang Lin n'y croyait pas totalement, il en acceptait au moins trente pour cent de la puissance.
+Il faut dire que ce Char de Guerre Divinx provenait du Royaume Céleste. Ses créateurs affirmaient qu'il s'agissait d'armes redoutables. Bien que son nom puisse paraître arrogant, après avoir passé des centaines d'années à ses côtés, même si Wang Lin n'y croyait pas totalement, il en acceptait au moins trente pour cent de la puissance.
 
 L'intérêt de Wang Lin pour ce second sceau grandit considérablement lorsqu'il découvrit que la bête acquerrait le pouvoir de la foudre.
 
-Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieillard du stade Ascendant avancé sous la tour des démons était extrêmement puissant. Chaque fois que Wang Lin y pensait, son cœur tremblait. L'élément le plus redoutable de ce sort était la foudre noire; sans elle, sa puissance serait grandement affaiblie!
+Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieillard du stade avancé de l'Ascendant sous la tour des démons était extrêmement puissant. Chaque fois que Wang Lin y pensait, son cœur tremblait. L'élément le plus redoutable de ce sort était la foudre noire; sans elle, sa puissance serait grandement affaiblie!
 
 Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il réalisa que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature!
 

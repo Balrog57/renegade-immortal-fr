@@ -14,7 +14,7 @@ Presque tous les cultivateurs fixaient Wang Lin, tout comme l'Exalté Empyréen 
 
 De son point de vue, Wang Lin différait des cultivateurs ordinaires. Ces derniers auraient tenté le palais suivant même en sachant qu'ils n'avaient aucune chance, afin d'évaluer la difficulté de l'épreuve et d'identifier leurs propres lacunes pour parfaire leur culture.
 
-Mais après avoir franchi le quatrième palais, Wang Lin n'avait même pas daigné regarder le cinquième. D'autres ne l'avaient peut-être pas remarqué, mais l'Exalté Empyréen Zhu Lin le vit, et un sentiment d'effroi l'envahit à son égard.
+Mais après avoir franchi le quatrième palais, Wang Lin n'avait même pas daigné regarder le cinquième. D'autres ne l'avaient peut-être pas remarqué, mais l'Exalté Empyréen Zhu Lin le vit, et un sentiment de méfiance l'envahit à son égard.
 
 « Soit il sait qu'il n'a aucune chance de franchir le cinquième niveau, soit il sait qu'il peut le réussir sans même y songer... Quelle que soit la première ou la seconde option... j'espère que c'est la seconde! » L'Exalté Empyréen Zhu Lin songea silencieusement, et ses yeux s'illuminèrent.
 
@@ -64,7 +64,7 @@ Ne tarda pas le moment où, alors que Wang Lin approchait du centre de la Mer Mo
 
 Le dragon afficha une expression féroce et percuta de sa tête géante le mur aqueux. Dans un fracas de tonnerre, la paroi s'effondra tandis que le dragon chargeait, l'eau explosant comme si elle bouillait.
 
-De grands tentacules couverts d'un liquide visqueux jaillirent des profondeurs. Les membres se croisèrent et une île d'environ cent mille pieds de large émergea de la mer. Elle ressemblait à une île, mais en y regardant de plus près, on distinguait clairement qu'il s'agissait d'une immense bête-pieuvre. Une aura d'Exalté Empyréen émanait de l'animal.
+De grands tentacules couverts d'un liquide visqueux jaillirent des profondeurs. Les membres se croisèrent et une île d'environ cent mille pieds de large émergea de la mer. Elle ressemblait à une île, mais en y regardant de plus près, on distinguait clairement qu'il s'agissait d'une immense bête-pieuvre. Une aura équivalente à celle d'un Exalté Doré émanait de l'animal.
 
 Une fois la bête apparue, une magnifique femme se révéla, debout sur sa tête. Elle portait une robe verte qui, bien que couvrant sa silhouette, laissait entrevoir des formes capables de faire palpiter le cœur de n'importe quel homme. Elle tenait une flûte émeraude et ses longs cheveux étaient attachés derrière sa tête. Ses yeux brillants témoignaient d'une beauté à couper le souffle.
 
@@ -78,7 +78,7 @@ Wang Lin resta calme sur le dos du dragon et, tournant son regard vers la belle 
 
 Wang Lin avait vu cette femme il y a trois ans. Sa beauté était absolue. Dans sa vie, il était rare de croiser une femme dont la splendeur égalait celle de Mu Bingmei — elle était l'unique exception. Et cette femme étant une Exaltée Empyréenne, elle possédait un tempérament singulier.
 
-La femme releva le menton et lança un regard glacial à Wang Lin avant de le pointer du doigt: « Je suis ici, donc tout ce qui appartient à la Mer Montagneuse m'appartient! Si tu parviens à me vaincre, tu pourras le prendre, mais en es-tu capable? Tu n'es arrivé que depuis trois ans et tu n'as pas pu encaisser trois de mes coups. Voilà seulement trois ans que tu es là et tu veux déjà réessayer? Quelle insolence! »
+La femme releva le menton et lança un regard glacial à Wang Lin avant de le pointer du doigt: « Je suis ici, donc tout ce qui appartient à la Mer Montagneuse m'appartient! Si tu parviens à me vaincre, tu pourras le prendre, mais en es-tu capable? Il y a trois ans, tu as fait apparaître ton corps véritable et tous tes avatars, mais tu n'as pas pu encaisser trois de mes coups. Trois ans à peine se sont écoulés et tu veux déjà réessayer? Quelle insolence! »
 
 Sur ces mots, le monde changea de couleur et la mer rugit alors que soixante-dix vortex apparaissaient entre elle et Wang Lin. Chaque vortex contenait l'un de ses sorts. Elle commença par son attaque la plus puissante, voulant manifestement forcer Wang Lin à reculer d'un seul coup!
 

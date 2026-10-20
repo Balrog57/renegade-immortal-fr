@@ -88,7 +88,7 @@ En voyant Wang Lin revenir, les yeux de Situ Nan s'illuminèrent et il éclata d
 
 Sur ces mots, il n'attendit même pas la réponse de Wang Lin. Il s'engouffra dans une forêt de bambous adjacente et disparut.
 
-Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble un moyen de le contenir temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Fu Fengzi et regarda devant lui.
+Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble, pendant leur séjour sur la planète Esprit d'Eau, un moyen de le contenir temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Fu Fengzi et regarda devant lui.
 
 Une petite rivière coulait à cent pas de là, enveloppée d'une fine couche de brume. Un pont de pierre reliait les deux rives. Ce pont était l'unique entrée.
 
@@ -110,7 +110,7 @@ Wang Lin observa le pont de pierre et ne put s'empêcher de froncer les sourcils
 
 Bien que les cent pas devant eux semblassent ordinaires, outre les avertissements de Maître Fu Fengzi, Wang Lin percevait d'autres menaces potentielles. Les restrictions ici différaient grandement de celles de la couche extérieure.
 
-« Je dois tester cela pour voir si mes soupçons sont fondés. » Les yeux de Wang Lin s'illuminèrent et il prononça lentement: « Cadavre Argenté! »
+« Je dois tester cela pour voir si mes soupçons sont fondés. » Les yeux de Wang Lin s'illuminèrent et il prononça lentement: « Cadavre d'Argent! »
 
 La femme en argent plissa les yeux et se tint aux côtés de Wang Lin. Son regard intelligent fixait l'homme, attendant ses ordres.
 

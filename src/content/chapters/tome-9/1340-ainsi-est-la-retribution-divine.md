@@ -22,7 +22,7 @@ Zhang Jingyun et ses compagnons adoptèrent une formation de siège pour préven
 
 « Le frère Zhou est un peu trop prudent. Cet homme n'est qu'au stade initial de l'Ascendant. Oubliez nos quatre attaques conjointes, l'un seul d'entre nous pourrait le tuer à sa guise! De plus, avec Senior Zhao ici, cet individu ne peut rien faire! »
 
-« C'est vrai, Senior Zhao est au stade Yin Illusoire et n'est qu'à un pas du stade Corporel Yang. Il se situe bien au-dessus de la multitude, et en sa présence, nous suivrons naturellement ses directives. »
+« C'est vrai, Senior Zhao est au stade Yin Illusoire et n'est qu'à un pas du stade Yang Corporel. Il se situe bien au-dessus de la multitude, et en sa présence, nous suivrons naturellement ses directives. »
 
 « Une fois que nous aurons rassemblé les traces de Tonnerre Spirituel provenant de ces individus, nous pourrons enfin former un Tonnerre Spirituel complet. Nous irons ensuite au Temple du Cristal de Tonnerre pour l'échanger contre ces quatre épées volantes de rang céleste! »
 
@@ -104,7 +104,7 @@ Ces paroles résonnèrent différemment aux oreilles de Wang Lin. Il ferma les y
 
 Des grondements tonitruants éclatèrent alors que la deuxième, la troisième, la quatrième et la cinquième rétribution divine s'abattaient sous le contrôle de Zhang Jingyun. À ce moment, l'expression de ce dernier était déformée par une excitation sans fin. Le sentiment qu'il éprouvait était mille, dix mille fois plus exaltant que la culture duale!
 
-« Je suis le Dao Céleste, et je commande au tonnerre! »
+« Je suis le Dao Céleste, et je fais tomber le tonnerre! »
 
 Le tonnerre grondait sans relâche. Devant la rétribution divine, le vieil homme cracha du sang et son corps n'était plus qu'un amas ensanglanté. Le désespoir commença à poindre dans ses yeux! C'est alors que la sixième rétribution divine descendit!
 

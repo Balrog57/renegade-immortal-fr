@@ -42,7 +42,7 @@ C'était le fruit du travail acharné de Wang Lin ces derniers jours.
 
 Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé. Assis sur le dos de la bête moustique, Wang Lin traversa un réseau de transfert après l'autre avant de rejoindre enfin la Mer des Démons.
 
-Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques de plusieurs pays de culture et les contre-attaques des cultivateurs démoniaques, le conflit était arrivé à une impasse.
+Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques conjointes de plusieurs pays de culture et les contre-attaques des cultivateurs démoniaques, le conflit était arrivé à une impasse.
 
 L'objectif de Wang Lin était la terre de l'Ancien Dieu. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
 
@@ -70,7 +70,7 @@ En un instant, le nuage rouge se rapprocha. À l'intérieur se trouvait une cré
 
 En voyant la créature et le vieil homme, Wang Lin se souvint immédiatement de qui il s'agissait. C'était l'homme qui lui avait imposé une restriction autrefois en lui ordonnant de se rendre au Pavillon de Raffinage des Trésors.
 
-Les yeux de Wang Lin brillèrent d'intérêt, mais il retrouva aussitôt son calme, fixant le vieil homme d'un regard glacial. Ce dernier arriva rapidement devant Wang Lin et, en le voyant, afficha une expression de surprise. Wang Lin sentit que le sens divin du vieil homme était repoussé par la lumière dorée émanant du chapeau de paille.
+Les yeux de Wang Lin brillèrent, mais il retrouva aussitôt son calme, fixant le vieil homme d'un regard glacial. Ce dernier arriva rapidement devant Wang Lin et, en le voyant, afficha une expression de surprise. Wang Lin sentit que le sens divin du vieil homme était repoussé par la lumière dorée émanant du chapeau de paille.
 
 Le vieil homme dévisagea Wang Lin, stupéfait. Après avoir observé un instant le chapeau, il frappa la tortue-dragon qui s'élança rapidement pour dépasser Wang Lin en direction de l'est. À cet instant, même le vieil homme devint prudent; cette mystérieuse personne était enveloppée d'une lumière dorée si intense que son propre sens divin reculait de douleur. Il n'avait aucune intention d'offenser Wang Lin.
 
@@ -88,6 +88,6 @@ Le vieil homme regarda à nouveau Wang Lin et dit soudainement: « Puisque ce co
 
 L'expression de Wang Lin ne changea pas, mais son cœur tressaillit en se demandant ce qu'était ce Feu d'Aurore. Rien dans les souvenirs de Tu Si ni dans son propre parcours de culture ne mentionnait une telle chose; il n'en avait jamais entendu parler.
 
-Il fit paraître sa voix plus rauque et rit: « Je ne suis pas intéressé par une collaboration. »
+Il fit paraître sa voix plus rauque et ricana: « Je ne suis pas intéressé par une collaboration. »
 
 Le vieil homme poussa un reniflement, scruta attentivement Wang Lin, puis se tourna de nouveau vers les Étoiles Brisées du Chaos.

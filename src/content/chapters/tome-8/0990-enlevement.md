@@ -34,7 +34,7 @@ Affaiblie, la femme morte vit aussitôt ses cris faiblir, son corps secoué de t
 
 Une fois extraite, la chaîne se mua en un serpent noir qui mordit férocement le bras droit de Wang Lin de ses crocs. Wang Lin ne chercha même pas à esquiver et laissa le serpent s'abattre sur lui. Au moment où le reptile mordit son bras, les crocs se brisèrent net; le bras de Wang Lin n'était absolument pas blessé!
 
-Comment ce simple serpent noir pouvait-il percer l'armure du corps d'un Dieu Ancien Royal de 5 étoiles?
+Comment ce simple serpent noir pouvait-il percer le corps d'un Dieu Ancien Royal de 5 étoiles?
 
 Wang Lin serra le poing et le serpent noir trembla avant de voler en éclats, redevenant de simples morceaux de chaîne. Sans s'arrêter, il tendit à nouveau la main vers le vide. La femme morte hurla de douleur lorsque Wang Lin extirpa la chaîne qui lui traversait le bassin.
 
@@ -54,7 +54,7 @@ Le processus de raffinage était extrêmement complexe et exigeait toute sa conc
 
 Son expression était désormais paisible, le ressentiment passé ayant disparu. Si quelqu'un l'avait vue ainsi, il lui aurait été difficile d'imaginer sa véritable identité. Peu importe le regard porté sur elle, elle n'était qu'une magnifique cultivatrice.
 
-Pendant que Wang Lin séjournait sur la planète Esprit d'Eau, un événement d'une importance non négligeable se produisait sur la planète Tian Yun. Un puissant cultivateur nommé Situ Nan y était arrivé et était devenu le Seigneur du Palais Rose.
+Pendant que Wang Lin séjournait sur la planète Esprit d'Eau, un événement d'une importance non négligeable se produisait sur la planète Tian Yun. Un puissant cultivateur nommé Situ Nan s'était fait un nom sur la planète Tian Yun et était devenu le Seigneur du Palais Rose.
 
 Cependant, sa réputation n'était guère exemplaire.
 
@@ -68,7 +68,7 @@ Ainsi, de plus en plus de femmes rejoignaient le Palais Rose, et l'on pouvait di
 
 Il avait appris par des sources anonymes que les trois frères Chen possédaient deux disciples d'une beauté époustouflante. L'une possédait une racine spirituelle aquatique et l'autre était d'une froideur glaciale. Cela fit frémir le cœur de Situ Nan qui, après avoir mûrement réfléchi, entreprit de mener un grand groupe de cultivatrices vers la planète Esprit d'Eau, guidé par un subalterne.
 
-Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un immense lit de jade blanc d'une centaine de mètres de long. Situ Nan y était allongé, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
+Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un immense lit de jade blanc de plusieurs dizaines de mètres de long. Situ Nan y était allongé, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
 
 Plusieurs centaines de femmes entouraient ce lit alors qu'elles progressaient vers la planète Esprit d'Eau.
 

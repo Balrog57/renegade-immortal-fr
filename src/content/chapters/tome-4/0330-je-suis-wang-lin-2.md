@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 330 - I am Wang Lin (2)
 slug: je-suis-wang-lin-2
 ---
-Aux yeux de Zhan Bai, son voyage vers le Royaume Céleste n'était qu'une source de déshonneur. Ceng Niu n'était qu'un moins que rien qui avait osé l'ignorer. Si ce Ceng Niu l'avait aidé, ils auraient facilement tué la personne qui le poursuivait.
+Aux yeux de Zhan Bai, son voyage vers le Royaume Céleste n'était qu'une source de déshonneur. Ceng Niu n'était qu'un inconnu qui avait osé l'ignorer. Si ce Ceng Niu l'avait aidé, ils auraient facilement tué la personne qui le poursuivait.
 
 « Je ne pensais pas que Ceng Niu puisse arracher un bras à Papillon Rouge. Désormais, cet homme est célèbre dans tout Suzaku. Humph, cette renommée aurait dû être la mienne. Attends un peu, Ceng Niu, un jour nous nous affronterons! »
 
@@ -58,7 +58,7 @@ Des hurlements stridents perçèrent les oreilles des disciples de la Secte du C
 
 « Arrêtez! » Li Muwan s'élança dans les airs. Autour d'elle se tenaient plusieurs personnes, fixant Zhan Bai avec des expressions de pure horreur.
 
-Zhan Bai afficha un sourire malicieux. Il agita la main et les cris stridents des disciples devinrent encore plus perçants. Quelques secondes plus tard, les insectes sortirent de leurs corps. Les disciples devinrent soudainement d'une faiblesse extrême et chutèrent du ciel.
+Zhan Bai afficha un sourire malicieux. Il agita la main et les cris stridents des disciples devinrent encore plus perçants. Quelques secondes plus tard, les insectes sortirent de leurs corps. Les disciples devinrent soudainement d'une faiblesse extrême, presque squelettiques, et chutèrent du ciel.
 
 Le visage de Li Muwan pâlit; elle ne pouvait que contempler les disciples avec stupeur. Du sang s'écoula du coin de sa bouche, son corps tremblait et ses yeux étaient brûlants de haine alors qu'elle fixait Zhan Bai.
 

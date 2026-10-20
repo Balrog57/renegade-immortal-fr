@@ -41,11 +41,11 @@ Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps d
 
 « En chemin, j'ai entendu quelques personnes prononcer ton nom; je suis donc allé massacrer quelques cultivateurs de l'Alliance qui étaient doués pour se cacher! » Bien que Qing Shui l'ait dit avec désinvolture, Wang Lin savait que ce n'était absolument pas une mince affaire.
 
-La réalité était conforme à ses explications. Le Royaume de la Boucherie de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes près des cultivateurs de Luotian.
+La réalité était conforme à ses explications. Le Royaume de la Boucherie de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes pour surveiller l'emplacement de Luotian.
 
 Hélas, ce Royaume de la Boucherie avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
 
-Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Bao s'en échappa. Il la lança vers Qing Shui. Ce dernier l'attrapa et plaça sa main droite entre les sourcils de l'Illustre Xuan Bao. L'énergie d'origine céleste afflua dans sa main, et l'âme de l'illustre s'éveilla. Des hurlements de détresse résonnèrent tandis que son âme originelle se convulsait.
+Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Bao s'en échappa. Il la lança vers Qing Shui. Ce dernier l'attrapa et plaça sa main droite sur le sommet du crâne de l'Illustre Xuan Bao. L'énergie d'origine céleste afflua dans sa main, et l'âme de l'illustre s'éveilla. Des hurlements de détresse résonnèrent tandis que son âme originelle se convulsait.
 
 L'expression de Qing Shui devint sombre et il ferma les yeux. Après un long moment, il les rouvrit, le visage marqué par une couche de givre. Il renvoya l'âme originelle de l'Illustre Xuan Bao vers Wang Lin.
 
@@ -67,7 +67,7 @@ Il existait une planète de culture dans la région nord de l'Alliance. Située 
 
 Cette planète de rang 7 portait un nom magnifique: Anyue. La majeure partie de la surface était couverte de forêts et de nombreux villages mortels étaient dispersés à travers le globe. On trouvait également de nombreuses sectes de culture nichées au cœur de ses montagnes.
 
-Une montagne célèbre dominait la partie sud de la planète: la Montagne Céleste. Elle était si haute que son sommet demeurait perpétuellement enveloppé de brume; nul ne savait où se trouvait le pic véritable. Un petit sentier de marches de pierre menait vers les hauteurs, tandis que le reste restait caché dans les nuages. On aurait pu croire que cet endroit appartenait au Royaume Céleste.
+Une montagne célèbre dominait la partie sud de la planète: la Montagne Céleste. Elle était si haute que son sommet demeurait perpétuellement enveloppé de brume; nul ne savait si son pic touchait le ciel. Un petit sentier de marches de pierre menait vers les hauteurs, tandis que le reste restait caché dans les nuages. On aurait cru un séjour d'immortels.
 
 Chaque matin, le son des cloches résonnait depuis la cime. Quelques oiseaux magnifiques s'envolaient parmi les nuages pour errer sur la Montagne Céleste, leurs cris se mêlant aux carillons. La scène semblait tout droit sortie d'une peinture, d'une élégance extrême, tel un paradis caché.
 

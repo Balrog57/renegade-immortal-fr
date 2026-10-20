@@ -90,7 +90,7 @@ Ma Liang se détendit et s'apprêtait à reculer quand son expression changea br
 
 Ge Yang fit un geste de la main. Alors que l'épée revenait vers lui, il déclara: « Je n'ai jamais dit que je te laisserais partir. » Sur ce, il s'éloigna sans même accorder un regard à Ma Liang.
 
-Xu Hao claqua la langue et secoua la tête devant Ma Liang agonisant, puis il se leva pour suivre Ge Yang. Il savait que Ge Yang avait tué Ma Liang par pure frustration de ne pas avoir eu le sac en premier. Ils avaient un accord: le sac appartient au premier qui s'en saisit, et personne ne peut contester.
+Xu Hao claqua la langue et secoua la tête devant Ma Liang agonisant, puis il se leva pour suivre Ge Yang. Il savait que Ge Yang avait tué Ma Liang par pure frustration de ne pas avoir eu le sac en premier. Ils avaient un accord: le sac appartient à celui qui le détient, et personne ne peut contester.
 
 Si Ma Liang avait donné le sac à Ge Yang, Xu Hao aurait agi de la même manière.
 

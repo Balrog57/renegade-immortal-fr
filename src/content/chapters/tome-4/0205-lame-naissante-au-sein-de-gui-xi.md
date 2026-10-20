@@ -48,7 +48,7 @@ En voyant ce jade, le cœur hésitant de Yun Fei s'était raffermi; elle avait d
 
 « Monte et parle! » La voix portait une puissance écrasante. À l'instant où il eut parlé, la brume noire bougea soudainement pour former un chemin en forme de dragon, dont la tête atteignait le sommet et la queue se trouvait devant Yun Fei.
 
-Yun Fei réprima sa peur et commença l'ascension des marches.
+Yun Fei réprima sa peur et commença à gravir le dragon de brume, pas à pas.
 
 Bientôt, elle atteignit le pavillon au sommet. L'occupant était un homme d'âge mûr vêtu d'une robe de brocart. Il était très beau et dégageait une aura de puissance propre aux grandes familles. Dès qu'il vit Yun Fei, ses yeux s'illuminèrent.
 
@@ -142,7 +142,7 @@ Wang Lin fit un geste calme pour faire revenir le second démon vers lui. Soudai
 
 Qiu Siping allait répliquer quand il vit l'éclat rouge dans les yeux de Wang Lin. Son cœur sombra. Il n'aurait jamais cru que Wang Lin n'attendrait même pas qu'il ait fini de parler pour tenter de le tuer d'emblée. La colère l'envahit: Wang Lin avait le même niveau de culture que lui; même s'il possédait un trésor magique, il en possédait lui aussi.
 
-Il poussa un grognement, recula prestement et agita la main pour que les huit sphères de brouillard se déploient en une épaisse couche protectrice. Le regard de Qiu Siping devint froid: puisque Wang Lin refusait le dialogue, il allait combattre d'abord et discuter ensuite.
+Il poussa un grognement, recula prestement et agita la main pour que les huit sphères de brouillard se déploient en une épaisse couche protectrice. Le regard de Qiu Siping devint froid: puisque Wang Lin refusait le dialogue, il allait d'abord le capturer et discuter ensuite.
 
 Mais alors que cette idée germait, il entendit de la part de Wang Lin une voix aussi glaciale que les vents de l'enfer: « Détruis! »
 

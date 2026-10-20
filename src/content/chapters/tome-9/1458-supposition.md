@@ -42,7 +42,7 @@ Wang Lin avait ressenti une force vitale violente sous le sol et l'avait provoqu
 
 Avec son niveau de culture actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent aux yeux de lune de Luotian, et encore moins cette bête qui, bien que similaire, était bien plus faible!
 
-Même Ling Dong, qui approchait du troisième niveau, était devenu son esclave. Cela témoignait de l'ascension fulgurante et de la force prodigieuse de Wang Lin!
+Même Ling Dong, pourtant du troisième niveau, était devenu son esclave ancien. Cela témoignait de l'ascension fulgurante et de la force prodigieuse de Wang Lin!
 
 À cet instant, calme et imperturbable, Wang Lin plongea vers le bas tel un éclair. En un instant, il atteignit les bêtes tentaculaires. Alors qu'elles hurlaient, un feu aux neuf couleurs embrasa l'œil gauche de Wang Lin. D'un revers de main, une tempête de flammes jaillit et enveloppa les quatre créatures.
 
@@ -74,7 +74,7 @@ Le pouvoir d'un Ancien Dieu à 9 étoiles était inimaginable et leur corps extr
 
 « Les Trois Épreuves et les Sept Calamités des Anciens Dieux... Il a été tué alors qu'il affrontait sa deuxième épreuve. » Wang Lin resta assis, contemplant le fragment d'os dans sa paume.
 
-« Quel est donc ce lieu nommé la Tombe de l'Ordre Antique? Qui l'a bâtie et quel en est l'objectif? » Il se remémora tout ce qu'il avait vécu depuis son entrée. Ce tombeau restait un mystère insondable, même pour lui. Cependant, il se souvenait de la scène aperçue via l'esprit Dao, et de cette phrase qui avait ébranlé son âme.
+« Quel est donc cet Ancien Tombeau? Qui l'a bâtie et quel en est l'objectif? » Il se remémora tout ce qu'il avait vécu depuis son entrée. Ce tombeau restait un mystère insondable, même pour lui. Cependant, il se souvenait de la scène aperçue via l'esprit Dao, et de cette phrase qui avait ébranlé son âme.
 
 « Utiliser une pilule de Dao pour nourrir le Dao Céleste n'est vraiment pas chose aisée... Je dois trouver un autre moyen... pour faire croître plus rapidement le Dao Céleste que j'ai dérobé... » Les yeux de Wang Lin s'illuminèrent. Il réfléchissait toujours à cela. Il était clair que le cultivateur aux sept couleurs avait volé le Dao Céleste, mais où et à qui? Wang Lin n'en avait aucune idée. Sa seule priorité était de trouver une autre méthode pour accroître la puissance du Dao Céleste.
 

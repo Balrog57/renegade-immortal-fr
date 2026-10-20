@@ -86,7 +86,7 @@ Avant de sombrer dans l'inconscience, il marmonnait encore:
 
 Le corps de Wang Lin était baigné de sang. Ce sang semblait vivant; dès qu'il le toucha, il s'infiltra dans son corps par ses pores.
 
-Cette quantité massive de sang, et plus particulièrement l'essence vitale, provoqua une pression indescriptible au sein du corps de Wang Lin. Le pouvoir de l'Ordre Antique de Wang Lin fut écrasé et supplanté, sans toutefois fusionner à grande échelle.
+Cette quantité massive de sang, et plus particulièrement l'essence vitale, provoqua une pression indescriptible au sein du corps de Wang Lin. Le pouvoir de l'Ordre Antique et celui de l'Ancien Dieu de Wang Lin furent écrasés et supplantés, sans toutefois fusionner à grande échelle.
 
 Néanmoins, parce que le pouvoir de l'Ordre Antique était opprimé, le sang versé pénétra directement dans ses os et se fondit avec sa moelle osseuse.
 
@@ -94,7 +94,7 @@ Cette fusion ne se limita pas à de petites zones comme précédemment; elle fut
 
 À mesure que le sang fusionnait avec sa moelle, un sang nouveau était créé. Dès la naissance de ce sang nouveau, une aura de noblesse jaillit du corps de Wang Lin.
 
-Cette aura était celle d'un souverain du monde; même le monde lui-même semblait devoir s'incliner devant elle!
+Cette aura était celle du premier des cultivateurs du monde; même le ciel et la terre semblaient devoir s'incliner devant elle!
 
 Le feu aux neuf couleurs dans son œil gauche brûlait intensément, perceptible à travers ses paupières. Cependant, sous l'effet de l'aura noble émanant de sa moelle, ce feu se fragmenta en d'innombrables flammes avant de se réunir aussitôt.
 

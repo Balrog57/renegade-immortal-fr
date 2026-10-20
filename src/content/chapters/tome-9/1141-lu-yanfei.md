@@ -88,7 +88,7 @@ Lu Yanfei se mordit la lèvre, une pointe d'amertume marquant son beau visage.
 
 « Le plus ridicule est que mes trois frères aînés n'ont pas osé intervenir et ont tacitement consenti à cette affaire... Ils veulent que je me sacrifie pour apporter la paix à la Secte de l'Origine. Cependant, pensent-ils vraiment que la Secte de l'Origine sera en sécurité une fois que j'appartiendrai à Lu Hai... »
 
-Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de ma Secte de l'Origine est funeste... »
+Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de ma Secte de l'Origine est sombre... »
 
 L'expression de Wang Lin resta impassible. Voyant que la femme en rouge avait fini de parler, il se retourna et descendit la montagne. La femme en rouge ne l'arrêta pas cette fois et contempla silencieusement l'horizon. Après un long moment, son visage se fit déterminé et une intention meurtrière apparut dans ses yeux.
 
@@ -104,7 +104,7 @@ Wang Lin commença à réfléchir, surtout en repensant aux paroles de l'Ancien.
 
 « Pilule Trompeuse du Ciel... » Les yeux de Wang Lin trahirent son intérêt.
 
-Il ne pouvait oublier que, sans le Cristal Ascendant de Zhou Yi, il aurait été consumé par la flamme originelle. Ceux qui cherchent le Dao à l'aube peuvent mourir au crépuscule.
+Il ne pouvait oublier que, sans le Cristal Ascendant de Zhou Yi, il aurait été consumé par la flamme originelle. Ceux qui entendent le Dao à l'aube peuvent mourir au crépuscule.
 
 « Ce Système d'Étoiles de la Mer des Nuages possède en fait une pilule pour aider les cultivateurs à franchir la première épreuve de vie et de mort. On peut dire que l'alchimie de la Mer des Nuages a atteint son apogée. Il existe probablement des pilules capables d'aider même les cultivateurs de la deuxième étape! »
 

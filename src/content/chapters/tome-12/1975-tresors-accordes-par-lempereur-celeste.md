@@ -40,7 +40,7 @@ Quant à l'Empereur Céleste siégeant sur le trône de dragon, il était identi
 
 Tout dans cet univers devait s'agenouiller sous son regard.
 
-« Peu importe, tu es le premier des Ascendants Empyréens, et cet esclave a manqué de respect à ton égard. Je ne ferai pas de cette affaire un obstacle. Xuan Dao, préside la cérémonie de titre », déclara l'Empereur Céleste depuis le trône.
+« Peu importe, tu es le premier des Ascendants Empyréens, et cet esclave a manqué de respect à ton égard. Je ne ferai pas de cette affaire un obstacle. Xuandao, préside la cérémonie de titre », déclara l'Empereur Céleste depuis le trône.
 
 « Bien », répondit le jeune homme aux vêtements grossiers en s'inclinant légèrement avant de marcher vers l'intérieur du temple.
 
@@ -48,9 +48,9 @@ Tout dans cet univers devait s'agenouiller sous son regard.
 
 En passant devant Wang Lin, le jeune homme sourit et lui adressa un signe de tête. Puis, il tourna son regard vers les dizaines de milliers de cultivateurs rassemblés sur la place.
 
-« Je vais présider la cérémonie de titre. La prochaine étape consiste à sacrifier le sang pour ouvrir le Dao Céleste! » déclara le Maître Impérial Xuan Dao en pointant le ciel de sa main droite.
+« Je vais présider la cérémonie de titre. La prochaine étape consiste à sacrifier le sang pour ouvrir le Dao Céleste! » déclara le Maître Impérial Shang Xuandao en pointant le ciel de sa main droite.
 
-Sur ces mots, un rayon de lumière rouge s'élança vers l'horizon. À cet instant, des rugissements telluriques retentirent aux quatre-vingt-dix-neuf coins du palais. Ces cris ressemblaient aux hurlements d'une bête agonisante.
+Sur ces mots, un rayon de lumière rouge s'élança vers les cieux. À cet instant, des rugissements telluriques retentirent aux quatre-vingt-dix-neuf coins du palais. Ces cris ressemblaient aux hurlements d'une bête agonisante.
 
 Immédiatement après, quatre-vingt-dix-neuf piliers de sang jaillirent du palais vers le ciel. Wang Lin pouvait clairement voir que ces piliers contenaient quatre-vingt-dix-neuf âmes de bêtes différentes!
 
@@ -62,7 +62,7 @@ Les âmes des bêtes enfermées dans les piliers poussèrent des rugissements si
 
 À cet instant, le palais n'était pas le seul lieu plongé dans le mutisme. Tous les anciens des sectes, à travers tout le clan céleste, fixaient le ciel au-dessus du palais impérial!
 
-Lors des cérémonies de titre précédentes, outre le passage des neuf portes et les défis imposés par autrui, il y avait également l'ouverture du Dao Céleste. Celle-ci consistait à utiliser un sacrifice de sang pour attirer des esprits étrangers, lesquels seraient ensuite exécutés par l'Empereur Céleste. Le sang se disperserait alors dans le palais et les âmes seraient raffinées en un trésor offert à l'Ascendant Empyréen qui recevrait son titre! Wang Lin connaissant les détails de ce rituel, il ne fut pas surpris en levant les yeux au ciel.
+Lors des cérémonies de titre précédentes, outre le passage des neuf portes et les défis imposés par autrui, il y avait également l'ouverture du Dao Céleste. Celle-ci consistait à utiliser un sacrifice de sang pour attirer des esprits étrangers, lesquels seraient ensuite exécutés par l'Empereur Céleste. Le sang se répandrait alors sur toute la terre et les âmes seraient raffinées en un trésor offert à l'Ascendant Empyréen qui recevrait son titre! Wang Lin connaissant les détails de ce rituel, il ne fut pas surpris en levant les yeux au ciel.
 
 « Je me demande quel genre de bête étrangère cet Ascendant Empyréen aux cheveux blancs obtiendra! »
 
@@ -72,7 +72,7 @@ Lors des cérémonies de titre précédentes, outre le passage des neuf portes e
 
 Les cultivateurs environnants levèrent les yeux et commencèrent à spéculer entre eux.
 
-À cet instant, dans le ciel écarlate, une bête semblable à un lion surgit du vortex sombre. La créature avait les yeux rouges et le cou en lambeaux, ensanglanté. Dans un rugissement, une goutte de sang doré tomba.
+À cet instant, dans le ciel écarlate, une bête semblable à un lion surgit du vortex sombre. La créature avait les yeux rouges et le cou en lambeaux, ensanglanté. Dans un rugissement, du sang doré tomba de son cou.
 
 Elle semblait fuir dans l'inconnu du vide lorsqu'elle fut soudainement aspirée par le vortex pour apparaître ici.
 
@@ -124,7 +124,7 @@ Wang Lin s'élança dans le ciel sans la moindre hésitation!
 
 L'Empereur Céleste, depuis le temple, leva également la main vers le vide. Une main gigantesque faite de feu aux cinq couleurs apparut pour saisir la mèche blanche!
 
-Wang Lin ne pouvait rivaliser avec l'Empereur Céleste. La paume de feu multicolore de l'Empereur surgit devant les cheveux et tenta de les capturer.
+Wang Lin ne pouvait rivaliser avec l'Empereur Céleste. La paume de feu multicolore de l'Empereur surgit devant les cheveux et les saisit.
 
 Cependant, à cet instant précis, la paume de feu trembla et la mèche la traversa tout en continuant sa chute. Tous les témoins virent la scène. Wang Lin n'hésita pas une seconde et apparut aux côtés de la mèche pour s'en saisir!
 

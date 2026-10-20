@@ -14,7 +14,7 @@ C'était comme si ses mots étaient les lois du monde et sa voix la promesse des
 
 C'était un engagement solennel que le Grand Empyréen Dao Yi avait pris pour recruter Wang Lin. Bien qu'il paraisse très calme et détaché, cette promesse était d'un poids immense!
 
-Lorsque l'ancêtre de la Secte du Dao Démoniaque entendit la promesse du Grand Empyréen Dao Yi, son expression changea. Des vagues d'émotions déferlèrent dans son cœur et il regarda Wang Lin avec une expression complexe.
+Lorsque l'ancêtre de la Secte du Dao Démoniaque, qui se tenait derrière l'avatar issu de la pensée divine de Dao Yi, entendit la promesse du Grand Empyréen Dao Yi, son expression changea. Des vagues d'émotions déferlèrent dans son cœur et il regarda Wang Lin avec une expression complexe.
 
 Il avait suivi le Grand Empyréen Dao Yi pendant plus de 10 000 ans et possédait une vague compréhension de sa nature. Un tel engagement était extrêmement rare de sa part!
 
@@ -36,7 +36,7 @@ Ce n'est qu'après être devenu plus illustre et avoir choisi un Grand Empyréen
 
 Le jeune aux cheveux noirs fixa Wang Lin. Ses yeux, empreints de sagesse, semblaient capables de lire en lui, et il sourit.
 
-« Je vous accorderai du temps. Avec votre puissance, vous pouvez tenter les Épreuves Empyréennes. Si vous parvenez à franchir le neuvième niveau, je reviendrai vous voir. » Sur ces mots, il se tourna vers l'ancêtre de la Secte du Dao Démoniaque, puis se transmuta de nouveau en robe de dao.
+« Je vous accorderai du temps. Avec votre puissance, vous pouvez tenter les Épreuves Empyréennes. Si vous parvenez à franchir le neuvième niveau, je reviendrai vous voir. » Sur ces mots, il se tourna vers l'ancêtre de la Secte du Dao Démoniaque, fusionna avec son corps, puis se transmua de nouveau en robe de dao.
 
 Une fois le Grand Empyréen Dao Yi parti, tout ce qui était figé reprit son mouvement. Les éléments retrouvèrent leur trajectoire originelle. La poussière retomba et le vent se remit à souffler.
 
@@ -66,7 +66,7 @@ Wang Lin ignorait tout de cela jusqu'alors. Bien qu'il parût impassible, il fut
 
 « Merci, confrère cultivateur, pour ces informations », dit Wang Lin en joignant les mains.
 
-« Il y a aussi l'Épreuve Empyréenne... Puisque je suis le premier Exalté Empyréen que vous avez combattu, vous ignorez sans doute ce qu'est cette épreuve. C'est un lieu étrange créé par l'Ancêtre Céleste. Un espace séparé de ce monde où les cultivateurs Exalté Empyréens peuvent obtenir une évaluation précise de leur force. »
+« Il y a aussi l'Épreuve Empyréenne... Puisque je suis le premier Exalté Empyréen que vous avez combattu, vous ignorez sans doute ce qu'est cette épreuve. C'est un lieu étrange créé par l'Ancêtre Céleste. Il est spécialement destiné aux cultivateurs Exalté Empyréens, qui peuvent y obtenir une évaluation précise de leur force. »
 
 Le vieil homme poursuivit lentement: « L'Épreuve Empyréenne comporte 19 niveaux, et seuls les Exalté Empyréens peuvent y pénétrer. Avec mon niveau de culture il y a 500 ans, j'ai tenté ma chance, mais je n'ai franchi que le troisième niveau avant d'échouer au quatrième. »
 

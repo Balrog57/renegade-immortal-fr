@@ -42,7 +42,7 @@ Wang Lin se leva silencieusement et agita la main droite. L'ombre antique se dis
 
 « L'arrivée du Daoïste aux Sept Couleurs était une illusion. Il nous a peut-être réellement poursuivis, mais il n'est jamais apparu devant nous. » Le regard de Wang Lin restait rivé sur le visage fantomatique de la voile.
 
-« Vous deux, sœurs, êtes très intéressantes. Vous pensez que tout n'est que le fruit de vos calculs. Vous m'avez attiré ici par une menace de lumière et d'ombre pour me contraindre à remettre le Serment de Sang... Votre sœur aînée est encore plus brillante. Dès mon entrée ici, elle a créé un monde d'illusions. Elle a engendré la poursuite du Daoïste aux Sept Couleurs pour nous mener là.
+« Vous deux, sœurs, êtes très intéressantes. Vous pensez que tout n'est que le fruit de vos calculs. Vous m'avez attiré ici par une menace à la fois ouverte et cachée pour me contraindre à remettre le Serment de Sang... Votre sœur aînée est encore plus brillante. Dès mon entrée ici, elle a créé un monde d'illusions. Elle a engendré la poursuite du Daoïste aux Sept Couleurs pour nous mener là.
 
 « Puis, elle est même allée plus loin en agissant dans votre dos. Alors que je m'apprêtais à étudier les restrictions, elle a créé une illusion dans l'illusion, de sorte que je ne puisse pas la percer. Dans cette illusion imbriquée, elle a failli me forcer à remettre le Serment de Sang...
 

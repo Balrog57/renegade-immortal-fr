@@ -14,7 +14,7 @@ Cependant, le système stellaire de Luotian était différent. Presque tous sava
 
 Cela tenait au fait que l'Alliance de Culture était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. Wang Lin compris, la grande majorité des cultivateurs pensait que l'Alliance de Culture était l'unique puissance sous les étoiles.
 
-Le système stellaire de Luotian jouissait de beaucoup plus de liberté. Toutefois, certains secrets restaient étroitement gardés.
+Le système stellaire de Luotian jouissait de beaucoup plus de liberté, et certains secrets n'y étaient pas si strictement gardés.
 
 Une différence majeure entre les deux systèmes stellaires résidait dans le fait qu'il n'y avait pas de sectes à Luotian; on n'y trouvait que des familles de cultivateurs. Ce qui importait au système stellaire de Luotian, c'étaient les lignées!
 
@@ -104,7 +104,7 @@ Puisque son regard avait dissipé la brume, Wang Lin avait deviné que ces insec
 
 Les Insectes de Brume Noire se mirent aussitôt à hurler et à battre en retraite. Une masse de brume émanant des insectes s'élança pour étouffer l'éclair. S'il s'était agi d'un sort de tonnerre ordinaire, il se serait affaibli au contact de la brume; car malgré leur vulnérabilité au tonnerre, le poison que ces insectes transportaient restait extrêmement puissant.
 
-Cependant, ce n'était pas un tonnerre issu de sorts conventionnels, mais un véritable tonnerre céleste. C'était une capacité que Wang Lin avait acquise lorsque son âme originelle s'était fusionnée avec l'Ancien Dragon de Tonnerre!
+Cependant, ce n'était pas un tonnerre issu de sorts conventionnels, mais un véritable tonnerre céleste. C'était une capacité que Wang Lin avait acquise lorsque son âme originelle s'était fusionnée avec le Dragon de la foudre antique!
 
 Le dragon de foudre rugit et une immense quantité de brume se dissipa. L'éclair fendit le nuage, forçant les Insectes de Brume Noire à reculer en masse. Ils ressentaient clairement la puissance du tonnerre. Déjà terrifiés par l'électricité, ce tonnerre céleste était pour eux l'ennemi naturel; ils fuirent donc précipitamment.
 

@@ -8,11 +8,11 @@ slug: petit-rouge
 ---
 Tout en battant en retraite, le dragon de feu laissa échapper un hurlement et déploya toute sa puissance. Les flammes enveloppèrent son corps tandis qu'il s'éloignait à toute allure.
 
-La manière dont Wang Lin avait rassemblé avec désinvolture les flammes éparpillées était terrifiante; il sentait également, de façon flagrante, l'essence du feu qui résidait dans le corps de Wang Lin.
+La manière dont Wang Lin avait rassemblé avec désinvolture les flammes du dragon était terrifiante; il sentait également, de façon flagrante, l'essence du feu qui résidait dans le corps de Wang Lin.
 
 Le dragon possédait lui aussi une essence de feu, mais elle était manifestement bien plus faible que celle de Wang Lin. Par conséquent, ce dragon de feu n'avait tout simplement pas le courage de l'affronter.
 
-Terrorisé, il prit la fuite précipitamment. Wang Lin observa calmement sa retraite. Il serra le poing droit et écrasa les flammes qu'il tenait dans sa main.
+Terrorisé, il prit la fuite précipitamment. Wang Lin observa calmement sa retraite. Il pinça les doigts de la main droite et écrasa les flammes qu'il tenait dans sa main.
 
 Une onde de chaleur se propagea de la paume de Wang Lin dans toutes les directions. Ce dernier ne poursuivit pas la créature, mais traça simplement un sceau dans les airs.
 
@@ -34,11 +34,11 @@ Wang Lin dissipa le sceau de sa main droite et, en un clin d'œil, se tint au so
 
 Elle regarda au loin, vers la Secte du Dragon Céleste, et ses yeux se remplirent d'encore plus de larmes.
 
-« Adieu, ma Secte du Dragon Céleste... Maudit soit ce destin, je n'aurais pas dû venir par ici... J'aurais dû aller ailleurs... »
+« Adieu, ma Secte du Dragon Céleste... Maudit soit ce destin, je n'aurais pas dû prendre cette route... Si j'avais su que cela finirait ainsi, hélas... »
 
 Wang Lin était assis sur la tête du dragon. Des vagues d'énergie brûlante émanaient de la créature et l'entouraient tandis qu'il scrutait l'horizon. Sa propre vision se trouvait même déformée par ces ondes de chaleur.
 
-Les sens divins des cultivateurs du troisième stade du Système Stellaire Antique étaient toujours présents dans les environs. Ils avaient observé Wang Lin capturer ce dragon de feu, mais cela ne les surprit guère. Bien que ce dragon fût puissant, équivalent à un cultivateur du stade initial du Vide du Nirvana, il restait bien trop faible à leurs yeux.
+Les sens divins des cultivateurs du Système Stellaire Antique étaient toujours présents dans les environs. Ils avaient observé Wang Lin capturer ce dragon de feu, mais cela ne les surprit guère. Bien que ce dragon fût puissant, équivalent à un cultivateur du stade initial du Vide du Nirvana, il restait bien trop faible à leurs yeux.
 
 Si Wang Lin n'avait pas su qu'il s'agissait d'un monde de grotte, il aurait tout de même capturé ce dragon, mais il n'aurait pas agi avec une telle célérité, sans perdre un instant.
 

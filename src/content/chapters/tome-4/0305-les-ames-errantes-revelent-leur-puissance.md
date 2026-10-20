@@ -16,7 +16,7 @@ La différence entre les âmes errantes et les démons résidait dans le fait qu
 
 Wang Lin n'avait pas encore testé s'il pouvait terrasser un cultivateur au stade de la Formation de l'Âme en utilisant ses 10 000 âmes errantes. Après tout, à moins d'une nécessité absolue, il ne voulait pas gaspiller ces précieuses âmes pour lesquelles il avait tant lutté.
 
-Pourtant, Wang Lin se souvenait que l'Empereur Antique avait été abattu par l'assaut incessant d'innombrables âmes errantes.
+Pourtant, Wang Lin se souvenait que l'Empereur Antique avait vu son corps dévoré par l'assaut incessant d'innombrables âmes errantes.
 
 Parmi ces âmes, une se distinguait de toutes les autres. Bien qu'elle en ait l'apparence, une étincelle d'intelligence brillait dans son regard. C'était le démon Xu Liguo.
 
@@ -26,7 +26,7 @@ Le tourbillon d'âmes errantes était immense, et les spectateurs sur la platefo
 
 Cet homme était également un membre du Clan des Démons Géants venu de Suzaku. Il identifia Wang Lin en un instant et resta plongé dans ses réflexions.
 
-Parmi les personnes présentes sur la plateforme, un homme d'âge moyen vêtu d'un manteau gris se distinguait. Ses yeux étaient sombres, son nez légèrement aquilin, et son visage exhalait une profonde mélancolie. Il fixa Wang Lin et fit un pas vers lui.
+Parmi les personnes présentes sur la plateforme, un homme d'âge moyen vêtu d'un manteau gris se distinguait. Ses yeux étaient sombres, son nez légèrement aquilin, et son visage affichait un air sombre. Il fixa Wang Lin et fit un pas vers lui.
 
 Le membre du Clan des Démons Géants observa cet homme sans dire un mot, affichant plutôt une expression moqueuse. À ses yeux, le niveau de culture de cet individu n'atteignait même pas le stade de la Formation de l'Âme; il n'était qu'au stade avancé de l'Âme Naissante, à son apogée. Tenter d'ôter la vie d'un cultivateur de la Formation de l'Âme avec un tel niveau revenait à frapper un rocher avec un œuf.
 
@@ -48,15 +48,15 @@ Autour de lui, une multitude d'âmes encerclèrent le brasier et s'y précipitè
 
 Les âmes errantes restantes cessèrent d'attaquer pour encercler Wang Lin, fixant froidement les personnes sur la plateforme.
 
-L'homme au manteau gris maudit intérieurement, regrettant son impétuosité alors qu'il savait que les présents étaient l'élite de leurs planètes respectives et dotés de pouvoirs redoutables. Il n'aurait jamais imaginé que les créatures libérées par un adversaire aussi gravement blessé puissent être aussi redoutables. Si la culture de l'ennemi avait été à son apogée, il serait mort sur le coup.
+L'homme au manteau gris maudit intérieurement, regrettant son impétuosité alors qu'il savait que les présents étaient l'élite de leurs planètes respectives et dotés de pouvoirs redoutables. Il n'aurait jamais imaginé que les créatures libérées par un adversaire aussi gravement blessé puissent être aussi redoutables. Si la culture de l'ennemi avait été à son apogée, il serait mort ici même aujourd'hui.
 
 Voyant que ses flammes s'étouffaient et qu'une multitude de ces créatures mystérieuses rôdaient encore, l'homme serra les dents et agita la main. Un petit chaudron apparut alors dans sa main. Son regard trahissait une profonde amertume alors qu'il s'apprêtait à l'utiliser pour fuir vers sa planète d'origine.
 
-Pourtant, au moment où il allait activer l'artefact, Wang Lin ouvrit brusquement les yeux et tendit la main. Le petit chaudron fut instantanément arraché à l'homme et vola vers Wang Lin.
+Pourtant, au moment où il allait activer l'artefact, Wang Lin ouvrit brusquement les yeux et saisit à distance. Le petit chaudron fut instantanément arraché à l'homme et vola vers Wang Lin.
 
 Le visage de l'homme devint livide, une sueur froide perlant sur son front. L'expression de Wang Lin était sombre; il serra le poing comme pour écraser une bulle, et les flammes mourantes qui protégeaient l'homme s'éteignirent définitivement.
 
-Dès que le feu disparut, l'homme poussa un cri hystérique et tenta de se téléporter vers le tourbillon. À ses yeux, la seule issue était de rejoindre le royaume céleste.
+Dès que le feu disparut, l'homme poussa un cri hystérique et tenta de se téléporter vers le tourbillon. À ses yeux, la seule issue était de rentrer dans le fragment du royaume céleste.
 
 Mais il était déjà trop tard. La vitesse des âmes errantes surpassait la sienne. Dès qu'il apparut, d'innombrables âmes avaient déjà atteint son corps et y avaient pénétré. Il trembla violemment avant de s'effondrer sur la plateforme dans un cri déchirant, son corps convulsant un instant avant de succomber.
 
@@ -68,7 +68,7 @@ Les yeux de Wang Lin brillèrent d'une lueur particulière. Sous son commandemen
 
 Wang Lin le regarda et répondit calmement: « Un fragment du royaume céleste s'est effondré. »
 
-L'homme fut stupéfait. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, nul ne peut prétendre avoir survécu à l'effondrement d'un fragment du royaume céleste. Je vous admire sincèrement! Je suis Chi Hu, du Clan des Démons Géants. Quel est votre nom? »
+L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, nul ne peut prétendre avoir survécu à l'effondrement d'un fragment du royaume céleste. Je vous admire sincèrement! Je suis Chi Hu, du Clan des Démons Géants. Quel est votre nom? »
 
 Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Ceng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas avalé imprudemment le cristal d'énergie céleste, il serait déjà mort.
 
@@ -76,7 +76,7 @@ Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Ce
 
 Wang Lin fut surpris et secoua silencieusement la tête.
 
-Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Ceng était Tianhun. Bien qu'il ne l'admette pas, il ne croyait pas que Ceng Niu ait acquis sa culture par ses propres moyens; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
+Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Ceng était Tianhun. Bien que Ceng Niu ne l'admette pas, Chi Hu ne croyait pas qu'il ait acquis sa culture par ses propres moyens; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
 
 Le Clan des Démons Géants étant lui-même un pays de culture de rang 4, ils connaissaient parfaitement les génies de leurs pairs. Après cette réflexion, son attitude envers Wang Lin changea notablement, bien qu'il ne le laissa paraître compte tenu de son niveau de culture.
 
@@ -94,7 +94,7 @@ Chi Hu serra les dents, sortit un morceau de jade et le lança à Wang Lin en d�
 
 Wang Lin attrapa le jade et l'examina avec son Sens Divin. Même lui ne put s'empêcher d'être ébranlé. Ce jade contenait une image enregistrée par perception divine: la scène d'un lieu d'une beauté sublime, foisonnant de fleurs, de chants d'oiseaux, d'herbe verdoyante et d'eaux cristallines.
 
-L'élément le plus frappant était un bassin d'eau où flottait un cercueil de jade. Trois épées célestes transperçaient ce cercueil; l'une d'elles ressemblait étrangement à celle que tenait le squelette noir. Ce qui fit rétrécir les pupilles de Wang Lin, c'était la certitude que l'intégralité du cercueil était façonnée en jade céleste.
+L'élément le plus frappant était un bassin d'eau où flottait un cercueil de jade. Trois épées célestes transperçaient ce cercueil; l'une d'elles ressemblait étrangement à celle que tenait le squelette noir. Ce qui fit rétrécir les pupilles de Wang Lin, c'était la conviction, s'il ne se trompait pas, que l'intégralité du cercueil était façonnée en jade céleste.
 
 En outre, plusieurs plantes flottaient sur l'eau, et il était évident qu'elles n'étaient pas ordinaires.
 

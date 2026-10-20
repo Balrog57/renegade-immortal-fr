@@ -32,7 +32,7 @@ Diverses pensées lui traversèrent l'esprit. Les yeux de Wang Lin brillèrent a
 
 Wang Lin fut soudainement éclairé! Il le soupçonnait depuis longtemps, et la vue de la tour du démon dispersé n'avait fait que confirmer ses spéculations!
 
-« Un démon dispersé... Je ne sais pas si je peux combattre un démon dispersé avec mon niveau de culture actuel! » L'énergie d'origine à l'intérieur de son corps s'agita pour apaiser les blessures causées par l'Évasion Sanguine.
+« Un démon dispersé... Je ne sais pas si je peux combattre un démon dispersé avec mon niveau de culture actuel! » L'énergie originelle à l'intérieur de son corps s'agita pour apaiser les blessures causées par l'Évasion Sanguine.
 
 Une hostilité profonde apparut sur son visage. Plus de six mois de retenue et l'influence de l'énergie démoniaque avaient fait naître en lui une intention meurtrière implacable. Son apparence, en cet instant, était particulièrement féroce.
 
@@ -40,7 +40,7 @@ Wang Lin fit un pas vers la tour!
 
 La tour noire ne semblait pas loin, mais elle se trouvait tout de même à une certaine distance dans ce désert de sable noir. Cependant, cela n'était rien pour Wang Lin, qui combla rapidement l'espace.
 
-Pourtant, au moment où il s'avança, le sol devant la tour noire trembla. D'innombrables grains de sable noir s'assemblèrent pour former des dizaines de silhouettes de sable!
+Pourtant, au moment où il s'avança, le sol devant la tour noire trembla. D'innombrables grains de sable noir s'assemblèrent pour former, à quelques dizaines de pieds de Wang Lin, des dizaines de silhouettes de sable!
 
 Ils portaient tous des vêtements d'une époque très ancienne et étaient imprégnés d'énergie démoniaque. Cette énergie fusionna dans l'air pour former une étrange silhouette.
 
@@ -102,13 +102,13 @@ Les quatre dragons démoniaques semblaient se livrer une lutte pour la nourritur
 
 « Un total de 32 brins de Sens Divin. Le vieil homme qui vient de mourir en était un, il en reste donc 31! » Wang Lin se souvenait de chaque brin de Sens Divin qui avait balayé la zone. Il n'y en avait que 32 au total!
 
-Aucune des personnes sorties de la tour noire n'était faible. L'intention meurtrière se lut sur le visage de Wang Lin. Il comprit clairement que s'il voulait partir, toutes les réponses se trouvaient en ce lieu!
+Aucune des personnes sorties de la tour noire n'était faible. L'intention meurtrière se lut sur le visage de Wang Lin. Il comprit clairement que s'il voulait partir, tous les secrets se trouvaient en ce lieu!
 
 Même s'il ne les tuait pas, ils ne le laisseraient pas passer!
 
 Wang Lin chargea ces individus tandis que les quatre dragons démoniaques tournaient autour de lui!
 
-« Seigneur Démon, massacre! » Une voix grave émana des hommes en noir. Chacun d'eux forma un sceau et le pointa entre ses sourcils!
+« Seigneur Démon, massacre! » Une voix vieillie émana des hommes en noir. Chacun d'eux forma un sceau et le pointa entre ses sourcils!
 
 Instantanément, une quantité massive d'énergie démoniaque fut libérée, formant l'ombre d'un démon au-dessus d'eux.
 

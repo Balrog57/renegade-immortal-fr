@@ -42,13 +42,13 @@ Sa vision se brouilla et il revit ces centaines d'années de vie. Lui, utilisant
 
 « Hmph, hmph, je n'ai que sept ans, mais j'ai déjà trompé presque tout le monde. Il semble que je doive partir pour prospérer ailleurs… »
 
-« Eh, petit frère, ce bonbon est plutôt bon; pourquoi ne pas m'en laisser une bouchée… » Son dernier souvenir remontait à l'âge de quatre ans, lorsqu'il tentait de voler le bonbon d'un enfant du voisinage.
+« Eh, petit frère, ce bonbon est plutôt bon; pourquoi ne pas m'en laisser une bouchée… » Son dernier souvenir remontait à l'âge de quatre ans, lorsqu'il tentait d'escroquer le bonbon d'un enfant du voisinage.
 
 Les souvenirs du passé résonnaient dans son esprit. Des grondements tonitruants retentissaient tandis qu'un vortex dévorait ces mémoires. Alors que le fracas devenait plus intense, il vit sa seconde vie.
 
 Il se vit lutter pour cultiver et découvrir lentement le dao de la tromperie. Grâce à un trésor magique, il réussissait presque partout, mais il finit par échouer face à un cultivateur nommé Wang Lin...
 
-Des années plus tard, il suivit cet homme jusqu'à sa réincarnation.
+Pendant d'innombrables années, il suivit cet homme, le cœur inquiet, jusqu'à sa réincarnation.
 
 Il se souvint de son ami Xu Liguo. Bien que Xu Liguo ait fait des choses qui l'avaient beaucoup contrarié, ils partageaient la même nature malicieuse et étaient ainsi devenus de bons amis.
 
@@ -90,15 +90,15 @@ Liu Jinbiao hésita, puis murmura: « Maître, dans mes souvenirs de cette vie, 
 
 « Oh? » Wang Lin s'arrêta brusquement et fixa Liu Jinbiao. « Où l'as-tu rencontré? »
 
-« Euh… Je n'avais pas encore retrouvé mes souvenirs à ce moment-là. Sur le Continent de l'Eau Céleste, dans le Continent de l'Est, j'ai vu un bandit de montagne extrêmement vicieux qui prétendait s'appeler Xu Liguo. À l'époque, j'étais assez connu dans la région… Oh, pas si célèbre, pas si célèbre. »
+« Euh… Je n'avais pas encore retrouvé mes souvenirs à ce moment-là. Sur le Continent de l'Eau Céleste, dans le Continent de l'Est, j'ai vu un bandit de montagne à l'allure extrêmement féroce qui prétendait s'appeler Xu Liguo. À l'époque, j'étais assez connu dans la région… Oh, pas si célèbre, pas si célèbre. »
 
-« Il m'a invité à monter sur la montagne en attendant que je lui donne quelques conseils. Je lui ai lancé quelques pistes au hasard et lui ai dit de se rendre vers le Continent Central… » En parlant, Liu Jinbiao devint visiblement embarrassé.
+« Il m'a invité à monter sur la montagne, presque comme pour me servir, et m'a demandé de lui indiquer une voie vers l'immortalité. Je lui ai donné quelques pistes au hasard et lui ai dit de se rendre vers le Continent Central… » En parlant, Liu Jinbiao devint visiblement embarrassé.
 
 Il ajouta: « Cela remonte à des centaines d'années… »
 
 Wang Lin réfléchit silencieusement un instant. L'image de Xu Liguo tentant de le flatter apparut dans son esprit, et un sourire se dessina lentement au coin de ses lèvres.
 
-« Avec le caractère de Xu Liguo, il ne souffrira pas. S'il est toujours en vie, c'est qu'il a trouvé sa fortune. Je me rendrai au Continent Central plus tard. Si possible, voyons si nous tombons sur lui. »
+« Avec le caractère de Xu Liguo, il ne souffrira pas. S'il est toujours en vie, c'est qu'il a trouvé son chemin vers l'immortalité. Je me rendrai au Continent Central plus tard. Si possible, voyons si nous tombons sur lui. »
 
 « Si je peux vraiment le rencontrer, je me demande quelle tête il fera en me voyant. » Le sourire de Wang Lin s'élargit encore.
 
@@ -126,6 +126,6 @@ Lorsque Wang Lin atteignit le sommet de la montagne, des nuages sombres envahire
 
 La pluie créa des ondulations sur les dalles de pierre verte tandis que l'eau éclaboussait le sol. Une vapeur sembla s'élever, avant de se dissiper dans l'air.
 
-Cette scène était très similaire à l'illusion d'autrefois… Wang Lin ressentit un sentiment indicible, comme s'il subissait une métamorphose sous cette pluie.
+Cette scène était très similaire à l'illusion d'autrefois… Wang Lin ressentit un sentiment indicible, comme si son être s'élevait sous cette pluie.
 
 Tandis qu'il se tenait là, sous les eaux tombantes, il ferma les yeux et resta immobile.

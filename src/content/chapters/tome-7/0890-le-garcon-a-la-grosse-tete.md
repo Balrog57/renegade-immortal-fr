@@ -92,7 +92,7 @@ Un rire strident retentit alors qu'il formait un sceau et pointait ses mains de 
 
 Alors qu'il rugissait, un craquement fracassant retentit comme un coup de tonnerre. Les nombreuses veines qui s'agitaient jaillirent de sa tête et se transformèrent en serpents venimeux d'un vert teinté de rouge. Ces derniers fusionnèrent pour s'étendre comme un pilier vers Wang Lin.
 
-L'expression de Wang Lin demeura neutre. S'il n'utilisait pas de sorts puissants, c'était parce qu'il avait d'autres projets pour ce garçon. En utilisant des techniques trop dévastatrices, il ne pourrait plus se retenir, car il ne maîtrisait pas encore assez bien le contrôle de ses pouvoirs avec sa culture actuelle.
+L'expression de Wang Lin demeura neutre. S'il n'utilisait pas de sorts puissants, c'était parce qu'il avait d'autres projets pour ce garçon. En utilisant des techniques trop dévastatrices, il ne pourrait pas frapper avec précision, car il ne maîtrisait pas encore assez bien ses pouvoirs avec sa culture actuelle.
 
 De plus, cet individu était l'un des 36 Célestes du Ciel. Wang Lin n'était pas encore prêt à rompre définitivement ses liens avec le Système Stellaire de Luotian. Il pouvait tuer un cultivateur ordinaire, mais pas un Céleste du Ciel près de la planète Suzaku, surtout sous les yeux de centaines de cultivateurs. Ce ne serait pas une décision judicieuse!
 

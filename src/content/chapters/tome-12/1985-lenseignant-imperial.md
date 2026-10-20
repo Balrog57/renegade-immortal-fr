@@ -8,7 +8,7 @@ slug: lenseignant-imperial
 ---
 Au loin, les cultivateurs provenant du palais s'arrêtèrent tous face à ce changement soudain. Leurs visages pâlirent, empreints d'une peur profonde, et tous leurs regards convergèrent vers Wang Lin.
 
-« La neige noire n'est peut-être jamais tombée sur le palais impérial », déclara l'homme aux cheveux noirs, Wang Lin, tout en agitant sa main droite. L'obscurité envahit le ciel, recouvrant le palais, tandis qu'une neige noire s'abattait à l'intérieur comme à l'extérieur de l'enceinte.
+« La neige noire n'est peut-être jamais tombée sur le palais impérial », déclara l'homme aux cheveux noirs, Wang Lin, tout en agitant sa main droite. L'obscurité qui couvrait le ciel se changea en neige noire, qui s'abattit à l'intérieur comme à l'extérieur de l'enceinte.
 
 Tandis que les flocons tombaient, ils semblaient entonner le chant du temps. Le vaste palais commença alors à se dégrader rapidement.
 

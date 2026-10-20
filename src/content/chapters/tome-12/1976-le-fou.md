@@ -34,7 +34,7 @@ Cette ombre semblait porter une armure sombre. Son visage était flou et ses yeu
 
 Des grondements sourds retentirent alors que l'ombre noire levait sa longue lance sombre dans sa main droite et chargeait Wang Lin!
 
-Les yeux de Wang Lin s'illuminèrent. Il ignorait qui était cet homme, mais d'après sa position, il comprit qu'il s'agissait de l'un des quatre rois!
+Les yeux de Wang Lin s'illuminèrent. Il ignorait qui était cet homme, mais d'après sa position, il comprit qu'il s'agissait de l'un des quatre manoirs royaux!
 
 L'ombre noire dégageait une puissance colossale et s'approchait comme pour fendre le ciel. Wang Lin ne recula pas. Le totem du Taureau Céleste sur son visage s'étendit instantanément en armure d'âme sur tout son corps, et il décocha un coup de poing.
 
@@ -72,7 +72,7 @@ Le Taureau Céleste se dissipa, tout comme l'ombre noire que le vieil homme avai
 
 Non seulement lui, mais Wang Lin également regarda au loin. En bas, les cultivateurs remarquèrent leurs regards et levèrent les yeux à leur tour. Tous fronçaient les sourcils.
 
-« Hmph, hmph, vous n'avez pas peur. Un événement aussi animé se déroule sans que ce roi ne soit invité! Vous... Est-ce que je n'existe plus à vos yeux?! »
+« Hmph, hmph, vous avez bien de l'audace. Un événement aussi animé se déroule sans que ce roi ne soit invité! Vous... Est-ce que je n'existe plus à vos yeux?! »
 
 « Petit Rouge, Petit Vert, Petit Blanc, Petit Bleu, ouvrez la voie à ce roi! » Le réseau de transfert à l'extérieur des neuf portes étincela et une foule de gens en sortit.
 

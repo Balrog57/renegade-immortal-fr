@@ -10,7 +10,7 @@ Wang Lin vola à une vitesse fulgurante. En un rien de temps, il atteignit à no
 
 Le paysage devant lui devint soudainement flou. Des ondulations apparurent, comme une pierre jetée dans une eau calme. Bientôt, l'ancienne restriction se manifesta.
 
-Le corps de Wang Lin disparut pour réapparaître à l'intérieur du réseau de transfert. Il sortit quelques matériaux de son sac de stockage et les posa sur le réseau de transfert pour rétablir les parties qu'il avait démontées autrefois.
+Le corps de Wang Lin disparut pour réapparaître à l'intérieur du réseau de transfert. Il sortit quelques matériaux de son sac de rangement et les posa sur le réseau de transfert pour rétablir les parties qu'il avait démontées autrefois.
 
 Peu après, il jeta un regard vers la direction de la Secte Ciel Nuageux. Le visage empreint de détermination, il sortit une pierre spirituelle de haute qualité en forme de losange, prit une profonde inspiration et la plaça lentement dans le réseau de transfert.
 
@@ -74,7 +74,7 @@ La jeune fille se tourna vers Qiu et dit d'un ton grave: « Très bien, partons.
 
 L'homme nommé Qiu sourit et acquiesça.
 
-Il toucha son sac de stockage et un navire gigantesque apparut dans les airs. Il sauta à bord et s'assit. Les deux autres suivirent et s'installèrent également dans l'embarcation.
+Il toucha son sac de rangement et un navire gigantesque apparut dans les airs. Il sauta à bord et s'assit. Les deux autres suivirent et s'installèrent également dans l'embarcation.
 
 Le navire était d'une rapidité fulgurante. Laissant derrière lui une traînée arc-en-ciel, il disparut au loin.
 
@@ -110,7 +110,7 @@ Cependant, cette créature était singulière. Même des cultivateurs au stade d
 
 En conséquence, tous les chasseurs de bêtes sauvages la fuyaient dès qu'ils l'apercevaient.
 
-Pourtant, elle restait une proie très lucrative. Contrairement aux autres monstres, elle possédait huit cœurs. De plus, la technique de poison du Palais Enchanté était extrêmement efficace contre elle. La chasse à cette bête était devenue l'activité exclusive du Palais Enchanté, et tous ses disciples se réjouissaient de s'y essayer.
+Pourtant, elle restait une proie très lucrative. Contrairement aux autres monstres, elle possédait huit cœurs. De plus, la poudre corrosive du Palais Enchanté était extrêmement efficace contre elle. La chasse à cette bête était devenue l'activité exclusive du Palais Enchanté, et tous ses disciples se réjouissaient de s'y essayer.
 
 Qiu Siping avait déjà pris sa décision: une fois que ces deux juniors auraient tué la bête, il les assassinerait pour s'emparer de leurs cœurs.
 
@@ -136,7 +136,7 @@ Cet homme était Wang Lin. Son regard balaya Li et la jeune fille avant de se po
 
 Ces deux-là n'étaient pas stupides. En entendant les mots de Wang Lin, leurs visages s'assombrirent instantanément. Ils se regardèrent, puis tournèrent vers Wang Lin un regard empreint de gratitude en joignant les mains. Ils reculèrent rapidement avant de s'enfuir à toute vitesse dans le lointain.
 
-Qiu Siping laissa échapper un sourire amer. Une lueur froide passa dans ses yeux alors qu'il sortait un petit tambour de son sac de stockage. Il frappa le tambour, et deux fils noirs presque invisibles s'élancèrent vers les fuyards.
+Qiu Siping laissa échapper un sourire amer. Une lueur froide passa dans ses yeux alors qu'il sortait un petit tambour de son sac de rangement. Il frappa le tambour, et deux fils noirs presque invisibles s'élancèrent vers les fuyards.
 
 Les fils étaient d'une rapidité extrême. Mais au moment où ils allaient les rattraper, une lumière verte apparut derrière les deux fuyards et emprisonna les fils. Lorsque la lueur verte disparut, les deux individus avaient déjà disparu sans laisser de trace.
 

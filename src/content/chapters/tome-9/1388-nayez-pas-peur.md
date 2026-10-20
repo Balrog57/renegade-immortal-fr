@@ -14,7 +14,7 @@ Par exemple, le fourneau divin antique et le dragon de tonnerre ancien... S'il a
 
 S'il avait su tout cela, il en aurait certainement recraché du sang, mourant presque de chagrin!
 
-« Ce vieil homme a eu une chance insolente, d'immenses opportunités, et est favorisé par le Ciel lui-même. Béni par les cieux à l'âge de huit ans, j'ai déterré une essence jaune de 500 ans que j'ai dévorée. À 13 ans, je suis tombé d'une falaise pour atterrir aux côtés d'un Fruit Vermillon de 500 ans. À 18 ans, alors que j'atteignais le stade de l'Établissement des Fondations, j'ai obtenu le dragon de tonnerre ancien! Au stade de la Formation du Noyau, en combattant un ennemi puissant contre lequel je n'avais aucune chance, un fourneau géant est tombé du ciel et l'a écrasé à mort!
+« Ce vieil homme a eu une chance insolente, d'immenses opportunités, et est favorisé par le Ciel lui-même. Béni par les cieux à l'âge de huit ans, j'ai déterré une essence jaune de 500 ans que j'ai dévorée. À 13 ans, je suis tombé d'une falaise pour atterrir aux côtés d'un Fruit Vermillon de 500 ans. À 18 ans, alors que j'atteignais le stade de l'Établissement des Fondations, j'ai obtenu le dragon de tonnerre ancien! Au stade de la Formation du Noyau, en combattant un ennemi puissant, alors que j'étais sur le point de perdre, un fourneau géant est tombé du ciel et l'a écrasé à mort!
 
 « Après cela, mon chemin fut toujours semé de succès. La Peinture des Montagnes et des Rivières, l'âme de la montagne, l'aiguille d'âme, tout cela a été obtenu sans encombre. Seule ma quête de la Perle Défiant le Ciel ne s'est pas déroulée sans encombre!
 
@@ -34,13 +34,13 @@ Wang Lin ignora Cupidité et rattrapa rapidement la bouteille de jade. D'un reve
 
 « Ce Cupidité est ma bonne étoile! » rit Wang Lin avant de disparaître.
 
-Le corps de Cupidité était enveloppé par les nuages et protégé par cette étrange bête. Cette dernière possédait près de cent paires d'ailes qui, à chaque battement, augmentaient considérablement sa vitesse. Ils fuyaient à une allure dépassant l'entendement humain.
+Le corps de Cupidité était enveloppé par les nuages et protégé par cette étrange bête, longue d'environ 1 000 pieds. Cette dernière possédait près de cent paires d'ailes qui, à chaque battement, augmentaient considérablement sa vitesse. Ils fuyaient à une allure dépassant l'entendement humain.
 
 Des ondulations les suivaient, semblables aux vagues de la mer. Au cœur de ces remous, la silhouette de Wang Lin les traquait, accélérant sans cesse!
 
 Cependant, la vitesse de Cupidité avait atteint ses limites, lui permettant de maintenir une certaine distance. Bien que l'essence du tonnerre de Wang Lin fût complète, même avec ce pouvoir, il ne pourrait pas le rattraper instantanément.
 
-Pourtant, Wang Lin n'était pas pressé. Rencontrer quelqu'un de son monde était une joie. À cet instant, il se sentait comblé. Cette rencontre avec Cupidité lui apportait autant de surprise que de bonheur!
+Pourtant, Wang Lin n'était pas pressé. Retrouver une connaissance en terre étrangère était une joie. À cet instant, il se sentait comblé. Cette rencontre avec Cupidité lui apportait autant de surprise que de bonheur!
 
 Plus précisément, Wang Lin avait déjà remarqué que tous les trésors de Cupidité étaient liés aux trois clans de l'Ordre Ancien, et il avait identifié l'origine de ces richesses. Pour d'autres, ces lieux seraient sans intérêt, mais pour lui, c'était une fortune inimaginable!
 

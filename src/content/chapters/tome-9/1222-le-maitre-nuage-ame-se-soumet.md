@@ -50,7 +50,7 @@ Il était convaincu que Wang Lin en était capable et pouvait même le tuer inst
 
 Il regarda impuissant la marque s'approcher et commença à lutter, avant de finalement abandonner toute résistance. Il laissa la marque s'enfoncer profondément entre ses sourcils.
 
-Au moment où la marque se posa, la flamme bleue, la foudre et l'intention de bataille au sein de son âme originelle convergèrent vers ses sourcils. Elles fusionnèrent avec la marque qui, après avoir clignoté quelques fois, disparut.
+Au moment où la marque se posa, la flamme bleue et la foudre, aux contours insaisissables entre le réel et l'illusoire, ainsi que l'intention de bataille au sein de son âme originelle convergèrent vers ses sourcils. Elles fusionnèrent avec la marque qui, après avoir clignoté quelques fois, disparut.
 
 Le Maître Nuage-Âme poussa secrètement un soupir de soulagement, puis, devenant extrêmement respectueux, il murmura: « Ce vieil esclave salue le Maître. »
 

@@ -92,7 +92,7 @@ Liu Jinbiao sourit en secouant la tête: « Ce n'est pas un stratagème. Parmi c
 
 « Quant à ce fou, son esprit est d'une simplicité enfantine. Les ruses complexes sont inutiles contre lui; ce serait comme jouer de la harpe pour un bœuf. Cette fois, j'ai utilisé la méthode la plus simple. Bien que la faille soit évidente, elle est redoutablement efficace. »
 
-Xu Liguo rit et acquiesça: « Nous devons nous dépêcher. Nous avons encore plusieurs endroits à visiter, il faut en finir rapidement. Nous devons faire un travail impeccable, sinon, quand ce démon reviendra... » Xu Liguo frissonna, la peur le gagnant réellement. Il calcula le temps écoulé et écrasa une tablette de jade.
+Xu Liguo rit et acquiesça: « Nous devons nous dépêcher. Nous avons encore plusieurs endroits à visiter, il faut en finir rapidement. Nous devons bien effacer nos traces, sinon, quand ce démon reviendra... » Xu Liguo frissonna, la peur le gagnant réellement. Il calcula le temps écoulé et écrasa une tablette de jade.
 
 À l'instant où le jade fut brisé, le réseau de transfert de la grotte s'illumina à nouveau. Plus de dix cultivateurs apparurent, tous aux traits féroces. Leur chef était une femme au regard glacial. Ils chargèrent dans les profondeurs de la grotte.
 

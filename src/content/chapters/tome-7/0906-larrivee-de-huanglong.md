@@ -60,7 +60,7 @@ Cette rivière s'enroula autour de lui et bougea à ses côtés. Il fit un pas e
 
 *RUGISSEMENT!*
 
-Il exerçait son contrôle absolu sur le tonnerre!
+Il exerçait son contrôle sur le tonnerre!
 
 Ce cri fut assourdissant. Bien qu'il se trouvât au 17e étage du Cimetière des Immortels, ce rugissement tonitruant provoqua un bouleversement inimaginable sur la planète Suzaku!
 
@@ -94,7 +94,7 @@ En un instant, la 17e couche fut saturée de tonnerre. Le rugissement des éclai
 
 Presque chaque momie fut encerclée par d'innombrables éclairs. À chaque impact, l'endroit entier tremblait.
 
-Dans un fracas, l'une des momies s'effondra, libérant son énergie d'origine céleste vers Wang Lin. Aussitôt, la rivière souterraine balaya la zone pour en extraire l'âme. C'était comme si une âme retournait au royaume des morts.
+Dans un fracas, l'une des momies s'effondra, libérant son énergie d'origine céleste vers Wang Lin. Aussitôt, la rivière souterraine balaya la zone pour en extraire l'âme. C'était comme si l'âme était arrachée à la momie et fondue dans la rivière.
 
 La scène se répéta de manière effrénée. Finalement, lorsque le tonnerre atteignit une densité extrême, tout s'effondra et explosa soudainement!
 
@@ -114,6 +114,6 @@ Ta Shan restait impassible, mais Lei Ji inspira brusquement. Le tonnerre devant 
 
 Le monde de la culture respecte les forts!
 
-Au moment où la 18e couche fut ouverte par la force du tonnerre sur la planète Suzaku, le vieux cultivateur ressemblant à Huanglong fut saisi de stupeur. Il fit un pas et disparut.
+Au moment où la 18e couche fut ouverte par la force du tonnerre sur la planète Suzaku, le vieux cultivateur ressemblant à Huanglong fit brusquement un pas en avant et disparut.
 
 « On ne peut pas entrer dans la 18e couche! »

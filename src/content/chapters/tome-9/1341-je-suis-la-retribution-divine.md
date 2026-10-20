@@ -106,7 +106,7 @@ Un vieil homme au stade avancé de l'Âme Naissante fut stupéfait et demanda av
 
 « Si vous le souhaitez, je peux être n'importe qui dans les 7 Millions de Mondes. Si vous le voulez, je le suis. » Le jeune homme chauve sourit et les ignora. Sa main s'étendit vers le cadavre et il l'emporta avec lui en s'enfonçant dans le vide. Ses yeux se posèrent dans la direction où Wang Lin s'était dirigé, brillant d'une lueur étrange.
 
-« Il est différent de ceux qui se prétendent le Dao Céleste... Peut-être n'est-il pas un esclave du tonnerre... » Le jeune homme songea et disparut du monde. Il se situait au-delà du stade de la Formation de l'Âme, au-delà d'Ascendant; il était au stade du Purificateur du Nirvana!
+« Il est différent de ceux qui se prétendent le Dao Céleste... Peut-être n'est-il pas un esclave du tonnerre... » Le jeune homme songea et disparut du monde. Il se situait au-delà du stade de la Formation de l'Âme, au-delà d'Ascendant; il semblait avoir atteint le stade du Purificateur du Nirvana!
 
 Une telle chose devrait être impossible dans les 7 Millions de Mondes! Cela ne devrait jamais arriver! Si le Clan du Tonnerre Dispersé l'apprenait, cela provoquerait une onde de choc monumentale au sein du clan. Même l'ancêtre quitterait sa culture en retraite pour vérifier la situation!
 

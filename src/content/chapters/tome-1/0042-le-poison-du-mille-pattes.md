@@ -18,7 +18,7 @@ Parmi les disciples de la Secte Heng Yue, l'un d'eux s'esclaffa: « Je me demand
 
 Un autre poursuivit: « Ce travail lui sied à merveille. Avec son manque de talent, ce n'est qu'une perte de temps pour lui de pratiquer la culture. Il n'aura jamais la moindre chance lors des échanges. »
 
-« Il n'y a vraiment personne de plus apte que lui pour ces corvées. Junior frère Wang Lin, accomplis bien ta tâche et ne fais pas honte à la Secte Heng Yue. »
+« Il n'y a vraiment personne d'autre qu'un bon à rien comme lui pour ces corvées. Junior frère Wang Lin, accomplis bien ta tâche et ne fais pas honte à la Secte Heng Yue. »
 
 En entendant ces rires, les disciples de la Secte Xuan Dao comprirent que non seulement Wang Lin avait offensé Wang Zhuo, mais qu'en raison de sa médiocrité, il était également devenu la cible des moqueries de ses pairs.
 
@@ -48,7 +48,7 @@ De plus, ce qui attirait le plus l'attention était la paire de longues moustach
 
 Comme s'il avait senti le regard de Wang Lin, la créature ouvrit ses yeux clos et lui lança un regard glacial. Wang Lin ressentit immédiatement une vague de froid le traverser.
 
-Son corps frissonna, mais le mouvement du pouvoir spirituel en lui dispersa aussitôt cette sensation glaciale.
+Son corps frissonna, mais le mouvement du pouvoir spirituel en lui dissipa aussitôt et sans peine cette sensation glaciale.
 
 Le mille-pattes afficha une expression de surprise. Il dévisagea Wang Lin d'un air profond et pensif, puis referma les yeux pour l'ignorer. Wang Lin, quant à lui, parut intrigué. Il n'était donc pas étonnant qu'il s'agisse d'une bête spirituelle; elle possédait même des expressions quasi humaines.
 
@@ -58,13 +58,13 @@ En chemin, Wang Lin croisa certains disciples de la Secte Xuan Dao escortés par
 
 Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit: « Junior frère, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher un gros serpent; c'est son mets préféré. »
 
-Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança: « Junior sœur Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée, mais il a fait un tel scandale, à la vie à la mort, que les Anciens, impuissants, ont fini par l'accepter comme disciple honorifique. »
+Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança: « Junior sœur Ouyang, ne parle pas à ce gamin idiot, il se comporte toujours comme un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée, mais il a fait un tel scandale, à la vie à la mort, que les Anciens, impuissants, ont fini par l'accepter comme disciple honorifique. »
 
-Wang Lin reconnut immédiatement l'interlocuteur: c'était Sun Hao, celui-là même qui s'était moqué de lui durant la période d'entraînement.
+Wang Lin reconnut immédiatement l'interlocuteur: c'était Sun Hao, celui-là même qui s'était moqué de lui avec Wang Zhuo sur la montagne arrière.
 
 Quelqu'un de la Secte Xuan Dao demanda promptement: « Un disciple honorifique? Pourtant, je le vois porter le rouge. Il devrait être un disciple intérieur de la Secte Heng Yue. »
 
-Sun Hao rit bruyamment: « Je n'ai pas fini! Ce gosse a utilisé une méthode vile pour gagner les faveurs d'un des Anciens et s'est ainsi élevé rapidement au rang de disciple intérieur. Mais malgré cela, avec son talent, il ne sera que la risée de tous pour le reste de sa vie. »
+Sun Hao rit bruyamment: « Je n'ai pas fini! Ce bon à rien de gosse a utilisé une méthode vile pour gagner les faveurs d'un des Anciens et s'est ainsi élevé rapidement au rang de disciple intérieur. Mais malgré cela, avec son talent, il ne sera que la risée de tous et ne progressera jamais de sa vie. »
 
 Wang Lin leur jeta un regard indifférent et poursuivit sa route. Il revint près du mille-pattes et déposa les petits animaux à ses côtés.
 
@@ -76,4 +76,4 @@ En un clin d'œil, les petites bêtes furent réduites à une simple flaque de s
 
 Wang Lin recula de quelques pas, les yeux brillants d'intérêt. Les mille-pattes sont généralement dotés de poisons, et ces toxines constituent leur arme la plus redoutable.
 
-Enfant, il avait lu un ouvrage mentionnant que la virulence du poison d'un mille-pattes était proportionnelle à sa taille. En somme, plus le mille-pattes est immense, plus son venin est mortel.
+Enfant, il avait lu un ouvrage mentionnant que la virulence du poison d'un mille-pattes dépendait beaucoup de sa taille. En somme, plus le mille-pattes est immense, plus son venin est mortel.

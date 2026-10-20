@@ -18,15 +18,15 @@ Si Qian Feng demandait l'aide de Wang Lin, c'était par nécessité. Il était c
 
 Avec Wang Lin à leurs côtés, les chances de succès des trois étaient désormais nettement accrues.
 
-Qian Feng ne sous-estimait pas Wang Lin simplement parce qu'il était au stade initial de la Transformation de l'Âme. En réalité, au fond de lui, il considérait que Wang Lin était un adversaire digne de ce nom. Il savait également que le drapeau des âmes d'un milliard que possédait Wang Lin pouvait l'anéantir instantanément, et il le redoutait profondément.
+Qian Feng ne sous-estimait pas Wang Lin simplement parce qu'il était au stade initial de la Transformation de l'Âme. En réalité, au fond de lui, il considérait que Wang Lin était un adversaire digne de ce nom. Il savait également que le drapeau des âmes d'un milliard que possédait Wang Lin pouvait l'anéantir, et il le redoutait profondément.
 
 C'est pour cette raison qu'il avait utilisé Papillon Rouge pour retarder Wang Lin: afin de pouvoir s'emparer du Cristal de la Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
 
-Il ne voyait plus Wang Lin comme un faible, contrairement à leur première rencontre; désormais, il le considérait comme son égal, même si, au fond de son cœur, une puissante fierté subsistait.
+Il ne voyait plus Wang Lin comme un faible, contrairement à leur première rencontre; désormais, il le considérait comme son égal, même si, au fond de son cœur, un soupçon d'orgueil subsistait, profondément enfoui.
 
 Selon lui, si Wang Lin n'avait pas possédé ce drapeau des âmes d'un milliard, il n'aurait jamais pu être comparé à lui.
 
-Après avoir entendu la réponse de Wang Lin, Qian Feng réfléchit un instant et dit: « Cher cultivateur Ceng, nous deux irons en premier, puis ma jeune sœur de discipline prendra le relais. Qu'en pensez-vous? »
+Après avoir entendu la réponse de Wang Lin, Qian Feng réfléchit un instant et dit: « Cher cultivateur Ceng, nous deux irons en premier, puis ma jeune sœur apprentie prendra le relais. Qu'en pensez-vous? »
 
 Le regard de Wang Lin restait calme tandis qu'il observait Qian Feng et Liu Mei. À ce moment précis, Liu Mei tourna également les yeux vers lui et esquissa un sourire, prête à prendre la parole, mais Wang Lin détourna son regard et trancha: « Inutile de compliquer les choses. J'irai en premier, et vous deux me suivrez. »
 
@@ -98,13 +98,13 @@ C'est pourquoi il avait décidé d'avancer seul. Malgré ses soupçons, Qian Fen
 
 En réalité, même si Qian Feng n'avait pas accepté son plan ou n'avait pas proposé la coopération, Wang Lin l'aurait affronté seul de toute façon. Il ne croyait pas que Qian Feng s'abstiendrait de l'attaquer par surprise alors que lui-même affronterait la menace de l'épée. Certes, il aurait été plus difficile d'attirer Qian Feng à moins de trente-trois mètres, mais Wang Lin avait un plan B et était sûr à 80 % de réussir à l'approcher.
 
-La proposition de Qian Feng de travailler ensemble n'avait fait que confirmer les soupçons de Wang Lin: le cultivateur n'avait pas pu résister à ses pulsions et abandonnait toute idée de coopération. Il comptait utiliser l'excuse de « l'aide pour contrer l'épée » pour se rapprocher, sans réaliser que Wang Lin avait déjà tout lu en lui.
+La proposition de Qian Feng de travailler ensemble n'avait fait que confirmer les soupçons de Wang Lin: le cultivateur n'avait pas pu résister à la tentation et abandonnait toute idée de coopération. Il comptait utiliser l'excuse de « l'aide pour contrer l'épée » pour se rapprocher, sans réaliser que Wang Lin avait déjà tout lu en lui.
 
 Le sens divin de Zhou Yi émanant de la pagode joua un rôle crucial: il interrompit suffisamment l'énergie de l'épée pour permettre à Wang Lin de s'écarter, faisant de Qian Feng la cible la plus proche.
 
 Bien que ces explications soient longues, tout cela s'était produit en un clin d'œil. Au moment où l'énergie de l'épée balayait Qian Feng, Wang Lin s'arrêta net. Il ne chercha pas à fuir, mais fixa froidement Liu Mei au loin.
 
-Située en retrait, Liu Mei fut stupéfaite par ce changement soudain. Réalisant l'imminence du danger, elle se précipita vers Wang Lin.
+Située en retrait, Liu Mei fut stupéfaite par ce changement soudain. Comprenant soudain ce qui se passait, elle se précipita vers Wang Lin.
 
 En voyant Liu Mei approcher, le regard de Wang Lin devint glacial et il s'élança. Cette fois, il s'éloigna à plus de trente-trois mètres de Qian Feng.
 

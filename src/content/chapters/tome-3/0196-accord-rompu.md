@@ -42,7 +42,7 @@ Au même instant, un changement survint.
 
 Le groupe de Dou Mu se regarda et, l'ancien en tête, chacun forma des sceaux de ses deux mains. Des colonnes de lumière jaillirent de leurs mains et les relièrent les uns aux autres, formant une figure irrégulière qui encerclait Tuo Sen.
 
-Le regard glacial de Tuo Sen balaya les dix personnes. Son visage laissa apparaître un sourire sardonique. Il ricana: « Vous dix avez attendu si longtemps pour enfin saisir cette opportunité? Très bien! »
+Le regard glacial de Tuo Sen balaya les dix personnes. Son visage laissa apparaître un sourire sardonique. Il ricana: « Vous dix avez attendu si longtemps pour enfin saisir cette opportunité. Très bien! »
 
 Le visage de l'ancien devint sombre. Sans un mot, ses mains enchaînèrent des mudras constants, suivies par les neuf autres. Leurs gestes s'accéléraient de plus en plus.
 
@@ -82,7 +82,7 @@ L'incantation créa dix cercles qui apparurent instantanément autour des dix pe
 
 Tuo Sen tourna brusquement la tête pour fixer le visage avec froideur. Son expression s'assombrit: « Il semble que si tu as été le seul à m'échapper à l'époque, c'est parce que cet animal t'a sauvé! »
 
-La tête fendit sa bouche en un rictus, les yeux emplis d'un ressentiment venimeux. Sa voix, chargée de haine, déclama mot pour mot: « À l'époque où nous, les onze, avons cru à tes mensonges, brisé le sceau que Tu Si avait placé sur toi et t'avons rendu ta liberté, nous avons réalisé que c'était la plus grande erreur de notre vie. Aujourd'hui, nous allons réparer cette erreur. Peu importe qu'il s'agisse de l'héritage du pouvoir ou de celui de la mémoire, les deux seront à nous. »
+La tête fendit sa bouche en un rictus, les yeux emplis d'un ressentiment venimeux. Sa voix, chargée de haine, déclama mot pour mot: « À l'époque où nous, les onze, avons cru à tes mensonges, brisé le sceau que l'Ancien Dieu Tu Si avait placé sur toi et t'avons rendu ta liberté, nous avons réalisé que c'était la plus grande erreur de notre vie. Aujourd'hui, nous allons effacer cette erreur. Peu importe qu'il s'agisse de l'héritage du pouvoir ou de celui de la mémoire, les deux seront à nous. »
 
 Tuo Sen fit pivoter sa lance. Un sourire sarcastique étira ses lèvres et il dit calmement: « D'abord, dix personnes qui me trahissent, ensuite cet animal qui cachait tout un autre monde dans sa gueule... Ce ne sont sûrement pas là tous vos tours? Si vous en avez d'autres, montrez-les donc. » Sur ces mots, il posa son regard sur Wang Lin et les centaines de cultivateurs démoniaques médusés qui se trouvaient hors du champ de bataille.
 

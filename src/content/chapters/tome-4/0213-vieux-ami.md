@@ -41,9 +41,9 @@ L'homme d'âge moyen voulut prendre la parole, mais il hésita un instant avant 
 
 Le regard de l'Ancien balaya Wang Lin. À cet instant, son regard fut aussi tranchant que des lames, et il perçut clairement tout ce que Wang Lin était, de l'intérieur comme de l'extérieur.
 
-Wang Lin ricana intérieurement. Bien que la culture de cet Ancien fût au stade de l'Âme Naissante, celle de son corps actuel n'était encore qu'au stade de la Condensation de Qi; il n'avait donc aucune crainte, bien que son corps tremblât et que ses yeux trahissent une expression de peur.
+Wang Lin ricana intérieurement. Bien que la culture de cet Ancien fût au stade de l'Âme Naissante, celle du corps actuel de Wang Lin n'était encore qu'au stade de la Condensation de Qi; il n'avait donc aucune crainte, bien que son corps tremblât et que ses yeux trahissent une expression de peur.
 
-Après un instant, l'Ancien détourna le regard. Il esquissa un léger sourire: « Avoir obtenu une pilule montre que ce garçon possède une affinité du destin non négligeable. Soit, prends-le comme disciple. » Il ne craignait pas qu'un disciple d'une autre secte s'immisce dans son école, car les objets contenus dans la brume choisissaient leurs propriétaires d'eux-mêmes, et l'une des conditions pour être choisi était de ne nourrir aucune intention malveillante envers la secte. Cependant, il ignorait que Wang Lin avait utilisé une ancienne restriction pour forcer l'objet à sortir.
+Après un instant, l'Ancien détourna le regard. Il esquissa un léger sourire: « Avoir obtenu une pilule montre que ce garçon possède une affinité du destin non négligeable. Soit, prends-le comme disciple. » Il ne craignait pas qu'un disciple d'une autre secte s'immisce dans son école, car les objets contenus dans la brume choisissaient leurs propriétaires d'eux-mêmes, et si un objet trouvait son maître, cela signifiait que celui-ci n'avait rien d'anormal. Cependant, il ignorait que Wang Lin avait utilisé une ancienne restriction pour forcer l'objet à sortir.
 
 Les yeux de Zhou Lin s'illuminèrent immédiatement. Il remercia le Chef de Secte, puis lança un regard à Wang Lin en lui faisant signe de le suivre.
 
@@ -51,7 +51,7 @@ Mais à cet instant précis, une vieille femme assise en deuxième position sur 
 
 La jeune fille se montra très habile. Elle s'agenouilla rapidement au sol et dit: « Le disciple salue sa maîtresse. »
 
-À l'instant où ces mots furent prononcés, tous les spectateurs affichèrent des expressions étranges. Même la vieille femme fut stupéfaite. Après l'avoir fixée un moment, elle sourit: « Tu es une fille bien spirituelle. Savais-tu que tous les disciples qui entrent dans ma Secte Ciel Nuageux sont considérés comme des disciples de la 10ème génération? »
+À l'instant où ces mots furent prononcés, tous les spectateurs affichèrent des expressions étranges. Même la vieille femme fut stupéfaite. Après l'avoir fixée un moment, elle sourit: « Tu es une fille bien spirituelle. Savais-tu que tous les disciples qui entrent dans ma Secte Ciel Nuageux sont rétrogradés au rang de disciples de la 10ème génération? »
 
 Le visage de la jeune fille devint rouge. Elle triturait le bord de ses vêtements, incapable de répondre.
 
@@ -109,11 +109,11 @@ Zhou Lin se tenait dans le jardin. Lorsque Wang Lin apparut, il lui lança un mo
 
 « À l'intérieur de ce jade se trouvent des décennies d'expérience et plusieurs recettes de pilules. Étudie-les par toi-même. Si tu as des problèmes, rends-toi à la cour sud. Dans la troisième cour, tu trouveras le maître de ton maître. Je l'ai déjà informée de mon intention de te prendre comme disciple. »
 
-Wang Lin prit le jade. Il le plaça sur son front pour le scanner et fut immédiatement stupéfait. Il ne s'attendait pas à ce que Zhou Lin lui remette un tel trésor. Ce jade contenait les innombrables années d'expérience de l'alchimiste, notamment ses échecs et les causes de la baisse de qualité des pilules.
+Wang Lin prit le jade. Il le plaça sur son front pour le scanner et fut immédiatement stupéfait. Il ne s'attendait pas à ce que Zhou Lin lui remette un tel trésor. Ce jade contenait les décennies d'expérience de l'alchimiste, notamment ses échecs et les causes de la baisse de qualité des pilules.
 
 Les informations y étaient extrêmement détaillées. On pouvait dire que c'était d'une valeur inestimable pour le Wang Lin actuel. Il venait à peine de rencontrer Zhou Lin; il n'aurait jamais imaginé que son nouveau maître lui offrirait une telle part de savoir. Cela contrastait violemment avec l'idée qu'il se faisait des relations entre maître et disciple, faites de ruses et de trahisons. Wang Lin ressentit un mélange d'émotions contradictoires en tenant le jade.
 
-Zhou Lin ne remarqua pas ses pensées. Il poursuivit après un silence: « Le maître de ton maître est une personne très douce, elle t'enseignera donc toutes les bases de l'alchimie. Tu es également libre d'utiliser les herbes du jardin, mais n'oublie pas de ne pas arracher les racines pour qu'elles puissent continuer à croître. Quant à ce fourneau, ne le touche surtout pas. Sans avoir atteint un certain niveau en alchimie, il est impossible de l'utiliser. »
+Zhou Lin ne remarqua pas ses pensées. Il poursuivit après un silence: « Le maître de ton maître est une personne très douce, elle t'expliquera en détail les points d'attention de l'alchimie. Tu es également libre d'utiliser les herbes du jardin, mais n'oublie pas de ne pas arracher les racines pour qu'elles puissent continuer à croître. Quant à ce fourneau, ne le touche surtout pas. Sans avoir atteint un certain niveau en alchimie, il est impossible de l'utiliser. »
 
 Wang Lin prit une profonde inspiration et hocha la tête.
 
@@ -145,7 +145,7 @@ Une fois le test effectué, le corps principal se rétracta dans le cercle. C'é
 
 Deux mois passèrent rapidement sans que Zhou Lin ne revienne. La cour de Wang Lin était totalement isolée; personne n'y venait. Wang Lin avait déjà étudié scrupuleusement le jade laissé par son maître et pouvait confirmer que les informations n'avaient pas été altérées. Quant à la bête, elle était devenue nettement plus forte que ses congénères, prouvant l'innocuité de la pilule.
 
-Cependant, cela troublait Wang Lin. Il avait la certitude que Zhou Lin le considérait réellement comme son disciple. Mais cette relation était établie sous prétexte d'une absence de conflit d'intérêts. Wang Lin ignorait ce qui se passerait si un tel conflit survenait, mais ce sentiment était totalement nouveau pour lui.
+Cependant, cela troublait Wang Lin. Il avait la certitude que Zhou Lin le considérait réellement comme son disciple. Mais cette relation reposait sur l'absence d'arrière-pensée. Wang Lin ignorait ce qui se passerait si un tel conflit survenait, mais ce sentiment était totalement nouveau pour lui.
 
 Durant ces deux mois, sa culture passa du 3ème au 8ème niveau. Outre le liquide spirituel, son assiduité en alchimie avait grandement accéléré ses progrès. Bien qu'il soit venu chercher des pilules, il préférait désormais les fabriquer lui-même grâce aux méthodes et matériaux à sa disposition.
 
@@ -153,13 +153,13 @@ Le chemin de l'alchimie est ardu. Au-delà du talent, le travail acharné est pr
 
 Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept pilules Pei Yuan. Grâce aux pilules, au liquide spirituel et au décalage temporel de la perle défiant le ciel, il avait pu bondir du 3ème au 8ème niveau en deux mois.
 
-Un jour, une explosion retentit dans sa cour. Une onde de lumière semblable à des ondulations aquatiques traversa la pièce avant que tout ne redevienne calme. Wang Lin sortit, couvert de poussière, avec un sourire amer: cette dernière tentative de raffinage avait encore échoué. Il n'avait pas su contrôler l'intensité du feu, provoquant la rupture du fourneau et le gaspillage des matériaux.
+Un jour, une explosion retentit dans sa cour. Une onde de lumière semblable à des ondulations aquatiques traversa la pièce avant que tout ne redevienne calme. Wang Lin sortit, couvert de poussière, avec un sourire amer: cette dernière tentative de raffinage avait encore échoué. Il n'avait pas su contrôler l'intensité du feu, provoquant la rupture du fourneau et la perte de toutes les pilules.
 
 Heureusement, la Secte Ciel Nuageux ne manquait de rien, surtout pas de fours. En deux mois, Wang Lin en avait déjà brisé quatre sur les sept dont il disposait. Il sortit dans la cour, pensif. Dans chaque pièce, on pouvait contrôler le feu via l'énergie spirituelle grâce à un interrupteur. La force brute n'importait pas; tout résidait dans une technique de micro-contrôle.
 
 Utiliser son énergie comme pont entre le feu et le fourneau exigeait une stabilité constante de la flamme, une stabilité dynamique qui devait s'ajuster aux changements internes du fourneau. Le moindre écart entraînait l'échec du raffinage, ou pire, l'explosion du fourneau. C'était l'obstacle majeur des débutants; un cultivateur de l'Âme Naissante pourrait cependant utiliser son feu d'âme pour s'en affranchir.
 
-Le contrôle du feu n'était pas tout: la compréhension des interactions entre les matériaux était cruciale. Avoir une recette ne suffit pas : l'alchimie n'est pas une technique standard que chacun peut apprendre, et croire qu'une seule recette permettrait à cent personnes de produire cent pilules identiques serait absurde. Une recette n'est qu'un guide. En pratique, de nombreux facteurs imprévisibles entrent en jeu: l'énergie spirituelle ambiante, les variations environnementales, l'impureté des composants, ainsi que les associations entre herbes, chacune pouvant produire de quelques variantes à plusieurs centaines. Devenir un maître alchimiste est une tâche titanesque.
+Le contrôle du feu n'était pas tout: la compréhension des interactions entre les matériaux était cruciale. Avoir une recette ne suffit pas : l'alchimie n'est pas une technique standard que chacun peut apprendre, et croire qu'une seule recette permettrait à cent personnes de produire cent pilules identiques serait absurde. Une recette n'est qu'un guide. En pratique, de nombreux facteurs imprévisibles entrent en jeu: l'énergie spirituelle ambiante, les variations environnementales, l'impureté des composants, ainsi que les associations entre herbes, chacune pouvant produire de quelques variantes à des centaines, voire des milliers. Devenir un maître alchimiste est une tâche titanesque.
 
 Wang Lin apprit que la qualité des pilules était divisée en neuf rangs, tout comme les alchimistes. Le rang de l'alchimiste détermine celui des pilules produites. Actuellement, seuls trois alchimistes de rang 5 existaient dans la secte, dont la maîtresse de Zhou Lin.
 
@@ -169,7 +169,7 @@ Wang Lin erra dans la cour, cherchant à comprendre son échec. Tout semblait co
 
 Il tenta de nouveau. Cette fois encore, au moment de la réussite imminente, le feu devint incontrôlable et le fourneau explosa. Wang Lin regarda les débris avec un visage sombre. Il essaya deux autres fois, mais les deux fours éclatèrent également. En deux mois, ses sept fourneaux étaient réduits en miettes.
 
-Il soupira amèrement: « Si seule la pilule avait échoué, j'aurais pu continuer, mais là, je n'ai plus de matériel. » Il craignait d'être le premier disciple expulsé pour avoir trop brisé de fours. Il connaissait leur valeur et chaque explosion lui serrait le cœur.
+Il soupira amèrement: « Si seule la pilule avait échoué, j'aurais pu continuer, mais là, je n'ai plus de fourneaux. » Il craignait d'être le premier disciple expulsé pour avoir trop brisé de fours. Il connaissait leur valeur et chaque explosion lui serrait le cœur.
 
 Il réalisa aussi que si les alchimistes étaient nombreux, les maîtres étaient rares, car leur formation coûte une fortune en matériaux et en instruments. Une secte ordinaire ne pourrait même pas en entretenir un seul; seule la Secte Ciel Nuageux pouvait se permettre une telle armée d'alchimistes.
 
@@ -217,7 +217,7 @@ Wang Lin resta calme: « Si tu ne veux pas le dire, ce n'est pas grave. »
 
 Voyant que Wang Lin ne céderait pas, Cheng Xian s'empressa: « Frère aîné Wang, regarde, je t'appelle même frère maintenant! Il te suffit de quelques mots pour me donner accès à la cour ouest. C'est une bien petite faveur! »
 
-Wang Lin se tourna vers lui: « Tu veux que j'aille chercher cette fille pour que tu puisses utiliser ce prétexte et rencontrer la grande sœur Wang Tong dont tu rêves? »
+Wang Lin se tourna vers lui: « Tu veux que j'aille chercher cette fille pour que tu puisses utiliser ce prétexte, entrer dans la cour ouest et rencontrer la grande sœur Wang Tong dont tu rêves? »
 
 Cheng Xian fut déstabilisé, puis sourit de plus belle: « Oui, oui! C'est une toute petite tâche. Alors, qu'en dis-tu, frère aîné? »
 

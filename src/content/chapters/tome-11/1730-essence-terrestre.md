@@ -14,7 +14,7 @@ Le dernier à prendre la parole fut l'homme d'âge mûr. Il fronça les sourcils
 
 « Quand notre Secte Gui Yi a-t-elle jamais eu peur de qui que ce soit? Même si ce Wang Lin est célèbre, et alors? Même s'il était un dragon, il devrait encore se prosterner devant nous! » s'écria la femme d'âge mûr.
 
-Le vieil homme en robe noire agita sa manche et dit froidement: « Inutile de discuter, cet ancien a pris sa décision. De plus, cela ne signifie pas que l'Ancien Na Duo ignore tout de cette affaire. Puisqu'il ne l'a pas empêché, voyons quel genre de démon à trois têtes et six bras est ce Wang Lin! »
+Le vieil homme en robe noire agita sa manche et dit froidement: « Inutile de discuter, cet ancien a pris sa décision. De plus, cela ne signifie pas que l'Ancien Na Duo ignore tout de cette affaire. Puisqu'il ne l'a pas empêché, voyons quel prodige à trois têtes et six bras est ce Wang Lin! »
 
 D'un revers de manche, l'espace entre les quatre se déforma et un miroir apparut. Le miroir révélait Wang Lin, qui marchait vers l'intersection des cinq anneaux!
 

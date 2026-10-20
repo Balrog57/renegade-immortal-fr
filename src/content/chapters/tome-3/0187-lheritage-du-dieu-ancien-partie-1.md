@@ -14,7 +14,7 @@ Il n'y avait aucune restriction dans l'espace de la Perle Défiant le Ciel; on p
 
 Wang Lin poussa un soupir de soulagement. D'un geste de la main droite, il sortit le sac de rangement de l'Empereur Antique. En y projetant son Sens Divin, il ressentit une force de résistance émaner du sac. Wang Lin resta impassible : il était clair que la faille spatiale dans laquelle Bossu Meng avait jeté l'Empereur Antique et la gigantesque faille de la sortie du troisième essai menaient au même endroit.
 
-Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin n'en fût pas tout à fait certain: à l'époque, le sac de rangement de Bossu Meng avait perdu son Sens Divin, ce qui aurait dû signifier sa mort, et pourtant il était réapparu.
+Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin n'en fût pas tout à fait certain: à l'époque, le sac de rangement de Bossu Meng avait perdu son Sens Divin, ce qui aurait dû signifier sa mort, et pourtant Bossu Meng était réapparu.
 
 Désormais, Wang Lin possédait deux sacs de rangement qu'il ne pouvait ouvrir. L'un appartenait à l'Empereur Antique, l'autre provenait d'un squelette mystérieux trouvé dans une grotte du Sanctuaire de la Guerre Shinto.
 
@@ -24,13 +24,13 @@ Une fois cette tâche accomplie, il prit une profonde inspiration et s'élança 
 
 Après tout, lors du deuxième essai, il avait obtenu un morceau de jade pour fabriquer un drapeau de restriction, qui soulignait que le matériau principal de ce trésor, la pierre d'encre, ne se trouvait que dans la Mer de Connaissance.
 
-Après avoir traversé rapidement cet espace où la distinction entre le ciel et la terre s'effaçait, Wang Lin ne percevait toujours aucune limite au firmament.
+Après avoir traversé rapidement cet espace où la distinction entre le ciel et la terre s'effaçait, Wang Lin ne percevait toujours aucune limite au firmament, seulement des étendues bleues.
 
 Il se souvint des paroles de Duanmu et des autres: le corps d'un Dieu Ancien était colossal. Un Dieu Ancien parvenu à maturité était plus vaste que la planète Suzaku tout entière. Le simple trajet entre deux points d'acupuncture représentait une distance inimaginable.
 
 Bien que la zone fût immense, elle était dépourvue de vie ou de toute restriction; seul régnait le silence. Wang Lin ne marqua aucun arrêt et continua sa progression.
 
-Dans le corps du Dieu Ancien, il n'y avait aucune restriction sur le Sens Divin, tout comme dans le monde extérieur. L'âme de Wang Lin s'était considérablement nourrie dans le troisième essai, en particulier grâce à cette entité massive qui s'apparentait à un dévoreur d'âmes, permettant à son âme de croître par bonds prodigieux.
+Dans le corps du Dieu Ancien, il n'y avait aucune restriction sur le Sens Divin, tout comme dans le monde extérieur. Le Sens Divin de Wang Lin s'était considérablement nourri dans le troisième essai, en particulier grâce à cette âme errante qui frôlait la transformation en dévoreur d'âmes, lui permettant de croître par bonds prodigieux.
 
 Lorsqu'il déployait son Sens Divin, celui-ci pouvait s'étendre sur des milliers de milles. Ainsi, il surveillait constamment ses environs tout en volant vers l'avant. Après un long moment, Wang Lin s'arrêta brusquement, le regard figé par la stupeur. Son énergie spirituelle s'agita violemment, comme si une force mystérieuse la tirait, prête à jaillir.
 
@@ -56,7 +56,7 @@ Désormais, il n'avait même plus la force d'activer la technique d'Évasion du 
 
 Au fond de lui, il espérait ardemment que son maître puisse le rejoindre avant que les âmes errantes ne l'engloutissent, même si cela signifiait se transformer en démon. Il préférait de loin préserver sa vie.
 
-Hélas, ce souhait serait difficile à réaliser: à cet instant précis, la dernière ligne de défense de son Âme Naissante s'effondra sous l'assaut des âmes errantes, exposant son âme Zifu.
+Hélas, ce souhait serait difficile à réaliser: à cet instant précis, la dernière ligne de défense de son Âme Naissante s'effondra sous l'assaut des âmes errantes, exposant son Sens Divin Zifu.
 
 Les âmes errantes affichèrent une expression avide et se précipitèrent en avant. Le Seigneur Démon des Six Désirs était impuissant, mais le squelette qu'il tenait libéra soudain une lumière dorée.
 
@@ -86,7 +86,7 @@ Dès l'apparition de l'os, plusieurs éclairs violets dans le tourbillon s'immob
 
 L'énergie fut rapidement absorbée par l'os. Ensuite, le Seigneur Démon des Six Désirs commença à exécuter des séries de sceaux manuels avec l'os. Si Wang Lin avait été présent, il aurait réalisé qu'il s'agissait des mêmes sceaux que ceux obtenus auprès de l'Empereur Antique, mais au lieu d'environ 400 séries, il y en avait plus de 1000.
 
-Ces mille et plus sceaux furent tous exécutés par cet os. Bientôt, un tourbillon apparut soudainement devant lui. Les yeux du Seigneur Démon des Six Désirs s'illuminèrent. S'il avait osé venir ici, c'est parce qu'il sentait avoir pleinement compris les mystères de cet os et que, grâce à lui, il pourrait repartir comme il l'avait fait il y a mille ans.
+Ces mille et plus sceaux furent tous exécutés par cet os. Peu à peu, un tourbillon apparut devant lui. Les yeux du Seigneur Démon des Six Désirs s'illuminèrent. S'il avait osé venir ici, c'est parce qu'il sentait avoir pleinement compris les mystères de cet os et que, grâce à lui, il pourrait repartir comme il l'avait fait il y a mille ans.
 
 Cet os était le trésor d'héritage que Wang Lin recherchait. Autrefois, le Magicien Démon Céleste l'avait confié au Seigneur Démon des Six Désirs, et après mille ans de recherches, le Seigneur Démon des Six Désirs sentait qu'il avait enfin percé ses secrets.
 
@@ -144,8 +144,8 @@ Par la suite, le Désir d'Illusion, le Désir de Plaisir, le Désir de Jalousie 
 
 Même à ce stade, il n'envisageait pas de s'arrêter, continuant d'absorber sans fin tous les désirs. Lorsqu'il absorba le Désir d'Obsession, tout son corps dégagea une aura qui montait jusqu'aux cieux.
 
-Les six désirs dans le corps du Dieu Ancien avaient été dispersés suite à un changement dans l'âme du Dieu Ancien avant sa mort. Le Seigneur Démon des Six Désirs avait désormais absorbé une partie de ces désirs, sa Méthode de Culture Démoniaque Céleste Mystérieuse dépassant désormais l'ultime que son créateur, le Magicien Démon Céleste, avait imaginé à l'époque.
+Les six désirs dans le corps du Dieu Ancien avaient été dispersés suite à un changement dans le Sens Divin du Dieu Ancien avant sa mort. Le Seigneur Démon des Six Désirs avait désormais absorbé une partie de ces désirs, sa Méthode de Culture Démoniaque Céleste Mystérieuse dépassant désormais l'ultime que son créateur, le Magicien Démon Céleste, avait imaginé à l'époque.
 
 À cet instant, le Magicien Démon Céleste afficha un sourire. Même son visage habituellement sombre ne put s'empêcher de rire. Il se précipita rapidement vers le Seigneur Démon des Six Désirs.
 
-« Mon bon disciple, ta tâche est accomplie. Il semble que ce vieil homme ne t'ait pas adopté en vain. Cette fois, tu as véritablement montré ta gratitude! »
+« Mon bon disciple, ta tâche est accomplie. Il semble que ce vieil homme ne t'ait pas adopté en vain. Cette fois, considère que tu me rends ainsi ce que tu me dois! »

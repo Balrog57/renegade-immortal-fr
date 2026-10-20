@@ -152,7 +152,7 @@ Loin d'être déçu, Wang Lin réfléchit un moment. Il se souvint des messages,
 
 Après un silence, Wang Lin inspecta les trois étages de la pagode. C'est au deuxième étage qu'il vit le message familier à côté des carrés vides:
 
-« Dans cette pagode aux trésors, seul le contenu de cette case m'a paru digne d'intérêt; je dois dire que je suis assez déçu par cette terre des anciens dieux. »
+« Dans cette pagode aux trésors, seul le contenu de cette case m'a paru digne d'intérêt; je dois dire que je suis un peu déçu par cette terre des anciens dieux. »
 
 Cette déclaration était empreinte d'un immense orgueil. Wang Lin y réfléchit un instant et se dirigea vers le troisième étage.
 

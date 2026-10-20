@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 266 - Cultivator of Xue Yu
 slug: cultivateur-de-xue-yue
 ---
-Wang Lin agita la main et la porte s'ouvrit silencieusement. Une haute silhouette enveloppée d'une cape de pluie entra. L'homme était recouvert d'une fine couche de neige. Il ne prononça pas un mot en pénétrant dans la pièce.
+Wang Lin agita la main et la porte s'ouvrit silencieusement. Une haute silhouette enveloppée d'une cape de pluie entra. L'homme était recouvert d'une épaisse couche de neige. Il ne prononça pas un mot en pénétrant dans la pièce.
 
 Wang Lin jeta un regard à l'inconnu et dit: « Nous ne nous sommes pas vus depuis plus de dix ans. Cher compagnon cultivateur, je suis ravi de te voir en bonne santé. »
 

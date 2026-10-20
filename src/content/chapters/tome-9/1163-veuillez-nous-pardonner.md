@@ -16,7 +16,7 @@ L'environnement était plongé dans un silence absolu, d'un calme terrifiant!
 
 Zhao Yu, de la Secte de la Collection Démoniaque, haleta, le choc se lisant dans son regard. Il fixa la cour sud et recula de plusieurs dizaines de pieds. Il ne s'attendait pas à ce que le Grand Oncle-Maître de la Secte de l'Origine soit aussi puissant.
 
-En repensant à ses paroles frivoles où il avait taquiné Lu Yanfei, il sentit son cuir chevelu picoter. Ce n'était pas qu'il convoitait Lu Yanfei, c'était simplement sa nature. De plus, toutes les sectes de rang 5 qu'ils avaient rencontrées s'étaient montrées très polies et respectueuses, les laissant agir à leur guise.
+En repensant à ses paroles frivoles où il avait taquiné Lu Yanfei, il sentit son cuir chevelu picoter. Ce n'était pas qu'il convoitait Lu Yanfei, c'était simplement sa nature. De plus, toutes les sectes de rang 5 qu'ils avaient rencontrées s'étaient montrées très polies et respectueuses, les laissant agir à leur guise, comme si on pouvait les malmener.
 
 « La Secte de l'Origine possède un cultivateur aussi puissant?! » Les pupilles de Feng Peishan se rétractèrent et son expression devint grave. Quelqu'un capable de blesser Zhou Hai si facilement devait être un vieux monstre redoutable.
 

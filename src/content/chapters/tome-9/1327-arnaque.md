@@ -30,7 +30,7 @@ Dans la partie orientale du Système Stellaire Antique, des ondulations se dissi
 
 « Le dernier. Une fois que j'y serai arrivée, je serai sauvée! »
 
-Cependant, juste au moment où elle levait le pied droit, le monde trembla et l'espace lui-même fut ébranlé. Des éclairs de lumière sanglante percèrent le vide de toutes parts pour charger la femme en blanc.
+Cependant, juste au moment où elle levait le pied droit, le monde trembla et l'espace lui-même fut ébranlé. Des lueurs sanglantes, devenues autant d'épées, percèrent le vide de toutes parts pour charger la femme en blanc.
 
 La femme en blanc ne daigna même pas jeter un regard à ces éclairs; elle fixa seulement Wang Lin, qui la poursuivait au loin, les yeux emplis de rancœur et de moquerie. Lorsque les épées de sang la traversèrent, son corps était déjà devenu transparent. Peu importe les assauts de l'épée, elle ne parvenait pas à blesser sa forme.
 
@@ -50,7 +50,7 @@ Cela lui permit de percer toute réalité. Il traversa les ondulations et saisit
 
 Wang Lin était revenu à son état normal, sa main droite serrant fermement la femme. Il leva sa main gauche pour fouiller son âme, mais une aura blanche laiteuse jaillit violemment. Ce n'était pas pour attaquer Wang Lin, mais pour détruire la femme en blanc elle-même!
 
-N'ayant pas le temps de fouiller son âme, Wang Lin était réticent à l'abandonner. Alors que l'aura blanche laiteuse s'apprêtait à la réduire à néant, un éclair de lumière sanglante jaillit et l'épée de sang transperça la femme. Il détruisit son âme d'origine avant que l'aura ne puisse le faire!
+N'ayant pas le temps de fouiller son âme, Wang Lin était réticent à l'abandonner. Alors que l'aura blanche laiteuse s'apprêtait à la réduire à néant, un éclair de lumière sanglante jaillit et l'épée de sang transperça la femme. Il détruisit son âme originelle avant que l'aura ne puisse le faire!
 
 C'était ainsi qu'il dérobait l'âme du cycle des réincarnations et volait les Flammes Joss de la Concubine Bleue!
 
@@ -88,7 +88,7 @@ La femme en argent réfléchit silencieusement en tournant son regard vers Wang 
 
 « Je ressens seulement que l'aura à l'intérieur de ce fil doré m'est très familière… »
 
-Les yeux de Wang Lin brillèrent alors qu'il examinait attentivement la femme, puis il dit soudain: « Se pourrait-il que vous soyez l'une des huit Concubines Impériales Anciennes? »
+Les yeux de Wang Lin brillèrent alors qu'il examinait attentivement la femme, puis il dit soudain: « Se pourrait-il que vous soyez l'une des huit Concubines Impériales Antiques? »
 
 En parlant, ses yeux étaient aussi perçants que des éclairs lorsqu'il plongea son regard dans le sien.
 
@@ -102,7 +102,7 @@ Cependant, au moment où elle allait pénétrer dans la fissure spatiale, elle s
 
 La fissure de l'espace de stockage se referma après que la femme en argent fut entrée.
 
-Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, Shui Daozi, au Maître du Dao Rêve Bleu, il avait appris que les Flammes Joss étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
+Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, du combat contre Shui Daozi, aux paroles du Maître du Dao Rêve Bleu, il avait appris que les Flammes Joss étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
 
 Il était lui-même parvenu à cette conclusion, mais à présent, les paroles de la femme argentée disaient exactement le contraire!
 
@@ -114,8 +114,8 @@ Après avoir réfléchi un instant, Wang Lin fusionna avec le monde.
 
 « La femme en blanc est morte et son âme réside désormais dans mon Monde du Vent et de la Pluie. Personne ne devrait prêter attention à moi pour l'instant… De cette façon, j'ai une chance de compléter mes essences! » Wang Lin se fondit dans le monde et déploya son Sens Divin.
 
-« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan Tonnerre Dispersé ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui semble exister depuis la création du ciel et de la terre. Cet éclair ne s'éteint pas depuis cent millions d'années, traversant sans cesse le ciel et la terre, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
+« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan du Tonnerre Dispersé ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui semble exister depuis la création du ciel et de la terre. Cet éclair ne s'éteint pas depuis cent millions d'années, traversant sans cesse le ciel et la terre, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
 
 « Si je dévore ce tonnerre, cela permettra à mon essence de tonnerre de croître… Quant aux Flammes Joss… Au final, laquelle de ces versions dit la vérité? » Wang Lin utilisa la Déformation Spatiale pour apparaître dans un domaine stellaire étranger. Un éclat de froideur passa dans ses yeux.
 
-« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Tonnerre Dispersé.
+« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan du Tonnerre Dispersé.

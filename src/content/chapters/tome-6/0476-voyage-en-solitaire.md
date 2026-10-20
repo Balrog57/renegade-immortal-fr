@@ -54,7 +54,7 @@ Situ Nan toucha son sac de rangement et rit: « La récolte de ce vieux fou est 
 
 Les cultivateurs de la planète commerciale poursuivirent un moment avant d'abandonner. Après tout, peu de gens possédaient une boussole stellaire, et la culture de Situ Nan était tout simplement trop puissante. Même s'ils parvenaient à le rattraper, ils n'y laisseraient que leur vie.
 
-« Avez-vous obtenu mon encre de neige? » Wang Lin se lécha les lèvres. Bien qu'il n'ait pas participé activement, l'encre de neige était ce qu'il avait demandé, il était donc lié à cette affaire.
+« Avez-vous obtenu mon encre de neige? » Wang Lin se lécha les lèvres. Bien qu'il n'ait pas participé activement, l'encre de neige était ce qu'il avait demandé, il était donc, indirectement, son complice.
 
 Situ Nan rit et sortit une petite bouteille. Il la lança à Wang Lin en disant: « Tiens. Il y en a environ trois liang, peut-être un peu plus. »
 

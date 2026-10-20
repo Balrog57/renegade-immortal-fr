@@ -10,11 +10,11 @@ slug: la-poupee-yi-si
 
 Wang Lin comprenait qu'il y avait de nombreuses choses étranges dans ce brouillard; il avait d'ailleurs déjà aperçu la plupart des bêtes féroces de cet endroit. Il modifia sa vitesse pour éviter les créatures à proximité et se dirigea vers l'avant-dernière couche.
 
-C'était précisément dans cette avant-dernière couche que Wang Lin avait ressenti cette aura terrifiante. Cependant, plus il y pensait, plus il était convaincu que cette aura était l'atout le plus puissant du Souverain Céleste aux Sept Couleurs!
+C'était précisément dans cette avant-dernière couche que Wang Lin avait ressenti cette aura terrifiante. Cependant, plus il y pensait, plus il était convaincu que cette aura était le coup mortel le plus redoutable du Souverain Céleste aux Sept Couleurs!
 
 La Poupée Yi Si!
 
-Depuis son entrée au cœur de la grotte, chaque fois qu'il tuait quelqu'un, il sacrifiait aussitôt son âme en suivant la méthode laissée dans la troisième âme du Souverain Céleste aux Sept Couleurs. Après chaque sacrifice, un lien de plus apparaissait entre lui et la Poupée Yi Si.
+Depuis son entrée au cœur de la grotte, chaque fois qu'il tuait quelqu'un, il sacrifiait aussitôt l'âme de sa victime en suivant la méthode laissée dans la troisième âme du Souverain Céleste aux Sept Couleurs. Après chaque sacrifice, un lien de plus apparaissait entre lui et la Poupée Yi Si.
 
 Il avait tué beaucoup de gens à ce stade et, grâce à cette connexion mystérieuse, Wang Lin était sûr à 80 % que cette aura terrifiante appartenait à Yi Si!
 
@@ -50,7 +50,7 @@ La troisième concubine progressait rapidement dans le brouillard. Elle ne conna
 
 Ses yeux s'illuminèrent et elle se dirigea immédiatement, avec prudence, vers la source de cette lueur.
 
-Après le temps d'un bâton d'encens, elle aperçut l'ancien réseau de transfert au sol. Elle hésita longuement devant la formation avant de serrer les dents et d'y pénétrer à son tour.
+Après le temps d'un bâton d'encens, elle aperçut l'ancien réseau de transfert au sol. Wang Lin avait déjà disparu à l'intérieur. Elle hésita longuement devant la formation avant de serrer les dents et d'y pénétrer à son tour.
 
 Dans l'avant-dernière couche de la Tombe Antique, le brouillard n'était pas aussi dense que dans les couches supérieures. Wang Lin progressait avec précaution. Bien qu'il y eût de la lumière, elle était rouge, semblable à du sang frais.
 

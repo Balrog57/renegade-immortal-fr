@@ -82,7 +82,7 @@ Teng Li se tenait à l'extérieur de la forêt. Son regard hésitait, mais il é
 
 Après une courte réflexion, Teng Li prit sa décision. Les trésors de Wang Lin étaient tels qu'il était déterminé à les faire siens. Sans hésiter, il s'enfonça dans la forêt.
 
-De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillage. Le sol était recouvert d'une couche de feuilles mortes. D'innombrables insectes venimeux rampaient sur la terre et des serpents glissaient rapidement entre les débris végétaux. Des arbres millénaires parsemaient le paysage. Une multitude de fleurs et de plantes rares couvraient le sol et d'innombrables bêtes étranges et oiseaux de proie s'entre-déchiraient chaque fois qu'ils se croisaient. L'odeur de la décomposition des feuilles et des carcasses, s'accumulant au fil du temps, s'était changée en miasmes capables de tuer sans laisser de trace.
+De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillage. Le sol était recouvert d'une couche de feuilles mortes. D'innombrables mille-pattes venimeux rampaient sur la terre et des serpents glissaient rapidement entre les débris végétaux. Des arbres millénaires parsemaient le paysage. Une multitude de fleurs et de plantes rares couvraient le sol et d'innombrables bêtes étranges et oiseaux de proie s'entre-déchiraient chaque fois qu'ils se croisaient. L'odeur de la décomposition des feuilles et des carcasses, s'accumulant au fil du temps, s'était changée en miasmes capables de tuer sans laisser de trace.
 
 Cet endroit était plongé dans la brume toute l'année. Des arbres étranges croissaient jusqu'à atteindre les cieux, et des bêtes aussi puissantes que des cultivateurs de niveau Âme Naissante y résidaient. Le moindre manque de prudence pouvait y coûter la vie.
 

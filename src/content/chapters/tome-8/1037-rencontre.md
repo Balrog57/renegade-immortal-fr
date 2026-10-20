@@ -24,7 +24,7 @@ La voix calme de Wang Lin laissait transparaître une pointe de froideur. Il fit
 
 « Ancêtre Sanguin, vous n'avez pas besoin de retourner à la 14e couche. Je vous ai libéré pour que vous puissiez accompagner votre fille. Ceci est la Grotte de l'Empereur Céleste dans la Terre des Esprits Démoniaques. Vous pouvez trouver un endroit où vous cacher tous les deux jusqu'à ce que l'intégralité de la grotte soit ouverte, puis quitter les lieux. »
 
-Le regard de Yao Xixue se posa sur le dos de Wang Lin, habitée par la confusion. Elle ne parvenait pas à réfléchir, mais elle ne voulait pas non plus essayer. Une voix résonnait dans son esprit, lui murmurant que son passé était comme le vent: désormais disparu, elle devait simplement laisser les choses ainsi...
+Le regard de Yao Xixue se posa sur le dos de Wang Lin, habitée par la confusion. Elle ne parvenait pas à réfléchir, mais elle ne voulait pas non plus essayer. Une voix résonnait dans son esprit, lui murmurant que son passé était clos, comme le vent d'hier et la poussière d'aujourd'hui: quand le vent passe, la poussière retourne à la poussière, et la terre à la terre...
 
 Yao Xixue reconnut qu'il s'agissait de sa propre voix, comme si c'étaient les derniers mots qu'elle s'était laissés avant de perdre la mémoire.
 
@@ -58,7 +58,7 @@ Après avoir réglé l'affaire avec Yao Xixue et s'être libéré de ce karma, s
 
 Yao Xixue et l'Ancêtre Sanguin avaient disparu derrière une restriction pour attendre le jour où la grotte serait totalement ouverte. En inspectant les environs, il constata qu'il ne restait plus personne dans la cavité.
 
-Les ruines causées par l'explosion du Bassin Funéraire Céleste étaient toujours là. Non loin de là se trouvait la fosse profonde qui abritait le bassin. Des éclats d'énergie glaciale s'en échappaient.
+Les ruines causées par l'explosion du Bassin Funéraire Céleste étaient toujours là. Non loin de là se trouvait la fosse profonde qui abritait le bassin. Des effluves glacés s'en échappaient.
 
 Après avoir observé les lieux, le regard de Wang Lin se porta vers l'avant. Il ne se trouvait que dans la partie extérieure de la Grotte de l'Empereur Céleste et n'approchait même pas de la zone intérieure. De là, il pouvait apercevoir une multitude de pavillons et de bâtiments au loin.
 

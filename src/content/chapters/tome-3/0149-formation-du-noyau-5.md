@@ -66,7 +66,7 @@ Même Qian Kun ne put s'empêcher de plisser les yeux. Il tenta pourtant de voir
 
 Li Muwan fixa les cultivateurs démoniaques. D'un geste de la main, elle fit apparaître le Four à Pilules des Cent Bêtes et demanda froidement: « Est-ce pour cela que vous êtes ici? »
 
-Qian Kun esquissa un sourire. Kun Sang, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant: « Je ne pensais pas que ce petit bâtard possédait réellement un fourneau, et qu'il s'agissait même du Four à Pilules des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon de Raffinage des Trésors. C'est exact; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Fort de cette évidence, il tendit la main pour s'en emparer devant l'assemblée.
+Qian Kun esquissa un sourire. Kun Sang, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant: « Je ne pensais pas que ce petit bâtard possédait réellement un fourneau, et qu'il s'agissait même du Four à Pilules des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon de Raffinage des Trésors. C'est exact; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Il tendit la main pour s'en emparer devant l'assemblée.
 
 Kun Sang et Pu Lin, qui avaient traqué Wang Lin dès le début, joignirent les mains en signe de respect: « Grand Ancien, ce fourneau nous appartiendra à tous les deux. À l'avenir, nous ne manquerons pas de vous envoyer des présents pour vous remercier. Qu'en dites-vous? »
 

@@ -36,7 +36,7 @@ Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il 
 
 C'était le symbole d'un serment sacré sur le Continent Astral Immortel. Peu de gens osaient rompre un tel engagement, car la loi même du Continent Astral Immortel en était le témoin!
 
-Wang Lin observa Du Qing d'un regard chargé de sens et dit lentement: « Peu importe. Puisque vous le souhaitez tant, je vous donnerai l'occasion de m'aider à assurer ma garde. »
+Wang Lin observa Du Qing d'un regard chargé de sens et dit lentement: « Soit. Puisque vous le souhaitez tant, je vous donnerai l'occasion de m'aider à assurer ma garde. »
 
 À ces mots, Du Qing fut transporté par l'excitation. Il craignait que le malentendu précédent ne rende Wang Lin méfiant ou dégoûté par lui. Si tel avait été le cas, il n'aurait plus aucune chance de s'approcher de lui et manquerait ainsi une fortune immense.
 
@@ -76,9 +76,9 @@ Du Qing contempla la sphère et haleta: « Quelqu'un digne de recevoir un tréso
 
 À cet instant précis, le grondement devint encore plus violent et la boule rétrécit brusquement, passant de soixante-dix à trente pieds! Wang Lin sortit alors de cette sphère de trente pieds.
 
-Ses cheveux blancs flottaient au vent alors qu'il s'asseyait près de la boule de feu. Son expression était d'un grand sérieux; il forma un sceau de sa main et pointa la sphère.
+Ses cheveux blancs flottaient au vent alors qu'il s'asseyait près de la boule de feu. Son expression était d'un grand sérieux; il forma un sceau de ses deux mains et pointa la sphère.
 
-Aussitôt, le cri de l'Oiseau Vermillon à l'intérieur fut apocalyptique. La boule de feu de trente pieds se contracta de nouveau jusqu'à n'atteindre plus que dix pieds!
+Aussitôt, le cri de l'Oiseau Vermillon à l'intérieur fut assourdissant. La boule de feu de trente pieds se contracta de nouveau jusqu'à n'atteindre plus que dix pieds!
 
 Un Oiseau Vermillon, réduit par de multiples compressions, tournait désormais autour de cette minuscule sphère de dix pieds, d'où jaillissaient des éclats de cris stridents.
 
@@ -88,7 +88,7 @@ Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une
 
 « Serait-il en train de vouloir former un Corps Véritable d'Essence?! » Du Qing suffoqua, la peur dans son regard devenant plus intense encore.
 
-« Une fois qu'un cultivateur possède une essence, il peut accéder à la troisième étape: le Vide du Nirvana. Il peut alors utiliser son essence pour absorber la puissance du monde vaste et devenir invincible! Obtenir une essence corporelle est relativement simple, mais pour atteindre le Néant Arcanique, il faut personnellement comprendre une essence éthérée. »
+« Une fois qu'un cultivateur possède une essence, il peut accéder à la troisième étape: le Vide du Nirvana. Il peut alors utiliser son essence pour absorber la puissance du monde vaste et devenir invincible! Obtenir une essence corporelle est relativement simple, mais pour atteindre le Vide Arcanique, il faut personnellement comprendre une essence éthérée. »
 
 « Plus on possède d'essences, plus on devient puissant. C'est un savoir universel parmi les cultivateurs du Continent Astral Immortel! »
 

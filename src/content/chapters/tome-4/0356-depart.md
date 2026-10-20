@@ -28,7 +28,7 @@ Il vit une silhouette déchiquetée se redresser. Cette personne était envelopp
 
 Le vieil homme cracha du sang dans la brume et luttait, mais son regard restait lucide.
 
-Le corps originel ne lui accorda qu'un seul coup d'œil avant que son visage ne s'assombrisse. Lorsqu'il reporta son attention sur la femme au voile blanc, celle-ci était livide, terrifiée.
+Le corps originel ne lui accorda qu'un seul coup d'œil avant que son visage ne s'assombrisse. Lorsqu'il reporta son attention sur la femme au voile blanc, celle-ci était livide et silencieuse.
 
 « Ainsi c'est donc cela! » Le corps originel comprit immédiatement comment ils avaient pu échapper à la mort et sortir de là.
 
@@ -82,7 +82,7 @@ Une fois que Wang Lin eut pénétré dans la faille, celle-ci se referma silenci
 
 Après être sorti de la faille et avoir senti la chaleur du soleil sur sa peau, il prit une profonde inspiration. Le sentiment d'avoir survécu l'envahit tout entier.
 
-Il baissa la tête pour observer le gouffre en contrebas avant de disparaître. Son corps originel s'évanouit avec lui.
+Il baissa la tête pour observer le gouffre en contrebas avant de disparaître. Son corps originel disparut avec lui.
 
 Wang Lin quitta le Cimetière des Immortels et regagna la vallée. Il sortit la pagode avant de s'asseoir pour cultiver. Le corps originel prit place face à lui pour entamer sa propre culture.
 

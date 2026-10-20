@@ -8,7 +8,7 @@ slug: lorigine-de-la-perle-defiant-le-ciel
 ---
 Wang Lin ignorait tout de ce qui se tramait...
 
-À cet instant, il franchit le seuil de la porte située au sein de la Perle Défiant le Ciel. En un seul pas, il eut l'impression de pénétrer dans un autre monde! Cet endroit s'étendait sous un ciel étoilé infini. Nulle brume ici, seulement des étoiles étincelantes. La vue était d'une beauté saisissante!
+À cet instant, il franchit le seuil de la porte située au sein de la Perle Défiant le Ciel. En un seul pas, il eut l'impression de pénétrer dans un autre monde! Cet endroit s'étendait sous un ciel étoilé infini. Nulle brume ici, seulement des étoiles étincelantes et des nébuleuses. La vue était d'une beauté saisissante!
 
 Ce firmament était d'un calme absolu...
 
@@ -102,6 +102,6 @@ Pour un cultivateur, six ans ne sont qu'un battement de cils, un instant fugace.
 
 Bien qu'elle fût toujours belle, elle paraissait souffrante et s'était considérablement affinée. Cependant, ses yeux brillaient toujours de détermination et de persévérance.
 
-Désormais, elle disposait de moins de deux heures de repos par jour. Elle consacrait ces deux heures à une culture acharnée, s'efforçant de recouvrer un peu de vitalité avant de devoir recouvrir à nouveau la statue de sang.
+Désormais, elle disposait de moins de quatre heures de repos par jour. Elle consacrait ces quatre heures à une culture acharnée, s'efforçant de recouvrer un peu de vitalité avant de devoir recouvrir à nouveau la statue de sang.
 
 Sa silhouette fragile ressemblait à une fleur fanée. Quiconque la voyait ne pouvait qu'être pris d'une profonde compassion pour elle.

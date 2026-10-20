@@ -20,7 +20,7 @@ Le jeune homme à la chemise fleurie fixa Wang Lin et rugit: « Fou? C'est toi l
 
 « Très bien, admettons que ce soit toi. Maintenant que j'ai salué mon bienfaiteur, je te demande: qui a battu le grand-père de Petite Fleur? Était-ce lui! » Le jeune homme à la chemise fleurie pointa le Maître Impérial, qui affichait un air contrarié.
 
-La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple du Dao Céleste: « Dao Fei, si tu continues à faire des siennes, je te verrouillerai à nouveau dans une cellule! C'est la cérémonie de remise des titres; Luo Gong a lancé un défi et a échoué. Cela n'a rien à voir avec le Maître Impérial. Recule! »
+La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple du Dao Céleste: « Dao Fei, si tu continues à faire des siennes, je te verrouillerai à nouveau dans une cellule! C'est la cérémonie de remise des titres; Luo Gong a lancé un défi à ton bienfaiteur et a échoué. Cela n'a rien à voir avec le Maître Impérial. Recule! »
 
 « Ah? » Le jeune homme à la chemise fleurie fut déconcerté un instant. Confus, il ne parvenait pas à saisir la situation. Il se retourna et agrippa le jeune homme en robe verte derrière lui.
 
@@ -72,13 +72,13 @@ Wang Lin réfléchit en silence. Il était venu dans la cité ancestrale pour vo
 
 « Cette opportunité est extrêmement rare. Wang Lin, il y a eu des malentendus entre nous, et j'espère qu'ils seront résolus. Cultive avec ardeur dans le lieu de culture clos de l'Ancêtre Céleste afin de pouvoir aspirer à devenir le sixième soleil du clan céleste! »
 
-« Deviens un pilier du clan céleste et déploie sa puissance! » L'expression de l'Empereur Céleste était empreinte d'une grande sincérité alors qu'il regardait Wang Lin au loin, dans le réseau de transfert.
+« Deviens un pilier du clan céleste et redonne sa gloire à l'Ancêtre Céleste! » L'expression de l'Empereur Céleste était empreinte d'une grande sincérité alors qu'il regardait Wang Lin au loin, dans le réseau de transfert.
 
 « Je n'ai que ce seul frère cadet », soupira l'Empereur Céleste.
 
 « Rends-toi au lieu de culture clos de l'Ancêtre Céleste. J'y enverrai également Dao Fei; peut-être pourras-tu l'aider à recouvrer ses souvenirs passés. Quand je l'ai trouvé, une femme l'accompagnait. Cette femme s'est également réveillée et se trouve au lieu de culture clos de l'Ancêtre Céleste, en pleine méditation. » L'Empereur Céleste regarda Wang Lin avec douceur.
 
-« Je vous remercie infiniment, Empereur Céleste. Je ne suis venu ici que pour la cérémonie des titres, et maintenant qu'elle est achevée, je dois partir. Si je reviens dans la cité ancestrale, je me rendrai au lieu de culture clos de l'Ancêtre Céleste. » Wang Lin joignit les mains et déclina l'invitation à se rendre au sanctuaire de l'Ancêtre.
+« Je vous remercie infiniment, Empereur Céleste. Je ne suis venu ici que pour la cérémonie des titres, et maintenant qu'elle est achevée, je dois partir. Si je reviens dans la cité ancestrale, je me rendrai au lieu de culture clos de l'Ancêtre Céleste. » Wang Lin joignit les mains et déclina l'invitation à se rendre au lieu de culture clos de l'Ancêtre Céleste.
 
 L'Empereur Céleste resta pensif un instant. Il hocha la tête et cessa de tenter de convaincre Wang Lin.
 

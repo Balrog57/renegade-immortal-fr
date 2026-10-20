@@ -82,7 +82,7 @@ Simultanément, un autre soleil surgit dans une autre direction; Dao Yi, à l'in
 
 Xuan Luo comprit qu'il devait partir.
 
-« Disciple, toi… Prends soin de toi… Si tu n'es pas mort, viens me chercher… » Xuan Luo soupira et agita sa manche. Un monstrueux soleil de sang apparut et il s'élança dans le ciel.
+« Disciple, toi… Prends soin de toi… Si tu n'es pas mort, viens me chercher au clan du Dao Antique… » Xuan Luo soupira et agita sa manche. Un monstrueux soleil de sang apparut et il s'élança dans le ciel.
 
 Xuan Luo partit. Désormais, plus personne n'attendrait l'arrivée de Wang Lin. Ce dernier flottait toujours dans le vide, mais sa trajectoire avait changé. On ignorait vers où il dérivait; il était devenu l'un de ces corps errants dans le néant.
 
@@ -94,9 +94,9 @@ Cette année-là, un enfant naquit dans une ville mortelle du Continent de l'Oue
 
 Si un autre enfant refusait de le suivre, il le frappait ou lui donnait des coups de pied. Il était extrêmement féroce, et ses camarades finirent par avoir peur de lui. Ils commencèrent peu à peu à jouer au jeu du prince selon ses règles.
 
-Sur le Continent Sud du Continent Astral Immortel, un enfant naquit également cette année-là. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un menteur célèbre dans sa ville.
+Sur le Continent Sud du Continent Astral Immortel, un enfant naquit également, à une certaine année. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un escroc célèbre dans sa ville.
 
-Cependant, lorsqu'un menteur devient célèbre, ce n'est guère une bonne chose pour lui. En conséquence, cet enfant quitta son foyer prématurément pour exercer son talent de menteur ailleurs.
+Cependant, lorsqu'un escroc devient célèbre, ce n'est guère une bonne chose pour lui. En conséquence, cet enfant quitta son foyer prématurément pour exercer son talent d'escroc ailleurs.
 
 Le temps s'écoula lentement, sur une très longue période.
 

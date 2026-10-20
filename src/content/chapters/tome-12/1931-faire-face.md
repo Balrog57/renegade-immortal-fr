@@ -34,9 +34,9 @@ Les grondements de tonnerre firent bouillir la mer environnante. L'eau au-dessus
 
 La puissance du corps originel de Wang Lin pénétra dans le corps des cinq éléments qui, après avoir fusionné leurs énergies, transmuta cette force vers le corps véritable de l'essence du tonnerre. Ce dernier tira sur le fragment d'épée, qui jaillit du visage dans un fracas retentissant!
 
-Une fois le fragment extrait, une force dévastatrice percuta les deux corps véritables de Wang Lin. Ces derniers furent projetés violemment contre lui, le repoussant brutalement.
+Une fois le fragment extrait, une force dévastatrice percuta les deux corps véritables de Wang Lin. Ces derniers furent projetés violemment contre lui et se fondirent dans son corps, le repoussant brutalement.
 
-Pourtant, la puissance ne se dissipa pas; elle s'abattit de plein fouet sur son corps. Wang Lin chancela et du sang s'échappa du coin de sa bouche. Malgré sa culture d'Exalté Empyréen et son corps de l'Ancien Dao, il était blessé. Cela témoignait de la puissance phénoménale de cette mer!
+Pourtant, la puissance ne se dissipa pas; elle s'abattit de plein fouet sur son corps. Wang Lin chancela et du sang s'échappa du coin de sa bouche. Malgré sa culture d'Exalté Empyréen et son corps physique, il était blessé. Cela témoignait de la puissance phénoménale de cette mer!
 
 Mais ce n'était pas encore fini. Tandis que Wang Lin était blessé et repoussé par le choc, la paume de tonnerre qui retenait le visage s'effondra soudainement, dispersant l'éclair.
 
@@ -79,7 +79,7 @@ Mais Wang Lin refusait de simplement fuir! Une lueur glaciale brilla dans ses ye
 
 Wang Lin ne jouerait pas ainsi; il préférait maîtriser son propre destin!
 
-« Je ne peux pas reculer! » Ses yeux brillèrent d'un éclat intense. Au lieu de fuir, il fit un pas en avant et surgit devant le visage. La couche de pierre sur celui-ci se brisa, le visage était sur le point de se libérer. Le cou se tordit, prêt à dévorer Wang Lin.
+« Je ne peux pas reculer! » Ses yeux brillèrent d'un éclat intense. Au lieu de fuir, il fit un pas en avant et surgit derrière le visage. La couche de pierre sur celui-ci se brisa, le visage était sur le point de se libérer. Le cou se tordit, prêt à dévorer Wang Lin.
 
 Toutefois, la majeure partie de son cou était pétrifiée. Bien qu'il se régénère, il lui faudrait encore quelques respirations pour tourner la tête.
 
@@ -99,8 +99,8 @@ De violentes vibrations remontèrent des profondeurs, faisant bouillonner toute 
 
 On ignorait si la pieuvre pouvait l'entendre, mais à voir ses yeux écarquillés et la colère folle qui se lisait en lui, il semblait avoir compris.
 
-Cependant, les vibrations provenant des abysses terrifièrent le dragon marin un instant. Sentant un danger imminent, il s'enfuit promptement sans hésiter.
+Cependant, les vibrations provenant des abysses terrifièrent le dragon marin un instant. Sentant un danger imminent, il plongea vers le fond et s'enfuit promptement sans hésiter.
 
-Après son départ, le corps de l'Exalté Empyréen Hai Zi trembla et ses yeux brillèrent d'une froideur meurtrière!
+Après son départ, le corps de l'Exalté Empyréen Hai Zi, posé sur le dos de la pieuvre, trembla et ses yeux brillèrent d'une froideur meurtrière!
 
 « Wang Lin!!! » L'Exalté Empyréen Hai Zi était rétablie!

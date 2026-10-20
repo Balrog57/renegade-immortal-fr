@@ -54,7 +54,7 @@ Wang Lin ne prêta aucune attention à l'Empereur Dao Antique; il ne regardait q
 
 C'était comme si cette phrase était plus importante que son propre nom. Comme si c'était là le commencement de ses milliers d'années d'amour...
 
-Un grondement tonnerre résonna dans son esprit. Cette ligne continuait de vibrer et de tourbillonner dans ses souvenirs embrumés.
+Un grondement tonnerre résonna dans son esprit. Cette phrase continuait de vibrer et de tourbillonner dans ses souvenirs embrumés.
 
 Elle avait autrefois fait un rêve où elle entendait cette phrase. Cette voix n'avait cessé d'exister dans son esprit et elle avait tenté de la retrouver, mais malgré tous ses efforts, elle ne parvenait ni à s'en souvenir, ni à l'identifier.
 
@@ -76,7 +76,7 @@ Wang Lin fut transporté par l'émotion et rit aux éclats vers le ciel tout en 
 
 Lorsque Wang Lin tourna son regard vers lui, l'Empereur Dao Antique vit clairement son intention meurtrière et sentit son cœur s'effondrer.
 
-« Je suis l'Empereur Dao Antique, je bénéficie de la protection du Grand Empyréen Gu Dao, vous ne pouvez pas me tuer! » L'Empereur Dao Antique recula de nouveau. Les yeux de Wang Lin s'illuminèrent. Il voulait tuer cet homme; sa haine était ancrée jusqu'aux os. Il prit Li Muwan dans ses bras et chargea l'Empereur Dao Antique.
+« Je suis l'Empereur Dao Antique, je bénéficie de la protection du Grand Empyréen Gu Dao, vous ne pouvez pas me tuer! » L'Empereur Dao Antique recula de nouveau. Une lueur passa dans les yeux de Wang Lin. Il voulait tuer cet homme; son intention meurtrière était d'une ampleur effrayante. Il prit Li Muwan dans ses bras et chargea l'Empereur Dao Antique.
 
 Wang Lin se rapprocha instantanément, le regard chargé d'une intention meurtrière monstrueuse. Il leva la main droite et s'abattit sur l'Empereur Dao Antique!
 
@@ -94,7 +94,7 @@ Une lueur meurtrière traversa les yeux de Wang Lin et il leva à nouveau la mai
 
 Face à cela, l'Empereur Dao Antique rit avec une arrogance croissante. Il ne prit même pas la peine d'esquiver et fixa Wang Lin avec mépris.
 
-« De quel droit prétendez-vous me tuer? Wang Lin, vous n'êtes qu'une fourmi du monde des grottes. Maintenant que cent mille membres de mon clan arrivent, je veux voir comment vous comptez fuir! Vous allez mourir, et une fois mort, je m'amuserai avec cette femme pour qu'elle vous accompagne dans la mort! » l'Empereur Dao Antique éclata de rire.
+« De quel droit prétendez-vous me tuer? Wang Lin, vous n'êtes qu'une fourmi du monde des grottes. Maintenant que cent mille membres de mon clan arrivent, je veux voir comment vous comptez fuir! Vous allez mourir, et une fois mort, je prendrai cette femme dans mon lit pour qu'elle vous accompagne dans la mort! » l'Empereur Dao Antique éclata de rire.
 
 « Je ne peux pas te tuer?... » Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, et son Grand Soleil Empyréen apparut derrière lui. Il dégageait simultanément une lumière noire et blanche, tandis que son sang d'âme circulait frénétiquement. À cet instant, le Chant du Vent jaillit de son corps!
 

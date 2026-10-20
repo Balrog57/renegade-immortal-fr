@@ -16,7 +16,7 @@ Tuo Sen était agenouillé au sol, la poitrine ensanglantée, en pleine régén�
 
 Son corps trembla visiblement.
 
-Il avait attendu ce jour pendant une éternité... Depuis qu'il n'était qu'un fragment de démon intérieur scellé depuis d'innombrables années, jusqu'à voir Wang Lin dérober l'héritage de la mémoire. La haine et la colère qu'il ressentait étaient monstrueuses.
+Il avait attendu ce jour pendant une éternité... Depuis qu'il n'était qu'un fragment de démon intérieur scellé depuis d'innombrables dizaines de milliers d'années, jusqu'à voir Wang Lin dérober l'héritage de la mémoire. La haine et la colère qu'il ressentait étaient monstrueuses.
 
 Pour obtenir cet héritage, il était prêt à tout. Après avoir brisé le sceau, il avait pris possession du corps de Tu Si pour entamer sa longue quête. Ce fut une période empreinte d'une amertume infinie!
 
@@ -88,7 +88,7 @@ Après être apparu, la main droite de Wang Lin s'étira vers le vide. La neuvi�
 
 Un grondement tonitruant émana de la brèche, laissant entrevoir l'angle d'un gigantesque pavillon doré.
 
-« Le Palais Terrestre... » Les yeux de Wang Lin brillèrent. Ayant hérité d'une partie des souvenirs de Ye Mo, il connaissait le procédé pour obtenir le Palais Terrestre.
+« Le Palais Terrestre... » Les yeux de Wang Lin brillèrent. Ayant hérité d'une partie des souvenirs de l'Ordre Antique, il connaissait le procédé pour obtenir le Palais Terrestre laissé par Ye Mo.
 
 Ce pavillon colossal possédait trois fenêtres et sa porte était hermétiquement scellée. Pourtant, Wang Lin distinguait clairement trois silhouettes assises à l'intérieur.
 

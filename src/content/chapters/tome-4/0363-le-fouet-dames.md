@@ -8,7 +8,7 @@ slug: le-fouet-dames
 ---
 De fines lignes se détachèrent du pétale pour former un immense filet qui s'élança vers Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il agita le drapeau de restriction, faisant apparaître un écran de brume noire. Puis, il sortit l'épée céleste et frappa le filet d'un revers vigoureux.
+Le regard de Wang Lin s'aiguisa et il agita le drapeau de restriction, faisant apparaître un écran de brume noire. Puis, il sortit l'épée céleste et frappa le filet d'un revers vigoureux.
 
 L'énergie de l'épée traversa la brume noire pour atteindre le pétale de fleur.
 
@@ -58,7 +58,7 @@ D'une voix basse, Wang Lin déclara lentement: « Papillon Rouge, la bataille ne
 
 Papillon Rouge fixa Wang Lin et pointa la rose dont il ne restait que six pétales. Elle s'apprêtait à lancer un sort.
 
-« Papillon Rouge, regarde ceci. » Wang Lin afficha un sourire malicieux en sortant une pierre semblable à un cocon, gravée de nombreux symboles du Dao.
+« Papillon Rouge, regarde ceci. » Wang Lin afficha un sourire inquiétant en sortant une pierre semblable à un cocon, gravée de nombreux symboles du Dao.
 
 De sa main droite, il frappa la pierre, et les symboles se mirent à briller.
 

@@ -18,7 +18,7 @@ Elle avait gardé ce trésor sur elle en permanence, mais même lorsque son avat
 
 Quant à Wang Lin, à cet instant, son aura était instable. Bien qu'il possédât le corps de Dieu Ancien, il avait subi de graves blessures. Ces blessures provenaient du moment où il avait tué la concubine impériale céleste, dont il ignorait même le nom et le rang. Elles résultaient également de l'utilisation du Fourneau de l'Empereur pour réprimer le vieil homme en noir et l'autre concubine impériale céleste.
 
-Mais le pire fut la fusion des trois roues d'essence en une formation capable de modifier les lois mêmes du monde. La création de cette roue avait puisé dans la quasi-totalité de ses forces, et achever le quatrième tour l'avait laissé épuisé.
+Mais le pire fut la fusion des trois roues d'essence immobiles en la roue de rotation du ciel et de la terre. La création de cette roue avait puisé dans la quasi-totalité de ses forces, et achever le quatrième tour l'avait laissé épuisé.
 
 Bien que sa culture, une fois devenu un cultivateur du troisième niveau, fût montée d'un coup au stade intermédiaire du Vide Spirituel, une telle charge l'exténuait profondément.
 
@@ -54,7 +54,7 @@ La femme en rose baissa la tête et, après un instant, demanda doucement: « Vo
 
 Qing Shui resta silencieux un long moment, affichant une expression amère. Il secoua la tête sans répondre. Certaines choses sont indicibles. S'il avait pu le dire, il l'aurait fait lorsqu'il avait reconnu sa fille, mais il ne savait comment l'exprimer.
 
-Après une longue attente, la femme en rose regarda Qing Shui avec un regard complexe. Ne comprenant pas, elle soupira. Elle se tourna vers le ciel et s'élança à la suite de Wang Lin.
+Après une longue attente, la femme en rose s'inclina légèrement devant Qing Shui, le regard complexe. Ne comprenant pas, elle soupira. Elle se tourna vers le ciel et s'élança à la suite de Wang Lin.
 
 Au loin, Qing Lin se leva, contempla les étoiles et ferma les yeux.
 
@@ -76,7 +76,7 @@ Après cette guerre, seules 19 planètes subsistaient dans la formation planéta
 
 Ce devint le nouveau monde de culture du Royaume Intérieur!
 
-Sous la garde de Situ Nan et de ses compagnons, chacun choisit l'une des 19 planètes pour se reposer et guérir. Ceux qui excellaient en alchimie s'occupèrent de leurs blessures. Des équipes de cultivateurs du groupe de Situ Nan les protégeaient pendant qu'ils parcouraient les trois autres systèmes stellaires vides à la recherche d'herbes médicinales, afin de raffiner des pilules pour accélérer la convalescence de tous.
+Sous la garde de Situ Nan et de ses compagnons, chacun choisit l'une des 19 planètes pour se reposer et guérir. Parmi eux, ceux qui excellaient en alchimie, malgré leurs propres blessures, parcoururent les trois autres systèmes stellaires vides à la recherche d'herbes médicinales, sous la protection d'équipes du groupe de Situ Nan, afin de raffiner des pilules pour accélérer la convalescence de tous.
 
 Tout semblait s'apaiser et ces dizaines de milliers de cultivateurs commencèrent à se rétablir. Cependant, ils ne relâchèrent pas leur vigilance, car cette guerre n'était pas terminée.
 
@@ -98,7 +98,7 @@ Tandis qu'il avançait, des hurlements résonnaient à travers les étoiles. Ces
 
 Bientôt, il atteignit la frontière de la Mer des Nuages. Il fit un pas en avant et pénétra rapidement dans celle-ci.
 
-Le brouillard qui enveloppait autrefois la Mer des Nuages avait disparu depuis longtemps, rendant ce système stellaire extrêmement clair. L'odeur du sang imprégnait l'espace et les continents effondrés n'étaient plus que ruines.
+Le brouillard qui enveloppait autrefois la Mer des Nuages avait disparu depuis longtemps, rendant ce système stellaire extrêmement clair. L'odeur du sang imprégnait l'espace et des débris effondrés flottaient, semblables à des ruines.
 
 Wang Lin poussa la roue géante à travers la Mer des Nuages dévastée. Bientôt, le premier champ de bataille de la Mer des Nuages apparut devant lui. C'était l'un des rares endroits où la brume persistait encore. Cependant, à l'arrivée de Wang Lin, un rugissement et une rafale de vent jaillirent de la roue.
 

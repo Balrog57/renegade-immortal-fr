@@ -6,17 +6,17 @@ bookTitle: The Mediocre Youth
 en: Chapter 20 - Nine Clouds
 slug: neuf-nuages
 ---
-Wang Lin était également très heureux. Bien qu'il eût été chassé de la cour et que de nombreux disciples honoraires se fussent moqués de lui tout au long du mois, il avait énormément appris sur la culture. Il découvrit qu'il existait cinq étapes: la Condensation de Qi, l'Établissement des Fondations, la Formation du Noyau, l'Âme Naissante et la Formation de l'Âme.
+Wang Lin était également très heureux. Bien qu'il eût été chassé de la cour et que de nombreux disciples honoraires se fussent moqués de lui tout au long du mois, il ne s'en souciait guère et avait acquis une bonne vue d'ensemble de la culture. Il découvrit qu'il existait cinq étapes: la Condensation de Qi, l'Établissement des Fondations, la Formation du Noyau, l'Âme Naissante et la Formation de l'Âme.
 
 Au sein de la Secte Heng Yue, il n'y avait que deux experts au stade de la Formation du Noyau. Tous deux résidaient sur la montagne arrière, là où la concentration d'énergie spirituelle était la plus élevée. Ils restaient toujours en méditation recluse, s'entraînant sans jamais intervenir, sauf pour les grandes affaires de la secte. Il n'y avait pas plus de dix personnes dans toute la secte au stade de l'Établissement des Fondations. Elles formaient l'ossature de la secte et jouissaient de privilèges, tels que l'usage à leur guise des pierres spirituelles et des trésors magiques.
 
-Hormis ces quelques individus, tous les autres étaient bloqués au stade de la Condensation de Qi. Même Sun Dazhu n'était qu'au cinquième niveau de la Condensation de Qi.
+Hormis ces quelques individus, la plupart des autres étaient bloqués au stade de la Condensation de Qi. Même Sun Dazhu n'était qu'au cinquième niveau de la Condensation de Qi.
 
 La culture était non seulement extrêmement ardue, mais elle exigeait également un temps considérable. Si l'on manquait de talent, on ne disposerait pas d'assez d'années de vie pour espérer progresser. L'Établissement des Fondations était encore plus difficile que la Condensation de Qi, car il ne suffisait pas de posséder une énergie spirituelle abondante; il fallait également faire preuve de chance et de compréhension pour réussir.
 
 Wang Lin connaissait l'importance de l'énergie spirituelle. Il voulait récupérer le plus vite possible la perle de pierre.
 
-Bien qu'il n'eût encore aucune énergie spirituelle en lui, il était convaincu que tant qu'il continuerait à boire l'eau enrichie par la perle, le processus s'accélérerait. La prétendue Condensation de Qi n'était rien d'autre que la collecte d'énergie spirituelle.
+Bien qu'il n'eût encore aucune énergie spirituelle en lui, il était convaincu que tant qu'il continuerait à boire l'eau enrichie par la perle, le processus s'accélérerait. La Condensation de Qi n'était rien d'autre que la collecte d'énergie spirituelle.
 
 À en juger par la réaction de Sun Dazhu, l'eau dans laquelle la perle de pierre avait trempé devait contenir une quantité massive d'énergie spirituelle. En y pensant, Wang Lin fut pris d'une vive excitation, au point de ne plus accorder d'importance à l'eau de source. Là où il avait caché la perle, il restait aussi trois gourdes remplies de rosée; elles devaient en contenir encore davantage.
 
@@ -28,7 +28,7 @@ Les disciples internes recevaient un traitement différent selon la couleur de l
 
 En économisant dix fragments de pierre spirituelle, on pouvait s'adresser à son propre maître pour les échanger contre une pierre spirituelle entière de faible qualité.
 
-Une fois sa maison nettoyée, Wang Lin ne partit pas immédiatement à la recherche de la perle de pierre. Il craignait que Sun Dazhu ne l'espionne encore. Il poursuivit donc sa routine habituelle: cultiver à la source pendant la journée et s'exercer chez lui la nuit.
+Une fois sa nouvelle demeure rangée, Wang Lin ne partit pas immédiatement à la recherche de la perle de pierre. Il craignait que Sun Dazhu ne l'espionne encore. Il poursuivit donc sa routine habituelle: cultiver à la source pendant la journée et s'exercer chez lui la nuit.
 
 En vérité, Sun Dazhu n'était pas prêt à abandonner. Il continua de l'espionner pendant plus de dix jours avant de finir par renoncer.
 
@@ -42,7 +42,7 @@ Quant aux trois gourdes, lorsqu'il les ouvrit, il constata que la rosée à l'in
 
 Wang Lin regarda la perle de pierre, puis les trois gourdes. L'excitation commença à le gagner. Si la perle avait besoin d'absorber de l'eau, qu'arriverait-il si on utilisait celle des trois gourdes? Cela ferait-il apparaître le dixième nuage?
 
-Son cœur rata un battement. La perle était déjà très petite. Actuellement, les neuf nuages couvraient presque toute sa surface; il ne restait qu'un espace de la taille d'un ongle. Wang Lin devina que c'est là que se formerait le dixième nuage.
+Son cœur se mit à battre la chamade. La perle était déjà très petite. Actuellement, les neuf nuages couvraient presque toute sa surface; il ne restait qu'un espace de la taille d'un ongle. Wang Lin devina que c'est là que se formerait le dixième nuage.
 
 Il réfléchit un instant. Au fond de lui, il brûlait de savoir ce qui se passerait une fois les dix nuages atteints. Comme il n'y aurait plus de place pour un onzième, le dixième devait être le dernier.
 
@@ -57,7 +57,7 @@ Avant d'arriver, une voix familière lui parvint de loin.
 Wang Lin fronça les sourcils et s'arrêta. Il ricana intérieurement et poursuivit son chemin.
 
 Puis, une voix féminine cristalline répondit:
-— Frère apprenti Wang, ma famille est une lignée de médecins. Cette fleur est une plante très commune appelée Asuka. J'en vois souvent lorsque je monte à la montagne. C'est la première fois que j'entends parler d'un serpent pour la garder. Si c'était vrai, notre Secte Heng Yue serait infestée de serpents. Sœur apprentie Zhou, ne le croyez pas.
+— Frère apprenti Wang, ma famille est une lignée de médecins. Cette fleur est une plante très commune appelée Asuka. J'en vois souvent lorsque je monte à la montagne. C'est la première fois que j'entends parler d'un serpent pour la garder. Si c'était vrai, les montagnes de notre Secte Heng Yue seraient infestées de serpents. Sœur apprentie Zhou, ne le croyez pas.
 
 À cet instant, Wang Lin pénétra dans la cour de la maison des pilules. Quatre autres personnes s'y trouvaient, deux hommes et deux femmes, tous vêtus de rouge.
 

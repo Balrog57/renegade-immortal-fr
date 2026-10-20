@@ -84,7 +84,7 @@ Wang Lin disparut brusquement. Lorsqu'il réapparut sur la cinquième planète, 
 
 « Serait-ce ici... » Son sens divin se verrouilla sur la montagne. Pourtant, malgré ses vérifications, celle-ci semblait parfaitement ordinaire.
 
-« Je le saurai bien assez tôt! Je suis le premier venu dans ce monde, et j'établis la loi qui interdit toutes les lignées célestes! » Wang Lin projeta un message vers la montagne. À l'instant où il fut transmis, le monde gronda et la planète trembla violemment, comme si elle allait s'effondrer.
+« Essayons donc, on verra bien! Je suis le premier venu dans ce monde, et j'établis la loi qui interdit toutes les lignées célestes! » Wang Lin projeta un message vers la montagne. À l'instant où il fut transmis, le monde gronda et la planète trembla violemment, comme si elle allait s'effondrer.
 
 Une loi cachée sembla vouloir se manifester, mais juste au moment où elle allait prendre forme, un fracas retentit et tout redevint calme. Wang Lin resta en suspension, le front plissé.
 

@@ -26,7 +26,7 @@ Cependant, cet objet n'était pas encore achevé et présentait de nombreux déf
 
 Wang Lin agita le drapeau des âmes d'un milliard dans sa main, et d'innombrables fragments d'âmes s'envolèrent immédiatement, couvrant les cieux. Des gémissements fantomatiques incessants, capables de faire trembler l'univers même, émanèrent des fragments d'âmes.
 
-« Fusionnez! » Les yeux de Wang Lin étaient empreints d'une intention meurtrière et, d'un seul mot, six âmes primaires — qui n'étaient pas encore des Ascendants mais dont la puissance surpassait celle d'un stade avancé de la Transformation de l'Âme — apparurent; le Qilin était l'un d'entre eux.
+« Fusionnez! » Les yeux de Wang Lin étaient empreints d'une intention meurtrière et, d'un seul mot, six âmes primaires — qui n'étaient pas encore des Ascendants mais dont la puissance surpassait de plusieurs fois celle d'un stade avancé de la Transformation de l'Âme — apparurent; le Qilin était l'un d'entre eux.
 
 « Je n'ai pas besoin de les fusionner en un fragment d'âme Ascendant pour combattre vous deux! » Les yeux de Wang Lin s'illuminèrent; il frappa son sac de rangement, et la hache apparut dans sa main. Il leva la hache, bondit dans les airs, puis l'abattit soudainement avec force.
 
@@ -98,11 +98,11 @@ Simultanément, Wang Lin abattit sa hache sur le bois vert. D'un seul coup, l'ob
 
 « Meurs! » En criant cela, Wang Lin lança la hache en avant. Au même instant, les quatre fourreaux d'épée jaillirent comme des météores. Quatre rayons d'énergie d'épée destructrice s'élancèrent des fourreaux pour converger vers Qian Feng de toutes les directions.
 
-Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milliard, qui se désintégra en une pluie de poussière dorée pour fusionner avec les fragments d'âmes environnants. En conséquence, ces fragments émettent un pouvoir de scellement. À cet instant, une aura de restriction surpuissante apparut dans la zone délimitée par les fragments, au point de gêner légèrement la téléportation.
+Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milliard, qui se désintégra en une pluie de poussière scintillante pour fusionner avec les fragments d'âmes environnants. En conséquence, ces fragments émettent un pouvoir de scellement. À cet instant, une aura de restriction surpuissante apparut dans la zone délimitée par les fragments, au point de gêner légèrement la téléportation.
 
 Les yeux de Qian Feng furent envahis par la terreur, et il hurla immédiatement: « Ceng Niu, il n'y a pas de haine profonde entre nous! Pourquoi chercher à me tuer?! »
 
-Le regard de Wang Lin fut aussi tranchant que l'éclair alors qu'il fixait Qian Feng et répliqua mot pour mot: « Je te tue parce que j'ai promis à Papillon Rouge de le faire! »
+Le regard de Wang Lin fut aussi tranchant que l'éclair alors qu'il fixait Qian Feng et répondit lentement, mot après mot: « Je te tue parce que j'ai promis à Papillon Rouge de le faire! »
 
 Qian Feng se mit à rire comme un fou: « Ceng Niu, si tu n'avais pas ce drapeau des âmes d'un milliard, je pourrais t'éliminer facilement! Tu m'as poussé à bout! Si je meurs, je détruirai ton précieux drapeau! »
 

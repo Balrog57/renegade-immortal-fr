@@ -16,7 +16,7 @@ Lorsqu'il réapparut, il surplombait la Secte Ciel Nuageux. Il entama alors une 
 
 Li Muwan fixait Wang Lin, les yeux noyés de larmes d'excitation. Au moment où elle s'apprêtait à parler, elle fut prise d'une violente quinte de toux et s'effondra.
 
-Wang Lin accourut aussitôt aux côtés de Li Muwan et la prit dans ses bras. Après avoir rapidement tapoté quelques points d'acupuncture sur son corps, son visage s'assombrit. Il cria alors: « Liu Fei, Song Qing, scellez la secte! Personne n'est autorisé à sortir avant mon retour! » Wang Lin s'élança vers la cour est, Li Muwan serrée contre lui.
+Wang Lin accourut aussitôt aux côtés de Li Muwan et la prit dans ses bras. Après avoir rapidement tapoté quelques points d'acupuncture sur son corps, son visage s'assombrit. Il cria alors: « Liu Fei, Song Qing, scellez la secte! Personne n'est autorisé à sortir avant mon retour! » Wang Lin s'élança vers la tour est, Li Muwan serrée contre lui.
 
 Liu Fei et Song Qing répondirent sans délai à l'ordre.
 
@@ -32,7 +32,7 @@ L'excitation venait du fait que la Secte Ciel Nuageux avait été sauvée et que
 
 La peur, quant à elle, découlait du retour de Wang Lin. Après tout, même maintenant, ils ne pouvaient oublier la scène sanglante dont ils avaient été témoins autrefois.
 
-Les deux hommes volèrent vers la cour est, mais n'osèrent pas s'en approcher de trop près. Les deux Grands Anciens, dont le statut était bien supérieur au leur, étaient déjà arrivés et attendaient Wang Lin, assis à l'extérieur.
+Les deux hommes volèrent vers la tour est, mais n'osèrent pas s'en approcher de trop près. Les deux Grands Anciens, dont le statut était bien supérieur au leur, étaient déjà arrivés et attendaient Wang Lin, assis à l'extérieur.
 
 À l'intérieur de la tour, Wang Lin était assis en tailleur face à Li Muwan. Le visage de celle-ci était extrêmement pâle, son corps très affaibli, et elle était enveloppée d'une aura mortelle.
 
@@ -112,7 +112,7 @@ Wang Lin entra dans la tour et s'assit près du lit de Li Muwan. Il observa son 
 
 En un clin d'œil, un mois passa.
 
-Durant ce mois, les souvenirs de tous les disciples de la Secte Ciel Nuageux furent effacés, laissant place à une curiosité générale quant à la raison pour laquelle le Maître de la secte s'était retiré en culture fermée.
+Durant ce mois, les souvenirs de tous les disciples de rang inférieur de la Secte Ciel Nuageux furent effacés, laissant place à une curiosité générale quant à la raison pour laquelle le Maître de la secte s'était retiré en culture fermée.
 
 Liu Fei et Song Qing reprirent la gestion de la secte, qui retrouva progressivement sa gloire d'antan. De plus, profitant de la destruction de nombreuses autres sectes dans Chu, la Secte Ciel Nuageux redevint la première secte de Chu et son influence fut multipliée de manière considérable.
 

@@ -16,11 +16,11 @@ Une neige verdâtre tombait sur la Montagne Céleste. Elle recouvrait le corps e
 
 D'ici, la Secte de la Grande Âme ne semblait pas très éloigné, mais même en volant, il faudrait plusieurs jours pour l'atteindre. Si la distance paraissait si courte, outre la hauteur de la Montagne Céleste, c'était parce que les ondulations émanant de la Secte de la Grande Âme créaient un décalage visuel.
 
-Après un long moment, Wang Lin ferma les yeux et déploya son Sens Divin. Il perçut vaguement le principal filon de feu sous la Secte de la Grande Âme. Celui-ci se ramifiait en d'innombrables branches qui s'étendaient à travers tout le Continent du Taureau Céleste.
+Après un long moment, Wang Lin ferma les yeux et déploya son Sens Divin. Il perçut vaguement la principale veine de feu terrestre sous la Secte de la Grande Âme. Celle-ci se ramifiait en d'innombrables branches qui s'étendaient à travers tout le Continent du Taureau Céleste.
 
-Une volonté de feu prodigieuse résidait dans ce filon principal. Cette volonté n'autorisait personne à l'envahir, et ce n'était qu'au sein même de la Secte de la Grande Âme qu'elle faiblissait considérablement.
+Une volonté de feu prodigieuse résidait dans cette veine principale. Cette volonté n'autorisait personne à l'envahir, et ce n'était qu'au sein même de la Secte de la Grande Âme qu'elle faiblissait considérablement.
 
-Le filon principal émergeait des profondeurs au niveau de la Secte de la Grande Âme. On pourrait dire que ce n'était pas tant la secte qui importait, mais plutôt que la montagne elle-même constituait le principal filon de feu terrestre s'étendant à la surface.
+La veine principale émergeait des profondeurs au niveau de la Secte de la Grande Âme. On pourrait dire que ce n'était pas tant la secte qui importait, mais plutôt que la montagne elle-même constituait la principale veine de feu terrestre s'étendant à la surface.
 
 Ce n'était pas une œuvre humaine, mais le fruit de l'évolution de la nature. On ne pouvait que dire que la Secte de la Grande Âme avait choisi un emplacement extrêmement judicieux.
 
@@ -32,13 +32,13 @@ De nombreuses auras d'essence extrêmement puissantes émanaient des montagnes; 
 
 « La Secte de la Grande Âme du Continent Astral Immortel... Elle est en effet très puissante. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
 
-Sans son véritable corps d'essence de feu, Wang Lin n'aurait pas provoqué un tel colosse. Cependant, le principal filon de feu terrestre sous la Secte de la Grande Âme était bien trop important pour lui. Même s'il devait arracher les dents d'un tigre, il devait tenter sa chance.
+Sans son véritable corps d'essence de feu, Wang Lin n'aurait pas provoqué un tel colosse. Cependant, la principale veine de feu terrestre sous la Secte de la Grande Âme était bien trop importante pour lui. Même s'il devait arracher les dents d'un tigre, il devait tenter sa chance.
 
-Durant ces derniers jours, il avait absorbé de nombreux filons secondaires. L'essence de feu dans son corps avait atteint un seuil critique et ne serait plus affectée par ces petits filons.
+Durant ces derniers jours, il avait absorbé de nombreuses veines enfantines. L'essence de feu dans son corps avait atteint un seuil critique et ne serait plus affectée par ces petites veines.
 
 Il s'était déjà préparé à cela. Après tout, c'était comparable à la consommation de pilules: plus on dévore de pilules de même qualité, moins elles ont d'effet, jusqu'à devenir inutiles.
 
-À moins de pouvoir dévorer des pilules de qualité supérieure, telle que la volonté de ce principal filon de feu terrestre!
+À moins de pouvoir dévorer des pilules de qualité supérieure, telle que la volonté de cette principale veine de feu terrestre!
 
 Wang Lin ferma légèrement les yeux et son corps flotta silencieusement depuis la Montagne Céleste vers l'avant, sans le moindre bruit, en direction de la Secte de la Grande Âme.
 
@@ -92,7 +92,7 @@ Son intrusion n'avait causé aucun changement dans la formation ou, pour être p
 
 La fumée de Wang Lin se déplaça silencieusement à travers les montagnes. Il croisa de nombreux disciples de la Secte de la Grande Âme. Tous passèrent près de lui sans qu'aucun ne remarque sa présence.
 
-Wang Lin était extrêmement prudent et s'arrêtait souvent en dérivant. Il progressait lentement vers les profondeurs de la chaîne de montagnes, en direction de la montagne rouge. Plus il approchait, plus il ressentait puissamment le principal filon de feu terrestre.
+Wang Lin était extrêmement prudent et s'arrêtait souvent en dérivant. Il progressait lentement vers les profondeurs de la chaîne de montagnes, en direction de la montagne rouge. Plus il approchait, plus il ressentait puissamment la principale veine de feu terrestre.
 
 Alors qu'il n'était pas loin de la montagne rouge, trois rayons de lumière s'envolèrent vers elle. Il s'agissait d'un homme et de deux femmes qui volaient directement vers le sommet.
 

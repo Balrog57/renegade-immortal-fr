@@ -16,7 +16,7 @@ L'homme en robe rouge nommé Yu Fei observa la scène et éclata de rire. Cepend
 
 « Bien, tu possèdes enfin l'aura d'un Céleste du Tonnerre du Système Stellaire de Luotian. Ce ne fut pas une perte de temps de venir personnellement te couper la tête. Si tu meurs, tu pourras sourire même dans l'au-delà. Tous ceux que j'ai exécutés étaient célèbres! »
 
-« Arrogant! » L'expression de Wang Lin était glaciale. D'un geste du doigt, il décupla la puissance du tonnerre environnant. Les éclairs provenant de dizaines de milliers de kilomètres commencèrent à converger. Vu d'en haut, on aurait dit que toute cette zone s'était transformée en un lac de tonnerre.
+« Arrogant! » L'expression de Wang Lin était glaciale. D'un geste du doigt, il multiplia plusieurs fois la puissance du tonnerre environnant. Les éclairs provenant de dizaines de milliers de kilomètres commencèrent à converger. Vu d'en haut, on aurait dit que toute cette zone s'était transformée en un lac de tonnerre.
 
 Ce lac de foudre se contractait au milieu des grondements incessants, et le centre de ce vortex était l'homme en robe rouge!
 
@@ -50,7 +50,7 @@ L'expression de Yu Fei restait imperturbable. Il lança un regard froid à Wang 
 
 Il s'agissait d'une branche. Elle semblait tout à fait ordinaire, mais elle dégageait une aura antique.
 
-« Un trésor de mon Domaine de la Boucherie: la Branche de l'Arbre du Monde du Tonnerre. Le maître du domaine a affirmé qu'elle pourrait supprimer ton tonnerre. Laisse-moi te montrer comment je vais le briser! » Sur ces mots, il projeta la branche en avant. Simultanément, les cinq épées qui bloquaient l'assaut reculèrent précipitamment.
+« Un trésor de mon Domaine de la Boucherie: la Branche Brisée de l'Arbre du Monde du Tonnerre. Le maître du domaine a affirmé qu'elle pourrait supprimer ton tonnerre. Laisse-moi te montrer comment je vais le briser! » Sur ces mots, il projeta la branche en avant. Simultanément, les cinq épées qui bloquaient l'assaut reculèrent précipitamment.
 
 Dès que les cinq épées ensanglantées se retirèrent, rien ne fit plus obstacle au tonnerre, qui chargea immédiatement vers l'homme en robe rouge. Cependant, à cet instant, Wang Lin sembla perdre le contrôle de la foudre, et celle-ci se précipita toute entière vers la branche.
 

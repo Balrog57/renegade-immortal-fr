@@ -14,7 +14,7 @@ Bien que ses sens fussent différents de ceux des humains, il pouvait encore res
 
 Il se souvenait vaguement qu'il y avait une éternité, alors qu'il dérivait, une voix indistincte lui avait ordonné de ne pas pénétrer dans une certaine région. Une force inimaginable émanait de cette voix, l'emplissant de terreur.
 
-Ce souvenir remontait à une époque si lointaine qu'il était extrêmement flou, mais ce sentiment de danger était si profond qu'il restait gravé dans son esprit. Même aujourd'hui, il parasitait sa conscience.
+Ce souvenir remontait à une époque si lointaine qu'il était extrêmement flou, mais ce sentiment de danger était si profond qu'il restait gravé dans son esprit. Même aujourd'hui, il influençait encore directement sa pensée.
 
 À cet instant précis, il ressentait à nouveau le péril. Bien que bien plus faible qu'autrefois, cela le rendait prudent.
 

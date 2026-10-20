@@ -10,7 +10,7 @@ En entendant tout cela, les yeux de Mu Bingmei s'illuminèrent et elle ne put s'
 
 Li Qianmei écoutait également attentivement. Elle mordilla sa lèvre inférieure, mais ses yeux brillaient d'éclat. Elle sourit en regardant le ciel, envahie par un sentiment de bonheur.
 
-L'esprit de Lu Yanfei se vida et, après un long moment, la joie dans son cœur étouffa le choc. Elle comprit que Wang Lin n'avait pas oublié sa promesse d'il y a cent ans. Il avait forcé le passage à travers les régions de rang 6, 7 et 8 pour arriver jusqu'ici!
+L'esprit de Lu Yanfei se vida et, après un long moment, la joie dans son cœur étouffa le choc. Elle comprit que Wang Lin n'avait pas oublié sa promesse d'il y a cent ans. Il avait forcé le passage à travers les régions de rang 6, 7 et 8, voyageant jour et nuit, pour arriver jusqu'ici!
 
 Même Wang Shanshan afficha un regard étrange alors que diverses scènes lui venaient à l'esprit: une silhouette en blanc fendant l'espace... Elle était simplement très confuse de savoir comment il pouvait connaître l'Empreinte de l'Esprit Guerrier.
 
@@ -26,11 +26,11 @@ Les deux femmes se croisèrent un instant, Wang Shanshan faisant office d'interm
 
 Mu Bingmei fixa Li Qianmei longuement avant de détourner les yeux et de dire d'une voix douce mais glaciale: « Dame Li est en effet d'une beauté naturelle, et votre culture est extraordinaire. »
 
-Li Qianmei était quelque peu confuse de voir cette étrange et belle femme la dévisager ainsi. Lorsqu'elle soutint son regard, Li Qianmei répondit doucement: « En termes de beauté, je ne peux vraiment pas rivaliser avec la Compagnonne Cultivatrice Mu. »
+Li Qianmei était quelque peu confuse de voir cette étrange et belle femme la dévisager ainsi. Au moment où le regard de Mu Bingmei se détourna, Li Qianmei répondit doucement: « En termes de beauté, je ne peux vraiment pas rivaliser avec la Compagnonne Cultivatrice Mu. »
 
 Les membres de la Secte Éternelle étaient de plus en plus exaltés par la compétition. Cependant, ce qu'ils attendaient, c'était l'individu dont les deux Anciens avaient parlé.
 
-La lutte entre les deux sectes de rang 6 n'avait plus d'intérêt, mais une personne se leva, tout comme Lu Yuncong l'avait fait autrefois!
+La lutte entre les sectes de rang 6 n'avait plus d'intérêt, mais une personne se leva, tout comme Lu Yuncong l'avait fait autrefois!
 
 Il s'agissait de Yuan Fei, le disciple principal de la Secte de l'Esprit Géant. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années et n'était revenu qu'il y a deux siècles. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Briseur du Nirvana. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
 
@@ -78,7 +78,7 @@ Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de
 
 « Cet homme ridicule... Étiez-vous tous si certains qu'il viendrait? Je veux voir si cet individu est aussi incroyable que vous le prétendez! » Lu Yingjie serra les poings.
 
-Plus loin encore, au sein de la Secte Recherchant la Montagne, l'atmosphère était lugubre. Zhao Long avait perdu son corps et ne possédait plus que son âme originelle. Il flottait aux côtés du Maître de la Secte et du Grand Ancien, mais son regard venimeux surpassait de loin celui de Lu Yingjie.
+Plus loin encore, au sein de la Secte Recherchant la Montagne, l'atmosphère était lugubre. Zhao Long avait perdu son corps et ne possédait plus que son âme originelle. Il flottait, l'air abattu, aux côtés du Maître de la Secte et du Grand Ancien, mais son regard venimeux surpassait de loin celui de Lu Yingjie.
 
 « Frère Zhao peut être rassuré, je ne laisserai pas passer cela! S'il ne vient pas, il aura de la chance; mais s'il vient, je le tuerai sur-le-champ! »
 

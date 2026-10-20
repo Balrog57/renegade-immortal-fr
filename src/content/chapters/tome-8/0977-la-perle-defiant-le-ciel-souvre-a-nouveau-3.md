@@ -24,15 +24,15 @@ Le soleil sur la perle défiant le ciel, qui tournait rapidement, ralentit et, �
 
 Une lueur rouge jaillit alors que l'énergie source s'échappait pour pénétrer le motif solaire de la perle défiant le ciel.
 
-Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la compréhension du clan du Tatouage sur la planète Suzaku. Les deux étant des sources d'énergie originelle, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était le pouvoir ultime de survie que Wang Lin s'était préparé pour ses combats.
+Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la compréhension du clan du Tatouage sur la planète Suzaku. Les deux étant de l'énergie source, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était le pouvoir ultime de survie que Wang Lin s'était préparé pour ses combats.
 
-À cet instant, cette rare énergie source originelle pénétra la perle défiant le ciel. C'était comme si une clé avait été trouvée pour elle. La perle défiant le ciel trembla et une force puissante en jaillit, entraînant le Sens Divin de Wang Lin à l'intérieur même de l'objet.
+À cet instant, cette rare énergie source pénétra la perle défiant le ciel. C'était comme si une clé avait été trouvée pour elle. La perle défiant le ciel trembla et une force puissante en jaillit, entraînant le Sens Divin de Wang Lin à l'intérieur même de l'objet.
 
 Wang Lin sentit seulement sa vision se brouiller, et lorsqu'il retrouva la vue, il découvrit cette scène familière.
 
 Dans cet endroit semblable au vide, se dressait une porte monumentale. Cette porte était aussi haute que les cieux, et Wang Lin n'était qu'une fourmi face à elle.
 
-Wang Lin fixa la porte. Chaque fois qu'il l'apercevait, il ressentait un choc total. La dernière fois, il n'en avait entrevu que l'intérieur, et lorsqu'il s'était réveillé, il avait vaguement pris conscience de l'énergie source originelle.
+Wang Lin fixa la porte. Chaque fois qu'il l'apercevait, il ressentait un choc total. La dernière fois, il n'en avait entrevu que l'intérieur, et lorsqu'il s'était réveillé, il avait vaguement pris conscience de l'énergie source.
 
 Après avoir longuement médité, Wang Lin flotta en avant, se rapprochant de plus en plus de l'édifice. À mesure qu'il s'approchait, la porte gronda et une ouverture se forma.
 
@@ -64,9 +64,9 @@ Wang Lin tenta de reculer une fois de plus, mais une force mystérieuse l'en emp
 
 La force mystérieuse qui entravait sa retraite se brisa. Ce que Wang Lin vit alors le choqua profondément. Un tel choc était extrêmement rare en mille ans de culture!
 
-« Ceci... ceci est... » murmura Wang Lin. Il vit le ciel bleu, les nuages blancs et un oiseau volant sous la blancheur des cieux.
+« Ceci... ceci est... » murmura Wang Lin. Il vit le ciel bleu, les nuages blancs et un oiseau volant sous les nuages blancs.
 
-Cet oiseau était magnifique; il arborait des plumes colorées et son vol était empreint de vigueur. Il volait comme s'il peignait dans l'immensité céleste avant de s'estomper graduellement.
+Cet oiseau était magnifique; il arborait des plumes colorées et son vol était empreint de vigueur. Il volait comme s'il traçait un arc du Dao céleste dans l'immensité, avant de s'estomper graduellement.
 
 En regardant l'oiseau disparaître au loin, Wang Lin eut l'illusion que cet oiseau était lui-même... C'était si familier, si étrangement familier...
 

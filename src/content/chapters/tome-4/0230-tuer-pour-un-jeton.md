@@ -38,7 +38,7 @@ Alors que Wang Lin approchait de la cité, perché sur la bête moustique, les g
 
 Wang Lin resta debout sur la bête et ne marqua aucun arrêt en pénétrant dans la ville. À l'instant où il franchit les portes, trois sens divins se projetèrent vers lui.
 
-Wang Lin fronça les sourcils et disparut soudainement. Lorsqu'il réapparut, il était déjà à l'intérieur de la ville et la bête moustique se trouvait dans son sac de stockage destiné aux êtres vivants.
+Wang Lin fronça les sourcils et disparut soudainement. Lorsqu'il réapparut, il était déjà à l'intérieur de la ville et la bête moustique se trouvait dans son sac de rangement destiné aux êtres vivants.
 
 Quant à sa culture, il la déguisa délibérément en un stade intermédiaire de l'Établissement des Fondations. Avec la puissance de son sens divin, à moins d'être au stade de la Formation de l'Âme, personne ne pourrait percer son apparence.
 
@@ -104,13 +104,13 @@ Wang Lin marqua un temps d'arrêt et se retourna. Il lança un regard noir à l'
 
 À ce moment-là, un vieil homme sortit de la boutique. Il jeta un regard sur Wang Lin, puis, sans plus s'en préoccuper, se remit à essuyer l'enseigne.
 
-Le visage de l'homme d'âge moyen devint livide. Voyant que la foule s'était amassée, il serra les dents et frappa son sac de stockage. Une épée volante en sortit et il hurla: « Va! »
+Le visage de l'homme d'âge moyen devint livide. Voyant que la foule s'était amassée, il serra les dents et frappa son sac de rangement. Une épée volante en sortit et il hurla: « Va! »
 
 L'épée fut aussi rapide que l'éclair et, la distance étant infime, elle atteignit presque Wang Lin. Pourtant, juste avant le contact, elle se brisa étrangement en deux et s'écrasa au sol.
 
 Wang Lin se retourna. Cette fois, il décida de tuer. Il fit un geste de la main et une restriction jaillit pour frapper le front de l'homme d'âge moyen.
 
-Le corps de ce dernier fut secoué par un cri déchirant. Il se transforma en une mare de sang, ne laissant derrière lui que son sac de stockage et le jade violet qu'il n'avait pas eu le temps de ranger.
+Le corps de ce dernier fut secoué par un cri déchirant. Il se transforma en une mare de sang, ne laissant derrière lui que son sac de rangement et le jade violet qu'il n'avait pas eu le temps de ranger.
 
 Le jeune homme fixa le jade violet. Il s'empara précipitamment du bijou dans la flaque de sang, jeta un dernier regard inquiet sur Wang Lin, puis s'enfuit à toute vitesse.
 
@@ -136,7 +136,7 @@ Le vieil homme, interdit, hocha la tête par réflexe. Lorsqu'il reprit ses espr
 
 Dans le ciel surplombant la ville flottait un imposant homme chauve, un python géant enroulé autour de son corps. Il avait des sourcils épais, de grands yeux et un visage féroce empreint d'une expression renfrognée.
 
-Il portait sur lui de nombreux sacs de stockage qui émettaient des ondes de pression dues à la puissance spirituelle qu'ils contenaient.
+Il portait sur lui de nombreux sacs de rangement qui émettaient des ondes de pression dues à la puissance spirituelle qu'ils contenaient.
 
 Cet homme était l'un des gardiens de la ville de Lian Mo. Il était en méditation fermée lorsqu'il apprit la dissipation du sang de l'âme de son disciple. Fou de rage, il sortit de sa retraite et envoya ce message pour traquer le meurtrier.
 
@@ -152,7 +152,7 @@ Les pupilles du chauve se rétractèrent instantanément. Il recula et réprima 
 
 Voyant que le jeune homme s'était téléporté et qu'il était resté introuvable malgré ses multiples scans, il en tira une conclusion: ce jeune homme n'était pas seulement un cultivateur de l'Âme Naissante, mais possédait un niveau supérieur au sien.
 
-Après être apparu, Wang Lin ne dit mot. Il frappa son sac de stockage et en sortit son drapeau de restriction. Une lueur froide passa dans ses yeux lorsqu'il ordonna: « Dispersion! »
+Après être apparu, Wang Lin ne dit mot. Il frappa son sac de rangement et en sortit son drapeau de restriction. Une lueur froide passa dans ses yeux lorsqu'il ordonna: « Dispersion! »
 
 La restriction s'activa immédiatement et se propagea avec rapidité, couvrant le ciel. En quelques instants, toute la ville fut plongée dans l'obscurité par le drapeau de restriction.
 
@@ -198,7 +198,7 @@ Ils virent seulement le proboscis mortel de la bête transpercer la tête de l'�
 
 Quelques stries dorées apparurent sur le corps noir et verdâtre de la créature. Après avoir lancé un regard glacial aux trois survivants, elle battit des ailes et retourna promptement auprès de Wang Lin.
 
-Wang Lin fit un geste de la main pour ranger le drapeau de restriction et le miroir de bronze. Les sacs de stockage et le trident du chauve atterrirent également dans sa main.
+Wang Lin fit un geste de la main pour ranger le drapeau de restriction et le miroir de bronze. Les sacs de rangement et le trident du chauve atterrirent également dans sa main.
 
 Après avoir inspecté les sacs avec son sens divin, il en sortit un jeton portant l'inscription « Secret ». Puis, il lança un regard aux trois cultivateurs de l'Âme Naissante et disparut sans dire un mot.
 

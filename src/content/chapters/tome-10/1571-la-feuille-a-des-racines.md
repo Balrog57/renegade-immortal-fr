@@ -82,7 +82,7 @@ Wang Lin contemplait les montagnes et les rivières familières qui s'étendaien
 
 « Secte Heng Yue... » Une amertume se lut sur le visage de Wang Lin alors qu'il avançait d'un pas léger. Des ondulations apparurent sous ses pieds et il disparut.
 
-Au moment même où il s'évanouit, le vieil homme le rattrapa. Son expression était sombre et ses pupilles se contractèrent.
+Au moment même où il disparut, le vieil homme le rattrapa. Son expression était sombre et ses pupilles se contractèrent.
 
 « Déformation spatiale! Je ne parvenais déjà pas à discerner son niveau de culture, je ne m'attendais pas à ce qu'il maîtrise la Déformation Spatiale! Cependant, c'est le domaine du Seigneur du Royaume Scellé, et de nombreux cultivateurs puissants y sont postés. Même avec une culture élevée, il ne pourra échapper à sa punition! » Les yeux du vieil homme s'illuminèrent et son Sens Divin se déploya. Des ondulations apparurent sous ses pieds tandis qu'il utilisait lui aussi la Déformation Spatiale.
 
@@ -112,7 +112,7 @@ N'était-il pas revenu sur la planète Suzaku pour rendre hommage à la tombe de
 
 N'était-ce pas parce que ses parents reposaient ici qu'il était revenu sur la planète Suzaku...
 
-La planète Suzaku portait en elle la moitié des souvenirs de Wang Lin, ceux de ses parents, son tout. Chaque fois qu'il se sentait épuisé, il levait les yeux vers le ciel et rêvait de la planète Suzaku.
+La planète Suzaku portait en elle les souvenirs d'une bonne partie de la vie de Wang Lin, ceux de ses parents, son tout. Chaque fois qu'il se sentait épuisé, il levait les yeux vers le ciel et rêvait de la planète Suzaku.
 
 Les feuilles ont des racines. Lorsqu'elles tombent, elles retournent à leurs racines. Les humains ont des âmes, et l'âme ressent la douleur lorsqu'elle se remémore ses parents.
 

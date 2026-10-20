@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2028 - Filled With Rage (7)
 slug: empli-de-rage-7
 ---
-Alors que Wang Lin traversait le palais entouré de milliers de personnes, un soupir provenant de son maître, Xuan Luo, résonna. Quelques instants auparavant, dans une montagne éloignée de la cité impériale du Dao Antique, quelque chose d'autre se passait.
+Alors que Wang Lin traversait le palais entouré d'un millier de personnes, un soupir provenant de son maître, Xuan Luo, résonna. Quelques instants auparavant, dans une montagne éloignée de la cité impériale du Dao Antique, quelque chose d'autre se passait.
 
 L'intérieur de la montagne était totalement creux, mais de l'extérieur, même des Grands Empyréens n'auraient rien remarqué. À l'intérieur se trouvait une immense formation, si extrêmement complexe qu'elle en troublait la vue pour quiconque tenterait de l'observer.
 
@@ -32,7 +32,7 @@ Ce gaz gris était ce rayon de lumière fantomatique qui s'était manifesté lor
 
 « Malheureusement, je souffre de... limitations et ne peux absorber que l'aura de mort issue du massacre de Wang Lin. Sinon, si ce vieil homme agissait personnellement, je pourrais rassembler la quantité d'aura de mort dont j'ai besoin en peu de temps afin de... » La silhouette marqua deux pauses en parlant. C'était comme s'il était entravé par quelque chose et qu'il craignait même l'objectif qu'il tentait d'atteindre avec cette aura, au point de ne vouloir le nommer clairement.
 
-« Le massacre de Wang Lin dans le monde des grottes m'a satisfait, mais depuis son arrivée sur le continent Astral Immortel, il a très peu tué. Sans cela, ce vieil homme aurait pu terminer sa collecte et n'aurait pas eu besoin d'utiliser l'atout du Dao Antique... Heureusement, j'étais préparé et j'ai retiré son... fragment d'âme bien tôt. » La silhouette floue s'interrompit à nouveau sur le mot « son », et sa voix trembla avant de s'éteindre.
+« Le massacre de Wang Lin dans le monde des grottes m'a satisfait, mais depuis son arrivée sur le continent Astral Immortel, il a très peu tué sur les terres du clan céleste. Sans cela, ce vieil homme aurait pu terminer sa collecte et n'aurait pas eu besoin d'utiliser l'atout du Dao Antique... Heureusement, j'étais préparé et j'ai retiré son... fragment d'âme bien tôt. » La silhouette floue s'interrompit à nouveau sur le mot « son », et sa voix trembla avant de s'éteindre.
 
 Après un long moment, une lueur de froideur traversa les yeux de la silhouette.
 
@@ -56,11 +56,11 @@ Par-dessus tout, l'Empereur du Dao Antique avait forcé Song Zhi à boire avec W
 
 C'est pourquoi, une fois que Wang Lin comprit tout, il poussa un hurlement annonçant qu'il allait tuer Ye Dao et cet Empereur du Dao Antique!
 
-Il avait envisagé de dissimuler sa rage et de pénétrer calmement dans le palais pour emmener Song Zhi. Cependant, ses principes avaient été bafoués. S'il pouvait tolérer cela, alors il n'avait plus de principes!
+Il avait envisagé de dissimuler sa rage et de pénétrer calmement dans le palais pour emmener Song Zhi. Cependant, sa limite ultime avait été franchie. S'il pouvait tolérer cela, alors il n'avait plus de limite ultime!
 
 Bien qu'attaquer un Empereur pris au dépourvu puisse sembler être la meilleure option, cela aurait aggravé la situation! Ce serait un assassinat! Avec sa force, charger le palais dans un accès de rage pouvait être interprété comme une perte de raison due à la colère.
 
-Mais s'il agissait en assassin, cela signifierait qu'il était d'un calme glacial. S'il commettait un tel acte tout en réfléchissant froidement, les dommages causés à la réputation de Xuan Luo seraient irréparables. Wang Lin comprenait tout cela, et il ne choisirait pas cette voie.
+Mais s'il agissait en assassin, cela signifierait qu'il était d'un calme glacial. S'il commettait un tel acte tout en réfléchissant froidement, les dommages causés à Xuan Luo seraient irréparables. Wang Lin comprenait tout cela, et il ne choisirait pas cette voie.
 
 Wang Lin n'utiliserait pas de telles méthodes. Il allait reprendre l'âme de Wan Er, tuer l'Empereur du Dao Antique, et le faire ouvertement, la tête haute. La seule chose qu'il devait considérer était les sentiments de son maître...
 
@@ -70,7 +70,7 @@ Dans le ciel, Xuan Luo apparut et regarda Wang Lin. Il semblait avoir beaucoup v
 
 D'un seul mouvement, les 36 Démons crachèrent du sang et reculèrent, terrifiés. Tous ceux qui se trouvaient aux côtés de Wang Lin furent projetés à 10 000 pieds, ne laissant que Wang Lin, qui poursuivait son inclinaison.
 
-L'Empereur du Dao Antique ricana en voyant Xuan Luo apparaître. Ses yeux s'illuminèrent et il s'avança rapidement: « Seigneur Xuan, Wang Lin a forcé l'entrée du palais pour tenter de voler mon impératrice. Il est coupable d'une trahison inouïe, indigne d'être le disciple de votre Seigneurie! J'espère que le Seigneur Xuan... »
+L'Empereur du Dao Antique ricana intérieurement en voyant Xuan Luo apparaître. Ses yeux s'illuminèrent et il s'avança rapidement: « Seigneur Xuan, Wang Lin a forcé l'entrée du palais pour tenter de voler mon impératrice. Il est coupable d'une trahison inouïe, indigne d'être le disciple de votre Seigneurie! J'espère que le Seigneur Xuan... »
 
 Avant qu'il ne puisse achever sa phrase, Xuan Luo se tourna brusquement vers lui.
 
@@ -94,7 +94,7 @@ Wang Lin laissa échapper un soupir. Il leva les yeux vers Xuan Luo avec une exp
 
 Ces corps étaient tous ceux que Wang Lin avait tués.
 
-Autrefois, avec la culture de Ye Mo, il pouvait utiliser quelques gorgées de sang pour créer les anciens dieux, les anciens démons et les anciens diables du monde des grottes. Désormais, Wang Lin possédait le sang de l'âme. Grâce à l'héritage obtenu après avoir fusionné avec ce sang, il pouvait également accomplir cela, et il était infiniment plus puissant que Ye Mo.
+Autrefois, avec la culture de Ye Mo, il pouvait utiliser quelques gorgées de sang pour créer les descendants des anciens dieux, des anciens démons et des anciens diables du monde des grottes. Désormais, Wang Lin possédait le sang de l'âme. Grâce à l'héritage obtenu après avoir fusionné avec ce sang, il pouvait également accomplir cela, et il était infiniment plus puissant que Ye Mo.
 
 Ces corps apparurent un à un. Des dizaines de milliers de personnes, sans qu'une seule ne manque. Leurs formes se matérialisèrent tandis que tout le sang au sol disparaissait. Le visage de Wang Lin était pâle alors qu'il ouvrait les bras. Les dizaines de milliers d'âmes s'envolèrent pour fusionner avec leurs corps respectifs.
 

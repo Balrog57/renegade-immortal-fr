@@ -70,9 +70,9 @@ Bien plus tard, il n'eut plus aucun souvenir en tête. Il ne restait désormais 
 
 La vie et la mort, les mutations qui surviennent dans la réincarnation céleste. Wang Lin avait compris le sens de la mort au fil de ses quatre cents ans de tueries, et lors de ses trente années de vie mortelle, il était venu à comprendre la vie.
 
-Bien qu'il ait échoué auparavant en tentant de saisir le cycle de la réincarnation céleste, cela lui avait laissé une impression indélébile. C'était comme s'il avait percé un voile, lui permettant d'obtenir cette intuition.
+Bien qu'il ait échoué auparavant en tentant de saisir le cycle de la réincarnation céleste, cela lui avait laissé une impression indélébile. C'était comme s'il avait percé un voile, lui permettant d'obtenir cette illumination.
 
-Mais l'intuition ne signifie pas la compréhension.
+Mais une illumination soudaine ne signifie pas avoir tout percé à jour.
 
 On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'il pouvait contrôler sa culture. Il y avait une phrase que l'on prononçait souvent dans l'ancien monde de la culture:
 
@@ -102,7 +102,7 @@ Wang Lin marcha lentement dans la rue alors que la tempête de neige redoublait 
 
 Lorsqu'il sortit de la boutique, sa silhouette était encore celle d'un vieillard au crépuscule de sa vie, mais à mesure qu'il progressait vers le bout de la rue, son dos se redressa progressivement. Les rides sur son visage s'effacèrent lentement et, lorsqu'il atteignit l'extrémité de la rue, il était passé avec succès du stade de mortel à celui de cultivateur.
 
-Bien qu'il n'ait pas encore atteint le stade de la Formation de l'Âme, il s'en rapprochait considérablement. Après avoir découvert le Domaine de la Vie et de la Mort et avoir appréhendé les lois célestes, le corps de Wang Lin ressentait un puissant désir d'ascension.
+Bien qu'il n'ait pas encore atteint le stade de la Formation de l'Âme, il s'en rapprochait considérablement. Après avoir découvert le Domaine de la Vie et de la Mort et avoir appréhendé les lois célestes, le corps de Wang Lin ressentait une sensation de légèreté, comme s'il allait s'envoler.
 
 C'était comme si une force mystérieuse dans les cieux l'attirait vers elle.
 

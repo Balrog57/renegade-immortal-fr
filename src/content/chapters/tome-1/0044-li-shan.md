@@ -8,13 +8,13 @@ slug: li-shan
 ---
 Wang Lin réfléchit un instant et dit: « Quels sont tes projets? As-tu besoin de mon aide pour quoi que ce soit? »
 
-Wang Hao soupira et répondit: « Tu n'es qu'au 3ème niveau de Condensation de Qi. Tu ne peux rien faire pour moi, car Lu Yunjie est déjà au 6ème niveau. De plus, comme il sait fabriquer des pilules, les Anciens l'apprécient énormément. J'ai déjà perdu tout espoir. Wang Lin, durant ces quelques années à la Secte Heng Yue, tu as été mon seul ami et mon grand frère. Si tu deviens plus fort à l'avenir, tu devras tuer Lu Yunjie pour me venger! » Wang Hao serra les poings après avoir fini de parler.
+Wang Hao soupira et répondit: « Tu n'es qu'au 3ème niveau de Condensation de Qi. Tu ne peux rien faire pour moi, car Lu Yunjie est déjà au 6ème niveau. De plus, comme il sait fabriquer des pilules, le Chef de la secte l'apprécie énormément. J'ai déjà perdu tout espoir. Wang Lin, durant ces quelques années à la Secte Heng Yue, tu as été mon seul ami et mon grand frère. Si tu deviens plus fort à l'avenir, tu devras tuer Lu Yunjie pour me venger! » Wang Hao serra les poings après avoir fini de parler.
 
 Wang Lin fixa Wang Hao et hocha la tête.
 
 Wang Hao eut un sourire amer et dit: « Frère Tie Zhu, avais-tu besoin de moi pour quelque chose? Tant que je suis en vie, je t'aiderai autant que possible. Veux-tu des pilules de rassemblement de Qi? J'en ai beaucoup en réserve. »
 
-Wang Lin regarda Wang Hao. Il garda pour lui son projet de décoction de remède populaire et secoua la tête. Il voulait aider Wang Hao, mais l'ennemi était déjà au 6ème niveau; Wang Lin n'avait aucune confiance en ses chances.
+Wang Lin regarda Wang Hao. Il garda pour lui son projet de décoction de remède populaire et secoua la tête. Il voulait aider Wang Hao, mais l'ennemi était déjà au 6ème niveau; Wang Lin n'était pas sûr de ses chances.
 
 Bien que son Sens Divin fût différent de celui des autres et qu'il eût pratiqué la technique d'attraction pendant plus de vingt ans, il n'avait jamais combattu d'autre cultivateur; il ne pouvait donc pas dire avec certitude quelle était sa véritable force.
 
@@ -24,9 +24,9 @@ Voyant que Wang Lin restait silencieux, Wang Hao tapota amèrement ses vêtement
 
 À cet instant, Wang Lin eut une épiphanie.
 
-Cette prétendue épiphanie n'était pas une compréhension soudaine qui aurait fait progresser sa culture de manière fulgurante, mais ressemblait plutôt à un flux de connaissances déversé dans son esprit. Ce qui s'était accru ici n'était ni sa culture, ni son Sens Divin, mais sa compréhension des lois du ciel et de la terre.
+Cette prétendue épiphanie n'était pas une compréhension soudaine qui aurait fait progresser sa culture de manière fulgurante, voire permis de s'élever directement, mais ressemblait plutôt à un flux de connaissances déversé dans son esprit. Ce qui s'était accru ici n'était ni sa culture, ni son Sens Divin, mais sa compréhension des lois du ciel et de la terre.
 
-Réaliser la nature cruelle du monde de la culture fut son épiphanie. Pour être un cultivateur, il fallait posséder l'état d'esprit d'un cultivateur.
+Réaliser la nature cruelle du monde de la culture, la loi de la sélection naturelle, fut son épiphanie. Pour être un cultivateur, il fallait posséder l'état d'esprit d'un cultivateur.
 
 Wang Lin murmura dans un soupir: « Est-ce vraiment là l'état d'esprit qu'un cultivateur doit avoir... que les forts dévorent les faibles? »
 
@@ -66,4 +66,4 @@ Les disciples de la Secte Xuan Dao se sentaient tous extrêmement mal à l'aise,
 
 Cette Bombe de Foudre Noire et Nauséabonde Invincible était extrêmement célèbre au sein de la Secte Xuan Dao; en secret, elle pouvait presque rivaliser avec plusieurs des véritables trésors de la secte.
 
-« Alors, qu'en avez-vous pensé? Cette fois, je vous montre mon atout caché! Mais je maintiens ce que j'ai dit précédemment: vous ne pouvez pas l'utiliser lors de la compétition dans trois jours, sinon je refuse de vous la vendre! » Li Shan afficha un air sérieux, tout en riant intérieurement: « Espèces d'imbéciles, plus je vous interdis de l'utiliser, plus vous serez tentés de le faire lors de la compétition. Hé hé, quel spectacle cela va être! Les Anciens me féliciteront certainement et me donneront même quelques trésors magiques en récompense! »
+« Alors, qu'en avez-vous pensé? Cette fois, j'y ai mis le paquet! Mais je maintiens ce que j'ai dit précédemment: vous ne pouvez pas l'utiliser lors de la compétition dans trois jours, sinon je refuse de vous la vendre! » Li Shan afficha un air sérieux, tout en riant intérieurement: « Espèces d'imbéciles, plus je vous interdis de l'utiliser, plus vous serez tentés de le faire lors de la compétition. Hé hé, quel spectacle cela va être! Les Anciens me féliciteront certainement et me donneront même quelques trésors magiques en récompense! »

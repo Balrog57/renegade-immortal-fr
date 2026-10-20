@@ -20,13 +20,13 @@ Une douleur atroce se propageait à travers le gigantesque Serpent aux yeux de l
 
 Des volutes de brume rouge s'échappaient des innombrables tentacules qui recouvraient la planète. Ces derniers tremblaient avec violence, tandis que des rugissements étouffés semblaient sourdre du globe lui-même.
 
-Tous les tentacules à la surface s'étiraient frénétiquement, leur longueur étant multipliée par plusieurs par rapport aux dix mille pieds initiaux. Si l'on observait la planète Yun Xia depuis l'espace, elle ressemblerait à un gigantesque oursin!
+Tous les tentacules à la surface s'étiraient frénétiquement, leur longueur étant doublée par rapport aux dix mille pieds initiaux. Si l'on observait la planète Yun Xia depuis l'espace, elle ressemblerait à un gigantesque oursin!
 
 Au plus profond de la planète Yun Xia, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. Une force d'aspiration infinie émanait de ses bras et se propageait sur les deux segments de l'os. Cette aspiration agissait comme une lame, séparant l'os du corps du Serpent aux yeux de lune.
 
-Au cours de ce processus, le gigantesque serpent tressaillit avec plus de violence encore. D'innombrables fissures apparurent à la surface de la planète et les tentacules s'étendirent davantage. Simultanément, une masse considérable de terre se détacha du corps du Serpent aux yeux de lune. Vu depuis la planète, on aurait dit que d'immenses quantités de terre flottaient et s'élevaient à mi-hauteur dans le ciel.
+Au cours de ce processus, le gigantesque serpent tressaillit avec plus de violence encore. D'innombrables fissures apparurent à la surface de la planète et les tentacules s'étendirent davantage. Simultanément, une masse considérable de terre se détacha du corps du Serpent aux yeux de lune. Vu depuis la planète, on aurait dit que d'immenses quantités de terre flottaient et s'élevaient dans le ciel.
 
-Pourtant, depuis l'espace, on verrait plutôt d'innombrables masses terrestres se détacher de la planète Yun Xia et dériver lentement.
+Pourtant, depuis l'espace, on verrait plutôt d'innombrables masses terrestres se détacher de la planète Yun Xia et dériver dans toutes les directions.
 
 C'était comme un œuf dont la coquille se brisait et tombait rapidement en morceaux.
 
@@ -34,7 +34,7 @@ Une aura antique commença à émaner des entrailles de la planète à mesure qu
 
 Les vibrations s'intensifièrent et une brume rouge toujours plus dense commença à sourdre des tentacules. Le mélange de cette brume rouge et du brouillard extérieur sembla former un cocon épais.
 
-Sur la planète Yun Xia, le regard de Wang Lin devint encore plus vif. La terre tremblait avec une violence accrue et un profond sentiment de crise l'assaillit de toutes parts.
+Sur la planète Yun Xia, le regard de Wang Lin devint encore plus vif. La terre tremblait avec une violence accrue et un sentiment de crise sans précédent l'assaillit de toutes parts.
 
 Wang Lin se redressa soudainement et se déplaça avec la rapidité de la lumière. Ses yeux contenaient désormais la puissance du tonnerre. Il atteignit instantanément le segment gauche de l'os, agrippa fermement les deux mains et hurla: « Lève-toi! »
 
@@ -54,7 +54,7 @@ Le bruit de friction était suffisant pour ébranler l'âme. Wang Lin commença 
 
 Le visage de Wang Lin était féroce et l'énergie spirituelle céleste dans son corps déferlait avec frénésie. S'il n'avait pas atteint le stade avancé de l'Ascendant, son corps n'aurait sans doute pu supporter une telle utilisation de l'énergie spirituelle céleste.
 
-À chaque cycle de son énergie spirituelle céleste, la force de Wang Lin augmentait considérablement. Le temps pressait et le danger doublait à chaque seconde passée sur place. Les yeux de Wang Lin devinrent rouges sang lorsqu'il lâcha un nouveau rugissement.
+À chaque cycle de son énergie spirituelle céleste, la force de Wang Lin augmentait légèrement. Le temps pressait et le danger doublait à chaque seconde passée sur place. Les yeux de Wang Lin devinrent rouges sang lorsqu'il lâcha un nouveau rugissement.
 
 « Un souffle jaillit comme une montagne! »
 

@@ -18,7 +18,7 @@ Da Niu était extrêmement fier que son propre fils allait devenir un immortel. 
 
 Wang Lin n'était nullement surpris par le départ de Wen Zhuo auprès du cultivateur de la Secte Nuage Blanc. Il avait remarqué dès le plus jeune âge que Xiao Niu possédait un corps propice à la culture et que son talent surpassait déjà plusieurs fois celui de Wang Lin lorsqu'il avait commencé.
 
-Si Wang Lin l'avait aidé, c'était parce que la seule connexion qu'il entretenait dans toute la capitale était avec la famille de Da Niu. Par conséquent, il avait offert à Xiao Niu de nombreuses pilules pour transformer son corps, et le résultat était là.
+Si Wang Lin l'avait aidé, c'était parce que la seule connexion qu'il entretenait dans toute la capitale était avec la famille de Da Niu. Par conséquent, il avait offert à Xiao Niu de nombreuses pilules pour transformer son corps, afin de solder le karma de cette vie, et le résultat était là.
 
 Le talent de Xiao Niu était devenu si exceptionnel qu'il n'était pas étonnant qu'il ait capté l'attention du cultivateur de la Secte Nuage Blanc. Bien que ce dernier ne fût qu'au stade de la Formation du Noyau, Wang Lin avait observé qu'il était un homme bienveillant, très différent de son propre maître, Sun Dazhu.
 
@@ -36,9 +36,9 @@ La femme de Da Niu, la fille du marchand de l'atelier de couture, était une fem
 
 Ainsi, durant les dernières années de sa vie mortelle dans la capitale, Wang Lin put ressentir la chaleur d'un foyer. Cette chaleur était une sensation étrange pour lui, mais il ne la repoussa pas.
 
-Xu Tao avait lui aussi vieilli, passant de l'âge mûr à la vieillesse, les cheveux parsemés de blanc. Son rang social avait grimpé en flèche depuis dix ans; il était désormais le chancelier du roi. Ce n'était plus le roi d'autrefois, mais le prince.
+Xu Tao avait lui aussi vieilli, passant de l'âge mûr à la vieillesse, les cheveux parsemés de blanc. Son rang social avait grimpé en flèche depuis dix ans; il était désormais le chancelier du prince. Ce n'était plus le roi d'autrefois, mais le prince.
 
-Une fois que le prince devint roi, ses tributs ne diminuèrent pas, ils augmentèrent. Chaque année, il venait personnellement s'incliner devant Wang Lin, faisant fi de sa prestigieuse position.
+Une fois que le prince devint roi, ses tributs ne diminuèrent pas, ils augmentèrent. Chaque année, il venait personnellement se prosterner devant Wang Lin, faisant fi de sa prestigieuse position.
 
 Au fil des ans, Wang Lin commença à éprouver une véritable admiration pour le prince. Après tout, c'était un souverain dans le monde mortel; être capable de baisser ainsi la tête demandait une immense détermination.
 

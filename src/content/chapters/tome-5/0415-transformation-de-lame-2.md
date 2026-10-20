@@ -11,7 +11,7 @@ En chemin, Wang Lin déploya son sens divin et aperçut de nombreux cultivateurs
 
 Alors qu'il volait, Wang Lin fronça soudainement les sourcils. Plus d'une dizaine de cultivateurs, dont les sens divins étaient liés par un lien mystérieux, balayaient la zone.
 
-Parmi ces dix individus, trois se trouvaient au stade de la Formation de l'Âme et les autres au stade de l'Âme Naissante.
+Parmi ces cultivateurs, trois se trouvaient au stade de la Formation de l'Âme et les autres au stade de l'Âme Naissante.
 
 Ils ne ciblaient personne en particulier, mais semblaient inspecter chaque cultivateur sur leur passage.
 
@@ -91,7 +91,7 @@ Une lueur de joie passa dans les yeux de Du Tian et il hocha discrètement la t�
 
 « Lorsque j'ai atteint le stade de la Transformation de l'Âme, mon maître a pris le drapeau d'âmes d'un milliard et a pillé toutes les sectes des trois pays de culture de rang 5. » Tandis que Du Tian parlait, une fierté manifeste brillait dans son regard.
 
-Wang Lin ne put qu'esquisser un sourire amer en entendant cela. Il pensait que la Secte de l'Affinement de l'Âme était véritablement tyrannique. Le drapeau d'âmes d'un milliard était un objet que même Suzaku redoutait. Avec un tel trésor, la Secte de l'Affinement de l'Âme pouvait balayer la planète entière sans que personne n'ose s'y opposer. Il comprenait mieux comment ils avaient pu engendrer autant de cultivateurs de la Transformation de l'Âme; tout le jade céleste qu'ils utilisaient avait été dérobé à autrui.
+Wang Lin ne put qu'esquisser un sourire amer en entendant cela. Il pensait que la Secte de l'Affinement de l'Âme était véritablement tyrannique. Le drapeau d'âmes d'un milliard était un objet que même Zhu Quezi redoutait. Avec un tel trésor, la Secte de l'Affinement de l'Âme pouvait balayer la planète entière sans que personne n'ose s'y opposer. Il comprenait mieux comment ils avaient pu engendrer autant de cultivateurs de la Transformation de l'Âme; tout le jade céleste qu'ils utilisaient avait été dérobé à autrui.
 
 À cet instant, les grondements s'intensifièrent et le sol commença à se fissurer. Deux blocs de jade céleste, chacun de la taille d'un homme, émergèrent des profondeurs.
 
@@ -123,6 +123,6 @@ Les cultivateurs au stade de la Transformation de l'Âme peuvent contrôler l'é
 
 De même, certains trésors ne peuvent absolument pas être activés par l'énergie spirituelle ordinaire; ils ne répondent qu'à l'énergie spirituelle céleste.
 
-L'Épée Céleste et le Char du Dieu de la Guerre en étaient le parfait exemple.
+L'Épée Céleste et le Char de Guerre Divin en étaient le parfait exemple.
 
-Au fil du temps, peu importe la quantité de jade disponible, celle-ci finirait par être épuisée. Ce jour-là, des craquements légers se firent entendre alors que des fissures commençaient à apparaître sur les deux jades.
+Au fil du temps, si importante que soit la quantité d'énergie céleste, elle finirait par être entièrement absorbée. Ce jour-là, des craquements légers se firent entendre alors que des fissures commençaient à apparaître sur les deux jades.

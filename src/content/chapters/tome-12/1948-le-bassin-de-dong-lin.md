@@ -36,7 +36,7 @@ Cet état ressemblait à celui qu'il avait connu lorsqu'il créa la Nuit Brisée
 
 Dans cet état, Wang Lin était plongé dans une profonde confusion. Il semblait qu'une éternité s'était écoulée, ou peut-être seulement un instant.
 
-Wang Lin ouvrit les yeux, le regard encore embrumé. Il reprit ses esprits un moment plus tard et observa le bassin sous lui: il avait perdu 30 % de son eau.
+Wang Lin ouvrit les yeux, le regard encore embrumé. Il reprit ses esprits un moment plus tard et observa le bassin sous lui: il avait perdu près de 30 % de son eau.
 
 Avant même que Wang Lin ne pose la question, Liu Jinbiao dit: « Maître, trois respirations se sont écoulées entre le moment où vous avez fermé les yeux et votre réveil. »
 

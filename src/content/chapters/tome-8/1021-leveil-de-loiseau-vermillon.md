@@ -28,7 +28,7 @@ Au début, il ne pouvait absorber que de petites flammes de la taille d'un poing
 
 N'importe qui aurait eu du mal à reconnaître l'homme à l'intérieur de la tour. Son visage était déjà émacié sous l'érosion de l'énergie démoniaque. Désormais, après avoir absorbé tout ce temps l'énergie originelle des flammes du « Brûle les Cieux », des fissures couvraient sa peau, rendant son apparence terrifiante.
 
-Ses cheveux étaient totalement ternes et secs, mais ses yeux brillaient de plus en plus intensément. Quiconque croisait le regard de Wang Lin ressentirait une chaleur telle qu'il serait réduit en cendres sur-le-champ.
+Ses cheveux étaient totalement ternes et secs, mais ses yeux brillaient de plus en plus intensément. Quiconque croisait le regard de Wang Lin ressentirait une chaleur qui lui donnerait l'impression d'être réduit en cendres.
 
 Le phénomène le plus étrange se produisait entre les sourcils de Wang Lin. Il y a quelques jours, après avoir absorbé une certaine quantité de flammes, il avait senti un changement entre ses sourcils. Ce sentiment émanait du marquage de l'Oiseau Vermillon!
 
@@ -86,7 +86,7 @@ Les masses de feu continuèrent d'irriguer son corps pour atteindre la marque en
 
 À l'instant où l'oiseau apparut, un cri capable de déchirer le vide retentit dans ce monde en bouteille.
 
-C'était le cri de l'Oiseau Vermillon, un cri qui ébranla les cieux. Pour Wang Lin, c'était le cri d'éveil en tant que membre de la lignée du Vermillon!
+C'était un chant de phénix, le cri de l'Oiseau Vermillon, un cri qui ébranla les cieux. Pour Wang Lin, c'était le cri d'éveil en tant que membre de la lignée du Vermillon!
 
 Cet oiseau rougeoyant était d'une majesté absolue et empreint d'intelligence. Dès qu'il poussa son cri, toutes les flammes du désert de sable noir devinrent folles.
 

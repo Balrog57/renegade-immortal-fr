@@ -22,7 +22,7 @@ Le regard de Wang Lin s'anima. Il ne partit pas immédiatement, mais vérifia se
 
 « C'est suffisant! » Wang Lin régula sa respiration et chargea vers la surface. Sa vitesse était fulgurante; il apparut près du trou noir, quittant les profondeurs abyssales pour pénétrer dans la Mer Montagneuse.
 
-Dès qu'il émergea du trou noir, le dragon marin arriva prestement. Il poussa un rugissement, les yeux brillants de joie. Wang Lin hocha la tête et ils s'élancèrent ensemble vers le haut.
+Dès qu'il émergea du trou noir, le dragon marin arriva prestement d'en haut. Il poussa un rugissement, les yeux brillants de joie. Wang Lin hocha la tête et ils s'élancèrent ensemble vers le haut.
 
 Il avait déjà remarqué que le sort d'immobilisation sur l'Exalté Empyréen Hai Zi avait perdu son effet.
 
@@ -44,7 +44,7 @@ Le poulpe haïssait le dragon marin jusqu'à la moelle. En jaillissant, des ondu
 
 Le duel entre les deux bêtes marines provoqua des grondements tonitruants et des ondes de choc violentes qui se propagèrent dans toute la mer.
 
-Simultanément, la belle Exalté Empyréen Hai Zi observait Wang Lin avancer. Elle ne le détestait pas vraiment; au contraire, il y a trois ans, elle n'avait eu de lui qu'une vague impression. Son cœur n'avait éprouvé aucune fluctuation, comme si elle avait simplement croisé un inconnu.
+Simultanément, la belle Exalté Empyréen Hai Zi observait Wang Lin avancer. Elle ne le détestait pas vraiment; au contraire, il y a trois ans, il lui avait laissé une impression assez nette. Son cœur n'avait éprouvé aucune fluctuation, comme si elle avait simplement croisé un inconnu.
 
 Après l'échec de Wang Lin lors de cette bataille passée, l'Exalté Empyréen Hai Zi l'avait oublié. Mais aujourd'hui, tout était différent. Wang Lin réapparaissait trois ans plus tard et l'avait immobilisée pendant plus de dix respirations d'un seul doigt!
 
@@ -80,7 +80,7 @@ Ces 96 traits équivalaient à la fusion de 90 sorts. Le sceau ovale dégageait 
 
 L'Empreinte de l'Esprit de la Guerre de Wang Lin percuta l'oiseau bleu. Un grondement tonitruant retentit tandis que l'oiseau s'effondrait pour redevenir une cloche. Le reste de l'Empreinte vola vers l'avant, mais au moment où elle toucha le sceau, elle se désintégra silencieusement!
 
-« Quel genre de sort est-ce là? » Les pupilles de Wang Lin se contractèrent; le sceau ovale lui procurait un immense sentiment de danger. Sans hésiter, il porta ses mains à sa tête et cambra son corps en arrière. 97 images rémanentes apparurent, donnant l'impression qu'il s'apprêtait à donner un coup de tête!
+« Quel genre de sort est-ce là? » Les pupilles de Wang Lin se contractèrent; le sceau ovale lui procurait un immense sentiment de danger. Sans hésiter, il leva les deux mains et cambra son corps en arrière. 97 images rémanentes apparurent, donnant l'impression qu'il s'apprêtait à donner un coup de tête!
 
 « Charge du Taureau Céleste!! »
 

@@ -64,7 +64,7 @@ Wang Lin cracha du sang et d'innombrables fissures apparurent sur son cœur. Son
 
 Cette silhouette était elle aussi empreinte de douleur, comme si elle se débattait!
 
-Cependant, sous la pression du cœur de la troisième couche, l'ombre de Tu Si s'effondra. Elle fut effacée de l'héritage de Wang Lin!
+Cependant, sous la pression du cœur de la troisième couche, l'ombre de Tu Si, haute comme le ciel, s'effondra. Elle fut effacée de l'héritage de Wang Lin!
 
 Au moment où l'ombre de Tu Si disparut, une tête gigantesque prit sa place derrière lui!
 
@@ -98,11 +98,11 @@ Cela offrait à Wang Lin une base solide pour devenir un Dieu Antique à 8 étoi
 
 Un Dieu Antique à 8 étoiles: le corps le plus puissant après celui des dieux à neuf étoiles. Comment cela pouvait-il être si facile?
 
-Alors que la puissance jaillissant de la troisième couche se précipitait vers lui, Wang Lin pressa sa main droite sur le démon ancien, provoquant son tremblement. Les pierres s'effondrèrent et son corps perdit sa dureté rocheuse. Simultanément, des étoiles de démon ancien apparurent dans son œil droit!
+Alors que la puissance jaillissant de la troisième couche se précipitait vers lui, Wang Lin pressa sa main droite sur le démon ancien, provoquant son tremblement. Les pierres s'effondrèrent et son corps perdit sa dureté rocheuse. Simultanément, des étoiles de démon ancien apparurent dans l'œil droit du démon ancien!
 
 La cinquième et la sixième étoile de démon ancien surgirent soudainement!
 
-Tout cela se produisit en un éclair. L'œil gauche de Wang Lin était presque aveugle. Une douleur intense ne venait pas seulement de son œil, mais aussi de son cœur. Du sang frais coulait de sa cavité oculaire gauche.
+Tout cela se produisit en un éclair. L'œil gauche de Wang Lin était presque aveugle. Une douleur intense ne venait pas seulement de son œil, mais aussi de son cœur et de son âme. Du sang frais coulait de sa cavité oculaire gauche.
 
 S'il continuait, il deviendrait totalement aveugle d'un œil et perdrait la moitié de ses souvenirs!
 
@@ -116,4 +116,4 @@ Le palais retomba dans un silence de mort. Seules deux respirations rauques cont
 
 Wang Lin ferma les yeux, et la tête gigantesque qui avait remplacé Tu Si disparut lentement. Après un long moment, il retrouva son calme et ouvrit les yeux.
 
-« Désormais, je ne suis plus un Dieu Antique issu de l'héritage de Tu Si... Je suis... l'Ordre Antique! » Wang Lin retira sa main droite du démon ancien et pointa entre ses sourcils. Il extirpa lentement l'héritage mémoriel qu'il avait obtenu dans la Terre du Dieu Antique!
+« Désormais, je ne suis plus un Dieu Antique issu de l'héritage de Tu Si... Je suis... l'Ordre Antique! » Wang Lin retira sa main droite du démon ancien et pointa entre ses sourcils. Il extirpa lentement de son âme l'héritage mémoriel de Tu Si qu'il avait obtenu dans la Terre du Dieu Antique!

@@ -14,9 +14,9 @@ Ce vortex était désormais visible par tous ceux qui se trouvaient à proximit�
 
 Puis, le ciel changea: un immense trou noir apparut dans l'immensité sans nuages. À l'intérieur de ce gouffre, on pouvait distinguer l'éclat des étoiles.
 
-Wang Lin sembla s'en apercevoir et son Âme Naissante leva la tête. Son regard perça la paroi de la grotte pour fixer le trou noir.
+Wang Lin sembla s'en apercevoir et son Âme Naissante leva la tête. Ses yeux s'illuminèrent de deux faisceaux de lumière, et son regard perça la paroi de la grotte pour fixer le trou noir.
 
-Son cœur fut immédiatement saisi par une émotion violente. Il reconnut cette scène dans les souvenirs de l'Ancien Dieu: c'était l'espace situé au-delà de la planète Suzaku.
+Son cœur fut immédiatement saisi par une émotion violente. Il reconnut cette scène dans les souvenirs de l'Ancien Dieu Tu Si: c'était l'espace situé au-delà de la planète Suzaku.
 
 Lorsqu'un cultivateur atteint le stade de Formation de l'Âme, son Âme Naissante subit une série de mutations. Ce processus exige une quantité colossale d'énergie spirituelle. Durant cette transition, l'individu peut utiliser son domaine pour ouvrir un passage vers la voûte céleste et puiser dans cette énergie infinie afin de franchir le stade de Formation de l'Âme.
 
@@ -24,7 +24,7 @@ C'est une opportunité unique que chaque cultivateur reçoit lorsqu'il atteint c
 
 L'apparition du trou noir fut la confirmation ultime pour tous les cultivateurs de l'Âme Naissante de Zhao ayant étudié les récits anciens: il était certain que quelqu'un était en train d'atteindre le stade de Formation de l'Âme à Zhao.
 
-L'énergie spirituelle jaillit du trou noir tel un raz-de-marée et fut aspirée par le vortex. Elle subit alors une succession de transformations avant de pénétrer dans le corps de Wang Lin.
+L'énergie spirituelle jaillit du trou noir tel un raz-de-marée et fut aspirée par le vortex. Elle subit alors une succession de transformations avant de pénétrer dans l'Âme Naissante de Wang Lin.
 
 L'Âme Naissante commença lentement à émettre une lumière arc-en-ciel. Cette lueur devint de plus en plus éclatante, jusqu'à recouvrir l'intégralité des montagnes arrières. Bientôt, toute la Secte Xuan Dao fut enveloppée par cette radiance multicolore.
 
@@ -32,9 +32,9 @@ L'Âme Naissante commença lentement à émettre une lumière arc-en-ciel. Cette
 
 Pour eux, pouvoir assister au passage d'un être vers la Formation de l'Âme durant leur existence était un honneur et une chance inouïe. C'était également un immense bénéfice pour leur propre culture.
 
-Cependant, ce n'était pas pour cela que Wang Lin avait choisi de franchir ce stade à Zhao; il l'avait fait simplement par une étrange impulsion intérieure. Sans le vouloir, il avait tout de même offert au monde cultivateur de Zhao la marque d'un espoir de Formation de l'Âme.
+Cependant, ce n'était pas pour cela que Wang Lin avait choisi de franchir ce stade à Zhao. Sans le vouloir, il avait tout de même offert au monde cultivateur de Zhao la marque d'un espoir de Formation de l'Âme.
 
-Les cultivateurs possédant déjà une Âme Naissante furent les premiers à bénéficier de ce phénomène, car leurs propres âmes semblaient subir des mutations. Leurs Âmes Naissantes s'échappèrent de leurs corps pour commencer à cultiver.
+Les cultivateurs possédant déjà une Âme Naissante furent les premiers à bénéficier de ce phénomène, car leurs propres âmes semblaient subir des mutations. Leurs Âmes Naissantes s'échappèrent de leurs corps, s'assirent en tailleur au-dessus de leur tête et commencèrent à cultiver.
 
 À mesure que l'Âme Naissante de Wang Lin absorbait davantage d'énergie spirituelle, la lumière arc-en-ciel s'intensifia. Son âme commença également à flotter de plus en plus haut, à trois pouces au-dessus de sa tête.
 
@@ -64,7 +64,7 @@ Peu après, l'Âme Naissante de Wang Lin devint transparente, comme si elle risq
 
 C’est alors que le trou noir dans le ciel cracha la dernière parcelle d'énergie spirituelle avant de se refermer et de disparaître.
 
-Cette ultime essence descendit telle un dragon pour pénétrer dans l'Âme Naissante. À cet instant, des éclats d'une énergie étrange s'échappèrent de l'âme.
+Cette ultime essence descendit telle un dragon rugissant pour pénétrer dans l'Âme Naissante. À cet instant, des éclats d'une énergie étrange s'échappèrent de l'âme.
 
 L'intégralité de l'Âme Naissante passa de la transparence à une consistance solide. Elle grandit progressivement jusqu'à atteindre la taille d'un être humain. En y regardant de plus près, on pouvait constater que son Âme Naissante était le reflet exact de son corps physique.
 

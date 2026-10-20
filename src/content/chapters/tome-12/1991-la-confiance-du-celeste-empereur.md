@@ -60,7 +60,7 @@ C'était l'assurance de celui qui tient tout entre ses mains!
 
 Le Grand Empyréen Gémeaux affichait une expression grave et ne se précipita pas de manière irréfléchie. Elles fixaient la tête de l'Ancêtre Céleste. Une trace rare d'effroi apparut dans le cœur des deux jeunes filles!
 
-Et ce n'était pas un simple frisson, mais un sentiment de terreur profonde!
+Et ce n'était pas un simple frisson, mais un sentiment de crainte profonde!
 
 À l'intérieur de l'œil droit de l'Ancêtre Céleste, l'Enseignant Impérial qui avait pris possession de Wang Lin était livide. Il ne s'attendait pas à ce que l'Empereur Céleste ait tout cela déjà prévu!
 
@@ -104,13 +104,13 @@ Il projeta sa main et l'oiseau battit des ailes en volant vers le Grand Empyrée
 
 Le Grand Empyréen Gémeaux recula et les deux jeunes filles devinrent solennelles. Sans hésiter, elles s'envolèrent pour fusionner avec le soleil pourpre. Leurs corps se muèrent en fumée avant de prendre la forme d'une magnifique femme d'une vingtaine d'années!
 
-Cette femme était vêtue de pourpre et ses yeux brûlaient de fureur. Elle leva sa main semblable à du jade, et le monde entier devint violet!
+Cette femme était vêtue de pourpre et ses yeux brûlaient de fureur. Elle leva sa main semblable à du jade, et le monde entier devint pourpre!
 
 « Rendez-moi Wang Lin et je partirai immédiatement — je ne m'impliquerai plus dans cette affaire. Sinon... Lin Pourpre descendra sur la cité ancestrale! » La couleur pourpre envahit ce palais interdit, s'étendant jusqu'au palais souterrain au-dessus. Même le ciel fut instantanément recouvert par cette lueur violacée qui enveloppa chaque centimètre de la terre jusqu'à recouvrir la cité ancestrale tout entière!
 
 Au même moment, dans le ciel surplombant la cité, un immense météore pourpre, comparable à la moitié de la taille de la ville elle-même, apparut. Il dégageait une pression écrasante en descendant vers la cité ancestrale. D'innombrables fissures se formèrent au sol et les cultivateurs utilisèrent divers moyens pour fuir la ville.
 
-Les yeux de l'Empereur Céleste se plissèrent alors qu'il fixait le Grand Empyréen Gémeaux fusionné. La lumière dorée provenant de la tête sous ses pieds devint plus intense, luttant contre la lueur pourpre. La puissance dorée contenait l'essence même de l'Ancêtre Céleste, et la lumière pourpre peinait, forcée de reculer lentement.
+Les yeux de l'Empereur Céleste se plissèrent alors qu'il fixait le Grand Empyréen Gémeaux fusionné. La lumière dorée provenant de la tête sous ses pieds devint plus intense, luttant contre la lueur pourpre. La puissance dorée appartenait à l'Ancêtre Céleste, et la lumière pourpre peinait, forcée de reculer lentement.
 
 « Si les yeux de l'Ancêtre Céleste ne s'étaient pas ouverts et si je n'avais pu le contrôler, j'aurais peut-être fait un compromis face à votre sort le plus puissant, le Sort de la Foi Lin Pourpre... Mais pour l'instant, ce n'est pas suffisant! » L'Empereur Céleste était débordant de confiance.
 

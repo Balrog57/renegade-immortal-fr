@@ -12,9 +12,9 @@ Sa majesté de dévoreur d'âmes se manifesta soudainement avec éclat. Sans par
 
 La petite bête commença à se débattre en émettant ses propres rugissements, mais comparés au cri de Wang Lin, ils étaient empreints d'impuissance. La petite créature finit par supplier de grâce par le regard.
 
-Le dragon formé par le Royaume Ji de Wang Lin fixa froidement la petite créature pendant un long moment avant de finalement retourner dans son corps. Il agita ensuite la main et sortit un étendard d'âmes. Le démon n'hésita pas une seconde: il se transforma en brume rouge pour s'engouffrer dans l'étendard.
+Le dragon formé par le Royaume Ji de Wang Lin fixa froidement la petite créature pendant un long moment avant de finalement retourner dans son corps. Il agita ensuite la main et sortit un drapeau d'âmes. Le démon n'hésita pas une seconde: il se transforma en brume rouge pour s'engouffrer dans le drapeau.
 
-Wang Lin laissa une parcelle de son Sens Divin dans l'étendard avant de le ranger dans son sac de rangement. Puis, d'un revers de main, des fils apparurent dans toute la pièce. C'était une contre-mesure qu'il avait mise en place contre le démon.
+Wang Lin laissa une parcelle de son Sens Divin dans le drapeau avant de le ranger dans son sac de rangement. Puis, d'un revers de main, des fils apparurent dans toute la pièce. C'était une contre-mesure qu'il avait mise en place contre le démon.
 
 D'un geste de Wang Lin, ces fils de Sens Divin retournèrent vers lui.
 
@@ -76,7 +76,7 @@ Hélas, dès son apparition, la dizaine de tornades environnantes poussèrent de
 
 Le démon poussa un cri misérable. Cette attaque combinée de Sens Divin était au-dessus de ses forces. Son corps commença à dégager une fumée verte, et il voulut reculer vers Wang Lin, mais une seconde attaque survint.
 
-Au même instant, Wang Lin sortit un étendard d'âmes et le fit vibrer, faisant apparaître le second démon. Ce dernier fut surpris un instant avant de lâcher un cri strident.
+Au même instant, Wang Lin sortit un drapeau d'âmes et le fit vibrer, faisant apparaître le second démon. Ce dernier fut surpris un instant avant de lâcher un cri strident.
 
 Après ce cri, toutes les tornades s'interrompirent et cessèrent de tourner, révélant les innombrables petites créatures à leur intérieur. Toutes furent stupéfaites par la vue du second démon. Même l'attaque dirigée contre Xu Liguo fut interrompue.
 

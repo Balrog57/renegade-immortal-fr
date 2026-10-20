@@ -52,7 +52,7 @@ Le vieil homme en robe blanche parvint à peine à tenir debout. Il serra les de
 
 Le regard glacial de Wang Lin se posa sur lui et il dit froidement: « Ce doit être toi. Je peux sentir l'aura du drapeau de l'âme sur toi. Tu es mort! »
 
-Le cœur du vieil homme en robe blanche trembla; il serra les dents et rétorqua: « Oui, c'est ce vieillard qui a pris ces petits drapeaux! Si tu en as les moyens, brise la formation et viens les chercher! »
+Le cœur du vieil homme en robe blanche trembla; il serra les dents et rétorqua: « Oui, c'est ce vieillard qui a pris ces petits drapeaux! Si tu en as les moyens, brise la formation et entre! »
 
 Wang Lin le regarda froidement et dit calmement: « Tu crois vraiment que cette formation peut m'arrêter?! » Il effleura son sac de rangement, et une hache gigantesque, capable de fendre les cieux et luisant d'éclairs noirs, apparut dans les airs.
 
@@ -66,7 +66,7 @@ Un rayon d'énergie de hache, long de trente-trois mètres, s'abattit sur la for
 
 Le fracas fut si violent que même les habitants de la vallée, pourtant très éloignée, purent l'entendre distinctement.
 
-Wang Lin ne s'arrêta pas à un seul coup. Il continua de marteler la formation avec sa hache, tel un dieu de la guerre primordial.
+Wang Lin ne s'arrêta pas à un seul coup. Il continua de marteler la formation avec sa hache, tel un dieu démon primordial.
 
 Le visage du vieil homme en robe blanche était devenu livide et le regret dans son cœur atteignait son comble. Il n'aurait jamais imaginé que sa cupidité d'un instant attirerait un tel expert, et de surcroît un étranger; chaque étranger possédait de grands pouvoirs divins et ne devait pas être offensé à la légère!
 

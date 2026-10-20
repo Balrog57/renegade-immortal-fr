@@ -46,7 +46,7 @@ La corne noire sur le front du dragon dégageait une lueur sombre; à chaque éc
 
 À cet instant, le dragon poussa un rugissement capable de secouer les cieux, faisant trembler les montagnes environnantes et s'effondrer les rochers. Peu après, la corne noire émit une lumière aveuglante et un filet de foudre noire se propagea. Simultanément, une énergie originelle infinie convergea, absorbant même une partie de la lumière aux sept couleurs.
 
-*Roar!*
+*Rugissement!*
 
 Le rugissement du dragon fit vaciller l'esprit de chacun. Tandis que la bête hurlait, le filet de foudre noire s'étendit sur un rayon de 1 000 pieds. À mesure que l'énergie originelle et la lumière aux sept couleurs étaient absorbées, des illusions commencèrent à surgir autour du dragon.
 
@@ -82,7 +82,7 @@ Maître Pin Cendré prit une profonde inspiration. Il fixa le dragon, puis Wang 
 
 Même le garçon se lécha les lèvres, un soupçon d'effroi dans le regard en observant Wang Lin.
 
-La vieille femme en vert laissa échapper un soupir et resta pensive.
+La vieille femme en vert inspira brusquement et resta pensive.
 
 Celui qui éprouvait la plus grande terreur était l'homme nommé Pang, qui avait réussi de justesse à éviter l'impact. En songeant à la menace que représentait Wang Lin, il sentit l'amertume lui monter à la gorge.
 
@@ -112,7 +112,7 @@ Maître Pin Cendré se leva et avança: « Tout le monde, en route. »
 
 La vieille femme en vert et Chen Tianjun se levèrent simultanément. Seul le garçon hésita un instant avant de suivre le mouvement.
 
-Wang Lin, assis à l'écart, les regardait s'éloigner tout en tenant la pierre de jade. Quelque chose y était consigné... quelque chose lié au royaume aux sept couleurs.
+Wang Lin, assis à l'écart, les regardait approcher tout en tenant la pierre de jade. Quelque chose y était consigné... quelque chose lié au royaume aux sept couleurs.
 
 « Cet endroit est... » La pensée de Wang Lin fut interrompue lorsqu'il tourna soudainement la tête pour regarder derrière le groupe. Ses pupilles se rétractèrent et chaque pore de sa peau se hérissa!
 

@@ -58,7 +58,7 @@ Pourtant, à cet instant précis, cette flamme était comme une vague violente s
 
 À cet instant, l'esprit de Wang Lin trembla. Il fut saisi par l'incrédulité, comme s'il découvrait une vérité totalement inconcevable.
 
-L'énergie originelle afflua dans chaque partie de son corps sans qu'il puisse la contrôler, et des bruits de déchirement et d'explosion résonnèrent en lui.
+L'énergie originelle afflua dans chaque partie de son corps sans qu'il puisse la contrôler, et des bruits sourds et répétés résonnèrent en lui.
 
 C'était comme si un artiste martial mortel venait d'ouvrir tous ses méridiens.
 

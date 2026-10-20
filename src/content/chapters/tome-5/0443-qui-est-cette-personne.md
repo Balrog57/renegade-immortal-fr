@@ -50,7 +50,7 @@ Le regard de Wang Lin se posa sur le vieil homme qui portait cette trace d'éner
 
 Les yeux du vieil homme s'illuminèrent et il tonna: « Silence! » Tandis que le jeune homme était encore sous le choc, le vieillard se leva, joignit respectueusement les mains vers Wang Lin et déclara: « Nanming des Terres Sauvages salue l'Aîné. Mon disciple a été impoli et vous a offensé. J'espère que vous saurez lui pardonner. » Sur ces mots, il s'écarta promptement.
 
-À l'annonce de ces paroles, les personnes alentour furent stupéfaites, mais elles se levèrent rapidement pour s'écarter avec respect.
+À l'annonce de ces paroles, les quatre personnes à ses côtés furent stupéfaites, mais elles se levèrent rapidement pour s'écarter avec respect.
 
 Wang Lin adressa un signe de tête au vieil homme en passant devant lui, puis atteignit la zone située à 330 mètres du mont Suzaku. Dès qu'il posa le pied dans ce périmètre, hormis le seul cultivateur de la Transformation de l'Âme au stade avancé, quinze regards se braquèrent sur lui.
 
@@ -64,7 +64,7 @@ Wang Lin marcha vers le pied du mont Suzaku. Il s'assit près de l'entrée et m�
 
 Parmi les seize cultivateurs de la Transformation de l'Âme présents, le seul au stade avancé était un homme d'âge moyen. Vêtu d'une robe pourpre, il paraissait tout à fait ordinaire. Il était assis en tailleur, les yeux clos. Une antique épée noire était posée devant ses genoux, son gland doré flottant au vent tandis que les deux clochettes fixées dessus produisaient un tintement cristallin.
 
-Un petit singe aux yeux rouges était assis à ses côtés. L'animal se grattait parfois la tête en poussant des cris vers l'entrée.
+Un petit singe aux yeux rouges était assis à ses côtés. L'animal se grattait parfois la tête en montrant les dents vers l'entrée.
 
 Au moment où Wang Lin s'assit, l'homme d'âge moyen ouvrit les yeux. Son regard fut calme lorsqu'il fixa Wang Lin et prononça: « Ceng Niu! »
 
@@ -88,7 +88,7 @@ L'homme d'âge moyen secoua la tête: « Non. »
 
 Le regard de l'homme devint glacial, puis il exerça une pression sur le petit singe. L'animal se mit immédiatement à hurler et ses yeux commencèrent à luire d'un rouge vif.
 
-À cet instant précis, le passage menant à la tombe émit une lueur et une ondulation verte se propagea. Cela signifiait que quelqu'un était mort à l'intérieur et qu'une nouvelle entrée était possible.
+À cet instant précis, le passage menant à la tombe émit une lueur noire et une ondulation verte se propagea. Cela signifiait que quelqu'un était mort à l'intérieur et qu'une nouvelle entrée était possible.
 
 L'homme d'âge moyen fronça les sourcils, jeta un dernier regard vers Wang Lin, puis se leva pour marcher vers le passage. La lueur rouge s'estompa lentement dans les yeux du petit singe, bien que ses pupilles fussent encore teintées de rouge, mais la lumière était bien moins intense qu'auparavant.
 
@@ -96,6 +96,6 @@ L'homme pensa intérieurement: « Wang Lin, tu ne reconnais pas celui que je sui
 
 Les yeux de Wang Lin s'illuminèrent en observant l'homme entrer dans la tombe. Il ne l'avait jamais rencontré, mais ce sourire effrayant lui laissait une sensation de familiarité. Pourtant, malgré de longues réflexions, il ne parvint pas à se remémorer où il avait déjà vu un tel sourire.
 
-Une fois l'homme d'âge moyen entré, les trois cultivateurs du stade intermédiaire de la Transformation de l'Âme se levèrent et s'élancèrent vers le passage. Les autres cultivateurs, les yeux brillants d'appétit, firent de même. Beaucoup de personnes étaient mortes à l'intérieur cette fois-ci, ce qui permettait à une foule bien plus nombreuse de pénétrer dans la tombe.
+Une fois l'homme d'âge moyen entré, les trois cultivateurs du stade intermédiaire de la Transformation de l'Âme se levèrent et s'élancèrent vers le passage. Les autres cultivateurs, le visage soudain animé, firent de même. Beaucoup de personnes étaient mortes à l'intérieur cette fois-ci, ce qui permettait à une foule bien plus nombreuse de pénétrer dans la tombe.
 
-Wang Lin les suivit de près et s'engagea également dans le passage. Dans un éclat de lumière verte, tous ceux qui le précédaient disparurent. Puis, la lueur verte clignota de nouveau et l'un des cultivateurs de la Transformation de l'Âme fut expulsé vers l'extérieur. Il poussa un rugissement de rage en regagnant sa place, s'asseyant brutalement, les poings serrés!
+Wang Lin les suivit de près et s'engagea également dans le passage. Dans un éclat de lumière verte, tous ceux qui le précédaient disparurent. Puis, la lueur verte clignota de nouveau et l'un des cultivateurs de la Transformation de l'Âme au stade initial fut expulsé vers l'extérieur. Il poussa un rugissement de rage en regagnant sa place, s'asseyant brutalement, les poings serrés!

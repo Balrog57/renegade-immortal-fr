@@ -78,7 +78,7 @@ Ouyang Hua s'arrêta au pied de cette formation naturelle. Les arbres se faisaie
 
 « Céleste Suprême, regardez! » Ouyang Hua s'arrêta et pointa devant lui.
 
-Le Sens Divin de Wang Lin se déploya, et il afficha aussitôt un air de compréhension. Son regard se porta sur une falaise nichée au creux de la vallée.
+Le Sens Divin de Wang Lin se déploya, et il se figea aussitôt. Son regard se porta sur une falaise nichée au creux de la vallée.
 
 Cette paroi était entièrement cyan, ce qui la distinguait nettement des autres falaises environnantes. Pourtant, ce n'était pas cela qui captivait Wang Lin; c'était l'objet blanc, semblable à du cristal, situé au centre de la paroi. Ce cristal, de forme diamantaire, semblait suspendu à la falaise.
 

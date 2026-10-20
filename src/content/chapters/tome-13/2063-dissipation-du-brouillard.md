@@ -8,7 +8,7 @@ slug: dissipation-du-brouillard
 ---
 Le Grand Empyréen Gu Dao, l'être le plus puissant du Continent Astral Immortel!
 
-Sa culture était mystérieuse et il n'avait pas fait mouvement depuis d'innombrables années. D'un simple doigt, le monde changea de couleur et le ciel montra des signes d'effondrement. Même la muraille marine s'enfonça, comme si elle ne pouvait supporter une telle force.
+Sa culture était mystérieuse et il n'avait pas fait mouvement depuis de nombreuses années. D'un simple doigt, le monde changea de couleur, les vents et les nuages se renversèrent et le ciel montra des signes d'effondrement. Même la muraille marine s'enfonça, comme si elle ne pouvait supporter une telle force.
 
 La chevelure blanche de Wang Lin s'agita. Le doigt illusoire de Gu Dao contenait la puissance du vent, de la pluie et du tonnerre. Le tonnerre rugissait tandis que des éclairs parcouraient le doigt. Les nuages s'entrechoquaient, créant des grondements assourdissants et formant d'innombrables gouttes de pluie. Le doigt était imprégné de chaos.
 
@@ -96,7 +96,7 @@ Une seule sphère pouvait tuer un Ascendant Empyréen, et près de dix mille exp
 
 « Dao de la Vie Extrême! » Les yeux de Wang Lin s'ouvrirent soudainement, révélant deux étranges rayons de lumière. Cette clarté se propagea autour de lui telle une aura sombre, formant une barrière protectrice.
 
-Des grondements tonitruants résonnèrent comme si des millions d'éclairs explosaient simultanément. Cette onde de choc fit trembler l'intégralité du vaste bassin et affecta jusqu'aux lois du monde. Le Continent Astral Immortel tout entier ressentit cette collision.
+Des grondements tonitruants résonnèrent comme si des millions d'éclairs explosaient simultanément. Cette onde de choc fit trembler l'intégralité du vaste bassin, se propagea vers le clan Ancien et le clan Céleste et affecta jusqu'aux lois du monde. Le Continent Astral Immortel tout entier ressentit cette collision.
 
 Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Yang Pourpre et sur le glacier du Continent Nord — les quatre Grands Empyréens présents, à l'exception de Lian Daofei, sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
 
@@ -110,4 +110,4 @@ Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Yang Pourpre et sur le gla
 
 Quatre rayons de lumière jaillirent du clan Céleste en direction du vaste bassin.
 
-Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empyréen de l'Ancien Ji ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois se précipitèrent vers le vaste bassin.
+Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empyréen de l'Ancien Ji ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois s'élancèrent dans le ciel en direction du vaste bassin.

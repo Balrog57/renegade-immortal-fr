@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 688 - Let Dirt Return to Dirt, Let Dust Return to Dust
 slug: que-la-poussiere-retourne-a-la-poussiere-que-la-terre-retourne-a-la-terre
 ---
-Huan Wuqing leva les yeux vers l'écran de lumière et dit brusquement: « Parle! » Si le Dao du Démon Céleste des Dix Mille Illusions de Liu Mei était complet, il pourrait simplement le dévorer. Cependant, son Dao n'était pas achevé; si elle refusait de s'en départir, il est fort probable que son Dao s'effondrerait avant qu'il ne puisse réussir sa dévoration.
+Huan Wuqing leva les yeux vers l'écran de lumière et dit brusquement: « Parle! » Si le Dao du Démon Céleste des Dix Mille Illusions de Liu Mei était complet et stabilisé, il pourrait simplement le dévorer. Cependant, son Dao n'était pas achevé; si elle refusait de s'en départir, il est fort probable que son Dao s'effondrerait avant qu'il ne puisse réussir sa dévoration.
 
 Liu Mei dit doucement: « La première chose à faire est de m'aider à tuer Wang Lin! » Son regard transperça l'écran de lumière pour se poser sur Wang Lin, ses yeux trahissant une haine d'une complexité indicible.
 
@@ -86,7 +86,7 @@ Après avoir poussé un soupir, l'ancêtre de la famille Huan tenta de s'enfuir.
 
 Le démon dispersé éclata d'un rire et projeta son énergie démoniaque. L'ancêtre de la famille Huan fut enveloppé par celle-ci et dévoré par le démon.
 
-« Petit poupon Wang Lin, ce démon a tenu sa promesse! » Le démon dispersé se retourna soudainement pour lancer un regard sombre à Wang Lin. Puis, il fit un pas vers le vide et disparut sans laisser de trace.
+« Petit enfant Wang Lin, ce démon a tenu sa promesse! » Le démon dispersé se retourna soudainement pour lancer un regard sombre à Wang Lin. Puis, il fit un pas vers le vide et disparut sans laisser de trace.
 
 L'environnement retomba dans un silence total; les membres de la famille Huan étaient tous pétrifiés. Tout ce qui s'était produit aujourd'hui les avait profondément choqués et avait suscité chez eux un immense respect pour Wang Lin.
 
@@ -124,6 +124,6 @@ Il avait trop vécu au cours de ses plus de huit cents ans de culture...
 
 Quelques jours plus tard, sur la planète Ran Yun, dans le village de la Lune Déchue, une nouvelle famille s'était installée. Cette famille était étrange; elle ne comptait que deux personnes: un jeune homme à l'aura antique et un bébé.
 
-Au même moment, dans le système stellaire de Luotian, Cupidité errait avec une expression sombre. Il y avait tout simplement trop de restrictions sur son corps, au point que chaque fois qu'il y pensait, son cuir chevelu s'engourdissait et son cœur se glaçait.
+Au même moment, dans le système stellaire de Luotian, Cupidité errait avec une expression sombre. Il y avait tout simplement trop d'empreintes sur son corps, au point que chaque fois qu'il y pensait, son cuir chevelu s'engourdissait et son cœur se glaçait.
 
-« Maudit Wang Lin! Si je ne le trouve pas rapidement, l'une des restrictions de mon corps s'activera et je mourrai sans sépulture! »
+« Maudit Wang Lin! Si je ne le trouve pas rapidement, l'une des empreintes de mon corps s'activera et je mourrai sans sépulture! »

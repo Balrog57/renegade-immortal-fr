@@ -54,7 +54,7 @@ Les hommes autour applaudirent à cette remarque. L'hôte qui permettait à Wang
 
 La femme de l'homme corpulent secoua la tête et rentra dans la maison. Deux jeunes suivirent, et bientôt, trois pichets furent apportés.
 
-Le temps s'écoula ainsi, et en un clin d'œil, un mois passa. La saison des pluies n'était pas terminée, mais l'averse avait faibli. Il y avait même des jours où le soleil perçait brièvement, faisant cesser la pluie.
+Le temps s'écoula ainsi, et en un clin d'œil, un mois passa. La saison des pluies n'était pas terminée, mais l'averse avait faibli. Il y avait même chaque jour un bref instant où le soleil perçait, faisant cesser la pluie.
 
 Wang Lin était devenu très populaire au village. Tout le monde semblait accepter ce voisin si calme qui se révélait être un grand buveur. Les villageois l'acceptaient également comme médecin. De nombreux anciens et habitants souffrant de maladies tenaces avaient pu constater ses talents médicaux.
 

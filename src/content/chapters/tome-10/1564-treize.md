@@ -18,7 +18,7 @@ Le vieil homme en noir était livide. Bien qu'il fût un cultivateur de la trois
 
 Cependant, le Maître Long Pan leva calmement sa main droite derrière l'homme en noir, et la Peinture des Montagnes et des Rivières bloqua sa fuite.
 
-L'expression de Qing Shui se glaça et il pointa l'index vers le vieil homme. Les cinq fissures sur le visage de ce dernier commencèrent à se déchirer une fois de plus! Le Sort Clair de Lune Sombre était un sort qui s'imprimait sur l'ennemi et pouvait jaillir continuellement avec une puissance terrifiante.
+L'expression de Qing Shui se glaça et il pointa l'index vers le vieil homme. Les cinq fissures sur le visage de ce dernier commencèrent à se déchirer une fois de plus! Le Sort Lune Noire, Ciel Clair était un sort qui s'imprimait sur l'ennemi jusqu'à la moelle et pouvait jaillir continuellement avec une puissance terrifiante.
 
 L'expression de Wang Lin restait calme, et au moment où les trois autres attaquèrent, ses yeux brillèrent. Une lumière dorée se concentra à la pointe de son doigt et il pointa le vieil homme en noir.
 

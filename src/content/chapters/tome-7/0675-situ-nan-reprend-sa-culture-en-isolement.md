@@ -76,13 +76,13 @@ Cette vision pesait lourdement sur le cœur et oppressait l'esprit.
 
 Des vagues de rugissements émanaient de la planète Yun Xia, dont la majorité provenait du sous-sol.
 
-« C'est une planète de culture totalement gâchée... » Wang Lin songea silencieusement tout en avançant, son Sens Divin déployé à la recherche d'une veine métallique. En volant, il aperçut les ruines de plusieurs cités. Il était évident que cet endroit avait été autrefois extrêmement prospère, mais tout n'était plus que décombres.
+« Ainsi, c'est une planète de culture totalement abandonnée... » Wang Lin songea silencieusement tout en avançant, son Sens Divin déployé à la recherche d'une veine métallique. En volant, il aperçut les ruines de plusieurs cités. Il était évident que cet endroit avait été autrefois extrêmement prospère, mais tout n'était plus que décombres.
 
 Les tentacules sortant du sol s'enroulaient autour des ruines des villes. On ne pouvait s'empêcher d'avoir la chair de poule face à un tel spectacle.
 
 Alors qu'il survolait silencieusement les lieux, le regard de Wang Lin balaya les cités. À cet instant, tous les tentacules qui ondulaient s'arrêtèrent brusquement. Puis, ils se rétractèrent rapidement pour disparaître de la surface.
 
-À ce moment-là, un rugissement fracassant retentit à l'horizon lointain. Un nuage rouge qui recouvrait tout chargea vers Wang Lin avec frénésie.
+À ce moment-là, un rugissement fracassant retentit à l'horizon lointain. Un nuage rouge, qui illuminait tout dans l'obscurité, chargea vers Wang Lin avec frénésie.
 
 Une bête féroce et massive montait sur le nuage rouge. Cette créature ressemblait à un dragon, mais ce n'en était pas un. Son long corps mesurait environ 3,3 kilomètres et sa tête était triangulaire. On pouvait dire qu'elle ressemblait à un serpent, mais tout son corps était recouvert de poils.
 
@@ -116,7 +116,7 @@ Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à
 
 « Hmph! » Les deux femmes fusionnèrent immédiatement les deux sphères de lumière qu'elles tenaient. Les globes se fondirent instantanément pour prendre la forme d'une femme extrêmement séduisante.
 
-« Cette fois, je ne te laisserai pas filer! » La silhouette féminine fit un pas et leva sa main de jade. Le ciel s'obscurcit soudainement et la terre commença à trembler. Les cieux et la terre furent rapidement compressés.
+« Cette fois, je ne te laisserai pas filer! » La silhouette féminine fit un pas et leva sa main de jade. Le ciel s'abaissa soudainement et la terre commença à trembler. Les cieux et la terre furent rapidement compressés.
 
 Situ Nan poussa un cri étrange; une flamme sembla brûler en lui alors qu'il s'élançait pour fuir. Bien qu'il ait chargé, il cracha une large bouchée de sang et son visage devint instantanément livide.
 

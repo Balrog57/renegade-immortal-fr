@@ -12,7 +12,7 @@ Même dans la Mer des Nuages, un cultivateur capable d'éliminer instantanément
 
 Li Xiangdong et ses compagnons contemplèrent la scène avec stupéfaction. Ils avaient l'impression que ce Grand Oncle-Maître, qu'ils n'avaient jamais vu auparavant, était empreint de mystère et de majesté. Bien qu'ils aient eu des doutes sur l'identité de Wang Lin, ils choisirent de les ignorer sans la moindre hésitation.
 
-« Avec un cultivateur aussi puissant au sein de ma Secte de l'Origine, il ne sera qu'une question de temps avant que celle-ci ne domine la région de rang 5! » Li Xiangdong et les deux anciens se regardèrent, l'esprit exalté!
+« Avec un cultivateur aussi puissant au sein de ma Secte de l'Origine, il ne sera qu'une question de temps avant que celle-ci ne domine la région de rang 5! » À l'exception de Lu Yanfei, Li Xiangdong et les deux anciens se regardèrent, l'esprit exalté!
 
 S'ils avaient su que Wang Lin avait tué un cultivateur Briseur du Nirvana de la région de rang 6, ils en auraient été encore plus choqués.
 
@@ -30,7 +30,7 @@ Ce carnage dura environ sept minutes avant de s'estomper progressivement. Finale
 
 La barrière protectrice entourant le continent de Mo Luo fut réparée et tout sembla revenir à la normale, comme si rien n'avait changé. Pourtant, le choc ressenti par les cultivateurs de la Secte de l'Origine demeurait intact.
 
-À cet instant, devant la cour sud, Li Xiangdong, Lu Yanfei et les deux autres anciens se tenaient là. Bien qu'ils fussent présents depuis un long moment, ils ne manifestaient aucune impatience.
+À cet instant, devant la cour des herbes de la cour sud, Li Xiangdong, Lu Yanfei et les deux autres anciens se tenaient là. Bien qu'ils fussent présents depuis un long moment, ils ne manifestaient aucune impatience.
 
 Tous les cultivateurs de la cour sud avaient été relogés dans les trois autres cours. Hormis Xu Yun, qui se tenait aux côtés de Lu Yanfei, aucun autre disciple n'était resté sur place.
 

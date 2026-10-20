@@ -20,7 +20,7 @@ S'il n'avait pas obtenu la reconnaissance de l'Ancêtre Ancien, cela n'aurait eu
 
 Cette soi-disant reconnaissance n'était qu'une manière d'identifier quelqu'un comme un descendant afin de lui transmettre votre lignée. Or, Wang Lin n'avait que faire de cette lignée!
 
-S'il le souhaitait, il pouvait obtenir la lignée céleste du fou. C'était une existence équivalente à la lignée ancienne!
+S'il le souhaitait, il pouvait obtenir la lignée céleste du Fou. C'était une existence équivalente à la lignée ancienne!
 
 C'est pour cette raison que Wang Lin allait charger le vortex. Si ce prétendu Ancêtre Ancien ne lui donnait pas plus de sang, il forcerait ces quatre gouttes à sortir de son corps et renoncerait à son identité d'ancien. Il prendrait la lignée céleste, obtiendrait le Corps Céleste Immortel et deviendrait un être céleste!
 

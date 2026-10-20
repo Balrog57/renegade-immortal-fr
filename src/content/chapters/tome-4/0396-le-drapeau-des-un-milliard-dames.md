@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 396 - One billion soul soul flag
 slug: le-drapeau-des-un-milliard-dames
 ---
-Alors que la nouvelle de l'affrontement entre Ceng Niu et Li Yuanfeng se répandait sur la planète, Ceng Niu disparut une fois de plus.
+Alors que la nouvelle de l'affrontement entre Ceng Niu et Xue Yu se répandait sur la planète, Ceng Niu disparut une fois de plus.
 
 Après avoir quitté Xue Yu, Wang Lin trouva immédiatement un lieu isolé avant de placer les deux membres dans la perle défiant le ciel.
 
@@ -14,7 +14,7 @@ Il se tint devant l'âme gigantesque de Situ Nan. Dès son arrivée, il leva le 
 
 À l'instant où il les libéra, les deux membres flottèrent mystérieusement autour de l'âme de Situ Nan.
 
-Wang Lin observa la scène avec une expression grave. Il avait pressenti que ces bras appartenaient à Situ Nan, et il en était désormais absolument certain.
+Wang Lin observa la scène avec une expression grave. Il avait pressenti que ces bras appartenaient à Situ Nan, et il en était désormais encore plus certain.
 
 Pour la première fois depuis des centaines d'années, l'âme de Situ Nan trembla. Soudain, une lumière éclatante jaillit et enveloppa les deux membres sectionnés.
 
@@ -36,7 +36,7 @@ Après un long silence, Wang Lin poussa un soupir et quitta la perle défiant le
 
 « Je dois reprendre l'épée céleste au patriarche du Clan des Démons Géants! Autrefois, Sun Tai avait combattu le patriarche de ce clan, mais ce dernier l'avait emporté en utilisant son pouvoir de lignée. Cependant, il fut ensuite blessé par une marionnette-enfant de Sun Tai, puis poursuivi; on ignore s'il est encore en vie ou mort. »
 
-« Même s'il n'est pas mort, il devra posséder un nouveau corps. Le temps nécessaire pour s'adapter à une nouvelle enveloppe peut varier. Je me demande s'il a pleinement assimilé ce nouveau corps... » D'un seul pas, Wang Lin apparut devant un ancien réseau de transfert.
+« Même s'il n'est pas mort, il cherchera à coup sûr un nouveau corps. Le temps nécessaire pour s'adapter à une nouvelle enveloppe peut varier. Je me demande s'il a pleinement assimilé ce nouveau corps... » D'un seul pas, Wang Lin apparut devant un ancien réseau de transfert.
 
 « Le patriarche du Clan des Démons Géants diffère de Li Yuanfeng. Ce dernier a atteint le stade de la Transformation de l'Âme par la force, tandis que le patriarche l'a atteint par sa propre culture. De plus, le style de combat du Clan des Démons Géants s'apparente à celui d'un Dieu Ancien. Peut-être leur ancêtre avait-il un lien avec les Dieux Anciens. »
 
@@ -76,11 +76,11 @@ Wang Lin attrapa calmement le sac. Après l'avoir inspecté, son visage prit une
 
 Ouyang Tian eut un sourire amer: « Le jeune maître est le successeur désigné par l'Ancien Du Tian lui-même. Je suis à la Secte de l'Affinement de l'Âme depuis 700 ans et je n'ai jamais vu l'Ancien offrir une telle chose, bien qu'il ne s'agisse pas du drapeau principal, mais d'un sous-drapeau illusionnaire. »
 
-Plus tôt, Du Tian l'avait convoqué pour lui ordonner de remettre ce sac à Wang Lin dès son arrivée. Curieux, il avait vérifié son contenu et ce qu'il y avait découvert l'avait terrassé. S'il n'avait pas été consumé par sa loyauté indéfectible envers la Secte et son respect pour Du Tian, la cupidité l'aurait emporté.
+Plus tôt, Du Tian l'avait convoqué pour lui ordonner de remettre ce sac à Wang Lin dès son arrivée. Discrètement, il avait vérifié son contenu et ce qu'il y avait découvert l'avait terrassé. S'il n'avait pas été consumé par sa loyauté indéfectible envers la Secte et son respect pour Du Tian, la cupidité l'aurait emporté.
 
 Il n'y avait que deux objets dans le sac. Un morceau de jade et un drapeau d'âme.
 
-Wang Lin sortit le jade et l'examina. Après un instant, il prit une profonde inspiration et s'inclina vers l'anneau de sang en disant: « Merci! » Bien que sa voix fût feutrée, il grava ce geste dans son cœur.
+Wang Lin sortit le jade et l'examina. Après un instant, il prit une profonde inspiration et s'inclina vers l'anneau de sang en disant: « Merci! » Bien que sa voix fût feutrée, il grava cette faveur dans son cœur.
 
 Puis, d'un signe de tête envers Ouyang Tian, il disparut.
 
@@ -90,32 +90,32 @@ L'expression d'Ouyang Tian devint plus complexe encore. Il secoua la tête dans 
 
 À l'intérieur du jade, Du Tian avait consigné une description très détaillée du pouvoir de lignée du Clan des Démons Géants.
 
-Wang Lin prit une grande inspiration. Il toucha le sac que Du Tian lui avait laissé et, aussitôt, une lumière pourpre et dorée s'en échappa. Cette lueur était si vive qu'elle se mua instantanément en un drapeau de plus de dix mètres de haut qui ondulait sans aucun vent.
+Wang Lin prit une grande inspiration. Il toucha le sac que Ouyang Tian lui avait remis et, aussitôt, une lumière pourpre et dorée s'en échappa. Cette lueur était si vive qu'elle se mua instantanément en un drapeau de plus de dix mètres de haut qui ondulait sans aucun vent.
 
 Simultanément, des ondes de gémissements fantomatiques semblèrent émaner du drapeau et le ciel s'obscurcit davantage. Même la lune parut se dissimuler derrière les nuages, comme si elle craignait d'apparaître.
 
-Plusieurs lueurs pourpres et dorées étaient visibles à l'intérieur du drapeau, comme si elles s'apprêtaient à surgir pour dévorer le ciel et la terre.
+Plusieurs lueurs pourpres et dorées étaient visibles sur le drapeau, comme si elles s'apprêtaient à surgir pour dévorer le ciel et la terre.
 
 « Le drapeau des un milliard d'âmes! » Wang Lin prit une profonde inspiration en fixant l'objet.
 
-C'était le second objet que l'Ancien Du Tian avait placé dans le sac, celui-là même qui avait provoqué l'expression si complexe d'Ouyang Tian. Wang Lin était revenu pour emprunter un trésor à l'Ancien afin de pouvoir abattre le patriarche du Clan des Démons Géants.
+C'était le second objet que l'Ancien Du Tian avait placé dans le sac, celui-là même qui avait provoqué l'expression si complexe d'Ouyang Tian. Wang Lin était revenu pour emprunter un trésor à l'Ancien afin de pouvoir abattre le patriarche du Clan des Démons Géants et reprendre l'épée céleste.
 
 Cependant, ce n'était pas le véritable drapeau; le vrai se trouvait aux côtés de Du Tian durant sa méditation. Celui-ci était un sous-drapeau issu du principal. Il ne contenait qu'un tiers de la puissance du véritable artefact et ne pouvait être utilisé que deux fois avant de disparaître.
 
-Malgré cela, ce sous-drapeau était inestimable. Les yeux de Wang Lin brillèrent et il s'en saisit. Au moment du contact, son âme originelle trembla et se projeta hors de son corps pour pénétrer dans le drapeau d'âme. Aussitôt, il eut la sensation de basculer dans un enfer réservé aux cultivateurs.
+Malgré cela, ce sous-drapeau était inestimable. Les yeux de Wang Lin brillèrent et il s'en saisit. Au moment du contact, son âme originelle trembla et se projeta hors de son corps pour pénétrer dans le drapeau d'âme. Aussitôt, il eut la sensation de basculer dans l'enfer des Asuras.
 
 Il voyait une mer d'âmes se précipiter vers lui pour le noyer. Des vagues de hurlements et de cris de douleur l'assaillirent comme des attaques dévastatrices. Il eut soudain l'impression d'être percuté par plus de cent millions de fragments d'âmes.
 
-Malgré la puissance de son corps, il sentit qu'il allait se briser sous une telle force. Ce qui le choqua le plus fut de voir son âme originelle montrer des signes d'effondrement. Il ne pouvait même pas résister à une seule attaque!
+Malgré la puissance de son corps, il eut la sensation que sa chair et ses os se séparaient sous une telle force. Ce qui le choqua le plus fut de voir son âme originelle montrer des signes d'effondrement. Il ne pouvait même pas résister à une seule attaque!
 
 Sa main droite, tenant le drapeau, trembla. Les yeux de Wang Lin étincelèrent et il recouvra rapidement sa concentration pour activer la technique de scellement de l'âme que Du Tian lui avait transmise.
 
 Le drapeau des un milliard d'âmes était le trésor suprême de la Secte de l'Affinement de l'Âme. À l'échelle de la planète entière, il pouvait être considéré comme l'un des plus grands artefacts existants. Ce trésor, à l'instar du char de guerre et de l'épée céleste, exigeait une méthode unique, héritée des générations précédentes, pour être maîtrisé.
 
-La méthode de contrôle de ce drapeau était la technique de scellement de l'âme. À ce jour, en comptant Wang Lin, seules deux personnes en connaissaient l'usage.
+La méthode de contrôle de ce drapeau était la technique de scellement de l'âme. À ce jour, au sein de la secte, en comptant Wang Lin, seules deux personnes en connaissaient l'usage.
 
 Cela différait du char de guerre: bien qu'il possédât la technique pour le diriger, Wang Lin était trop faible pour l'utiliser pleinement, et sa puissance n'était donc pas à la hauteur de son potentiel. Cependant, ce drapeau était différent. Bien qu'un certain niveau de culture fût requis, l'exigence n'était pas aussi élevée que celle du char de guerre. Grâce à la fusion de son corps originel et de son avatar, le niveau actuel de Wang Lin était suffisant pour manier l'objet.
 
-La technique de scellement s'activa dans son corps et son âme originelle, au sein du drapeau, commença soudainement à rayonner. Tous les fragments d'âmes qui chargeaient vers lui poussèrent des cris déchirants.
+La technique de scellement s'activa dans son corps et son âme originelle, au sein du drapeau, commença soudainement à rayonner. Tous les fragments d'âmes qui chargeaient vers lui poussèrent des cris déchirants et se dispersèrent.
 
 Parmi ces fragments, douze âmes pourpres et dorées s'échappèrent pour encercler Wang Lin. Ces âmes dégageaient une pression colossale. Les douze fragments d'âmes pourpres et dorées s'inclinèrent alors devant lui.

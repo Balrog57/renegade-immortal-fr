@@ -30,9 +30,9 @@ Les nombreux êtres célestes s'élancèrent pour charger les combattants en con
 
 En un instant, tout sombra dans le chaos.
 
-Pourtant, au milieu de ce tumulte, une lumière bleue monstrueuse jaillit de l'œil droit de Wang Lin. Le pilier que l'Omniscient avait érigé commença à s'effondrer, transpercé par cet éclat azur.
+Pourtant, au milieu de ce tumulte, une lumière bleue monstrueuse jaillit de l'œil droit de Wang Lin. La colonne de terre que l'Omniscient avait soulevée commença à s'effondrer, transpercé par cet éclat azur.
 
-Sous la force du choc, le pilier s'écrasa en un tas de gravats. Une épaisse couche de poussière s'éleva dans les airs, dispersant tous ceux qui se trouvaient sur l'édifice.
+Sous la force du choc, la colonne s'écrasa en un tas de gravats. Une épaisse couche de poussière s'éleva dans les airs, dispersant tous ceux qui se trouvaient sur l'édifice.
 
 Wang Lin bondit dans les airs et chargea l'Omniscient.
 
@@ -58,7 +58,7 @@ L'Omniscient, brandissant son trident, fut saisi par la peur. Cette lumière ble
 
 « C'est... »
 
-« Omniscient, notre combat prend fin ici! » rugit Wang Lin alors que l'éclat bleu de son œil droit jaillissait et qu'un bouclier de lumière azur apparaissait. Ce bouclier, bien qu'ayant été scindé en deux, fusionna soudainement avant de se briser en d'innombrables particules de lumière qui envahirent la zone.
+« Omniscient, notre combat n'est pas encore terminé! » rugit Wang Lin alors que l'éclat bleu de son œil droit jaillissait et qu'un bouclier de lumière azur apparaissait. Ce bouclier, bien qu'ayant été scindé en deux, fusionna soudainement avant de se briser en d'innombrables particules de lumière qui se dispersèrent alentour.
 
 À cet instant, le cœur de l'Omniscient vacilla; un sentiment de danger inconnu l'envahit. C'était une menace d'une intensité si rare qu'il en eut le souffle coupé. Sans hésiter, il porta sa main gauche entre ses sourcils et déchira violemment!
 
@@ -102,7 +102,7 @@ Pourtant, certains refusèrent d'y croire, pensant qu'il ne s'agissait que d'une
 
 Il n'eut même pas le temps d'esquiver. En un clin d'œil, le pied droit percuta la terre, qui trembla plus violemment encore. Lorsque le pied se releva, l'être céleste avait disparu, ne laissant derrière lui qu'une traînée de sang et de chair. Son âme originelle s'était également effondrée!
 
-Cette scène fit reprendre haleine à l'assistance. À cet instant, un oiseau géant de 10 000 pieds de long laissa échapper un cri féroce et survola les lieux.
+Cette scène coupa le souffle à l'assistance. À cet instant, un oiseau géant de 10 000 pieds de long laissa échapper un cri féroce et survola les lieux.
 
 Un grondement tonnerre accompagna son passage; ses ailes étaient comme des lames tranchantes. Il balaya les cultivateurs de l'Alliance qui formaient la formation, et des centaines d'entre eux furent tranchés en deux. Le sang éclaboussa tout autour...
 

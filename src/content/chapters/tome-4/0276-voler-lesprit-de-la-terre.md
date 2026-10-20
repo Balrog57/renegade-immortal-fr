@@ -8,7 +8,7 @@ slug: voler-lesprit-de-la-terre
 ---
 Wang Lin affichait un visage sombre alors qu'il se dissimulait dans la montagne enneigée. Si Xue Yu ne possédait que cela, l'Alliance des Quatre Sectes l'emporterait sans aucun doute, mais il ressentait pourtant un étrange sentiment de danger.
 
-Il réfléchit un instant, puis ses yeux s'illuminèrent: son sens divin venait de détecter l'Esprit de la Terre. Son corps dégageait une fumée noire et s'envolait en direction de la montagne depuis la Secte de l'Âme Noire. Derrière lui, le jeune homme au pinceau le poursuivait avec désinvolture. À chaque mouvement du pinceau dans sa main, l'Esprit de la Terre tremblait et une quantité accrue de fumée noire émanait de lui.
+Il réfléchit un instant, puis ses yeux s'illuminèrent: son sens divin venait de détecter l'Esprit de la Terre. Son corps, à 5 000 kilomètres de là, dégageait une fumée noire et s'envolait depuis la Secte de l'Âme Noire en direction de la montagne. Derrière lui, le jeune homme au pinceau le poursuivait avec désinvolture. À chaque mouvement du pinceau dans sa main, l'Esprit de la Terre tremblait et une quantité accrue de fumée noire émanait de lui.
 
 En voyant cela, Wang Lin hésita. Après un moment, il prit une décision. Il quitta silencieusement la montagne enneigée et chargea vers l'Esprit de la Terre en utilisant sa technique d'évasion tellurique.
 
@@ -22,7 +22,7 @@ Simultanément, Wang Lin prit une profonde inspiration et manipula ses mains ave
 
 À l'instant même où il achevait ses gestes, l'Esprit de la Terre arriva.
 
-L'Esprit de la Terre était dans un état chaotique. En voyant Wang Lin, il ne lui prêta aucune attention. Bien qu'il fût affaibli à présent, sa culture au stade avancé de la Formation de l'Âme lui permettait encore de tuer à volonté un cultivateur du stade avancé de l'Âme Naissante.
+L'Esprit de la Terre était dans un état chaotique. En voyant Wang Lin, il ne lui prêta aucune attention. Bien qu'il fût affaibli à présent, sa culture au sommet du stade avancé de la Formation de l'Âme lui permettait encore de tuer à volonté un cultivateur du stade avancé de l'Âme Naissante.
 
 À ses yeux, Wang Lin n'était pas digne de l'inciter à la prudence.
 
@@ -32,7 +32,7 @@ L'Âme Naissante en son corps trembla, manquant de s'effondrer.
 
 L'Esprit de la Terre fronça les sourcils, mais ne marqua aucun temps d'arrêt. Le sang que Wang Lin avait recraché se transforma en une brume sanguine qui se dissipa dans l'air.
 
-Au même moment, une épaisse fumée noire apparut. Des bras de restriction jaillirent et encerclèrent l'Esprit de la Terre. Peu après, huit anneaux de restriction noirs apparurent, formant avec le drapeau de restriction une cage destinée à piéger l'Esprit de la Terre.
+Au même moment, une épaisse fumée noire apparut. Des volutes de restriction jaillirent et encerclèrent l'Esprit de la Terre. Peu après, huit anneaux de restriction noirs apparurent, formant avec le drapeau de restriction une cage destinée à piéger l'Esprit de la Terre.
 
 Wang Lin recula immédiatement. Il savait qu'avec son niveau de culture, il ne pourrait en aucun cas résister à l'Esprit de la Terre. Cependant, il n'avait pas l'intention de l'affronter lui-même; il devait simplement le contenir jusqu'à ce que le jeune homme au pinceau arrive. La bataille serait alors terminée.
 
@@ -96,7 +96,7 @@ Dès l'apparition de cette créature, l'aura bleu foncé devint plus dense et s'
 
 Wang Lin prit une inspiration glaciale et quitta la montagne de neige sans laisser de trace. Moins de trois respirations après son départ, l'aura bleue balaya la zone, transformant la montagne de neige en une montagne de glace.
 
-À ce moment-là, la créature serpentine avait déjà parcouru la moitié du chemin. À la surprise générale, sa partie supérieure était humaine. Wang Lin s'était déjà attendu à ce que la créature ressemble aux sculptures de glace.
+À ce moment-là, la créature serpentine avait déjà parcouru la moitié du chemin. À la surprise générale, sa partie supérieure était humaine. Wang Lin avait déjà deviné, dès l'arrivée de la créature, qu'il s'agissait de la bête gravée sur les sculptures de glace.
 
 Bien qu'il eût déjà informé Zhou Wutai de la situation, il n'appartenait pas à Wang Lin de se soucier de savoir si l'Alliance des Quatre Sectes agirait ou non.
 

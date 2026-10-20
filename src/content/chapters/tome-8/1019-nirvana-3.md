@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 1019 - Nirvana (3)
 slug: nirvana-3
 ---
-Le papillon aux cinq couleurs battit des ailes, libérant une traînée de poudre multicolore. Wang Lin pointa Ming Hai du doigt derrière la mer de feu. Le papillon s'élança en déployant ses ailes.
+Le papillon aux cinq couleurs battit des ailes, libérant une traînée de poudre multicolore. Wang Lin pointa Ming Hai du doigt, derrière les flammes. Le papillon s'élança en déployant ses ailes.
 
 Un vent invisible, capable de briser toute puissance de la Loi, se déchaîna dans les ruines du désert de sable noir!
 
@@ -26,13 +26,13 @@ Son corps vacilla et il chargea Wang Lin. Sa main droite forma un sceau et point
 
 Une lueur glaciale passa dans les yeux de Wang Lin alors qu'il chargeait à son tour, formant un sceau de ses deux mains. Il mordit le bout de sa langue pour cracher une flèche de sang, puis utilisa sa main droite pour tracer une rune sanglante qui vint frapper le papillon aux cinq couleurs!
 
-« Chaque Char de Guerre Divin possède cinq sceaux. Après l'activation du troisième char, celui-ci s'est transformé en un cocon qui a donné naissance à ce papillon. Cependant, il reste encore cinq sceaux sur ce papillon. Ce n'est qu'en libérant les cinq que je pourrai prendre le contrôle de ce char et utiliser la véritable puissance de ce trésor créé par Maître Tian Bao, capable de terrasser les dieux! »
+« Chaque Char de Guerre Divin possède cinq sceaux. Après l'activation du troisième char, celui-ci s'est transformé en un cocon qui a donné naissance à ce papillon. Cependant, il reste encore cinq sceaux sur ce papillon. Ce n'est qu'en libérant les cinq que je pourrai prendre le contrôle de ce char et utiliser la véritable puissance de ce trésor créé par l'Estimé Tian Bao, capable de terrasser les dieux! »
 
 « La transformation en papillon peut être considérée comme le premier sceau. Maintenant, second sceau: libération! » La flèche de sang de Wang Lin percuta le papillon, le faisant trembler violemment. Dans ce frémissement, une sixième couleur apparut soudainement!
 
 Ming Hai s'avança rapidement, agitant une main recouverte de flammes. Une fois à portée de Wang Lin, il projeta un torrent de feu devant lui. Sans hésiter, Wang Lin invoqua le Fourneau de l'Ancien Dieu. Il disparut en un éclair pour réapparaître derrière Ming Hai.
 
-Un regard glacial traversa ses yeux tandis que sa main droite pressait impitoyablement le dos de Ming Hai. La Paire Dao de la Putréfaction apparut instantanément. Alors qu'une intention maléfique emplissait les lieux, une lumière grise illumina les pieds de Ming Hai.
+Un regard glacial traversa ses yeux tandis que sa main droite pressait impitoyablement le dos de Ming Hai. La Paire de Dao Fanée apparut instantanément. Alors qu'une intention maléfique emplissait les lieux, une lumière grise illumina les pieds de Ming Hai.
 
 Ming Hai afficha un sourire sinistre. Il ouvrit les bras et une énergie céleste démoniaque jaillit, créant une onde de choc qui se propagea avec rapidité!
 
@@ -51,6 +51,8 @@ Ming Hai fit volte-face et agita sa main droite, lançant à nouveau la mer de f
 La chaleur qui soufflait sur Wang Lin rendit sa peau encore plus craquelée, bien que peu de brume de sang ne s'en échappât. Il se sentait étourdi par la perte excessive de son sang.
 
 Même son âme originelle s'était affaiblie, mais grâce à l'Armure de Cuir de l'Ancien Dieu, elle n'était pas endommagée. Après tout, cette armure provenait d'un Ancien Dieu à huit étoiles, alors que le corps de Wang Lin n'était que de cinq étoiles!
+
+Alors que les flammes de « Brûle les Cieux » approchaient de toutes parts, l'inquiétude se peignit sur le visage de Wang Lin. Mais ses yeux se figèrent aussitôt: la poudre septicolore qui accompagnait les battements d'ailes du papillon traversa sans rencontrer la moindre résistance les flammes de Ming Hai et, en les traversant, les fit reculer pour les entraîner à sa suite!
 
 Même Ming Hai fut stupéfait par cela. Il laissa échapper un ricanement et, sa main gauche formant un sceau, pointa vers la terre. Puis il tendit la main vers le vide. Soudain, tout le sable qui s'était liquéfié en un liquide noir commença à converger dans la paume de Ming Hai.
 
@@ -88,7 +90,7 @@ Il regarda alors en arrière et vit l'océan de flammes s'étendre à perte de v
 
 Les cris de douleur de Ming Hai résonnaient au loin. Il se tenait la tête en rugissant sans relâche. Wang Lin pouvait clairement voir la lumière septicolore dans le sourcil droit de Ming Hai. Cette lueur scintillait comme si elle voulait sceller cette plaie.
 
-Pourtant, juste au moment où la blessure semblait scellée, le fragment noir dans la cicatrice fut encerclé par les gaz septicolores. Cela interrompit le flux d'énergie démoniaque, et les yeux de Ming Hai entrèrent en transe, comme s'il s'éveillait d'un cauchemar éternel. Son visage était marqué par une douleur infinie. Il redressa brusquement la tête vers la surface blanche miroitante au-dessus de lui et esquissa un sourire misérable.
+Pourtant, juste au moment où la blessure semblait scellée, le fragment noir dans la cicatrice fut encerclé par la lumière septicolore. Cela interrompit le flux d'énergie démoniaque, et les yeux de Ming Hai entrèrent en transe, comme s'il s'éveillait d'un cauchemar éternel. Son visage était marqué par une douleur infinie. Il redressa brusquement la tête vers la surface blanche miroitante au-dessus de lui et esquissa un sourire misérable.
 
 « Empereur Céleste, Ming Hai a été déloyal. Par ma propre cupidité, je suis devenu un démon. Je mérite de mourir! » Dans un dernier sourire amer, les flammes infinies surgirent et l'enveloppèrent. Une fois les flammes disparues, l'homme n'était plus que cendres, ne laissant derrière lui que le papillon septicolore. Celui-ci traversa l'océan de feu pour revenir aux côtés de Wang Lin.
 
@@ -108,4 +110,4 @@ Wang Lin agita la main droite et les têtes s'effondrèrent. Puis, sa main forma
 
 Wang Lin regarda à l'intérieur et fut pétrifié par la surprise!
 
-Il vit une immense salle imprégnée d'énergie démoniaque. Un trône colossal trônait au centre de cette salle, et une personne y était assise!
+Il vit une immense salle imprégnée d'énergie démoniaque. Au sommet de cette salle, un trône colossal trônait, et une personne y était assise!

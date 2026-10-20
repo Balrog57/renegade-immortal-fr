@@ -66,7 +66,7 @@ Seule la marionnette de Zhou Gang ne subit aucun dommage. Elle s'interrompit bru
 
 Wang Lin ricana : « Fais un pas de plus et tu mourras! »
 
-Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia: « Camarade cultivateur, je vous en prie, ayez pitié! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas impulsif! »
+Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia: « Camarade cultivateur, je vous en prie, ayez pitié! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Je présenterai mes excuses, et si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas impulsif! »
 
 Ce petit être était mort de peur. Il avait voulu fuir, mais il avait soudainement ressenti une force destructrice pénétrer son corps. Pressentant le danger, il s'était précipitamment extrait de l'enveloppe charnelle.
 

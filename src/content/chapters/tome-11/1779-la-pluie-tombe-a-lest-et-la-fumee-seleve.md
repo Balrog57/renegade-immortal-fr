@@ -14,7 +14,7 @@ Par conséquent, trouver la véritable porte parmi les huit cachées dans la cin
 
 Wang Lin n'avait aucune piste, mais il devait néanmoins pénétrer dans la cinquième fleur, le dernier niveau de cette grotte.
 
-La cinquième fleur exigeait l'éclosion de la troisième âme. Cette troisième âme contenait tous les souvenirs et, une fois absorbée, la cinquième fleur se métamorphoserait pour créer un monde à partir des mémoires du Souverain aux Sept Couleurs.
+La cinquième fleur exigeait l'éclosion de la troisième âme. Cette troisième âme contenait les souvenirs de toute sa vie et, une fois absorbée, la cinquième fleur se métamorphoserait pour créer un monde à partir des mémoires du Souverain aux Sept Couleurs.
 
 Le ciel n'était pas bleu mais semblait couvert de nuages sombres, derrière lesquels neuf soleils étaient suspendus. Ces astres dégageaient une lumière brûlante, mais la terre était si vaste que même avec neuf soleils, certains endroits paraissaient ne jamais être atteints par leur éclat.
 
@@ -40,7 +40,7 @@ Ce jade était d'une clarté cristalline et n'avait rien d'ordinaire; lorsqu'il 
 
 Cependant, le reflet de Wang Lin dans la rivière différait grandement de son apparence habituelle. Son visage présentait des lèvres rouges, des dents blanches, des sourcils en forme d'épée et des yeux semblables à des étoiles. Ses yeux étaient particulièrement profonds, comme s'ils contenaient une puissance infinie. Devant un tel regard, les hommes étaient condamnés à la déférence et les femmes à l'admiration.
 
-Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était le plus bel homme que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait prise à Cupidité!
+Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était le plus bel homme que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait obtenue de Cupidité!
 
 En contemplant son reflet dans la rivière, Wang Lin gardait une expression étrange, même après deux mois passés ici.
 
@@ -72,7 +72,7 @@ Dans le monde de la cinquième fleur, Wang Lin avait pris l'apparence du jeune S
 
 Le jeune homme devant lui faisait partie de ceux qui le harcelaient régulièrement. Ils ne l'attaquaient jamais ouvertement, agissant toujours dans l'ombre, utilisant souvent les règles de la secte comme prétexte pour le punir.
 
-Le Souverain Céleste aux Sept Couleurs n'attira l'attention de l'Ancêtre que plus de dix ans plus tard, avant d'être progressivement soutenu par la secte.
+Le Souverain Céleste aux Sept Couleurs ne fut pris sous l'aile de l'Ancêtre que plus de dix ans plus tard, et commença alors peu à peu à se faire un nom au sein de la secte.
 
 Toutefois, Wang Lin n'était pas Su Dao, et il n'avait pas l'intention de laisser l'histoire se répéter. Alors que le jeune homme reculait, terrifié, Wang Lin fit un pas en avant et se posta à ses côtés. Le visage du garçon pâlit et ses yeux se remplirent d'effroi; il ne pouvait concevoir un tel changement.
 

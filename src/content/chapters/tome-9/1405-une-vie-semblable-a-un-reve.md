@@ -10,7 +10,7 @@ slug: une-vie-semblable-a-un-reve
 
 C'était comme si sa parole faisait loi!
 
-Tandis qu'un grondement résonnait, trois bâtons d'encens gigantesques, épais de milliers de pieds et hauts de dizaines de milliers de pieds, apparurent sur le dos de la tortue!
+Tandis qu'un grondement résonnait, trois bâtons d'encens gigantesques et non allumés, épais de milliers de pieds et hauts de dizaines de milliers de pieds, apparurent sur le dos de la tortue!
 
 Ces trois bâtons d'encens, d'un bleu sombre, perçaient le ciel. La tortue géante semblait s'être métamorphosée en un autel; la vue de ces trois piliers sur son dos était absolument stupéfiante!
 
@@ -40,7 +40,7 @@ Le Maître Simo laissa échapper un reniflement froid. « Le Conseil Souverain a
 
 Quant au Maître du Dao Miao Yin, il était allongé sur un nuage, les yeux plissés, laissant filtrer une lueur étrange.
 
-« Ce jeune homme doit être ce Wang Lin dont le Shui Daozi avait envoyé des informations... Le Seigneur du Domaine Scellé n'est pas mort... Ce Shui Daozi ne saurait mentir, mais je devrais rester sur mes gardes... J'ai agi la dernière fois parce que le Souverain m'avait offert de grands avantages, mais maintenant... S'ils veulent que j'intervienne, tout dépendra de la volonté du Conseil Souverain à m'accorder une récompense appropriée. »
+« Ce jeune homme doit être ce Wang Lin dont le Shui Daozi avait envoyé des informations... Le Seigneur du Royaume Scellé n'est pas mort... Ce Shui Daozi ne saurait mentir, mais je devrais rester sur mes gardes... J'ai agi la dernière fois parce que le Souverain m'avait offert de grands avantages, mais maintenant... S'ils veulent que j'intervienne, tout dépendra de la volonté du Conseil Souverain à m'accorder une récompense appropriée. »
 
 Le Maître du Dao Rêve Bleu observa calmement Wang Lin et soupira intérieurement.
 
@@ -66,7 +66,7 @@ Wang Lin prit une profonde inspiration et posa sa main droite sur le gigantesque
 
 Le bruit du courant de l'eau résonna à ses oreilles. Des rumeurs bourdonnantes provenant du lointain devinrent de plus en plus nettes, jusqu'à étouffer le clapotis de l'eau.
 
-Le ciel était d'un bleu pur, magnifique comme une peinture, parsemé de nuages blancs. Pourtant, tout semblait un peu artificiel.
+Le ciel était d'un bleu pur, magnifique comme une étoffe de soie déployée, parsemé de nuages blancs. Pourtant, tout semblait un peu artificiel.
 
 Wang Lin se tenait sur un pont surplombant une rivière. Plusieurs embarcations descendaient le courant, et une musique lointaine flottait jusqu'à lui. De chaque côté du pont, des rues bruyantes grouillaient de piétons, mais il était impossible de distinguer leurs visages.
 

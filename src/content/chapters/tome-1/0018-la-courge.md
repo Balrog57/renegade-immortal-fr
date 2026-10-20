@@ -30,7 +30,7 @@ Après le départ de Wang Lin, l'Ancien Sun avait immédiatement commencé à le
 
 L'énergie spirituelle ici était plus dense que dans sa chambre, bien qu'elle fût moins concentrée que dans le jardin d'herbes. Wang Lin, après mûre réflexion, jugeait que la Condensation de Qi se résumait simplement à la quantité d'énergie spirituelle contenue dans le corps. Bien qu'il ne puisse en absorber qu'une infime partie à chaque fois, faute de talent, il pouvait le compenser avec le temps.
 
-Les suppositions de Wang Lin étaient justes. La Condensation de Qi consistait à faire pénétrer l'énergie spirituelle dans le corps afin d'établir des fondations solides pour l'avenir.
+Les suppositions de Wang Lin étaient justes. La Condensation de Qi consistait à faire pénétrer l'énergie spirituelle dans le corps afin de préparer l'Établissement des Fondations.
 
 Wang Lin maintint sa technique de respiration jusqu'à midi, puis se leva pour s'étirer. Il ne ressentait toujours pas cette sensation de fourmillements parcourant son corps. Debout près de la source, il songea que l'Ancien Sun ne l'avait probablement pas laissé partir sans raison; le vieillard devait sûrement l'espionner à proximité.
 

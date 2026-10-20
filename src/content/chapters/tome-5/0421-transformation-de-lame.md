@@ -8,7 +8,7 @@ slug: transformation-de-lame
 ---
 Wang Lin était assis en position du lotus à l'intérieur de la grotte et sortit le sac que Du Tian lui avait donné. Après l'avoir parcouru de son sens divin, son expression devint étrange.
 
-Il savait que Du Tian avait amassé une grande quantité de jades célestes, mais il n'en connaissait pas le nombre exact. Chaque fois que les sectes remettaient des jades célestes, Du Tian les rangeait instantanément dans ce sac.
+Il savait que Du Tian avait amassé une grande quantité de jades célestes, mais il ne les avait jamais vus de ses propres yeux et n'en connaissait pas le nombre exact. Chaque fois que les sectes remettaient des jades célestes, Du Tian les rangeait instantanément dans ce sac.
 
 En les découvrant maintenant, il ne put s'empêcher d'être frappé par la stupeur.
 
@@ -24,7 +24,7 @@ L'énergie spirituelle céleste afflua dans son corps et commença à raffiner s
 
 Trois jours plus tard, les jades célestes entourant Wang Lin devinrent gris, se fissurèrent, puis finirent par tomber en poussière. Sans hésiter, Wang Lin frappa à nouveau le sac pour en extraire une nouvelle quantité de jades.
 
-L'absorption de l'énergie spirituelle céleste ne s'interrompit jamais. Elle s'engouffrait rapidement dans le corps de Wang Lin pour raffiner non seulement son énergie spirituelle, mais aussi sa chair et ses os.
+L'absorption de l'énergie spirituelle céleste ne s'interrompit jamais. Elle s'engouffrait rapidement dans le corps de Wang Lin pour raffiner non seulement son énergie spirituelle, mais aussi sa chair, ses méridiens et ses os.
 
 La première étape du stade de la Transformation de l'Âme consiste à raffiner intégralement le corps afin qu'il puisse supporter la puissance de l'énergie spirituelle céleste.
 
@@ -80,7 +80,7 @@ Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la g
 
 « Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par le Étendard de l'Âme, ce qui lui fera un petit renfort. »
 
-« Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune créature n'a encore réussi à m'effrayer. »
+« Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune bête capable de me faire reculer n'a encore été repérée sur toute la planète Suzaku. »
 
 Cette épreuve périlleuse pour atteindre le stade de la Transformation de l'Âme n'était rien pour Wang Lin sous la protection de Du Tian, mais elle représentait une menace mortelle pour les cultivateurs marginaux ou les faibles sectes.
 
@@ -106,7 +106,7 @@ Soudain, une lumière dorée et pourpre surgit au loin. La formation de protecti
 
 Les yeux de Du Tian s'illuminèrent et il laissa échapper un rire. Il avait délibérément configuré la formation pour ne pas bloquer les âmes; c'était ainsi qu'elles parvenaient à entrer.
 
-« Bien, viens! » s'exclama Du Tian en bondissant dans les airs pour intercepter l'âme dorée et pourpre.
+« Bien, viens! » s'exclama Du Tian en se relevant d'un bond pour intercepter l'âme dorée et pourpre.
 
 La lumière vira brusquement pour esquiver la main de Du Tian et fonça vers la grotte.
 

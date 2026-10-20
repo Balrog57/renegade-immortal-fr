@@ -36,7 +36,7 @@ Sous lui, les chefs de secte du Clan des Démons Géants affichaient tous des ex
 
 Sous ses pieds, une masse noire apparut soudainement en émettant un bourdonnement assourdissant. En y regardant de plus près, on pouvait voir que cette masse était composée d'une multitude d'insectes ne dépassant pas la taille d'un ongle.
 
-Dans la partie sud-ouest de Suzaku, un homme d'âge moyen se tenait sur une tour, observant le ciel avec une expression mélancolique: « Ting Er, la Porte Céleste s'est encore ouverte. Je vais absolument t'obtenir davantage de jades célestes afin que ton corps puisse être préservé pour mille ans de plus. »
+Dans la partie sud-ouest de Suzaku, un homme d'âge moyen se tenait sur une tour, observant le ciel avec une expression mélancolique: « Ting Er, la Porte Céleste s'est encore ouverte. Je vais absolument t'obtenir des jades célestes afin que ton corps puisse être préservé pour mille ans de plus. »
 
 Sur ce, son corps flotta dans les airs. Sa main gigantesque descendit vers le bas et saisit la tour. La structure massive rétrécit jusqu'à tenir dans sa paume, puis il s'avança dans l'illusion.
 
@@ -72,7 +72,7 @@ Cette couche nuageuse recelait un pouvoir illimité, et la pression qu'elle exer
 
 Pourtant, alors que la pression s'abattait sur Wang Lin, l'énergie autour de lui brilla et une brèche s'ouvrit dans les nuages pour lui permettre de passer.
 
-En traversant cette couche, il ressentit un sentiment de danger. Le passage était si étroit qu'il avait l'impression de pouvoir toucher les nuages en tendant simplement les jambes. Il savait pourtant que s'il entrait en contact avec eux, la puissance contenue dans les nuages fusionnerait avec lui pour le détruire.
+En traversant cette couche, il ressentit un sentiment de danger. Le passage était si étroit qu'il avait l'impression de pouvoir toucher les nuages en tendant simplement les jambes. Il savait pourtant que s'il entrait en contact avec eux, la pression des nuages s'abattrait sur lui pour le détruire.
 
 C'était là le pouvoir des cieux.
 

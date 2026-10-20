@@ -16,7 +16,7 @@ Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étai
 
 Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre des Esprits Démoniaques, il avait déjà senti qu'il était proche du stade de Purificateur du Nirvana, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
 
-Cette percée ne pouvait être forcée; plus on se montrait impatient, plus elle devenait difficile. Au cours des deux dernières années, Wang Lin avait continué à chercher la compréhension tout en absorbant l'énergie d'origine du feu. Son énergie d'origine était désormais presque à son apogée.
+Cette percée ne pouvait être forcée; plus on se montrait impatient, plus elle devenait difficile. Au cours des deux dernières années, l'esprit clair, Wang Lin avait continué à chercher la compréhension tout en absorbant l'énergie d'origine du feu. Son énergie d'origine avait désormais atteint son apogée.
 
 « Le pouvoir des Neuf Mystérieuses Transformations du Oiseau Vermillon augmente de plusieurs fois à chaque transformation. Cependant, ce sort est extrêmement difficile à cultiver et très peu d'Empereurs Divins du Oiseau Vermillon ont réussi à l'atteindre jusqu'à son apogée. » Derrière Wang Lin, le vieil homme leva sa main droite et pointa le dos de ce dernier.
 
@@ -36,11 +36,11 @@ Une personne était assise au sommet de la montagne. Cette personne avait une t�
 
 C'était Da Tou!
 
-Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divine du Oiseau Vermillon, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
+Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divine du Oiseau Vermillon, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé, grâce à la volonté de Da Tou, à reformer un corps identique au précédent.
 
 Da Tou devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
 
-Da Tou n'était pas le seul ici. Lei Ji était assis dans une grotte au loin, le corps couvert d'une sueur brûlante. Devant lui se trouvaient quelques fioles de jade rouge contenant les pilules qu'il absorbait.
+Da Tou n'était pas le seul ici. Lei Ji était assis dans un creux au loin, le corps couvert d'une sueur brûlante. Devant lui se trouvaient quelques fioles de jade rouge contenant les pilules qu'il absorbait.
 
 Le tonnerre rugissant dans le ciel s'estompa et s'éloigna à travers le champ d'étoiles ardent. Au sein de ce champ d'étoiles, une planète de forme irrégulière était traversée par une tempête sur un désert rouge.
 
@@ -48,7 +48,7 @@ Cette tempête s'élevait vers le ciel, emportant une quantité massive de sable
 
 Au moment où le tonnerre rugissant passa, la tempête s'arrêta soudainement, révélant le vortex qui la composait. Une personne cultivait au plus profond de ce vortex.
 
-Le corps de cet homme était immense, comme une véritable montagne de chair. En ce moment, il était couvert de sueur, mais cette montagne de chair ne semblait nullement diminuer de volume.
+Le corps de cet homme était immense, comme une véritable montagne de chair. En ce moment, il était presque nu et couvert de sueur, mais cette montagne de chair ne semblait nullement diminuer de volume.
 
 Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme dénué de bonté. Être au sein de la Secte Divine du Oiseau Vermillon est bien plus sûr que l'extérieur. »
 
@@ -62,7 +62,7 @@ Une petite planète se trouvait à la périphérie du champ d'étoiles ardent. L
 
 Un homme était assis au centre de la formation. Son visage dégageait une pointe de malice et une arrogance infinie. Tandis qu'il cultivait, son corps émanait une aura maléfique.
 
-Un immense bloc de glace flottait au-dessus de sa tête, au centre de la formation. Les flammes de la formation pénétraient la glace et, après avoir été transformées, l'homme en dessous les absorbait. Grâce à cette absorption, ses blessures guérissaient progressivement et il devenait plus puissant. Plus important encore, le poison dans son corps était totalement supprimé par le feu et la glace.
+Un bloc de glace dégageant du froid flottait au-dessus de sa tête, au centre de la formation. Les flammes de la formation pénétraient la glace et, après avoir été transformées, l'homme en dessous les absorbait. Grâce à cette absorption, ses blessures guérissaient progressivement et il devenait plus puissant. Plus important encore, le poison dans son corps était enfermé de force par le feu et la glace.
 
 Lorsque le tonnerre grondant traversa le ciel, l'homme ouvrit les yeux et une quantité importante de sueur coula sur son front. Malgré la présence de la glace, la chaleur ambiante le faisait transpirer sans cesse.
 
@@ -80,7 +80,7 @@ Dans un bruit sourd, l'homme fut arraché à la glace et s'écrasa au sol.
 
 Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divine du Oiseau Vermillon, il lui aurait été impossible de tenir deux ans.
 
-Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait avoir le cœur de pierre et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
+Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait inflexible et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
 
 « Qu'est-ce qu'il y a de si spécial chez les cultivateurs du Briseur du Nirvana? Malédiction, attends un peu. Tôt ou tard, je te ferai goûter à ce que cela fait d'être cuit à la vapeur! » Situ Nan se redressa et reprit sa culture à contrecœur.
 
@@ -104,7 +104,7 @@ Il était impossible de décrire la nature de ce regard; on ne pouvait que le co
 
 Wang Lin dit calmement: « L'Empereur Divin peut être serein. Je ferai de mon mieux. »
 
-« Vous avez dit que vous soupçonniez l'Empereur Divin Dragon Azure d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
+« Vous avez dit que vous soupçonniez l'Empereur Divin Dragon Azure d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture, qui a reçu la plus grande part de l'héritage du Royaume Céleste de la Pluie. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
 
 « Avec la puissance actuelle de nos quatre Sectes Divines, nous ne pouvons pas encore rivaliser avec l'Alliance de Culture. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je vous laisse le soin de secourir l'Empereur Divin Dragon Azure. »
 

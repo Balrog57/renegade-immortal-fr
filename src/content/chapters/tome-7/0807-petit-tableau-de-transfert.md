@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 807 - Small Transfer Array
 slug: petit-tableau-de-transfert
 ---
-Des vagues de brouillard noir encerclaient le sommet du fourneau, comme si elles tentaient de s'échapper. Cependant, une étrange puissance empêchait la brume noire de quitter les lieux.
+Des vagues de brouillard noir encerclaient l'ouverture du fourneau, comme si elles tentaient de s'échapper. Cependant, une étrange puissance empêchait la brume noire de quitter les lieux.
 
-Neuf crânes entouraient le grand fourneau. Il ne s'agissait pas de crânes de bêtes, mais de crânes humains! Un tatouage extrêmement complexe se trouvait entre les sourcils de chacun d'eux. Les crânes émettaient des éclats de lumière noire, comme s'ils formaient une formation.
+Neuf crânes entouraient le grand fourneau. Il ne s'agissait pas de crânes de bêtes, mais de crânes humains! Une rune extrêmement complexe se trouvait entre les sourcils de chacun d'eux. Les crânes émettaient des éclats de lumière noire, comme s'ils formaient une formation.
 
 Ta Shan regarda le grand fourneau d'un regard complexe et murmura: « C'est le Fourneau Yin Mystérieux. »
 
@@ -22,13 +22,13 @@ Wang Lin fixa le fourneau et dit lentement: « Je vais rester ici quelques jours
 
 Ta Shan réfléchit silencieusement, puis leva la tête pour regarder Wang Lin. Après une hésitation, il demanda: « Êtes-vous... vraiment un immortel? »
 
-Wang Lin détourna le regard pour fixer Ta Shan. Lorsque Ta Shan avait demandé à ouvrir la marche, il avait déjà compris que l'homme avait une question à lui poser. Wang Lin regarda Ta Shan avec calme et sérénité.
+Wang Lin détourna le regard pour fixer Ta Shan. Lorsque Ta Shan avait demandé à ouvrir la marche, il avait déjà compris que l'homme avait une question à lui poser. Wang Lin regarda Ta Shan avec calme et sérénité, sans un mot.
 
 Ta Shan afficha une expression amère et murmura: « Dans mon enfance, j'entendais souvent mes aînés dire que nous avions été choisis par les immortels, une lignée chérie des immortels. Que nous devions passer nos vies à leur servir. Que c'était l'honneur de mon clan... »
 
 « Cet honneur était la seule croyance de mon cœur en grandissant. Et cela ne concernait pas que moi, mais presque tous ceux qui avaient grandi au sein du clan. »
 
-« Cependant, en vieillissant, j'ai progressivement découvert que ce n'était pas vrai. Personne n'avait jamais vu d'immortel, si ce n'est ce décret céleste conservé dans le temple... »
+« Cependant, en vieillissant, j'ai progressivement découvert que ce n'était pas vrai. Personne n'avait jamais vu d'immortel, si ce n'est ce décret céleste conservé dans le sanctuaire ancestral... »
 
 « De temps à autre, le Fourneau Yin Mystérieux que mon clan gardait recrachait du brouillard. Et les choses qui en sortaient massacraient mon clan. J'ai souffert de chagrin et d'indignation face à la mort de chaque membre de ma lignée. J'ai commencé à me demander si les immortels existaient seulement. »
 
@@ -66,9 +66,9 @@ Presque instantanément, le cri strident capable de transpercer le sens divin r�
 
 Wang Lin se concentra pour utiliser son énergie originelle afin de protéger son âme originelle et commença à résister au cri. Le son devint encore plus violent dans son esprit. Finalement, la force de pénétration atteignit son apogée. Le visage de Wang Lin pâlit alors qu'il retirait sa main et reculait. Chaque pas qu'il faisait faisait trembler le sol et laissait derrière lui une empreinte profonde.
 
-Ce n'est qu'après avoir reculé de sept pas que son expression se rétablit. Après un reniflement froid, il chargea en avant et s'arrêta près de l'ouverture du fourneau. En regardant à l'intérieur, il ne vit que l'obscurité totale. Le brouillard noir environnant dégageait une aura glaciale.
+Ce n'est qu'après avoir reculé de sept pas que son visage reprit des couleurs. Après un reniflement froid, il s'élança en avant, s'envola et s'arrêta au-dessus de l'ouverture du fourneau. En regardant à l'intérieur, il ne vit que l'obscurité totale. Le brouillard noir environnant dégageait une aura glaciale.
 
-Ses yeux s'illuminèrent et il leva la main. Le tonnerre contenu dans son corps jaillit, formant une sphère de foudre dans sa paume. Il la lança vers le sommet du fourneau.
+Ses yeux s'illuminèrent et il leva la main. Le tonnerre contenu dans son corps jaillit, formant une sphère de foudre dans sa paume. Il la lança vers l'ouverture du fourneau.
 
 La sphère de tonnerre percuta l'ouverture du fourneau dans un grondement. Cependant, à cet instant, le brouillard noir se rassembla et dévora la boule de foudre.
 
@@ -88,7 +88,7 @@ Ta Shan, qui n'était pas loin, fut également affecté. Son visage pâlit, ses 
 
 Wang Lin recula sans hésiter mais fut tout de même atteint. Son visage devint livide et du sang jaillit de sa bouche. Il saisit Ta Shan et s'élança directement vers la sortie.
 
-L'ombre de la femme surgie du fourneau les poursuivait. Elle était extrêmement rapide et les rattrapa en un instant, poussant un nouveau cri. Une lueur d'intention meurtrière passa dans les yeux de Wang Lin alors qu'il crachait une bouchée de sang essentiel. La brume de sang se précipita vers l'ombre de la femme.
+L'ombre de la femme surgie du fourneau les poursuivait. Elle était extrêmement rapide et les rattrapa en un instant, poussant un nouveau cri. Une lueur d'intention meurtrière passa dans les yeux de Wang Lin alors qu'il crachait une bouchée de son essence originelle, transformée en brume de sang. Cette brume se précipita vers l'ombre de la femme.
 
 Wang Lin cria: « Scelle! »
 
@@ -102,7 +102,7 @@ Wang Lin fronça les sourcils tout en continuant de reculer. Arrivé à la porte
 
 Sous cette lueur rouge, les neuf filaments de gaz noir commencèrent immédiatement à se dissiper. Puis, ils fusionnèrent rapidement pour ignorer totalement la lumière du troisième œil et charger vers la sortie.
 
-Le vieil homme à la sortie avait déjà aperçu le gaz noir. Son expression changea radicalement et, sans attendre l'ordre de Wang Lin, ses mains commencèrent à former des sceaux. La marque entre ses sourcils se mit à clignoter rapidement avant de s'imprimer sur la porte.
+Le vieil homme à la sortie avait déjà aperçu le gaz noir. Son expression changea radicalement et, sans attendre l'ordre de Wang Lin, ses mains commencèrent à former des sceaux. La plante entre ses sourcils se mit à clignoter rapidement avant de s'imprimer sur la porte.
 
 La grande porte commença à se refermer lentement dans un fracas assourdissant. Le cri strident de la femme retentit aussitôt de l'autre côté. Le corps du vieil homme trembla tandis qu'il crachait du sang, semblant soudainement vidé de toute force.
 
@@ -120,11 +120,11 @@ Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne 
 
 Le vieil homme réfléchit silencieusement. Après un instant, il inclina respectueusement la tête. Puis, lui et Ta Shan se transformèrent en rayons de lumière et s'envolèrent au loin.
 
-Wang Lin fixa la porte. En voyant le vieil homme l'ouvrir, il avait clairement vu ce dernier utiliser le tatouage entre ses sourcils; c'était manifestement son tatouage de vie.
+Wang Lin fixa la porte. En voyant le vieil homme l'ouvrir, il avait clairement vu ce dernier utiliser la plante entre ses sourcils pour tracer une rune; c'était manifestement sa rune de vie.
 
 Tout en réfléchissant, Wang Lin frappa sa sacoche de stockage. Lorsqu'il était encore sur la planète Suzaku, il avait récupéré de nombreux crânes du Clan des Immortels Délaissés. Dans un éclat de lumière, plusieurs crânes apparurent devant lui.
 
-Chaque crâne portait un tatouage complexe. Après les avoir examinés de près, Wang Lin les rangea. Puis, ses yeux brillèrent et il leva le regard vers le ciel.
+Chaque crâne portait une rune complexe. Après les avoir examinés de près, Wang Lin les rangea. Puis, ses yeux brillèrent et il leva le regard vers le ciel.
 
 Le ciel était bleu, mais grâce à sa vision, Wang Lin pouvait distinguer vaguement, à la lisière des nuages blancs, la présence du mur de chair.
 
@@ -132,4 +132,4 @@ Le ciel était bleu, mais grâce à sa vision, Wang Lin pouvait distinguer vague
 
 Cet objet mesurait environ 50 mètres de long et 13 mètres de large. Dès son apparition, il dégagea une aura terrifiante. D'innombrables épines le recouvraient, lui donnant un aspect féroce. Quiconque le regardait ne pouvait s'empêcher de ressentir une pointe de terreur.
 
-Le troisième Chariot Tueur de Dieux!
+Le troisième Char de Guerre Divin!

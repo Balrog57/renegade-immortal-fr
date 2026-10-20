@@ -20,7 +20,7 @@ C'était l'unique raison pour laquelle il avait déployé tant d'efforts à traq
 
 Heureusement, il avait emprunté le bateau de terre. Ce trésor renfermait une puissante technique d'évasion tellurique, ce qui rendait les choses bien plus aisées. Bien qu'il ne puisse pas utiliser pleinement ses techniques sous terre, il pensait que cela ne poserait aucun problème tant qu'il parviendrait à s'approcher. Cependant, il n'avait pas prévu que la destination du petit morveux soit la montagne de l'Union Huo Fen.
 
-Bien qu'il ait pu détruire la formation de protection de la secte d'une seule paume, il avait une fois de plus perdu la trace du garçon. C'est pourquoi il risquait de s'attirer les foudres du pays de culture de rang 4 situé derrière Xuan Wu et Huo Fen en verrouillant le pays avec son sens divin.
+Bien qu'il ait pu détruire la formation de protection de la secte d'une seule paume, il avait une fois de plus perdu la trace du garçon. C'est pourquoi il n'hésita pas à s'attirer les foudres du pays de culture de rang 4 situé derrière Xuan Wu et Huo Fen en verrouillant le pays avec son sens divin.
 
 En vérité, il n'avait tué personne dans l'un ou l'autre des deux pays. Cela était dû en grande partie à la présence de ce pays de culture de rang 4. Plus le niveau de culture d'un individu est élevé, plus il connaît les rouages internes de Suzaku. Xuan Wu et Huo Fen étant soutenus par le même pays de culture de rang 4, leurs affrontements n'avaient pas d'importance. En revanche, si un étranger s'y aventurait, ils interviendraient.
 

@@ -24,7 +24,7 @@ Le regard de Qian Feng se glaça. Sans utiliser de trésor, il pointa simplement
 
 Bang!
 
-Un fracas retentissant résonna dans le ciel. La frappe de Wang Lin était imprégnée d'énergie spirituelle céleste, rendant l'épée bien plus puissante qu'auparavant. Cette attaque concentrait toute l'énergie spirituelle céleste que Wang Lin pouvait mobiliser d'un coup; sa puissance était donc phénoménale.
+Un fracas retentissant résonna dans le ciel. La frappe de Wang Lin était imprégnée d'énergie spirituelle céleste, rendant l'épée bien plus puissante qu'auparavant. Cette attaque concentrait toute l'énergie spirituelle céleste que Wang Lin pouvait mobiliser d'un coup; sa puissance était donc phénoménale. Wang Lin y avait en outre dissimulé une ruse.
 
 Qian Feng fut projeté en arrière de 330 mètres avant de pouvoir neutraliser la force de l'épée céleste. Son expression n'était plus calme; ses yeux brillaient d'une lueur froide alors qu'il fixait l'épée de Wang Lin: « Un trésor céleste! »
 

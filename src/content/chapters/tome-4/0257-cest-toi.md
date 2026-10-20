@@ -56,7 +56,7 @@ Da Niu ressentit une pointe d'amertume en regardant le dos de Wang Lin. En ces s
 
 Une à une, des sculptures de bois d'un réalisme saisissant prenaient forme entre ses mains.
 
-Il se souvenait aussi de l'Oncle Wang disant qu'une fois devenu un grand homme, il reviendrait épouser sa femme. Cependant, durant ces six dernières années, Da Niu n'avait jamais vu la femme de l'Oncle Wang, alors il n'avait plus jamais posé la question.
+Il se souvenait aussi de l'Oncle Wang disant qu'une fois qu'il aurait gagné une belle fortune, il reviendrait épouser la femme qui l'attendait. Cependant, durant ces six dernières années, Da Niu n'avait jamais vu la femme de l'Oncle Wang, alors il n'avait plus jamais posé la question.
 
 Da Niu poussa un soupir et retourna à la boutique. Son père commençait lui aussi à vieillir; Da Niu était désormais le principal ouvrier de la forge. Même après la fermeture de l'atelier, il restait de nombreuses tâches à accomplir. L'habitude qu'il avait de regarder Wang Lin sculpter chaque jour ne pouvait plus se maintenir.
 
@@ -96,7 +96,7 @@ Alors que le regard de la jolie chanteuse balayait la foule sous les acclamation
 
 Dès qu'il franchit le seuil, il se mit à crier. Le serveur fronça les sourcils: « D'où sort ce mendiant? Il n'y aura rien pour vous aujourd'hui! » Il s'avança pour le repousser.
 
-Le vieillard le fixa et rétorqua: « Tu oses me toucher? Si tu me touches, je m'allonge ici et je ne me relèverai plus de la journée. Je suis venu écouter de la musique! »
+Le vieillard le fixa et rétorqua: « Tu oses me toucher? Si tu me touches, je m'allonge ici et je ne me relèverai plus de la journée. Je suis venu voir le spectacle! »
 
 Quand Wang Lin vit le vieil homme, l'étincelle qui n'avait pas brillé dans ses yeux depuis des années s'enflamma soudainement. Ce vieillard n'était pas n'importe qui: c'était celui qui lui avait soutiré un repas six ou sept ans auparavant.
 

@@ -22,7 +22,7 @@ En se tenant sur le lotus, il se tenait symboliquement sur le Dao de Xu Fenghan.
 
 Xu Fenghan finit par réprimer les pensées chaotiques qui l'assaillaient. Son cœur Dao s'était déjà affaibli et, en voyant Wang Lin debout sur son lotus, son visage pâlit instantanément.
 
-Wang Lin ne prononça pas un mot et fixa froidement Xu Fenghan du regard. D'un mouvement de manches, il s'assit sur le lotus. À cet instant, la puissance de la rivière des Enfers devint encore plus intense et enveloppa aussitôt l'artefact.
+Wang Lin ne prononça pas un mot et fixa froidement Xu Fenghan du regard. D'un mouvement de manches, il s'assit sur le lotus. À cet instant, la puissance de la rivière des Enfers devint encore plus intense et enveloppa aussitôt le lotus.
 
 Xu Fenghan avait perdu la bataille du Dao... Son visage devint livide et il cracha une bouchée de sang. Il recula immédiatement avec un rire amer tout en formant un sceau de la main. L'énergie d'origine à l'intérieur de son corps se rassembla instantanément au creux de ses paumes.
 
@@ -124,7 +124,7 @@ Cet homme était l'Ancêtre Sanguin!
 
 Cette voix était empreinte d'une détermination et d'une résolution qui ne laissaient place à aucun doute.
 
-L'Ancêtre Sanguin serra le poing et déclara: « Grand-père!! Ma fille unique, Yao Xixue, a été enlevée du Système Stellaire de l'Alliance et emmenée ici. On ignore si elle est vivante ou morte! Mais elle porte le sang de la famille Yao! »
+L'Ancêtre Sanguin serra le poing et déclara: « Grand-père!! Ma fille unique, Yao Xixue, a été enlevée du Système Stellaire de l'Alliance et emmenée ici. On ignore si elle est vivante ou morte, sa vie ne tient qu'à un fil! Mais elle porte le sang de la famille Yao! »
 
 La voix rauque se tut. Après un long silence, un soupir antique s'en échappa.
 

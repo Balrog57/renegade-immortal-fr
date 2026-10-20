@@ -58,7 +58,7 @@ Bien que la Bête des Limbes fût immense, elle ne pouvait rivaliser avec la tai
 
 Ce spectacle fit contracter les pupilles de Wang Lin!
 
-Alors que l'aspiration s'intensifiait, les dix Feuilles Anciennes tournèrent rapidement autour de lui, formant un rempart. La Tête de l'Ordre Ancien et les Flammes Joss de Ling Dong et Zhou Jin continuaient de l'aider à résister.
+Alors que l'aspiration s'intensifiait, les plus de dix Feuilles Anciennes tournèrent rapidement autour de lui, formant un rempart. La Tête de l'Ordre Ancien et les Flammes Joss de Ling Dong et Zhou Jin continuaient de l'aider à résister.
 
 « Ce n'est pas encore le moment... La gueule de la Bête des Limbes ne peut pas être aussi faible... » Tandis que Wang Lin fixait la créature, la froideur dans son regard s'accentua progressivement.
 

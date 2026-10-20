@@ -40,7 +40,7 @@ Wang Lin laissa échapper un soupir. Le fourreau avait été détruit lorsque Te
 
 S'il n'avait pas été détruit, alors où pouvait bien se trouver le fourreau?
 
-Les yeux de Wang Lin s'illuminèrent; il posa le rouleau et se leva brusquement. Il fit quelques pas d'aller-retour avant de placer quelques matériaux de basse qualité dans un sac de rangement. Puis, il concentra une pointe d'énergie spirituelle sur son doigt et réduisit le sac en poussière.
+Les yeux de Wang Lin s'illuminèrent; il posa le rouleau et se leva brusquement. Il fit quelques pas d'aller-retour avant de sortir un sac de rangement contenant quelques matériaux de basse qualité. Puis, il concentra une pointe d'énergie spirituelle sur son doigt et réduisit le sac en poussière.
 
 Le regard de Wang Lin resta fixé sur le sac alors qu'il se désintégrait. Il essaya encore plusieurs fois avant qu'une lueur de compréhension n'apparaisse dans ses yeux.
 
@@ -62,7 +62,7 @@ La sueur perla sur le front de Wang Lin. Au moment où le cri avait retenti, il 
 
 Après avoir soigneusement rangé le rouleau, Wang Lin resta songeur. Après un long moment, il sortit un Noyau Doré de son sac de rangement. Sa couleur s'était déjà assombrie. Il réfléchit encore un peu avant d'en faire sortir plus d'une centaine. La plupart étaient ternes, exhalant une aura de mort.
 
-Autrefois, Wang Lin les aurait dévorés instantanément, mais en chemin, Li Muwan l'avait averti à voix basse que si dévorer des Noyaux Dorés augmentait son niveau de culture, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes; en absorber en trop grand nombre risquait de déséquilibrer les cinq éléments de son corps, et son esprit serait tantôt clair, tantôt confus.
+Autrefois, Wang Lin les aurait dévorés instantanément, mais en chemin, Li Muwan l'avait averti à voix basse que si dévorer des Noyaux Dorés augmentait rapidement son niveau de culture, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes; en absorber en trop grand nombre risquait de déséquilibrer les cinq éléments de son corps, et son esprit serait tantôt clair, tantôt confus.
 
 Après avoir entendu cela, bien qu'il en fût réticent, Wang Lin renonça à l'idée de les consommer directement. Selon Li Muwan, ils n'auraient aucun effet négatif s'ils étaient d'abord raffinés via la méthode des cinq éléments.
 

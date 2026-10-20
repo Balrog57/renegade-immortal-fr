@@ -34,7 +34,7 @@ Tout en volant, Wang Lin tourna la tête pour observer la direction prise par le
 
 Interrompant sa réflexion, Wang Lin baissa le regard. Le ravin semblait sans fond, et il ignorait jusqu'à quelle profondeur il s'étendait. Ils avaient déjà volé un long moment avant de s'arrêter tout à l'heure, mais ils n'avaient toujours pas atteint le bas.
 
-« Même le cristal de Bei Luo n'a pu percer le fond de cet Abîme des Marées. La seule chose que je sache, c'est qu'un large corridor sinueux relie les cinq entrées entre elles. Quant à la sortie, il n'y en a qu'une! »
+« Même le cristal de Bei Luo n'a pu percer le fond de cet Abîme des Marées. La seule chose que je sache, c'est qu'un large corridor sinueux relie cette entrée aux cinq autres. Quant à la sortie, il n'y en a qu'une! »
 
 Les yeux de Wang Lin s'illuminèrent et, au lieu de descendre, il prit soudainement de l'altitude. À cet instant, il ressentit immédiatement une pression pesante émanant du haut.
 
@@ -60,7 +60,7 @@ Désormais, c'était Du Jian qui menait la marche.
 
 En un instant, les cinq parcoururent 330 mètres. Les yeux de Wang Lin étaient vifs alors qu'il regardait vers le bas, sur la droite. Grâce au cristal, il avait repéré l'arbre ancien. L'arbre paraissait tout à fait ordinaire et n'était pas grand du tout. Pourtant, lors de sa première observation via le cristal, Wang Lin avait ressenti un soudain sentiment de péril.
 
-En s'approchant, ses yeux se plissèrent: il vit un arbre desséché, de la taille d'un homme, poussant sur la paroi en bas à droite. Ses racines denses s'étalaient dans toutes les directions; la moitié pendait dans le vide tandis que l'autre s'enfonçait profondément dans la roche.
+En s'approchant, ses yeux se plissèrent: il vit un arbre desséché, épais comme un homme, poussant sur la paroi en bas à droite. Ses racines denses s'étalaient dans toutes les directions; la moitié pendait dans le vide tandis que l'autre s'enfonçait profondément dans la roche.
 
 L'emplacement de cet arbre était particulièrement ingénieux: il trônait juste au-dessus d'une crevasse. Ses racines retombantes formaient un rideau dissimulant l'ouverture. Ce n'était pas le seul arbre ancien du lieu; Wang Lin en avait croisé sept ou huit autres durant la descente, mais seul celui-ci lui inspirait une sensation de crise.
 
@@ -94,7 +94,7 @@ Wang Lin regarda calmement Du Jian. L'expression de ce dernier ne trahissait rie
 
 « Je vous en remercie alors », répondit Wang Lin avec un soudain sourire. Il observait Du Jian comme on observe un enfant tentant une farce; cet homme le prenait donc réellement pour un bambin de trois ans.
 
-En voyant le sourire de Wang Lin, Du Jian sentit soudain un pressentiment funeste. Il avait bel et bien sous-estimé Wang Lin. Dans son esprit, à moins que ce rustre venu d'une planète presque abandonnée ne jouisse d'une chance prodigieuse, comment aurait-il pu être accepté comme disciple par l'Omniscient?
+En voyant le sourire de Wang Lin, Du Jian sentit soudain un pressentiment funeste. Il avait bel et bien sous-estimé Wang Lin. Dans son esprit, à moins que ce ploutre venu d'une planète presque abandonnée ne jouisse d'une chance prodigieuse, comment aurait-il pu être accepté comme disciple par l'Omniscient?
 
 Il était déjà venu seul dans ce lieu autrefois, mais il n'était pas descendu personnellement. Il avait plutôt contrôlé une marionnette imprégnée d'une fraction de son Sens Divin. Cette marionnette avait été attaquée par cet arbre ancien, et la scène l'avait si terrifié qu'il n'avait plus osé revenir dans la Mer des Nuages pendant une très longue période.
 

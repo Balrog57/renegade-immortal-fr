@@ -42,11 +42,11 @@ Les sorts de ces deux individus étaient terrifiants, et ils ne pouvaient être 
 
 Monter la garde pendant trois ans, les trois années les plus difficiles.
 
-Après un temps indéfini, trois rayons de lumière apparurent vaguement dans la Mer des Nuages, qui s'était considérablement étendue. Ils se transformèrent en silhouettes de trois femmes. Elles se trouvaient à moins de 10 000 pieds de Wang Lin et flottaient là, contemplant son dos.
+Après un temps indéfini, trois rayons de lumière apparurent vaguement dans la Mer des Nuages, qui s'était considérablement étendue. Ils se transformèrent en silhouettes de trois femmes. Elles se trouvaient à moins de mille pieds de Wang Lin et flottaient là, contemplant son dos.
 
 Cette silhouette était austère et dégageait une immense solitude. Pourtant, elle imposait aussi la présence d'une montagne: il était comme un mont protecteur veillant sur le Royaume Intérieur.
 
-La première à s'avancer fut Xi Zifeng. Sa silhouette était frêle alors qu'elle avançait lentement de 10 000 pieds vers lui. Elle regarda Wang Lin, les yeux clos, et son regard se fit tendre. Un beau sourire fleurit sur son visage.
+La première à s'avancer fut Xi Zifeng. Sa silhouette était frêle alors qu'elle avançait lentement de mille pieds vers lui. Elle regarda Wang Lin, les yeux clos, et son regard se fit tendre. Un beau sourire fleurit sur son visage.
 
 « J'ai mûrement réfléchi. Je ne veux pas être votre disciple... Je ne le veux jamais! Les cultivateurs comme nous vivent très longtemps. Je ne sais pas quand nos vies prendront fin. Je veux seulement une année de votre vie! Une seule année suffit... Vous allez garder le Royaume Intérieur pendant trois ans. Laissez-moi vous accompagner durant une seule année », dit doucement Xi Zifeng.
 
@@ -68,7 +68,7 @@ Ces mots semblèrent drainer toute la force de Xi Zifeng, et son visage pâlit i
 
 « Je ne demande qu'une année... Wang Lin, donnez-moi juste une année, je vous en prie... » Face au silence de Wang Lin, la voix de Xi Zifeng trembla et ses yeux s'emplirent de larmes. Bien qu'elle fût une femme fragile, elle ne pleurait que rarement. Ces quelques larmes étaient dues à la silhouette inoubliable qui se tenait devant elle.
 
-« Une relation malheureuse... » Les paroles de son maître résonnaient encore dans ses oreilles.
+« Une relation maudite... » Les paroles de son maître résonnaient encore dans ses oreilles.
 
 « Une année! Est-ce qu'une seule année n'est vraiment pas assez? Wang Lin, je sais que vous ne pouvez pas m'accepter, mais je veux juste une année. Est-ce trop demander? » Wang Lin resta silencieux, les yeux clos. Xi Zifeng ressentit un coup de poignard au cœur. Elle se leva avec un sourire amer et recula de quelques pas.
 
@@ -80,7 +80,7 @@ Wang Lin ne savait pas s'il parviendrait à ressusciter Li Muwan. Il ignorait s'
 
 Les larmes de Xi Zifeng coulèrent, portées par une émotion complexe. Elle se rassit silencieusement près de lui et murmura: « Une année suffit. Wang Lin, je ne vous prendrai plus de temps... »
 
-Au loin, Mu Bingmei et la femme en rose observaient la scène en silence. Elles étaient assises à 10 000 pieds de là. À leur arrivée, elles avaient conclu un accord: une année chacune.
+Au loin, Mu Bingmei et la femme en rose observaient la scène en silence. Elles étaient assises à mille pieds de là. À leur arrivée, elles avaient conclu un accord: une année chacune.
 
 Une année n'était pas longue. Ce n'était rien pour les mortels, et encore moins pour les cultivateurs. Souvent, une seule session de culture ou une période d'isolement faisait passer plusieurs années en un clin d'œil. Pourtant, Xi Zifeng espérait que cette année s'écoulerait lentement.
 
@@ -92,7 +92,7 @@ L'eau bouillait, mais le vin n'avait pas encore été réchauffé. Soudain, un v
 
 Une lueur froide apparut dans les yeux de Wang Lin. Il leva la tête vers le Système Stellaire Antique et vit des rayons de lumière converger vers lui. C'était l'armée reformée du Royaume Extérieur!
 
-Parmi ces cultivateurs, cinq individus dégageaient l'aura de cultivateurs du troisième niveau. Ils fonçaient comme cinq flèches. En plus de ces cinq chefs et de cent mille cultivateurs, des chars de guerre de 10 000 pieds de large étaient poussés par la troupe.
+Parmi ces cultivateurs, cinq individus dégageaient l'aura de cultivateurs du troisième niveau. Ils fonçaient comme cinq flèches. En plus de ces cinq chefs et de cent mille cultivateurs, des chars de guerre de mille pieds de large étaient poussés par la troupe.
 
 Des grondements tonitruants résonnèrent à travers le système stellaire calme, devenant de plus en plus puissants, comme si le tonnerre lui-même descendait du ciel.
 

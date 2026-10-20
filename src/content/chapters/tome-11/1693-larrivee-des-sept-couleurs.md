@@ -48,9 +48,9 @@ Ce n'étaient pas du tout des oiseaux de feu; il s'agissait manifestement de neu
 
 À cet instant, d'un geste de la main, les neuf oiseaux se transformèrent en neuf rayons de lumière incandescente qui foncèrent sur Wang Lin et Fan Shanlu.
 
-« Bloque-les! » Face à la crise, Wang Lin ne pouvait plus cacher sa force. Il poussa un rugissement et agita la main. Fan Shanlu n'hésita pas: s'appuyant sur l'élan de Wang Lin, elle bondit en avant. Ses mains formèrent un sceau et, après avoir craché une bouchée de sang, elle poussa un cri déchirant.
+« Bloque-les! » Face à la crise, Wang Lin ne pouvait plus cacher sa force. Il poussa un rugissement et agita la main. Fan Shanlu n'hésita pas: s'appuyant sur l'élan de Wang Lin, elle bondit en arrière. Ses mains formèrent un sceau et, après avoir craché une bouchée de sang, elle poussa un cri déchirant.
 
-« Grand Dao de l'Âme, attire l'âme! Que mon âme serve de sacrifice pour former une âme capable de trancher le royaume! » La main droite de Fan Shanlu s'étendit et le sang qu'elle venait de recracher se transforma en une brume pénétrant sa paume. Rapidement, il se mua en un couteau rouge sang!
+« Grand Dao de l'Âme, attire l'âme vers les ténèbres! Que mon âme serve de sacrifice pour former une âme capable de trancher le royaume! » La main droite de Fan Shanlu s'étendit et le sang qu'elle venait de recracher se transforma en une brume pénétrant sa paume. Rapidement, il se mua en un couteau rouge sang!
 
 Armée de cette lame, Fan Shanlu leva la tête et frappa les neuf oiseaux de feu. Le couteau se divisa en neuf segments qui jaillirent vers les oiseaux pour intercepter leur course!
 

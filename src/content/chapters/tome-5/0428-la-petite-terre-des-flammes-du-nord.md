@@ -48,7 +48,7 @@ C'est une organisation tentaculaire dont les racines s'étendent sur de multiple
 
 Très peu de gens savent où se situe le siège de la Secte des Cadavres, car c'est un secret bien gardé!
 
-La structure de la Secte des Cadavres ressemble à une tour, composée de nombreux niveaux différents.
+La structure de la Secte des Cadavres ressemble à une tour aux très nombreuses branches.
 
 Au sein de l'Alliance de Culture, la Secte des Cadavres est l'une des rares organisations reconnues comme une secte officielle. Comparé à la multitude de sectes éparpillées sur les diverses planètes de culture, la Secte des Cadavres compte parmi les rares véritables sectes de l'ère actuelle.
 
@@ -92,7 +92,7 @@ Les trois étaient extrêmement rapides. Ils volèrent jusqu'au centre de la Pet
 
 Les yeux de Situ Nan s'illuminèrent. Il s'arrêta, laissa échapper un rire et regarda le quatrième ancêtre qui approchait à grands pas.
 
-« Avant que mon corps ne soit détruit, je me suis cultivé dans cet endroit pendant très longtemps; j'ai donc une compréhension profonde des restrictions qui régissent ce lieu », révéla Situ Nan d'un air nostalgique, tout en formant un sceau de la main qu'il pointa vers les airs.
+« Avant que mon corps ne soit détruit, je me suis cultivé dans cet endroit pendant très longtemps; j'ai donc une compréhension profonde des restrictions qui régissent ce lieu », révéla Situ Nan d'un air nostalgique, tout en formant un sceau de la main, en récitant quelques mots, qu'il pointa vers les airs.
 
 Le sol trembla instantanément alors qu'une lumière cristalline commençait à s'accumuler avant de s'élancer.
 
@@ -102,7 +102,7 @@ Au moment où le quatrième ancêtre arriva, tout le ciel fut recouvert d'une lu
 
 Le quatrième ancêtre ricana: « La Lumière de la Flamme Sanguine! » Son Clan des Immortels Délaissés étant originaire de cette planète, il possédait une excellente connaissance des lieux. Il reconnut immédiatement la nature de cette lumière blanche.
 
-Il agita sa main droite et un tatouage géant apparut devant lui. Le tatouage brilla intensément, repoussant toutes les lueurs blanches loin du corps du quatrième ancêtre.
+Il agita les deux mains et un tatouage géant apparut devant lui. Le tatouage brilla intensément, repoussant toutes les lueurs blanches loin du corps du quatrième ancêtre.
 
 Situ Nan s'exclama de surprise, le regard devenu glacial. Il se projeta alors aussi vite que l'éclair vers le quatrième ancêtre.
 
@@ -126,9 +126,9 @@ Situ Nan afficha un air de joie au milieu des flammes avant de s'en extraire mys
 
 Wang Lin réfléchit un instant. Il regarda l'enfant au sein de la brume et demanda: « Tu n'as pas besoin que je te garde? »
 
-« Nul besoin; cette Brume de Jiuli est la meilleure des protections! » La voix de Situ Nan trahissait une pointe d'excitation. Après des dizaines de milliers d'années, il allait enfin retrouver un corps. Malgré tout ce qu'il avait traversé, il ne pouvait s'empêcher d'être enthousiaste.
+« Nul besoin; cette Brume de Jiuli est la meilleure des protections! » La voix de Situ Nan trahissait une pointe d'excitation. Après des dizaines de milliers d'années, il allait enfin retrouver un corps. Malgré sa grande maîtrise de lui-même, il ne pouvait s'empêcher d'être enthousiaste.
 
-« Cultivateurs étrangers, attendez seulement! Une fois que ce vieux aura recouvré sa culture, je viendrai sans faute vous retrouver pour ma vengeance! »
+« Cultivateurs étrangers, attendez seulement! Une fois que ce vieux aura recouvré sa culture, je viendrai sans faute vous rendre visite pour évoquer le passé! »
 
 Wang Lin leva la tête vers l'horizon et dit calmement: « Tu ne m'as toujours pas dit ce qu'est le Cristal de la Planète de Culture. »
 

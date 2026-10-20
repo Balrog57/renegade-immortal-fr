@@ -48,7 +48,7 @@ Wang Lin fronça les sourcils. Voyant qu'elle avait tant apporté au Royaume Int
 
 Cependant, à cet instant précis, la femme en violet reprit:
 
-« De plus, tu dois te rendre dans le Royaume Extérieur pour capturer toutes les autres concubines. Ramène-les-moi, elles me seront d'une grande utilité. Tu devrais faire cela le plus vite possible. Quant à la garde de cet endroit pendant trois ans, c'est une perte de temps une fois que le Céleste... » Sa voix était indifférente et son ton impérieux. Mais avant qu'elle ne puisse terminer sa phrase, Wang Lin fronça les sourcils et ses yeux s'illuminèrent d'une lueur tranchante.
+« De plus, tu dois te rendre dans le Royaume Extérieur pour capturer plusieurs autres concubines. Ramène-les-moi, elles me seront d'une grande utilité. Tu devrais faire cela le plus vite possible. Quant à la garde de cet endroit pendant trois ans, c'est une perte de temps une fois que le Céleste... » Sa voix était indifférente et son ton impérieux. Mais avant qu'elle ne puisse terminer sa phrase, Wang Lin fronça les sourcils et ses yeux s'illuminèrent d'une lueur tranchante.
 
 Le froid dans le regard de Wang Lin s'intensifia. Il fixa Zi Xia, qui continuait de donner des ordres, et trancha froidement: « Assez! »
 
@@ -84,7 +84,7 @@ La femme pâlit mortellement et recula de plusieurs pas, son expression changean
 
 « Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Astral Immortel. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte des Sept Dao et obtenir l'identité d'un cultivateur du Continent Astral Immortel. Le Continent Astral Immortel est le véritable monde; il vaut bien plus de dix mille fois ce monde de caverne... »
 
-« Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une culture puissante pour que tu puisses prendre ta place sur le Continent Astral Immortel. Tu y acquerras même une certaine renommée. Cet endroit est le véritable Royaume Céleste. Même ton niveau de culture augmentera considérablement... »
+« Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une culture puissante pour que tu puisses prendre ta place sur le Continent Astral Immortel. Tu y acquerras même une certaine renommée. Là-bas est le véritable Royaume Céleste. Même ton niveau de culture augmentera considérablement... »
 
 Wang Lin resta impassible, regardant la femme en violet avec une indifférence totale. Ses paroles n'avaient eu aucun effet sur lui.
 

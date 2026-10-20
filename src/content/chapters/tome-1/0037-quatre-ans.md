@@ -42,7 +42,7 @@ Wang Lin se murmura à lui-même: « Les immortels sont comme les mortels: ils o
 
 Après avoir actionné le levier pour sceller à nouveau la grotte, Wang Lin s'assit en tailleur et se plongea dans ses pensées.
 
-Le principe consistant à couper tous les désirs et liens mortels visait à empêcher ces choses de distraire les cultivateurs de leur voie. Pourtant, après être entré dans la Secte Heng Yue, Wang Lin découvrit que la plupart des immortels, loin de se détacher de leurs désirs, devenaient encore plus esclaves de ceux-ci.
+Le principe consistant à couper tous les désirs et liens mortels visait à empêcher ces choses de distraire les cultivateurs de leur voie. Pourtant, après être entré dans la Secte Heng Yue, Wang Lin découvrit que la plupart des immortels, loin de se détacher de leurs désirs, devenaient encore plus esclaves de ceux-ci, plusieurs fois plus que les mortels.
 
 Par conséquent, le terme « couper les désirs mortels » était une expression très vague, mais selon le frère Zhang, c'était la clé pour passer du troisième au quatrième niveau, ce qui semblait être une contradiction.
 

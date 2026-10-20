@@ -30,13 +30,13 @@ Les quatre Messagers du Démon Vert gardaient des visages graves, mais ils ne s'
 
 Ces quatre scorpions étaient d'une férocité extrême. Dès leur apparition, ils poussèrent des hurlements stridents et plongèrent dans la terre.
 
-Immédiatement après, les quatre messagers se mordirent la langue et crachèrent leur sang tout en pressant leurs mains contre le sol. Ils fermèrent les yeux, et quatre filaments de gaz vert, aussi épais qu'un bras, jaillirent d'eux. Le gaz s'assembla dans le ciel pour former un miroir vert!
+Immédiatement après, les quatre messagers se mordirent la langue et crachèrent leur sang tout en pressant leurs mains contre le sol. Ils fermèrent les yeux, et quatre filaments de gaz vert, aussi épais qu'un bras, jaillirent au-dessus de leur crâne. Le gaz s'assembla dans le ciel pour former un miroir vert!
 
 Bien que ce miroir fût une illusion, il dégageait une puissante aura démoniaque. En le voyant, les yeux de Zhang Daozong et du vieil homme Zhao se remplirent d'une ferveur fanatique.
 
 Alors que le gaz vert balayait la surface du miroir, un continent apparut. Cette terre ne comptait que peu de montagnes, mais était parsemée de nombreux marais. Même certaines cités mortelles étaient bâties au-dessus de ces marécages, ce qui était très étrange.
 
-Ce continent semblait plus petit que celui du Taureau Céleste, ne représentant que 70 % de sa taille. Cependant, il était recouvert de marais et la brume qui l'entourait lui donnait un aspect onirique.
+Ce continent semblait plus petit que celui du Taureau Céleste, ne représentant qu'environ 70 % de sa taille. Cependant, il était recouvert de marais et la brume qui l'entourait lui donnait un aspect onirique.
 
 Le monde à l'intérieur du miroir était le Continent du Démon Vert!
 
@@ -84,7 +84,7 @@ Un seul « Déchirure du Ciel » avait suffi à tuer une âme de Scorpion Vert. 
 
 Il fit un pas en avant. À l'instant où son pied toucha le sol, la terre trembla comme si elle ne pouvait supporter son poids. Sa main droite bougea avec célérité pour invoquer la Lance aux Sept Couleurs!
 
-Sa vitesse n'était pas beaucoup plus grande qu'avant d'enfiler l'armure, mais elle était bien supérieure à celle de n'importe quel cultivateur ordinaire!
+Sa vitesse d'incantation n'était pas beaucoup plus grande qu'avant d'enfiler l'armure, mais elle était bien supérieure à celle de n'importe quel cultivateur ordinaire!
 
 D'un revers de main, une lumière septicolore envahit le monde et une lance apparut. Elle dégageait une aura destructrice, si instable qu'elle semblait pouvoir s'effondrer à tout instant.
 
@@ -106,8 +106,8 @@ C'était la troisième transformation de la Lance aux Sept Couleurs! La forme la
 
 La lance grise fondit sur un scorpion. La créature poussa un hurlement et cracha une immense quantité de gaz vert qui percuta l'arme de plein fouet.
 
-Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol, provoquant l'effondrement d'une vaste zone de la Prairie de l'Extrême Ciel sous l'impact, projetant d'innombrables mottes de terre et d'herbe vers le ciel.
+Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol et une tempête s'éleva vers la surface, provoquant l'effondrement d'une vaste zone de la Prairie de l'Extrême Ciel sous l'impact, projetant d'innombrables mottes de terre et d'herbe vers le ciel.
 
 « Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de culture. Elle ne se base pas sur mon propre corps, mais sur l'aura du Taureau Céleste. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
 
-« Il reste encore deux scorpions. Je vais en profiter pour tester mes autres sorts et voir si je dois continuer à les perfectionner! »
+« Il reste encore deux scorpions. Je vais en profiter pour tester mes autres sorts, afin d'en connaître la puissance réelle et de voir si je dois continuer à les perfectionner! »

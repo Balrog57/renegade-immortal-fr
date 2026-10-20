@@ -16,7 +16,7 @@ Wang Lin pouvait deviner, à travers les souvenirs du cultivateur de Formation d
 
 Le frère aîné pouvait tout juste être considéré comme un génie. Il lui avait fallu moins de cent ans pour atteindre le sommet du stade d'Établissement des Fondations, et il ne lui restait plus qu'une étape avant la Formation du Noyau.
 
-Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affection tenait surtout à l'apparence physique du disciple. Il projetait de marier son frère aîné à la disciple d'un autre cultivateur de fin de stade de Formation du Noyau afin de sceller une alliance.
+Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affection tenait surtout à l'apparence physique du disciple. Il projetait de marier son frère aîné à la disciple d'un autre cultivateur de fin de stade de Formation du Noyau afin de sceller une alliance par ce mariage et leur cultivation conjointe.
 
 Après avoir parcouru cet aperçu de ses souvenirs, Wang Lin n'y prêta plus attention. L'épée approcha et s'arrêta devant la tour de glace. Le frère aîné s'agenouilla au sol et déclara d'une voix claire: « Ce disciple salue le Maître. Par chance, j'ai réussi à localiser la cachette des vestiges de l'Alliance des Quatre Sectes! »
 
@@ -32,7 +32,7 @@ Le temple faisait preuve d'une vigilance extrême. Si un rapport était déposé
 
 Wang Lin réfléchit un instant, puis dit calmement: « Montre-moi le chemin. »
 
-Le frère aîné fut stupéfait. En pareilles circonstances, son maître ne s'impliquait normalement jamais personnellement. Cependant, sachant qu'il ne devait poser aucune question, il se contenta de hocher la tête et de lui indiquer la voie.
+Le frère aîné fut stupéfait. En pareilles circonstances, son maître ne prenait normalement jamais de risques en personne. Cependant, sachant qu'il ne devait poser aucune question, il se contenta de hocher la tête et de lui indiquer la voie.
 
 Les deux autres disciples échangèrent un regard avant de le suivre. Après tout, leur maître s'y rendait en personne; s'ils restaient en retrait, cela pourrait leur porter préjudice à l'avenir. Ils se forcèrent donc à accompagner Wang Lin.
 
@@ -56,17 +56,17 @@ Dès son entrée, plus de dix épées volantes se transformèrent en ondes de Qi
 
 Le regard de Wang Lin resta imperturbable. Sa main droite sembla pointer un point invisible dans les airs et il murmura: « Vie. »
 
-Le domaine de la vie et de la mort se concentra soudainement sur le bout du doigt de Wang Lin. Ce simple geste, tel celui d'un immortel indiquant le chemin, contenait la Voie des Cieux et regorgeait de mystères.
+Le domaine de la vie et de la mort, né de la Voie de la réincarnation, se concentra soudainement sur le bout du doigt de Wang Lin. Ce simple geste, tel celui d'un immortel indiquant le chemin, contenait la Voie des Cieux et regorgeait de mystères.
 
 Un cri de surprise s'échappa des lueurs d'épées, qui, échappant à tout contrôle, se mirent alors à graviter autour du doigt de Wang Lin. Elles émettaient une lueur tandis qu'elles subissaient une transformation, comme si elles renaissaient; l'énergie spirituelle qu'elles dégageaient devint soudainement plusieurs fois plus puissante qu'auparavant.
 
-Cependant, le Sens Divin fut totalement annihilé par la puissance du domaine.
+Cependant, le Sens Divin des épées fut totalement annihilé par la puissance du domaine.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il observait le jeune homme terrifié, incapable de prononcer un mot.
 
 Derrière lui, un vieil homme aux cheveux blancs était assis en tailleur sur un lit de glace. Ses yeux étaient clos et son visage oscillait entre des teintes rouges et verdâtres.
 
-D'un mouvement du doigt, Wang Lin fit tomber toutes les épées au sol dans un tintement métallique.
+D'un mouvement du doigt, Wang Lin fit tomber toutes les épées au sol dans un tintement métallique, comme en signe de soumission.
 
 Le jeune homme reprit ses esprits. Son visage était empreint de chagrin et d'indignation. Serrant les poings, il cria: « Vous avez détruit notre foyer, et maintenant vous nous traquez jusqu'ici! Devez-vous absolument tous nous massacrer? Vous nous tuerez aujourd'hui, mais un jour, quelqu'un viendra détruire Xue Yu! »
 
@@ -82,7 +82,7 @@ Le jeune homme resta silencieux un long moment avant de répondre avec amertume:
 
 « Huan Er, relève-toi. Cet homme n'est pas un cultivateur de Xue Yu. » Le vieillard sur le lit de glace ouvrit lentement les yeux.
 
-Le jeune homme fut surpris, mais ses yeux s'illuminèrent d'espoir et d'excitation. Il courut aux côtés de son maître: « Maître, vous... vous êtes réveillé! »
+Le jeune homme fut surpris, mais ses yeux s'illuminèrent d'espoir et d'excitation. Il se releva aussitôt auprès de son maître: « Maître, vous... vous êtes réveillé! »
 
 Wang Lin observa le vieil homme. Il joignit les mains et dit: « Ce disciple salue le Senior de la Secte de l'Encre d'Eau. »
 
@@ -104,13 +104,13 @@ Wang Lin regarda l'homme et ne dit plus rien. Il joignit les mains et se détour
 
 Après tout, il avait passé plus de trente ans au sein de l'Alliance des Quatre Sectes et avait été témoin de l'invasion par les cultivateurs de Xue Yu. Bien qu'il fût impuissant à changer le cours des choses, il aiderait dès que cela lui serait possible.
 
-Au moment où Wang Lin fit volte-face, le vieillard regarda le flacon de pilules et soupira. Sa main droite bougea soudainement pour saisir un éventail dont seules deux plumes subsistaient.
+Au moment où Wang Lin fit volte-face, le vieillard regarda le flacon de pilules et soupira. Sa main droite fit soudain un geste brusque, et un éventail dont seules deux plumes subsistaient jaillit de sa manche.
 
-« Jeune ami, je t'offre ce trésor en échange des pilules que tu m'as données. »
+« Jeune ami, je t'offre ce trésor pour solder le karma des pilules que tu m'as données. »
 
 En saisissant l'éventail, l'expression de Wang Lin changea. Il avait un souvenir profond de cet objet. C'était celui qu'une femme vêtue de blanc utilisait lorsqu'elle était encerclée par la formation meurtrière de neuf cultivateurs de l'Alliance des Quatre Sectes. Il se souvenait qu'après sa mort, cet éventail avait été emporté par un cultivateur de fin de stade de Formation de l'Âme.
 
-Il se retourna et observa attentivement le vieillard. Cet homme était l'un des cultivateurs de fin de stade de Formation de l'Âme qui se trouvaient dans cette formation meurtrière autrefois.
+Il se retourna et observa attentivement le vieillard. Cet homme était l'un des cultivateurs de fin de stade de Formation de l'Âme qui, jadis, faisaient trembler le monde.
 
 Toute la gloire du passé n'était plus qu'un lointain souvenir...
 
@@ -124,7 +124,7 @@ Les yeux du jeune homme se remplirent de tristesse, mais avant qu'il ne puisse r
 
 Agenouillé, le jeune homme fixa son maître de l'autre côté. Les yeux rougis par les larmes, la voix brisée, il hurla: « Maître! »
 
-Le vieillard laissa échapper un rire et avala toutes les pilules du flacon. Son énergie spirituelle remonta brusquement à son apogée, bien que ce ne fût que temporaire.
+Le vieillard laissa échapper un rire et avala d'un trait le reste des pilules du flacon. Son énergie spirituelle remonta brusquement à son apogée, bien que ce ne fût que temporaire.
 
 D'un mouvement de ses manches, il s'élança. Sa cible: le Temple Divin de la Glace et de la Neige, au cœur de Xue Yu.
 
@@ -143,9 +143,9 @@ La gloire du passé ne subsiste que dans les louanges des descendants.
 La chanson d'hier ne résonne plus de la même manière. Les confidences murmurées ne trouvent plus de cithare pour les écouter.
 
 Ouvrir une fenêtre, c'est embrasser un rayon de soleil.
-Le rêve d'aujourd'hui devient l'espoir de l'empire futur.
-Même nous, les gens ordinaires, devons vivre des instants grandioses. Une quête sans regret pour ressentir la puissance du monde.
+Le rêve d'aujourd'hui devient l'espoir de demain.
+Même nous, les gens ordinaires, devons vivre des instants grandioses. Une quête sans regret pour ressentir l'immensité du ciel et de la terre.
 
 Ouvrir une fenêtre, c'est accueillir une brise printanière.
-Le néant brisé réveille ce qui fut autrefois perdu.
+Le néant brisé réveille les égarements d'autrefois.
 Celui qui est tombé dans le feu doit être ce phénix immortel... Même si ses ailes doivent brûler, il continuera de voler dans les cieux.

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 625 - Qing Shuang
 slug: qing-shuang
 ---
-Le corps du vieil homme trapu trembla, mais ses yeux restèrent exorbités alors qu'il s'exclamait: « Je suis un être céleste! Comment osez-vous me manquer de respect... »
+Le corps du petit vieil homme trembla, mais ses yeux restèrent exorbités alors qu'il s'exclamait: « Je suis un être céleste! Comment osez-vous me manquer de respect... »
 
 Sans attendre que le vieil homme finisse sa phrase, Wang Lin fronça les sourcils et le fixa froidement. Il leva lentement la main droite, et une lumière fantomatique apparut dans sa paume. Ne s'embarrassant plus des divagations du vieillard, il pressa le sort de recherche d'âme contre son front.
 
@@ -26,15 +26,15 @@ Wang Lin ignora Xu Liguo et la lame en croissant. Il tint le pinceau et ferma le
 
 À ce moment précis, tous les membres de la Tribu de l'Affinement de l'Âme témoignèrent de leur piété en se prosternant face à la tour.
 
-Les yeux du vieil homme, capturé par le Filet de Capture Céleste, se rétractèrent de stupeur en voyant l'éclat aveuglant que dégageait le pinceau dans la main de Wang Lin. Un goût amer lui monta à la gorge. Lorsqu'il avait saisi le pinceau autrefois, une lumière dorée avait également surgi. Mais en comparant cet éclat à celui qui se trouvait devant lui, l'un était comme le soleil, tandis que l'autre n'était qu'une vulgaire luciole.
+Les yeux du vieil homme, capturé par le Filet de Capture Céleste, se rétractèrent de stupeur en voyant l'éclat aveuglant que dégageait le pinceau dans la main de Wang Lin. Un goût amer lui monta à la gorge. Lorsqu'il avait saisi le pinceau autrefois, une lumière dorée avait également surgi. Mais en comparant cet éclat à celui qui se trouvait devant lui, l'un était comme le soleil, tandis que l'autre n'était qu'une simple luciole.
 
-« Hmph, et alors s'il parvient à produire une lumière aussi puissante? Je ne crois pas un instant qu'il puisse comprendre comment utiliser cet objet céleste sans ma guidance. Il faut dire que, si ce n'avait pas été pour le jade, je n'aurais jamais découvert comment manier le pinceau céleste... Bien sûr, ma propre intelligence y est pour beaucoup! » En y pensant, une lueur de fierté brilla dans ses yeux.
+« Hmph, et alors s'il parvient à produire une lumière aussi puissante? Je ne crois pas un instant qu'il puisse comprendre comment utiliser cet objet céleste sans ma guidance. Il faut dire que, si ce n'avait pas été pour le jade, je n'aurais jamais découvert comment manier le pinceau céleste... Bien sûr, ma propre aptitude y est pour beaucoup! » En y pensant, une lueur de fierté brilla dans ses yeux.
 
 Cependant, cette fierté se mua rapidement en stupeur, laquelle se transforma aussitôt en un choc total!
 
 Il vit Wang Lin ouvrir brusquement les yeux et tracer un symbole d'un seul trait d'un geste fluide de la main.
 
-«... C'est... c'est impossible... Oui, cet homme est juste un peu moins doué que moi; il a donc pu l'apprendre après m'avoir vu faire. Oui, c'est forcément ça! » Alors que le vieil homme trapu s'en persuadait, la scène suivante le fit hurler de terreur.
+«... C'est... c'est impossible... Oui, cet homme est juste un peu moins doué que moi; il a donc pu l'apprendre après m'avoir vu faire. Oui, c'est forcément ça! » Alors que le petit vieil homme s'en persuadait, la scène suivante lui arracha un cri de stupeur.
 
 Les yeux de Wang Lin semblaient eux aussi empreints d'une lueur dorée à cet instant. Il agita de nouveau la main, ajoutant un second trait pour former un symbole à deux traits.
 
@@ -44,7 +44,7 @@ Au moment où ce symbole fut achevé, l'énergie spirituelle céleste dans le co
 
 Aux yeux de Xu Liguo et du vieil homme, ce symbole à trois traits dégageait une sensation de perfection absolue. C'était comme si le Dao céleste avait été gravé sur le symbole même.
 
-Des ondes de lumière dorée s'échappèrent du symbole, franchirent les murs de la tour et remplacèrent l'éclat de la pointe du pinceau. La lumière dorée enveloppa le ciel et la terre. Le nuage noir qui formait l'Étendard de l'Âme se dissipa instantanément, révélant un ciel d'un bleu limpide!
+Des ondes de lumière dorée s'échappèrent du symbole, franchirent les murs de la tour et remplacèrent l'éclat de la pointe du pinceau. La lumière dorée enveloppa le ciel et la terre. Le nuage noir qui formait l'Étendard de l'Âme se dissipa instantanément, comme des flocons de neige qui fondent et reculent en cercle, révélant un ciel d'un bleu limpide!
 
 Les yeux de Wang Lin brillaient d'un éclat doré. Sa main s'immobilisa dans les airs après avoir tracé le troisième trait.
 
@@ -56,9 +56,9 @@ Xu Liguo était totalement pétrifié, et la lumière dorée émanant de Wang Li
 
 Bien qu'il ait déjà ressenti cela auparavant, ce n'avait jamais été aussi intense. À cet instant, cette sensation fut gravée au plus profond de son âme.
 
-Quant au vieil homme trapu, il fixait Wang Lin avec un regard hagard. Le choc qui se lisait dans ses yeux était monstrueux lorsqu'il s'exclama: « Un être céleste... un Empereur Céleste! »
+Quant au petit vieil homme, il fixait Wang Lin avec un regard hagard. Le choc qui se lisait dans ses yeux était monstrueux lorsqu'il s'exclama: « Un être céleste... un Empereur Céleste! »
 
-Wang Lin prit une profonde inspiration et pointa le symbole du doigt. Celui-ci se dissipa immédiatement, se transformant en une pluie d'étincelles qui vola hors de la tour pour fusionner avec l'univers.
+Wang Lin prit une profonde inspiration et pointa le pinceau vers le symbole. Celui-ci se dissipa immédiatement, se transformant en une pluie d'étincelles qui vola hors de la tour pour se fondre entre ciel et terre.
 
 « Maintenant, révélez votre identité! » La lumière dorée dans les yeux de Wang Lin s'estompa lentement. Cependant, son regard resta tel un éclair, transperçant les yeux du vieillard pour sonder directement son âme originelle.
 

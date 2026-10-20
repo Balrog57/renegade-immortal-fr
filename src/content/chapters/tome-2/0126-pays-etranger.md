@@ -12,7 +12,7 @@ La main géante se transforma en d'innombrables lignes noires. Elles planèrent 
 
 En raison de l'existence du Royaume Ji, Wang Lin devint le premier dévoreur d'âmes à passer du monde de la décomposition au monde des vivants. Bien que son sens divin n'ait été raffiné qu'en une simple parcelle de Sens Divin du Royaume Ji, l'essence d'un dévoreur d'âmes demeurait en lui.
 
-Huo Fen, pays de culture de rang 3, se situait dans la partie sud de la planète Suzaku, près de la Mer des Démons. Huo Fen ne comptait que quatre sectes : le Sanctuaire du Dieu de la Guerre, la Secte Démoniaque, la Secte Luo He et la Secte des Cadavres.
+Huo Fen, pays de culture de rang 3, se situait dans la partie sud de la planète Suzaku, près de la Mer des Démons. Huo Fen ne comptait que quatre sectes : le Sanctuaire du Dieu de la Guerre, la Secte Démon, la Secte Luo He et la Secte des Cadavres.
 
 Ce jour-là, au sommet du volcan Fentian, au centre de Huo Fen, un groupe de personnes du Sanctuaire du Dieu de la Guerre se tenait sur un immense réseau de transfert.
 
@@ -26,7 +26,7 @@ Mais puisque tous les cultivateurs de la Formation du Noyau et de l'Âme Naissan
 
 Si le Chemin Divin offrait un tel avantage, il n'était pas surprenant que d'autres tentent de le dérober; cependant, malgré les tentatives des autres sectes, elles en étaient incapables car le Sanctuaire du Dieu de la Guerre était tout simplement trop puissant.
 
-Face à ces convoitises incessantes, le Sanctuaire du Dieu de la Guerre finit par renoncer à les combattre et décida d'organiser une assemblée générale tous les 20 ans pour permettre au public de contempler le Chemin Divin, ouvert à tout cultivateur de l'Établissement des Fondations, avec ou sans secte. Bien entendu, chacun devait verser une certaine quantité de pierres spirituelles pour l'observer, et la compréhension du texte restait à la discrétion de chacun.
+Comme le dit le proverbe : « les brigands gardent la mémoire trois ans, les voleurs convoitent dix ans ». Face à ces convoitises incessantes, le Sanctuaire du Dieu de la Guerre finit par renoncer à les combattre et décida d'organiser une assemblée générale tous les 20 ans pour permettre au public de contempler le Chemin Divin, ouvert à tout cultivateur de l'Établissement des Fondations, avec ou sans secte. Bien entendu, chacun devait verser une certaine quantité de pierres spirituelles pour l'observer, et la compréhension du texte restait à la discrétion de chacun.
 
 De la sorte, le Sanctuaire du Dieu de la Guerre n'avait plus à s'en soucier. Ils y gagnaient également d'importants revenus, ce qui les rendait très satisfaits de cette situation.
 
@@ -96,9 +96,9 @@ La jeune femme, Xu Si, frissonna, totalement confuse. Bien que cet homme ressemb
 
 Wang Lin sortit et observa les lieux. Lorsqu'il remarqua Huo Hongfei, il perçut aussitôt son niveau de culture, joignit les poings et dit: « Le disciple Ma Liang salue l'Ancien Huo. »
 
-Les yeux de Huo Hongfei s'illuminèrent alors qu'il répondait: « Il est bon que tu sois de retour. » Puis, il fixa Wang Lin intensément.
+Les yeux de Huo Hongfei s'illuminèrent alors qu'il répondait: « Il est bon que tu sois de retour, rentrons ensemble. » Puis, il fixa Wang Lin intensément.
 
-L'expression de Wang Lin était glaciale lorsqu'il déclara: « Le disciple a encore une affaire très importante à régler. Une fois cela accompli, je retournerai au sanctuaire. »
+L'expression de Wang Lin était glaciale lorsqu'il déclara: « Le disciple a encore une affaire très importante à régler. Une fois ces affaires mineures réglées, je retournerai au sanctuaire. »
 
 Huo Hongfei fronça les sourcils et s'apprêtait à parler quand Wang Lin lança un sac de rangement et ajouta: « Voici tout ce que le disciple a pu rassembler au cours de ces cinquante dernières années. Tous les trésors magiques ayant été détruits, il ne reste que ces matériaux. »
 

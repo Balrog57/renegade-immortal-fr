@@ -48,7 +48,7 @@ D'un revers de manches, il sortit de la chambre. Il regarda les quatre hommes de
 
 En entendant ces mots, l'Empereur Divin du Dragon Azure hocha silencieusement la tête. Il regarda au loin d'un regard complexe et, après un long moment, une froideur glaciale passa dans ses yeux. Sa voix, empreinte d'une intention meurtrière, tonna: « Le Royaume du Vide Brillant est plongé dans le chaos depuis trop longtemps, et Luotian en a profité pour envahir. Convoquez tous les membres des Quatre Sectes Divines. Je vais reprendre le contrôle du Royaume du Vide Brillant. Tous les cultivateurs devront soit se soumettre, soit mourir! »
 
-Les quatre anciens furent stupéfaits, mais leurs yeux s'illuminèrent d'excitation. Ils se précipitèrent pour transmettre cet ordre qui fit trembler le ciel à l'ensemble de la Secte Divine des Quatre!
+Les quatre anciens tressaillirent, et leurs yeux s'illuminèrent d'excitation. Ils se précipitèrent pour transmettre cet ordre à l'ensemble de la Secte Divine des Quatre!
 
 Toute la Secte Divine des Quatre se mit en mouvement!
 
@@ -92,7 +92,7 @@ La boussole pivota et poussa un rugissement, mais avant qu'elle ne puisse déplo
 
 « Effondre-toi! » rugit Wang Lin. La boussole commença à brûler et s'effondra brusquement!
 
-Flottant dans les airs, la main gauche de Wang Lin forma un sceau et pointa vers le bas. L'Oiseau Vermillon Bleu poussa un cri en emportant toutes les flammes environnantes pour charger le vieil homme aux cheveux blancs.
+Flottant dans les airs, la main gauche de Wang Lin forma un sceau et pointa vers le bas. L'Oiseau Vermillon Bleu poussa un cri en emportant avec lui une mer de flammes large de dix mille pieds pour charger le vieil homme aux cheveux blancs.
 
 Tout cela se joua en un instant. À l'instant même où le vieillard lançait ses sorts, la contre-attaque de Wang Lin les pulvérisait tous. Simultanément, son intention meurtrière se verrouilla sur l'adversaire.
 

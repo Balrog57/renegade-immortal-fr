@@ -44,7 +44,7 @@ Si l'un des treize réussissait, Suzaku accorderait à Xue Yu les privilèges d'
 
 C'était une promesse que Suzaku avait faite à Papillon Rouge, et la condition de son ralliement.
 
-Les cinq pays de culture de rang 4 environnants avaient tous accepté leur sort et se tenaient prêts à devenir les sujets de Xue Yu.
+Les cinq pays de culture de rang 4 environnants avaient tous accepté leur sort et se tenaient prêts à devenir les États vassaux de Xue Yu.
 
 Il s'agissait de règles imposées par l'Union de la Culture plutôt que par Suzaku. N'importe quel pays pouvait se rebeller, mais il ne pourrait rien changer, car le prix de la rébellion était l'anéantissement total.
 

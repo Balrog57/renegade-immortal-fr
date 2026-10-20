@@ -68,7 +68,7 @@ Au moment où le rugissement céleste retentit, la vieille femme leva soudaineme
 
 Ce fracas résonna à travers tout le Royaume aux Sept Couleurs et franchit la chaîne de montagnes semblable à un mur. Il se propagea dans la brume, la faisant rouler comme des vagues furieuses. Les nombreux Éveillés cessèrent leur chant pour la première fois, regardant autour d'eux avec stupeur.
 
-Dans la brume, entre les sourcils de l'immense statue marquée par un éclair sur le front, flottait un nuage de brouillard aux sept couleurs. L'âme originelle affaiblie de Maître Pin Cendré s'y trouvait pour se soigner. Lorsque le grondement survint, il leva brusquement la tête, saisi d'effroi!
+Dans la brume, au sommet de la tête de l'immense statue dont le front portait une marque d'éclair, flottait un nuage de brouillard aux sept couleurs. L'âme originelle affaiblie de Maître Pin Cendré s'y trouvait pour se soigner. Lorsque le grondement survint, il leva brusquement la tête, saisi d'effroi!
 
 Cette fois, il fut véritablement terrifié!
 

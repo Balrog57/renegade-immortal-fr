@@ -44,13 +44,13 @@ Wang Lin avait spéculé depuis longtemps que le sort « Arrêt » était lié a
 
 Ce qui fut stoppé par le regard de Wang Lin n'était pas seulement le démon ancien, mais aussi le Sens Divin de Song Tian. Ce dernier trembla et ne put plus bouger d'un iota.
 
-Simultanément, au loin, sur la Montagne d'Origine, hors de la capitale impériale du clan Ancien Shi, Song Tian était assis quand il ouvrit soudainement les yeux. Son visage était pâle, marqué par une trace de peur. Son Sens Divin avait été gelé, ce qui avait failli affecter son âme originelle.
+Simultanément, au loin, sur la Montagne d'Origine, hors de la capitale impériale du clan Ancien Shi, Song Tian était assis quand il ouvrit soudainement les yeux. Son visage était pâle, marqué par une trace de peur. Son Sens Divin avait été gelé, ce qui avait légèrement ébranlé son âme originelle.
 
-« Activez le Dispositif d'Origine! » Song Tian n'hésita pas et poussa un rugissement immédiat. Tandis que l'écho de son cri se propageait, tous les êtres puissants qui suivaient Song Tian furent surpris et s'envolèrent rapidement pour mettre en place la formation.
+« Activez la formation d'origine! » Song Tian n'hésita pas et poussa un rugissement immédiat. Tandis que l'écho de son cri se propageait, tous les êtres puissants qui suivaient Song Tian furent surpris et s'envolèrent rapidement pour mettre en place la formation.
 
 « Maître... » Chi Man ne comprenait pas ce qui arrivait, mais voyant l'expression sombre de son maître, il sentit une pression monter et comprit qu'un malheur se préparait.
 
-« Tais-toi! Ce seigneur ne veut pas être dérangé pour le moment. Sans ton trône, comment aurais-je pu activer le Dispositif d'Origine? » Song Tian se retourna vers Chi Man avec un regard glacial.
+« Tais-toi! Ce seigneur ne veut pas être dérangé pour le moment. Sans ton trône, comment aurais-je pu activer la formation d'origine? » Song Tian se retourna vers Chi Man avec un regard glacial.
 
 « J'ai déjà fait tout mon possible. Si j'échoue, tu ne deviendras pas l'Empereur Ancien dans cent ans; ce sera Ji Du! » Song Tian était ivre de colère. Après avoir parlé, il s'élança vers le ciel et tendit la main. La Montagne d'Origine trembla et un rayon de lumière jaillit: c'était une hache de guerre gigantesque!
 
@@ -82,7 +82,7 @@ En voyant son propre soleil foncer vers le point le plus haut du firmament, Wang
 
 Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Nord, dans la Secte Yang Pourpre et au Mont Empereur, chaque soleil de Grand Empyréen respectif s'éleva et brilla intensément.
 
-Peu après, à l'intérieur de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
+Peu après, dans le palais impérial de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
 
 Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du lieu où il était en retraite de culture. Dans le Ji Antique, l'extrêmement mystérieux Grand Empyréen vit également son propre soleil apparaître dans le ciel!
 

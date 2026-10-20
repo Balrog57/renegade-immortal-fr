@@ -27,7 +27,7 @@ Ce type de halo se forme lorsqu'un être remplit son corps d'énergie spirituell
 
 Wang Lin ne cessa sa culture pour un seul instant. À présent, il ne restait que quelques jades célestes tournoyant autour de lui. Il projeta son sens divin et encore plus de jades jaillirent de son sac.
 
-À cet instant, les yeux de Wang Lin étaient parfaitement dissimulés; c'était comme si des nuages tourbillonnants masquaient ses intentions. Il fixa les jades environnants et, après avoir médité un moment, commença l'absorption!
+À cet instant, le regard de Wang Lin était insondable; c'était comme si des nuages tourbillonnants roulaient en lui. Il fixa les jades environnants et, après avoir médité un moment, commença l'absorption!
 
 Tous les jades célestes entourant Wang Lin commencèrent à se désagréger de l'intérieur vers l'extérieur. Cette décomposition s'étendit très rapidement, si bien qu'en quelques instants, les fissures atteignirent la surface. Une réserve infinie d'énergie spirituelle céleste jaillit des jades en plein effondrement et, sans exception, toute cette énergie afflua vers Wang Lin.
 
@@ -35,7 +35,7 @@ Une fois l'énergie entrée dans son corps, les yeux de Wang Lin s'illuminèrent
 
 Trois mois passèrent en un clin d'œil. C'était le jour d'une grande célébration qui ne se produisait que tous les 10 000 ans sur la planète Tian Yun: le jubilé des dix mille ans de l'Omniscient.
 
-L'Omniscient célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités; même l'Alliance de Culture envoyait un représentant pour assister à la cérémonie.
+L'Omniscient célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités; même l'Alliance de Culture envoyait un représentant lui offrir des présents.
 
 Même pour une planète de culture de rang 7, rares étaient celles qui y parvenaient; seul l'Omniscient en était capable!
 
@@ -49,7 +49,7 @@ Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planè
 
 Il se tenait actuellement au sommet de la brume violette, contemplant la planète en contrebas. Il esquissa un sourire et murmura pour lui-même: « C'est la première fois que je participe à l'anniversaire du Maître, et j'ai effectivement rencontré beaucoup d'amis. Surtout le jeune maître de la Secte Yun Luo; sa culture est plutôt impressionnante et sa personnalité me plaît. »
 
-« Malheureusement, mon septième frère ne pourra pas se faire d'amis. Septième frère, il n'y a jamais eu d'animosité entre nous, mais tu n'aurais jamais dû tenter de me disputer le titre de véritable disciple! »
+« Malheureusement, mon septième frère n'aura pas l'occasion de profiter de tout cela. Septième frère, il n'y a jamais eu d'animosité entre nous, mais tu n'aurais jamais dû tenter de me disputer le titre de véritable disciple! »
 
 « La célébration de l'anniversaire du Maître coïncidera avec la sélection du véritable disciple de ma Division Pourpre! Le Deuxième Frère a déjà renoncé, je ne considère pas le Troisième Frère digne d'être mon ennemi, et quant à la Quatrième Sœur, si elle tente de rivaliser avec moi, j'ai naturellement les moyens de la gérer. La Cinquième Sœur a été envoyée par le Maître en prison céleste pour une culture en isolement de cent ans en guise de punition, et le Sixième Frère est parti s'entraîner. On ne sait pas s'il est vivant ou mort, il pourrait même ne jamais revenir. Ainsi, le titre de véritable disciple de la Division Pourpre m'est acquis! »
 

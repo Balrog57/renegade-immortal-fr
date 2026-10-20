@@ -12,7 +12,7 @@ Si l'on ne parvenait pas à surmonter une Tribulation Arcanique, on mourait. De 
 
 À l'instar du Maître du Dao Rêve Bleu, qui était resté au sommet du Vide Arcanique pendant une longue période sans jamais franchir le stade de la Tribulation Arcanique.
 
-Une fois engagé dans une Tribulation Arcanique, c’était comme affronter neuf situations de vie ou de mort. Tout le monde n'avait pas un tel courage. La plupart des cultivateurs de la Tribulation Arcanique passaient des milliers d'années, voire plus, pour surmonter lentement chaque étape.
+Une fois engagé dans une Tribulation Arcanique, c’était comme affronter neuf situations de vie ou de mort. Tout le monde n'avait pas un tel courage. La plupart des cultivateurs de la Tribulation du Vide passaient des milliers d'années, voire plus, pour surmonter lentement chaque étape.
 
 Ils n'avaient pas assez de confiance pour en traverser neuf d'un coup. Dès qu'ils sentaient que la situation tournait mal, ils interrompaient le processus par la force, renonçant ainsi à chercher la fortune contenue dans la Tribulation Arcanique!
 

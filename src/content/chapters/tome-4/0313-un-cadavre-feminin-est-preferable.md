@@ -12,7 +12,7 @@ Rien ne poussait sur le sol, et d'innombrables fosses sans fond jonchaient le te
 
 Puis, il baissa la tête et se mit à calculer silencieusement. Son sens divin se déploya comme s'il était en quête de quelque chose.
 
-Wang Lin fronça les sourcils en observant les environs et demanda soudain: « Puisque cet endroit se situe dans une autre couche, de quelle couche s'agit-il, frère Chi Hu? »
+Wang Lin fronça les sourcils en observant les environs et demanda soudain: « Puisque cet endroit est une zone de chevauchement de fragments, de quelle couche s'agit-il, frère Chi Hu? »
 
 Papillon Rouge n'avait pas parlé depuis plusieurs jours. Elle laissa échapper un grognement et répliqua: « Question inutile. Bien sûr que c'est la deuxième couche! Il est déjà fort rare que deux couches de fragments se chevauchent dans le Royaume Céleste! »
 
@@ -44,7 +44,7 @@ Il regarda le cadavre, secoua la tête et marmonna pour lui-même: « Ting Er, c
 
 Sur ces mots, il déposa un baiser sur le front de la femme, puis fronça soudainement les sourcils. Il agita la main et le cadavre de la femme ainsi que la pagode disparurent alors qu'il levait les yeux vers le ciel.
 
-Il vit les fissures célestes se rejoindre et une silhouette en sortir. Cette personne avait une chevelure d'un blanc immaculé et le visage profondément ridé. Elle jaillit des failles avec une vitesse incroyable.
+Il vit les fissures célestes se rejoindre et une silhouette en sortir. Cette personne avait une chevelure d'un blanc immaculé et le visage profondément ridé. Il jaillit des failles avec une vitesse incroyable.
 
 « Pourquoi suis-je venu dans cet endroit maudit? J'ai inspecté presque chaque fragment et je n'ai toujours pas trouvé le corps d'un être céleste! »
 
@@ -60,11 +60,11 @@ Il regarda le vieillard et, sans un mot, sauta dans la fosse.
 
 « Oh, une odeur de mort! Oui, c'est bien l'odeur de la mort. Je ne me tromperais jamais sur le parfum d'un être céleste! Il doit s'agir d'un cadavre féminin, haha, un cadavre féminin, c'est encore mieux! » Les yeux du vieil homme s'illuminèrent. Il regarda autour de lui et fixa soudainement la fosse où l'homme d'âge moyen était descendu avant de s'y précipiter.
 
-Le vieillard affichait une expression ravie et songea: « Ainsi, je pourrai accomplir la tâche du Maître de Secte et quitter ce Suzaku immonde. Le Chef de Secte est bien étrange; notre Secte des Cadavres possède toutes sortes de corps, alors pourquoi veut-il le corps d'un être céleste? Je me demande quel client de quelle planète peut avoir un goût aussi unique. »
+Le vieillard affichait une expression ravie et songea: « Ainsi, je pourrai accomplir la tâche du Maître de Secte et quitter ce Suzaku immonde. Le Maître de Secte est bien étrange; notre Secte des Cadavres possède toutes sortes de corps, alors pourquoi veut-il le corps d'un être céleste? Je me demande quel client de quelle planète peut avoir un goût aussi unique. »
 
 Le groupe de Wang Lin descendait la fosse à une vitesse fulgurante. Ils descendaient depuis un temps indéterminé sans voir la fin, mais une force de résistance qui les repoussait vers le haut devenait de plus en plus puissante.
 
-« Nous y sommes presque. Une fois que nous serons descendus, nous atteindrons l'endroit indiqué sur le jade, mais il est scellé par des restrictions. Cependant, avec nous trois, nous devrions pouvoir l'ouvrir en y consacrant quelques jours. » La voix de Chi Hu était empreinte de joie.
+« C'est ici. Une fois que nous serons descendus, nous atteindrons l'endroit indiqué sur le jade, mais il est scellé par des restrictions. Cependant, avec nous trois, nous devrions pouvoir l'ouvrir en y consacrant quelques jours. » La voix de Chi Hu était empreinte de joie.
 
 Plus les trois descendaient, plus la force de résistance s'intensifiait. Une fois qu'elle eut atteint un certain seuil, leur vitesse commença à ralentir.
 
@@ -84,7 +84,7 @@ L'endroit n'était pas vaste, ne mesurant qu'environ 330 mètres de large. Au ce
 
 Cependant...
 
-Il n'y avait aucun cercueil de jade sur la mare, et par conséquent, point de question à se poser pour les trois épées célestes qui devaient s'y trouver. Quant aux herbes spirituelles, il n'en restait pas la moindre trace.
+Il n'y avait aucun cercueil de jade sur la mare, et encore moins les trois épées célestes qui auraient dû s'y trouver. Quant aux herbes spirituelles, il n'en restait pas la moindre trace.
 
 Hormis l'absence totale de trésors, l'endroit était identique au lieu indiqué sur le jade.
 
@@ -96,13 +96,13 @@ Wang Lin observa les environs avec une expression singulière et ne put s'empêc
 
 Pensant cela, il avança pour fouiller soigneusement la zone. Papillon Rouge, les yeux brûlants de rage, commença elle aussi à chercher, espérant débusquer un trésor.
 
-Chi Hu, toujours hébété, marmonna: « Comment est-ce possible... impossible... se pourrait-il que quelqu'un d'autre ait découvert cet endroit après l'arrivée de Xi Zu et ait emporté tous les trésors? Oui, c'est forcément ça! »
+Chi Hu, toujours hébété, marmonna: « Comment est-ce possible... impossible... se pourrait-il que quelqu'un d'autre ait découvert cet endroit après que Xi Zu eut découvert cet endroit et ait emporté tous les trésors? Oui, c'est forcément ça! »
 
 Il secoua la tête avec amertume. Se tournant vers Wang Lin et Papillon Rouge, il joignit les mains et dit: « Vous deux, cette fois, j'ai été imprudent. Je ne m'attendais pas à ce que cela se termine ainsi... »
 
 Papillon Rouge était sur le point de perdre patience. Elle fixa Chi Hu et lui lança froidement: « Crois-tu qu'un simple aveu d'imprudence suffira à compenser mon stigmate perdu? Chi Hu, je pense que tu savais déjà que cet endroit était ainsi et que tu as délibérément profité de ma puissance en chemin. Tu dois avoir un autre objectif. Si tu ne l'expliques pas clairement, ne me reproche pas de faire fi des relations entre nos clans. »
 
-Wang Lin fouilla calmement partout sans rien trouver. Finalement, son regard se posa sur la mare d'eau. En y regardant de plus près, il constata qu'elle était très profonde et qu'il ne pouvait en voir le fond.
+Wang Lin fouilla calmement partout sans rien trouver. Finalement, son regard se posa sur la mare d'eau. En y regardant de plus près, il constata que son eau était d'un noir profond et qu'il ne pouvait en voir le fond.
 
 En entendant les paroles de Papillon Rouge, le visage de Chi Hu devint immédiatement livide, mais il maîtrisa son tempérament et dit d'un ton grave: « Papillon Rouge, une fois de retour à Suzaku, je te donnerai une explication complète. Cependant, prétendre que j'ai un autre objectif est totalement faux. Je suis le jeune maître du Clan des Démons Géants. Bien que je ne puisse pas t'égaler, je suis un homme de parole. »
 

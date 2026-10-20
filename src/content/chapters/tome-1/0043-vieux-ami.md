@@ -8,7 +8,7 @@ slug: vieux-ami
 ---
 Le mille-pattes devant lui mesurait environ 330 mètres de long. Le poison qu'il contenait devait avoir atteint un niveau inimaginable. Wang Lin n'était pas étranger aux mille-pattes; beaucoup d'enfants en capturaient pour jouer dans les fentes des rochers, et d'autres les utilisaient pour nourrir leurs poulets.
 
-Parfois, ils se faisaient accidentellement mordre, mais il suffisait de laver la plaie avec beaucoup d'eau, de rester au lit quelques jours, et tout rentrait dans l'ordre.
+Parfois, ils se faisaient accidentellement mordre; la zone rougissait et enflait, mais il suffisait de laver la plaie avec beaucoup d'eau, de rester au lit quelques jours, et tout rentrait dans l'ordre.
 
 Il y eut même une époque où il en récoltait pour leur venin. Le médecin du village disait que si le poison des mille-pattes était utilisé correctement, il pouvait guérir bien des maux. À ses débuts, pour nourrir sa famille, son père n'avait pas les moyens d'acheter du bois pour son travail; il devait donc monter à la montagne pour en couper, laissant l'air glacial pénétrer son corps. Cela avait failli lui coûter la vie.
 
@@ -22,15 +22,15 @@ En contemplant ce mille-pattes de 330 mètres, Wang Lin se caressa le menton. Si
 
 Mais le mille-pattes devant lui était tout simplement trop colossal, et Wang Lin n'était qu'une minuscule créature face à lui. Il craignait de ne point parvenir à en extraire le poison et de finir par se blesser.
 
-Soudain, Wang Lin se remémora une méthode ancestrale pour obtenir du venin de mille-pattes: fabriquer une pilule que l'on donnait à manger à la créature. Une fois la pilule consommée, le mille-pattes recrachait son poison.
+Soudain, Wang Lin se remémora une recette populaire pour obtenir du venin de mille-pattes: préparer des granulés que l'on donnait à manger à la créature. Une fois les granulés avalés, le mille-pattes recrachait son poison.
 
-Après réflexion, il fixa le monstre et se dirigea vers la maison des pilules. C'est là que se trouvaient les plantes médicinales les plus complètes de la secte. De plus, il n'avait pas vu Wang Hao depuis quatre ans; ce serait l'occasion de prendre de ses nouvelles.
+Tenté, il fixa le monstre et se dirigea aussitôt vers la maison des pilules. C'est là que se trouvaient les plantes médicinales les plus complètes de la secte. De plus, il n'avait pas vu Wang Hao depuis quatre ans; ce serait l'occasion de prendre de ses nouvelles.
 
-L'obscurité tombait déjà lorsque Wang Lin atteignit la maison des pilules et aperçut Wang Hao sortir prudemment par la porte latérale. En voyant Wang Lin, Wang Hao lui fit signe de se taire et de le suivre dehors.
+L'obscurité tombait déjà lorsque Wang Lin atteignit la maison des pilules et aperçut Wang Hao sortir prudemment par la porte latérale. En voyant Wang Lin, Wang Hao lui fit signe de se taire et de sortir d'abord.
 
 Wang Lin fut stupéfait. Il déploya son Sens Divin et découvrit que le troisième frère aîné jetait sans relâche diverses drogues dans le fourneau, avec une expression grave et concentrée.
 
-Après avoir marché un moment, Wang Hao s'aperçut que Wang Lin l'avait silencieusement suivi. Il saisit Wang Lin et s'enfuit en courant. Ce n'est qu'après avoir parcouru une certaine distance qu'il put enfin reprendre son souffle.
+Peu après, Wang Hao, qui venait de sortir sur la pointe des pieds, vit que Wang Lin restait silencieux. Il le saisit et s'enfuit en courant. Ce n'est qu'après avoir parcouru une certaine distance qu'il put enfin reprendre son souffle.
 
 Essoufflé, Wang Hao jeta un regard inquiet vers la maison des pilules, puis demanda vivement, avec une pointe d'espoir: « Wang Lin, j'ai entendu dire que tu avais suivi l'entraînement intensif il y a quatre ans. À quel niveau es-tu maintenant? »
 
@@ -50,17 +50,17 @@ Wang Lin prit une profonde inspiration: « Quoi? Laisse-moi voir! »
 
 Wang Hao sortit un manuscrit relié par des fils et le lança à Wang Lin. Il poursuivit: « Mais après deux ans de pratique, mon corps s'est affaibli. Bien que je parvienne à condenser la puissance spirituelle en moi, je suis incapable de l'utiliser. Plus tard, j'ai secrètement soudoyé un disciple pour qu'il fasse des recherches, et j'ai découvert que la méthode de culture que Lu Yunjie m'avait donnée s'appelait "l'Épreuve du Fourneau de Feu". »
 
-Wang Lin ouvrit le livre et le parcourut. Plus il lisait, plus il était terrifié. Ce qui était écrit différait totalement des Trois Niveaux de la Condensation de Qi. Au lieu d'utiliser l'énergie spirituelle pour raffiner le corps de l'intérieur, cette méthode rassemblait l'énergie en un tourbillon. Ce tourbillon s'étendait à mesure que la puissance spirituelle augmentait, afin d'absorber l'énergie céleste et terrestre pour raffiner le corps de l'extérieur, simulant ainsi une forme de Condensation de Qi.
+Wang Lin ouvrit le livre et le parcourut. Plus il lisait, plus il était terrifié. Ce qui était écrit différait totalement des trois étapes de la Condensation de Qi. Au lieu d'utiliser l'énergie spirituelle pour raffiner le corps de l'intérieur, cette méthode rassemblait l'énergie en un tourbillon. Ce tourbillon s'étendait à mesure que la puissance spirituelle augmentait, afin d'absorber l'énergie céleste et terrestre pour raffiner le corps de l'extérieur, simulant ainsi une forme de Condensation de Qi.
 
 En termes simples, la Condensation de Qi consistait à raffiner lentement le corps de l'intérieur.
 
 Cette autre méthode était bien plus brutale. Si l'on avait de la chance, le tourbillon s'étendait au-delà du corps avant que celui-ci ne s'effondre, permettant de survivre. Sinon, le corps était pulvérisé avant même que le tourbillon n'ait pu sortir.
 
-Wang Hao ajouta, les dents grinçantes: « Les archives de la secte possèdent quelques exemplaires de cette méthode de culture de l'Épreuve du Fourneau de Feu. On dit qu'elle remonte à 500 ans et provient du pays disparu de Lu. Seuls deux cultivateurs sur dix survivent à cette pratique. Tout repose sur la chance. »
+Wang Hao ajouta, les dents grinçantes: « Les archives de la secte possèdent quelques exemplaires de cette méthode de culture de l'Épreuve du Fourneau de Feu. On dit qu'elle remonte à 500 ans et provient du pays disparu de Lu. Seuls un ou deux cultivateurs sur dix survivent à cette pratique. Tout repose sur la chance. »
 
 Wang Lin posa la question cruciale: « Quel intérêt Lu Yunjie y trouve-t-il? »
 
-Le regard de Wang Hao se glaça. Il dit d'une voix sombre: « Il veut m'utiliser comme un fourneau de pilules. Lorsque le disciple des archives m'a transmis l'information, il était écrit que si une personne meurt en pratiquant l'Épreuve du Fourneau de Feu, on peut, en utilisant une méthode spécifique, créer une pilule capable de prolonger la vie de trois ans. »
+Le regard de Wang Hao se glaça. Il dit d'une voix sombre: « Il veut m'utiliser comme un fourneau de pilules. Lorsque le disciple des archives m'a transmis l'information, il était écrit que si une personne meurt en pratiquant l'Épreuve du Fourneau de Feu, on peut, en utilisant une méthode spécifique et avec une certaine chance, créer une pilule capable de prolonger la vie de trois ans. »
 
 Wang Lin retint un souffle glacial; ce troisième frère aîné, Lu Yunjie, était d'une cruauté sans nom.
 

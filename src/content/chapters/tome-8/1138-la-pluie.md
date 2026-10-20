@@ -44,7 +44,7 @@ Les quatre disciples restèrent silencieux, le cœur lourd d'amertume. La compé
 
 L'aura de mort du vieil homme s'intensifia. Il prit une profonde inspiration et, regardant la pluie par-delà le temple, leva sa main droite desséchée. Quelques mois auparavant, elle n'était pas ainsi; à présent, il semblait que la moitié de sa chair et de son sang avait été drainée, ne laissant qu'une main squelettique.
 
-En voyant cela, la femme éclata en sanglots. Les trois autres serrèrent les dents si fort qu'ils risquaient de se briser la mâchoire.
+En voyant cela, la femme éclata en sanglots. Les trois autres serrèrent les poings et les dents si fort qu'ils risquaient de se briser la mâchoire.
 
 Sans regarder sa main, le vieil homme fit un geste vers le vide. Une fissure spatiale menant à un espace de stockage apparut. Cette faille était pourpre et, dès son ouverture, une aura terrifiante s'en dégagea.
 
@@ -94,7 +94,7 @@ Habité par un immense regret, il lutta pour articuler deux derniers mots avant 
 
 Les quatre disciples restèrent pétrifiés alors que leur maître s'éteignait. Les quatre mots laissés par leur maître les frappèrent de stupeur, mais ils ne comprirent pas pourquoi le visage du vieillard avait été empreint d'un tel choc à la fin.
 
-Au sein de la Secte de l'Origine, la cloche résonna et le bassin fut envahi par les pleurs. Au son de la cloche, il n'y eut que tristesse, regret, confusion et panique...
+Au sein de la Secte de l'Origine, la cloche résonna et le bassin fut envahi par les pleurs. Au son de la cloche, il n'y eut que tristesse, regret, confusion et désarroi...
 
 « Tous les disciples de la Secte de l'Origine, rendez-vous dans la partie nord du continent de Mo Luo! Cherchez toute personne ayant des capacités de culture, quel que soit son âge, en particulier si elle a... les cheveux blancs! »
 

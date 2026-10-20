@@ -12,11 +12,11 @@ Le jeune homme qui avait récité ce poème arrogant et tenait la coupe de vin r
 
 La seule différence résidait dans les traces du temps. Bien que Wang Lin parût jeune, il avait vécu plus de 2 000 ans, et son corps portait les marques des siècles passés.
 
-Cependant, le jeune homme buvant son vin débordait de vitalité et d'éclat de vie. Peu importe comment on l'observait, il n'était qu'un mortel d'à peine trente ans!
+Cependant, le jeune homme buvant son vin débordait de vitalité et d'éclat de vie. Peu importe comment on l'observait, il n'était qu'un mortel d'une trentaine d'années!
 
 Wang Lin resta figé sur place, les yeux rivés sur le bateau qui approchait. Il regarda le jeune homme poser sa coupe et essuyer une goutte de vin au coin de la bouche.
 
-Le serviteur derrière lui avait la quarantaine; il inclina la tête en disant:
+Le serviteur derrière lui avait la quarantaine; il secoua la tête d'admiration en disant:
 
 « C'est bien, le poème du Jeune Maître est véritablement extraordinaire. À l'entendeur d'un humble serviteur, un tel poème ne devrait exister qu'au ciel, et les hommes ont peine à en entendre de pareils. Magnifique, merveilleux! »
 
@@ -40,7 +40,7 @@ Ce dernier observa attentivement Wang Lin, et plus il le regardait, plus il éta
 
 Peu après, le serviteur sortit une coupe propre et la remplit personnellement. Tout en versant, il observa Wang Lin, secrètement bouleversé.
 
-« Frère me ressemble étrangement. J'ai rencontré bien des gens lors de mes études à l'étranger, mais je n'ai jamais croisé personne dont le visage soit si proche du mien. Puis-je demander quel est votre nom? » demanda le jeune homme avec curiosité et un sourire aux lèvres.
+« Frère me ressemble étrangement. J'ai rencontré bien des gens lors de mes voyages d'études dans diverses régions, mais je n'ai jamais croisé personne dont le visage soit si proche du mien. Puis-je demander quel est votre nom? » demanda le jeune homme avec curiosité et un sourire aux lèvres.
 
 Wang Lin ne répondit pas. Il restait plongé dans ses pensées. Il saisit la coupe de vin et but seul.
 

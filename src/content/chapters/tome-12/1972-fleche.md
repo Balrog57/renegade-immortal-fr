@@ -16,7 +16,7 @@ Sur son dos, Liu Jinbiao bouillonnait de rage, bien qu'il fût dans un état lam
 
 Il se retourna et rugit: « Maudit sois-tu, tu oses me provoquer? Mon maître ne te laissera jamais impuni! »
 
-Derrière le dragon marin, une silhouette noire semblait fusionner avec la nuit. Il était impossible de dire s'il s'agissait d'un homme ou d'une femme, d'un jeune ou d'un vieillard. Cette personne se déplaçait avec une vélocité fulgurante, dépassant même celle du dragon. À cet instant, elle fit un mouvement des mains et un arc apparut; elle décocha alors une flèche.
+Derrière le dragon marin, une silhouette noire semblait fusionner avec la nuit. Il était impossible de dire s'il s'agissait d'un homme ou d'une femme, d'un jeune ou d'un vieillard. Cette personne se déplaçait avec une vélocité fulgurante, dépassant même celle du dragon. À cet instant, il fit un mouvement des mains et un arc apparut; il décocha alors une flèche.
 
 Dès l'apparition de la flèche, toute l'énergie céleste environnante sembla se condenser en elle.
 
@@ -34,11 +34,11 @@ Au moment où la flèche allait frapper le dragon et Liu Jinbiao, une silhouette
 
 Une fois apparu, il leva simplement la tête, révélant un regard éblouissant. La lumière dorée de ses yeux se posa sur la flèche et provoqua son éclatement.
 
-La silhouette cachée dans l'obscurité sentit son esprit vaciller et son corps fut violemment expulsé de sa cachette. En croisant le regard de l'inconnu, elle eut l'impression que des milliers d'épées fonçaient sur elle.
+La silhouette cachée dans l'obscurité sentit son esprit vaciller et son corps fut violemment expulsé de sa cachette. En croisant le regard de l'inconnu, il eut l'impression que des milliers d'épées fonçaient sur lui.
 
-Elle ne put opposer la moindre résistance. Son esprit bourdonna tandis qu'elle recrachait du sang avant de perdre connaissance. Elle s'effondra au sol, soulevant un nuage de neige.
+Il ne put opposer la moindre résistance. Son esprit bourdonna tandis qu'il recrachait du sang avant de perdre connaissance. Il s'effondra au sol, soulevant un nuage de neige.
 
-Avant de sombrer dans l'inconscience, son corps fut pétrifié par l'effroi. Le regard de l'autre lui fit ressentir une peur inédite, dépassant celle qu'elle avait éprouvée face à son chef de famille ou à son ancêtre.
+Avant de sombrer dans l'inconscience, son corps fut pétrifié par l'effroi. Le regard de l'autre lui fit ressentir une peur inédite, dépassant celle qu'il avait éprouvée face à son chef de famille ou à son ancêtre.
 
 « Maître! Vous êtes enfin venu! Il voulait me tuer! Le dragon est blessé! » Liu Jinbiao fut transporté par l'excitation en voyant Wang Lin. Le dragon marin, lui, se retourna et fixa la silhouette immobile avec fureur.
 
@@ -88,7 +88,7 @@ Wang Lin poursuivit sa route tandis que derrière lui, Liu Jinbiao haletait, les
 
 Le dragon marin, témoin de la scène, fut rempli d'admiration.
 
-Alors que le pied droit de Wang Lin franchissait le seuil du Manoir Li, des hurlements éclatèrent. Une multitude de silhouettes surgirent, exécutant toutes le même mouvement: la main gauche tenant un arc et la main droite tirant la corde jusqu'à la pleine lune avant de décocher une flèche!
+Alors que le pied droit de Wang Lin franchissait le seuil du Manoir Li, des sifflements éclatèrent. Une multitude de silhouettes surgirent, exécutant toutes le même mouvement: la main gauche tenant un arc et la main droite tirant la corde jusqu'à la pleine lune avant de décocher une flèche!
 
 Des centaines de flèches furent projetées vers Wang Lin, qui venait de pénétrer dans l'enceinte.
 

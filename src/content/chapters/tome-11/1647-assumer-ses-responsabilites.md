@@ -22,7 +22,7 @@ Crois-tu tout cela...
 
 S'il n'y avait pas eu de Dao Céleste, si le Souverain Céleste ne l'avait pas volé, alors aucune vie ne serait apparue dans cette grotte. Ce ne serait qu'une simple cavité...
 
-Une fois que tu sauras tout cela, seras-tu confus? Ne te demanderas-tu pas pour quoi nous vivons? Pourquoi existons-nous et quelle est notre raison d'être?
+Une fois que tu sauras tout cela, seras-tu confus? Ne te demanderas-tu pas pour quoi nous vivons? Pourquoi existons-nous, pour quoi respirons-nous, et quelle est notre raison d'être?
 
 Et puis, il y a la rétribution divine. Le Dao Céleste est élevé par le Souverain Céleste, et tous les êtres vivants ici existent grâce à lui. Il a créé la rétribution divine pour qu'elle puisse éliminer quiconque tenterait de détourner les desseins du Dao Céleste...
 
@@ -44,7 +44,7 @@ Cependant, celui qui parlait était Wang Lin, son frère. Il connaissait Wang Li
 
 Il ressentait rarement de la peur, mais face aux paroles terrifiantes de Wang Lin, l'effroi envahit son esprit. Il craignait que si tout cela était vrai, que restait-il de lui? Son bonheur était-il réel?
 
-Il n'était qu'un pantin jouant une pièce mise en scène par les cieux. Observé et manipulé par une existence mystérieuse... C'était comme lorsqu'il regardait les fourmis sur le sol, les voyant lutter pour survivre...
+Il n'était qu'un pantin jouant une pièce mise en scène par les cieux. Observé et manipulé par une existence mystérieuse... C'était comme lorsqu'il regardait, dans la terre, les fourmilières et les fourmis qui s'y débattaient pour survivre...
 
 Wang Lin réfléchit silencieusement un instant et dit doucement: « J'ai mes propres hypothèses sur la guerre entre les Royaumes Intérieur et Extérieur, mais je ne la comprends pas encore totalement. Cependant, j'ai un plan, et dans trois ans, je saurai tout de cette guerre! »
 
@@ -64,7 +64,7 @@ Mais maintenant, la troisième étape est apparue... » Wang Lin posa la cruche 
 
 Situ, autrefois, j'étais lassé de la culture, mais après aujourd'hui, cette pensée ne germera plus jamais dans mon cœur. Je veux cultiver, je veux devenir plus fort, je veux quitter ce monde, je veux voir si les habitants du Continent Astral Immortel possèdent réellement trois têtes et six bras!
 
-Même si je dois mourir neuf fois et retourner à la poussière, qu'importe! » Wang Lin agita la main droite, se pencha en arrière et vida la moitié d'une cruche de vin.
+Même si je dois mourir neuf fois et retourner à la poussière, qu'importe! » Wang Lin agita la main droite; une cruche posée au sol s'envola jusqu'à sa main. Il se pencha en arrière et en vida la moitié.
 
 Il essuya le coin de sa bouche et éclata de rire.
 

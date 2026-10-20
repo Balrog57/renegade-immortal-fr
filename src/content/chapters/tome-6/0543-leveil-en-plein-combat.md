@@ -14,7 +14,7 @@ Ces trois sorts mortels ayant été créés par Situ Nan, ils étaient intrinsè
 
 De plus, le Dao de Wang Lin différait grandement de celui de Situ Nan. Ainsi, lorsque Wang Lin utilisait ces deux sorts, ils manquaient de variations et de flexibilité.
 
-En vérité, il existait des sorts de continuation pour accompagner ces deux techniques, mais comme Situ Nan avait perçu leurs divergences, il ne les avait pas enseignés à Wang Lin. Ce n'était pas par avarice, mais parce qu'avec le passage du temps, il était fort probable que le Dao de Wang Lin soit transformé.
+En vérité, il existait des sorts de continuation pour accompagner ces deux techniques, mais comme Situ Nan avait perçu leurs divergences, il ne lui en avait pas enseigné la totalité. Ce n'était pas par avarice, mais parce qu'avec le passage du temps, il était fort probable que le Dao de Wang Lin soit transformé.
 
 Le dernier des trois sorts mortels, le Doigt des Enfers, était bien plus puissant que les deux autres, et sa puissance se rapprochait étrangement d'un sort céleste de qualité inférieure.
 
@@ -36,7 +36,7 @@ Alors que son index touchait le vide, Wang Lin sentit l'intention de poing monst
 
 C'était comme si le ciel tout entier s'écroulait, avec Wang Lin pour unique point focal!
 
-Une aura destructrice jaillit de toutes les directions pour s'abattre sur lui. La lumière noire brilla intensément tandis que l'énergie spirituelle céleste en son corps circulait avec frénésie. Soudain, la lueur noire à l'extrémité de son doigt s'élargit pour recouvrir l'intégralité de son corps.
+Une aura destructrice jaillit de toutes les directions pour s'abattre sur lui. La lumière noire brilla intensément tandis que l'énergie spirituelle céleste en son corps s'inversait avec frénésie. Soudain, la lueur noire à l'extrémité de son doigt s'élargit pour recouvrir l'intégralité de son corps.
 
 Un fracas assourdissant résonna dans toute la Cité de l'Ancien Démon. Le visage de Wang Lin devint livide et il fut projeté en arrière de plusieurs pas avant de réussir à stabiliser sa posture.
 

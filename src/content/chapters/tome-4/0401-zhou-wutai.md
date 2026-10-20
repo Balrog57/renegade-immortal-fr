@@ -44,7 +44,7 @@ Tout en reculant, le regard de Wang Lin devint glacial. Sa main traça un sceau 
 
 Le ciel s'obscurcit comme si toute la lumière s'était concentrée devant Wang Lin. Un drapeau d'âme d'une dizaine de mètres de haut, brillant comme une flamme dans les ténèbres, apparut dans sa main.
 
-Si le mât mesurait une dizaine de mètres, la bannière elle-même était bien plus vaste. Elle ondulait dans l'air sans qu'aucun vent ne souffle, parsemée de douze points d'un or violacé.
+La bannière elle-même était bien plus large. Elle ondulait dans l'air sans qu'aucun vent ne souffle, parsemée de douze points d'un or violacé.
 
 Dès l'apparition du drapeau, d'innombrables gémissements fantomatiques s'élevèrent de la terre, tels des spectres errants poussant des cris de ressentiment. Des volutes de gaz noir jaillirent du sol et commencèrent à fuir dans toutes les directions.
 
@@ -88,7 +88,7 @@ La femme en robe violette marqua une nouvelle pause et fixa l'homme. Sous sa bea
 
 « Le jour où il comprendra enfin son propre domaine et sera sur le point de franchir le stade de la Formation de l'Âme, ce sera le jour où il devra tuer son propre disciple. Non seulement il doit tuer le disciple qu'il aime comme un fils, mais il ne peut lui accorder une mort rapide; il doit le faire souffrir lentement. Ce n'est qu'ainsi que la douleur dans son propre cœur pourra croître assez pour utiliser cette tristesse afin d'atteindre la Formation de l'Âme. »
 
-« Cela semble empreint d'émotion, et pourtant c'est impitoyable, bien qu'une trace de sentiment y subsiste encore. Atteindre le stade de la Formation de l'Âme de cette manière n'est certainement pas chose aisée pour un être ordinaire. »
+« Cela semble empreint d'émotion, et pourtant c'est impitoyable, bien qu'une trace de sentiment y subsiste encore. Un tel état, qui transcende le mortel, est absolument incompréhensible pour un être ordinaire. »
 
 À l'époque où Wang Lin avait vu cet homme, il n'avait pu que soupirer. Ce n'était pas une voie qu'il aurait pu emprunter lui-même.
 

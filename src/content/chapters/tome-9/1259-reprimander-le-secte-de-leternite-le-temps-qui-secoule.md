@@ -82,7 +82,7 @@ Un souffle de temps passait après l'autre. En un clin d'œil, dix autres souffl
 
 Deux mille ans de souvenirs furent inconsciemment parcourus. Le vieil homme aux cheveux blancs luttait tandis qu'il se remémorait deux mille ans de passé en seulement vingt souffles.
 
-Sa culture fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale il y a trois mille ans. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
+Sa culture fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale de la Secte Démon il y a trois mille ans. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
 
 En voyant cette épée brisée, la tristesse d'autrefois envahit de nouveau son cœur. Il se remémora l'époque d'il y a quatre mille ans, puis cinq mille ans, avant d'atteindre le sommet du premier Fléau Céleste. Il luttait en méditation fermée pour résister à la décomposition que le premier Fléau Céleste infligeait à son corps.
 

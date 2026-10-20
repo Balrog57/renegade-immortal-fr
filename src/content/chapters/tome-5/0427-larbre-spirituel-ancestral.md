@@ -76,7 +76,7 @@ L'Ancien Sima, qui n'était pas intervenu jusqu'alors, observa l'arbre avec une 
 
 Le cinquième ancêtre réfléchit un instant avant de désigner son front. Un tatouage de la taille d'une paume s'en échappa alors.
 
-Ce motif était d'une complexité telle qu'il donnait le tournis rien qu'en le regardant, mais il dégageait une nuance de puissance primitive et destructrice.
+Ce motif était d'une complexité telle qu'il donnait le tournis rien qu'en le regardant, mais il dégageait un souffle de chaos primordial, pareil à celui de l'ouverture du ciel et de la terre.
 
 « Ce tatouage est l'un de ceux transmis par nos ancêtres. Je l'ai achevé lorsque j'ai atteint le stade des neuf feuilles! » Dit-il en agitant la main pour envoyer le tatouage vers l'Ancien Sima.
 
@@ -86,7 +86,7 @@ Il plaça soigneusement le tatouage à l'intérieur avant de pousser un soupir d
 
 « Puisque mon Clan des Immortels Délaissés a fait une promesse à votre Secte des Cadavres, nous ne reviendrons pas sur notre engagement! » rétorqua froidement le cinquième ancêtre.
 
-Sima rit, les yeux brillants, et ajouta soudain: « Je transmettrai un message du Maître de la Secte des Cadavres. Dans ma secte, nous possédons encore un cadavre de Démon Géant qui a autrefois abattu nombre de vos chamans à neuf feuilles. Son corps a déjà atteint le stade intermédiaire d'Ascendant. Si cela vous intéresse, contactez-nous à tout moment! » Sur ces mots, il ne prit même pas le temps d'attendre une réponse et disparut rapidement.
+Sima rit, les yeux brillants, et ajouta soudain: « Je transmettrai un message du Maître de la Secte des Cadavres. Dans ma secte, nous possédons encore le cadavre d'un ancêtre du Clan des Démons Géants, qui a autrefois abattu nombre de vos chamans à neuf feuilles. Son corps a déjà atteint le stade intermédiaire d'Ascendant. Si cela vous intéresse, contactez-nous à tout moment! » Sur ces mots, il ne prit même pas le temps d'attendre une réponse et disparut rapidement.
 
 Les deux diacres cadavres suivirent prestement, et les trois s'évanouirent dans le nuage noir.
 
@@ -128,4 +128,4 @@ Le quatrième ancêtre du Clan des Immortels Délaissés semblait résolu à ne 
 
 Pendant sa fuite, Situ Nan ne montrait aucune crainte; il ralentissait même parfois pour permettre au quatrième ancêtre de le rattraper.
 
-« Ce vieil homme a dévoré leur Esprit Ancestral et, après ma fusion avec ce corps, je dévorerai aussi ce petit chien fou. Cela accélérera grandement ma récupération! Je serai le seul bénéficiaire en éliminant un chaman d'une puissance équivalente à celle d'un Ascendant; ainsi, on pourra dire que je n'ai pas oublié la bienveillance de la première génération de Suzaku! » rit Situ Nan.
+« Ce vieil homme a dévoré leur Esprit Ancestral et, après ma fusion avec ce corps, je dévorerai aussi ce petit chien fou. Cela accélérera grandement ma récupération! Je serai le seul bénéficiaire en éliminant un chaman d'une puissance équivalente à celle d'un Ascendant; ainsi, je pourrai dire que j'ai été à la hauteur de la première génération de Suzaku! » rit Situ Nan.

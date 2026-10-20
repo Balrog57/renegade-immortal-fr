@@ -44,7 +44,7 @@ En voyant cela, Sun Tai ne put s'empêcher de rire, et la tendresse dans ses yeu
 
 Wang Lin semblait avoir légèrement vieilli au cours de ces cinq années. C'était le même phénomène que lorsqu'il s'était transformé en mortel: afin de ne pas effrayer les gens ordinaires, son apparence n'était plus celle d'un jeune homme mais celle d'un homme d'âge mûr. La vicissitude dans ses yeux lui conférait un tempérament singulier qui flottait autour de lui sans se dissiper, malgré sa maturité récente.
 
-La jeune femme était très féminine. Elle regarda Wang Lin et dit avec ferveur: « Frère Wang, regardez, Wang Ping a déjà dix ans et il a eu une vie difficile sans mère. Si vous ne pensez pas à vous-même, pensez au moins à l'enfant. La fille de la famille Zhao, à l'entrée du village, est une jeune fille encore vierge et elle est prête à vous suivre. Elle a même promis de traiter l'enfant comme le sien. Qu'est-ce qui ne vous convient pas? »
+La jeune femme était assez jolie. Elle regarda Wang Lin et dit avec ferveur: « Frère Wang, regardez, Wang Ping a déjà dix ans et il a eu une vie difficile sans mère. Si vous ne pensez pas à vous-même, pensez au moins à l'enfant. La fille de la famille Zhao, à l'entrée du village, est une jeune fille encore vierge et elle est prête à vous suivre. Elle a même promis de traiter l'enfant comme le sien. Qu'est-ce qui ne vous convient pas? »
 
 Le sourire amer de Wang Lin s'accentua alors qu'il disait d'un ton résigné: « Cette affaire... oublions-la. »
 

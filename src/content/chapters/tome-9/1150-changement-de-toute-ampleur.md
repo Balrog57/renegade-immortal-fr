@@ -48,7 +48,7 @@ Le singe noir s'en approcha et écrasa directement le nid de sa main.
 
 Dans un fracas assourdissant, le nid vola en mille morceaux, révélant une petite parcelle d'herbe rouge qui y poussait.
 
-La main du singe ne s'arrêta pas là. Après avoir détruit le nid, il saisit directement le rocher adjacent à l'herbe rouge et l'arracha de terre.
+La main du singe ne s'arrêta pas là. Après avoir détruit le nid, il saisit directement le rocher adjacent à l'herbe rouge, d'une taille de plusieurs dizaines de pieds, et l'arracha de terre.
 
 Le singe noir poussa un rugissement de joie et s'élança au loin.
 
@@ -62,7 +62,7 @@ La terre tremblait. De loin, on voyait le singe noir bondir et s'élancer, soule
 
 Très peu de cultivateurs osaient provoquer ainsi des bêtes féroces sur un continent sauvage pour voler des herbes avec une telle arrogance. La puissance d'une seule bête n'était peut-être pas une menace, mais une fois que des milliers, des dizaines de milliers ou des centaines de milliers de créatures se rassemblaient, leur force combinée était suffisante pour terrasser n'importe qui!
 
-Certains cultivateurs de sectes de rang 5 observaient la scène de loin. Ils restaient là, pétrifiés comme des poulets engourdis, incapables de prononcer un mot.
+Certains cultivateurs de sectes de rang 5 observaient la scène de loin. Ils restaient là, figés comme des coqs de bois, incapables de prononcer un mot.
 
 Ils formaient un groupe de sept et s'étaient montrés très prudents dès leur arrivée, craignant d'attirer trop de bêtes; ils n'avaient donc naturellement récolté que peu d'herbes. En voyant l'arrogance du singe noir, ils en furent totalement stupéfaits.
 
@@ -84,7 +84,7 @@ Les bêtes lancées à sa poursuite étaient encore plus nombreuses.
 
 Shi Luoxing était assis en position de lotus dans une vallée sombre. Son visage était pâle et du sang séché maculait le coin de sa bouche. Ses cheveux noirs étaient ébouriffés; il était dans un état déplorable.
 
-Un hurlement fantomatique continuait de résonner et de siffler dans la zone. Peu de temps après, quatre silhouettes titubèrent dans la vallée et, lorsqu'elles furent à moins de trente pieds de Shi Luoxing, l'une d'elles cracha une bouchée de sang.
+Un hurlement fantomatique continuait de résonner et de siffler dans la zone, mêlé de coups sourds. Peu de temps après, quatre silhouettes titubèrent dans la vallée et, lorsqu'elles furent à moins de trente pieds de Shi Luoxing, l'une d'elles cracha une bouchée de sang.
 
 — Maître, le troisième frère est mort. Nous... nous ne pouvons pas nous échapper... Ces quatre jeunes hommes portaient des robes blanches couvertes de taches de sang.
 

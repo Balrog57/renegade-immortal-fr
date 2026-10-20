@@ -92,7 +92,7 @@ Wang Lin fit un geste vers la ligne rouge qui s'était élevée au ciel, et cell
 
 Les visages des trois ancêtres devinrent lugubres. L'un d'eux regarda Chen Bailiang, immobile en pleine culture, et l'autre, piégé dans le drapeau de restriction. Son cœur ne put s'empêcher de sombrer.
 
-Le regard de Wang Lin se glaça alors qu'il disait froidement: « Donnez-moi votre sang d'âme, ou sinon! »
+Le regard de Wang Lin se glaça alors qu'il disait froidement: « Donnez-moi votre sang d'âme, ou vous mourrez! »
 
 Le vieil homme aux allures féeriques prit une profonde inspiration et dit lentement: « J'ai cultivé pendant plus de 1300 ans et je n'ai jamais donné mon sang d'âme à qui que ce soit. »
 
@@ -100,7 +100,7 @@ Les yeux de Wang Lin brillèrent et il répondit doucement: « Je n'ai aucune ra
 
 Sur ces mots, Wang Lin pointa son front, et le démon Xu Liguo ainsi que le second démon apparurent. Une fois sortis, les deux démons tournèrent leurs regards vers les trois cultivateurs de l'Âme Naissante.
 
-Au même moment, Chen Bailiang, qui tentait de cultiver au sol, s'écroula. Un ancêtre de la Secte Ciel Nuageux venait de mourir.
+Au même moment, Chen Bailiang, qui tentait de cultiver au sol, cracha un jet de sang et s'écroula. Un ancêtre de la Secte Ciel Nuageux venait de mourir.
 
 À sa mort, le visage des trois survivants se décomposa. L'un des ancêtres hésita un instant, puis dit avec amertume: « Si je vous donne mon sang d'âme, c'est la même chose que la mort. Autant prendre le risque et me battre. Ainsi, même si je meurs, je n'aurai aucun regret. »
 
@@ -218,9 +218,9 @@ On pouvait dire que toute la Secte Ciel Nuageux était désormais entre les main
 
 Devant l'assemblée, il sortit les sangs d'âme et les remit à Li Muwan.
 
-Les quatre ancêtres furent surpris. Après avoir regardé Li Muwan, ils ne dirent mot. Quant à Song Qing et les anciens, ils se détendirent un peu; comparés à Wang Lin, ils trouvaient plus facile d'accepter Li Muwan, qui avait été une ancienne.
+Les quatre ancêtres furent surpris. Après avoir regardé Li Muwan, ils ne dirent mot. Quant à Song Qing et les anciens, ils se détendirent un peu; comparés à Wang Lin, ils trouvaient plus facile d'accepter Li Muwan, qui était déjà une ancienne de la secte.
 
-Li Muwan réceptionna les sangs d'âme et regarda l'assemblée de la Secte Ciel Nuageux. Elle esquissa un doux sourire et dit délicatement: « Cette petite fille prendra soin de la Secte Ciel Nuageux pour son mari. J'espère que les aînés me traiteront avec bienveillance. Quatre ancêtres, votre statut est très noble, ne prenez donc pas cette affaire de sang d'âme à cœur. Dans 500 ans, Wan Er vous le rendra sans faute. J'espère que vous ne tiendrez pas rigueur de ces cinq siècles. Je fabriquerai même des pilules pour augmenter votre longévité en guise d'excuse. Bien que le raffinage soit difficile et les matériaux rares, j'en ferai une pour chacun de vous tous les 50 ans. Avec chaque pilule, votre espérance de vie augmentera de 50 ans. »
+Li Muwan réceptionna les sangs d'âme et regarda l'assemblée de la Secte Ciel Nuageux. Elle esquissa un doux sourire et dit délicatement: « Cette petite fille prendra soin de la Secte Ciel Nuageux pour son mari. J'espère que les aînés me traiteront avec bienveillance. Quatre ancêtres, votre statut est très noble, ne prenez donc pas cette affaire de sang d'âme à cœur. Dans 500 ans, Wan Er vous le rendra sans faute. J'espère que vous ne tiendrez pas rigueur de ces cinq siècles. Je fabriquerai même gratuitement des pilules pour augmenter votre longévité en guise d'excuse. Bien que le raffinage soit difficile et les matériaux rares, j'en ferai une pour chacun de vous tous les 50 ans. Avec chaque pilule, votre espérance de vie augmentera de 50 ans. »
 
 L'expression du vieil homme aux allures féeriques changea. Il demanda d'une voix grave: « Augmenter la longévité? »
 
@@ -228,7 +228,7 @@ Les trois autres levèrent également les sourcils. La longévité était une qu
 
 « J'en ai cinq ici. Vous quatre pouvez les examiner. » Li Muwan sourit et sortit une bouteille. Elle versa les pilules et les tendit aux anciens.
 
-Le vieil homme regarda les pilules, puis les deux autres ancêtres, avant que leurs regards ne se posent sur Yun Tianzi. Ce dernier examina la pilule avec sérieux. Il leva les yeux vers Li Muwan: « Vous avez raffiné cette pilule? »
+Le vieil homme regarda les pilules, puis les deux autres ancêtres, avant que leurs regards ne se posent sur Yun Tianzi. Ce dernier, ému, examina la pilule avec sérieux. Il leva les yeux vers Li Muwan: « Vous avez raffiné cette pilule? »
 
 Li Muwan sourit faiblement: « Je l'ai raffinée, mais mon mari a fourni les matériaux. » Ces pilules avaient été créées à partir de liquide spirituel.
 

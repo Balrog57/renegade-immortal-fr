@@ -14,7 +14,7 @@ Et au sein du clan Ancien, peu de crimes étaient plus graves que le manque de r
 
 Même Xuan Luo fut stupéfait en entendant ces mots. Bien qu'il fût un Grand Empyréen, il appartenait toujours à l'Ancien Dao. Avant d'atteindre ce rang, il devait encore s'agenouiller devant l'empereur de sa génération pour marquer son respect.
 
-L'Empereur de l'Ancien Dao sourit en regardant Wang Lin, mais un ricanement intérieur le traversa. Il était venu aujourd'hui pour vérifier si la personne ayant causé l'anomalie du brasero d'encens était bien celle qu'il soupçonnait.
+L'Empereur de l'Ancien Dao sourit en regardant Wang Lin, mais un ricanement intérieur le traversa. Il était venu aujourd'hui pour vérifier si la personne ayant causé l'anomalie de l'encensoir était bien celle qu'il soupçonnait.
 
 Si ce n'était pas le cas, il recruterait cette personne.
 
@@ -64,7 +64,7 @@ Le vieil homme répondit respectueusement: « À vos ordres! »
 
 « Wang Lin, je te remets ceci. Grâce à cela, tu pourras entrer et sortir du palais à ta guise. J'ai quelques fils que je souhaite que tu rencontres personnellement afin de choisir un héritier pour moi! » L'Empereur sourit et fit un geste de la main droite. Un jade pourpre apparut et flotta devant Wang Lin, attendant qu'il le saisisse à deux mains.
 
-Wang Lin réfléchit silencieusement. L'ancien empereur ne montra aucune impatience et continua de sourire en attendant.
+Wang Lin réfléchit silencieusement. L'Empereur ne montra aucune impatience et continua de sourire en attendant.
 
 Xuan Luo restait immobile sur le côté. Il savait que si Wang Lin souhaitait rester, il devrait s'intégrer à l'Ancien Dao et accepter le pouvoir de la famille impériale.
 
@@ -82,7 +82,7 @@ L'Empereur de l'Ancien Dao acquiesça avec un sourire. Il regarda Xuan Luo et s'
 
 Bientôt, la brume pourpre qui emplissait le ciel se dissipa, rendant à l'atmosphère son aspect normal.
 
-Dans le palais de la cité céleste, l'Empereur apparut dans son pavillon favori. Un sourire sardonique étira ses lèvres et il éclata de rire.
+Dans le palais de la cité céleste, l'Empereur apparut dans son pavillon favori. Un sourire étira ses lèvres et il éclata de rire.
 
 « Qu'importe s'il est le disciple de Xuan Luo! Qu'importe! Il possède dix gouttes du sang de l'Ancêtre Ancien, et alors? Même si tu possèdes une goutte de sang d'âme, qu'est-ce que cela peut bien changer! Wang Lin, devant moi, tu devras toujours t'agenouiller! »
 

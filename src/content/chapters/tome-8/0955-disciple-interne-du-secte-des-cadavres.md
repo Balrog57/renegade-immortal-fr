@@ -79,4 +79,4 @@ L'explosion de l'âme créa une force destructrice qui affecta instantanément t
 
 « Peu importe qui vous êtes, je trouverai votre nom! Vous périrez pour avoir provoqué la Secte des Cadavres! » Sa silhouette disparut progressivement dans l'obscurité.
 
-Wang Lin resta calme. Au moment où la force de l'explosion déferla sur lui, il frappa son sac de rangement et la troisième Charrette de Guerre Divine, qu'il n'avait pas utilisée depuis longtemps, s'en échappa! Dans un fracas retentissant, elle se métamorphosa en un magnifique papillon multicolore.
+Wang Lin resta calme. Au moment où la force de l'explosion déferla sur lui, il frappa son sac de rangement et le troisième Char de Guerre Divin, qu'il n'avait pas utilisé depuis longtemps, s'en échappa! Dans un fracas retentissant, il se métamorphosa en un magnifique papillon multicolore.

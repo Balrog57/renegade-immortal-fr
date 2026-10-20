@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2072 - Hearts Dead, Already Forgotten
 slug: curs-morts-déjà-oublies
 ---
-Sous le rideau de pluie, la chute des gouttes ressemblait à un murmure délicat. Tandis que l'eau se dispersait, le chant du vent s'y mêlait pour former une brume onirique issue d'une vie antérieure.
+Sous le rideau de pluie, cette voix douce ressemblait à un murmure délicat. Tandis qu'elle se dispersait, le bruit de la pluie s'y mêlait pour former une brume onirique issue d'une vie antérieure.
 
 Le papillon qui voltigeait autour de Qing Hong vint se poser dans sa main, et elle lui offrit tendrement un abri contre les éléments. C'était comme si elle était elle-même ce papillon rouge, mais nul ne savait qui, dans ce monde, pourrait l'abriter du même vent et de la même pluie.
 
@@ -44,7 +44,7 @@ D'un ton empreint d'émotion, elle murmura: « Une vie passée et la vie présen
 
 Les yeux de Wang Lin étaient empreints de confusion alors qu'il interrogeait la femme: « Comment avez-vous répondu à cette question, alors? »
 
-L'expression de Qing Hong devint complexe lorsqu'elle chuchota: « Oublier le passé pour ne chérir que le présent. Si je persiste à m'accrocher, encore et encore, cela ne m'apportera que douleur et confusion. »
+L'expression de Qing Hong devint complexe lorsqu'elle chuchota: « Oublier le passé pour ne chérir que le présent. Si je persiste à m'accrocher, de réincarnation en réincarnation, cela ne m'apportera que douleur et confusion. »
 
 « Je comprends. » Wang Lin laissa échapper un soupir. Il savait que Papillon Rouge se souvenait de quelque chose, mais ses paroles sur cette vie précédant la vie antérieure firent trembler le cœur de Wang Lin. Il repensa au Dao des rêves sur la planète Suzaku, où, sous un rideau de pluie semblable, une femme était apparue devant lui, tenant un nouveau-né.
 
@@ -52,19 +52,19 @@ Un papillon rouge se trouvait alors dans la pluie, s'abritant sous une feuille. 
 
 Wang Lin resta pensif, puis fit volte-face pour s'éloigner.
 
-« J'ai déjà oublié tant de choses de cette vie-là. Je ne me souviens que de vous et de cette question... Et d'une autre... Il vous a dit quelque chose. »
+« J'ai déjà oublié tant de choses de cette vie-là. Je ne me souviens que de vous et de cette question... Et d'un autre... Il vous a dit quelque chose. »
 
 « Je me souviens encore de cette phrase. » Qing Hong ferma les yeux, et sa voix fut suave.
 
 « Quelle phrase? » demanda Wang Lin sans s'arrêter, s'enfonçant dans la pluie.
 
-« Cœurs morts, déjà oubliés... »
+« Quand le cœur meurt, on oublie... »
 
 Au milieu de l'averse, le corps de Wang Lin trembla et il se retourna brusquement, saisi d'un choc profond qui ébranla son âme même. Le parapluie en papier huilé lui échappa des mains pour tomber au sol, s'imbibant de pluie.
 
-« Mo Zhi. » La planète Suzaku surgit dans l'esprit de Wang Lin. Lorsqu'il n'était qu'un cultivateur de bas niveau, c'était aussi lors d'une nuit pluvieuse qu'il avait rencontré un homme chauve au regard chargé de confusion. Cet homme lui avait lancé une phrase:
+« Mo Zhi. » La planète Suzaku surgit dans l'esprit de Wang Lin. Lorsqu'il n'était qu'un cultivateur de bas niveau, c'était aussi lors d'une nuit pluvieuse qu'il avait rencontré, dans un temple, un homme chauve et robuste au regard chargé de confusion. Cet homme lui avait lancé une phrase:
 
-« Cette pluie naît dans le ciel et meurt sur la terre. Le processus qui les lie est la vie... Cœurs morts, déjà oubliés... »
+« Cette pluie naît dans le ciel et meurt sur la terre. Le processus qui les lie est la vie... Quand le cœur meurt, on oublie... »
 
 Ces mots résonnaient dans son esprit, et le regard de l'homme chauve s'imprima nettement dans sa mémoire. Wang Lin ne pouvait les comprendre autrefois, mais avec le recul, il en ressentait désormais toute la douleur et la compassion.
 
@@ -78,7 +78,7 @@ Wang Lin, de son côté, restait plongé dans ses pensées.
 
 « La réincarnation. Lorsque j'ai déverrouillé les souvenirs des êtres en réincarnation, je ne me suis pas demandé si j'étais moi aussi prisonnier d'un cycle... Si je suis réellement dans un cycle de réincarnation, alors qui viendra déverrouiller mes propres souvenirs? » En y songeant, Wang Lin éclata de rire, un rire qui se mua en sanglots.
 
-« La réincarnation, c'est donc cela la réincarnation!! Mais même si je suis dans un cycle, je ne choisirai jamais d'oublier, jamais!! » Il riait encore, l'esprit soudain porté vers la silhouette qui rugissait vers le ciel lors de ses Trois Divisions d'Âme de l'Ancien Dao.
+« La réincarnation, c'est donc cela la réincarnation!! Mais même si je suis dans un cycle, je ne choisirai jamais d'oublier, jamais!! » Il riait encore, l'esprit soudain porté vers la silhouette qui, dans le temple ancestral de la cité impériale de Shi Antique, rugissait vers le ciel lors de ses Trois Divisions d'Âme de l'Ancien Dao.
 
 Les paroles de cette figure retentirent une fois de plus à ses oreilles:
 

@@ -26,7 +26,7 @@ Une ancienne déesse à 7 étoiles!
 
 Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi le Maître Yi Mu avait-il reçu l'ordre de poursuivre le Serpent aux yeux de lune!
 
-Pourquoi Wang Lin avait-il vu toute sa force vitale emportée par l'ancêtre de la famille Xiang! La force vitale qui lui avait été dérobée était celle d'un ancien dieu!
+Pourquoi toute la force vitale de Wang Lin avait-elle été emportée par l'ancêtre de la famille Xiang! La force vitale qui lui avait été dérobée était celle d'un ancien dieu!
 
 Bien que Wang Lin ne sache pas tout cela, il en comprenait la majeure partie alors qu'il voyageait à travers Luotian!
 
@@ -84,7 +84,7 @@ Cependant, ce souhait ne faisait que s'éloigner... Si ce n'était pour cette fi
 
 Mais cette figure l'avait empêchée de s'humilier. Elle refusait de sombrer si bas. Bien que cet homme l'ait peut-être oubliée, ne se souvenant même plus de son nom, elle, elle se souvenait... Elle ne pouvait oublier cette silhouette menant les cultivateurs hors du Royaume Céleste du Tonnerre en plein effondrement... Elle ne pouvait oublier ce guerrier combattant les gens du Temple Céleste du Tonnerre qui gardaient la formation.
 
-Plus encore, elle ne pouvait oublier celui qui avait bouleversé Luotian pour devenir le Céleste du Tonnerre! Même si cet homme ignorait qu'elle se trouvait parmi les spectateurs, et même s'il ne connaissait pas la joie qu'elle ressentait... Au cours des huit cents dernières années, chaque fois qu'elle sombrait dans la tristesse, elle pensait à cette silhouette et puisait en elle le courage de continuer à lutter.
+Plus encore, elle ne pouvait oublier celui qui, lors de la bataille pour le titre céleste, avait bouleversé Luotian et était devenu le Céleste du Tonnerre! Même si cet homme ignorait qu'elle se trouvait parmi les spectateurs, et même s'il ne connaissait pas la joie qu'elle ressentait... Au cours des huit cents dernières années, chaque fois qu'elle sombrait dans la tristesse, elle pensait à cette silhouette et puisait en elle le courage de continuer à lutter.
 
 Le passé était comme une fumée qui traversa rapidement son esprit. Bientôt, une planète de culture regorgeant d'énergie spirituelle apparut devant eux.
 

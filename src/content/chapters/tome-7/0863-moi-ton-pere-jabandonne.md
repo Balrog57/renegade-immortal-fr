@@ -92,7 +92,7 @@ Wang Lin avait déjà perdu toute sensibilité dans ses doigts. Bien que son att
 
 Une lueur froide traversa les yeux de Wang Lin. Loin de reculer, il fit un pas en avant et se fondit dans le vide.
 
-Voyant Wang Lin disparaître une fois de plus, les pupilles de Nangong Han se rétractèrent brusquement. Ses mains formèrent un sceau rapide et il hurla: « Formation des Neuf Lames! » Instantanément, les deux lames illusoires effondrées reprirent forme pour s'unir aux sept autres dans une formation de lames. Ces dernières tournèrent avec frénésie, créant d'innombrables fils argentés qui encerclèrent Nangong Han avant de se disperser rapidement.
+Voyant Wang Lin disparaître une fois de plus, les pupilles de Nangong Han se rétractèrent brusquement. Ses mains formèrent un sceau rapide et il hurla: « Formation des Neuf Accords! » Instantanément, les deux lames illusoires effondrées reprirent forme pour s'unir aux sept autres dans une formation de lames. Ces dernières tournèrent avec frénésie, créant d'innombrables fils argentés qui encerclèrent Nangong Han avant de se disperser rapidement.
 
 La silhouette de Wang Lin apparut à environ dix mètres de Nangong Han alors que la formation de lames approchait. L'os de bête sur le dos de sa main droite s'illumina et se manifesta aussitôt. Les fils argentés émirent une lueur grise. Profitant de cet instant, Wang Lin réprima ses blessures et disparut sans laisser de trace.
 

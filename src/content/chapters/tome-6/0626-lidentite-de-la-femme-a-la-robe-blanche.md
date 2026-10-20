@@ -35,7 +35,7 @@ Après avoir examiné attentivement le jade dans sa main, Wang Lin se mit à ré
 
 « L'Épée Céleste de la Pluie... L'Épée Céleste de la Pluie... Une telle coïncidence pourrait-elle exister dans ce monde... La femme à la robe blanche dont le senior Zhou Yi était si épris... Serait-elle la fille de l'Empereur Céleste Qing Lin?! » Wang Lin réfléchit un instant avant de tapoter son sac de rangement. La pagode que Zhou Yi lui avait donnée en sortit. Avant qu'elle ne puisse croître, la main droite de Wang Lin traça un sceau et pointa la structure. Le corps de la femme en blanc, d'une beauté capable de faire s'emballer n'importe quel cœur, s'envola lentement.
 
-En observant le corps de la femme, Wang Lin se plongea dans ses pensées. Ses yeux brillèrent; il forma un index et un majeur en guise d'épée et fit un geste vif. Une lame de vent jaillit et une marque rouge apparut immédiatement sur le poignet de la défunte.
+En observant le corps de la femme, Wang Lin se plongea dans ses pensées. Ses yeux brillèrent; il forma un index et un majeur en guise d'épée et fit un geste vif. Une lame de vent jaillit et une marque rouge apparut immédiatement sur le poignet droit de la défunte.
 
 Pourtant, avant même que le sang ne puisse couler, la marque disparut instantanément pour reprendre son aspect normal.
 
@@ -105,6 +105,6 @@ L'Ancien Démon du Pays du Démon Céleste avait anticipé ce problème dès le 
 
 Quant aux autres cités du Pays du Démon Céleste, l'Ancien Démon les abandonna totalement. Il ne garda que la capitale et le Lac du Dragon, attendant l'échéance de son accord avec Wang Lin. Il n'avait aucune crainte que ce dernier ne revienne sur sa parole; si cela arrivait, il utiliserait ses capacités pour le traquer jusqu'à ce qu'il le tue. Il était convaincu que Wang Lin n'était pas un homme aussi court-termiste.
 
-Dans ce contexte, la Tribu de l'Affinement de l'Âme s'étendit et se renforça rapidement. Au cours des dernières décennies, sur les champs de bataille du Pays du Démon de Feu, des silhouettes mystérieuses vêtues de noir attirèrent l'attention des deux camps. Ces hommes en robe noire apparaissaient souvent sur les lieux des combats pour absorber une quantité massive de fragments d'âmes et de vies.
+Dans ce contexte, la Tribu de l'Affinement de l'Âme s'étendit et se renforça rapidement. Au cours des dernières décennies, sur les champs de bataille du Pays du Démon de Feu, des silhouettes mystérieuses vêtues de noir attirèrent l'attention des deux camps. Ces hommes en robe noire apparaissaient souvent sur les lieux des combats pour absorber une quantité massive de fragments d'âmes tout en emportant une grande quantité de force vitale.
 
 Parallèlement, les soldats démons qui avaient tué d'innombrables ennemis sur les champs de bataille, affichant des performances exceptionnelles et une puissance grandement accrue, furent promus au rang de généraux dans les armées des deux pays pour remplacer les généraux tombés au combat.

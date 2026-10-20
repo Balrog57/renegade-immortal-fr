@@ -112,4 +112,4 @@ La scène précédente ressemblait à un rêve, mais la chaleur émanant de ses 
 
 Wang Lin toucha inconsciemment son front, mais il n'y trouva rien...
 
-Pendant ce temps, un immense rocher traversait rapidement le ciel étoilé, fonçant vers la partie occidentale du Système Stellaire de l'Alliance. Sur la pierre se tenait un homme vêtu de rouge, le regard impitoyable et glacial. Fixant les étoiles lointaines, il murmura: « Céleste du Tonnerre Luotian, Xu Mu... J'espère que tu n'es pas trop faible... »
+Pendant ce temps, un immense rocher traversait rapidement le ciel étoilé, fonçant vers la partie occidentale du Système Stellaire de l'Alliance. Sur la pierre se tenait un homme vêtu de rouge, le regard impitoyable et glacial. Fixant les étoiles lointaines, il murmura: « Céleste du Tonnerre légitime Luotian, Xu Mu... J'espère que tu n'es pas trop faible... »

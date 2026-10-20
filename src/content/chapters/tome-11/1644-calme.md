@@ -92,13 +92,13 @@ Des grondements tonitruants secouèrent le monde, formant une tempête apocalypt
 
 Le Général Tigre Blanc poussa un cri et une immense quantité d'énergie céleste jaillit de son corps. Tandis qu'il était projeté en arrière, le Général Dragon Azure et le Général Tortue Noire se précipitèrent pour soutenir le blessé.
 
-« Aidez-moi à briser le sceau de guérison pour que je puisse libérer mon essence et l'exterminer! » Le Général Tigre Blanc paraissait faible, le visage pâle, mais ses yeux brillaient d'une lueur féroce. Il repoussa le Dragon Azure et la Tortue Noire. Ses cheveux blancs étaient en désordre et il commença à rugir comme un possédé.
+« Aidez-moi à briser le sceau de guérison pour que je puisse libérer mon essence et le tuer! » Le Général Tigre Blanc paraissait faible, le visage pâle, mais ses yeux brillaient d'une lueur féroce. Il repoussa le Dragon Azure et la Tortue Noire. Ses cheveux blancs étaient en désordre et il commença à rugir comme un possédé.
 
 Dans son rugissement, son aura explosa et une rune dorée apparut entre ses sourcils!
 
 « Dragon Azure, Tortue Noire, aidez-moi à ouvrir le sceau! Si nous ne devions pas d'abord restaurer notre culture, nous ne serions pas repoussés par cette fourmi. Je vais le tuer! De quel droit ose-t-il repousser des Célestes comme nous? Il n'est qu'une fourmi du monde inférieur! »
 
-L'expression de Wang Lin resta impassible, bien qu'il fût blessé. Il avait presque succombé à l'attaque combinée des trois généraux; sans ses multiples techniques de secours, il aurait été gravement atteint.
+L'expression de Wang Lin resta impassible, bien qu'il fût blessé. Il avait eu du mal à encaisser l'attaque combinée des trois généraux; sans ses multiples techniques de secours, il aurait été gravement atteint.
 
 Voyant le Tigre Blanc sombrer dans la folie, il leva la main gauche vers le vide. Un éclat doré émana de sa paume et, lorsque la lumière se dissipa, un arc antique apparut!
 

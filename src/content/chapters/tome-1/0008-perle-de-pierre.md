@@ -10,7 +10,7 @@ Tie Zhu était livide lorsqu'il se redressa pour scruter les environs. Il réali
 
 Sur le mur derrière lui se trouvait un trou noir de la taille d'un poing. Il ne pouvait en déterminer la profondeur, mais une inspection plus attentive permit de lever le voile sur un mystère: la force d'aspiration qui l'avait projeté dans la grotte lors de sa chute provenait de ce trou. Les ossements d'oiseaux éparpillés sur le sol venaient sans doute d'oiseaux aspirés comme lui, et morts de leur chute.
 
-Cette aspiration devait apparaître à intervalles irréguliers. Au moment où il était apparu devant la cavité durant sa chute, le trou mystérieux l'avait happé, lui sauvant ainsi la vie. Tie Zhu, endurant l'agonie de son bras droit, était sur le point de sortir de la grotte lorsque les ossements au sol commencèrent soudainement à glisser vers l'orifice. Sans perdre un instant, il se roula dans un coin de la cavité.
+Cette aspiration devait apparaître à intervalles irréguliers. Elle s'était déclenchée au moment même de sa chute, et le trou mystérieux l'avait happé, lui sauvant ainsi la vie. Tie Zhu, endurant l'agonie de son bras droit, était sur le point de sortir de la grotte lorsque les ossements au sol commencèrent soudainement à glisser vers l'orifice. Sans perdre un instant, il se roula dans un coin de la cavité.
 
 Une force d'aspiration inimaginable jaillit soudain du petit trou. Tous les os s'entrechoquèrent en volant vers l'ouverture. Certains des plus gros ossements restèrent coincés contre la paroi, bouchant le petit trou.
 

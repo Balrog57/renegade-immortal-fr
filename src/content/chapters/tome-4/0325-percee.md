@@ -88,7 +88,7 @@ Il y avait au moins cent cultivateurs aux alentours, tous au stade de la Formati
 
 Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard méprisant à la Secte Hun Yuan et déclara: « La Secte Hun Yuan n'est que de la vermine! Cher compagnon, donnez-moi une épée et ma Secte du Démon Céleste assurera votre sécurité! »
 
-« Les sectes Hun Yuan et Démon Céleste ne sont que des tas de clowns. Ces deux épées célestes appartiennent à ma Secte de l'Éternité du Ciel et de la Terre! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
+« Les sectes Hun Yuan et Démon Céleste ne sont que des tas de clowns. Ces deux épées célestes appartiennent à ma Secte de la Totalité du Ciel et de la Terre! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
 
 Ce mouvement déclencha une réaction en chaîne. Près de cent cultivateurs se mirent à charger Wang Lin simultanément.
 

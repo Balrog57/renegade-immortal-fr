@@ -60,7 +60,7 @@ Dès l'apparition du bambou vert, le regard de Wang Lin se fit sérieux. Rien qu
 
 Si Wang Lin pouvait fusionner avec lui, cela lui profiterait immensément!
 
-Le Grand Empyréen Dao Yi observait attentivement Wang Lin et sourit. Il savait que cet homme était attiré par les trésors exotiques. Ces objets exerçaient une forte attraction sur lui; il était donc venu avec l'intention de le séduire par des richesses!
+Le Grand Empyréen Dao Yi observait attentivement Wang Lin et sourit. Il savait que cet homme était attiré par les objets extérieurs et les trésors magiques. Ces objets exerçaient une forte attraction sur lui; il était donc venu avec l'intention de le séduire par des trésors magiques!
 
 De plus, ces deux trésors ne lui coûtaient rien, et ce serait extrêmement rentable de les offrir pour recruter Wang Lin. Cependant, il savait que Wang Lin n'était pas un cultivateur ordinaire et qu'il n'était pas le seul Grand Empyréen venu pour lui. S'il ne présentait pas de véritables trésors, il risquait d'être supplanté par ses pairs une fois arrivés.
 

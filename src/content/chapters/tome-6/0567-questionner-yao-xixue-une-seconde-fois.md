@@ -36,7 +36,7 @@ Wang Lin répondit: « Suivez ma règle: répondez à l'une de mes questions, et
 
 Yao Xixue baissa la tête, ses yeux trahissant une lutte intérieure. Wang Lin attendit patiemment.
 
-Après le temps qu'il faut pour consumer une demi-tige d'encens, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
+Après le temps qu'il faut pour consumer une demi-tige d'encens, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme, la raffiner et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
 
 Wang Lin poussa un soupir: « Vous avez gaspillé votre deuxième chance. J'espère que vous chérirez la prochaine! » Sur ces mots, ses yeux s'illuminèrent et il fit un pas en avant. Il arriva devant Yao Xixue, lui saisit la mâchoire et, avec une légère force, lui força la bouche à s'ouvrir.
 
@@ -106,7 +106,7 @@ Mo Lihai regarda au loin sans dire un mot. Après un long moment, il détourna s
 
 Mo Lihai pensa: « Après mon départ cette fois, je ne reviendrai pas. Un autre général démon prendra la gestion de la ville; ces ruines n'auront donc plus rien à me voir! »
 
-« C'est dommage que Treize ait été emmené par Wang Lin; je n'ai pu affiner que 17 de mes 18 corps démoniaques... Cependant, si Wang Lin essaie vraiment de m'aider cette fois, je suis certain de pouvoir me classer parmi les trois premiers de la compétition des généraux démons! J'obtiendrai alors le droit d'entrer dans le temple démoniaque pour cultiver et, à ma sortie, je serai vice-commandant en chef! » Mo Lihai prit une profonde inspiration. Ses yeux se fixèrent au loin et il esquissa un sourire.
+« C'est dommage que Treize ait été emmené par Wang Lin; je n'ai pu affiner que 17 de mes 18 corps démoniaques... Cependant, si Wang Lin essaie vraiment de m'aider cette fois, je suis certain de pouvoir me classer parmi les trois premiers de la compétition des généraux démons! J'obtiendrai alors le droit d'entrer dans l'Ancien Temple Démon pour cultiver et, à ma sortie, je serai vice-commandant en chef! » Mo Lihai prit une profonde inspiration. Ses yeux se fixèrent au loin et il esquissa un sourire.
 
 « Cet homme est quelqu'un qui ne revient jamais sur sa parole! »
 

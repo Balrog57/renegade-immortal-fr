@@ -60,9 +60,9 @@ Alors que de plus en plus de personnes identifiaient les cavaliers, les discussi
 
 Le Maître Fu Fengzi était une figure légendaire sur la planète Tian Yun. Dès son apparition, beaucoup le reconnurent.
 
-« Le Maître Fu Fengzi est devenu un allié de Wang Lin! » Les yeux du vieil homme sur la gourde s'illuminèrent légèrement. Si seuls les trois frères Chen et l'homme à la grosse tête avaient été présents, ils n'auraient représenté aucune menace. Mais le Maître Fu Fengzi était une tout autre affaire!
+« Le Maître Fu Fengzi est devenu un allié de Wang Lin! » Le vieil homme sur la gourde eut un imperceptible éclair dans le regard. Si seuls les trois frères Chen et l'homme à la grosse tête avaient été présents, ils n'auraient représenté aucune menace. Mais le Maître Fu Fengzi était une tout autre affaire!
 
-À ses côtés se tenait une belle femme au regard empreint d'intelligence. Son aura était féroce, semblable à une paire de ciseaux capable de trancher tout sens divin qui tenterait de s'étendre vers eux!
+À ses côtés se tenait une belle femme au regard vif. Son aura était féroce, semblable à une paire de ciseaux capable de trancher tout sens divin qui tenterait de s'étendre vers eux!
 
 « Un autre Purificateur du Nirvana au stade initial! » La foule fut à nouveau en émoi.
 

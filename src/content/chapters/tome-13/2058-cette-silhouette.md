@@ -46,7 +46,7 @@ Et ce dernier halo s'estompait lui aussi lentement.
 
 « Wang Lin! Réveille-toi! » Xuan Luo asséna un coup de poing contre le temple ancestral et poussa un rugissement capable de briser les cieux. Ce cri résonna dans toute la cité impériale tel le tonnerre avant de s'engouffrer vers le temple.
 
-Il tenta de forcer à nouveau l'entrée, mais fut rejeté par la force de répulsion. Xuan Luo était en proie à une angoisse extrême. Il avait déjà vécu les Trois Divisions d'Âme du Dao Antique. Tant que les halos subsistaient, même en l'absence de vitalité ou de conscience, ce n'était pas la mort, mais une sorte de sommeil.
+Il tenta de forcer à nouveau l'entrée, mais fut rejeté par la force de répulsion. Xuan Luo était en proie à une angoisse extrême. Il avait déjà vécu les Trois Divisions d'Âme de l'Ancien Dao. Tant que les halos subsistaient, même en l'absence de vitalité ou de conscience, ce n'était pas la mort, mais une sorte de sommeil.
 
 Un sommeil de l'âme. Si Wang Lin pouvait être tiré de cette léthargie, tant que les halos persistaient, il y aurait un espoir de survie. C'était pour cette raison qu'il avait choisi de monter la garde auprès de lui!
 
@@ -68,7 +68,7 @@ Alors que les rugissements anxieux de Xuan Luo faisaient vibrer la cité impéri
 
 Au plus profond du temple ancestral, la lueur sanglante sur le corps de Wang Lin vacillait avec une violence accrue.
 
-« Qui m'appelle... » Wang Lin semblait dormir dans un espace étrange. Cet endroit était flou et il avançait aveuglément jusqu'à ce qu'une voix semble l'appeler.
+« Qui m'appelle... » Wang Lin semblait dormir dans un espace étrange. Cet endroit était flou et il avançait aveuglément jusqu'à ce qu'une voix semble l'appeler derrière lui.
 
 « Où suis-je... » Wang Lin était toujours confus. La voix qui l'appelait apparaissait et disparaissait; dès qu'il tentait de l'écouter, elle s'évanouissait.
 
@@ -78,7 +78,7 @@ Cet endroit était une ruine.
 
 Aucune vie ne subsistait dans ce monde, comme s'il avait été abandonné depuis des éons. La montagne n'était plus verdoyante; elle n'était plus qu'un gris de défaite.
 
-« Je... Qui suis-je... » La confusion dans les yeux de Wang Lin s'intensifiait. Il semblait posséder une multitude de souvenirs, mais il était incapable de se rappeler son identité, la raison de sa présence ici, ni l'endroit où il se trouvait.
+« Je... Qui suis-je... » La confusion dans les yeux de Wang Lin s'intensifiait. Il semblait avoir perdu une multitude de souvenirs, mais il était incapable de se rappeler son identité, la raison de sa présence ici, ni l'endroit où il se trouvait.
 
 « Réveille-toi... Réveille-toi... » La voix résonna faiblement une fois de plus et Wang Lin s'arrêta.
 
@@ -110,7 +110,7 @@ Cependant, comparé à l'apparence juvénile habituelle de Xuan Luo, la différe
 
 Wang Lin ouvrit lentement les yeux. En voyant ce vieillard, celui-ci afficha un regard de joie. Cependant, il ne put résister à la force de répulsion et fut expulsé hors du temple ancestral.
 
-« Maître... » murmura Wang Lin en regardant vers l'endroit où Xuan Luo avait disparu. Il fixa les cheveux blancs de son maître et sut qu'il ne pourrait jamais oublier cette image de sa vie.
+« Maître... » murmura Wang Lin en regardant vers l'endroit où Xuan Luo avait disparu. Il fixa les cheveux blancs de son maître et sut qu'il ne pourrait jamais oublier ce bienfait de toute sa vie.
 
 Il leva soudainement la tête et ses mains formèrent des sceaux. Une quantité massive de lumière apparut devant lui et se rassembla au-dessus de sa tête pour former une ombre.
 

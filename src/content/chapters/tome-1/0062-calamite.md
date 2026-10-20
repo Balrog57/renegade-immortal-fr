@@ -22,7 +22,7 @@ Wang Lin fut stupéfait. Il reposa le jade et en saisit un autre.
 
 « Technique de qualité supérieure — Évasion Tellurique. »
 
-« Poubelle, de la pure poubelle! Là d'où je viens, on trouve ça à chaque coin de rue, et ils osent appeler ça une technique de qualité supérieure! Mon évasion des cinq éléments est une véritable technique de qualité supérieure! »
+« Poubelle, de la pure poubelle! Là d'où je viens, on trouve ça à chaque coin de rue, et ils osent appeler ça une technique de qualité supérieure! Ma grande évasion des cinq éléments est une véritable technique de qualité supérieure! »
 
 « Technique de qualité supérieure — Lame de Vent. »
 
@@ -48,11 +48,11 @@ Situ Nan insista: « Wang Lin, ne perds pas ton temps ici. Trouve rapidement un 
 
 L'élan d'anticipation de Wang Lin avait été totalement brisé par Situ Nan; il sortit donc de la bibliothèque des écritures, le front soucieux.
 
-En voyant Wang Lin sortir, Huang Long fut surpris et demanda: « Tu as choisi si vite? Il faut choisir avec soin. Cette bibliothèque contient les meilleures techniques du pays de culture de Zhao. D'autres n'ont même pas les qualifications pour y entrer. Ne gaspille pas cette chance. »
+En voyant Wang Lin sortir, Huang Long fut surpris et demanda: « Tu as choisi si vite? Il faut choisir avec soin. Cette bibliothèque contient les meilleures techniques du pays de culture de Zhao. D'autres n'ont même pas les qualifications pour y entrer. Ne fais pas les choses à la légère. »
 
 L'expression de Wang Lin était étrange. Les moqueries de Situ Nan et les éloges de l'Ancien créaient un profond conflit en lui. Il répondit: « Ce disciple a déjà choisi. »
 
-Huang Long fronça les sourcils, s'apprêtant à lui demander quelle technique il avait sélectionnée, quand soudain, tout le Pic des Pins se mit à trembler.
+Huang Long fronça les sourcils, s'apprêtant à lui demander quelle technique il avait sélectionnée, quand soudain, tout le Pic des Pins se mit à trembler comme sous l'effet d'un séisme.
 
 « Je suis Pu Nanzi de la Secte Xuan Dao. Juniors de la Secte Heng Yue, venez vite me voir! »
 
@@ -62,7 +62,7 @@ Le visage de Huang Long changea brusquement. À cet instant, plus d'une dizaine 
 
 Derrière eux se trouvaient dix Anciens, tous arborant des expressions amères.
 
-Situ Nan dit d'un ton grave: « Wang Lin, il y a un cultivateur de l'Âme Naissante à l'extérieur. La Secte Heng Yue est en grand danger. Tu dois trouver une occasion de t'enfuir. Tant que je suis là, je peux temporairement faire en sorte qu'il ne puisse pas te détecter. Hmph, si j'avais retrouvé mon corps, je n'aurais pas peur d'une simple Âme Naissante! »
+Situ Nan dit d'un ton grave: « Wang Lin, il y a un cultivateur de l'Âme Naissante à l'extérieur. La Secte Heng Yue est en grand danger. Tu dois trouver une occasion de t'enfuir. Tant que je suis là, je peux temporairement faire en sorte qu'il ne puisse pas te détecter. Hmph, si j'avais encore mon corps, je n'aurais pas peur d'une simple Âme Naissante! »
 
 Wang Lin prit une profonde inspiration, l'esprit troublé.
 
@@ -92,6 +92,6 @@ La vieille femme ordonna: « Huang Long, vite! Rassemble tous les disciples inte
 
 Le corps de Huang Long trembla. Sans dire un mot, il s'élança vers le pont menant au Pic Heng Yue.
 
-« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pu Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la montagne, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic des Pins.
+« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pu Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la montagne, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic des Pins, puis s'abattit violemment.
 
 Dans un fracas assourdissant, l'un des piliers de jade blanc se brisa. L'Ancien de l'Établissement des Fondations qui siégeait dessus saigna abondamment par tous les orifices et s'effondra au sol.

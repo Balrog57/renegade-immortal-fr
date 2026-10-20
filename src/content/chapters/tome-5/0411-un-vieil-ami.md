@@ -98,9 +98,9 @@ Wang Zhuo fut surpris et demanda: « Vous l'ignorez? »
 
 Wang Lin secoua la tête. « Je n'étais pas sur la planète Suzaku ces sept dernières années. »
 
-Le cœur de Wang Zhuo vacilla. Bien que Wang Lin l'ait dit avec désinvolture, cela lui parut insensé.
+Le cœur de Wang Zhuo vacilla. Bien que Wang Lin l'ait dit avec désinvolture, cela n'avait rien d'anodin pour lui.
 
-Pas sur la planète Suzaku… Cela signifiait que le niveau de culture de Wang Lin pouvait franchir l'atmosphère même…
+Pas sur la planète Suzaku… Cela signifiait que le niveau de culture de Wang Lin pouvait traverser le vide lui-même…
 
 Wang Zhuo prit une profonde inspiration et raconta à Wang Lin tout ce qu'il savait.
 

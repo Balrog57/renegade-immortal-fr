@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1202 - Planting Dao
 slug: planter-le-dao
 ---
-L'éclair qui jaillissait devant le Maître Pin Cendré était identique à celui de leur premier combat. Il portait en lui une puissance monstrueuse et percuta l'énergie originelle en un instant.
+L'éclair qui jaillissait devant le Maître Pin Cendré était semblable à celui de leur premier combat. Il portait en lui une puissance monstrueuse et percuta l'énergie originelle en un instant.
 
 Des grondements tonitruants résonnèrent dans les environs. L'énergie originelle infinie se dissipa, tandis que l'éclair transperçait l'espace pour atteindre Wang Lin. Les yeux de ce dernier s'illuminèrent et il lança un coup de poing impitoyable.
 
@@ -28,13 +28,13 @@ La foudre descendant du ciel marqua un temps d'arrêt avant de fusionner avec le
 
 Wang Lin était tel un céleste du tonnerre au sein de ce lac!
 
-Il inspira, et l'éternel tonnerre se condensa rapidement dans son œil droit.
+Il inspira, et le tonnerre sans fin se condensa rapidement dans son œil droit.
 
 Cette scène fit pâlir le Maître Pin Cendré, qui restait totalement stupéfait.
 
 Non loin de là, le front de Chen Tianjun était couvert de sueur. Son visage était livide et ses yeux étaient remplis de choc.
 
-Wang Lin ne s'arrêta pas. Après avoir absorbé la foudre, une faible marque d'éclair apparut dans ses yeux. Elle jaillit de son regard comme l'attaque précédente et vola directement vers le Maître Pin Cendré.
+Wang Lin ne s'arrêta pas. Après avoir absorbé la foudre, une faible marque d'éclair apparut dans ses yeux. Elle jaillit de son regard, identique à l'attaque précédente du Maître Pin Cendré, et vola directement vers lui.
 
 Le Maître Pin Cendré recula précipitamment en formant un sceau de ses mains. Ses sept âmes naissantes émettaient alors une lumière rouge sang intense, entourant le Maître Pin Cendré pour tenter de bloquer l'éclair!
 
@@ -74,7 +74,7 @@ Cette scène étrange troubla l'esprit de Wang Lin, mais il ne laissa paraître 
 
 Chen Tianjun venait d'assister au massacre du Maître Pin Cendré par Wang Lin. Lorsque celui-ci tourna les yeux vers lui, son visage devint livide. Instinctivement, il recula de quelques pas et joignit les mains en signe de respect devant Wang Lin.
 
-« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire! Le Maître Pin Cendré était un être malfaisant pour nous avoir entraînés ici. Il est heureux qu'il soit mort par la main du compagnon de culture Lu. Il le méritait; le compagnon Lu a bien agi! »
+« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire! Le Maître Pin Cendré était un être malfaisant pour nous avoir entraînés ici. Que le compagnon de culture Lu l'ait tué est aussi son destin. Il le méritait; le compagnon Lu a bien agi! »
 
 Wang Lin s'approcha de Chen Tianjun et lui rendit un léger salut.
 
@@ -82,7 +82,7 @@ Chen Tianjun regarda Wang Lin avec prudence et expliqua avant même que celui-ci
 
 L'expression de Wang Lin resta calme alors qu'il disait lentement: « Échapper à une bête de rang 12 n'a pas dû être facile pour le compagnon Chen. »
 
-Nerveux, Chen Tianjun répondit rapidement: « Je suis spécial. J'ai une excellente compréhension des bêtes féroces, ce qui m'a permis de m'échapper de justesse. »
+Nerveux, Chen Tianjun répondit rapidement: « Ma méthode de culture est particulière. J'ai une bonne connaissance des bêtes féroces, ce qui m'a permis de m'échapper de justesse. »
 
 Wang Lin n'avait aucun différend avec ce Chen Tianjun et ne souhaitait pas se battre pour des trésors. Il joignit les mains et s'apprêta à partir.
 

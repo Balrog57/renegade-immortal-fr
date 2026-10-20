@@ -80,9 +80,9 @@ Le dragon marin s'éleva dans les airs, portant Wang Lin sur sa tête. Ce dernie
 
 « Bien que mon Senior soit déjà mort, la grâce qu'il m'a témoignée est une dette que je n'oublierai jamais. » Le regard de Wang Lin se posa sur le Temple Dong Lin, et pendant un instant, il vit l'image du vieil homme solitaire et triste.
 
-Wang Lin poussa un soupir, et sous ses ordres, le dragon marin s'élança vers l'horizon.
+Wang Lin poussa un soupir, et sous ses ordres, le dragon marin s'élança vers l'horizon en une longue traînée de lumière.
 
-Derrière lui, un soupir chargé d'innombrables années de solitude et de tristesse, mêlé à une volonté de fer encore plus puissante, résonna...
+Derrière lui, depuis cette secte morte engloutie par les montagnes profondes, un soupir chargé d'innombrables années de solitude et de tristesse, mêlé à une volonté de fer encore plus puissante, résonna...
 
 À cause de sa solitude, il avait créé un rêve issu de ses souvenirs pour l'accompagner.
 À cause de son chagrin, il était resté dans cette secte moribonde, se remémorant le passé tout en montant une garde silencieuse.

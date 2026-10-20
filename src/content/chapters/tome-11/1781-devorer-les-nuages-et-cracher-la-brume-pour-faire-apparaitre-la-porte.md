@@ -18,9 +18,9 @@ Malheureusement, cette période de grâce fut de courte durée. Une rencontre in
 
 Quant à Zhou Li, le jour où le Souverain Céleste aux Sept Couleurs acheva son Dao, il captura Zhou Li et le tua avec cruauté.
 
-Tous ces événements défilaient dans l'esprit de Wang Lin comme des tableaux vivants. Assis près de la rivière qui coulait, il contemplait le courant comme s'il observait le temps s'écouler.
+Tous ces événements défilaient dans l'esprit de Wang Lin comme des tableaux vivants. Assis sur le grand rocher bleu, près de la rivière qui coulait, il contemplait le courant comme s'il y voyait ses souvenirs s'écouler.
 
-C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages avant de se retirer en méditation. Quant à Zhou Li, il était également entré en culture close, et sa haine envers Su Dao était désormais identique à celle que Su Dao éprouvait pour lui autrefois.
+C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages avant de se retirer en méditation. Quant à Zhou Li, il s'était retiré, abattu, et était lui aussi entré en culture close, et sa haine envers Su Dao était désormais identique à celle que Su Dao éprouvait pour lui autrefois.
 
 La rivière continuait son cours, tandis que les souvenirs de la troisième âme s'effaçaient dans l'esprit de Wang Lin, remplacés par l'Art Céleste du Dao des Nuages.
 
@@ -28,7 +28,7 @@ La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette régio
 
 Les trois grandes techniques de la secte étaient célèbres sur le Continent Astral Immortel et se transmettaient depuis l'Antiquité.
 
-Parmi elles, l'Art Céleste du Dao des Nuages était particulièrement profond. Il se concentrait sur les nuages du monde, aussi éthéré que le Grand Dao lui-même. En s'intégrant aux nuages, on pouvait emprunter leur essence pour lancer les grands sorts du Dao des Nuages!
+Parmi elles, l'Art Céleste du Dao des Nuages était particulièrement profond. Il se concentrait sur les nuages du monde, aussi éthéré que le Grand Dao lui-même, et l'on y comprenait le Dao à travers les nuages. En s'intégrant aux nuages, on pouvait emprunter leur essence pour lancer les grands sorts du Dao des Nuages!
 
 Former sa propre bête de nuage, capable de dévorer les nuages et de recracher la brume, constituait le premier sort de cet art! Cette technique était dissimulée au sein de l'art introductif. Si l'on cultivait l'introduction jusqu'à son paroxysme, on pouvait en comprendre ce sort.
 
@@ -60,7 +60,7 @@ Ce jour-là, les nuages autour de Wang Lin disparurent complètement. Une fois q
 
 Un mois plus tôt, lorsque le maître de Su Dao lui eut enseigné l'Art Céleste du Dao des Nuages, la modification de la mémoire originale avait fait apparaître les huit portes cachées.
 
-Toutefois, la sensation de ces huit portes s'était instantanément évanouie, ne laissant à Wang Lin qu'une carte approximative de leurs emplacements. Durant ce mois, en pratiquant l'art, les distorsions constantes lui avaient permis d'en dessiner lentement les contours. La position des huit portes devenait progressivement plus claire.
+Toutefois, la sensation de ces huit portes s'était instantanément évanouie, ne laissant à Wang Lin qu'une carte approximative de leurs emplacements. Durant ce mois, en pratiquant l'art, les distorsions constantes lui avaient permis d'en dessiner lentement les contours. La position d'une seule de ces portes devenait peu à peu plus nette.
 
 Wang Lin se leva et s'élança dans les airs. Il quitta le petit cours d'eau pour réapparaître dans le ciel au-dessus de la Secte Dong Lin. Enveloppé par un nuage blanc, il fonça en avant tel une masse nuageuse.
 

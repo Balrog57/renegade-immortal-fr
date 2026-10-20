@@ -34,7 +34,7 @@ Wang Lin fronça les sourcils, mais hocha la tête.
 
 Sans un mot, Yang Xiong sortit un morceau de jade et le plaça sur son front et murmura on ne sait quoi. Le jade brilla à plusieurs reprises, puis Yang Xiong le lança et il se changea en une lueur grise qui s'éteignit aussitôt.
 
-Une demi-heure plus tard, le sifflement d'une épée volante fendant l'air retentit au loin et une silhouette féminine, aux lèvres rouges, aux dents blanches et aux sourcils délicatement fardés, se posa. Cette personne n'était autre que Zhou Zihong.
+Une heure plus tard, le sifflement d'une épée volante fendant l'air retentit au loin et une silhouette féminine, aux lèvres rouges, aux dents blanches et aux sourcils délicatement fardés, se posa. Cette personne n'était autre que Zhou Zihong.
 
 Elle rangea son épée volante et, au moment où elle allait parler, elle aperçut Wang Lin aux côtés de Yang Xiong; son visage pâlit instantanément.
 
@@ -84,7 +84,7 @@ La carte précisait également que la Mer des Démons n'était plus une véritab
 
 Depuis lors, la Mer des Démons était perpétuellement plongée dans le brouillard; il serait donc plus juste de parler d'une mer de brume. Les créatures qui y vivaient s'étaient adaptées à cette atmosphère.
 
-Par ailleurs, en raison de la nature particulière de ce brouillard, celui-ci se transformait en eau de mer une fois par an, pendant un mois.
+Par ailleurs, en raison de la nature particulière de ce brouillard, celui-ci se transformait en eau de mer une fois par an, pendant un mois, avant de redevenir brume.
 
 Du fait de cet environnement hostile, les ressources étaient rares, les veines spirituelles peu nombreuses et les meurtres monnaie courante. Tout cela faisait de la Mer des Démons un refuge pour les cultivateurs démoniaques. Même les criminels des nations de culture les plus puissantes, traqués par leurs propres royaumes, s'échappaient vers la Mer des Démons.
 
@@ -184,7 +184,7 @@ Le cœur de Li Muwan tressaillit en voyant le froncement de sourcils de Wang Lin
 
 Wang Lin fut surpris et la dévisagea un instant, avant de voir la lueur rouge approcher. Il saisit Li Muwan et chargea vers la Mer des Démons.
 
-Li Muwan ignorait que ses paroles avaient réellement tenté Wang Lin. À ses yeux, elle était devenue un véritable four à pilules ambulant. En l'utilisant judicieusement, son niveau de culture pourrait progresser considérablement.
+Li Muwan ignorait que ses paroles avaient réellement tenté Wang Lin. Aux yeux de Wang Lin, elle était devenue un véritable four à pilules ambulant. En l'utilisant judicieusement, son niveau de culture pourrait progresser considérablement.
 
 Wang Lin avait eu cette idée en lisant le journal de vie de Sun Youcai.
 

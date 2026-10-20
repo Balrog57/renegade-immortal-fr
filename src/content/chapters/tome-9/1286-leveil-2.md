@@ -14,7 +14,7 @@ Le temps passa lentement. Le vingt-septième jour après le départ de Li Qianme
 
 L'air de la vieille femme était sombre et elle tenait un jade à la main. Elle vérifiait constamment sa direction tout en avançant, se rapprochant progressivement de ce continent désolé.
 
-Après une journée de marche, le continent sauvage où se trouvait Wang Lin apparut dans la brume devant elle.
+Un jour plus tard, le continent sauvage où se trouvait Wang Lin apparut dans la brume devant elle.
 
 La vieille femme laissa échapper un froid reniflement et fit un pas en avant. Elle disparut pour réapparaître instantanément sur le continent sauvage. Son sens divin se déploya, révélant une culture au sommet du stade Briseur du Nirvana, et balaya l'étendue sauvage.
 
@@ -22,9 +22,9 @@ Elle trouva immédiatement la vallée qu'elle cherchait!
 
 Une fois la vallée localisée, la vieille femme fonça vers elle tel un éclair de tonnerre. Des grondements impétueux résonnèrent tandis qu'elle surgissait à l'entrée de la vallée où reposait Wang Lin.
 
-« C'est ici! » La vieille femme fronça les sourcils et s'apprêtait à pénétrer dans la vallée quand neuf épées jaillirent soudainement du creux de celle-ci, lui barrant la route!
+« C'est ici! » La vieille femme fronça les sourcils et s'apprêtait à pénétrer dans la vallée quand neuf rayons d'énergie d'épée jaillirent soudainement du creux de celle-ci, lui barrant la route!
 
-L'expression de la vieille femme resta neutre, mais une pointe de complexité passa dans son regard alors qu'elle contemplait les épées volantes. Elle poussa un soupir et lança un jade qui entra immédiatement en contact avec les neuf lames.
+L'expression de la vieille femme resta neutre, mais une pointe de complexité passa dans son regard alors qu'elle contemplait l'épée volante. Elle poussa un soupir et lança un jade qui entra immédiatement en contact avec les neuf lames.
 
 Le jade émit un éclat de lumière et dégagea une aura douce qui enveloppa les épées. Ces dernières tremblèrent instantanément et cessèrent toute résistance avant de se dissiper.
 
@@ -34,9 +34,9 @@ En observant la statue de pierre dans laquelle Wang Lin s'était transformé, la
 
 « Li Qianmei, tu as tant sacrifié pour cet homme! Cette vieille femme t'avait promis qu'elle te livrerait ton sang d'âme, et j'ai tenu ma promesse! » La vieille femme agita sa manche et une fente spatiale de stockage apparut. Une sphère de sang de la taille d'un poing s'en échappa.
 
-Cette sphère ne ressemblait pas à du sang véritable, mais plutôt à une âme. Dès qu'elle fut apparue, la vieille femme fit un geste de la main pour l'introduire dans la statue de Wang Lin.
+Cette sphère ne ressemblait pas à du sang véritable, mais plutôt à une âme condensée. Dès qu'elle fut apparue, la vieille femme fit un geste de la main pour l'introduire dans la statue de Wang Lin.
 
-Au moment où le sang d'âme pénétra en lui, la statue trembla et une lumière sanguine monstrueuse jaillit. Pourtant, cette lueur ne portait aucune intention meurtrière; au contraire, elle était imprégnée de vitalité et de dix années de présence constante...
+Au moment où le sang d'âme pénétra en lui, la statue trembla et une lumière sanguine monstrueuse jaillit. Pourtant, cette lueur ne portait aucune intention meurtrière; au contraire, elle était imprégnée de tendresse, de vitalité et de dix années de présence constante...
 
 Tandis que la statue de pierre vacillait, une aura sembla tenter de s'en extraire! Des craquements résonnèrent et d'importantes fissures apparurent autour des yeux de la statue. Après avoir dormi pendant dix ans, Wang Lin ouvrit les yeux pour la première fois!
 
@@ -50,7 +50,7 @@ Une confusion régnait dans son regard. Wang Lin semblait avoir fait un rêve au
 
 En déplaçant son regard, il vit un sceau sur le côté droit du cœur de la vieille femme. Ce sceau, destiné à la guérison, était là depuis au moins mille ans.
 
-Face à ce regard, le visage de la vieille femme changea radicalement. Elle recula inconsciemment de quelques pas, le front couvert d'une sueur froide. À cet instant, elle eut l'impression que cet homme avait percé ses secrets les plus profonds. Elle fut même saisie par l'illusion terrifiante que, s'il le souhaitait, il pourrait effacer tous ses sorts de sa mémoire!
+Face à ce regard, le visage de la vieille femme changea radicalement. Elle recula inconsciemment de quelques pas, le front couvert d'une sueur froide. À cet instant, elle eut l'impression que cet homme avait percé ses secrets les plus profonds et figé son âme originelle. Elle fut même saisie par l'illusion terrifiante que, s'il le souhaitait, il pourrait effacer tous ses sorts de sa mémoire!
 
 Ce qui l'effraya davantage fut de constater que le sceau de guérison, posé sur elle par un Grand Ancien de la Secte Démon il y a mille ans, était sur le point de s'effondrer sous la simple puissance de son regard. Cela suffisait à inverser mille ans de soins et à faire resurgir la blessure grave qu'elle avait subie autrefois!
 
@@ -58,7 +58,7 @@ Bien que terrifiée, sa nature restait farouche. Tout en reculant, elle s'écria
 
 « Li Qianmei? » Wang Lin fut stupéfait.
 
-Voyant l'expression de Wang Lin, la vieille femme réprima sa terreur. Elle esquissa un sourire triste et dit: « Li Qianmei, ah, Li Qianmei... Tu as fait tout cela et il n'en sait même rien! Laisse tomber, ce vieux corps a déjà apporté ton sang d'âme et rendu ta faveur. Je ne te dois plus rien! »
+Voyant l'expression de Wang Lin, la vieille femme réprima sa terreur. Elle esquissa un sourire triste et dit: « Li Qianmei, ah, Li Qianmei... Tu as fait tout cela et il n'en sait même rien! Laisse tomber, ce vieux corps a déjà apporté ton sang d'âme et rendu ta faveur. Nous ne nous devons plus rien! »
 
 La vieille femme se retourna brusquement, prête à partir!
 
@@ -82,7 +82,7 @@ L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'étai
 
 « Savais-tu que pour te sauver, Li Qianmei a rompu ses liens avec son maître, qui était pour elle comme un père, au péril de sa vie, pour obtenir une chance de partir? Elle est alors devenue une errante, sans secte et sans foyer!
 
-« Savais-tu que pour permettre ton éveil, Li Qianmei a couvert ton corps de son propre sang pendant ces dix dernières années? Une fois son sang épuisé, elle a utilisé son sang essentiel, et quand cela ne suffit plus, elle a puisé dans son propre domaine!
+« Savais-tu que pour permettre ton éveil, Li Qianmei a couvert ton corps de son propre sang pendant ces dix dernières années? Une fois son sang épuisé, elle a utilisé son sang essentiel, et quand cela ne suffit plus, elle a puisé dans son propre domaine et dans son âme originelle!
 
 « Réalises-tu à quel point ce fut douloureux, de persévérer ainsi pendant dix ans sans jamais faillir?
 
@@ -122,7 +122,7 @@ Cette pierre était liée au corps de Wang Lin; désormais qu'elle avait cédé,
 
 La statue de pierre dans laquelle il s'était transformé était intrinsèquement liée au continent sauvage. En l'effondrant, elle provoqua le tremblement et l'effondrement immédiat du continent même!
 
-Des grondements titanesques résonnèrent alors que le continent entier commençait à se décomposer. Une faille gigantesque s'ouvrit, déchirant la terre en deux!
+Des grondements titanesques résonnèrent alors que le continent entier commençait à se décomposer. De nombreuses failles s'ouvrirent et le continent sauvage se fragmenta en plusieurs morceaux!
 
 Au moment où le continent sauvage s'effondrait, Wang Lin jaillit de sa prison! Une aura de culture surpuissante émana de son corps, une puissance capable de faire trembler les cieux!
 

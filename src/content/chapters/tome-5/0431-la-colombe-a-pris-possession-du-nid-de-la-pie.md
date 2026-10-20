@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 431 - The dove took over the magpies nest
 slug: la-colombe-a-pris-possession-du-nid-de-la-pie
 ---
-« Frère Wang, ce jade contient des informations sur le domaine de Liu Mei. Je sais que ce senior a ses propres raisons pour cela, alors libre à vous de les consulter ou non. »
+« Frère Wang, ce jade contient des informations sur le domaine de Liu Mei. Le senior m'a demandé de vous le remettre. Je sais que ce senior a ses propres raisons pour cela, alors libre à vous de les consulter ou non. »
 
 Zhou Wutai partit avec la bouteille de vin à moitié vide et laissa le jade derrière lui.
 
@@ -76,7 +76,7 @@ Jusqu'à présent, aucun tatouage n'était apparu sur la plante.
 
 L'intérêt de Wang Lin grandissait. Il sortit plusieurs autres fragments d'âmes pour tester et tous passèrent sans difficulté.
 
-« Intéressant. Elle bloque l'énergie spirituelle et les sculptures, mais permet librement le passage des âmes. Cette plante est fascinante! » Wang Lin agita son drapeau, libérant plus de 2 000 fragments d'âmes ainsi que l'âme du Qilin.
+« Intéressant. Elle bloque l'énergie spirituelle et les sculptures, mais permet librement le passage des âmes. Cette plante est fascinante! » Wang Lin agita son drapeau, libérant plus de 2 000 fragments d'âmes ainsi que le fragment d'âme du Qilin.
 
 D'une simple pensée, tous les fragments se rassemblèrent autour de lui pour former une armure d'âmes. Le fragment de l'âme Qilin forma un tatouage sur son visage qui dégageait une lueur dorée.
 
@@ -84,15 +84,15 @@ Wang Lin chargea alors la plante sans aucune hésitation. Cette fois, il sentit 
 
 L'intérieur de la plante était un monde éclatant et scintillant. Un gaz noir s'échappait de la Nécropole Immortelle et était absorbé par la plante.
 
-Les environs étaient d'un silence absolu. Wang Lin leva les yeux et constata que plus il montait dans la plante, plus les lueurs dorées se multipliaient. Cela semblait infini; il ne pouvait voir le sommet, n'apercevant que des structures semblables à des grottes dans les branches de ce végétal.
+Les environs étaient d'un silence absolu. Wang Lin leva les yeux et constata que plus il montait dans la plante, plus les éclats cristallins se multipliaient. Cela semblait infini; il ne pouvait voir le sommet, n'apercevant que des structures semblables à des grottes dans les branches de ce végétal.
 
 En regardant vers le bas, Wang Lin vit l'orifice qu'il connaissait. C'était un noir absolu d'où s'élevait seulement le gaz noir. Après une courte réflexion, Wang Lin plongea.
 
 Le vent sifflait à ses oreilles alors qu'il s'élançait dans le trou. Dès qu'il atteignit la première couche, son corps disparut sans laisser de trace.
 
-L'entrée au stade précoce de la Transformation de l'Âme avait étendu son Sens Divin et sa portée de téléportation. En une seule impulsion, il arriva à l'entrée de la deuxième couche. Il scruta toute la première couche et ne trouva que quelques chamans, tous seulement au stade des trois feuilles.
+L'entrée au stade précoce de la Transformation de l'Âme avait étendu son Sens Divin et sa portée de téléportation. En une seule impulsion, il arriva à l'entrée de la deuxième couche. Il scruta toute la première couche et ne trouva que quelques chamans, tous à peu près au stade des trois feuilles.
 
-Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait, avec l'Ancien du Pavillon de Raffinement des Trésors, condensé le Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un petit trou où poussait autrefois l'Arbre de la Réincarnation.
+Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait, avec l'Ancien du Pavillon de Raffinement des Trésors et d'autres, condensé le Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un petit trou où poussait autrefois l'Arbre de la Réincarnation.
 
 Après avoir inspecté les lieux, Wang Lin disparut de nouveau. Cette fois, il réapparut devant l'entrée de la quatrième couche. En voyant cela, son expression changea légèrement et il se dissimula promptement.
 
@@ -100,10 +100,10 @@ Peu après, il vit un visage gigantesque s'approcher de l'entrée de la quatriè
 
 Le chaman à six feuilles sauta dans l'entrée et les cultivateurs le suivirent rapidement. Les yeux de Wang Lin s'illuminèrent; il les suivit silencieusement pour entrer dans la quatrième couche.
 
-Cette strate était plus lumineuse que les précédentes. Le chaman à six feuilles reprit sa forme de visage géant, saisit tous les cultivateurs et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de culture, le chaman ne remarqua rien.
+Cette strate était plus lumineuse que les précédentes. Le chaman à six feuilles reprit sa forme de visage géant, enveloppa tous les cultivateurs dans une brume noire et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de culture, le chaman ne remarqua rien.
 
 Le chaman se déplaçait très vite; après le temps d'écoulement d'un bâton d'encens, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, d'environ un mètre d'épaisseur et dix mètres de haut, s'y trouvait.
 
-Cependant, cet arbre était étrange: au lieu de branches, une lumière circulaire flottait au sommet. À l'intérieur de cette lumière se tenait un vieil homme aux yeux clos, totalement nu, présentant un trou de la taille d'un poing dans la poitrine. Son corps était couvert de tatouages et une plante à huit feuilles scintillait lentement sur son front.
+Cependant, cet arbre était étrange: au lieu de branches, une lumière ovale flottait au sommet. À l'intérieur de cette lumière était assis un vieil homme aux yeux clos, totalement nu, présentant un trou de la taille d'un poing dans la poitrine. Son corps était couvert de tatouages et une plante à huit feuilles scintillait lentement sur son front.
 
 Simultanément, un tatouage dégageant une aura antique flottait au-dessus de sa tête. Ce motif était si complexe qu'un seul regard suffisait à donner le vertige. Sous l'arbre se tenaient plus d'une douzaine de chamans à six feuilles. Aucun ne parlait, et derrière chacun d'eux se trouvaient plus de dix cultivateurs.

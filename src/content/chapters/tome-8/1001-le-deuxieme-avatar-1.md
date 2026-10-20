@@ -36,7 +36,7 @@ Boum, boum, boum!
 
 Les grondements incessants résonnèrent alors que les éclairs pénétraient l'âme originelle de Wang Lin. Son âme originelle de dragon de tonnerre ancestral commença à rugir et entama sa lutte contre l'encre noire!
 
-Bien que l'encre noire fût tenace, elle était sur le point de s'effondrer sous la pression des éclairs infinis. Après tout, peu de cette force mystérieuse avait réussi à pénétrer le sens divin de Wang Lin; dès l'instant où cette puissance apparut, Wang Lin l'avait entourée de la puissance de son âme originelle.
+Bien que l'encre noire fût tenace, elle était sur le point de s'effondrer sous la pression des éclairs infinis. Après tout, peu de cette force mystérieuse avait réussi à pénétrer l'âme originelle de Wang Lin; dès l'instant où cette puissance apparut, Wang Lin l'avait entourée de la puissance de son âme originelle.
 
 Après avoir subi des revers constants, l'encre noire recula rapidement jusqu'à se condenser en un point. Juste au moment où elle s'apprêtait à quitter l'âme originelle de Wang Lin, la lumière verte de l'Armure de Cuir du Dieu Ancestral scella toutes les voies de fuite.
 
@@ -102,11 +102,11 @@ Tout en réfléchissant, Wang Lin s'approcha du démon ancestral qui lui ressemb
 
 Wang Lin pressa directement la main sur la tête du démon ancestral et injecta son sens divin pour fouiller ses souvenirs.
 
-Il vit le ciel autrefois radieux au-dessus du Pays des Démons des Nuages s'obscurcir soudainement. Une tempête se forma et, alors que les nuages s'accumulaient, une silhouette de couleur sang fendit le ciel en direction de la tour royale à neuf étages du Pays des Démons des Nuages.
+Il vit, sous un vaste ciel bleu, le ciel autrefois radieux au-dessus du Pays des Démons des Nuages s'obscurcir soudainement. Une tempête se forma et, alors que les nuages s'accumulaient, une silhouette de couleur sang fendit le ciel en direction de la tour royale à neuf étages du Pays des Démons des Nuages.
 
 Un cri strident s'échappa de la tour, empreint d'une pointe d'incrédulité.
 
-« Les neuf esprits doivent se réunir pour ne former qu'un. Ce n'est qu'en redevenant un démon ancestral que nous pourrons effacer nos regrets. Démon des Nuages, nous n'étions à l'origine qu'un seul être, et nous avons été séparés trop longtemps. Aujourd'hui, nous fusionnerons de nouveau! Le nom du démon ancestral sera Bei Luo! » Une voix démoniaque émana de l'ombre sanglante alors qu'elle se précipitait dans la tour des Démons des Nuages.
+« Les neuf esprits doivent se réunir pour ne former qu'un. Ce n'est qu'en redevenant un démon ancestral que nous pourrons effacer nos regrets. Démon des Nuages, nous n'étions à l'origine qu'un seul être, et nous avons été séparés trop longtemps. Aujourd'hui, nous fusionnerons de nouveau! Le nom du démon ancestral restera Bei Luo! » Une voix démoniaque émana de l'ombre sanglante alors qu'elle se précipitait dans la tour des Démons des Nuages.
 
 Une série de grondements retentit à travers le monde, plongeant tous les habitants de la capitale dans la panique. Le fracas cessa après un instant, mais aussitôt, la tour du Pays des Démons des Nuages s'effondra!
 

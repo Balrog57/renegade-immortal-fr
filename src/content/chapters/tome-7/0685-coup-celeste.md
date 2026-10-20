@@ -54,25 +54,25 @@ Au même moment, un membre de la famille Xu remarqua la scène. Un vieil homme d
 
 « Le style d'épée de cet enfant est redoutable. Bien que je ne craigne rien, s'il a osé défier la famille Huan, c'est qu'il doit avoir d'autres cartes en réserve! »
 
-L'épée tomba, et à cet instant, tout son disparut du monde. La formation de la famille Huan s'effondra sans qu'aucun impact physique n'ait eu lieu.
+L'épée tomba, et à cet instant, tout bruit disparut du monde. La formation de la famille Huan s'effondra sans qu'aucun impact physique n'ait eu lieu.
 
 Après avoir rengainé son épée, le visage de Wang Lin était pâle. Cependant, son regard devint plus glacial encore alors qu'il fixait la famille Huan en contrebas.
 
-L'impact du Coup Céleste sur le corps était immense, et cela n'avait rien à voir avec le niveau de culture. Cela reposait sur l'énergie d'origine issue de l'intégration parfaite entre l'âme d'origine et le corps!
+L'impact du Coup Céleste sur le corps était immense, et cela n'avait rien à voir avec le niveau de culture. Cela reposait sur l'énergie d'origine issue de l'intégration parfaite entre l'âme originelle et le corps!
 
-L'âme d'origine et l'énergie d'origine d'un cultivateur Ascendant sont fusionnées en une seule entité. Pourtant, le Coup Céleste peut séparer une partie de cette énergie d'origine. Un Ascendant ne possède qu'une quantité fixe d'énergie d'origine; si trop est perdue, sa culture régresse. Heureusement, Wang Lin possédait le Cristal de l'Ascendant de Zhou Yi, il disposait donc d'un surplus d'énergie d'origine par rapport à la plupart des cultivateurs.
+L'âme originelle et l'énergie d'origine d'un cultivateur Ascendant sont fusionnées en une seule entité. Pourtant, le Coup Céleste peut séparer une partie de cette énergie d'origine. Un Ascendant ne possède qu'une quantité fixe d'énergie d'origine; si trop est perdue, sa culture régresse. Heureusement, Wang Lin possédait le Cristal de l'Ascendant de Zhou Yi, il disposait donc d'un surplus d'énergie d'origine par rapport à la plupart des cultivateurs.
 
 La famille Huan était plongée dans un silence de mort. Le regard de Huan Wuqing devint plus sombre encore alors qu'il fixait Wang Lin et lâcha froidement: « Je t'ai sous-estimé. Posséder un tel style d'épée au stade Ascendant est une prouesse, tu es en effet très fort! »
 
 « Cependant, l'écart entre la première et la seconde étape est trop vaste. Si tu avais déployé cet art de l'épée avec une culture de la seconde étape, cela aurait été intéressant, mais pour l'instant, c'est inutile! Aujourd'hui, tu as brisé la formation de ma famille Huan, alors tu mourras sans aucun doute! »
 
-« Je vous en prie, Jade Ancestral! » L'ancêtre de la famille Huan poussa un cri puissant. Une force colossale jaillit soudainement du domaine ancestral des Huan. Cette force, empreinte d'un sentiment de sérénité, se propagea comme un vent céleste pour envelopper la famille.
+« Jade Ancestral, je t'invoque! » L'ancêtre de la famille Huan poussa un cri puissant. Une force colossale jaillit soudainement du domaine ancestral des Huan. Cette force, empreinte d'un sentiment de sérénité, se propagea comme un vent céleste pour envelopper la famille.
 
 Un jade doré s'éleva lentement dans les airs depuis la salle ancestrale, au loin. C'était de ce jade que procédait cette force de sérénité.
 
 À l'instant où le jade apparut, c'était comme si un monde distinct avait été sculpté au sein même de la planète. Il permit au domaine ancestral de la famille Huan de devenir son propre royaume.
 
-L'ancêtre des Huan fixa Wang Lin avec un rictus méprisant. À moins d'y être contraint, il n'agirait pas personnellement, car il craignait trop l'énergie d'épée de Wang Lin. Plus tôt, lorsqu'il avait sollicité l'aide de Qian Kuizi, c'était pour épuiser les ressources de l'adversaire.
+L'ancêtre des Huan fixa Wang Lin avec un rictus méprisant. À moins d'y être contraint, il n'agirait pas personnellement, car il craignait trop l'énergie d'épée de Wang Lin. Plus tôt, lorsqu'il avait sollicité l'aide de Qian Kuizi, c'était pour épuiser l'énergie d'épée de l'adversaire.
 
 La formation de la famille Huan visait le même but.
 
@@ -86,7 +86,7 @@ La puissance émanant du jade était semblable à une douce brise printanière, 
 
 « Le pouvoir du jade céleste de la famille Huan est imprévisible. La rumeur prétend que l'ancêtre céleste des Huan possédait une culture équivalente à celle d'un Purificateur du Nirvana. Je me demande comment le messager du Temple Céleste du Tonnerre va réagir. Mais c'est étrange; pourquoi ne sort-il pas le trésor laissé par l'ancêtre au lieu de convoquer le jade? » Les yeux de Qian Kuizi brillaient tandis qu'il observait la scène via son Sens Divin.
 
-Dans la demeure des Xu, le vieil homme sourit et murmura: « Le trésor céleste de la famille Huan a été emporté par l'autre ancêtre de leur lignée. L'ancêtre céleste en a laissé un autre, tout à fait convenable. Cependant, il n'aurait jamais cru que ce trésor finirait par tuer un cultivateur de la seconde étape de la famille Huan. »
+Dans la demeure des Xu, le vieil homme sourit et murmura: « Le trésor céleste de la famille Huan a dû être emporté par l'autre ancêtre de leur lignée. L'ancêtre céleste en a laissé un autre, tout à fait convenable. Cependant, il n'aurait jamais cru que ce trésor finirait par tuer un cultivateur de la seconde étape de la famille Huan. »
 
 Au sein du domaine ancestral des Huan, au moment où le jade apparut, Huan Feng Shen fixa Wang Lin. Il ne décela aucune trace de panique sur le visage de ce dernier.
 
@@ -100,7 +100,7 @@ Les descendants de la famille Huan restèrent silencieux un instant avant de se 
 
 L'ancêtre des Huan laissa échapper un sourire lugubre en contemplant la foule, puis dit lentement: « Bande d'ordures! » Sur ce, il leva les yeux vers Wang Lin. Sa main droite traça un sceau et il hurla: « Jade de la Bonne Fortune, tue cet homme! »
 
-La silhouette formée par le jade commença à marcher pas à pas vers Wang Lin. À chaque mouvement, une quantité inimaginable d'énergie spirituelle céleste jaillissait de l'entité. Cette énergie était si dense qu'elle supprima totalement l'énergie spirituelle sur la planète Mille Illusions, provoquant des explosions partout sur le globe.
+La silhouette formée par le jade commença à marcher pas à pas vers Wang Lin. À chaque mouvement, une quantité inimaginable d'énergie spirituelle céleste jaillissait de l'entité. Cette énergie était si dense qu'elle écrasa l'énergie spirituelle sur la planète Mille Illusions, provoquant des explosions partout sur le globe.
 
 La marionnette du garde céleste apparut en un éclair aux côtés de Wang Lin. La Bête du Tonnerre fit de même.
 
@@ -118,8 +118,8 @@ En pensant à l'esprit vengeur logé dans la Perle Défiant le Ciel, le cœur de
 
 « Les choses de ce monde ne peuvent échapper au karma. La cause karmique d'hier sera l'effet karmique d'aujourd'hui. Ce n'est qu'en réglant son karma, en laissant la poussière à la poussière et la terre à la terre, que le cycle pourra s'accomplir. » Wang Lin ferma lentement les yeux.
 
-Dans son âme d'origine, un appel impérieux résonna:
+Dans son âme originelle, un appel impérieux résonna:
 
 « Cette bataille est finie, je te libère! »
 
-Un hurlement féroce jaillit de l'âme d'origine de Wang Lin.
+Un hurlement féroce jaillit de l'âme originelle de Wang Lin.

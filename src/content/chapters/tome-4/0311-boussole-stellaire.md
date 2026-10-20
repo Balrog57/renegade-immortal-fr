@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 311 - Star Compass
 slug: boussole-stellaire
 ---
-Flottant dans le vide à 330 mètres de la fin de la terre ferme, un immense glacier bleu n'était relié au sol que par quelques piliers de glace. Bien qu'il fût ancré à la terre, ce glacier semblait également flotter dans l'abîme au-dessus du monde.
+Flottant dans le vide à 330 mètres de la fin de la terre ferme, un immense glacier bleu, qui s'étendait à perte de vue, n'était relié au sol que par quelques piliers de glace. Bien qu'il fût ancré à la terre, ce glacier semblait également flotter au-dessus du vide qui s'étend sous la terre.
 
 Wang Lin fronça les sourcils. Après avoir inspecté les environs, il demanda: « Frère Chi Hu, y a-t-il quelque chose de particulier concernant la première couche du fragment? Y a-t-il des points de convergence d'énergie spirituelle céleste à cet endroit? »
 
@@ -20,7 +20,7 @@ Dès qu'il toucha le sol, des vagues d'énergie glaciale pénétrèrent son corp
 
 Chi Hu sourit. « Nous allons avoir besoin de la technique de Papillon Rouge ici. Je vous prie de ne pas vous retenir. »
 
-Papillon Rouge ne répondit rien. Elle s'élança en avant tandis que Chi Hu adressait un sourire d'autodérision à Wang Lin.
+Papillon Rouge ne répondit rien. Elle s'élança en avant tandis que Chi Hu adressait un sourire d'autodérision à Wang Lin, et les deux hommes la suivirent.
 
 Papillon Rouge volait à une vitesse fulgurante sur le glacier. Plus ils progressaient, plus la température chutait et plus la teinte du glacier s'assombrissait. Parfois, des vents glacials capables de transpercer les os surgissaient du lointain.
 
@@ -28,7 +28,7 @@ Quelque temps après le départ des trois individus, un homme d'âge mûr apparu
 
 Tout en parlant, il avançait lentement.
 
-Le trio survolait rapidement le glacier. Au troisième jour de leur périple, Wang Lin aperçut un mur de brume bleue qui semblait dévorer le ciel et la terre. Ce mur se refermait sur eux.
+Le trio survolait rapidement le glacier. Au troisième jour de leur périple, Wang Lin aperçut un mur de brume bleue qui semblait dévorer le ciel et la terre. Ce mur s'étendait vers eux.
 
 Les yeux de Chi Hu s'illuminèrent et il expliqua: « La brume glaciale du glacier. Elle contient une énergie d'un froid extrême. Papillon Rouge, nous comptons sur vous. »
 

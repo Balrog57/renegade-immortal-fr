@@ -56,11 +56,11 @@ C'était précisément pour cette raison qu'il avait décidé de battre en retra
 
 De plus, la raison pour laquelle Wang Lin avait accepté cet état, outre l'apprentissage du pouvoir de la foi, était d'obtenir un poste extérieur. Après avoir démontré sa force, bien qu'il n'ait pas surmonté le huitième effondrement, il savait que le général ne lui accorderait pas simplement un poste d'Ancien.
 
-Si Yun Lihai avait été aussi aveugle, Wang Lin aurait immédiatement quitté la Cité de l'Ancien Démon pour retourner vers sa tribu. Au pire, il serait revenu plus tard pour conquérir cette ville!
+Si Yun Lihai avait été aussi aveugle, Wang Lin aurait immédiatement quitté la Cité de l'Ancien Démon pour retourner dans les contrées sauvages y développer sa puissance. Au pire, il serait revenu plus tard pour conquérir cette ville!
 
 Après avoir passé quatre jours et nuits dans l'auberge, Wang Lin réussit enfin à comprimer les idéaux démoniaques de son corps en un point unique pour les sceller en lui. Cet idéal démoniaque était impossible à extraire, et Wang Lin ne cherchait pas à s'en débarrasser car, lorsqu'il serait utilisé avec discernement, il pourrait accroître considérablement sa puissance.
 
-Treize et Hu Pao étaient arrivés à l'auberge la veille et s'étaient installés dans les deux chambres voisines de celle de Wang Lin. S'ils avaient pu le retrouver, c'est parce que Wang Lin les avait appelés par son sens divin.
+Treize et Hu Pao étaient arrivés à l'auberge la veille et s'étaient installés dans des chambres voisines de celle de Wang Lin. S'ils avaient pu le retrouver, c'est parce que Wang Lin les avait appelés par son sens divin.
 
 Après plusieurs jours de culture, Wang Lin sortit de l'auberge le cinquième jour, suivi de près par Treize et Hu Pao.
 
@@ -91,9 +91,9 @@ Le Restaurant du Bambou Vert!
 Deux couplets étaient également inscrits de chaque côté de la porte.
 
 « Le parfum du bambou et de l'orchidée accueille l'invité. »
-« L'arôme du prunier et du chrysanthème salue les seigneurs. »
+« L'arôme du prunier et du chrysanthème raccompagne les seigneurs. »
 
-Wang Lin observa l'entrée avec intérêt. À cet instant, un employé s'approcha rapidement avec un sourire: « Monsieur, le vin au bambou vert de notre humble établissement est célèbre dans les neuf pays; pourquoi ne pas venir en déguster un peu? Nous venons d'ouvrir une nouvelle jarre aujourd'hui, et le propriétaire a décrété que quiconque parviendrait à boire dix petites jarres sans s'enivrer n'aurait pas à payer! Une telle occasion est rare, ne voulez-vous pas venir goûter? » L'œil de cet employé était très fin. Bien qu'il ne détectât rien d'anormal chez Wang Lin, il comprit que Treize et Hu Pao n'étaient pas des gens ordinaires. Ces deux-là étaient clairement des gardes, ce qui signifiait que Wang Lin devait jouir d'un rang élevé!
+Wang Lin observa l'entrée avec intérêt. À cet instant, un employé s'approcha rapidement avec un sourire: « Monsieur, le vin au bambou vert de notre humble établissement est un vin millénaire, célèbre dans les neuf pays; pourquoi ne pas venir en déguster un peu? Nous venons d'ouvrir une nouvelle jarre aujourd'hui, et le propriétaire a décrété que quiconque parviendrait à boire dix petites jarres sans s'enivrer n'aurait pas à payer! Une telle occasion est rare, ne voulez-vous pas venir goûter? » L'œil de cet employé était très fin. Bien qu'il ne détectât rien d'anormal chez Wang Lin, il comprit que Treize et Hu Pao n'étaient pas des gens ordinaires. Ces deux-là étaient clairement des gardes, ce qui signifiait que Wang Lin devait jouir d'un rang élevé!
 
 Wang Lin fut intrigué par ses paroles et sourit: « Très bien, laissez-moi goûter donc ce qui rend ce vin si spécial! » Sur ces mots, il entra dans le restaurant, suivi de près par Treize et Hu Pao.
 

@@ -28,7 +28,7 @@ Sans un mot, le géant de l'armure dorée abattit son épée. Soudain, un faisce
 
 Peu après, le géant d'or laissa échapper un grognement avant de s'estomper progressivement.
 
-Le vieil homme marmonna aussitôt, mécontent. Wang Lin crut comprendre qu'il réprimandait le géant pour sa paresse...
+Le vieil homme marmonna aussitôt, mécontent. Wang Lin crut comprendre qu'il réprimandait le géant pour sa paresse et sa gourmandise...
 
 Au moment où l'écran se brisa, une onde d'énergie se propagea instantanément depuis le point d'impact, chargée d'un pouvoir destructeur. L'expression de Wang Lin changea brusquement. Alors qu'il s'apprêtait à esquiver, le vieil homme agita la main et un écran de lumière surgit devant lui, interceptant l'onde de choc.
 
@@ -64,7 +64,7 @@ Après avoir entendu ces mots, son regard se tourna vers Wang Lin. « Camarade c
 
 Wang Lin réfléchit un instant. Puis, sans dire un mot, il sortit une épée volante ordinaire de sa sacoche de rangement. Il la secoua légèrement pour y imprimer son sens divin, puis, dans un crépitement, l'épée fondit et se condensa en une sphère argentée de la taille d'un poing.
 
-« Puisque la Secte Nuage Blanc compte de nombreux cultivateurs de la Formation de l'Âme, je souhaite les défier tous. J'espère que vous pardonnerez mon intrusion. » Sur ces mots, il forma un sceau de la main droite et pointa la sphère argentée.
+« Puisque la Secte Nuage Blanc compte de nombreux cultivateurs de la Formation de l'Âme, je souhaite en défier quelques-uns. J'espère que vous pardonnerez mon intrusion. » Sur ces mots, il forma un sceau de la main droite et pointa la sphère argentée.
 
 La sphère s'élança soudainement en créant des détonations soniques, comme si elle pouvait déchirer le ciel.
 
@@ -104,6 +104,6 @@ Les yeux du vieil homme s'illuminèrent et il tendit la main droite. Soudain, un
 
 Wang Lin ferma les yeux. À cet instant précis, il put pleinement ressentir le domaine de l'homme d'âge moyen. De telles opportunités étaient rarissimes et extrêmement précieuses.
 
-Le vieil homme malaxa la sphère pourpre avant de l'écraser. Le visage de l'homme d'âge moyen était livide; fixant le vieil homme, il déclara: « Je présume que le Senior est ici pour permettre à votre disciple d'expérimenter un domaine afin de percer le stade de la Formation de l'Âme. »
+Le vieil homme malaxa la sphère pourpre avant de l'écraser. Le visage de l'homme d'âge moyen était livide; fixant le vieil homme, il déclara: « Je présume que le Senior est ici pour permettre à votre disciple d'expérimenter un domaine afin de franchir le stade de l'Âme Naissante et atteindre la Formation de l'Âme. »
 
 Le vieil homme esquissa un sourire malicieux. Il pointa du doigt la personne située à côté de l'homme d'âge moyen et dit: « Toi, viens ici. C'est ton tour. »

@@ -26,7 +26,7 @@ L'homme chargea soudainement. Les tatouages qui l'entouraient le suivirent dans 
 
 Les yeux de Wang Lin s'illuminèrent. Bien que le corps de cet homme ne puisse égaler celui de son garde céleste, la différence n'était pas immense. Son expression resta impassible tandis qu'il laissait échapper un ricanement et avançait d'un pas. Il sembla parcourir une distance immense pour se retrouver instantanément à une proximité infinie de l'assaillant.
 
-Au moment de l'impact, l'homme envoya son poing droit. À cet instant, le monde environnant parut trembler. Les tatouages alentour brillèrent intensément comme des incantations et chargèrent vers Wang Lin.
+Au moment de l'impact, l'homme envoya son poing droit. À cet instant, le monde environnant parut trembler. Les tatouages alentour brillèrent intensément, comme autant de techniques divines, et chargèrent vers Wang Lin.
 
 Une lueur froide passa dans les yeux de Wang Lin; il leva la main droite et activa le sort céleste « Arrêt ». Le corps de l'homme s'immobilisa net, tandis que simultanément, le doigt de Wang Lin pressait à nouveau la poitrine du colosse.
 
@@ -52,11 +52,11 @@ L'armure noire dégageait une aura époustouflante. Tandis qu'il s'élançait, l
 
 En chargeant, il projeta son poing droit. Ce coup était plus puissant que les deux précédents réunis et bien plus imposant. À cet instant, l'illusion derrière lui se transforma en volutes de gaz noir qui enveloppèrent son poing.
 
-Lorsque le coup fut lancé, il créa un bang sonique et une aura terrifiante fonça vers Wang Lin. Parallèlement, le gaz noir de l'illusion prit la forme d'un crâne qui esquissa un sourire sinistre, tentant d'engloutir Wang Lin.
+Lorsque le coup fut lancé, il produisit un son étrange et une aura terrifiante fonça vers Wang Lin. Parallèlement, le gaz noir de l'illusion prit la forme d'un crâne qui esquissa un sourire sinistre, tentant d'engloutir Wang Lin.
 
 L'expression de Wang Lin resta sereine alors qu'il fixait calmement l'homme. Il ouvrit la bouche et un grain de sable s'en échappa. Ce dernier se transforma en un sceau fragmentaire de 330 mètres de large qui s'abattit sur l'homme. La pression qui émanait de ce fragment était extrêmement dense, et sa chute forma un verrou attracteur.
 
-C'était la première fois que le sceau fragmentaire céleste apparaissait hors du Royaume Céleste. À son apparition, une riche énergie spirituelle céleste emplit l'air. En voyant cela, le vieillard s'agenouilla et commença à vénérer le fragment.
+C'était la première fois que le sceau fragmentaire céleste apparaissait dans le monde. À son apparition, une riche énergie spirituelle céleste emplit l'air. En voyant cela, le vieillard s'agenouilla et commença à vénérer le fragment.
 
 Même dans les yeux de l'homme corpulent, une hésitation passa. Cependant, un instant plus tard, il serra les dents et n'hésita plus. Son poing percuta directement le fragment qui barrait sa route.
 

@@ -16,7 +16,7 @@ Il en allait de même pour le sort d'Arrêt; Wang Lin devait combattre et pousse
 
 Cependant, la situation actuelle convenait parfaitement aux desseins de Wang Lin.
 
-Le tonnerre jaillit de l'œil droit de Wang Lin, emportant avec lui le tatouage de foudre. Il flotta au-dessus de la brume rouge tandis que des éclairs descendaient, formant un filet protecteur.
+Le tonnerre jaillit de l'œil droit de Wang Lin, emportant avec lui le tatouage de tonnerre. Il flotta au-dessus de la brume rouge tandis que des éclairs descendaient, formant un filet protecteur.
 
 Un brasier s'échappa de son œil gauche, créant une mer de feu qui consumait la brume rouge. Ce feu fusionna avec le tonnerre pour former un blocage impénétrable.
 
@@ -70,7 +70,7 @@ Des grondements tonitruants résonnèrent. Wang Lin observa froidement l'esprit 
 
 Cependant, la férocité dans ses yeux n'avait pas faibli. Tout en battant en retraite, il continuait de rugir.
 
-À côté de lui gisait un cadavre ensanglanté: c'était l'estimé Ling Dong! Le Fourneau Impérial appartenant à Wang Lin, il n'y avait aucun moyen pour l'estimé Ling Dong de se cacher. Wang Lin constata que ce dernier n'était pas mort; son âme originelle était cachée et il se rétablissait rapidement.
+Derrière lui gisait un cadavre ensanglanté: c'était l'estimé Ling Dong! Le Fourneau Impérial appartenant à Wang Lin, il n'y avait aucun moyen pour l'estimé Ling Dong de se cacher. Wang Lin constata que ce dernier n'était pas mort; son âme originelle était cachée et il se rétablissait rapidement.
 
 Wang Lin leva la main droite, forma un sceau et pointa le Fourneau Impérial. Une turbidité s'éleva alors à l'intérieur et emporta l'esprit Dao on ne sait où, ne laissant que l'estimé Ling Dong gisant au sol.
 

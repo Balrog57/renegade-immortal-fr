@@ -70,7 +70,7 @@ Les anciens aux alentours fixèrent les deux intrus dans les airs, le regard cha
 
 L'homme au visage sombre lança un regard glacial à l'homme et tendit la main. Son objectif aujourd'hui était l'enfant doté d'une racine spirituelle.
 
-À cet instant précis, tous les anciens environnants poussèrent des rugissements et bloquèrent l'agresseur.
+À cet instant précis, tous les anciens environnants poussèrent des rugissements et se dressèrent devant l'homme.
 
 Cependant, leurs corps ne purent résister; ils crachèrent du sang avant d'être projetés sur le côté.
 

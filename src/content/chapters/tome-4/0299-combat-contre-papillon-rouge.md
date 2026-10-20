@@ -12,7 +12,7 @@ Mais à cet instant précis, la main qui avait brisé l'épée se retourna et pl
 
 Absorbé par cette scène, Wang Lin fut soudainement frappé de stupeur. Dès l'apparition de la lueur argentée, il se mit en alerte et lança son piège à bêtes. Le Crapaud du Tonnerre apparut, cracha une boule de foudre et percuta le rayon de lumière.
 
-Après une série de grondements, le Crapaud du Tonnerre fut repoussé de plusieurs centaines de mètres. L'expression de Wang Lin devint sombre; il sauta sur le dos de la créature pour faire face à la femme qui se cachait derrière l'éclat argenté.
+Après une série de grondements, le Crapaud du Tonnerre fut repoussé de plusieurs centaines de mètres. L'expression de Wang Lin devint sombre; il se posa sur la tête du Crapaud du Tonnerre pour faire face à la femme qui se cachait derrière l'éclat argenté.
 
 Wang Lin prononça lentement: « Papillon Rouge! »
 
@@ -64,7 +64,7 @@ Bien que l'expression de Papillon Rouge soit restée de marbre, Wang Lin sentit 
 
 Wang Lin agita le drapeau de restriction, et cent dragons de fumée noire chargèrent Papillon Rouge.
 
-Il utilisa quelques respirations pour expulser le domaine émotionnel hors de son corps afin qu'il ne puisse plus l'atteindre. Son visage était sombre; ce qui venait de se passer était extrêmement périlleux. S'il avait échoué, il serait devenu une partie du cycle, perdant tout droit à rivaliser avec les cieux.
+Il utilisa quelques respirations pour expulser le domaine sans émotion hors de son corps afin qu'il ne puisse plus l'atteindre. Son visage était sombre; ce qui venait de se passer était extrêmement périlleux. S'il avait échoué, il serait devenu une partie du cycle, perdant tout droit à rivaliser avec les cieux.
 
 « Le domaine d'un cultivateur au stade avancé de la Formation de l'Âme est véritablement redoutable! » Wang Lin prit une profonde inspiration. En vérité, dès que Papillon Rouge l'avait attaqué par surprise, la bataille était déjà engagée.
 
@@ -96,7 +96,7 @@ Au moment où les montagnes enneigées avaient frappé son tourbillon, elle avai
 
 Tout en fuyant, Wang Lin rangea le Crapaud du Tonnerre d'un geste de la main. Toutefois, la vitesse d'un cultivateur au stade avancé de la Formation de l'Âme surpassait de loin celle d'un stade initial. Bientôt, il sentit des éclats d'énergie glaciale approcher de ses talons.
 
-Wang Lin prit une profonde inspiration. Alors qu'il s'apprêtait à s'échapper, son esprit devint soudainement vide, et il se souvint de l'empreinte géante qu'il avait vue dans le palais.
+Wang Lin prit une profonde inspiration. Alors qu'il s'apprêtait à s'enfuir sous terre, son esprit devint soudainement vide, et il se souvint de l'empreinte géante qu'il avait vue dans le palais.
 
 Il tenta de la comprendre, mais échoua.
 
@@ -106,12 +106,12 @@ L'illusion de cette empreinte fusionna rapidement avec celle du palais. Sous l'e
 
 Papillon Rouge ricana en le poursuivant: « Que tu coures devant ou vers le haut, tu ne t'échapperas pas si facilement. »
 
-Wang Lin monta dans le ciel et s'arrêta brusquement. Il regarda le sol comme s'il venait de réaliser quelque chose, puis pressa doucement la paume de sa main vers le bas.
+Wang Lin monta dans le ciel et s'arrêta brusquement. Il regarda le sol comme s'il venait de réaliser quelque chose, puis pressa la paume de sa main vers le bas.
 
 Soudain, le ciel s'obscurcit. Divers flux d'énergie convergèrent sous lui pour former une paume gigantesque juste en dessous de lui.
 
 Cette paume s'abattit violemment sur Papillon Rouge.
 
-Pour la première fois, l'expression de Papillon Rouge changea. Elle voulut esquiver, mais la main était immense et frappait avec une rapidité fulgurante. Elle passa à travers le corps de Papillon Rouge pour s'écraser sur le sol dans un fracas de poussière.
+Pour la première fois, l'expression de Papillon Rouge changea. Elle voulut esquiver, mais la main était immense et frappait avec une rapidité fulgurante. Elle passa à travers le corps de Papillon Rouge pour s'écraser sur le sol, soulevant une onde de choc qui se répandit au loin.
 
 Sous le choc, elle vérifia rapidement son corps et constata qu'elle n'avait rien. Elle ignorait que cette paume de Wang Lin n'avait aucune puissance réelle; il ne faisait qu'essayer de comprendre la nature de l'empreinte.

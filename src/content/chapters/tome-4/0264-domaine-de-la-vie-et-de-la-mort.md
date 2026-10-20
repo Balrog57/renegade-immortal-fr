@@ -62,7 +62,7 @@ Au moment où il s'inclina, le ciel s'obscurcit. Toutefois, ce changement était
 
 Nul autre ne pouvait le voir, si ce n'est Wang Lin, dont les yeux distinguaient nettement le noir du blanc. Le spectre le fixait droit dans les yeux.
 
-Wang Lin soupira intérieurement et broya la fleur noire dans sa main pour en faire une poudre fine. En disparaissant, la poudre se mua en étincelles de lumière invisibles aux mortels et se déposa sur le corps du défunt. Le père de Da Niu cessa instantanément de frissonner et regarda Wang Lin avec gratitude.
+Wang Lin soupira intérieurement et broya la fleur noire dans sa main pour en faire une poudre fine. En disparaissant, la poudre se mua en étincelles de lumière invisibles aux mortels et se déposa sur l'âme du défunt. Le père de Da Niu cessa instantanément de frissonner et regarda Wang Lin avec gratitude.
 
 Il comprit enfin que cet homme, son voisin depuis plus de vingt ans, n'était pas un simple mortel. Son âme flottant dans les airs, il s'agenouilla et se prosterna plusieurs fois devant Wang Lin. Puis, d'un regard empreint de regret envers sa femme et Da Niu, il s'éleva vers le ciel comme s'il gravissait un escalier, avant de disparaître.
 
@@ -72,7 +72,7 @@ Wang Lin observa les environs avec regret. Il était impossible de s'échapper a
 
 Il prit une profonde inspiration et tourna les yeux vers la mère de Da Niu. Lorsqu'il l'avait rencontrée, elle n'était qu'au début de la trentaine; elle en avait aujourd'hui plus de cinquante. Deux décennies de temps avaient marqué son corps.
 
-Son regard se posa ensuite sur Da Niu. Autrefois un enfant maladroit qui s'invitait dans la boutique de Wang Lin, il était devenu un homme accompli. Marié, père à son tour, il enterrait désormais ses parents. Tel un jeune arbre ayant poussé durant vingt ans pour devenir un arbre puissant capable de braver les tempêtes.
+Son regard se posa ensuite sur Da Niu. Autrefois un adolescent robuste qui s'invitait dans la boutique de Wang Lin, il était devenu un homme accompli. Marié, père à son tour, il accompagnait désormais ses parents jusqu'à leur dernier souffle. Tel un jeune arbre ayant poussé durant vingt ans pour devenir un arbre puissant capable de braver les tempêtes.
 
 En y pensant, le cœur de Wang Lin fut soudainement frappé par une lueur de compréhension. Ce sentiment s'intensifiait de plus en plus. Durant ces vingt années passées à vivre comme un mortel, Wang Lin ressentait pour la première fois l'ouverture vers la compréhension des cieux.
 
@@ -86,7 +86,7 @@ Tandis qu'il s'élevait dans les airs, il vit d'innombrables mortels et, autour 
 
 Il sentit son ascension s'accélérer; la capitale ne devint qu'un point minuscule, puis disparut, laissant place devant lui à une planète brunâtre. Malheureusement, même à cette altitude, il n'avait pas encore trouvé l'origine de ce pouvoir. Il le ressentait jusque dans les étoiles; aucun lieu n'en était exempt.
 
-La personnalité de Wang Lin était d'une ténacité extrême. Sans cela, il n'aurait pas passé quatre cents ans à retourner à Zhao pour se venger de la famille Teng. Outre cette obstination, il possédait une détermination sans faille. Il n'aurait jamais pu passer du statut de minuscule cultivateur à celui qu'il était aujourd'hui sans elle.
+La personnalité de Wang Lin était d'une ténacité extrême. Sans cela, il n'aurait pas passé quatre cents ans à retourner à Zhao pour massacrer la famille Teng. Outre cette obstination, il possédait une détermination sans faille. Il n'aurait jamais pu passer du statut de minuscule cultivateur à celui qu'il était aujourd'hui sans elle.
 
 C'est précisément ce mélange d'obstination et de détermination qui le poussait à chercher la source de cette énergie. Son être actuel se laissait entièrement guider par l'instinct.
 
@@ -102,7 +102,7 @@ La capitale, passée d'un minuscule point à la taille d'un ongle, reprit sa cro
 
 Soudain, Wang Lin ouvrit les yeux, couvert de sueur. Une forte odeur nauséabonde émanait de lui. Cela faisait très longtemps que son corps n'avait pas dégagé une telle puanteur; la dernière fois, c'était lors de son passage à l'Établissement des Fondations.
 
-Les yeux de Wang Lin s'illuminèrent. Il prit une profonde inspiration, saisit un morceau de bois et commença à sculpter avec soin. Cette fois-là, il travailla durant une journée et une nuit entières.
+Les yeux de Wang Lin s'illuminèrent. Il prit une profonde inspiration, saisit un morceau de bois et, l'index droit faisant office de couteau, commença à sculpter avec soin. Cette fois-là, il travailla durant une journée et une nuit entières.
 
 Enfin, lorsqu'il retira ses doigts, la sculpture d'un vieil homme vêtu de cyan prit forme. On pouvait y lire les traces du passage du temps. Il contempla silencieusement son œuvre avant de la placer sur une étagère, aux côtés des sculptures de l'homme et de la vieille femme.
 

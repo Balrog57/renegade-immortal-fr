@@ -12,29 +12,29 @@ Le Dieu du Sang n'hésita pas à exploser en un vaste nuage de sang pour utilise
 
 Les yeux de Maître Yan Leizi s'illuminèrent et ses mains formèrent des sceaux sans la moindre hésitation. Les innombrables fragments entourèrent immédiatement la zone. Au même instant, Maître Yan Leizi laissa échapper un rugissement tandis que des ondes de puissance mystérieuse se propageaient.
 
-Chaque fragment était imprégné d'une force colossale. Ils encerclèrent tous les serpents aux yeux de lune et tournèrent à une vitesse fulgurante, formant un vortex gigantesque.
+Chaque fragment était doté d'une puissante spiritualité. Ils encerclèrent tous les serpents aux yeux de lune et tournèrent à une vitesse fulgurante, formant un vortex gigantesque.
 
 Le vieil homme en robe rouge agita ses manches et la formation octogonale s'effondra, se fragmentant en une multitude de petites formations qui piégèrent chaque Serpent aux yeux de lune, tandis que le feu du tonnerre s'abattait frénétiquement en grondant. Puis, l'homme à la robe rouge s'assit en tailleur haut dans le ciel, traça un sceau d'une main et divisa son esprit pour pénétrer chacune des formations.
 
-Les quatre garçons encerclèrent étroitement le Serpent aux yeux de lune, tandis que le noyau rouge continuait de sceller la trajectoire de la bête.
+Les quatre garçons encerclèrent étroitement le Serpent aux yeux de lune; leurs noyaux rouges, reliés entre eux, résonnaient sans cesse et bloquaient toutes les issues de la bête.
 
 Le regard de Lie Yunzi s'illumina. Brandissant son épée d'argent, il franchit le barrage pour fondre sur les innombrables petits serpents aux yeux de lune. Sa vitesse était telle qu'il portait déjà ses coups avant même que les éclairs argentés ne soient visibles.
 
-Cependant, aucune de ces attaques n'eut d'effet sur les doigts du Dieu Antique générés par le Serpent aux yeux de lune enragé. D'innombrables doigts de Dieu Antique se condensèrent et furent projetés dans toutes les directions.
+Cependant, aucune de ces attaques n'eut d'effet sur les doigts du Dieu Ancien générés par le Serpent aux yeux de lune enragé. D'innombrables doigts de Dieu Ancien se condensèrent et furent projetés dans toutes les directions.
 
-Boum, boum, boum... Des grondements tonitruants résonnèrent. Le doigt du Dieu Antique formé par le corps principal du Serpent aux yeux de lune percuta la barrière établie par les quatre garçons.
+Boum, boum, boum... Des grondements tonitruants résonnèrent. Le doigt du Dieu Ancien formé par le corps principal du Serpent aux yeux de lune percuta la barrière établie par les quatre garçons.
 
 Le visage de l'un d'eux pâlit instantanément et il cracha une large bouchée de sang. Des fissures apparurent sur le noyau rouge au sommet de sa tête, d'où s'échappa rapidement un brouillard écarlate.
 
-Simultanément, le visage d'un autre garçon, situé à l'opposé, devint livide et son corps faiblit. Pourtant, un éclair rouge jaillit de sa tête pour fusionner avec le noyau rouge qui surplombait sa chevelure.
+Simultanément, le visage d'un autre garçon, situé à l'opposé, devint livide et son corps faiblit. Pourtant, un éclair rouge jaillit d'entre ses sourcils pour fusionner avec le noyau rouge qui surplombait sa chevelure.
 
 À l'instant où la lumière rouge quitta le garçon, son corps s'effondra brusquement.
 
-Le vieil homme en robe rouge créa d'innombrables formations octogonales, mais toutes s'écroulèrent sous l'impact du doigt du Dieu Antique!
+Le vieil homme en robe rouge créa d'innombrables formations octogonales, mais toutes s'écroulèrent sous l'impact du doigt du Dieu Ancien!
 
 Du sang s'échappa du coin de la bouche du vieil homme.
 
-Les yeux de Maître Yan Leizi devinrent injectés de sang. Il poussa un rugissement et, d'un geste de la main formant un sceau, fit s'étendre les fragments du Royaume Céleste. C'était comme si le Royaume Céleste du Tonnerre lui-même était apparu en ces lieux!
+Les yeux de Maître Yan Leizi devinrent injectés de sang. Il poussa un rugissement et, d'un geste de la main formant un sceau, fit s'étendre les fragments du Royaume Céleste. Sur plusieurs milliers de kilomètres à la ronde, c'était comme si le Royaume Céleste du Tonnerre lui-même était apparu en ces lieux!
 
 À première vue, on aurait dit que les serpents aux yeux de lune étaient encerclés par des fragments du Royaume Céleste! La foudre reliait les fragments entre eux, emprisonnant le Serpent aux yeux de lune à l'intérieur, tandis que les fragments commençaient à se contracter!
 
@@ -46,13 +46,13 @@ Une trace de "Retour aux Origines" émana du corps de Maître Yan Leizi. Bien qu
 
 Il se souvint que, dans ses souvenirs les plus lointains, la voix terrifiante qui l'avait averti possédait cette même aura. Sauf que l'aura de cette voix était encore plus puissante!
 
-Le Serpent aux yeux de lune fut saisi par le même sentiment d'effroi en ressentant l'aura de Maître Yan Leizi. Il se remémora que lorsqu'il percevait cette présence, c'était comme s'il retournait à sa vie passée au sein du corps du Dieu Antique, là où il vivait sans conscience!
+Le Serpent aux yeux de lune fut saisi par le même sentiment d'effroi en ressentant l'aura de Maître Yan Leizi. Il se remémora que lorsqu'il percevait cette présence, c'était comme s'il retournait à sa vie passée au sein du corps du Dieu Ancien, là où il vivait sans conscience!
 
-De féroces rugissements s'échappèrent de son corps. Puis, sa masse gigantesque s'agita frénétiquement et une voix étrange sortit de sa gueule. Tous les doigts de Dieu Antique des petits serpents commencèrent à converger vers le corps principal.
+De féroces rugissements s'échappèrent de son corps. Puis, sa masse gigantesque s'agita frénétiquement et une voix étrange sortit de sa gueule. Tous les doigts de Dieu Ancien des petits serpents commencèrent à converger vers le corps principal.
 
-Ces innombrables doigts fusionnèrent. Le doigt du Dieu Antique devant le corps principal n'était plus une illusion, il paraissait désormais bien réel!
+Ces innombrables doigts fusionnèrent. Le doigt du Dieu Ancien devant le corps principal n'était plus une illusion, il paraissait désormais bien réel!
 
-Doté d'une peau rugueuse et fissurée par des motifs semblables à des runes, un doigt de Dieu Antique corporel apparut devant le Serpent aux yeux de lune!
+Doté d'une peau rugueuse et fissurée par des motifs semblables à des runes, un doigt de Dieu Ancien corporel apparut devant le Serpent aux yeux de lune!
 
 Le doigt s'abattit dans un rugissement.
 
@@ -68,23 +68,23 @@ L'homme d'âge moyen en robe noire suivit de près le Daoïste aux Cinq Couleurs
 
 Le son de la cloche portait une puissance phénoménale. En résonnant, elle intensifia l'effondrement de l'espace et le projeta directement vers le Serpent aux yeux de lune.
 
-Cependant, ces attaques s'effondrèrent instantanément devant le doigt du Dieu Antique devenu presque tangible. Le premier à affronter cette menace fut Lie Yunzi de la famille Zhan. Au moment où son épée d'argent entra en contact avec le doigt, des bruits de déchirement résonnèrent dans son corps. Il cracha du sang et fut projeté en arrière! Pourtant, après avoir parcouru une quarantaine de mètres, les yeux de Lie Yunzi brillèrent de rage. Il ne recula plus et chargea de nouveau!
+Cependant, ces attaques s'effondrèrent instantanément devant le doigt du Dieu Ancien devenu presque tangible. Le premier à affronter cette menace fut Lie Yunzi de la famille Zhan. Au moment où son épée d'argent entra en contact avec le doigt, des bruits de déchirement résonnèrent dans son corps. Il cracha du sang et fut projeté en arrière! Pourtant, après avoir parcouru une quarantaine de mètres, les yeux de Lie Yunzi brillèrent de rage. Il ne recula plus et chargea de nouveau!
 
-Son niveau de culture était si élevé qu'il ne mourut pas sous le coup du doigt du Dieu Antique, mais son âme originelle fut endommagée!
+Son niveau de culture était si élevé qu'il ne mourut pas sous le coup du doigt du Dieu Ancien, mais son âme originelle fut endommagée!
 
-Le doigt du Dieu Antique ne ralentit pas sa course. Le vieil homme en robe rouge poussa un grondement sourd et son corps, tel un tourbillon de vent et de nuages, se déploya pour former une formation octogonale rouge. Celle-ci percuta alors le doigt du Dieu Antique!
+Le doigt du Dieu Ancien ne ralentit pas sa course. Le vieil homme en robe rouge poussa un grondement sourd et son corps, tel un nuage de sang, se déploya pour former une formation octogonale rouge. Celle-ci percuta alors le doigt du Dieu Ancien!
 
-À cet instant précis, le fantôme du Daoïste aux Cinq Couleurs s'approcha. Dès qu'il fut proche du doigt du Dieu Antique, il se désintégra en un épais brouillard noir pour se diffuser sur l'appendice, tentant de le dévorer!
+À cet instant précis, le fantôme du Daoïste aux Cinq Couleurs s'approcha. Dès qu'il fut proche du doigt du Dieu Ancien, il se désintégra en un épais brouillard noir pour se diffuser sur l'appendice, tentant de le dévorer!
 
-L'ancêtre de la famille Shengong ne marqua pas de pause. Sa main traça un sceau et pointa entre ses sourcils. D'innombrables dragons de tonnerre se condensèrent rapidement en un éclair d'un diamètre de 33 mètres. Il se projeta à une vitesse dépassant l'entendement pour percuter le doigt du Dieu Antique.
+L'ancêtre de la famille Shengong ne marqua pas de pause. Sa main traça un sceau et pointa entre ses sourcils. D'innombrables dragons de tonnerre se condensèrent rapidement en un éclair d'un diamètre de 33 mètres. Il se projeta à une vitesse dépassant l'entendement pour percuter le doigt du Dieu Ancien.
 
-L'aigle noir de l'homme en robe noire ne s'arrêta pas non plus. Alors que les sorts de chacun heurtaient le doigt du Dieu Antique, il chargea également. La cloche sonna avec force lors de l'impact.
+L'aigle noir de l'homme en robe noire ne s'arrêta pas non plus. Alors que les sorts de chacun heurtaient le doigt du Dieu Ancien, il chargea également. La cloche sonna avec force lors de l'impact.
 
 La puissance combinée d'une attaque de cinq experts au sommet du Système Stellaire de Luotian pouvait facilement détruire une planète; la destruction du Domaine Nord n'était pas impossible!
 
 À cet instant, leurs sorts formèrent une tempête dévastatrice capable de déchirer le vide. Cette tempête était si puissante que même les expressions des messagers du Temple Céleste du Tonnerre, à 50 000 kilomètres, changèrent. Certains, qui n'étaient qu'au stade de l'Yin Illusoire, devinrent livides et crachèrent du sang.
 
-Cette tempête percuta de plein fouet le doigt du Dieu Antique presque corporel!
+Cette tempête percuta de plein fouet le doigt du Dieu Ancien presque corporel!
 
 Boum!
 
@@ -92,11 +92,11 @@ Un rugissement de tonnerre, faisant écho dans tout le Domaine Nord, retentit. L
 
 L'aigle de l'homme en robe noire s'effondra et fut repoussé. Des craquements sinistres émanèrent de l'ancêtre de la famille Shengong. Son visage devint pâle et il cracha du sang tout en reculant précipitamment.
 
-La formation octogonale du vieil homme en robe rouge se brisa et il parut affaibli. Il tituba dans sa retraite, le visage étrangement dépourvu de trace de sang. Le plus durement touché fut le Daoïste aux Cinq Couleurs, dont la culture était la plus faible des cinq. Une fois son sort brisé, son corps émit des bruits de craquement et il cracha sans cesse du sang tout en battant en retraite.
+La formation octogonale du vieil homme en robe rouge se brisa et il parut affaibli. Il tituba dans sa retraite, le visage exsangue. Le plus durement touché fut le Daoïste aux Cinq Couleurs, dont la culture était la plus faible des cinq. Une fois son sort brisé, son corps émit des bruits de craquement et il cracha sans cesse du sang tout en battant en retraite.
 
 Les cinq étaient gravement blessés!
 
-Le doigt du Dieu Antique finit lui aussi par s'effondrer sous la puissance combinée des cinq attaques!
+Le doigt du Dieu Ancien finit lui aussi par s'effondrer sous la puissance combinée des cinq attaques!
 
 La collision de ces sorts créa une onde de choc qui se propagea avec une violence folle. Le fracas continua tandis que l'espace s'effondrait.
 

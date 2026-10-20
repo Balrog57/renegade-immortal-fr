@@ -28,7 +28,7 @@ L'immense éclair rouge commença à se rétracter rapidement.
 
 À cet instant, les cultivateurs alentour réagirent enfin. Ils dégainèrent divers trésors et chargèrent l'inconnu. Parmi eux, moins de dix cultivateurs au stade Yin Illusoire constituaient la force de frappe principale, fonçant droit sur l'homme aux cheveux blancs.
 
-« Le Royaume Céleste du Tonnerre va se refermer, et vous tous, vous serez ma nourriture! » Le regard de l'homme aux cheveux blancs était d'une froideur absolue. Sans même daigner considérer les attaques qui convergeaient vers lui, il disparut pour réapparaître derrière un cultivateur au stade Ascendant avancé. Sa vitesse défiait l'imagination.
+« La porte du Royaume Céleste du Tonnerre va se refermer, et vous tous, vous serez ma nourriture! » Le regard de l'homme aux cheveux blancs était d'une froideur absolue. Sans même daigner considérer les attaques qui convergeaient vers lui, il disparut pour réapparaître derrière un cultivateur au stade Ascendant avancé. Sa vitesse défiait l'imagination.
 
 L'Ascendant était un vieil homme. Son visage se décomposa et ses yeux s'emplirent de terreur. Mais avant qu'il n'ait pu pivoter, la main de l'homme aux cheveux blancs lui transperça la poitrine. Il saisit l'âme originelle du vieillard et la broya sur-le-champ.
 

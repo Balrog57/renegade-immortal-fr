@@ -114,6 +114,6 @@ Des cercles de lumière apparurent. Au moment où le réseau s'ouvrit, Wang Lin 
 
 Le réseau fut pleinement activé et la silhouette de Wang Lin commença à disparaître. Juste avant de s'effacer, il agita la main pour faire revenir le drapeau de restriction.
 
-Une fois sa disparition consommée, le liquide rouge recouvrit immédiatement le réseau et des plantes hautes de plus d'une centaine de mètres commencèrent à croître. La végétation était si dense qu'avec les craquements de la croissance, le réseau de transfert finit par se briser sous la pression, des racines s'engouffrant dans ses fissures.
+Une fois sa disparition consommée, le liquide rouge recouvrit immédiatement le réseau et des plantes hautes de plus d'une centaine de mètres commencèrent à croître. La végétation était si dense qu'avec les craquements de la croissance, le réseau de transfert finit par se briser sous la pression, des plantes poussant dans ses fissures.
 
 Désormais, même muni d'une carte, il serait presque impossible de deviner qu'un ancien réseau de transfert se cachait en ce lieu.

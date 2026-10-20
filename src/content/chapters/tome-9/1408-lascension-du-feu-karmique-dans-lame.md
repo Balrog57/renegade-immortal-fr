@@ -12,7 +12,7 @@ Personne d'autre au sein de l'Épreuve Humaine ne remarqua ce phénomène; pour 
 
 Wang Lin détourna son regard du ciel et s'assit au sommet de la montagne.
 
-Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à l'Oiseau Vermillon une chance de s'éveiller pour la quatrième fois, franchissant ainsi le royaume du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan de l'Oiseau Vermillon!
+Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à l'Oiseau Vermillon une chance de s'éveiller pour la quatrième fois, permettant de passer du royaume du Feu Réel à celui du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan de l'Oiseau Vermillon!
 
 Le Feu Éthéré, source de tous les feux du monde. Qu'il s'agisse du feu de la jalousie, de la colère, de la folie ou d'autres émotions, tout pouvait être utilisé par ceux qui avaient atteint le royaume du Feu Éthéré!
 
@@ -20,7 +20,7 @@ Les cultivateurs capables d'atteindre le Feu Éthéré étaient d'une puissance 
 
 C'était une technique terrifiante. Il faut admettre que tous les êtres vivants possèdent des émotions. Peu importe l'indifférence d'un individu ou sa capacité à les dissimuler, les émotions résident toujours en lui.
 
-Même le désir ardent du Maître du Dao Rêve Bleu pour sa femme et sa fille pouvait servir de combustible au Feu Éthéré! Seuls ceux capables de bloquer parfaitement toute émotion, ou de les supprimer totalement, pouvaient espérer ne pas craindre le Feu Éthéré!
+Même la nostalgie du Maître du Dao Rêve Bleu pour sa femme et sa tendresse pour sa fille pouvait servir de combustible au Feu Éthéré! Seuls ceux capables de bloquer parfaitement toute émotion, ou de les supprimer totalement, pouvaient espérer ne pas craindre le Feu Éthéré!
 
 La véritable terreur d'un cultivateur du Feu Éthéré ne résidait pas dans les duels singuliers, mais dans les batailles de groupe!
 

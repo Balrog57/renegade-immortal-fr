@@ -80,7 +80,7 @@ Bien que son plan ait été contrecarré par Wang Lin, le cultivateur n'abandonn
 
 Certes, un vieillard lui avait tenu des propos similaires auparavant, mais la nuance était capitale. Ce vieillard possédait un niveau de culture bien plus élevé et Wang Lin n'était pas alors confronté à un goulot d'étranglement crucial. Ses paroles avaient donc renforcé sa confiance au lieu de créer un blocage mental.
 
-Mais ces mots provenaient désormais de Zhou Wutai. Bien qu'identiques, leur sens était radicalement différent. Si Wang Lin les prenait à cœur, le passage des années sans atteindre la Formation de l'Âme deviendrait une malédiction intérieure dont il ne pourrait se libérer que par une illumination soudaine.
+Mais ces mots provenaient désormais de Zhou Wutai. Bien qu'identiques, leur sens était radicalement différent. Si Wang Lin les prenait à cœur, le passage des années sans atteindre la Formation de l'Âme deviendrait une malédiction intérieure : faute d'y parvenir, il n'aurait plus aucune chance dans cette vie, et ne pourrait s'en libérer que par une illumination soudaine.
 
 Voyant que Zhou Wutai persistait dans son attaque, Wang Lin finit par riposter.
 
@@ -106,7 +106,7 @@ En même temps, il ne pouvait s'empêcher de songer aux paroles de Wang Lin sur 
 
 Les yeux du petit cultivateur devinrent rouges alors qu'il répondait: « Le disciple a décidé de le garder pour toujours. »
 
-Le cultivateur aux grandes oreilles sourit en lui caressant la tête. Dans un sourire silencieux, il guida le garçon hors de la rue de Wang Lin.
+Le cultivateur aux grandes oreilles sourit en lui caressant la tête. Dans un sourire silencieux, il guida le garçon hors de la rue de Wang Lin. Mais son cœur s'était assombri : son Sens Divin balaya longuement la boutique de Wang Lin, et il tint désormais ce dernier pour son plus grand rival de toute sa vie.
 
 Wang Lin resta assis dans sa boutique, perdu dans ses pensées. Après un long moment, il esquissa un sourire et décida de ne pas trop y réfléchir, de peur que cela ne vienne troubler son cheminement alors qu'il approchait de l'aboutissement de sa transformation en mortel.
 
@@ -114,7 +114,7 @@ Wang Lin resta assis dans sa boutique, perdu dans ses pensées. Après un long m
 
 Il observa alors attentivement et constata que rien n'était arrivé à la boutique de Wang Lin. Les deux immortels étaient devenus silencieux et n'avaient plus jamais reparlé des sculptures.
 
-Même son Altesse Royale lui avait ordonné d'offrir des cadeaux à Wang Lin chaque année lors du Nouvel An. Comme il le faisait depuis plus de dix ans, lorsque le danger menaçait, la première personne à laquelle il pensait était Wang Lin.
+Même son Altesse Royale lui avait ordonné de rendre visite à Wang Lin chaque année lors du Nouvel An. Comme il le faisait depuis plus de dix ans, lorsque le danger menaçait, la première personne à laquelle il pensait était Wang Lin.
 
 Mais il n'aurait jamais imaginé que Wang Lin soit assez puissant pour que celui qui avait empêché le roi de se montrer, forcé les immortels à reculer et contraint le prince à se cacher dans le palais renonce si facilement à sa poursuite en quelques mots.
 

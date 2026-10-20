@@ -12,7 +12,7 @@ Chaque pas qu'ils laissaient faisait légèrement trembler la terre.
 
 Alors que le gaz gris se propageait, un filament de celui-ci jaillit tel un trait d'épée. Sa cible n'était pas les deux anciens, mais Lu Songyi, l'ancien du stade de la Formation de l'Âme, qui tentait secrètement de récolter les Fruits d'Or Brillants.
 
-L'expression de Lu Songyi changea radicalement. Réalisant qu'il ne pourrait pas bouger à temps, il entreprit de se téléporter. Il savait que cette manœuvre était extrêmement périlleuse, mais à cet instant, il n'avait plus le luxe de s'en soucier. Sa silhouette commença à se distordre, sur le point de disparaître.
+L'expression de Lu Songyi changea radicalement. Réalisant qu'il ne pourrait pas bouger à temps, il entreprit de se téléporter. Il savait que, dans les Terres Démoniaques du Nord, cette manœuvre était extrêmement périlleuse, mais à cet instant, il n'avait plus le luxe de s'en soucier. Sa silhouette commença à se distordre, sur le point de disparaître.
 
 Cependant, un reniflement glacial émana du gaz gris alors qu'il chargeait vers lui.
 
@@ -42,7 +42,7 @@ Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte de
 
 Hormis ces trois-là, la femme nommée Qian Qin affichait une expression troublante, partagée entre l'angoisse et la lutte intérieure.
 
-La culture et la force mentale de ces jeunes disciples n'étaient pas comparables à celles des deux anciens. Bien que ces derniers aient été profondément ébranlés en réalisant que la situation avait dégénéré, leurs expressions restaient calmes, ne laissant paraître qu'un léger embarras.
+La culture et la force mentale de ces jeunes disciples n'étaient pas comparables à celles des deux anciens. Bien que ces derniers aient été profondément ébranlés en réalisant que la situation avait dégénéré, leurs expressions restaient calmes, ne laissant paraître qu'une mine plutôt sombre.
 
 L'expression de Wang Lin demeurait sereine tandis que son regard les balayait un à un. Puis, d'un geste nonchalant, il pointa le vide; des mèches de gaz gris jaillirent alors des restes de chair éparpillés dans la vallée pour se rassembler promptement.
 
@@ -82,7 +82,7 @@ L'ancien trapu ordonna: « Attaquez! »
 
 Shi Fang serra les dents. Sans dire un mot, il forma un sceau et trancha l'air. L'épée dans son dos laissa échapper un hymne d'épée assourdissant et s'élança vers Wang Lin telle un dragon féroce.
 
-Conscient que leurs chances étaient infimes, Shi Fang cracha également une bouffée de sang essentiel. Il s'assit alors en position du lotus, recueillant son sang au centre de sa paume. Puis, dans un rugissement, il le frappa violemment contre son front.
+Conscient que ses chances n'étaient pas grandes, Shi Fang cracha également une bouffée de sang essentiel. Il s'assit alors en position du lotus, recueillant son sang au centre de sa paume. Puis, dans un rugissement, il le frappa violemment contre son front.
 
 Dans un bruit de tonnerre, le corps de Shi Fang trembla et une sphère de lumière verte jaillit de son front. Dans cette lueur, l'âme originelle de Shi Fang s'en échappa soudainement; il ouvrit la bouche et une lumière verte aveuglante en rayonna. Cette lumière se mua en une épée volante de la taille d'un doigt, en forme de feuille de saule. Son âme originelle pénétra cette lame pour poursuivre l'énergie d'épée qu'il venait de projeter.
 
@@ -94,7 +94,7 @@ Wang Lin restait immobile, l'expression impassible et le regard imperturbable. I
 
 Le Doigt de la Mort!
 
-D'un seul doigt, dix mille âmes se fanent ou prospèrent!
+D'un seul doigt, dix mille êtres se fanent ou prospèrent!
 
 D'un seul doigt, toute l'herbe de la vallée devint brune, et même les feuilles déjà flétries commencèrent à s'effondrer. Ce n'était pas seulement leur aspect extérieur qui succombait, mais jusqu'à leurs racines mêmes.
 

@@ -14,7 +14,7 @@ Après avoir détourné son regard, Wang Lin s'assit. Ce continent sauvage étai
 
 Tout en réfléchissant, Wang Lin se remémora tout ce qui s'était passé dans le Royaume aux Sept Couleurs et ressentit un certain regret.
 
-« Sept personnes sont parties et je suis le seul à être revenu... Quand j'y suis allé, je n'étais qu'au stade initial de la Purification du Nirvana, et maintenant... » Bien que Wang Lin parût épuisé, ses yeux brillaient lorsqu'il murmura: « Je suis à un demi-pas du stade de la Brisure du Nirvana! »
+« Sept personnes sont parties et je suis le seul à être revenu... Quand j'y suis allé, je n'étais qu'au stade initial de la Purification du Nirvana, et maintenant... » Bien que Wang Lin parût épuisé, ses yeux brillaient lorsqu'il murmura: « Je suis à un demi-pas du stade Briseur du Nirvana! »
 
 Tout ce que Wang Lin avait vécu dans le Royaume aux Sept Couleurs défilait un par un dans son esprit. Le squelette de Zhan Xingye, la grotte de Sima Mo, le troisième réveil de l'Oiseau Vermillon, l'absorption de la foudre du Royaume Extérieur, les Perdus, les Éclairés, ce parchemin taoïste dont il ignorait s'il était réel ou non, le fait qu'il eût presque découvert le secret de l'Omniscient, la vision des Imitations des Perles Défiant le Ciel, et l'apprentissage de l'existence des Défiants.
 
@@ -22,7 +22,7 @@ Il avait combattu Maître Pin Cendré et avait obtenu le clou aux sept couleurs.
 
 Il avait obtenu la Restriction Temporelle ainsi que les deux épées plantées dans les restes du cerf mystérieux. Tout cela exaltait Wang Lin. Cent ans s'étaient écoulés rapidement, et le changement produit par cette période était aussi vaste que le ciel et la terre!
 
-« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Maître Pin Cendré, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître du Dao Rêve Bleu, l'épée de cristal, la hache de guerre et même mon ancien fourneau divin se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
+« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Maître Pin Cendré, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître du Dao Rêve Bleu, l'épée de cristal, la hache de guerre et même mon Fourneau du Dieu Antique se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
 
 Wang Lin poussa un soupir et murmura: « Heureusement, l'étoile faite de loi est toujours là... Bien que la sixième étoile soit brisée, tant que mon corps subit le second essai, elle pourra être restaurée, ou par une autre opportunité. Après tout, j'ai déjà atteint ce niveau auparavant; la récupérer sera bien plus facile que de gravir à nouveau les échelons. »
 
@@ -34,7 +34,7 @@ Wang Lin n'avait pas tué leurs âmes originelles, mais les avait collectées. I
 
 Dans le Royaume aux Sept Couleurs, Wang Lin avait déjà fouillé la mémoire du jeune homme du clan des esclaves. Maintenant qu'il avait fait de même avec ces deux-là, sa compréhension du Royaume Extérieur s'en trouvait accrue.
 
-Ses yeux brillèrent et il murmura: « Le Système des Anciennes Étoiles... les Cinq Grands Maîtres Anciens! »
+Ses yeux brillèrent et il murmura: « Le Système Stellaire Antique... les cinq maîtres du Système Stellaire Antique! »
 
 Tout en méditant, Wang Lin sortit une grande quantité de pilules de guérison qu'il dévora tout en formant un sceau de ses mains avant de fermer les yeux. Bien qu'en pleine convalescence, son sens divin restait déployé. Au moindre signe de trouble, il se réveillerait instantanément.
 
@@ -108,4 +108,4 @@ Il vola vers les profondeurs en suivant sa carte stellaire, fonçant à toute al
 
 Les visages de ces cultivateurs se décomposèrent. Ils se regardèrent, partageant tous le même choc dans leurs yeux.
 
-« Même Maître ne peut atteindre une telle vitesse. S'il n'est pas muni d'un trésor, alors il doit être un sommet de la Brisure du Nirvana ou même un rare vieux monstre du Fléau Céleste! »
+« Même Maître ne peut atteindre une telle vitesse. S'il n'est pas muni d'un trésor, alors il doit être un sommet du stade Briseur du Nirvana ou même un rare vieux monstre du Fléau Céleste! »

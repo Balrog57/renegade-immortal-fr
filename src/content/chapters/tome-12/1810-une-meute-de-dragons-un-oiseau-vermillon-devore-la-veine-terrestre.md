@@ -12,7 +12,7 @@ Après un long moment, Du Qing serra les dents, le regard empreint de froideur.
 
 « Je ne suis pas prêt à abandonner maintenant. Quoi qu'il en soit, je dois le rattraper pour voir ce qu'il en est. Si tout ceci n'est qu'une illusion de puissance, alors je le tuerai... Si... si son niveau de culture est comparable au mien, alors je devrai changer de perspective. La Secte du Dragon Bleu est détruite, c'est un fait accompli. S'il venait à rejoindre la Secte du Dragon Bleu... l'influence de la secte augmenterait considérablement! » Du Qing était un ancêtre; même s'il était lunatique, son esprit n'était pas ordinaire.
 
-Après avoir pris sa décision, Du Qing tendit la main vers le vide devant lui et une grue en papier apparut. Il la lança, et celle-ci se métamorphosa en une grue de fumée qui poussa un cri avant de s'élancer vers l'avant.
+Après avoir pris sa décision, Du Qing tendit la main vers le vide devant lui et une grue en papier rouge écarlate apparut. Il la lança, et celle-ci se métamorphosa en une grue de fumée qui poussa un cri avant de s'élancer vers l'avant.
 
 Du Qing la suivit dans les airs.
 
@@ -96,7 +96,7 @@ Seul le gigantesque dragon de feu s'approchait, ses yeux féroces révélant une
 
 Wang Lin laissa échapper un reniflement froid. Bien que cette branche enfantée fût puissante, équivalente à un cultivateur du stade intermédiaire du Vide Arcanique, elle ne suffisait pas à faire reculer Wang Lin. Sa main droite traça un sceau et pointa vers le dragon de feu.
 
-« Seize branches de veine de feu terrestre, apparaissez en mon nom! » À l'instant où les mots de Wang Lin résonnèrent, seize dragons de feu apparurent autour de l'Oiseau Vermillon et se précipitèrent contre le dragon de feu adverse.
+« Seize âmes de branches de veine de feu terrestre, apparaissez en mon nom! » À l'instant où les mots de Wang Lin résonnèrent, seize dragons de feu apparurent autour de l'Oiseau Vermillon et se précipitèrent contre le dragon de feu adverse.
 
 C'est à ce moment précis qu'un rayon de lumière fendit la distance. Du Qing avait enfin rattrapé son retard!
 

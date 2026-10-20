@@ -24,7 +24,7 @@ Cette Bête de Tonnerre était d'une splendeur éblouissante, dégageant deux é
 
 Pourtant, au moment où son regard croisa celui de Wang Lin, elle fut saisie d'effroi et laissa paraître une trace de confusion.
 
-Le Daoïste du Tonnerre fixa Wang Lin et déclara calmement: « C’est grâce à la Bête de Tonnerre que l’on peut être nommé messager du Temple Céleste du Tonnerre. Le crime de prétendre l'être est le génocide de toute ta lignée! »
+Le Daoïste du Tonnerre fixa Wang Lin et déclara calmement: « C’est grâce à la Bête de Tonnerre que l’on peut être nommé messager du Temple Céleste du Tonnerre. Le crime de prétendre l'être est l'extermination de toute ta lignée! »
 
 Wang Lin jeta un coup d'œil à la créature et dit lentement: « On ne peut appeler cela une Bête de Tonnerre sans corne de tonnerre! » Il frappa son sac de contenance, et le char de guerre en surgit avant de se transformer en une immense masse de foudre!
 
@@ -56,13 +56,13 @@ Des éclats de tonnerre résonnèrent sur toute la terre alors que les deux bêt
 
 « Posséder une Bête de Tonnerre et maîtriser si parfaitement les sorts de foudre… » Le visage du Daoïste du Tonnerre était empreint d'amertume. S’il n’avait pas reçu l’ordre de vérifier la présence d’un messager du Temple Céleste il y a soixante-dix ans, il aurait lui aussi cru que Wang Lin était un émissaire du Temple!
 
-Le Temple Céleste possédait certes des Bêtes de Tonnerre à Corne d'Argent, mais elles étaient extrêmement rares et réservées aux messagers de rang céleste. S’il parvenait à obtenir une telle créature, son statut au sein du Temple s'en trouverait considérablement rehaussé.
+Le Temple Céleste possédait certes des Bêtes de Tonnerre à Corne d'Argent, mais elles étaient extrêmement rares et réservées à quelques messagers de rang céleste. S’il parvenait à obtenir une telle créature, son statut au sein du Temple s'en trouverait considérablement rehaussé.
 
 Une lueur d'avidité brilla dans ses yeux alors qu'il contemplait la corne. Il fixa ensuite Wang Lin et n'hésita plus. Ses mains tracèrent un sceau avant de se rejoindre brusquement. Lorsqu’il les écarta, une lumière intense jaillit et une épée de foudre argentée prit forme.
 
 Alors que l'électricité parcourait la lame, le Daoïste du Tonnerre forma un nouveau sceau de la main droite et pointa vers l'avant. L'épée longue argentée s'élança vers la marionnette du Gardien Céleste.
 
-« Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, le Daoïste du Tonnerre chargea. Ses mains s'ouvrirent et il hurla: « Rétribution Céleste du Tonnerre! »
+« Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, le Daoïste du Tonnerre chargea. Ses mains s'ouvrirent et il hurla: « Tribulation Céleste du Tonnerre! »
 
 Un rayon de foudre pourpre apparut soudainement dans sa paume et se mua en un filet. Dans un grondement fracassant, le filet vola vers Wang Lin.
 
@@ -90,9 +90,9 @@ Bien que son niveau de culture fût plus élevé, cela ne suffisait pas. Il aura
 
 Wang Lin possédait une suprématie absolue en matière de tonnerre; aucun sort de foudre au monde ne pouvait l'atteindre. En d'autres termes, Wang Lin était un dragon de tonnerre vivant!
 
-Une fois le symbole à sept traits tracé, le pinceau tapota doucement la figure, qui s'élança vers le Daoïste du Tonnerre.
+Une fois le symbole à sept traits tracé, le pinceau pointa la figure vers l'avant, et celle-ci fonça, telle la foudre, vers le Daoïste du Tonnerre.
 
-Le visage du Daoïste du Tonnerre devint livide. Il serra les dents et projeta l'énergie de sa paume pour contrer le symbole.
+Le visage du Daoïste du Tonnerre s'assombrit. Il serra les dents et projeta l'énergie de sa paume pour contrer le symbole.
 
 Boum!
 

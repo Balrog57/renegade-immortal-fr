@@ -10,7 +10,7 @@ Wang Lin pouvait observer tout ce qui se passait à l'extérieur tout en étant 
 
 À l'origine, avant que la Perle Défiant le Ciel ne le reconnaisse comme son maître, il n'en était pas capable; mais après avoir atteint le stade intermédiaire de la Formation du Noyau, il avait remarqué un changement lorsqu'il pénétrait dans l'espace de la perle.
 
-Ce sentiment était également apparu lorsqu'il avait franchi pour la première fois le stade de la Formation du Noyau, mais il n'était pas aussi évident qu'aujourd'hui. Wang Lin sentait que sa culture n'était qu'une des raisons; l'autre pouvait être due au renforcement de son âme.
+Ce sentiment était également apparu lorsqu'il avait franchi pour la première fois le stade de la Formation du Noyau, mais il n'était pas aussi évident qu'aujourd'hui. Wang Lin sentait que sa culture n'était qu'une des raisons; l'autre pouvait être due au renforcement de son Sens Divin.
 
 Après tout, les âmes errantes du troisième essai avaient considérablement fait croître son Sens Divin.
 
@@ -108,7 +108,7 @@ Au troisième essai, même si Bossu Meng ne l'avait pas appelé, il serait appar
 
 On pourrait même dire que depuis le jour où il avait accepté le Seigneur Démon des Six Désirs comme disciple, tout n'avait été fait que pour aboutir à ce jour.
 
-Le corps du Seigneur Démon des Six Désirs finit par exploser en une brume de sang. Quant à son Âme Naissante, le Magicien Démon Céleste s'en saisit et la transforma en une énergie spirituelle infinie.
+Le corps du Seigneur Démon des Six Désirs finit par exploser en une brume de sang. Quant à son Âme Naissante, le Magicien Démon Céleste s'en saisit et la transforma en une énergie spirituelle immense.
 
 Un regard exalté et fou brillait dans les yeux du Magicien Démon Céleste. Il joignit ses mains et cracha une bouchée de sang dans l'énergie spirituelle, avant de lancer d'une voix terrifiante, le visage hideux: « Dieu Ancien, indique la direction... Désir de Peur du Dieu Ancien, va! »
 
@@ -140,6 +140,6 @@ Les mains du Magicien Démon Céleste formèrent un sceau et projetèrent un ray
 
 Son visage trahissait une profonde frustration. On pouvait dire que la restriction qu'il avait posée était la plus puissante possible, doublée de nombreuses autres couches de protection. Même pour lui, briser ces barrières aurait dû prendre un temps considérable. Bien que le corps du Dieu Ancien fût d'une immensité sans comparaison, il était peu probable que des gens passent par là; il avait pourtant redoublé de prudence.
 
-Mais cette fois, il n'avait jamais imaginé l'apparition d'un dévoreur d'âmes. Ou que le propriétaire de la Mer de Sang ait envoyé tous les cultivateurs démoniaques vers le corps du Dieu Ancien pour traquer ce dévoreur d'âmes.
+Mais cette fois, il n'avait jamais imaginé l'apparition d'un dévoreur d'âmes. Ou que le maître de la Mer de Sang ait envoyé tous les cultivateurs démoniaques vers le corps du Dieu Ancien pour traquer ce dévoreur d'âmes.
 
 En conséquence, son plan subissait des changements inévitables, mais il ne pouvait laisser passer cette opportunité. Il avait néanmoins une certaine confiance en ses protections, c'est pourquoi il avait décidé de poursuivre son dessein malgré tout.

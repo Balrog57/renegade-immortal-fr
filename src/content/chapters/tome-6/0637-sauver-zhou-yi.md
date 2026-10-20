@@ -24,7 +24,7 @@ Wang Lin avait été témoin de la cruauté du monde de la culture tout au long 
 
 Il poussa un profond soupir et s'élança dans la brèche!
 
-Bien qu'il sût que certains chemins étaient périlleux, en tant qu'homme habité par une obsession, il y avait des choses qu'il se devait d'accomplir!
+Bien qu'il sût que certaines choses étaient dangereuses, en tant qu'homme habité par une obsession, il y avait des choses qu'il se devait d'accomplir!
 
 Autrefois, lorsqu'il sauva Treize, il combattit seul le général démon. Aujourd'hui, pour sauver Zhou Yi, il ne s'arrêterait pas, même si le Sens Divin du Saint de l'Épée Ling Tianhou y subsistait!
 
@@ -38,15 +38,15 @@ Cependant, le Sens Divin de Ling Tianhou était trop puissant! Le bouclier form�
 
 À cet instant, une lueur de détermination brilla dans les yeux de Wang Lin. Il savait parfaitement qu'il ne devait pas avancer en ce moment, mais s'il reculait, il n'aurait plus jamais l'occasion de sauver Zhou Yi.
 
-Dans la vie d'un homme, il y a des choses qu'il doit faire. Si on ne les fait pas, alors même si l'on vit dix mille ans, on ne verra en regardant en arrière que du chaos!
+Dans la vie d'un homme, il y a des choses qu'il doit faire. Si l'on hésite à les faire, alors même si l'on vit dix mille ans, on ne verra en regardant en arrière que du chaos!
 
 La détermination de Wang Lin se mua en résolution et il fit un autre pas. À cet instant, l'épée formée par le Sens Divin de Ling Tianhou gagna en puissance et fondit sur lui.
 
-Sans un mot, Wang Lin agita sa main droite et des symboles dorés se condensèrent instantanément autour de lui. L'intention d'épée frappa le corps de Wang Lin. Des éclairs blancs bondissaient entre les insectes gravés sur les symboles dorés entourant son corps. Il fit un nouveau pas en avant, sans la moindre hésitation!
+Sans un mot, Wang Lin agita sa main droite et des symboles dorés se condensèrent instantanément autour de lui. La lueur de l'épée frappa le corps de Wang Lin. Des éclairs blancs bondissaient entre les insectes gravés sur les symboles dorés entourant son corps. Il fit un nouveau pas en avant, sans la moindre hésitation!
 
 Plus de la moitié des insectes autour de lui se figèrent et tombèrent des symboles dorés. Wang Lin agita ses manches et les ramassa dans son sac de rangement.
 
-Ce pas déclencha un Sens Divin plusieurs fois plus intense que le précédent. Une série de rugissements tonitruants résonna dans la brèche de la falaise. Les innombrables échos fusionnèrent pour sonner comme la colère des cieux voulant la mort de tout intrus!
+Ce pas déclencha un Sens Divin plusieurs fois plus intense que le précédent. Une série de rugissements tonitruants résonna dans la brèche de la falaise. Les innombrables échos fusionnèrent pour sonner comme la colère des cieux qui voulait anéantir tout intrus!
 
 Les fragments d'âmes du drapeau de l'âme furent incapables de les bloquer. Ils furent brisés une fois de plus et l'attaque frappa directement l'armure démoniaque.
 
@@ -54,7 +54,7 @@ Les fragments d'âmes du drapeau de l'âme furent incapables de les bloquer. Ils
 
 Cependant, un sentiment n'était qu'un sentiment; grâce à sa maîtrise de soi, Wang Lin parvint à réprimer cette sensation. Son regard se fit plus déterminé encore et il libéra, pour la première fois, le démon dispersé qu'il marquait depuis un siècle!
 
-Wang Lin n'avait pas encore totalement solidifié l'empreinte sur ce démon dispersé, il ne l'avait donc pas raffiné en son second esprit originel. Après sa libération, une âme démoniaque noire à corne unique jaillit du front de Wang Lin. Elle sortit en riant, un rire empreint d'énergie démoniaque. Ses yeux étaient emplis de confusion alors qu'elle tentait de dévorer l'énergie d'épée de Ling Tianhou.
+Wang Lin n'avait pas encore totalement solidifié l'empreinte sur ce démon dispersé, il ne l'avait donc pas raffiné en son second esprit originel. Après sa libération, une âme démoniaque noire à corne unique jaillit du front de Wang Lin. Elle sortit en riant, un rire empreint d'énergie démoniaque. Ses yeux étaient emplis de confusion alors qu'elle tentait de dévorer le Sens Divin de Ling Tianhou.
 
 Au moment où l'âme démoniaque apparut, une énergie démoniaque jamais vue par Wang Lin jaillit sans fin de l'armure. Cette énergie fut absorbée par le démon, faisant aussitôt prendre un aspect corporel à son corps.
 

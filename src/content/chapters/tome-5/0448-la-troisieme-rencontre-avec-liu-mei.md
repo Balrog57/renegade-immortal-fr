@@ -26,7 +26,7 @@ Le regard de Wang Lin se glaça. Il fixa Liu Mei avec froideur et effleura son s
 
 Une entaille capable de briser les cieux!
 
-Le coup porté, imprégné d'énergie spirituelle céleste, traversa la vallée telle une météorite.
+Le coup porté, imprégné d'énergie spirituelle céleste, traversa la vallée telle une météorite, en soulevant une puissante onde d'air.
 
 L'expression de Liu Mei resta sereine. Elle pointa l'air devant elle et la silhouette d'un paon se matérialisa. À cet instant précis, l'énergie de l'épée atteignit sa cible.
 
@@ -104,9 +104,9 @@ Bien que le paon fût toujours magnifique, ses couleurs s'étaient ternies. Le v
 
 Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume. Il ne voulait plus perdre de temps; il comptait tuer cette femme avec ce drapeau d'âme pour entrer dans la section intérieure du Tombeau de Suzaku.
 
-À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa la drapeau d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian vous remette réellement la Drapeau d'Âme du Milliard d'Âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
+À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa le drapeau d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian te remette réellement le drapeau d'âme du milliard d'âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
 
-« J'ai été la deuxième personne à entrer dans le Tombeau de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser la drapeau d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
+« J'ai été la deuxième personne à entrer dans le Tombeau de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser le drapeau d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
 
 Wang Lin la fixa d'un regard glacial. Situ Nan lui avait déjà expliqué la nature de cet autel. Il avait été créé par la première génération de Suzaku dans le but de téléporter les gens. Une fois que le Cristal de Planète de Culture s'ouvrirait, l'autel serait enveloppé par le pouvoir mystérieux du cristal et acquerrait des capacités supplémentaires.
 
@@ -116,7 +116,7 @@ Wang Lin demanda d'un ton solennel: « Quel est ton but? »
 
 Liu Mei le regarda et esquissa un sourire fugace. « Je n'ai aucun but; je veux simplement livrer une bataille de domaines avec toi. »
 
-Tandis que Wang Lin la fixait, sa main droite se crispa et la Drapeau d'Âme du Milliard d'Âmes disparut. Sa main gauche forma un sceau qu'il plaça entre ses sourcils. Le ciel s'obscurcit et une faille s'ouvrit, comme si une immense main invisible l'avait déchiré. Des vagues de gaz gris s'échappèrent de la brèche. À mesure que ce gaz se densifiait, un parchemin gigantesque émergea des nuées grises pour recouvrir le firmament.
+Tandis que Wang Lin la fixait, sa main droite se crispa et le drapeau d'âme du milliard d'âmes disparut. Sa main gauche forma un sceau qu'il plaça entre ses sourcils. Le ciel s'obscurcit et une faille s'ouvrit, comme si une immense main invisible l'avait déchiré. Des vagues de gaz gris s'échappèrent de la brèche. À mesure que ce gaz se densifiait, un parchemin gigantesque émergea des nuées grises pour recouvrir le firmament.
 
 Dès son apparition, le parchemin libéra une puissance mystérieuse qui enveloppa toute la zone.
 

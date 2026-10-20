@@ -36,7 +36,7 @@ Le seul moyen de le prouver était le suivant: si, en partant, toute votre cultu
 
 Tandis que Wang Lin traversait la Rivière Invoquée, son Sens Divin revint de sa tête. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
 
-D'un revers de main, il ajouta une nouvelle tête aux dizaines de milliers qui le suivaient. C'était la première tête de cultivateur de la troisième étape, mais ce ne serait certainement pas la dernière.
+D'un revers de main, il ajouta une nouvelle tête aux dizaines de milliers qui le suivaient. C'était la première tête de cultivateur de la troisième étape parmi les près de 10 000 cultivateurs du Royaume Extérieur, mais ce ne serait certainement pas la dernière.
 
 Il n'y avait plus aucun cultivateur de la troisième étape dans la Rivière Invoquée; même s'il y en avait eu, ils n'auraient fait qu'ajouter des âmes aux morts. Wang Lin se déplaça comme un éclair, balayant la Rivière Invoquée.
 
@@ -58,7 +58,7 @@ Il ferma les yeux. Après un instant de sensation, il les rouvrit, révélant un
 
 « 50 000 têtes suffisent pour former la formation de la Vie et de la Mort! » Tandis que Wang Lin traversait la Mer des Nuages, plus de la moitié des continents flottants d'autrefois avaient été déchirés et effondrés.
 
-Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer des Nuages étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur; la quasi-totalité avait péri.
+Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer des Nuages étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur; tous avaient péri.
 
 Toute la Mer des Nuages était devenue le territoire du Royaume Extérieur!
 

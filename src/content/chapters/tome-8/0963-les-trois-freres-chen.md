@@ -20,7 +20,7 @@ Pendant ces centaines d'années, la Secte du Destin Céleste est restée calme; 
 
 « Rien de suspect... » Wang Lin fronça les sourcils, mais ce léger pressentiment le tourmentait. Son expression resta toutefois neutre tandis qu'il suivait la conversation de Bai Wei.
 
-« Après votre départ, Maître a passé la majeure partie de son temps en culture en porte fermée et est rarement sorti... »
+« Après votre départ, Maître a passé la majeure partie de son temps en culture en porte fermée et est rarement sorti, se tenant à l'écart des affaires du monde... »
 
 Souriant, Bai Wei racontait à Wang Lin chaque incident survenu à la Secte du Destin Céleste. Au début, Wang Lin écoutait avec attention, mais il finit par froncer les sourcils. Rien de ce que Bai Wei narrait n'était important; il ne s'agissait que de banalités insignifiantes.
 
@@ -28,7 +28,7 @@ Bai Wei reprit avec un sourire: « Il y a aussi la Cité aux Yeux Fantômes. Cet
 
 Wang Lin réfléchit un instant et laissa Bai Wei parler tout en ouvrant la voie, mais son esprit était ailleurs.
 
-Après une demi-heure, Wang Lin demanda soudain: « Junior Sœur Bai, quelle méthode de culture pratiquez-vous? »
+Après une demi-heure, Wang Lin demanda soudain: « Junior Frère Bai, quelle méthode de culture pratiquez-vous? »
 
 Bai Wei sursauta et son expression changea brusquement. Elle s'arrêta et recula de quelques pas, fixant Wang Lin d'un regard altéré: « Le frère Wang me méprise-t-il? Si je vous ennuie, alors je partirai et ne vous dérangerai plus jamais! »
 

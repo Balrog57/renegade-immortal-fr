@@ -44,11 +44,11 @@ Le jeune homme se leva brusquement. Il s'était levé trop vite et le vertige le
 
 La porte s'ouvrit dans un grincement et le serveur entra avec la bouilloire. Après avoir rempli le bassin d'eau chaude, il tourna un regard souriant vers le jeune homme.
 
-« Cela fait trois ans que je travaille ici, et je n'ai jamais vu personne s'enivrer avec notre vin de riz après seulement deux coupes. Hier soir, peu importe mes efforts, vous ne vous réveilliez pas; j'ai dû vous monter ici pour vous reposer. Le petit frère n'est pas doué pour l'alcool, il va falloir s'entraîner. J'ai entendu dire que tous les officiels de la capitale peuvent boire mille coupes sans tomber. »
+« Cela fait trois ans que je travaille ici, et je n'ai jamais vu personne s'enivrer avec notre vin de riz après seulement deux coupes. Hier soir, peu importe mes efforts, vous ne vous réveilliez pas; je vous ai porté jusqu'ici pour que vous vous reposiez. Le petit frère n'est pas doué pour l'alcool, il va falloir s'entraîner. J'ai entendu dire que tous les officiels de la capitale peuvent boire mille coupes sans tomber. »
 
 Le visage du jeune homme devint légèrement rouge et ses yeux se remplirent de gratitude. Il se leva et joignit les mains en signe de respect. « Merci, mon frère, pour votre sollicitude. Je ne sais pas ce qui m'est arrivé non plus. La première coupe allait bien, mais dès que la seconde a atteint mon estomac, je me suis effondré, ivre mort. »
 
-Le serveur esquissa un sourire et, en repartant avec sa bouilloire, afficha une expression malicieuse. Il regarda le jeune homme et dit: « Vous venez ici pour passer les examens officiels, n'est-ce pas? Hier soir, dans votre ivresse, vous disiez avoir fait un rêve où vous deveniez un immortel. Haha, vos paroles étaient très intéressantes. Si vous avez le temps, revenez m'en parler, c'était très amusant. »
+Le serveur esquissa un sourire et, en repartant avec sa bouilloire, afficha une expression malicieuse. Il regarda le jeune homme et dit: « Vous allez passer les examens officiels au chef-lieu, n'est-ce pas? Hier soir, dans votre ivresse, vous disiez avoir fait un rêve où vous deveniez un immortel. Haha, vos paroles étaient très intéressantes. Si vous avez le temps, revenez m'en parler, c'était très amusant. »
 
 Sur ces mots, le serveur sortit avec un sourire bienveillant. Le visage du jeune homme s'empourpra et il secoua la tête d'un air amer. Une fois le serveur parti, il se lava le visage à l'eau chaude pour dissiper les derniers effets de l'ivresse de la nuit passée.
 

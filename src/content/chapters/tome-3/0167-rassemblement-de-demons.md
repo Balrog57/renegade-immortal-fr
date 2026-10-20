@@ -14,11 +14,11 @@ Cependant, s'ils cherchaient à forcer le passage à travers les Étoiles Brisé
 
 La légende racontait que cet endroit existait avant même que les eaux de la Mer des Démons ne se transforment en brume. Au fil des éons, de nombreux cultivateurs tentèrent d'y pénétrer, mais furent contraints d'abandonner. Quant aux rares qui réussirent à traverser la zone des étoiles brisées, ils ne revinrent jamais.
 
-Même les pays de culture de rang 5 peinaient à y envoyer des hommes en raison du chaos régnant dans la zone. De plus, personne ne savait exactement ce qui s'y cachait; déployer de tels efforts pour n'y trouver que le néant n'en valait absolument pas la peine.
+Même les pays de culture de rang 5 peinaient à y envoyer des hommes en raison de l'enchevêtrement des forces en présence dans la zone. De plus, personne ne savait exactement ce qui s'y cachait; déployer de tels efforts pour n'y trouver que le néant n'en valait absolument pas la peine.
 
 Au fil du temps, de moins en moins de cultivateurs ambitionnèrent d'y pénétrer.
 
-Cependant, cette situation changea il y a dix mille ans. Un puissant cultivateur issu de l'unique pays de culture de rang 6 de Suzaku arriva sur les lieux. Il avait défié d'innombrables experts sans que nul ne puisse l'égaler. Finalement, il s'enfonça dans les Étoiles Brisées du Chaos, et on ne retrouva plus jamais trace de lui.
+Cependant, cette situation changea il y a dix mille ans. Un puissant cultivateur issu de l'unique pays de culture de rang 6 de Suzaku arriva seul sur les lieux. Il avait défié d'innombrables experts sans que nul ne puisse l'égaler. Finalement, il s'enfonça dans les Étoiles Brisées du Chaos, et on ne retrouva plus jamais trace de lui.
 
 Dix ans plus tard, Suzaku envoya d'innombrables experts dans la Mer des Démons pour sceller les Étoiles Brisées du Chaos. Ils décrétèrent que quiconque oserait y pénétrer serait exécuté sans merci.
 
@@ -84,7 +84,7 @@ L'Empereur Antique jeta un dernier regard sur Wang Lin avant de se détourner. I
 
 Le visage de Wang Lin était sombre. Cet Empereur Antique était manifestement un fou: capable de parler avec une courtoisie feinte pour mieux attaquer l'instant d'après, révélant sa nature la plus abjecte.
 
-Duanmu Ji se rapprocha de Wang Lin et lui envoya une transmission vocale: « Il s'appelle Gu Lan, mais nous l'appelons tous l'Empereur Antique. Sa culture est si puissante que je n'ai aucune confiance en mes capacités pour l'affronter. Il feint la rectitude, mais il est d'une cruauté sans limite. Il a massacré d'innombrables êtres; c'est un pur dément. C'est un démon de grande renommée dans la Mer des Démons. »
+Duanmu Ji se rapprocha de Wang Lin et lui envoya une transmission vocale: « Il s'appelle Gu Lan, mais nous l'appelons tous l'Empereur Antique. Sa culture est si puissante que je ne suis pas certain de pouvoir l'emporter contre lui. Il feint la rectitude, mais il est d'une cruauté sans limite. Il a massacré d'innombrables êtres; c'est un pur dément. C'est un démon de grande renommée dans la Mer des Démons. »
 
 Wang Lin restait morose en observant l'Empereur Antique, puis Wang Qingyue, qui s'amusait à lutter contre son propre avatar en laissant échapper des grognements assoiffés de sang. Il sentit son cœur se serrer.
 

@@ -26,7 +26,7 @@ Finalement, Lian Daofei fut gravement blessé et dévoré par le Dao Céleste, d
 
 « Cette dernière âme ne possède ni essence ni sorts, et même aujourd'hui, personne ne sait où elle se trouve. Elle peut être un cultivateur, un mortel ou une bête féroce... À travers d'innombrables cycles de réincarnation, il se peut qu'elle ait elle-même oublié qui elle était, son souvenir demeurant encore en sommeil.
 
-« L'âme qui a hérité de tous les sorts est le Daoïste aux Sept Couleurs à l'extérieur. Il est le plus puissant, et il a contraint plusieurs concubines à travailler pour lui. Il a même pris le jeune serviteur de Lian Daofei pour le placer sous ses ordres avant de s'établir dans le Royaume Extérieur. Il cherche la troisième âme depuis toutes ces années...
+« L'âme qui a hérité de tous les sorts est le Daoïste aux Sept Couleurs à l'extérieur. Il est le plus puissant, et il a contraint plusieurs concubines à lui obéir. Il a même pris le jeune serviteur de Lian Daofei pour le placer sous ses ordres avant de s'établir dans le Royaume Extérieur. Il cherche la troisième âme depuis toutes ces années...
 
 « Il acquiert progressivement sa propre volonté. Une fois qu'il aura trouvé la troisième âme et l'aura dévorée, puis qu'il dévorera la deuxième âme qui détient les essences, il deviendra le nouveau Sept Couleurs!
 
@@ -106,7 +106,7 @@ Wang Lin resta plongé dans ses pensées un long moment, levant les yeux vers la
 
 « Sept Couleurs était ainsi autrefois; je l'ai aidé à capturer de nombreuses cultivatrices. Outre ma petite sœur, je l'ai aidé à trouver la plupart de ses huit concubines...
 
-« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de culture augmenteront. Grâce au trésor que vous avez obtenu de ce fragment du Domaine Divin Immémorial, nous pourrons régner sans entrave sur le Continent Astral Immortel. C'est bien mieux que d'être coincé dans un simple monde caverneux! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
+« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de culture augmenteront. Grâce au trésor que vous avez obtenu de ce fragment du Domaine Divin Immémorial, nous pourrons vivre libres et sans entrave sur le Continent Astral Immortel. C'est bien mieux que d'être coincé dans un simple monde caverneux! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
 
 Wang Lin calma son cœur et regarda la femme. Pour une raison quelconque, il songea à une expérience passée.
 

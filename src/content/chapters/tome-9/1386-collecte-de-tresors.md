@@ -16,11 +16,11 @@ Les yeux de Wang Lin s'illuminèrent. Il était impossible pour Cupidité de fra
 
 La vitesse de Cupidité était également extrêmement rapide, ce qui surprit même Wang Lin. En un clin d'œil, il s'était déjà échappé de la planète, n'ayant même pas eu le temps de ranger ses trésors.
 
-Le gigantesque arbre formé par la forêt restait là, immobile. Après avoir perdu le contrôle de Cupidité, il ne possédait plus aucun pouvoir destructeur.
+Le gigantesque homme-arbre formé par la forêt restait là, immobile. Après avoir perdu le contrôle de Cupidité, il ne possédait plus aucun pouvoir destructeur.
 
 À côté du géant végétal se trouvait également un immense fourneau. Il dégageait une aura antique; on pouvait ressentir sa puissance terrifiante sans même s'en approcher.
 
-De l'autre côté se trouvait aussi une lance faite de brume. Elle n'avait pas encore complètement pris forme, oscillant entre la lance et la brume. Elle changeait d'état au moins cent fois en un seul souffle.
+De l'autre côté se trouvait aussi une lance faite de brume noire. Elle n'avait pas encore complètement pris forme, oscillant entre la lance et la brume. Elle changeait d'état au moins cent fois en un seul souffle.
 
 Il restait également neuf tablettes de pierre géantes qui semblaient former une formation. Elles émanaient une lumière fantomatique et constituaient une puissante protection. Il y avait aussi 99 épées volantes qui tourbillonnaient dans la zone. Les hurlements de leur énergie d'épée donnaient l'impression que d'innombrables dragons circulaient dans les airs.
 
@@ -40,7 +40,7 @@ Il craignait que s'il était trop lent, tous ses trésors ne soient repris un pa
 
 Tout cela se passa en un instant. Une fois son évasion entamée, il retrouva soudainement ses esprits. Il s'arrêta, l'expression empreinte d'incertitude.
 
-« Ce vieil homme est désormais plusieurs fois plus fort qu'auparavant. Mes trésors sont également plus puissants, et je peux affronter des cultivateurs du Fléau Céleste! Ce Wang Lin n'est qu'un cadet, alors pourquoi ai-je fui?! » Cupidité serra les dents en se remémorant ce qui venait de se passer. La colère monta dans son cœur. Il n'était pas en colère contre Wang Lin, mais contre lui-même!
+« Ce vieil homme est désormais incomparablement plus fort qu'auparavant. Mes trésors sont également plus puissants, et je peux affronter des cultivateurs du Fléau Céleste! Ce Wang Lin n'est qu'un Junior, alors pourquoi ai-je fui?! » Cupidité serra les dents en se remémorant ce qui venait de se passer. La colère monta dans son cœur. Il n'était pas en colère contre Wang Lin, mais contre lui-même!
 
 « Ce vieil homme ne fuira plus, je vais tuer Wang Lin et me venger! » Une intention meurtrière apparut dans les yeux de Cupidité et il fit demi-tour, prêt à repartir.
 
@@ -90,7 +90,7 @@ Une lueur de joie brilla dans les yeux de Wang Lin; il ne s'attendait pas à ce 
 
 Il faut dire qu'il n'y avait personne pour contrôler les trésors. Si quelqu'un les dirigeait, leur puissance augmenterait!
 
-« La plupart de mes trésors proviennent de Cupidité. Ce dernier est extrêmement chanceux et béni par le ciel. Ses trésors sont suffisants pour stupéfier la plupart des cultivateurs! » Wang Lin cracha un flot d'énergie originelle qui enveloppa l'arbre. Puis, d'un revers de manche, il rangea l'arbre dans son espace de stockage.
+« La plupart de mes trésors proviennent de Cupidité. Ce dernier est extrêmement chanceux et béni par le ciel. Ses trésors sont suffisants pour stupéfier tous les cultivateurs! » Wang Lin cracha un flot d'énergie originelle qui se transforma en un immense filet de lumière et enveloppa l'arbre. Puis, d'un revers de manche, il rangea l'arbre dans son espace de stockage.
 
 Après cela, il considéra les mille cultivateurs, choqués et terrifiés par ses actes. Il laissa échapper un reniflement froid et leva sa main droite, révélant un jeton de jade.
 

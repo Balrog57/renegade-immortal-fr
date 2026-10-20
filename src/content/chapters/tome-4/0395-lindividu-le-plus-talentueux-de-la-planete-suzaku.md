@@ -96,7 +96,7 @@ Une sphère de lumière pourpre et dorée s'échappa de son front.
 
 « Un fragment d'âme de Transformation de l'Âme! » Les yeux de Wang Lin devinrent sérieux alors qu'il tendait la main. Il saisit immédiatement le fragment, le scella et le rangea dans son sac.
 
-Li Yuanfeng, un pilier d'une génération entière, venait de s'éteindre ainsi!
+Li Yuanfeng, redoutable héros de son temps, venait de s'éteindre ainsi!
 
 Wang Lin réfléchit un instant avant de ramasser les deux bras encore prisonniers des cloches, puis il s'envola vers le ciel.
 

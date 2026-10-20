@@ -72,7 +72,7 @@ D'un seul mot, le corps de Yun Shan se figea un instant. Profitant de cet arrêt
 
 À chaque pointage, un grondement tonnerre retentissait. Le corps de Yun Shan trembla, encerclé par une mer de flammes. Il cracha alors un flot de sang et une force impétueuse projeta son corps en arrière.
 
-Si cela s'était arrêté là, le véritable sortilège de Wang Lin n'aurait pas été révélé. Bien qu'il se soit figé, la main droite de Wang Lin s'avança sans merci!
+Si cela s'était arrêté là, le véritable sortilège de Wang Lin n'aurait pas été révélé. Bien qu'il se soit figé, la main droite de Wang Lin saisit le vide sans merci!
 
 Soudain, un feu infini jaillit du vide et remplit le ciel, donnant l'impression que le monde était devenu une dimension de flammes.
 
@@ -82,13 +82,13 @@ Le visage de Yun Shan était livide lorsqu'il atterrit sur la plateforme à 10 0
 
 Il recula une fois de plus, ne s'arrêtant que lorsqu'il eut parcouru mille pieds supplémentaires. Il cracha une nouvelle bouchée de sang qui s'écrasa au sol. Le spectacle était saisissant!
 
-« Merci, Compagnon Cultivateur, pour votre retenue », dit Yun Shan après un instant de réflexion, en joignant les mains devant Wang Lin avant de partir.
+« Merci, Compagnon Cultivateur, pour votre retenue », dit Yun Shan après un instant de réflexion, en joignant les mains devant Wang Lin avant de partir en chancelant.
 
 L'environnement plongea dans un silence de mort. L'expression de Wang Lin restait calme, comme si ce combat n'avait eu aucune importance. Il avait effectivement retenu ses coups, sans quoi la dernière attaque aurait pulvérisé le corps de son adversaire.
 
 Cependant, le coût de cette attaque était immense. Wang Lin s'était forcé à utiliser toute sa puissance, aggravant ainsi ses blessures. Mais les observateurs ne pouvaient absolument pas s'en rendre compte.
 
-Les cultivateurs environnants se levèrent tous pour fixer Wang Lin après la défaite de Yun Shan, leurs yeux empreints d'un immense respect.
+Les cultivateurs environnants se levèrent tous pour fixer Wang Lin après la défaite de Yun Shan, leurs yeux empreints d'une immense crainte respectueuse.
 
 Les anciens de la Secte Éternelle étaient terrifiés. Bien qu'ils aient entendu parler de la force de Wang Lin, ce n'étaient que des rumeurs. Même s'ils y croyaient, rien ne les avait préparés à un tel choc visuel.
 
@@ -98,11 +98,11 @@ Mais ceci était totalement différent!
 
 Le niveau de culture de Yun Shan n'était guère inférieur au leur. Ils ressentirent une amertume cuisante en réalisant que s'ils avaient été à la place de Yun Shan... ils auraient tout de même perdu!
 
-Plus important encore, Lu Zihao restait d'un calme olympien, comme si rien de tout cela n'était un exploit. Cela fit vaciller leurs cœurs.
+Plus important encore, Lu Zihao restait d'un calme olympien, comme s'il n'avait pas utilisé toute sa puissance. Cela fit vaciller leurs cœurs.
 
 Feng Hai réfléchit silencieusement en observant Wang Lin, et ses yeux s'illuminèrent.
 
-L'ancien qui cultivait le feu regarda Wang Lin avec une pointe de crainte. Lui qui avait ressenti l'événement le plus profondément savait qu'à cet instant ultime, si Wang Lin l'avait voulu, son propre feu aurait quitté son corps pour servir le maître de la flamme! Il avait combattu de nombreux adversaires, mais c'était la première fois qu'il rencontrait une telle puissance.
+L'ancien qui cultivait le feu regarda Wang Lin avec une pointe de crainte. Lui qui avait ressenti l'événement le plus profondément savait qu'à cet instant ultime, si Wang Lin l'avait voulu, son propre feu aurait quitté son corps pour servir le maître de la flamme! Il avait combattu de nombreux adversaires, mais c'était la première fois qu'il rencontrait un phénomène aussi étrange.
 
 Le regard de Wang Lin était serein alors qu'il scrutait le ciel et déclara lentement: « Aujourd'hui, je veux combattre. Qui m'accompagnera? »
 

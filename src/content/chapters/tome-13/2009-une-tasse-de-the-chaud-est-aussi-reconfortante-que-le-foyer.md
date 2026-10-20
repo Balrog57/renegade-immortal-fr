@@ -40,7 +40,7 @@ Wang Lin s'assit sur le côté et saisit sa propre tasse. Il en prit une gorgée
 
 « Elle a la chaleur du foyer », répondit Wang Lin en ouvrant les yeux et en souriant à son tour.
 
-En entendant cela, le jeune homme aux vêtements verts éclata de rire. Il avait attendu ici l'arrivée de son disciple, préparant même une théière fumante. C'était sa façon de dire à Wang Lin que, désormais, cet endroit était sa maison! Car ce thé pouvait réchauffer les corps et insuffler un sentiment de chaleur.
+En entendant cela, le jeune homme aux vêtements verts éclata de rire. Il avait attendu ici l'arrivée de son disciple, préparant même une théière fumante. C'était sa façon de dire à Wang Lin que, désormais, cet endroit était la maison de Wang Lin! Car ce thé pouvait réchauffer les corps et insuffler un sentiment de chaleur.
 
 Les deux ne s'étaient pas vus depuis des centaines d'années, mais à cet instant, aucune barrière ne subsistait entre eux. Le jeune homme regarda Wang Lin, et plus il le contemplait, plus il se sentait satisfait.
 
@@ -84,19 +84,19 @@ Wang Lin dit calmement: « Merci, Maître. »
 
 Xuan Luo sourit et s'apprêtait à poursuivre son discours, mais il fronça soudainement les sourcils en levant les yeux vers le ciel. Wang Lin remarqua également ce changement et scruta la voûte céleste. Quant aux neuf subordonnés, ils ne ressentirent que les secousses dans l'atmosphère et levèrent les yeux.
 
-Un instant plus tard, de vastes ondulations apparurent dans le ciel et s'étendirent. Une lumière pourpre vacilla, laissant place à une épaisse brume violette. Puis un rugissement retentit et deux mains gigantesques émergèrent de la brume. Un homme colossal, haut de plusieurs milliers de pieds, en sortit.
+Un instant plus tard, de vastes ondulations apparurent dans le ciel et s'étendirent. Une lumière pourpre vacilla, laissant place à une épaisse brume violette. Puis un rugissement retentit et deux mains gigantesques émergèrent de la brume. Un homme colossal, haut de plusieurs centaines de pieds, en sortit.
 
-Derrière lui suivirent quelques anciens démons de taille titanesque. Peu après, près de cent personnes émergèrent de la brume pourpre. Aucun d'entre eux n'avait une culture faible. Si peu possédaient la puissance d'un Exalté Empyréen, presque tous étaient comparables à des Exaltés Dorés. On y trouvait des dieux anciens, des démons anciens et des diables anciens.
+Derrière lui suivit un ancien démon de taille titanesque. Peu après, près de cent personnes émergèrent de la brume pourpre. Aucun d'entre eux n'avait une culture faible. Si peu possédaient la puissance d'un Exalté Empyréen, presque tous étaient comparables à des Exaltés Dorés. On y trouvait des dieux anciens, des démons anciens et des diables anciens.
 
 Une fois apparus, ils se tinrent en rangs serrés dans le ciel et s'agenouillèrent face à la brume violette.
 
-« Bienvenue, Empereur Ancestral! » Un cri semblable à un rugissement résonna à travers le monde.
+« Bienvenue, Empereur Antique! » Un cri semblable à un rugissement résonna à travers le monde.
 
 Alors que les voix s'élevaient, la brume pourpre tourbillonna violemment et une personne en sortit. Vêtu d'une robe royale et coiffé d'une couronne, il dégageait une pression écrasante sans même paraître en colère. Derrière lui marchaient deux vieillards au dos voûté.
 
 Le regard de Wang Lin balaya les deux vieillards, ses pupilles brillant d'une lueur imperceptible. Ces deux êtres possédaient des auras non inférieures à celles d'Ascendant Empyréens!
 
-« Bienvenue, Empereur Ancestral! » Les neuf subordonnés de Xuan Luo devinrent instantanément respectueux face à la brume pourpre. Dès que l'homme en robe royale apparut, leurs visages s'animèrent d'excitation et ils tombèrent immédiatement à genoux. Seuls Xuan Luo et Wang Lin restèrent debout, observant la scène avec calme.
+« Bienvenue, Empereur Antique! » Les neuf subordonnés de Xuan Luo devinrent instantanément respectueux face à la brume pourpre. Dès que l'homme en robe royale apparut, leurs visages s'animèrent d'excitation et ils tombèrent immédiatement à genoux. Seuls Xuan Luo et Wang Lin restèrent debout, observant la scène avec calme.
 
 « Ye Dao salue le Seigneur Xuan. » L'homme en robe royale sourit, et son aura imposante se mua en une brise printanière. Quiconque le voyait ressentait un sentiment de familiarité.
 
@@ -114,7 +114,7 @@ L'expression de Xuan Luo resta inchangée lorsqu'il demanda lentement: « Pourqu
 
 L'expression de Wang Lin resta impassible, mais son cœur rata un battement. C'était la première fois qu'il apprenait que chaque génération d'empereurs était choisie par le Grand Empyréen!
 
-« La famille impériale et les Grands Empyréens coexistent depuis l'Antiquité... C'est sans doute pour cela! Pas étonnant que le Prince Ji Du ait sollicité mon aide. Ma puissance de combat est la première sous les Grands Empyréens. Mon soutien pourrait lui permettre d'obtenir les faveurs du Grand Empyréen. »
+« La famille impériale et les Grands Empyréens coexistent depuis l'Antiquité... C'est sans doute pour cela! Pas étonnant que le Prince Ji Du ait sollicité mon aide. Ma puissance de combat est la première sous les Grands Empyréens. Mon soutien pourrait lui permettre d'obtenir les faveurs du Grand Empyréen de la lignée Shi Antique. »
 
 Alors que Wang Lin méditait, un rugissement s'éleva du vieil homme aux côtés de l'empereur.
 

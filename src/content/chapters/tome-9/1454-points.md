@@ -28,7 +28,7 @@ Les bêtes moustiques sombres descendirent. Elles n'étaient pas lentes, c'est s
 
 La tempête dans le ciel gronda violemment et, alors que Wang Lin la fixait d'un regard glacial, un fracas tonitruant retentit. C'était comme si une paire de mains géantes et invisibles avait saisi la tempête pour la déchirer. Le tumulte s'effondra et deux silhouettes se retirèrent brusquement l'une de l'autre!
 
-L'individu qui recula vers la droite était Grande Désolation. Une lueur de froideur traversa ses yeux tandis qu'il riait: « Bien, il est digne d'être le descendant de ce vieil oiseau. Tu as même osé capturer la servante de l'un des cinq maîtres devant lui. Ce courage, cette détermination... tu es un talent remarquable! »
+L'individu qui recula vers la droite était Grande Désolation. Une lueur de froideur traversa ses yeux tandis qu'il riait: « Bien, il est digne d'être le descendant de ce vieil oiseau. Tu as même osé capturer la servante de l'un des cinq maîtres devant lui. Ce courage, cette détermination... tu es un homme d'exception! »
 
 « Je ne t'ai pas donné cette armure de poison pour rien, afin de te protéger! » sourit le vieil homme. Il avait remarqué que Wang Lin n'était pas ordinaire, et si les deux venaient à unir leurs forces...
 
@@ -38,7 +38,7 @@ L'homme sur la gauche était le jeune Maître Dao Miao Yin. Il surplombait Wang 
 
 Dans une pression soudaine, le serpent poussa un cri lugubre et son corps illusoire s'effondra. Il se transforma alors en une pilule de la taille d'une tête qui flotta devant le Maître Dao Miao Yin.
 
-Des effluves parfumées emplirent l'air; une seule bouffée suffisait à accélérer le flux sanguin et à clarifier l'esprit.
+Des effluves parfumées emplirent l'air; une seule bouffée suffisait à accélérer le flux sanguin et à revigorer l'esprit.
 
 « Vieux Poison de Grande Désolation, tu n'es pas mon égal dans cette tombe, et il est inutile de continuer ce combat. Puisque ce seigneur a volé ton esprit Dao, je vais te le rendre! »
 
@@ -50,7 +50,7 @@ Les cinq maîtres étaient extrêmement rusés; ayant tous cultivé pendant des 
 
 « N'est-ce pas cet esprit Dao que tu convoites? Je te le donne! Comparé à la Perle Défiant le Ciel que possède Wang Lin, ceci n'est rien! » Le Maître Dao Miao Yin restait calme, attendant de voir le choix de Grande Désolation.
 
-Wang Lin ricana. S'il avait été à l'extérieur, il aurait immédiatement fui en rencontrant le Maître Dao Miao Yin, tant l'écart entre eux était immense. Cependant, ici, Wang Lin était certain de pouvoir tenir tête. Bien que le Maître Dao Miao Yin fût l'un des cinq maîtres, il ne pouvait manifester ici qu'une culture au début du stade Vide du Nirvana.
+Wang Lin ricana. S'il avait été à l'extérieur, il aurait immédiatement fui en rencontrant le Maître Dao Miao Yin, tant l'écart entre eux était immense. Cependant, ici, Wang Lin était sûr de son jugement. Bien que le Maître Dao Miao Yin fût l'un des cinq maîtres, il ne pouvait manifester ici qu'une culture au début du stade Vide du Nirvana.
 
 Bien que Wang Lin n'eût aucune chance de victoire, le Maître Dao Miao Yin devrait déployer d'immenses efforts pour le tuer.
 
@@ -96,13 +96,13 @@ Le Maître Dao Miao Yin ne prêta aucune attention à Wang Lin. Le bouclier deva
 
 « Quelle plaisanterie. Ce vieil homme ne tient ses promesses que selon les gens! Puisque tu as volé mon trésor une fois, il y aura une deuxième fois, une troisième... comment pourrais-je te laisser faire sans réagir? » Tout en riant, la silhouette de Grande Désolation, revenu sur ses pas, apparut à l'intérieur de l'empreinte de la paume sombre.
 
-« Ce jeune cultivateur est le descendant de ce vieil oiseau. Et ce vieil oiseau est mon seul ami proche, comment pourrais-je l'abandonner? Ton corps m'appartient! » Tandis qu'il parlait, Grande Désolation agita sa main droite. Les cinq ongles de la paume se détachèrent pour devenir cinq lames composées de gaz noir. Extrêmement tranchantes, elles fusèrent vers le Maître Dao Miao Yin.
+« Ce jeune cultivateur est le descendant de ce vieil oiseau. Et ce vieil oiseau est mon seul ami proche, comment pourrais-je l'abandonner? Ton corps, je le prendrai! » Tandis qu'il parlait, Grande Désolation agita sa main droite. Les cinq ongles de la paume se détachèrent pour devenir cinq lames composées de gaz noir. Extrêmement tranchantes, elles fusèrent vers le Maître Dao Miao Yin.
 
 Le Maître Dao Miao Yin recula promptement alors que l'épée de sang apparaissait derrière lui. Il ne se souciait guère de Wang Lin ou de l'épée; il estimait que Wang Lin ne pouvait être qu'une distraction, son véritable ennemi étant le Vieux Poison de Grande Désolation!
 
-Voyant les cinq ongles s'approcher, il concentra toute son attention sur la menace immédiate. Tandis qu'il injectait davantage de puissance dans son bouclier, une brume violette infinie apparut jusqu'à former un océan pourpre.
+Voyant les cinq ongles s'approcher, il concentra la plus grande partie de son attention sur la menace immédiate. Tandis qu'il injectait davantage de puissance dans son bouclier, une brume violette infinie apparut jusqu'à former un océan violet.
 
-« Junior Wang Lin, dégage de mon chemin! Quand j'en aurai le temps, je te tuerai! » Tout en reculant, il agita la main gauche et une illusion surgit de l'océan violet. Cette figure mesurait mille pieds de haut, vêtue d'une armure pourpre. Brandissant un trident, elle s'élança avec des yeux brillants vers Wang Lin et l'épée de sang.
+« Junior Wang Lin, dégage de mon chemin! Quand j'en aurai le temps, je te tuerai! » Tout en reculant, il agita la main gauche et une illusion surgit de l'océan violet. Cette figure mesurait mille pieds de haut, vêtue d'une armure violette. Brandissant un trident, elle s'élança avec des yeux brillants vers Wang Lin et l'épée de sang.
 
 Le Maître Dao Miao Yin n'avait pas assisté au combat entre Wang Lin et le Maître Simo. Pressé de rejoindre la Tombe de l'Ordre Antique, il n'avait même pas cherché à savoir ce qui s'était passé sur la Planète du Grand Empereur.
 
@@ -112,7 +112,7 @@ L'épée de sang hurla et percuta le trident dans un fracas violent. Presque rie
 
 Ce changement soudain fit chanceler l'expression du Maître Dao Miao Yin. Il était trop tard pour esquiver. Les cinq lames de Grande Désolation approchaient inexorablement.
 
-Au moment critique, le Maître Dao Miao Yin poussa un rugissement et agita la main. Des écailles violettes apparurent sur son corps, dégageant une lueur pourpre, et recouvrirent instantanément sa peau.
+Au moment critique, le Maître Dao Miao Yin poussa un rugissement et agita la main. Des écailles violettes apparurent sur son corps, dégageant une lueur violette, et recouvrirent instantanément sa peau.
 
 Les cinq ongles percutèrent le bouclier dans un grondement assourdissant. Le bouclier fut déchiré et les lames atteignirent le corps de Miao Yin.
 
@@ -122,6 +122,6 @@ Un bruit qui ébranla les cieux résonna à travers la terre scellée. Tandis qu
 
 Dans le vacarme des grondements, le Maître Dao Miao Yin cracha du sang. Sa poitrine n'était plus qu'un carnage ensanglanté et saturé de gaz empoisonnés. L'épée de sang avait transpercé son torse avant de revenir vers Wang Lin.
 
-« Essence sonore, essence aquatique, Voie de la Destruction par Ondes Sonores! » Le Maître Dao Miao Yin afficha une expression hideuse en reculant précipitamment. Il devait admettre qu'il avait sous-estimé Wang Lin, et il laissa échapper un rire strident!
+« Essence sonore, essence aquatique, Voie de la Destruction par Ondes Sonores! » Le Maître Dao Miao Yin afficha une expression hideuse en reculant précipitamment. Il devait admettre qu'il avait sous-estimé Wang Lin, et il laissa échapper un cri strident!
 
 Cependant, il ignorait que Wang Lin avait déjà préparé son coup le plus dévastateur!

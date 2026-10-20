@@ -34,7 +34,7 @@ Une trace d'énergie spirituelle céleste imprégnait ce vortex, donnant à Wang
 
 On aurait dit un vortex de mille pieds s'élançant vers les cieux pour s'y connecter! Le tumulte continua tandis que le vortex aspirait Wang Lin; on ne pouvait plus distinguer que sa silhouette.
 
-Alors que le vortex montait, les dix mille gouttes de pluie jaillirent. Elles sifflèrent dans l'air comme si la terre était devenue le ciel. La pluie naissait de la terre pour remonter vers les cieux, avant de mourir à l'horizon!
+Alors que le vortex montait, les dix mille gouttes de pluie jaillirent. Elles sifflèrent dans l'air comme si la terre était devenue le ciel. La pluie naissait de la terre pour remonter vers les cieux, avant de s'éteindre aux confins du ciel!
 
 Une pointe d'intention de tonnerre brillait dans les yeux de Wang Lin, mais il la réprima. Il n'était pas nécessaire de révéler sa véritable culture ici. Le vortex et les dix mille gouttes de pluie s'abattirent directement sur la feuille de lotus.
 
@@ -54,7 +54,7 @@ Alors qu'il reculait, une froideur traversa le regard de la femme en robe bleue.
 
 Elle observa le champ de bataille. L'Alliance se trouvait actuellement dans une position défavorable! Cependant, elle ne paniqua pas, car elle savait que ce n'était pas là la véritable bataille. Ce n'était qu'un prélude!
 
-Levant sa main de jade, elle forma un sceau, pointa le vide et murmura: « À l'aide, Royaume de la Prison des Cadavres! »
+Levant sa main de jade, elle forma un sceau, pointa le vide et murmura: « Invoquez le Royaume de la Prison des Cadavres! »
 
 Sitôt ses mots prononcés, une formation gigantesque de cinquante kilomètres de large apparut silencieusement dans le vide devant elle! Cette formation, suspendue à l'envers, tournait rapidement. Un gaz violet et noir en s'échappait, et soudain, une chaîne pourpre tomba de l'intérieur de la formation.
 

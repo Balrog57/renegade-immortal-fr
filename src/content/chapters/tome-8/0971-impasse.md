@@ -40,7 +40,7 @@ Bien que cela puisse sembler être son propre raisonnement, tout faisait partie 
 
 « Quel est exactement le but de l'Omniscient? Est-ce simplement pour créer une faille dans mon cœur Dao afin d'y ancrer cette ombre selon laquelle il ne se trompe jamais? »
 
-« Je crains que Bai Wei n'ait pensé que son idée soudaine ferait commettre une erreur à l'Omniscient. Il n'avait pas prévu que Maître avait déjà anticipé sa réaction. »
+« Je crains que Bai Wei n'ait pensé que son idée soudaine ferait commettre une erreur à l'Omniscient. Il n'avait pas prévu que Maître avait déjà anticipé cette idée soudaine. »
 
 « Que cet Extrême Yang soit entre mes mains ou qu'il soit rendu à l'Omniscient, un défaut apparaîtra dans mon cœur Dao. L'ombre de son infaillibilité s'y installera quoi que je fasse... Comment puis-je briser ce piège?! » Alors que Wang Lin fixait le dragon de vent qui approchait à toute vitesse, des centaines d'idées traversèrent son esprit.
 
@@ -48,7 +48,7 @@ Bien que cela puisse sembler être son propre raisonnement, tout faisait partie 
 
 « Quoi qu'il arrive, je ne peux pas le rendre à l'Omniscient. Si je le fais, cela signifiera que j'ai perdu cette confrontation, que j'ai totalement échoué. Si je devais le lui rendre, pourquoi l'avoir accepté au départ... Hélas! »
 
-« Pourtant, si je ne l'avais pas accepté, je serais tout de même tombé dans le piège de l'Omniscient. Il semble que tout ait été orchestré pour m'enfermer dans cette impasse! L'Omniscient doit avoir une raison plus profonde derrière tout cela... Peut-être n'est-ce que la première étape de son plan à mon égard... Tout comme le jour de l'Extrême Yang pour Bai Wei, ce n'est qu'un prélude! »
+« Pourtant, si je ne l'avais pas accepté, je serais tout de même tombé dans le piège de l'Omniscient. Il semble que tout ait été orchestré pour m'enfermer dans cette impasse! L'Omniscient doit avoir une raison plus profonde derrière tout cela... Peut-être n'est-ce que la première étape de son plan à mon égard... Tout comme le jour de l'Extrême Yang de la naissance de Bai Wei, ce n'est qu'un prélude! »
 
 « J'ignore quel est le but ultime de l'Omniscient, mais si je veux résister, je dois le faire échouer dans ses calculs une seule fois. Une seule fois, et une faille apparaîtra dans la perfection de l'Omniscient! Ce n'est qu'alors que je pourrai briser ce piège et trouver un moyen de survivre! » Wang Lin leva les yeux vers le ciel alors que le dragon de vent se précipitait sur lui. Le rugissement de la créature résonnait dans ses oreilles.
 

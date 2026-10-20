@@ -14,7 +14,7 @@ L'effort final par l'énergie spirituelle nécessiterait l'aide de la Pilule du 
 
 Ses vêtements se transformèrent également en poussière et disparurent. Seule l'armure intérieure en peau de dragon subsistait, légèrement abîmée, sur son corps.
 
-Wang Lin resta immobile et silencieux, les yeux clos. Après un long moment, il les rouvrit, une lueur bleue émanant de ses pupilles, et ses poings se serrèrent lentement. Bien qu'il n'en fût qu'à la moitié du chemin vers le stade de la Formation du Noyau en termes de culture, sa Méthode de Culture de l'Ascension des Enfers avait atteint son achèvement.
+Wang Lin resta immobile et silencieux, les yeux clos. Après un long moment, il les rouvrit, une lueur bleue émanant de ses pupilles, et ses poings se serrèrent lentement. Bien qu'il n'eût qu'un pied dans le stade de la Formation du Noyau en termes de culture, sa Méthode de Culture de l'Ascension des Enfers avait atteint son achèvement.
 
 Une masse de flammes bleues jaillit de son noyau prototype, suivit les méridiens de son bras droit jusqu'au bout de ses doigts et s'en échappa sans un bruit. À cet instant, une masse de flamme bleue brûlait silencieusement à trois pouces au-dessus de sa paume.
 
@@ -146,7 +146,7 @@ Il pointa l'une d'elles et la lança contre la sphère. Lentement, la pointe de 
 
 Sous son contrôle, les trente-quatre épées restantes furent tour à tour englouties. Finalement, la sphère commença à émettre une lumière arc-en-ciel aveuglante.
 
-Tout le processus, de l'introduction de la Vigne de la Lune Violette jusqu'à cet instant, avait duré deux heures. Durant ce laps de temps, Wang Lin n'avait fait que se concentrer sur le raffinage. Loin de se relâcher, il intensifia son attention en sortant l'épée volante noire de son sac de rangement.
+Tout le processus, de l'introduction de la Vigne de la Lune Violette jusqu'à cet instant, avait duré près de deux heures. Durant ce laps de temps, Wang Lin n'avait fait que se concentrer sur le raffinage. Loin de se relâcher, il intensifia son attention en sortant l'épée volante noire de son sac de rangement.
 
 On pourrait dire que cette épée avait partagé bien des épreuves avec lui: depuis son obtention, quand elle avait tué le maître de Zhang Hu, puis bu le sang de Teng Li, jusqu'à la grande bataille de la Vallée Jue Ming. Lorsque le corps de Wang Lin avait été anéanti et que son sens divin avait été emporté par Situ Nan, la lame de l'épée s'était brisée. Cependant, grâce au raffinage au sang qui la liait à Wang Lin, un fragment de l'esprit de l'épée avait survécu, fusionné dans son sens divin.
 

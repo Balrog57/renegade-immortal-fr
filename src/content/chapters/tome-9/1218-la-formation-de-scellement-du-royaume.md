@@ -10,7 +10,7 @@ slug: la-formation-de-scellement-du-royaume
 
 Les étoiles étaient plongées dans un silence absolu, comme si tout son était englouti par les ténèbres.
 
-Au loin se trouvait une planète abandonnée. Aucune lumière n'atteignait ce monde, enveloppé d'une aura de mort. Elle ressemblait à un vieil homme luttant dans son dernier souffle, l'air qu'il expirait étant cette épaisse aura de mort.
+Au loin se trouvait une planète sauvage. Aucune lumière n'atteignait ce monde, enveloppé d'une aura de mort. Elle ressemblait à un vieil homme luttant dans son dernier souffle, l'air qu'il expirait étant cette épaisse aura de mort.
 
 Un être était assis sur cette planète délaissée.
 
@@ -20,7 +20,7 @@ Son corps était de la taille de plusieurs planètes. Assis sur ce monde, il fix
 
 Cette personne portait les stigmates indélébiles du passage du temps. C'était comme si elle existait depuis que les cieux et la terre avaient été créés. Elle avait survécu si longtemps qu'elle ne se souvenait même plus de l'écoulement des âges.
 
-Son corps majestueux dégageait une aura indescriptible par sa simple présence sur cette planète abandonnée, enveloppant tout le champ stellaire. Toutes les créatures de ce domaine tremblaient de terreur!
+Son corps majestueux dégageait une aura indescriptible par sa simple présence sur cette planète sauvage, enveloppant tout le champ stellaire. Toutes les créatures de ce domaine tremblaient de terreur!
 
 C'était le Système Stellaire de Luotian...
 
@@ -30,11 +30,11 @@ Certaines bêtes sauvages n'osaient même plus bouger face à cette aura. C'éta
 
 Cet être était semblable à un dieu! Huit étoiles ornaient entre ses sourcils, mais seules quatre étaient brillantes; les quatre autres étaient noires, comme desséchées... Pourtant, elles ne s'étaient pas dissipées.
 
-Il était l'existence la plus puissante, le souverain de ce champ stellaire. Après un long moment, la mélancolie fut remplacée par la confusion.
+Il était l'existence la plus puissante, le souverain de ce champ stellaire. Après un long moment, son air sombre fut remplacé par la confusion.
 
-« Le Royaume Céleste de la Pluie ne possède pas son aura... Le Royaume Céleste du Tonnerre ne possède pas son aura... Le Royaume Céleste du Tonnerre ne possède pas cette aura. Où diable se cache-t-il?! » Le géant leva la tête, révélant son expression hideuse, et lâcha un rugissement qui fit trembler les cieux!
+« Le Royaume Céleste de la Pluie ne possède pas son aura... Le Royaume Céleste du Tonnerre ne possède pas son aura... Le Royaume Céleste de l'Éclair ne possède pas cette aura. Où diable se cache-t-il?! » Le géant leva la tête, révélant son expression hideuse, et lâcha un rugissement qui fit trembler les cieux!
 
-Alors qu'il rugissait, de puissantes vibrations se propagèrent à travers les étoiles. La planète abandonnée sous lui commença à s'effondrer, créant une onde de choc qui se propagea rapidement. Un changement vertigineux survint dans l'énergie originelle environnante.
+Alors qu'il rugissait, de puissantes vibrations se propagèrent à travers les étoiles. La planète sauvage sous lui commença à s'effondrer, créant une onde de choc qui se propagea rapidement. Un changement vertigineux survint dans l'énergie originelle environnante.
 
 L'effondrement de la planète ouvrit d'innombrables fissures spatiales d'où s'engouffrait un vent glacial. Cependant, cela n'affecta nullement le géant, qui continua de rugir.
 
@@ -42,7 +42,7 @@ Alors que son cri résonnait à travers Luotian, d'innombrables bêtes sauvages 
 
 Une onde sonore invisible balaya le système stellaire. Chaque fois qu'elle frappait une planète, celle-ci en tremblait violemment.
 
-Un instant plus tard, une fois le rugissement achevé, la planète abandonnée explosa soudainement...
+Un instant plus tard, une fois le rugissement achevé, la planète sauvage explosa soudainement...
 
 Tuo Sen se leva et marcha vers l'horizon...
 

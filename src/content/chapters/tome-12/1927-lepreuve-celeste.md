@@ -8,7 +8,7 @@ slug: lepreuve-celeste
 ---
 Sur le Continent de la Mer Montagneuse du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que des brises marines humides soufflaient vers le rivage.
 
-La Mer Montagneuse occupait plus de 70 % du Continent de la Mer Montagneuse, les 30 % restants étant constitués de terres entourant cette étendue marine.
+La Mer Montagneuse occupait près de 70 % du Continent de la Mer Montagneuse, les 30 % restants étant constitués de terres entourant cette étendue marine.
 
 À cet instant précis, au nord de la Mer Montagneuse, Wang Lin se tenait au sommet d'une montagne, observant calmement l'océan qui s'étendait devant lui.
 
@@ -86,7 +86,7 @@ Wang Lin leva également la tête lorsqu'une silhouette noire s'échappa du sept
 
 « Même le plus puissant des Ascendants, Ming Dao, s'est arrêté au seizième niveau sans pouvoir aller plus loin. »
 
-« La rumeur prétend que si quelqu'un franchit le dix-neuvième niveau, cela signifie qu'il possède une puissance capable de faire vaciller les Grands Empyréens eux-mêmes! »
+« La rumeur prétend que si quelqu'un franchit le dix-neuvième niveau, cela signifie qu'il possède une puissance telle que même les Grands Empyréens ne voudraient pas agir à la légère contre lui! »
 
 Tandis que la lumière dorée brillait, les quelque deux cents Exaltés Empyréens échangeaient frénétiquement des messages par Sens Divin.
 
@@ -108,7 +108,7 @@ Seuls les Exaltés Empyréens qui avaient combattu Wang Lin le regardèrent appr
 
 « Puisque l'Exalté Empyréen aux cheveux blancs se rend au premier palais, ce doit être sa première fois ici. Je me demande combien de niveaux il parviendra à franchir. »
 
-« Cet homme est très étrange. Sa culture est simple, mais sa puissance de combat est stupéfiante. Je ne pourrais pas l'affronter. Voyons jusqu'où il peut aller. »
+« Cet homme est très étrange. Sa culture est ordinaire, mais sa puissance de combat est stupéfiante. Je ne pourrais pas l'affronter. Voyons jusqu'où il peut aller. »
 
 « Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent Sud. On dit que le Grand Empyréen Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
 

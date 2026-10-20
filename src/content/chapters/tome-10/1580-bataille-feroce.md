@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1580 - Fierce Battle!"
 slug: bataille-feroce
 ---
-À l'instant même où l'empreinte de paume dorée apparut, Wang Lin fit un pas en avant. Des ondulations résonnèrent et il surgit soudainement au-dessus de la paume. Il mordit le bout de sa langue et cracha du sang doré dans l'empreinte, intensifiant ainsi son éclat fulgurant.
+À l'instant même où l'empreinte de paume dorée apparut, Wang Lin fit un pas en avant. Des ondulations résonnèrent et il surgit soudainement au-dessus de la paume. Il mordit le bout de sa langue et cracha du sang doré dans l'empreinte, intensifiant ainsi son éclat fulgurant, qui s'éleva sur plusieurs dizaines de milliers de pieds.
 
 « Si vous voulez me tuer, alors vous devrez tous en payer le prix! » Wang Lin poussa un rugissement et son expression devint féroce. Sa main droite pressa vers le bas, faisant descendre l'empreinte de paume dorée. La pression exercée par celle-ci provoqua la formation de tourbillons dans l'eau en contrebas.
 
 Les yeux du vieil homme aux robes grises s'illuminèrent. Au moment où l'Empreinte de l'Esprit de Guerre se rapprochait, il agita la main et une bouteille ronde apparut dans sa paume.
 
-La bouteille était transparente et remplie d'une terre jaune. D'un geste, il fit jaillir la terre; celle-ci s'éleva en une masse de plus en plus dense jusqu'à atteindre près de cent mille pieds de large.
+La bouteille était transparente et remplie d'une terre jaune. D'un geste, il fit jaillir la terre; celle-ci s'éleva en une masse de plus en plus dense jusqu'à atteindre près de dix mille pieds de large.
 
 « Essence terrestre, Enterrement Spirituel! »
 
@@ -66,7 +66,7 @@ Wang Lin devait diviser sa conscience pour surveiller ses environs. Il ne croyai
 
 Le Souverain n'était toujours pas apparu!
 
-Les concubines impériales célestes n'avaient pas encore agi!
+La concubine impériale céleste antique n'avait pas encore agi!
 
 C'était le plus grand danger que Wang Lin ait jamais affronté dans sa vie! C'était une calamité mortelle!
 
@@ -98,7 +98,7 @@ Les yeux de ce dernier s'illuminèrent et il frappa la surface de sa main. Une a
 
 Ce coup était le plus puissant de Ye Mo que Wang Lin puisse porter, au mépris de la force de rejet qui déchirait son corps!
 
-La tête de Ye Mo apparut derrière Wang Lin et des grondements tonitruants retentirent alors que l'homme en blanc était projeté en arrière sur plusieurs milliers de pieds. Il cracha une gorgée de sang.
+La tête de Ye Mo apparut derrière Wang Lin et des grondements tonitruants retentirent alors que l'homme en blanc fut projeté en arrière sur plusieurs centaines de pieds. Il cracha une gorgée de sang.
 
 Du sang doré jaillit du corps de Wang Lin, mais il ne s'arrêta pas. Après avoir repoussé l'homme en blanc, il avança vers le vieil homme aux robes grises. Il leva la main droite et l'éclair de tonnerre doré dans son œil droit scintilla. Le ciel bleu fut envahi d'un tonnerre infini, et des quantités monstrueuses de foudre convergèrent dans la main de Wang Lin alors qu'il s'abattait sur le vieillard!
 

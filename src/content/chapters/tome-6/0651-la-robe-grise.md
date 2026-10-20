@@ -46,7 +46,7 @@ Wang Lin recula, le regard vacillant.
 
 « Je me demande comment se porte la bête-moustique... Et quel est le résultat du combat entre Senior Zhou Yi et Cupidité... Pourtant, même si Zhou Yi a triomphé, il ne saura toujours pas où je me trouve. Après tout, même son Sens Divin d'épée ne peut atteindre cet endroit. »
 
-Il leva les yeux vers la paroi et son corps s'anima alors qu'il tentait d'utiliser le sort d'Évasion Tellurique. Cependant, dès que son corps effleura le mur, il fut stoppé net. Après une brève réflexion, Wang Lin se rassit au sol et frappa son sac de rangement. Il en sortit une bannière d'âme, puis une âme qu'il projeta contre la paroi pour l'observer attentivement.
+Il leva les yeux vers la paroi et son corps s'anima alors qu'il tentait d'utiliser le sort d'Évasion Tellurique. Cependant, dès que son corps effleura le mur, il fut stoppé net. Après une brève réflexion, Wang Lin atterrit au sol et frappa son sac de rangement. Il en sortit un drapeau d'âme, puis une âme qu'il projeta contre la paroi pour l'observer attentivement.
 
 L'âme flotta dans le mur telle une volute de fumée, mais Wang Lin perçut immédiatement un cri de détresse déchirant. C'était comme si l'âme pénétrant à l'intérieur avait été déchiquetée, aussitôt aspirée vers les profondeurs par la violente force de succion.
 

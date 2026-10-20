@@ -12,7 +12,7 @@ Dans ma main gauche se trouve l'éphémère karma de la Mer des Démons, et dans
 
 Li Muwan était tranquillement allongée sur son lit, vêtue d'une robe blanche. Bien que son visage ait vieilli, ses yeux étaient toujours aussi brillants tandis qu'elle fixait l'homme devant elle...
 
-Elle voulait graver l'image de cet homme dans sa mémoire.
+Elle voulait graver l'image de cet homme dans sa mémoire, pour toujours.
 
 Elle ignorait si ce qu'elle ressentait pour lui était le véritable amour, mais elle savait que durant ces cent ans, chaque fois qu'elle jouait de la musique, son image apparaissait dans son esprit.
 
@@ -24,7 +24,7 @@ Les parents de Li Muwan étaient morts lorsqu'elle était très jeune. C'était 
 
 Le cœur de Wang Lin se serra davantage.
 
-La nuit venue, Wang Lin se tenait devant la pièce de pierre, le regard tourné vers Zhao. Son cœur l'appelait.
+La nuit venue, Wang Lin se tenait devant la pièce de pierre, le regard tourné vers Zhao. Au fond de son cœur, il appelait en silence.
 
 À Zhao, dans les profondeurs de la montagne Heng Yue, un homme aux cheveux roux et au visage aussi glacial qu'une glace éternelle ouvrit soudainement les yeux.
 
@@ -44,11 +44,11 @@ Ce jour-là, Ouyang Zi arriva, tenant une pilule d'un rouge éclatant. Une point
 
 Il n'était pas mort, mais il était épuisé.
 
-Tenant la pilule, Wang Lin regarda Li Muwan, qui agonisait sur son lit de mort. Ses cheveux étaient d'un blanc immaculé et son visage, autrefois si jeune et beau, avait été marqué par le passage du temps.
+Tenant la pilule, Wang Lin regarda Li Muwan, qui agonisait sur son lit de mort. Ses cheveux étaient d'un blanc grisonnant et son visage, autrefois si jeune et beau, avait été marqué par le passage du temps.
 
 Au cours de ces dernières années, Wang Lin l'avait vue vieillir lentement, sa beauté s'étiolant peu à peu.
 
-La poussière de sa vie passée et la terre de cette vie se mêlaient à un chagrin infini pour combler la mer de son cœur. Cependant, cette mer était trop profonde, trop vaste. Finalement, elle se mua en deux courants de larmes.
+La poussière de sa vie passée et la terre de cette vie se mêlaient à un chagrin infini pour combler la mer de son cœur. Cependant, cette mer était trop profonde, trop vaste. Finalement, elle se mua en larmes : le monde s'estompa et deux courants de larmes coulèrent.
 
 Il avait emprunté le chemin qui défie les cieux et avait cultivé le domaine de la vie et de la mort. Sa vie fut faite de tourments, et bien que son cœur fût las, il continuait de croire. Pourtant, en cet instant, même si son expression restait immuable, son cœur vieillissait au rythme de la jeune fille devant lui.
 
@@ -76,7 +76,7 @@ Son expression était d'une gravité extrême; il exécuta les sceaux de plus en
 
 Le but de la Pilule de Retour à l'Origine de rang 6 était de permettre à celui qui la consommait d'absorber l'énergie spirituelle bien plus rapidement afin de franchir un goulot d'étranglement. Cependant, le corps de Li Muwan était trop faible. Sa vie étant presque achevée, elle peinait à supporter cela.
 
-Wang Lin s'élança vers le ciel. Il ne regardait pas Li Muwan; au lieu de cela, il leva la tête vers les cieux avec une détermination farouche.
+Wang Lin s'éleva dans les airs. Il ne regardait pas Li Muwan; au lieu de cela, il leva la tête vers les cieux avec une détermination farouche.
 
 Son plus grand ennemi était le firmament, le cycle de la vie et de la mort.
 
@@ -104,7 +104,7 @@ Au moment où elle ferma les yeux, son noyau doré s'estompa immédiatement avan
 
 *Wang Lin, je suis prête à tout abandonner. Même si les étoiles s'effondrent, tant que tu acceptes de m'accompagner, tes yeux seront la lumière la plus vive de mon cœur.*
 
-*Wang Lin, je suis prête à tout abandonner. Même si toutes mes vies passées sont détruites, cela n'éteindra pas mon regret de te quitter.*
+*Wang Lin, je suis prête à tout abandonner. Même si toutes mes vies passées sont détruites, cela n'éteindra pas ma réticence à te quitter.*
 
 *Wang Lin, je suis prête à tout abandonner. Même si ma vie s'achève, même si le temps continue de passer, j'espère que la fleur des souvenirs ne se fanera jamais.*
 
@@ -124,7 +124,7 @@ Cependant, alors que le parchemin de la vie et de la mort de Wang Lin couvrait l
 
 Wang Lin chargea alors et apparut dans les airs. Il tendit la main vers le parchemin et le tira vers lui. Les deux parchemins, le principal et l'auxiliaire, enveloppèrent promptement l'Âme Naissante de Li Muwan.
 
-Une fois le parchemin déployé, une scène étrange se produisit. Des nuages rouges recouvraient le ciel, et deux lueurs terrifiantes apparurent au sein des volutes pourpres. Elles semblaient observer Wang Lin.
+Une fois le parchemin disparu du ciel, une scène étrange se produisit. Des nuages rouges recouvraient le ciel, et deux lueurs terrifiantes apparurent au sein des volutes pourpres. Elles semblaient observer Wang Lin.
 
 Ce regard à la fois inconnu et familier fit trembler le corps de Wang Lin. Pourtant, il continua de fixer le ciel avec obstination. Sous lui, l'Âme Naissante de Li Muwan était protégée par le parchemin.
 

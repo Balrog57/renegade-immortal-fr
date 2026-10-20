@@ -54,7 +54,7 @@ Le Tigre Blanc et ses compagnons ne pouvaient rien voir de tout cela; ils étaie
 
 Même à cet instant, aucun cultivateur du Continent du Démon Vert n'était apparu. C'était étrange, comme le calme précédant la tempête, ce qui leur procurait un sentiment oppressant.
 
-Wang Lin demeurait calme, l'esprit concentré sur les sept couches de restrictions. Plus il progressait, plus il trouvait la restriction profonde. Après les trois premières couches, ces zones de brouillard ténu devenaient difficiles à déceler.
+Wang Lin demeurait calme, l'esprit concentré sur les sept couches de restrictions. Plus il progressait, plus il trouvait la restriction imposante. Après les trois premières couches, ces zones de brouillard ténu devenaient difficiles à déceler.
 
 Mais Wang Lin possédait l'essence de restriction; il ne comptait pas uniquement sur la déduction, mais aussi sur son regard d'essence. Sous son regard, toutes les restrictions du monde semblaient ne plus pouvoir se dissimuler.
 

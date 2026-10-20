@@ -30,7 +30,7 @@ Le visage de l'Exalté Empyréen Hai Zi était livide; elle ouvrit la bouche pou
 
 « Exalté Empyréen Hai Zi, votre identité, outre celle de disciple du Grand Empyréen Jiu Di, doit aussi être liée à la secte de l'Enseignant Impérial. N'est-ce pas le cas?
 
-« De retour à la Mer de Montagnes, la paume brisée n'a pas perdu la raison. Elle a choisi de vous attaquer parce que vous êtes comme moi — ni l'un ni l'autre n'appartient au Continent Astral Immortel. Je viens du monde des cavernes, et vous... vous venez de l'extérieur du Continent Astral Immortel...
+« Dans la Mer de Montagnes d'autrefois, la paume brisée n'a pas perdu la raison. Elle a choisi de vous attaquer parce que vous êtes comme moi — ni l'un ni l'autre n'appartient au Continent Astral Immortel. Je viens du monde des cavernes, et vous... vous venez de l'extérieur du Continent Astral Immortel...
 
 « Ce qui signifie que la secte de l'Enseignant Impérial provient de l'extérieur du Continent Astral Immortel... » dit calmement le Wang Lin aux cheveux noirs, chaque mot rendant le visage de l'Exalté Empyréen Hai Zi encore plus pâle. Elle mordit sa lèvre inférieure et resta silencieuse un long moment avant de lever les yeux vers Wang Lin.
 
@@ -62,7 +62,7 @@ Le Wang Lin aux cheveux noirs déclara calmement: « Dans ce piège, outre la li
 
 C'était la première fois qu'il attaquait un Grand Empyréen!
 
-Pourtant, sa charge ne provoqua aucun mépris chez Jiu Di; elle le rendit au contraire plus sérieux. Il leva la main droite et le monde changea de teinte. Le vent et la neige se condensèrent pour former une immense épée de givre qui balaya Wang Lin.
+Pourtant, sa charge ne provoqua aucun mépris chez Jiu Di; elle le rendit au contraire plus sérieux. Il leva la main droite et le monde changea de teinte. Le vent et la neige se condensèrent pour former une immense épée de neige qui balaya Wang Lin.
 
 « Je représente la destruction et je contrôle le massacre... » Le Wang Lin aux cheveux noirs leva la main et frappa l'épée de neige de son poing au moment de sa chute!
 
@@ -72,7 +72,7 @@ Jiu Di fronça les sourcils. Alors que la masse de gaz noir se rapprochait, il l
 
 La lumière se dispersa pour entrer en collision avec le gaz noir. C'était un affrontement entre les ténèbres et la clarté. La lumière s'estompa et Jiu Di resta immobile, mais ses yeux brillaient d'un éclat monstrueux!
 
-Le gaz noir fut balayé par la lumière avant de se reformer en Wang Lin aux cheveux noirs, debout face à Jiu Di.
+Le gaz noir recouvrit la lumière avant de se reformer en Wang Lin aux cheveux noirs, debout face à Jiu Di.
 
 « Tu ne peux vaincre ce vieil homme! » Le Grand Empyréen Jiu Di regarda Wang Lin. Son visage vieilli montrait des signes de rajeunissement alors que ses yeux étincelaient.
 
@@ -86,17 +86,17 @@ Après lui avoir remis le fragment, Jiu Di lança un regard profond à Wang Lin.
 
 Une fois leur présence disparue, le sceau qui entourait la rue s'évanouit, mais les ruines demeurèrent éternellement.
 
-Au loin, le soleil commença à poindre pour dissiper l'obscurité et draper la terre de lumière.
+Une nuit s'écoula dans la longue rue. Au loin, le soleil commença à poindre pour dissiper l'obscurité et draper la terre de lumière.
 
 Le Wang Lin aux cheveux noirs resta là, levant les yeux vers le ciel. Il resta silencieux et pensif pendant un long moment.
 
-Le temps passa, le soleil monta dans le ciel et sa lumière se propagea comme une onde de choc. La clarté envahit rapidement la ville orientale.
+Le temps passa, le soleil monta dans le ciel et sa lumière se propagea comme une onde. La clarté envahit rapidement la ville orientale.
 
 Lorsque l'onde de lumière atteignit la rue, Wang Lin ne bougea toujours pas. Il observa la lumière qui se rapprochait jusqu'à ce qu'elle l'enveloppe totalement.
 
 Ses cheveux passèrent progressivement du noir au blanc sous le passage de la clarté. La froideur et l'indifférence dans ses yeux se muèrent en fatigue et en désolation.
 
-Wang Lin n'utilisa aucun moyen pour réprimer de force le massacre qui menaçait de s'abattre sur son corps originel, car il comprenait qu'une fois que le massacre se serait manifesté, plus rien ne pourrait être changé.
+Wang Lin n'utilisa aucun moyen pour réprimer de force le massacre qui occupait son corps originel, car il comprenait qu'une fois que le massacre se serait manifesté, plus rien ne pourrait être changé.
 
 « Désormais, sous le soleil, je suis le Wang Lin aux cheveux blancs... Dans l'obscurité, je suis le Massacre aux cheveux noirs... Comme le lever et le coucher du soleil, c'est un cycle immuable. Heureusement, j'ai le pouvoir de mon avatar dans le vide pour le contenir légèrement et rester conscient. »
 

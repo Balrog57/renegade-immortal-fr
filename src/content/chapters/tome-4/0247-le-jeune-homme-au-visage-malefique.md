@@ -34,7 +34,7 @@ Le messager était véritablement terrifié par Wang Lin. Selon ses connaissance
 
 Ayant déjà vu cette technique à deux reprises à Zhao, il était convaincu que Wang Lin pouvait l'utiliser une troisième fois. Face à un tel ennemi, bien que Wang Lin ne fût qu'au stade de l'Âme Naissante, il n'osait pas le provoquer. C'est pourquoi il n'avait pas hésité à utiliser Pu Nanzi comme bouclier pour s'offrir le temps nécessaire à sa fuite.
 
-Wang Lin s'assit en tailleur au sol pour récupérer son énergie spirituelle. Après un long moment, il se leva, agita sa main droite et ramassa la tour composée des têtes des membres de la famille Teng.
+Wang Lin s'assit en tailleur au sol pour récupérer son énergie spirituelle. Après un long moment, il se leva, agita sa main droite, ramassa la tour composée des têtes des membres de la famille Teng et s'éloigna à vive allure.
 
 Dans un village au pied de la montagne Heng Yue, tous les villageois s'effondrèrent dans un sommeil profond après le passage d'un vent étrange.
 
@@ -68,7 +68,7 @@ Wang Lin se redressa en regardant au loin, ses yeux brillant d'une lueur fantast
 
 Wang Lin prit une profonde inspiration. Son corps s'élança et il sauta du précipice. Il atteignit la caverne de pierre où il avait jadis obtenu la Perle Défiant le Ciel, puis disparut soudainement.
 
-Secte Piao Miao. Gao Qiming était assis en tailleur dans sa chambre secrète de retraite, face à un miroir de bronze. Son expression était extrêmement livide. Deux cents ans auparavant, il avait pressenti qu'il allait subir une grande catastrophe. Cependant, ce désastre était si incertain qu'il ne pouvait en obtenir les détails précis avec son seul niveau de culture.
+Secte Piao Miao. Gao Qiming était assis en tailleur dans sa chambre secrète de retraite, face à un miroir de bronze. Son expression était très sombre. Deux cents ans auparavant, il avait pressenti qu'il allait subir une grande catastrophe. Cependant, ce désastre était si incertain qu'il ne pouvait en obtenir les détails précis avec son seul niveau de culture.
 
 Au fil du temps, le sentiment imminent de fin devint plus oppressant. Lorsque les membres de la famille Teng commencèrent à mourir, il fut soudainement capable de calculer sa durée de vie restante: il ne lui restait que dix jours. S'il ne mourait pas dans ce délai, la catastrophe frapperait l'ensemble de la Secte Piao Miao.
 
@@ -98,7 +98,7 @@ Si l'on se contentait d'utiliser une pierre spirituelle pour activer la matrice,
 
 Finalement, au moment même où le jeune homme maléfique atteignait le dispositif, des anneaux de lumière s'élevèrent de la matrice et le corps de Wang Lin disparut.
 
-Le jeune homme poussa un rugissement et forma un sceau de sa main. Au moment où Wang Lin s'effaçait, il chargea dans les anneaux de lumière. Utilisant une technique inconnue, il força la matrice à se réactiver, disparaissant lui aussi parmi les lueurs.
+Le jeune homme poussa un rugissement et forma un sceau de ses deux mains. Au moment où Wang Lin s'effaçait, il chargea dans les anneaux de lumière. Utilisant une technique inconnue, il força la matrice à se réactiver, disparaissant lui aussi parmi les lueurs.
 
 Wang Lin ressentit un péril mortel durant le processus de transfert. Il percevait distinctement un Sens Divin d'une puissance dépassant l'entendement qui s'abattait sur lui tel un tourbillon. La terreur l'envahit. Juste au moment où ce Sens Divin allait le percuter, son Royaume Ji projeta un éclair rouge épais et inédit vers le jeune homme.
 

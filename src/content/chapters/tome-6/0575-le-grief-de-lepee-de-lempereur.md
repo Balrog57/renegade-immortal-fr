@@ -8,7 +8,7 @@ slug: le-grief-de-lepee-de-lempereur
 ---
 Ce dragon argenté fixa Wang Lin avant de laisser échapper un rugissement furieux. Puis, son corps s'élança et sa griffe massive fondit sur lui. Lorsque la griffe descendit du ciel, c'était comme si les cieux eux-mêmes s'effondraient, et une aura surpuissante emplit instantanément la zone.
 
-Wang Lin leva la tête pour contempler le ciel. Il avait éprouvé la puissance du dragon argenté à maintes reprises ces derniers jours. Wang Lin ne bougea pas, mais les 3 792 filaments d'énergie de massacre libérèrent une intention de combat redoutable. À mesure que cette intention se propageait, une aura capable de transpercer le ciel et le monde entier apparut.
+Wang Lin leva la tête pour contempler le ciel. Il avait éprouvé la puissance du dragon argenté à maintes reprises ces derniers jours. Wang Lin ne bougea pas, mais les 3 792 filaments d'énergie de massacre libérèrent une intention meurtrière redoutable. À mesure que cette intention se propageait, une aura capable de transpercer le ciel et le monde entier apparut.
 
 Plus de 3 000 éclats d'énergie de massacre déchaînèrent une intention assassine monstrueuse qui chargea la griffe du dragon argenté tel un glaive acéré!
 
@@ -40,7 +40,7 @@ Sa voix était très faible.
 
 Le dragon argenté fut stupéfait de voir son énergie d'épée mortelle être brusquement stoppée par Wang Lin. Pour lui, c'était un affront suprême!
 
-La colère du dragon argenté atteignit des sommets inédits. Il ne daigna même pas s'occuper de l'homme aux cheveux noirs; son corps s'élança et disparut sans laisser de trace.
+La colère du dragon argenté atteignit des sommets inédits. Il n'eut même pas le temps de s'occuper de l'homme aux cheveux noirs; son corps s'élança et disparut sans laisser de trace.
 
 Simultanément, le pavillon des épées dans le palais impérial était totalement vide. Il n'y avait aucune décoration ici, seulement une immense formation de sang au centre de laquelle était plantée une épée serpentine argentée.
 
@@ -122,7 +122,7 @@ Sa rage redoublait!
 
 C'était une nouvelle insulte!
 
-À l'aube, l'épée de l'Empereur, empreinte d'une frustration immense, laissa échapper un hymne d'épée. Elle se tourna vers la Prison Hong et projeta un rayon d'énergie qui creusa une brèche de plus de mille pieds de long.
+À l'aube, l'épée de l'Empereur, empreinte d'une frustration immense, laissa échapper un hymne d'épée. Elle se tourna vers la Prison Hong et projeta un rayon d'énergie qui creusa une brèche d'environ mille pieds de long.
 
 Après avoir déchargé sa fureur, l'épée de l'Empereur retourna vers sa formation, toujours habitée par la rage.
 

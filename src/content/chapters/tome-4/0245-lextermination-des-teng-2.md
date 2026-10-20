@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 245 - Exterminating Teng (2)
 slug: lextermination-des-teng-2
 ---
-Wang Lin n'avançait pas très vite. Il regardait la ville de la famille Teng, les yeux empreints d'une intention meurtrière et d'un profond regret. Il y a quatre cents ans, il avait été contraint par Teng Huayuan de s'autodétruire et avait failli perdre la vie.
+Wang Lin n'avançait pas très vite. Il regardait la ville de la famille Teng, les yeux empreints d'une intention meurtrière et d'une profonde émotion. Il y a quatre cents ans, il avait été contraint par Teng Huayuan de s'autodétruire et avait failli perdre la vie.
 
-En ce jour, quatre cents ans plus tard, il revenait investi d'une soif de sang monstrueuse.
+En ce jour, quatre cents ans plus tard, il revenait investi d'une soif de sang monstrueuse et d'une haine aussi vaste qu'une mer de sang.
 
 Il avait attendu ce jour pendant quatre cents ans.
 
@@ -100,13 +100,13 @@ Cette situation — voir ses proches mourir un à un sans pouvoir intervenir —
 
 « NON!!! » Les yeux de Teng Huayuan devinrent rouges de rage et il s'élança.
 
-Wang Lin regarda froidement Teng Huayuan charger, tout en posant sa main sur le front du garçon. L'enfant fixa Wang Lin avec haine tandis que ce dernier injectait son énergie spirituelle dans sa paume, faisant exploser le garçon en un amas sanglant.
+Wang Lin regarda froidement Teng Huayuan charger, tout en posant sa main sur le front du garçon. Le jeune homme fixa Wang Lin avec haine tandis que ce dernier injectait son énergie spirituelle dans sa paume, faisant exploser le jeune homme en un amas sanglant.
 
 « Dans votre prochaine vie, ne portez pas le nom de Teng! » Une fois son œuvre accomplie, Wang Lin disparut encore.
 
 Teng Huayuan resta hébété devant l'amas de chair qui était autrefois son petit-fils. Puis, il poussa un rugissement de douleur: « Wang Lin! »
 
-Le corps de Wang Lin réapparut à trois cent trente mètres de là. Il dit: « Est-ce que cela fait mal? Autrefois, quand vous avez tué ma famille, mon cœur aussi a souffert. » Sur ces mots, il frappa l'air d'un revers de la main droite, et un membre de la famille Teng qui fuyait en panique fut réduit en bouillie.
+Le corps de Wang Lin réapparut à trois cent trente mètres de là. Il dit: « Est-ce que cela fait mal? Autrefois, quand vous avez tué ma famille, mon cœur aussi a souffert. » Sur ces mots, il frappa l'air d'un revers de la main droite, et un homme d'âge mûr de la famille Teng qui fuyait en panique fut réduit en bouillie.
 
 Teng Huayuan rugit férocement: « J'ai tué toute votre famille parce que vous avez tué mon arrière-arrière-petit-fils, Teng Li! »
 

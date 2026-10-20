@@ -10,11 +10,11 @@ Les paroles de Wang Lin étaient aussi froides que la gelée et figèrent l'homm
 
 Il sentait distinctement que ces gouttes contenaient une toxine inimaginable. Une seule goutte suffirait à faire pourrir sa chair et son âme originelle jusqu'à ce qu'il ne reste plus rien.
 
-Ce qui lui glaçait le sang, c'était la présence de trop nombreuses âmes de Flamme Joss en leur sein. Ces âmes avaient été transformées en âmes empoisonnées, puis raffinées; elles dégageaient une rancœur et une force destructrice infinies.
+Ce qui lui glaçait le sang, c'était la présence de trop nombreuses âmes de Flammes Joss en leur sein. Ces âmes avaient été transformées en âmes empoisonnées, puis raffinées; elles dégageaient une rancœur et une force destructrice infinies.
 
 Il n'osait pas bouger, il n'osait absolument pas faire un geste. La bataille d'aujourd'hui avait été trop rapide, parsemée de rebondissements imprévus. Il ne s'attendait pas à l'apparition de Ling Dong, et encore moins à ce que celui-ci ait franchi ce demi-pas!
 
-Si cela avait été tout, la situation n'aurait pas été si désespérée. Après que les Feuilles Anciennes eurent scellé tous ses chemins, il lui restait d'autres méthodes. Cependant, ces neuf gouttes suffisaient à briser sa volonté.
+Si cela avait été tout, la situation n'aurait pas été si désespérée. Après que les Feuilles Anciennes eurent scellé la plupart de ses directions, il lui restait encore une force de résistance. Cependant, ces neuf gouttes suffisaient presque à briser son esprit.
 
 L'aura terrifiante émanant des neuf gouttes fit frissonner la peau de Zhou Jin.
 
@@ -26,7 +26,7 @@ L'Estimé Ling Dong s'avança et s'arrêta à cent pieds de Wang Lin. Il s'ageno
 
 « Raffine-le! » Wang Lin fit un geste de la main et le Fourneau Impérial changea brusquement de forme. Dix-huit Feuilles Anciennes se posèrent sur le Fourneau Impérial pour le sceller. Puis, les âmes apparurent et entamèrent le processus de raffinage.
 
-L'Estimé Ling Dong pénétra dans le royaume de l'océan empoisonné avec l'aide de Wang Lin. Il flotta dans les airs et commença le processus de raffinage d'esclave! Zhou Jin différait de Ling Dong; il était un véritable cultivateur du troisième niveau, il ne serait donc pas aisé de le transformer en esclave. Même le Dao des Rêves ne ferait qu'augmenter les chances de succès après que Wang Lin eut brisé l'état mental de Zhou Jin.
+L'Estimé Ling Dong quitta son royaume de Flammes Joss pour pénétrer dans le royaume de l'océan empoisonné, avec l'aide de Wang Lin. Il flotta dans les airs et commença le processus de raffinage d'esclave! Zhou Jin différait de Ling Dong; il était un véritable cultivateur du troisième niveau, il ne serait donc pas aisé de le transformer en esclave. Même le Dao du Rêve ne ferait qu'augmenter les chances de succès après que Wang Lin eut brisé l'état mental de Zhou Jin.
 
 À présent, Zhou Jin était oppressé dans le Fourneau Impérial, sous la garde de Ling Dong et sous le sceau des dix-huit Feuilles Anciennes. Plus important encore, les neuf gouttes de poison l'entouraient, ce qui permettait à Wang Lin d'être certain que Zhou Jin ne pourrait pas s'échapper.
 
@@ -34,7 +34,7 @@ Il n'y avait que neuf gouttes de poison, il ne voulait donc pas les gaspiller. P
 
 Les étoiles du Dieu Ancien de Wang Lin scintillèrent et il rangea le Fourneau Impérial. Il baissa ensuite le regard vers la terre en contrebas.
 
-L'intérieur de la forêt était vide, ne laissant que près d'une centaine d'arbres sur les lisières. Au centre, le vortex par lequel Cupidité avait quitté le Tombeau flottait toujours, intact.
+L'intérieur de la forêt d'arbres flétris était vide, ne laissant que près d'une centaine d'arbres sur les lisières. Au centre, le vortex par lequel Cupidité avait quitté le Tombeau flottait toujours, intact.
 
 Wang Lin réfléchit un instant. Il avait l'intention d'emporter la forêt et le crâne avec lui. Cependant, il n'était pas sûr que le vortex se dissiperait s'il les emmenait. Si le vortex disparaissait, cela ne vaudrait pas le coup.
 
@@ -48,13 +48,13 @@ Lorsqu'il réapparut, il se trouvait dans le brouillard du Tombeau. Il commença
 
 Wang Lin avait une grande confiance en ses restrictions. Ses yeux brillèrent et la porte de pierre de l'Écoulement du Temps apparut pour accroître l'âge de la Restriction Temporelle, la rendant encore plus puissante.
 
-Une fois cela accompli, le regard de Wang Lin se posa sur la plateforme de rang 5 de l'homme corpulent. Il agita la main et la plateforme gronda. Toutes les runes s'envolèrent vers lui.
+Une fois cela accompli, le regard de Wang Lin se posa sur la plateforme de rang 5 de l'homme corpulent. Il frappa l'air de la main droite et la plateforme gronda. Toutes les runes s'envolèrent vers lui.
 
 À mesure que les runes approchaient, Wang Lin sortit sa propre plateforme de rang 5. Après avoir absorbé les runes, sa plateforme s'étendit soudainement pour atteindre soixante mille pieds de large en un clin d'œil. Debout sur la plateforme, Wang Lin sentit le familier Sens Divin affluer dans son esprit.
 
-Une plus grande partie de la carte apparut dans son esprit!
+Une carte supplémentaire apparut dans son esprit!
 
-À cet instant, une voix majestueuse résonna dans le cœur de Wang Lin: « Le rang 9 est l'aboutissement... J'ai trois palais: le ciel, la terre et l'humain... Le palais humain contient mon Épée Renhe. Cette épée m'a accompagné toute ma vie de massacres; c'est l'épée la plus féroce du monde... À cause de tous ces meurtres, elle s'est transformée en démon et a reçu trois sceaux... »
+À cet instant, une voix majestueuse résonna dans le cœur de Wang Lin: « Le rang 9 est l'aboutissement... J'ai trois palais: le ciel, la terre et l'humain... Le palais humain contient mon Épée Renhe. Cette épée m'a accompagné toute ma vie de massacres; c'est l'épée la plus féroce du monde... À cause de tous ces meurtres, elle s'est transformée en démon et j'y ai apposé trois sceaux... »
 
 La voix se dissipa et Wang Lin resta calme. Un instant plus tard, ses yeux s'illuminèrent et il prit le contrôle de la plateforme de soixante mille pieds, disparaissant dans la brume.
 
@@ -70,7 +70,7 @@ Selon les calculs de Wang Lin, celle qui était en tête avait déjà atteint la
 
 « Je suis un Dieu Ancien, je n'ai donc pas besoin d'être marqué par un chiffre... Alors, que sont exactement ces marques numériques? » Les yeux de Wang Lin s'illuminèrent tandis qu'il remarquait vaguement quelque chose. Sa main frappa la plateforme sous lui, une rune s'en détacha et il la saisit.
 
-Depuis son entrée dans la tombe, Wang Lin avait été passif, poussé par les forces qui contrôlaient ce lieu. Même la main géante semblait être manipulée par une entité supérieure.
+Depuis son entrée dans la tombe, Wang Lin avait été passif, poussé par les forces qui contrôlaient ce lieu. Même la main géante semblait être manipulée par quelqu'un.
 
 Ce sentiment le mettait mal à l'aise. C'était la première fois que Wang Lin examinait l'une de ces précieuses runes numériques. En la fixant, il fronça progressivement les sourcils.
 
@@ -88,7 +88,7 @@ Wang Lin réfléchit un instant et sortit la Bouteille d'Âme Ancienne de son es
 
 Le temps s'écoulait lentement. La fusion ne parvenait pas à s'achever, comme si un élément faisait défaut.
 
-« Le pouvoir du démon ancien... » Les yeux de Wang Lin devinrent de plus en plus brillants. Il agita la main et une gourde vola vers lui. Celle-ci lui avait été donnée par un cultivateur de la première zone pour sauver sa propre vie.
+« Le pouvoir du démon ancien... » Les yeux de Wang Lin devinrent de plus en plus brillants. Sa main gauche saisit le vide et une gourde vola vers lui. Celle-ci lui avait été donnée par un cultivateur de la première zone pour sauver sa propre vie.
 
 À l'époque, le Sens Divin de Wang Lin balaya l'objet; il comprit qu'il s'agissait d'un trésor de démon ancien contenant une part de leur essence.
 

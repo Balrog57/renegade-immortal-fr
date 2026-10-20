@@ -18,7 +18,7 @@ Il existait au sein de la planète et croissait progressivement. Désormais, il 
 
 Wang Lin apparut quelque part à la périphérie du Tombeau de Suzaku. Ici, la terre était calcinée et des volutes de fumée noire s'échappaient du sol pour dériver vers les cieux. Le ciel n'était pas bleu; des éclairs multicolores y zébraient l'air et de vastes déchirures spatiales s'y ouvraient en haute altitude.
 
-Ces puissantes fluctuations faisaient alterner l'éclat et l'obscurité du sol en contrebas.
+Ces puissantes fluctuations faisaient alterner l'éclat et l'obscurité du ciel.
 
 Wang Lin se tint sur cette terre brûlée où les panaches de fumée noire s'élevaient du sol. Dès qu'il apparut, son sens divin se déploya : à 5 000 kilomètres à la ronde, tout n'était que terre brûlée. Peu après, ses yeux s'illuminèrent alors qu'il scrutait l'horizon.
 
@@ -86,7 +86,7 @@ Wang Lin murmura: « Brise-toi! »
 
 Dans un fracas retentissant, la traînée de terre brûlée vola en éclats, projetant des débris dans toutes les directions. À cet instant, une puissance mystérieuse émana de chaque grain de cette terre calcinée.
 
-L'expression de Wang Lin devint étrange alors qu'il tendait la main pour attraper quelques grains de poussière. Après les avoir examinés, il fit volte-face et s'éloigna rapidement.
+L'expression de Wang Lin devint étrange alors qu'il tendait la main pour attraper un grain de poussière. Après l'avoir examiné, il fit volte-face et s'éloigna rapidement.
 
 Peu après son départ, ces grains commencèrent à se rassembler à nouveau. Il ne fallut pas longtemps pour que la terre brûlée se reforme. L'enfant regarda vers la direction prise par Wang Lin, affichant une profonde frustration.
 

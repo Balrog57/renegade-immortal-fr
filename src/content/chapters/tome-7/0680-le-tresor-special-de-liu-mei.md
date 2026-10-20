@@ -22,7 +22,7 @@ Au moment où il l'écrasa, un gémissement étouffé émana du vide. Aussitôt,
 
 Wang Lin fronça les sourcils. C'était un souvenir qu'il ne souhaitait pas raviver. Ses yeux devinrent glacials et il dit doucement: « Tu as été la première à agir. De plus, l'affaire de l'âme du domaine n'était qu'un accident. »
 
-« Un accident... » Liu Mei commença à rire. Son rire redoubla d'intensité jusqu'à devenir empreint de vile méchanceté. Elle pouvait maintenir sa dignité de Dao du Démon Céleste des Dix Mille Illusions devant tout le monde, mais face à l'homme qui se tenait devant elle, elle n'en était plus capable.
+« Un accident... » Liu Mei commença à rire. Son rire redoubla d'intensité jusqu'à devenir empreint de vile méchanceté. Elle pouvait maintenir la sérénité du Dao du Démon Céleste des Dix Mille Illusions devant tout le monde, mais face à l'homme qui se tenait devant elle, elle n'en était plus capable.
 
 « Tu me réponds que c'était un accident? Alors je vais t'offrir un autre accident! » Une nuance de douleur complexe perçait sous sa haine. Elle toucha son sac de rangement.
 
@@ -96,7 +96,7 @@ Dès son apparition, l'aiguille encercla Liu Mei et bloqua la Formation d'Épée
 
 « La quatrième âme! » Wang Lin la regarda froidement, ses yeux devenant encore plus glacials. Il leva la main droite et pointa doucement l'aiguille.
 
-« Arrête! »
+« Fige-toi! »
 
 L'aiguille noire s'immobilisa soudainement. Alors qu'elle luttait pour bouger, Wang Lin fit un pas de plus et apparut devant Liu Mei. Sa main droite pressa impitoyablement entre ses sourcils.
 

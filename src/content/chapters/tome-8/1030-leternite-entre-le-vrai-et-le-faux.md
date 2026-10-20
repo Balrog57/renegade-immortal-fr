@@ -12,9 +12,9 @@ Dans un recoin de l'univers, il existait des particules de poussière si ténues
 
 Ces grains de poussière étaient minuscules, et pourtant, d'autres mondes s'y nichaient!
 
-La Terre des Esprits Démoniques, l'ancien Royaume Céleste des Esprits, et la grotte de l'Empereur Céleste Qing Lin se trouvaient là.
+La Terre des Esprits Démoniaques, l'ancien Royaume Céleste des Esprits, et la grotte de l'Empereur Céleste Qing Lin se trouvaient là.
 
-Hormis la Mer des Esprits Démoniques de l'Est, située à une distance incommensurable, il n'existait aucun autre accès vers ces lieux. Au sein de cette poussière, un grand palais trônait au centre de la Grotte de l'Empereur Céleste.
+Hormis les marées de la Mer des Esprits Démoniaques de l'Est, située à une distance incommensurable, il n'existait aucun autre accès vers ces lieux. Au sein de cette poussière, un grand palais trônait au centre de la Grotte de l'Empereur Céleste.
 
 Ce palais majestueux était entièrement pourpre et dégageait une aura souveraine. Quatre-vingt-dix-neuf bougies étaient disposées en formation sur le sol. À cet instant, soixante-quatre d'entre elles s'étaient déjà éteintes...
 
@@ -30,7 +30,7 @@ Le sang jaillissait également de ses orifices; c'était un spectacle terrifiant
 
 L'environnement était rigoureusement le même que la salle précédente, mais sans les bougies. À la place, trônait un immense siège. L'homme, enveloppé d'une brume noire, trembla avant d'ouvrir les yeux.
 
-Son regard était trouble. Si Wang Lin avait vu cet endroit, il aurait reconnu le lieu que son Guide des Enfers lui avait montré après avoir été altéré!
+Son regard était trouble. Si Wang Lin avait vu cet endroit, il aurait reconnu le lieu où, lors de son utilisation du Guide des Enfers, la liaison avait été perturbée!
 
 L'homme mystérieux était celui qui lui avait offert le cristal jaune!
 
@@ -68,4 +68,4 @@ Après avoir déclenché la restriction cachée dans les fleurs, il avait été 
 
 « Au moment où j'ai été transporté ici, j'ai vaguement aperçu une autre personne qui était également tombée parmi les fleurs, non loin de moi... C'était cette personne enveloppée d'énergie démoniaque. J'ai ressenti un sentiment familier émaner d'elle. »
 
-Alors qu'il réfléchissait, l'expression de Wang Lin changea brusquement et il redressa la tête. Au loin, il voyait une vague colossale se former, s'élevant tel un mur de colère.
+Alors qu'il réfléchissait, l'expression de Wang Lin changea brusquement et il redressa la tête. Au loin, il voyait une vague colossale se former, s'élevant tel un rempart.

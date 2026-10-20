@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 648 - Ancient Thunder Dragon
 slug: dragon-de-la-foudre-antique
 ---
-Grâce à l'énergie de l'épée qui lui ouvrait une voie, Wang Lin utilisa toute sa vitesse et plongea vers les profondeurs tel une météorite. Il n'avait pas le loisir de se soucier de Zhou Yi pour le moment; car bien que Cupidité possédât de nombreux trésors, il ne serait pas vaincu facilement.
+Grâce à l'énergie de l'épée qui lui ouvrait une voie, Wang Lin utilisa toute sa vitesse et plongea vers les profondeurs tel une météorite. Il n'avait pas le loisir de se soucier de Zhou Yi pour le moment; car bien que Cupidité possédât de nombreux trésors, il aurait du mal à vaincre Zhou Yi.
 
 Ce qu'il devait faire maintenant était d'augmenter la distance au maximum afin de gagner du temps jusqu'à l'arrivée de Zhou Yi.
 
@@ -130,7 +130,7 @@ Une aura primordiale jaillit follement des fissures de la seconde âme originell
 
 Les trois esprits maléfiques sur les épées tremblèrent de terreur!
 
-À la sortie de l'abîme, Cupidité, qui luttait contre Zhou Yi, fut secoué par un tremblement violent et cracha une bouchée de sang. Il regarda vers le bas avec un visage horrifié.
+À la sortie de l'abîme, Cupidité, qui luttait contre Zhou Yi, vacilla et cracha une bouchée de sang. Il regarda vers le bas avec un visage horrifié.
 
 « Ceci est... »
 

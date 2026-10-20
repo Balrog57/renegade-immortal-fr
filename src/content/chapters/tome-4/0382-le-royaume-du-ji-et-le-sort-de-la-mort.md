@@ -84,7 +84,7 @@ Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la m
 
 En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot: « meurs », et seuls quelques rares cultivateurs de la Formation de l'Âme pourraient espérer s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 
-« Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. On raconte que ce sort provient du monde antique de la culture, lorsque les anciens, n'ayant pas réussi à percer le secret du Royaume Ji, tentaient de l'imiter. Porté à son apogée, ce sort permettrait peut-être d'acquérir un fragment de la puissance du Royaume Ji. »
+« Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. D'après mes longues recherches, ce sort provient du monde antique de la culture, lorsque les anciens, n'ayant pas réussi à percer le secret du Royaume Ji, tentaient de l'imiter. Porté à son apogée, ce sort permettrait peut-être d'acquérir un fragment de la puissance du Royaume Ji. »
 
 Les paroles de son maître résonnaient encore dans sa tête alors que Sima fixait son ultime adversaire. Il ne considérait pas le jeune homme nommé Qing Mu comme une menace. Une intention meurtrière traversa son regard; il pointa le doigt et lança d'une voix sourde : « Meurs! »
 

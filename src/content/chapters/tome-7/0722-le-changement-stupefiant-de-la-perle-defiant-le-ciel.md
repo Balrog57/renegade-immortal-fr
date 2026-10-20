@@ -14,7 +14,7 @@ Il afficha une expression sombre, puis la Bête du Tonnerre sous lui se transfor
 
 Les yeux de l'homme s'illuminèrent et il accéléra encore sa course.
 
-Wang Lin se trouvait à l'intérieur du lac de tonnerre, murmurant sans cesse les incantations du sort d'origine du tonnerre. Après avoir assimilé le sort, la main de Wang Lin forma un sceau, puis il posa ses mains sur ses genoux. Il prit une profonde inspiration et ferma les yeux.
+Wang Lin se trouvait à l'intérieur du lac de tonnerre, repassant mentalement les incantations du sort d'origine du tonnerre. Après avoir assimilé le sort, les mains de Wang Lin formèrent un sceau, puis il posa ses mains sur ses genoux. Il prit une profonde inspiration et ferma les yeux.
 
 Le sort d'origine du tonnerre utilisait une méthode mystérieuse pour extraire l'énergie originelle du tonnerre céleste et en faire sa propre énergie.
 
@@ -26,7 +26,7 @@ Cependant, cette méthode ne pouvait être plus adaptée à Wang Lin. Son âme o
 
 Peu après, les mains de Wang Lin se levèrent lentement pour former un sceau. Dans un mouvement brusque, d'importantes ondulations apparurent dans l'air. Ces ondes étaient composées de tonnerre et se propagèrent lentement.
 
-Ce mouvement contenait en réalité neuf sceaux différents produits à une vitesse extrêmement élevée. Ces sceaux créaient la capacité d'attirer le tonnerre.
+Ce mouvement contenait en réalité neuf sceaux différents produits à une vitesse extrêmement élevée. Ces sceaux créaient la capacité d'attirer le tonnerre, et les ondulations en avaient encore davantage l'effet.
 
 Sous le grondement assourdissant du lac de tonnerre, un filament de tonnerre sembla être attiré. Comme s'il avait enfin trouvé un point de libération, il se précipita immédiatement sous la forme d'un dragon de tonnerre, tentant de dévorer tout sur son passage.
 

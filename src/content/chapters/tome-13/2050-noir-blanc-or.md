@@ -10,7 +10,7 @@ Lorsque Wang Lin ouvrit les yeux dans la chambre secrète, la silhouette envelop
 
 « Il reste... 400 ans... »
 
-Au sein du clan céleste, les 72 âmes s'étaient calmées après avoir hurlé et imploré le ciel. Cependant, seul le Grand Empyréen Jiu Di savait ce qui s'était passé, et son cœur était troublé. Il cultivait, mais il regardait constamment le ciel avec un mélange d'effroi et de nostalgie dans les yeux.
+Au sein du clan céleste, les 72 âmes s'étaient calmées après avoir hurlé et imploré le ciel. Cependant, seul le Grand Empyréen Jiu Di savait ce qui s'était passé, et son cœur était troublé. Il cultivait, mais il regardait constamment le ciel avec un mélange de crainte respectueuse et de désir dans les yeux.
 
 Durant toute sa vie, il avait aspiré à ce royaume légendaire, mais il n'avait toujours pas pu franchir cette étape.
 
@@ -20,15 +20,15 @@ Sur le Mont Empereur, Hai Zi se tenait au sommet de la montagne, vêtue d'une ro
 
 Lors de la précédente divination, elle avait ressenti une étrange familiarité. Elle n'en avait pas parlé à Jiu Di, craignant que ce ne soit qu'une illusion.
 
-Dans le clan Ancien, sur la Montagne d'Origine, aux abords de la capitale impériale du clan Ancien, le visage du Grand Empyréen Song Tian était pâle. Il fixait l'horizon d'un regard tourmenté, et nul ne pouvait savoir à quoi il pensait.
+Dans le clan Ancien, sur la Montagne de l'Origine, aux abords de la capitale impériale du clan Ancien, le visage du Grand Empyréen Song Tian était pâle. Il fixait l'horizon d'un regard tourmenté, et nul ne pouvait savoir à quoi il pensait.
 
 « Maître... » La voix hésitante de Chi Man provint de derrière lui.
 
 « Tais-toi! » Song Tian ne se retourna pas et coupa court aux paroles de Chi Man. Il ne voulait rien entendre pour le moment. Il devait déterminer si l'agitation dans les 36 pays était liée à Wang Lin.
 
-Bien qu'il ne pensât pas qu'un lien existât, une faible possibilité subsistait. Le cas échéant, il devrait revoir ses décisions et sa stratégie.
+Bien qu'il ne pensât pas qu'un lien existât, une faible possibilité subsistait. Le cas échéant, il devrait revoir ses décisions et ses réflexions.
 
-« Peu importe, j'irai le rencontrer pour en avoir le cœur net! » Un instant plus tard, les yeux de Song Tian s'illuminèrent et il leva la main droite. Alors qu'il pointait le ciel, un grondement tonitruant résonna et une puissance colossale convergea de tous côtés. Lorsque les nuages se dissipèrent, une immense faille se déchira dans le ciel.
+« Peu importe, j'irai le rencontrer pour en avoir le cœur net! » Un instant plus tard, les yeux de Song Tian s'illuminèrent et il leva la main droite. Alors qu'il pointait le ciel, un grondement tonitruant résonna et une puissance colossale convergea de tous côtés. Au milieu des vents et des nuages qui changeaient de couleur, une immense faille se déchira dans le ciel.
 
 Une tête gigantesque émergea de la brèche. Cette tête était verte et dotée de deux cornes — c'était un démon ancien! Une masse de gaz noir entourait l'être, et tandis qu'il rugissait, deux griffes monumentales sortirent de la faille. Il élargit l'ouverture et son corps entier en émergea.
 
@@ -36,7 +36,7 @@ Son corps mesurait 100 000 pieds de haut; une fois sorti, il poussa un rugisseme
 
 Contemplant le démon ancien devant lui, les yeux de Song Tian brillèrent d'éclat. Sa main gauche toucha son front et un fil de lumière verte jaillit vers la créature pour disparaître entre ses sourcils.
 
-Song Tian s'assit, les yeux clos, tandis que le regard du démon ancien révélait une lueur monstrueuse. L'être afficha une expression lugubre avant de se retirer dans la faille et de disparaître.
+Song Tian s'assit, les yeux clos, tandis que le regard du démon ancien révélait une lueur monstrueuse. L'être afficha une expression lugubre avant de se retirer dans la faille, qu'il referma d'une poigne, et de disparaître.
 
 À l'instant même où le démon ancien disparut, Wang Lin expira profondément dans le pays de Luo Hou. Ses yeux étaient empreints de détermination, mais lorsqu'il vérifia son niveau de culture, il fronça les sourcils.
 
@@ -94,7 +94,7 @@ Cependant, la vitesse de fonte ralentit et, avec le temps, sembla même s'arrêt
 
 « Digne de l'Ancêtre Céleste, qui a franchi le huitième Pont du Piétinement des Cieux... Même après sa mort, le simple fait de raffiner sa tête est si ardu... » murmura Wang Lin. Il songea à celui qui aurait pu tuer l'Ancêtre Céleste, mais ne trouva aucune piste.
 
-« Cependant, au bout du compte, ce n'est qu'une tête. » Wang Lin leva la main droite vers le vide. Le ciel sombre changea soudain de couleur et d'innombrables lignes ténues apparurent. Les autres ne pouvaient pas les voir; il fallait être un Grand Empyréen pour les percevoir vaguement. Pourtant, même les Grands Empyréens peinaient à maîtriser ces fils subtils.
+« Cependant, au bout du compte, ce n'est qu'une tête. » Wang Lin leva la main droite vers le vide. Le ciel brumeux changea soudain de couleur et d'innombrables lignes ténues apparurent. Les autres ne pouvaient pas les voir; il fallait être un Grand Empyréen pour les percevoir vaguement. Pourtant, même les Grands Empyréens peinaient à maîtriser ces fils subtils.
 
 Ce n'est qu'en franchissant le premier Pont du Piétinement des Cieux que l'on pouvait réellement les extraire du monde et les utiliser.
 
@@ -104,9 +104,9 @@ Les yeux de Wang Lin brillèrent et il murmura pour lui-même: « Pas étonnant 
 
 « L'Ancêtre Céleste est bel et bien un être ayant franchi les huit ponts. Une fois sa tête fusionnée avec mon soleil de Grand Empyréen, elle deviendra un trésor et une aide surpuissants! »
 
-C'est à ce moment qu'un grondement tonitruant retentit dans le ciel lointain et qu'une immense faille se produisit. Une masse de gaz noir se répandit et un démon ancien géant en sortit.
+C'est à ce moment qu'un grondement tonitruant retentit dans le ciel, à cent mille pieds de Wang Lin et qu'une immense faille se produisit. Une masse de gaz noir se répandit et un démon ancien géant en sortit.
 
-Toutefois, au moment même où il émergeait, la créature fut saisie d'effroi. Le Sens Divin de Song Tian résidait dans le démon, et lorsqu'il perçut l'étrangeté des lieux, son expression changea. Il aperçut Wang Lin au loin. Ce dernier l'ignorait totalement, semblant saisir d'innombrables lignes ténues dans sa main. Toutes ces lignes s'enroulaient autour de la tête, puis Wang Lin se mordit la langue pour cracher du sang sur les fils et sur la tête.
+Toutefois, au moment même où il émergeait, le Sens Divin de Song Tian, qui résidait dans le démon, fut saisi d'effroi en percevant l'étrangeté des lieux, et son expression changea. Il aperçut Wang Lin au loin. Ce dernier l'ignorait totalement, semblant saisir d'innombrables lignes ténues dans sa main. Toutes ces lignes s'enroulaient autour de la tête, puis Wang Lin se mordit la langue pour cracher du sang sur les fils et sur la tête.
 
 À cet instant, la tête de l'Ancêtre Céleste commença à fondre rapidement, absorbée par le soleil de Grand Empyréen de Wang Lin. Alors que ce soleil se condensait avec force, une troisième couleur, l'or, apparut!
 

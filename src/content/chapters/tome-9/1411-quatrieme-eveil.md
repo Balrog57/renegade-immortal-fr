@@ -34,7 +34,7 @@ Après le feu indigo vint le feu bleu. Les deux incendies se précipitèrent ver
 
 L'indigo étant issu du bleu, les deux feux s'entremêlèrent. Après eux, un feu violet couvrit le ciel, tel un feu démoniaque s'étendant à l'horizon.
 
-Les feux indigo, bleus et violets convergèrent tous vers lui simultanément. Le visage de Wang Lin se crispa et son âme fut sur le point de s'effondrer. Les quatre feux brûlaient en lui, rendant ses yeux opaques.
+Les feux indigo, bleus et violets convergèrent tous vers lui simultanément. Le visage de Wang Lin se crispa et son âme fut sur le point de s'effondrer. Les feux brûlant en lui rendaient ses yeux opaques.
 
 En un instant, le feu intérieur perça son corps pour éclater vers l'extérieur. Les flammes rouge, orange, jaune et verte avaient déchiré sa chair. Même le Oiseau Vermillon logé en lui fut consumé jusqu'à la mort.
 
@@ -50,7 +50,7 @@ Le vieux Oiseau Vermillon n'hésita pas et se précipita près du second bâton 
 
 Le Maître du Dao Rêve Bleu fit de même et rejoignit le second bâton. Une lueur bleue enveloppa son corps tandis que son doigt touchait l'encens.
 
-À l'intérieur de l'Épreuve Terrestre, le feu aux sept couleurs faisait rage. Même le Oiseau Vermillon de la première génération n'avait pu franchir cette épreuve sans la protection de l'Empereur Céleste. La rétribution consumait l'âme de Wang Lin.
+À l'intérieur de l'Épreuve Terrestre, le feu aux sept couleurs faisait rage. Même le Oiseau Vermillon de la première génération n'avait pu franchir cette épreuve sans la protection du Souverain Céleste. La rétribution consumait l'âme de Wang Lin.
 
 Alors que son âme se dissipait, trois forces vinrent à son secours. Pourtant, au moment où ces trois auras s'approchaient, une force étrange jaillit soudainement du cœur du feu septicolore.
 

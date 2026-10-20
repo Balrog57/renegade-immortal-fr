@@ -34,7 +34,7 @@ Parmi les crépitements de la foudre, l'onde émise par la tablette de jade fut 
 
 « J'ai effacé le sortilège de message qui était laissé sur la tablette de jade. » Wang Lin étudia attentivement les informations enregistrées dans le jade. Après un long moment, il retira son sens divin, ses yeux brillant de plus en plus intensément!
 
-« C'est bel et bien le Domaine de l'Illusion Cruelle! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète des Mille Illusions! » Cette tablette de jade contenait la méthode de culture des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
+« C'est bel et bien le Domaine de l'Illusion Impitoyable! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète des Mille Illusions! » Cette tablette de jade contenait la méthode de culture des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
 
 Le seul moyen de briser ces restrictions était le lignage.
 
@@ -116,11 +116,11 @@ L'expression de Wang Lin resta imperturbable, mais ses yeux révélèrent une po
 
 Prendre l'argent de quelqu'un pour l'aider à conjurer un désastre... Le sens divin de Wang Lin se déploya comme un coup de tonnerre rugissant. Sans rien laisser échapper, son sens divin se verrouilla sur le ciel et se transforma en un seul mot:
 
-« Disparais! »
+« Dégage! »
 
 Ce mot unique déclencha un tonnerre qui explosa sauvagement. Huan Dong venait à peine de traverser l'atmosphère que la foudre s'abattit sur lui. Ses yeux brillèrent d'intention meurtrière et il cria: « Tu cherches la mort! » Sur ce, sa main forma un sceau et un rayon de lumière blanche se concentra dans sa paume. Une aura Yin glaciale commença immédiatement à se rassembler et à se diffuser autour du monde.
 
-Pour qu'un cultivateur atteigne le stade Ascendant, son domaine doit fusionner avec son âme originelle. Bien que cet homme fût de la famille Huan, son talent limité l'empêchait de cultiver le Domaine de l'Illusion Cruelle. À la place, il pratiquait la méthode secondaire de la famille Huan: l'Art de l'Intention des Cinq Éléments.
+Pour qu'un cultivateur atteigne le stade Ascendant, son domaine doit fusionner avec son âme originelle. Bien que cet homme fût de la famille Huan, son talent limité l'empêchait de cultiver le Domaine de l'Illusion Impitoyable. À la place, il pratiquait la méthode secondaire de la famille Huan: l'Art de l'Intention des Cinq Éléments.
 
 Son domaine était l'élément métal. Le métal représentait l'invincibilité. Son domaine bougeait au rythme de ses sorts et sa main s'illumina. À cet instant, il semblait que cette lumière avait remplacé celle du ciel ou qu'elle en avait absorbé toute la clarté. Utilisant la puissance de cette lumière, il pressa sa main vers le bas.
 

@@ -94,7 +94,7 @@ Son mouvement soudain ne fut pas entravé par le Très Respecté Taureau Vert, e
 
 « Si tu es réellement la personne dont parlait l'Ancêtre fondateur lorsqu'il a choisi de bâtir la Secte de la Grande Âme sur la veine principale de feu terrestre, alors tu reviendras avant que ce bâton d'encens ne soit consumé. Je possède les sorts et les informations dont tu as besoin, mais si tu ne reviens pas, alors tu n'es pas... » En murmurant cela, il ferma les yeux.
 
-Il ne restait presque plus rien du bâton d'encens de neige; il fondait lentement.
+Il ne restait pas grand-chose du bâton d'encens de neige; il fondait lentement.
 
 Loin de la Montagne Céleste, dans une région du Continent du Taureau Céleste qu'il aurait fallu un mois à Wang Lin pour atteindre en volant, se trouvait une montagne couverte d'une forêt verdoyante. Des ondulations résonnèrent dans le ciel et Wang Lin en émergea.
 

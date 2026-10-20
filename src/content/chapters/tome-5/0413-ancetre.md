@@ -14,7 +14,7 @@ La sculpture trembla doucement et brilla intensément. Puis, un anneau de lumiè
 
 Boum! Boum!
 
-À la suite d'une série d'explosions, les runes qui formaient les dragons devinrent instables et s'affaiblirent. Finalement, la majorité des dragons de runes se brisèrent et disparurent. Les dragons restants diminuèrent tous d'un cran de taille.
+À la suite d'une série d'explosions, les runes qui formaient les dragons devinrent instables et s'affaiblirent. Finalement, la majorité des dragons de runes se brisèrent et disparurent. Les dragons restants diminuèrent tous nettement de taille.
 
 En voyant cela, les cultivateurs de Zhao furent transportés par l'excitation.
 
@@ -32,7 +32,7 @@ Mais la lumière de la sculpture devint soudainement si aveuglante qu'elle illum
 
 Toute la Secte Tian Dao du Mont Heng Yue fut plongée dans le silence. Les cultivateurs restèrent pensifs. Leur symbole d'espoir venait d'être si facilement dérobé. Il semblait que la destruction de Zhao était inévitable.
 
-Le mépris dans les yeux du vieil homme du Clan des Immortels Délaissés s'intensifia alors qu'il disait lentement: « Étant donné que j'ai obtenu ce trésor, je ne serai pas trop dur avec vous. Renoncez et devenez des subordonnés de mon Clan des Immortels Délaissés. Je peux vous promettre que c'est bien mieux que de servir le pays de Suzaku. »
+Le mépris dans les yeux du vieil homme du Clan des Immortels Délaissés s'intensifia alors qu'il disait lentement: « Étant donné que j'ai obtenu ce trésor, je ne serai pas trop dur avec vous. Vous deviendrez les vassaux de mon Clan des Immortels Délaissés. Je peux vous promettre que c'est bien mieux que de servir le pays de Suzaku. »
 
 « Ma sculpture n'est pas un objet que tu peux prendre. » Une voix calme émana du vide et, peu après, deux silhouettes apparurent.
 
@@ -88,7 +88,7 @@ Le vieil homme fut surpris. Il jeta un regard à Wang Lin et répondit: « Puisq
 
 Wang Lin lâcha froidement: « Ridicule! » Il leva sa main droite et pointa la sphère contenant l'énergie de l'explosion. La sphère se mua en une ombre qui fonça vers le vieil homme du Clan des Immortels Délaissés.
 
-L'expression du vieil homme changea radicalement alors qu'il portait la main à son front. Une lumière verte jaillit de son arcade sourcilière. Une plante à six feuilles émergea de cette lumière et percuta la sphère.
+L'expression du vieil homme changea radicalement alors qu'il portait la main à son front. Une lumière verte jaillit entre ses sourcils. Une plante à six feuilles émergea de cette lumière et percuta la sphère.
 
 Boum!
 

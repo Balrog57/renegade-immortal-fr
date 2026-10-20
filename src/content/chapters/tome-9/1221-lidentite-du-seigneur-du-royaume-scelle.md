@@ -82,7 +82,7 @@ Malgré tous ses efforts pour esquiver, il ne put échapper à la main géante. 
 
 Du début à la fin, l'expression de Wang Lin était restée indifférente. Après la disparition du vieil homme, la porte derrière lui brilla une dernière fois avant de se rétracter rapidement. Elle devint une lueur floue et disparut dans la Perle Défiant le Ciel, emportant l'âme originelle de Wang Lin. Puis, elle s'échappa du système stellaire pour disparaître sans laisser de trace.
 
-Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis cent ans. Ce jour-là, une lumière éclatante apparut dans le ciel, au-dessus de la montagne située dans la partie la plus profonde du Royaume aux Sept Couleurs. Au moment où cette lueur enveloppa le royaume, une silhouette illusoire et floue apparut, trahissant confusion et émotion. Elle sembla pousser un soupir, son regard tombant sur le corps couvert de poussière au sommet de la montagne.
+Le Royaume aux Sept Couleurs, plongé dans les ténèbres, était resté calme pendant cent ans. Ce jour-là, une lumière éclatante apparut dans le ciel, au-dessus de la montagne située dans la partie la plus profonde du Royaume aux Sept Couleurs. Au moment où cette lueur enveloppa le royaume, une silhouette illusoire et floue apparut, trahissant confusion et émotion. Elle sembla pousser un soupir, son regard tombant sur le corps couvert de poussière au sommet de la montagne.
 
 « C'était comme un rêve... Un rêve qui a duré de nombreuses années... » murmura l'illusion tandis qu'elle fusionnait progressivement avec le corps sur la montagne.
 
@@ -98,7 +98,7 @@ La quantité d'intention Dao et d'énergie originelle qu'il avait absorbée de l
 
 C'était une marque qui n'avait jamais existé au monde; c'était une loi totalement nouvelle!
 
-Alors que la marque scintillait, elle se posa entre les sourcils de Wang Lin et fusionna avec son domaine véritable et faux! Une marque semblable au Yin et au Yang apparut soudainement à l'extérieur de son tatouage combiné de tonnerre et de feu, tournant lentement. Finalement, elle émit une lueur démoniaque avant de rétrécir jusqu'à ressembler à une étoile, puis se cacha entre ses sourcils.
+Alors que la marque scintillait, elle se posa entre les sourcils de Wang Lin et fusionna avec son Dao du vrai et du faux! Une marque semblable au Yin et au Yang apparut soudainement à l'extérieur de son tatouage combiné de tonnerre et de feu, tournant lentement. Finalement, elle émit une lueur démoniaque avant de rétrécir jusqu'à ressembler à une étoile, puis se cacha entre ses sourcils.
 
 Quelle que soit l'apparence de cette étoile, elle ressemblait énormément à celle d'un Dieu Ancien! Si un Dieu Ancien à 9 étoiles avait formé cette étoile de loi, beaucoup auraient pris ce Dieu Ancien pour... un Dieu Ancien à 10 étoiles!
 

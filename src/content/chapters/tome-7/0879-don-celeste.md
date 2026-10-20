@@ -36,7 +36,7 @@ Le corps de Wang Lin vacilla et il atterrit au sol. Nangong Han toucha terre pre
 
 Les 108 cultivateurs sur la place s'étaient tous réveillés. L'expression de Xu Ting était extrêmement sombre alors qu'il fixait silencieusement Wang Lin. Le cultivateur aux six doigts, lui aussi, lançait un regard malveillant vers Wang Lin.
 
-Maître Yan Leizi affichait un sourire alors qu'il se redressait et déclarait d'une voix lente: « Mon Temple Céleste du Tonnerre octroie 108 titres célestes! » Sur ces mots, sa main droite s'élança vers le vide. Le chant du Royaume Céleste du Tonnerre commença soudainement à résonner.
+Maître Yan Leizi affichait un sourire alors qu'il se redressait et déclarait d'une voix lente: « Mon Temple Céleste du Tonnerre octroie 108 titres célestes! » Sur ces mots, sa main droite s'élança vers le vide. Le temple tout entier trembla et un chant digne du Royaume Céleste commença soudainement à résonner.
 
 Ce chant était d'une beauté sublime, comme s'il s'agissait de la mélodie des cieux eux-mêmes.
 
@@ -66,7 +66,7 @@ Maître Yan Leizi marqua une pause. Son regard balaya les cultivateurs devant lu
 
 Les yeux de Wang Lin se plissèrent. Il s'envola alors et joignit les mains. « Présent! »
 
-L'expression de Maître Yan Leizi se fit solennelle: « Après les épreuves du Ciel, de la Terre et de l'Humain, ainsi que celle de la ligne vers le ciel, Xu Mu, je te confère le titre de Céleste du Tonnerre! Tu dirigeras une armée de 3 000 hommes en tant qu'avant-garde lors de l'attaque du Système Stellaire de l'Alliance! »
+L'expression de Maître Yan Leizi se fit solennelle: « Après les épreuves du Ciel, de la Terre et de l'Humain, ainsi que celle de la ligne vers le ciel, Xu Mu, je te confère le titre de Céleste du Tonnerre! Tu dirigeras une armée de 3 000 cultivateurs en tant que première avant-garde du Système Stellaire de Luotian! »
 
 Tandis qu'il parlait, sa main droite plongea dans le vide et un pinceau céleste doré apparut. D'un geste assuré, il écrivit la première ligne sur le parchemin jaune:
 
@@ -86,7 +86,7 @@ Wang Lin saisit le Drapeau du Tigre Céleste. Il prit une profonde inspiration e
 « Maître Démon Xu Mu, le Céleste du Tonnerre! »
 « Cet homme a surpassé les 108 célestes. Sa culture doit être prodigieuse, ce n'est pas un individu avec lequel on joue! »
 
-Sur la planète Ran Yun, une belle femme leva les yeux vers la cérémonie céleste qui s'affichait dans le ciel. Au départ, elle n'y prêtait aucune attention et s'apprêtait à détourner le regard. Mais soudain, elle fut saisie de stupeur! En posant les yeux sur Wang Lin, elle tomba en transe. Cet homme lui était si familier, comme si elle l'avait déjà aperçu quelque part.
+Sur la planète Ran Yun, une belle femme leva les yeux vers la cérémonie céleste qui s'affichait dans le ciel. Au départ, elle n'y prêtait aucune attention et s'apprêtait à détourner le regard. Mais soudain, elle fut saisie de stupeur! En posant les yeux sur Wang Lin, elle resta interdite. Cet homme lui était si familier, comme si elle l'avait déjà aperçu quelque part.
 
 Non seulement elle, mais tous les cultivateurs de la planète Ran Yun fixaient le ciel. Des vagues de trouble s'emparèrent de leurs cœurs en voyant Wang Lin; ils ne parvinrent pas à retrouver leur calme pendant longtemps.
 
@@ -111,7 +111,7 @@ Bien que Xu Ting fût réticent au fond de lui, il n'eut d'autre choix que de se
 
 Par la suite, Maître Yan Leizi continua l'appel. Les 108 titres célestes furent tous attribués avec succès! Chaque cultivateur reçut un drapeau et devint un être céleste!
 
-« Céleste du Tonnerre, Vice-Céleste du Tonnerre, les 36 Célestes de Ciel et les 72 Célestes de Terre, entrez dans le bassin céleste! » Maître Yan Leizi agita ses manches et le parchemin jaune disparut. Les nuages se mirent à tourbillonner et à se condenser pour former un bassin qui descendit lentement du ciel.
+« Céleste du Tonnerre, Vice-Céleste du Tonnerre, les 36 Célestes de Ciel, entrez dans le bassin céleste! » Maître Yan Leizi agita ses manches et le parchemin jaune disparut. Les nuages se mirent à tourbillonner et à se condenser pour former un bassin qui descendit lentement du ciel.
 
 L'eau bleue à l'intérieur du bassin dégageait une aura capable de bouleverser l'esprit!
 

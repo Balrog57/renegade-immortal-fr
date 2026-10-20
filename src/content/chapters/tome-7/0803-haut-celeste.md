@@ -24,7 +24,7 @@ Il accéléra encore davantage, puis sa main droite traça un sceau tandis que l
 
 Ses yeux étaient empreints de confusion, mais bientôt ses pupilles se rétractèrent, envahies par la peur. Wang Lin s'avança vers lui et plongea son regard dans le sien.
 
-Le corps de l'homme trembla et il laissa échapper un cri avant de tenter de reculer une fois de plus. Wang Lin fronça les sourcils et tendit sa main droite. Le corps de l'homme se raidit aussitôt, comme si une main invisible le saisissait pour le traîner violemment vers Wang Lin.
+Le corps de l'homme trembla et il laissa échapper un cri avant de tenter de reculer une fois de plus. Wang Lin fronça les sourcils et tendit sa main droite. Le corps de l'homme se raidit aussitôt, comme si une main invisible le saisissait pour le traîner vers Wang Lin.
 
 Alors qu'il tenait le prisonnier, Wang Lin s'apprêtait à l'interroger quand son expression changea soudainement et qu'il se retourna. Il vit plus de cent rayons de lumière aux couleurs variées, dégageant une aura terrifiante, fondre sur lui.
 

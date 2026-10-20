@@ -68,13 +68,13 @@ Cette quatrième essence était celle de la vie et de la mort!
 
 « Sceau de la Vie et de la Mort! »
 
-Les mains de Wang Lin se séparèrent et les lumières noire et blanche s'envolèrent. Elles fusionnèrent pour former un sceau de vie et de mort, qui vint se fondre avec les trois autres essences.
+Les mains de Wang Lin se séparèrent et les lumières noire et blanche s'envolèrent. Elles fusionnèrent dans la lumière sanguine pour former un sceau de vie et de mort, qui vint se fondre avec les trois autres essences.
 
 C'était le cinquième sort originel de Wang Lin: le Sceau de la Vie et de la Mort!
 
 Ce sceau était assez puissant pour tuer les cieux et donner la vie à la terre; sa puissance était insondable!
 
-Dès que la quatrième essence apparut à l'extérieur de la planète Suzaku, la Porte du Vide gronda de nouveau. La pression qu'elle dégageait força encore plus de cultivateurs à s'agenouiller; sous cette force, presque tous les combattants s'inclinèrent malgré eux.
+Dès que la quatrième essence apparut à l'extérieur de la planète Suzaku, la Porte du Vide gronda de nouveau. La pression qu'elle dégageait força encore plus de cultivateurs à s'agenouiller; sous cette force, presque tous les combattants, tremblants, s'agenouillèrent malgré eux.
 
 La pression de la Porte du Vide monta en flèche, et un filament de gaz noir ainsi qu'un filament de gaz blanc apparurent. Les deux volutes tournèrent autour de la Porte du Vide pour former ce que les observateurs identifièrent comme la quatrième essence!
 

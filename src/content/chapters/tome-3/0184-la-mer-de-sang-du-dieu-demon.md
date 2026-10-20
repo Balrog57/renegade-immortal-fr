@@ -36,7 +36,7 @@ Wang Lin rétracta son Sens Divin pour éviter toute attaque par ce biais et env
 
 L'Empereur Antique fut stupéfait. Même lorsqu'il était venu ici il y a mille ans, il n'avait jamais vu ces créatures communiquer par Sens Divin. Mais il réagit rapidement et répondit: « Se... Senior, je ne sais pas de quel trésor de l'héritage vous parlez. »
 
-Après avoir parlé, une amertume lui serra le cœur. Depuis qu'il était devenu un expert en Formation de l'Âme, il n'avait plus eu à appeler personne « Senior ». En prononçant ce mot, il ressentit un profond dégoût de soi.
+Après avoir parlé, une amertume lui serra le cœur. Depuis qu'il était devenu un expert en Formation de l'Âme, il n'avait plus eu à appeler personne « Senior ». En prononçant ce mot, il ressentit une profonde gêne.
 
 Soudainement, il ajouta: « Senior, si vous recherchez le trésor de l'héritage de la Terre des Anciens Dieux, alors vous vous trompez de personne. Il est en possession d'un certain Seigneur Démon des Six Désirs. »
 
@@ -50,7 +50,7 @@ Concernant le trésor de l'héritage, Wang Lin l'avait entendu mentionné par Du
 
 L'Empereur Antique était prêt à affronter le Seigneur Démon des Six Désirs lors de la deuxième épreuve; il devait donc posséder ses propres secrets. Wang Lin ordonna aux âmes errantes environnantes de reprendre l'assaut.
 
-L'Empereur Antique serra les dents et envoya un autre message par Sens Divin: « Ce vieil homme ne possède pas les trésors de l'héritage, mais lorsque je suis venu ici il y a des années, j'ai reçu un fragment de cet héritage. Ce fragment contient un sort capable de créer un passage pour sortir d'ici; cependant, il ne peut être utilisé qu'au niveau du tourbillon de sortie de chaque royaume pour être téléporté hors de la Terre des Anciens Dieux, sans quoi je serais resté bloqué ici. Quant au fragment, je l'ai détruit après avoir appris la technique. »
+L'Empereur Antique serra les dents et envoya un autre message par Sens Divin: « Ce vieil homme ne possède pas les trésors de l'héritage, mais lorsque je suis venu ici il y a mille ans, j'ai reçu un fragment de cet héritage. Ce fragment contient un sort capable de créer un passage pour sortir d'ici; cependant, il ne peut être utilisé qu'au niveau du tourbillon de sortie de chaque royaume pour être téléporté hors de la Terre des Anciens Dieux, sans quoi je serais resté bloqué ici. Quant au fragment, je l'ai détruit après avoir appris la technique. »
 
 Ce que l'Empereur Antique disait était vrai. Il y a mille ans, il était l'un des experts les plus puissants; il avait donc naturellement découvert le trésor de l'héritage et appris la méthode pour quitter ce lieu. C'est ainsi qu'il avait réussi à s'échapper autrefois, et c'est pourquoi il osait encore revenir.
 
@@ -144,11 +144,11 @@ Si Bossu Meng n'avait pas été encerclé par les tornades à l'époque, Wang Li
 
 Mais maintenant que cette force externe avait disparu et que les deux adversaires partaient sur un pied d'égalité, aussi courageux fût-il, il n'avait d'autre choix que de fuir immédiatement.
 
-Wang Lin n'était pas un fou. Une fois sa décision prise, il s'élança précipitamment vers la sortie de la troisième épreuve. En chemin, il ne prit même pas la peine de dévorer davantage d'âmes errantes; il fonçait.
+Wang Lin n'était pas du genre à hésiter. Une fois sa décision prise, il s'élança précipitamment vers la sortie de la troisième épreuve. En chemin, il ne prit même pas la peine de dévorer davantage d'âmes errantes; il fonçait.
 
 S'il avait abandonné son corps physique pour voyager uniquement sous forme d'âme, sa vitesse aurait été bien supérieure, raison pour laquelle il avait laissé son corps derrière lui plus tôt.
 
-Alors qu'il n'avait fait que faire un demi-pas, Wang Lin s'arrêta brusquement. Il tourna la tête vers Duanmu et Wang Qingyue. Son visage devint livide en témoignant d'une scène d'horreur à travers les âmes errantes.
+Alors qu'il n'avait parcouru que la moitié du chemin, Wang Lin s'arrêta brusquement. Il tourna la tête vers Duanmu et Wang Qingyue. Son visage devint livide en témoignant d'une scène d'horreur à travers les âmes errantes.
 
 Duanmu et Wang Qingyue ne firent pas long feu sous l'assaut de Bossu Meng. Ce dernier ouvrit une faille d'où surgit une main démoniaque gigantesque qui empoigna les deux hommes sans qu'ils puissent opposer la moindre résistance. La tête du démon était hérissée d'épines osseuses, et une aura maléfique s'en dégageait, faisant trembler de peur quiconque la croisait.
 
@@ -156,7 +156,7 @@ L'incertitude se lut sur le visage de Wang Lin. Il récupéra les démons Xu Lig
 
 Il sentait déjà que Bossu Meng, tel un démon, le poursuivait à une vitesse extrême.
 
-Wang Lin voyagea à toute allure, le visage sombre, calculant sans cesse. S'ils maintenaient leur vitesse actuelle, il devrait atteindre le tourbillon du quatrième royaume avant d'être rattrapé par Bossu Meng.
+Wang Lin voyagea à toute allure, le visage sombre, calculant sans cesse. S'ils maintenaient leur vitesse actuelle, il devrait atteindre le tourbillon de sortie de la troisième épreuve avant d'être rattrapé par Bossu Meng.
 
 C'est alors que le démon Bossu Meng utilisa une étrange méthode inconnue de Wang Lin. Il recouvrit son corps d'une lueur rouge sang et sa vitesse fut multipliée par plusieurs. À mesure que la distance se réduisait, la vitesse de Bossu Meng ne diminuait pas; elle augmentait encore.
 

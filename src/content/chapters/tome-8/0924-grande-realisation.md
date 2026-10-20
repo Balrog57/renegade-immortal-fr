@@ -56,7 +56,7 @@ Il était si difficile pour les cultivateurs du deuxième stade d'augmenter leur
 
 Maître Yan Leizi retira sa main, regarda Wang Lin et éclata de rire: « Bien! Bien! Bien! »
 
-« Xu Mu, tu as accompli un exploit grandiose! Ji Xiantian était le chef des quatre saints de l'Alliance. À l'époque, il occupait le neuvième rang! Tu as fait preuve d'un mérite immense. Luotian et moi-même nous en souviendrons! » Maître Yan Leizi laissa échapper un rire satisfait. Ce Ji Xiantian était l'un de ceux qui l'avaient traqué autrefois.
+« Xu Mu, tu as accompli un exploit grandiose! Ji Xiantian était le chef des quatre saints de l'Alliance. À l'époque, il aurait pu se classer neuvième! Tu as fait preuve d'un mérite immense. Luotian et moi-même nous en souviendrons! » Maître Yan Leizi laissa échapper un rire satisfait. Ce Ji Xiantian était l'un de ceux qui l'avaient traqué autrefois.
 
 Ce revirement soudain des événements laissa les cultivateurs environnants avec des expressions perplexes. En particulier, Lie Yunzi et l'ancêtre de la famille Shengong regardèrent désormais Wang Lin d'un œil nouveau.
 

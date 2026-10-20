@@ -8,7 +8,7 @@ slug: les-casernes-de-larmure-noire
 ---
 Le Dao d'un cultivateur doit être inébranlable afin de ne pas être facilement affecté par les forces extérieures. C'est cela, un cœur de Dao!
 
-Emprunter la voie démoniaque, c'est comme traverser un vent profane qui transperce le corps, attaque le cœur et s'empare de l'âme!
+Emprunter la voie démoniaque, c'est comme traverser un vent profane qui transperce le corps, attaque le cœur, transforme la voie et bouleverse l'esprit!
 
 Lorsque les yeux de Wang Lin retrouvèrent leur clarté, une pointe de surprise y perça. Compte tenu de sa culture et de la solidité de son cœur de Dao, ce qu'il venait d'éprouver ressemblait à une véritable catastrophe.
 
@@ -36,7 +36,7 @@ Wang Lin ne les avait pas encore fusionnées, attendant le moment opportun. Cett
 
 Bien que cela puisse sembler long, tout s'était produit en un instant.
 
-Lorsque Treize vit que Wang Lin était revenu à la normale, il poussa un grand soupir de soulagement. Dans son cœur, tant que Wang Lin était là, rien n'était impossible. Il se précipita aux côtés de Wang Lin et lança un regard glacial aux soldats démons.
+Lorsque Treize vit que Wang Lin était revenu à la normale, il poussa un grand soupir de soulagement. Dans son cœur, tant que Wang Lin était là, rien n'était impossible. Il se précipita derrière Wang Lin et lança un regard glacial aux soldats démons.
 
 La nervosité quitta également Hu Pao. D'un geste de la main, il retira les fragments d'âme et se tint aux côtés de Wang Lin.
 
@@ -84,7 +84,7 @@ L'intendant de l'armée rattrapa le jeton, l'examina attentivement, hocha la tê
 
 Wang Lin récupéra le jeton et dit doucement: « Formation de transfert! »
 
-L'intendant leva les yeux vers Wang Lin et répondit: « Le Commandant Wang est un homme averti; il s'agit bien d'une formation de transfert. Cependant, elle diffère de celles que vos cultivateurs utilisent; elle a été créée par l'Empereur Démon pour permettre des transferts de précision absolue. »
+L'intendant leva les yeux vers Wang Lin et répondit: « Le Commandant Wang est un homme averti; il s'agit bien d'une formation de transfert. Cependant, elle diffère de celles que vos cultivateurs utilisent; elle a été créée par l'Empereur Démon pour des transferts point à point. »
 
 Sur ces mots, il fit un pas dans la matrice rouge sang et disparut.
 
@@ -120,4 +120,4 @@ Sous cette pression létale, l'environnement devint d'un silence absolu. Un sile
 
 Dix mille paires d'yeux étaient fixées sur un seul homme. Le point où convergeaient ces regards était précisément là où toute leur intention de tuer se concentrait. Ces dix mille regards n'étaient pas moins redoutables que dix mille épées volantes.
 
-Wang Lin se tenait au centre, parfaitement calme. La seule chose qui soutenait ces dix mille regards était la froideur de ses yeux.
+Wang Lin se tenait au centre, parfaitement calme. La seule chose qui répondait à ces dix mille regards était la froideur de ses yeux.

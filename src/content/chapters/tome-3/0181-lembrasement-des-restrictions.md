@@ -36,9 +36,9 @@ Wang Lin eut un ricanement intérieur. La distance qui le séparait de l'Empereu
 
 Toutefois, connaissant le tempérament de Wang Lin, on pouvait supposer que les environs regorgeaient de pièges. En réalité, on pourrait dire qu'il avait consigné ici tout le savoir acquis durant ces dix dernières années.
 
-Un mois plus tard, l'Empereur Antique se tenait sur le sentier ouvert un mois plus tôt, le visage décomposé. Il pensait initialement que la restriction était complexe en raison de la ruse de son adversaire, mais après un mois d'étude minutieuse, il fut stupéfait de constater sa simplicité. Ce revirement soudain l'agaçait profondément. Heureusement qu'il avait déjà affronté de telles situations. Il prit une profonde inspiration et leva les yeux vers le sommet. Il se jura que s'il croisait un jour cet homme mystérieux, il lui donnerait une leçon mémorable. Sa haine envers ce dernier s'était déjà muée en obsession.
+Un mois plus tard, l'Empereur Antique se tenait sur le sentier ouvert un mois plus tôt, le visage décomposé. Il pensait initialement que la restriction était complexe en raison de la ruse de son adversaire, mais après un mois d'étude minutieuse, il fut stupéfait de constater sa simplicité. Ce revirement soudain l'agaçait profondément. Heureusement qu'il avait déjà affronté de telles situations. Il prit une profonde inspiration et leva les yeux vers le sommet. Il se jura que s'il croisait un jour cet homme mystérieux, il lui donnerait une leçon mémorable. Sa haine envers ce dernier était déjà profondément ancrée.
 
-Néanmoins, l'Empereur Antique resta sur ses gardes, retenant son souffle. Cet individu mystérieux excellait dans les changements imprévus. Souvent, ce qui semblait être une vérité s'avérait être un leurre, et au moment où l'on baissait sa garde, le faux se révélait vrai.
+Néanmoins, l'Empereur Antique resta sur ses gardes, retenant son souffle. Cet individu mystérieux excellait dans les changements imprévus. Souvent, ce qui semblait être une vérité s'avérait être un leurre, et au moment où l'on baissait sa garde, ce qui n'était pas faux se révélait vrai.
 
 Par conséquent, l'Empereur Antique concentra toute son attention sur ses environs en progressant.
 
@@ -112,7 +112,7 @@ Le Seigneur Démon des Six Désirs observa l'Empereur Antique. Il ne s'attendait
 
 Mais l'apparition soudaine de l'Empereur Antique l'obligea à modifier ses plans.
 
-Les yeux de l'Empereur Antique se contractèrent en voyant le tourbillon. Il se souvint que c'était exactement la même technique que celle utilisée par le Magicien Démon Céleste, le maître du Seigneur Démon des Six Désirs. C'était une technique de restriction permettant de franchir trois cent trente mètres de restrictions.
+Les yeux de l'Empereur Antique se contractèrent en voyant le tourbillon. Il se souvint que c'était exactement la même technique que celle qu'avait utilisée il y a mille ans le Magicien Démon Céleste, le maître du Seigneur Démon des Six Désirs. C'était une technique de restriction permettant de franchir trois cent trente mètres de restrictions.
 
 « Six Désirs... » Les yeux de l'Empereur Antique étaient éteints alors qu'il réprimait sa colère. Comparé au Seigneur Démon des Six Désirs, il avait encore plus hâte de retrouver le mystérieux jeune homme. Son regard balaya la zone et se posa sur le garçon. Il fronça les sourcils: « Est-ce lui, le mystérieux jeune homme? Pourtant, aucune trace de vie ne semble émaner de lui... »
 

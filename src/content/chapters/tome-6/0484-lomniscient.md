@@ -44,7 +44,7 @@ Dès l'apparition de la bête, Bai Wei recula sans l'ombre d'une hésitation. Il
 
 Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âme, son expression changea également et elle recula rapidement de plus d'un kilomètre. À en juger par son regard, même elle redoutait cette bête.
 
-Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la Division Pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de beaucoup d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
+Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la Division Pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de plus de la moitié d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
 
 Parmi les disciples présents se trouvaient également des anciens disciplinaires, qui se lamentaient tous intérieurement. Ils réalisèrent que les luttes entre les disciples de l'Ancêtre n'étaient pas de leur ressort. Quel disciple accepté par l'Ancêtre pouvait être ordinaire? Ils avaient sous-estimé ce jeune homme parce qu'il n'était qu'au stade initial de la Transformation de l'Âme, mais sa force de combat stupéfiait même un cultivateur du stade avancé de la Transformation de l'Âme.
 
@@ -64,7 +64,7 @@ Wang Lin ricana et ignora Zhao Xingsha, continuant de fouetter le brouillard noi
 
 L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le sol, ses jambes tremblèrent et il faillit s'effondrer. C'est alors que le coup de fouet de Wang Lin frappa, expulsant son âme originelle de son corps de près d'un mètre.
 
-Wang Lin rangea le Fouet de l'Âme et sortit l'étendard de l'âme. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
+Wang Lin rangea le Fouet de l'Âme et sortit le drapeau des âmes. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
 
 Après cela, Wang Lin flotta calmement dans les airs et observa les environs. Au loin, tous les disciples de la Division Pourpre baissèrent la tête, n'osant croiser son regard.
 
@@ -78,7 +78,7 @@ Bai Wei esquissa un sourire amer et secoua la tête.
 
 Les yeux de la femme s'illuminèrent et elle rit: « Septième frère, tu as vraiment fait étalage de ta puissance aujourd'hui. Si l'occasion se présente, nous pourrons toujours nous affronter une autre fois. »
 
-Wang Lin hocha la tête, puis d'un geste de la main droite, il rappela les âmes primaires qui poursuivaient l'homme. Lorsqu'elles furent proches, il les aspira toutes, les renvoyant dans l'étendard de l'âme contenu au sein de son âme originelle.
+Wang Lin hocha la tête, puis d'un geste de la main droite, il rappela les âmes primaires qui poursuivaient l'homme. Lorsqu'elles furent proches, il les aspira toutes, les renvoyant dans le drapeau des âmes contenu au sein de son âme originelle.
 
 L'âme originelle de l'homme d'âge moyen était pétrifiée par la peur; il était véritablement terrifié. Plus tôt, il avait utilisé une technique interdite pour transformer son corps en celui d'un démon immortel. Ce corps était censé pouvoir tout dévorer, mais il n'avait pu engloutir ni l'épée ni la lame, avant que cette flamme à l'apparence si faible n'envahisse son être. La flamme avait provoqué l'effondrement de son corps de démon immortel, ce qui lui avait causé de graves blessures par contrecoup, et un filament de cette flamme était resté en lui. Elle avait également fait évaporer rapidement tout le sang qui coulait dans ses veines.
 

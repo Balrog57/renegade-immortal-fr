@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 59 - Questioning
 slug: interrogatoire
 ---
-Lu Yunjie frissonna. Il força un sourire et dit: « Wang... frère Wang, avez-vous besoin de quelque chose? Si vous avez besoin de pilules de rassemblement d'énergie spirituelle, j'en ai encore beaucoup en réserve et je peux vous en donner. »
+Lu Yunjie frissonna. Il força un sourire et dit: « Wang... frère Wang, avez-vous besoin de quelque chose? Si vous avez besoin de pilules de rassemblement de Qi, j'en ai encore beaucoup en réserve et je peux vous en donner. »
 
 « Troisième frère, il y a une chose que je veux de votre part: votre assistant, Wang Hao. » Wang Lin fixa Lu Yunjie. Auparavant, il n'avait pas eu assez d'assurance pour s'opposer à lui, alors il n'était pas intervenu pour Wang Hao. Mais après cette bataille, il avait une bien meilleure compréhension de sa propre puissance.
 
@@ -20,11 +20,11 @@ L'expression de Wang Lin changea brusquement. Il se déplaça comme l'éclair ve
 
 Huang Long et les autres anciens, confus, le suivirent. Dao Xu attrapa Lu Yunjie au passage en suivant Wang Lin.
 
-Peu de temps après, Wang Lin arriva au-dessus de la demeure d'alchimie dans la cour principale. Il balaya la zone avec son Sens Divin et repéra rapidement la faible force vitale de Wang Hao dans la pièce arrière. Dès qu'il entra dans la pièce, sa colère atteignit son paroxysme.
+Peu de temps après, Wang Lin arriva au-dessus de la demeure d'alchimie dans la cour principale. Il balaya la zone avec son Sens Divin et repéra rapidement la faible force vitale de Wang Hao dans la pièce arrière. Il ouvrit la porte d'un coup de pied et entra; il resta figé, et sa colère atteignit son paroxysme.
 
-Dans la grande salle se trouvait un gigantesque fourneau d'alchimie, à l'intérieur duquel Wang Hao était assis en tailleur. Sa force vitale s'étiolait de plus en plus.
+Dans la pièce arrière se trouvait un gigantesque fourneau d'alchimie, à l'intérieur duquel Wang Hao était assis en tailleur, le visage blême. Sa force vitale s'étiolait de plus en plus.
 
-Wang Lin ne cilla même pas. D'un geste de la main, il déploya sa technique d'attraction pour saisir Wang Hao. Alors que la main formée par la technique approchait du fourneau, une lumière aux couleurs de l'arc-en-ciel jaillit de celui-ci et percuta la main.
+Wang Lin ne cilla même pas. D'un geste de la main, il déploya sa technique d'attraction pour saisir Wang Hao. Alors que la main formée par la technique approchait du fourneau, une lumière aux couleurs de l'arc-en-ciel jaillit de celui-ci, formant un écran lumineux qui percuta la main.
 
 Wang Lin laissa échapper un reniflement glacial. Immédiatement, la puissance de la technique d'attraction atteignit son apogée et brisa la lumière arc-en-ciel dans un bruit de miroir qui se fracasse. Wang Lin saisit délicatement Wang Hao et le déposa au sol.
 
@@ -34,7 +34,7 @@ Il plaça sa main droite sur le front de Wang Hao et resta silencieux.
 
 Dao Xu examina attentivement Lu Yunjie, qu'il tenait fermement. Il le jeta au sol et tonna: « Lu Yunjie, tu as vraiment un sacré culot! Bien que cette Épreuve du Fourneau de Feu ne soit pas interdite, elle ne peut être utilisée que sur des personnes extérieures à la secte, et jamais sur les membres de la secte! L'as-tu oublié?! »
 
-Le visage de Lu Yunjie était d'une pâleur cadavérique. Il s'agenouilla et murmura: « Ce disciple est entré dans la secte et est devenu votre disciple à l'âge de 15 ans. Cela fait 25 ans et ce disciple est toujours bloqué au 6ème niveau. Je refuse d'abandonner. Une fois cette Épreuve terminée, l'élixir ne fera pas que prolonger ma vie, il me donnera aussi une chance de percer; je devais donc tenter le coup, quoi qu'il en coûte. Ce Wang Hao est mon assistant personnel. Selon les règles de la secte, je peux agir à ma guise et, puisqu'il ne fait pas partie de la secte, je n'ai rien commis de mal! »
+Le visage de Lu Yunjie était d'une pâleur cadavérique. Il s'agenouilla et murmura: « Ce disciple est entré dans la secte et est devenu votre disciple à l'âge de 15 ans. Cela fait 25 ans et ce disciple est toujours bloqué au 6ème niveau. Je refuse d'abandonner. Une fois cette Épreuve terminée, l'élixir ne fera pas que prolonger ma vie, il me donnera aussi une chance de percer; je devais donc tenter le coup, quoi qu'il en coûte. Ce Wang Hao est mon serviteur personnel. Selon les règles de la secte, je peux agir à ma guise et, puisqu'il ne fait pas partie de la secte, je n'ai rien commis de mal! »
 
 Wang Lin ouvrit les yeux. Auparavant, l'état de Wang Hao était critique, mais après avoir injecté de l'énergie spirituelle dans son corps, il avait réussi à lui sauver la vie. En entendant les paroles de Lu Yunjie, il laissa échapper quelques reniflements méprisants.
 
@@ -50,7 +50,7 @@ Huang Long agita ses manches et dit: « Bien, puisque l'affaire est réglée, Da
 
 Dao Xu regarda Wang Lin avec un sourire: « Neveu disciple Wang Lin, ne t'inquiète pas, laisse Wang Hao entre mes mains. Tant qu'il est en vie, je trouverai un moyen de le faire convalescer. »
 
-Wang Lin hocha légèrement la tête. Après avoir jeté un dernier regard à Wang Hao, dont le visage s'était quelque peu redressé, il quitta la demeure d'alchimie pour suivre Huang Long.
+Wang Lin hocha légèrement la tête. Après avoir jeté un dernier regard à Wang Hao, dont le visage avait légèrement repris des couleurs, il quitta la demeure d'alchimie pour suivre Huang Long.
 
 Wang Lin réfléchissait depuis tout à l'heure. Il comprenait parfaitement pourquoi le Maître de secte Huang Long voulait lui parler en privé. Peu de temps après, Huang Long conduisit Wang Lin dans la salle principale. Puis, il s'exclama soudainement: « Wang Lin, tu as vraiment un sacré culot! »
 

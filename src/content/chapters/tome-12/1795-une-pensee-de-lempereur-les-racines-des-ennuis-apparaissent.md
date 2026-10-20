@@ -62,7 +62,7 @@ Durant cette année, aucun son ne retentit. Dans ce lieu mystérieux, même le s
 
 Il ignorait quelle distance il avait parcourue; il savait seulement que sa direction était la bonne. Le dragon de sang autour de lui s'était affaibli, mais il persistait à briller faiblement pour lui indiquer la voie.
 
-Wang Lin ne savait pas où se trouvait Xuan Luo, mais il sentait qu'il était quelque part dans le vide, escortant ses amis vers la réincarnation. Il l'aidait également à résister à la Loi du Continent Astral Immortel afin qu'il n'en subisse pas trop les effets.
+Wang Lin ne savait pas où se trouvait Xuan Luo, mais il sentait qu'il était quelque part dans le vide, escortant ses amis vers la réincarnation. Il résistait également à la Loi du Continent Astral Immortel, si bien que Wang Lin n'en ressentait pas trop les effets.
 
 Cette sensation apportait une chaleur au cœur de Wang Lin. Parfois, il regardait le vide noir derrière lui. Il avait l'impression de voir la porte de sa ville natale l'observer alors qu'il s'éloignait.
 
@@ -116,7 +116,7 @@ Dans sa main se trouvait une perle émettant une lueur spectrale. Bien que l'int
 
 L'Empereur Dao Antique serra la perle dans sa main. Bien que la perle fût robuste, sa poigne était si forte que l'âme à l'intérieur trembla de peur.
 
-L'homme en robe royale leva la main et observa l'âme vacillante en murmurant: « Petite âme, pourquoi le Maître Impérial a-t-il dit que tu serais la clé pour que je règne sur le Continent Astral Immortel... »
+L'homme en robe royale leva la main et observa l'âme vacillante en murmurant: « Petite âme, pourquoi le Maître Impérial a-t-il dit que tu serais un élément essentiel pour que je règne sur le Continent Astral Immortel... »
 
 « Peu importe. Puisque tu es si importante, cet Empereur fera de toi son impératrice! Ye Dao, tente de fusionner cette âme avec toutes les femmes que tu as ramenées! »
 

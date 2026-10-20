@@ -40,7 +40,7 @@ Wang Lin répondit doucement: « Oui. »
 
 Le regard de Wang Lin se posa sur le visage de Li Qianmei, puis il le détourna précipitamment sans rien dire.
 
-« Merci pour ton trésor. Il m'a accompagnée sur le champ de bataille durant ces cent années de solitude… » dit doucement Li Qianmei en le fixant.
+« Merci pour ton trésor. Il m'a accompagnée sur le champ de bataille des fissures spatiales durant ces cent années de solitude… » dit doucement Li Qianmei en le fixant.
 
 Wang Lin ouvrit la bouche pour répliquer, mais finit par se taire.
 

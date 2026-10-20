@@ -32,7 +32,7 @@ Sans regret!!!
 
 Ces deux mots révélaient le cœur Dao de Wang Lin depuis plus de deux mille ans! Ils témoignaient de cette rencontre fatidique aux abords de la Mer des Démons, il y a plus de deux millénaires.
 
-Ces mots libérèrent l'amour, le désir et la tristesse qui habitaient Wang Lin tandis qu'il rugissait!
+Ces mots libérèrent l'amour, la nostalgie, le remords et la lassitude qui habitaient Wang Lin tandis qu'il rugissait!
 
 Hormis sa mère, aucune femme au monde ne pouvait remplacer Li Muwan dans son cœur. Il avait croisé d'innombrables beautés à travers les mondes, mais aucune n'était elle!
 

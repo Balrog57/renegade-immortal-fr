@@ -38,7 +38,7 @@ L'Ancêtre Sanguin fuyait rapidement, parcourant d'innombrables kilomètres depu
 
 Après avoir réfléchi un instant, l'Ancêtre Sanguin prit sa décision. Cependant, à cet instant, son expression changea radicalement et il recommença à fuir sans la moindre hésitation. Une ondulation se forma à environ 330 mètres derrière lui et la silhouette de Wang Lin en émergea.
 
-Lorsque le pied droit de Wang Lin se posa, ses yeux s'ouvrirent. Au loin, l'Ancêtre Sanguin avait presque perdu la raison, totalement terrassé par le choc.
+Lorsque le pied droit de Wang Lin se posa, ses yeux s'ouvrirent. Au loin, l'Ancêtre Sanguin avait failli perdre son âme, totalement terrassé par le choc.
 
 « Distorsion Spatiale! Cet homme n'a pas encore atteint le stade du Scruteur du Nirvana, comment peut-il utiliser un sort que seuls les cultivateurs du second pas peuvent maîtriser?! C'est impossible! » L'Ancêtre Sanguin s'enfuit précipitamment, l'amertume lui nouant le cœur.
 
@@ -98,11 +98,11 @@ Malgré l'encerclement par la rivière des enfers, une étincelle de puissance b
 
 « Transformation Sanguine! » L'âme originelle de l'Ancêtre Sanguin se métamorphosa et, en un instant, se changea en d'immenses griffes de sang qui jaillirent droit vers Wang Lin.
 
-D'un mouvement brusque, cinq déchirures chargèrent vers Wang Lin comme des dragons rugissants. Au moment où elles allaient se refermer, Wang Lin leva la main droite. L'énergie originelle emplit son corps et il frappa les déchirures, provoquant une explosion. Wang Lin recula hors de la rivière des enfers et cria: « Rivière des enfers, condensez les âmes! »
+D'un mouvement brusque, cinq déchirures chargèrent vers Wang Lin comme des dragons rugissants. Au moment où elles fondaient sur lui, Wang Lin leva la main droite. L'énergie originelle emplit son corps et il frappa les déchirures, provoquant une explosion. Wang Lin recula hors de la rivière des enfers et cria: « Rivière des enfers, condensez les âmes! »
 
 Les innombrables esprits plaintifs se condensèrent, imprégnés d'énergie originelle, ce qui les rendit plus féroces encore. Une multitude de ces esprits prirent l'apparence de Yao Xixue avant de charger l'Ancêtre Sanguin.
 
-L'Ancêtre Sanguin poussa un cri alors qu'il se retournait pour balayer l'espace derrière lui, comme s'il voulait déchirer cette rivière des enfers. Quant aux âmes ressemblant à Yao Xixue, bien qu'il sache qu'elles étaient factices, il était incapable de les attaquer.
+L'Ancêtre Sanguin poussa un cri alors qu'il se retournait pour balayer l'espace derrière lui, comme s'il voulait déchirer cette rivière des enfers. Quant aux âmes ressemblant à Yao Xixue, bien qu'il sache qu'elles étaient factices, il refusait de les attaquer.
 
 Grâce à la puissance de ses griffes, il parvint à ouvrir une brèche dans la rivière et à s'en échapper, mais d'innombrables âmes sous la forme de Yao Xixue lui barrèrent la route.
 

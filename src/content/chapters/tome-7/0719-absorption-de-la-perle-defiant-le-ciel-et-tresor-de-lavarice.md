@@ -16,7 +16,7 @@ Il avait passé soixante ans à absorber une quantité immense de tonnerre et de
 
 D'une simple pensée, l'âme originelle de Wang Lin quitta son corps. Après avoir erré un instant, elle réintégra son enveloppe.
 
-Un rire long et sonore s'échappa de la bouche de Wang Lin. Ce son ressemblait au grondement du tonnerre!
+Un long hurlement s'échappa de la bouche de Wang Lin. Ce son ressemblait au grondement du tonnerre!
 
 Le rugissement de l'éclair résonna à travers le monde, tel un cri défiant les cieux.
 
@@ -24,7 +24,7 @@ Le rugissement de l'éclair résonna à travers le monde, tel un cri défiant le
 
 Il atterrit au sol et s'assit en position du lotus. Son regard se posa sur la montagne qui ressemblait à un dragon accroupi.
 
-Les yeux de Wang Lin brillèrent et il frappa son sac de rangement. Le drapeau des mille millions d'âmes apparut dans sa main. Il agita la main et d'innombrables fragments d'âmes s'envolèrent. Si le tonnerre qui entourait la planète était encore présent, ces fragments d'âmes n'auraient absolument pas pu résister à un tel environnement.
+Les yeux de Wang Lin brillèrent et il frappa son sac de rangement. Le drapeau des âmes apparut dans sa main. Il agita la main et d'innombrables fragments d'âmes s'envolèrent. Si le tonnerre qui entourait la planète était encore présent, ces fragments d'âmes n'auraient absolument pas pu résister à un tel environnement.
 
 La masse de fragments d'âmes se rassembla pour former trois âmes primaires qui commencèrent à errer dans la région.
 
@@ -78,7 +78,7 @@ Dès l'apparition de l'aura ancienne, celle-ci se dissipa aussitôt. C'était co
 
 La personne qui tirait le seau ressentirait naturellement une secousse. Si elle était distraite, elle pourrait se blesser.
 
-Wang Lin ressentit précisément cela lorsqu'il échoua à extraire l'âme de la planète. Au moment où l'aura ancienne se dissipa, une force puissante percuta son corps. Des craquements résonnèrent dans ses os et son visage pâlit. Il lui fallut un certain temps pour s'en remettre.
+Wang Lin ressentit précisément cela lorsqu'il échoua à extraire l'âme de la montagne. Au moment où l'aura ancienne se dissipa, une force puissante percuta son corps. Des craquements résonnèrent dans ses os et son visage pâlit. Il lui fallut un certain temps pour s'en remettre.
 
 En contemplant la montagne devant lui, Wang Lin prit une profonde inspiration. La valeur de ce mont résidait dans le fait qu'il lui permettait d'expérimenter le sort d'extraction d'âme, normalement réservé aux cultivateurs du second niveau.
 

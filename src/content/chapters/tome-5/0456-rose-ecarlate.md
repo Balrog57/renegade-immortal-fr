@@ -28,7 +28,7 @@ En voyant son ancienne rivale réduite à cet état, Wang Lin ne put s'empêcher
 
 Comparant celle qu'elle était à ce qu'elle était devenue, Wang Lin aurait préféré retrouver la Papillon Rouge orgueilleuse d'autrefois. Ce n'est qu'en affrontant une Papillon Rouge telle qu'autrefois qu'il pourrait progresser vers les sommets de la culture.
 
-Wang Lin poussa un soupir et enfouit son regret au plus profond de son cœur. Il regarda Papillon Rouge et cria: « Qian Feng, sors de ta cachette! »
+Wang Lin poussa un soupir et enfouit son regret au plus profond de son cœur. Il regarda Papillon Rouge et dit calmement: « Qian Feng, sors de ta cachette! »
 
 Papillon Rouge restait là, le regard perdu dans le ciel, les yeux dénués d'émotion.
 
@@ -80,7 +80,7 @@ Wang Lin prit une profonde inspiration et fit face à Papillon Rouge. Sa main dr
 
 Une lance noire d'une dizaine de mètres se matérialisa dans sa main.
 
-Tenant la lance d'une seule main, les yeux de Wang Lin brillèrent comme des éclairs; il fixa Papillon Rouge et projeta une estocade.
+Tenant la lance d'une seule main, les yeux de Wang Lin brillèrent comme des éclairs; il fixa Papillon Rouge, son corps se changea en un trait d'ombre et il projeta une estocade.
 
 Le sifflement produit par le mouvement de la lance ressemblait aux hurlements de centaines de fantômes. Ce son, issu de la pointe de l'arme, résonna dans tout le secteur, à plusieurs kilomètres à la ronde.
 

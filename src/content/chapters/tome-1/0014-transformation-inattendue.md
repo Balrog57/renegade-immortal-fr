@@ -30,7 +30,7 @@ Wang Lin resta chez lui pour passer deux jours avec ses parents. Le troisième j
 
 L'obscurité gagnait du terrain. Le ciel se chargea de nuages sombres; le tonnerre grondait et l'humidité ambiante faisait apparaître une brume épaisse.
 
-Wang Lin ne put s'empêcher d'accélérer le pas. Il atteignit la Secte Heng Yue à minuit, puis alla se coucher. Zhang Hu ronflait encore. Wang Lin se tourna et se retourna sans cesse, incapable de trouver le sommeil. Au milieu de la nuit, un coup de tonnerre retentit et un éclair illumina la chambre. Wang Lin toucha la perle contre sa poitrine; lors de son retour au foyer, il avait demandé à sa mère de lui coudre une poche intérieure dans sa chemise.
+Wang Lin ne put s'empêcher d'accélérer le pas. Il atteignit la Secte Heng Yue tard dans la nuit, puis alla se coucher. Zhang Hu ronflait encore. Wang Lin se tourna et se retourna sans cesse, incapable de trouver le sommeil. Au milieu de la nuit, un coup de tonnerre retentit et un éclair illumina la chambre. Wang Lin toucha la perle contre sa poitrine; lors de son retour au foyer, il avait demandé à sa mère de lui coudre une poche intérieure dans sa chemise.
 
 Wang Lin sortit la bille de pierre et l'examina à la lueur de la lampe à huile. Il se frotta les yeux pour observer de plus près les motifs nuageux gravés sur la perle.
 
@@ -52,7 +52,7 @@ L'angoisse gagna Wang Lin. Il s'apprêtait à sortir pour chercher de l'aide aup
 
 Un nouvel éclair jaillit et Wang Lin remarqua que toutes les gouttes d'eau ressemblaient à des cristaux et convergeaient vers la pierre qu'il tenait en main.
 
-Wang Lin jeta précipitamment la bille et se laissa tomber au sol pour éviter les gouttelettes. La mystérieuse perle décrivit une courbe dans l'air avant de rouler dans un coin après avoir frappé le sol. Toutes les gouttes d'eau s'élancèrent aussitôt vers elle et disparurent en son sein.
+Wang Lin jeta précipitamment la bille et se laissa tomber au sol pour éviter les gouttelettes. La mystérieuse perle décrivit une courbe dans l'air avant de rouler sur le côté après avoir frappé le sol. Toutes les gouttes d'eau s'élancèrent aussitôt vers elle et disparurent en son sein.
 
 Un instant plus tard, toute l'eau de la pièce avait disparu. Même les lits étaient désormais secs. La respiration de Zhang Hu retrouva sa normalité.
 

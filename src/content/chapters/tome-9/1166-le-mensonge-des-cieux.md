@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1166 - The Lie of Heaven
 slug: le-mensonge-des-cieux
 ---
-Aucun cultivateur de la Secte de l'Origine n'avait remarqué ce qui s'était passé dans la cour sud. La cour sud était une terre interdite, si bien qu'aucun disciple n'osait y pénétrer. Même Lu Yanfei et sa suite n'y venaient que sur invitation, et ils n'auraient jamais osé s'y introduire de force.
+Aucun cultivateur de la Secte de l'Origine n'avait remarqué ce qui s'était passé dans la cour des herbes. La cour sud était une terre interdite, si bien qu'aucun disciple n'osait y pénétrer. Même Lu Yanfei et sa suite n'y venaient que sur invitation, et ils n'auraient jamais osé s'y introduire de force.
 
 Après avoir instantanément tué une bête de rang 8 et ordonné aux cultivateurs des trois sectes de rang 6 de déguerpir, Wang Lin était devenu une figure quasi ancestrale pour les disciples de la Secte de l'Origine. Ils étaient empreints de respect et d'une profonde crainte envers lui.
 
@@ -88,7 +88,7 @@ Wang Lin ne répondit pas, mais leva sa main droite et fit un geste ample. Une b
 
 Wang Lin secoua la tête et d'un revers de main, un second cercle se forma autour du premier.
 
-« Une fois dehors, il y aura encore un autre ciel, et le cycle du karma continuera sans fin jusqu'à ce que... le ciel dans votre cœur soit effacé par les cieux. Et voilà le mensonge des cieux! J'y pensais déjà il y a des centaines d'années. Alors, pourquoi doit-il nécessairement y avoir un ciel? »
+« Une fois dehors, il y aura encore un autre ciel, et le cycle du karma continuera sans fin jusqu'à ce que... vous soyez effacés par le ciel dans votre cœur, au sein des cieux. Et voilà le mensonge des cieux! J'y pensais déjà il y a des centaines d'années. Alors, pourquoi doit-il nécessairement y avoir un ciel? »
 
 Une fois son discours achevé, Wang Lin se rassit calmement et ne dit plus un mot.
 

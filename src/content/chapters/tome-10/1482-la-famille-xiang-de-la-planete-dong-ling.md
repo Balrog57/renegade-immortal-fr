@@ -76,9 +76,9 @@ Elle affirmait que la famille la plus mystérieuse, détentrice d'un héritage d
 
 La famille Xiang n'existait que pour monter la garde devant les portes de cette famille mystérieuse!
 
-Cette famille de culture antique existait depuis bien avant l'effondrement du Royaume Céleste. La puissance qu'elle avait accumulée était inimaginable!
+Cette famille de culture antique existait depuis bien avant l'effondrement du Royaume Céleste. Elle avait traversé toute l'Antiquité et perduré sans interruption pendant d'innombrables centaines de millions d'années. La puissance qu'elle avait accumulée était inimaginable!
 
-Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Luotian lorsque Maître Lu Fu déclencha la guerre, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
+Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Luotian lorsque Maître Lu Fu déclencha la guerre contre l'Alliance, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
 
 L'ordre consistait à conférer le titre d'Immortel véritable. La personne envoyée était le neuvième Ancien, celui qui avait cherché à s'emparer de l'essence lunaire dans le corps du Serpent aux yeux de lune: Maître Yi Mu.
 

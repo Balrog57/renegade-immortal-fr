@@ -34,7 +34,7 @@ En marchant, il croisa un homme et une femme vêtus de robes bleues qui discutai
 
 Portés par le vent, leurs mots lui parvinrent lentement.
 
-« Sœur Cadette, j'ai entendu dire que dans sept jours, le Marché de l'Œil Fantôme ouvrirait ses portes pour une vente exceptionnelle. Plusieurs cultivateurs s'y seraient déjà précipités. »
+« Sœur Cadette, j'ai entendu dire que dans sept jours, le Marché de l'Œil Fantôme rouvrirait ses portes. Plusieurs cultivateurs s'y seraient déjà précipités. »
 
 « Le Marché de l'Œil Fantôme? Celui qui est devenu célèbre instantanément après avoir mis aux enchères un sort céleste? » La voix de la femme était empreinte de surprise.
 

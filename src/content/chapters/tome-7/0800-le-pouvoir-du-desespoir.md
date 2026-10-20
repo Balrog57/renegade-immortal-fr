@@ -50,7 +50,7 @@ De l'autre côté, sous les ordres d'un cultivateur Yin Illusoire, six ou sept a
 
 « Tuez! »
 
-Sur un autre flanc, les deux cultivateurs Yang Corporel se séparèrent pour affronter chacun un messager. Ils utilisèrent leurs sorts d'origine sans la moindre hésitation, tandis que derrière eux, plus de dix Ascendants projetaient sorts et trésors magiques avec frénésie.
+Sur un autre flanc, les deux cultivateurs Yang Corporel se séparèrent pour affronter chacun un messager. Ils utilisèrent leurs sorts d'énergie originelle sans la moindre hésitation, tandis que derrière eux, plus de dix Ascendants projetaient sorts et trésors magiques avec frénésie.
 
 « Tuez! »
 
@@ -64,7 +64,7 @@ Une tempête pour la survie!
 
 Quiconque tenterait de les arrêter serait tué! Si un céleste fait obstacle, tuez le céleste; si un démon fait obstacle, tuez le démon!
 
-C'était comme si tous les cultivateurs étaient devenus fous! L'un des messagers leva un doigt et l'écrasa entre les sourcils d'un Ascendant en pleine charge. Le corps de ce dernier trembla instantanément avant de s'effondrer, son âme originelle se dissipant. Cependant, avant de mourir, il s'était précipité pour mordre le bras du messager. La lueur rouge dans ses yeux fit vaciller l'esprit du messager, malgré la mort imminente de son assaillant.
+C'était comme si tous les cultivateurs étaient devenus fous! L'un des messagers leva un doigt et l'écrasa entre les sourcils d'un Ascendant en pleine charge. Le corps de ce dernier trembla instantanément avant de s'effondrer, son âme originelle se dissipant. Cependant, avant de mourir, il s'était précipité pour mordre le bras du messager. La lueur rouge dans ses yeux fit vaciller l'esprit du messager, bien que cette morsure ne vînt plus que d'une tête en train de se désintégrer.
 
 « Tuez! »
 

@@ -34,7 +34,7 @@ Cela surprit grandement Wang Lin. Il regarda la fille, et il en fut de même pou
 
 Une fois que les deux enfants eurent fusionné avec l'herbe, Liu Jinbiao prit une expression de fierté. Il regarda les enfants devant lui et ses yeux brillèrent d'un éclat intense.
 
-Il se leva et s'envola hors de la grotte avec les deux enfants, mettant le cap vers le sud.
+Il se leva et, changé en vent noir, s'envola hors de la grotte avec les deux enfants, filant à toute allure vers le sud.
 
 Peu après, une montagne drapée de nuages apparut devant Liu Jinbiao. Le relief était extrêmement escarpé et des rugissements de bêtes s'en échappaient par intermittence.
 
@@ -118,4 +118,4 @@ Liu Jinbiao agita sa manche et dit froidement: « La voie de la tromperie est mo
 
 Pourtant, à cet instant précis, il était terrifié au fond de lui. Mais il avait trompé tant de gens pendant tant d'années qu'il en était venu à la seconde étape de la tromperie: se tromper lui-même. Il s'était ainsi persuadé de ses propres mensonges, et s'il parvenait à duper sa propre conscience, alors il n'avait plus peur que les autres ne le croient!
 
-Wang Lin, assis à l'intérieur du palais, ne craignait pas d'être remarqué. Il sourit amèrement tout en se remémorant le passé.
+Wang Lin, assis à l'intérieur du palais, était imperceptible pour quiconque. Il sourit amèrement tout en se remémorant le passé.

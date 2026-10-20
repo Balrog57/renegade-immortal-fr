@@ -112,7 +112,7 @@ Après l'excitation vint une pointe d'appréhension.
 
 « Heureusement que mon domaine n'a pas encore atteint le niveau d'Ascendant, sinon j'aurais commencé à tenter la percée pendant mon sommeil. Je n'aurais pas pu utiliser le cristal d'ascension que Zhou Yi m'a donné, et si j'avais échoué, ma mort aurait été bien pitoyable! » Wang Lin réfléchit, puis ses yeux s'illuminèrent.
 
-« Avec ma culture actuelle, personne au stade de la Transformation de l'Âme ne peut rivaliser avec moi. Il me suffit maintenant que mon domaine atteigne le niveau d'Ascendant, et je pourrai trouver un lieu secret pour conclure ma progression... Et cet endroit est le plus secret qui soit; une fois que mon domaine aura fait sa percée, je reviendrai ici pour atteindre le stade d'Ascendant! »
+« Avec ma culture actuelle, personne au stade de la Transformation de l'Âme ne peut rivaliser avec moi. Il me suffit maintenant que mon domaine atteigne le niveau d'Ascendant, et je pourrai trouver un lieu secret pour tenter la percée... Et cet endroit est le plus secret qui soit; une fois que mon domaine aura fait sa percée, je reviendrai ici pour atteindre le stade d'Ascendant! »
 
 « Tout dans ce monde dépend du destin. C’était une coïncidence miraculeuse que j'entre ici. Sinon, même avec les jades célestes, il m'aurait fallu bien des années pour arriver à cet état. Est-ce là ce que les mortels appellent une rencontre fortuite... » Wang Lin était d'humeur joyeuse car, après un an de sommeil, il se trouvait dans une condition excellente. Alors qu'il s'apprêtait à briser la restriction environnante, une pensée le fit tressaillir.
 

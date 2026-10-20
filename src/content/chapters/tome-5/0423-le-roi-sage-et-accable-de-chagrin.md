@@ -93,7 +93,7 @@ D'un ton glacial, il dit: « La quatrième âme est certes puissante! Mais Du Ti
 
 Les paroles de Zhu Quezi étaient calculées. La quatrième âme qu'il voulait capturer n'était pas telle qu'elle se présentait. Il convoitait la quatrième âme dans un état bien plus puissant. La seule façon pour elle d'atteindre cette puissance était de dévorer une immense quantité de fragments d'âmes et d'âmes primaires.
 
-Il faut dire qu'en matière de ruse, Du Tian ne faisait pas le poids face à Zhu Quezi! Il n'y avait là rien d'étonnant: la quatrième âme était convoitée depuis des générations par les Suzaku, qui avaient tout tenté pour la capturer.
+Il faut dire qu'en matière de ruse, Du Tian ne faisait pas le poids face à Zhu Quezi! Le dicton affirme que nul n'est plus sage qu'un souverain, et il ne ment pas. Il n'y avait là rien d'étonnant: la quatrième âme était convoitée depuis des générations par les Suzaku, qui avaient tout tenté pour la capturer.
 
 Du Tian fixa Zhu Quezi et pointa plusieurs fois l'air de sa main droite; aussitôt, les fragments d'âmes qui flottaient alentour se brisèrent un à un.
 
@@ -121,7 +121,7 @@ Cependant, son sang commença lentement à s'imprégner dans la quatrième âme.
 
 Le regard de Zhu Quezi devint glacial. Il frappa son sac de rangement et en sortit un petit pot rouge. Sa main traça un sceau et il ordonna: « Affine! »
 
-D'un seul mot, un filet de flamme blanche jaillit du petit pot. Les environs, sur 330 mètres à la ronde, se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Sainte Flamme Suzaku!
+D'un seul mot, un filet de flamme blanche jaillit du petit pot. Les environs, sur 330 mètres à la ronde, se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Flamme Sainte de Suzaku!
 
 « Voyons si ton Âme de Triple Métal est plus tranchante que la flamme de mon Pot de Feu, ce trésor céleste! Je vais affiner cette quatrième âme! »
 

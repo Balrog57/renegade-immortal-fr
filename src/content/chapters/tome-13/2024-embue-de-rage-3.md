@@ -66,7 +66,7 @@ Alors qu'il hurlait, son niveau de culture commença à grimper, passant du stad
 
 Cela aurait dû le réjouir, mais en cet instant, Wang Lin ne ressentait aucun changement. L'unique pensée qui occupait son esprit était de massacrer son chemin jusqu'au palais, d'assassiner l'Empereur du Dao Antique et de reprendre Wan Er!!
 
-Son corps était entouré d'une aura violente. D'un geste de la main vers la vallée, il fit trembler la terre entière; toute la Montagne du Dao Antique sembla vaciller. Dans la grotte souterraine, le Grand Soleil Empyréen de Wang Lin et la tête de l'Ancêtre Céleste tremblèrent. Une fissure apparut au plafond de la grotte, et le Grand Soleil Empyréen de Wang Lin fit jaillir la tête à travers l'ouverture!
+Son corps était entouré d'une aura violente. D'un geste de la main vers la vallée, il fit trembler la terre entière; tout le Mont Gu Dao sembla vaciller. Dans la grotte souterraine, le Grand Soleil Empyréen de Wang Lin et la tête de l'Ancêtre Céleste tremblèrent. Une fissure apparut au plafond de la grotte, et le Grand Soleil Empyréen de Wang Lin fit jaillir la tête à travers l'ouverture!
 
 Cependant, à cet instant précis, les neuf personnes ayant reçu le message de Xuan Luo arrivèrent. Neuf rayons de lumière percèrent le ciel pour atteindre la vallée.
 
@@ -98,11 +98,11 @@ Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin
 
 « Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante au cœur. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
 
-« Écartez-vous de mon chemin!! » Les yeux de Wang Lin brillaient d'une détermination inflexible. Il devait tuer l'Empereur du Dao Antique avant l'arrivée de Xuan Luo pour ne pas compliquer la situation de son maître!
+« Dégagez!! » Les yeux de Wang Lin brillaient d'une détermination inflexible. Il devait tuer l'Empereur du Dao Antique avant l'arrivée de Xuan Luo pour ne pas compliquer la situation de son maître!
 
 C'était la seule voie possible pour Wang Lin!
 
-Les visages des neuf se décomposèrent lorsqu'un Grand Soleil Empyréen apparut derrière Wang Lin. Ce soleil était un peu plus dense que celui de la Montagne Gu Dao. À sa vue, les pupilles des neuf disciples se rétractèrent violemment!
+Les visages des neuf se décomposèrent lorsqu'un Grand Soleil Empyréen apparut derrière Wang Lin. Ce soleil était un peu plus dense que celui du Mont Gu Dao. À sa vue, les pupilles des neuf disciples se rétractèrent violemment!
 
 « Un Grand Empyréen!!! »
 

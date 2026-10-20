@@ -90,7 +90,7 @@ Le dragon marin commençait à se redresser, mais lorsqu'il entendit le nom de �
 
 « Qui sera le premier à arriver... » murmura Wang Lin. Il voulait que cet instant soit celui qui choquerait tout le monde!
 
-Pendant que Liu Jinbiao enseignait au dragon marin comment détester Xu Liguo, loin de là, dans la ville impériale du Continent Central, un homme vêtu de bleu éternua soudainement. Il avait un visage de scélérat.
+Pendant que Liu Jinbiao enseignait au dragon marin comment détester Xu Liguo, loin de là, dans la ville impériale du Continent Central, un homme vêtu de bleu, au visage de petit vaurien comblé, éternua soudainement.
 
 La ville impériale était le centre du clan céleste et couvrait une zone immense, presque aussi vaste qu'un continent entier. Une telle cité extraordinaire aurait été impossible à bâtir pour des mortels, à moins que d'innombrables âmes n'y aient consacré des dizaines de milliers d'années.
 
@@ -100,9 +100,9 @@ Dans la partie est de la ville, dans une rue animée, marchait un jeune homme v�
 
 Tous ces gardes étaient des hommes qui suivaient silencieusement derrière lui.
 
-Aux côtés du jeune homme se trouvaient deux autres personnes. L'un d'eux était un adolescent au regard arrogant, vêtu de bleu, mais qui marchait d'une manière singulière, comme s'il tenait quelque chose entre ses jambes.
+Aux côtés du jeune homme se trouvaient deux autres personnes. L'un d'eux était un adolescent au regard arrogant, vêtu de bleu, mais qui marchait d'une manière singulière, comme s'il serrait les jambes.
 
-L'autre était un jeune homme en rouge à l'allure ambitieuse qui, à cet instant précis, éternuait sept ou huit fois de suite.
+L'autre était un jeune homme en rouge à la mine de petit vaurien comblé qui, à cet instant précis, éternuait sept ou huit fois de suite.
 
 « Tiens, Seigneur Xu, seriez-vous tombé malade avec le vent froid d'hier pour qu'on vous entende ainsi éternuer? » lança l'adolescent arrogant d'une voix très aiguë.
 

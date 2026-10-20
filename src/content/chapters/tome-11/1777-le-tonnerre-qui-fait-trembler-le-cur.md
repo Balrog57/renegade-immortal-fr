@@ -20,7 +20,7 @@ Le Maître du Dao Rêve Bleu cracha du sang. La cithare vibra et il fut gravemen
 
 Même le vieil homme nommé Ma subit un violent contrecoup lorsque l'Âme aux Sept Couleurs brisa son sort. Du sang s'échappa du coin de sa bouche et il fut repoussé de plusieurs milliers de pieds. Pourtant, il serra les dents et se retourna pour charger une fois de plus.
 
-Au moment même où l'Âme aux Sept Couleurs et le Vieux Fantôme Zhan se séparaient, ce dernier fonça vers les deux hommes d'âge moyen de la Planète des Cinq Éléments, qui combattaient les Généraux Tortue Noire et Oiseau Vermillon.
+Au moment même où le pouvoir de l'Âme aux Sept Couleurs et celui du Vieux Fantôme Zhan entraient en collision, ce dernier fonça vers les deux hommes d'âge moyen de la Planète des Cinq Éléments, qui combattaient les Généraux Tortue Noire et Oiseau Vermillon.
 
 La Tortue Noire et l'Oiseau Vermillon avaient déjà conclu un accord avec le Vieux Fantôme Zhan, ou peut-être étaient-ils contraints de l'aider. Ils estimaient que suivre le Vieux Fantôme Zhan était leur seule option, allant jusqu'à croire qu'il deviendrait le nouveau Souverain Céleste aux Sept Couleurs!
 
@@ -40,7 +40,7 @@ Comparé au vieil homme Ma, le Maître du Dao Rêve Bleu était plus anxieux, ma
 
 Tang Shan n'avait pas perdu connaissance. Elle serra les dents et bondit dans les airs pour intercepter la Tortue Noire et l'Oiseau Vermillon.
 
-Non loin de là, Tuo Sen était scellé par trois caractères « Bataille ». À cet instant, il poussa un rugissement et brisa les sceaux qu'il avait affaiblis. Une fois le sceau rompu, il se précipita vers la Tortue Noire et l'Oiseau Vermillon.
+Non loin de là, Tuo Sen était scellé par trois caractères « Bataille ». À cet instant, il poussa un rugissement et, d'un coup de poing, brisa les sceaux qu'il avait affaiblis. Une fois le sceau rompu, il se précipita vers la Tortue Noire et l'Oiseau Vermillon.
 
 Cependant, lui et Tang Shan étaient toujours plus lents que les deux généraux. Juste au moment où ces derniers atteignirent la montagne effondrée pour s'y engouffrer, un changement stupéfiant survint.
 

@@ -20,7 +20,7 @@ Ce clou ne mesurait que sept pouces de long, et il était déjà enfoncé de cin
 
 Car ce clou avait transpercé le point entre ses sourcils! C'était un point vulnérable pour les cultivateurs, contrairement à l'épaule où Wang Lin avait été poignardé!
 
-En ce moment de crise, le visage du Shui Daozi devint livide et la peur envahit ses yeux. Il savait parfaitement de quoi les Clous Divins du Vide aux Sept Couleurs étaient capables. Lorsqu'il vit son maître être transpercé par quatre-vingt-quatorze clous, cette expression de douleur fut quelque chose que le Shui Daozi ne pourrait jamais oublier!
+En ce moment de crise, le visage du Shui Daozi devint livide et la peur envahit ses yeux. Il savait parfaitement de quoi les Clous Divins du Vide aux Sept Couleurs étaient capables. Lorsqu'il vit son maître être cloué sur place par quatre-vingt-quatorze clous, cette expression de douleur fut quelque chose que le Shui Daozi ne pourrait jamais oublier!
 
 « Maître, sauvez-moi!!! » Le Shui Daozi tenta de reculer, mais le doigt le suivit pour enfoncer davantage le clou. Au moment où le Shui Daozi poussa son cri, une force puissante jaillit de l'intérieur de son corps. Cette puissance se condensa sur le dos de la main droite du Shui Daozi et se transforma en un talisman!
 
@@ -56,7 +56,7 @@ Ce fut comme un seau d'eau glacée versé sur le Shui Daozi. La folie dans ses y
 
 « Cet enfant possède le potentiel de devenir un cultivateur du troisième étape! Il a réellement compris sa propre essence. Les cultivateurs sont innombrables dans ce monde, mais ceux du troisième étape sont extrêmement rares. Cet enfant... cet enfant pourrait vraiment atteindre ce stade! S'il disposait de suffisamment de temps, je crains qu'il ne devienne un cultivateur du troisième étape en seulement mille ans! » L'expression du Shui Daozi devint sombre, mais sa détermination à tuer Wang Lin s'en trouva renforcée.
 
-« Il doit mourir! » Le Shui Daozi chargea Wang Lin. Il leva la main droite et une gigantesque planète de culture apparut devant lui. Il s'apprêtait à utiliser la puissance de cette planète pour écraser Wang Lin, qu'il considérait comme une fourmi devenue mortelle, puis comme quelqu'un ayant le potentiel de devenir un cultivateur du troisième étape!
+« Il doit mourir! » Le Shui Daozi chargea Wang Lin. Il leva la main droite et une gigantesque planète de culture apparut devant lui. Il s'apprêtait à utiliser la puissance de cette planète pour écraser Wang Lin, qu'il considérait comme une fourmi devenue un simple mortel, puis comme quelqu'un ayant le potentiel de devenir un cultivateur du troisième étape!
 
 L'aura de mort autour de Wang Lin tournait frénétiquement. L'essence de vie et de mort à l'intérieur grandissait. Bien que lentement, elle était bien réelle. On aurait dit qu'elle allait se libérer du vortex de la mort pour apparaître dans ce monde!
 
@@ -86,7 +86,7 @@ Cependant, sitôt cette pensée apparue, il l'écrasa!
 
 L'effondrement de cette étoile de loi forma un troisième vortex qui balaya le monde et enveloppa Wang Lin. Dans ce troisième vortex, il y avait en fait... une essence également!
 
-Le domaine du vrai et du faux était contenu dans son étoile de loi. Au moment où cette nouvelle loi s'effondra, le domaine du vrai et du faux atteignit sa complétion!
+Le domaine du vrai et du faux était contenu dans son étoile de loi. Au moment où cette nouvelle loi s'effondra, le domaine du vrai et du faux atteignit une grande illumination!
 
 Une essence du vrai et du faux émana du vortex. C'était la troisième essence de Wang Lin!
 
@@ -98,7 +98,7 @@ Cette scène interrompit l'attaque du Shui Daozi, ses yeux manquant presque de s
 
 « Impossible!! Absolument impossible!! Trois essences... trois essences... personne n'est jamais entré dans le Dao avec trois essences! Cet enfant défie les cieux. S'il atteint le troisième étape, même s'il vient d'y entrer, je ne pourrai même pas m'échapper de lui!!! »
 
-« Trois essences! Le Souverain et Qing Lin n'en ont que deux. Même Maître n'en avait que deux et demi, incapable de réaliser complètement la troisième! Comment cet enfant peut-il avoir trois essences? Un tel être est quelqu'un que les cieux eux-mêmes voudront détruire. S'il devient un cultivateur du troisième étape, même toutes les étoiles antiques devront le reconnaître pour maître, nul ne pourra lui résister! Il pourrait détruire le monde et régner en maître suprême! »
+« Trois essences! Le Souverain et Qing Lin n'en ont que deux. Même Maître n'en avait que deux et demi, incapable de réaliser complètement la troisième! Comment cet enfant peut-il avoir trois essences? Un tel être est quelqu'un que les cieux eux-mêmes voudront détruire. S'il atteint la voie de la Tribulation du Vide du troisième étape, même toutes les étoiles antiques devront le reconnaître pour maître, nul ne pourra lui résister! Il pourrait détruire le monde et régner en maître suprême! »
 
 « Qui diable est-il?! Ce n'est pas un simple cultivateur, mais la réincarnation d'un être puissant. Quel genre de cultivateur posséderait la capacité de se réincarner et de cultiver trois essences?! »
 

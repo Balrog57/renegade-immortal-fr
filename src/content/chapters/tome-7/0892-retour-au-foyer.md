@@ -10,7 +10,7 @@ Il était évident que l'Empereur Céleste Qing Lin avait conçu le sort de gard
 
 Une distinction existait entre les deux. Les gardes célestes se concentraient sur le corps physique et la magie n'était qu'accessoire. Une fois raffinés, ils ne trahiraient jamais leur maître, à moins que celui-ci ne les libère.
 
-Le sort de scellement, quant à lui, n'atteignait pas la perfection en matière de loyauté. Tant qu'il s'agirait d'un sort, il resterait imparfait. Avec le passage du temps, divers problèmes pourraient surgir et briser l'enchantement.
+Le sort de scellement, quant à lui, n'atteignait pas la perfection en matière de loyauté. Or aucun sort n'a de permanence. Avec le passage du temps, divers problèmes pourraient surgir et briser l'enchantement.
 
 Wang Lin en était parfaitement conscient. Lorsque le sceau se posa entre les sourcils du garçon à la grosse tête, son corps trembla. Toute l'énergie d'origine céleste de son être commença à s'activer et un sceau identique se forma sur son âme originelle. Le garçon prit une profonde inspiration, se redressa avec un sourire amer et dit respectueusement: « Salutations, Maître. »
 
@@ -62,7 +62,7 @@ Une immense cité s'y trouvait, grouillante de vie et de bruit. Une plaque à bo
 
 La Cité Ancestrale!
 
-En observant la ville de loin, Wang Lin s'arrêta. L'image de sa ville natale et le souvenir de la voix de ses parents occupaient son esprit.
+En observant la ville de loin, Wang Lin s'arrêta. L'image de sa ville natale et le souvenir du visage et de la voix de ses parents occupaient son esprit.
 
 « Tout a changé... » L'expression de Wang Lin trahissait sa tristesse. Cette cité était radicalement différente de ses souvenirs.
 
@@ -112,7 +112,7 @@ Alors que Wang Lin marchait, aucun lieu ne lui parut familier. Tout était étra
 
 Soudain, Wang Lin eut un frisson. Ses plus de mille ans de culture devinrent extrêmement fragiles et commencèrent à vaciller en lui.
 
-Il était comme un homme ayant quitté son foyer depuis une éternité. Puis, après avoir côtoyé tous ces inconnus, il aperçut soudain quelque chose de familier.
+Il était comme un homme ayant quitté son foyer depuis une éternité. Puis, après avoir côtoyé tous ces inconnus, il aperçut soudain quelque chose de familier, et une émotion indicible le saisit.
 
 Wang Lin regarda devant lui. Au loin, sur plusieurs milliers de pieds à la ronde, une zone était entourée de murs de pierre. Des escouades de soldats patrouillaient les lieux. Il était évident que cet endroit était hautement protégé et que l'accès y était strictement interdit.
 

@@ -14,17 +14,17 @@ Cette pluie, d'une chaleur presque bouillante, se précipita vers le sol en siff
 
 Un jeune homme vêtu de robes violettes apparut au sommet du spectre. Ses yeux irradiaient une lueur assoiffée de sang et ses cheveux noirs flottaient derrière lui. Il chevauchait le fantôme, qui s'élança alors vers le sol.
 
-Wang Lin restait debout sur la terre ferme, levant calmement les yeux vers le ciel. D'un geste de la main droite, il rangea la poignée brisée dans son sac de stockage.
+Wang Lin restait debout sur la terre ferme, levant calmement les yeux vers le ciel. D'un geste de la main droite, il rangea la poignée brisée dans son sac de rangement.
 
-Alors que le fantôme démoniaque approchait, le jeune homme au sommet baissa les yeux vers Wang Lin et lâcha froidement: « Tu cherches la mort! » Sans bouger, il fit converger la pluie environnante qui se condensa rapidement pour jaillir vers lui. La pluie prit la forme de flèches perçant l'air, fonçant sur Wang Lin dans un étrange sifflement.
+Alors que le fantôme démoniaque approchait, le jeune homme au sommet baissa les yeux vers Wang Lin et lâcha froidement: « Tu cherches la mort! » Sans bouger, il fit converger la pluie environnante qui se condensa rapidement pour jaillir vers lui. La pluie prit la forme d'une flèche perçant l'air, fonçant sur Wang Lin dans un étrange sifflement.
 
 Le jeune homme se trouvait au stade Yin Illusoire, et il était évident qu'il n'était pas novice en matière de culture. Bien qu'il ne fût pas au sommet, il atteignait déjà le stade intermédiaire.
 
 Sa culture pouvait rivaliser avec celle du Daoïste du Tonnerre, et ses sorts démoniaques le rendaient encore plus redoutable. Même le Daoïste du Tonnerre n'aurait pas nécessairement l'avantage contre lui.
 
-Les flèches de pluie étaient imprégnées d'une intention meurtrière féroce. Le regard de Wang Lin se fit glacial et il recula de quelques pas. Sa main s'élança et des éclats de tonnerre explosèrent. Simultanément, des sphères de foudre apparurent, chacune reliée aux autres par des arcs électriques.
+La flèche de pluie était imprégnée d'une intention meurtrière féroce. Le regard de Wang Lin se fit glacial et il recula de quelques pas. Sa main s'élança et des éclats de tonnerre explosèrent. Simultanément, des sphères de foudre apparurent, chacune reliée aux autres par des arcs électriques.
 
-D'un mouvement du doigt, ces sphères de tonnerre chargèrent les flèches. Dès qu'elles furent à portée, elles explosèrent violemment, désintégrant instantanément les projectiles. Les innombrables flèches de pluie se dissipèrent toutes à cent pieds de Wang Lin.
+D'un mouvement du doigt, ces sphères de tonnerre chargèrent la flèche. Dès qu'elles furent à portée, elles explosèrent violemment, désintégrant instantanément le projectile. La flèche de pluie se désagrégea en d'innombrables gouttes, qui se dissipèrent à cent pieds de Wang Lin.
 
 Perché sur le fantôme démoniaque, le jeune homme déclara d'un ton calme et lent: « Un peu intéressant... »
 
@@ -50,7 +50,7 @@ Deux lumières démoniaques assoiffées de sang apparurent soudainement sur le v
 
 En un instant, une longue lance se forma. Faite de pluie, elle semblait pourtant sculptée dans l'encre noire et fluide. Le jeune homme fit un geste de la main et un rideau d'eau, chargé d'une dense énergie démoniaque, chargea vers Wang Lin.
 
-Impassible, Wang Lin frappa son sac de stockage, et un objet apparut dans sa main: la montagne céleste. Dès qu'elle fut saisie, elle grandit instantanément jusqu'à atteindre la taille d'une véritable montagne.
+Impassible, Wang Lin frappa son sac de rangement, et un objet apparut dans sa main: la montagne céleste. Dès qu'elle fut saisie, elle grandit instantanément jusqu'à atteindre la taille d'un immense rocher.
 
 Alors que le rideau d'eau approchait, Wang Lin pressa sa main droite sur la montagne, une lueur mystérieuse dans les yeux. Lorsqu'il leva la main, des filaments de l'âme de la montagne furent extirpés, comme s'ils se tiraient mutuellement vers l'extérieur.
 
@@ -96,7 +96,7 @@ Son expression devint féroce et il hurla: « Écran de Dong Lin! »
 
 Le sang d'essence explosa comme une goutte d'eau tombant dans l'huile bouillante. Une brume sanguine se rassembla devant lui pour intercepter le coup de la marionnette.
 
-Lorsque l'impact eut lieu sur la brume, un son qui fit trembler tout le fragment résonna soudainement. Ce bruit était assourdissant et l'onde de choc se propagea avec violence. C'était comme si la terre entière avait perdu dix pieds d'épaisseur sous la puissance du choc.
+Lorsque l'impact eut lieu sur la brume, un son qui fit trembler tout le fragment résonna soudainement. Ce bruit était assourdissant et l'onde de choc se propagea avec violence. C'était comme si la terre entière s'était soulevée de dix pieds sous la puissance du choc.
 
 D'immenses quantités de poussière s'élevèrent dans les airs, mêlées à des débris dégageant des fluctuations d'énergie spirituelle céleste.
 

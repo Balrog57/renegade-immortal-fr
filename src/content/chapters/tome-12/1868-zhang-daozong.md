@@ -52,7 +52,7 @@ Une pointe de tristesse l'habitait, mais plus encore, il ressentait un certain s
 
 C'était la dernière chose qu'il pouvait faire pour sa terre natale avant de mourir en tant que cultivateur du Continent du Taureau Céleste!
 
-« Ce vieil homme est né sur le Continent du Taureau Céleste. Toute ma culture provient de ce continent, et maintenant, je vais tout lui rendre. Je n'ai aucun regret! » Les yeux du vieil homme étaient calmes lorsqu'il se retourna. Pourtant, juste au moment où il allait exploser, ses pupilles se rétractèrent en voyant une ombre apparaître entre lui et son poursuivant.
+« Je suis né sur le Continent du Taureau Céleste. Toute ma culture provient de ce continent, et maintenant, je vais tout lui rendre. Je n'ai aucun regret! » Les yeux du vieil homme étaient calmes lorsqu'il se retourna. Pourtant, juste au moment où il allait exploser, ses pupilles se rétractèrent en voyant une ombre apparaître entre lui et son poursuivant.
 
 C'était une silhouette aux cheveux blancs, vêtue de blanc!
 

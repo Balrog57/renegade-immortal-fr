@@ -38,7 +38,7 @@ L'Empereur Céleste resta silencieux un instant, songeant à ces révélations. 
 
 « Tous les temples sont prêts à réveiller les esprits scellés dans leurs continents respectifs. Au prix de leur éveil, la force qui retient la tête de l'Ancêtre Céleste en ces lieux serait ébranlée, et alors seul l'Ancêtre Céleste lui-même pourrait la contenir. Vous auriez été contraint d'hériter de sa puissance, sous peine de voir tout le clan céleste sombrer dans le chaos! Et une fois que vous auriez tenté d'absorber ce pouvoir, vous auriez dû lever le sceau sur mon clan! » parla doucement Hai Zi.
 
-« Comme le Temple du Scorpion Vert... » Les pupilles de l'Empereur Céleste se rétractèrent.
+« Comme le Temple du Scorpion Démon Vert... » Les pupilles de l'Empereur Céleste se rétractèrent.
 
 Hai Zi acquiesça.
 
@@ -48,7 +48,7 @@ Dao Yi fronça les sourcils et déclara lentement: « Le Grand Empyréen Jiu Di 
 
 Wu Feng réfléchit en silence avant d'acquiescer.
 
-L'Empereur Céleste éclata soudain de rire, mais un rire empreint d'une amère profonde. Il se tourna vers le Grand Empyréen Gémeaux.
+L'Empereur Céleste éclata soudain de rire, mais un rire empreint d'une profonde amertume. Il se tourna vers le Grand Empyréen Gémeaux.
 
 « Et qu'en est-il de vous, Gémeaux? Connaissiez-vous également ce plan? »
 
@@ -90,7 +90,7 @@ Gémeaux réfléchit en silence. Comment ne pas avoir percé à jour leurs inten
 
 « Vous connaissiez donc la malédiction ancestrale que l'Ancêtre Céleste a laissée avant sa mort! » L'expression de l'Empereur Céleste était sombre.
 
-« J'ai cherché pendant de nombreuses années et j'ai enfin trouvé un indice il y a peu. Grâce à lui, j'ai pu confirmer que la légende était vraie. Si l'Ancêtre Céleste est mort, quiconque tenterait de détruire son corps mourrait...
+« J'ai cherché pendant de nombreuses années et j'ai enfin trouvé un objet il y a peu. Grâce à lui, j'ai pu confirmer que la légende était vraie. Si l'Ancêtre Céleste est mort, quiconque tenterait de détruire son corps mourrait...
 
 « À moins qu'il ne s'agisse d'un successeur possédant la même lignée qui, par la force de son sang, tue l'Ancêtre Céleste et endosse le poids de la malédiction afin de rompre la lignée. Dès lors, il n'y aura plus de descendance de l'Ancêtre Céleste à transmettre, et seulement alors la malédiction pourra être levée! Empereur Céleste, vous n'avez d'autre choix que de porter cette malédiction. Vous ne mourrez pas, mais le titre des Huit Extrêmes s'éteindra avec votre génération. Cependant, l'Ancêtre Céleste est mort depuis des éons et sa puissance enveloppe encore le clan céleste. Le temps est venu de changer!
 
@@ -102,7 +102,7 @@ L'Empereur Céleste sombra dans une profonde réflexion.
 
 Au sol, à l'intérieur de l'œil droit terne de la tête de l'Ancêtre Céleste, les yeux de Wang Lin s'illuminèrent tandis qu'il dissimulait son aura. Il avait tout entendu. Ce voyage au palais avait été semé d'embûches. Wang Lin en avait pressenti une partie, mais pas la totalité.
 
-« Le Respectable Bœuf Vert de la Secte de la Grande Âme m'a dit de revenir dans 300 ans pour monter au dernier étage... Le fondateur de la Secte de la Grande Âme m'a laissé quelque chose...
+« Le Très Respecté Taureau Vert de la Secte de la Grande Âme m'a dit de revenir dans 300 ans pour monter au dernier étage... Le fondateur de la Secte de la Grande Âme m'a laissé quelque chose...
 
 « L'ancêtre de la Secte de la Grande Âme, le génie du clan Dao Wang. Après m'avoir utilisé pour lever le sceau sur leur clan, que me laissera-t-il... » Wang Lin affichait une expression complexe.
 

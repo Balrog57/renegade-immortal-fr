@@ -100,11 +100,11 @@ Le vieil homme hocha la tête prestement avant de se dissiper en fumée, laissan
 
 L'Empereur s'assit aux côtés de la femme et la contempla avec une lueur étrange dans les yeux.
 
-« L'enseignant impérial a dit que cette âme ferait de moi le véritable Empereur Antique qui unifiera les trois clans... Il ne peut se tromper... Faire de cette femme mon impératrice est donc la plus belle des récompenses. »
+« L'Enseignant Impérial a dit que cette âme ferait de moi le véritable Empereur Antique qui unifiera les trois clans... Il ne peut se tromper... Faire de cette femme mon impératrice est donc la plus belle des récompenses. »
 
 Tout en murmurant, il leva la main droite et caressa doucement son visage avec un léger sourire.
 
-« Bien que cette femme ne soit pas d'une beauté éclatante, elle possède son propre charme. Je me suis toujours demandé d'où l'enseignant impérial avait tiré cette âme, mais il est resté muet... Mais cette âme devait aussi être une beauté de son vivant... Elle a sans doute eu son propre amant, et peut-être que celui-ci a ressenti une douleur extrême après sa mort... »
+« Bien que cette femme ne soit pas d'une beauté éclatante, elle possède son propre charme. Je me suis toujours demandé d'où l'Enseignant Impérial avait tiré cette âme, mais il est resté muet... Mais cette âme devait aussi être une beauté de son vivant... Elle a sans doute eu son propre amant, et peut-être que celui-ci a ressenti une douleur extrême après sa mort... »
 
 « Hélas, il ne saura jamais que cette femme est entre mes mains... Ce serait fort intéressant de découvrir qui était son ancien amant. »
 
@@ -118,7 +118,7 @@ Le corps de la femme tressaillit comme si elle ressentait la douleur même dans 
 
 Tandis que les larmes de la femme coulaient, loin de là, au pied du Mont Gu Dao, Wang Lin levait les yeux vers le sommet avec froideur.
 
-Le Grand Empyréen Gu Dao ne le reconnaissait manifestement pas, mais Wang Lin ne reconnaissait pas non plus le clan Antique. La seule personne qu'il respectait était Xuan Luo!
+Le Grand Empyréen Gu Dao ne l'approuvait manifestement pas, mais Wang Lin n'approuvait pas non plus le clan ancien. La seule personne qu'il respectait était Xuan Luo!
 
 Sans Xuan Luo, il ne serait jamais venu ici!
 

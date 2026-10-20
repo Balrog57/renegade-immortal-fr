@@ -84,11 +84,11 @@ Ces trois grains étaient rouge sombre, comme s'ils étaient imprégnés de sang
 
 Contemplant ces grains dans sa paume, le vieil homme soupira. Sa famille avait déployé des efforts colossaux et consacré d'innombrables années et ressources pour rassembler ces trois grains de sable. La rumeur disait que ces grains faisaient partie des neuf grains de sable chargés d'essence terrestre créés par l'Ancêtre Céleste lors de la création du premier continent!
 
-Outre ces trois grains, cinq autres furent absorbés par des êtres pour l'essence terrestre, et le dernier fut transformé en le continent où fut bâtie la Cité Impériale!
+Outre ces trois grains, cinq autres furent absorbés par des êtres pour l'essence terrestre, et le dernier fut transformé en le continent où fut bâtie la Capitale Impériale!
 
 Cet objet était d'une valeur inestimable, et très peu de gens l'avaient vu de près. Le vieil homme n'hésita pas et lança un grain de sable vers Wang Lin.
 
-Lorsque le grain pénétra dans le corps de Wang Lin, un grondement de tonnerre éclata. La fine couche de terre autour de lui grandit rapidement jusqu'à ce que Wang Lin soit enveloppé par une sphère de terre de quatre-vingt-dix pieds de large.
+Lorsque le grain pénétra dans le corps de Wang Lin, celui-ci se mit à gronder. La fine couche de terre autour de lui grandit rapidement jusqu'à ce que Wang Lin soit enveloppé par une sphère de terre de quatre-vingt-dix pieds de large.
 
 Cette sphère libéra une essence terrestre d'une puissance extrême et persista durant neuf jours avant de rétrécir jusqu'à disparaître. Puis, elle se propagea à nouveau depuis le corps de Wang Lin, et ce, huit fois encore, avant de perdre son effet.
 

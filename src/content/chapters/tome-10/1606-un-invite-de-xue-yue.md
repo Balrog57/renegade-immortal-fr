@@ -14,7 +14,7 @@ Les années passèrent, et Wang Lin dévora cette pilule. Elle lui insuffla une 
 
 En chemin, il dormait au pied des montagnes et se reposait au bord des rivières; il croisa d'innombrables visages étranges. Certains étaient bienveillants, d'autres féroces, certains confus et d'autres obstinés.
 
-Il rencontra des brigands et des bandits, mais à chaque fois, il lui suffisait de rester immobile pour qu'ils ressentent l'aura puissante qui émanait de lui. Wang Lin pouvait effrayer les cultivateurs, alors ne parlons même pas des mortels.
+Il rencontra des brigands et des bandits, mais à chaque fois, il lui suffisait de rester immobile pour qu'ils ressentent l'aura puissante qui émanait de lui. Wang Lin pouvait faire reculer les immortels d'un seul mot, alors ne parlons même pas des mortels.
 
 Au fil de sa marche, son visage se fit plus vieux, mais ses yeux devinrent plus brillants encore. Ils recelaient une sagesse et une compréhension infinies, permettant à son esprit de renaître et d'évoluer.
 
@@ -32,7 +32,7 @@ Dans le pays du Chien Céleste, où régnaient d'innombrables êtres malveillant
 
 Au fil de son errance, le nom de « Grand Érudit Wang Lin » déclencha une tempête sur la planète Suzaku. Cette tempête devint de plus en plus intense et resta gravée dans la mémoire de tant de gens.
 
-Tout au long de son périple, Wang Lin contempla d'innombrables montagnes. Perché sur les sommets, il observait le monde et ressentait sa puissance. Il rencontra également des immortels, des figures aussi étranges que familières.
+Tout au long de son périple, Wang Lin contempla d'innombrables montagnes. Perché sur les sommets, il observait le monde et ressentait son immensité. Il rencontra également des immortels, des figures aussi étranges que familières.
 
 Sur la planète Suzaku, de nombreuses sectes s'épanouissaient dans ces pays de culture. Beaucoup avaient établi leurs demeures au cœur de montagnes magnifiques, tandis que d'autres se trouvaient dans des zones périlleuses.
 
@@ -58,7 +58,7 @@ Marchant sur la neige, Wang Lin s'engagea dans une rue très calme. Des boutique
 
 *Dong, dong... dong...* Le bruit d'un marteau frappant le fer résonna au loin. Wang Lin tourna la tête et aperçut une forge. À l'intérieur, un homme d'âge moyen, au torse trapu mis à nu, maniait un marteau pour frapper le métal. Malgré la chute de neige, l'homme ne semblait pas ressentir le froid. Il continuait ses coups, produisant ce rythme cadencé.
 
-Près de lui se trouvait une petite chaise où siégeait un garçon d'environ sept ou huit ans, vêtu d'un épais manteau de coton. Le visage rougi par l'effort ou l'émotion, il regardait l'homme avec excitation.
+Près de lui se trouvait une petite chaise où siégeait un garçon d'environ sept ou huit ans, vêtu d'un épais manteau de coton. Les joues rouges, il regardait l'homme avec excitation.
 
 « Da Niu... » Les yeux de Wang Lin se brouillèrent et il secoua doucement la tête. L'enfant devant lui n'était pas le Da Niu de son rêve.
 
@@ -74,7 +74,7 @@ Le garçon regarda Wang Lin avec curiosité. À l'appel de sa mère, il se leva 
 
 « Senior, le temps est froid, buvez un peu de vin pour vous réchauffer. Êtes-vous venu chercher des proches? »
 
-Wang Lin sourit sans répondre. Il prit la coupe et but d'un trait.
+Wang Lin sourit sans répondre. Il prit la coupe, y trempa les lèvres, puis but d'un trait.
 
 « Senior, le vin de ma famille Ceng est excellent, n'est-ce pas? Haha! Mon grand-père n'était pas forgeron, mais vendeur de vin. C'est moi qui ai ouvert cette forge. » L'homme but à son tour et éclata de rire.
 
@@ -88,11 +88,11 @@ Après ce bref repos, Wang Lin sembla avoir compris quelque chose. Il continua s
 
 Durant l'été de la quinzième année, dans un pays étranger, la pluie tombait tandis que Wang Lin se tenait sous un pavillon en bord de route. Il observait les précipitations et discernait, à travers le rideau d'eau, la mer au loin. Cette mer était immense, séparant deux continents.
 
-De l'autre côté de l'océan se trouvaient de nombreux pays. C'était la dernière destination que Wang Lin souhaitait atteindre. Il y avait là une femme qu'il avait aimée dans sa vie antérieure. Il devait aller la voir.
+De l'autre côté de l'océan se trouvaient de nombreux pays. C'était la dernière destination que Wang Lin souhaitait atteindre. Il y avait là une femme qu'il avait aimée dans une autre vie, celle de son rêve. Il devait aller la voir.
 
 La pluie devint si dense qu'elle formait des lignes verticales, rendant le monde flou et indistinct. Wang Lin observa la pluie et écouta son murmure en fermant lentement les yeux.
 
-Au moment où il ferma les paupières, la silhouette d'une femme s'approcha de la distance. Elle semblait enveloppée d'une aura glaciale. À mesure qu'elle avançait, des craquements résonnèrent et la pluie se changea en glace. Elle portait un bébé, enveloppé dans une épaisse couverture. Aucune goutte ne touchait l'enfant, qui dormait paisiblement.
+Au moment où il ferma les paupières, la silhouette d'une femme s'avança depuis le lointain. Elle semblait enveloppée d'une aura glaciale. À mesure qu'elle avançait, des craquements résonnèrent et la pluie se changea en glace. Elle portait un bébé, enveloppé dans une épaisse couverture. Aucune goutte ne touchait l'enfant, qui dormait paisiblement.
 
 La femme s'arrêta devant le pavillon. Bien qu'entrée dans l'âge mûr, son visage restait beau et délicat, mais son aura glaciale dégageait une puissante intention de tuer.
 
@@ -100,6 +100,6 @@ La femme s'arrêta devant le pavillon. Bien qu'entrée dans l'âge mûr, son vis
 
 Wang Lin ouvrit les yeux et regarda calmement la femme avant d'acquiescer d'un signe de tête.
 
-L'un se tenait à l'intérieur du pavillon, là où la pluie ne tombait pas. L'autre se tenait à l'extérieur, et là aussi, aucune goutte ne le touchait; toute la pluie se transformait en glace autour d'elle.
+L'un se tenait à l'intérieur du pavillon, là où la pluie ne tombait pas. L'autre se tenait à l'extérieur, et là aussi, aucune goutte ne le touchait; toute la pluie se transformait en glace et recouvrait le ciel derrière elle.
 
 « Je viens de Xue Yu et j'ai une question à vous poser. » La voix de la femme était glaciale, comme si elle émanait de la neige elle-même.

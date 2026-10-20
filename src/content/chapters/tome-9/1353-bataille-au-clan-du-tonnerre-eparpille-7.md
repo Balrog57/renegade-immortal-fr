@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1353 - Battle at the Scatter Thunder Clan! (7)"
 slug: bataille-au-clan-du-tonnerre-eparpille-7
 ---
-Les huit âmes de dragons de tonnerre anciens furent déchiquetées et se dissipèrent rapidement. Cependant, alors que Wang Lin inspirait, il en absorba 30 %.
+Les huit âmes de dragons de tonnerre anciens furent déchiquetées et se dissipèrent rapidement. Cependant, en les dévorant, Wang Lin en absorba 30 %.
 
 Au moment où les âmes originelles des dragons de tonnerre anciens pénétrèrent dans son âme originelle, le tonnerre à l'intérieur de celle-ci déferla. Le tonnerre au sein de son corps rugit et se métamorphosa en des serpents d'argent de cent pieds de large et de dix mille pieds de long. Les craquements qu'ils émettaient ressemblaient au claquement de fouets cinglant le ciel!
 
@@ -38,7 +38,7 @@ Tandis que l'âme originelle de Wang Lin se rétractait, son aura d'essence du t
 
 Dès l'apparition de ce totem, une pression égale à celle de l'Éclair Éternel se propagea. Le monde trembla, l'espace lui-même s'effondra, et le grondement du tonnerre fit vibrer les cieux!
 
-L'Esprit du Tonnerre tournait rapidement autour de la foudre pour former ce totem!
+Le Tonnerre Spirituel tournait rapidement autour de la foudre pour former ce totem!
 
 Bien que cela puisse paraître lent, tout se produisit en un éclair. Le Grand Ancien fut stupéfait par ce changement soudain. Il n'avait jamais entendu parler d'un être capable de dévorer des dragons de tonnerre anciens!
 
@@ -50,7 +50,7 @@ Cependant, juste au moment où il allait le rattraper, le totem de foudre formé
 
 C'était comme s'il s'était réincarné en tonnerre!
 
-La marque de tonnerre brilla dans son œil droit et l'essence du tonnerre apparut, dix fois plus puissante qu'auparavant. Alors que le Grand Ancien approchait, Wang Lin agita sa main droite.
+La marque de tonnerre brilla dans son œil droit et l'essence du tonnerre apparut, plus de dix fois plus puissante qu'auparavant. Alors que le Grand Ancien approchait, Wang Lin agita sa main droite.
 
 Des grondements tonitruants résonnèrent de toutes parts. Un fin filet de tonnerre se déploya autour de Wang Lin. Ce réseau contenait sa volonté et ne pourrait être brisé, à moins de faire face à un cultivateur du tonnerre capable de rivaliser avec lui en termes d'essence; sinon, il n'y avait aucune chance!
 
@@ -94,13 +94,13 @@ Sa main droite, tenant le talisman, ralentit également.
 
 Il voulait voir ce que cette mystérieuse boussole représentait et quelle était la puissance réelle d'un sort de cinquième Fléau Céleste!
 
-Une fois apparue, la boussole se mit à tourner silencieusement. À mesure qu'elle pivotait, le temps sembla s'accélérer, projetant le monde des années durant en un instant!
+Une fois apparue, la boussole se mit à tourner silencieusement, sur un peu moins d'un demi-tour. À mesure qu'elle pivotait, le temps sembla s'accélérer, projetant le monde des années durant en un instant!
 
 Le visage du Grand Ancien pâlit, comme si une partie de son âme lui était arrachée. Une aura de mort envahit ses traits, avant de se dissiper aussitôt.
 
 Lorsque l'aura disparut, la grande boussole s'évanouit également, comme si elle avait puisé assez de vitalité pour accomplir sa tâche. Après sa disparition, un éclair sembla se détacher de l'Éclair Éternel dans la terre sainte et fonça vers le champ de bataille.
 
-L'éclair arriva instantanément. Alors que le Grand Ancien du Clan du Tonnerre Dispersé poussait un rugissement, la foudre s'abattit sur les 70 000 couches de tonnerre de Wang Lin.
+L'éclair arriva instantanément. Alors que le Grand Ancien du Clan du Tonnerre Dispersé poussait un rugissement, la foudre, pareille à une tribulation céleste, s'abattit sur les 70 000 couches de tonnerre de Wang Lin.
 
 Le fracas qui en résulta fit trembler les cieux et les 70 000 couches s'effondrèrent d'un coup. Bien qu'elles tentassent de se régénérer, elles furent immédiatement balayées à nouveau par une puissance tonnerreuse dévastatrice. Les pupilles de Wang Lin se contractèrent; il n'hésita pas une seconde et broya le talisman alors que l'Éclair Éternel convergeait vers lui!
 

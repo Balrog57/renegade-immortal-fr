@@ -10,7 +10,7 @@ Xuan Luo s'exclama. À cet instant, le regard de Wang Lin croisa le sien, comme 
 
 Cependant, bientôt, le regard de Wang Lin passa son chemin, comme s'il ne s'agissait que d'une simple coïncidence.
 
-La respiration de Wang Lin était calme. À présent, non seulement ses blessures étaient guéries, mais il avait l'impression de détenir la puissance du monde entier. C'était comme s'il pouvait détruire l'univers d'un seul coup de poing. La puissance du Dao Antique le mettait très à l'aise.
+La respiration de Wang Lin était calme. À présent, non seulement ses blessures étaient guéries, mais il avait l'impression de détenir la puissance du monde entier. C'était comme s'il pouvait fendre le néant d'un seul coup de poing. La puissance du Dao Antique le mettait très à l'aise.
 
 C'était là le véritable héritage. Si chaque héritage devait être extrêmement douloureux, cela ne conviendrait manifestement pas.
 
@@ -18,7 +18,7 @@ La puissance du Dao Antique résonnait dans tout son corps. Elle parcourait chaq
 
 L'effet d'une seule goutte de sang ne suffirait pas à produire un tel résultat, mais si cette goutte lui permettait d'atteindre un niveau de perfection, alors la situation était totalement différente.
 
-Wang Lin sentit la différence en lui. Bien que ses trois pouvoirs des anciens clans soient toujours au stade de huit étoiles, ils étaient encore plus puissants et l'éclat de ces étoiles était plus intense.
+Wang Lin sentit la différence en lui. Bien que ses trois pouvoirs des anciens clans soient toujours au stade de huit étoiles, elles étaient devenues plus solides et leur lueur sombre plus dense.
 
 Wang Lin ressentait vaguement un appel provenant des profondeurs de ce monde gelé. Cet appel était identique à celui qu'il avait ressenti lorsqu'il avait perçu le bras droit de Ye Mo dans la Mer des Nuages.
 
@@ -76,7 +76,7 @@ Wang Lin agita sa manche et une lueur sanglante jaillit alors que l'épée de sa
 
 Wang Lin s'assit sur la surface gelée et son regard perça la couche de glace pour se poser sur le bras gauche de Ye Mo. Il commença à discerner quelques indices.
 
-« Ce bassin de glace a fusionné avec le bras gauche de Ye Mo, c'est pourquoi la glace possède sa capacité de régénération... Même si elle est détruite, elle se répare instantanément. » Wang Lin ne pensa pas cela, il le murmura comme s'il parlait à lui-même ou à un témoin invisible...
+« Ce bassin de glace a fusionné avec le bras gauche de Ye Mo, c'est pourquoi la glace possède sa capacité de régénération... Même si elle est détruite, elle se répare instantanément. » Wang Lin ne le garda pas pour lui : il le murmura comme s'il parlait à lui-même ou à un témoin invisible...
 
 Xuan Luo, les mains derrière le dos, flottait au-dessus du bassin. Il observait également la glace et, en entendant les paroles de Wang Lin, il sourit, une lueur étrange dans les yeux.
 

@@ -22,7 +22,7 @@ Les cultivateurs des 7 Millions de Mondes sortirent tous de leurs sectes respect
 
 D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Daoïste Esprit Dispersé pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa!
 
-« Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter la Tonnerre Spirituel! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage! »
+« Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter le Tonnerre Spirituel! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage! »
 
 Les pensées de chaque être vivant affluèrent dans leurs esprits et convergèrent pour former une tempête indescriptible!
 
@@ -32,11 +32,11 @@ Ce pouvoir était invincible; même le Dao Céleste tremblerait devant une telle
 
 Il ne s'agissait pas de la volonté d'un seul homme, mais de la volonté défiant les cieux d'innombrables êtres vivants des 7 Millions de Mondes!
 
-« J'utilise la chair et le sang de mes 7 Millions de Mondes pour briser ce sceau qui empêche toute force extérieure de pénétrer! » La voix puissante du Daoïste Esprit Dispersé se propagea dans chaque recoin des 7 Millions de Mondes!
+« Avec la chair et le sang de mes 7 Millions de Mondes, j'érige la grande formation de scellement, qui empêche toute force extérieure de franchir le moindre pas! » La voix puissante du Daoïste Esprit Dispersé se propagea dans chaque recoin des 7 Millions de Mondes!
 
 Alors que sa voix résonnait, sa puissance augmenta soudainement, devenant toujours plus forte, formant une tempête déchaînée. Cette tempête était d'une puissance extrême, une chose que Wang Lin n'avait jamais vue de toute sa vie!
 
-Il était impossible de la percevoir du regard, mais si l'on utilisait son Sens Divin, la tempête ressemblait à un soleil dégageant une force capable de briser les cieux!
+Il était impossible de la percevoir du regard, mais si l'on utilisait son Sens Divin, la tempête ressemblait à un soleil qui explose et s'effondre, dégageant une force capable de briser les cieux!
 
 Cette tempête était forgée par la volonté et la vie de chaque habitant des 7 Millions de Mondes, et elle était partout! Elle formait un mur gigantesque empêchant toute force extérieure d'entrer!
 
@@ -52,7 +52,7 @@ Sous la pression de cette force, l'tonnerre éternel fut repoussé de plusieurs 
 
 Des tonnerres sourds retentirent. L'tonnerre éternel jaillit à nouveau, semblant se connecter au ciel lui-même, et redescendit immédiatement!
 
-Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes! Ni lui, ni même le premier ancêtre du Clan du Tonnerre Dispersé n'auraient pu concevoir une telle chose!
+Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes! Ni lui, ni même l'ancêtre du Clan du Tonnerre Dispersé de l'époque n'aurait pu concevoir une telle chose!
 
 « Fous... vous êtes tous devenus fous. Tous les cultivateurs des 7 Millions de Mondes sont devenus fous. Même tous les mortels aussi... tous sont devenus fous! »
 
@@ -98,9 +98,9 @@ Le monde trembla et une lumière aveuglante jaillit. Cette clarté recouvrit le 
 
 Un seul coup d'épée pour ébranler les cieux!
 
-Il n'y avait pas d'énergie d'épée, mais d'innombrables rugissements capables de briser les os résonnèrent. Au moment où l'épée frappa, d'innombrables êtres moururent dans les 7 Millions de Mondes! Cependant, toutes ces morts étaient consenties, et elles se transformèrent en une force indescriptible jaillissant de la lame!
+Il n'y avait pas d'énergie d'épée, mais d'innombrables rugissements capables de briser les tympans résonnèrent. Au moment où l'épée frappa, d'innombrables êtres moururent dans les 7 Millions de Mondes! Cependant, toutes ces morts étaient consenties, et elles se transformèrent en une force indescriptible jaillissant de la lame!
 
-Les rugissements incessants étaient nichés au cœur de la lumière de l'épée, fonçant sur le Grand Ancien. Le tonnerre qu'il avait généré s'effondra instantanément, sans aucune possibilité de résistance!
+D'innombrables âmes, serrées en un faisceau semblable à des âmes, étaient nichées au cœur de la lumière de l'épée avec les rugissements incessants, et fonçaient sur le Grand Ancien. Le tonnerre qu'il avait généré s'effondra instantanément, sans aucune possibilité de résistance!
 
 L'esprit du Grand Ancien trembla violemment et il battit en retraite précipitamment. L'armure de tonnerre autour de lui s'étendit pour former un bouclier. Le premier coup d'épée percuta l'armure de tonnerre.
 

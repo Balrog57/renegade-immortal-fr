@@ -26,7 +26,7 @@ Le regard de Wang Lin se fit sérieux lorsqu'il demanda: « Aux côtés de la de
 
 Du Tian hocha la tête. « Après avoir vaincu le Clan des Immortels Délaissés, la première génération de Suzaku s'est sacrifiée avec plusieurs vieux monstres Ascendants pour sceller le clan. Il a ensuite désigné un successeur pour devenir la deuxième génération de Suzaku. »
 
-« Cette personne était extrêmement talentueuse et exceptionnelle, bien différente de tous les Suzakus qui lui succédèrent. Elle n'opprimait pas les pays de culture de rang 5 et, bien qu'elle n'ait dirigé la planète Suzaku que très peu de temps, sa culture, durant ces mille ans, était la plus élevée de tous les Suzakus. On dit qu'elle avait déjà posé un demi-pied dans le royaume au-delà de l'Ascension et qu'il ne lui manquait qu'une demi-étape pour atteindre le niveau suivant. »
+« Cette personne était extrêmement talentueuse et exceptionnelle, bien différente de tous les Suzakus qui lui succédèrent. Il n'opprimait pas les pays de culture de rang 5 et, bien qu'il n'ait dirigé la planète Suzaku que très peu de temps, sa culture, durant ces mille ans, était la plus élevée de tous les Suzakus. On dit qu'il avait déjà posé un demi-pied dans le royaume au-delà de l'Ascension et qu'il ne lui manquait qu'une demi-étape pour atteindre le niveau suivant. »
 
 « Cette personne était sans aucun doute l'expert numéro un de l'histoire de la planète Suzaku! »
 

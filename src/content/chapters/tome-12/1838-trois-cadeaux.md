@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1838 - Three Gifts!"
 slug: trois-cadeaux
 ---
-La boîte paraissait très ordinaire, comme un simple objet mortel, et était recouverte de poussière. Pourtant, cette boîte pouvait bloquer tout Sens Divin tentant d'y pénétrer; elle était extraordinaire!
+La boîte paraissait très ordinaire, comme un simple objet mortel, sans le moindre éclat ni rien de transcendant. Pourtant, cette boîte pouvait bloquer tout Sens Divin tentant d'y pénétrer; elle était extraordinaire!
 
 Un sceau jaune et flétri semblait la sceller. Il dégageait une aura antique, comme s'il avait existé depuis des éons. Cela faisait si longtemps que personne n'avait retiré ce sceau jauni et desséché.
 
@@ -70,11 +70,11 @@ Ce troisième objet était bien plus nécessaire pour Wang Lin que les deux pré
 
 Même après la formation de son corps véritable d'essence de feu, son niveau de culture n'avait pas progressé; cela avait seulement rendu ses sorts plus féroces.
 
-« J'ai déjà sept essences. Une fois que cette essence aquatique sera complète, j'en aurai huit et j'atteindrai le sommet du Vide Spirituel. Si je peux obtenir une neuvième essence après cela, je pourrai les faire circuler neuf fois neuf pour briser le stade du Vide Spirituel et devenir un cultivateur du Néant Arcanique! »
+« J'ai déjà sept essences. Une fois que cette essence aquatique sera complète, j'en aurai huit et j'atteindrai le sommet du Vide Spirituel. Si je peux obtenir une neuvième essence après cela, je pourrai les faire circuler neuf fois neuf pour briser le stade du Vide Spirituel et devenir un cultivateur du Vide Arcanique! »
 
-« À ce moment-là, bien que je ne sois qu'au stade du Néant Arcanique, avec mes neuf essences, je pourrai combattre des cultivateurs du début de la Tribulation du Vide sans même utiliser ces grands sorts. Une fois que j'aurai atteint le stade avancé du Néant Arcanique, je n'aurai pas à affronter les Tribulations Arcaniques une par une, mais toutes les neuf d'un coup! Alors, je deviendrai un cultivateur de la Tribulation du Vide! »
+« À ce moment-là, bien que je ne sois qu'au stade du Vide Arcanique, avec mes neuf essences, je pourrai combattre des cultivateurs du début de la Tribulation du Vide sans même utiliser ces grands sorts. Une fois que j'aurai atteint le stade avancé du Vide Arcanique, je n'aurai pas à affronter les Tribulations Arcaniques une par une, mais toutes les neuf d'un coup! Alors, je deviendrai un cultivateur de la Tribulation du Vide! »
 
-Wang Lin comprit que son chemin de culture était radicalement différent de celui des autres. Il ne possédait aucune Flamme Joss et s'appuyait uniquement sur sa compréhension et le pillage des énergies du ciel et de la terre. Une fois qu'il aurait obtenu ses neuf essences et serait entré dans le Néant Arcanique, il serait incomparablement supérieur aux autres.
+Wang Lin comprit que son chemin de culture était radicalement différent de celui des autres. Il ne possédait aucune Flamme Joss et s'appuyait uniquement sur sa compréhension et le pillage des énergies du ciel et de la terre. Une fois qu'il aurait obtenu ses neuf essences et serait entré dans le Vide Arcanique, il serait incomparablement supérieur aux autres.
 
 On pouvait dire que la clé de la culture de Wang Lin résidait dans les essences!
 

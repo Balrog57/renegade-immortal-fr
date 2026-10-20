@@ -48,7 +48,7 @@ Le visage de Wang Lin était d'une pâleur mortelle. Après avoir utilisé deux 
 
 Son corps vacilla et le monde autour de lui retrouva son calme. Wang Lin prit une profonde inspiration. Bien que son visage fût livide, ses yeux étaient plus froids que jamais.
 
-Le corps du Daoïste du Tonnerre apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les pouvoirs et sortilèges qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient s'en vouloir de ne pas avoir fui plus tôt!
+Le corps du Daoïste du Tonnerre apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les pouvoirs et sortilèges qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient regretter de ne pas pouvoir fuir plus vite!
 
 La marionnette du gardien céleste poursuivit rapidement le Daoïste du Tonnerre. La Bête du Tonnerre poussa un rugissement et suivit également de près le gardien. Ils disparurent progressivement à l'horizon...
 

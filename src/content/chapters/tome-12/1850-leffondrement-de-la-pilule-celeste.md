@@ -46,7 +46,7 @@ Il disparut instantanément pour réapparaître hors du périmètre des 1 000 pi
 
 Bien que l'apparition de Wang Lin fût fulgurante, d'innombrables Sens Divins se verrouillèrent aussitôt sur lui. Certains cultivateurs dans le ciel le remarquèrent immédiatement; leurs visages se décomposèrent et ils chargèrent vers lui.
 
-Malgré leur vitesse, Wang Lin était plus prompt. Il fusionna avec la restriction et se matérialisa à l'extérieur du vortex de 1 000 pieds en pleine cristallisation. Il leva la main droite, invoqua son épée de sang et frappa d'un tranchant vertical!
+Malgré leur vitesse, Wang Lin était plus prompt. Il fusionna avec la restriction et se matérialisa à l'extérieur du vortex de 1 000 pieds en pleine condensation. Il leva la main droite, invoqua son épée de sang et frappa d'un tranchant vertical!
 
 Il ne visait pas Yun Kong, mais le vortex marin de 1 000 pieds!
 
@@ -72,7 +72,7 @@ Pourtant, Wang Lin ne cherchait pas à les piéger; il avait simplement besoin d
 
 Au moment où le Sens Divin de Yun Kong s'apprêtait à quitter l'eau, l'épée de sang de Wang Lin fut repoussée. Cependant, son véritable corps d'essence de feu apparut, saisit l'épée et frappa de nouveau!
 
-Une mer de flammes envahit alors la zone. Le timing était parfait: cette attaque suivait immédiatement la première. Si le premier coup avait été détourné, le second constituait la véritable offensive!
+Une mer de flammes envahit alors la zone. Le timing était parfait: cette attaque suivait immédiatement la première. Bien que le premier coup ait été brisé, le second constituait la véritable offensive!
 
 Le choc s'approcha. Les yeux de Yun Kong étaient injectés de sang; il poussa un rugissement alors que l'attaque tranchait le vortex marin. Sous ce coup, le vortex cessa de tourner.
 

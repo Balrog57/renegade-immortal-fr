@@ -28,7 +28,7 @@ La rumeur prétendait que le Maître de la Secte Démon était un être d'une pu
 
 Pourtant, au moment où il achevait le sceau, un accident survint. Il semblait que quelqu'un, à l'intérieur, ait utilisé un sortilège inimaginable pour empêcher le Maître de la Secte Démon de parachever son œuvre.
 
-Malgré cela, le sceau avait porté ses fruits. La faille spatiale s'était considérablement réduite et, grâce à l'effet du sceau, seules quelques bêtes puissantes pouvaient encore tenter d'en sortir.
+Malgré cela, le sceau avait porté ses fruits. La faille spatiale s'était considérablement réduite et, grâce à l'effet du sceau, les bêtes trop puissantes ne pouvaient plus en sortir en grand nombre.
 
 Quant aux neuf yeux dans le ciel, les simples disciples de la Secte Démon en connaissaient l'existence, mais seuls les Anciens savaient que ces neuf yeux représentaient le Royaume Céleste Ancien!
 

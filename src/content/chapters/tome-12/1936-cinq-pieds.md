@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1936 - Five Feet
 slug: cinq-pieds
 ---
-Bien que le visage de la silhouette à l'extérieur ne fût fait que de chair et de sang, dépourvu de peau, Wang Lin avait été témoin de la scène de l'Ancêtre Céleste scellant le Taureau Céleste lorsqu'il avait absorbé la veine de feu.
+Bien que le visage de la silhouette à l'extérieur ne fût fait que de chair et de sang, dépourvu de peau, Wang Lin, en absorbant la veine de feu terrestre principale dans le Continent du Taureau Céleste, avait sombré dans un état étrange et vu la scène de l'Ancêtre Céleste scellant le Taureau Céleste.
 
 Le visage de cette silhouette vague ressemblait étrangement à celui de l'Ancêtre Céleste!
 

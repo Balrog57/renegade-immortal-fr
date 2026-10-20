@@ -12,7 +12,7 @@ Le rugissement tonitruant se propagea dans toutes les directions!
 
 C'était la première confrontation entre Maître Lu Fu et Wang Lin! Bien qu'aucun des deux n'ait attaqué directement, l'un cherchait à progresser tandis que l'autre tentait de bloquer sa route. Une bataille s'engagea au-dessus de la formation!
 
-Ce simple cri strident contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas, ainsi que ses pouvoirs divins. Ce cri fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées!
+Ce simple cri strident contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas au stade initial du Vide du Nirvana, ainsi que ses pouvoirs divins. Ce cri fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées!
 
 C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée: si Wang Lin avait été un cultivateur du cinquième niveau du Fléau Céleste, son corps aurait été déchiré par ce cri et son âme originelle aurait été anéantie!
 
@@ -22,7 +22,7 @@ Cependant, Wang Lin n'avait pas encore atteint le troisième pas. Il était deve
 
 La vigueur de sa chair avait atteint un niveau terrifiant. En entendant le cri strident de Maître Lu Fu, les yeux de Wang Lin s'illuminèrent!
 
-« Dans ce monde, aucun cri ne peut égaler le rugissement d'un dieu antique, et plus encore celui de l'Ordre Antique! Peu importe que vous soyez au troisième pas! » Les sept étoiles divines antiques entre les sourcils de Wang Lin tournèrent rapidement. Sous leur rotation, la puissance du dieu antique emplit son corps, et la gigantesque tête de l'Ordre Antique apparut de toutes pièces.
+« Dans ce monde, aucun cri ne peut égaler le rugissement d'un dieu antique, et plus encore celui de l'Ordre Antique! Peu importe que vous soyez au troisième pas! » Les sept étoiles divines antiques entre les sourcils de Wang Lin tournèrent rapidement. Sous leur rotation, la puissance du dieu antique emplit son corps, et la gigantesque tête de l'Ordre Antique apparut derrière lui, de toutes pièces.
 
 Dès que la tête se manifesta, Wang Lin ouvrit la bouche et laissa échapper un rugissement assourdissant vers le vortex à l'intérieur de la formation!
 
@@ -30,7 +30,7 @@ GRAAAH!!
 
 Ce rugissement se propagea instantanément, écrasant le cri strident de Maître Lu Fu. Il forma une onde sonore monstrueuse qui balaya tout sur son passage!
 
-Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse dans la tombe antique qui avait blessé d'innombrables cultivateurs du troisième pas et chassé le Souverain. Cependant, le rugissement de l'Ordre Antique de Wang Lin avait malgré tout gagné une certaine ampleur!
+Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse de la tombe antique, transmis par la bouche de Wang Lin, qui avait blessé d'innombrables cultivateurs du troisième pas et repoussé le Souverain. Cependant, le rugissement de l'Ordre Antique de Wang Lin avait malgré tout gagné une certaine ampleur!
 
 Le grondement fit trembler l'espace entre Wang Lin et Maître Lu Fu. C'était comme si les deux hommes s'étaient lancé des attaques invisibles. Le domaine stellaire vacilla et les innombrables cultivateurs environnants crachèrent du sang, reculant frénétiquement une fois de plus.
 
@@ -78,7 +78,7 @@ Sa voix émana du vortex.
 
 « La bataille sur la planète Suzaku semble dater d'hier. L'épée du compagnon Lu Fu est toujours aussi fulgurante! » Wang Lin ne s'arrêta pas et continua sa marche avec calme. Après avoir parlé, il regarda Maître Yan Leizi et joignit les mains en signe de salut.
 
-« Compagnon Yan Leizi, comment allez-vous? Je suis venu à Luotian pour régler quelques vieux comptes, j'espère que vous pourrez me pardonner. » Le Senior d'autrefois était devenu un compagnon cultivateur. Ce n'était pas par volonté de Wang Lin, mais parce que l'actuel Maître Yan Leizi ne pouvait supporter qu'on l'appelle encore « Senior ».
+« Compagnon Yan Leizi, comment allez-vous? Je suis de passage à Luotian pour régler quelques vieux comptes, j'espère que vous pourrez me pardonner. » Le Senior d'autrefois était devenu un compagnon cultivateur. Ce n'était pas par volonté de Wang Lin, mais parce que l'actuel Maître Yan Leizi ne pouvait supporter qu'on l'appelle encore « Senior ».
 
 Bien que les mots de Wang Lin fussent « compagnon cultivateur », Maître Yan Leizi ressentit une pointe de gloire mêlée d'amertume. Il se leva prestement et rendit le salut.
 
@@ -96,7 +96,7 @@ Wang Lin s'arrêta à mille pieds du vortex. L'homme devant lui était l'ancêtr
 
 L'expression de Maître Lu Fu devint sombre et une hésitation perla dans ses yeux.
 
-« Maître Lu Fu!! Seul Junior peut vous emmener dans cet endroit... » Le visage de Dieu de Sang était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
+« Maître Lu Fu, Senior!! Seul Junior peut vous emmener dans cet endroit... » Le visage de Dieu de Sang était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
 
 « Ce vieil homme prendra sa propre décision! »
 

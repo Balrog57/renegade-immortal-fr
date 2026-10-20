@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 381 - First clash with Liu Mei
 slug: premier-affrontement-avec-liu-mei
 ---
-« La compétition de juin sera la meilleure chance d'intégrer la secte intérieure. La rumeur prétend que le trésor le plus précieux de la Secte de l'Affinement de l'Âme est un drapeau spirituel contenant plus de cent millions d'âmes. Au moment où il apparaît, le ciel change de couleur. Il est considéré comme l'un des plus grands trésors de Suzaku. »
+« La compétition de juin sera la meilleure chance d'intégrer la secte intérieure. La rumeur prétend que le trésor le plus précieux de la Secte de l'Affinement de l'Âme est un drapeau de l'âme contenant plus de cent millions d'âmes. Au moment où il apparaît, le ciel change de couleur. Il est considéré comme l'un des plus grands trésors de Suzaku. »
 
-« De plus, la Secte de l'Affinement de l'Âme se spécialise dans la création de drapeaux spirituels, et toutes leurs techniques sont liées au drapeau sacré de la secte. Bien que d'autres sectes à travers Suzaku sachent également capturer et affiner des âmes, elles ne peuvent rivaliser avec la Secte de l'Affinement de l'Âme. Si je peux apprendre leur méthode et affiner un drapeau spirituel en utilisant des âmes errantes, il ne devrait pas être moins puissant que le drapeau de restriction. »
+« De plus, la Secte de l'Affinement de l'Âme se spécialise dans la création de drapeaux spirituels, et leurs techniques principales reposent sur la fabrication de drapeaux de l'âme. Bien que d'autres sectes à travers Suzaku sachent également capturer et affiner des âmes, elles ne peuvent rivaliser avec la Secte de l'Affinement de l'Âme. Si je peux apprendre leur méthode et affiner un drapeau de l'âme en utilisant des âmes errantes, il ne devrait pas être moins puissant que le drapeau de restriction. »
 
-Les yeux de Wang Lin s'illuminèrent et il agita la main. Une série de restrictions illusoires apparurent sur les murs environnants. Puis, il sortit un jade céleste d'un blanc pur.
+Les yeux de Wang Lin s'illuminèrent et il agita la main. Une série de restrictions illusoires apparurent autour de lui. Puis, il sortit un jade céleste d'un blanc pur.
 
 Ce jade céleste était incomplet, mais l'énergie céleste qu'il dégageait n'était guère différente de celle d'auparavant.
 
@@ -18,7 +18,7 @@ Ce jade céleste était incomplet, mais l'énergie céleste qu'il dégageait n'�
 
 Une douleur inimaginable se propagea soudainement dans tout son corps.
 
-À cet instant, dans une vallée entourée de montagnes à Chu, on pouvait entendre des rires cristallins et les cris d'un tigre empreints de ressentiment.
+À cet instant, dans une vallée du pays de Chu, à l'extérieur des Roches Brisées (terre des reliques immortelles), on pouvait entendre des rires cristallins et les cris d'un tigre empreints de ressentiment.
 
 Le printemps régnait dans la vallée et le sol était recouvert d'herbe verte. La petite Zhou Ru portait un manteau brodé d'une pivoine, un pantalon rouge, et ses cheveux étaient coiffés en deux petites nattes. Elle était assise sur le dos d'un tigre aux rayures noires, affichant un immense sourire. « Petit Blanc, tu n'as pas écouté ce qu'on t'a dit, alors je te punis en te faisant manger avec des baguettes ce soir! »
 
@@ -76,7 +76,7 @@ Wang Lin murmura: « Sommet du stade avancé de l'Âme Naissante. » Il se leva 
 
 « Cependant, la complétion ultime du stade avancé de la Formation de l'Âme reste difficile à atteindre. Pour y parvenir, mon domaine devra également atteindre sa complétion. »
 
-« Le domaine achevé d'un cultivateur au sommet de la Formation de l'Âme reste différent de celui d'un cultivateur de la Transformation de l'Âme. Le domaine de Li Yuanfeng avait pu prendre une forme physique et laisser la marque du thé sur mon corps. Ce genre de puissance est incomparable à celle d'un simple domaine de stade avancé de la Formation de l'Âme. Cela signifie que la complétion d'un domaine au stade de la Formation de l'Âme n'est qu'une étape. Atteindre le stade de la Transformation de l'Âme exige une compréhension bien plus profonde de son propre domaine. »
+« Le domaine achevé d'un cultivateur au sommet de la Formation de l'Âme reste différent de celui d'un cultivateur de la Transformation de l'Âme. Le domaine de Li Yuanfeng, au stade initial de la Transformation de l'Âme, avait pu prendre une forme physique et laisser la marque du thé sur mon corps. Ce genre de puissance est incomparable à celle d'un simple domaine de la Formation de l'Âme. Cela signifie que la complétion d'un domaine au stade de la Formation de l'Âme n'est qu'une étape. Atteindre le stade de la Transformation de l'Âme exige une compréhension bien plus profonde de son propre domaine. »
 
 Wang Lin commença à réfléchir. Dans son état actuel, il ne remarqua pas qu'une belle femme l'observait silencieusement depuis une grotte au loin.
 
@@ -86,7 +86,7 @@ Le regard de cette femme était complexe; il était empreint de confusion, de do
 
 « Ascendant... Je me demande quand j'atteindrai ce stade! Pour l'instant, le sceau n'est pas levé, je n'ai donc même aucun espoir d'atteindre la Transformation de l'Âme... » Wang Lin soupira doucement.
 
-« L'Omniscient m'a accepté comme disciple. Peut-être devrais-je le retrouver rapidement pour avoir une chance d'atteindre le stade Ascendant... Cependant, je suis réticent à abandonner ma voie de culture actuelle; Situ Nan n'est pas encore réveillé, et je n'ai pas obtenu le cristal planétaire qui peut aider mon Royaume Ji à progresser. De plus, il est probable que les cultivateurs de cette planète aient des niveaux élevés; si j'y vais alors que je suis trop faible, je n'attirerai pas l'attention de l'Omniscient... » Wang Lin était plongé dans ses pensées lorsqu'il sembla soudain remarquer quelque chose. Il tourna la tête et vit la femme qui le fixait.
+« L'Omniscient m'a accepté comme disciple. Peut-être devrais-je le retrouver rapidement pour avoir une chance d'atteindre le stade Ascendant... Cependant, je suis réticent à abandonner ma voie de culture actuelle; Situ Nan n'est pas encore réveillé, et je n'ai pas obtenu le cristal de cultivation du cœur qui peut aider mon Royaume Ji à progresser. De plus, il est probable que les cultivateurs de cette planète aient des niveaux élevés; si j'y vais alors que je suis trop faible, je n'attirerai pas l'attention de l'Omniscient... » Wang Lin était plongé dans ses pensées lorsqu'il sembla soudain remarquer quelque chose. Il tourna la tête et vit la femme qui le fixait.
 
 « Qui est cette femme? » Les yeux de Wang Lin s'illuminèrent et il plana vers la grotte de l'inconnue.
 

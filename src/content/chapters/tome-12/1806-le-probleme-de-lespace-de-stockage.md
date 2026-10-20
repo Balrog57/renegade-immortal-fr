@@ -92,7 +92,7 @@ Le Continent du Taureau Céleste était un monde de montagnes. Wang Lin l'avait 
 
 D'un revers de main, Wang Lin fit disparaître l'intérieur de la montagne pour façonner une gigantesque grotte de pierre, qui lui servira de refuge temporaire.
 
-Il s'assit au cœur de la montagne et ses mains formèrent des sceaux. D'innombrables restrictions apparurent pour recouvrir le sommet. Ne pouvant sortir aucun trésor, il ne pouvait que compter sur ces restrictions pour dissimuler son aura.
+Il s'assit au cœur de la montagne et ses mains formèrent des sceaux. D'innombrables restrictions apparurent pour recouvrir la montagne. Ne pouvant sortir aucun trésor, il ne pouvait que compter sur ces restrictions pour dissimuler son aura.
 
 Après avoir scellé la montagne et instauré des défenses, Wang Lin ne posa pas le Cercueil d'Évitement Céleste mais le maintint sur son dos. Le Continent Astral Immortel n'était pas comparable au monde des grottes; de nombreux cultivateurs puissants rôdaient ici, et il devait rester vigilant pour éviter tout accident.
 

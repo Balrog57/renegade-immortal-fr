@@ -52,7 +52,7 @@ Le vieil homme n'osa pas résister et permit à Wang Lin de poser le sceau. L'em
 
 Les sept hommes en noir avaient déjà été éliminés par Da Tou. Se léchant les lèvres, Da Tou retourna aux côtés de Wang Lin.
 
-Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji avant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face devant vous et je me soumets de tout cœur. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et qu'il n'y aura aucune rancune entre nous! »
+Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji, se plaça devant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face devant vous et je me soumets de tout cœur. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et que nous serons quittes! »
 
 Wang Lin regarda calmement Chen Feng et dit lentement: « Mon sceau n'est pas puissant. Si vous voulez le lever, vous le pourrez facilement. »
 
@@ -68,7 +68,7 @@ Cependant, il n'osait prendre ce risque, et il craignait encore plus Wang Lin po
 
 Le vieil homme sourit amèrement.
 
-C'était là le véritable dessein de Wang Lin. Après tout, son niveau de culture réel n'était que celui d'un stade intermédiaire avancé du Scruteur du Nirvana; comment pouvait-il sceller un cultivateur Purificateur du Nirvana? Il ne pouvait compter que sur ses ruses!
+C'était là le véritable dessein de Wang Lin. Après tout, son niveau de culture réel n'était que celui du sommet du stade intermédiaire du Scruteur du Nirvana; comment pouvait-il sceller un cultivateur Purificateur du Nirvana? Il ne pouvait compter que sur ses ruses!
 
 Ce stratagème formait un sceau invisible qui, s'il était utilisé correctement, était plus puissant que n'importe quel sceau au monde!
 
@@ -86,7 +86,7 @@ Tout au long du voyage, ils restèrent silencieux. Bientôt, une planète bleue 
 
 Il avait été très attiré par cette femme au corps d'esprit de l'eau. S'il n'avait pas craint la personne qui protégeait les trois frères Chen, il l'aurait déjà prise pour en faire son fourneau de culture.
 
-« Les trois frères Chen! » Wang Lin regarda la planète bleue, mais après réflexion, décida de passer son chemin. Bien que cette planète fût très propice à sa culture en isolation, il ne lui serait pas pratique de s'en emparer, car il connaissait les frères.
+« Les trois frères Chen! » Wang Lin regarda la planète bleue, mais après réflexion, décida de passer son chemin. Bien que cette planète fût très propice à sa culture en isolement, il ne lui serait pas pratique de s'en emparer, car il connaissait les frères.
 
 Alors qu'il s'apprêtait à partir, trois rayons de lumière jaillirent de la planète bleue. Ces trois faisceaux ressemblaient à trois dragons rugissants qui chargeaient vers l'extérieur; en s'entrecroisant, ils formaient une tempête mugissante.
 
@@ -122,7 +122,7 @@ L'esprit de Chen Feng trembla. Bien que la voix de Wang Lin fût calme, il y per
 
 Cette scène stupéfia une fois de plus les trois frères Chen.
 
-« Camarade cultivateur Maître Yi Chen, nous venons à peine de nous séparer et je ne m'attendais pas à vous revoir si tôt. J'ignorais que cette planète vous appartenait. Je vais partir et trouver un autre monde pour ma culture en isolation! » Wang Lin joignit les mains en signe de respect envers les trois frères Chen.
+« Camarade cultivateur Maître Yi Chen, nous venons à peine de nous séparer et je ne m'attendais pas à vous revoir si tôt. J'ignorais que cette planète vous appartenait. Je vais partir et trouver un autre monde pour ma culture en isolement! » Wang Lin joignit les mains en signe de respect envers les trois frères Chen.
 
 Le Maître Yi Chen rendit rapidement le geste, mais son cœur était sous le choc. Il ne s'attendait pas à ce que Chen Feng manifeste une telle peur par la simple parole de Wang Lin.
 

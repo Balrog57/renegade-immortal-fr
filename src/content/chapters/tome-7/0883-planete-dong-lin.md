@@ -10,7 +10,7 @@ Au moment où le passage vers le Système Stellaire de l'Alliance s'ouvrit, la f
 
 À cet instant, tous les cultivateurs du Système Stellaire de Luotian observaient attentivement. Des regards avides émanaient de chaque planète de culture du Système Stellaire de Luotian, comme si ces yeux pouvaient percer les pierres de transmission sonore pour pénétrer directement dans le Système Stellaire de l'Alliance.
 
-« La bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance commence! » Maître Yan Leizi sourit tandis que son cri résonnait à travers tout le Système Stellaire de Luotian.
+« La bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance commence! » Maître Yan Leizi sourit tandis que son cri résonnait à travers tout le Système Stellaire de Luotian. Des acclamations s'élevèrent aussitôt, emplissant tout le système.
 
 La voix de Maître Yan Leizi tonna soudainement: « Grande armée de culture de l'est, du sud, de l'ouest et du nord, frayez-vous un chemin dans le Système Stellaire de l'Alliance! En trois jours, prenez possession de trois planètes de culture pour notre Système Stellaire de Luotian afin de les utiliser comme bases! »
 

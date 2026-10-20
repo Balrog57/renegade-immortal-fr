@@ -14,7 +14,7 @@ Wang Lin prit une profonde inspiration, le regard résolu. À mesure qu'il gravi
 
 L'ancien de la famille Chen fixa la lueur et déclara calmement: « La chance du compagnon cultivateur Xu est sur le point de se manifester. Je me demande quel genre de sort céleste il parviendra à obtenir au quatrième étage! »
 
-Le cultivateur nommé Lu, dont le corps avait disparu, hocha la tête: « La culture est liée à la fortune. Bien que ce ne soit pas une science exacte, cela produit parfois des effets miraculeux. Je suppose qu'il obtiendra un sort céleste fort honorable à l'intérieur. »
+Le cultivateur nommé Lu, dont le corps avait disparu, hocha la tête: « La culture est liée à la fortune, bien que ce lien soit assez faible; il peut néanmoins jouer un rôle à certains moments. Je suppose qu'il obtiendra un sort céleste fort honorable à l'intérieur. »
 
 Le dernier cultivateur, nommé Song, resta silencieux. Il fixait le pavillon, les yeux brillants d'une lueur soudaine, et murmura d'une voix basse: « Quelque chose ne va pas! »
 
@@ -52,7 +52,7 @@ Personne n'avait jamais atteint le neuvième.
 
 Après avoir marché un certain temps, Wang Lin atteignit enfin le sommet des marches. La dernière marche brilla intensément et un pavillon apparut devant lui.
 
-Ce pavillon n'était pas vaste; il présentait plus de dix cadres en bois répartis sur ses murs latéraux. Chaque cadre abritait un jade céleste qui diffusait une lueur douce.
+Ce pavillon n'était pas vaste; il présentait plus de dix niches en bois réparties sur ses murs latéraux. Chaque niche abritait un jade céleste qui diffusait une lueur douce.
 
 Sur le mur, juste devant lui, était suspendue une peinture. Elle représentait un arbre dont la moitié des feuilles étaient jaunies. Sous l'arbre, un jeune garçon semblait être en pleine culture.
 
@@ -68,9 +68,9 @@ Ne parvenant pas à en percer le mystère, il détourna le regard pour inspecter
 
 Wang Lin avança prudemment pour examiner le tapis. Il paraissait ordinaire, mais lorsqu'il tenta de le toucher, sa main passa inexplicablement au travers.
 
-Il fronça les sourcils et observa les cadres en bois environnants. Un instant plus tard, son visage s'assombrit. Sa joie initiale s'était évanouie.
+Il fronça les sourcils et observa les niches en bois environnantes. Un instant plus tard, son visage s'assombrit. Sa joie initiale s'était évanouie.
 
-Bien que des jades célestes ornaient ces cadres, tout comme le tapis, ils n'étaient que des illusions; ils n'existaient pas réellement.
+Bien que des jades célestes ornaient ces niches, tout comme le tapis, ils n'étaient que des illusions; ils n'existaient pas réellement.
 
 En observant l'ensemble, il laissa échapper un sourire amer. Il ne pouvait que voir les choses, sans jamais pouvoir les toucher. Tout n'était qu'un mirage.
 
@@ -132,7 +132,7 @@ Tandis qu'il parlait, l'être leva la main droite et un vent rugissant surgit. C
 
 C'était comme si toute créature vivante s'éteignait au contact de cette bourrasque. La puissance contenue dans ce vent dépassait l'entendement de Wang Lin.
 
-« Voici "Invoquer le Vent"! Pour dire les choses simplement, "Invoquer le Vent" est ainsi: il peut éteindre le feu de toute vie! »
+« Voici "Invoquer le Vent"! Le Grand Dao est simple: "Invoquer le Vent" est ainsi: il peut éteindre le feu de toute vie! »
 
 L'esprit de Wang Lin fut secoué par une douleur indicible, comme si on cherchait à le déchirer en lambeaux. Son âme originelle s'effondra aussitôt, ses fragments se dispersant dans le vide.
 

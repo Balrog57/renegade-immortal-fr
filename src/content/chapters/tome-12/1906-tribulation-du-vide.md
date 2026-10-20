@@ -26,13 +26,13 @@ Même les deux légendaires Grands Empyréens ayant traversé neuf Tribulations 
 
 Lorsque le septième souffle arriva impitoyablement, l'équilibre de son âme originelle s'effondra. Son âme dépérit rapidement, mais son expression resta imperturbable. Durant le court laps de temps qu'il parvint à gagner, il réfléchit fébrilement à un moyen de briser cette tribulation!
 
-« Si je veux la surmonter, je dois trouver rapidement où l'âme véritable du Scorpion Démon Vert est supprimée. Avec elle, il devrait être facile de passer cette épreuve! »
+« Si je veux la surmonter, je dois trouver rapidement où l'âme véritable du Scorpion Démon Vert est scellée. Avec elle, il devrait être facile de passer cette épreuve! »
 
 « Mais... absorber une âme véritable sous scellage ne sera pas simple et demandera du temps. Je ne sais pas combien... » Les yeux de Wang Lin s'illuminèrent.
 
 « Une tribulation est aussi une fortune... Je le crois toujours. Bien que ce soit étrange, ce n'est qu'une tribulation après tout! Vouloir dépérir mon âme originelle... Je veux voir si la force de décomposition de cette épreuve est plus puissante que ma foi! » Wang Lin leva la tête et ses yeux projetèrent une lumière de foi éclatante!
 
-Grâce à sa sagesse, Wang Lin avait percé le secret pour franchir cette épreuve et savait comment les autres y avaient survécu. Leur méthode était extrêmement passive: ils se laissaient contrôler par la tribulation pour survivre lâchement sous son joug.
+Grâce à sa sagesse, Wang Lin avait percé le secret pour franchir cette épreuve et devinait comment les autres y avaient survécu. Leur méthode était extrêmement passive: ils se laissaient contrôler par la tribulation pour survivre lâchement sous son joug.
 
 Wang Lin ne voulait pas de ce genre de choix!
 
@@ -64,7 +64,7 @@ Le dixième souffle descendit avec la puissance nécessaire pour anéantir la fo
 
 Mais finalement, même après le passage du dixième souffle, l'âme originelle de Wang Lin contenant sa foi existait toujours! Non seulement elle subsistait, mais elle explosa soudainement!
 
-« La puissance des cieux et de la terre peut détruire mon corps, détruire mon âme originelle, détruire mon âme, mais elle ne pourra jamais détruire ma foi! » Wang Lin rugit et s'élança vers le ciel. Comparé au monde, il n'était qu'une fourmi, mais une aura capable de changer le monde émanait de son corps. Il chargea le sceau céleste et, à mesure qu'il approchait, leva la main pour déchirer le sceau illusoire!
+« La puissance des cieux et de la terre peut détruire mon corps, détruire mon âme originelle, détruire mon âme, mais elle ne pourra jamais détruire ma foi! » Wang Lin rugit et s'élança vers le ciel. Comparé au monde, il n'était qu'une fourmi, mais une aura capable de changer le monde émanait de son corps. Il chargea le sceau céleste et, à mesure qu'il approchait, leva les deux mains pour déchirer le sceau illusoire!
 
 Sous l'impact de la foi de Wang Lin, le sceau illusoire commença à se solidifier. Sous la force de ses mains, il s'effondra soudainement!
 
@@ -124,7 +124,7 @@ Il leva la tête vers le ciel. Une intention meurtrière embrasa son regard! Der
 
 Des éclairs crépitèrent entre les sourcils de Wang Lin, tandis que son corps véritable de l'essence du tonnerre, empreint d'une aura destructrice, surgissait derrière le corps des cinq éléments. Il leva sa main gauche et tendit la droite; un Arc et une Flèche de Li Guang illusoires apparurent également dans ses mains!
 
-En n'offrant qu'une seule année de vie pour la huitième épreuve, il avait pris sa décision. Il ne comptait pas simplement passer la huitième tribulation, il comptait la détruire!
+En n'offrant qu'une seule année de vie pour la huitième épreuve, il avait pris sa décision. Il ne comptait pas simplement passer la neuvième tribulation, il comptait la détruire!
 
 Quelle que soit la puissance de cette épreuve, il n'en aurait cure, car son but était sa destruction! Simplement franchir les huit étapes ne suffisait pas. Se contenter de résister à la dernière ne correspondait pas à son caractère. Wang Lin nourrissait une haine envers ces calamités célestes qu'il ne comprenait même pas lui-même!
 
@@ -167,6 +167,8 @@ De loin, ce n'était plus une flèche, mais clairement un dragon doré. Le hurle
 Au moment où la flèche apparut, le monde changea de couleur, les cieux semblèrent reculer et toutes les créatures vivantes furent alarmées!
 
 Le dragon d'or ascendant portait une aura indescriptible en fonçant vers les cieux! Derrière lui, le corps véritable des cinq éléments de Wang Lin fit un mouvement de la main droite. Un grondement sourd retentit tandis que des dragons bleu, rouge et jaune suivaient le dragon doré dans l'azur!
+
+Ce ne sont pas un, mais quatre longs dragons, dragon d'or compris, quatre traits de flèche fusant comme quatre flammes jaillissant du sol!
 
 Pas seulement quatre, mais cinq dragons! Les cinq flèches furent projetées vers les cieux!
 

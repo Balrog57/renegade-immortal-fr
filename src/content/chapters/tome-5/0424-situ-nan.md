@@ -99,7 +99,7 @@ Cependant, dès que Zhu Quezi entendit ce nom, son expression changea radicaleme
 
 « Vous... » Zhu Quezi prit une inspiration saccadée, son corps secoué comme par un coup de foudre. Son regard vers Wang Lin n'était plus seulement empreint de choc, il était chargé d'une horreur profonde.
 
-Ye Wuyou était un nom que seule chaque génération de Suzaku connaissait. Personne d'autre ne le savait, pas même les ancêtres des sectes de Suzaku. Ils savaient seulement qu'il existait quelqu'un portant le nom taoïste de Suzaku.
+Ye Wuyou était un nom que seule chaque génération de Suzaku connaissait. Personne d'autre ne le savait, pas même les ancêtres des autres sectes. Ils savaient seulement qu'il existait quelqu'un portant le nom taoïste de Suzaku.
 
 Ye Wuyou était le véritable nom de la première génération de Suzaku!
 

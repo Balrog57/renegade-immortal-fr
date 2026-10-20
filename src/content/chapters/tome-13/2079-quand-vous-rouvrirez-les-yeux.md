@@ -6,11 +6,11 @@ bookTitle: Light of the coming end
 en: Chapter 2079 - When You Open Your Eyes Again
 slug: quand-vous-rouvrirez-les-yeux
 ---
-Cet automne, les feuilles mortes étaient emportées par le vent et volaient à travers le ciel, comme si elles cherchaient à regagner leur foyer.
+Un automne, dont on ne sait plus l'année, les feuilles mortes étaient emportées par le vent et volaient à travers le ciel, comme si elles cherchaient à regagner leur foyer.
 
 Le ciel d'automne était limpide sur dix mille kilomètres; il était d'une beauté saisissante. En ce matin d'automne, de légères volutes de fumée s'échappaient de ce qui ressemblait à une ferme et un jardin.
 
-Cet endroit se trouvait dans le pays de Zhao. Beaucoup d'habitants n'allaient jamais au-delà de leurs terres agricoles. Sans parler du fait qu'il s'agissait d'un lieu reculé, un petit village montagneux niché au pied d'une montagne.
+Cet endroit se trouvait dans le pays de Zhao. Beaucoup d'habitants n'allaient jamais bien loin de chez eux. Sans parler du fait qu'il s'agissait d'un lieu reculé, un petit village montagneux niché au pied d'une montagne.
 
 Alors que le vent d'automne matinal emportait les feuilles, les sons d'un suona s'élevèrent lentement de l'entrée du village. Des enfants espiègles couraient en riant avec une joie simple et excitée.
 
@@ -104,7 +104,7 @@ Son visage marqué par les rides reprit des couleurs, comme un dernier éclat de
 
 « J'ai vu exactement ce qu'il y avait dans le ciel quand nous étions enfants, je l'ai vraiment vu! Dans le ciel, il y avait toi et moi... »
 
-« Je l'ai vu... Nous sommes des immortels... Je... Je... » Liu Mei s'interrompit brusquement, les larmes coulant de ses yeux. Elle venait de voir une scène qui lui brisait le cœur.
+« Je l'ai vu... Nous sommes des immortels... Je... Je... » Liu Mei s'interrompit brusquement, les larmes coulant de ses yeux. Elle venait de voir une scène illusoire qui lui brisait le cœur.
 
 « Je... Comment est-ce possible... » Les larmes redoublèrent sur le visage de Liu Mei.
 
@@ -128,6 +128,6 @@ Les yeux de la femme tremblèrent et des larmes s'en échappèrent. Elle ouvrit 
 
 Mu Bingmei fixa Wang Lin. Elle ne saisissait pas le sens de ses paroles, mais elle ferma docilement les yeux. Cela suffit à stopper le flot de ses larmes.
 
-« Ouvre les yeux... » Une voix familière résonna devant elle.
+« Ouvre les yeux... » Une voix familière résonna à son oreille.
 
 Lorsqu'elle ouvrit les yeux, elle le vit.

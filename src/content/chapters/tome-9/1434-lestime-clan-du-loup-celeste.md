@@ -8,7 +8,7 @@ slug: lestime-clan-du-loup-celeste
 ---
 La fissure qui venait soudainement de déchirer le ciel laissa échapper un rugissement assourdissant. Ce son n'avait rien d'un rugissement ordinaire; il ressemblait plutôt au hurlement d'un loup. Sous ce cri, le corps de Wang Lin, qui avait déjà commencé à fusionner avec le monde, fut violemment expulsé!
 
-Tout se passa en un éclair. À l'instant même où le hurlement du loup projetait Wang Lin hors de sa fusion, une main géante s'étira pour le saisir! Tout semblait avoir été parfaitement calculé: la localisation de Wang Lin, la prédiction qu'il utiliserait la Distorsion Spatiale, puis cet étrange hurlement pour entraver sa fuite.
+Tout se passa en un éclair. À l'instant même où le hurlement du loup projetait Wang Lin hors de sa fusion, une main géante s'étira pour le saisir! Tout semblait avoir été parfaitement calculé: la localisation de Wang Lin, la prédiction qu'il utiliserait la Déformation Spatiale, puis cet étrange hurlement pour entraver sa fuite.
 
 En un instant, le bras se referma!
 
@@ -18,7 +18,7 @@ Cette aura, particulièrement tyrannique, fondit sur Wang Lin.
 
 Sans la moindre hésitation, Wang Lin fit volte-face. D'un revers de main, il fit apparaître un ongle dans sa paume! Cet ongle était d'un noir profond et dégageait une lueur sinistre, d'où s'échappaient même des hurlements plaintifs.
 
-Cet ongle, un poison violent, lui avait été offert par le vieil homme par égard pour le Vieux Oiseau Vermillon!
+Cet ongle, un poison violent, lui avait été offert par l'Illustre Grande Désolation, par égard pour le Vieux Oiseau Vermillon!
 
 Wang Lin lança l'ongle sans attendre. En un battement de cils, l'objet se transforma en une bourrasque de vent noir et percuta la paume géante.
 
@@ -32,13 +32,13 @@ La puissance de l'ongle dépassait les espérances de Wang Lin. Bien que la paum
 
 L'Ancienne Feuille grandit subitement, passant de cent à mille, puis à dix mille pieds, scellant instantanément la déchirure spatiale!
 
-Des rugissements sourds montèrent de la faille alors que Wang Lin faisait un pas en avant pour fusionner avec le monde. En un éclair, il disparut grâce à la Distorsion Spatiale!
+Des rugissements sourds montèrent de la faille alors que Wang Lin faisait un pas en avant pour fusionner avec le monde. En un éclair, il disparut grâce à la Déformation Spatiale!
 
 Trois respirations après son départ, l'Ancienne Feuille qui scellait la brèche se mua en poussière de lumière et s'évanouit.
 
 Wang Lin réapparut quelque part dans le Système Stellaire Antique. Sa main droite traça un sceau tandis qu'il commandait: « Feuille Tombée, retourne à tes racines! »
 
-Un éclat de lumière cristalline apparut devant lui, se matérialisant en l'Ancienne Feuille qu'il saisit. Un regard glacial passa dans ses yeux alors qu'il s'élançait à nouveau. Utilisant une nouvelle fois la Distorsion Spatiale, il disparut sans laisser de trace.
+Un éclat de lumière cristalline apparut devant lui, se matérialisant en l'Ancienne Feuille qu'il saisit. Un regard glacial passa dans ses yeux alors qu'il s'élançait à nouveau. Utilisant une nouvelle fois la Déformation Spatiale, il disparut sans laisser de trace.
 
 « Dans mon état actuel, je ne peux pas retourner vers la faille de la Mer des Nuages. La traque du Conseil Souverain a repris. Soit... J'ai passé ma vie dans le danger, une simple prime du Conseil Souverain ne m'effraie pas. Je veux voir combien de puissants cultivateurs seront attirés par l'appât! »
 
@@ -64,7 +64,7 @@ Alors que la planète se désagrégeait, l'homme s'élança dans le vide, décle
 
 La sphère frappa le vide et le tordit, créant un trou noir dans lequel l'homme s'engouffra.
 
-Wang Lin progressait à travers le Système Stellaire Antique par Distorsion Spatiale. Dès son apparition, il leva la main et projeta l'Ancienne Feuille derrière lui sans hésiter.
+Wang Lin progressait à travers le Système Stellaire Antique par Déformation Spatiale. Dès son apparition, il leva la main et projeta l'Ancienne Feuille derrière lui sans hésiter.
 
 À cet instant précis, un trou noir se manifesta dans l'espace derrière lui, et la silhouette de l'homme massif commença à émerger.
 

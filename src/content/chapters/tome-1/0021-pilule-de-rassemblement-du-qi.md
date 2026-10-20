@@ -6,11 +6,11 @@ bookTitle: The Mediocre Youth
 en: Seizing the Spirit
 slug: pilule-de-rassemblement-du-qi
 ---
-Le dernier homme était un homme d'environ vingt-huit ou vingt-neuf ans au visage long et chevalin. Il releva le menton et lança d'un air dédaigneux: « Frère apprenti Wang, tu as passé trois mois en méditation intensive, alors tu n'es pas au courant. Ce Wang Lin est la risée de la secte en ce moment même. Comme l'a dit la sœur apprentie Xu, il a utilisé des méthodes peu avouables pour devenir disciple intérieur. »
+Le dernier homme était un homme d'environ vingt-huit ou vingt-neuf ans au visage long et chevalin. Il releva le menton et lança d'un air dédaigneux: « Frère apprenti Wang, tu as passé plusieurs mois en méditation intensive, alors tu n'es pas au courant. Ce Wang Lin est la risée de la secte en ce moment même. Comme l'a dit la sœur apprentie Xu, il a utilisé des méthodes peu avouables pour devenir disciple intérieur. »
 
-En entendant cela, Wang Zhuo éclata d'un rire sonore. « Tu m'as vraiment fait peur un instant. C'est donc ainsi que tu as intégré la secte. Même une fois ici, tu n'atteindras probablement jamais le premier niveau de Condensation de Qi. Pourquoi venir ici pour ne faire qu'entacher le nom de la famille Wang? »
+En entendant cela, Wang Zhuo éclata d'un rire sonore. « Tu m'as vraiment fait peur un instant. C'est donc ainsi que tu as intégré la secte. Avec un tel talent, tu n'atteindras jamais le premier niveau de Condensation de Qi, même une fois ici. Pourquoi venir ici pour ne faire qu'entacher le nom de la famille Wang? »
 
-« Frère apprenti Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est davantage. La culture consiste déjà à défier les lois célestes; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix douce et mélodieuse.
+« Frère apprenti Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est tout autant. La culture consiste déjà à défier les lois célestes; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix douce et mélodieuse.
 
 Alors qu'elle faisait quelques pas vers Wang Zhuo, la jeune fille nommée Xu ajouta: « Ce que le frère Wang dit n'est pas totalement faux pour autant. Ce Wang Lin a l'air si stupide... Il ne ressemble absolument pas à un cultivateur. »
 
@@ -40,7 +40,7 @@ En entendant ces paroles, Wang Lin éclata de rire. « Wang Zhuo, il semble que 
 
 Alors qu'il parlait, la porte de la maison des pilules s'ouvrit. Un garçon robuste à l'air éveillé, vêtu d'une courte tunique, en sortit: c'était Wang Hao.
 
-Il toussa bruyamment pour attirer l'attention de l'assemblée et dit d'un air satisfait de lui-même: « Les Pilules de Rassemblement du Qi sont encore dans le fourneau aujourd'hui. Attendez un peu: quand mon maître aura fini de les raffiner, je vous ferai entrer un par un. »
+Il toussa bruyamment pour attirer l'attention de l'assemblée et dit d'un air satisfait de lui-même: « Les Pilules de Rassemblement de Qi sont encore dans le fourneau aujourd'hui. Attendez un peu: quand mon maître aura fini de les raffiner, je vous ferai entrer un par un. »
 
 Wang Zhuo fixa Wang Hao en serrant les dents, mais il ne pouvait se permettre de l'offenser pour le moment. Wang Hao était l'assistant du troisième Grand Frère Apprenti et gérait les affaires quotidiennes de la maison des pilules. Si Wang Hao se plaignait au troisième Grand Frère Apprenti, la dotation mensuelle de Wang Zhuo en serait considérablement réduite.
 
@@ -60,7 +60,7 @@ Wang Hao répondit et se précipita aussitôt à nouveau dans la maison des pilu
 
 Wang Lin serra fermement l'objet dans sa main. En le regardant, il découvrit trois pilules transparentes. Il les dissimula prestement dans son sac de rangement. Sans craindre de se salir, il s'assit en tailleur et commença sa culture.
 
-L'un des quatre autres disciples, voyant Wang Lin s'installer, fit de même et entama sa propre culture, tandis que les trois restants demeurèrent debout sur le côté.
+L'un des quatre autres disciples, après avoir jeté un regard légèrement surpris à Wang Lin, fit de même et entama sa propre culture, tandis que les trois restants demeurèrent debout sur le côté.
 
 Wang Zhuo tentait de se faire bien voir de la jeune fille nommée Zhou, mais la jeune fille nommée Xu ne cessait de l'interrompre.
 
@@ -70,4 +70,4 @@ Sur le plateau reposaient cinq fragments de pierre spirituelle de faible qualit�
 
 Chacun s'avança à tour de rôle pour recevoir sa part. Wang Lin fut le dernier. Après avoir pris la sienne, il sourit, joignit les mains en signe de respect envers Wang Hao, puis partit.
 
-Il garda précieusement dans son cœur la bonté de Wang Hao: les trois pilules que ce dernier lui avait données étaient des Pilules de Rassemblement du Qi.
+Il garda précieusement dans son cœur la bonté de Wang Hao: les trois pilules que ce dernier lui avait données étaient des Pilules de Rassemblement de Qi.

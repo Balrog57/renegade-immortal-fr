@@ -70,7 +70,7 @@ Cependant, quelques Sens Divins continuèrent de suivre Wang Lin, comme s'ils no
 
 La prairie était sans fin. Au bout de trois jours, la bête moustique de Wang Lin s'était déjà beaucoup éloignée, et la plupart des traqueurs se dispersèrent, mais trois restèrent obstinément sur ses traces.
 
-Parmi ces trois Sens Divins, deux appartenaient à des cultivateurs au stade intermédiaire de l'Arcane Vide, tandis que le dernier n'était qu'au stade avancé du Spirituel Vide. Leurs puissances suffisaient à dissuader les autres de les suivre.
+Parmi ces trois Sens Divins, deux appartenaient à des cultivateurs au stade intermédiaire du Vide Arcanique, tandis que le dernier n'était qu'au stade avancé du Vide Spirituel. Leurs puissances suffisaient à dissuader les autres de les suivre.
 
 Après sept jours, alors que la prairie touchait presque à sa fin, Wang Lin sentit qu'il pourrait à nouveau utiliser la Courbure Spatiale pour un déplacement de grande envergure. Quant aux trois Sens Divins qui le talonnaient, il n'en avait cure. Il se redressa sur le dos de la bête moustique.
 
@@ -92,7 +92,7 @@ Des fracas de tonnerre secouèrent le monde. Le bras noir qui s'avançait vers W
 
 Trois gémissements étouffés provinrent du membre noir en lambeaux, et trois silhouettes furent projetées au loin. Elles fixèrent Wang Lin, terrifiées par la puissance de son attaque.
 
-« Ce n'est pas un simple cultivateur du Spirituel Vide! »
+« Ce n'est pas un simple cultivateur du Vide Spirituel! »
 
 « Un corps physique aussi puissant... Cet homme... il est comparable à un cultivateur d'un Pays Ancien! »
 
@@ -102,7 +102,7 @@ L'expression de Wang Lin restait calme. Puisqu'il avait agi, il ne comptait pas 
 
 Elle le rattrapa instantanément, et une brume noire enveloppa sa proie. Des cris de douleur résonnèrent avant de s'éteindre lentement.
 
-Peu après, le Roi Moustique sous Wang Lin poussa un rugissement et chargea vers le cultivateur du Spirituel Vide au stade avancé. Avant que celui-ci ne puisse réagir, la créature se rapprocha et plongea sa gueule acérée en lui. L'homme tenta de résister alors que le moustique aspirait son essence, mais Wang Lin pointa simplement le doigt vers l'avant.
+Peu après, le Roi Moustique sous Wang Lin poussa un rugissement et chargea vers le cultivateur du Vide Spirituel au stade avancé. Avant que celui-ci ne puisse réagir, la créature se rapprocha et plongea sa gueule acérée en lui. L'homme tenta de résister alors que le moustique aspirait son essence, mais Wang Lin pointa simplement le doigt vers l'avant.
 
 D'un geste impérieux, il immobilisa totalement le cultivateur qui ne put qu'assister, impuissant, à sa propre mort imminente.
 

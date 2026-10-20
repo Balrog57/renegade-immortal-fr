@@ -11,7 +11,7 @@ Wang Lin regarda la femme et demanda calmement: « Pourquoi? »
 
 Une intention meurtrière envahit le visage de la femme qui répondit froidement: « Il n'y a aucune raison. Vous pouvez vivre n'importe où, sauf ici! »
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il contemplait le Pavillon des Nuages Pourpres. Après une courte réflexion, il recula de quelques pas, s'assit et commença à cultiver.
+Les yeux de Wang Lin s'illuminèrent alors qu'il contemplait le Pavillon des Nuages Pourpres. Après une courte réflexion, il recula de quelques pas, s'assit, les yeux fermés, et commença à cultiver.
 
 Wang Lin n'était pas d'humeur à chercher querelle. Il était venu sur la planète Tian Yun pour trouver un endroit paisible où pratiquer sa culture; il n'avait donc aucune envie de créer une animosité avec quelqu'un pour une simple demeure.
 
@@ -33,7 +33,7 @@ Sur une magnifique falaise située à 50 kilomètres du Pavillon des Nuages Pour
 
 Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrictions, il s'assit et poussa un soupir. Ses yeux brillaient d'une lueur méditative.
 
-« L'atmosphère de la Secte du Destin Céleste est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que le Maître m'avait assigné le Pavillon des Nuages Pourpres.
+« L'atmosphère de la Secte du Destin Céleste est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que l'Omniscient m'avait assigné le Pavillon des Nuages Pourpres.
 
 « Et maintenant, ce pavillon est gardé par une femme qui refuse que quiconque s'en approche...
 
@@ -63,7 +63,7 @@ Cette femme apparaissait chaque jour devant le Pavillon des Nuages Pourpres au l
 
 Si cela continuait ainsi, Wang Lin n'y verrait aucun inconvénient. Pouvoir cultiver sans être importuné était très apaisant. Cependant, l'après-midi du dix-septième jour, alors que Wang Lin cultivait dans sa grotte, il fronça soudain les sourcils et regarda vers l'extérieur.
 
-Dehors, deux rayons de lumière arrivaient de loin. Après avoir tournoyé une fois, ils se posèrent non loin de là, révélant deux vieillards vêtus de robes pourpres claires. L'un était corpulent et l'autre svelte. Tous deux affichaient des expressions froides en contemplant la grotte de Wang Lin. L'un d'eux cria: « Quel disciple a osé creuser une grotte ici sans l'autorisation d'un Ancien? Sors d'ici, immédiatement! »
+Dehors, deux rayons de lumière arrivaient de loin. Après avoir tournoyé un instant, ils se posèrent non loin de là, révélant deux vieillards vêtus de robes pourpres claires. L'un était corpulent et l'autre svelte. Tous deux affichaient des expressions froides en contemplant la grotte de Wang Lin. L'un d'eux cria: « Quel disciple a osé creuser une grotte ici sans l'autorisation d'un Ancien? Sors d'ici, immédiatement! »
 
 La silhouette de Wang Lin émergea de la grotte. Son visage était sombre alors qu'il fixait les deux vieillards. Tous deux étaient au stade initial de la Transformation de l'Âme.
 
@@ -107,19 +107,19 @@ Sans hésiter, l'Ancien fit volte-face pour s'enfuir. Il avait clairement vu ce 
 
 Après avoir constaté cela, comment l'Ancien ne pouvait-il être terrifié? Il maudit intérieurement son sort: s'il avait su, il n'aurait jamais écouté Zhao Xingsha. Mais ses regrets étaient désormais inutiles.
 
-Wang Lin ne daigna même pas jeter un regard à cet Ancien. D'un pas, il atteignit celui dont l'âme originelle avait été fouettée. L'Ancien luttait encore contre l'éclair lorsqu'il sentit Wang Lin approcher. Prêt à abandonner toute résistance pour tenter de s'enfuir, il fut stoppé net.
+Wang Lin ne daigna même pas jeter un regard à cet Ancien. D'un pas, il atteignit celui dont l'âme originelle avait été fouettée. L'Ancien luttait encore contre l'éclair lorsqu'il sentit Wang Lin approcher. Il poussa un cri strident, prêt à abandonner toute résistance pour tenter de s'enfuir, mais il fut stoppé net.
 
 Le regard de Wang Lin était d'une froideur absolue. Il agita la main et le Drapeau de Restriction apparut dans sa paume. D'un mouvement, d'innombrables restrictions jaillirent, scellant totalement la voie de fuite de l'âme originelle de l'Ancien.
 
 Simultanément, il tendit la main et ordonna: « Reviens! »
 
-L'âme originelle ne ressentit qu'une force puissante venant de l'arrière. Bien qu'entourée de restrictions, elle n'avait besoin que d'un instant pour les briser, mais cet instant lui fut refusé!
+L'âme originelle ne ressentit qu'une force puissante venant de l'arrière. Bien qu'entourée de restrictions, elle n'avait besoin que d'un instant pour les briser, mais à cet instant précis, c'était une question de vie ou de mort!
 
 Serrant les dents, il se retourna brusquement en hurlant: « Je suis un Ancien disciplinaire! Même si tu es le disciple de l'Omniscient, si tu me tues, la secte te punira quand même! »
 
-Wang Lin ricana: « On dirait que tu connais mon identité! » Il retira sa main droite, arrachant l'âme originelle dans un cri de détresse.
+Wang Lin ricana: « On dirait que tu connais mon identité! » Il referma brutalement sa main droite sur l'âme originelle, qui poussa un cri de détresse.
 
-Au même moment, Wang Lin frappa son sac et une cloche s'en échappa. La cloche grandit jusqu'à atteindre environ dix mètres de long; Wang Lin projeta l'âme originelle vers elle, qui l'emprisonna aussitôt.
+Au même moment, Wang Lin frappa son sac et une cloche s'en échappa. La cloche grandit jusqu'à atteindre environ dix mètres de long; Wang Lin projeta l'âme originelle vers elle, qui l'emprisonna aussitôt et la plaqua au sol.
 
 « Affine! » cria Wang Lin en se retournant.
 

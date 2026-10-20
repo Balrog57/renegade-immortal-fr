@@ -14,11 +14,11 @@ Deux mois s'étaient écoulés dans le monde réel, mais il avait cultivé penda
 
 Wang Lin ne l'avait pas perçu auparavant, mais la culture était un processus extrêmement aride et monotone. Grâce à l'eau de source imprégnée d'énergie spirituelle, il n'avait même plus besoin de manger; son quotidien consistait désormais uniquement en sa culture.
 
-Il répétait la technique de respiration « une longue, trois courtes » tandis que l'énergie spirituelle pénétrait dans son corps. S'il n'avait pas eu les regards empreints d'espoir de ses parents qui lui revenaient sans cesse à l'esprit, il était certain qu'il n'aurait pu supporter cette culture aussi fastidieuse.
+Il répétait la technique de respiration « une longue, trois courtes » tandis que l'énergie spirituelle pénétrait dans son corps. S'il n'avait pas eu une volonté inébranlable et les regards empreints d'espoir de ses parents qui lui revenaient sans cesse à l'esprit, il était certain qu'il n'aurait pu supporter cette culture aussi fastidieuse.
 
-Surtout lorsqu'il pensait que Wang Zhuo avait réussi à atteindre le premier niveau de la Condensation de Qi en seulement trois mois. Un sentiment d'insatisfaction ne cessait de poindre dans son cœur. Il ne sortait presque jamais de chez lui, totalement dévoué à sa culture.
+Surtout lorsqu'il pensait que Wang Zhuo avait réussi à atteindre le premier niveau de la Condensation de Qi en seulement trois mois. Un vif dépit ne cessait de poindre dans son cœur. Il ne sortait presque jamais de chez lui, totalement dévoué à sa culture.
 
-Wang Lin était la risée de la Secte Heng Yue. Bien que beaucoup soient jaloux de lui, rares étaient ceux qui lui prêtaient véritablement attention.
+Wang Lin était la risée de la Secte Heng Yue, un personnage insignifiant. Bien que beaucoup soient jaloux de lui, rares étaient ceux qui lui prêtaient véritablement attention.
 
 Sun Dazhu avait presque oublié l'existence de Wang Lin. Chaque fois qu'une pensée pour ce dernier traversait son esprit, il en devenait furieux et s'efforçait de la chasser aussitôt.
 
@@ -36,7 +36,7 @@ Grâce à ce soutien en énergie spirituelle presque inépuisable, la quantité 
 
 Aujourd'hui, alors qu'il cultivait dans l'espace de rêve, il pouvait clairement sentir l'énergie spirituelle circuler en lui. À chaque expiration, deux longs dragons blancs jaillissaient de sa bouche et de son nez.
 
-Une sensation d'insectes rampant sous sa peau surgit. C'était comme si une eau lavait chaque parcelle de son être. Un liquide noir à l'odeur fétide s'exsudait de ses pores.
+Une sensation d'insectes rampant sous sa peau surgit, d'abord faible puis de plus en plus forte. C'était comme si une eau lavait chaque parcelle de son être. Un liquide noir à l'odeur fétide s'exsudait de ses pores.
 
 Bientôt, ce liquide noir imprégna ses vêtements. Wang Lin n'y prêtait aucune attention. Il se trouvait dans un état merveilleux, comme s'il pouvait voir l'eau de source se décomposer en lui tandis que l'énergie spirituelle transformait lentement son corps.
 
@@ -46,7 +46,7 @@ Son esprit était clair et son cœur aussi calme qu'une eau sans la moindre ride
 
 Bien plus tard, il expira profondément. Son cœur était empreint d'amertume. En franchissant le premier niveau de la Condensation de Qi, il avait acquis une forme de compréhension.
 
-Selon les Trois Étapes de la Condensation de Qi, le premier niveau est semblable à une porte. Une fois cette porte franchie, on entre dans le rang des cultivateurs et l'on se détache du monde, renonçant aux affaires terrestres.
+Selon les Trois Étapes de la Condensation de Qi, le premier niveau est semblable à une porte. Une fois cette porte franchie, on entre dans le rang des cultivateurs et l'on se détache du monde, renonçant aux affaires terrestres et dissolvant ses attachements.
 
 Chaque personne éprouvait ce sentiment en atteignant ce stade. Il ignorait comment les autres géraient cette transition, mais lui, il pouvait couper tous les liens avec le monde profane, à l'exception de l'amour pour ses parents.
 
@@ -56,11 +56,11 @@ Le regard vif, il observa les alentours et sentit déjà une différence dans l'
 
 En observant, la sensation d'être déchiré réapparut. Bien que la douleur fût toujours présente, elle était bien moindre et ne provoquait plus de sueurs froides.
 
-Wang Lin ouvrit les yeux. Assis sur son lit, il réfléchit un instant avant d'ouvrir immédiatement sa gourde. En regardant à l'intérieur, il pouvait désormais voir l'énergie spirituelle qui imprégnait l'eau de source.
+Wang Lin ouvrit les yeux. Assis sur son lit, il réfléchit un instant avant d'ouvrir immédiatement sa gourde. En regardant à l'intérieur, il pouvait désormais voir l'énergie spirituelle qui imprégnait l'eau de source, d'une abondance extrême.
 
 Il laissa échapper un sourire. Après avoir atteint le premier niveau de la Condensation de Qi, il pouvait ressentir l'énergie spirituelle du ciel et de la terre. Il prit une grande inspiration et réalisa soudain que son corps était collant, ce qui le fit rire. Les Trois Étapes de la Condensation de Qi mentionnaient qu'après avoir atteint ce premier niveau, les impuretés du corps étaient expulsées. C'était une étape nécessaire à la transformation physique.
 
-Wang Lin ouvrit sa porte. C'était l'après-midi. D'un pas vif, il sortit par la porte est et se rendit à la source de la montagne, en aval. Il se déshabilla et sauta dans la rivière pour se laver. La crasse sombre était très grasse et mit longtemps à disparaître.
+Wang Lin ouvrit sa porte. C'était l'après-midi. D'un pas vif, il sortit par la porte est et se rendit à la source de la montagne, en aval. Il se déshabilla et se lava énergiquement. La crasse sombre était très grasse et mit longtemps à disparaître.
 
 Une fois propre, il s'allongea sur un rocher. Il se remémora une technique mentionnée dans les Trois Étapes de la Condensation de Qi.
 

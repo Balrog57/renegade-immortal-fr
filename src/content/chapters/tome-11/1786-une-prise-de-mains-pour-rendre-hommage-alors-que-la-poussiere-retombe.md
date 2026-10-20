@@ -8,7 +8,7 @@ slug: une-prise-de-mains-pour-rendre-hommage-alors-que-la-poussiere-retombe
 ---
 La porte s'ouvrit complètement!
 
-Dans Luotian, le fourneau géant recouvert de gaz noirs au cœur du monde caverne trembla. Le gaz noir se brisa centimètre par centimètre.
+Dans Luotian, le fourneau géant recouvert de gaz noirs au cœur du monde caverne trembla. Le gaz noir se brisa centimètre par centimètre, puis se dissipa sans laisser de trace.
 
 Une fissure gigantesque apparut au milieu du fourneau, laissant jaillir une lumière dorée. Des grondements tonitruants résonnèrent à mesure que la faille s'agrandissait. Finalement, le fourneau se fendit en deux.
 
@@ -68,7 +68,7 @@ Tuo Sen, ou Tu Si, méditait également en silence. Il fixait la porte dorée, m
 
 À Luotian, à l'extérieur de la porte dorée, plusieurs rayons de lumière convergèrent. Des cultivateurs du monde caverne arrivaient de loin. En voyant la porte, ils furent tous frappés de stupeur.
 
-Le regard de Wang Lin se détacha enfin de la porte après un long moment. Il constata que, depuis qu'il avait quitté la cinquième fleur, ses huit corps véritables de son Essence avaient disparu. Son essence d'eau n'était encore qu'au stade de la petite complétude, et les sept autres essences étaient dissimulées.
+Le regard de Wang Lin se détacha enfin de la porte après un long moment. Il constata que, dès son apparition dans ce ciel étoilé, ses huit corps véritables de son Essence avaient disparu. Son essence d'eau n'était encore qu'au stade de la petite complétude, et les sept autres essences étaient dissimulées.
 
 Tout était revenu à l'état précédant son entrée dans le Bassin Dong Lin.
 

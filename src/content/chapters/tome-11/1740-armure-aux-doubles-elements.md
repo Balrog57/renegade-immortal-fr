@@ -28,7 +28,7 @@ Une fois sorti, il agita la main droite vers la tour, faisant apparaître un éc
 
 Il ne pensait pas que Wang Lin soit venu seul; d'autres membres du clan du Dao Antique étaient probablement présents. Il était fort probable qu'ils ne fussent pas là pour le trésor, mais pour trouver Ye Mo!
 
-Le vieil homme avait déduit tout cela de lui-même, et il était convaincu d'avoir au moins raison à 80 %. Après avoir parlé, il chargea en avant et agita sa main droite. Des bruits de craquements jaillirent de l'ombre du géant arbre. L'arbre se tordit et se rétracta jusqu'à devenir une masse de lumière verte dans la main du vieil homme.
+Le vieil homme avait déduit tout cela de lui-même, et il était convaincu d'avoir raison huit ou neuf fois sur dix. Après avoir parlé, il chargea en avant et agita sa main droite. Des bruits de craquements jaillirent de l'ombre du géant arbre. L'arbre se tordit et se rétracta jusqu'à devenir une masse de lumière verte dans la main du vieil homme.
 
 En un clin d'œil, cette lumière se transforma en un fouet verdoyant!
 
@@ -52,7 +52,7 @@ Grâce à ce mouvement de traction, une lueur verte fut extraite du fouet et asp
 
 Des grondements tonitruants résonnèrent et le fouet marqua un temps d'arrêt. À cet instant précis, l'herbe de la planète se flétrit rapidement pour se transformer en une force de bois qui se rassembla à l'intérieur du fouet.
 
-En un instant, l'essence extraite par l'Impression Karmique de Wang Lin fut restaurée. Le fouet cingla l'air et frappa le corps de Wang Lin!
+En un instant, l'essence extraite par l'Impression Karmique de Wang Lin fut restaurée. Le fouet cingla l'air et fila vers Wang Lin!
 
 Un bang fracassant retentit et le corps de Wang Lin trembla violemment. Le fouet n'avait pas touché sa peau, mais s'était arrêté à sept pieds de distance. Les ondulations créées par l'impact projetèrent une force puissante contre lui.
 
@@ -80,7 +80,7 @@ Cependant, il n'était qu'un simple cultivateur!
 
 Wang Lin possédait le lignage du Dao Antique, et rien au monde ne présentait un corps plus puissant que celui des Anciens. Non seulement Wang Lin portait ce sang, mais son avatar possédait également sept essences.
 
-Ses essences jaillirent et s'engouffrèrent dans son bras droit, fusionnant avec son pouvoir du Dao Antique. Conjugué au fait que la main droite de Wang Lin appartenait à Ye Mo, la puissance de cette fusion atteignit un degré terrifiant. Bien que le vieil homme fût au stade intermédiaire du Vide Arcanique, comparer sa force à celle de Wang Lin était tout simplement dérisoire!
+Ses essences jaillirent et s'engouffrèrent dans son bras droit, fusionnant avec son pouvoir du Dao Antique. Conjugué au fait que la main droite de Wang Lin appartenait à Ye Mo, la puissance de cette fusion atteignit un degré terrifiant. Bien que le vieil homme fût au stade intermédiaire du Vide Arcanique et que ses techniques surpassent celles de Wang Lin, comparer sa force à celle de Wang Lin était tout simplement dérisoire!
 
 D'une seule traction, le monde trembla et les deux fouets émirent des sons stridents, comme s'ils allaient rompre. En un instant, le fouet fut arraché des mains du vieil homme, lui laissant une marque sanglante sur la paume!
 
@@ -90,7 +90,7 @@ L'expression du vieil homme devint extrêmement sinistre; ses mains formèrent d
 
 Simultanément, la tempête de sable derrière le vieil homme avança pour l'envelopper. Des craquements retentirent et la lumière verte pénétra dans les tourbillons de sable. La tempête se contracta rapidement pour former une armure composée d'éléments de bois et de terre!
 
-L'armure était d'un jaune terreux, parsemée de motifs floraux verts. De loin, ces motifs dessinaient la silhouette d'un arbre géant.
+L'armure était d'un jaune terreux, parsemée de larges empreintes vertes. De loin, ces motifs dessinaient la silhouette d'un arbre géant.
 
 À l'apparition de cette armure, la culture du vieil homme explosa, passant du stade intermédiaire au sommet du stade avancé du Vide Arcanique. Il n'était plus qu'à un pas de la Grande Perfection du Vide Arcanique!
 
@@ -232,7 +232,7 @@ Il ne voulait pas parier!
 
 La main droite du vieil homme Ma tenait l'Épée de Sang. Après une réflexion, il leva les yeux vers Wang Lin et dit lentement:
 
-« Je suis stupéfait par ce Dao Céleste, mais ce vieil homme ne croit pas qu'il ait le pouvoir de me dévorer! Sinon, tu n'en serais pas arrivé à un tel état! » L'homme nommé Ma leva son pied droit pour l'abaisser lentement. Cependant, son regard restait verrouillé sur Wang Lin, guettant le moindre changement dans son expression.
+« Le Dao Céleste est entre tes mains, je suis surpris, mais ce vieil homme ne croit pas qu'il ait le pouvoir de me dévorer! Sinon, tu n'en serais pas arrivé à un tel état! » L'homme nommé Ma leva son pied droit pour l'abaisser lentement. Cependant, son regard restait verrouillé sur Wang Lin, guettant le moindre changement dans son expression.
 
 Wang Lin esquissa un léger sourire et dit doucement: « En effet, il ne peut pas vous dévorer, mais vous devez tout de même me rendre cette épée. »
 

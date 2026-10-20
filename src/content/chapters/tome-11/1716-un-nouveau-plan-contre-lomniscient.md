@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1716 - Scheme Again Omniscient!"
 slug: un-nouveau-plan-contre-lomniscient
 ---
-Aux abords de la fissure spatiale dans la Mer des Nuages, une multitude de bêtes féroces s'étaient rassemblées. Elles n'avaient pas oublié la tempête de restrictions qui les avait expulsées de la faille quelques mois auparavant.
+Aux abords de la fissure spatiale dans la Mer des Nuages, une multitude de bêtes féroces s'étaient rassemblées. Toutes gardaient le visage crispé d'effroi : elles n'avaient pas oublié la tempête de restrictions qui les avait expulsées de la faille quelques mois auparavant.
 
 Cependant, la fissure spatiale était leur demeure; elles restaient donc aux alentours, refusant de s'en éloigner.
 
@@ -32,7 +32,7 @@ Wang Lin ne pénétra pas dans le Royaume Céleste mais resta à l'extérieur, f
 
 Wang Lin leva sa main droite et fit un geste. Les lignes de sang dans ses yeux apparurent silencieusement devant lui et volèrent vers la rivière argentée.
 
-À cet instant, les lignes de ses yeux brillèrent, tout comme celles à l'extérieur, comme si elles étaient connectées. Toutes deux convergèrent vers la rivière argentée.
+À cet instant, les lignes de ses yeux brillèrent, tout comme celles à l'extérieur, comme si elles étaient connectées. Toutes deux convergèrent vers la rivière argentée, s'y fondirent et la teintèrent d'une faible lueur de sang.
 
 Une fois cela accompli, Wang Lin leva les yeux vers les étoiles. Les lignes floues des lois apparurent devant lui. D'un mouvement de la main droite, il fit converger une multitude de ces lignes autour de la rivière argentée.
 

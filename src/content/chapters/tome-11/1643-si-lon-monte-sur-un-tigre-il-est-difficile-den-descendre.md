@@ -48,7 +48,7 @@ Même si cette fourmi lui inspirait l'effroi, il réprima cette peur par la forc
 
 « Dao du Tigre Blanc de l'Ouest, puissance des sept constellations stellaires, toute matière, de l'herbe au métal. Mon héritage du Tigre Blanc condense toute cette puissance pour former le grand sort de mon clan! »
 
-« Scelle cet homme, montre-lui que si l'on monte sur un tigre, il est difficile d'en descendre! » rugit le vieil homme, avant de plaquer sa main contre la statue. Il s'en détacha aussitôt, les mains formant un sceau. Ses yeux émettaient une lumière monstrueuse tandis qu'il pointait Wang Lin du doigt.
+« Scelle cet homme : si l'on monte sur un tigre, il est difficile d'en descendre! » rugit le vieil homme, avant de plaquer sa main contre la statue. Il s'en détacha aussitôt, les mains formant un sceau. Ses yeux émettaient une lumière monstrueuse tandis qu'il pointait Wang Lin du doigt.
 
 D'un seul geste, les innombrables éclats lumineux du Tigre Blanc réapparurent et convergèrent vers Wang Lin à une vitesse inimaginable.
 
@@ -92,7 +92,7 @@ Aux yeux de Wang Lin, cet esprit de tigre n'était pas une bête céleste créé
 
 « Oses-tu me dévorer?! » demanda Wang Lin d'une voix lente avant d'ouvrir brusquement les yeux. Il fixa l'esprit du tigre, dégageant une pression immense sans pour autant paraître colérique. Il possédait l'aura d'un érudit qui ne craignait même pas le Ciel; comment pourrait-il craindre ce petit tigre?
 
-L'esprit du tigre, enroulé autour de lui, trembla et une lueur de terreur apparut dans ses yeux. Un flux incontrôlable de pensées traversa son esprit, comme s'il avait traversé d'innombrables réincarnations; il vit son ancêtre, le Tigre Blanc, agenouillé en adoration devant les cieux sur le Continent Astral Immortel.
+L'esprit du tigre, enroulé autour de lui, trembla et une lueur de terreur apparut dans ses yeux. Un flux incontrôlable de pensées traversa son esprit, comme s'il avait traversé d'innombrables réincarnations et cycles de karma; il vit son ancêtre, le Tigre Blanc, agenouillé en adoration devant les cieux sur le Continent Astral Immortel, à l'aube du monde.
 
 Il ne comprenait pas l'origine de ces pensées, mais il ressentit une peur qui émanait de son âme même!
 

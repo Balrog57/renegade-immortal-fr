@@ -40,7 +40,7 @@ Wang Lin ne se souciait de rien de ce qui se passait à l'extérieur. Sa chambre
 
 Pendant ces trois années, le Prince Ji Du ne quitta pas les lieux et fit ses préparatifs dans ce palais. Parfois, des émissaires venaient de l'extérieur pour s'entretenir secrètement avec lui; ils repartaient alors, transportés par l'excitation et le respect.
 
-Durant cette période, le Prince Ji Du était comme le vent et la pluie. Peu importait l'urgence des événements, il se tenait chaque matin personnellement devant la chambre secrète de Wang Lin, le regard empreint de ferveur, pendant une demi-heure avant de s'éclipser respectueusement.
+Durant cette période, le Prince Ji Du était comme le vent et la pluie. Peu importait l'urgence des événements, il se tenait chaque matin personnellement devant la chambre secrète de Wang Lin, le regard empreint de ferveur, pendant une heure avant de s'éclipser respectueusement.
 
 Ce jour-là, après trois ans, Wang Lin ouvrit les yeux pour la première fois. À l'instant même où ses paupières se levèrent, deux rayons de lumière cristalline jaillirent.
 
@@ -70,7 +70,7 @@ Désormais, il était confiant de pouvoir affronter un Grand Empyréen Dao Yi au
 
 « Mon feu d'âme produit un effet, certes, mais c'est lent. Je me demande quand ce processus sera achevé. » Wang Lin fixa l'âme de l'Empereur Céleste durant un long moment avant de détourner les yeux.
 
-« Pour l'instant, je n'ai pas à me soucier du véritable corps des cinq éléments. Une fois parachevé dans la cité impériale de l'Ancien Dao, il avait atteint sa perfection et m'avait permis d'atteindre le sommet du Vide Tribulant. Cela confirme que mes spéculations étaient justes!
+« Pour l'instant, je n'ai pas à me soucier du véritable corps des cinq éléments. Une fois parachevé dans la cité impériale de l'Ancien Dao, il avait atteint sa perfection et m'avait permis d'atteindre le sommet de la Tribulation du Vide. Cela confirme que mes spéculations étaient justes!
 
 « Si je veux élever mon niveau de culture, la prochaine étape est le véritable corps d'essence de tonnerre de massacre... » Wang Lin observa son véritable corps d'essence de tonnerre de massacre, ses yeux brillant d'une lueur étrange.
 
@@ -98,11 +98,11 @@ Un autre nuage de brume scintillait d'innombrables symboles étranges. À mesure
 
 Quant aux deux derniers nuages, l'un émettait une lumière éclatante tandis que l'autre était plongé dans l'obscurité totale. Ils représentaient respectivement le début absolu et la fin absolue.
 
-« Ce n'est que lorsque les quatre essences auront formé leurs propres véritables corps et fusionneront en un véritable corps d'essence de tonnerre de massacre complet que mon niveau de culture pourra franchir le sommet du Vide Tribulant!
+« Ce n'est que lorsque les quatre essences auront formé leurs propres véritables corps et fusionneront en un véritable corps d'essence de tonnerre de massacre complet que mon niveau de culture pourra franchir le sommet de la Tribulation du Vide!
 
-« Cela correspondra peut-être à un Exalté Empyréen ou un Ascendant Empyréen, mais il est possible que ce soit autre chose, un royaume inconnu... Peut-être même un Grand Empyréen! » Les yeux de Wang Lin étaient empreints d'attente. D'après ses connaissances, les Exaltés Empyréens et les Ascendants Empyréens n'étaient que des êtres au sommet du Vide Tribulant. Cependant, l'ascension vers le rang de Grand Empyréen était si ardue qu'elle avait été subdivisée en plusieurs échelons.
+« Cela correspondra peut-être à un Exalté Empyréen ou un Ascendant Empyréen, mais il est possible que ce soit autre chose, un royaume inconnu... Peut-être même un Grand Empyréen! » Les yeux de Wang Lin étaient empreints d'attente. D'après ses connaissances, les Exaltés Empyréens et les Ascendants Empyréens n'étaient que des êtres au sommet de la Tribulation du Vide. Cependant, l'ascension vers le rang de Grand Empyréen était si ardue qu'elle avait été subdivisée en plusieurs échelons.
 
-En réalité, tant les Exaltés Empyréens que les Ascendants Empyréens étaient, fondamentalement, des cultivateurs au sommet du Vide Tribulant.
+En réalité, tant les Exaltés Empyréens que les Ascendants Empyréens étaient, fondamentalement, des cultivateurs au sommet de la Tribulation du Vide.
 
 Le regard de Wang Lin s'illumina. Après une courte réflexion, il leva la main droite et fit un geste vers le plafond de la chambre secrète. Une scène prodigieuse se produisit: le plafond se mua en ciel.
 

@@ -74,7 +74,7 @@ Ils ne s'arrêtèrent pas et traversèrent le vide à toute allure. Il ne fallut
 
 Les membres sectionnés s'assemblèrent pour former un corps complet. Cet homme avait une chevelure blanche, un visage balafré de cicatrices hideuses et un corps mutilé par endroits. Son œil droit manquait, ne laissant que l'œil gauche, qui affichait un regard glacial.
 
-« Seigneur Céleste Qing Shui, peu importe la force de votre sceau, il n'a pu vaincre le passage du temps. Vous n'oseriez pas me tuer. Si vous aviez voulu ma mort, pourquoi avoir placé une formation de guérison à l'extérieur du vortex de scellement?! Cependant, je dois vous remercier: sans cette formation, je n'aurais pas survécu à l'effondrement du Royaume Céleste! »
+« Seigneur Céleste Qing Shui, peu importe la force de votre sceau, il n'a pu vaincre le passage du temps. Vous n'oseriez pas me tuer. Si vous aviez voulu ma mort, pourquoi avoir placé une formation de guérison à l'extérieur du vortex de scellement?! Cependant, je dois vous remercier: sans ce vortex de scellement, je n'aurais pas survécu à l'effondrement du Royaume Céleste! »
 
 « Qing Shui, puisque je ne suis pas mort, tu ne l'es naturellement pas non plus. À moins que tu ne trouves un autre vortex de scellement laissé par l'ancien Royaume Céleste, tu ne pourras plus jamais me sceller! » L'homme aux cheveux blancs arborait une expression féroce alors qu'il riait sauvagement avant de s'élancer dans le vide.
 

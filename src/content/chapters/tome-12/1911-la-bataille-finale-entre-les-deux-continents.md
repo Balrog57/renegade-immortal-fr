@@ -9,7 +9,7 @@ slug: la-bataille-finale-entre-les-deux-continents
 
 Alors que Wang Lin déchirait la protection de la Secte du Dao Démoniaque et levait sa Lame Yin, la guerre sur le Continent du Taureau Céleste atteignait son paroxysme.
 
-Le conflit, qui durait depuis plus de cent ans, ne cessait de s'étendre avec le temps. Des dizaines de millions de kilomètres de territoire étaient engloutis par les combats, et cette guerre affectait la quasi-totalité du Continent du Taureau Céleste.
+Le conflit, qui durait depuis plus de cent ans, ne cessait de s'étendre avec le temps. Des dizaines de millions de kilomètres de territoire étaient engloutis par les combats, et cette guerre affectait la majeure partie du Continent du Taureau Céleste.
 
 D'innombrables cultivateurs du Continent du Démon Vert avaient traversé la Mer des Pilules Vides pour pénétrer sur le continent, portés par la puissance des trois sectes du Démon Vert et menés par des cultivateurs de la troisième étape et même des Exaltés. Les multiples couches de protection du Continent du Taureau Céleste s'étaient effondrées, leur permettant de s'enfoncer jusqu'au cœur du territoire.
 
@@ -21,7 +21,7 @@ Bien que cette bataille ne durât que cent ans, son intensité était sans préc
 
 Cependant, au cours de cette guerre entre les deux continents, certains individus anonymes brillèrent comme des étoiles, devenant célèbres sur les deux terres, tandis que ceux qui l'étaient déjà gagnaient encore en puissance.
 
-Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de culture grâce à son art des Huit Lames Coupent l'Âme, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion pour revenir sur le Continent du Taureau Céleste afin de participer à cette bataille finale!
+Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de culture grâce à son art des Huit Lames Coupent l'Âme, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion et, grâce à une technique secrète, était revenu sur le Continent du Taureau Céleste afin de participer à cette bataille finale!
 
 Outre lui, Tang Jia et Bord-des-Nuages s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres de la Secte de la Grande Âme s'étaient aussi distingués, devenant, après les ancêtres, les lumières les plus éclatantes.
 
@@ -59,7 +59,7 @@ Tout cela se produisit avec une rapidité telle que les trente mille membres de 
 
 Cependant, son désir d'évasion était déjà vain. En vérité, dès l'instant où Wang Lin avait déchiré la formation de brume, la fuite n'était plus une option pour les cultivateurs présents! Wang Lin se retourna et ses yeux jaillirent d'une lumière dorée éblouissante provenant du fragment de l'Épée de l'Ancêtre Céleste. Cette lueur fonça droit sur l'homme en robe rouge qui tentait de s'échapper. Bien que cet homme fût un Exalté de la Tribulation du Vide, il allait être subjugué par le regard de Wang Lin!
 
-Lorsque ce regard balaya l'homme en robe rouge, celui-ci sentit son cœur trembler comme si une épée l'avait transpercé. À cet instant, Wang Lin leva la main gauche et fit un geste. Le ciel de la Secte du Dao Démoniaque s'obscurcit tout entier, puis une paume gigantesque apparut dans les cieux et s'abattit vers la terre.
+Lorsque ce regard balaya l'homme en robe rouge, celui-ci sentit son cœur trembler, comme si une épée lui avait transpercé les yeux pour frapper son esprit. À cet instant, Wang Lin leva la main gauche et fit un geste. Le ciel de la Secte du Dao Démoniaque s'obscurcit tout entier, puis une paume gigantesque apparut dans les cieux et s'abattit vers la terre.
 
 Cette paume possédait neuf doigts!
 

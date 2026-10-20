@@ -13,9 +13,9 @@ Quant à ceux qui entraient par la porte est, il s'agissait soit de leur premiè
 
 Le jeune homme dit rapidement: « Senior, Junior se nomme Li Dannan. J'ai grandi dans la ville de Ming Mei. Si le Senior le souhaite, Junior peut vous servir de guide afin de vous éviter bien des ennuis. Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »
 
-Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre à la Tombe du Suzaku, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan des Immortels Délaissés, il était donc extrêmement riche en ce moment.
+Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre au Tombeau de Suzaku, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan des Immortels Délaissés, il était donc extrêmement riche en ce moment.
 
-Li Dannan afficha immédiatement une expression respectueuse et demanda: « Senior, recherchez-vous des trésors magiques, des jades célestes ou des matériaux? Ou peut-être des runes ou des sorts? »
+Li Dannan afficha immédiatement une expression respectueuse et demanda: « Senior, recherchez-vous des trésors magiques, des jades célestes, des pilules ou des matériaux? Ou peut-être des runes ou des sorts? »
 
 Wang Lin répondit calmement: « Je cherche la pierre de bois du vide. En avez-vous entendu parler? »
 
@@ -25,7 +25,7 @@ Wang Lin fut très surpris que cet homme connaisse la pierre de bois du vide. Ce
 
 Les membres du clan des Dieux Anciens n'avaient généralement pas besoin d'un tel objet, car ils pouvaient traverser l'espace par la seule force de leur corps.
 
-Seuls quelques lieux spéciaux ou certains Dieux Anciens de bas niveau auraient besoin d'un tel article. Cependant, la boussole stellaire des Dieux Anciens différait de celles de l'Alliance de Culture.
+Seuls quelques lieux particuliers ou les peuples de rang inférieur auraient besoin d'un tel article. Cependant, la boussole stellaire des Dieux Anciens différait de celles de l'Alliance de Culture.
 
 Sa fabrication exigeait des matériaux et des méthodes de raffinage exceptionnels. Mais une fois achevée, elle était plusieurs fois plus rapide et puissante que les boussoles stellaires existantes.
 
@@ -39,13 +39,13 @@ Li Dannan ne discuta plus et guida Wang Lin directement vers le marché libre de
 
 Le marché libre du côté ouest était vaste et résonnait des bruits de marchandages. Li Dannan semblait être né ici; il mena Wang Lin jusqu'au stand très rapidement.
 
-Le sol était tapissé de stands installés par des cultivateurs. On y trouvait des trésors magiques, des instruments enchantés, des pilules, des sorts et tout ce que l'on pouvait désirer. Certains vendaient même des reliques antiques aux formes étranges, attirant l'attention de nombreux cultivateurs.
+Le sol était tapissé de stands installés par des cultivateurs. On y trouvait des trésors magiques, des instruments enchantés, des pilules, des sorts et tout ce que l'on pouvait désirer. Certains arboraient même l'enseigne d'artefacts antiques pour vendre quantité d'objets aux formes étranges, attirant l'attention de nombreux cultivateurs.
 
 Tout en marchant, Li Dannan expliqua à Wang Lin les règles du marché libre. N'étant plus aussi nerveux, il s'autorisa même quelques plaisanteries tout en lui expliquant le fonctionnement de la place.
 
 « Senior, regardez ce cultivateur chauve. Il vient ici tous les quelques années et propose toujours des objets rares. »
 
-« Senior, cet homme vêtu d'une robe de taoïste noire et blanche n'est pas là depuis longtemps, mais tout ce qu'il vend est faux; il a déjà trompé bien des gens. Il y a quelques jours, j'ai vu quelqu'un le traquer, je ne m'attendais donc pas à le revoir ici. Celui qui le poursuivait a soit échoué, soit péri. »
+« Senior, cet homme vêtu d'une robe de taoïste noire et blanche n'est pas là depuis longtemps, mais tout ce qu'il vend n'est que camelote; il a déjà trompé bien des gens. Il y a quelques jours, j'ai vu quelqu'un le traquer, je ne m'attendais donc pas à le revoir ici. Celui qui le poursuivait a soit échoué, soit péri. »
 
 Wang Lin observait chaque personne que Li Dannan désignait.
 
@@ -83,11 +83,11 @@ Le vieil homme reconnut immédiatement que ces cinq pierres étaient de qualité
 
 Lorsqu'il reporta son attention sur Wang Lin, il n'en vit que le dos disparaître dans la foule.
 
-Le vieil homme réfléchit un instant. Après être resté une demi-journée de plus, il quitta précipitamment la ville. Il savait qu'avec cinq pierres d'esprit de qualité supérieure, des cultivateurs du milieu du stade de Formation de l'Âme viendraient le traquer.
+Le vieil homme réfléchit un instant. Après être resté une demi-journée de plus, il quitta précipitamment la ville. Il savait que posséder un trésor attire le malheur et qu'avec cinq pierres d'esprit de qualité supérieure, des cultivateurs du milieu du stade de Formation de l'Âme viendraient le traquer.
 
 Il n'aurait jamais cru vendre un jour cette pierre de bois du vide.
 
-Quant à Wang Lin, après avoir quitté le stand, il jeta un regard distrait derrière lui. Au moment où il avait acheté la pierre, il avait remarqué trois regards se braquer sur lui comme des éclairs.
+Quant à Wang Lin, après avoir quitté le marché, il jeta un regard distrait derrière lui. Au moment où il avait acheté la pierre, il avait remarqué trois regards se braquer sur lui comme des éclairs.
 
 Wang Lin dit d'un ton plat: « Li Dannan! »
 
@@ -95,13 +95,13 @@ Li Dannan s'approcha rapidement et répondit respectueusement: « Senior, Junior
 
 Wang Lin demanda: « Si des trésors aussi importants sont échangés ici, il y a naturellement d'autres cultivateurs qui rôdent. Pourquoi tant de gens acceptent-ils encore de commercer dans un tel endroit? »
 
-Li Dannan répondit promptement: « Le Senior l'ignore peut-être, mais la plupart des personnes qui fréquentent ces étals ne viennent pas seules; elles n'ont donc pas peur d'être espionnées.
+Li Dannan répondit promptement: « Le Senior l'ignore peut-être, mais les personnes qui commercent ici sont toutes de puissants cultivateurs, et elles ne viennent presque jamais seules; elles n'ont donc pas peur d'être espionnées.
 
-« Quant à ceux qui s'en inquiètent, ils peuvent confier leurs objets à un stand de confiance pour qu'ils soient vendus, puis revenir une fois la transaction terminée. Cela évite bien des ennuis inutiles.
+« Quant à ceux qui s'en inquiètent, ils peuvent confier leurs objets à une boutique de confiance pour qu'ils soient vendus, puis revenir une fois la transaction terminée. Cela évite bien des ennuis inutiles.
 
 « On peut même payer pour engager des gardes auprès du seigneur de la ville. Cependant, de tout temps, trop de gens perdent la raison par cupidité; le commerce comporte donc des risques, et tout dépend du destin. »
 
-Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi que les choses allaient toujours? Dans la Mer des Démons, il avait été traqué à cause du fourneau de pilules.
+Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi que les choses allaient toujours? Dans la Mer des Démons, il avait été traqué et dépouillé à cause du fourneau de pilules.
 
 Wang Lin leva les yeux vers le ciel et demanda: « Y a-t-il de l'encre de neige ici? »
 

@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 818 - Heaven Avoiding Coffin (2)
 slug: le-cercueil-evitant-les-cieux-2
 ---
-Le regard de Wang Lin se glaça. Alors qu'il lançait la « Coup Céleste », il leva son épée céleste et déclencha dix autres Coupes Célestes qui poursuivirent de près les dix premières.
+Le regard de Wang Lin se glaça. Alors qu'il lançait le « Coup Céleste », il leva son épée céleste et déclencha dix autres Coupes Célestes qui poursuivirent de près les dix premières.
 
-Dans un fracas retentissant, le voile céleste trembla et se fendit. Immédiatement après, un deuxième Coup Céleste frappa et le voile vola en éclats. Wang Lin bondit à travers le voile; au moment de le franchir, il projeta l'épée céleste en avant et hurla: « Arrête! »
+Dans un fracas retentissant, le rideau céleste trembla et se fendit. Immédiatement après, un deuxième Coup Céleste frappa et le rideau vola en éclats. Wang Lin bondit à travers le rideau; au moment de le franchir, il projeta l'épée céleste en avant et hurla: « Arrête! »
 
 L'épée céleste était d'une rapidité fulgurante, fendant l'air comme un éclair. L'homme à la robe noire fronça les sourcils; il venait de s'interposer au-dessus du Sceau Céleste. Il leva sa main droite, prêt à saisir l'épée.
 
@@ -18,7 +18,7 @@ Le visage de l'homme à la robe noire resta impassible, mais son bras d'os s'imm
 
 Une fois détaché de son corps, son bras se transforma mystérieusement en poussière d'os et se dissipa dans le vide.
 
-Le timing de Wang Lin était d'une précision extrême. Si l'épée n'avait pas été si proche, même le sort « Arrête » n'aurait eu aucun effet, car il n'aurait pu immobiliser l'homme à la robe noire que très brièvement.
+Le timing de Wang Lin était d'une précision extrême. Si l'épée n'avait pas été si proche, même le sort « Arrête » n'aurait pas eu grand effet, car il n'aurait pu immobiliser l'homme à la robe noire que très brièvement.
 
 Mais cette fois, la situation était tout autre!
 

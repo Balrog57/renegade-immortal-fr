@@ -8,9 +8,9 @@ slug: lenergie-de-lepee-de-ling-tianhou-partie-1
 ---
 Un ricanement s'échappa d'un palais élégant au cœur de la capitale de la Cité du Démon Céleste.
 
-« Se pourrait-il que ce petit morveux veuille défier Mo Lihai en duel avant le début du concours des généraux démons, espérant utiliser les mérites militaires qu'il a acquis en combattant le Pays Démon de Feu pour que je ne puisse pas le refuser? Ce gamin est intéressant, je l'autorise! »
+« Se pourrait-il que ce petit morveux, Mo Fei, veuille défier Mo Lihai en duel avant le début du concours des généraux démons, espérant utiliser les mérites militaires qu'il a acquis en combattant le Pays des Démons de Feu pour que je ne puisse pas le refuser? Ce gamin est intéressant, je l'autorise! »
 
-Une autre voix sépulcrale résonna dans le palais. « Cela... Empereur Démon, si les deux d'entre eux donnent un tel exemple, je crains que les autres généraux démons ne... »
+Une autre voix, âgée, résonna dans le palais. « Cela... Empereur Démon, si les deux d'entre eux donnent un tel exemple, je crains que les autres généraux démons ne... »
 
 « Si quelqu'un d'autre possède dix millions de points de mérite militaire, alors je l'autoriserai également! »
 
@@ -54,7 +54,7 @@ D'innombrables soldats et subordonnés de Mo Lihai accoururent. Cependant, quico
 
 Tout au long de son chemin, des explosions retentissaient; personne ne pouvait l'arrêter. Même certains bâtiments et montagnes artificielles furent détruits, tout comme la porte d'entrée.
 
-À ce moment précis, une petite silhouette apparut devant lui. Dès l'apparition de cette figure, toute l'énergie spirituelle démoniaque du corps de l'homme se déploya pour contrer le membre de la Secte de l'Épée Da Luo.
+À ce moment précis, une petite silhouette apparut devant lui. Dès l'apparition de cette figure, qui poussa un grognement et fit un pas en avant, toute l'énergie spirituelle démoniaque de son corps se déploya pour contrer le membre de la Secte de l'Épée Da Luo.
 
 L'homme de la Secte de l'Épée Da Luo secoua légèrement la tête et poursuivit sa marche sans faiblir. Le visage de l'individu de petite taille pâlit; il eut la sensation de ne pas faire face à un homme, mais à une épée!
 
@@ -158,7 +158,7 @@ Bien qu'il ne s'agisse que d'un esprit d'épée et donc d'une illusion, tous les
 
 L'âme du bélier poussa un cri déchirant alors que son essence était détruite par l'intention de meurtre. Les particules de vie issues du bélier effondré retournèrent rapidement vers la grande épée, et à cet instant précis, l'arme cessa de lutter.
 
-Ce que Wang Lin venait de faire ressemblait étrangement à ce que l'Omniscient avait accompli en faisant s'effondrer le Char de Guerre de l'Extermination des Dieux d'un simple pointage du doigt!
+Ce que Wang Lin venait de faire ressemblait étrangement à ce que l'Omniscient avait accompli en faisant s'effondrer le Char de Destruction des Dieux d'un simple pointage du doigt!
 
 Mo Lihai ne put s'empêcher d'aspirer une bouffée d'air froid devant un tel spectacle. Son expression devint complexe en observant Wang Lin.
 

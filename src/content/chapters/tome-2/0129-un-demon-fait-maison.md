@@ -56,7 +56,7 @@ Il explora les montagnes environnantes, capturant de petits animaux, tandis que 
 
 À son retour, Wang Lin observa l'âme un instant, puis jeta un petit animal vers elle. L'animal poussa un cri et se réfugia dans un coin, totalement inconscient de l'âme qui trônait au milieu de la pièce.
 
-Wang Lin fronça les sourcils en les observant. Il renforça le Royaume Ji protégeant la grotte avant de creuser une autre cavité sur le côté pour y jeter le reste des petits animaux capturés.
+Wang Lin fronça les sourcils en observant ces deux créatures qui cohabitaient en paix. Il renforça le Royaume Ji protégeant la grotte avant de creuser une autre cavité sur le côté pour y jeter le reste des petits animaux capturés.
 
 Une fois terminé, il se frappa le front et la Perle Défiant le Ciel apparut. La perle fit un tour autour de lui avant de plonger immédiatement dans la vigne du Fruit de l'Or Brûlant à ses côtés.
 
@@ -182,7 +182,7 @@ Ce sentiment atteignit son paroxysme lorsque Wang Lin les regarda froidement. Li
 
 Yang Xiong et Zhou Zihong n'allaient pas beaucoup mieux; ils ne faisaient que résister à l'aura par la pure force de leur volonté.
 
-Wang Lin retira son Sens Divin du Royaume. Ce n'est qu'à ce moment que le sentiment de danger disparut. Les trois poussèrent un soupir de soulagement, puis Yang Xiong et Zhou Zihong s'inclinèrent pour saluer Wang Lin.
+Wang Lin retira son Sens Divin du Royaume Ji. Ce n'est qu'à ce moment que le sentiment de danger disparut. Les trois poussèrent un soupir de soulagement, puis Yang Xiong et Zhou Zihong s'inclinèrent pour saluer Wang Lin.
 
 En s'inclinant, une trace d'amertume traversa le visage de Yang Xiong tandis qu'il serrait un talisman de jade dans sa main droite. Il était venu avec deux intentions. La première consistait à tromper Wang Lin pour qu'il retourne au Sanctuaire du Dieu de la Guerre afin de demander aux anciens de l'aider à reprendre l'essence de sang de leur âme. La seconde, si Wang Lin refusait de partir, consistait à transmettre secrètement sa position via le talisman de jade. Au Sanctuaire, son jeune frère de discipline possédait un autre talisman de jade; il suffisait d'y injecter une onde d'énergie spirituelle pour que celui de son cadet s'illumine, et celui-ci, suivant ses instructions, le remettrait aussitôt à leur Maître.
 

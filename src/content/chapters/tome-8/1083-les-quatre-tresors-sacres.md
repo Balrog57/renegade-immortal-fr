@@ -8,7 +8,7 @@ slug: les-quatre-tresors-sacres
 ---
 Dès l'instant où la goutte de sang rouge apparut, une flamme qui semblait ne pas appartenir à ce monde balaya le ciel. Le firmament fut alors enveloppé d'une lumière rouge.
 
-Finalement, cette flamme, dont l'existence même défiait les lois de ce monde, convergea vers la partie sud du ciel pour prendre la forme d'un Oiseau Vermillon. Celui-ci poussa un cri et surplomba l'assemblée avec une aura de noblesse suprême.
+Finalement, cette flamme, dont l'existence même défiait les lois de ce monde, convergea vers la partie sud du ciel pour prendre la forme d'un Oiseau Vermillon. Celui-ci poussa un cri et surplomba l'assemblée avec une pointe de noblesse.
 
 Simultanément, les divers anciens de la Secte Divine du Dragon Azure, aux côtés de l'Empereur Divin de l'Oiseau Vermillon, échangèrent des regards. L'ancien situé en tête, dont la robe était brodée de neuf Dragons Azure, prit une profonde inspiration et forma un sceau devant sa poitrine. Il laissa alors échapper un rugissement tandis qu'une aura puissante se propageait.
 
@@ -16,7 +16,7 @@ Au même instant, une expression de douleur marqua son visage alors que les vêt
 
 C'était un morceau de bois vert!
 
-À l'apparition de ce bois sacré, des rugissements de dragons résonnèrent à travers le monde. D'innombrables Dragons Azure, longs de dizaines de milliers de pieds, surgirent dans l'infini ciel étoilé. Leurs hurlements firent vibrer l'éther.
+À l'apparition de ce bois, des rugissements de dragons résonnèrent à travers le monde. D'innombrables Dragons Azure, longs de dizaines de milliers de pieds, surgirent dans l'infini ciel étoilé. Leurs hurlements firent vibrer l'éther.
 
 Cela déclencha une ondulation phénoménale qui se propagea dans toutes les directions, soulevant un vent violent qui semblait troubler jusqu'au monde des mortels.
 
@@ -101,7 +101,7 @@ La lumière stellaire de l'Ancien Démon Ta Jia atteignit sa cible, mais elle fu
 
 Les Quatre Trésors Sacrés chargèrent l'Omniscient et l'Ancien Démon Ta Jia. À cet instant, le ciel s'embrasa: c'était l'Enterrement Solaire du démon ancien qui approchait.
 
-Cette sphère de lumière géante pénétra par la déchirure du ciel de la Terre des Esprits Démoniaques, enveloppant toute la terre. L'Enterrement Solaire était l'un des sorts les plus puissants de Qing Lin. Bien que l'Ancien Démon Ta Jia ne l'ait pas exécuté parfaitement, sa force n'en demeurait pas moins redoutable.
+Cette sphère de lumière géante pénétra par la déchirure du ciel de la Terre des Esprits Démoniaques, enveloppant toute la terre. L'Enterrement Solaire était l'un des sorts les plus puissants de Qing Lin. Bien que l'Ancien Démon Ta Jia, qui s'était emparé de ce corps, ne l'ait pas exécuté parfaitement, sa force n'en demeurait pas moins redoutable.
 
 Alors que cette lumière saturait le ciel, les Quatre Trésors Sacrés convergèrent et une aura colossale surgit pour entrer en collision avec elle.
 

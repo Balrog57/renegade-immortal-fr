@@ -36,7 +36,7 @@ L'expression de Feng Hai devint étrange alors qu'il se levait pour saluer Wang 
 
 À vrai dire, il n'était pas étonnant qu'ils soient perplexes. Li Qianmei était célèbre, et il était inattendu qu'elle soit proche d'une secte de rang 5. Et ce n'étaient pas de simples connaissances, puisqu'elle était prête à tuer un cultivateur d'une secte de rang 7 pour eux.
 
-Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte de l'Origine de rang 5. À ce moment-là, Lu Yingjie de la Secte de la Musique Céleste et Zhao Long avaient des différends privés avec la Secte de l'Origine. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
+Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte de l'Origine de rang 5. À ce moment-là, Lu Yingjie de la Secte de la Musique Céleste et Zhao Long, de la Secte Xun Luan, avaient des différends privés avec la Secte de l'Origine. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
 
 « Tout cela semble lié à une personne nommée "Lu" au sein de la Secte de l'Origine! »
 
@@ -46,7 +46,7 @@ Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivemen
 
 « Il était obsédé par l'alchimie et est parti il y a de nombreuses années en quête d'herbes médicinales. On n'a plus eu de nouvelles de lui depuis lors. J'ignore comment il a rencontré la cultivatrice Li, mais elle semble l'admirer grandement... »
 
-« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte de l'Origine, prêt à offenser la Secte de la Musique Céleste et Zhao Long. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
+« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte de l'Origine, prêt à offenser la Secte de la Musique Céleste et la Secte Xun Luan. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
 
 « Lu Yuncong a affirmé que si Lu Zihao participait à la compétition, oubliez la première place parmi les sectes de rang 5; il pourrait être le numéro un parmi les sectes de rang 6 à lui seul. Il a également déclaré que Lu Zihao pourrait tuer Lu Yingjie aussi facilement qu'on écrase une fourmi! »
 
@@ -58,7 +58,7 @@ Pendant ce temps, lors de la compétition, Lu Yuncong n'avait fait que six pas e
 
 Cette scène imposa immédiatement le sérieux à tous les spectateurs, qui commencèrent à s'interroger. Il était évident que les pas de Lu Yuncong étaient intégrés à son domaine et semblaient fusionner avec le monde lui-même.
 
-Le Maître de la secte qui s'opposait à Lu Yuncong sourit amèrement et joignit les mains. « Ce vieil homme reconnaît sa défaite. Tu es véritablement digne d'être l'élite de notre Secte Éternelle. Je t'admire. » Sur ce, il salua la tribune et quitta rapidement les lieux.
+Le Maître de la secte qui s'opposait à Lu Yuncong sourit amèrement et joignit les mains. « Ce vieil homme reconnaît sa défaite. Tu es véritablement digne d'être l'élite de notre Secte Éternelle. Je me soumets de bon cœur. » Sur ce, il salua la tribune et quitta rapidement les lieux.
 
 La compétition de rang 5 touchait à sa fin et, en raison de la présence de Li Qianmei, la Secte de l'Origine n'était pas encore montée sur scène. Désormais, elle était la seule à attendre son tour.
 
@@ -96,7 +96,7 @@ Sa voix était puissante et écrasa complètement les paroles de Lu Yuncong. Ell
 
 Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de culture, il n'était qu'une insignifiance face à des vieux monstres comme Feng Hai. Cependant, il prit une grande inspiration et joignit les mains. « Le disciple connaît quelqu'un de la Secte de l'Origine. Cette personne possède un haut niveau de culture et une compréhension profonde du Dao. S'il venait, le disciple serait inférieur! Si je combats la Secte de l'Origine avant son arrivée, ce sera injuste pour eux! Je, Lu Yuncong, suis venu pour l'affronter lui. Je veux éprouver la portée de mon propre Dao. Si je gagne, je veux une victoire véritable, ou perdre sans aucun regret! »
 
-À sa sortie, les cultivateurs environnants furent en émoi. L'homme mystérieux était déjà devenu le centre d'attention, mais avec les paroles de Lu Yuncong, sa renommée atteignit un nouveau sommet.
+À ces mots, les cultivateurs environnants furent en émoi. L'homme mystérieux était déjà devenu le centre d'attention, mais avec les paroles de Lu Yuncong, sa renommée atteignit un nouveau sommet.
 
 À cet instant, chacun tentait d'imaginer à quoi ressemblait cet homme. Quelles capacités possédait-il pour susciter une telle réaction chez Lu Yuncong et Li Qianmei?
 

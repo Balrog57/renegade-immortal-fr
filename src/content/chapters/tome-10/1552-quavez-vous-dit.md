@@ -120,7 +120,7 @@ Les grondements tonitruants résonnèrent et le monde vacilla. L'aura de l'homme
 
 Wang Lin eut un sourire colérique et fixa l'homme dans la lumière blanche. Il agita sa main droite et un arc surgit de son corps!
 
-« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. Les cultivateurs de la Mer des Nuages ont péri en grand nombre, la Rivière Invoquée est tombée, Luotian est prêt à mourir et le Vide Brillant lutte pour sa survie! Pourtant, votre propre disciple est devenu un subalterne du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
+« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. Les cultivateurs de la Mer des Nuages ont péri en grand nombre, la Rivière Invoquée est tombée, Luotian est prêt à mourir et le Vide Brillant lutte pour sa survie! Pourtant, votre propre disciple est devenu le chien du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume et transformée en tribu! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
 
 Je suis l'actuel Seigneur du Royaume Scellé. Je suis venu pour détruire le Royaume aux Sept Couleurs, sauver mon Senior Frère Qing Shui et massacrer les cultivateurs du Royaume Extérieur. De quel droit m'interdisez-vous de faire cela?! »
 

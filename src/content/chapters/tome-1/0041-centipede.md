@@ -18,11 +18,11 @@ Cependant, étant en conflit latent avec la Secte Heng Yue depuis de nombreuses 
 
 C’étaient eux, les véritables adversaires sur lesquels ils devaient se concentrer.
 
-Le chef de secte, Huang Long, scruta les disciples de la Secte Xuan Dao. Son regard s'arrêta sur le jeune homme et la jeune femme dotés d'une racine spirituelle d'eau unique. Il soupira intérieurement. Au cours des cinq cents dernières années, la Secte Heng Yue avait véritablement décliné, faute de successeurs de talent. Même la Secte Xuan Dao, qui n'était qu'une petite secte obscure il y a cinq siècles, parvenait désormais à surpasser régulièrement la Secte Heng Yue. Il pensait initialement qu'ils l'emporteraient cette fois-ci, mais l'apparition de deux disciples aux racines spirituelles d'un seul élément l'inquiétait profondément.
+Le chef de secte, Huang Long, scruta les disciples de la Secte Xuan Dao. Son regard s'arrêta sur le jeune homme et la jeune femme dotés d'une racine spirituelle d'eau unique. Il soupira intérieurement. Au cours des cinq cents dernières années, la Secte Heng Yue avait véritablement décliné, faute de successeurs de talent. Même la Secte Xuan Dao, qui n'était qu'une petite secte obscure il y a cinq siècles, était désormais capable de la surpasser, et la Secte Heng Yue avait enchaîné les défaites. Il pensait initialement qu'ils l'emporteraient cette fois-ci, mais l'apparition de deux disciples aux racines spirituelles d'un seul élément l'inquiétait profondément.
 
-« Faut-il vraiment faire sortir les disciples vêtus de pourpre? Mais ils sont en retraite de mort... » Soudain, le regard de Huang Long se posa sur le disciple resté tout au fond, et il prit enfin une décision.
+« Faut-il vraiment faire sortir les disciples vêtus de pourpre? Mais ils sont en retraite de mort... » Soudain, le regard de Huang Long se posa sur le disciple resté tout au fond, son visage se crispa légèrement, et il prit enfin une décision.
 
-« Très bien. Puisqu'ils ont envoyé ce disciple, il est temps que nos disciples centraux sortent, eux aussi. »
+« Très bien. Puisque l'autre camp possède un tel disciple, il est temps que nos disciples centraux sortent. »
 
 Sur cette pensée, il eut un rire et dit: « Ami Ouyang, vos disciples doivent être fatigués par le voyage. Laissez-les se reposer d'abord. Entre vieux compagnons, nous devrions passer un moment agréable. Entrez dans la salle principale. » Il fit un geste de la main pour les inviter à entrer, un sourire aux lèvres.
 
@@ -38,7 +38,7 @@ Dès que les anciens furent partis, les disciples se détendirent immédiatement
 
 Outre les disciples de la Secte Heng Yue au 6ème niveau, certains membres de la Secte Xuan Dao se joignirent à eux pour échanger sur leurs expériences. Les autres disciples commencèrent également à discuter entre eux, tandis que beaucoup observaient avec étonnement l'immobile mille-pattes.
 
-Wang Lin, ne souhaitant pas se mêler à la foule, s'écarta pour s'asseoir sur quelques marches. Contempler le ciel bleu et les nuages blancs tout en se baignant dans la lumière du soleil lui procurait un grand confort.
+Wang Lin, ne souhaitant pas se mêler à la foule, s'écarta pour s'asseoir dans un coin, sur quelques marches. Contempler le ciel bleu et les nuages blancs tout en se baignant dans la lumière du soleil lui procurait un grand confort.
 
 Comme lui, de nombreux disciples fuyaient la cohue, dont une jeune femme nommée Zhou. En voyant Wang Lin, elle s'approcha de lui avec désinvolture.
 
@@ -46,7 +46,7 @@ Comme lui, de nombreux disciples fuyaient la cohue, dont une jeune femme nommée
 
 Wang Lin eut un petit rire. Il secoua la tête et répondit: « Ce n'est pas tout à fait vrai. Je vois bien que la plupart d'entre eux cultivent également avec acharnement. »
 
-La jeune femme Zhou regarda les nuages et soupira: « Ne te sous-estime pas, jeune frère Wang. Durant ces quatre années d'entraînement intensif, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance! »
+La jeune femme Zhou regarda les nuages et soupira: « Ne te sous-estime pas, jeune frère Wang. Durant ces quatre années de retraite, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance! »
 
 Wang Lin se frotta le nez en souriant: « Aînée Zhou, n'avez-vous pas vous aussi atteint le 3ème niveau? »
 
@@ -56,7 +56,7 @@ Wang Lin réfléchit un instant avant de dire: « Le Grand Dao est impitoyable. 
 
 La jeune femme Zhou fixa Wang Lin de ses beaux yeux et, dévoilant sa dentition éclatante, dit: « Jeune frère Wang, je vois que tu as déjà atteint le sommet du 3ème niveau et que tu peux percer à tout moment. Je pense que tu me dépasseras bientôt toi aussi. »
 
-Wang Lin contempla cette beauté à couper le souffle. Il eut un sourire amer et répondit: « Je ne pourrai pas percer de sitôt. Ces liens mortels sont des choses qu'on ne rompt pas facilement. »
+Wang Lin contempla cette beauté à couper le souffle. Il eut un sourire amer et répondit: « Je ne pourrai pas percer de sitôt. Ces liens mortels sont des choses qu'on ne rompt pas facilement; je n'y arrive pas. »
 
 La jeune femme Zhou resta stupéfaite. Elle hésita, puis demanda: « Jeune frère Wang, pardonne mon impudence, mais quels sont ces liens mortels que tu ne peux rompre? »
 

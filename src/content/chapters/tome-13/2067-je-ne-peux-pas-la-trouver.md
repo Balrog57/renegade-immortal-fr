@@ -52,7 +52,7 @@ Il chercha sans relâche, son Sens Divin s'étendant à nouveau et encore, mais 
 
 Le visage de Wang Lin devint livide. Il ne pouvait pas la trouver.
 
-« Se pourrait-il que lors de sa réincarnation... un accident soit survenu... » Wang Lin ressentit une piqûre au cœur. Il ne pouvait oublier cette femme nommée Li Qianmei, son visage et la douceur de ses yeux.
+« Se pourrait-il que lors de sa réincarnation... un accident soit survenu... » Wang Lin ressentit une piqûre au cœur. Il ne pouvait oublier cette femme nommée Li Qianmei, son visage pâle et la douceur de ses yeux.
 
 Elle était venue sur le continent astral immortel pour lui. Elle avait quitté son père pour se réincarner ici, seule, attendant silencieusement que l'homme qu'elle aimait la retrouve et libère sa mémoire.
 

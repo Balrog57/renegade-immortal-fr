@@ -60,7 +60,7 @@ L'homme en robe noire était son opposé. Son visage était lugubre et ses yeux 
 
 Le rugissement tonitruant à l'intérieur de la petite sphère s'intensifia. L'énergie spirituelle céleste dans le corps de Wang Lin afflua avec frénésie, se convertissant en énergie spirituelle démoniaque pour être injectée dans la sphère.
 
-Quant à l'homme en robe noire, il maudissait intérieurement. Il devait insuffler toute l'énergie spirituelle démoniaque accumulée jusqu'ici dans la sphère, car s'il perdait le contrôle de celle-ci, il subirait un terrible contrecoup.
+Quant à l'homme en robe noire, il maudissait intérieurement. Il devait insuffler toute l'énergie spirituelle céleste démoniaque accumulée jusqu'ici dans la sphère, car s'il perdait le contrôle de celle-ci, il subirait un terrible contrecoup.
 
 Le visage de l'homme était féroce. Sans ouvrir la bouche, il envoya un message par sens divin: « Je ne crois pas qu'un cultivateur au stade intermédiaire de la Transformation de l'Âme comme toi possède plus d'énergie spirituelle céleste que moi, qui suis au sommet du stade avancé de la Transformation de l'Âme. Puisque tu veux te mesurer à moi, voyons qui vivra et qui mourra! »
 

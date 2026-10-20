@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 969 - Approach
 slug: approche
 ---
-L'Omniscient était un membre du groupe des Anciens de l'Alliance, il connaissait donc naturellement des sorts puissants. Il faut dire que lorsque l'Omniscient était à son apogée, même le Vénérable Xuan Bao le craignait profondément et n'osait pas l'offenser sans réfléchir.
+L'Omniscient était un membre du groupe des Anciens de l'Alliance, il connaissait donc naturellement des sorts puissants. Il faut dire que lorsque l'Omniscient était à son apogée, même le Estimé Xuan Bao le craignait profondément et n'osait pas l'offenser sans réfléchir.
 
 Bien que l'Omniscient ne fût pas le plus puissant du groupe des Anciens de l'Alliance, même les membres les plus forts ne voulaient pas se mettre à dos l'Omniscient! Tout cela expliquait indirectement sa puissance phénoménale.
 
@@ -24,7 +24,7 @@ Un grondement tonitruant retentit à travers le monde lorsque le doigt percuta l
 
 Le doigt força l'ouverture d'une fissure. Cette brèche continuait de s'étendre, faisant tourner les courants d'air et provoquant un changement soudain et radical du climat.
 
-En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à cinq cents kilomètres de la Cité aux Yeux Fantômes!
+En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à mille kilomètres de la Cité aux Yeux Fantômes!
 
 Avant que le doigt ne frappe, une pression inimaginable descendit et la terre craquela. Les expressions de tous les cultivateurs qui s'estimaient dotés d'un certain niveau de culture changèrent radicalement; aucun d'eux n'osa s'approcher pour observer.
 
@@ -60,7 +60,7 @@ La Secte de l'Épée Da Luo occupait une vaste partie de la planète, s'étendan
 
 Des montagnes imprégnées d'énergie spirituelle parsemaient le domaine de la Secte de l'Épée Da Luo. On y trouvait de nombreux pavillons et des tours monumentales disposées à intervalles réguliers. Il y avait au total 999 tours, comme si elles avaient été érigées pour former une formation géante!
 
-Parmi elles, une tour se distinguait par son apparence et sa hauteur unique. Elle était extrêmement élevée, faisant au moins dix fois la taille des autres! Sa cime semblait percer le ciel. Même de très loin, on pouvait ressentir la pression colossale qu'elle dégageait!
+Parmi elles, une tour se distinguait par son apparence et sa hauteur unique. Elle était extrêmement élevée, faisant dix fois la taille des autres! Sa cime semblait percer le ciel. Même de très loin, on pouvait ressentir la pression colossale qu'elle dégageait!
 
 Au sommet de cette tour siégeait le Saint de l'Épée, Ling Tianhou. Les quatre épées d'origine brillaient tandis qu'elles gravitaient autour de lui en formant un carré. Une intention d'épée féroce rayonnait de la tour, plongeant la planète Da Luo dans un état d'intention tranchante et terrifiante!
 

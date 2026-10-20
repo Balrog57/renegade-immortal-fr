@@ -16,7 +16,7 @@ Après avoir créé cette âme Ascendante, Wang Lin se retira sans la moindre h�
 
 Wang Lin était parfaitement conscient de ce point.
 
-« Oh? Tu possèdes quelques talents; il n'est pas étonnant que tu aies pu dérober l'héritage de la mémoire alors que tu n'étais qu'au stade de la Formation du Noyau! Cependant, si cela s'était produit avant que je ne reçoive cette goutte de sang, cela m'aurait peut-être freiné un instant, mais maintenant que je la possède, cela ne pourra même pas m'arrêter d'un demi-pas! » Les cheveux roux de Tuo Sen s'agitaient sans qu'aucun vent ne soufflât, tandis que son aura dominante irradiait de son corps.
+« Oh? Tu possèdes quelques talents; il n'est pas étonnant que tu aies pu dérober l'héritage de la mémoire alors que tu n'étais qu'au stade de la Formation du Noyau! Cependant, cette chose m'aurait peut-être freiné un instant si je n'avais pas encore reçu cette goutte de sang, mais maintenant que je la possède, cela ne pourra même pas m'arrêter d'un demi-pas! » Les cheveux roux de Tuo Sen s'agitaient sans qu'aucun vent ne soufflât, tandis que son aura dominante irradiait de son corps.
 
 Tuo Sen se mit à rire follement alors qu'il avançait, leva son poing et lança un coup dévastateur.
 
@@ -66,7 +66,7 @@ Bien qu'il semblât aussi fragile qu'un souffle de vent, il dégageait toujours 
 
 « Je ne pensais pas... que tu posséderais un tel trésor!!! Wang Lin, je t'ai sous-estimé! » La voix de Tuo Sen, glaciale, émana de cette silhouette.
 
-Hormis les quatre âmes primaires poursuivant Liu Mei, tous les autres fragments d'âme du Étendard de l'Âme avaient explosé pour créer ce désastre. Pourtant, même ainsi, cela n'avait pas suffi à anéantir complètement ce fragment de Sens Divin de Tuo Sen. Ce dernier était tout simplement trop puissant!
+Hormis les quatre âmes primaires poursuivant Liu Mei, tous les autres fragments d'âme du Drapeau des Âmes d'un Milliard avaient explosé pour créer ce désastre. Pourtant, même ainsi, cela n'avait pas suffi à anéantir complètement ce fragment de Sens Divin de Tuo Sen. Ce dernier était tout simplement trop puissant!
 
 Wang Lin ressentit une amertume profonde; il laissa échapper un soupir et porta la main à son front. Il ignorait s'il pourrait se cacher de Tuo Sen dans la perle défiant le ciel. Il ne savait plus quoi faire...
 
@@ -126,7 +126,7 @@ L'homme masqué l'interrompit: « Je m'en occuperai! »
 
 Zhu Quezi prit une profonde inspiration, s'assit en tailleur et ferma les yeux. Un sourire amer resta sur son visage alors qu'il rendait l'âme...
 
-Sa durée de vie touchait déjà à sa fin, mais il avait volé celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance de Culture, il devait tout abandonner...
+Sa durée de vie touchait déjà à sa fin, mais il avait pris temporairement celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance de Culture, il devait tout abandonner...
 
 Au moment de sa mort, il se souvint des écrits laissés par le premier Suzaku, Ye Wuyou. Ceux-ci stipulaient qu'il y avait toujours un Messager de l'Alliance de Culture sur la planète Suzaku. Le messager changeait à chaque génération et restait très bien caché...
 

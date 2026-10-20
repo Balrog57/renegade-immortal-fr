@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 737 - Fated Person
 slug: personne-destinee
 ---
-Le tonnerre, semblable à une météorite, qui avait conduit Wang Lin vers le Royaume Céleste du Tonnerre devint encore plus impétueux au moment où il percuta le tonnerre rouge foncé. La quantité de foudre qu'il contenait augmenta soudainement de façon exponentielle pour atteindre un niveau terrifiant.
+Le tonnerre, semblable à une météorite, qui avait conduit Wang Lin vers le Royaume Céleste du Tonnerre devint encore plus impétueux au moment où il percuta le tonnerre rouge foncé. La quantité de foudre qu'il contenait se multiplia soudainement pour atteindre un niveau terrifiant.
 
 Il s'engouffra dans le corps de Wang Lin tel un dragon enragé. En l'espace d'un seul souffle, il engourdit son corps et immobilisa totalement son âme originelle.
 
 Ce phénomène fut si rapide que Wang Lin n'eut même pas le temps de réfléchir. Tout son corps fut figé, comme si quelqu'un lui avait lancé un sort d'immobilisation. Au moment où le tonnerre météoritique percuta le tonnerre rouge foncé, il fut projeté dans le Royaume Céleste du Tonnerre.
 
-Wang Lin ne put inspecter ses environs, car la foudre qui l'entourait tombait avec une rapidité supérieure à celle d'une pierre s'écrasant au sol. Elle s'accompagnait d'un grondement assourdissant alors qu'elle s'abattait directement sur un fragment brisé du Royaume Céleste du Tonnerre.
+Wang Lin ne put inspecter ses environs, car la foudre qui l'entourait tombait avec une rapidité supérieure à celle d'une pierre venue du ciel. Elle s'accompagnait d'un grondement assourdissant alors qu'elle s'abattait directement sur un fragment brisé du Royaume Céleste du Tonnerre.
 
 Le météore fendit l'air et s'écrasa au sol, faisant trembler l'intégralité du fragment et déclenchant une immense tempête de poussière. À cet instant, la poussière était si dense que l'on ne pouvait voir à plus de trente pieds.
 
@@ -20,7 +20,7 @@ Toute la terre trembla violemment, comme si un dragon terrestre géant s'agitait
 
 Seul le cratère à la surface de la partie orientale du fragment témoignait de la réalité de ce qui venait de se produire.
 
-Une fumée verte s'échappait de la cavité. Sous l'effet du vent, elle se dissipait. Sur le bord du gouffre, des éclats de tonnerre circulaient dans la terre et le sol était même calciné par endroits.
+Une fumée verte s'échappait de la cavité. Sous l'effet du vent, elle se dissipait. Sur le bord du gouffre, des éclats de tonnerre circulaient sur la terre et le sol était même calciné par endroits.
 
 Ce trou était très profond, mais sa profondeur réelle demeurait inconnue. Tout au fond gisait Wang Lin. Le sang s'écoulait de ses orifices et de nombreuses parties de son corps étaient blessées par l'impact. Il était dans un état extrêmement pitoyable.
 

@@ -8,11 +8,11 @@ slug: la-cause-karmique-du-secte-de-laffinement-de-lame
 ---
 À cette époque, une multitude d'érudits venus des villages, des bourgs et des cités de tout le pays de Zhao se rendaient aux lieux d'examen. Certains voyageaient seuls, comme Wang Lin, d'autres en groupes de trois ou cinq, se dirigeant vers les quarante-neuf chefs-lieux de comté où se trouvait leur lieu d'origine. Ce n'est qu'après y avoir obtenu un titre et être devenus lettrés qu'ils pourraient se rendre dans la ville de Su pour passer le second concours.
 
-La ville de Su était devenue célèbre grâce à un seul homme: Su Dao, le premier érudit du pays de Zhao. Son existence même avait fait de la ville de Su la capitale intellectuelle du pays.
+La ville de Su tenait son nom d'un seul homme: Su Dao, le premier érudit du pays de Zhao. Son existence même avait fait de la ville de Su, ces dernières années, la capitale intellectuelle du pays.
 
-L'étudiant qui se distinguerait le plus lors de l'examen de la ville de Su deviendrait l'Élu Su. Tous les Élus Su rejoindraient alors la capitale de Zhao, où ils s'envoleraient vers les cieux ou disparaîtraient dans l'ombre.
+L'étudiant qui se distinguerait le plus lors de l'examen de la ville de Su deviendrait l'Élu Su. Tous les Élus Su rejoindraient alors, dans le délai imparti, la capitale de Zhao, où ils s'envoleraient vers les cieux ou disparaîtraient dans l'ombre.
 
-Wang Lin marchait le long de la route, portant sur ses épaules les attentes de ses parents ainsi que sa propre vision de l'avenir. Derrière lui suivait l'homme d'âge moyen, désormais vêtu de nouveaux habits. Un sac à dos en bambou sur le dos, il fredonnait une mélodie entendue en un lieu inconnu, l'air très détendu.
+Wang Lin marchait le long de la route, portant sur ses épaules les attentes de ses parents ainsi que sa propre vision de l'avenir. Derrière lui suivait l'homme d'âge moyen, désormais vêtu de nouveaux habits. Un sac en bambou sur le dos, il fredonnait une mélodie entendue en un lieu inconnu, l'air très détendu.
 
 Le ciel était gris, mais la pluie ne tombait pas. Pourtant, les traces d'eau sur la route officielle dégageaient une aura de froid glacial. La terre et l'eau semblaient ne faire qu'un, rendant le chemin extrêmement boueux.
 
@@ -22,11 +22,11 @@ Le coucher du soleil projetait des éclats de lumière orangée qui perçaient l
 
 « Enfin arrivés. » Wang Lin exhala un long soupir et essuya la sueur de son front. Tout au long du voyage, il avait traversé bien des épreuves. Avec le recul, il trouvait lui-même son périple singulier.
 
-« Grande Fortune, la ville est devant nous. Nous allons y rester un moment. » Wang Lin sourit en regardant le jeune serviteur derrière lui.
+« Grande Fortune, la ville est devant nous. Nous allons y rester un moment. » Wang Lin sourit en regardant le serviteur d'âge mûr derrière lui.
 
 « Je n'aime pas ce nom... » L'homme d'âge moyen secoua la tête avec une expression amère.
 
-« Je trouve que c'est un très bon nom. » Wang Lin rit et conduisit Grande Fortune vers la porte de la ville. Après avoir présenté le jeton obtenu au village, ils furent inspectés par les soldats avant d'être autorisés à entrer.
+« Je trouve que c'est un très bon nom. » Wang Lin rit et conduisit Grande Fortune vers la porte de la ville. Après avoir présenté le laissez-passer délivré par le village, ils furent inspectés par les soldats avant d'être autorisés à entrer.
 
 Bien qu'il fît nuit tombante, la ville était encore animée. Les rues grouillaient d'érudits venus de tous horizons pour l'examen. Wang Lin étant arrivé tardivement, lui et Grande Fortune ne trouvèrent aucune chambre libre, même après avoir fait le tour de quatre ou cinq auberges.
 
@@ -98,14 +98,14 @@ Dans le ciel de Zhao, des cultivateurs de la Secte Heng Yue volaient, parmi lesq
 
 À l'autre extrémité du pays de Zhao, deux rayons de lumière se dissipèrent, révélant un homme et une femme. La femme était Liu Mei. Son visage était pâle et elle regardait en arrière avec confusion. L'expression de l'homme à ses côtés changea radicalement; il faillit pousser un cri d'incrédulité.
 
-Également dans le pays de Zhao, dans la ville de Teng, le monstre Âme Naissante de la famille Teng, Teng Huayuan, était en pleine culture. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
+Également dans le pays de Zhao, dans la ville de Teng, le monstre Âme Naissante, ancêtre de la famille Teng, Teng Huayuan, était en pleine culture. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
 
 Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel, le sourcil froncé. Il s'agissait de Huang Long, dont l'expression était devenue extrêmement grave. Sa main droite effectuait des calculs divinatoires jusqu'à ce qu'elle se mette à trembler et que le sang ne perle de ses ongles. Ses yeux brillaient d'une lueur étrange, comme s'il n'osait croire à ce qu'il percevait.
 
 « C'est... Comment est-ce possible?! »
 
-Dans un lieu lointain du pays de Suzaku, sur la planète Suzaku, se trouvait une secte puissante, capable de dominer tous les pays de rang 5. Cette secte était peuplée d'âmes et le hurlement des spectres y résonnait sans cesse. De loin, elle ressemblait à un drapeau géant!
+À ce même instant, dans un lieu lointain du pays de Suzaku, sur la planète Suzaku, se trouvait une secte puissante, capable de dominer tous les pays de rang 5. Cette secte était peuplée d'âmes et le hurlement des spectres y résonnait sans cesse. De loin, elle ressemblait à un drapeau géant!
 
 Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge moyen, le frère aîné de Dun Tian.
 
-« Je ne parviens pas à la trouver... Ce vieil homme a pratiqué la divination trente-sept fois et n'a pas réussi une seule fois. Se pourrait-il que ma Secte de l'Affinement de l'Âme n'ait vraiment plus aucun espoir... »
+« Je ne parviens pas à la trouver... Moi, ce vieil homme, j'ai pratiqué la divination trente-sept fois sans réussir une seule fois. Se pourrait-il que ma Secte de l'Affinement de l'Âme n'ait vraiment plus aucun espoir... »

@@ -24,7 +24,7 @@ Dès son apparition, ce symbole yin et yang absorba immédiatement les domaines 
 
 Wang Lin, parfaitement lucide, ressentait tout ce qui se passait. Il se trouvait dans un état étrange, comme s'il était présent et absent à la fois. Tandis que le symbole yin et yang tournait, le feu, le tonnerre et la bataille étaient tous absorbés par lui.
 
-Dans la conscience nouvellement née de Wang Lin, il murmura, comme s'il transmettait un message par sens divin: « Le Feu... Parmi les lois, le Dao qui fait fondre toute vie... »
+Dans la conscience nouvellement née de Wang Lin, il murmura, comme s'il transmettait un message par sens divin: « Le Feu... Parmi les lois, le Dao qui fond et affine le ciel et la terre... »
 
 À l'instant même où ce message divin fut émis, une grande quantité du liquide à l'intérieur du fruit fut aspirée dans le symbole yin et yang. Ce liquide contenait l'intention du Dao de tous ceux qui, durant leur vie, avaient compris le Dao du feu avant de mourir!
 
@@ -74,7 +74,7 @@ Cette loi englobait le vrai et le faux, le tonnerre, le feu et la bataille, deve
 
 Ce n'est qu'en fusionnant toutes ces innombrables intentions du Dao avec son domaine du vrai et du faux que Wang Lin avait pu progresser du stade intermédiaire au stade avancé du Purificateur du Nirvana en si peu de temps!
 
-Cependant, ce n'était pas fini! Sous la protection de la Perle Défiant le Ciel, et sans que personne ne s'en aperçoive, l'esprit de Wang Lin fut aspiré par la perle. Alors qu'il comprenait et absorbait continuellement les innombrables intentions du Dao, son niveau de culture commença à tendre vers le sommet du stade Purificateur du Nirvana! Il semblait que même le sommet du Purificateur du Nirvana ne soit pas une limite, tant il absorbait le fruit du Dao!
+Cependant, ce n'était pas fini! Sous le couvert de la Perle Défiant le Ciel, et sans que personne ne s'en aperçoive, l'esprit de Wang Lin fut aspiré par la perle. Alors qu'il comprenait et absorbait continuellement les innombrables intentions du Dao, son niveau de culture commença à tendre vers le sommet du stade Purificateur du Nirvana! Il semblait que même le sommet du Purificateur du Nirvana ne soit pas une limite, tant il absorbait le fruit du Dao!
 
 Une telle chose ne s'était jamais produite auparavant. Wang Lin se rapprochait infiniment du sommet du Purificateur du Nirvana et, par extension, du Briseur du Nirvana. L'écart entre ces deux stades était immense et nécessitait souvent dix mille ans de culture pour être comblé. Pourtant, après avoir absorbé l'un des sept fruits, cet écart se réduisait à une vitesse fulgurante.
 

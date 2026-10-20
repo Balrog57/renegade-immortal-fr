@@ -64,7 +64,7 @@ Au même moment, d'innombrables membres de la famille Wang, vêtus de soie, fixa
 
 À l'extérieur de la salle, sur la place, d'innombrables escouades de soldats se préparaient à affronter un grand ennemi. Une aura meurtrière imprégnait l'air.
 
-L'homme d'âge moyen lança impitoyablement la dalle d'encre et hurla: « Quel genre d'individu ose commettre un meurtre dans ma Grande Dynastie Wang?! Avez-vous découvert de quelle secte il est issu? »
+L'homme d'âge moyen lança impitoyablement la pierre à encre et hurla: « Quel genre d'individu ose commettre un meurtre dans ma Grande Dynastie Wang?! Avez-vous découvert de quelle secte il est issu? »
 
 Un silence total régna. Après un moment, un cultivateur aux cheveux blancs hésita avant de s'avancer et de déclarer: « Ces trois individus sont très puissants; ce sont probablement des seniors ayant un haut niveau de culture. Quant à leurs sectes, nous menons encore les recherches. »
 

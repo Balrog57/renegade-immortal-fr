@@ -40,7 +40,7 @@ L'astre vola en éclats et une puissance déchaînée surgit du vide. Alors que 
 
 En inhalant la puissance de l'étoile brisée, des gémissements de douleur s'échappèrent de sa bouche tandis que son corps passait de 3 000 à plus de 7 000 pieds!
 
-D'un seul pas, il se libéra des gaz et atteignit la fissure. Dans un rugissement, il décocha un coup de poing magistral. Au moment de l'impact, l'une des quatre étoiles entre ses sourcils vola en éclats!
+D'un seul pas, il se libéra des gaz et atteignit la fissure. Dans un rugissement, il décocha un coup de poing à la puissance maximale. Au moment de l'impact, l'une des quatre étoiles entre ses sourcils vola en éclats!
 
 Cette étoile brisée généra un impact inimaginable qui se propagea dans son bras droit, lui permettant de porter un coup d'une puissance absolue! Ce coup emprunta la force de deux étoiles brisées, permettant à Luo Chen d'atteindre un niveau de puissance frôlant son apogée!
 
@@ -74,7 +74,7 @@ Une lumière de diamant s'échappa et fusionna avec la lance. Elle perça le vid
 
 Qing Shui n'était pas en reste. Sans perdre un instant, ses mains formèrent un sceau: sept arcs de fils du royaume Ji se lièrent pour s'élancer avec rapidité.
 
-Alors que Luo Chen rugissait, son corps de 10 000 pieds chargea. Le regard sans peur, il déchaîna une pluie de coups de poing.
+Alors que Luo Chen rugissait, son corps de 10 000 pieds chargea. Le regard sans peur, il lança un coup de poing.
 
 L'attaque combinée des trois provoqua la panique chez le jeune homme, dont les pupilles se rétractèrent. À cet instant, une main desséchée surgit et tira le jeune homme en arrière. Un vieillard aux cheveux blancs apparut et se tint devant lui.
 

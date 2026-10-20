@@ -26,7 +26,7 @@ Bien que le corps de Wang Ping fût celui d'un mortel, son cœur était façonn�
 
 Expérimenter la vie à travers les montagnes, apaiser son esprit en les traversant, et ressentir la puissance en surmontant chaque relief. Pourtant, il ne s'arrêtait jamais et ne cédait jamais devant cette immensité; il continuait donc d'escalader chaque montagne qui se dressait devant lui. Il utilisait son corps de mortel pour hériter de l'intention défiant le ciel de Wang Lin.
 
-Wang Lin n'avait transmis aucune méthode de culture à Wang Ping, mais il utilisait sa propre manière de faire pour aider à affiner l'esprit du jeune homme.
+Wang Lin n'avait transmis aucune méthode de culture à Wang Ping, mais il utilisait sa propre manière de faire pour ébranler sans fin l'esprit du jeune homme.
 
 Soif? Bois de l'eau de source. Faim? Mange des fruits et de la viande sauvage. Fatigue? Repose-toi sur le sol. Somnolence? Allonge-toi sur la terre et laisse le ciel te servir de couverture.
 

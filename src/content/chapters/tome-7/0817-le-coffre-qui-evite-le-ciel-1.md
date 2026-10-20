@@ -22,7 +22,7 @@ Au moment où ces courtes épées s'approchèrent, Ta Shan surgit par la pensée
 
 Ce coup créa un vortex. Les courtes épées furent aspirées par le tourbillon, mais elles réussirent à s'en extraire. Elles se déplaçaient comme des serpents et perçèrent le corps de Ta Shan.
 
-Des explosions retentirent dans le vide tandis que Ta Shan agitait froidement ses poings. Chaque fois qu'un coup frappait une lame, celle-ci était repoussée en arrière. Même si les courtes épées esquivaient les coups, elles ne parvenaient pas à endommager son corps.
+Des explosions retentirent dans le vide tandis que Ta Shan agitait froidement ses poings. Chaque fois qu'un coup frappait une lame, celle-ci était repoussée en arrière. Même si les courtes épées esquivaient les coups, elles ne pouvaient lui infliger de graves blessures.
 
 Les yeux de Wang Lin s'illuminèrent et il chargea. Son doigt droit pointa vers la Paire Dao Fanée. Celle-ci brilla et vola vers l'homme à la robe noire.
 
@@ -30,7 +30,7 @@ Simultanément, le monde fut envahi par une intention meurtrière dense qui se p
 
 L'homme afficha un regard complexe et poussa un soupir. Il parla comme s'il murmurait pour lui-même: « Cela fait de nombreuses années que je n'ai pas vu le trésor de Maître... »
 
-Sous sa robe noire, il leva sa main squelettique. Les os blancs étaient d'une terreur extrême lorsqu'ils formèrent un sceau. Non seulement la lumière grise s'interrompit, mais elle recula rapidement avant de disparaître.
+Sous sa robe noire, il leva sa main squelettique. Ses doigts d'os blancs, d'une apparence terrifiante, formèrent un sceau. Non seulement la lumière grise s'interrompit, mais elle recula rapidement avant de disparaître.
 
 Au moment où la lueur grise s'évanouit, les lèvres de l'homme bougèrent à nouveau. Un rayon de lumière blanche jaillit entre ses sourcils et se transforma en un éventail de plumes blanches. Dès qu'il apparut, l'objet se mit à s'agiter.
 
@@ -58,7 +58,7 @@ Coup Céleste!
 
 Les yeux de l'homme se rétractèrent et une lumière noire commença rapidement à s'accumuler. Au moment où le Coup Céleste approchait, deux rayons de lumière jaillirent de ses yeux pour percuter l'attaque.
 
-La puissance de le Coup Céleste se dissipa dans un fracas!
+La puissance du Coup Céleste se dissipa dans un fracas!
 
 « Avec un tel niveau de culture, ce n'est même pas suffisant pour me faire bouger. Si c'est là tout ce que tu as, tu n'es pas digne de posséder le trésor de mon maître! » La voix rauque de l'homme était glaciale.
 
@@ -78,13 +78,13 @@ Bang! Bang! Bang...
 
 Une série d'explosions retentit dans le vide. Les dix dragons chargeaient avec fureur, mais ils ne parvinrent pas à stopper le Sceau Céleste, ne serait-ce qu'un instant.
 
-À chaque impact, les dragons noirs subissaient de violentes secousses et étaient violemment repoussés. Finalement, les dix dragons s'écrasèrent désespérément contre le sceau en un seul bloc.
+À chaque impact, les dragons noirs subissaient de violentes secousses et étaient violemment repoussés. Finalement, les dix dragons s'écrasèrent désespérément contre le sceau.
 
 Pourtant, ils ne réussirent toujours pas à arrêter la descente du Sceau Céleste!
 
 Voyant que le sceau allait s'abattre et qu'il ne restait plus que 100 pieds de distance, l'homme à la robe noire se redressa avec une expression sombre! C'était la première fois qu'il se levait depuis d'innombrables années!
 
-Sa robe noire s'étala pour recouvrir tout son corps. Seuls ses yeux, cachés dans l'obscurité du tissu, laissaient transparaître un regard glacial.
+Sa robe noire s'étala pour recouvrir tout son corps. Seule sa tête restait visible, ses cheveux noirs flottant au vent et ses yeux laissant transparaître un regard glacial.
 
 Il laissa échapper un reniflement froid et son corps s'anima. Il s'apprêtait à quitter la zone d'impact du Sceau Céleste.
 
@@ -120,4 +120,4 @@ Sa vitesse était prodigieuse. En chargeant, il leva l'épée et frappa dix fois
 
 La vitesse de l'homme ne faiblit pas alors qu'il volait vers le Sceau Céleste. Sans même accorder un regard à Wang Lin, sa main droite forma un sceau. Une immense quantité d'énergie spirituelle céleste se rassembla pour former un rideau céleste.
 
-« Ce trésor est gaspillé entre tes mains. Autant me le donner! »
+« Ce trésor prend la poussière entre tes mains. Autant me le donner! »

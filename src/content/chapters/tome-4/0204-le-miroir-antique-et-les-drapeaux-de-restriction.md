@@ -61,7 +61,7 @@ Après un long moment, son regard se posa sur un petit miroir. D'après ses obse
 
 Par conséquent, il n'était pas impossible de détruire la protection de ce miroir. Wang Lin réfléchit encore un instant, rangea les autres instruments et commença à s'emparer du miroir par la force.
 
-Le temps s'écoula. Un mois et demi plus tard, Wang Lin sortit de la grotte, l'expression toujours aussi calme. Il avait réussi à détruire le Sens Divin sur le miroir et à le faire sien en trente jours, puis il lui avait fallu sept jours pour en comprendre les rudiments. Enfin, il l'avait raffiné avec son propre feu et, après quarante-neuf jours, le miroir lui appartenait totalement.
+Le temps s'écoula. Un mois et demi plus tard, Wang Lin sortit de la grotte, l'expression toujours aussi calme. Il avait réussi à détruire le Sens Divin sur le miroir et à le faire sien en trente jours, puis il lui avait fallu sept jours de raffinage pour pouvoir le contrôler sommairement. Enfin, il l'avait raffiné avec son propre feu et, après quarante-neuf jours, le miroir lui appartenait totalement.
 
 Il avait pu ressentir les effets de cet objet durant cette période. Le pouvoir de ce miroir antique était véritablement mystérieux, semblable à celui de l'anneau des Étoiles Brisées du Chaos; il était lié aux avatars. Wang Lin était convaincu qu'il s'agissait d'un trésor célèbre autrefois, sans quoi il n'aurait pas été le trésor de vie d'un cultivateur antique.
 
@@ -119,7 +119,7 @@ Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci po
 
 Le visage de Wang Lin resta impassible. Une fois que la jeune fille eut fini, il hocha la tête sans poser davantage de questions.
 
-Il parcourut le pavillon, dépensa trente pierres spirituelles de qualité moyenne pour les matériaux nécessaires, puis dépensa encore quelques pierres pour un jade censé contenir des informations sur les anciens réseaux de transfert. Il repartit ensuite sans un regard en arrière. La peau de dragon resta fièrement exposée sur le mur.
+Il parcourut le pavillon, dépensa trente pierres spirituelles de qualité moyenne pour les matériaux nécessaires, puis dépensa encore quelques pierres pour un jade censé contenir des informations sur les anciens réseaux de transfert. Il repartit ensuite sans un regard en arrière. La peau de dragon resta paisiblement exposée sur le mur.
 
 Wang Lin était satisfait: il possédait désormais tout ce qu'il fallait pour ses drapeaux de restriction. À part la pierre d'encre, les autres composants étaient communs et faciles à trouver. En revanche, il était déçu par le jade; même dans un tel pavillon, les informations sur les anciens tableaux restaient éparses et lacunaires. Quant au Royaume Ji, il n'avait rien trouvé de concret en posant des questions indirectes.
 

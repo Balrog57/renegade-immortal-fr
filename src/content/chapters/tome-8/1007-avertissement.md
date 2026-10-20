@@ -36,7 +36,7 @@ Le corps massif de Lei Ji ne put supporter le choc psychologique. Il tomba à ge
 
 Seul le Cadavre d'Argent resta normale, bien qu'une lueur étrange brille dans ses yeux.
 
-Un simple regard contenait une puissance aussi terrifiante; l'expression sombre, Wang Lin se mit à redouter davantage encore ce palais céleste. Ce n'était là que l'une des quatre grottes extérieures, et elle était déjà si périlleuse! Une fois qu'ils auraient pénétré dans la grotte finale, il était évident que le danger se trouverait à chaque coin de rue!
+Un simple regard contenait une puissance aussi terrifiante; l'expression sombre, Wang Lin se mit à redouter davantage encore cette grotte céleste. Ce n'était là que l'une des quatre grottes extérieures, et elle était déjà si périlleuse! Une fois qu'ils auraient pénétré dans la grotte finale, il était évident que le danger se trouverait à chaque coin de rue!
 
 « Je crains que ce voyage vers la Terre des Esprits Démoniaques ne soit l'expédition la plus dangereuse de la première moitié de ma vie! » Wang Lin s'était attendu au danger, mais il n'imaginait pas que, face à une simple grotte extérieure, la force des compagnons qu'il avait emmenés se révélerait tout juste insuffisante.
 
@@ -68,7 +68,7 @@ Une Lance Tueuse de Dieux apparut inopinément dans la main de l'ombre elle auss
 
 Une puissante vague d'énergie originelle submergea la grotte. Tandis que Wang Lin inspirait profondément et levait la Lance Tueuse de Dieux, les graviers au sol commencèrent à léviter.
 
-Non seulement le gravier, mais même l'eau de la rivière semblait cesser de couler pour flotter dans les airs. Les débris des quatre tours brisées s'élevèrent également.
+Non seulement le gravier, mais même l'eau de la rivière semblait cesser de couler pour flotter dans les airs. Au loin, la poussière des tours endommagées s'éleva également.
 
 À cet instant, toute la grotte prit une dimension surnaturelle.
 
@@ -92,7 +92,7 @@ Une onde circulaire se propagea soudainement depuis la lance, provoquant un gron
 
 Dès que les fissures se formèrent, la fumée multicolore s'y engouffra. Conjugué à l'impact de la tablette de pierre dorée, les brèches s'élargirent jusqu'à ce que la coquille s'effondre totalement!
 
-Lors de sa destruction, le palais entier fut illuminé. Les fragments de la coquille furent repoussés par la force de l'explosion. La Lance Tueuse de Dieux déchaînait alors toute la puissance que Wang Lin pouvait y insuffler. Après avoir percé la carapace, elle fonça vers le palais situé en dessous.
+Lors de sa destruction, toute la grotte fut illuminée. Les fragments de la coquille furent repoussés en arrière. La Lance Tueuse de Dieux déchaînait alors toute la puissance que Wang Lin pouvait y insuffler. Après avoir percé la carapace, elle fonça vers le palais situé en dessous.
 
 La fumée multicolore l'accompagnait. Cependant, à cet instant, le sentiment de crise qui faisait dresser les cheveux de Wang Lin réapparut, plus intense encore qu'auparavant!
 

@@ -12,7 +12,7 @@ L'Empereur Divin Dragon Azure réfléchit silencieusement un instant. La froideu
 
 « Je pense qu'il aurait préféré être enterré au sein des Quatre Sectes Divines. »
 
-« L'ancien Empereur Divin Oiseau Vermillon a consacré sa vie aux Quatre Sectes Divines. Maintenant qu'il est mort, il mérite la liberté. Je vais l'emmener avec moi. » Le regard de Wang Lin affichait une détermination inébranlable alors qu'il agita sa main droite, faisant voler la pierre blanche vers l'Empereur Divin Dragon Azure.
+« L'ancien Empereur Divin Oiseau Vermillon a consacré sa vie aux Quatre Sectes Divines. Maintenant qu'il est mort, il mérite la délivrance. Je vais l'emmener avec moi. » Le regard de Wang Lin affichait une détermination inébranlable alors qu'il agita sa main droite, faisant voler la pierre blanche vers l'Empereur Divin Dragon Azure.
 
 L'Empereur Divin Dragon Azure examina attentivement la pierre. Il poussa un soupir et ne dit plus un mot. Il se détourna ensuite pour partir, suivi par les sept anciens. L'un des anciens de la Secte Divine Oiseau Vermillon se tourna vers Wang Lin; il ouvrit la bouche comme s'il voulait dire quelque chose, mais le regard de l'Empereur Divin Dragon Azure le figea, contraignant le vieil homme à soupirer et à se taire.
 
@@ -28,7 +28,7 @@ Après avoir éloigné tout le monde, l'Empereur Divin Dragon Azure s'assit dans
 
 Cependant, son regard ne se portait pas sur les Trésors Sacrés, mais vers l'extérieur de la salle principale. Après un long moment, il soupira et détourna les yeux. Il murmura quelques mots que lui seul pouvait entendre.
 
-Après avoir envoyé Da Tou et sa compagnie dans le nouveau Royaume Céleste de la Pluie, il n'avait plus aucune inquiétude. Il flotta calmement parmi les étoiles, ses yeux brillant comme des astres. Une aura puissante enveloppa Wang Lin, qui fut totalement imprégné d'une intention de combat.
+Après avoir envoyé Da Tou et sa compagnie dans le nouveau Royaume Céleste de la Pluie, Wang Lin n'avait plus aucune inquiétude. Il flotta calmement parmi les étoiles, ses yeux brillant comme des soleils. Une aura puissante enveloppa Wang Lin, qui fut totalement imprégné d'une intention de combat.
 
 « Tuo Sen, cela fait plus de 1 000 ans. Nous devrons, en fin de compte, nous affronter! » L'aura de Wang Lin était monstrueuse alors qu'il fendait les étoiles. Utilisant la Courbure Spatiale, il se dirigea rapidement vers la planète familière Suzaku!
 

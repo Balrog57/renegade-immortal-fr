@@ -86,7 +86,7 @@ L'Ascendant Empyréen Ming Dao réfléchit un instant et ferma les yeux, comme s
 
 C'était exactement ce que Ming Dao lui-même avait dit à Wang Lin!
 
-Sa respiration devint rauque et il s'arrêta de nouveau. Son estime de soi refusait d'endurer cela, mais à cet instant, l'Empereur Céleste agita sa manche. Une brise légère enveloppa Ming Dao et le projeta vers l'ancien réseau de transfert.
+Sa respiration devint précipitée et il s'arrêta de nouveau. Son estime de soi refusait d'endurer cela, mais à cet instant, l'Empereur Céleste agita sa manche. Une brise légère enveloppa Ming Dao et le projeta vers l'ancien réseau de transfert.
 
 « Retourne au palais impérial! »
 

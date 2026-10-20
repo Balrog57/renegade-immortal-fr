@@ -8,7 +8,7 @@ slug: trois-images
 ---
 Le vent rugissait, le tonnerre grondait et la pluie tombait violemment sur la terre. Un épais voile de pluie enveloppa la ville, propageant des ondulations à travers toute la cité.
 
-Cette pluie était incessante et semblait ne jamais vouloir cesser. Heureusement, les rues étaient dotées de canaux peu profonds qui évacuaient une grande partie des eaux hors de la ville, tels des fleuves se déversant dans l'océan.
+Cette pluie était incessante et semblait ne jamais vouloir cesser. Heureusement, les rues étaient dotées de canaux peu profonds qui évacuaient une grande partie des eaux hors de la ville, tels de petits ruisseaux se jetant dans l'océan.
 
 Une journée entière fut perdue sous cette averse. Lorsque la nuit tomba, l'animation habituelle n'était plus au rendez-vous; les gens restaient cloîtrés chez eux et ne sortaient pas.
 
@@ -38,17 +38,17 @@ Non seulement le temps des demeures s'inversait, mais même les mortels qui y r�
 
 Certaines personnes ayant vécu ici et étant décédées depuis longtemps semblaient ressusciter. Leurs vies se déroulaient sous les yeux du vieil homme.
 
-Wang Lin était toujours assis à l'intérieur de la maison. L'assimilation de l'tonnerre éternel au sein de son âme originelle avait atteint un moment critique. L'tonnerre éternel contenait une volonté qui luttait frénétiquement, poussant des rugissements tonnants semblables au tonnerre extérieur.
+Wang Lin était toujours assis à l'intérieur de la maison. L'assimilation du tonnerre éternel au sein de son âme originelle avait atteint un moment critique. Le tonnerre éternel contenait une volonté qui luttait frénétiquement, poussant des rugissements tonnants semblables au tonnerre extérieur.
 
 Cependant, malgré ses efforts pour se libérer, elle ne pouvait s'échapper du corps de Wang Lin. Après que l'âme originelle de Wang Lin eut dévoré les huit anciens dragons de tonnerre, elle s'était transformée en un éclair. C'était comme à l'aube de l'ouverture du ciel et de la terre, lorsque deux éclairs éternels se disputaient la maîtrise éternelle de la foudre du monde: seul celui qui dévorerait l'autre pourrait devenir le véritable roi capable de dominer les tonnerres du ciel et de la terre!
 
 Pourtant, à cet instant précis, Wang Lin ouvrit soudainement les yeux, qui se mirent à briller. Son expression était calme alors qu'il agitait la main, provoquant une distorsion de tout ce qui se trouvait dans la maison, tel un miroir déformant. La distorsion persista jusqu'à ce que des craquements retentissent et que, finalement, tout ne vole en éclats.
 
-Après cela, Wang Lin ferma les yeux et fit abstraction du monde extérieur. Il se replongea dans sa culture pour entamer l'étape finale de la dévoration de l'tonnerre éternel.
+Après cela, Wang Lin ferma les yeux et fit abstraction du monde extérieur. Il se replongea dans sa culture pour entamer l'étape finale de la dévoration du tonnerre éternel.
 
 Sous la pluie, le vieil homme en robe taoïste scruta lentement les habitations. Lorsque son regard passa devant la demeure de Wang Lin, il ne lui accorda même pas une attention particulière. Il vit simplement la demeure se dissiper, avec le lettré qui s'y trouvait, tandis qu'apparaissaient les silhouettes de tous ceux qui y avaient jadis habité.
 
-Après un long moment, le vieil homme eut fini de scanner tout le côté ouest de la ville. N'ayant rien trouvé, il forma calmement un sceau, pointa son doigt entre ses sourcils et poussa un rugissement.
+Après un long moment, le vieil homme eut fini de scanner tout le côté ouest de la ville. N'ayant rien trouvé, il forma calmement un sceau, pointa ses doigts entre ses sourcils et poussa un rugissement.
 
 La lumière de sa marque tribale devint plus éclatante encore et, lorsque le vieil homme regarda à nouveau, la ville avait disparu. Le temps continua de remonter jusqu'à ce qu'un ancien champ de bataille apparaisse devant lui. Deux armées mortelles s'y affrontaient, teignant la terre d'un rouge sombre.
 
@@ -56,17 +56,17 @@ Le vieil homme ferma soudainement les yeux. La lumière de sa marque tribale fai
 
 — Aucun cultivateur ne se cache ici, changeons de lieu! lança le vieil homme en agitant ses manches avant de s'élancer dans les airs à travers les nuages sombres. Tandis qu'il s'éloignait, les sept cultivateurs le suivirent.
 
-Des scènes similaires ne se produisaient pas seulement dans diverses villes, mais sur de nombreuses planètes à travers tout le Système Stellaire Antique!
+Des scènes similaires ne se produisaient pas seulement dans diverses villes, mais sur toutes les planètes de culture du Système Stellaire Antique!
 
 Une fois l'Ordre du Système Stellaire Antique prononcé, chaque clan devait s'y plier; ils avaient ainsi lancé une recherche minutieuse sur chaque planète de culture, chaque planète sauvage inhabitée et l'infini ciel étoilé. Les habitants du Système Stellaire Antique formaient un filet gigantesque!
 
-L'expression de Wang Lin resta neutre et imperturbable lorsqu'ils partirent; ses yeux ne s'ouvrirent même pas. Le rugissement de l'tonnerre éternel s'affaiblissait, tout comme sa lutte!
+L'expression de Wang Lin resta neutre et imperturbable lorsqu'ils partirent; ses yeux ne s'ouvrirent même pas. Le rugissement du tonnerre éternel s'affaiblissait, tout comme sa lutte!
 
 Les nuages emplissant toujours le ciel, la pluie ne semblait pas vouloir faiblir. Même le veilleur de nuit n'était pas apparu; seul le bruit de la pluie tombante résonnait.
 
-Les deux éclairs à l'intérieur de l'âme originelle de Wang Lin finirent par fusionner. L'tonnerre éternel laissa échapper un rugissement de dépit avant d'être totalement dévoré par l'âme originelle de Wang Lin.
+Les deux éclairs à l'intérieur de l'âme originelle de Wang Lin finirent par fusionner. Le tonnerre éternel laissa échapper un rugissement de dépit avant d'être totalement dévoré par l'âme originelle de Wang Lin.
 
-Dès que l'tonnerre éternel fut assimilé, la volonté qu'il contenait fut raffinée par Wang Lin et ne fit plus qu'un avec son âme originelle. Il sentit son âme originelle trembler, tandis que son essence de tonnerre croissait à une vitesse inimaginable.
+Dès que le tonnerre éternel fut assimilé, la volonté qu'il contenait fut raffinée par Wang Lin et ne fit plus qu'un avec son âme originelle. Il sentit son âme originelle trembler, tandis que son essence de tonnerre croissait à une vitesse inimaginable.
 
 Cette progression était indescriptible. La seule montée en puissance de son essence de tonnerre permit la culture de Wang Lin de franchir le stade intermédiaire du Briseur du Nirvana pour tendre vers le stade avancé!
 
@@ -74,7 +74,7 @@ Tandis que son essence de tonnerre grondait, la culture de Wang Lin atteindrait 
 
 La puissance de l'essence représentait les fondements de tous les domaines. Obtenir l'essence signifiait qu'il avait percé à jour toutes les lois du tonnerre. Il n'y avait plus de limite de domaine pour sa culture, ce qui était sans précédent!
 
-Après avoir dévoré la volonté de l'tonnerre éternel, l'esprit de Wang Lin fut secoué. Des souvenirs traversèrent son esprit. C'étaient les souvenirs de cette volonté, les souvenirs de l'tonnerre éternel!
+Après avoir dévoré la volonté du tonnerre éternel, l'esprit de Wang Lin fut secoué. Des souvenirs traversèrent son esprit. C'étaient les souvenirs de cette volonté, les souvenirs du tonnerre éternel!
 
 Les souvenirs étaient fragmentés par le passage du temps, si bien que seules trois images apparurent!
 
@@ -84,7 +84,7 @@ Au cœur de ce chaos, d'innombrables créatures périrent. Wang Lin vit des cult
 
 Cependant, juste au moment où il allait poursuivre son observation, un éclair sembla jaillir frénétiquement du vide comme s'il fuyait quelque chose, traversant le néant!
 
-C'était la première image. Elle fut très brève, mais le choc qu'elle infligea à Wang Lin fut immense! Ce flash était l'tonnerre éternel!
+C'était la première image. Elle fut très brève, mais le choc qu'elle infligea à Wang Lin fut immense! Ce flash était le tonnerre éternel!
 
 Toutefois, il était d'innombrables fois plus puissant que lorsqu'il l'avait dévoré!
 

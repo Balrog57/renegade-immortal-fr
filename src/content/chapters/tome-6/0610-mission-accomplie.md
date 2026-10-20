@@ -42,7 +42,7 @@ Tout en observant calmement le ciel, sa main droite traça un sceau et pointa de
 
 « Démon dispersé, bien que moi, Wang Lin, je sois faible, je ne suis pas quelqu'un que tu peux tuer avec autant de désinvolture! »
 
-Wang Lin frappa son sac de rangement, et le drapeau des mille millions d'âmes apparut dans sa main. Il le projeta dans la rivière des enfers.
+Wang Lin frappa son sac de rangement, et l'étendard d'un milliard d'âmes apparut dans sa main. Il le projeta dans la rivière des enfers.
 
 Dès que le drapeau toucha l'eau de la rivière, les cent millions de fragments d'âmes en jaillirent.
 
@@ -88,7 +88,7 @@ Cette lumière était un sort extrêmement puissant de l'Ancien Démon, capable 
 
 L'esprit démoniaque jaillit des sourcils du grand homme en criant: « Bei Luo, si tu me tues, Maître ne te pardonnera jamais! » Il émergea complètement avant de se transformer en un rayon de lumière pour s'engouffrer dans l'armure.
 
-Aussitôt, l'armure se détacha du corps du colosse. Enveloppée d'une quantité monstrueuse d'énergie démoniaque, elle s'apprêtait à s'extraire de la lumière démoniaque. « Abandonner la monture pour sauver le général »: telle était la pensée de l'esprit démoniaque. Bien qu'il perde son corps, tant que l'armure subsistait, il pourrait un jour se rétablir. Au pire, il n'aurait qu'à trouver un autre réceptacle.
+Aussitôt, l'armure se détacha du corps du colosse. Enveloppée d'une quantité monstrueuse d'énergie démoniaque, elle s'apprêtait à s'extraire de la lumière démoniaque. « Abandonner le char pour sauver le général »: telle était la pensée de l'esprit démoniaque. Bien qu'il perde son corps, tant que l'armure subsistait, il pourrait un jour se rétablir. Au pire, il n'aurait qu'à trouver un autre réceptacle.
 
 De plus, sans ce corps, l'esprit démoniaque était convaincu de pouvoir s'échapper grâce à ses sorts!
 
@@ -110,6 +110,6 @@ Simultanément, l'armure se transforma en filaments noirs qui s'enroulèrent aut
 
 Wang Lin portait désormais une armure noire, ses yeux étaient rouge sang et ses cheveux flottaient sans qu'aucun vent ne souffle. En son sein, son âme originelle avait atteint son apogée grâce au Fruit de l'Ascension Céleste. Il entama alors le combat contre l'esprit démoniaque qui avait perdu la majeure partie de sa puissance.
 
-La lumière démoniaque se dissipa pour redevenir l'ombre sanguine de l'Ancien Démon. Il regarda Wang Lin avec admiration et sourit: « Quelle stratégie brillante, stimuler ton âme originelle pour mieux résister à l'esprit démoniaque. Si je t'aide, j'agis selon tes plans; mais si je ne le fais pas, notre combat précédent n'aura servi à rien. Tu as calculé que je viendrais à la rescousse... Bien, c'est ta chance, alors je vais t'aider! »
+La lumière démoniaque se dissipa pour redevenir l'ombre sanguine de l'Ancien Démon. Il regarda Wang Lin avec admiration et sourit: « Quelle stratégie brillante, stimuler ton âme originelle pour mieux résister à l'esprit démoniaque. Si je t'aide, j'agis selon tes plans; mais si je ne le fais pas, notre combat précédent et ces trois jours de lutte n'auront servi à rien. Tu as calculé que je viendrais à la rescousse... Bien, c'est ta chance, alors je vais t'aider! »
 
 Tandis qu'il parlait, l'Ancien Démon saisit Wang Lin ainsi que le colosse dont le corps s'effritait sans être encore mort. Puis, il se transforma en un rayon de lumière et fondit vers le lac du dragon, à la lisière de la Cité du Démon Céleste.

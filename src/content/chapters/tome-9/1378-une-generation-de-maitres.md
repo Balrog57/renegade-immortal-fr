@@ -22,7 +22,7 @@ Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre: « Bien sûr
 
 Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis dit doucement: « Si le Senior Simo réussit, tout ira bien, mais si... »
 
-« Il n'y a aucune possibilité! Même s'il ne meurt pas, il sera gravement blessé. Il fera tout son possible pour s'enfuir et guérir, et il ne pourra guère nous affronter. Et même s'il venait chercher des ennuis, je ferai en sorte qu'il ne reparte jamais! »
+« Il n'y a aucune possibilité! Même s'il ne meurt pas, il sera gravement blessé. Il n'aura même pas le temps de s'enfuir ou de guérir, encore moins de venir nous chercher des ennuis. Et même s'il venait chercher des ennuis, je ferai en sorte qu'il ne reparte jamais! »
 
 « Ton père est, après tout, le neuvième Ancien Déchu et un représentant du Conseil Déchu. Il n'osera pas! » Le Patriarche du Clan du Dragon Blindé, l'air fier, agita sa manche et partit.
 
@@ -32,7 +32,7 @@ L'expression de Wang Lin était calme, ne laissant paraître aucune émotion alo
 
 Il se tenait là, semblant fusionner avec le monde lui-même. Il était le Ciel! Il était la Terre!
 
-L'enfant d'il y a deux mille ans était devenu un homme et se dressait désormais au sommet de la culture. Il osait même défier des cultivateurs du troisième pas! Même si ce dernier n'était présent que par son avatar et ne possédait que la culture du Cinquième Fléau Céleste!
+Après deux mille ans de cultivation, l'enfant d'autrefois était devenu un homme et se dressait désormais au sommet de la culture. Il osait même défier des cultivateurs du troisième pas! Même si ce dernier n'était présent que par son avatar et ne possédait que la culture du Cinquième Fléau Céleste!
 
 Cependant, dans ce monde, tant dans le Royaume Intérieur que dans le Royaume Extérieur, à part Wang Lin, combien osaient défier des cultivateurs du troisième pas?
 
@@ -100,7 +100,7 @@ Il ne restait plus aucune montagne sur cette planète, seulement des amas de dé
 
 Wang Lin saisit toutes les âmes des montagnes de la planète et les projeta. Elles fusionnèrent avec le volcan au moment même où le vortex du Maître Simo atteignait sa cible!
 
-À cet instant, le volcan créé par l'Effondrement des Montagnes reçut une âme! Cette âme était d'une puissance inouïe, comme si elle était composée d'une infinité d'âmes de montagnes. Désormais, ce volcan était enfin un véritable volcan!
+À cet instant, le volcan créé par l'Effondrement des Montagnes reçut une âme! Cette âme était d'une puissance inouïe, comme si elle était composée d'une infinité d'âmes de montagnes. Désormais, ce volcan était enfin une véritable montagne!
 
 L'Effondrement des Montagnes venait d'atteindre sa pleine réalisation!
 

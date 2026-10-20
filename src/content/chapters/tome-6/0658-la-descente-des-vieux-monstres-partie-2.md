@@ -28,7 +28,7 @@ Après une courte réflexion, il tapota la tête de la bête. Le moustique pouss
 
 Désormais, puisque Wang Lin pouvait fusionner avec la force d'aspiration, n'importe quel endroit pouvait servir de sortie.
 
-Tandis qu'ils volaient, les milliers de moustiques les suivirent. Ils poussaient parfois des cris de désespoir et d'impuissance, comme s'ils tentaient de dissuader le moustique de Wang Lin de partir.
+Tandis qu'ils volaient, les milliers de moustiques les suivirent. Ils poussaient parfois des cris de regret et de désespoir, comme s'ils tentaient de dissuader le moustique de Wang Lin de partir.
 
 Ce jour-là, au Pays des Démons d'Eau, une lueur violette jaillit dans les airs. C'était la bête moustique. Wang Lin était assis sur son dos, le visage empreint de gravité.
 
@@ -72,13 +72,13 @@ Après cela, Wang Lin regarda la grotte d'un air significatif. L'esprit de la gr
 
 Wang Lin fit volte-face, le cristal à la main, et partit.
 
-Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays du Démon Céleste. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
+Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays des Démons Célestes. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
 
 Wang Lin ne récupéra pas les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua dans la pagode. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
 
 Au moment de son départ, Treize s'agenouilla et effectua plusieurs prosternations vers Wang Lin. Ouyang Hua fit de même, leurs yeux noyés de tristesse. Bien que Wang Lin n'ait rien dit, ils sentaient que dans cette vie... il leur serait difficile de le revoir un jour...
 
-Dans la cité des Démons Célestes, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa culture. Après des années de guérison et de soins, sa culture avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
+Dans le Pays des Démons Célestes, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa culture. Après des années de guérison et de soins, sa culture avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
 
 Peu après, Shi Xiao ouvrit les yeux, le regard étincelant.
 

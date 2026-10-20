@@ -48,7 +48,7 @@ Une fois au sommet du pic enneigé, il laissa le vent faire flotter ses cheveux 
 
 Sur tout le continent, les cultivateurs des branches de la Secte Céleste et des nombreuses sectes subordonnées tremblèrent lorsqu'ils ressentirent ce puissant Sens Divin balayer leur domaine. Même les nuages semblèrent s'effondrer. Sous la pression du Sens Divin, la brume se retira, rendant tout parfaitement clair dans un rayon de dizaines de millions de kilomètres autour de Wang Lin!
 
-Au cœur du Continent Céleste, alors que le Sens Divin de Wang Lin résonnait à travers les montagnes infinies, une aura fracassante éclata, modifiant la couleur même du monde. Les nuages se déchirèrent et un vieil homme aux cheveux blancs s'avança dans les airs.
+Au cœur du Continent Céleste, alors que le Sens Divin de Wang Lin résonnait à travers les montagnes infinies, une aura fracassante éclata, modifiant la couleur même du monde. Les nuages se déchirèrent et un vieil homme aux cheveux blancs, vêtu de simples habits de toile grossière, s'avança dans les airs.
 
 Sa simple présence semblait faire trembler le monde. Il scruta l'horizon vers le sommet de la montagne. Ses yeux s'illuminèrent, il agita sa manche et disparut.
 
@@ -70,11 +70,11 @@ Le vieil homme éclata de rire et une intention de combat jaillit de ses yeux. S
 
 Cette tempête de neige était composée de neuf sorts. Le blizzard hurlait et rugissait, tentant d'engloutir Wang Lin.
 
-Wang Lin rit et, levant la main droite, lança un coup de poing! Ce coup contenait également neuf sorts: neuf Marques d'Esprit de Guerre!
+Wang Lin rit et, levant la main droite, lança un coup de poing! Ce coup contenait également neuf sorts: neuf Empreintes de l'Esprit de Guerre!
 
 Des grondements tonitruants secouèrent le monde environnant. La tempête de neige explosa sous l'impact, dispersant la neige à travers le monde. Les rugissements et les rires assourdissants continuèrent de résonner dans toute la région.
 
-Quelques heures plus tard, la silhouette de Wang Lin émergea de la neige infinie pour se stabiliser à des dizaines de milliers de kilomètres de là.
+Quelques heures plus tard, la silhouette de Wang Lin émergea de la neige infinie pour se stabiliser à des dizaines de kilomètres de là.
 
 « La culture de ce camarade est extraordinaire. Cette bataille m'a beaucoup apporté, je vous en remercie! »
 
@@ -95,7 +95,7 @@ La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-tr
 
 « D'accord! » Wang Lin se leva et son Corps Véritable des Cinq Éléments apparut!
 
-Avec un seul avatar, la puissance de combat de Wang Lin décuplerait, lui permettant de rivaliser avec un Exalté Empyréen ayant fusionné dix-huit sorts!
+Avec un seul avatar, la puissance de combat de Wang Lin augmenterait fortement, lui permettant de rivaliser avec un Exalté Empyréen ayant fusionné dix-huit sorts!
 
 « Un Corps Véritable d'Essence! Et ce n'est pas un simple corps d'essence, mais un corps issu de la fusion de multiples essences! » Les pupilles du vieil homme se rétractèrent en contemplant la forme de Wang Lin.
 
@@ -103,10 +103,10 @@ Ils attaquèrent simultanément, et le vieil homme ne se retint plus. Il décha�
 
 Les grondements tonitruants persistèrent durant trois jours. Enfin, Wang Lin sourit, monta sur le dos du dragon de mer et s'envola.
 
-« Camarade Mu Rong, merci infiniment! »
+« Camarade Murong, merci infiniment! »
 
 Tandis que la neige tombait, le vieil homme sortit et regarda dans la direction de Wang Lin avec un visage grave.
 
-« Il n'a pas utilisé toute sa force... Avec une telle culture, je me demande jusqu'où il parviendra lors de l'Épreuve de l'Empyréen. » Le vieil homme attendit que Wang Lin disparaisse complètement avant de partir.
+« Il n'a pas utilisé toute sa force... Avec une telle culture, je me demande jusqu'où il parviendra lors de l'Épreuve Empyréenne. » Le vieil homme attendit que Wang Lin disparaisse complètement avant de partir.
 
 « Un nouvel Exalté Empyréen est apparu dans mon clan céleste. Cette affaire doit être rapportée au Grand Empyréen. » Ces dix jours de combat lui avaient également apporté de profondes révélations.

@@ -8,9 +8,9 @@ slug: le-depart-du-jade-de-li-muwan
 ---
 Il était évident qu'il ne pouvait l'éviter. S'il voulait sortir d'ici, il devait affronter cette épreuve.
 
-Wang Lin soupira intérieurement. Il pointa la lame de cristal et lui ordonna de frapper un pilier de pierre situé derrière lui. La lame de cristal brisait continuellement des morceaux du pilier, qui venaient ensuite flotter dans l'anneau entourant Wang Lin.
+Wang Lin soupira intérieurement. Il pointa l'épée de cristal et lui ordonna de frapper un pilier de pierre situé derrière lui. L'épée de cristal brisait continuellement des morceaux du pilier, qui venaient ensuite flotter dans l'anneau entourant Wang Lin.
 
-Peu à peu, une quantité croissante de fragments de pierre s'accumula autour de lui. Après avoir calculé qu'il avait atteint cinq ou six anneaux, il rétracta la lame de cristal.
+Peu à peu, une quantité croissante de fragments de pierre s'accumula autour de lui. Après avoir calculé qu'il avait atteint cinq ou six anneaux, il rétracta l'épée de cristal.
 
 Wang Lin s'élança dans la zone vide, porté par l'immense masse de pierres tourbillonnant autour de lui. Une fois profondément engagé dans cet espace blanc, il ralentit et avança calmement. Aucun signe de danger ne se manifestait.
 
@@ -18,13 +18,13 @@ Cependant, cela n'amoindrit en rien sa prudence; au contraire, cela le rendit pl
 
 Il soupçonnait plutôt que ce calme n'était qu'une illusion de sécurité, provoquée par la présence d'une créature extrêmement puissante à proximité.
 
-En état d'alerte maximale, il dissimulait sa lame de cristal parmi les débris de pierre et tenait un talisman de niveau Âme Naissante en main. Son sens divin était déployé pour scruter les environs, tout en restant partiellement connecté à son sac de rangement afin de pouvoir en extraire des objets à tout instant.
+En état d'alerte maximale, il dissimulait son épée de cristal parmi les débris de pierre et tenait un talisman de niveau Âme Naissante en main. Son sens divin était déployé pour scruter les environs, tout en restant partiellement connecté à son sac de rangement afin de pouvoir en extraire des objets à tout instant.
 
 Il progressa lentement vers le centre de la zone calme. De sa position actuelle, s'il regardait sur le côté, il pourrait tracer une ligne droite jusqu'à l'endroit où les pierres avaient disparu précédemment.
 
 Soudain, Wang Lin se sentit encore plus sur le qui-vive. Après avoir parcouru quelques pas, son sens divin lui communiqua un sentiment de danger imminent. Sans la moindre hésitation, il recula brusquement et utilisa le talisman de niveau Âme Naissante pour ériger un écran de lumière devant lui.
 
-Au moment même où il reculait, deux arcs de lumière apparurent là où il se tenait une seconde auparavant. Ces deux arcs se rejoignirent pour former l'image d'une immense gueule béante.
+Au moment même où il reculait, deux arcs apparurent là où il se tenait une seconde auparavant. Ces deux arcs se rejoignirent pour former l'image d'une immense gueule béante.
 
 Le talisman de niveau Âme Naissante trembla violemment dans sa main avant de se réduire en poussière. Profitant de cette opportunité, Wang Lin recula promptement. Une sueur froide perla sur son front alors qu'il fixait la grande gueule qui se refermait. Son cœur battait la chamade.
 
@@ -38,7 +38,7 @@ Il prit une profonde inspiration. Après une courte réflexion, il sortit sans h
 
 Après un moment d'hésitation, il reprit sa progression, soutenu par son anneau de pierres. Cette fois, il fut encore plus prudent, avançant avec son sens divin constamment déployé. Il se fit la promesse de reculer immédiatement au moindre signe suspect.
 
-Soudain, un demi-cercle d'une centaine de pieds apparut devant lui, et plus de la moitié des pierres qui le précédaient disparurent instantanément. Wang Lin tenta de reculer aussitôt, mais plus de la moitié des pierres derrière lui s'évaporèrent également, tout comme celles dans les autres directions. Cela signifiait que peu importe sa trajectoire, ces créatures invisibles ne cesseraient d'apparaître.
+Soudain, un demi-cercle d'une centaine de pieds apparut devant lui, et plus de la moitié des pierres qui le précédaient disparurent instantanément. Wang Lin tenta de reculer aussitôt, mais plus de la moitié des pierres derrière lui s'évaporèrent également, tout comme celles dans les autres directions. Cela signifiait que peu importe sa trajectoire, ces créatures ne cesseraient d'apparaître.
 
 Wang Lin dévia immédiatement sur le côté, mais la couche protectrice formée par ses centaines de trésors défensifs commença à craquer et à voler en éclats un à un.
 
@@ -56,7 +56,7 @@ Par chance, la perle défiant le ciel n'avait pas été engloutie par la créatu
 
 Voyant qu'il restait moins de 5 kilomètres, Wang Lin prit une grande inspiration et pressa le pas. Soudain, une gueule commença à s'ouvrir devant lui. Au moment où il allait esquiver, son sens divin lui hurla un danger imminent. Ce qu'il redoutait le plus se produisait.
 
-Des arcs de lumière apparurent tout autour de lui. Les créatures ouvraient toutes leurs gueules simultanément. Accablé par la frustration, Wang Lin fouilla frénétiquement dans son sac jusqu'à ce qu'il tombe sur une tablette de jade d'apparence très ordinaire.
+Des fissures en arc apparurent tout autour de lui. Les créatures ouvraient toutes leurs gueules simultanément. Accablé par la frustration, Wang Lin fouilla frénétiquement dans son sac jusqu'à ce qu'il tombe sur une tablette de jade d'apparence très ordinaire.
 
 C'était la formation défensive que Li Muwan lui avait offerte en cadeau de départ pour sa culture en isolement. Sans hésiter, Wang Lin lança le jade. Sa décision était prise: si la situation devenait désespérée, il n'aurait d'autre choix que d'entrer dans la perle défiant le ciel. Même si l'espace où se trouvait la perle finissait par être dévoré, c'était son ultime recours.
 

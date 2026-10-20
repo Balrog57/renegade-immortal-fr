@@ -48,11 +48,11 @@ L'Omniscient se tint silencieusement devant le Pavillon de la Forêt Violette et
 
 Les environs étaient plongés dans un silence total. Wang Lin restait là, aux côtés de l'Omniscient, sans un bruit. Il ignorait quelle était la personnalité de son nouveau maître et ne parvenait pas à percer ses pensées. Cependant, à en juger par l'expression de l'Omniscient, celui-ci ne semblait pas en colère.
 
-Après un long moment, l'Omniscient poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura tyrannique émane de ce mot, capable de percer les cieux. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
+Après un long moment, l'Omniscient poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura indomptable émane de ce mot, capable de percer les cieux. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
 
 Le cœur de Wang Lin tressaillit. Bien que son visage restât impassible, ses pensées s'emballèrent. Finalement, sa mémoire se fixa sur le Deuxième Frère, celui qui avait utilisé la technique interdite pour obtenir le corps d'un démon immortel. Il prit alors une décision et hocha la tête avec franchise: « Le disciple connaissait effectivement quelqu'un, mais nos chemins se sont séparés lors de notre voyage. »
 
-L'Omniscient caressa sa barbe blanche en souriant. « Même s'il était venu sur la planète Tian Yun, cela n'aurait pas posé de problème. Aux yeux de ton maître, il n'existe ni bien ni mal; on ne fait que suivre ses désirs! Destin céleste, destin céleste! Tout dans ce monde dépend du destin! Tant que le cœur est déterminé, on peut cultiver l'un des millions de Dao qui existent! »
+L'Omniscient caressa sa barbe blanche en souriant. « Même s'il était venu sur la planète Tian Yun, cela n'aurait pas posé de problème. Aux yeux de ton maître, il n'existe ni bien ni mal; on ne fait que suivre sa nature! Destin céleste, destin céleste! Tout dans ce monde dépend du destin! Tant que le cœur est déterminé, on peut cultiver l'un des millions de Dao qui existent! »
 
 Wang Lin acquiesça. Il pensa à la technique utilisée par le Deuxième Frère, qui était de nature presque démoniaque. C’est pourquoi il avait choisi de dire la vérité plutôt que de mentir et de se faire démasquer par l'Omniscient.
 

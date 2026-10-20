@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1594 - Looking Back and There is Reincarnation
 slug: regard-sur-le-passe-et-reincarnation
 ---
-En état de transe, Wang Lin contemplait le feu, mais il fut interrompu par le bruit d'une déglutition. Il tourna la tête et vit l'homme d'âge moyen, non loin de lui, dévorant du regard la nourriture séchée qu'il tenait entre ses mains. L'homme ne cessait de se lécher les lèvres, affichant un air pitoyable.
+En état de transe, Wang Lin contemplait le feu, mais il fut interrompu par le bruit d'une déglutition. Il tourna la tête et vit l'homme d'âge moyen, non loin de lui, dévorant du regard la nourriture séchée que tenait Wang Lin. L'homme ne cessait de se lécher les lèvres, affichant un air pitoyable.
 
 En observant cet homme, Wang Lin sourit. À cet instant, il ne le considérait pas comme un étranger; il ne ressentait que de la compassion.
 
@@ -14,7 +14,7 @@ En observant cet homme, Wang Lin sourit. À cet instant, il ne le considérait p
 
 Les yeux de ce dernier s'écarquillèrent et, après avoir avalé sa salive, il se précipita vers lui. Il s'empara de la nourriture et la dévora en seulement deux bouchées.
 
-« Délicieux, délicieux... Ce roi n'a pas mangé depuis plusieurs jours... Hein? Pourquoi m'appelle-t-on "roi"? » L'homme resta figé un instant, puis secoua la tête. Il cessa d'y penser et regarda Wang Lin d'un air de détresse.
+« Délicieux, délicieux... Ce roi n'a pas mangé depuis plusieurs jours... Hein? Pourquoi ai-je dit "roi"? » L'homme resta figé un instant, puis secoua la tête. Il cessa d'y penser et regarda Wang Lin d'un air de détresse.
 
 Wang Lin sortit encore quelques morceaux de nourriture séchée et les lui tendit. Il demanda doucement: « Comment vous appelez-vous? Pourquoi êtes-vous ici? Où est votre famille? »
 
@@ -22,7 +22,7 @@ L'homme lui donnait une sensation indescriptible. Plus Wang Lin entrait en conta
 
 L'homme prit la nourriture séchée, prêt à manger, mais fut déstabilisé par les paroles de Wang Lin. Il commença alors à pleurer en contemplant ce qu'il tenait entre ses mains.
 
-« Je ne sais plus quel est mon nom... Quand je me suis réveillé, j'étais dans les montagnes. Je ne me souviens de rien... Une lumière dorée... Je me souviens m'être réveillé entouré d'une lueur dorée, avec une foule de gens qui tentaient de me rattraper. Hmph, hmph, mais ils n'ont pas pu me trouver! » L'homme pleurait, sa voix devenant de plus en plus indistincte.
+« Je ne sais plus quel est mon nom... Quand je me suis réveillé, j'étais dans les montagnes. Je ne me souviens de rien... Une lumière dorée... Je me souviens m'être réveillé entouré d'une lueur dorée, avec une foule de gens qui tentaient de me capturer. Hmph, hmph, mais ils n'ont pas pu me trouver! » L'homme pleurait, sa voix devenant de plus en plus indistincte.
 
 Le regard de Wang Lin se fit plus tendre encore. Voyant l'homme dévorer en quelques bouchées la nourriture séchée dont il ne lui restait presque plus, il secoua la tête avec un sourire. Il sortit ensuite sa gourde et la tendit au fou.
 
@@ -30,7 +30,7 @@ L'homme but plusieurs grandes gorgées avant de laisser échapper un rot. Il reg
 
 « Tenez, cette cuisse de poulet n'est plus savoureuse. »
 
-Wang Lin sourit et prit la viande. Il ne la mangea pas, mais l'enveloppa soigneusement pour la ranger dans son sac à dos.
+Wang Lin sourit et prit la viande. Il ne la mangea pas, mais l'enveloppa soigneusement pour la ranger dans son sac en bambou.
 
 Dehors, la pluie redoublait d'intensité sous le grondement du tonnerre et les éclairs qui déchiraient le ciel. La porte du temple continuait de battre sous les assauts du vent, percutant parfois le mur. Outre les craquements habituels, on entendait désormais le choc sourd de la porte contre la paroi.
 
@@ -84,7 +84,7 @@ L'homme d'âge moyen entra dans une rage folle et rugit contre lui:
 
 « Regardez de plus près! Ouvrez grand les yeux! Vous... Vous... Comment pouvez-vous ne pas voir? Menteur! Vous le voyez très bien! »
 
-Wang Lin se frotta le front et prit la main droite de l'homme devant ses yeux. Après avoir observé attentivement, il sourit et hocha la tête: « Je vois, je vois effectivement. »
+Wang Lin se frotta le front et prit la main droite de l'homme devant ses yeux. Après avoir observé attentivement, il esquissa un sourire amer et hocha la tête: « Je vois, je vois effectivement. »
 
 « Hehe, je suis doué, n'est-ce pas? Hmph, je vais retrouver cette personne. Elle doit me connaître. » L'homme se rassit sur le côté en fixant son bras, avant de sombrer lentement dans une léthargie.
 
@@ -116,7 +116,7 @@ Wang Lin ouvrit les yeux et s'étira. Il contempla le ciel par l'ouverture du te
 
 Dissimulant son doute au plus profond de lui, Wang Lin rangea ses affaires et enfila une tenue propre. Puis il secoua l'homme pour le réveiller. Voyant celui-ci reprendre connaissance, il joignit les mains et sourit.
 
-« Notre rencontre d'hier soir peut être considérée comme le destin. Je m'appelle Wang Lin. Je dois encore passer l'examen impérial, si nous pouvons... » Wang Lin s'interrompit. L'homme avait la tête baissée et paraissait abattu.
+« Notre rencontre d'hier soir peut être considérée comme le destin. Je m'appelle Wang Lin. Je dois encore passer l'examen impérial, si un jour je le peux... » Wang Lin s'interrompit. L'homme avait la tête baissée et paraissait abattu.
 
 Après réflexion, Wang Lin garda une journée de nourriture séchée et sortit le reste. Il le déposa devant le fou et murmura: « Je dois partir. Vous finirez par trouver cette personne, j'en suis certain. »
 
@@ -126,12 +126,8 @@ Il ressentait pourtant une certaine réticence. Il regarda l'homme une dernière
 
 Les pas de Wang Lin s'arrêtèrent. Il leva les yeux vers le ciel. Un instant plus tard, il se retourna vers l'homme qui pleurait dans l'obscurité du temple et dit doucement:
 
-« Je... Je manque d'un serviteur[1]. Vous êtes un peu âgé, mais cela ne devrait pas poser de problème... »
+« Je... Je manque d'un serviteur. Vous êtes un peu âgé, mais cela ne devrait pas poser de problème... »
 
-À cet instant, Wang Lin ignorait qu'il venait de prononcer des paroles qui résonnaient comme un cycle de réincarnation. Lorsqu'il avait rencontré le fou pour la première fois, il avait eu cette sensation diffuse de l'avoir déjà vu. C'était lors de l'épreuve humaine dans les Terres Déchues, lorsqu'il avait croisé une autre version de lui-même et ce serviteur à l'allure d'intendant.
+À cet instant, Wang Lin ignorait qu'il venait de prononcer des paroles qui résonnaient comme un cycle de réincarnation. Lorsqu'il avait rencontré le fou pour la première fois, il avait eu cette sensation diffuse de l'avoir déjà vu. C'était lors de l'épreuve humaine de l'Oiseau Vermillon dans les Terres Déchues, lorsqu'il avait croisé une autre version de lui-même et ce serviteur à l'allure d'intendant.
 
 Cet homme tenait le pichet de vin d'osmanthe de la ville de Su et s'inquiétait sans cesse du prix du vin.
-
-***
-
-[1] Un terme désignant un assistant ou un jeune serviteur. Il existe divers types de serviteurs dont le titre est formé par la fonction suivie de "garçon". Ils assistent leur maître dans une tâche spécifique tout en étant, d'une certaine manière, leurs apprentis, car ils acquièrent des connaissances en retour.

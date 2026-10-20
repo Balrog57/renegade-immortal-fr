@@ -19,9 +19,9 @@ La famille Teng était une lignée de cultivateurs très célèbre dans le nord 
 
 Grâce à un ancêtre tel que lui, personne n'osait défier la famille Teng, bien qu'elle ne fût pas une grande secte. La foire aux échanges de la famille Teng offrait une plateforme idéale pour le commerce entre cultivateurs. Au début de chaque mois, la ville de la famille Teng était en pleine effervescence.
 
-Là où les foules se pressent, les conflits ne manquent pas de surgir. Parfois, les gens s'entre-déchiraient dès leur rencontre. C’est pour cette raison que l'ancêtre de la famille Teng, Teng Huayuan, avait instauré une loi interdisant tout combat au sein de la cité. Il était strictement interdit à quiconque de se battre en ville. Dès que cet ordre fut promulgué, chacun s'y conforma, d'autant plus après que Teng Huayuan s'était déplacé personnellement pour massacrer deux cultivateurs du stade de la Formation du Noyau.
+Là où les foules se pressent, les conflits ne manquent pas de surgir. Parfois, les gens s'entre-déchiraient dès leur rencontre. C’est pour cette raison que l'ancêtre de la famille Teng, Teng Huayuan, avait instauré une loi interdisant tout combat au sein de la cité. Il était strictement interdit à quiconque de se battre en ville. Dès que cet ordre fut promulgué, chacun s'y conforma, d'autant plus après que Teng Huayuan s'était déplacé personnellement, à plusieurs reprises, pour massacrer deux cultivateurs du stade de la Formation du Noyau.
 
-Ce jour-là, deux arcs-en-ciel traversèrent le ciel en direction de la ville de la famille Teng. L'un d'eux dit: « Wang Lin, le vol et les combats sont interdits dans la ville de la famille Teng, nous pouvons donc nous arrêter ici. »
+Ce jour-là, deux arcs-en-ciel traversèrent le ciel jusqu'aux abords de la ville de la famille Teng. L'un d'eux dit: « Wang Lin, le vol et les combats sont interdits dans la ville de la famille Teng, nous pouvons donc nous arrêter ici. »
 
 Il s'agissait de Wang Lin et Zhang Hu.
 

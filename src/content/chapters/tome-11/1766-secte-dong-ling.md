@@ -38,7 +38,7 @@ Ces deux options étaient d'une tentation immense pour le Vieux Fantôme Zhan. S
 
 Pourtant, il refusait de laisser partir Wang Lin! Il voulait faire d'une pierre deux coups et capturer les deux adversaires ici même!
 
-Cette hésitation ne dura qu'un instant avant que le Vieux Fantôme Zhan ne sorte de la brume. À ce moment-là, la voix rauque de Wang Lin résonna à travers les 300 mondes détruits en plein effondrement.
+Cette hésitation ne dura qu'un instant, le temps même où le Vieux Fantôme Zhan sortait de la brume. À ce moment-là, la voix rauque de Wang Lin résonna à travers les 300 mondes détruits en plein effondrement.
 
 « Vieux Fantôme Zhan, combien de flèches pensez-vous qu'il me reste? » lança Wang Lin d'un ton sombre tout en portant le fou et en se repliant dans le vortex. Même alors qu'il disparaissait, il fixait froidement le Vieux Fantôme Zhan.
 
@@ -72,7 +72,7 @@ Cette fleur était une fleur gelée!
 
 Les 300 mondes détruits constituaient la première fleur, et ce monde gelé était la deuxième! Peut-être les fleurs restantes étaient-elles endommagées ou dissipées, mais comme Wang Lin ne pouvait pas les voir, il ne pouvait que conjecturer.
 
-Les fameuses Huit Portes étaient cachées dans la dernière fleur. Wang Lin avait appris de la troisième âme que la clé pour ouvrir cette ultime fleur résidait dans les souvenirs de celle-ci.
+Les fameuses Huit Portes étaient cachées dans la dernière fleur. Wang Lin avait appris de la troisième âme que la clé pour ouvrir cette ultime fleur résidait dans les souvenirs de la troisième âme.
 
 Parmi les huit portes, sept étaient de faux-semblants et une seule était réelle. Cette porte menait au Continent Astral Immortel. Si elles se trouvaient sur la dernière fleur, c'était parce que la cinquième fleur servait de sceau à la porte.
 
@@ -92,7 +92,7 @@ Un instant plus tard, l'expression de Wang Lin changea brusquement et il tourna 
 
 Après un moment de réflexion, Wang Lin réprima ses blessures et se dirigea vers cette aura. Après le temps nécessaire pour brûler un bâton d'encens, il s'arrêta. Il laissa le vent glacial fouetter son visage en regardant devant lui.
 
-À 100 000 kilomètres de là se trouvait un autre monde gelé, où siégeait une femme aux longs cheveux. Elle faisait face à Wang Lin, et entre ses sourcils brillaient sept étoiles d'Ancien Dieu. Ces étoiles tournaient lentement, dégageant des vagues d'aura divine!
+À 100 000 kilomètres de là se trouvait un autre monde gelé, où siégeait, sur un rocher conique, une femme aux longs cheveux. Elle faisait face à Wang Lin, et entre ses sourcils brillaient sept étoiles d'Ancien Dieu. Ces étoiles tournaient lentement, dégageant des vagues d'aura divine!
 
 Une femelle Ancien Dieu!!
 

@@ -6,17 +6,17 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1747 - The Third Soul is Him!"
 slug: la-troisieme-ame-est-lui
 ---
-Le pêcheur était un homme d'environ trente ans. Il n'était pas imposant et paraissait plutôt frêle. Il ne ressemblait guère à un pêcheur, mais davantage à un érudit.
+Le pêcheur était un homme d'environ trente ans. Il n'était pas imposant et paraissait plutôt frêle. Il ne ressemblait guère à un pêcheur, mais davantage à un érudit, et son regard trahissait une certaine désinvolture.
 
-Il leva la main pour observer le poisson sur sa ligne. La lumière du soleil scintillait sur l'écaille de l'animal, lui conférant une apparence extraordinaire.
+Il leva la main pour observer le poisson sur sa ligne. La lumière du soleil scintillait sur le ventre de l'animal, lui conférant une apparence extraordinaire.
 
 L'homme sourit et déposa le poisson dans un récipient rempli d'eau, puis s'éloigna avec celui-ci.
 
-Wang Lin observa la scène, les spéculations emplissant son esprit. Après un moment de stupeur, il suivit l'homme. Ce dernier marcha un certain temps avant d'arriver devant une humble demeure nichée près de la rivière.
+Wang Lin observa la scène, les spéculations emplissant son esprit. Après un moment de stupeur, il suivit l'homme. Ce dernier marcha pendant environ le temps d'un bâton d'encens avant d'arriver devant une humble demeure nichée près de la rivière.
 
 La maison était entourée d'une cour délimitée par des bambous. Quelques volailles criaient en se disputant de la nourriture autour d'une femme enceinte.
 
-La femme portait des vêtements simples, qui ne parvenaient toutefois pas à dissimuler sa belle silhouette. Elle tenait un panier et en répandait le grain.
+La femme portait des vêtements simples, qui ne parvenaient toutefois pas à dissimuler sa beauté. Elle tenait un panier et en répandait le grain.
 
 Elle semblait fatiguée, une main soutenant le panier tandis que l'autre reposait sur sa hanche. Elle essuya la sueur de son front tout en scrutant la porte, attendant le retour de son époux.
 
@@ -40,11 +40,11 @@ La femme enceinte était allongée sur un lit à l'intérieur de la maison, lais
 
 Dehors, l'homme restait calme en contemplant la pluie, mais ses poings serrés trahissaient l'anxiété qui rongeait son cœur.
 
-Le temps s'écoulait lentement. La voix de la femme devenait de plus en plus faible, ce qui lui infligeait une douleur toujours plus vive. Pourtant, son expression ne changeait pas; au contraire, ses yeux s'illuminèrent alors qu'il fixait le ciel obscurci par l'orage.
+Le temps s'écoulait lentement. La voix de la femme devenait de plus en plus faible, ce qui lui déchirait le cœur davantage. Pourtant, son expression ne changeait pas; au contraire, ses yeux s'illuminèrent alors qu'il fixait le ciel obscurci par l'orage.
 
 « Moi, Xie Dongming, j'étudie depuis mon enfance. J'ai compris la raison des choses et connu toutes choses. Durant ma carrière, j'ai travaillé pour aider le peuple, et en partant, je n'ai laissé aucune rancœur derrière moi. En mes maigres trente-trois années de vie, je n'ai jamais rien fait dont je puisse avoir honte!
 
-« Ciel, maintenant que mon enfant est sur le point de naître, pourquoi rends-tu les choses si difficiles pour ma femme?! » La main droite de l'homme frappa le mur de bambou. Le sang coula de son doigt et tomba au sol avant d'être emporté par la pluie.
+« Ciel, maintenant que mon enfant est sur le point de naître, pourquoi rends-tu les choses si difficiles pour ma femme?! » La main droite de l'homme frappa le mur de bambou. Le sang coula de son doigt et tomba au sol, où il se dispersa en fins filaments avant d'être emporté par la pluie.
 
 Au moment même où le sang se mêla à l'eau, un coup de tonnerre déchira le ciel. Simultanément, le cri d'un nouveau-né retentit dans la pièce, et tout le corps de l'homme trembla. Son calme fit place à une excitation fébrile et il se retourna brusquement. La porte s'ouvrit sur la sage-femme qui, couverte de sueur mais arborant un sourire bienveillant, tenait un bébé dans ses bras.
 
@@ -54,7 +54,7 @@ L'homme s'approcha avec émotion de l'enfant, puis entra immédiatement dans la 
 
 La femme murmura doucement: « C'est un garçon. »
 
-« Su Er, repose-toi encore un peu, j'ai déjà trouvé un nom. Puisque c'est un garçon, il s'appellera Xie Qing! Je veux qu'il grandisse comme le bambou, qu'il s'élève haut vers le ciel et devienne un grand érudit! » L'homme éclata de rire.
+« Su Er, repose-toi encore un peu, j'ai déjà trouvé un nom. Puisque c'est un garçon, il s'appellera Xie Qing! Je veux qu'il grandisse comme le bambou, droit et d'une élégance hors du commun, qu'il s'élève haut vers le ciel et devienne un grand érudit! » L'homme éclata de rire.
 
 Alors qu'il riait, le bébé tenu par la sage-femme sembla cesser de pleurer. Il ouvrit les yeux, et une lueur mystérieuse sembla y briller.
 
@@ -96,15 +96,15 @@ Cependant, en observant le cycle de réincarnation de la troisième âme, il l'a
 
 « Ainsi, c'est vrai... je suis un poisson dans l'eau... » Wang Lin leva amèrement les yeux vers la lumière chaleureuse émanant de la maison. Il se remémora les paroles de Xie Qing et comprit.
 
-Pourquoi avait-il rencontré Su Dao, et pourquoi ce dernier l'avait-il guidé pour devenir le grand érudit non seulement de Zhao, mais de toute la planète Suzaku? Tout cela n'était que karma. Wang Lin pensait avoir accompli son karma, mais il réalisait que le karma était une chose que l'on pouvait percevoir sans jamais pouvoir la saisir!
+Pourquoi avait-il rencontré Su Dao dans le Dao du Rêve, et pourquoi ce dernier l'avait-il guidé pour devenir le grand érudit non seulement de Zhao, mais de toute la planète Suzaku? Tout cela n'était que karma. Wang Lin pensait avoir accompli son karma, mais il réalisait que le karma était une chose que l'on pouvait percevoir sans jamais pouvoir la saisir!
 
 « À l'époque, j'avais involontairement donné des conseils à Xie Qing et je l'avais pris pour disciple. Il était la troisième âme du Souverain Céleste aux Sept Couleurs. Cela a créé un lien entre nous; c'est là la cause karmique!
 
 « C'est aussi pour cette raison que Su Dao est apparu dans mon Dao du Rêve...
 
-« En réalité, il est mon disciple, et dans le Dao du Rêve, j'étais son disciple. Cela formait un cycle de karma! J'aurais dû y penser... » Wang Lin fit un pas. À l'instant où son pied toucha le sol, le monde trembla. Le ciel se brisa et la terre s'effondra comme si un dragon s'agitait dans les profondeurs. Tout se dissipa, ne laissant que la maison et la lumière douce et joyeuse qui en émanait.
+« En réalité, il est mon disciple, et dans le Dao du Rêve, j'étais son disciple. Cela formait un cycle de karma! J'aurais dû y penser... » Wang Lin fit un pas en arrière. À l'instant où son pied toucha le sol, le monde trembla. Le ciel se brisa et la terre s'effondra comme si un dragon s'agitait dans les profondeurs. Tout se dissipa, ne laissant que la maison et la lumière douce et joyeuse qui en émanait.
 
-Wang Lin fit un deuxième pas de recul. Dès que son pied toucha le sol, la demeure se déforma et d'innombrables ombres apparurent. Il devint impossible de savoir si c'était la maison ou le corps qui bougeaient, alors qu'ils devenaient progressivement flous, dévorés par les ténèbres.
+Wang Lin fit un deuxième pas de recul. Dès que son pied toucha le sol, la demeure se déforma et d'innombrables reflets se superposèrent. Il devint impossible de savoir si c'était la maison ou le corps qui bougeaient, alors qu'ils devenaient progressivement flous, dévorés par les ténèbres.
 
 La silhouette de Wang Lin devint elle aussi incertaine. Lorsqu'elle se clarifia, il se retrouva dans la première illusion.
 

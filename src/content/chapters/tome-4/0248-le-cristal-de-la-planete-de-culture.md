@@ -18,7 +18,7 @@ Mais pour l'instant, il n'avait récupéré que 30 % de sa force. Il n'était qu
 
 Toutes ces inquiétudes provenaient du fait que le niveau de culture minimum requis pour utiliser le Disque des Étoiles était celui de la Transformation de l'Âme.
 
-Cependant, ce n'était pas la raison principale. La véritable cause était qu'à l'intérieur de la matrice de transfert, il avait ressenti une puissance qui lui donnait la chair de poule. C'était une force qui lui était très familière.
+Cependant, ce n'était pas la raison principale. La véritable cause était qu'à l'intérieur de la matrice de transfert, il avait ressenti une puissance qui l'avait profondément ébranlé. C'était une force qui lui était très familière.
 
 Le jeune homme au regard maléfique laissa échapper un grognement. Il détourna les yeux de la rétribution divine pour fixer Wang Lin: « Cadet, remets-moi le sac de rangement et je laisserai tomber cette affaire », dit-il.
 

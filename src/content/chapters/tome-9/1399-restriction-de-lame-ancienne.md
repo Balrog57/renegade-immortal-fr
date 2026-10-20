@@ -24,11 +24,11 @@ Wang Lin se détourna. Sans un regard pour la femme ou Maître Simo, il s'enfon�
 
 Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé au Clan des Cours d'Eau et au Clan du Serpent de l'Âme n'était qu'un test destiné au Grand Empereur. Ce dernier était bien trop mystérieux; après lui avoir soudainement accordé de nombreux bénéfices, il ne pouvait s'empêcher de rester prudent.
 
-Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan du Dragon Blindé, quelques mois auparavant, suivait la même logique, tout comme celle des clans de River Creek et du Serpent de l'Âme. Ce n'était qu'en sondant sans cesse les limites de son interlocuteur que Wang Lin pourrait découvrir sa véritable nature!
+Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan du Dragon Blindé, quelques mois auparavant, suivait la même logique, tout comme celle des clans des Cours d'Eau et du Serpent de l'Âme. Ce n'était qu'en sondant sans cesse les limites de son interlocuteur que Wang Lin pourrait découvrir sa véritable nature!
 
-« Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan du Dragon Blindé, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela dépasse ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
+« Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan du Dragon Blindé, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela ne dépasse pas ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
 
-« Le Patriarche du Clan du Scorpion Noir n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
+« Le Patriarche du Clan des Scorpions Noirs n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
 
 Le messager fut surpris et hésita un instant. Le regard de Wang Lin balaya le serviteur, et ses pupilles se rétractèrent. Il pressentit vaguement que le messager utilisait une méthode spéciale pour transmettre un message à quelqu'un.
 
@@ -56,7 +56,7 @@ Après ses explications, le messager joignit les mains et dit: « Jeune Empereur
 
 Wang Lin n'avait pas l'intention de le retenir. Il joignit les mains à son tour: « Merci beaucoup! » La règle de conduite de Wang Lin avait toujours été de traiter autrui comme on le traitait lui-même. Puisque le messager s'était montré respectueux lors de leurs deux rencontres, il ne lui causerait aucun désagrément.
 
-« Le Jeune Empereur peut d'abord se familiariser avec la Planète du Grand Empereur. Demain, lorsque la Sélection des Anciens Délaissés commencera, quelqu'un viendra vous en informer. » Le messager s'inclina avant de disparaître au loin.
+« Le Jeune Empereur peut d'abord se familiariser avec la Planète du Grand Empereur. Demain matin, lorsque la Sélection des Anciens Délaissés commencera, quelqu'un viendra vous en informer. » Le messager s'inclina avant de disparaître au loin.
 
 Une fois l'homme parti, Wang Lin eut l'impression d'être le seul être vivant sur cette planète immense. Son regard resta un instant suspendu sur l'arène du nord-ouest avant qu'il ne se retire et disparaisse à son tour.
 
@@ -86,7 +86,7 @@ Le tonnerre tonna, les yeux de Wang Lin s'illuminèrent et le tatouage de foudre
 
 Les pupilles de Wang Lin se contractèrent et il prit une profonde inspiration. Quelle carapace? C'était manifestement une tortue gigantesque de 500 kilomètres de long!
 
-Une tête monumentale se trouvait sous la carapace du côté ouest de l'arène. On distinguait également les quatre pattes de la créature, ainsi qu'une queue s'étendant vers le côté est. En un instant, une tortue géante était apparue!
+Une tête monumentale se trouvait sous la carapace du côté ouest de l'arène. On distinguait également les quatre pattes de la créature, ainsi qu'une queue courte s'étendant vers le côté est. En un instant, une tortue géante était apparue!
 
 Une aura antique se propagea sur toute la planète! La tortue était grise et ses yeux étaient d'une clarté limpide. Lorsque Wang Lin s'approcha, elle poussa un rugissement!
 

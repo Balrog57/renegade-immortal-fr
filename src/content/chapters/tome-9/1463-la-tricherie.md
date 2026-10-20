@@ -8,7 +8,7 @@ slug: la-tricherie
 ---
 Le regard de Wang Lin devint sérieux alors qu'il fixait la brume devant lui. Celle-ci disparut progressivement, emportant la jeune fille vers une destination inconnue.
 
-« Intéressant… » murmura Wang Lin pour lui-même. Il regarda ensuite le symbole numérique qu'il avait pris sur elle. Il écarta la marque sur le côté et laissa la plateforme s'élancer vers l'avant. Après un long moment, il sortit une autre âme de diable ancien et la broya pour en extraire la puissance de diable ancien. Puis, il puisa davantage de puissance de démon ancien dans sa gourde et la fusionna avec sa propre puissance de dieu ancien. Sans hésiter, il porta ensuite sa main sur son propre front.
+« Intéressant… » murmura Wang Lin pour lui-même. Il regarda ensuite le symbole numérique qu'il avait pris sur elle. Il écarta la marque sur le côté et laissa la plateforme s'élancer vers l'avant. Après un long moment, il sortit une autre âme de diable ancien et la broya pour en extraire la puissance de diable ancien. Puis, il puisa davantage de puissance de démon ancien dans sa gourde et la fusionna avec sa propre puissance de dieu ancien et celle du diable ancien. Sans hésiter, il porta ensuite sa main sur son propre front.
 
 Un fracas tonitruant retentit. Le corps de Wang Lin trembla et son énergie originelle circula à une vitesse fulgurante. Il pâlit, mais ses yeux s'illuminèrent. À cet instant, les trois puissances formèrent un vortex entre ses sourcils, et une douleur aiguë, comme si quelque chose le transperçait, envahit son corps.
 
@@ -48,7 +48,7 @@ Wang Lin sourit en fusionnant une fois de plus les pouvoirs des trois clans pour
 
 En raison de la fréquence de ses actions, la brume environnante devint extrêmement intense et rugit violemment. Cependant, Wang Lin maîtrisait parfaitement la situation et ne laissa aucune chance à la brume de s'approcher.
 
-Grâce à cette méthode qui s'apparentait presque à de la triche, Wang Lin créa des centaines de symboles numériques qu'il fusionna avec sa plateforme.
+Grâce à cette méthode qui s'apparentait presque à de la triche, Wang Lin créa des centaines de symboles numériques en quelques heures, qu'il fusionna avec sa plateforme.
 
 Après avoir absorbé les runes de la plateforme du colosse du Clan du Loup Céleste, la plateforme de Wang Lin possédait déjà bien plus que ce qui était requis pour le rang 6. Maintenant que Wang Lin avait utilisé cette méthode presque perverse pour ajouter des runes supplémentaires, sa plateforme répondait aux exigences du rang 7!
 
@@ -62,13 +62,13 @@ Cette plateforme de 70 000 pieds était absolument stupéfiante. On aurait dit q
 
 Des éclats de lumière dorée, aussi brillants que le soleil, jaillirent de la plateforme, forçant la brume à reculer davantage. Certaines zones de brouillard, trop lentes à se retirer, furent frappées par la lumière dorée et se dissipèrent instantanément, comme évaporées.
 
-Une autre partie de la carte apparut dans l'esprit de Wang Lin! Cependant, son attention ne se porta pas sur la carte, mais sur la voix qui résonna dans sa tête pour la troisième fois!
+Une carte supplémentaire apparut dans l'esprit de Wang Lin! Cependant, son attention ne se porta pas sur la carte, mais sur la voix qui résonna dans sa tête pour la troisième fois!
 
 «...le palais terrestre est destiné aux âmes. Ce seigneur a tué trois Seigneurs Célestes et a emprisonné leurs âmes en son sein. J'avais initialement prévu de les raffiner pour en faire mes avatars, mais ceux qui viendront plus tard pourront s'en saisir. Toutefois, ces trois âmes sont extrêmement puissantes; si vous n'avez pas confiance en vous, ne les libérez pas... »
 
 « Ces trois âmes, de leur vivant, étaient toutes des figures illustres… »
 
-La voix se dissipa. L'esprit de Wang Lin trembla: il comprenait enfin ce que signifiait le palais terrestre mentionné la première fois! Il avait également une hypothèse au sujet de l'Épée Renhe.
+La voix se dissipa. L'esprit de Wang Lin se ranima: il comprenait enfin ce que signifiait le palais terrestre mentionné la première fois! Il avait également une hypothèse au sujet de l'Épée Renhe.
 
 Au moment où la plateforme de Wang Lin atteignit le rang 7, le Maître Démon Neuf Cieux, qui se trouvait dans la huitième carte et venait lui aussi d'atteindre le rang 7, se redressa. Il ouvrit les yeux et regarda en arrière.
 
@@ -110,6 +110,6 @@ La brume environnante recula comme en proie à la folie et toute la mer de brume
 
 Une plateforme de rang 8, la toute première plateforme de rang 8 parmi tous les occupants des lieux!
 
-Lorsque la plateforme de rang 8 apparut, la mer de brume tourbillonna violemment et fut repoussée. Des grondements tonitruants émanèrent de cette mer agitée et se propagèrent à toutes les zones des cartes.
+Lorsque la plateforme de rang 8 apparut, la mer de brume tourbillonna violemment et fut repoussée, comme un raz-de-marée. Des grondements tonitruants émanèrent de cette mer agitée et se propagèrent à toutes les zones des cartes.
 
 À cet instant, tous les cultivateurs du Tombeau de l'Ordre Antique ressentirent le changement violent qui s'opérait dans la brume autour d'eux!

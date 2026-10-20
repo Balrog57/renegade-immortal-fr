@@ -61,7 +61,7 @@ Le doigt de l'ancien dieu ne faiblit pas. Après avoir écrasé Cupidité, il se
 
 Quant à Cupidité, son visage était plus pâle que jamais et la lumière dorée qui l'entourait s'effondra. Les âmes des 9 999 empereurs disparurent soudainement et la couronne tomba de sa tête. Chose étrange: la couronne était parfaitement intacte après avoir encaissé le coup du doigt de l'ancien dieu.
 
-Une force dévastatrice s'engouffra dans le corps de Cupidité avec une violence folle. Son corps trembla, puis émit une lumière arc-en-ciel avant d'être projeté comme une météorite. On ignorait s'il était encore en vie lorsqu'il disparut parmi les étoiles.
+Une force dévastatrice s'engouffra dans le corps de Cupidité avec une violence folle. Son corps trembla, puis émit une lumière arc-en-ciel avant d'être projeté comme une météorite vers le bas. On ignorait s'il était encore en vie lorsqu'il disparut parmi les étoiles.
 
 Les yeux de Wang Lin étaient emplis de terreur. Alors que le doigt de l'ancien dieu s'abattait sur Cupidité, il n'avait pas cessé de courir pour fuir. Cependant, à cet instant, l'illusion du doigt de l'ancien dieu apparut soudainement derrière lui.
 
@@ -75,7 +75,7 @@ Wang Lin faillit perdre l'esprit. Ce doigt était trop rapide et se rapprochait 
 
 En un instant, près d'un million de filaments d'énergie de mise à mort apparurent, se transformant en sceaux de vie pour bloquer le doigt de l'ancien dieu!
 
-Tous les sceaux de vie s'effondrèrent comme de fragiles morceaux de papier. Peu importait la quantité d'énergie utilisée, tout était impuissant face au doigt de l'ancien dieu.
+Tous les sceaux de vie s'effondrèrent comme de fragiles morceaux de papier. Qu'ils aient ou non dissimulé une énergie de mise à mort, tous se brisèrent sous cette puissance inimaginable.
 
 Le visage de Wang Lin était livide, mais ses yeux ne trahissaient aucune panique. Il frappa son sac de stockage tout en reculant avec la garde céleste, et une seconde garde céleste apparut devant lui pour servir de bouclier.
 
@@ -91,11 +91,11 @@ Une douleur atroce irradia de sa poitrine pour se propager instantanément dans 
 
 D'abord sa chair, puis ses os se transformèrent en poussière et disparurent sans laisser de trace. Le doigt de l'ancien dieu avait détruit le corps de Wang Lin, mais il ne s'arrêta pas là: il s'attaqua ensuite à son âme originelle. Ce Serpent aux yeux de lune était résolu à l'anéantir totalement.
 
-À cet instant précis, Wang Lin ressentit soudain cette sensation qui, après avoir dévoré ce dragon de tonnerre ancien, l'avait empêché de laisser son âme originelle quitter son corps. C'était comme si une fine barrière le bloquait.
+À cet instant précis, Wang Lin ressentit soudain cette sensation qui, après avoir dévoré la moitié de ce dragon de tonnerre ancien, l'avait empêché de laisser son âme originelle quitter son corps. C'était comme si une fine barrière le bloquait.
 
 Malgré tous ses efforts, il ne pouvait franchir cet obstacle. Il semblait que son âme originelle avait perdu cette capacité; elle était confinée dans son corps, ce qui rendait l'usage de certains sorts impossible.
 
-Cependant, au moment où le doigt de l'ancien dieu s'approchait pour détruire son corps, il pulvérisa également cette barrière!
+Cependant, alors que son corps se désintégrait sous le doigt de l'ancien dieu, celui-ci pulvérisa également cette barrière!
 
 L'âme originelle de Wang Lin émit un éclair intense et se métamorphosa en un ancien dragon de tonnerre qui rugit face au doigt de l'ancien dieu.
 
@@ -157,8 +157,6 @@ Les yeux de Wang Lin brillèrent alors qu'il fonçait vers l'espace infini qui s
 
 Le Serpent aux yeux de lune regarda au loin, ses yeux immenses trahissant une hésitation. Après un long moment, son corps colossal commença à battre en retraite. Il semblait se souvenir que quelqu'un l'avait averti de ne pas s'aventurer ici.
 
-Cependant, ce souvenir était trop ancien et n'était plus qu'un flou total; seule cette sensation de crise imminente était si puissante qu'elle influençait encore son raisonnement.
-
 Il recula progressivement, ses tentacules oscillant d'avant en arrière tout en dégageant une pression terrifiante. En chemin, de nombreux cultivateurs remarquèrent le Serpent aux yeux de lune. Pourtant, ils n'eurent qu'un seul regard avant que leurs poils ne se hérissent et qu'ils ne tombent dans un état de choc total. Ils firent demi-tour et s'enfuirent, maudissant leur incapacité à s'échapper plus vite.
 
 Le Serpent aux yeux de lune s'arrêta à l'intérieur du périmètre des cinq planètes principales du domaine nord, et son corps commença à se replier lentement en une sphère. Ses innombrables tentacules se rétractèrent progressivement jusqu'à réintégrer son corps.
@@ -213,7 +211,7 @@ Malgré cela, cette petite planète procurait toujours à Wang Lin un sentiment 
 
 « Restons ici pour le moment. Une fois rétabli et mon corps reconstitué, j'irai explorer les profondeurs de ce lieu. »
 
-Wang Lin avait compris qu'après avoir dévoré l'ancien dragon de tonnerre, son âme originelle avait muté, rendant tous les sorts de foudre inefficaces contre lui. Tant que le tonnerre n'était pas d'un grade supérieur à celui du dragon ancien, il ne pouvait l'atteindre.
+Wang Lin avait compris qu'après avoir dévoré la moitié de l'ancien dragon de tonnerre, son âme originelle avait muté, rendant tous les sorts de foudre inefficaces contre lui. Tant que le tonnerre n'était pas d'un grade supérieur à celui du dragon ancien, il ne pouvait l'atteindre.
 
 Auparavant, lorsque son corps avait été détruit par le doigt du Dieu Ancien, la barrière qui emprisonnait son âme originelle dans son corps s'était brisée. Cependant, son âme était blessée et, contraint de fuir, il avait laissé ses blessures s'aggraver.
 
@@ -227,15 +225,15 @@ Ayant compris le karma, le cœur de Wang Lin s'apaisa. En contemplant la petite 
 
 À mesure qu'il avançait, le grondement du tonnerre résonnait dans son cœur. Les éclairs denses frappaient parfois Wang Lin, ce qui lui procurait un immense confort.
 
-Ce sentiment émanait de son âme originelle, comme si une main massait doucement son essence.
+Ce sentiment émanait de son âme originelle, comme si une main caressait doucement son essence.
 
 À ce moment précis, l'âme originelle de Wang Lin émit une lumière bleue et des décharges de tonnerre pénétrèrent son corps. En mouvement, une partie de son âme s'étendit vers l'os du Serpent aux yeux de lune, provoquant une série de craquements stridents.
 
-Pourtant, la garde céleste s'arrêta net. Ses yeux exprimèrent une hésitation rare, comme si elle éprouvait une terreur extrême face au tonnerre.
+Pourtant, la garde céleste s'arrêta net. Ses yeux exprimèrent une rare hésitation, comme si elle craignait quelque peu le tonnerre.
 
 Wang Lin se retourna, pensif.
 
-La garde céleste ne devrait pas craindre le tonnerre. Après tout, il avait utilisé son énergie originelle pour la raffiner; elle contenait donc en elle le pouvoir de la foudre. Elle avait combattu de nombreux ennemis utilisant le tonnerre sans jamais manifester une telle hésitation.
+La garde céleste ne devrait pas craindre le tonnerre. Après tout, il avait utilisé le souffle de son âme originelle pour la raffiner; elle contenait donc en elle le pouvoir de la foudre. Elle avait combattu de nombreux ennemis utilisant le tonnerre sans jamais manifester une telle hésitation.
 
 « Le tonnerre ici pourrait-il être différent? » Les yeux de Wang Lin se plissèrent alors qu'il examinait attentivement les éclairs environnants. Après un long moment, il eut une révélation.
 

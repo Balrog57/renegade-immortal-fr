@@ -12,7 +12,7 @@ Plus il se comportait ainsi, plus Ouyang Long se sentait intrigué. Il avait l'i
 
 Ouyang Long ne pouvait contraindre Wang Lin à répondre; il se contenta donc de sourire en secouant la tête. Il ne mentionna plus cette affaire et rappela plutôt à Wang Lin: « Cher cultivateur, ceci est une vente aux enchères privée. Selon les règles, ce que ces gens détestent par-dessus tout, ce sont ceux qui dissimulent leur identité. » Après cela, ils arrivèrent au bout du tunnel et il frappa plusieurs fois contre la porte de pierre.
 
-Un instant plus tard, la porte de pierre trembla et des ondulations se propagèrent en cercles à sa surface, comme si elle fondait. Ouyang Long jeta un dernier regard à Wang Lin avant de disparaître dans les reflets.
+Un instant plus tard, la porte de pierre trembla et des ondulations se propagèrent en cercles à sa surface, comme si elle fondait. Ouyang Long jeta un dernier regard à Wang Lin avant de disparaître dans les ondulations.
 
 Wang Lin réfléchit un instant et choisit de ne pas masquer son apparence. Puisqu'il avait osé venir, il n'avait pas peur de causer des troubles. Il franchit les ondulations et disparut à son tour.
 
@@ -50,11 +50,11 @@ Une fois qu'Ouyang Long eut fini de s'entretenir avec le vieil homme, il se redr
 
 Le vieil homme laissa échapper une toux sèche et son regard balaya les cultivateurs présents. Sa voix rauque résonna dans la pièce.
 
-« Aujourd'hui est une réunion privée que j'ai organisée, moi, Maître Pin Cendré. Tous les invités sont mes vieux amis et, bien sûr, nous avons également deux nouveaux amis parmi nous. Je ne m'embarrasserai pas de politesses inutiles. Selon les vieilles règles, fixons le premier pari pour le jackpot. » Dès que le vieil homme eut fini de parler, Ouyang Long s'avança immédiatement et sortit six morceaux de jade. Il les distribua à chacun, y compris à Wang Lin, et remit respectueusement le dernier au vieil homme.
+« Aujourd'hui est une réunion privée que j'ai organisée, moi, Maître Pin Cendré. Tous les invités sont mes vieux amis et, bien sûr, nous avons également deux nouveaux amis parmi nous. Je ne m'embarrasserai pas de politesses inutiles. Selon les vieilles règles, fixons le premier pari pour pimenter le jeu. » Dès que le vieil homme eut fini de parler, Ouyang Long s'avança immédiatement et sortit six morceaux de jade. Il les distribua à chacun, y compris à Wang Lin, et remit respectueusement le dernier au vieil homme.
 
 Wang Lin tint le jade et le parcourut de son Sens Divin. Il vit instantanément les informations concernant plus de cent bêtes féroces à l'intérieur.
 
-« Il y a même un Lion-Bête Épée! Ce vieux s'en portera pour parier sur cette bête! » Le vieil homme couvert de cicatrices éclata de rire. Son Sens Divin ajusta le jade, puis il le lança à Ouyang Long.
+« Il y a même un Lion-Bête Épée! Ce vieux mise sur cette bête! » Le vieil homme couvert de cicatrices éclata de rire. Son Sens Divin ajusta le jade, puis il le lança à Ouyang Long.
 
 Wang Lin examina calmement chaque bête féroce contenue dans le jade. Il n'était pas un expert en créatures sauvages; tout ce qu'il savait provenait des archives de la Secte de l'Origine, ce qui s'avérait insuffisant. La plupart des bêtes présentes ne figuraient pas dans les registres de sa secte.
 
@@ -106,7 +106,7 @@ Il s'agissait d'une plume rouge et d'une bulle de la taille d'une tête. Une âm
 
 Dès que ces deux objets furent présentés, tous les regards convergèrent vers eux. En voyant la plume rouge, Wang Lin fut secoué, mais il dissimula parfaitement son choc.
 
-« Le premier objet est la légendaire plume de l'Oiseau Vermillon. Bien qu'il soit difficile de confirmer sa véracité, l'énergie d'origine du feu qu'elle contient est puissante. Le second objet n'a pas besoin de présentation: c'est une âme de bête semi-brumeuse de rang 12. Je n'ai pas autant de règles que Maître Pin Cendré et j'accepterai tout échange, pourvu que l'objet me plaise. » Une fois son discours achevé, l'homme examina silencieusement l'assemblée.
+« Le premier objet serait la légendaire plume de l'Oiseau Vermillon. Bien qu'il soit difficile de confirmer sa véracité, l'énergie d'origine du feu qu'elle contient est d'une densité rare. Le second objet n'a pas besoin de présentation: c'est une âme de bête semi-brumeuse de rang 12. Je n'ai pas autant de règles que Maître Pin Cendré et j'accepterai tout échange, pourvu que l'objet me plaise. » Une fois son discours achevé, l'homme examina silencieusement l'assemblée.
 
 « Malheureusement, ce n'est qu'une demi-bête brumeuse... Quel dommage! » Wu Qing regarda la créature dans la bulle et secoua la tête avec un soupir.
 

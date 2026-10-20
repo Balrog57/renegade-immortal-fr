@@ -136,6 +136,6 @@ La main droite de Maître Simo trembla et une lutte intérieure se lut dans ses 
 
 « Nous pouvons lui rendre notre culture... Rentrons à la maison... D'accord... »
 
-À cet instant, à l'extérieur du Fourneau de l'Empereur, les yeux de Wang Lin brillèrent d'une lumière étrange. Ses mains formèrent des sceaux et il expira profondément. Ce souffle invisible retomba sur le Fourneau de l'Empereur avant de s'évanouir... « Sortilège Dao... Dao du Rêve... » Wang Lin avait créé trois sorts dans sa vie: la Nuit Brisée, le Temps Fluide... et enfin, le premier sortilège dao de sa vie, qu'il avait créé dans le Royaume Dao, au sein de la Perle Défiant le Ciel!
+À cet instant, à l'extérieur du Fourneau de l'Empereur, les yeux de Wang Lin brillèrent d'une lumière étrange. Ses mains formèrent des sceaux et il expira profondément. Ce souffle invisible retomba sur le Fourneau de l'Empereur avant de s'évanouir... « Sortilège Dao... Dao du Rêve... » Wang Lin avait créé trois sorts dans sa vie: la Nuit Brisée, le Temps Fluide... et enfin, le premier sortilège dao de sa vie, qu'il avait créé dans le Royaume du Dao, au sein de la Perle Défiant le Ciel!
 
 Le Dao du Rêve!

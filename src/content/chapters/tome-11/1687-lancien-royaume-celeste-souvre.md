@@ -90,7 +90,7 @@ Des rugissements fracassants jaillirent de la croix céleste. Finalement, la fai
 
 Une fois l'escalier manifesté, des silhouettes enveloppées d'une lumière dorée en sortirent avec enthousiasme. Rapidement, des dizaines de figures se précipitèrent hors de la faille.
 
-« Enfin libres!! »
+« Enfin sortis!! »
 « Maintenant que notre culture est rétablie, nous, les célestes, sommes revenus! »
 
 Des rugissements s'élevèrent de ces dizaines de silhouettes dorées. Chacune d'elles dégageait l'aura d'un cultivateur de la troisième étape! Cependant, ces auras différaient de celles des cultivateurs du monde des grottes; il était difficile de décrire précisément cette différence!

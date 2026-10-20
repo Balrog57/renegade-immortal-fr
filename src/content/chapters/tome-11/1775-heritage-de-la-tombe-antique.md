@@ -48,7 +48,7 @@ Le Vieux Fantôme Zhan avait rattrapé son retard!
 
 Tuo Sen réfléchit en silence et regarda Wang Lin. Sans mot dire, des bruits de craquements résonnèrent dans son corps. Il leva les yeux et serra les poings.
 
-« L'Oncle Ma interviendra aussi pour vous aider à gagner du temps », déclara Yun Yifeng avec un sourire amer en avalant une poignée de pilules. D'un revers de la main, il fit émaner des lueurs des cinq éléments de son corps, et une armure commença lentement à se matérialiser.
+« L'Oncle Ma interviendra aussi pour vous aider à gagner du temps », déclara Yun Yifeng avec un sourire amer en avalant une poignée de pilules. D'un geste de la main droite, il fit émaner des lueurs des cinq éléments de son corps, et une armure commença lentement à se matérialiser.
 
 Tang Shan agita sa main droite sans prononcer un mot. Sept portes dorées apparurent autour de chacun des présents. Elle prit une profonde inspiration et leva les yeux vers le ciel.
 

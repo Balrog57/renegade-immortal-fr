@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 376 - The last day of the new year
 slug: le-dernier-jour-de-lannee
 ---
-Un rayon de lumière verte filait au-dessus de la partie orientale de la planète Suzaku. Cependant, cet être ne volait pas avec son corps physique, mais par son âme originelle.
+Un rayon de lumière verte filait, rapide comme une étoile filante, au-dessus de la partie orientale de la planète Suzaku. Cependant, cet être ne volait pas avec son corps physique, mais par son âme originelle.
 
 Il était dans un état lamentable; trois marques de coups de poing marquaient son âme originelle, chacune émettant une lueur argentée.
 
-Cet individu était l'ancêtre du Clan des Démons Géants. Gravement blessé par l'enfant démon de Sun Tai, il avait dû s'enfuir sous forme d'âme originelle, emportant son sac de rangement. Il n'avait même pas eu le temps de se soucier du sort de Wang Lin.
+Cet individu était l'ancêtre du Clan des Démons Géants. Gravement blessé par l'enfant démon de Sun Tai, il avait dû s'enfuir sous forme d'âme originelle, emportant son sac de rangement. Il n'avait même pas eu le temps de capturer Wang Lin.
 
 Mais cet enfant démon était bien étrange; il ne prononçait jamais un mot et se contentait de le traquer sans relâche. Au cours des derniers mois, ils avaient presque fait le tour complet de la planète.
 
@@ -18,7 +18,7 @@ Durant cette poursuite, l'ancêtre du Clan des Démons Géants avait subi plusie
 
 Trop affaibli pour utiliser à nouveau son pouvoir de lignée, il avait finalement attiré l'enfant démon vers l'extrême nord. Là se trouvait une ancienne restriction en place depuis la fondation même de la planète Suzaku. Ce n'est qu'en piégeant l'enfant démon dans cet endroit qu'il avait pu prendre la fuite.
 
-Actuellement très faible, il ne souhaitait pas attirer l'attention et regagna rapidement le Clan des Démons Géants. Quant à savoir si Chi Hu et les autres membres du clan avaient survécu, il les avait déjà oubliés.
+Actuellement très faible, il ne souhaitait pas attirer l'attention et regagna rapidement le Clan des Démons Géants. Quant à savoir si Chi Hu et un autre membre du clan avaient survécu, il les avait déjà oubliés.
 
 Une fois de retour parmi les siens, il prit immédiatement possession d'un membre du clan pour entamer une culture en méditation profonde.
 
@@ -76,7 +76,7 @@ Quant à Wang Lin, il prit le jeton, vola le long de la montagne jusqu'à trouve
 
 Cette grotte n'était pas très vaste. Elle ressemblait beaucoup à celle qu'il utilisait autrefois au sein de la Secte Heng Yue. Elle ne contenait qu'un lit de pierre; il n'y avait même pas de table.
 
-Toutefois, l'énergie spirituelle y était extrêmement dense, plusieurs fois plus que l'extérieur. Elle était même légèrement supérieure à celle du puits du Village des Nuages de Feu, qui fonctionnait grâce à trois pierres spirituelles de qualité supérieure presque épuisées.
+Toutefois, l'énergie spirituelle y était extrêmement dense, plusieurs fois plus que l'extérieur. Elle était même légèrement supérieure à celle du bassin du Village des Nuages de Feu, qui fonctionnait grâce à trois pierres spirituelles de qualité supérieure presque épuisées.
 
 Bien que l'énergie libérée par des pierres de qualité supérieure soit facile à absorber, elle manquait de vigueur. C'était d'autant plus vrai pour les pierres sur le point de s'épuiser, qui n'avaient plus aucune vitalité. L'énergie spirituelle émanant de la veine spirituelle locale était bien meilleure.
 
@@ -120,12 +120,12 @@ En y pensant, un léger sourire apparut sur les lèvres de Wang Lin. Face au sol
 
 Il murmura pour lui-même: « Rescapé du désastre! » Jadis élevé dans les cieux, il avait été brutalement précipité vers la condition mortelle, mais sa détermination lui avait permis de surmonter l'épreuve.
 
-Ce n'est qu'aujourd'hui qu'il pouvait s'en lamenter et prononcer ces mots. En repensant à son parcours depuis la perte de sa culture, un sentiment complexe l'envahit.
+Ce n'est qu'aujourd'hui qu'il pouvait s'en lamenter et prononcer ces mots. En repensant à son parcours depuis la perte de son énergie spirituelle, un sentiment complexe l'envahit.
 
-Ce dernier jour de l'année représentait la chute de Wang Lin, mais demain, le premier jour de la nouvelle année, symbolisait d'infinies possibilités.
+Ce dernier jour de l'année représentait la chute de Wang Lin, mais demain, le premier jour de la nouvelle année, symbolisait le renouveau de toutes choses et d'infinies possibilités.
 
 Wang Lin chuchota: « C'est passé... »
 
-À cet instant, la silhouette gracieuse d'une femme vola lentement vers la Secte de l'Affinement de l'Âme dans la lumière du couchant.
+À cet instant, la silhouette gracieuse d'une femme se rapprocha lentement en volant, dans la lumière du couchant.
 
 Le regard de Wang Lin se fixa intensément. « Cette personne... me semble familière... »

@@ -22,7 +22,7 @@ Les deux cultivateurs réprimèrent la panique dans leurs cœurs. L'un d'eux dit
 
 « Je vous ai dit de massacrer la planète, pas d'admirer une statue! » Le garçon à la grosse tête les interrompit brutalement et son regard se fit glacial. Bien qu'il conservât ce sourire idiot, ses yeux étaient empreints d'une intention meurtrière.
 
-Le cultivateur s'apprêtait à répliquer quand son frère le tira en arrière. Il regarda le garçon à la grosse tête et dit respectueusement: « Seigneur Messager Céleste, vous devriez voir cette statue de vos propres yeux, alors vous comprendrez pourquoi nous sommes revenus! » Sur ce, il ne quitta plus le garçon des yeux et ramena son frère dans le groupe des cultivateurs.
+Le cultivateur s'apprêtait à répliquer quand son frère le tira en arrière. Il regarda le garçon à la grosse tête et dit respectueusement: « Seigneur Messager Céleste, vous devriez voir cette statue de vos propres yeux, alors vous comprendrez pourquoi nous sommes revenus! » Sur ce, il ne jeta plus un regard au garçon et ramena son frère dans le groupe des cultivateurs.
 
 Le garçon à la grosse tête les dévisagea d'un air sombre. Il fit un pas et se dirigea droit vers la planète Suzaku. À l'origine, il n'aurait jamais posé le pied sur une planète aussi délabrée. Lorsqu'ils rencontraient des mondes similaires, il envoyait toujours ses subordonnés pour les massacrer avant de partir.
 

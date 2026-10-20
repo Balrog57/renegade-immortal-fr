@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 653 - Powerful Puppet
 slug: une-puissante-marionnette
 ---
-Le raffinage se poursuivit. Plusieurs mois plus tard, à l'intérieur de la fissure, Wang Lin prit une profonde inspiration et aspira toute l'énergie originelle dans son corps.
+Le raffinage se poursuivit. Plusieurs mois plus tard, à l'intérieur de la fissure, Wang Lin prit une profonde inspiration et aspira toute l'énergie originelle qui flottait devant lui.
 
 C'était comme s'il venait de dévorer un nuage. Une fois l'énergie originelle absorbée, un corps desséché apparut devant lui. Cette silhouette dégageait une aura glaciale qui commença à se propager.
 
@@ -112,7 +112,7 @@ Wang Lin laissa échapper un rire, admirant profondément l'Empereur Céleste Qi
 
 Bien que l'âme originelle du gardien céleste, fusionnée avec son corps, ne puisse utiliser que peu de sorts et ne puisse égaler un véritable cultivateur du Yin et du Yang, il existait plusieurs techniques spécialement conçues pour les gardiens célestes! Les yeux de Wang Lin brillèrent.
 
-« De plus, j'ai préparé un cadeau pour ce gardien céleste! » La main droite de Wang Lin toucha le point entre ses sourcils et une vaste quantité de gaz gris en jaillit. Un million de filaments d'énergie de massacre pénétrèrent instantanément dans la marionnette.
+« De plus, j'ai préparé un cadeau pour ce gardien céleste! » La main droite de Wang Lin toucha le point entre ses sourcils et une vaste quantité de gaz gris en jaillit. Un million de filaments d'énergie du massacre pénétrèrent instantanément dans la marionnette.
 
 Les yeux de la marionnette dégagèrent soudainement une intention de massacre. Après quelques éclats, cette lueur s'estompa progressivement, mais ses yeux devinrent encore plus féroces.
 

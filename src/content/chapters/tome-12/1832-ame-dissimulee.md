@@ -65,7 +65,7 @@ Pavillon des Écritures de l'Âme.
 
 C’était la terre sainte de la Secte de la Grande Âme, où étaient conservés tous les sorts des générations passées. Bien que l'endroit paraisse calme, Wang Lin pouvait y déceler des pièges dissimulés; de nombreux pièges terrifiants.
 
-Après une courte réflexion, Wang Lin s'avança vers le pavillon. En approchant, il se tourna soudainement vers la statue de la bête féroce. Celle-ci ressemblait à un qilin, mais différait de celui-ci.
+Après une courte réflexion, Wang Lin s'avança vers le pavillon. En approchant, il se tourna soudainement vers la statue de la bête féroce à sa droite. Celle-ci ressemblait à un qilin, mais différait de celui-ci.
 
 Tandis que Wang Lin l'observait, la bête s'anima brusquement. L'espace environnant sembla se distordre et une voix résonna dans son esprit:
 
@@ -83,7 +83,7 @@ Une fois la statue redevenue immobile, une ouverture se forma dans le pavillon �
 
 L'expression de Wang Lin resta imperturbable alors qu'il franchissait l'ouverture. En pénétrant au premier étage du Pavillon des Écritures de l'Âme, il en découvrit le secret.
 
-C'était une salle d'environ 10 000 pieds de large où flottaient d'innombrables petits êtres de sept pouces. Leurs yeux étaient clos et ils demeuraient immobiles, mais chacun dégageait une puissance de culture impressionnante.
+C'était une salle de plusieurs dizaines de milliers de pieds de large où flottaient d'innombrables petits êtres de sept pouces. Leurs yeux étaient clos et ils demeuraient immobiles, mais chacun dégageait une puissance de culture impressionnante.
 
 Le regard de Wang Lin balaya ces milliers de silhouettes. Il y avait des hommes et des femmes, jeunes et vieux, mais sans exception, il ne s'agissait que de corps d'âme. Chaque âme contenait un type de sort spécifique.
 

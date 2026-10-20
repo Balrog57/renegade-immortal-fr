@@ -10,7 +10,7 @@ Le cœur de la cité ancestrale, le Palais Impérial Céleste!
 
 À l'aube, alors que le premier rayon de lumière perçait l'horizon pour chasser les ténèbres et révéler la splendeur du palais, les plus illustres cultivateurs de la ville et les hauts dignitaires commencèrent à affluer.
 
-La cérémonie de couronnement de l'Ascendant Empyréen aux Cheveux Blancs. Cet événement avait déclenché une véritable tempête dans la cité ancestrale sept jours auparavant!
+La cérémonie de titre de l'Ascendant Empyréen aux Cheveux Blancs. Cet événement avait déclenché une véritable tempête dans la cité ancestrale au cours des sept derniers jours!
 
 Cette année-là, quiconque en était digne avait entendu parler de l'Ascendant Empyréen aux Cheveux Blancs. Ce titre était devenu célèbre dans toute la cité ancestrale.
 
@@ -66,7 +66,7 @@ Ce palais était trop vaste. Wang Lin ne pouvait en voir la fin, mais il sentait
 
 L'homme qui avait parlé était le vieil homme en vert sorti du temple. Il observait Wang Lin au loin à travers les neuf portes.
 
-« Wang Lin, chaque Ascendant Empyréen recevra un titre de Sa Majesté, mais avant la cérémonie de couronnement, il doit subir une épreuve. Cette épreuve est constituée de ces neuf portes. Une fois que vous aurez franchi les neuf portes et que vous vous serez tenu devant moi, la cérémonie débutera! »
+« Wang Lin, chaque Ascendant Empyréen recevra un titre de Sa Majesté, mais avant la cérémonie de titre, il doit subir une épreuve. Cette épreuve est constituée de ces neuf portes. Une fois que vous aurez franchi les neuf portes et que vous vous serez tenu devant moi, la cérémonie débutera! »
 
 « À ce moment-là, Sa Majesté viendra personnellement vous nommer et le Maître Impérial viendra diviner votre destin! Toutes vos actions devant le Temple du Dao Céleste seront enregistrées et diffusées auprès de toutes les sectes des 72 continents! » Les paroles du vieil homme étaient empreintes de calme. Lorsqu'il eut fini, il ferma les yeux, ne lui accordant plus aucune attention.
 
@@ -84,7 +84,7 @@ Wang Lin marcha calmement vers la première porte. Sa progression était lente. 
 
 Au son de ce cri, une intention meurtrière monstrueuse jaillit de leurs corps. Ils convergèrent pour former une force indescriptible qui bombarda Wang Lin.
 
-Cette intention de tuer émanait des massacres auxquels ces 100 000 hommes avaient participé et était liée à leurs armures mêmes. Cette concentration d'énergie fit sentir à Wang Lin qu'il ne faisait pas face à neuf portes, mais à un véritable massacre céleste!
+Cette intention de tuer émanait des massacres auxquels ces 100 000 hommes avaient participé et était liée à leurs armures mêmes. Cette concentration d'énergie fit sentir à Wang Lin qu'il ne faisait pas face à neuf portes, mais à un tueur immortel du ciel et de la terre!
 
 Wang Lin fronça les sourcils!
 

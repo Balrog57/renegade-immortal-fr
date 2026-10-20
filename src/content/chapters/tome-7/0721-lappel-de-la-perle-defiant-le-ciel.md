@@ -74,7 +74,7 @@ Ne pouvant comprendre pour l'instant, Wang Lin décida de cesser d'y réfléchir
 
 « Les cinq énergies élémentaires de la perle défiant le ciel ont disparu et doivent être rassemblées à nouveau! » Wang Lin regarda autour de lui. Après ce qui venait de se passer, cette planète était totalement dévastée. Il n'y avait plus aucun intérêt à rester ici.
 
-« Malheureusement, ce lieu précieux a disparu, mais l'endroit qui apporte du confort à mon âme originelle se trouve plus profondément dans le champ d'astéroïdes. S'il y a davantage de tonnerre, je pourrai alors cultiver le sortilège d'origine du tonnerre. »
+« Malheureusement, ce lieu précieux a disparu, mais l'endroit qui apporte du confort à mon âme originelle se trouve plus profondément dans le champ d'astéroïdes. Mon corps étant rétabli, autant aller voir : s'il y a davantage de tonnerre, je pourrai alors cultiver le sortilège d'origine du tonnerre. »
 
 Une fois sa décision prise, Wang Lin s'élança. Il traversa la zone comme un éclair. La plupart des astéroïdes environnants n'étaient plus que poussière. Sans s'arrêter, il fit apparaître son char de guerre et la Bête du Tonnerre surgit.
 

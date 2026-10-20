@@ -88,7 +88,7 @@ Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait
 
 Wang Lin contempla la terre avant de faire un pas et de disparaître. Lorsqu'il réapparut, il se trouvait dans une vallée. Celle-ci était restée identique à son départ.
 
-« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan Immortel Délaissé. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste des haricots célestes en mon corps... Sinon, je pourrais étudier l'Arsenal Magique. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
+« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan des Immortels Délaissés. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste des haricots célestes en mon corps... Sinon, je pourrais étudier l'Arsenal Magique. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
 
 Dans le Système Stellaire de l'Alliance, il existait un système isolé où s'élevaient d'innombrables édifices noirs. Ces bâtiments, de styles variés, ressemblaient à de gigantesques épées plantées dans le vide.
 

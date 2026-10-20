@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 998 - Yao Xixues Hatred (1)
 slug: la-haine-de-yao-xixue-1
 ---
-À cet instant précis, le ciel au-dessus de la Terre des Esprits Démoniaques subit un changement stupéfiant. Des couches de vortex apparurent dans les cieux, comme si elles s'apprêtaient à les déchirer.
+À cet instant précis, le ciel au-dessus de la Terre des Esprits Démoniaques subit un changement stupéfiant. Des couches de vortex apparurent dans les cieux, comme si une force cherchait à déchirer ciel et terre. Vents et nuages se déchaînèrent, soulevant sable et pierres qui ravagèrent la terre.
 
 Ce bouleversement soudain sema la panique parmi les habitants de la Terre des Esprits Démoniaques, qui levèrent tous les yeux vers le ciel.
 
@@ -44,7 +44,7 @@ La Formation du Royaume Céleste!
 
 Grâce à cette formation, ainsi qu'à une méthode spéciale et un jeton, on pouvait accéder à l'une des cinq grottes célestes!
 
-Quatre des cinq grottes célestes de la Terre des Esprits Démoniaques avaient été découvertes. Quant à la cinquième, nul ne savait où elle se cachait. Seule l'ouverture des parties intérieures des quatre autres permettrait de révéler la cinquième.
+Quatre des cinq grottes célestes de la Terre des Esprits Démoniaques avaient été découvertes. Quant à la cinquième, nul ne savait où elle se cachait. Seule l'ouverture de la dernière couche des quatre autres permettrait de révéler la cinquième.
 
 La grotte céleste reliée à ce réseau de transfert était imprégnée d'énergie spirituelle céleste; rien de ce qui s'y trouvait n'était commun.
 
@@ -62,7 +62,7 @@ Pourtant, dès que le vortex apparut, il reposa son rouleau et regarda au loin. 
 
 L'homme sourit en jetant un regard tendre à la femme et dit: « Nous avons attendu si longtemps; j'espère que nous réussirons cette fois. »
 
-La femme s'assit à ses côtés, le regardant avec douceur avant de rire: « Nous avons planifié cela pendant une éternité. Tant que nous restons prudents, je suis convaincue qu'il n'y aura pas d'imprévu. »
+La femme s'assit à ses côtés, le regardant avec douceur avant de rire: « Nous avons planifié cela pendant si longtemps. Tant que nous restons prudents, je suis convaincue qu'il n'y aura pas d'imprévu. »
 
 Ils se sourirent mutuellement, et une tendresse conjugale, chaleureuse, emplit leurs cœurs. Même cette grotte vide ne semblait plus froide, comme si une chaleur s'en était propagée, tout simplement parce qu'ils étaient ensemble.
 
@@ -70,9 +70,9 @@ Ce couple de cultivateurs était celui qui n'avait jamais quitté la grotte depu
 
 « Comment va-t-il? » Wang Wei reprit le rouleau de bambou. Il était très beau et ne paraissait pas vieux du tout, comme un véritable jeune homme. Cependant, l'orgueil niché au fond de ses yeux témoignait de la gloire qu'il avait dû connaître il y a de cela d'innombrables années.
 
-Hu Juan eut un petit rire et répondit doucement: « Cet esprit d'épée est très déterminé. Il a déjà atteint le huitième niveau de la Méthode de l'Esprit Immortel que tu lui as transmise, et il est sur le point d'atteindre le neuvième. S'il n'y a pas d'imprévu, il devrait bientôt franchir cette étape. »
+Hu Juan eut un petit rire et répondit doucement: « Cet esprit d'épée est très déterminé. Il a déjà atteint le huitième niveau de la Méthode de l'Esprit Impérissable que tu lui as transmise, et il est sur le point d'atteindre le neuvième. S'il n'y a pas d'imprévu, il devrait bientôt franchir cette étape. »
 
-Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « Est-ce ainsi? Alors je ne l'ai pas aidé en vain... » En parlant, son regard s'assombrit et il secoua la tête. « Mais je reste perplexe. Qing Shuang ne serait-elle pas morte? Sinon, comment a-t-elle pu forger l'Épée Céleste de la Pluie et faire de lui un esprit d'épée... Malheureusement, il refuse de parler, et comme je ne veux pas blesser les sentiments de Qing Shuang, il serait délicat de fouiller dans ses souvenirs. »
+Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « Est-ce ainsi? Alors je ne l'ai pas aidé en vain... » En parlant, son regard s'assombrit et il secoua la tête. « Mais je reste perplexe. Qing Shuang ne serait-elle pas morte? Sinon, comment a-t-elle pu forger l'Épée Céleste de la Pluie et faire de lui un esprit d'épée... Malheureusement, il refuse de parler, et comme je ne veux pas abîmer ce qui appartient à Qing Shuang, il serait délicat de fouiller dans ses souvenirs. »
 
 Hu Juan murmura doucement: « Peut-être que la petite sœur Qing Shuang est encore en vie... »
 
@@ -96,7 +96,7 @@ Sous le pilier où siégeait la femme, s'étendait une mer d'aura de mort. Une p
 
 À chaque fois, le corps de la femme tremblait comme si elle subissait une douleur insupportable, mais elle serrait les dents pour l'endurer.
 
-« Wang Lin!!! Moi, Yao Xixue, j'ai dû subir toute cette douleur à cause de toi! Je déteste ne pas pouvoir dévorer ta chair pour venger mon père! Tant que je pourrai te tuer, qu'importe cette souffrance? Si je peux t'abattre, peu m'importe si je dois sacrifier ma beauté! » Les yeux de la femme étaient empreints d'une haine monstrueuse.
+« Wang Lin!!! Moi, Yao Xixue, j'ai dû subir toute cette douleur à cause de toi! Je donnerais tout pour pouvoir dévorer ta chair et venger mon père! Tant que je pourrai te tuer, qu'importe cette souffrance? Si je peux t'abattre, peu m'importe si je dois sacrifier ma beauté! » Les yeux de la femme étaient empreints d'une haine monstrueuse.
 
 Elle n'oublierait jamais le sentiment d'impuissance ressenti face au destin de son père lorsqu'elle était apparue seule dans la Terre des Esprits Démoniaques. Puis, une douleur fulgurante lui avait transpercé le cœur, lui indiquant par le lien de son sang que son père n'avait probablement pas survécu. À cet instant, sa haine envers Wang Lin avait atteint des sommets.
 

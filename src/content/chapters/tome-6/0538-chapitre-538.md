@@ -104,11 +104,11 @@ La voix du vieillard en robe blanche traversa la formation pour résonner jusque
 
 Wang Lin ouvrit les yeux et, d'un mouvement fluide, disparut. Lorsqu'il réapparut, il se trouvait à l'extérieur de la vallée; son regard froid se posa sur le vieillard en robe blanche.
 
-Wang Lin agita la main droite, et les six âmes primaires cessèrent de cracher des flammes pour tournoyer autour de lui.
+Wang Lin agita la main droite, et les six âmes primaires aspirèrent toutes ces flammes, puis tournoyèrent autour de lui.
 
 Privé de l'invasion des flammes, le vieillard en robe blanche serra les dents et s'avança. Il leva la main, faisant danser deux filaments d'énergie spirituelle démoniaque entre ses doigts, et déclara à Wang Lin: « Combattons! »
 
-« Tu n'es pas qualifié pour cela! » La main de Wang Lin s'étira, provoquant un changement soudain dans l'expression du vieillard. Les deux filaments d'énergie autour de ses doigts s'éteignirent instantanément.
+« Tu n'es pas qualifié pour cela! » La main de Wang Lin se referma dans le vide, provoquant un changement soudain dans l'expression du vieillard. Les deux filaments d'énergie autour de ses doigts s'éteignirent instantanément.
 
 Au même moment, le corps du vieillard fut projeté impuissant vers Wang Lin. L'instant d'après, Wang Lin le saisissait déjà par la gorge.
 
@@ -116,7 +116,7 @@ Alors que l'homme tentait de lutter, le regard de Wang Lin devint glacial et il 
 
 L'énergie spirituelle céleste de Wang Lin jaillit dans le corps du défunt pour piéger son âme. Celle-ci fut alors scellée à l'intérieur du Drapeau des Âmes d'un Milliard, devenant un nouveau fragment d'âme.
 
-Une fois cela accompli, il projeta le cadavre derrière lui. L'une des âmes primaires cracha aussitôt une flamme qui réduisit le corps en poussière.
+Une fois cela accompli, il projeta le cadavre derrière lui. L'une des âmes primaires cracha aussitôt une flamme qui réduisit le corps en cendres.
 
 Wang Lin tendit la main et déplaça la masse terrestre de cinq kilomètres vers une zone adjacente à la vallée, soulevant d'immenses nuages de poussière.
 

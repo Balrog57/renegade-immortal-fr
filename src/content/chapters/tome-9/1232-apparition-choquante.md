@@ -50,11 +50,11 @@ Tout cela se produisit en un éclair. Wang Lin émergea de la brume avec une exp
 
 En chemin, aucune autre bête féroce ne barra sa route. Il était évident que la bataille qui venait de se dérouler avait plongé les créatures dans une terreur extrême.
 
-Cependant, le mille-pattes bleu de dix mille pieds qui approchait était toujours furieux, mais il était simplement trop loin. Même à pleine vitesse, il lui faudrait encore beaucoup de temps pour rattraper sa proie. Tandis qu'il rugissait, le mille-pattes bleu devint fou et dense; un feu bleu apparut autour de lui. Puis, son corps se rétracta soudainement dans une série de craquements résonnant en son sein.
+Cependant, le mille-pattes bleu de dix mille pieds qui approchait était toujours furieux, mais il était simplement trop loin. Même à pleine vitesse, il lui faudrait encore beaucoup de temps pour rattraper sa proie. Tandis qu'il rugissait, le mille-pattes bleu devint fou furieux; un feu bleu épais l'enveloppa. Puis, son corps se rétracta soudainement dans une série de craquements résonnant en son sein.
 
 En un instant, un éclat bleu se propagea sur toute sa longueur de dix mille pieds. C'était comme si une force invisible avait ouvert une fissure du début à la fin de son corps.
 
-Au moment où cette lueur bleue fissurée en sortit, un mille-pattes plus petit, d'environ 8 000 pieds de long, s'élança. Sa vitesse décupla alors qu'il chargeait, enveloppé de flammes bleues.
+Au moment où cette lueur bleue fissurée en sortit, un mille-pattes plus petit, d'environ 8 000 pieds de long, s'élança. Sa vitesse augmenta de plusieurs fois alors qu'il chargeait, enveloppé de flammes bleues.
 
 Peu après, des fissures apparurent sur le mille-pattes de 8 000 pieds et un autre, de 6 000 pieds, s'échappa à son tour. Sa vitesse augmenta encore une fois.
 
@@ -92,7 +92,7 @@ Le mille-pattes poussa immédiatement un rugissement; sa partie supérieure se r
 
 Un grondement assourdissant résonna à travers le Royaume du Brouillard des Bêtes du Chaos, et le sens des bêtes de plusieurs spécimens de rang 12 se dirigea instantanément vers ce point. Cependant, à cet instant précis, une aura d'une puissance telle qu'elle choqua même Wang Lin émana des profondeurs du Royaume et supprima les autres bêtes de rang 12!
 
-Le fracas fut céleste lorsque les deux feux entrèrent en collision. L'Oiseau Vermillon poussa un cri de détresse avant de se replier dans le corps de Wang Lin. Dès son retour, Wang Lin s'envola au loin.
+Le fracas fut céleste lorsque les deux feux entrèrent en collision. L'Oiseau Vermillon poussa un cri chargé de regret avant de se replier dans le corps de Wang Lin. Dès son retour, Wang Lin s'envola au loin.
 
 La mer de feu devant le mille-pattes s'effondra instantanément et son corps explosa sous la pression du feu repoussé. La moitié de sa carcasse était un amas sanglant, mais il ne mourut pas. Il laissa échapper un sifflement misérable et se retira rapidement dans la brume qui se dissipait.
 

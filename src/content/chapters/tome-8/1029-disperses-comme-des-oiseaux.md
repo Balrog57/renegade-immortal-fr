@@ -66,13 +66,13 @@ Elle afficha une ultime fois un sourire misérable et se poignarda impitoyableme
 
 Wang Lin saisit la lumière verte et entendit son message instantanément.
 
-Elle fixa profondément la silhouette glaciale de Qing Lin alors qu'elle s'enfonçait dans le Bassin Funéraire Céleste. À cet instant, un silence absolu régna. Même les innombrables âmes sombrèrent avec elle dans l'abîme.
+Elle fixa profondément la silhouette glaciale de Qing Lin alors qu'elle s'enfonçait dans le Vortex Funéraire Céleste. À cet instant, un silence absolu régna. Même les innombrables âmes sombrèrent avec elle dans l'abîme.
 
 Seul le grondement du vortex en rotation subsistait. Le tourbillon descendit lentement, sur le point de disparaître dans le gouffre profond.
 
 En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Tatou Flétri exigeait l'aide du Clan du Tatouage, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
 
-« Si elle est si confiante, c'est que le Tatou Flétri ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie originelle à Luotian...
+« Si elle est si confiante, c'est que le Tatou Flétri ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie originelle, qu'il avait vu lors de son combat contre la famille Yao à Luotian...
 
 « Serait-ce possible...? » Ses yeux se plissèrent.
 
@@ -96,7 +96,7 @@ C'était un bassin noir de cent pieds de large, rempli de sang noir et dégagean
 
 Le Bassin Funéraire Céleste!
 
-D'innombrables bêtes féroces étaient sculptées autour du bassin noir, aux côtés de visages tordus par la souffrance. Dès son apparition, une aura terrifiante s'en dégagea. Dans le Royaume Spirituel Céleste, le ciel commença à se métamorphoser et le tonnerre gronda sur l'ancienne Terre des Esprits Démoniaques.
+D'innombrables bêtes féroces étaient sculptées autour du bassin noir, aux côtés de visages tordus par la souffrance. Dès son apparition, une aura terrifiante s'en dégagea. Dans le Royaume Céleste des Esprits, le ciel commença à se métamorphoser et le tonnerre gronda sur l'ancienne Terre des Esprits Démoniaques.
 
 Un bouleversement titanesque toucha même l'espace extérieur à la Terre des Esprits Démoniaques. Le vortex de la Mer des Esprits Démoniaques de l'Est se mit à tourner frénétiquement, aspirant l'énergie d'origine. Le tourbillon s'étendit avec une rage folle, engloutissant les cultivateurs qui passaient par là. Leurs corps s'effondrèrent instantanément et même leurs âmes d'origine ne purent s'échapper.
 
@@ -138,7 +138,7 @@ Après un long moment, l'onde de choc se dissipa, laissant le lieu en ruines, n'
 
 Le silence était total. Après un temps indéterminé, une personne lutta pour sortir du gouffre. Sa tête paraissait disproportionnée par rapport à son corps chétif, et ses yeux étaient encore empreints de terreur alors qu'elle émergeait.
 
-Derrière elle se trouvaient les trois frères Chen et tous ceux qui avaient été aspirés, à l'exception d'une disciple dont le corps s'était effondré, et du vieil Ancien Sun, qui avait perdu son Blaireau Marqué d'Étoiles. Tous les autres remontèrent.
+Derrière lui se trouvaient les trois frères Chen et tous ceux qui avaient été aspirés, à l'exception d'une disciple de la belle femme et du vieil Ancien Sun, qui avait perdu son Blaireau Marqué d'Étoiles. Tous les autres remontèrent.
 
 Ils contemplaient les environs en silence, la peur ancrée dans leurs cœurs.
 

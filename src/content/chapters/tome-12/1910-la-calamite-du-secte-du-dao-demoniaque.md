@@ -42,7 +42,7 @@ Dès que les deux bras colossaux saisirent le brouillard, ils le déchirèrent s
 
 Cela provoqua un fracas qui ébranla le monde entier. Le brouillard fut littéralement scindé en deux par les deux bras géants surplombant la Secte du Dao Démoniaque!
 
-Dans un tumulte de tonnerre, les deux moitiés du brouillard furent écartées par les bras gigantesques. Cela permit aux derniers rayons du soleil de briller sur la Secte du Dao Démoniaque, désormais dépourvu de toute protection!
+Dans un tumulte de tonnerre, les deux moitiés du brouillard furent écartées par les bras gigantesques. Cela permit à des rayons de soleil fragmentés de briller sur la Secte du Dao Démoniaque, désormais dépourvu de toute protection!
 
 Cette scène fut contemplée par les quelque 30 000 cultivateurs de la Secte du Dao Démoniaque. Tous fixaient l'horizon, stupéfaits. Leurs cœurs tremblaient et une terreur pure les saisissait.
 
@@ -70,7 +70,7 @@ Les quelque 30 000 cultivateurs de la Secte du Dao Démoniaque semblaient en avo
 
 « M’avez-vous oublié... mais moi, je me souviens de vous... » Wang Lin se tenait dans les airs, son regard balayant la foule en contrebas avant de se poser sur l'île située au loin, dans le lac.
 
-Après avoir parlé, il agita sa main droite et écarta la robe qui couvrait son visage, révélant ses cheveux blancs et son visage impassible. Il plongea son regard vers la multitude.
+Après avoir parlé, il leva sa main droite et écarta la robe qui couvrait son visage, révélant ses cheveux blancs et son visage impassible. Il plongea son regard vers la multitude.
 
 « Cela ne fait qu'un peu plus de cent ans. Vous devriez tous vous souvenir du massacre près du Continent de la Terre Meng. Me reconnaissez-vous enfin?! »
 

@@ -81,7 +81,7 @@ Li Yuan prit une grande inspiration. Il devina vaguement l'intention de Wang Lin
 
 Si Wang Lin avait été seul, il aurait pu secouer la montagne, mais pas la briser. Cependant, le garde céleste était différent. Son corps était d'une robustesse extrême et, après ce coup, les tremblements de la montagne s'intensifièrent.
 
-Dans la vallée, les yeux de Wang Lin étaient injectés de sang alors qu'il agrippait la paroi pour la soulever. Parallèlement, le garde céleste subissait une pression accrue. Il enfonça ses mains dans la roche et souleva la montagne de plusieurs mètres!
+Dans la vallée, les yeux de Wang Lin étaient injectés de sang alors qu'il agrippait la paroi pour la soulever. Parallèlement, le garde céleste subissait une pression accrue. Il enfonça ses mains dans la roche et souleva la montagne d'environ trois mètres!
 
 Le grondement fit vibrer toute la vallée et même l'espace de stockage commença à trembler. Le garde céleste souleva la montagne et se glissa dessous. Son corps émit un éclat doré tandis qu'il portait entièrement la masse sur son dos.
 
@@ -107,11 +107,11 @@ Quant au garde céleste, il avait trop puisé dans ses réserves. Il se mua en u
 
 Wang Lin et Li Yuan chargèrent tour à tour vers la troisième vallée. Ils se rapprochèrent de plus en plus jusqu'à arriver devant l'entrée.
 
-Le lieu était gravement endommagé. L'ouverture, initialement étroite, avait été forcée. D'innombrables éclairs de restriction scintillaient sans relâche. D'un coup d'œil, Wang Lin put distinguer un temple à l'intérieur de la vallée.
+Le lieu était gravement endommagé. L'ouverture, initialement étroite, avait été forcée et écartée en V. D'innombrables éclairs de restriction scintillaient sans relâche. D'un coup d'œil, Wang Lin put distinguer un temple à l'intérieur de la vallée.
 
 Ce temple n'était pas vaste, mais il était très délabré; la porte avait même disparu. Deux squelettes reposaient devant l'entrée, et l'un d'eux portait l'armure en cuir de l'Ancien Dieu!
 
-Quant au second squelette, il ne portait rien, mais une lueur dorée émanait de sa main droite, laquelle avait transpercé le crâne du premier. Le crâne était criblé de fissures; il était évident qu'il avait été broyé par cette saisie.
+Quant au second squelette, il ne portait rien, mais une lueur dorée émanait de sa main droite, laquelle s'était enfoncée dans le crâne du premier. Le crâne était criblé de fissures; il était évident qu'il avait été broyé par cette saisie.
 
 Bien qu'il n'ait pas assisté au combat, la simple vue de ces restes permettait d'imaginer l'âpreté du combat que ces deux-là s'étaient livré jadis.
 
@@ -153,7 +153,7 @@ Wang Lin s'approcha de la table et vit qu'une feuille était maintenue par un pr
 
 « Depuis que je suis devenu un Céleste, je n'ai jamais tremblé, même face à un Ancien Dieu. Pourtant, à cet instant, j'ai été saisi par la crainte et l'effroi. J'ai vu... ce qui ne devrait jamais être vu...
 
-« Alors que la plupart des Célestes combattaient, j'ai fui, mais une paire d'yeux me suivait... Je devais peindre ce que j'avais vu... »
+« Alors que les Célestes combattaient, j'ai fui, mais une paire d'yeux me suivait... Je devais peindre ce que j'avais vu... »
 
 L'écriture était devenue très brouillonne à la fin. On percevait aisément l'angoisse de l'auteur.
 

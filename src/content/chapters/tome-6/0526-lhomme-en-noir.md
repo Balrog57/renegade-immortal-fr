@@ -19,7 +19,7 @@ Les yeux de Wang Lin se plissèrent et les flammes démoniaques qui les habitaie
 
 Ouyang Hua se ragaillardit, puis vérifia chaque flacon avant de les ranger. Il était transporté par l'excitation.
 
-« Tu peux partir. Je dois cultiver ici. Demain à l'aube, je partirai de moi-même! » dit calmement Wang Lin. Il ne prêta plus attention à Ouyang Hua et se concentra sur le cristal d'esprit démoniaque qui s'était formé en lui.
+« Tu peux partir. Je dois cultiver ici. Demain à l'aube, je partirai de moi-même! » dit calmement Wang Lin. Il ne prêta plus attention à Ouyang Hua et, assis en tailleur, se concentra sur le cristal d'esprit démoniaque qui s'était formé en lui.
 
 Ouyang Hua hocha rapidement la tête, puis s'inclina respectueusement devant Wang Lin avant de s'éclipser.
 
@@ -39,13 +39,13 @@ Un éclair de lumière froide traversa les yeux de Wang Lin, et il se lécha les
 
 Le temps passa lentement et la nuit était désormais avancée. Bien que le feu brûlât encore, les villageois étaient rentrés chez eux.
 
-Seules les femmes et les enfants s'étaient retirés pour se reposer, tandis que tous les hommes, armés de divers outils et armes, s'étaient rassemblés à l'entrée de la vallée.
+Seules les femmes et les enfants s'étaient retirés pour se reposer, tandis que tous les hommes, armés de toutes sortes d'armes, s'étaient rassemblés à l'entrée de la vallée.
 
 Ouyang Hua figurait parmi eux. Son regard était d'une gravité extrême alors qu'il scrutait les environs.
 
 Peu après, il se retourna pour regarder la zone en forme de gourde située au plus profond de la vallée. C'était là que Wang Lin cultivait.
 
-« J'espère que cette formation pourra résister aux esprits démoniaques. Puisse le Céleste Suprême nous porter secours... » Ouyang Hua soupira. S'il avait invité Wang Lin dans la vallée, au-delà de l'impossibilité de l'en empêcher, c'était parce que la formation avait été gravement affaiblie. Il n'était pas certain qu'elle puisse encore tenir; c'est pourquoi il avait tout fait pour convaincre Wang Lin de rester, allant jusqu'à lui révéler de nombreux secrets et à lui céder, au prix de lourds sacrifices, l'unique cristal d'esprit démoniaque de la vallée, le cœur même de leur village.
+« J'espère que cette formation pourra résister aux esprits démoniaques. Puisse le Céleste Suprême nous porter secours... » Ouyang Hua soupira. S'il avait invité Wang Lin dans la vallée, au-delà de l'impossibilité de l'en empêcher, c'était parce que la formation avait été gravement affaiblie. Il n'était pas certain qu'elle puisse encore tenir; c'est pourquoi il avait tout fait pour convaincre Wang Lin de rester, allant jusqu'à lui révéler de nombreux secrets et à lui céder, au prix de lourds sacrifices, l'unique cristal d'esprit démoniaque de la vallée.
 
 Ouyang Hua avait un but précis: si le village était en péril, Wang Lin lui prêterait main-forte.
 
@@ -57,9 +57,9 @@ Au cœur de cette noirceur, une aura pourpre se dessinait, et des déferlantes d
 
 Cette vallée n'était pas leur cible, elle n'était qu'un lieu de passage.
 
-Tout en observant le ciel, Wang Lin afficha une expression déterminée. Il pressa sa main sur son front et son âme originelle s'extirpa de son corps. Elle s'élança hors de la vallée, franchit la formation et s'éleva directement dans les airs.
+Tout en observant le ciel, Wang Lin afficha une expression déterminée. Il pressa sa main sur son front et un fragment de son âme originelle s'extirpa de son corps. Elle s'élança hors de la vallée, franchit la formation et s'éleva directement dans les airs.
 
-L'âme originelle ne ralentit pas, fonçant vers l'origine des flux d'énergie démoniaque.
+L'âme originelle ne ralentit pas, fonçant vers le flot d'énergie démoniaque qui déferlait.
 
 À mesure qu'il approchait, la pression devenait écrasante. L'étendue de cette énergie était si vaste qu'il était impossible d'en percevoir les limites.
 

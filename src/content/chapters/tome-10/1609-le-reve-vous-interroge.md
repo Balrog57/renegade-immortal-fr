@@ -18,7 +18,7 @@ Wang Lin ferma les yeux. Après un long moment, il laissa échapper un soupir.
 
 « Dans toute ma vie, tous ceux que j'ai rencontrés dans mes rêves portaient en eux une pointe de familiarité... Zhou Rui était ainsi, Xu Fei était ainsi, Liu Mei était ainsi... »
 
-« Depuis dix-neuf ans que j'ai quitté Zhao, tous les cultivateurs que j'ai vus dans mon rêve m'ont inspiré ce même sentiment... »
+« Depuis dix-neuf ans que j'ai quitté Zhao, toutes les sectes où je suis allé et tous les cultivateurs vus dans mon rêve m'ont inspiré ce même sentiment... »
 
 « Seule elle, seule elle... »
 
@@ -32,23 +32,23 @@ L'expression tourmentée dans ses yeux s'intensifiait, mais il utilisait toujour
 
 Puis, un jour ou une année donnée, une montagne apparut devant lui!
 
-C'était un volcan éteint. Peut-être qu'autrefois, il rugissait et déversait d'infinis fleuves de lave. Mais désormais, il était mort. Le sol était parsemé de cratères et de roches noires éparpillées. Une aura de mort enveloppait la zone, et il n'y avait pas l'ombre d'une vie dans un rayon de centaines de kilomètres.
+C'était un volcan éteint. Peut-être qu'autrefois, il rugissait et déversait d'infinis fleuves de lave. Mais désormais, il était mort. Le sol était parsemé de cratères et de roches noires éparpillées. Une aura de mort enveloppait la zone, et il n'y avait aucun habitant dans un rayon de centaines de kilomètres.
 
 Wang Lin s'arrêta au pied de ce volcan mort. Il contempla la montagne avec stupeur et, après un long moment, la confusion dans ses yeux se brisa. Tout son corps trembla et il recula inconsciemment de quelques pas.
 
-« C'est donc ici... » Wang Lin connaissait cette montagne. C'était la même montagne qui entrait en éruption dans l'illusion qu'il avait vue au-dessus de la mer!
+« C'est lui... » Wang Lin connaissait cette montagne. C'était la même montagne qui entrait en éruption dans l'illusion qu'il avait vue au-dessus de la mer!
 
 Les deux fissures, telles deux dragons entrelacés, étaient des marques éternelles, inscrites jusque dans la mort. C'est ce qui permit à Wang Lin d'identifier cette montagne!
 
 Face à elle, Wang Lin ne pouvait plus se mentir ni occulter ce qu'il avait compris depuis longtemps. L'image de la mer se superposa à la réalité qu'il contemplait. L'illusion marine et la vérité devant lui fusionnèrent pour former une force invisible qui s'engouffra dans son corps. Son esprit gronda tandis que cette puissance balayait plus de cinquante ans de déni. Pour la première fois, il allait faire face à lui-même et au monde!
 
-« J'aurais dû comprendre dès lors... Mais je ne voulais pas y croire. Wang Lin, tout comme toi, je me suis également trompé, mais tu as oublié que je connais aussi l'art de la tromperie... Tu t'es menti à toi-même, mais peux-tu vraiment te soustraire à tes propres mensonges? » Wang Lin pointa le volcan mort du doigt et éclata de rire. Son rire était empreint d'une profonde tristesse.
+« J'aurais dû comprendre dès lors... Mais je ne voulais pas y croire. Wang Lin, tout comme toi, je me suis également trompé, mais tu as oublié que je connais aussi l'art de la tromperie... Tu t'es menti à toi-même, mais peux-tu vraiment te tromper toi-même? » Wang Lin pointa le volcan mort du doigt et éclata de rire. Son rire était empreint d'une profonde tristesse.
 
 « Elle était la seule... Elle n'avait aucun sentiment de familiarité envers moi, ce regard était étranger... Wang Lin, ah, Wang Lin, si le moi d'aujourd'hui est celui de ma vie passée et que le moi de ma prochaine vie doit être avec Li Muwan, alors voulais-tu que je revienne pour trancher mon karma avec elle... »
 
 « Si le moi d'aujourd'hui est une réincarnation, alors le moi au terme du cycle est censé effacer l'existence de Li Muwan. Pour la laisser partir afin que nous devenions de véritables étrangers... »
 
-« Si le moi d'aujourd'hui est un rêve et que le moi cultivateur dans ce rêve est la vie réelle, alors le moi qui dort veut-il que Li Muwan m'oublie dans le rêve à cause de sa propre douleur... »
+« Si le moi d'aujourd'hui est un rêve et que le moi cultivateur dans ce rêve est la vie réelle, alors le moi qui dort, par chagrin et par amour pour Li Muwan, veut-il qu'elle m'oublie dans le rêve... »
 
 « Est-ce tout cela pour l'avenir, pour le prochain cycle de réincarnation, ou pour le monde éveillé, où elle n'aura plus à endurer la douleur de l'attente, ne verra plus, impuissante, sa durée de vie s'épuiser, et ne vivra plus la vie d'un mort-vivant pendant plus de deux mille ans? »
 
@@ -70,7 +70,7 @@ Plus il comprenait, plus il percevait la nature du monde. Percevoir à travers l
 
 « Tu es Wang Lin, le Seigneur du Royaume Scellé. Ta culture défie les cieux et tu pouvais terrasser des cultivateurs de la troisième étape avant même d'atteindre ce stade. Tu as survécu à la calamité de la vie et de la mort et tu t'apprêtes à marcher vers le Dao suprême, puis à entrer dans le royaume du Vide des cultivateurs de la troisième étape! »
 
-« Mais je suis aussi Wang Lin. Bien que je n'aie pas cultivé, j'ai compris le monde et sa vérité. Je ne crains ni les dieux ni les démons. Même si tu es devant moi, et alors? »
+« Mais je suis aussi Wang Lin. Bien que je n'aie pas cultivé, j'ai compris le monde et sa vérité. Mon grand souffle fait trembler dieux et démons. Même si tu es devant moi, et alors? »
 
 « Tu t'es trompé toi-même et tu t'es immergé dans le monde que tu as façonné. Tu penses qu'en agissant ainsi avec la puissance des trois Fruits Dao, tu peux créer ton propre monde et ta propre réincarnation pour perpétuer ces cycles de karma indéfiniment! »
 

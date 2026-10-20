@@ -26,7 +26,7 @@ Cette empreinte n'était pas seulement le quatrième sortilège original de Wang
 
 L'Empreinte du Karma intersecta ses essences de tonnerre et de feu, formant une succession d'anneaux. L'aura d'un cultivateur de la troisième étape éclata soudainement avec une intensité multipliée plusieurs fois.
 
-Les trois essences étaient complètes. Même si un cultivateur au sommet du Vide du Nirvana se trouvait ici, il lui serait difficile de bloquer une attaque à pleine puissance de Wang Lin! Bien qu'il soit ardu de compléter les essences, une fois accomplies, elles deviennent d'une puissance phénoménale!
+Les trois essences étaient complètes. Même si un cultivateur au sommet du Vide du Nirvana se trouvait ici, il ne pourrait résister à une attaque à pleine puissance de Wang Lin! Bien qu'il soit ardu de compléter les essences, une fois accomplies, elles deviennent d'une puissance phénoménale!
 
 Au moment où les trois essences se formèrent, un grondement sourd résonna, comme s'il provenait de l'au-delà du vide.
 
@@ -40,13 +40,13 @@ Ils encerclaient le dernier bastion du Vide Brillant, sous la conduite du Maîtr
 
 À leurs yeux, même s'ils se réfugiaient à Luotian, tout serait inutile!
 
-Lorsque l'armée du Royaume Extérieur massacrerait son chemin jusqu'à Luotian, où pourraient-ils fuir?
+Lorsque l'armée du Royaume Extérieur fondrait sur eux, où pourraient-ils fuir?
 
 S'ils devaient mourir, ils mourraient dans leur patrie. S'ils devaient combattre jusqu'au bout, alors ils combattraient jusqu'à la mort sur la terre natale du Seigneur du Royaume Scellé, la planète Suzaku!
 
 La statue du Seigneur du Royaume Scellé se dressait telle une montagne. Les cultivateurs du Vide Brillant affichaient des sourires comme s'ils avaient oublié la mort!
 
-Situ Nan était également présent. Il aurait dû partir pour Luotian avec Qing Lin, mais il était revenu en hâte. C'était la planète Suzaku, c'était la terre natale de son frère, c'était là que Wang Lin avait disparu. Lui, Situ Nan, ne pouvait accepter de partir seul.
+Situ Nan était également présent. Il aurait dû partir pour Luotian avec Qing Lin, mais il était revenu en hâte. C'était la planète Suzaku, c'était la terre natale de son frère, c'était là que Wang Lin avait disparu et trouvé la mort. Lui, Situ Nan, ne pouvait accepter de partir seul.
 
 « Et alors si je meurs? » sourit Situ Nan, ses cheveux blancs flottant au vent alors qu'il chargeait les cultivateurs du Royaume Extérieur dans sa robe pourpre. Au fil des ans, grâce à l'enseignement attentif de Qing Lin et à son talent prodigieux, il avait ouvert la Porte du Vide avec l'aide de ce dernier et était devenu un cultivateur de la troisième étape il y a 30 ans!
 
@@ -56,7 +56,7 @@ Parmi eux se trouvaient aussi le Maître Long Pan et le Maître Lu Fu.
 
 Après son réveil, le Maître Long Pan gardait un souvenir profond de Wang Lin et savait qu'il était le Seigneur du Royaume Scellé. Il savait que la planète Suzaku était la patrie de Wang Lin et que c'était là que ce dernier avait disparu.
 
-Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Zhong Xuan. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcane, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku.
+Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Zhong Xuan. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcane, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku d'un seul coup.
 
 Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'ancêtre de Luotian. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté en silence pour livrer un combat acharné!
 
@@ -100,7 +100,7 @@ C'est à ce moment précis qu'un grondement survint au-dessus de ce champ de bat
 
 Ce son paraissait antique, et l'aura qu'il dégageait fit changer les expressions de tous les présents.
 
-Une porte illusoire occupant tout le domaine stellaire apparut. Cette porte était d'une immensité indescriptible, au point que les cultivateurs ne semblaient être que des fourmis devant elle!
+Une porte illusoire occupant presque tout le domaine stellaire apparut. Cette porte était d'une immensité indescriptible, au point que les cultivateurs ne semblaient être que des fourmis devant elle!
 
 « La Grande Porte du Vide! »
 

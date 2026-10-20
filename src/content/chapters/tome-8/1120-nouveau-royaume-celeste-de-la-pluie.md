@@ -46,7 +46,7 @@ Sur ces mots, Qing Lin secoua la tête avec bienveillance. Il se leva et posa sa
 
 Soudain, une puissante force de succion émana de la main droite de Qing Lin, et un mince filet d'énergie céleste se détacha de Qing Shuang pour rejoindre sa paume.
 
-Ce n'était qu'une infime quantité, un simple filet. C'était si peu que même le maigre peu d'énergie céleste que Wang Lin possédait autrefois en contenait des milliers de fois davantage. Pourtant, ce filet d'énergie se changea en une lumière dorée éblouissante dans la main de Qing Lin.
+Ce n'était qu'une infime quantité, un simple filet. C'était si peu que même le maigre peu d'énergie céleste que Wang Lin possédait autrefois en contenait d'innombrables fois davantage. Pourtant, ce filet d'énergie se changea en une lumière dorée éblouissante dans la main de Qing Lin.
 
 Bien que cette lueur ne s'étendît pas à perte de vue, elle illumina tout le temple. Ce temple à la lumière verte n'était plus vert; il rayonnait d'un éclat doré comme un soleil.
 
@@ -94,7 +94,7 @@ Et si Wang Wei était heureux, Hu Juan l'était tout autant. Wang Lin enviait la
 
 En songeant au bonheur, le regard de Wang Lin s'égara vers l'horizon. Là-bas, un iceberg se dressait, entouré de nuages célestes. Qing Shuang se tenait au sommet.
 
-La personnalité de Qing Shuang était d'une froideur extrême, même envers son père, et elle parlait peu. Elle ne s'exprimait que légèrement avec Hu Juan. Après la reconstruction du royaume, elle avait utilisé son pouvoir pour créer cet iceberg et y vivait en retrait, n'autorisant personne à l'approcher.
+La personnalité de Qing Shuang était d'une froideur extrême, même envers son père, et elle parlait peu. Ce n'est qu'avec Hu Juan qu'elle parlait un peu plus. Après la reconstruction du royaume, elle avait utilisé son pouvoir pour créer cet iceberg et y vivait en retrait, n'autorisant personne à l'approcher.
 
 Pourtant, Wang Lin voyait clairement Zhou Yi assis au pied de l'iceberg, contemplant la silhouette floue au sommet. Il semblait veiller sur elle, tout comme il avait gardé le cadavre il y a deux mille ans.
 
@@ -106,7 +106,7 @@ Wang Lin restait assis là depuis trois jours. Outre le souvenir de la lumière 
 
 Son niveau de culture n'avait pas progressé après avoir quitté la mer de conscience de Qing Lin; il était toujours au stade initial du Purificateur du Nirvana. Cependant, une graine s'était formée en son corps. C'était une graine pour la troisième étape, pour la Loi et la poursuite du Dao.
 
-C'était le présent de Qing Lin.
+C'était la fortune que Qing Lin lui avait accordée.
 
 Autrefois, lorsque la Perle Défiant le Ciel s'était activée, Wang Lin avait aperçu la troisième étape derrière la porte, mais ce n'était qu'une vision... Qing Lin lui avait permis de ressentir les sorts d'un cultivateur de la troisième étape, ce qui était un trésor inestimable pour lui. Cela rendait sa voie plus limpide encore.
 

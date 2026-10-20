@@ -8,11 +8,11 @@ slug: en-route-vers-allheaven
 ---
 La Formation de la Vie et de la Mort avait évolué à partir du vortex pour se solidifier en une roue. Si elle restait immobile, la vie et la mort demeuraient immobiles. Si elle tournait, alors la vie et la mort s'inverseraient!
 
-Tandis que la roue géante pivotait, des grondements tonitruants semblèrent sourdre du lointain. Le son perça le vide pour atteindre la zone enveloppée de brume. Lorsque la roue s'anima, le destin de la vie et de la mort fut décidé.
+Tandis que la roue géante pivotait, des grondements tonitruants semblèrent sourdre du lointain. Le son perça le vide pour atteindre la zone enveloppée de brume. Lorsque la roue eut effectué un tour, le destin de la vie et de la mort fut décidé.
 
 Une pression colossale émana de la roue et s'abattit sur le continent qui se trouvait à mi-chemin du trou creusé par la Formation de Scellement du Royaume.
 
-Cette pression réprimait la vie et la mort elle-même. Elle était capable d'éroder les âmes et les âmes originelles de toutes choses, tangibles ou intangibles!
+Cette pression réprimait la vie et écrasait la mort. Elle était capable d'éroder les âmes et les âmes originelles de toutes choses, tangibles ou intangibles!
 
 Le continent trembla et d'innombrables fissures apparurent le long de ses lisières. L'effondrement se propagea rapidement depuis les bords du continent.
 
@@ -42,7 +42,7 @@ La gueule géante s'effondra dans un fracas assourdissant, ses débris se disper
 
 À cet instant, une force puissante jaillit de la roue et pénétra dans le corps du vieil homme. Il cracha un flot de sang et fut projeté violemment contre les ruines du temple.
 
-Des grondements tonitruants résonnèrent et de nouvelles fissures lacérèrent le continent. Un gouffre de 10 000 pieds de profondeur se forma là où le vieil homme avait atterri.
+Des grondements tonitruants résonnèrent et de nouvelles fissures lacérèrent le continent. Un gouffre de 10 000 pieds de diamètre se forma là où le vieil homme avait atterri.
 
 Au fond de la fosse, le corps du vieil homme était couvert de blessures et ses vêtements étaient trempés de sang. Il était extrêmement faible, et l'effroi dans ses yeux avait atteint son paroxysme. Il lutta pour tenter de se redresser.
 
@@ -102,7 +102,7 @@ Aujourd'hui, il ne restait plus 999 planètes, mais moins de 300!
 
 Tous les cultivateurs de la troisième étape qui menaient l'assaut étaient en dessous du stade du Vide Arcanique. Tous les cultivateurs du Vide Arcanique flottaient aux alentours, observant la scène d'un regard froid. Leur but était d'empêcher les cultivateurs du Royaume Intérieur de détruire la formation planétaire dans une tentative de destruction mutuelle!
 
-On comptait un total de cinq cultivateurs du Vide Arcanique du Royaume Extérieur ici. Trois d'entre eux étaient des concubines impériales célestes, dont deux avaient été impliquées dans la mort de Wang Lin. L'autre portait une robe violette et ressemblait à une femme noble.
+On comptait un total de cinq cultivateurs du Vide Arcanique du Royaume Extérieur ici. Trois d'entre eux étaient des concubines impériales célestes, dont deux avaient pris part à la crise de vie ou de mort de Wang Lin. L'autre portait une robe violette et ressemblait à une femme noble.
 
 De plus, Wang Lin connaissait également les deux autres cultivateurs du Vide Arcanique: c'étaient la vieille femme et le vieil homme en noir qui l'avaient attaqué lors de cette crise de vie ou de mort.
 

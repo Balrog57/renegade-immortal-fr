@@ -40,7 +40,7 @@ Et même si Zhou Yi ne devait plus exister, si un jour la femme en robe blanche 
 
 On pouvait dire que ces quatre Épées Célestes de la Pluie appartiendraient toujours aux esprits d'épée et à la femme en robe blanche, peu importe le temps qui passerait ou le nombre de réincarnations!
 
-Cependant, à cet instant précis, tout avait changé. Cette gifle avait été portée par Zhou Yi en tant qu'esprit d'épée et en tant qu'héritier de l'intention d'épée ancienne. Ce coup venait de briser l'empreinte placée sur l'épée au fil des âges immémoriaux.
+Cependant, à cet instant précis, tout avait changé. Cette gifle avait été portée par Zhou Yi en tant qu'esprit d'épée et en tant qu'héritier de l'intention d'épée ancienne. Ce coup venait de briser l'empreinte placée sur l'épée au fil d'innombrables réincarnations.
 
 En tant qu'esprit d'épée de cette génération, il était semblable à un empereur mortel. Il avait divisé une partie de son propre territoire pour la céder à jamais à Wang Lin.
 

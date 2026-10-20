@@ -58,7 +58,7 @@ En un éclair, des mois passèrent. Puis, l'aura d'essence d'eau jaillit du corp
 
 C'était là le véritable corps d'essence d'eau!!
 
-À ce moment précis, le corps d'essence semblait assoupi, dépourvu de toute volonté propre. Pourtant, dès que Wang Lin le souhaiterait, il pourrait en prendre le contrôle total!
+À ce moment précis, le corps d'essence semblait assoupi, dépourvu de toute volonté propre. Pourtant, dès que Wang Lin le souhaiterait, il pourrait en prendre le contrôle total et devenir une puissance capable de bouleverser le ciel et la terre!
 
 Mais il devait patienter!
 

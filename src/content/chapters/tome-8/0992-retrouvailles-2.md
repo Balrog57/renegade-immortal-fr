@@ -10,7 +10,7 @@ Tout en parlant, il recula et s'apprêta à partir.
 
 Les yeux des trois frères Chen étaient injectés de sang, en particulier ceux du Maître Yi Chen; on aurait dit que son cœur était déchiré. Bien que Ling Er fût une junior d'une génération différente, il la traitait comme sa propre fille. À cet instant, c'était comme s'il regardait un scélérat voler sa fille sous ses yeux.
 
-Il serra les dents, se tourna vers le palais où se trouvait Wang Lin et s'inclina. Sa voix, empreinte de chagrin et d'indignation, s'éleva bruyamment: « Frère Wang, je vous en prie, aidez ce vieil homme une dernière fois! »
+Il serra les dents, se tourna vers le palais où se trouvait Wang Lin et s'inclina. Sa voix, empreinte de chagrin et d'indignation, s'éleva bruyamment: « Frère Wang, je vous en prie, aidez ce vieil homme une fois! »
 
 Malheureusement, Wang Lin était totalement absorbé par le raffinage du cadavre, car il traversait l'instant le plus critique. Il n'avait déployé son Sens Divin qu'aux alentours du palais; ainsi, même s'il détectait ce qui se passait à l'extérieur, il ne pouvait se permettre aucune distraction.
 
@@ -22,7 +22,7 @@ Sur ces mots, il fit un pas et chargea vers le palais où se trouvait Wang Lin.
 
 Si Situ Nan n'était pas allé vers Wang Lin, le Maître Fu Fengzi ne serait pas apparu. Ce dernier était déjà blessé, il n'aurait donc jamais aidé les trois frères Chen. Cependant, maintenant que Situ Nan s'approchait de Wang Lin, il se sentait obligé d'agir!
 
-Les cultivateurs de son niveau voient la plupart des choses avec détachement. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort les deux fois, il n'éprouvait donc aucune rancune.
+Les cultivateurs de son niveau voient la plupart des choses avec détachement. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort au départ, il n'éprouvait donc aucune rancune.
 
 Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Fu Fengzi s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, le Maître Fu Fengzi apparut devant lui.
 
@@ -36,13 +36,13 @@ Alors que ce doigt était projeté, le ciel changea de couleur et une aura de mo
 
 Empruntant l'infime étincelle de vie qui apparaîtrait dans une terre saturée de mort, il permettait au Doigt des Enfers de contenir une trace ténue de vitalité!
 
-En conséquence, il créa son propre équilibre Yin et Yang, devenant un sort féroce qui fonça droit sur le Maître Fu Fengzi.
+En conséquence, il créa son propre équilibre Yin et Yang, devenant un sort féroce, un souffle de doigt enveloppé d'effluves mortels, qui fonça droit sur le Maître Fu Fengzi.
 
 Le Maître Fu Fengzi forma un sceau de ses mains et fit un geste ample. Une immense quantité d'énergie originelle se rassembla et entra en collision avec le Doigt des Enfers.
 
 Un fracas retentit, le corps du Maître Fu Fengzi trembla et il fut contraint de reculer de plusieurs dizaines de pieds. Cependant, le Doigt des Enfers ne fut nullement affecté et continua sa poursuite après une brève pause.
 
-Le mépris emplissait les yeux de Situ Nan lorsqu'il hurla: « Mutation des Enfers! »
+Le mépris emplissait les yeux de Situ Nan lorsqu'il hurla: « Transformation des Enfers! »
 
 À la suite de son cri, le vent des enfers se contracta rapidement et une aura destructrice se propagea avec frénésie.
 
@@ -62,9 +62,9 @@ Situ Nan allait prendre la parole quand un sifflement strident retentit depuis l
 
 « Bon sang... » Situ Nan voulut reculer, mais les restrictions étaient trop nombreuses. Elles se ruaient sur lui comme si elles ne pouvaient s'arrêter avant de l'avoir scellé!
 
-Situ Nan esquissa un sourire amer et décida simplement de ne pas battre en retraite. Il ouvrit les bras et un vortex géant apparut devant lui. Ce vortex tournait à une vitesse vertigineuse; d'un mouvement des bras, Situ Nan fit s'effondrer le tourbillon, envoyant des ondes de choc successives.
+Situ Nan esquissa un sourire amer et décida simplement de ne pas battre en retraite. Il ouvrit les bras et un vortex géant apparut devant lui. Ce vortex tournait à une vitesse vertigineuse; au moment où Situ Nan écarta violemment les bras, le tourbillon se mua en une onde arquée qui se déploya tout autour.
 
-Toutes les restrictions touchées par ces ondulations s'effondrèrent, et en un instant, elles furent toutes annihilées.
+Toutes les restrictions touchées par ces ondulations s'effondrèrent, et en un instant, elles se dissipèrent entièrement.
 
 Situ Nan allait parler quand son expression changea à nouveau, alors qu'une voix féminine aiguë jaillissait du palais. Ce cri perça les cieux et même Situ Nan ne put s'empêcher de reculer de quelques pas.
 
@@ -78,7 +78,7 @@ Au moment où Situ Nan pointa le doigt, l'anneau disparut, mais un instant plus 
 
 L'anneau se multiplia soudainement, passant de un à deux, de deux à quatre, et en un clin d'œil, devint une multitude d'anneaux piégeant la cible! Cependant, cette femme n'était pas ordinaire. Elle ouvrit la bouche pour cracher une paire de ciseaux qui tournèrent autour d'elle, tranchant les anneaux.
 
-Profitant de cet instant, Situ Nan cracha au sol avec un sourire amer: « Malédiction, quelle affaire! Le déluge emporte le temple du Roi-Dragon... Je n'ai pas reconnu quelqu'un que je connaissais... » Sur ce, il passa devant la femme et se dirigea directement vers le palais.
+Profitant de cet instant, Situ Nan cracha au sol avec un sourire amer: « Malédiction, quelle affaire! Le déluge emporte le temple du Roi-Dragon... » Sur ce, il passa devant la femme et se dirigea directement vers le palais.
 
 En s'approchant, ses mains formèrent un sceau et il pointa du doigt en riant: « Reçois mon Doigt du Tremblement de Montagne! » D'un geste, l'ombre d'une montagne majestueuse apparut derrière lui. Elle était si immense qu'elle semblait relier le ciel et la terre. Puis, cette ombre se condensa rapidement sur le doigt de Situ Nan.
 
@@ -100,12 +100,12 @@ Les deux hommes se contemplèrent dans les airs. Parfois, les frères n'ont pas 
 
 Tout ce qui s'était passé sur la planète Suzaku résonna presque simultanément dans leurs cœurs.
 
-« Doigt du Tremblement de Montagne! » rit Situ Nan en pointant Wang Lin de sa main droite. À cet instant, la planète entière trembla et les âmes des montagnes s'envolèrent. Une illusion enveloppa Situ Nan.
+« Doigt du Tremblement de Montagne! » rit Situ Nan en pointant Wang Lin de sa main droite. À cet instant, la planète entière trembla et les âmes des montagnes s'envolèrent. Une illusion apparut derrière Situ Nan.
 
 Des montagnes apparurent autour de lui; il y en avait des centaines, voire des milliers. Situ Nan avait, de manière inattendue, invoqué toutes les âmes de montagne de la planète. Elles apparaissaient comme des mirages d'un réalisme saisissant.
 
 Alors qu'il pointait le doigt, ces âmes de montagne dégageaient des auras ancestrales qui se rassemblèrent promptement! Elles se condensèrent en une force colossale qui fonça vers Wang Lin.
 
-Ce doigt était un sort puissant capable de rassembler toutes les âmes de montagne de la planète Esprit d'Eau!
+Ce doigt était la technique la plus puissante, née de la fusion de toutes les âmes de montagne de la planète Esprit d'Eau!
 
 La puissance de ce Doigt du Tremblement de Montagne fit briller une lueur mystérieuse dans les yeux de Wang Lin. Il serra le poing et le ciel gronda, comme si Wang Lin tenait la voûte céleste entre ses mains.

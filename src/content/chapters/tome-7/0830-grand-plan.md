@@ -62,7 +62,7 @@ Heureusement, elle n'avait blessé personne. Lorsqu'elle était arrivée près d
 
 Cependant, les cultivateurs du Domaine Nord savaient qu'il ne s'agissait pas d'une planète de culture et qu'il ne fallait point la provoquer. Même en passant à proximité, ils faisaient un large détour, n'osant pas poser le pied sur ce monde.
 
-Un brouillard noir et dense enveloppait progressivement la planète, dégageant une aura glaciale. Au cours des dernières années, cet endroit était devenu une véritable zone interdite du Domaine Nord!
+Un brouillard noir et dense enveloppait progressivement la planète, dégageant une aura sinistre. Au cours des dernières années, cet endroit était devenu une véritable zone interdite du Domaine Nord!
 
 C'était le Serpent aux yeux de lune d'autrefois!
 

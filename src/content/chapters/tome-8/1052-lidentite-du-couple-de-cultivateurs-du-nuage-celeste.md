@@ -8,11 +8,11 @@ slug: lidentite-du-couple-de-cultivateurs-du-nuage-celeste
 ---
 « Wang Lin salue le Senior. Comment aurais-je pu oublier la promesse que j'ai faite? Peu importe le danger de cet endroit, je ramènerai le corps de Qing Shuang! » Voir Zhou Yi émut Wang Lin. Zhou Yi était l'un des rares bienfaiteurs qu'il ait connus, et quel que soit le niveau de culture que Wang Lin atteindrait, il resterait toujours respectueux envers lui.
 
-Zhou Yi afficha une expression mélancolique en regardant Wang Lin et secoua la tête. « Il n'est pas nécessaire de m'appeler "Senior" quand nous sommes seuls. Si cela ne te dérange pas, appelle-moi simplement "Grand Frère Zhou". » Les yeux de Zhou Yi se rétrécirent soudainement et il scruta attentivement Wang Lin.
+Zhou Yi afficha une expression satisfaite en regardant Wang Lin et secoua la tête. « Il n'est pas nécessaire de m'appeler "Senior" quand nous sommes seuls. Si cela ne te dérange pas, appelle-moi simplement "Grand Frère Zhou". » Les yeux de Zhou Yi se rétrécirent soudainement et il scruta attentivement Wang Lin.
 
 « Qui t'a blessé si gravement?! Ton âme originelle est vacillante, et parce que ta récupération est trop lente, cela engendrera davantage de dangers cachés à l'avenir! » Un frisson passa dans l'expression de Zhou Yi.
 
-Wang Lin eut un sourire amer et expliqua simplement la situation à Zhou Yi. Il ne mentionna pas l'origine et parla seulement du réveil de l'Oiseau Vermillon. Ce n'était pas que Wang Lin ne faisait pas confiance à Zhou Yi, mais la question de l'origine était tout simplement trop importante.
+Wang Lin eut un sourire amer et expliqua simplement à Zhou Yi ce qui s'était passé avec le Maître du Vide. Il ne mentionna pas l'origine et parla seulement du réveil de l'Oiseau Vermillon. Ce n'était pas que Wang Lin ne faisait pas confiance à Zhou Yi, mais la question de l'origine était tout simplement trop importante.
 
 « Maître du Vide! » Une lueur froide brilla dans les yeux de Zhou Yi, et une pointe de culpabilité apparut dans son regard envers Wang Lin.
 
@@ -20,7 +20,7 @@ Wang Lin eut un sourire amer et expliqua simplement la situation à Zhou Yi. Il 
 
 « Tu es probablement venu pour les pilules ici, bien que la plupart aient déjà été prises par le couple de cultivateurs du Nuage Céleste. Les seules qui restent sont celles qui sont utiles aux corps spirituels. Ils ne les ont pas prises car leur méthode de stockage est très complexe. » Alors que Zhou Yi parlait, il changea soudainement de sujet: « Mais ne t'inquiète pas, je trouverai un moyen de t'obtenir ces pilules! »
 
-Une fois son discours terminé, Zhou Yi se transforma en un rayon d'énergie d'épée et s'élança hors des restrictions de la salle d'alchimie. Il apparut dans les airs et joignit ses mains: « Seniors du Nuage Céleste, cet homme est un vieil ami. Veuillez m'offrir quelques pilules! »
+Une fois son discours terminé, Zhou Yi se transforma en un rayon d'énergie d'épée et s'élança hors des restrictions de la salle d'alchimie. Il apparut dans les airs et joignit ses mains: « Seniors du Nuage Céleste, cet homme est un vieil ami. Veuillez vous montrer et m'offrir quelques pilules! »
 
 Un rire parvint de loin. Une lueur jaillit de la forêt pourpre voisine, et Wang Wei et Hu Juan en sortirent. Les deux marchèrent lentement, mais étrangement, il ne leur fallut que trois pas pour atteindre la salle d'alchimie.
 
@@ -44,7 +44,7 @@ Wang Wei lança un regard significatif à Zhou Yi avant de tendre à nouveau sa 
 
 Wang Lin prit les bouteilles et les scruta avec son sens divin. L'énergie spirituelle céleste à l'intérieur de ces flacons était monstrueuse, bien supérieure aux six bouteilles de pilules Célestes Rassembleuses obtenues précédemment.
 
-Zhou Yi fronça à nouveau les sourcils, apparemment toujours insatisfait, et cessa de joindre les mains. « Puisque le Senior connaît l'Esprit d'Épée Céleste de la Pluie, je présume que vous connaissez également la Seigneur Céleste de la Pluie, Qing Shuang! »
+Zhou Yi fronça à nouveau les sourcils, apparemment toujours insatisfait, et cessa de joindre les mains. « Puisque le Senior connaît l'Esprit d'Épée Céleste de la Pluie, je présume que vous connaissez également le Seigneur Céleste de la Pluie, Qing Shuang! »
 
 Les yeux de Wang Wei se rétrécirent soudainement. Sans poser de question, il sortit trois autres bouteilles de la fissure. Il ne les présenta pas et les jeta directement à Wang Lin.
 
@@ -52,7 +52,7 @@ Wang Lin les attrapa et, après les avoir scannées, son expression changea. L'�
 
 « Le Junior s'est autrefois épris d'un cadavre féminin dans le Royaume Céleste de la Pluie. J'ai construit une pagode de jade céleste pour conserver ce corps afin d'empêcher sa décomposition et lui permettre d'exister éternellement... » Les yeux de Zhou Yi étaient empreints de nostalgie alors qu'il se remémorait le passé.
 
-«... Plus tard, j'ai découvert que ce n'était pas Ting Er, mais la Seigneur Céleste Qing Shuang! »
+«... Plus tard, j'ai découvert que ce n'était pas Ting Er, mais le Seigneur Céleste Qing Shuang! »
 
 L'expression de Wang Wei changea. Il craignait de détruire l'esprit en utilisant la recherche d'âme, c'est pourquoi il s'était retenu de poser des questions. Cependant, en entendant ce récit, une vague de trouble parcourut son cœur.
 

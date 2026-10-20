@@ -36,7 +36,7 @@ Les 10 000 âmes originelles se placèrent sous la roue géante, devenant les es
 
 Ils firent tourner la roue une première fois!
 
-Les cieux et la terre se brisèrent. Les planètes formant la structure planétaire commencèrent à s'effondrer. Toute vitalité sembla être aspirée de l'espace, laissant place à un vide absolu d'aura. Près de 30 % des corps des centaines de milliers de cultivateurs du Royaume Extérieur s'effondrèrent et périrent instantanément.
+Les cieux et la terre se brisèrent. Les planètes de la formation planétaire commencèrent à s'effondrer. Toute vitalité sembla être aspirée de l'espace, laissant place à un vide absolu d'aura. Près de 30 % des corps des centaines de milliers de cultivateurs du Royaume Extérieur s'effondrèrent et périrent instantanément.
 
 Après seulement un tour, les 10 000 âmes originelles qui avaient poussé la roue devinrent ternes; elles n'avaient plus la force de la faire pivoter une seconde fois. À ce moment précis, tous les cultivateurs du Royaume Intérieur se retirèrent pour s'asseoir; même Mu Bingmei fit de même. Lorsqu'ils s'assirent, leurs âmes originelles s'envolèrent vers l'énorme roue. Ensemble, ils poussèrent la roue, telle une force du destin, pour un second tour!
 

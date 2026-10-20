@@ -24,7 +24,7 @@ Le monde trembla lorsqu'un bras de bois gigantesque, d'une épaisseur de plus de
 
 Un grondement tonitruant retentit tandis que le sommet s'effondrait, dispersant d'innombrables fragments.
 
-« Il y a trois jours, le feu terrestre ici a changé. Ce cultivateur nommé Wang se cachait manifestement ici! Méprisable... j'ai utilisé toute ma vitesse et je suis quand même arrivé trop tard... » Une intention meurtrière brilla dans les yeux de Du Qing alors qu'il agit de ses manches.
+« Il y a trois jours, le feu terrestre ici a changé. Ce cultivateur nommé Wang se cachait manifestement ici! Méprisable... j'ai utilisé toute ma vitesse et je suis quand même arrivé trop tard... » Une intention meurtrière brilla dans les yeux de Du Qing alors qu'il agitait ses manches.
 
 « Dispersez-vous et continuez vos recherches. Je ne crois pas qu'il puisse échapper au Continent du Taureau Céleste! » Du Qing prit une profonde inspiration et serra le poing.
 
@@ -82,7 +82,7 @@ Cependant, Wang Lin ne lui laissa aucune chance. Il fit un pas en avant et une l
 
 « Âme du feu terrestre, tu ne connais toujours pas ta place! » Alors que l'Oiseau Vermillon dévorait sa proie, la voix puissante de Wang Lin résonna à travers le monde.
 
-Le corps du dragon trembla et sa tête en décomposition fut absorbée par l'Oiseau Vermillon. À mesure que l'absorption progressait, la terre tremblait et les couleurs du monde se transformaient. Le dragon entier se changea en une mer de feu que l'Oiseau Vermillon engloutit!
+Le corps du dragon trembla et sa tête brisée fut absorbée par l'Oiseau Vermillon. À mesure que l'absorption progressait, la terre tremblait et les couleurs du monde se transformaient. Le dragon entier se changea en une mer de feu que l'Oiseau Vermillon engloutit!
 
 Après avoir absorbé deux âmes de feu terrestre, le corps de l'Oiseau Vermillon s'était étendu sur des centaines de milliers de pieds, semblant recouvrir la voûte céleste.
 

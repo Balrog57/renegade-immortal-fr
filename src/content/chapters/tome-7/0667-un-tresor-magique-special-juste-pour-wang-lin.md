@@ -63,7 +63,7 @@ Wang Lin fut surpris et tourna le regard vers la jeune fille.
 
 Celle-ci se leva. Sa grande robe paraissait trop ample sur elle, mais son visage était empreint de gravité. En quelques pas, elle atteignit le point de contrôle de la formation. Elle dit avec urgence: « Pourquoi restes-tu là? Reviens! Cet homme est manifestement venu pour te causer des ennuis. Je suis responsable de la formation ici, je te protégerai. »
 
-Tout en parlant, elle frappa son sac de stockage et un jade apparut dans sa main.
+Tout en parlant, elle frappa son sac de stockage et un jade de message apparut dans sa main.
 
 Wang Lin l'observa attentivement et dit: « Tu n'es pas son égale. »
 

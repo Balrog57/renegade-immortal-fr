@@ -40,7 +40,7 @@ Ce n'était pas fini. En un instant, d'autres dragons de tonnerre apparurent et 
 
 « Le Royaume du Tonnerre Ancien sera la base de mon tatouage de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
 
-Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré l'tonnerre éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
+Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré le tonnerre éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
 
 Sans cela, comment aurait-il pu faire apparaître la Porte du Vide avec sa seule essence de tonnerre, puis réussir à l'entrouvrir?
 
@@ -52,7 +52,7 @@ Les neuf éclairs accompagnateurs formèrent une tempête de tonnerre capable de
 
 Le vent violet se mua en une tempête pourpre qui balaya le monde. Tandis que les innombrables disciples de la Flamme Joss s'inclinaient, elle se rapprocha!
 
-La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume du Tonnerre Ancien!
+La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume du Tonnerre Ancien, qui se répandit à travers les âges immémoriaux!
 
 *Grondement, grondement, grondement, grondement!*
 
@@ -88,7 +88,7 @@ Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir no
 
 Une seule feuille pour couvrir le ciel!
 
-La Feuille Ancienne survola instantanément le Maître Simo et se matérialisa aux côtés de son Royaume de Flamme Joss. Elle recouvrit la faille!
+La Feuille Ancienne traversa instantanément le Maître Simo et se matérialisa au-delà de son Royaume de Flamme Joss. Elle recouvrit la faille!
 
 « Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume de la Flamme Joss du Maître Simo, elle libéra une force de scellement colossale!
 

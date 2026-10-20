@@ -50,7 +50,7 @@ Quant à l'Ascendant Petit Enfant, son visage était pâle après tout ce qu'il 
 
 « Le 13e palais... Il ne pourra certainement pas le passer!! »
 
-Plus de vingt Ascendants étaient venus ici avec Pluie de Neige et ses compagnons. Éparpillés dans l'Épreuve Empyrée, ils observaient le ciel, témoins de cet événement historique!
+Plus de vingt autres Ascendants étaient venus ici, en plus de Pluie de Neige, de Petit Enfant et de leurs compagnons. Éparpillés dans l'Épreuve Empyrée, ils observaient le ciel, témoins de cet événement historique!
 
 « Je me demande s'il pourra franchir le 13e palais... »
 

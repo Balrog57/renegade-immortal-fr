@@ -206,7 +206,7 @@ Wang Lin vit alors clairement ce que ces lueurs cachaient: deux Âmes Naissantes
 
 Wang Lin et Qiu Siping agirent quasi simultanément. Wang Lin fut plus rapide et saisit l'Âme Naissante la plus puissante. Sans un mot, il s'élança hors de la grotte.
 
-Alors qu'il sortait, la caverne commença à s'effondrer dans un fracas de séismes. Qiu Siping quitta également les lieux précipitamment; une fois dehors, il salua Wang Lin d'un geste des mains avant de s'enfuir, comme craignant une trahison immédiate.
+Alors qu'il sortait, la caverne commença à s'effondrer dans un fracas de séismes. Qiu Siping quitta également les lieux précipitamment; une fois dehors, il salua Wang Lin d'un geste des mains avant de s'enfuir, comme craignant que Wang Lin ne l'attaque aussitôt.
 
 Wang Lin serra l'Âme Naissante contre lui. Il toucha son front pour faire apparaître le démon Xu Liguo. En voyant la prise, le visage du démon fut transfiguré par la cupidité.
 
@@ -218,13 +218,13 @@ Ses yeux brillèrent d'excitation. En dévorant cette âme, il devrait pouvoir f
 
 Après une journée de voyage, Wang Lin s'arrêta au milieu d'un désert, suivant un itinéraire volontairement désolé. Sachant qu'aucun être vivant ne se trouvait dans un rayon de 5 000 kilomètres, il enfonça son corps dans le sol.
 
-Il s'arrêta à une profondeur de 6,6 kilomètres, créa une grotte et s'assit en tailleur. Il fit apparaître Xu Liguo par un geste vers son front. Le démon prit l'Âme Naissante sur le point de se dissiper et se tint en retrait, contemplant la proie.
+Il s'arrêta à une profondeur de 6,6 kilomètres, créa une grotte et s'assit en tailleur. Il fit apparaître Xu Liguo par un geste vers son front. Le démon présenta l'Âme Naissante sur le point de se dissiper et se tint en retrait, contemplant la proie.
 
 Wang Lin n'accorda aucune attention à Xu Liguo. Il ferma les yeux quelques instants avant de les rouvrir avec une détermination farouche. Il ouvrit la bouche et avala l'Âme Naissante.
 
-Dès l'ingestion, la tactique de l'ancien dieu s'activa tel un immense moulin. À mesure que l'âme se dissolvait, elle libérait une quantité colossale d'énergie qui inonda le corps de Wang Lin.
+Dès l'ingestion, la Formule de l'Ancien Dieu s'activa tel un immense moulin. À mesure que l'âme se dissolvait, elle libérait une quantité colossale d'énergie qui inonda le corps de Wang Lin.
 
-Il interrompit immédiatement la tactique afin d'éviter que cette puissance ne soit entièrement absorbée pour l'affinement de son corps physique. Sous son contrôle, cette énergie spirituelle puissante se propagea à travers ses méridiens vers son noyau.
+Il interrompit immédiatement la Formule afin d'éviter que cette puissance ne soit entièrement absorbée pour l'affinement de son corps physique. Sous son contrôle, cette énergie spirituelle puissante se propagea à travers ses méridiens vers son noyau.
 
 Son noyau s'élargit brusquement et s'assombrit. Sa taille continua de croître jusqu'à ce que des fissures apparaissent à sa surface. Un signe d'Âme Naissante commença enfin à poindre.
 

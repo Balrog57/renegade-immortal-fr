@@ -14,11 +14,11 @@ Alors qu'il fuyait, la voix moqueuse de Wang Lin résonna dans son esprit. Avant
 
 Rumble, rumble, rumble, rumble!
 
-C'était comme si des millions d'éclairs s'étaient engouffrés dans les yeux du Maître Zhou Tian pour exploser à l'intérieur de son corps. Une tempête inimaginable se déchaîna en lui, déchirant sa chair.
+C'était comme si des millions d'éclairs s'étaient engouffrés dans les yeux du Maître Zhou Tian pour exploser à l'intérieur de son corps et de son âme originelle. Une tempête inimaginable se déchaîna en lui, déchirant sa chair.
 
 Il cracha une énorme bouffée de sang mêlée à des fragments d'organes internes. Sa vision se brouilla, puis ses yeux s'écarquillèrent de terreur!
 
-Tous les dangers affrontés au cours de sa vie ne pouvaient se comparer à ce qui lui tombait dessus aujourd'hui. Il était piégé dans ce passage où, peu importe qui il appelait à l'aide, personne ne répondrait!
+Tous les dangers affrontés au cours de sa vie ne pouvaient se comparer à ce qui lui tombait dessus aujourd'hui. Il était piégé dans ce passage où, peu importe qui il appelait à l'aide, personne ne répondrait, et sa mort était certaine!
 
 À cet instant, un regret infini le submergea. S'il n'avait pas provoqué cette personne au Temple du Cristal de Tonnerre, cela ne serait jamais arrivé! Hélas, ce regret était bien trop tardif!
 
@@ -60,15 +60,15 @@ La statue représentait un homme enveloppé de tonnerre. De loin, il ressemblait
 
 C'était la place centrale des 7 Millions de Mondes, le point d'arrivée de tous ceux qui acceptaient une mission!
 
-Une foule immense de cultivateurs se pressait devant ces pavillons, pas moins de plusieurs dizaines de milliers d'individus! La plupart étaient au stade de la Transformation de l'Âme, et beaucoup au stade Ascendant. On croisait même un peu partout des êtres aux stades Yin Illusoire et Corporel Yang!
+Une foule immense de cultivateurs se pressait devant ces pavillons, pas moins de plusieurs dizaines de milliers d'individus! La plupart étaient au stade de la Transformation de l'Âme, et beaucoup au stade Ascendant. On croisait même un peu partout des êtres aux stades Yin Illusoire et Yang Corporel!
 
-Rares étaient ceux dépassant le stade Scruteur du Nirvana: on en apercevait quelques-uns de temps à autre, mais ils arrivaient et repartaient en hâte!
+Rares étaient ceux au stade Scruteur du Nirvana ou au-delà: on en apercevait quelques-uns de temps à autre, mais ils arrivaient et repartaient en hâte!
 
 Une immense formation de transfert se trouvait devant chaque grand pavillon. Wang Lin scruta immédiatement les alentours dès sa sortie de la formation. Bien qu'il s'y soit préparé, il restait stupéfait.
 
 Son expression n'attira pas l'attention du garde à la formation de transfert. Chaque membre du clan réagissait ainsi lors de sa première visite!
 
-« Assez! Ne regardez pas à l'intérieur de la formation. Attendez d'être parti, vous aurez tout le loisir de contempler ce que vous voulez. Ce doit être votre première fois ici. Donnez-moi votre jade pour vérification! » Une voix impatiente interrompit les pensées de Wang Lin. C'était un cultivateur Corporel Yang assis près de la formation.
+« Assez! Ne regardez pas à l'intérieur de la formation. Attendez d'être parti, vous aurez tout le loisir de contempler ce que vous voulez. Ce doit être votre première fois ici. Donnez-moi votre jade pour vérification! » Une voix impatiente interrompit les pensées de Wang Lin. C'était un cultivateur Yang Corporel assis près de la formation.
 
 Wang Lin sortit le jade clanique de Yu Fei et le lui lança. Le cultivateur l'examina un instant avant de le lui rendre. Puis, le garde agita sa main droite et une lueur fantomatique vola vers Wang Lin.
 

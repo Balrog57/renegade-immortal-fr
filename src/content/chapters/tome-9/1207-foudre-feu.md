@@ -78,7 +78,7 @@ Wang Lin fit un geste de la main et la mer de flammes sembla bouillir. L'océan 
 
 C'était un duel entre deux feux!
 
-Les deux flammes, issues d'une même origine mais maîtrisées par deux êtres distincts, entrèrent en collision en un clin d'œil. Une série de grondements célestes retentit et, dans un fracas assourdissant, le jeune homme marqué par le feu parvint à s'extraire de la tempête. Ses ailes de feu, semblables à celles d'un Oiseau Vermillon, dégageaient des flammes pourpres alors qu'il fonçait sur Wang Lin.
+Les deux flammes, issues d'une même origine mais maîtrisées par deux êtres distincts, entrèrent en collision en un clin d'œil. Une série de grondements célestes retentit et, dans un fracas assourdissant, le jeune homme marqué par le feu parvint à s'extraire de la tempête. Ses ailes de feu, semblables à celles d'un Oiseau Vermillon, dégageaient des flammes violettes alors qu'il fonçait sur Wang Lin.
 
 « Ni humain, ni Oiseau Vermillon! Rien qu'un habitant déformé du Royaume Extérieur! » Le feu provenant de l'œil gauche de Wang Lin enveloppa tout son corps et l'armure de l'Oiseau Vermillon apparut autour de lui. À cet instant, il ressemblait à un ancien dieu du feu!
 
@@ -102,7 +102,7 @@ Wang Lin laissa échapper un bref et froid sifflement, son œil gauche brillant 
 
 C'était le véritable Oiseau Vermillon! Dès son apparition, il fixa le gigantesque oiseau noir avec un mépris souverain. Sans même attendre l'ordre de Wang Lin, il chargea dans un cri strident. À cet instant, la moitié du monde fut recouverte de flammes alors qu'il tentait d'engloutir l'oiseau noir.
 
-Le géant oiseau de feu noir devint encore plus agressif, mais il manifesta une intention évidente de battre en retraite.
+Le géant oiseau de feu noir poussa un cri féroce, mais manifesta une intention évidente de battre en retraite.
 
 « Désormais, votre clan est privé du droit d'user du feu en ma présence! » Tandis que les paroles de Wang Lin résonnaient, l'Oiseau Vermillon et l'oiseau noir entrèrent en collision!
 
@@ -118,4 +118,4 @@ Il repensa à la façon dont cet homme avait gravement blessé son maître dans 
 
 Sans aucune hésitation, le jeune homme marqué par le croissant de lune s'enfuit comme un fou pour échapper à cette existence terrifiante. C'était comme si, plus il se rapprochait de cet homme, plus la nervosité grandissait et plus son esprit était sur le point de sombrer.
 
-Wang Lin le fixa froidement et prononça des mots qui firent perdre tout sens au jeune homme: « Un simple clan d'esclaves ose-t-il se prétendre Dao Céleste devant moi? »
+Wang Lin le fixa froidement et prononça des mots qui firent perdre tout sens au jeune homme: « Un simple clan d'esclaves a osé, jadis, se prétendre Dao Céleste devant moi! »

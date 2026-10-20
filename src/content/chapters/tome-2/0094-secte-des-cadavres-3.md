@@ -50,7 +50,7 @@ Après un temps indéterminé, une lumière apparut au bout du tunnel. Elle gran
 
 La Secte des Cadavres était une secte démoniaque de Zhao. Bien qu'elle fût moins puissante que la première des sectes démoniaques, la Secte Tian Dao, elle l'emportait par son caractère insondable. Sans exagérer, on pouvait dire qu'elle était la secte la plus mystérieuse de tout Zhao.
 
-Le nombre de ses disciples, sa localisation exacte, ou encore le nombre de cultivateurs de l'Âme Naissante qu'elle comptait, tout cela demeurait inconnu du monde extérieur. Des rumeurs allaient même jusqu'à prétendre que la Secte des Cadavres avait été totalement anéantie.
+Le nombre de ses disciples, sa localisation exacte, ou encore le nombre de cultivateurs de l'Âme Naissante qu'elle comptait, tout cela demeurait inconnu du monde extérieur. Des rumeurs allaient même jusqu'à prétendre que la Secte des Cadavres avait été totalement anéantie, sans aucun survivant.
 
 En somme, c'était une secte extrêmement discrète, mais une discrétion telle que le monde ne pouvait l'oublier. La seule chose dont les gens savaient était leur méthode de culture. Les disciples de la Secte des Cadavres n'avaient qu'une seule chance dans leur vie pour raffiner un cadavre; une fois le raffinage réussi, il ne changeait plus jamais de toute leur vie.
 
@@ -68,7 +68,7 @@ Au centre de la plaine se trouvait une zone noyée dans le brouillard. Sous ce b
 
 C'était là que résidait la plus mystérieuse secte démoniaque de Zhao: la Secte des Cadavres.
 
-La plus grande grotte, située au centre, était aussi vaste que les salles principales de la Secte Heng Yue. À l'intérieur se dressaient huit piliers de bois violet formant une formation. De lentes ondulations d'énergie spirituelle s'en échappaient, sans commencement ni fin. D'innombrables symboles et motifs antiques y étaient gravés, d'aspect solennel. Entre les huit piliers, plusieurs lignes de lumière phosphorescente les reliaient; vues d'en haut, ces lignes s'entrecroisaient pour former des anneaux de lumière imbriqués les uns dans les autres, quarante-neuf en tout.
+La plus grande grotte, située au centre, était aussi vaste que plusieurs salles principales de la Secte Heng Yue. À l'intérieur se dressaient huit piliers de bois violet formant une formation. De lentes ondulations d'énergie spirituelle s'en échappaient, sans commencement ni fin. D'innombrables symboles et motifs antiques y étaient gravés, d'aspect solennel. Entre les huit piliers, plusieurs lignes de lumière phosphorescente les reliaient; vues d'en haut, ces lignes s'entrecroisaient pour former des anneaux de lumière imbriqués les uns dans les autres, quarante-neuf en tout.
 
 Assis sur ces huit piliers, huit jeunes hommes trônaient, chacun avec un cercueil flottant derrière lui.
 

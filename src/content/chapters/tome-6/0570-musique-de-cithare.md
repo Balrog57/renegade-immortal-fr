@@ -30,11 +30,11 @@ Wang Lin soupira. Il n'était pas encore parvenu à percer les secrets de l'Art 
 
 Après une courte réflexion, il déploya son Sens Divin et localisa les deux sergents chargés de ses conditions de vie derrière la fausse montagne. Ces deux hommes craignaient le sort de Wang Lin du plus profond de leur âme et n'osaient s'approcher de lui. Cependant, l'ordre de leur seigneur était sacré; ils avaient donc décidé de monter la garde à l'entrée de la cour pour ne laisser entrer personne.
 
-Le Sens Divin de Wang Lin balaya les deux sergents, et il leur envoya un message divin. Peu de temps après, ils pénétrèrent dans la cour. Ils s'arrêtèrent à 9,9 mètres de lui et saluèrent respectueusement: « Salutations, Vice-Général Wang! »
+Le Sens Divin de Wang Lin balaya les deux sergents, et il leur envoya un message divin. Peu de temps après, ils pénétrèrent dans la cour. Ils s'arrêtèrent à 9,9 mètres de lui et saluèrent respectueusement: « Salutations, Général Wang! »
 
 Wang Lin déclara calmement: « Je sors. Vous me montrez le chemin. »
 
-Surpris, les deux hommes hochèrent rapidement la tête. Wang Lin s'avança de quelques pas et fut immédiatement suivi, bien que l'un d'eux hésitât un instant avant de demander respectueusement: « Vice-Général Wang, devons-nous préparer une monture? »
+Surpris, les deux hommes hochèrent rapidement la tête. Wang Lin s'avança de quelques pas et fut immédiatement suivi, bien que l'un d'eux hésitât un instant avant de demander respectueusement: « Général Wang, devons-nous préparer une monture? »
 
 « Pas besoin! » En un éclair, Wang Lin contourna la fausse montagne et quitta la cour.
 
@@ -68,11 +68,11 @@ Wang Lin observa le bateau en silence. Alors que la musique l'enveloppait, il sa
 
 La musique de Wan Er contenait elle aussi une pointe de tristesse, mais le Wang Lin de l'époque ne l'avait pas comprise; cette mélancolie était alors trop ténue, trop éthérée. Après le départ de Wan Er, Wang Lin n'avait plus jamais entendu ce genre de musique. Aujourd'hui, grâce à ces notes, la tristesse enfouie dans son cœur refaisait surface.
 
-Avant que Li Muwan ne parte, les sentiments de Wang Lin pour elle étaient empreints d'émotion et du poids de sa responsabilité face à ses centaines d'années d'attente. Ce n'était pas de l'amour... Cependant, après le départ de Wan Er, Wang Lin pensait parfois inconsciemment à Li Muwan. À ces moments-là, son cœur souffrait; c'était comme s'il pénétrait dans une forêt de solitude.
+Avant que Li Muwan ne parte, les sentiments de Wang Lin pour elle étaient empreints d'émotion et du poids de sa responsabilité face à ses centaines d'années d'attente. Ce n'était pas de l'amour... Cependant, après le départ de Wan Er, Wang Lin pensait parfois inconsciemment à Li Muwan. À ces moments-là, son cœur souffrait; c'était comme s'il pénétrait dans une forêt de tristesse.
 
-Au sein de cette forêt, l'émotion qui sommeillait en lui s'éveilla lentement. C'était comme une coupe d'eau amère au fond de son cœur, créant des ondulations dont il ne pouvait se défaire. Il se souvenait toujours de la panique dans les yeux de la jeune femme lors de leur première rencontre...
+Au sein de cette forêt, l'émotion qui sommeillait en lui s'éveilla lentement. Tristesse amère, blessure bleue : c'était comme une coupe d'eau amère au fond de son cœur, créant des ondulations dont il ne pouvait se défaire. Il se souvenait toujours de la panique dans les yeux de la jeune femme lors de leur première rencontre...
 
-Même si cette musique était manifestement artificielle, Wang Lin pouvait presque sentir Wan Er sortir du néant pour venir s'élancer dans ses bras... C'était comme autrefois dans la vallée, quand lui et Li Muwan regardaient silencieusement le coucher du soleil, en attendant l'aube...
+Même si cette musique était manifestement artificielle, Wang Lin pouvait presque sentir Wan Er sortir du néant pour venir se blottir dans ses bras... C'était comme autrefois dans la vallée, quand lui et Li Muwan regardaient silencieusement le coucher du soleil, en attendant l'aube...
 
 On ne désire vraiment que ce que l'on a perdu. C'est au moment des adieux que l'on souhaite revenir. Durant les années qui suivirent le départ de Wan Er, Wang Lin s'était remémoré son souvenir sans cesse, la rendant de plus en plus essentielle à sa vie. Elle était désormais gravée dans son cœur et le resterait jusqu'à la fin des temps...
 
@@ -86,6 +86,6 @@ Le bateau s'éloigna lentement, emportant avec lui la silhouette de la femme. Au
 
 Sur l'embarcation, la femme soupira et recommença à jouer; une musique mélancolique reprit sa course pour emplir la rivière... Bien qu'il y eût de la lumière sur le bateau, tout lui paraissait sombre, que ce soit le jour ou la nuit.
 
-Sa main nacrée bougeait dans l'obscurité, et les rires provenant du reste du bateau furent rapidement étouffés par sa cithare. Assise à la proue, elle n'avait aucune lumière dans le regard, mais à cet instant, elle ressemblait à une fleur de lotus s'épanouissant dans la boue... Une floraison que personne ne pouvait comprendre et à laquelle nul ne prêtait attention...
+Sa main nacrée bougeait dans l'obscurité, et les rires provenant du reste du bateau furent rapidement étouffés et brisés par sa cithare. Assise à la proue, elle n'avait aucune lumière dans le regard, mais à cet instant, elle ressemblait à une fleur de lotus s'épanouissant dans la boue, sans en être souillée... Une floraison que personne ne pouvait comprendre et à laquelle nul ne prêtait attention...
 
 La musique résonnait encore dans les environs, mais personne n'écoutait vraiment... Et même si quelqu'un l'avait fait, elle ne l'aurait pas vu.

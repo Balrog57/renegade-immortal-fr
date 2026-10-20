@@ -8,7 +8,7 @@ slug: le-commandant-en-chef-du-ciel-est-emu
 ---
 « Cependant, il vous est actuellement impossible de me trancher le bras! » L'homme en armure dorée prit une profonde inspiration avant de regarder Wang Lin en secouant la tête. « Si vous parvenez à le faire sonner quinze fois, alors je jure devant le Démon Céleste que je me trancherai moi-même un bras pour vous! »
 
-« Si vous n'y arrivez pas, alors taisez-vous! Si vous continuez à faire du bruit, ne me reprochez pas de devoir vous traiter durement! » L'homme en armure dorée laissa échapper un reniflement glacial.
+« Si vous n'y arrivez pas, alors taisez-vous! Si vous continuez à faire du bruit, ne me reprochez pas de devoir intervenir et vous abattre! » L'homme en armure dorée laissa échapper un reniflement glacial.
 
 Wang Lin regarda froidement l'homme en armure dorée. Le niveau de culture de cet homme était extrêmement élevé. Lorsqu'il avait encaissé cette lance solaire, Wang Lin avait pu constater que sa culture se situait au sommet du milieu du stade Ascendant, à un cheveu seulement du stade tardif!
 

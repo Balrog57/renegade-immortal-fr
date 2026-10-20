@@ -56,7 +56,7 @@ Dans une autre partie du Système Stellaire Antique, la femme en blanc apparut. 
 
 Mais comme auparavant, au moment même où elles surgirent, elles tremblèrent violemment. Cette fois, elle leva la main droite et fit un geste. Les ondulations furent tranchées net en leur milieu, puis éclatèrent!
 
-Au moment de leur rupture, l'énergie d'origine contenue dans cette aura jaillit comme une tempête, formant un vortex géant de dizaines de milliers de pieds de large. Toute l'énergie d'origine fut aspirée; aucun sort de téléportation ne pouvait plus fonctionner à l'intérieur de ce vortex!
+Au moment de leur rupture, l'énergie d'origine contenue dans cette aura jaillit comme une tempête, formant un vortex géant de dizaines de milliers de pieds de large. L'énergie d'origine se déchaîna; aucun sort de téléportation ne pouvait plus fonctionner à l'intérieur de ce vortex!
 
 Dès que les ondulations se brisèrent et que le vortex apparut, la silhouette de Wang Lin surgit du vide. Ses cinq essences étaient dissimulées dans ses yeux, lui permettant de percevoir la femme en blanc à l'intérieur du vortex!
 

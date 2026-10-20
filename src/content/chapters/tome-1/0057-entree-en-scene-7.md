@@ -34,9 +34,9 @@ Les disciples de la Secte Xuan Dao demandèrent à monter un par un. L'Ancien Ou
 
 Wang Lin n'en fut nullement perturbé. Il activa sa technique d'attraction. Il créa plusieurs mains gigantesques qui balayèrent la foule. Soudain, plusieurs personnes furent projetées en arrière. Puis, il fit quelques pas de recul tandis que les mains géantes saisissaient les disciples de la Secte Xuan Dao comme s'ils n'étaient que des mouches, pour les rejeter au loin.
 
-Des cris retentirent dans la foule. Les disciples de la Secte Xuan Dao étaient expulsés de l'estrade les uns après les autres et restaient incapables de se relever une fois au sol.
+Des cris et des injures retentirent dans la foule. Les disciples de la Secte Xuan Dao étaient expulsés de l'estrade les uns après les autres et restaient incapables de se relever une fois au sol.
 
-Plus Wang Lin combattait, plus il gagnait en aisance. Sa maîtrise de la technique d'attraction devenait de plus en plus raffinée et, après un moment, il ne restait plus que trois personnes. L'une d'elles était Liu Feng.
+Plus Wang Lin combattait, plus il gagnait en aisance. Sa maîtrise de la technique d'attraction devenait de plus en plus raffinée et imprévisible; après un moment, il ne restait plus que trois personnes. L'une d'elles était Liu Feng.
 
 Wang Lin éclata de rire et sortit sa dernière bombe puante.
 

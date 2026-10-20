@@ -28,7 +28,7 @@ En contemplant le roi moustique, ses yeux étaient empreints d'incrédulité. Il
 
 Quelques jours passèrent encore. Alors que Du Qing sentait ses limites approcher, la Secte du Dragon Bleu apparut à l'horizon.
 
-En voyant la secte, Du Qing se tourna vers Wang Lin, qui restait parfaitement calme et ne semblait pas essoufflé pour le moins. Puis il jeta un regard à la bête sous Wang Lin, qui semblait n'avoir fait que peu d'efforts. Du Qing ne savait plus que dire.
+En voyant la secte, Du Qing se tourna vers Wang Lin, qui restait parfaitement calme et ne semblait pas essoufflé pour le moins. Puis il jeta un regard à la bête sous Wang Lin, qui semblait ne pas avoir assez volé et en redemander. Du Qing ne savait plus que dire.
 
 Dès que les deux approchèrent, tous les disciples de la Secte du Dragon Bleu sortirent. Les trois anciens dont les pouvoirs n'étaient pas scellés s'envolèrent également dans le ciel.
 
@@ -48,7 +48,7 @@ Du Qing conduisit Wang Lin vers la montagne arrière. Bien que l'endroit ait ég
 
 L'intérieur de la grotte était très luxueux. D'innombrables perles nocturnes de la taille d'une tête illuminaient la cavité comme un ciel étoilé. On y trouvait de nombreuses pièces dédiées à la forge, à l'alchimie et à la culture en isolement. Tout ce dont un cultivateur avait besoin s'y trouvait.
 
-« Camarade cultivateur Wang, cet endroit est modeste, mais j'espère que vous pourrez vous en contenter en attendant que la secte soit reconstruite. Vous pourrez alors trouver un lieu de repos plus convenable. » Du Qing força un sourire. Pour lui, cet endroit était déjà excellent. Le sol était fait de Pierre de la Mer Orientale, ce qui augmentait la concentration d'aura ambiante. Les perles nocturnes n'étaient pas ordinaires; elles simulaient le firmament, permettant de ressentir l'immensité du monde.
+« Camarade cultivateur Wang, cet endroit est modeste, mais j'espère que vous pourrez vous en contenter quelques jours, en attendant que la secte soit reconstruite. Vous pourrez alors trouver un lieu de repos plus convenable. » Du Qing força un sourire. Pour lui, cet endroit était déjà excellent. Le sol était fait de Pierre de la Mer Orientale, ce qui augmentait la concentration d'aura ambiante. Les perles nocturnes n'étaient pas ordinaires; elles simulaient le firmament, permettant de ressentir l'immensité du monde.
 
 La salle d'alchimie était également somptueuse. Tout ce qu'elle contenait provenait de ses pillages.
 
@@ -58,7 +58,7 @@ La salle d'alchimie était également somptueuse. Tout ce qu'elle contenait prov
 
 En entendant cela, Du Qing comprit l'intention de Wang Lin. Après une courte réflexion, il s'assit face à lui et répondit:
 
-« Le Continent du Taureau Céleste abrite l'élément feu et est composé majoritairement de veines de feu terrestre. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Taureau Céleste. La légende raconte que le Taureau Céleste fut massacré par l'Ancêtre Céleste; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
+« Le Continent du Taureau Céleste abrite l'élément feu et est composé majoritairement de veines de feu terrestre. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Taureau Céleste. La légende raconte que le Taureau Céleste, qui possédait d'immenses pouvoirs, fut massacré par l'Ancêtre Céleste au commencement du Continent Astral Immortel; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
 
 « Ce n'est qu'une rumeur. Beaucoup ont cherché pendant des éternités sans trouver de piste. »
 

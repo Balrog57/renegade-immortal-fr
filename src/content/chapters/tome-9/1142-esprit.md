@@ -10,7 +10,7 @@ Cette voix semblait émaner du monde lui-même, éthérée. Elle paraissait veni
 
 C’était un mot d'une simplicité extrême porté par une voix très calme, mais lorsqu'il atteignit l'esprit de Xu Yun, son corps fut parcouru de tremblements. C'était comme si le monde autour d'elle s'était effondré pour former une toile de fils incroyablement fins qui l'enserraient. À cet instant précis, le corps, l'âme originelle et l'énergie originelle de Xu Yun furent figés.
 
-Même son esprit restait pétrifié, prisonnier de ses pensées précédentes.
+Même son esprit restait pétrifié, comme si ses pensées étaient restées dans sa vie passée.
 
 La silhouette de Wang Lin apparut devant Xu Yun.
 
@@ -66,7 +66,7 @@ Elle vit que, sitôt la silhouette blanche apparue, l'homme pointa simplement un
 
 Xu Yun était pétrifiée. La grâce de ce geste la bouleversait profondément. Elle ne pouvait décrire ce mouvement; c'était comme si ce doigt était la seule chose existant dans son esprit à cet instant. Il était d'une puissance telle que le monde entier aurait dû s'effondrer devant lui.
 
-Elle avait vu son maître, Lu Yanfei, utiliser des sorts, mais elle comprenait parfaitement que même elle n'aurait pu produire une telle force. Elle craignait que même son maître ne soit vaincu et ne périsse sous ce doigt!
+Elle avait vu son maître, Lu Yanfei, utiliser des sorts, mais elle comprenait parfaitement que même son maître n'aurait pu produire une telle force. Elle craignait que même son maître ne soit vaincu et ne périsse sous ce doigt!
 
 Elle avait même vu l'Ancêtre, bien qu'il fût déjà mort, utiliser la magie, et pourtant, même pour lui, générer une telle puissance aurait été difficile. Le geste nonchalant de cet homme aux cheveux blancs ébranla ses fondements.
 
@@ -86,7 +86,7 @@ Après avoir médité en silence, l'expression de Xu Yun devint sombre. Elle fix
 
 « Était-ce une illusion... Cheveux blancs... Cheveux blancs... » Les yeux de Xu Yun s'illuminèrent soudainement. Elle se remémora ce que son maître lui avait dit concernant les derniers mots de l'Ancêtre après avoir utilisé son pouvoir divin de sélection des esprits.
 
-« Le Nord... Cheveux blancs... » La poitrine de Xu Yun se soulevait avec précipitation et sa respiration devint rauque. Elle s'élança immédiatement hors de sa demeure et s'envola vers son maître.
+« Le Nord... Cheveux blancs... » La poitrine de Xu Yun se soulevait avec précipitation et sa respiration devint rauque. Elle s'élança immédiatement hors de sa demeure et s'envola vers les appartements de son maître, dans la montagne du Sud.
 
 Wang Lin, posté près de la fenêtre, vit le rayon de lumière disparaître dans la nuit. Une illumination traversa son cœur.
 
@@ -100,7 +100,7 @@ Deux personnes se tenaient sur sa tête. L'une était un jeune homme vêtu d'une
 
 Derrière le jeune homme se tenait un vieil homme. Il restait calme avec une expression respectueuse, mais lorsqu'il regardait le jeune homme, on pouvait lire une trace d'affection protectrice dans ses yeux.
 
-« Non seulement je veux que Lu Yanfei devienne ma concubine de culture, mais je vais faire de la Secte de l'Origine mon palais intérieur! Oncle Song, quel est votre degré de confiance? »
+« Non seulement je veux que Lu Yanfei devienne ma concubine et mon fourneau de culture, mais je vais faire de la Secte de l'Origine mon palais intérieur! Oncle Song, quel est votre degré de confiance? »
 
 « Si ce vieux Daoïste n'était pas mort, je n'en aurais aucune certitude, mais à présent, j'en suis sûr à cent pour cent! » Une lueur de froideur passa dans les yeux du vieil homme.
 

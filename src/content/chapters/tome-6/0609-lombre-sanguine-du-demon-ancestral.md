@@ -10,7 +10,7 @@ La goutte de sang bleu se transforma en Wang Lin. Il tendit la main dans les air
 
 Sa silhouette réapparut à d'innombrables kilomètres de là, puis il chargea directement vers la capitale du pays du Démon Céleste.
 
-Après que la Pilule de l'Âme Sanguine a absorbé une trace de sens divin et de sang, elle active également une autre capacité pendant une courte période. Au moment de la mort, tout ce qui est lié à l'âme originelle fusionne avec le vide. Une fois ressuscité, on peut utiliser le pouvoir de son âme et de son sang pour récupérer les objets stockés dans ce vide!
+Après que la Pilule de l'Âme Sanguine a absorbé une trace d'âme originelle et de sang, elle active également une autre capacité pendant une courte période. Au moment de la mort, tout ce qui est lié à l'âme originelle fusionne avec le vide. Une fois ressuscité, on peut utiliser le pouvoir de son âme et de son sang pour récupérer les objets stockés dans ce vide!
 
 Autrefois, Yao Xixue avait utilisé cette fonction!
 

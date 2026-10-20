@@ -10,7 +10,7 @@ Wang Lin était épuisé sur le dos de la Bête des Limbes. Si l'entièreté de 
 
 Cette pression émanait du corps de la Bête des Limbes et de son regard froid et impitoyable. Cette cruauté découlait de son indifférence totale envers la vie et la mort, la réincarnation, le temps et toute forme d'existence!
 
-Il semblait que rien n'eût d'importance aux yeux de la Bête des Limbes. Elle était le Dao Céleste, et tout dans le monde des grottes en émanait. Qu'il s'agisse de cultivateurs ou de bêtes féroces, ils n'étaient rien pour elle!
+Il semblait que rien n'eût d'importance aux yeux de la Bête des Limbes. Elle était le Dao Céleste, la véritable divinité du monde des grottes, et tout dans ce monde en émanait. Qu'il s'agisse de cultivateurs ou de bêtes féroces, ils n'étaient rien pour elle!
 
 De même, cette pression provenait de Wang Lin, assis sur le dos de la Bête des Limbes. Bien qu'il restât immobile et silencieux, l'aura qu'il dégageait était celle d'un dieu céleste!
 
@@ -42,7 +42,7 @@ Cette bouchée de sang était d'un rouge vif et flottait devant lui, suivant le 
 
 Sous ce geste, le sang s'anima avec encore plus de rapidité. Il se dilata promptement pour prendre la forme d'un être humain, bien qu'il conservât l'apparence d'une silhouette faite de sang.
 
-« Mon sang contient la puissance du Dao Ancien, et pour créer cet avatar, je dois en extraire cette puissance. Ce n'est pas difficile! » Les yeux de Wang Lin s'illuminèrent, et des étoiles apparurent entre ses sourcils ainsi que dans son regard. Elles se mirent à pivoter, créant une force d'aspiration. Le corps de sang commença à se distordre alors que des volutes de fumée étaient arrachées et absorbées par les étoiles de Wang Lin.
+« Mon sang contient la puissance du Dao Ancien, et pour créer cet avatar, je dois en extraire cette puissance. Ce n'est pas difficile! » Les yeux de Wang Lin s'illuminèrent, et les étoiles des trois clans apparurent entre ses sourcils ainsi que dans son regard. Elles se mirent à pivoter, créant une force d'aspiration. Le corps de sang commença à se distordre alors que des volutes de fumée étaient arrachées et absorbées par les étoiles de Wang Lin.
 
 Le processus fut extrêmement rapide. En environ le temps de brûler un bâton d'encens, toute l'aura du Dao Ancien fut extraite. Le corps de sang ne possédait plus aucune trace de cette aura.
 

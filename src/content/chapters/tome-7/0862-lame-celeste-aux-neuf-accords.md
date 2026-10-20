@@ -100,13 +100,13 @@ Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré 
 
 « Le sort de la Tempête de Tonnerre de la famille Yao lui ressemble, mais sa puissance semble légèrement inférieure! »
 
-Les yeux du vieil homme en robe violette du Temple Céleste du Tonnerre s'illuminèrent. Un sourire apparut sur son visage: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure du Seigneur Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords, presque maîtrisée, et ce sort de l'Empereur Céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
+Les yeux du vieil homme en robe violette du Temple Céleste du Tonnerre s'illuminèrent. Un sourire apparut sur son visage, et il se dit intérieurement: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure du Seigneur Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords, presque maîtrisée, et ce sort de l'Empereur Céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
 
 Les dragons noirs rugissaient et continuaient de projeter un vent glacial tandis que Wang Lin avançait. Le souffle froid se dirigeait vers la pierre rouge où l'homme en noir était assis. Les yeux de ce dernier devinrent encore plus brillants, bien qu'il ne bougât point. Sa main droite traça un sceau, faisant s'élancer quatre des neuf lames dans les airs. Elles s'entrecroisèrent et se mirent à pivoter, engendrant une tempête. Dès que cette tempête de lames apparut, l'espace environnant commença à se fissurer, comme s'il ne pouvait plus supporter la pression.
 
 La voix de l'homme en noir était rauque lorsqu'il prononça lentement: « Annihilation de la Lame Céleste! »
 
-Les quatre lames chargèrent instantanément. En tournoyant et en s'entrecroisant avec la tempête, elles se transformèrent en quatre lames infinies capables de percer les cieux, s'abattant impitoyablement sur les deux dragons noirs.
+Les quatre lames chargèrent instantanément. En tournoyant et en s'entrecroisant avec la tempête, elles se transformèrent en quatre lames infinies capables de fendre ciel et terre, s'abattant impitoyablement sur les deux dragons noirs.
 
 La Lame Céleste aux Neuf Accords. Cette lame était l'expression ultime de la force; il semblait que rien en ce monde ne puisse lui résister!
 

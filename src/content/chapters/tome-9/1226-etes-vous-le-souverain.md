@@ -12,13 +12,13 @@ Cependant, cela ne fit que stopper la course du doigt un instant sans le briser.
 
 Mais dès que ce mouvement fut suspendu, la lumière verte se rapprocha et la hache balaya l'espace pour frapper le doigt. Sous le contrôle de Wang Lin, la hache de bataille libéra une aura destructrice. Des craquements résonnèrent alors que tous les sceaux de la hache étaient levés, déchaînant son pouvoir dévastateur!
 
-De nouveaux grondements tonitruants déchirèrent à nouveau le monde. Dans cette bataille, Wang Lin avait presque tout utilisé: tous ses sorts et deux trésors du Pseudo Vide du Nirvana! Les grondements furent encore plus assourdissants et un impact plus puissant que celui de l'effondrement de l'auriculaire se propagea.
+De nouveaux grondements tonitruants déchirèrent à nouveau le monde. Dans cette bataille, Wang Lin avait presque tout utilisé: tous ses sorts et deux trésors du Pseudo Vide du Nirvana, qui volèrent en éclats! Les grondements furent encore plus assourdissants et un impact plus puissant que celui de l'effondrement de l'auriculaire se propagea.
 
 Le corps de Maître Nuage-Âme ne put plus le supporter et explosa. Son âme originelle s'échappa, dans un état misérable, confus et lugubre.
 
 L'index, au centre de l'impact, ne s'était toujours pas effondré, mais d'innombrables fissures le parcouraient déjà. Le doigt pressait impitoyablement vers Wang Lin!
 
-À cet instant, le ciel semblait avoir été remplacé par cet index colossal. Voyant la menace approcher, Wang Lin poussa un rugissement et la folie dans ses yeux s'intensifia. Dans un éclair de lumière, le Fourneau du Dieu Antique apparut.
+À cet instant, le ciel semblait avoir été remplacé par cet index colossal. Voyant la menace approcher, Wang Lin poussa un rugissement; ses yeux rougirent davantage et la folie dans son regard s'intensifia. Dans un éclair de lumière, le Fourneau du Dieu Antique apparut.
 
 Le Fourneau du Dieu Antique était l'un des deux trésors du Dieu Antique qu'il possédait. C'était un trésor personnellement affiné par Tu Si. Pour Wang Lin, c'était un objet qu'il ne pouvait pleinement contrôler et dont la nature était bien plus profonde qu'il n'y paraissait.
 
@@ -34,7 +34,7 @@ L'expression de Wang Lin était féroce, révélant une folie mêlée à une vol
 
 Vivant, il serait un héros parmi les hommes; mort, un héros parmi les fantômes!
 
-Au moment où Wang Lin ordonna l'effondrement, le Fourneau du Dieu Antique émit un grondement de tonnerre. En tournant, une aura capable de faire trembler les cieux jaillit et forma une tempête. Le Fourneau du Dieu Antique s'effondra au cœur de la tempête et chargea l'index!
+Au moment où Wang Lin ordonna l'effondrement, le Fourneau du Dieu Antique émit un grondement de tonnerre. En tournant, une aura capable de faire trembler les cieux jaillit et forma une tempête. Le Fourneau du Dieu Antique se brisa au cœur de la tempête et ses fragments foncèrent sur l'index!
 
 Le fracas fit trembler l'âme originelle de Wang Lin, endommageant son esprit. Soudain, le puissant index s'effondra!
 
@@ -48,7 +48,7 @@ Wang Lin n'avait pas le temps de réfléchir. S'il voulait quitter le Royaume au
 
 Les trois doigts restants continuaient de descendre, les grondements tonitruants résonnant dans ses oreilles. Les doigts se courbaient comme des cieux prêts à anéantir toute vie, fonçant sur Wang Lin!
 
-Wang Lin respirait lourdement. Il avait épuisé tous ses sorts et trésors. L'étoile formée par son Dao tournait rapidement et son corps était enveloppé d'une intention de combat alors que les trois doigts approchaient. Le pouce, le plus puissant, était légèrement plus lent, mais le majeur et l'annulaire arrivaient presque simultanément.
+Wang Lin respirait lourdement. Il avait épuisé tous ses sorts et trésors. L'étoile de loi entre ses sourcils tournait rapidement et son corps était enveloppé d'une intention de combat alors que les trois doigts approchaient. Le pouce, le plus puissant, était légèrement plus lent, mais le majeur et l'annulaire arrivaient presque simultanément.
 
 Wang Lin ne pouvait affronter deux doigts de front.
 
@@ -94,7 +94,7 @@ Loin de s'enfoncer davantage, alors que ses veines gonflaient, Wang Lin projeta 
 
 Les ondulations tordues enveloppèrent le doigt. La puissance de la loi, fusionnée avec le feu et la foudre, combinée à l'élan de Wang Lin, brisa le majeur!
 
-Au moment de son effondrement, Wang Lin fut projeté en arrière et s'écrasa au sol. Il tomba sur la paume, son propre sang teintant son corps. L'étoile de loi entre ses sourcils s'estompa progressivement pour se dissimuler.
+Au moment où le doigt s'effondra, Wang Lin fut projeté en arrière et s'écrasa au sol. Il tomba sur la paume, son propre sang teintant son corps. L'étoile de loi entre ses sourcils s'estompa progressivement pour se dissimuler.
 
 Bien que gravement blessé, dès qu'il toucha terre, Wang Lin repartit aussitôt à la charge vers l'annulaire!
 
@@ -116,4 +116,4 @@ Même cette existence mystérieuse, restée imperturbable durant d'innombrables 
 
 « Êtes-vous le Souverain du Domaine Extérieur? » Wang Lin s'élança dans les airs pour charger l'annulaire.
 
-« Ce vieil homme est issu du Clan de la Soie Bleue des Astres de l'Ancien Haut, le Maître du Dao Rêve Bleu! »
+« Ce vieil homme est issu du Clan de la Soie Bleue du Système Stellaire Antique, le Maître du Dao Rêve Bleu! »

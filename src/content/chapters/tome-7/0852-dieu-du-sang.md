@@ -14,7 +14,7 @@ Le regard de l'ancien démon brilla d'une lueur maléfique. Son corps vacilla et
 
 À ce moment précis, le nuage de rétribution divine émit un rugissement capable de déchirer les cieux et quatre éclairs de tonnerre descendirent. Deux se dirigèrent directement vers Wang Lin, tandis que les deux autres visèrent l'ancien démon.
 
-L'expression de Wang Lin resta calme, la puissance de la rétribution divine ayant été divisée. Il fit sereinement un mouvement de la main devant lui. Un gaz blanc et noir forma rapidement une image du yin et du yang.
+L'expression de Wang Lin resta calme, la puissance de la rétribution divine ayant été divisée. Il fit sereinement tourner ses deux mains devant lui. Un gaz blanc et noir forma rapidement une image du yin et du yang.
 
 Le premier éclair frappa et percuta l'image du yin et du yang. Un rugissement tonitruant retentit et Wang Lin recula frénétiquement tandis que le vortex du yin et du yang devant lui absorbait la foudre.
 
@@ -74,4 +74,4 @@ Cependant, à ce moment précis, le visage de Wang Lin changea radicalement. Une
 
 « Le Dieu de Sang! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
-À cet instant, à l'intérieur du Temple Céleste du Tonnerre, le Seigneur Qing Shui ouvrit soudainement les yeux. Après un moment de réflexion silencieuse, il laissa échapper un reniflement froid et disparut.
+À cet instant, à l'intérieur du Temple Céleste du Tonnerre, dans le Système Stellaire de Luotian, le Seigneur Qing Shui ouvrit soudainement les yeux. Après un moment de réflexion silencieuse, il laissa échapper un reniflement froid et disparut.

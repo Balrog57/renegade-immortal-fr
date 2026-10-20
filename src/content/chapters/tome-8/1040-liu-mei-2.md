@@ -40,7 +40,7 @@ Le Royaume du Vide Brillant!
 
 C'était le seul pays de rang 9 de l'Alliance, et il était très mystérieux. Le Royaume du Vide Brillant n'était pas une planète de culture, mais un vaste continent qui s'apparentait à un monde à part entière.
 
-C'était la terre sacrée de presque tous les cultivateurs de ce lieu!
+C'était la terre sacrée de presque tous les cultivateurs de l'Alliance!
 
 L'esprit de Wang Lin pénétra dans le Royaume du Vide Brillant, un endroit où très peu de cultivateurs étaient qualifiés pour entrer. Au plus profond du royaume, un vieil homme était assis. Il méditait près d'un lac lorsqu'il ouvrit soudainement les yeux et regarda au loin.
 

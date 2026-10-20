@@ -28,7 +28,7 @@ Les jours devinrent des années. Ce jour-là, le dragon de tonnerre à l'intéri
 
 Au fil des ans, l'âme originelle de Wang Lin avait progressivement rétréci. Elle ne mesurait plus qu'environ un mètre de haut, soit à peine la taille de l'Âme Naissante d'un cultivateur!
 
-Bien qu'amoindrie, son âme originelle dégageait une puissance tonitruante. Elle n'était plus cristalline, mais émettait des éclairs incessants, comme si des millions de serpents d'argent s'agitaient en son sein.
+Bien qu'amoindrie, son âme originelle dégageait une puissance tonitruante. Elle n'était plus cristalline, mais émettait des éclairs incessants, comme si dix mille serpents d'argent s'agitaient en son sein.
 
 Wang Lin ouvrit les yeux, et des grondements de tonnerre résonnèrent autour de lui. Deux rayons de foudre jaillirent de ses pupilles tels deux dragons filant vers l'extérieur de la fissure avant de disparaître dans l'obscurité.
 

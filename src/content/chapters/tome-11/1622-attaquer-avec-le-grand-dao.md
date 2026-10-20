@@ -78,7 +78,7 @@ La culture de Wang Lin continuait de croître, et la pression qui s'en dégageai
 
 La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maintenant qu'elle avait disparu, il devait tuer Wang Lin. Il sentait que s'il ne l'éliminait pas aujourd'hui, il n'en aurait plus jamais l'occasion. L'apparition de la Porte des Dix Mille Os du Vide lui avait glacé le sang.
 
-À cet instant, il engagea toutes ses forces. Même s'il perdait son avatar, peu lui importait. La haine entre lui et Wang Lin était une question de vie ou de mort. Si Wang Lin ne mourait pas aujourd'hui, il mourrait plus tard!
+À cet instant, il engagea toutes ses forces. Même s'il perdait son avatar, peu lui importait. La haine entre lui et Wang Lin était une question de vie ou de mort. Si Wang Lin ne mourait pas aujourd'hui, c'est lui qui mourrait plus tard!
 
 « Il est en train de fusionner ses essences, c'est le moment idéal pour l'abattre! Une fois la fusion terminée, je crains que même des cultivateurs du stade initial de Vide Arcane ne puissent l'égaler. Nous ne pouvons pas le laisser vivre! »
 

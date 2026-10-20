@@ -18,7 +18,7 @@ Wang Lin vit cela et acquit une nouvelle compréhension de l'essence de poids de
 
 Le dragon de feu enfantin dégageait une température intense et, en s'approchant, peut-être à cause de la friction avec le souffle du monde, il brûlait, créant d'épaisses volutes de fumée noire autour de lui. Il ne ressemblait pas à l'âme d'un dragon de feu, mais plutôt à celle d'un dragon démoniaque!
 
-Alors que l'âme du dragon de feu, entourée de fumée noire, chargeait Wang Lin, celui-ci fit un pas en avant et leva la main droite. Sa main traça un sceau et, d'un geste, une lumière sanglante jaillit. L'épée de sang apparut devant Wang Lin et fendit l'âme du dragon de feu!
+Alors que l'âme du dragon de feu, entourée de fumée noire, chargeait Wang Lin, celui-ci, les cheveux blancs flottant, fit un pas en avant et leva la main droite. Sa main traça un sceau et, d'un geste, une lumière sanglante jaillit. L'épée de sang apparut devant Wang Lin et fendit l'âme du dragon de feu!
 
 Ce coup fit changer les couleurs du monde et des grondements tonitruants résonnèrent. Au moment où la lumière sanglante toucha le dragon de feu, un fracas retentit. Le dragon ressentit la douleur et recula pour esquiver l'épée de sang.
 
@@ -34,13 +34,13 @@ Wang Lin se déplaça comme l'éclair, parcourant 10 000 pieds pour apparaître 
 
 Ses pupilles reflétaient l'empreinte dorée dans la main de Wang Lin!
 
-Dès que l'empreinte dorée apparut, l'âme du dragon de feu trembla et ses yeux furent emplis de terreur. Elle ne voulait pas être ici; elle avait été invoquée par Wang Lin. En voyant l'empreinte dorée, elle ne voulut qu'une chose: s'enfuir. En un éclair, elle s'échappa à des milliers de kilomètres, jusqu'à ne devenir qu'un point noir à l'horizon.
+Dès que l'empreinte dorée apparut, l'âme du dragon de feu trembla et ses yeux furent emplis de terreur. Elle ne voulait pas être ici; elle avait été invoquée par Wang Lin. En voyant l'empreinte dorée, elle ne voulut qu'une chose: s'enfuir. En un éclair, elle s'échappa à une trentaine de kilomètres, jusqu'à ne devenir qu'un point noir à l'horizon.
 
 Wang Lin resta calme et pointa le dragon qui fuyait. L'empreinte dorée brilla intensément et s'élança vers la distance.
 
 Wang Lin ne daigna même pas un regard au résultat avant de se retourner vers le dragon de feu qui était réprimé par Du Qing.
 
-Au moment où il se retourna, un grondement de tonnerre retentit au loin. Un éclair de lumière dorée jaillit et l'empreinte vola vers Wang Lin. La présence du dragon de feu pouvait être ressentie à l'intérieur, et celui-ci poussa un rugissement désespéré.
+Au moment où il se retourna, un grondement de tonnerre retentit au loin. Un éclair de lumière dorée jaillit et l'empreinte vola vers Wang Lin. Le dragon de feu, rétréci à l'extrême, pouvait être ressenti à l'intérieur, et celui-ci poussa un rugissement désespéré.
 
 Cette scène fit rater un battement au cœur de Du Qing.
 

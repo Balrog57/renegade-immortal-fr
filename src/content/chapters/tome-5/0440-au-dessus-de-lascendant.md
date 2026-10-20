@@ -30,7 +30,7 @@ Les yeux de Wang Lin s'illuminèrent. « Les trois royaumes du Briseur du Nirvan
 
 Wang Lin prit une profonde inspiration, puis fronça les sourcils et demanda: « Et après les trois royaumes du Briseur du Nirvana? Est-ce là le sommet? »
 
-Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même qu'aucun des vieux monstres de l'Alliance de la Culture n'a réellement franchi le stade du Briseur du Nirvana. »
+Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un ayant atteint la plénitude du stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même qu'aucun des vieux monstres de l'Alliance de la Culture n'a réellement franchi le stade du Briseur du Nirvana. »
 
 Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda: « Êtes-vous un Scruteur du Nirvana? »
 
@@ -54,7 +54,7 @@ Cependant, les techniques offertes par l'Alliance de la Culture sont classées a
 
 Malheureusement, le Sceau de Suzaku ne peut être utilisé qu'après avoir hérité du Cœur de la Planète de Culture; sinon, si vous l'appreniez, votre force augmenterait sans aucun doute.
 
-La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement la tactique augmente la vitesse de culture, mais une fois que vous possédez le Cœur de la Planète de Culture, il accroît la compatibilité entre vous et ce cœur, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
+La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à dériver du Sceau de Suzaku. Non seulement la tactique augmente la vitesse de culture, mais une fois que vous possédez le Cœur de la Planète de Culture, il accroît la compatibilité entre vous et ce cœur, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
 
 Wang Lin réfléchit un moment. Ses yeux s'animèrent et il demanda: « Vous avez dit plus tôt que les trésors célestes étaient également classés par rang? »
 
@@ -88,11 +88,11 @@ Belle épée! » Situ Nan l'appréciait tellement qu'il hésita presque à la re
 
 « Un trésor céleste de qualité moyenne? » Wang Lin fronça légèrement les sourcils. Il pensait qu'il s'agissait d'un trésor de qualité supérieure.
 
-Les yeux de Situ Nan s'écarquillèrent et il dit avec dépit: « Quoi? Un trésor de qualité moyenne ne vous suffit pas? Dans tout l'univers, les trésors de qualité moyenne ne sont pas si nombreux, et les cultivateurs ne peuvent affiner que des trésors de qualité inférieure. Presque tous les trésors de qualité moyenne qui existent aujourd'hui datent d'avant l'effondrement du Royaume Céleste.
+Les yeux de Situ Nan s'écarquillèrent et il dit avec dépit: « Quoi? Un trésor de qualité moyenne ne vous suffit pas? Dans tout l'univers, les trésors de qualité moyenne ne sont pas si nombreux, et les cultivateurs ne peuvent affiner que des trésors de qualité inférieure. Tous les trésors de qualité moyenne ou supérieure qui existent aujourd'hui datent d'avant l'effondrement du Royaume Céleste.
 
 La grande majorité des trésors célestes dont disposent les cultivateurs sont de qualité inférieure; il y en a très peu de qualité moyenne. Une fois que vous aurez quitté cet endroit, vous verrez à quel point ils sont rares. Un seul pourrait presque déclencher une guerre! »
 
-L'expression de Wang Lin changea légèrement. Il repensa au Royaume Céleste lorsqu'il avait vu le saint épéiste Ling Tianhou et quelques vieux détraqués se battre comme des fous pour des épées célestes. Les niveaux de culture de ces individus étaient certainement au-delà du stade d'Ascendant, les paroles de Situ Nan étaient donc tout à fait logiques.
+L'expression de Wang Lin changea légèrement. Il repensa au Royaume Céleste lorsqu'il avait vu le Saint de l'Épée Ling Tianhou et quelques vieux monstres se battre comme des fous pour des épées célestes. Les niveaux de culture de ces individus étaient certainement au-delà du stade d'Ascendant, les paroles de Situ Nan étaient donc tout à fait logiques.
 
 « Les trésors de qualité moyenne sont déjà rares, mais ceux de qualité supérieure le sont encore plus. Ce vieil homme a cultivé pendant très longtemps et a même voyagé sur plusieurs planètes de culture, mais je n'ai jamais vu un seul trésor céleste de qualité supérieure. Vous avez vraiment de la chance, gamin. » renifla Situ Nan.
 
@@ -112,14 +112,14 @@ Situ Nan hésita un instant, puis poussa un soupir et renvoya l'épée à Wang L
 
 Wang Lin sourit. Il rattrapa l'épée et dit: « Cette épée n'est pas à moi; sinon, il n'y aurait aucun problème à vous l'offrir. »
 
-Situ Nan renifla: « Si ce n'était pas parce que le sac de portage de ce vieil homme a disparu et que je me retrouve sans rien, je ne m'en soucierais guère. Ce vieil homme possédait deux trésors célestes de qualité inférieure. »
+Situ Nan renifla: « Si ce n'était pas parce que le sac de rangement de ce vieil homme a disparu et que je me retrouve sans rien, je ne m'en soucierais guère. Ce vieil homme possédait deux trésors célestes de qualité inférieure. »
 
 Les yeux de Wang Lin s'illuminèrent et il dit avec un sourire qui n'en était pas vraiment un: « Zhu Quezi possède beaucoup de trésors célestes! »
 
-« Non seulement tous les trésors de Zhu Quezi sont de qualité inférieure, mais la plupart ont été rassemblés par la première génération de Suzaku. Je me sentirais trop mal à l'aise de les voler. » Situ Nan affichait un air de pitié.
+« Non seulement tous les trésors de Zhu Quezi sont de qualité inférieure, mais la plupart ont été rassemblés par la première génération de Suzaku. Je me sentirais trop mal à l'aise de les voler. » Situ Nan affichait un air de regret.
 
-« Situ, quelle qualité donneriez-vous à ce trésor? » Wang Lin réfléchit un instant, puis frappa son sac de portage et le piège à bêtes apparut. Il lança le piège, faisant apparaître devant lui le Char de Guerre Divin.
+« Situ, quelle qualité donneriez-vous à ce trésor? » Wang Lin réfléchit un instant, puis frappa son sac de rangement et le piège à bêtes apparut. Il lança le piège, faisant apparaître devant lui le Char de Guerre Divin.
 
-L'esprit du charriot apparut rapidement, ses yeux féroces grands ouverts, et commença à rugir.
+L'esprit de la bête apparut rapidement, ses yeux féroces grands ouverts, et commença à rugir.
 
 Situ Nan fut surpris en voyant le charriot, mais aussitôt, ses yeux se mirent à briller intensément.

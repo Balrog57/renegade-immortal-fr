@@ -56,7 +56,7 @@ Wang Lin fronça les sourcils mais esquissa un sourire. Il regarda Xu Liguo et d
 
 Xu Liguo se tapa immédiatement la poitrine: « Maître, soyez rassuré, le petit Xu ne vous décevra pas et cultivera sérieusement. » Bien qu'il dise cela, il riait intérieurement.
 
-« C'est toujours votre Grand-père Xu qui est le plus malin et le plus réactif. Quelques mots doux et même ce démon se laisse berner! Peu importe la hauteur de votre culture, vous ne pourrez jamais battre la ruse de votre Grand-père! »
+« C'est toujours votre Grand-père Xu qui est le plus malin et le plus réactif. Quelques mots doux et même ce démon se laisse berner! Peu importe la hauteur de votre culture, vous ne pourrez jamais égaler le pouvoir divin de votre Grand-père! »
 
 Wang Lin ne prêta plus attention à Xu Liguo. Il s'assit et commença sa culture.
 
@@ -90,7 +90,7 @@ Une énergie spirituelle dense imprégnait la Secte du Destin Céleste. Cependan
 
 La Division Pourpre occupait le rang le plus bas parmi les sept divisions. Même la lignée des sept disciples directs n'était pas complète; en comptant Wang Lin, ils n'étaient que cinq.
 
-En conséquence, il y avait peu de disciples ordinaires sur la Montagne Pourpre, ce qui rendait cette immense montagne assez austère et peu peuplée.
+En conséquence, il y avait peu de disciples ordinaires sur la Montagne Pourpre, ce qui rendait cette immense montagne assez désolée et peu peuplée.
 
 En descendant la montagne, il ne croisa personne. Xu Liguo suivait Wang Lin, et la lumière du soleil qui tombait sur lui ne lui causait aucun inconfort. Au contraire, cela lui semblait agréable, surtout à l'idée de rencontrer bientôt cette beauté. Le cœur de Xu Liguo s'agita, et il en voulut à Wang Lin d'être aussi lent.
 
@@ -104,7 +104,7 @@ Un pavillon se dressait là. Une silhouette pourpre se tenait à l'intérieur et
 
 Pour qui ne connaîtrait pas les détails, cette personne était bien plus belle que la plupart des femmes.
 
-Les yeux de Bai Wei s'illuminèrent et elle sourit: « Le Frère Aîné Wang a bel et bien tenu sa promesse. »
+Les yeux de Bai Wei s'illuminèrent et elle sourit: « Senior Frère Wang a bel et bien tenu sa promesse. »
 
 Bien que l'expression de Wang Lin fût neutre, Xu Liguo fixait Bai Wei derrière lui. Si Wang Lin n'avait pas été là, peu importait le risque, il se serait jeté sur Bai Wei.
 
@@ -116,9 +116,9 @@ Ce changement soudain surprit Bai Wei.
 
 En présence de Wang Lin, même si son cœur brûlait d'envie, Xu Liguo n'osait pas trop en faire. Il ne put que regarder Bai Wei avec impuissance tout en maudissant intérieurement: « Ce maudit démon de Wang Lin! Il ne va pas le manger lui-même, et il ne laissera pas non plus le Grand-père Xu en profiter. Il n'y a aucune justice, aucune justice! »
 
-Bai Wei fronça les sourcils et dit: « Frère Aîné Wang! »
+Bai Wei fronça les sourcils et dit: « Senior Frère Wang! »
 
-Wang Lin fut immédiatement embarrassé. Il était très rare qu'il ressente de l'embarras, et Bai Wei venait de le lui faire subir deux fois.
+Wang Lin fut immédiatement embarrassé. Il était très rare qu'il ressente de l'embarras; il ne l'avait connu que deux fois dans sa vie, presque toujours à cause de Bai Wei.
 
 Pendant que Wang Lin rougissait, les yeux de Xu Liguo s'illuminèrent en fixant Bai Wei. Il pensa: « Le Ciel a souri à Xu Liguo en lui faisant rencontrer l'amour de sa vie. Je n'y tiens plus! » Une fumée noire apparut autour de lui et il se transforma en une immense gueule qui semblait prête à dévorer Bai Wei.
 
@@ -126,7 +126,7 @@ Pendant que Wang Lin rougissait, les yeux de Xu Liguo s'illuminèrent en fixant 
 
 Xu Liguo sursauta et lança un regard féroce à Wang Lin au moment où celui-ci le saisissait. Puis, il retrouva aussitôt son air flatteur en répétant: « Maître, Maître, je sais que j'ai eu tort. J'ai eu tort! »
 
-Wang Lin agrippa Xu Liguo et dit: « Bai... Sœur Cadette Bai, veuillez nous guider. »
+Wang Lin agrippa Xu Liguo et dit: « Bai... Junior Sœur Bai, veuillez nous guider. »
 
 Bai Wei remarqua également quelque chose et regarda Xu Liguo avec un grand intérêt. Ce regard excita Xu Liguo.
 

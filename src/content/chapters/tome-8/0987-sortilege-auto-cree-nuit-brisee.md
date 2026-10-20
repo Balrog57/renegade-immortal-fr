@@ -20,7 +20,7 @@ Plus tard, réalisant qu'il ne pourrait résister à tous par sa seule puissance
 
 Quant à savoir lequel, après avoir recoupé tous les événements, ils déterminèrent que c'était le Royaume Shi!
 
-En réfléchissant à la manière dont Liu Wen avait pu utiliser tous ces sorts inédits, une rumeur se répandit, affirmant que dans le Royaume Shi, où la vie se perpétue sans fin, quiconque pourrait créer son propre monde... Et désormais, ces rumeurs qui ne pouvaient être confirmées s'étaient propagées aux quatre coins du monde.
+En réfléchissant à la manière dont Liu Wen avait pu utiliser tous ces sorts inédits, une rumeur se répandit, affirmant que dans le Royaume Shi, où la vie se perpétue sans fin, quiconque pourrait créer ses propres sortilèges du Ciel et de la Terre... Et désormais, ces rumeurs qui ne pouvaient être confirmées s'étaient propagées aux quatre coins du monde.
 
 Le Royaume Ji est la mort, et le Royaume Shi est la vie!
 

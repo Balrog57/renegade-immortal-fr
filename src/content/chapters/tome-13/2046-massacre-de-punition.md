@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2046 - Punishment Slaughter!"
 slug: massacre-de-punition
 ---
-Le corps sphérique de la boule de viande était illusoire; dès son apparition, il fut enveloppé d'un gaz noir. Il poussa un hurlement et s'élança vers le véritable corps des cinq éléments de Wang Lin.
+Le corps sphérique de la boule de viande était illusoire; dès son apparition, il fut enveloppé d'un gaz noir. Il poussa un hurlement et s'élança vers le véritable corps des cinq éléments de Wang Lin, qui mesurait dix mille pieds.
 
 À mesure qu'il approchait, son cri devenait plus strident encore.
 
@@ -54,7 +54,7 @@ Durant les cent dernières années, Wang Lin avait utilisé le Temps Fluide et l
 
 Les cinq véritables corps d'essence absorbèrent tous l'âme de la bête féroce. Ils utilisaient l'attraction mutuelle de cette âme et son instinct de se reconstituer pour tenter de fusionner entre eux!
 
-Dans la chambre secrète, après l'apparition des véritables corps d'essence de restriction, du commencement absolu et de la fin absolue, un étrange éclair parcourut le corps de Wang Lin. Une autre ombre superposée apparut alors que son véritable corps d'essence de tonnerre de massacre s'élançait depuis la chambre secrète vers le ciel.
+Dans la chambre secrète, après l'apparition des véritables corps d'essence de restriction, du commencement absolu et de la fin absolue, une lueur étrange brilla dans les yeux de Wang Lin, et un éclair noir parcourut son corps. Une autre ombre superposée apparut alors que son véritable corps d'essence de tonnerre de massacre s'élançait depuis la chambre secrète vers le ciel.
 
 En s'élevant, le véritable corps de tonnerre de massacre propagea un tonnerre noir qui fit trembler l'air dans un grondement assourdissant.
 
@@ -70,11 +70,11 @@ Après le temps nécessaire pour brûler un bâton d'encens, d'innombrables fiss
 
 L'une était le véritable corps d'essence de tonnerre, formé depuis longtemps. L'autre arborait une chevelure noire — c'était le véritable corps d'essence de massacre, froid et indifférent!
 
-Une fois apparu, ce corps d'essence fixa calmement le ciel, libérant une aura terrifiante. C'était une aura de destruction pure, représentant le chaos et le carnage!
+Une fois apparu, ce corps d'essence fixa calmement le ciel, libérant une aura terrifiante. C'était une aura de destruction pure, qui anéantissait les êtres et détruisait ciel et terre, la puissance même du massacre!
 
-« Je suis Massacre... » murmura le Wang Lin aux cheveux noirs.
+« Je m'appelle Massacre... » murmura le Wang Lin aux cheveux noirs.
 
-Il baissa la tête et son regard balaya la foule. Lorsque les gardes au sol furent frappés par cette vision, ils poussèrent des cris déchirants. Ce n'était pas tant à cause de la douleur ou de la mort, mais par la peur!
+Il baissa la tête et son regard balaya la foule. Lorsque les gardes du palais furent frappés par cette vision, ils poussèrent des cris déchirants. Ce n'était pas tant à cause de la douleur ou de la mort, mais par la peur!
 
 Une peur viscérale qui émanait de l'âme même!
 
@@ -92,9 +92,9 @@ Au même moment, les véritables corps d'essence du commencement absolu et de la
 
 « Personne ne peut me contrôler, je suis Massacre! » Alors qu'il rugissait, les ombres superposées furent repoussées de quelques centimètres hors de son corps. La scène était d'un grand mystère!
 
-Un second ricanement glacial retentit. Le Wang Lin aux cheveux noirs frissonna et, simultanément, le véritable corps des cinq éléments apparut dans le ciel. Celui-ci rétrécit et agita la main: une immense paume d'énergie des cinq éléments s'abattit sur lui.
+Un second ricanement glacial retentit. Le Wang Lin aux cheveux noirs frissonna et, simultanément, le véritable corps des cinq éléments apparut dans le ciel. Celui-ci rétrécit et se mua en une immense paume d'énergie des cinq éléments qui s'abattit sur lui.
 
-« Je suis Massacre! » Le Wang Lin aux cheveux noirs leva les yeux et libéra une force destructrice. Alors qu'il s'apprêtait à lutter, une pression écrasante se manifesta autour de lui, chargée d'un puissant Sens Divin qui l'écrasait.
+« Je suis Massacre! » Le Wang Lin aux cheveux noirs leva les yeux et libéra une force destructrice. Alors qu'il s'apprêtait à lutter, une pression écrasante se manifesta dans un rayon de cent mille pieds autour de lui, chargée d'un puissant Sens Divin qui l'écrasait.
 
 À ce moment précis, l'ombre d'un Luo Hou apparut derrière le Wang Lin aux cheveux noirs. Cette ombre était fragmentée, mais d'innombrables fils noirs surgirent pour lier les morceaux entre eux. Les ombres superposées autour de lui cessèrent de s'étendre et fusionnèrent toutes ensemble.
 
@@ -106,7 +106,7 @@ Une voix puissante résonna à travers le monde tandis que l'ombre du Luo Hou de
 
 La pression se dissipa et le monde retrouva son calme. Le Wang Lin aux cheveux noirs resta ainsi, la chevelure sombre. Il se tenait là et leva lentement la tête.
 
-« Je suis Massacre de Punition! » Sa voix était calme et d'un froid glacial. Elle ne contenait aucune émotion, seulement une indifférence absolue. Il représentait la destruction et le massacre de Wang Lin, de quoi faire trembler les cieux et la terre, et faire connaître la peur aux ennemis de ce dernier.
+« Je suis Massacre de Punition! » Sa voix était calme et d'un froid glacial. Elle ne contenait aucune émotion, seulement une indifférence absolue. Il représentait l'intention meurtrière et la destruction de Wang Lin, de quoi faire trembler les cieux et la terre, et faire connaître la peur aux ennemis de ce dernier.
 
 En levant la tête, son regard froid perça l'horizon, semblant capable de franchir des distances infinies. Son regard tomba directement sur la pointe de la corne de la Montagne de l'Origine, sur un Song Tian pétrifié!
 

@@ -8,7 +8,7 @@ slug: sept-coups-depee-fauchent-la-montagne-celeste-1
 ---
 À l'instant même où Wang Lin pénétra dans les 7 Millions de Mondes via le talisman, un réseau de lumière apparut devant lui. Ce bouclier lumineux lui offrait une protection, lui permettant de reculer encore plus rapidement.
 
-L'tonnerre éternel frappa immédiatement le réseau de lumière, et un grondement tonitruant résonna à travers les 7 Millions de Mondes. Le réseau vacilla frénétiquement avant de s'effondrer.
+Le tonnerre éternel frappa immédiatement le réseau de lumière, et un grondement tonitruant résonna à travers les 7 Millions de Mondes. Le réseau vacilla frénétiquement avant de s'effondrer.
 
 Au moment où le réseau se brisa, les dizaines de milliers de membres du Clan du Tonnerre Dispersé présents dans les 7 Millions de Mondes saignèrent abondamment par tous leurs orifices et périrent instantanément!
 
@@ -16,17 +16,17 @@ Le Daoïste Esprit Dispersé avait capturé tous les membres du clan ici après 
 
 À cet instant, le réseau s'effondra et tous les membres du Clan du Tonnerre Dispersé présents moururent!
 
-L'tonnerre éternel trembla également. La protection du réseau avait été si puissante qu'elle avait considérablement affaibli l'éclair. Alors que celui-ci s'apprêtait à poursuivre Wang Lin, une silhouette illusoire surgit du vide!
+Le tonnerre éternel trembla également. La protection du réseau avait été si puissante qu'elle avait considérablement affaibli l'éclair. Alors que celui-ci s'apprêtait à poursuivre Wang Lin, une silhouette illusoire surgit du vide!
 
-Le Daoïste Esprit Dispersé émergea du néant, le regard mystérieux, et saisit l'tonnerre éternel de sa main droite.
+Le Daoïste Esprit Dispersé émergea du néant, le regard mystérieux, et saisit le tonnerre éternel de sa main droite.
 
-Des grondements assourdissants ébranlèrent le monde. Les vêtements du Daoïste Esprit Dispersé flottaient violemment, des craquements résonnaient dans son corps et il cracha du sang. Pourtant, il maintint sa prise sur l'tonnerre éternel. Bien que celui-ci continuât de faiblir, il ne s'effondrait pas encore.
+Des grondements assourdissants ébranlèrent le monde. Les vêtements du Daoïste Esprit Dispersé flottaient violemment, des craquements résonnaient dans son corps et il cracha du sang. Pourtant, il maintint sa prise sur le tonnerre éternel. Bien que celui-ci continuât de faiblir, il ne s'effondrait pas encore.
 
-Wang Lin cessa de reculer et chargea. Sa main droite se crispa en un poing et il lança un coup sans la moindre hésitation. La foudre jaillit de son œil droit, formant un réseau de tonnerre.
+Wang Lin cessa de reculer et chargea. Sa main droite se crispa en un poing et il lança un coup sans la moindre hésitation. La foudre jaillit de son œil droit et se répandit en une nappe d'éclairs.
 
-Le Daoïste Esprit Dispersé poussa un rugissement et serra l'éclair plus fort, ce qui l'affaiblit davantage. Puis il relâcha sa pression, et à cet instant précis, le coup de poing de Wang Lin et la foudre s'abattirent sur cette portion de l'tonnerre éternel.
+Le Daoïste Esprit Dispersé poussa un rugissement et serra l'éclair plus fort, ce qui l'affaiblit davantage. Puis il relâcha sa pression, et à cet instant précis, le coup de poing de Wang Lin et la foudre s'abattirent sur cette portion du tonnerre éternel.
 
-Un fracas assourdissant retentit et, grâce à leur attaque combinée, l'tonnerre éternel finit par se briser!
+Un fracas assourdissant retentit et, grâce à leur attaque combinée, le tonnerre éternel finit par se briser!
 
 Une onde de choc dévastatrice projeta Wang Lin et le Daoïste Esprit Dispersé en arrière. Tout cela se produisit en un éclair. Tandis qu'ils reculaient, le Grand Ancien apparut non loin de là.
 
@@ -42,19 +42,19 @@ L'Ancien affichait une expression extrêmement grave; grâce à son intelligence
 
 En entrant dans les 7 Millions de Mondes, il était tombé dans le piège de l'autre! Cependant, sa culture était colossale, n'étant surpassée que par les cultivateurs de la troisième étape. Bien qu'il sût que Wang Lin devait être préparé, il ne paniqua pas. Il observa le Daoïste Esprit Dispersé en fronçant légèrement les sourcils.
 
-« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la divine tribulation! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan du Tonnerre Dispersé ne s'en était aperçu auparavant!
+« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la tribulation divine! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan du Tonnerre Dispersé ne s'en était aperçu auparavant!
 
 Une telle chose dépassait l'entendement, et il ne comprenait pas comment cela avait été possible. Mais désormais qu'il l'avait découvert, il devait impérativement tuer cet homme!
 
 Le Daoïste Esprit Dispersé sourit. Une rancœur monstrueuse brillait dans ses yeux alors qu'il fixait l'Ancien: « J'ai survécu jusqu'à ce jour pour briser ce monde, détruire le prétendu Royaume Céleste dont votre clan se targue, et vous tuer! »
 
-L'Ancien eut un rictus méprisant et fit un geste de la main. Tout en avançant, il déclara froidement: « Quelles inepties! Même si vous unissez vos forces, vous ne faites pas le poids face à moi! »
+L'Ancien eut un rictus méprisant et fit un geste de la main. Tout en avançant, il déclara froidement: « Quelle présomption! Même si vous unissez vos forces, vous ne faites pas le poids face à moi! »
 
 D'un revers de main, le monde trembla et une foudre infinie apparut devant l'Ancien. Elle se mua en d'innombrables sphères de tonnerre qui foncèrent sur Wang Lin et le Daoïste Esprit Dispersé!
 
-Le Daoïste Esprit Dispersé esquissa un sourire, révélant une pointe d'excitation et de folie. Il avait enduré, subi et caché sa présence pendant d'innombrables années; aujourd'hui, il allait enfin pouvoir tout déchaîner!
+Le Daoïste Esprit Dispersé eut un sourire féroce, révélant une pointe d'excitation et de folie. Il avait enduré, subi et caché sa présence pendant d'innombrables années; aujourd'hui, il allait enfin pouvoir tout déchaîner!
 
-Sa haine envers le Royaume Céleste et le Clan du Tonnerre Dispersé le fit éclater d'un rire tonitruant!
+Sa haine envers le Royaume Céleste et le Clan du Tonnerre Dispersé le fit éclater d'un long rire déchirant!
 
 « Aujourd'hui, moi, Esprit Dispersé, je vengerai les générations de mon clan mortes par votre faute. Je veux... tuer les immortels! » Il fit un pas en avant, ses mains traçant des sceaux qu'il projeta sur le côté.
 
@@ -102,9 +102,9 @@ Les ondulations de la Formation des Nuages de Tonnerre devinrent encore plus int
 
 Fracas, fracas, fracas!
 
-Alors que l'illusion des 7 Millions de Mondes se rétractait brutalement, elle s'effondra, créant une onde de choc surpuissante. Cela plongea la Formation des Nuages de Tonnerre dans le chaos, et une grande partie d'elle se désintégra!
+Alors que l'illusion des 7 Millions de Mondes se rétractait brutalement, elle s'effondra, mais une puissante force de riposte en jaillit, créant une onde de choc surpuissante. Cela plongea la Formation des Nuages de Tonnerre dans le chaos, et une grande partie d'elle se désintégra!
 
-Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Il leva sa main droite et pressa impitoyablement vers le bas! Au moment où sa main descendit, le monde dans ses yeux bascula soudainement!
+Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Il leva sa main droite, pointa le ciel et pressa impitoyablement vers le bas! Au moment où sa main descendit, le monde dans ses yeux bascula soudainement!
 
 Sceau d'Inversion Céleste!
 

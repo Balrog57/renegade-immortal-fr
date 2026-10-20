@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1980 - Not Going!"
 slug: je-ne-partirai-pas
 ---
-Ce point représentait l'apogée de la puissance de Wang Lin. Il contenait non seulement son avatar dans le vide, mais aussi toute la force de son armure d'âme. Le corps véritable à cinq éléments et le corps véritable d'essence tonnerre de Wang Lin se manifestèrent. Même ses trois essences éthérées apparurent, formant trois immenses vortex derrière lui!
+Ce point représentait l'apogée de la puissance de Wang Lin. Il contenait non seulement son avatar dans le vide, mais aussi toute la force de son armure d'âme. Le corps véritable à cinq éléments et le corps véritable d'essence tonnerre de Wang Lin se manifestèrent. Même ses trois essences éthérées apparurent, formant trois vortex flous derrière lui!
 
 Toute cette force convergea vers son doigt. Grâce à la formation créée par la lumière dorée et les fragments de la Lame Yin, Wang Lin pouvait exploiter la puissance de son avatar dans le vide jusqu'à son paroxysme.
 
@@ -38,7 +38,7 @@ Pourtant, au moment même où le doigt se désintégrait, une voix calme résonn
 
 Alors que ces paroles résonnaient, le doigt effondré se reforma comme si de rien n'était, et il percuta à nouveau le doigt de Wang Lin!
 
-« Car là où il y a existence, elle devient néant une fois perdue! »
+« Car là où il y a existence, elle devient le vide une fois perdue! »
 
 À l'instant où les deux doigts se touchèrent, la puissance du Dao Antique de Wang Lin disparut, comme si elle avait été réduite au néant! De plus, les sorts qu'il avait accumulés ainsi que la puissance du Taureau Céleste s'évanouirent, comme s'ils avaient été balayés de l'existence même.
 
@@ -62,7 +62,7 @@ Tandis que les cent flèches de neige prenaient forme, les cent individus crach�
 
 « Cultivateurs de la mort! » Les pupilles de Wang Lin se rétractèrent. Tous ceux qui étaient apparus dans ce piège, à l'exception du doigt, étaient des cultivateurs de la mort. Ils avaient tous offert la mort en sacrifice pour instaurer ce terrifiant piège!
 
-Wang Lin avait déjà rencontré cette situation maintes fois, mais aucune n'avait été comparable à celle-ci. Jusqu'alors, ceux qui traquaient Wang Lin se souciaient de leur propre vie, mais ces gens-là ne craignaient pas la mort!
+Wang Lin avait déjà rencontré cette situation plusieurs fois, mais aucune n'avait été comparable à celle-ci. Jusqu'alors, ceux qui traquaient Wang Lin se souciaient de leur propre vie, mais ces gens-là ne craignaient pas la mort!
 
 En un clin d'œil, les corps des cent silhouettes disparurent; même leurs os ne subsistèrent pas. Cependant, au moment de leur trépas, les flèches furent décochées et cent bourdonnements retentirent!
 
@@ -80,7 +80,7 @@ La voix de Wang Lin perça le fracas!
 
 « Je crois que toutes les ténèbres seront détruites devant la lumière! »
 
-« Je crois que toute existence s'éteindra sous le soleil levant! »
+« Je crois que toute existence deviendra néant sous le soleil levant! »
 
 « Je crois que tout vide et tout néant seront incapables d'entrer dans la réincarnation! »
 
@@ -112,7 +112,7 @@ Le regard de Wang Lin était calme, mais une lueur y brillait tandis qu'il obser
 
 « Puisque vous ne voulez pas que je parte, alors je ne partirai pas aujourd'hui! La meilleure façon de briser ce piège mortel est de tous vous massacrer. Ce piège se rompra une fois que je l'aurai fait. » Les cheveux blancs de Wang Lin commencèrent à s'allonger et leurs racines devinrent noires, comme si sa chevelure entière allait virer au noir!
 
-Ses yeux révélaient une froideur sans pitié nichée dans la sérénité. C'était une indifférence totale envers le monde, dépourvue de toute émotion. À cet instant, Wang Lin était tel un bloc de glace éternelle!
+Ses yeux révélaient une froideur sans pitié nichée dans la sérénité. C'était une indifférence totale envers le monde, dépourvue de toute émotion. À cet instant, Wang Lin était telle une neige qui ne fond jamais!
 
 « Je ne voulais pas que le massacre s'abatte, mais maintenant, vous tous... vous devez subir mon carnage! » Wang Lin ferma les yeux. C'était comme si une divinité de la guerre avait descendu sur terre. Pour la première fois, son essence du Tonnerre du Massacre prit le contrôle!
 

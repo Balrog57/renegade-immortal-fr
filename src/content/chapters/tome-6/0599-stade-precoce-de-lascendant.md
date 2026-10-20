@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 599 - Early Stage Ascendant
 slug: stade-precoce-de-lascendant
 ---
-La fusion du domaine et de l'énergie spirituelle céleste est un processus de combustion. L'énergie spirituelle céleste sert de combustible, et le domaine affiné par cette flamme se transforme en un Cristal d'Ascension!
+La fusion du domaine et de l'énergie spirituelle céleste est un processus de combustion. L'énergie spirituelle céleste sert de combustible, et le domaine affiné par cette flamme se transforme en un Cristal d'Ascendant!
 
-Au moment où le Cristal d'Ascension se forme, on peut avoir l'impression de ne plus rien être, comme si notre âme errait entre ciel et terre. Ce sentiment est extrêmement rare; on l'appelle l'Éveil de l'Ascendant.
+Au moment où le Cristal d'Ascendant se forme, on peut avoir l'impression de ne plus rien être, comme si notre âme errait entre ciel et terre. Ce sentiment est extrêmement rare; on l'appelle l'Éveil de l'Ascendant.
 
 Normalement, la première chose que font les cultivateurs sur une planète de culture est d'utiliser ce moment de compréhension pour tenter de ramener leur fragment d'âme depuis le cristal de la planète de culture. Bien que la chance ne soit que de 50 %, ils doivent impérativement essayer!
 
@@ -42,7 +42,7 @@ Le domaine à l'intérieur du cocon finit par fondre totalement pour devenir une
 
 À l'époque antique, le mot « cultivateur » n'existait pas encore. Ils se nommaient alors des « affineurs d'énergie »!
 
-Les puissants affineurs d'énergie de Kunlu étaient l'exemple type de ces anciens êtres. Ils se nommaient ainsi en raison de la nature même de l'énergie originelle et parce que leur culture se concentrait exclusivement sur elle!
+Les puissants affineurs d'énergie de Kunlun étaient l'exemple type de ces anciens êtres. Ils se nommaient ainsi en raison de la nature même de l'énergie originelle et parce que leur culture se concentrait exclusivement sur elle!
 
 Ce flux d'énergie originelle fut formé à partir du domaine de Wang Lin. L'énergie était nourrie par le cocon et, telle une créature dans le ventre de sa mère, elle continuait de croître en puissance.
 
@@ -54,7 +54,7 @@ Ce souffle de véritable énergie était précisément cette énergie originelle
 
 La flamme invisible dans le corps de Wang Lin devint encore plus intense. L'énergie originelle au sein du cocon d'âme se condensa jusqu'à devenir une substance liquide, d'une clarté cristalline, prenant diverses formes.
 
-Toutefois, ce liquide refusait de se cristalliser. Et sans cristallisation, point de Cristal d'Ascension!
+Toutefois, ce liquide refusait de se cristalliser. Et sans cristallisation, point de Cristal d'Ascendant!
 
 La conscience de Wang Lin était parfaitement éveillée. Après plusieurs tentatives infructueuses, il prit une profonde inspiration. À cet instant, les jades célestes autour de lui explosèrent, libérant toute leur énergie spirituelle. Celle-ci se propagea comme une fumée et pénétra rapidement le corps de Wang Lin par son nez.
 
@@ -70,21 +70,21 @@ Ce mouvement modifia instantanément la nature de la flamme céleste. Au lieu de
 
 La flamme invisible dans le corps de Wang Lin commença à devenir une flamme réelle; il était sur le point d'échouer dans sa tentative pour atteindre le stade d'Ascendant!
 
-Mais précisément à cet instant, le Cristal d'Ascension que Zhou Yi lui avait offert et qu'il avait dévoré précédemment sortit de son dantian pour fusionner avec la flamme céleste.
+Mais précisément à cet instant, le Cristal d'Ascendant que Zhou Yi lui avait offert et qu'il avait dévoré précédemment sortit de son dantian pour fusionner avec la flamme céleste.
 
 Non seulement la flamme ne put l'affecter, mais dès qu'elle s'en approchait, elle faiblissait comme si cet objet pouvait l'éteindre.
 
-Le Cristal d'Ascension de Zhou Yi atteignit le cocon d'âme originelle et y pénétra sans aucune obstruction, venant se placer aux côtés du Cristal d'Ascension de Wang Lin.
+Le Cristal d'Ascendant de Zhou Yi atteignit le cocon d'âme originelle et y pénétra sans aucune obstruction, venant se placer aux côtés du Cristal d'Ascendant de Wang Lin.
 
 Les deux Cristaux d'Ascension: l'un représentant la vie et la mort, l'autre l'obsession jusqu'à la mort. Le Cristal de Zhou Yi fit une fois le tour de celui de Wang Lin avant de s'effondrer!
 
-Au moment de son effondrement, toute l'énergie originelle qu'il contenait fut absorbée par le Cristal d'Ascension de Wang Lin!
+Au moment de son effondrement, toute l'énergie originelle qu'il contenait fut absorbée par le Cristal d'Ascendant de Wang Lin!
 
-Le Cristal d'Ascension de Wang Lin grandit à une vitesse visible à l'œil nu. Il croît de manière effrénée, passant de la taille d'un ongle à celle de son petit doigt!
+Le Cristal d'Ascendant de Wang Lin grandit à une vitesse visible à l'œil nu. Il croît de manière effrénée, passant de la taille d'un ongle à celle de son petit doigt!
 
 À cet instant, le cocon d'âme originelle cessa de bouger et la flamme céleste cessa de devenir réelle. Bien que cela puisse paraître simple, ce fut un moment de vie ou de mort!
 
-Après avoir absorbé l'énergie originelle du Cristal de Zhou Yi, le Cristal d'Ascension de Wang Lin prit sa forme définitive. Aussitôt, le cocon d'âme originelle se rétracta rapidement pour venir l'envelopper.
+Après avoir absorbé l'énergie originelle du Cristal de Zhou Yi, le Cristal d'Ascendant de Wang Lin prit sa forme définitive. Aussitôt, le cocon d'âme originelle se rétracta rapidement pour venir l'envelopper.
 
 Une nouvelle aura se formait lentement à l'intérieur du cocon!
 
@@ -92,21 +92,21 @@ Ce processus dura très longtemps...
 
 Wang Lin était assis en position de lotus dans cette grotte. Il restait immobile, comme s'il avait toujours été là.
 
-À l'extérieur, le temps s'écoulait rapidement. Dans le Pays du Démon Céleste, la Cité des Démons Célestes avait déjà été reconstruite depuis dix ans. Sa taille et son étendue étaient redevenues identiques à celles d'autrefois!
+À l'extérieur, le temps s'écoulait rapidement. Dans le Pays du Démon Céleste, la Cité du Démon Céleste avait déjà été reconstruite depuis dix ans. Sa taille et son étendue étaient redevenues identiques à celles d'autrefois!
 
-La capitale impériale se dressait toujours, et la grande place était de retour! Le tambour de démon géant trônait également sur la place!
+La capitale impériale se dressait toujours, et la grande place était de retour! Le tambour démoniaque géant trônait également sur la place!
 
-Dix années s'étaient écoulées en un instant. Les habitants de la Cité des Démons Célestes avaient échappé à la catastrophe dix ans auparavant, mais ce qu'ils avaient vu resterait gravé dans leur mémoire à jamais!
+Dix années s'étaient écoulées en un instant. Les habitants de la Cité du Démon Céleste avaient échappé à la catastrophe dix ans auparavant, mais ce qu'ils avaient vu resterait gravé dans leur mémoire à jamais!
 
 La rumeur concernant un cultivateur nommé Wang Lin circulait toujours dans toute la cité. Le bateau n'était plus là, et les gens qui l'occupaient avaient disparu. Personne ne jouait plus de la cithare...
 
-Le jeune homme qui avait autrefois bu avec Wang Lin se tenait désormais sur un pavillon du palais impérial. Une jeune fille se trouvait à ses côtés; elle était très belle, mais arborait une expression espiègle.
+Le jeune homme qui avait autrefois bu avec Wang Lin se tenait désormais sur un pavillon de la capitale. Une jeune fille se trouvait à ses côtés; elle était très belle, mais arborait une expression espiègle.
 
 Si Xu Liguo avait été là et l'avait vue, il aurait bavé avant de se précipiter vers elle en criant: « Petite beauté, ton grand frère Xu est de retour! »
 
-Le jeune homme poussa un soupir et marmonna: « C'est étrange. Cela fait dix ans que ce petit gars a disparu. Même avec les cinq ancêtres travaillant de concert pour le chercher avec leur Sens Divin, ils ne trouvent aucune trace de lui. C'est comme si... comme s'il avait quitté cette Terre des Esprits Démons! »
+Le jeune homme poussa un soupir et marmonna: « C'est étrange. Cela fait dix ans que ce petit gars a disparu. Même avec les cinq ancêtres travaillant de concert pour le chercher avec leur Sens Divin, ils ne trouvent aucune trace de lui. C'est comme si... comme s'il avait quitté cette Terre des Esprits Démoniaques! »
 
-La capitale de la Cité des Démons Célestes!
+Dans le Pays du Démon Céleste, la Cité Terrestre!
 
 Après la reconstruction de la ville, une demeure très glorieuse fut bâtie sur le côté est. Cette demeure arborait une grande plaque portant quatre grands caractères:
 
@@ -128,7 +128,7 @@ Peu après, une autre fissure surgit, puis de nombreuses autres parcourent l'ens
 
 Au moment de l'éclatement, des rayons de lumière grise jaillirent de l'intérieur. Puis, une âme originelle nouvellement née émergea lentement du cocon.
 
-Cette âme originelle n'était plus transparente mais totalement solide. Il n'y avait presque aucune différence entre elle et la chair. Le Cristal d'Ascension tournait lentement à l'intérieur de l'âme originelle, en diffusant de l'énergie originelle.
+Cette âme originelle n'était plus transparente mais totalement solide. Il n'y avait presque aucune différence entre elle et la chair. Le Cristal d'Ascendant tournait lentement à l'intérieur de l'âme originelle, en diffusant de l'énergie originelle.
 
 Pour un cultivateur Ascendant, son âme originelle est son domaine! C'est l'état véritable d'un domaine une fois qu'il a intégré le corps!
 

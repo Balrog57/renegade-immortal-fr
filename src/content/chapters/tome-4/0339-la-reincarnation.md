@@ -32,7 +32,7 @@ Ses yeux étaient emplis d'une intention de combat féroce. Il s'élança rapide
 
 Dans un fracas retentissant, il chargea la main!
 
-Cependant, dans un boom semblable à l'effondrement des cieux, la lance vola en éclats et redevint du gaz de restriction. Le corps original fut frappé par une force colossale et s'écrasa lourdement au sol.
+Cependant, dans un fracas semblable à l'effondrement des cieux, la lance vola en éclats et redevint du gaz de restriction. Le corps original fut frappé par une force colossale et s'écrasa lourdement au sol.
 
 Lors de son impact, de nombreuses fissures se propagèrent autour de lui. Le corps original continua de s'enfoncer dans les profondeurs, ne s'arrêtant que lorsqu'il atteignit mille cinq cents kilomètres sous la surface.
 
@@ -88,7 +88,7 @@ En réalité, ils ne pouvaient effectivement pas l'entendre; nul autre que Wang 
 
 La seule trace visible pour les autres était le gouffre creusé par le corps original, mais le son de l'impact, en parcourant une telle distance, était devenu trop faible pour être remarqué.
 
-Dans ce village de moins de cent âmes, une femme cuisinait du porridge. Elle levait occasionnellement la tête pour regarder les enfants jouer tout en portant la main sur son ventre.
+Dans ce village de moins de cent âmes, une femme cuisinait du porridge. Elle levait occasionnellement la tête pour regarder par la fenêtre les enfants jouer, la main posée sur son ventre.
 
 Flottant dans les airs au-dessus du village, Wang Lin agita le parchemin. L'Âme Naissante de Li Muwan en sortit et commença immédiatement à se dissiper.
 
@@ -112,13 +112,13 @@ Bang!
 
 Wang Lin saignait par tous ses orifices, mais il se mit à rire. Il riait sans s'arrêter, jusqu'à ce que ses éclats de rire résonnent comme une pure folie.
 
-« Vous voulez anéantir Wan Er pour la forcer à retourner dans le cycle de la réincarnation? Moi, Wang Lin, je ne vous le permettrai pas! »
+« Vous voulez effacer toute trace de Wan Er pour la forcer à retourner dans le cycle de la réincarnation? Moi, Wang Lin, je ne vous le permettrai pas! »
 
 Les yeux froids des nuages rouges fixèrent Wang Lin, et le poing retomba.
 
-Wang Lin le bloqua encore une fois. Cette fois, de nombreuses parties de son corps se brisèrent et le sang jaillit de sa bouche et de son nez. Pourtant, son expression devint plus farouche encore alors qu'il riait face aux yeux dans les nuages: « Ce que je cultive, c'est la voie du cycle de réincarnation des cieux. Un jour, je prendrai la place de ce cycle! Alors, je ferai en sorte que ce cycle obéisse à mes ordres et que vous, simple illusion créée par lui, vous incliniez devant moi! »
+Wang Lin le bloqua encore une fois. Cette fois, de nombreuses parties de son corps se brisèrent et le sang jaillit de sa bouche et de son nez. Pourtant, son expression devint plus farouche encore alors qu'il riait face aux yeux dans les nuages: « Ce que je cultive, c'est la voie du cycle de réincarnation des cieux. Un jour, je prendrai la place de ce cycle! Alors, je ferai en sorte que ce cycle obéisse à mes ordres et que vous, simple illusion créée par lui, vous agenouilliez à mes pieds! »
 
-Le regard dans les nuages restait imperturbable, comme s'il observait un mortel désespéré débiter des absurdités.
+Le regard dans les nuages restait imperturbable, comme s'il observait un simple mortel débiter des absurdités.
 
 L'Âme Naissante de Li Muwan avait déjà atteint le village et fusionnait silencieusement avec la chair à l'intérieur du ventre de la femme.
 

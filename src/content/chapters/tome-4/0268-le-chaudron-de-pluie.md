@@ -18,7 +18,7 @@ L'homme n'eut même pas le temps d'émettre un son avant de chuter du ciel. En p
 
 Son Âme Naissante n'eut pas le temps de s'échapper; elle fut instantanément pulvérisée par le Royaume Ji.
 
-Bien que le Royaume Ji de Wang Lin ne puisse pas tuer des cultivateurs au stade de la Formation de l'Âme avant qu'il n'obtienne le trésor planétaire de Suzaku, il était amplement suffisant pour des cultivateurs de l'Âme Naissante.
+Bien que le Royaume Ji de Wang Lin ne puisse pas tuer des cultivateurs au stade de la Formation de l'Âme avant qu'il n'obtienne le trésor national de Suzaku, il était amplement suffisant pour des cultivateurs de l'Âme Naissante.
 
 Après avoir tué ces trois hommes, il se retourna et fixa Zhou Wutai.
 

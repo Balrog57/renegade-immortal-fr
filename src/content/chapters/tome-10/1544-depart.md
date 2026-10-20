@@ -8,9 +8,9 @@ slug: depart
 ---
 « Cher Maître, veuillez accepter ce disciple! »
 
-Le fou s'agenouilla devant Wang Lin, la Bête des Limbes à ses côtés. Il continua de se prosterner, les yeux empreints d'une immense révérence.
+Sur la planète de culture en ruine, à l'intérieur de la Bête des Limbes, le fou s'agenouilla devant Wang Lin, la Bête à ses côtés. Il continua de se prosterner, les yeux empreints d'une immense révérence.
 
-« Par le serment de mon ancêtre céleste, ce roi, Lian Daofei, vous vénère comme son maître et ne se rebellera jamais contre vous de toute sa vie! » Tandis qu'il parlait, le fou leva la main droite et frappa l'endroit entre ses sourcils.
+« Par le serment de mon ancêtre céleste, ce roi, Lian Daofei, vous vénère comme son maître et ne trahira jamais votre école de toute sa vie! » Tandis qu'il parlait, le fou leva la main droite et frappa l'endroit entre ses sourcils.
 
 Une puissance mystérieuse jaillit de l'intérieur de son corps et s'élança vers Wang Lin. En un éclair, elle pénétra dans le corps de ce dernier.
 
@@ -46,7 +46,7 @@ De plus, les quatre sorts que Wang Lin venait de recevoir lui demanderaient déj
 
 « Je t'emmènerai d'ici dans trois jours! » Wang Lin réfléchit, puis ferma les yeux. Il savait que le temps pressait. Il devait obtenir suffisamment de Fruits du Dao pour contrer la force de rejet qui pesait sur lui comme une épée suspendue au-dessus de sa tête.
 
-Il comptait supprimer cette force de rejet dans son corps jusqu'à un certain point afin d'avoir la puissance nécessaire pour accomplir ses tâches restantes.
+Il comptait réprimer cette force de rejet dans son corps jusqu'à un certain point afin d'avoir la puissance nécessaire pour accomplir ses tâches restantes.
 
 « Non! Ce roi vous a déjà vénéré comme maître! Vous ne m'avez même pas encore enseigné un seul sort, alors ce roi refuse! Enseignez-moi vite un sort, sinon vous n'êtes qu'un tyran qui s'en prend à ce roi! » Voyant Wang Lin fermer les yeux, le fou courut vers lui et se mit de nouveau à hurler.
 
@@ -62,7 +62,7 @@ Le fou regarda le ciel avec dédain.
 
 « Ne vous moquez pas de moi, je ne suis pas stupide. Je n'apprendrai pas ce petit sort inutile! »
 
-Wang Lin agita sa main droite et les neuf dragons disparurent. Puis, il forma un sceau et le ciel se chargea de nuages sombres. La foudre éclata, le tonnerre gronda et une pluie dorée commença à tomber. Cette pluie faisait converger rapidement l'énergie originelle du monde.
+Wang Lin agita sa main droite et les neuf dragons disparurent. Puis, il forma un sceau et le ciel se chargea de nuages sombres. Le tonnerre gronda et une pluie dorée commença à tomber. Cette pluie faisait converger rapidement l'énergie originelle du monde.
 
 « Il pleut... Petit Rouge, regarde, il pleut... » Le fou fut surpris un instant avant de bâiller. Il secoua la tête en murmurant: « Vous essayez encore de me tromper? Quel genre de sort est-ce là? Ce roi ne l'apprendra pas! »
 
@@ -112,7 +112,7 @@ Le fou attrapa le jade, l'examina avec son Sens Divin, puis sauta de joie dans l
 
 « Amusant, c'est vraiment amusant! » Excité, le fou multiplia les gestes. Il fit voler des dizaines de pierres qui tournaient autour de lui. Il tournait lui-même avec elles jusqu'à en avoir le vertige, mais ses rires ne s'arrêtaient pas.
 
-Trouvant cela insuffisant, il courut plus loin et s'élança dans les airs. Il pointa le vide et la terre en dessous de lui gronda. Des centaines, voire des milliers de rochers furent projetés dans le ciel.
+Trouvant cela insuffisant, il courut plus loin et s'élança dans les airs. Il pointa le sol, et la terre se fendit de partout. Des centaines, voire des milliers de rochers se mirent à tourner autour de lui.
 
 Trois jours passèrent en un éclair. Wang Lin ouvrit les yeux, dissimulant progressivement la lueur dorée qui émanait de son regard. À moins d'observer de très près, on ne pouvait la remarquer.
 

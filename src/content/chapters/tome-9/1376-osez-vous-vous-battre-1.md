@@ -12,7 +12,7 @@ Tant dans le Domaine Intérieur que dans le Domaine Extérieur, qu'il s'agisse d
 
 Dans le Domaine Intérieur, si une secte de la région de rang 8 dans la Mer des Nuages possédait un cultivateur du troisième Fléau Céleste, elle atteindrait alors le sommet. Même dans les régions de rang 9, les cultivateurs de ce niveau étaient rares.
 
-La puissance du Domaine Intérieur était bien inférieure à celle du Domaine Extérieur. Le vieil homme apparu devant Wang Lin était un cultivateur du troisième Fléau Céleste. Le Clan des Moineaux de Feu était l'un des clans les plus prestigieux du Système Stellaire Antique; ils avaient le pouvoir d'envoyer un tel expert pour diriger le Clan des Moineaux de Feu dans les Terres Déchues.
+La puissance du Domaine Intérieur était bien inférieure à celle du Domaine Extérieur. Le vieil homme apparu devant Wang Lin était un cultivateur du troisième Fléau Céleste. Le Clan des Moineaux de Feu était l'un des clans les plus prestigieux du Système Stellaire Antique; ils avaient le pouvoir d'envoyer un tel expert pour diriger la branche du Clan des Moineaux de Feu dans les Terres Déchues.
 
 Wang Lin avait depuis longtemps remarqué l'aura du Clan des Moineaux de Feu avant d'entrer. L'apparition de ce vieil homme ne le surprit donc nullement.
 
@@ -38,7 +38,7 @@ Lorsqu'il en arriva là, Wang Lin laissa échapper un reniflement froid.
 
 Ce simple son donna l'impression que des millions d'éclairs avaient explosé à l'intérieur du pavillon. L'expression de la femme charmante changea instantanément; elle recula inconsciemment de quelques pas, le visage pâle.
 
-Quant au vieil homme du Clan des Moineaux de Feu, son corps trembla violemment. Face à ce bruit, il eut l'impression d'avoir été percuté par un char d'un million de kilogrammes. Son âme originelle vacilla, ses pupilles se rétractèrent et il cracha une bouchée de sang.
+Quant au vieil homme du Clan des Moineaux de Feu, son corps trembla violemment. Face à ce bruit, il eut l'impression d'avoir été percuté par un char de cinq cent mille kilogrammes. Son âme originelle vacilla, ses pupilles se rétractèrent et il cracha une bouchée de sang.
 
 Le feu en lui sembla perdre tout contrôle et jaillit de son corps. La chaise sous lui fut instantanément réduite en cendres et les flammes menacèrent de se propager. Wang Lin agita la main, et un vent invisible s'engouffra vers le vieil homme.
 
@@ -74,7 +74,7 @@ Le regard de Wang Lin balaya le mur. Il n'y avait aucun cristal à l'intérieur;
 
 D'un mouvement de la main droite, trois pilules apparurent dans sa paume. Dès leur apparition, une puissance ignée se dégagea d'elles, comme s'il s'agissait de trois boules de feu. Wang Lin lança les pilules vers la femme charmante.
 
-En voyant les pilules, les yeux de la femme brillèrent et elle les rattrapa. Après un examen attentif, elle s'exclama: « Ce sont des pilules d'âme forgées à partir des âmes de bêtes de feu de rang supérieur! »
+En voyant les pilules, les yeux de la femme brillèrent et elle les rattrapa. Après un examen attentif, elle s'exclama: « Ce sont des pilules d'âme forgées à partir des âmes de bêtes de feu de rang suprême! »
 
 Wang Lin demanda lentement: « Est-ce suffisant pour les cristaux? »
 

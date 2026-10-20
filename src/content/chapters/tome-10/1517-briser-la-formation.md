@@ -74,7 +74,7 @@ La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit e
 
 Après un long moment, il laissa échapper un soupir et agita sa main droite. La corde brisée se détacha de l'instrument, enveloppée d'une lumière bleue. Le Maître du Dao Rêve Bleu se mordit la langue et cracha du sang. Ce sang fusionna avec la corde avant de s'élancer au loin.
 
-À l'extérieur de la Formation de Scellement du Royaume, le monde adjacent au palais noir trembla. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse!
+À l'extérieur de la Formation de Scellement du Royaume, le ciel et la terre grondèrent devant le palais noir. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse!
 
 Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang du Maître du Dao Rêve Bleu, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
 

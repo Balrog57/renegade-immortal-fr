@@ -82,23 +82,23 @@ L'Omniscient aux robes grises dit calmement: « Ce sceau est formé par l'Art du
 
 Wang Lin réfléchit un instant avant de demander: « Pourquoi devrais-je l'apprendre? »
 
-L'Omniscient aux robes grises répondit froidement: « Tu es la sixième personne que l'Omniscient a envoyée ici. Je n'aime pas le chiffre sept, mais j'ai également une promesse à tenir envers lui. Cependant, si tu continues à tergiverser, oublie cela! »
+L'Omniscient aux robes grises répondit froidement: « Tu es la sixième personne que l'Omniscient a envoyée ici. Je n'aime pas le chiffre sept, mais j'ai également une promesse à tenir envers lui, alors je te l'enseignerai. Cependant, si tu continues à tergiverser, oublie cela! »
 
 Wang Lin regarda l'homme devant lui et demanda soudain: « Quel est votre lien avec mon maître? »
 
-L'Omniscient aux robes grises le dévisagea froidement. Il agita sa main droite et un filament de gaz gris se mua en une pierre de jade avant de disparaître sans laisser de trace.
+L'Omniscient aux robes grises le dévisagea froidement. Il agita sa main droite et un filament de gaz gris se mua en une tablette de jade avant de disparaître sans laisser de trace.
 
-Wang Lin afficha un air pensif. Peu après, il saisit la pierre de jade formée par le gaz gris.
+Wang Lin afficha un air pensif. Peu après, il saisit la tablette de jade formée par le gaz gris.
 
 Au moment où il toucha l'objet, le monde aux sept couleurs autour de lui changea brusquement. C'était comme si le monde basculait et sa vision devint floue. Lorsqu'il retrouva la vue, il se trouvait à nouveau au sommet de la tour.
 
-Devant lui, l'Omniscient affichait une lueur mystérieuse dans les yeux. Il fixa la pierre de jade dans la main de Wang Lin en se caressant la barbe: « Art du Massacre Céleste... excellent! »
+Devant lui, l'Omniscient affichait une lueur mystérieuse dans les yeux. Il fixa la tablette de jade dans la main de Wang Lin en se caressant la barbe: « Art du Massacre Céleste... excellent! »
 
 Wang Lin ne dit rien, mais fronça lentement les sourcils.
 
 L'Omniscient regarda Wang Lin et rit: « Ne réfléchis pas trop. Cette personne est la seconde âme originelle de ton maître. Je l'ai cultivée lorsque j'étais jeune. Cependant, à l'époque où mes intentions du Yin-Yang et du Vide-Réel se différenciaient, en raison de certains événements, j'ai dû me séparer de lui. L'Art du Massacre Céleste correspond à cette volonté de survie que tu recherches! »
 
-Wang Lin réfléchit un instant avant de ranger la pierre de jade. Il ne croyait pas tout ce que disait l'Omniscient, mais étant très rusé, il ne laissa rien paraître sur son visage et se contenta de hocher la tête.
+Wang Lin réfléchit un instant avant de ranger la tablette de jade. Il ne croyait pas tout ce que disait l'Omniscient, mais étant très rusé, il ne laissa rien paraître sur son visage et se contenta de hocher la tête.
 
 L'Omniscient tendit la main vers le vide et un rayon de lumière violet apparut immédiatement, se transformant en un anneau. Après l'avoir examiné attentivement, il le lança à Wang Lin: « Cette lumière est issue de la lueur violette du spectre aux sept couleurs. Ce sera ton trésor de survie. Il peut bloquer deux fois la pleine puissance d'un cultivateur Ascendant au stade avancé. Cependant, souviens-toi que si tu enfreins les règles de la secte, j'en retirerai une protection. Si tu enfreins les règles une seconde fois, ce trésor n'aura plus aucun effet! »
 
@@ -110,7 +110,7 @@ L'Omniscient hocha la tête, agita ses manches et déclara: « Je t'ai enseigné
 
 Wang Lin fit quelques pas en arrière avant de lever soudainement la tête: « Maître, ce disciple souhaite quitter la secte pour s'entraîner! »
 
-L'Omniscient ne se retourna pas, mais sa voix résonna: « Un disciple de ma Secte du Destin Céleste ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de culture de rang inférieur à 6 pour y servir d'émissaire. Cependant, ne sois pas en retard dans trois mois, le jour de l'Étoile Rouge, à la pointe du mont Dushan, au-delà de la Mer de l'Est! »
+L'Omniscient ne se retourna pas, mais sa voix résonna: « Un disciple de ma Secte du Destin Céleste ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de culture de rang 6 ou inférieur pour y servir d'émissaire. Cependant, ne sois pas en retard dans trois mois, le jour de l'Étoile Rouge, à la pointe du mont Dushan, au-delà de la Mer de l'Est! »
 
 Sur ces mots, la silhouette de l'Omniscient pénétra dans la tour et disparut. Un jeton blanc vola hors de la tour pour atterrir dans la main de Wang Lin. Simultanément, une force douce émana de la tour, propulsant Wang Lin loin de la montagne.
 

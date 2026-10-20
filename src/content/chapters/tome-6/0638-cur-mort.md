@@ -20,7 +20,7 @@ Le sang à l'intérieur du corps de Wang Lin afflua et de nombreux méridiens fu
 
 Cette fois, Wang Lin utilisa toute sa vitesse, provoquant un grondement de tonnerre!
 
-La brèche n'était pas aussi étroite qu'il l'avait imaginé; il chargea donc directement dans les profondeurs de la fissure et put y percevoir faiblement l'aura de Zhou Yi!
+La brèche n'était pas aussi longue qu'il l'avait imaginé; il chargea donc directement dans les profondeurs de la fissure et put y percevoir faiblement l'aura de Zhou Yi!
 
 « Intrus, meurs! » La conscience divine de Ling Tianhou apparut une fois de plus. Cette fois, elle projeta un message tyrannique qui pénétra directement les oreilles de Wang Lin. Cette voix le secoua si violemment qu'il fut involontairement repoussé.
 
@@ -58,7 +58,7 @@ La conscience divine de Ling Tianhou commença à disparaître après avoir ét�
 
 Un Ling Tianhou vêtu d'une robe de daoïste, arborant un regard tyrannique, s'approcha pas à pas. Il devint ensuite flou jusqu'à se transformer en un rayon d'énergie d'épée qui chargea directement le symbole.
 
-Lorsque le symbole et l'énergie d'épée entrèrent en collision, des ondes de choc violentes se propagèrent avec fureur. Le grondement intense provoqua l'effondrement d'innombrables fissures. L'onde de choc fut si puissante qu'elle fit trembler de nombreux endroits du Pays des Démons et secoua d'innombrables habitants du Territoire des Esprits Démoniaques.
+Lorsque le symbole et l'énergie d'épée entrèrent en collision, des ondes de choc violentes se propagèrent avec fureur. Le grondement intense provoqua l'effondrement d'innombrables fissures. L'onde de choc fut si puissante qu'elle fit trembler de nombreux endroits du Pays des Démons et secoua d'innombrables habitants du Terre des Esprits Démoniaques.
 
 Le visage de Wang Lin était extrêmement pâle et il cracha six bouffées de sang. Ce sang, chargé d'énergie spirituelle céleste, creusa de profondes marques en touchant le sol.
 
@@ -78,7 +78,7 @@ Un corps spirituel pourpre flottait devant lui. Ce corps spirituel était celui 
 
 Zhou Yi avait les yeux clos et le visage empreint de confusion. À l'exception de la zone entre ses sourcils, tout son corps était recouvert d'une teinte pourpre. Cette couleur semblait vivante, car elle se tortillait continuellement. Le pourpre sur le visage de Zhou Yi ressemblait à un amas de fils de soie tentant de dévorer la lumière dorée située entre ses sourcils.
 
-Une formation de 9,9 mètres de large couvrait le sol sous Zhou Yi. Des volutes de gaz pourpre s'échappaient de la formation pour pénétrer dans le corps de Zhou Yi.
+Une formation de 9,9 mètres de large couvrait le sol sous Zhou Yi. Des volutes de gaz pourpre s'échappaient de la formation, se transformaient en runes et pénétraient dans le corps de Zhou Yi.
 
 Quatre épées précieuses étaient plantées aux quatre points cardinaux de la formation. Des éclairs jaillissaient de ces armes pour se fondre dans le sol.
 
@@ -110,7 +110,7 @@ Bien que Ling Tianhou fût puissant, il avait été blessé par l'empreinte cél
 
 Un seul doigt avait suffi à le blesser. En ajoutant à cela les attaques suicidaires de Zhou Yi et l'usage constant de l'énergie de vie de l'Épée Céleste de la Pluie, Ling Tianhou s'était retrouvé dans cette situation humiliante.
 
-Cependant, la puissance de Ling Tianhou n'était pas remise en question. Après tout, son état précaire n'était que temporaire. Il avait alors attiré Zhou Yi vers le Territoire des Esprits Démoniaques pour le sceller, accomplissant ainsi son accord avec l'ancien démon du Pays des Démons de l'Eau.
+Cependant, la puissance de Ling Tianhou n'était pas remise en question. Après tout, son état précaire n'était que temporaire. Il avait alors attiré Zhou Yi vers le Terre des Esprits Démoniaques pour le sceller, accomplissant ainsi son accord avec l'ancien démon du Pays des Démons de l'Eau.
 
 De cette façon, il avait fait d'une pierre deux coups. Cependant, Ling Tianhou ne s'attendait pas à ce que, des centaines d'années plus tard, Wang Lin surgisse et change la donne.
 

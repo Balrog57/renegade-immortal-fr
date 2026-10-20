@@ -20,7 +20,7 @@ Hormis l'Ancien Li, deux autres anciens regardèrent l'homme d'âge moyen d'un r
 
 L'homme d'âge moyen sourit intérieurement: « Oh, Wang Lin, Wang Lin... J'ai fait tout ce que je pouvais pour t'aider. Je t'ai rendu la pareille pour le morceau de métal que ton quatrième oncle m'a donné. Je suis vraiment curieux de savoir comment un mortel a pu obtenir un tel matériau. »
 
-Ce que l'homme d'âge moyen ignorait, c'est que le quatrième oncle de Wang Lin l'avait acheté par hasard chez un forgeron. Lui qui avait beaucoup voyagé et vu bien des choses, il avait su au premier coup d'œil que l'objet n'était pas ordinaire. Cette fois-ci, pour permettre à Tie Zhu de rejoindre la Secte Heng Yue, il l'avait sorti en tentant sa chance. Quant à l'usage de ce métal, il n'en savait rien.
+Ce que l'homme d'âge moyen ignorait, c'est que le quatrième oncle de Wang Lin l'avait acheté par hasard chez un forgeron. Lui qui avait vu bien des choses, il avait su au premier coup d'œil que l'objet n'était pas ordinaire. Cette fois-ci, pour permettre à Tie Zhu de rejoindre la Secte Heng Yue, il l'avait sorti en tentant sa chance. Quant à l'usage de ce métal, il n'en savait rien.
 
 Un simple morceau de métal changea le destin de Wang Lin. Lorsque la nouvelle lui parvint, il n'en crut pas ses oreilles. Il avait été accepté comme disciple pour une raison qui lui semblait totalement obscure.
 

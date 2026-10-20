@@ -20,7 +20,7 @@ Lorsque Wang Lin réapparut, il ne se trouvait pas près de Maître Âme Écarla
 
 Il n'était plus question de Maître Âme Écarlate à l'extérieur.
 
-Le ciel du Royaume Céleste n'était plus bleu comme autrefois, mais d'un rouge sanglant. Il était pesant et oppressant. Cependant, malgré cette teinte funeste, les pavillons, les montagnes et les rivières dessinaient toujours la splendeur du Royaume Céleste.
+Le ciel du Royaume Céleste n'était plus bleu comme autrefois, mais d'un rouge sanglant. Il était pesant et oppressant. Cependant, malgré cette teinte funeste, les palais, les montagnes et les rivières dessinaient toujours la splendeur du Royaume Céleste.
 
 Comparé à l'époque où il l'avait quitté, certains lieux lui étaient familiers, tandis que d'autres lui étaient totalement étrangers.
 

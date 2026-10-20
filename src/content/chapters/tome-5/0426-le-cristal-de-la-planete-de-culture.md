@@ -70,7 +70,7 @@ Wang Lin répondit d'une voix lente: « Dans la Vallée Jue Ming, un fragment du
 
 Wang Lin hocha la tête. Après une courte réflexion, il ajouta: « Je soupçonne que ce Royaume Ji a un lien avec ta Méthode de Culture de l'Ascension des Enfers. »
 
-Situ Nan fut stupéfait. Il se frotta le menton et dit: « Tu pourrais avoir raison, mais il y a des variables inconnues en jeu; sinon, je posséderais moi aussi le Royaume Ji. Pour autant que je sache, les chances qu'il apparaisse sont infimes. De plus, il est bien trop difficile à cultiver; le fait que tu aies pu l'extraire de ton corps sans en être affecté est déjà une rareté absolue. » Situ Nan regarda Wang Lin avec une pointe d'admiration.
+Situ Nan fut stupéfait. Il se frotta le menton et dit: « Tu pourrais avoir raison, mais il y a des variables inconnues en jeu; sinon, je posséderais moi aussi le Royaume Ji. Pour autant que je sache, les chances qu'il apparaisse sont infimes. De plus, il est bien trop difficile à cultiver, et le gain ne vaut pas l'effort; le fait que tu aies pu l'extraire de ton corps sans en être affecté est déjà une rareté absolue. » Situ Nan regarda Wang Lin avec une pointe d'admiration.
 
 « Situ, j'ai entendu dire que le Cristal de la Planète de Culture pouvait faire évoluer le Royaume Ji. Est-ce vrai? Qu'est-ce que ce Cristal exactement? » Les yeux de Wang Lin s'illuminèrent en posant enfin la question qu'il retenait depuis des centaines d'années.
 
@@ -92,7 +92,7 @@ Il secoua légèrement la tête. En regardant vers l'est, son regard se glaça. 
 
 Derrière eux, on comptait plus de cent cultivateurs de l'Âme Naissante.
 
-Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plusieurs centaines d'individus volait vers le sud. L'homme en tête était un homme d'âge mûr, l'Ascendant de la Secte de la Terre Brisée. Il esquissa un sourire amer: « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
+Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plusieurs centaines d'individus volait vers le sud. L'homme en tête était un homme d'âge mûr, un vieux monstre au début du stade Ascendant de la Secte de la Terre Brisée. Il regarda au loin, vers l'endroit où se trouvait Situ Nan, et esquissa un sourire amer: « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
 
 Après que Zhu Quezi fut retourné au Mont Suzaku, il se reposa brièvement avant de repartir précipitamment. Cette fois, sa cible se trouvait dans la partie occidentale du continent.
 
@@ -102,11 +102,11 @@ L'Ancien Sima de la Secte des Cadavres, dont la culture était au stade de la Tr
 
 Il s'apprêtait à sonder les informations quand le cinquième ancêtre agita ses manches et ordonna: « Ancien Sima, commençons. »
 
-Les yeux de Sima s'illuminèrent et il rit: « Bien! La raison de ma venue est de livrer ce cadavre. Il permettra à l'arbre de l'esprit ancestral de votre Clan des Immortels Délaissés de prospérer davantage. »
+Les yeux de Sima eurent un éclair à peine perceptible, et il rit: « Bien! La raison de ma venue est de livrer ce cadavre. Il permettra à l'arbre de l'esprit ancestral de votre Clan des Immortels Délaissés de prospérer davantage. »
 
 Sur ces mots, il se tourna vers les deux diacres de cadavres qui le suivaient.
 
-Sans dire un mot, les deux diacres descendirent du cercueil et commencèrent à tracer des sceaux. Des filaments d'énergie spirituelle jaillirent d'eux pour se poser sur la boîte de bois.
+Sans dire un mot, les deux diacres descendirent du cercueil, s'assirent en tailleur au sol et commencèrent à tracer des sceaux. Des filaments d'énergie spirituelle jaillirent d'eux pour se poser sur la boîte de bois.
 
 Peu après, ils libérèrent une lueur mystérieuse et spectrale de leurs corps et crièrent: « Ouvrez! »
 

@@ -18,7 +18,7 @@ La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planè
 
 « Si cette planète Ran Yun avait fait partie de l'Alliance de Culture, je crains qu'elle n'ait été pillée, conquise par un vieux monstre du deuxième échelon, ou qu'un pays de culture de rang 6 ne s'y soit installé. Il est impossible qu'une telle planète ne compte que trois Ascendants au sein du système stellaire de l'Alliance. »
 
-Tandis que Wang Lin réfléchissait, son aura commença à se rétracter. En un clin d'œil, sa présence Ascendante disparut pour ne laisser paraître que celle d'un cultivateur de la Formation du Noyau.
+Tandis que Wang Lin réfléchissait, son aura commença à se rétracter. En un clin d'œil, sa présence Ascendante disparut pour ne laisser paraître que celle d'un cultivateur de la Formation du Noyau au stade avancé.
 
 La culture de Wang Lin atteignait déjà le stade initial de l'Ascendant et son âme originelle était extrêmement singulière. À moins qu'un être doté d'un niveau de culture supérieur ne se trouve à proximité, il serait impossible de le percer par un simple balayage du sens divin.
 
@@ -80,7 +80,7 @@ Son visage se détendit à mesure que l'énergie emplissait son corps. Peu aprè
 
 « Cela fait longtemps que je n'ai pas pratiqué avec de l'énergie spirituelle. Malheureusement, peu importe sa densité, elle n'augmentera pas mon niveau de culture. » Presque tous les jades célestes dans le sac de Wang Lin avaient été épuisés lors de sa percée au stade Ascendant. Il n'en restait pas assez pour une pratique quotidienne.
 
-« Il ne me reste que cinq gouttes de liquide céleste. Les quatre gouttes que j'ai consommées sous l'effet du Fruit d'Ascension Céleste ont permis à mon corps de disposer d'une énergie spirituelle céleste infinie, mais cela ne durera pas éternellement. Dans quelques années seulement, le liquide céleste en moi sera épuisé et je n'aurai plus cette réserve infinie. »
+« Il ne me reste que cinq gouttes de liquide céleste. Les quatre gouttes que j'ai consommées sous l'effet du Fruit d'Ascension Céleste ont permis à mon corps de disposer d'une énergie spirituelle céleste infinie, mais cela ne durera pas éternellement. Dans quelques années seulement, la force du liquide céleste se sera déposée dans mon corps et l'énergie céleste ne pourra plus se renouveler sans fin. »
 
 « De plus, une seule goutte m'a permis d'atteindre le stade Ascendant, mais la quantité d'énergie spirituelle céleste requise par la suite est bien plus élevée. En consommer maintenant n'aurait pas le même effet qu'auparavant. Plutôt que de les gaspiller, mieux vaut les garder pour lorsque je serai blessé ou que j'aurai besoin d'une énergie infinie sur une courte période! Compte tenu de cela, ma priorité est d'obtenir suffisamment de jades célestes pour mes besoins quotidiens. »
 
@@ -88,7 +88,7 @@ Le ciel s'obscurcit à l'extérieur, plongeant la pièce dans la pénombre. Wang
 
 Au plafond pendait une perle bleue de la taille d'un poing. La fumée de la bougie monta et fut absorbée par la perle. Rapidement, celle-ci se remplit de fumée et commença à luire.
 
-Ce phénomène piqua la curiosité de Wang Lin. Il n'avait jamais vu une conception aussi ingénieuse. Il observa la perle bleue qui brillait comme la lune.
+Ce phénomène piqua la curiosité de Wang Lin. Il n'avait jamais vu une conception aussi ingénieuse. Il observa la perle bleue dont la lumière gagnait en éclat.
 
 Un quart d'heure plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
 
@@ -100,20 +100,20 @@ Une légère odeur de santal émanait de la perle, une senteur qui apaisait l'es
 
 Alors qu'il était assis dans le silence total de la nuit, une pensée traversa l'esprit de Wang Lin. Après un instant de réflexion, il l'effaça aussitôt.
 
-« Le vol est indigne de moi et, après tout, la quantité de jades célestes dont j'ai besoin n'est accessible qu'aux Ascendants. Peut-être que certaines grandes familles d'ici en possèdent assez. »
+« Prendre ces jades par la force est indigne de moi et, après tout, la quantité de jades célestes dont j'ai besoin n'est accessible qu'aux Ascendants. Peut-être que certaines grandes familles d'ici en possèdent assez. »
 
 « Cependant, si je faisais cela, je devrais quitter la planète Ran Yun pour m'installer ailleurs. Ce n'est donc pas un bon plan. »
 
 Après réflexion, Wang Lin leva la tête et prit une décision. Il frappa son sac de rangement, faisant sortir divers matériaux de raffinage.
 
-Il expulsa une bouffée d'énergie originelle pour envelopper les matériaux. Ceux-ci fondirent rapidement et formèrent trois moules, guidés par le sens divin de Wang Lin: une épée volante, un miroir de bronze et une broche à cheveux.
+Il expulsa une bouffée d'énergie originelle pour envelopper les matériaux. Ceux-ci fondirent rapidement et formèrent trois moules, guidés par le sens divin de Wang Lin: une épée volante, un miroir de bronze et une épingle à cheveux.
 
 La main de Wang Lin traça un sceau et d'innombrables restrictions se déposèrent sur les objets. Graduellement, ces trois trésors commencèrent à dégager une pression intense. De plus, comme ils avaient été raffinés par l'âme originelle de Wang Lin, des éclairs parcouraient parfois leur surface.
 
 Une fois les restrictions posées, Wang Lin réfléchit un instant, se remémorant le cultivateur de Suzaku qui possédait le domaine du temps. Avec son niveau actuel et sa propre voie, il était capable de l'imiter assez fidèlement.
 
-D'un mouvement de la main droite, le miroir de bronze bascula et le domaine du temps y pénétra.
+D'un mouvement de la main droite, le miroir de bronze descendit et le domaine du temps y pénétra.
 
-Puis Wang Lin se remémora à nouveau une autre sensation: le domaine des Mille Illusions Impitoyables de Liu Mei. D'innombrables visions traversèrent son esprit jusqu'à ce qu'elles se transforment en un rayon de lumière pénétrant la broche à cheveux.
+Puis Wang Lin se remémora à nouveau une autre sensation: le domaine des Mille Illusions Impitoyables de Liu Mei. D'innombrables visions traversèrent son esprit jusqu'à ce qu'elles se transforment en un rayon de lumière jaillissant de ses yeux et pénétrant l'épingle à cheveux.
 
 Quant à l'épée volante, Wang Lin n'y inséra aucun domaine, mais y plaça une empreinte de téléportation.

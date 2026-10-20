@@ -72,13 +72,13 @@ La brume autour de Xu Ting se fit plus dense, comme pour isoler le tonnerre. Son
 
 Dans le ciel, l'un des messagers leva la main et frappa le tambour noir. Le onzième coup résonna soudainement dans le fracas de la foudre.
 
-Tout le tonnerre du lac sembla s'agiter pour se concentrer en un seul point. Un instant plus tard, un serpent de 330 mètres de long prit forme. C'était un serpent, mais il avait l'allure d'un dragon, sculpté dans la foudre pure. Son corps entier dégageait une pression écrasante!
+Tout le tonnerre du lac sembla s'agiter pour se concentrer en un seul point. Un instant plus tard, un serpent de 330 mètres de long prit forme. C'était un serpent, mais il avait l'allure d'un dragon, formé de foudre. Son corps entier dégageait une pression écrasante!
 
 C'était l'esprit du tonnerre!
 
-*Grooaar!* L'esprit de la foudre prit forme et poussa un rugissement fulgurant. Ce cri résonna et se mua en un tonnerre ancestral qui semblait remonter aux origines du monde. Il secoua les cieux et l'esprit de tous les cultivateurs!
+*Grooaar!* L'esprit de la foudre prit forme et poussa un rugissement fulgurant. Ce cri résonna et se mua en un tonnerre venu des temps anciens. Il secoua les cieux et l'esprit de tous les cultivateurs!
 
-Même la brume noire entourant Xu Ting faillit s'effondrer. Ses yeux trahirent une pointe de choc, tandis qu'une brume plus épaisse s'échappait de ses sourcils.
+Même la brume noire entourant Xu Ting faillit s'effondrer. Ses yeux trahirent une pointe de choc, tandis qu'il formait des sceaux à deux mains et qu'une brume plus épaisse s'échappait de ses sourcils pour l'environner.
 
 Si Xu Ting était ainsi affecté, il n'en était rien pour les autres. Sous ce rugissement qui ébranlait le firmament, plus de dix cultivateurs crachèrent du sang et furent expulsés.
 

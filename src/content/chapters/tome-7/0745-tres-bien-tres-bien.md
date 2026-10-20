@@ -10,7 +10,7 @@ Le regard de Wang Lin se posa sur les pieds de Li Yuan. Au moment où ceux-ci se
 
 Wang Lin détourna les yeux, puis rétracta son sens divin. Il fit un pas en avant et s'élança dans le vide. Dès qu'il y pénétra, ce fut comme s'il avait franchi une frontière; le grondement du tonnerre sembla alors décupler.
 
-La femme nommée Ge eut un reniflement dédaigneux intérieur: « Ce trésor magique est un héritage familial. Bien qu'il n'ait aucun pouvoir offensif, il est inégalé pour résister au tonnerre! » Portée par cette pensée, l'épée volante se mit à glisser le long de la chaîne de tonnerre. Les éclairs émanant de la chaîne ne semblaient avoir aucune prise sur l'arme.
+La femme nommée Ge eut un reniflement dédaigneux intérieur: « Ce trésor magique est un héritage familial. Bien qu'il n'ait aucun pouvoir particulier, il est inégalé pour résister au tonnerre! » Portée par cette pensée, l'épée volante se mit à glisser le long de la chaîne de tonnerre. Les éclairs émanant de la chaîne ne semblaient avoir aucune prise sur l'arme.
 
 La femme nommée Ge observa Li Yuan en fronçant les sourcils. L'endroit où il se tenait lui inspirait un profond malaise. Cependant, ce n'était pas le moment de s'enquérir de la situation. Bien que l'épée ne fût pas très rapide, elle restait stable tandis qu'elle suivait la chaîne de tonnerre.
 
@@ -68,7 +68,7 @@ Même le bouclier lumineux entourant l'épée de fer vacillait, comme s'il allai
 
 Wang Lin continuait de froncer les sourcils, la prudence s'intensifiant dans son regard. Il avait un mauvais pressentiment, comme si une existence terrifiante les attendait plus loin.
 
-« Senior, bien que je n'aie jamais visité le Royaume Céleste du Tonnerre auparavant, je sais que les chaînes reliant les fragments ne devraient pas trembler aussi violemment. Senior, regardez là-bas! » Li Yuan pointa le vide sur la gauche. Au bout de ce néant, on distinguait de vagues éclats de lumière.
+« Senior, bien que je n'aie jamais visité le Royaume Céleste du Tonnerre auparavant, j'ai entendu dire que les chaînes reliant les fragments ne devraient pas trembler aussi violemment. Senior, regardez là-bas! » Li Yuan pointa le vide sur la gauche. Au bout de ce néant, on distinguait de vagues éclats de lumière.
 
 « Senior, il devrait y avoir une chaîne de tonnerre là-bas également, et pourtant nous pouvons voir la lumière. Je crains que ces secousses ne concernent pas seulement notre chaîne, mais la majorité des chaînes de la région! Je pense qu'un événement majeur est en cours! »
 

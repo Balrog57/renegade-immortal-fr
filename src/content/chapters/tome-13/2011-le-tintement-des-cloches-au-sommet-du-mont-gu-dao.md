@@ -40,11 +40,11 @@ Wang Lin sentait que Xuan Luo le traitait véritablement comme un disciple direc
 
 Wang Lin n'avait jamais connu une telle attention dans sa vie, mais plus elle était rare, plus il la chérissait. Il chérissait ce temps, il chérissait Xuan Luo comme son maître, et il chérissait ces rares moments de bonheur.
 
-Dans son cœur, il souhaitait que ces instants durent éternellement. Wang Lin pourrait même ignorer la répression de l'Empereur de l'Ancien Dao pour cela.
+Dans son cœur, il souhaitait que ces instants durent éternellement. Wang Lin pourrait même endurer en silence ce qu'il avait subi devant le palais de l'Ancien Dao et ignorer la répression de l'Empereur pour cela.
 
 « Le Maître m'a si bien traité... Je dois protéger l'Ancien Dao... » pensa une fois de plus Wang Lin.
 
-Il accordait une importance immense à ses liens. Xuan Luo l'avait aidé dans le monde des grottes et était devenu son maître. Il n'oublierait rien de tout cela.
+Il accordait une importance immense à ses liens. Xuan Luo l'avait aidé dans le monde des grottes et était devenu son maître. Le clan ancien lui avait aussi témoigné une affection semblable à celle d'un maître. Il n'oublierait rien de tout cela.
 
 Il ne voulait pas décevoir Xuan Luo.
 

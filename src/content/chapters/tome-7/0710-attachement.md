@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 710 - Attachment
 slug: attachement
 ---
-Les cinq planètes majeures du domaine nordique du Système Stellaire de Luotian possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
+Les cinq planètes majeures du domaine nordique du Système Stellaire de Luotian possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Après avoir obtenu les Fruits d'Ascension Céleste de la famille Huan sur la planète Mille Illusions, Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
 
 Les cultivateurs du second niveau de la famille Qian étaient entrés en retraite de culture depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Mille Illusions, Qian Kuizi le remarqua instantanément.
 
-En voyant arriver Wang Lin sur la Bête du Tonnerre, il fut convaincu que les propos de l'ancêtre de la famille Huan n'étaient que mensonges. Cet homme était, sans l'ombre d'un doute, un messager du Temple Céleste du Tonnerre.
+En voyant arriver Wang Lin sur la Bête du Tonnerre, il fut convaincu que les propos de l'ancêtre de la famille Huan étaient absurdes. Cet homme était, sans l'ombre d'un doute, un messager du Temple Céleste du Tonnerre.
 
 En songeant aux puissants trésors et sorts que cet individu avait démontrés soixante-dix ans plus tôt lors de la bataille contre l'ancêtre de la famille Huan, le cœur de Qian Kuizi trembla.
 

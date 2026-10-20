@@ -74,7 +74,7 @@ Cette épée volante meurtrière flottait désormais autour de Wang Lin, dégage
 
 Les visages des huit personnes entourant Zhang Zili pâlirent instantanément. L'un d'eux cria précipitamment: « Retraite! » Presque aussitôt, les huit s'enfuirent en tentant désespérément de s'échapper.
 
-Zhang Zili regarda Wang Lin avec une pointe de terreur. Il n'était pas certain de pouvoir abattre sept cultivateurs de l'Établissement des Fondations aussi instantanément. Il était convaincu que Wang Lin cachait son véritable niveau de culture pour paraître comme un simple expert du milieu de l'Établissement des Fondations. Il jura intérieurement, avant de se dire que cette idée était excellente: une fois que l'ennemi baisserait sa garde, de grandes opportunités se présenteraient.
+Zhang Zili regarda Wang Lin avec une pointe de terreur. Il n'était pas certain de pouvoir abattre sept cultivateurs de l'Établissement des Fondations aussi instantanément. Il soupçonnait que Wang Lin cachait son véritable niveau de culture pour paraître comme un simple expert du milieu de l'Établissement des Fondations. Il jura intérieurement, avant de se dire que cette idée était excellente: une fois que l'ennemi baisserait sa garde, de grandes opportunités se présenteraient.
 
 Mais rien de tout cela n'importait pour le moment. Ces huit cultivateurs de l'Établissement des Fondations avaient réussi à utiliser une sorte de formation pour le piéger, ce qui était très embarrassant, surtout devant son propre groupe.
 

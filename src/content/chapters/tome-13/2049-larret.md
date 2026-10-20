@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2049 - Stopped
 slug: larret
 ---
-Wang Lin détourna son regard de la scène où l'on piétinait le ciel. La dernière chose qu'il avait contemplée était la vaste mer séparant le clan céleste du clan ancestral, et plus particulièrement les neuf piliers qui formaient la porte du Royaume Divin Immémorial.
+Wang Lin détourna son regard de la scène où l'on piétinait le ciel. La dernière chose qu'il avait contemplée était la vaste mer séparant le clan céleste du clan Ancien, et plus particulièrement les neuf piliers qui formaient la porte du Royaume Divin Immémorial.
 
 Cependant, même avec son niveau de culture, il ne pouvait toujours pas percevoir clairement le Royaume Divin Immémorial. C'était comme si ce royaume se trouvait bien au-delà des capacités actuelles de Wang Lin.
 
@@ -102,7 +102,7 @@ Simultanément, le quatrième pont trembla soudainement devant lui et se fragmen
 
 Au moment où il fut dévoré, sur la terre du clan Ancien du Continent Astral Immortel, dans le pays de Luo Hou, l'un des douze pays de la lignée Shi Antique, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
 
-Ses yeux restèrent empreints d'une profonde confusion pendant un long moment. Son corps véritable d'essence de meurtre s'était totalement intégré à son propre corps; il n'y avait plus d'ombre superposée.
+Ses yeux restèrent empreints d'une profonde confusion pendant un long moment. Son corps véritable d'essence de massacre s'était totalement intégré à son propre corps; il n'y avait plus d'ombre superposée.
 
 Derrière lui flottait une sphère de lumière de l'origine du vide, et devant lui, l'âme de l'Empereur Céleste était toujours enveloppée et raffinée par son feu d'âme. La chambre secrète était plongée dans le silence.
 

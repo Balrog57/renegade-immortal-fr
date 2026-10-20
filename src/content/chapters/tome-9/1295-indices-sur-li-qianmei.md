@@ -16,7 +16,7 @@ L'image de l'homme aux vêtements blancs et aux cheveux blancs s'était gravée 
 
 Pour les habitants de la Mer des Nuages, la faille spatiale était à la fois familière et inconnue. Ils connaissaient la guerre qui se jouait, mais ignoraient vers quoi elle tendait ni comment elle s'achèverait.
 
-Ce n'était pas que d'importants cultivateurs n'entraient jamais dans la faille, c'est qu'ils savaient qu'ils ne reviendraient pas, tant elle était vaste. C'était comme un univers à part entière, impossible à explorer avec seulement quelques individus.
+Ce n'était pas que d'importants cultivateurs n'entraient jamais dans la faille, mais les rapports disaient qu'elle était si vaste qu'on ne pouvait en connaître toute l'étendue. C'était comme un univers à part entière, impossible à explorer avec seulement quelques individus.
 
 Sur cent personnes qui s'y engageaient, moins de trois revenaient. Les autres mouraient ou disparaissaient à jamais. Pourtant, la Secte Démon n'avait jamais renoncé et continuait d'envoyer des troupes périodiquement.
 
@@ -26,7 +26,7 @@ Le Sens Divin de Wang Lin se retira de la pierre de jade qu'il tenait, et il con
 
 « Le chemin tracé dans le jade est un passage vers les profondeurs de la faille spatiale, obtenu par la Secte Démon au prix d'innombrables sacrifices. C'est aussi le chemin emprunté par Li Qianmei, mais cet endroit est tout simplement trop vaste. Même le passage contenu dans le jade ne pénètre pas réellement dans les profondeurs. »
 
-Wang Lin se tenait sur le dos du Dragon des Neuf Abîmes. Celui-ci se déplaçait à une vitesse fulgurante, son corps de dix mille pieds fendant l'obscurité tel un éclair étrange. Sa particularité résidait dans son silence absolu: malgré sa célérité, aucun grondement tonitruant ni aucune onde de choc ne troublaient son vol.
+Wang Lin se tenait sur la tête du Dragon des Neuf Abîmes. Celui-ci se déplaçait à une vitesse fulgurante, son corps de dix mille pieds fendant l'obscurité tel un éclair étrange. Sa particularité résidait dans son silence absolu: malgré sa célérité, aucun grondement tonitruant ni aucune onde de choc ne troublaient son vol.
 
 Il n'osait pas la moindre rébellion face aux ordres de Wang Lin ni à la direction qu'il lui indiquait. Il avait vu de ses propres yeux, à l'entrée de la faille, la puissance de l'Ancien de la Secte Démon, face à laquelle le Dragon ne pouvait rien. Or c'était précisément l'homme perché sur sa tête qui avait fait plier cet Ancien; cela ne faisait qu'accroître sa crainte envers Wang Lin.
 
@@ -54,7 +54,7 @@ La seule différence résidait dans le fait que, lorsque Wang Lin levait parfois
 
 Wang Lin leva la tête et concentra l'énergie originelle dans sa main droite. Une lumière dorée s'accumula dans sa paume avant de jaillir vers le ciel telle une météorite. Elle brisa le silence et explosa soudainement en un éclat radieux qui illumina tout sur son passage!
 
-À l'instant où la lumière apparut, des rugissements assourdissants s'élevèrent des bêtes féroces environnantes. Grâce à cet éclairage, Wang Lin vit clairement que de multiples espèces de créatures féroces encerclaient le Dragon des Neuf Abîmes et lui-même. Ils n'étaient pas moins de dix mille!
+À l'instant où la lumière apparut, des rugissements assourdissants s'élevèrent des bêtes féroces environnantes. Grâce à cet éclairage, Wang Lin vit clairement que de multiples espèces de créatures féroces encerclaient le Dragon des Neuf Abîmes et lui-même. Ils n'étaient pas moins de plusieurs dizaines de milliers!
 
 Ces créatures semblaient extrêmement sensibles à la lumière. Dès que l'éclat perça les ténèbres, elles rugirent violemment avant de battre en retraite précipitamment.
 
@@ -90,8 +90,8 @@ Wang Lin était arrivé jusqu'ici, mais l'issue du passage restait encore un peu
 
 « Li Qianmei... Est-ce toi...? » Wang Lin ouvrit les yeux, et son regard s'embrasa. Ses mains formèrent un sceau qu'il pressa fermement contre ses sourcils. Une force puissante se précipita dans son front, faisant trembler violemment son âme originelle.
 
-Tandis que son âme originelle vacillait, les traces de sorts changèrent d'une manière étrange. Sous les yeux de Wang Lin, le monde commença à se métamorphoser. L'obscurité disparut, remplacée par des lignes verticales.
+Tandis que son âme originelle vacillait, les traces de sorts changèrent d'une manière étrange. Sous les yeux de Wang Lin, le monde commença à se métamorphoser. L'obscurité disparut, remplacée par des lignes horizontales et verticales entrelacées.
 
 « Temps Fluide... Inversion... » Les yeux de Wang Lin brillaient comme des torches et perçaient soudainement l'obscurité. Les lignes commencèrent à bouger comme pour façonner une forme. Le vide devant lui fut saturé par le pouvoir du temps et, sous cette force mystérieuse, le cours du temps commença à s'inverser.
 
-Le vide se tordit progressivement, et la silhouette d'une femme vêtue de blanc apparut. Son visage était extrêmement pâle et des taches de sang saisissantes maculaient ses vêtements. Elle tenait une longue épée dans une main, tandis qu'un stylo doré gravitait autour d'elle alors qu'elle fendait le vide.
+Le vide se tordit progressivement, et la silhouette d'une femme vêtue de blanc apparut. Son visage était extrêmement pâle et des taches de sang saisissantes maculaient ses vêtements. Elle tenait une longue épée dans une main, tandis qu'un pinceau doré gravitait autour d'elle alors qu'elle fendait le vide.

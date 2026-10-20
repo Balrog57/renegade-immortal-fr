@@ -60,11 +60,11 @@ C'était la raison principale pour laquelle Wang Lin était déterminé à prati
 
 Bien sûr, il existait des méthodes plus rapides, comme le vol de noyau, mais avec son niveau actuel, tenter de capturer un cultivateur au stade de la Formation du Noyau revenait à se suicider.
 
-Le noyau froid issu de la Méthode d'Ascension des Enfers repose sur l'éveil des méridiens. C'est un processus que tout pratiquant de cette méthode doit traverser. Il existe trois éveils de méridiens clés: le dantian, la Mer de Qi et le méridien ancestral.
+Le noyau froid issu de la Méthode d'Ascension des Enfers repose sur la percée des méridiens. C'est un processus que tout pratiquant de cette méthode doit traverser. Il existe trois méridiens clés à percer: le dantian, la Mer de Qi et le méridien ancestral.
 
-Au moment où l'un de ces trois méridiens s'éveille, un noyau froid se forme. Dès lors, l'énergie spirituelle dans le corps devient glaciale.
+Au moment où l'un de ces trois méridiens est percé, un noyau froid se forme. Dès lors, l'énergie spirituelle dans le corps devient glaciale.
 
-Quant au taux de réussite de l'éveil des méridiens, il est étroitement lié à la qualité du Yin.
+Quant au taux de réussite de la percée des méridiens, il est étroitement lié à la qualité du Yin.
 
 Le temps passa rapidement. Lorsqu'il rouvrit les yeux, la lumière perçait et l'énergie Yin se dissipait promptement. Dès que le soleil apparut, toute l'énergie Yin disparut.
 

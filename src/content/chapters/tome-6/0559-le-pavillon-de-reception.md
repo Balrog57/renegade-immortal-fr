@@ -20,7 +20,7 @@ Cette déduction provenait principalement des marques que Wang Lin avait remarqu
 
 Wang Lin s'accroupit, saisit une pincée de sciure et l'examina de près.
 
-« Briser la restriction par la force a causé des dommages à la table et aux chaises... » Wang Lin balaya la sciure d'un revers de main et quitta le pavillon.
+« Briser la restriction par la force a causé des dommages à la table et aux chaises... » Wang Lin balaya la sciure d'un revers de main et quitta le pavillon par l'arrière.
 
 Derrière la structure s'étendait un long corridor bordé d'une clôture en jade céleste, tandis que de l'autre côté se trouvait un étang asséché. On y trouvait également de nombreux vestiges de restrictions brisées. Dans l'étang, Wang Lin retrouva une fois de plus le motif des 18 Restrictions des Fleurs de Prunier.
 
@@ -28,7 +28,7 @@ En parcourant la galerie, Wang Lin observait attentivement son environnement. De
 
 Wang Lin s'arrêta à l'intersection pour examiner les trois voies. Il devait déterminer quelle direction avait prise la personne maîtrisant les 18 Restrictions des Fleurs de Prunier. Sa restriction était si puissante que si Wang Lin se contentait de suivre sa trace, il ne trouverait aucun trésor.
 
-Cet individu était tel un voleur de renom qui s'emparait de tout ce qui en valait la peine, tandis que les deux suivants ressemblaient à des pilleurs prenant tout ce qu'ils pouvaient saisir. Cependant, leurs capacités étant limitées, certains trésors de valeur avaient été laissés derrière eux.
+Cet individu était tel un voleur raffiné qui s'emparait de tout ce qui en valait la peine, tandis que les deux suivants ressemblaient à des pilleurs prenant tout ce qu'ils pouvaient saisir. Cependant, leurs capacités étant limitées, certains trésors de valeur avaient été laissés derrière eux.
 
 Après avoir scruté les trois directions, Wang Lin parcourut une dizaine de mètres sur chaque sentier avant de revenir à l'intersection. Ses yeux s'illuminèrent et il s'élança sur le chemin de droite.
 
@@ -84,7 +84,7 @@ Wang Lin avait énormément progressé durant ce mois de recherche; ses compéte
 
 À cet instant, il avait 40 % de chances de briser cette restriction. Bien que ce ne soit que 40 %, il faut préciser que certains pourraient étudier cette protection pendant des millénaires pour n'avoir que 10 ou 20 % de chances de réussir. Seuls les vieux monstres ayant vécu des dizaines de milliers d'années, riches d'une expérience et de connaissances immenses, oseraient prétendre avoir 40 % de chances de la briser!
 
-« Si la personne qui maîtrisait les 18 Restrictions des Fleurs de Prunier venait ici, j'ai bien peur qu'elle n'ait plus de 70 % de chances! » songea Wang Lin. Il ne bougeait pas, mais continuait ses déductions.
+« Si la personne qui maîtrisait les 18 Restrictions des Fleurs de Prunier venait ici, j'ai bien peur qu'elle ait plus de 70 % de chances! » songea Wang Lin. Il ne bougeait pas, mais continuait ses déductions.
 
 Un autre mois s'écoula. Bien qu'il n'ait pas encore maîtrisé tous les changements de la restriction, il était désormais confiant à 50 % de pouvoir la briser.
 

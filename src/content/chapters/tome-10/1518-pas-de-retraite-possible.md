@@ -16,7 +16,7 @@ En voyant cela, l'expression de Wang Lin changea radicalement!
 
 La Formation de Scellement du Royaume était une arme à double tranchant! Elle isolait les Flammes Joss du Royaume Intérieur afin que ses cultivateurs ne puissent pas rivaliser avec ceux du Royaume Extérieur. C'était comme sectionner leurs racines!
 
-Cependant, elle jouait un rôle protecteur direct; il était extrêmement difficile d'y entrer ou d'en sortir!
+Cependant, elle jouait un rôle protecteur indirect; il était extrêmement difficile d'y entrer ou d'en sortir!
 
 À ce moment précis, la Formation de Scellement du Royaume trembla violemment, comme si les esprits de la formation étaient sur le point d'être extraits. Cela était encore plus flagrant depuis le Royaume Extérieur!
 
@@ -106,13 +106,13 @@ C'était une catapulte géante. Dès son apparition, elle dégagea une aura capa
 
 Elle fonça vers l'œil à trois pupilles fait de glace!
 
-Derrière le char, un éclair d'obscurité sembla dévorer toute lumière. Un bâton géant apparut silencieusement!
+Derrière le char, un éclair d'obscurité sembla dévorer toute lumière. Une massue géante apparut silencieusement!
 
-Ce bâton, couvert d'épines et taché d'une quantité massive de sang noir, dégageait une aura féroce et fonça vers les trois fantômes formés par les trois gouttes d'essence sanguine de la concubine impériale céleste!
+Cette massue, couverte d'épines et taché d'une quantité massive de sang noir, dégageait une aura féroce et fonça vers les trois fantômes formés par les trois gouttes d'essence sanguine de la concubine impériale céleste!
 
 Des grondements tonitruants retentirent. La Formation de Scellement du Royaume trembla violemment. Les pupilles de Wang Lin se contractèrent, mais son expression restait farouche!
 
-La guerre avait commencé!!
+L'esprit de combat s'était éveillé, prêt à éclater!!
 
 La Formation de Scellement du Royaume vibrait alors que les esprits de la formation apparaissaient un à un, bientôt tous ensemble. Cependant, au moment même où ils surgissaient, le pouvoir mystérieux provenant du Système Stellaire Antique forma une main et tira vers le haut!
 

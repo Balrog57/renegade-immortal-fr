@@ -14,7 +14,7 @@ Cet endroit n'était qu'à 400 000 kilomètres de la Mer des Démons. En un seul
 
 Il baissa les yeux vers la pierre de jade céleste qu'il tenait en main. Elle n'était plus d'un blanc pur; une nuance grise l'imprégnait désormais. Il lui manquait environ 10 % de l'énergie spirituelle céleste qui s'y trouvait.
 
-Se remémorant la carte qui était apparue lors de l'activation du réseau, Wang Lin comprit soudainement quelque chose. Peut-être s'agissait-il là de la véritable méthode d'utilisation des anciens réseaux de transfert: les pierres spirituelles de qualité supérieure ne pouvaient ouvrir qu'un seul point précis, tandis que l'usage d'une pierre de jade céleste permettait d'ouvrir tous les réseaux de transfert interconnectés.
+Se remémorant la carte qui était apparue lors de l'activation du réseau, Wang Lin comprit soudainement quelque chose. Peut-être s'agissait-il là de la véritable méthode d'utilisation des anciens réseaux de transfert: les pierres spirituelles de qualité supérieure ne pouvaient ouvrir que le point de transfert le plus proche, tandis que l'usage d'une pierre de jade céleste permettait d'ouvrir tous les réseaux de transfert interconnectés.
 
 « Cependant, un seul transfert a consommé 10 %. Bien que je possède une quantité non négligeable de jade céleste, je ne peux pas la gaspiller ainsi. Ce n'est plus un transfert, c'est un gaspillage d'énergie spirituelle céleste. Peu de gens à Suzaku peuvent utiliser du jade céleste pour se téléporter... » Wang Lin se moqua de lui-même avant de s'élancer dans les airs et de prendre son envol.
 
@@ -34,7 +34,7 @@ Tandis qu'il songeait ainsi, une douce vibration émana de son poignet, comme si
 
 Ces cent dernières années avaient semblé passer en un instant pour Wang Lin, mais pour Li Muwan, elles avaient été bien trop longues.
 
-Son apparence actuelle différait de celle d'autrefois; les marques du temps commençaient à poindre sur son visage. Vu son âge, elle aurait dû n'être plus qu'un amas d'os blancs si ce n'était la rosée de la perle défiant le ciel.
+Son apparence actuelle différait de celle d'autrefois; les marques du temps commençaient à poindre sur son visage. Vu son âge, elle aurait dû n'être plus qu'un amas d'os blancs si ce n'était la rosée de la Perle Défiant le Ciel.
 
 « En ces cent ans, je suis toujours bloquée au stade avancé de la Formation du Noyau... La rosée que tu m'as offerte n'a plus aucun effet. Je sens mon corps s'affaiblir de jour en jour... Si je ne parviens pas à atteindre le stade de l'Âme Naissante d'ici dix ans, alors... » Li Muwan se força à contenir ses larmes.
 

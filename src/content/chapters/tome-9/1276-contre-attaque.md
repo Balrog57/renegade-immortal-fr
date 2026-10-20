@@ -26,7 +26,7 @@ Le vortex situé entre les sourcils du Shui Daozi dévora les trois rayons de lu
 
 Son sort d'immobilisation était très différent de celui de Wang Lin. À cet instant, il avait arrêté le monde, et lui seul subsistait. Tous les sorts restaient suspendus dans l'air mais, étrangement, ne se dissipaient pas. C'était comme si, sans la volonté de ce garçon aux cheveux blancs, ils seraient restés là pendant des dizaines de milliers d'années.
 
-La lance formée par *Invoquer le Vent* flottait immobile dans les airs. Même le vent destructeur qui l'entourait s'était figé.
+La lance-dragon noir formée par *Invoquer le Vent* flottait immobile dans les airs, à dix pieds en avant. Même le vent destructeur qui l'entourait s'était figé.
 
 Les épées de cristal de glace formées par *Invoquer la Pluie* s'étaient arrêtées en plein vol, ressemblant à des stalactites suspendues dans le vide.
 
@@ -36,7 +36,7 @@ Certains des nombreux volcans illusoires apparus précédemment dégageaient de 
 
 Wang Lin serrait toujours fermement le trident dans sa main!
 
-« Six des Sorts Célestes Triples du Ciel Tonnerre de Bai Fan. Si ce Lu Zihao les avait tous appris, il aurait peut-être été difficile de le tuer. Même s'il n'avait appris que *Lune Sombre, Ciel Clair*, la tâche aurait été ardue. Cependant, comparés à *Lune Sombre, Ciel Clair*, ceux-ci ne sont que de simples tours! » Le Shui Daozi secoua la tête et ne prêta plus attention à Wang Lin. Au lieu de cela, il se dirigea vers le Char de Guerre Divin formé par la Bête de Tonnerre.
+« Six des Sorts Célestes Triples du Ciel Tonnerre de Bai Fan. Si ce Lu Zihao les avait tous appris, il aurait peut-être été difficile de le tuer. Même s'il n'avait appris que *Lune Sombre, Ciel Clair*, la tâche aurait été un peu compliquée. Cependant, comparés à *Lune Sombre, Ciel Clair*, ceux-ci ne sont que de simples tours! » Le Shui Daozi secoua la tête et ne prêta plus attention à Wang Lin. Au lieu de cela, il se dirigea vers le Char de Guerre Divin formé par la Bête de Tonnerre.
 
 Son regard balaya le Char de Guerre Divin et il laissa échapper un reniflement froid. Il leva sa main droite et frappa violemment, provoquant l'effondrement du char de guerre. La Bête de Tonnerre fut détruite alors qu'elle était encore figée, et elle le resta pour l'éternité.
 
@@ -60,7 +60,7 @@ En avançant, le Shui Daozi arriva près du Char de Guerre Divin aux sept couleu
 
 Une fois la dissipation terminée, le Char de Guerre Divin aux sept couleurs n'était plus qu'un objet ordinaire.
 
-« L'esprit du trésor a préféré s'autodétruire plutôt que d'être capturé par ce vieil homme... » Les yeux du Shui Daozi devinrent froids alors qu'il leva la main pour frapper. Le Char de Guerre Divin et son esprit furent déchirés.
+« L'esprit du trésor a préféré s'autodétruire plutôt que d'être capturé par ce vieil homme... » Les yeux du Shui Daozi devinrent froids alors qu'il leva la main pour frapper. Le Char de Guerre Divin, désormais sans esprit, vola en éclats.
 
 « Maintenant, voyons si tu possèdes la Perle Défiant le Ciel! » Le Shui Daozi laissa échapper un reniflement froid et se retourna vers Wang Lin. À cet instant, il semblait que le monde tremblait et que toutes les étoiles s'étaient éteintes. Wang Lin et le Shui Daozi étaient les deux seuls êtres restants. Son regard portait une force pénétrante terrifiante lorsqu'il se posa directement sur Wang Lin.
 
@@ -84,7 +84,7 @@ En balayant l'espace, ses yeux se rétrécirent lorsqu'il aperçut Xu Liguo à l
 
 « Voilà un esprit d'épée intéressant! Mais ce n'est toujours que de la camelote! » Sous son regard, le corps de Xu Liguo trembla; il était sur le point d'utiliser ses talents de flatteur. Cependant, avant qu'il ne puisse faire quoi que ce soit, la volonté destructrice du vieil homme s'abattit sur lui.
 
-Alors que cette volonté allait anéantir Xu Liguo, le Shui Daozi fut soudainement frappé par une surprise et se précipita vers lui. Il se focalisa immédiatement sur ce qu'il venait de percevoir: un groupe infini de bêtes-moustiques géantes. Bien qu'elles fussent dans un autre espace de stockage, celui-ci était relié au sien, permettant au Shui Daozi de les voir instantanément.
+Alors que cette volonté allait anéantir Xu Liguo, le Shui Daozi fut soudainement frappé par une surprise et détourna sa volonté de Xu Liguo, qu'il épargna. Il se focalisa immédiatement sur ce qu'il venait de percevoir: un groupe infini de bêtes-moustiques géantes. Bien qu'elles fussent dans un autre espace de stockage, celui-ci était relié au sien, permettant au Shui Daozi de les voir instantanément.
 
 « C'est... autant de bêtes-moustiques géantes! » Le Shui Daozi fut stupéfait et projeta une nouvelle fois son sens divin. Cette fois, il vit un cercueil émettant une lueur argentée.
 

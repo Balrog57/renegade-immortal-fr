@@ -14,7 +14,7 @@ Le scorpion mesurait des centaines de milliers de pieds de long. Entièrement no
 
 À l'exception du Maître de Secte, tous les membres de la Secte du Dao Démoniaque étaient retournés à leur base. Seul le Maître de Secte s'était rendu devant le Temple du Scorpion du Démon Vert avec Wang Lin. Grâce à son niveau de culture, il n'était pas affecté par l'énergie démoniaque ambiante.
 
-À cet instant, le Maître de Secte apparut aux côtés de l'immense édifice-scorpion. Aussitôt après son apparition, un faible toussotement s'éleva du bas de la créature gigantesque. Ce bruit était ténu, mais dans ce silence absolu, il résonna avec une clarté extrême.
+À cet instant, le Maître de Secte apparut aux côtés de l'immense édifice-scorpion. Aussitôt après son apparition, un faible toussotement s'éleva de la gueule de la créature gigantesque, en contrebas. Ce bruit était ténu, mais dans ce silence absolu, il résonna avec une clarté extrême.
 
 Alors que le bruit se rapprochait lentement, trois silhouettes émergèrent de la gueule du scorpion. Parmi elles, les deux suivants portaient des robes taoïstes vertes ornées du symbole d'un scorpion. Bien qu'ils paraissent n'être qu'au milieu de leur vie, ils dégageaient l'aura de cultivateurs de la phase intermédiaire de la Tribulation du Vide. Leurs visages étaient de marbre, dépourvus de toute émotion.
 
@@ -36,7 +36,7 @@ Le Maître de la Secte du Dao Démoniaque reprit lentement: « Pour le capturer,
 
 « *Tousse*... À l'avenir, le Continent du Démon Vert n'aura plus qu'une seule secte: la Secte du Dao Démoniaque! » Le vieillard à la robe verte fut pris d'une violente quinte de toux qui dura un long moment avant qu'il ne puisse reprendre la parole.
 
-« Soit. Puisque Ji Si en a donné sa parole, j'utiliserai toute ma puissance et la Grande Loi du Dao Démoniaque pour planter la graine de la Transformation Démoniaque. Qu'il détruise lui-même son esprit! » Le Maître de la Secte du Dao Démoniaque rit et n'hésita plus. Sa main droite perça la lumière pour pointer l'espace entre les sourcils de Wang Lin. Il saisit la lueur noire et blanche qui enveloppait le jeune homme et la projeta dans l'immense édifice-scorpion.
+« Soit. Puisque Ji Si l'a ainsi déclaré, j'utiliserai toute ma puissance et la Grande Loi du Dao Démoniaque pour planter la graine de la Transformation Démoniaque. Qu'il détruise lui-même son esprit! » Le Maître de la Secte du Dao Démoniaque rit et n'hésita plus. Sa main droite perça la lumière pour pointer l'espace entre les sourcils de Wang Lin. Il saisit la lueur noire et blanche qui enveloppait le jeune homme et la projeta dans l'immense édifice-scorpion.
 
 Wang Lin fut soudainement projeté vers le scorpion, fendant l'air dans un hurlement. À son arrivée, un vortex gigantesque apparut sur le dos de la créature et l'aspira.
 

@@ -30,7 +30,7 @@ L'homme d'âge moyen ouvrit les yeux et vit Wang Lin debout non loin de là. Sur
 
 Le regard de Wang Lin se posa sur le front de Zhang Xiangfan, puis il demanda calmement: « Puis-je voir ton épée volante? »
 
-Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise dans une boutique à l'extérieur de la secte, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de 2,3 mètres et libéra des ondes d'hymnes d'épée.
+Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise au marché au pied de la montagne, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de 2,3 mètres et libéra des ondes d'hymnes d'épée.
 
 Le regard de Wang Lin resta impassible tandis qu'il tendait la main. Lorsqu'il saisit l'épée verte, il la tira vers lui pour l'examiner attentivement.
 
@@ -52,7 +52,7 @@ En contemplant l'étoile, Wang Lin soupira. Il s'en saisit, regarda Zhang Xiangf
 
 Sur ces mots, Wang Lin frappa son sac de rangement. Un morceau de jade apparut dans sa main et il le lança à Zhang Xiangfan.
 
-Quant à l'épée volante verte, Wang Lin la lui rendit également. Bien que Zhang Xiangfan affichât un respect profond, ses yeux trahissaient la douleur d'une perte. Il accepta le jade sans trop d'attentes et l'examina inconsciemment, avant d'être instantanément frappé de stupeur.
+Quant à l'épée volante verte, Wang Lin la lui rendit également. Bien que Zhang Xiangfan affichât un respect profond, ses yeux trahissaient la douleur d'une perte. Il accepta le jade sans trop d'attentes et le parcourut instinctivement de son Sens Divin, avant d'être instantanément frappé de stupeur.
 
 Peu après, il leva brusquement la tête et dit respectueusement: « Merci, Septième Ancêtre! »
 
@@ -100,13 +100,13 @@ Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être
 
 « Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler à une trentaine de mètres devant Wang Lin.
 
-Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte du Destin Céleste distribue les jades de cette manière.
+Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte du Destin Céleste compte les jades de cette manière.
 
 « Si une place de disciple reste vacante pendant plus de dix mille ans, la quantité de jades accumulée atteindra un niveau inimaginable... Les jades célestes sont censés être rares, alors pourquoi la Secte du Destin Céleste en possède-t-elle autant... » Wang Lin prit une grande inspiration. À cet instant, les jades formaient déjà une petite montagne. Ses yeux s'illuminèrent alors qu'il les rangeait rapidement dans son sac de rangement.
 
 Une fois terminé, il toucha son sac; il avait toujours l'impression que ce n'était pas réel.
 
-Il eut un sourire amer et secoua la tête. Ce n'était donc pas étonnant qu'on le prenne pour un cultivateur natif de cette planète; ses connaissances étaient encore insuffisantes. Ces quelque 100 000 jades suffisaient déjà à lui faire perdre la raison. Si quelqu'un avait tenté de l'arrêter, peu importe qui il eût été, Wang Lin aurait attaqué sans la moindre hésitation.
+Il eut un sourire amer et secoua la tête. Ce n'était donc pas étonnant qu'on le prenne pour un cultivateur natif de cette planète; sa fermeté d'esprit était encore insuffisante. Ces quelque 100 000 jades suffisaient déjà à le rendre complètement avide. Si quelqu'un avait tenté de l'arrêter, peu importe qui il eût été, Wang Lin aurait attaqué sans la moindre hésitation.
 
 Il prit une profonde inspiration et ses yeux retrouvèrent leur clarté. Ce n'est qu'à ce moment-là qu'il se remit du choc provoqué par les jades célestes.
 

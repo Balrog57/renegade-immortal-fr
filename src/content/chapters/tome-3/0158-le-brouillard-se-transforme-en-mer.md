@@ -56,7 +56,7 @@ Quant à Wang Lin, il se déplaçait très rapidement tout en portant Li Muwan. 
 
 La Mer des Démons est enveloppée de brouillard toute l'année, mais une seule fois par an, pendant un mois, ce brouillard se transforme en eau. Durant toutes les années passées dans la Mer des Démons, Wang Lin n'avait jamais été témoin de ce phénomène en raison de sa culture en isolement.
 
-Un mois après son entrée dans la 14e vallée, le brouillard s'était transformé en mer. Cela se produisait chaque année pendant les trois années qu'il y avait passé, et l'événement allait se reproduire.
+Un mois après son entrée dans la 14e vallée, le brouillard s'était transformé en mer. Cela se produisait chaque année pendant les trois années qu'il y avait passé, et l'événement allait bientôt se reproduire.
 
 Li Muwan, elle, était différente; elle l'avait vécu personnellement chaque année. Grâce à la protection de la formation, l'eau de mer ne pouvait pénétrer dans la grotte, mais elle pouvait voir distinctement l'océan bleu profond à l'extérieur et les créatures spirituelles rares qui passaient au loin.
 

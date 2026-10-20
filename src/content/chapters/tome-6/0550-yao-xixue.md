@@ -54,7 +54,7 @@ De plus, à en juger par le niveau de culture du nouveau commandant, même Sima 
 
 Wang Lin se leva et pressa le sol de sa main droite. Une série de grondements sourds émana soudainement de la terre sous le camp, comme si des dragons en furie s'agitaient dans les profondeurs. À cet instant, le sol de l'ensemble du camp militaire s'affaissa de 3,3 centimètres!
 
-La terre mise à nu se souleva brusquement sous les pieds de Wang Lin!
+La terre en surplus se souleva brusquement sous les pieds de Wang Lin!
 
 Une poussière épaisse envahit l'air, comme si elle recouvrait le monde entier.
 
@@ -130,7 +130,7 @@ Au cours des mois passés, Hu Pao s'était senti comme un poisson dans l'eau au 
 
 Cela était particulièrement vrai pour une chef de régiment nommée Xu You. Dès qu'il l'eut aperçue, Hu Pao fut frappé de stupeur; depuis lors, il se montrait très empressé auprès d'elle.
 
-De son côté, Treize restait assis dans la pagode, cultivant toute la journée tel un gardien immuable. Il manifestait une indifférence totale envers quiconque, hormis Wang Lin.
+De son côté, Treize restait assis devant la pagode, cultivant toute la journée tel un gardien immuable. Il manifestait une indifférence totale envers quiconque, hormis Wang Lin.
 
 Plusieurs mois plus tard, dans le troisième camp militaire, au sein de la chambre de Yao Xixue, un éclat bleu jaillit. Bientôt, cette lumière se mua en symboles azurés.
 

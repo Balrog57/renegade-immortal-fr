@@ -38,7 +38,7 @@ Tout se joua en un clin d'œil. Au moment où ce dernier vestige fut brisé, il 
 
 « Dao du Rêve! »
 
-À ces deux mots, l'esprit de Wang Lin trembla et tout son univers intérieur s'effondra. Dans ce chaos, une lumière aux sept couleurs surgit et emporta sa conscience, la plongeant dans un abîme sans fin.
+À ces deux mots, l'esprit de Wang Lin trembla et tout ce que son Sens Divin embrassait de ce ciel étoilé s'effondra. Dans ce chaos, une lumière aux sept couleurs surgit et emporta sa conscience, la plongeant dans un abîme sans fin.
 
 C'était un monde de sept couleurs. Le ciel, la terre et même les nuages étaient imprégnés de ces teintes chromatiques. Au milieu de ce paysage montagneux, Wang Lin se retrouva debout sur un sommet.
 

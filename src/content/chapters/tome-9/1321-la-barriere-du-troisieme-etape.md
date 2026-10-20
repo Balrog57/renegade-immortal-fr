@@ -12,7 +12,7 @@ Ces saisons pluvieuses duraient souvent six mois avant que d'autres saisons ne s
 
 Cet hiver, succédant à la saison des pluies, était saisissant. La terre, saturée d'humidité, fut instantanément figée par la neige. Marcher sur ce sol gelé permettait de ressentir la morsure du froid jusqu'au bout des pieds. Même le sang semblait ralentir et se glacer dans les veines.
 
-Pour des mortels, une telle saison aurait été terrible, mais ceux du Clan de la Soie Bleue s'y étaient habitués. Grâce à l'aide des cultivateurs du clan, après tant d'années, ce n'était plus une épreuve insurmontable.
+Pour des mortels, une telle saison aurait été terrible, mais les mortels de cette planète s'y étaient habitués. Grâce à l'aide des cultivateurs du clan, après tant d'années, ce n'était plus une épreuve insurmontable.
 
 Certaines récoltes étaient même effectuées dans ce froid. Plus la température chutait, plus la récolte était abondante.
 
@@ -36,7 +36,7 @@ Il vit des montagnes blanches, la neige couvrant le sol, les rivières gelées e
 
 Il vit des cités mortelles et des mortels à l'intérieur de leurs demeures. Ils se regroupaient autour d'un feu, et il percevait la chaleur de leur vie quotidienne.
 
-Il vit les festins somptueux des riches familles royales. Il vit les cultivateurs du Clan de la Soie Bleue et entendit la beauté de leur musique.
+Il vit la vie fastueuse des riches, le luxe des familles royales mortelles. Il vit les cultivateurs du Clan de la Soie Bleue et entendit la beauté de leur musique.
 
 Il vit la neige tomber du ciel, les poissons amateurs de froid sous la rivière gelée et la végétation qui poussait en hiver sur la terre gelée.
 

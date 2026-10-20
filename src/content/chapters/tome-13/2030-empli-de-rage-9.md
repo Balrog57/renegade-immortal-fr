@@ -20,7 +20,7 @@ Xuan Luo regarda l'Empereur du Dao Antique et dit calmement: « Ye Dao, en tant 
 
 « Son cœur se refroidira? Et alors, s'il devient froid? Tu es vieux, ne te mêle pas de mes propos! Et Seigneur Xuan... Ceci est une affaire privée de la famille impériale. Vous êtes le gardien du Dao Antique. Auriez-vous oublié l'accord conclu avec le Grand Empyréen Gu Dao? Cet individu s'est introduit dans le palais et a manqué de respect au pouvoir impérial. J'aimerais plutôt que le Seigneur Xuan tue cet homme, pour l'exemple! » dit froidement l'Empereur du Dao Antique, ignorant totalement la requête de Xuan Luo.
 
-Il agissait ainsi car il était convaincu que personne n'oserait tuer Wang Lin, surtout pas Wang Lin.
+Il agissait ainsi car il était convaincu que personne n'oserait le tuer, et Wang Lin encore moins.
 
 Xuan Luo sourit avec colère, une lueur glaciale traversant ses yeux. Cet Empereur du Dao Antique était un homme qu'il avait lui-même nommé, et voilà qu'il osait tenir de tels propos. Alors qu'il s'apprêtait à répliquer, Wang Lin prit la parole.
 
@@ -114,7 +114,7 @@ Le corps de Xuan Luo trembla. Il ferma les yeux pour dissimuler la tristesse et 
 
 Au moment où Xuan Luo prit sa décision, Wang Lin murmura doucement: « Maître... » Il regarda Xuan Luo en esquissant un sourire. C'était la première fois qu'il souriait depuis qu'il avait retrouvé le fragment d'âme de Wan Er.
 
-Pourtant, en voyant ce sourire, le cœur de Xuan Luo se serra de douleur. Quel genre de sourire était-ce? C'était, de toute évidence, un cri silencieux.
+Pourtant, en voyant ce sourire, le cœur de Xuan Luo se serra de douleur. Quel genre de sourire était-ce? C'était, de toute évidence, un sanglot silencieux.
 
 « Maître, vous avez protégé le Dao Antique toute votre vie... Ce disciple n'est pas digne de votre décision... » Wang Lin regarda Xuan Luo et s'agenouilla. Il frappa profondément le sol du front devant lui.
 

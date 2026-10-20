@@ -32,7 +32,7 @@ Au début, la rotation était lente, mais à mesure que le noyau d'origine céle
 
 Alors que le vortex rugissait, il commença à s'étendre. En un clin d'œil, un tourbillon de plusieurs dizaines de pieds de haut apparut devant Wang Lin. Il tournait si rapidement qu'il semblait immobile; en réalité, la rotation du vortex avait atteint son apogée.
 
-Si Wang Lin n'avait pas obtenu l'énergie originelle céleste de la 17e couche du Cimetière Immortel, son noyau céleste se serait épuisé et effondré avant même que le vortex ne puisse se former.
+Si Wang Lin n'avait pas obtenu l'énergie originelle céleste de la 17e couche du Cimetière des Immortels, son noyau céleste se serait épuisé et effondré alors que le vortex n'était qu'à moitié formé.
 
 Même après avoir absorbé toute cette énergie et que son noyau céleste ait atteint la taille d'un poing de bébé, Wang Lin sentait son énergie originelle céleste s'épuiser rapidement. Il savait qu'il ne pourrait maintenir le vortex plus de trois jours!
 
@@ -62,11 +62,11 @@ Peu après, l'homme d'âge moyen mourut. Près de lui se tenait un jeune homme �
 
 Le fragment d'âme de l'homme d'âge moyen s'envola et pénétra dans l'âme originelle de Wang Lin.
 
-La scène changea une fois de plus. Cette fois, c'était une grotte dans la forêt. Il dévora les fondations de Teng Li, puis le fragment d'âme de ce dernier vola vers lui.
+La scène changea une fois de plus. Cette fois, c'était une grotte dans la forêt. Il dévora l'Établissement des Fondations de Teng Li, puis le fragment d'âme de ce dernier vola vers lui.
 
 Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Extérieur, à Huo Fen, et enfin à la Mer des Démons avec le tendon de dragon qui enchaînait mille cadavres et l'Ordre des Dix Mille Démons de cent jours.
 
-Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu [1] et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans le Tombeau de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
+Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans le Tombeau de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
 
 La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre Sanguin, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
 
@@ -100,11 +100,11 @@ C'était son propre domaine qu'il avait créé pour l'Arsenal Magique!
 
 Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume de la Boucherie. Wang Lin, lui, avait ses 18 Couches de la Réincarnation Infernale!
 
-Le Sceau Céleste servait de terre, les sceaux dorés de protection, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
+Le Sceau Céleste servait de terre, les sceaux dorés, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
 
 Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse: c'était l'Ancêtre Sanguin, tué par Wang Lin!
 
-Plus de 100 fragments d'âme d'êtres célestes massacrés par Wang Lin dans le Cimetière Immortel étaient scellés dans la 13e couche. Ils poussaient des hurlements démoniaques, cherchant à s'échapper, mais ils restaient totalement emprisonnés.
+Plus de 100 fragments d'âme d'êtres célestes massacrés par Wang Lin dans le Cimetière des Immortels étaient scellés dans la 13e couche. Ils poussaient des hurlements démoniaques, cherchant à s'échapper, mais ils restaient totalement emprisonnés.
 
 On y trouvait également les fragments d'âme des cultivateurs de la famille Yao que Wang Lin avait éliminés, ainsi que ceux de tous les cultivateurs du niveau Corporel Yang et au-delà qu'il avait tués!
 
@@ -115,6 +115,3 @@ Wang Lin se leva et contempla les 18 couches de l'enfer dans le ciel. Un vortex 
 Un gaz noir infini s'échappa de cette énergie. Ce gaz noir représentait toutes les personnes tuées par Wang Lin. Dès qu'ils approchèrent des 18 couches de l'enfer, chaque couche les absorba selon leur force.
 
 Au même moment, Wang Lin frappa son sac de stockage et le Étendard de l'Âme s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.
-
-***
-1. Le pays du Papillon Rouge.

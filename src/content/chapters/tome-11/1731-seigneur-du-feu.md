@@ -22,7 +22,7 @@ Wang Lin était désormais profondément intrigué par cette formation.
 
 « Je possède l'essence du feu parmi les cinq éléments. Si je parviens à obtenir les quatre autres, mon niveau de culture augmentera considérablement. Et si les cinq éléments fusionnent en un seul, je me demande quelle nouvelle essence cela pourrait engendrer! » Wang Lin sourit en observant la Formation des Cinq Éléments, son sourire devenant de plus en plus radieux.
 
-Wang Lin ne prônerait pas la morale face à ses ennemis, surtout avec ceux qui ne venaient pas du Monde des Grottes et nourrissaient de mauvaises intentions. La force était l'unique loi! Si l'adversaire avait la force de le retenir, l'affaire en resterait là. Sinon, dans le foyer de Wang Lin, ces étrangers n'étaient que de simples voleurs, et Wang Lin se montrait toujours plus impitoyable envers les brigands!
+Wang Lin ne prônerait pas la morale face à ses ennemis, surtout avec ceux qui ne venaient pas du Monde des Grottes et nourrissaient de mauvaises intentions. La force était l'unique loi! Si l'adversaire avait la force de le retenir, l'affaire en resterait là. Sinon, dans le foyer de Wang Lin, ces étrangers n'étaient que de simples voleurs, et Wang Lin serait encore plus brigand qu'eux!
 
 Après s'être emparé de l'esprit de la terre, Wang Lin fit un pas en avant. Ce mouvement le transporta dans un monde de feu.
 
@@ -62,7 +62,7 @@ Cependant, à cet instant précis, l'expression du vieil homme changea radicalem
 
 Peu après, tous les cultivateurs de la Secte Gui Yi qui suivaient le vortex dans le ciel s'exclamèrent de stupéfaction.
 
-Dans la formation de feu, Wang Lin contemplait calmement les neuf qilins de feu qui fonçaient sur lui. Ces derniers s'arrêtèrent à cent pieds de lui, l'air incertain, puis secouèrent leur grosse tête. Ils s'agenouillèrent au sol et commencèrent à gémir.
+Dans la formation de feu, Wang Lin, le regard froid, contemplait calmement les neuf qilins de feu qui fonçaient sur lui. Ces derniers s'arrêtèrent à cent pieds de lui, l'air incertain, puis secouèrent leur grosse tête. Ils s'agenouillèrent au sol et commencèrent à gémir.
 
 Ils ne ressemblaient plus à des qilins, mais à des chatons. Ils semblaient même joyeux, comme s'ils venaient de retrouver leur maître!
 
@@ -80,11 +80,11 @@ La femme d'âge moyen devint tout aussi livide. Elle ouvrit la bouche sans pouvo
 
 Ils n'étaient pas les seuls à être stupéfaits. Tous les cultivateurs de la Secte Gui Yi restèrent pétrifiés devant la scène.
 
-Ils avaient été choqués lorsque Wang Lin avait capturé l'esprit de la terre, mais là, ils voyaient l'esprit du feu lui rendre un culte. Wang Lin n'avait pas prononcé une seule parole depuis son entrée; il s'était contenté de se tenir là. Il se dressait tel un roi revenant dans son propre royaume, et d'un simple regard, tous les sujets de ce royaume se prosternaient devant lui.
+Ils avaient été choqués lorsque Wang Lin avait capturé l'esprit de la terre, mais là, ils voyaient l'esprit du feu lui rendre un culte. Wang Lin n'avait pas prononcé une seule parole depuis son entrée; il s'était contenté de se tenir là, sans employer le moindre pouvoir. Il se dressait tel un roi venant dans son propre royaume, et d'un simple regard, tous les sujets de ce royaume se prosternaient devant lui.
 
 Cela dépassait leur imagination et échappait à toute compréhension, provoquant en eux un sentiment profond de crainte et d'inquiétude.
 
-Au dixième étage, Na Duo et l'homme d'âge moyen réfléchissaient en silence. Les paupières de Na Duo tressaillirent et son expression devint progressivement sombre. Ils échangèrent un regard et y virent la même terreur.
+Au dixième étage, Na Duo et l'homme d'âge moyen réfléchissaient en silence. Les paupières de Na Duo tressaillirent et son expression devint progressivement sombre. Ils échangèrent un regard et y virent la même crainte.
 
 D'autres ne percevaient peut-être pas le problème, mais eux le comprenaient parfaitement.
 

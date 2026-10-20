@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1212 - Sealing Extermination Clan
 slug: le-clan-de-lextermination-scellee
 ---
-Wang Lin n'était pas certain de pouvoir affronter un cultivateur au stade avancé du Briseur du Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de l'Oiseau Vermillon, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan du Tonnerre Dispersé, son propre pouvoir de foudre s'était considérablement amélioré.
+Wang Lin n'avait aucune certitude de pouvoir affronter un cultivateur au stade avancé du Briseur du Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de l'Oiseau Vermillon, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan du Tonnerre Dispersé, son propre pouvoir de foudre s'était considérablement amélioré.
 
 Plus important encore, il avait assimilé le domaine de combat de Zhan Xingye. Bien qu'il ne l'ait pas fusionné et n'en ait que partiellement compris la nature, cela lui donnait la détermination nécessaire pour combattre ce cultivateur au stade avancé du Briseur du Nirvana!
 
@@ -16,7 +16,7 @@ Wang Lin flotta dans les airs; des flammes bleues jaillirent de son œil gauche 
 
 « J'ai abandonné mon domaine de vie et de mort. En cet instant, les flammes remplaceront mon esprit et mon Dao. En cet instant, je suis les flammes. Je suis l'Oiseau Vermillon qui s'est éveillé trois fois! » Les flammes bleues se rassemblèrent frénétiquement entre les sourcils de Wang Lin, et un tatouage bleu apparut soudainement!
 
-À l'instant où le tatouage se manifesta, Wang Lin n'était plus un simple cultivateur; il était devenu une entité céleste de feu, le souverain de toutes les flammes!
+À l'instant où le tatouage se manifesta, Wang Lin n'était plus un simple cultivateur; il était devenu un immortel de feu, le souverain de toutes les flammes!
 
 Son apparence ressemblait désormais étroitement à celle d'un membre du Clan des Moineaux de Feu. La seule différence résidait dans le fait que le tatouage entre les sourcils de Wang Lin était bleu, tandis que celui du Clan des Moineaux de Feu était rouge!
 
@@ -46,7 +46,7 @@ Dès que les os disparurent, le feu bleu se précipita vers le vieil homme comme
 
 Cette fente émettait une lueur noire, telle un troisième œil!
 
-« En tant que descendant du Clan de l'Extermination Scellée, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme révéla son identité et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement à l'extrême.
+« En tant que descendant du Clan de l'Extermination Scellée, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme n'hésita pas à révéler qu'il n'était pas un cultivateur, et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement à l'extrême.
 
 La rune noire se projeta vers Wang Lin à une vitesse inimaginable. Elle perça la mer de feu bleu et vint se fixer entre les sourcils de ce dernier!
 
@@ -84,7 +84,7 @@ C'était comme une tribulation céleste! Et Wang Lin en était le maître!
 
 Au moment où le vieil homme s'éleva, le tonnerre se rapprocha dans un fracas de déchirement. Le monde entier était saturé de foudre.
 
-« Je vais te faire mourir par un sort que les cultivateurs jugent pourtant puissant! » rugit le vieillard en poussant impitoyablement sa main droite vers l'avant. Une empreinte de paume gigantesque apparut, aspirant une quantité massive d'énergie originelle au moment même de sa manifestation!
+« Tu vas mourir sous le coup de la plus puissante technique des cultivateurs! » rugit le vieillard en poussant impitoyablement sa main droite vers l'avant. Une empreinte de paume gigantesque, haute comme le ciel, apparut, aspirant une quantité massive d'énergie originelle au moment même de sa manifestation!
 
 « L'Empreinte de l'Esprit Guerrier! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
@@ -92,7 +92,7 @@ Au moment où le vieil homme s'éleva, le tonnerre se rapprocha dans un fracas d
 
 L'Empreinte de l'Esprit Guerrier créée par le vieil homme dégagea soudain une pression majestueuse en s'élançant. Elle entra en collision avec le tonnerre et provoqua un séisme qui ébranla les cieux!
 
-Le regard de Wang Lin, brûlant d'intention de combat, fixa l'empreinte de la paume tandis qu'il levait sa propre main droite. L'image de la paume apparut dans son esprit et il poussa impitoyablement vers l'avant. Soudain, une partie de l'énergie originelle absorbée par le vieillard se détacha pour converger vers Wang Lin. En un clin d'œil, une autre empreinte de paume, perçante et céleste, apparut dans le Royaume aux Sept Couleurs!
+Le regard de Wang Lin, brûlant d'intention de combat, fixa l'empreinte de la paume tandis qu'il levait sa propre main droite. L'image de la paume apparut dans son esprit et il poussa impitoyablement vers l'avant. Soudain, une partie de l'énergie originelle absorbée par le vieillard se détacha pour converger vers Wang Lin. En un clin d'œil, une autre empreinte de paume, haute comme le ciel, apparut dans le Royaume aux Sept Couleurs!
 
 Cette scène choqua à nouveau le vieil homme aux cheveux blancs. Il fut pétrifié un instant, avant qu'une intention meurtrière encore plus puissante ne le submerge!
 
@@ -100,6 +100,6 @@ Il était rare de voir quelqu'un utiliser l'Empreinte de l'Esprit Guerrier, mais
 
 Pourtant, ici même, dans le Royaume aux Sept Couleurs, deux Empreintes de l'Esprit Guerrier venaient de surgir pour engager un combat à mort!
 
-Nul ne savait laquelle était la plus forte, mais dès leur apparition, il sembla que le Royaume aux Sept Couleurs soit sur le point de s'effondrer. La terre se fendit et une immense faille apparut, scindant le domaine en deux. Cette crevasse se formait précisément là où les empreintes de Wang Lin et du vieil homme entraient en collision.
+Nul ne savait laquelle était la plus forte, mais dès leur apparition, il sembla que le Royaume aux Sept Couleurs soit sur le point de s'effondrer. La terre se fendit et une immense faille apparut, scindant le domaine en deux. Les deux moitiés ainsi séparées abritaient chacune l'une des empreintes, celle de Wang Lin et celle du vieil homme.
 
 Les deux paumes projetées s'approchèrent l'une de l'autre à des vitesses extrêmes!

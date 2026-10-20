@@ -22,7 +22,7 @@ Soudain, un pouvoir d'Ancien Dieu inimaginable envahit le corps de Wang Lin. Cet
 
 Toutes les veines de son corps boursouflèrent, comme si une puissance intérieure cherchait à le déchirer. Accablé par la douleur, Wang Lin chargea en avant et poussa un rugissement!
 
-Ce rugissement se mua en d'incessantes ondes de choc qui s'élancèrent vers l'avant. Il contenait également la majesté d'un Ancien Dieu royal, ce qui fit hésiter la main géante dorée qui s'approchait de lui.
+Ce rugissement se mua en d'incessantes ondes de choc qui s'élancèrent vers l'avant. Il contenait également la majesté d'un Ancien Dieu royal, ce qui fit hésiter la main géante de lumière cristalline qui s'approchait de lui.
 
 Wang Lin sentait clairement le pouvoir des Anciens Dieux provenant des deux étoiles que Luo Chen lui avait lancées déferler dans tout son corps.
 
@@ -34,7 +34,7 @@ Les étoiles tournèrent rapidement entre ses sourcils jusqu'à ce qu'il soit im
 
 Ce coup déclencha immédiatement une tempête. Le vide devant lui fut repoussé comme s'il était lacéré, et une force puissante balaya l'espace.
 
-La grande main de lumière dorée fut stoppée par le coup de poing de Wang Lin. Cependant, dans un fracas qui fit trembler les cieux, la main de Wang Lin et la main dorée entrèrent en collision.
+La grande main de lumière cristalline fut stoppée par le coup de poing de Wang Lin. Cependant, dans un fracas qui fit trembler les cieux, la main de Wang Lin et la main dorée entrèrent en collision.
 
 Bang! Bang! Bang! Bang!
 
@@ -46,7 +46,7 @@ Il n'y avait pas de main géante s'étendant vers Qing Shui, mais celui-ci affic
 
 C'était comme s'il était dans un état second et que la douleur émanait de sa tête. On aurait dit qu'un souvenir caché s'était impitoyablement ouvert en voyant ces deux êtres.
 
-Le filet scintillant dans le vide se rétractait rapidement. Juste avant sa disparition complète, une lueur de froideur passa dans les yeux du vieil homme situé à l'extérieur. Il fixa le corps gigantesque de Wang Lin, et plus particulièrement les quatre étoiles tournant frénétiquement autour d'un vortex central. Des éclats de lumière dorée s'échappaient du corps de Wang Lin pour converger vers le vortex, propageant des ondes de puissance colossale de l'Ancien Dieu.
+Le filet scintillant dans le vide se rétractait rapidement. Juste avant sa disparition complète, une lueur de froideur passa dans les yeux du vieil homme situé à l'extérieur. Il fixa le corps gigantesque de Wang Lin, et plus particulièrement les quatre étoiles tournant frénétiquement autour d'un vortex central. Des éclats de lumière cristalline s'échappaient du corps de Wang Lin pour converger vers le vortex, propageant des ondes de puissance colossale de l'Ancien Dieu.
 
 Une goutte de liquide noir apparut et disparut au sein du vortex.
 
@@ -56,7 +56,7 @@ Une goutte de liquide noir apparut et disparut au sein du vortex.
 
 « Si je peux absorber son pouvoir d'Ancien Dieu royal, je pourrai siéger au conseil des Anciens! » La marque en croissant de lune brilla entre les sourcils du vieil homme et il serra les dents. Ses mains formèrent un sceau, et la marque s'envola pour former une empreinte lunaire haute d'environ trois mètres!
 
-« Ce vieillard appartient au clan ancestral des Dévoreurs de Lune du Clan Céleste Immémorial. Aujourd'hui, j'ai rencontré la plus grande opportunité de ma vie! Quoi qu'il en coûte, je ne peux pas le laisser filer! » Alors que le vieil homme rugissait, la marque lunaire scintilla frénétiquement et chargea.
+« Je suis issu du clan ancestral des Dévoreurs de Lune du Clan Céleste Immémorial. Aujourd'hui, j'ai rencontré la plus grande opportunité de ma vie! Quoi qu'il en coûte, je ne peux pas le laisser filer! » Alors que le vieil homme rugissait, la marque lunaire scintilla frénétiquement et chargea.
 
 Au moment où le filet dans le vide allait se retirer totalement, la marque lunaire perça soudainement la barrière. Elle grandit dans le vide jusqu'à atteindre plus d'un kilomètre de haut, devenant comparable à Wang Lin.
 
@@ -72,7 +72,7 @@ La silhouette de Wang Lin ne subsistait plus dans le vide; seule restait l'énor
 
 Le rire du vieil homme était empreint d'exultation. Il n'aurait jamais cru rencontrer une telle fortune aujourd'hui.
 
-« Après avoir dévoré cet Ancien Dieu royal, ce vieillard aura le niveau de culture d'Ascendant nécessaire pour occuper un poste au conseil des Anciens! » Le vieil homme se précipita vers le filet, sa main droite s'étendant pour saisir la marque lunaire.
+« Après avoir dévoré cet Ancien Dieu royal, j'aurai le niveau de culture d'Ascendant nécessaire pour occuper un poste au conseil des Anciens! » Le vieil homme se précipita vers le filet, sa main droite s'étendant pour saisir la marque lunaire.
 
 Il avait déjà imaginé comment il gagnerait le respect du conseil après avoir dévoré l'Ancien Dieu royal, et comment il s'élèverait au-dessus de tous au sein de sa secte!
 

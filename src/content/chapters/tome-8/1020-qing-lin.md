@@ -56,7 +56,7 @@ Son corps physique était blessé et il avait perdu une grande partie de son san
 
 Si cela avait été tout, sa situation n'aurait pas été si critique, mais même l'énergie originelle céleste à l'intérieur de son corps était presque épuisée.
 
-« J'ai trop consommé l'énergie originelle céleste que le frère Qing Shui m'a donnée. Je dois trouver un moyen de la reconstituer au plus vite. Le niveau de danger de cette bataille est une chose que j'ai rarement rencontrée dans ma vie. »
+« J'ai trop consommé l'énergie originelle céleste que le Senior Frère Qing Shui m'a donnée. Je dois trouver un moyen de la reconstituer au plus vite. Le niveau de danger de cette bataille est une chose que j'ai rarement rencontrée dans ma vie. »
 
 En repensant au sort céleste utilisé par Ming Hai, Wang Lin ne put s'empêcher d'éprouver une certaine crainte. Il regarda l'extérieur de la tour et vit les flammes qui recouvraient le monde.
 

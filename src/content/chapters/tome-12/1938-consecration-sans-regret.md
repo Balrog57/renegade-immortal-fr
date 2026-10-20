@@ -16,7 +16,7 @@ Wang Lin s'assit au sommet d'un pin et prit une profonde inspiration. Le monde i
 
 « Il doit y avoir un secret derrière cette paume brisée. J'ai beaucoup gagné lors de ce voyage à la Mer et la Montagne. Outre les esprits, j'ai également obtenu un fragment de l'épée de l'Ancêtre Céleste! » Les yeux de Wang Lin s'illuminèrent, une lueur dorée brillant dans sa main.
 
-« Je n'ai pas pu l'absorber à l'intérieur du rideau lumineux de l'Exalté Empyréen Hai Zi. Maintenant que je suis libre, je le fusionnerai avec le fragment dans mon œil dès que possible! » Wang Lin avait réfléchi aux questions que les Grands Empyréens pourraient lui poser; puisqu'ils l'avaient laissé partir, cela signifiait qu'il avait réussi leur test.
+« Je n'ai pas pu l'absorber à l'intérieur du rideau lumineux de l'Exalté Empyréen Hai Zi. Maintenant que je suis libre, je le fusionnerai dans mes yeux dès que possible! » Wang Lin avait réfléchi aux questions que les Grands Empyréens pourraient lui poser; puisqu'ils l'avaient laissé partir, cela signifiait qu'il avait réussi leur test.
 
 En un éclair, le corps de Wang Lin devint flou et se fondit lentement dans un pin en dessous. À l'intérieur de l'arbre ancien, il s'assit et sortit les deux derniers Esprits de l'Arbre de la Mer et de la Montagne.
 
@@ -68,7 +68,7 @@ Avant de se rendre à la Mer et la Montagne, Wang Lin pouvait fusionner neuf sor
 
 Ce onzième vortex signifiait que Wang Lin pouvait désormais fusionner 11 sorts dans ses attaques avec son corps originel seul. Une fois que ses corps d'essence véritable apparaîtraient, l'attaque de Wang Lin contiendrait 44 sorts!
 
-Son corps véritable des cinq éléments copierait son corps originel et doublerait le nombre de sorts. Ensuite, son corps véritable d'essence du tonnerre le triplerait. Enfin, il y avait ses essences éthérées. Bien qu'il n'ait pas encore formé de corps véritable pour elles, les essences éthérées étaient toujours plus mystérieuses. Les trois essences éthérées de Wang Lin combinées suffisaient à permettre une telle prouesse.
+Son corps véritable des cinq éléments copierait son corps originel et doublerait le nombre de sorts. Ensuite, son corps véritable d'essence du tonnerre le doublerait à nouveau. Enfin, il y avait ses essences éthérées. Bien qu'il n'ait pas encore formé de corps véritable pour elles, les essences éthérées étaient toujours plus mystérieuses. Les trois essences éthérées de Wang Lin combinées suffisaient à permettre une telle prouesse.
 
 Cette multiplication était une méthode de combat qu'il avait lui-même patiemment comprise au fil de ses affrontements durant les cinquante dernières années.
 

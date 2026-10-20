@@ -58,7 +58,7 @@ Wang Lin soupira intérieurement, puis ses yeux devinrent glacials et il pronon�
 
 À ces mots, les yeux de la bête spirituelle devinrent injectés de sang et elle poussa un rugissement de rage. Elle lança à Wang Lin un regard impitoyable avant de ramener son corps massif vers le char de guerre.
 
-Dès qu'elle fut de retour au char, elle ne laissa aucun répit à Wang Lin avant de se transformer à nouveau en piège à bêtes et de foncer sur lui. Une puissante force d'aspiration surgit soudainement du piège.
+Dès qu'elle fut de retour au char, elle ne laissa aucun répit à Wang Lin avant de se transformer à nouveau en piège à bêtes et de venir se poser à ses pieds. Une puissante force d'aspiration surgit soudainement du piège.
 
 Wang Lin eut un sourire amer. Chaque fois que la bête faisait une crise de colère, c'était un véritable casse-tête. Il s'assit en position de lotus, un morceau de jade céleste à la main, pour contrer la force d'aspiration.
 

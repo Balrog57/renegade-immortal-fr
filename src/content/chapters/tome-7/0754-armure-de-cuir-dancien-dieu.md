@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 754 - Ancient God Leather Armor
 slug: armure-de-cuir-dancien-dieu
 ---
-De nombreuses grottes célestes étaient dispersées à travers les innombrables fragments du Royaume Céleste du Tonnerre, renfermant les trésors de leurs anciens maîtres. Ces lieux étaient également saturés d'innombrables restrictions.
+De nombreuses grottes célestes étaient dispersées à travers les innombrables fragments du Royaume Céleste du Tonnerre, renfermant les vestiges de leurs anciens maîtres. Ces lieux étaient également saturés d'innombrables restrictions.
 
 Il n'était pas aisé de pénétrer dans les demeures des êtres célestes.
 
 Bien que le Royaume Céleste du Tonnerre se fût ouvert à d'innombrables reprises au fil des ans, il subsistait encore des lieux dont les restrictions n'avaient pas été brisées. Ces barrières étaient souvent trop puissantes; parfois, c'étaient des endroits que les cultivateurs ne devaient absolument pas toucher.
 
-Dans une zone jonchée de débris, Li Yuan s'accroupit, toucha la terre et dit: « Frère Xu, regardez ici. C’est une application typique de la quatrième loi des huit lois des restrictions célestes. Son but est de provoquer un désordre dans l'énergie spirituelle céleste environnante afin de se dissimuler du Sens Divin! »
+Dans une zone jonchée de débris, Li Yuan s'accroupit, toucha la terre et dit: « Frère Xu, regardez ici. C’est une application typique de la quatrième loi des huit lois des restrictions célestes. Son but est de provoquer un désordre dans l'environnement alentour afin de se dissimuler du Sens Divin! »
 
 « Si je ne me trompe pas, une fois cette restriction brisée, la demeure d'un être céleste devrait apparaître ici! »
 

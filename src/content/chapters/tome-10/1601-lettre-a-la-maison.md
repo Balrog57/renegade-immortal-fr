@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1601 - Letter Home
 slug: lettre-a-la-maison
 ---
-En un éclair, une autre décennie s'écoula.
+Années après années, année après année. En un éclair, une autre décennie s'écoula.
 
 Su Dao était mort de vieillesse il y a trois ans; il s'était éteint durant l'hiver. Il avait lutté pour survivre à la saison froide afin de vivre encore quelques mois et pouvoir contempler les flocons de saule l'année suivante.
 
@@ -14,13 +14,13 @@ Cependant, bien que son esprit fût capable de comprendre le monde, son corps ne
 
 Wang Lin poussa son fauteuil de bois et traversa la ville de Su. Âge d'approche de la quarantaine, il dégageait une aura de stabilité inébranlable. Vêtu d'une chemise blanche, il poussait silencieusement Su Dao.
 
-Cet hiver était particulièrement rude. La neige, emportée par le vent glacial, s'abattait sur leurs corps. Tôt le matin, la cloche du temple résonnait paresseusement au loin; son timbre profond semblait pouvoir purifier le cœur de quiconque l'entendait.
+Cet hiver était particulièrement rude. La neige, emportée par le vent glacial, s'abattait sur leurs corps. Tôt le matin, la cloche du temple de la montagne Su résonnait paresseusement au loin; son timbre profond semblait pouvoir purifier le cœur de quiconque l'entendait.
 
 « Lin Er, Maître est sur le point de partir... Maître n'a jamais eu d'enfants. Tes trois frères aînés ont hérité de beaucoup de mes vérités, mais toi seul possèdes des pensées semblables aux miennes... »
 
 « Je sais que tu as déjà pris conscience du karma. Bien qu'il soit encore flou, tu finiras par comprendre. Ce que tu recherches ne se limite pas au karma. Le Maître te lèguera cette demeure. » La voix affaiblie de Su Dao se mêla au vent pour atteindre les oreilles de Wang Lin. Ce dernier resta silencieux, une lueur de tristesse dans le regard.
 
-Su Dao l'avait accompagné pendant dix-sept ans. Au cours de ces années, Wang Lin était passé du jeune homme de dix-neuf ans à l'homme d'âge mûr. En suivant Su Dao, il avait énormément appris et compris tant de choses.
+Su Dao l'avait accompagné pendant dix-sept ans. Au cours de ces années, Wang Lin était passé du jeune homme de dix-huit ou dix-neuf ans à l'homme d'âge mûr. En suivant Su Dao, il avait énormément appris et compris tant de choses.
 
 La neige tombait avec intensité, obstruant leur vue. Tandis que la cloche résonnait, le manteau blanc recouvrait la ville de Su tout entière.
 
@@ -48,7 +48,7 @@ Au bout du chemin se trouvait une tombe solitaire. Elle trônait dans la neige c
 
 Su Dao s'assit devant la sépulture et la fixa. Aucune larme ne coula, mais son regard devint empreint de douceur.
 
-« Je viens... Tu avais dit que tu voulais toujours me regarder; je t'ai donc enterré ici pour que tu puisses toujours m'apercevoir depuis le bas de la montagne », murmura Su Dao en effleurant la pierre. Son expression était sereine, comme s'il oubliait la froideur de la tombe.
+« Je viens... Tu avais dit que tu voulais toujours me regarder; je t'ai donc enterré ici pour que tu puisses toujours m'apercevoir, moi qui suis resté à la maison, depuis le bas de la montagne », murmura Su Dao en effleurant la pierre. Son expression était sereine, comme s'il oubliait la froideur de la tombe.
 
 Ou peut-être pourrait-on dire que la froideur de la sépulture s'était muée en une chaleur dans son cœur.
 
@@ -62,7 +62,7 @@ Un profond sentiment de mélancolie envahit son cœur. Il était troublé, s'int
 
 Était-ce sa vie antérieure, une réincarnation, ou un simple rêve? Rien ne permettait d'expliquer les choses. Le vrai et le faux semblaient graviter dans un cycle perpétuel, rendant impossible toute distinction entre le commencement et la fin.
 
-Une demi-lune plus tard, une autre tombe apparut aux côtés de la première sur la montagne. Elle n'était plus solitaire.
+Une quinzaine de jours plus tard, une autre tombe apparut aux côtés de la première sur la montagne. Elle n'était plus solitaire.
 
 Trois ans après la mort de Su Dao, Wang Lin avait trente-neuf ans.
 
@@ -86,7 +86,7 @@ Ces opinions étaient contenues de son vivant, mais dans les trois années suiva
 
 Wang Lin n'accordait aucune importance à ces futilités. Il poursuivait sa vie tranquille avec Grande Fortune.
 
-Son silence ne fit qu'encourager ses détracteurs à devenir plus audacieux. Ils admettaient qu'il fût l'élève de Su Dao, mais niaient qu'il méritât le titre de grand érudit. Poussée par des individus aux motivations obscures, cette polémique s'étendit jusqu'à résonner dans tout le royaume de Zhao.
+Son silence ne fit qu'encourager ses détracteurs à devenir plus audacieux. Ils admettaient qu'il fût l'élève de Su Dao, mais affirmaient qu'il n'était qu'un usurpateur de renom, indigne du titre de grand érudit. Poussée par des individus aux motivations obscures, cette polémique s'étendit jusqu'à résonner dans tout le royaume de Zhao.
 
 Wang Lin continuait d'ignorer tout cela. Il observait les levers et couchers de soleil, le passage du printemps et l'arrivée de l'automne. Il contemplait le monde et tentait d'appréhender le karma, cherchant les signes de la vie et de la mort, de la vérité et de l'illusion.
 
@@ -100,7 +100,7 @@ Certains avaient exhumé les copies d'examen de Wang Lin datant de vingt ans pou
 
 Au milieu de ce tumulte, la convocation de la capitale impériale arriva une sixième, septième, huitième, puis neuvième fois, suivant Wang Lin comme la neige tombe sans relâche.
 
-Le comble fut que cela affecta ses parents. Âgés, ils auraient dû jouir paisiblement de la fin de leur vie. Mais pour une raison quelconque, les rumeurs s'étaient propagées jusqu'à leur village. Les médisances des villageois enflammèrent la colère de ses parents.
+Le comble fut que cela affecta ses parents. Âgés, ils auraient dû jouir paisiblement de la fin de leur vie. Mais pour une raison quelconque, même les colporteurs du village étaient au courant, et les rumeurs s'étaient propagées jusqu'à leur village. Les médisances des villageois enflammèrent la colère de ses parents.
 
 À leur âge, cette colère provoqua la maladie du père de Wang Lin.
 

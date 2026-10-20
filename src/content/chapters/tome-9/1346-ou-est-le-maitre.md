@@ -58,7 +58,7 @@ Saisissant cette opportunité, Xu Liguo battit en retraite et rugit: « Vieil ho
 
 Une vapeur noire s'échappa du visage du vieil homme qui poursuivait Xu Liguo; sa colère atteignait son paroxysme. Il avait vécu de nombreuses années, mais n'avait jamais rencontré un ennemi aussi venimeux. Tout au long de la poursuite, l'autre partie ne cessait de l'insulter, et bien que son cœur fût habituellement calme comme l'eau, il ne put s'empêcher de s'enflammer de rage!
 
-« Quand je t'aurai attrapé, je ferai en sorte que tu regrettes d'être né!!! »
+« Quand je t'aurai attrapé, je ferai en sorte que tu vives pire que la mort!!! »
 
 « Vieux fou, tu ne peux pas dire autre chose? Tu as déjà répété ça cent fois! Cent fois, ah, cent fois... Dis-moi, vieil homme, est-ce que tu veux me regarder profiter de cette petite fille? Sinon, avec ta culture de Purificateur du Nirvana, comment pourrais-tu ne pas me rattraper? Veux-tu me regarder encore cent fois? » lança Xu Liguo avec malveillance en se téléportant. Bien qu'il fût affaibli, tel une lampe à huile presque vide, ses paroles n'en devenaient que plus cruelles!
 

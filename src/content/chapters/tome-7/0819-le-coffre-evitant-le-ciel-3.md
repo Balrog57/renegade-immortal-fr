@@ -26,7 +26,7 @@ Ses yeux devinrent froids et un sourire sardonique étira ses lèvres tandis qu'
 
 « Si c'était le cas, pourquoi m'avoir infligé une telle douleur? Aviez-vous peur que je ne garde plus ce cercueil pour vous une fois mon corps retrouvé?! Je m'en voulais auparavant, mais maintenant je sais! Moi, Long Daozi, j'ai toujours été reconnaissant envers vous de m'avoir sauvé, et en raison de notre lien de maître à disciple, j'aurais préféré souffrir durant d'innombrables années plutôt que d'avoir la moindre idée sur ce cercueil. Cependant, je vois maintenant à quel point mes pensées étaient ridicules!! »
 
-À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements sinistres dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable; il pouvait clairement sentir sa culture se rétablir à une vitesse inimaginable.
+À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements secs dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable; il pouvait clairement sentir sa culture se rétablir à une vitesse inimaginable.
 
 Partant du stade situé entre Yang Corporel et Scruteur du Nirvana, qui était le rang 1 d'Immortel Céleste, il atteignit rapidement le début du stade Scruteur du Nirvana, soit le rang 3 d'Immortel Céleste.
 
@@ -88,7 +88,7 @@ En voyant cet objet, il pensa à Li Muwan.
 
 Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsque cette femme avait évoqué le réveil de Li Muwan dans l'Abîme des Marées.
 
-À cet instant, l'élan qui avait parcouru son corps aurait pu faire trembler les cieux et la terre. C'était comme si des dizaines de milliers d'éclairs l'avaient frappé. Qu'il s'agisse d'une vérité ou d'un mirage, il devait se rendre chez la famille Xiang sur la planète Dong Lin!
+À cet instant, l'élan qui avait parcouru son corps aurait pu faire trembler les cieux et la terre. C'était comme si des dizaines de milliers de coups de tonnerre l'avaient frappé. Qu'il s'agisse d'une vérité ou d'un mirage, il devait se rendre chez la famille Xiang sur la planète Dong Lin!
 
 Peu importe la difficulté ou le danger, Wang Lin choisirait de tout affronter! Il y a des choses dans la vie que l'on doit accomplir, quels que soient les périls!
 
@@ -110,7 +110,7 @@ Au moment où la gueule s'ouvrit, une formation fulgurante apparut. Un homme en 
 
 Le premier portait des robes vertes. Bien qu'il ait l'apparence d'un jeune homme, il dégageait une aura ancienne et profonde, comme si un vieillard millénaire habitait ce corps de jeunesse.
 
-Les yeux de Wang Lin trahirent une pointe de confusion. Dès son apparition, il fut poussé en avant par la brume. Derrière lui, les membres du Clan Immortel Élu sortirent, empreints de crainte face à ce nouveau monde, suivant de près Wang Lin.
+Les yeux de Wang Lin trahirent une pointe de confusion. Dès son apparition, il fut poussé en avant par la brume. Derrière lui, les membres du Clan des Immortels Élus sortirent, empreints de crainte face à ce nouveau monde, suivant de près Wang Lin.
 
 Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la bête inimaginablement gigantesque.
 

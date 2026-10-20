@@ -72,9 +72,9 @@ Une lueur d'intention meurtrière passa dans les yeux de Wang Lin et un feu dor�
 
 Cependant, aucun Feu Éthéré ne naquit de ces cent mille cultivateurs. Cela ne signifiait qu'une chose: ces êtres n'étaient pas vivants et étaient morts depuis longtemps. Bien qu'ils en aient l'apparence, ils étaient en réalité manipulés par une force mystérieuse.
 
-Bien qu'aucun Feu Éthéré ne se manifestât, le feu céleste de Wang Lin était bien plus puissant que lors de sa première bataille contre le Royaume Extérieur dans la Mer des Nuages. Le brasier se propagea et des éclairs dorés jaillirent dans toutes les directions.
+Bien qu'aucun Feu Éthéré ne se manifestât, le feu céleste de Wang Lin était bien plus puissant que lors de sa première bataille contre le Royaume Extérieur dans la Mer des Nuages. Le brasier se propagea, des éclairs dorés jaillirent dans toutes les directions, et le tonnerre gronda à travers ciel et terre, faisant des morts et des blessés innombrables.
 
-Pourtant, à cet instant même, les cent mille cultivateurs explosèrent d'eux-mêmes sous l'assaut du feu et de la foudre. Leurs chairs et leurs sangs se condensèrent pour former une lame gigantesque!
+Pourtant, à cet instant même, les cent mille cultivateurs explosèrent d'eux-mêmes sous l'assaut du feu et de la foudre. Leurs chairs et leurs sangs se condensèrent pour former une lame gigantesque, presque aussi haute que le ciel et la terre!
 
 Cette lame était faite de chair et de sang, forgée par les restes des cent mille cultivateurs. Lorsqu'elle fut brandie vers le ciel, elle projeta une ombre immense.
 
@@ -88,7 +88,7 @@ Au moment où la lame descendit, Wang Lin leva la main droite vers le ciel et la
 
 C'était la force physique de cent mille cultivateurs, multipliée plusieurs fois par un sortilège mystérieux. Elle était suffisante pour blesser un Dieu Ancien à sept étoiles!
 
-Pourtant, Wang Lin ne recula pas d'un pouce, absorbant cette force au sein de son corps. Il poussa un rugissement et agita sa main droite pour repousser une fois de plus la lame de chair et de sang, la projetant à plusieurs centaines de pieds.
+Pourtant, Wang Lin ne recula pas d'un pouce, absorbant cette force au sein de son corps. Il poussa un rugissement et agita sa main droite pour repousser une fois de plus la lame de chair et de sang, la projetant à plusieurs milliers de pieds.
 
 « Pas assez de puissance, encore une fois! » Sa voix résonna. La lame de chair et de sang qui avait été repoussée redescendit avec fracas!
 

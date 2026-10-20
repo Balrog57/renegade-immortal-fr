@@ -22,19 +22,19 @@ Dans un rugissement, les yeux du vieil homme au Tigre Blanc libérèrent une lum
 
 Tout en rugissant, le vieil homme fit un pas en avant et chargea vers Wang Lin. Sa main droite traça un sceau alors qu'il pointait vers le ciel dans un cri puissant.
 
-« Et si je te force à obéir?! Si tu peux encaisser trois de mes sorts, alors seulement tu auras le droit de nous parler! » La voix du vieil homme tonna, et un grondement fracassant résonna à travers le Royaume Céleste Antique. Ce cri généra d'innombrables échos étouffés, donnant l'impression que ce n'était pas un seul homme qui rugissait, mais une multitude de voix.
+« Et si je te force?! Si tu peux encaisser trois de mes sorts, alors seulement tu auras le droit de nous parler! » La voix du vieil homme tonna, et un grondement fracassant résonna à travers le Royaume Céleste Antique. Ce cri généra d'innombrables échos étouffés, donnant l'impression que ce n'était pas un seul homme qui rugissait, mais une multitude de voix.
 
 Ce rugissement secoua les cieux et créa un impact si violent que la terre en trembla.
 
 « Premier Style: Le Rugissement du Tigre Balaye les Montagnes et les Rivières! » Le vieil homme agita ses manches et un monstrueux Tigre Blanc apparut derrière lui. Cette créature était d'une puissance colossale, ses yeux brillant d'un éclat blanc alors qu'elle fixait Wang Lin avant de pousser un rugissement capable de briser le firmament!
 
-Ce cri ébranla le ciel. L'azur du Royaume Céleste Antique sembla sur le point de s'effondrer. Des écailles semblables à celles d'un poisson apparurent dans la voûte céleste avant de tomber, créant des fissures irrégulières dans l'espace.
+Ce cri ébranla le ciel. L'azur du Royaume Céleste Antique sembla sur le point de s'effondrer. Des écailles semblables à celles d'un poisson apparurent dans la voûte céleste qui balayaient le ciel, le lacérant de fissures irrégulières.
 
-La terre derrière Wang Lin trembla violemment. Un vent impétueux rugissait et le sol montrait des signes d'effondrement sous l'effet des secousses croissantes. La terre semblait soudainement s'être ramollie, et les grondements se propageaient sans fin dans toutes les directions.
+La terre derrière Wang Lin trembla violemment. Un vent impétueux rugissait et le sol montrait des signes d'effondrement sous l'effet des secousses croissantes. La terre semblait soudainement s'être ramollie et ondulait comme des vagues, et les grondements se propageaient sans fin dans toutes les directions.
 
 De loin, on aurait dit que d'innombrables cicatrices se creusaient sur le sol. C'était un spectacle terrifiant.
 
-Le rugissement du tigre supplantait tous les autres sons de ce monde. Les échos fusionnaient pour former une force absolument dévastatrice!
+Le rugissement du tigre supplantait tous les autres sons de ce monde. Les échos fusionnaient pour former une force absolument dévastatrice, capable de briser l'esprit et le corps des cultivateurs!
 
 Alors que la terre se fendait, elle s'effondra brusquement. Le ciel sembla s'écrouler en mille fragments, plongeant le monde dans l'obscurité.
 

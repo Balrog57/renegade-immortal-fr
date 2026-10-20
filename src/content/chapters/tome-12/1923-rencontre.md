@@ -38,7 +38,7 @@ Non seulement lui, mais la femme à ses côtés frissonna également, une lueur 
 
 Les 30 000 disciples de la secte ressentirent tous un tressaillement de l'esprit, mais c'était un tremblement dû à la crainte révérencielle. La confusion ne toucha que l'homme et la femme.
 
-Pourtant, aucun d'eux n'imaginait qu'à cet instant, ils se ressemblaient tant.
+Pourtant, aucun d'eux n'imaginait qu'à cet instant leurs réactions se ressemblaient tant.
 
 À l'extérieur de la Secte de la Terre, Wang Lin se tenait calmement sur la tête du dragon marin, observant la tempête de sable devant lui. L'Ancien de la Secte de la Terre apparut, suivi par un rayon de lumière qui était le Maître de la Secte.
 
@@ -74,7 +74,7 @@ Voyant que Wang Lin était satisfait, le vieil homme se détendit davantage.
 
 « Lorsque je suis devenu un Exalté Doré, je suis parti acquérir de l'expérience. Je suis allé très loin vers le sud et j'ai consigné tout ce que j'ai vu dans ce jade. Si le Senior en a besoin, nul besoin d'en faire une copie. Prenez-le simplement, ce junior en possède des sauvegardes. »
 
-Après avoir rangé le jade, Wang Lin voulut offrir une compensation, mais il venait à peine d'atteindre le stade d'Exalté Empyréen. De plus, ayant été retenu au Temple du Scorpion pendant plus de cent ans, il ne possédait rien de vraiment précieux à offrir.
+Après avoir rangé le jade, Wang Lin voulut offrir une compensation, mais il venait à peine d'atteindre le stade d'Exalté Empyréen. De plus, ayant été retenu au Temple du Scorpion du Continent du Démon Vert pendant plus de cent ans, il ne possédait rien de vraiment précieux à offrir.
 
 Il faut souligner qu'une carte gravée dans le jade était un objet hautement secret, rarement cédé ainsi; elle représentait l'héritage de plusieurs générations d'une secte.
 
@@ -104,7 +104,7 @@ Alors que le dragon marin s'engouffrait dans la Secte de la Terre, ses rugisseme
 
 Le dragon plana au-dessus de la zone des membres de rang 5. Wang Lin, debout sur la tête de la créature, regarda vers le bas et entra dans une sorte de transe.
 
-L'Ancien et le Maître de la Secte de la Terre le rattrapèrent rapidement. Le Maître était livide; il ne comprenait pas pourquoi Wang Lin avait soudainement surgi ici. En fixant l'homme, son cœur s'emballa.
+L'Ancien et le Maître de la Secte de la Terre le rattrapèrent rapidement. Le Maître était livide; il ne comprenait pas pourquoi Wang Lin avait soudainement surgi ici. En voyant l'expression de Wang Lin, son cœur s'emballa.
 
 « Senior, ce sont les membres de rang 5 de ma secte... » L'Ancien Exalté Doré ressentit une amertume au fond de lui. Il prit une profonde inspiration et se hâta d'expliquer.
 

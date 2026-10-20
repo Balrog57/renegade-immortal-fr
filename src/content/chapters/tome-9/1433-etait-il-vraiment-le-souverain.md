@@ -30,7 +30,7 @@ Wang Lin avait passé deux mille ans dans la solitude. Il s'y était habitué. S
 
 Il ne connaissait que l'indifférence... Il souriait rarement... La seule chose qui subsistait était cette tristesse ineffaçable, cachée au fond de son regard impassible. C'était une mélancolie qui l'avait accompagné toute sa vie.
 
-Accablé par l'amertume, les blessures de Wang Lin s'aggravèrent. Il tituba, fit un pas et fusionna avec le monde grâce à la Déformation Spatiale. Il franchit une distance incommensurable avant d'apparaître aux abords d'une planète abandonnée.
+Accablé par l'amertume, les blessures de Wang Lin s'aggravèrent. Il tituba, fit un pas et fusionna avec le monde grâce à la Déformation Spatiale. Il franchit une distance incommensurable dans le Système Stellaire Antique avant d'apparaître aux abords d'une planète abandonnée.
 
 Peut-être que cette planète de culture avait été autrefois splendide, ou qu'un puissant cultivateur y était né. Cependant, sa gloire passée s'était désormais envolée, ne laissant derrière elle que des gravats et des cités dépourvues de toute énergie spirituelle.
 

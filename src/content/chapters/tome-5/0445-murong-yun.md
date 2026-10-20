@@ -48,7 +48,7 @@ Deux sens divins le balayèrent comme pour l'évaluer. Ensuite, les deux semblè
 
 Ils s'arrêtèrent à plusieurs centaines de mètres de Wang Lin. Aucun des deux ne paraissait très âgé. L'homme était un jeune homme vêtu d'une robe verte. Cette robe était en désordre, trouée et marquée de taches de sang déjà devenues noires. Sur sa manche figurait un symbole mystérieux; c'était clairement l'emblème d'une certaine secte.
 
-Quant à la femme, elle n'était pas très jolie. Son visage était criblé d'innombrables petites cavités. Si un mortel la voyait en pleine nuit, il la prendrait pour un monstre.
+Quant à la femme, elle n'était pas très jolie. Son visage était criblé d'innombrables petites cavités. Si un mortel la voyait en pleine nuit, il la prendrait pour un fantôme.
 
 Bien que son visage fût peu gracieux, son corps possédait un charme féminin, et elle portait une tenue de gaze blanche d'une propreté parfaite. Si l'on faisait abstraction de ses traits, elle dégageait indéniablement une certaine attirance.
 
@@ -128,4 +128,4 @@ Au moment où il prononça « compagnon cultivateur Ceng », la femme au visage 
 
 Wang Lin sourit légèrement et secoua la tête. « Ce n'est pas moi. »
 
-Les yeux du vieil homme se rétrécirent légèrement et il sourit. « Ne parlons plus de cela. Je suis Mo Yunhai. Le compagnon cultivateur Ceng aurait-il des indices pour pénétrer dans la section intérieure de la tombe? »
+Les yeux du vieil homme brillèrent un instant et il sourit. « Ne parlons plus de cela. Je suis Mo Yunhai. Le compagnon cultivateur Ceng aurait-il des indices pour pénétrer dans la section intérieure de la tombe? »

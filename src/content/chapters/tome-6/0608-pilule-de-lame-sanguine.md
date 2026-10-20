@@ -20,13 +20,13 @@ Dès que la lumière de l'épée apparut, le ciel fut soudainement saturé d'én
 
 Le sortilège du vent, de la pluie, du tonnerre et des éclairs subit le même sort. L'orage noir se brisa instantanément; les gouttes de pluie et les éclairs noirs qu'elles transportaient s'écrasèrent au sol. Même le vortex de vent fut transpercé par l'énergie de l'épée et s'effondra aussitôt.
 
-À l'instant où cette énergie surgit, tous les autres sorts durent s'effacer, interdits de détourner l'attention. C'était là le dao de Ling Tianhou contenu dans son énergie de l'épée!
+À l'instant où cette énergie surgit, tous les autres sorts durent s'effacer et ne purent lui disputer la vedette. C'était là le dao de Ling Tianhou contenu dans son énergie de l'épée!
 
 Le dao de la tyrannie!
 
 Ling Tianhou avait passé sa vie dans la fierté et avait parcouru le monde avec sa tyrannie. La tyrannie nichée au cœur de son énergie d'épée était la toute-puissance des cieux!
 
-L'illusion démoniaque sur la faux afficha une expression grave. La faux vacilla et chargea directement Wang Lin.
+L'illusion démoniaque sur la faux afficha une expression grave. La faux fusa et chargea directement Wang Lin.
 
 L'énergie de l'épée, portée par le dao de la tyrannie, balaya la faux!
 

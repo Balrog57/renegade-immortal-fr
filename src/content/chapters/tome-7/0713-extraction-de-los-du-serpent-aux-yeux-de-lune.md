@@ -82,7 +82,7 @@ C'était la première fois depuis cent ans qu'il percevait quelqu'un à l'extér
 
 Wang Lin ne répondit pas. Au lieu de cela, il fit volte-face pour partir.
 
-Wang Lin savait qu'avec son niveau de culture actuel, s'il était facile d'entrer, il serait impossible de ressortir. Ayant découvert que Cupidité était piégé ici et que personne n'était venu le secourir, Wang Lin en déduisit que Cupidité était la seule personne issue du Système Stellaire de l'Alliance à s'être aventurée là.
+Wang Lin savait qu'avec son niveau de culture actuel, s'il était facile d'entrer, il serait impossible de ressortir. Ayant découvert que Cupidité était piégé ici et que personne n'était venu le secourir, Wang Lin en déduisit que Cupidité était sans doute la seule personne issue du Système Stellaire de l'Alliance à s'être aventurée là.
 
 Une fois cela compris, Wang Lin n'avait plus aucune inquiétude. S'il perdait son temps à discuter avec Cupidité, alors il ne s'appellerait plus Wang Lin.
 
@@ -108,7 +108,7 @@ La force mystérieuse de cette immense quantité de liquide pénétra le corps d
 
 La puissance mystérieuse du Fruit d'Ascension Céleste semblait former un océan, se diffusant à travers tout le corps du Serpent aux yeux de lune.
 
-Le sol trembla violemment et une aura d'excitation intense émana de la terre. Tous les tentacules semblèrent perdre leur agressivité et commencèrent à onduler joyeusement, comme s'ils étaient ivres.
+Le sol trembla violemment et une aura d'excitation intense émana de la terre. Tous les tentacules semblèrent perdre leur agressivité et commencèrent à onduler lentement, comme s'ils étaient ivres.
 
 Si la culture de Wang Lin avait été insuffisante ou s'il n'avait pas vécu l'expérience du Démon Dispersé contrôlant son corps pour extraire l'âme de la Planète des Mille Illusions, il n'aurait ressenti que le tremblement de terre et non ce sentiment d'exaltation émanant de l'âme du Serpent aux yeux de lune.
 

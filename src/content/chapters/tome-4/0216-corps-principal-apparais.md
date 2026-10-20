@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: "Chapter 216 - Main Body, Appear!"
 slug: corps-principal-apparais
 ---
-Avant que Wang Lin n'entre dans la Perle Défiant le Ciel, il avait mis en place des restrictions cachées pour empêcher qu'on le dérange. De plus, une fois entré dans la Perle Défiant le Ciel, tout son être disparaissait complètement; même si quelqu'un entrait pour jeter un œil, il ne remarquerait rien d'anormal.
+Avant que Wang Lin n'entre dans la Perle Défiant le Ciel, il avait mis en place dans sa cour des restrictions cachées pour empêcher qu'on le dérange. De plus, une fois entré dans la Perle Défiant le Ciel, tout son être disparaissait complètement; même si quelqu'un entrait pour jeter un œil, il ne remarquerait rien d'anormal.
 
 Après tout, même le Seigneur Démon des Huit Extrêmes, Duanmu Ji, au stade de la Formation de l'Âme, n'avait pu déceler la moindre trace de l'espace de la Perle Défiant le Ciel à l'époque. Quant aux vieux de la Secte du Ciel Nuageux, qui n'atteignaient tout au plus que la fin de l'Âme Naissante, ils ne pouvaient absolument pas percevoir quoi que ce soit d'anormal.
 
@@ -22,7 +22,7 @@ Le Wang Lin actuel n'était plus un cultivateur novice. Il savait que si ce tour
 
 Cependant, si son talent était insuffisant, il semblerait que des blocages invisibles entravent la progression du tourbillon à travers son corps.
 
-Le tourbillon dans son organisme commença à tourner de plus en plus vite. Il ressemblait à un arbre majestueux, étendant rapidement ses racines à travers le corps de Wang Lin.
+Le tourbillon dans son organisme commença à tourner de plus en plus vite. Il ressemblait à un arbre qui croît frénétiquement, étendant rapidement ses racines à travers le corps de Wang Lin.
 
 Mais Wang Lin présentait trop d'obstacles internes. Le tourbillon devint semblable à une vague se fracassant sur les rochers du rivage. Au début, il brisa de nombreux obstacles, mais il finit par ralentir, semblant même sur le point de se résorber.
 
@@ -32,7 +32,7 @@ Le temps passa lentement tandis que Wang Lin tentait de franchir l'étape de l'�
 
 Après une longue attente, Wang Lin ouvrit soudainement les yeux. Son regard brillait comme l'éclair et il remarqua immédiatement que ses méridiens étaient devenus presque translucides et au moins des dizaines de fois plus larges qu'auparavant. Même son corps principal n'avait pas connu une telle transformation lorsqu'il avait volé ses fondations à l'époque.
 
-Wang Lin réfléchit un instant. Il n'était pas certain que tout cela soit lié à la technique de l'Ancien Dieu. Après tout, cette technique consistait à absorber l'énergie spirituelle, sa pratique dépendant entièrement de la quantité absorbée, et une pilule d'Établissement des Fondations n'était qu'une version bien plus puissante d'une pilule Pei Yuan.
+Wang Lin réfléchit un instant. Il n'était pas certain que tout cela soit lié à la technique de l'Ancien Dieu. Après tout, cette technique consistait à absorber l'énergie spirituelle, sa pratique dépendant entièrement de la quantité absorbée, et une pilule d'Établissement des Fondations n'était qu'une version infiniment plus puissante d'une pilule Pei Yuan.
 
 Une déferlante d'énergie spirituelle pour laver tout le corps afin de le rendre plus apte à la culture: tel était le véritable sens de l'Établissement des Fondations.
 
@@ -90,7 +90,7 @@ Toutes ces étrangetés troublaient profondément Wang Lin.
 
 Une fois le fourneau rangé, il se leva et quitta l'espace de la Perle Défiant le Ciel.
 
-Dès qu'il apparut dans la cour, il sentit que quelque chose ne tournait pas rond. Une légère odeur de sang flottait dans l'air. Après avoir inspecté les environs, son regard se fixa sur la porte principale; l'odeur de sang provenait de là.
+Dès qu'il apparut dans la cour, il sentit que quelque chose ne tournait pas rond. Une légère odeur de sang flottait dans l'air. Après avoir inspecté les environs, son regard se fixa sur la porte de la cour; l'odeur de sang provenait de là.
 
 Wang Lin avança d'un pas calme vers l'entrée. Là, il découvrit le cadavre d'un singe spirituel.
 

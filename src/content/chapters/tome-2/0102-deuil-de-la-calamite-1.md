@@ -34,7 +34,7 @@ Les bruits de grattements devinrent plus assourdissants, jusqu'à ce que l'un de
 
 Lentement, une momie desséchée couverte de longs poils noirs redressa le buste dans le cercueil. Ses yeux émettaient une lueur verte tandis qu'elle balayait les environs du regard, jusqu'à ce que sa vue se pose enfin sur son maître.
 
-Ses yeux injectés de sang devinrent glacials; elle poussa un cri et s'agrippa à son maître. Elle respirait violemment par le nez. Le cultivateur au premier stade de l'Établissement des Fondations trembla alors que son corps se transformait en une vapeur blanche, laquelle fut aussitôt inhalée par la marionnette cadavérique.
+Ses yeux avides de sang devinrent glacials; elle poussa un cri et s'agrippa à son maître. Elle respirait violemment par le nez. Le cultivateur au premier stade de l'Établissement des Fondations trembla alors que son corps se transformait en une vapeur blanche, laquelle fut aussitôt inhalée par la marionnette cadavérique.
 
 Simultanément, le corps desséché de la momie commença à se régénérer.
 

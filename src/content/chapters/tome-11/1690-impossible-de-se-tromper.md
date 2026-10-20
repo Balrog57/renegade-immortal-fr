@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1690 - Can’t Be Wrong!"
 slug: impossible-de-se-tromper
 ---
-Le Souverain apparut à un instant précis. Il surgit au moment même où Wang Lin décochait sa deuxième flèche. Le Souverain avait déjà le sentiment qu'il devait tuer Wang Lin!
+Le Souverain apparut à un instant précis. Il surgit au moment même où Wang Lin bandait l'arc pour la deuxième fois. Le Souverain avait déjà le sentiment qu'il devait tuer Wang Lin!
 
-Compte tenu de son niveau de culture, il était déjà entré dans le stade de la Tribulation Arcane; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire! Quant à son statut, bien qu'il ne fût qu'un esclave, même les êtres les plus puissants devaient lui témoigner un certain respect.
+Compte tenu de son niveau de culture, il était déjà entré dans le stade de la Tribulation Arcane; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire! Quant à son statut, bien qu'il ne fût qu'un esclave sur le Continent Astral Immortel, aux yeux des étrangers il était placé sous la protection de princes et de marquis, et même les êtres les plus puissants devaient lui témoigner un certain respect.
 
-Dans ce monde caverneux, il était le chef des Cinq Maîtres du Royaume Céleste Antique. Il avait joui d'un rang prestigieux durant d'innombrables années et était vénéré comme un dieu par une multitude de cultivateurs. Il était habitué à dominer les autres.
+Dans ce monde caverneux, il était le chef des Cinq Maîtres du Royaume Extérieur. Il avait joui d'un rang prestigieux durant d'innombrables années et était vénéré comme un dieu par une multitude de cultivateurs. Il était habitué à dominer les autres.
 
-Il disposait également du Conseil Souverain. D'un seul mot, il pouvait déclencher une catastrophe dans le Royaume Extérieur! Même certaines de ses concubines n'oseraient se tenir devant lui. Tel était le Souverain!
+Il disposait également du Conseil Souverain. D'un seul mot, il pouvait déclencher une catastrophe dans le Royaume Extérieur! Même certaines concubines célestes n'osaient s'imposer devant lui. Tel était le Souverain!
 
 Même dans le Royaume Intérieur, son nom était célèbre. Quiconque connaissait son nom en était saisi de crainte. Tout ce qui s'était produit jusqu'ici révélait à quel point il était rusé et insaisissable!
 
@@ -60,7 +60,7 @@ Wang Lin était comme une épine dans le cœur du Souverain. Chaque fois qu'il p
 
 Sa culture de la Tribulation Arcane se déploya, faisant trembler l'espace lui-même sous l'effet d'une ondulation invisible. Wang Lin resta calme, mais fut contraint de reculer.
 
-Le Souverain n'était pas un adversaire que Wang Lin pouvait affronter de front. Tandis que la puissance du Souverain éclatait, Wang Lin ressemblait à une feuille solitaire bravant la fureur de l'océan. Il continua sa retraite.
+Le Souverain n'était pas un adversaire que Wang Lin pouvait affronter de front. Tandis que la puissance du Souverain éclatait, Wang Lin ressemblait à une feuille solitaire ballottée par la fureur de l'océan. Il continua sa retraite.
 
 « Ce vieil homme a calculé qu'il n'avait la force que pour deux tirs! Il n'y aura pas d'autre accident. Il a déjà tiré deux fois, et je ne détecte aucune trace de lignée céleste dans son corps actuellement. Il ne pourra plus bander l'Arc Li Guang! » Les yeux du Souverain étaient injectés d'une intention meurtrière puissante. Son désir de tuer Wang Lin était monstrueux; sans l'avoir tué, il ne pouvait trouver le calme.
 
@@ -78,13 +78,13 @@ Les yeux du Souverain étaient injectés de sang derrière son intention meurtri
 
 « Va mourir pour ce vieil homme! » Il ne prit même pas la peine de parler à Wang Lin. Dès qu'il attaqua, il utilisa son sort le plus puissant. En réalité, malgré sa certitude, il restait vaguement inquiet. Il craignait que s'il engageait la conversation avec Wang Lin, un accident ne puisse réellement se produire.
 
-De plus, cette frappe de la paume n'était qu'un moyen de tester les capacités de Wang Lin. Après tout, le Souverain avait déjà subi les « accidents » de Wang Lin à plusieurs reprises...
+De plus, cette frappe de la paume portait aussi, inconsciemment, une intention de test. Après tout, le Souverain avait déjà subi les « accidents » de Wang Lin à plusieurs reprises...
 
 Une empreinte de paume gigantesque apparut entre le Souverain et le reculant Wang Lin. Dès son apparition, elle commença à croître, sans toutefois dépasser mille pieds de large. Elle était cependant d'une densité extrême, comme si elle était réelle!
 
 Puis, elle fonça sur Wang Lin dans un grondement sourd.
 
-Le visage de Wang Lin était pâle, mais ses yeux ne montraient aucune alarme. L'apparition du Souverain n'était pas une surprise pour lui. En fait, si le Souverain n'était pas apparu, Wang Lin aurait dû réfléchir plus prudemment.
+Le visage de Wang Lin était pâle, mais ses yeux ne montraient aucune alarme. L'apparition du Souverain n'était pas une surprise pour lui. En fait, si le Souverain n'était pas apparu, Wang Lin y aurait davantage réfléchi.
 
 Alors que l'empreinte de la paume se refermait sur lui, Wang Lin leva la main droite. Les étoiles divines anciennes entre ses sourcils, ainsi que les étoiles démoniaques de ses yeux gauche et droit, brillèrent toutes intensément. Une puissance antique s'accumula dans son corps pour se condenser sur son index droit!
 
@@ -92,7 +92,7 @@ S'inspirant du Corps Céleste Immortel, ce sort était une création propre à W
 
 Au moment où il pointa vers l'avant, une explosion de lumière verte jaillit du corps de Wang Lin. C'était le Bouclier Azure. Puis, une immense ombre lumineuse apparut derrière lui: le Bouclier d'Ombre et de Lumière!
 
-Derrière ce bouclier, des éclats de lumières colorées résonnèrent et un papillon multicolore se posa sur l'épaule de Wang Lin, battant des ailes. Une poudre colorée s'en échappait, créant un spectacle d'une beauté extrême.
+Derrière ce bouclier, des éclats de lumières colorées scintillèrent et un papillon multicolore se posa sur l'épaule de Wang Lin, battant des ailes. Une poudre colorée s'en échappait, créant un spectacle d'une beauté extrême.
 
 « Ce n'est pas encore le moment... » Les yeux de Wang Lin brillaient d'une lueur étrange. Tout se déroula en un instant. L'empreinte de la paume de mille pieds percuta l'index droit de Wang Lin.
 

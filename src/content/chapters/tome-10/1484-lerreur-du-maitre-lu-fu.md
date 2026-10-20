@@ -24,7 +24,7 @@ Tout Luotian fut stupéfait par ce spectacle. Les groupes de cultivateurs dépla
 
 Dans une zone éloignée de la planète Dong Lin, là où se déroulaient les préparatifs principaux de Luotian, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
 
-À ses côtés, le Maître Yan Leizi, le Dieu du Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Lin.
+À ses côtés, le Maître Yan Leizi, le Dieu de Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Lin.
 
 « La formation de la planète Dong Lin nous vient de l'Antiquité. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
 
@@ -126,4 +126,4 @@ Depuis que Wang Lin avait lancé son coup, il n'avait fallu que huit respiration
 
 Le Maître Lu Fu se leva soudainement au sein du vortex, les yeux emplis de choc. Il réalisa qu'il avait commis une erreur monumentale en analysant Wang Lin!
 
-« Il n'a même pas atteint le troisième pas, et pourtant la puissance de son coup est déjà terrifiante... Huit respirations... Huit respirations... » Le Maître Lu Fu prit une inspiration glacée. L'idée qu'il s'était faite en voyant l'épée de pluie s'était envolée. Le statut de Wang Lin dans son esprit avait considérablement augmenté. Il avait déjà atteint le niveau de ses pairs!
+« Il n'a même pas atteint le troisième pas, et pourtant la puissance de son coup est déjà terrifiante... Huit respirations... Huit respirations... » Le Maître Lu Fu prit une inspiration glacée. L'idée qu'il s'était faite en voyant l'épée de pluie s'était envolée. Le statut de Wang Lin dans son esprit avait considérablement augmenté. Il se trouvait déjà à égalité avec lui!

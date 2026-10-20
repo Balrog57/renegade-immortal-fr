@@ -162,9 +162,9 @@ La rue était bondée. Hommes et femmes ne s'évitaient pas avec suspicion comme
 
 Les boutiques des deux côtés de la rue étaient pleines à craquer, presque aucune place n'y restait vide. Wang Lin entendit même quelqu'un déclamer un récit en passant devant un restaurant.
 
-«... Quant à Yuhuan, cultivateur immortel du clan Zhenyan, il avait une personnalité singulière et aimait parcourir le monde mortel. Les belles histoires sur ses aventures sont innombrables, et c'est ainsi qu'il rencontra sa partenaire de culture, Chu Yuexuan... Ce dont nous allons vous parler aujourd'hui est la façon dont ces deux cultivateurs immortels se sont rencontrés... L'histoire est d'une sensualité incomparable, alors écoutez bien! »
+«... Quant à Yuhuan, cultivateur immortel du clan Zhen Yan, il avait une personnalité singulière et aimait parcourir le monde mortel. Les belles histoires sur ses aventures sont innombrables, et c'est ainsi qu'il rencontra sa partenaire de culture, Chu Yuexuan... Ce dont nous allons vous parler aujourd'hui est la façon dont ces deux cultivateurs immortels se sont rencontrés... L'histoire est d'une sensualité incomparable, alors écoutez bien! »
 
-Wang Lin sourit. Les cités mortelles du Système Stellaire Antique étaient intéressantes. Il était fascinant de voir des mortels parler de cultivateurs, même si l'essentiel était romancé. Cela prouvait néanmoins que les mortels ici n'ignoraient rien de leur existence.
+Wang Lin sourit. Les cités mortelles du Système Stellaire Antique étaient intéressantes. Il était fascinant de voir des mortels parler de cultivateurs, même si l'essentiel était romancé. Cela prouvait néanmoins que les mortels d'ici n'étaient pas étrangers aux cultivateurs.
 
 Dès son entrée dans la ville, Wang Lin comprit qu'il y avait de nombreux cultivateurs présents sans même avoir eu besoin de déployer son Sens Divin. Dans le restaurant, un homme et une femme écoutaient l'histoire avec attention. Il y avait près de cent cultivateurs dans la partie est de la capitale.
 

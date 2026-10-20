@@ -8,7 +8,7 @@ slug: si-nan
 ---
 Wang Lin respectait la décision du fou. Chacun avait ses propres responsabilités, Wang Lin le comprenait parfaitement.
 
-Il n'avait pas le droit de décider de celles du fou. En tant qu'ami, la meilleure chose qu'il pouvait faire était d'éveiller sa mémoire. Quant à ce qu'il devait entreprendre ensuite, il n'était pas nécessaire que Wang Lin intervienne.
+Il n'avait pas le droit de décider de celles du fou. En tant qu'ami, la meilleure chose qu'il pouvait faire était de le réveiller. Quant à ce qu'il devait entreprendre ensuite, il n'était pas nécessaire que Wang Lin intervienne.
 
 Wang Lin avait lui aussi un chemin à suivre. Il voulait retourner au monde de la grotte, sur la planète Suzaku, là où il avait grandi.
 
@@ -66,7 +66,7 @@ Après son allocution, l'expression des subordonnés devint grave et ils joignir
 
 Des sons de musique s'échappaient de la grande calèche, mêlés aux rires des femmes. L'intérieur semblait particulièrement animé.
 
-« Bien, bien! Dansez encore! Ce roi vous récompensera! » La voix d'un homme couvrit les éclats de rire. On percevait même de légers gémissements provenant de l'habitacle.
+« Bien, bien! Dansez encore! Ce roi vous récompensera! » La voix d'un homme couvrit les éclats de rire. On percevait même des gémissements lascifs provenant de l'habitacle.
 
 Les gardes environnants, habitués à ce spectacle, n'y prêtaient plus aucune attention.
 
@@ -84,7 +84,7 @@ Pourtant, le cortège ne s'arrêta pas et continua d'avancer sous la protection 
 
 Une heure plus tard, le convoi atteignit les abords du camp militaire. Des gémissements s'échappaient par intermittence de la grande calèche.
 
-À mesure qu'ils approchaient, ces sons devinrent plus distincts et furent entendus par l'ensemble des soldats présents. Le vieux général fronça les sourcils, un profond dégoût se lisant dans ses yeux.
+À mesure qu'ils approchaient, ces sons devinrent plus distincts et furent entendus par l'ensemble des soldats présents. Le vieux général fronça les sourcils, un net déplaisir se lisant dans ses yeux.
 
 Il laissa échapper un grognement et s'avança. Une escorte de fonctionnaires le suivit, imprégnée d'une intention meurtrière. À son approche, les gardes entourant la calèche devinrent nerveux; ils sentaient l'aura létale du vieux général et en frémissaient.
 

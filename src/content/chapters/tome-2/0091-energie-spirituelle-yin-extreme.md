@@ -25,7 +25,7 @@ Teng Huayuan disparut en un clin d'œil. Un reniflement froid retentit dans le b
 
 Teng Huayuan réapparut dans le ciel, à l'extérieur de la forêt. Son expression changea soudainement lorsqu'une main géante apparut silencieusement derrière lui pour le saisir impitoyablement.
 
-Teng Huayuan jura intérieurement. Il sortit rapidement une peau de bête et, d'un geste de la main, fit en sorte que celle-ci l'enveloppe et le propulse loin de là, échappant de justesse à l'emprise de la main géante.
+Teng Huayuan jura intérieurement. Il frappa son sac de stockage, sortit rapidement une peau de bête qui se mit à luire d'une lueur jaune et, d'un geste de la main, fit en sorte que celle-ci l'enveloppe et le propulse loin de là, échappant de justesse à l'emprise de la main géante.
 
 Malgré cela, il fut tout de même balayé par le souffle des doigts de la main colossale. Il cracha du sang et son visage pâlit, mais il s'enfuit promptement sans même regarder en arrière.
 
@@ -47,7 +47,7 @@ L'homme le suivit, impassible.
 
 À ce moment-là, quelque part dans les ruines où la lumière du soleil ne pénétrait pas, l'homme à la peau bleue regardait dans la direction de Wang Lin avec une expression hésitante.
 
-Quant à Wang Lin, bien qu'il ait absorbé une grande quantité d'énergie Yin, celle-ci n'était que de qualité 6 ou 7, soit une "qualité normale". Avec une telle pureté, peu importe la quantité absorbée, l'impact sur son énergie spirituelle resterait limité et ne suffirait pas à provoquer de nouvelles percées. Il tourna son regard vers les profondeurs des ruines. Sa cible se trouvait là-bas!
+Quant à Wang Lin, bien qu'il ait absorbé la veille une grande quantité d'énergie Yin, celle-ci n'était que de qualité 6 ou 7, soit une "qualité normale". Avec une telle pureté, peu importe la quantité absorbée, l'impact sur son énergie spirituelle resterait limité et ne suffirait pas à provoquer de nouvelles percées. Il tourna son regard vers les profondeurs des ruines. Sa cible se trouvait là-bas!
 
 Il décida d'explorer davantage afin de voir où se situait la limite de qualité de l'énergie Yin des ruines. Après tout, plus la qualité est élevée, plus les chances de réussite lors d'une percée sont grandes.
 
@@ -99,7 +99,7 @@ Alors que de plus en plus d'énergie Yin s'accumulait dans sa poitrine, il nota 
 
 Bientôt, l'énergie Yin dans sa poitrine commença à tourbillonner. À mesure que le vortex s'accélérait, le phénomène inattendu survenu la dernière fois se répéta. L'énergie Yin dans un rayon de 330 mètres autour de Wang Lin fluctua et se précipita vers lui.
 
-Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit jusqu'à atteindre un rayon de 3 300 mètres. La portée continua de croître: 3 960 mètres, 4 620 mètres, 4 950 mètres... Dans un rayon de cinq kilomètres, l'énergie Yin se déplaçait comme si des esprits ou des créatures la poussaient dans l'ombre, s'engouffrant dans l'immense gouffre pour être dévorée par Wang Lin.
+Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit, dépassant la limite de la fois précédente, jusqu'à atteindre un rayon de 3 300 mètres. La portée continua de croître: 3 960 mètres, 4 620 mètres, 4 950 mètres... Dans un rayon de cinq kilomètres, l'énergie Yin se déplaçait comme si des esprits ou des créatures la poussaient dans l'ombre, s'engouffrant dans l'immense gouffre pour être dévorée par Wang Lin.
 
 Alors que le vortex dans sa poitrine devenait colossal, il sentit qu'il perdait le contrôle. Conscient de ses limites, il dirigea cette énergie pour attaquer de toutes ses forces sa Mer de Qi et commencer la percée. Le tourbillon d'énergie Yin agissait comme une pointe rotative, frappant inlassablement la Mer de Qi pour l'ouvrir. Lentement, celle-ci montra des signes de rupture.
 

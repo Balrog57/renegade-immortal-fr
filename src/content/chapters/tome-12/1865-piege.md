@@ -52,7 +52,7 @@ La cultivatrice du stade initial de la Tribulation du Vide, qui se trouvait enco
 
 Simultanément, elle vit la brume émanant de la terre envahir le monde. Des hurlements incessants s'élevaient de la brume.
 
-À l'intérieur de ce brouillard, les milliers de cultivateurs des palais souterrains lancèrent une seconde attaque sous la direction de Lu Wenran.
+À l'intérieur de ce brouillard, les milliers de cultivateurs du Continent du Taureau Céleste, dans les palais souterrains, lancèrent une seconde attaque sous la direction de Lu Wenran.
 
 Les trois cultivateurs de la Tribulation du Vide tentèrent de s'extraire de la brume, mais la voix sombre de Lu Wenran résonna:
 

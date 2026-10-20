@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 260 - Ancestral Spirit Token
 slug: jeton-de-lesprit-ancestral
 ---
-La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit: « Bien que le niveau de culture du senior soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à ma Secte Nuage Blanc! »
+La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit: « Bien que le niveau de culture du Senior soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à ma Secte Nuage Blanc! »
 
 Le vieil homme marmonna quelques mots. Il sortit impatiemment un sac de rangement usé et sale. Après avoir fouillé longuement dans le sac, il en tira finalement un jeton de bois noir. Des traces de graisse et des feuilles de légumes s'y accrochaient encore lorsqu'il le jeta négligemment dans la main de la vieille femme.
 
 Dès que celle-ci vit le jeton, son expression changea et elle s'exclama: « Le Jeton de l'Esprit Ancestral! »
 
-L'homme d'âge moyen tendit immédiatement la main pour saisir le jeton. Il forma quelques sceaux et les appliqua sur l'objet. Soudain, le jeton émit une lumière arc-en-ciel persistante. L'homme d'âge moyen esquissa un sourire amer et dit respectueusement au vieil homme: « Puisque le senior possède le Jeton de l'Esprit Ancestral, nous devons obéir. Mais êtes-vous certain de vouloir utiliser ce jeton pour demander à tous les cultivateurs de la Formation de l'Âme de la Secte Nuage Blanc d'aider votre disciple à expérimenter des domaines? »
+L'homme d'âge moyen tendit immédiatement la main pour saisir le jeton. Il forma quelques sceaux et les appliqua sur l'objet. Soudain, le jeton émit une lumière arc-en-ciel persistante. L'homme d'âge moyen esquissa un sourire amer et dit respectueusement au vieil homme: « Puisque le Senior possède le Jeton de l'Esprit Ancestral, nous devons obéir. Mais êtes-vous certain de vouloir utiliser ce jeton pour demander aux cultivateurs de la Formation de l'Âme de la Secte Nuage Blanc d'aider votre disciple à expérimenter des domaines? »
 
 Le vieil homme sourit avec fierté à Wang Lin et renifla avec mépris vers l'homme d'âge moyen. Il tonna: « Bien sûr! Maintenant, cessez vos bêtises. Toi, sors! » Sur ce, il désigna la vieille femme.
 
@@ -54,7 +54,7 @@ Cet étrange domaine provoqua un changement radical dans l'expression de Wang Li
 
 L'expression du cultivateur en cyan resta impassible alors qu'il agitait la main pour rappeler l'épée volante. L'arme disparut dans son front tandis qu'il disait lentement: « Mon domaine est le passage du temps. »
 
-Les yeux du vieil homme se fixèrent sur l'homme en cyan. Grâce aux fluctuations d'énergie spirituelle, il savait que ce dernier possédait un domaine hors du commun, mais il ne s'attendait pas à ce qu'il s'agisse du passage du temps. Il prit une profonde inspiration et la surprise disparut de son visage. À cet instant, il retrouva toute sa dignité. Bien que ses traits fussent marqués par la saleté, cela ne pouvait masquer son aura noble.
+Les yeux du vieil homme se fixèrent sur l'homme en cyan. Grâce aux fluctuations d'énergie spirituelle, il savait que ce dernier possédait un domaine hors du commun, mais il ne s'attendait pas à ce qu'il s'agisse du passage du temps. Il prit une profonde inspiration et la surprise disparut de son visage. À cet instant, il retrouva toute sa dignité. Bien que son visage maigre fût marqué par la saleté, cela ne pouvait masquer son aura noble.
 
 Wang Lin fut soudain victime d'une profonde illusion. C'était comme si ce vieil homme avait été transfiguré en un instant. Si l'on lui avait dit que cet homme était un expert du pays de Suzaku, il ne s'en serait pas étonné.
 
@@ -62,7 +62,7 @@ Wang Lin fut soudain victime d'une profonde illusion. C'était comme si ce vieil
 
 À leur retour, le vieil homme respirait lourdement et son visage était pâle, mais il restait empreint de fierté. Il regarda Wang Lin, attendant d'être loué.
 
-Lui, à cet instant, n'avait plus rien d'un expert. Wang Lin, se sentant impuissant, rangea le chapeau de paille dans son sac et dit: « La technique de senior est absolument prodigieuse. C'est une chose que junior n'a jamais vue auparavant. Je l'admire vraiment. »
+Lui, à cet instant, n'avait plus rien d'un expert. Wang Lin, se sentant impuissant, rangea le chapeau de paille dans son sac et dit: « La technique du Senior est absolument prodigieuse. C'est une chose que junior n'a jamais vue auparavant. Je l'admire vraiment. »
 
 Le vieil homme leva les yeux au ciel et répondit avec désapprobation: « Tu ne connais que cette unique réplique? »
 
@@ -74,7 +74,7 @@ Sur ce, il se détourna pour partir.
 
 Wang Lin hésita un instant. Voyant que le vieil homme s'apprêtait à s'en aller, il demanda: « Quel genre d'objet est donc ce Jeton de l'Esprit Ancestral? »
 
-Le vieil homme se retourna vers lui avec un sourire empreint de fierté: « Ce bout de ferraille n'est rien. J'en ai plein ici. » Il sortit alors divers jetons en disant: « Celui-ci est celui de la Secte de l'Évasion Céleste, celui-là celui de la Secte de la Brume Spirituelle, celui-ci appartient au Clan des Démons Géants d'un pays de culture de rang 4, et celui-là à un pays de rang 5... »
+Le vieil homme se retourna vers lui avec un sourire empreint de fierté: « Ce vieux truc n'est rien. J'en ai plein ici. » Il sortit alors divers jetons en disant: « Celui-ci est celui de la Secte de l'Évasion Céleste, celui-là celui de la Secte de la Brume Spirituelle, celui-ci appartient au Clan des Démons Géants d'un pays de culture de rang 4, et celui-là à un pays de rang 5... »
 
 Wang Lin restait bouche bée tandis qu'il présentait chaque jeton. Le visage du vieil homme rayonnait de fierté, comme s'il manipulait ses jouets préférés. Finalement, il agita la main et sortit un jeton vierge: « En plus de ceux-là, je peux fabriquer un jeton pour n'importe quelle secte. Hehe, j'ai vendu d'innombrables jetons au fil des ans. Tu peux aller vérifier ma réputation si tu le souhaites, elle est excellente. Que dirais-tu du jeton du chef de la Secte Nuage Blanc? »
 

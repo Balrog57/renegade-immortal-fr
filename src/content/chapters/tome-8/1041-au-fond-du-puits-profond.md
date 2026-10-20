@@ -14,7 +14,7 @@ Après avoir longuement réfléchi, Wang Lin réprima les sentiments complexes q
 
 « Tout dans ce monde contient une loi. Le ciel, la terre, les cinq éléments, tout possède sa propre loi. Si l'on veut toutes les comprendre, il faudrait bien trop de temps. La puissance d'un être est limitée; il est donc impossible de tout saisir. » Les yeux de Wang Lin s'illuminèrent tandis qu'il méditait.
 
-« Ainsi, le Purificateur du Nirvana, et même ces anciens monstres Briseurs du Nirvana, possèdent souvent une loi dans laquelle ils excellent. Par exemple, Maître Yan Leizi excelle dans la loi du feu… »
+« Ainsi, le Purificateur du Nirvana, et même ces anciens monstres Briseurs du Nirvana, possèdent souvent une loi dans laquelle ils excellent. Par exemple, Maître Yan Lei excelle dans la loi du feu… »
 
 Pendant que Wang Lin réfléchissait, un éclair jaillit de son œil droit. Le tonnerre retentit de son œil droit et forma une sphère de foudre lumineuse.
 
@@ -40,7 +40,7 @@ Wang Lin agita la main pour disperser la mer de flammes, puis ses yeux retrouvè
 
 Toutefois, si je franchis ce stade ainsi, je perdrai le pouvoir du tonnerre. Si je dois y renoncer pour atteindre le stade du Purificateur du Nirvana, j'en aurais des regrets. Si je parviens à fusionner le feu et le tonnerre pour atteindre ce stade, cette puissance devrait être véritablement redoutable. »
 
-Wang Lin avança tout en réfléchissant et pénétra dans le puits profond. Il descendit directement dans la grotte et rejoignit son corps originel.
+Wang Lin avança tout en réfléchissant et pénétra dans le puits profond. Il brisa la paroi du puits, descendit directement dans la grotte et rejoignit son corps originel.
 
 La femme en argent montait toujours la garde sur le côté. Lorsqu'elle vit l'avatar de Wang Lin, son expression ne changea pas. Wang Lin l'ignora et fusionna avec son corps originel.
 
@@ -66,7 +66,7 @@ Même à l'ère antique, un Blaireau Marqué d'Étoiles ayant subi sa métamorph
 
 Se remémorant l'apparence d'un Blaireau Marqué d'Étoiles après sa métamorphose grâce aux souvenirs de Tu Si, Wang Lin afficha une expression étrange. En regardant la petite créature sur son épaule, cette expression s'accentua.
 
-« Dans les souvenirs de Tu Si, chaque dieu ancien possédant un Blaireau Marqué d'Étoiles ayant subi sa métamorphose le chérissait profondément. Ils traitaient le blaireau comme un trésor et ne permettaient à personne de lui faire du mal. Ils entraient dans une rage noire si un étranger osait ne serait-ce que toucher l'animal. »
+« Dans les souvenirs de Tu Si, chaque dieu ancien possédant un Blaireau Marqué d'Étoiles le chérissait profondément. Ils traitaient le blaireau comme un trésor et ne permettaient à personne de lui faire du mal. Ils entraient dans une rage noire si un étranger osait ne serait-ce que toucher l'animal. »
 
 Tandis que le blaireau reniflait l'aura de Wang Lin, ses yeux intelligents s'animèrent d'excitation. Il décida de simplement s'allonger sur l'épaule du cultivateur.
 

@@ -78,7 +78,7 @@ En moins de trente respirations, le sceau avait tout détruit et massacré les c
 
 Simultanément, la plupart des âmes originelles des trente mille cultivateurs furent anéanties. Seules les âmes originelles de quelques dizaines de cultivateurs du troisième stade restèrent piégées dans le sceau. Elles volèrent toutes vers Wang Lin, qui les captura.
 
-Les âmes originelles étaient cruciales pour son Art Magique Rapide, car il ne possédait qu'une seule veine magique. S'il parvenait à en dévorer davantage, sa vitesse d'exécution atteindrait un niveau stupéfiant!
+Les âmes originelles étaient cruciales pour son Art Magique Rapide, car il ne possédait qu'une seule veine magique. S'il parvenait à en dévorer davantage, ses veines magiques augmenteraient et sa vitesse d'exécution atteindrait un niveau stupéfiant!
 
 Parmi les deux cultivateurs du stade avancé de la Tribulation du Vide, l'âme originelle de l'un avait été détruite et l'autre s'était consumée, Wang Lin ne les récupéra donc pas. La raison principale était qu'il devait évaluer sa propre puissance actuelle.
 
@@ -102,7 +102,7 @@ C'était un dragon marin, une créature d'un bleu profond mesurant bien cent mil
 
 Ce dragon avait vécu durant des âges. Il exhalait une aura antique et sa tête différait de celle des autres dragons. La rangée d'épines sur son dos le rendait encore plus terrifiant!
 
-Ce dragon n'avait pas de griffes, il ressemblait à un immense python, mais possédait la puissance d'un véritable dragon! Son corps paraissait svelte mais atteignait un millier de pieds de diamètre. Sur sa tête, outre les épines dorsales, se trouvaient deux immenses nageoires reliées entre elles comme un éventail.
+Ce dragon n'avait pas de griffes, il ressemblait à un immense python, mais possédait la puissance d'un véritable dragon! Son corps paraissait svelte mais atteignait un millier de pieds de diamètre. Sur sa tête, outre les épines dorsales, se trouvaient deux immenses nageoires en forme d'éventail, reliées au corps.
 
 Tandis que le dragon marin s'élançait dans les airs, d'énormes quantités d'eau s'égouttaient de ses écailles. En jaillissant, il fit chuter considérablement le niveau du lac!
 

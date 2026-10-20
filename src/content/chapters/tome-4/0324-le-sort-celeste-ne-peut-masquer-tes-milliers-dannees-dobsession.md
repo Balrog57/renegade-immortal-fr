@@ -50,7 +50,7 @@ La main le poursuivit sans relâche. Une voix très ancienne résonna depuis le 
 
 Le visage du vieil homme était sombre. Il se déplaça avec la rapidité de la foudre et, en un clin d'œil, apparut devant la femme vêtue de blanc. Il tendit brusquement la main vers l'épée céleste qui se matérialisait.
 
-Cependant, alors qu'il s'apprêtait à la saisir, une autre personne surgit de la foule, plus rapide encore que la précédente. Elle s'empara de l'épée céleste avant que le vieil homme ne puisse faire un geste et s'échappa avec célérité.
+Cependant, alors qu'il s'apprêtait à la saisir, une autre personne surgit de la foule, plus rapide encore que la précédente. Il s'empara de l'épée céleste avant que le vieil homme ne puisse faire un geste et s'échappa avec célérité.
 
 « Haha, Ling Tianhou, moi, Tian Mozi, ne suis pas gourmand. Parmi les quatre épées célestes, je n'en prendrai qu'une seule! Adieu! » Il s'agissait de l'érudit d'âge moyen. Il était arrivé avant le vieil homme et s'était caché dans la foule; il venait de dérober l'épée céleste en un seul mouvement.
 

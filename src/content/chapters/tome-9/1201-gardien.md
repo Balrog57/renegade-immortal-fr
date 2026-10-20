@@ -74,7 +74,7 @@ Maître Pin Cendré ressentit une amertume profonde et rugit vers le ciel. Il s'
 
 « Cet homme a ruiné tous mes efforts, sans compter cette vieille femme nommée Zhao. Si elle n'avait pas tenté de me voler, ce dénommé Lu n'aurait jamais eu sa chance... Peu importe! Peu importe! » L'expression de Maître Pin Cendré était tordue par la colère, mais aussi par une immense tristesse et un sentiment d'impuissance.
 
-« Je n'en veux plus. Si vous le voulez tous, prenez-le! Je quitte ce Royaume aux Sept Couleurs et je vais sceller cet endroit définitivement. Je détruirai la fissure aux sept couleurs pour que vous soyez tous piégés ici à jamais! Ce n'est qu'alors que ma colère s'apaisera un peu! Cet homme nommé Lu a dû fouiller l'âme de Pang Decai lorsqu'il l'a tué. Mais même Pang Decai ignorait le véritable moyen de partir. Il ne savait que ce que je voulais bien qu'il sache! »
+« Je n'en veux plus. Si vous le voulez tous, prenez-le! Je quitte ce Royaume aux Sept Couleurs et je vais sceller cet endroit définitivement. Je détruirai la fissure aux sept couleurs pour que vous soyez tous piégés ici à jamais! Ce n'est qu'alors que ma colère s'apaisera un peu! Cet homme nommé Lu a dû fouiller l'âme de Pang Decai lorsqu'il l'a tué. Autrement, il n'aurait pas pu découvrir si fortuitement l'emplacement de la véritable grotte de Sima Mo. Mais même Pang Decai ignorait le véritable moyen de partir. Il ne savait que ce que je voulais bien qu'il sache! »
 
 « Vous resterez tous ici pour l'éternité à cause de moi! » Maître Pin Cendré se précipita vers la région extérieure, empruntant un sentier qu'ils n'avaient jamais utilisé pour rejoindre son chemin habituel de sortie.
 

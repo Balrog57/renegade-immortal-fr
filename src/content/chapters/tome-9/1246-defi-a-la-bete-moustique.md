@@ -10,13 +10,13 @@ Wang Lin se redressa de la porte de pierre et contempla le monde avant que son r
 
 Les bêtes moustiques environnantes ne semblaient plus si effrayantes comparées à cet homme vêtu de blanc. Si le choix leur avait été donné, ils auraient préféré se battre jusqu'à la mort contre les insectes plutôt que de subir cette scène étrange.
 
-Après un long moment, Wang Lin détourna son regard et s'élança dans les airs. Le roi des moustiques, qui avait commis une faute, le suivait. Les milliers de bêtes moustiques encerclèrent Li Yuanlei avant de suivre le mouvement progressivement.
+Après un long moment, Wang Lin détourna son regard et s'élança dans les airs. Le roi des moustiques, qui avait commis une faute, le suivait. Les milliers de bêtes moustiques qui entouraient Li Yuanlei le suivirent peu à peu, en s'éloignant au loin.
 
 « Vous ne devriez pas être ici. Partez maintenant. » Ce n'est que lorsque Wang Lin fut déjà loin que ses paroles résonnèrent lentement dans les cieux.
 
 Li Yuanlei et son groupe se regardèrent. Après un instant de réflexion, le sentiment d'avoir échappé de justesse à une calamité imprégnait leurs esprits. Se remémorant ce qui venait de se passer, ils n'avaient aucune intention de rester. Leur respect pour Wang Lin ne fit que croître.
 
-Ils s'inclinèrent tous dans la direction prise par Wang Lin et partirent rapidement. Bien qu'ils fussent venus ici pour le butin, ils ne prirent ni la porte de pierre, ni la compréhension du Royaume Céleste du Vent. Ce qu'ils emportaient en revanche, c'était la silhouette de Wang Lin, vêtu de blanc et aux cheveux blancs, et cette crainte révérencieuse qu'il leur inspirait.
+Ils s'inclinèrent tous dans la direction prise par Wang Lin et partirent rapidement. Ils ne prirent ni la porte de pierre, ni la compréhension du Royaume Céleste du Vent. Ce qu'ils emportaient en revanche, c'était la silhouette de Wang Lin, vêtu de blanc et aux cheveux blancs, et cette crainte révérencieuse qu'il leur inspirait.
 
 Il y avait aussi ces deux mots: « Le Temps qui S'écoule ».
 
@@ -42,11 +42,11 @@ Après une journée, les fragments du Royaume Céleste apparurent sous ses yeux.
 
 De plus, les bêtes moustiques étaient si denses qu'il était probable qu'avant même d'avoir réussi à en asservir un groupe, un autre arriverait.
 
-En se concentrant, Wang Lin sentit vaguement le tremblement et le regard glacial du roi des moustiques. Sa main droite tapota doucement la tête de la créature. Le roi des moustiques poussa un rugissement et s'élança avec l'essaim.
+En se concentrant, Wang Lin sentit nettement le léger tremblement et le regard glacial du roi des moustiques. Sa main droite tapota doucement la tête de la créature. Le roi des moustiques poussa un rugissement et s'élança avec l'essaim.
 
 Wang Lin vit de plus en plus de bêtes moustiques. Ces groupes ne comptaient plus des milliers, mais approchaient les dix mille individus. Il y avait davantage de spécimens bleus, et même des centaines de bêtes blanches.
 
-Devant ce spectacle, Wang Lin prit une profonde inspiration et sentit son cuir chevelu se hérisser. Heureusement, ces bêtes ne s'arrêtaient pas; elles glissaient avec le vent comme dans un jeu. Pourtant, leurs rugissements auraient pu ébranler l'esprit de n'importe qui.
+Devant ce spectacle, Wang Lin prit une profonde inspiration et sentit son cuir chevelu s'engourdir légèrement. Heureusement, ces bêtes ne s'arrêtaient pas; elles glissaient avec le vent comme dans un jeu. Pourtant, leurs rugissements auraient pu ébranler l'esprit de n'importe qui.
 
 Ce n'était pas encore la partie la plus profonde du Royaume Céleste du Vent, mais seulement la lisière de la région intérieure. Et pourtant, on dénombrait déjà plus de 100 000 bêtes moustiques ici.
 

@@ -14,7 +14,7 @@ Dès qu'il s'approcha, l'immense mer de fleurs s'agita et un parfum floral l'ass
 
 Maître Fu Fengzi afficha une expression étrange, s'exclama aussitôt: « Le Parfum de Pluie Toxique! »
 
-« J'ai consulté certains registres du Royaume Céleste qui traitaient des poisons de ce domaine. Ils classaient les cent poisons les plus redoutables avec une brève description pour chacun. Lorsqu'on plante diverses fleurs en les combinant, deux types de poisons naturels peuvent se former. L'un d'eux est ce Parfum de Pluie Toxique. Si vous le sentez, votre culture devient immédiatement instable; si vous en inhalez quelques bouffées de plus, vous perdrez toute votre culture. »
+« J'ai consulté certains registres du Royaume Céleste de la Pluie qui traitaient des poisons de ce domaine. Ils classaient les cent poisons les plus redoutables avec une brève description pour chacun. Lorsqu'on plante diverses fleurs en les combinant, deux types de poisons naturels peuvent se former. L'un d'eux est ce Parfum de Pluie Toxique. Si vous le sentez, votre culture devient immédiatement instable; si vous en inhalez quelques bouffées de plus, vous perdrez toute votre culture. »
 
 L'expression des trois frères Chen changea légèrement, mais ils ne reculèrent pas. Après tout, ils étaient des cultivateurs du Scruteur du Nirvana et possédaient des méthodes pour s'en protéger.
 
@@ -58,7 +58,7 @@ Quelle sorte de mer de fleurs était-ce là? C'était manifestement un cimetièr
 
 Les yeux des filles, assises les bras autour des genoux, libérèrent une lueur spectrale, puis elles se levèrent toutes d'un bond pour charger le Cadavre d'Argent en plein vol.
 
-« Selon les chroniques, ces Esprits de Fleur étaient toutes des fillettes mortelles que l'on nourrissait de substances uniques jusqu'à ce qu'elles deviennent, par essence, des pilules vivantes. Elles étaient ensuite enterrées ici collectivement selon une méthode spéciale. Plusieurs années plus tard, une mer de fleurs se forme, et il existe une certaine chance qu'elles fusionnent pour créer une Céleste Fleur! »
+« Selon les chroniques, ces Esprits de Fleur étaient toutes des fillettes mortelles que l'on nourrissait pendant des années de substances uniques jusqu'à ce qu'elles deviennent, par essence, des pilules vivantes. Elles étaient ensuite enterrées ici collectivement selon une méthode spéciale. Plusieurs années plus tard, une mer de fleurs se forme, et il existe une certaine chance qu'elles fusionnent pour créer une Céleste Fleur! »
 
 « Dans le Royaume Céleste, la Céleste Fleur est un poison extrêmement précieux car elle peut prendre forme humaine; c'est pourquoi les êtres célestes l'apprécient tant. Ils les utilisent souvent pour garder leurs grottes ou simplement pour s'en divertir. » Maître Fu Fengzi était digne d'un être ayant cultivé durant des éons. Sa compréhension des êtres célestes était profonde, et les choses qu'il décrivait avec un tel calme auraient terrifié la plupart des gens.
 

@@ -14,7 +14,7 @@ Derrière cette première vague, une multitude dix fois plus nombreuse rugissait
 
 Plus loin encore, les immenses chars de guerre avançaient dans un grondement sourd et lent. Ils commencèrent à briller, projetant des rayons de lumière destructrice!
 
-À cet instant précis, une faille gigantesque sembla se déchirer au-dessus du palais. Près de cent membres des trois clans de l'Ordre Ancien, hauts de dizaines de milliers de pieds, en émergèrent. C'était comme si le monde lui-même était sur le point de s'effondrer, et leurs rugissements étouffèrent ceux des cultivateurs.
+À cet instant précis, une faille gigantesque sembla se déchirer au-dessus du palais. Près de cent membres des trois clans de l'Ordre Ancien, hauts de dix mille pieds, en émergèrent. C'était comme si le monde lui-même était sur le point de s'effondrer, et leurs rugissements étouffèrent ceux des cultivateurs.
 
 Tandis que les grondements tonitruants résonnaient, ces cent membres apparurent. Sorts, puissance physique brute, trésors et attaques diverses commencèrent immédiatement à semer le chaos. Avec seulement une centaine d'individus, ils livraient bataille à des centaines de milliers de cultivateurs!
 
@@ -26,7 +26,7 @@ Le monde gronda et huit géants perçant les cieux sortirent de la faille. Leur 
 
 Ces huit géants possédaient des corps physiques d'une puissance phénoménale. Un simple mouvement de leurs bras libérait une force telle qu'elle projetait les cultivateurs en arrière, les laissant cracher du sang ou mourir sur le coup.
 
-Cependant, juste au moment où ces huit géants apparurent, le cultivateur tenant le parapluie murmura quelques mots. Le monde commença à se distordre pour devenir la surface d'un miroir. Des rugissements jaillirent de ce miroir, puis huit dragons de plusieurs dizaines de milliers de pieds de long s'en échappèrent. Ils se tournèrent vers la plateforme avec des expressions féroces et poussèrent des hurlements terrifiants!
+Cependant, juste au moment où ces huit géants apparurent, le cultivateur tenant le parapluie murmura quelques mots. Le monde commença à se distordre pour devenir la surface d'un miroir. Des rugissements jaillirent de ce miroir, puis huit dragons de cent mille pieds de long s'en échappèrent. Ils se tournèrent vers la plateforme avec des expressions féroces et poussèrent des hurlements terrifiants!
 
 On aurait dit qu'ils allaient briser tous les obstacles pour dévorer la plateforme de pierre.
 
@@ -82,7 +82,7 @@ Cette ombre ne possédait qu'une tête, mais celle-ci était aussi vaste que le 
 
 Une fois apparue, la tête ouvrit la bouche et expira un souffle violent. Ce vent balaya tous les cultivateurs morts; ils se raidirent instantanément, prenant l'apparence de la pierre.
 
-À ce moment précis, le scribe d'âge moyen tenant le parapluie de l'autre côté de la plateforme poussa un soupir. De sa main droite, il ouvrit l'ombrelle et une lumière aux sept couleurs en émana. L'objet devint semblable à un soleil, brillant d'un éclat intense.
+À ce moment précis, le lettré d'âge mûr tenant le parapluie de l'autre côté de la plateforme poussa un soupir. De sa main droite, il ouvrit l'ombrelle et une lumière aux sept couleurs en émana. L'objet devint semblable à un soleil, brillant d'un éclat intense.
 
 La puissance de l'Ordre Ancien et la lumière septicolore entrèrent en collision, faisant trembler le monde. C'est alors qu'un rugissement monstrueux retentit!
 
@@ -96,7 +96,7 @@ Les yeux clos, il banda l'arc; en relâchant la corde, il ouvrit les yeux!
 
 En un éclair, la flèche fendit l'air avec une impulsion indescriptible. Le monde trembla et une fissure gigantesque se creusa dans le sol, suivant sa trajectoire!
 
-La flèche brisa tout sur son passage. Un grondement tonitruant couvrit tous les autres sons tandis qu'elle perçait le vide.
+La flèche brisa tout sur son passage. Un grondement tonitruant, tel un rayon capable de percer le soleil, couvrit tous les autres sons tandis qu'elle perçait le vide.
 
 Elle traversa la lumière septicolore de l'homme au parapluie, le souffle destructeur exhalé par la tête géante et tout ce qui existait. C'était comme si ni le firmament, ni le temps, rien ne pouvait l'arrêter!
 

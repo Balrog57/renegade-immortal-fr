@@ -52,7 +52,7 @@ Il sentait clairement l'aura qui s'éveillait lentement devenir de plus en plus 
 
 En particulier, un expert au stade du Fléau Céleste posséderait une perception du monde encore plus aiguisée. Si l'aura de la montagne était endormie, ils pourraient ne rien remarquer, mais si elle s'agitait violemment, leur suspicion serait naturelle.
 
-« Quel genre d'épée est cachée sous cette montagne, et quel Ancien Dieu était prêt à sacrifier sa propre étoile pour forger un tel objet?! » Wang Lin reposa sa tasse et resta silencieux.
+« Quel genre d'épée est cachée sous cette montagne, et quel Ancien Dieu Royal de quelques étoiles était prêt à sacrifier sa propre étoile pour forger un tel objet?! » Wang Lin reposa sa tasse et resta silencieux.
 
 « Les âmes Yin extrêmes dont le camarade cultivateur Lu a besoin sont effectivement utiles pour la guérison, mais... » Voyant le silence de Wang Lin, le maître de la secte et le Grand Ancien échangèrent un regard. L'Ancien hésita un instant avant de dire: « Puisque le camarade cultivateur Lu en a besoin pour guérir, je pense qu'il est acceptable d'y accéder... »
 

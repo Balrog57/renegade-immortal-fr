@@ -15,7 +15,7 @@ Après avoir contemplé la formation devant lui, Wang Lin comprit qu'il ne pourr
 
 Bien que la voix de Wang Lin fût ténue, elle résonna à travers les fissures. Les yeux de Zhou Yi tremblèrent alors qu'il les ouvrait lentement. Son regard était vide et, dans ce vide, ne subsistait finalement qu'une profonde tristesse. Son visage restait empreint d'hébétude.
 
-À cet instant précis, le sens divin de Ling Tianhou perça la cage dorée. Il se retourna et chargea directement Wang Lin une fois de plus.
+À cet instant précis, le sens divin de Ling Tianhou perça la cage dorée. Il se retourna et chargea directement Wang Lin une fois de plus, sous forme d'énergie d'épée.
 
 Un léger soupir résonna à travers la fissure. Ce soupir venait de Zhou Yi et, au moment où il se propagea dans la grotte, le sens divin de Ling Tianhou qui fonçait sur Wang Lin s'effondra instantanément!
 

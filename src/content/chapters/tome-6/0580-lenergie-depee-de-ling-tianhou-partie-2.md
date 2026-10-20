@@ -12,7 +12,7 @@ Mo Yang fut stupéfait.
 
 Le départ précipité de sa silhouette laissa Mo Yang totalement interdit. À l'instant d'avant, il avait failli être contraint d'utiliser son trésor de sauvetage, mais les paroles de Wang Lin le plongèrent dans l'incrédulité.
 
-Il prit une profonde inspiration, ramassa la lame géante et, après l'avoir inspectée avec son Sens Divin pour s'assurer qu'elle était intacte, il regarda Wang Lin s'éloigner avec perplexité.
+Il prit une profonde inspiration, ramassa la lame géante et, après l'avoir inspectée avec son Sens Divin pour s'assurer que personne n'y avait touché, il regarda Wang Lin s'éloigner avec perplexité.
 
 « Je relayerai certainement votre message! » Mo Yang s'élança et s'envola rapidement loin du Manoir Mo.
 

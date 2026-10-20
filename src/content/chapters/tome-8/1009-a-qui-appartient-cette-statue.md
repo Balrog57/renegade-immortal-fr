@@ -100,7 +100,7 @@ Wang Lin répondit: « Wang Lin. »
 
 Le palais retomba dans le silence. Bien que l'expression de Wang Lin fût neutre, il était extrêmement vigilant. Son énergie originelle emplissait son corps et, à la moindre anomalie, il riposterait.
 
-De plus, un troisième œil apparut entre ses sourcils. Bien qu'il ne fût pas ouvert, l'énergie originelle qu'il contenait pouvait se déployer par une simple pensée.
+De plus, un troisième œil apparut entre ses sourcils. Bien qu'il ne fût pas ouvert, l'énergie d'origine source qu'il contenait pouvait se déployer par une simple pensée.
 
 Wang Lin craignait énormément cette femme. Sa culture avait atteint le Scruteur du Nirvana et, grâce à son corps de Dieu Ancien, il pouvait déployer la force d'un Purificateur du Nirvana de stade intermédiaire. Pourtant, il savait qu'il ne faisait pas le poids face à elle.
 

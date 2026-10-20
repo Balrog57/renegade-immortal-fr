@@ -16,7 +16,7 @@ L'essentiel de la puissance du Char de Guerre Divinx résidait dans l'animal spi
 
 Si les sceaux n'étaient pas levés lorsque cette stimulation atteindrait son apogée, l'animal spirituel exploserait et mourrait. Cependant, si le sceau était levé trop tôt, l'évolution de la bête serait interrompue et elle ne pourrait jamais atteindre sa puissance maximale à l'avenir.
 
-En vérité, aucun des trois Chars de Guerre Anti-Dieux n'avait été utilisé avant la mort de leur créateur. Selon son plan initial, les trois Chars de Guerre Anti-Dieux atteindraient la perfection après avoir été activés une première fois.
+En vérité, aucun des trois Chars de Guerre Divinx n'avait été utilisé avant la mort de leur créateur. Selon son plan initial, les trois Chars de Guerre Divinx atteindraient la perfection après avoir été activés une première fois.
 
 C'est pourquoi il devait lever le sceau une fois que l'évolution aurait atteint son paroxysme. Ce n'était qu'à cette condition que la puissance du Char de Guerre Divinx serait à la hauteur de son nom!
 
@@ -83,11 +83,11 @@ Wang Lin s'assit en position du lotus dans la tour et médita.
 
 Ces trois épées dégageaient une aura spirituelle féroce. Wang Lin cracha une bouffée d'énergie de l'âme originelle qui se transforma en une brume verte enveloppant les lames. Il ferma ensuite les yeux pour se concentrer sur leur affinement.
 
-En un clin d'œil, trois mois passèrent. Ce jour-là, plusieurs rayons de lumière apparurent dans le ciel, à 50 000 kilomètres du Tribu de l'Affinement de l'Âme. Leur cible était clairement le Tribu de l'Affinement de l'Âme!
+En un clin d'œil, trois mois passèrent. Ce jour-là, plusieurs rayons de lumière apparurent dans le ciel, à 50 000 kilomètres de la Tribu de l'Affinement de l'Âme. Leur cible était clairement la Tribu de l'Affinement de l'Âme!
 
 Parmi ces individus se trouvait un homme vêtu d'or dont les vêtements irradiaient une lueur dorée. Il ne paraissait pas très âgé, et son visage dégageait une arrogance glaciale.
 
-Un autre le suivait: un jeune homme vêtu de blanc comme la neige. Il était beau, mais son visage était empreint d'amertume. Il observait le Tribu de l'Affinement de l'Âme avec une hésitation manifeste dans ses yeux.
+Un autre le suivait: un jeune homme vêtu de blanc comme la neige. Il était beau, mais son visage était empreint d'amertume. Il observait la Tribu de l'Affinement de l'Âme avec une hésitation manifeste dans ses yeux.
 
 L'homme en or regarda le jeune homme et renifla froidement: « À quoi penses-tu, Sun Yunshan? »
 
@@ -97,9 +97,9 @@ Lorsqu'il était entré dans les Terres de l'Esprit Démoniaque, il était prot�
 
 Après avoir entendu les paroles de l'homme en or, le corps de Sun Yunshan trembla et il dit respectueusement: « Seigneur, ce subordonné... »
 
-Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre Alliance des Cultivateurs, tu dois obéir à tous les ordres. Si ce n'était par égard pour ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin?! »
+Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre Union de Culture, tu dois obéir à tous les ordres. Si ce n'était par égard pour ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin?! »
 
-Sun Yunshan resta silencieux et hocha la tête. Il pensa pour lui-même: « Je ne sais pas si le Wang Lin de ce Tribu de l'Affinement de l'Âme... est la même personne que celui de la Secte du Destin Céleste... Ah, je réfléchis trop; il est impossible qu'ils soient le même homme. »
+Sun Yunshan resta silencieux et hocha la tête. Il pensa pour lui-même: « Je ne sais pas si le Wang Lin de cette Tribu de l'Affinement de l'Âme... est la même personne que celui de la Secte du Destin Céleste... Ah, je réfléchis trop; il est impossible qu'ils soient le même homme. »
 
 « L'ancêtre a même délibérément envoyé une garde céleste pour capturer ce Wang Lin. Ce voyage ne présente aucun danger, mais tu dois rester vigilant et ne pas laisser ce Wang Lin s'échapper! » Une fois son discours achevé, l'homme en or tourna son regard vers l'homme d'âge moyen vêtu de noir qui fermait la marche.
 

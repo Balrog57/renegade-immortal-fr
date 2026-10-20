@@ -10,7 +10,7 @@ En contemplant la grotte, les yeux de Wang Lin brillèrent d'un éclat singulier
 
 Cependant, lorsqu'il fut à moins de dix pieds de la grotte, un vortex gigantesque surgit dans le ciel du Royaume aux Sept Couleurs. Il émit un son étrange, capable de troubler l'esprit de n'importe qui; quiconque l'entendait sentait un feu invisible s'embraser dans son cœur.
 
-Le corps de Wang Lin trembla alors qu'il levait la tête pour fixer le vortex qui déchirait le ciel. Son regard semblait percer la tourmente pour apercevoir un système stellaire abritant un temple indescriptible!
+Le corps de Wang Lin trembla alors qu'il levait la tête pour fixer le vortex qui déchirait le ciel. Son regard semblait percer la tourmente pour apercevoir un système stellaire abritant un palais indescriptible!
 
 Son regard se figea, et une sensation de démence s'empara du cœur de Wang Lin. Ce sentiment l'envahit d'une manière extrêmement étrange, mais il fut incapable de l'enrayer!
 
@@ -86,7 +86,7 @@ Pourtant, la formation n'existait que par ces sept plantes. Tout cet espace et c
 
 La puissance des étoiles, celle d'innombrables planètes et de multiples failles spatiales comme le Royaume aux Sept Couleurs absorbait un Dao infini. Ce Dao était ensuite transformé en nutriments pour nourrir les plantes jusqu'à ce qu'elles croissent, fleurissent et finissent par porter des fruits.
 
-Ce système stellaire n'existait pas naturellement; quelqu'un avait utilisé un sortilège puissant pour créer cet espace autour de la formation de scellement, l'intégrant ainsi à celle-ci. De cette façon, chaque fois qu'un être mourait à l'intérieur du Royaume Scellé, son Dao était absorbé pour nourrir les plantes.
+Ce système stellaire n'existait pas naturellement; quelqu'un avait utilisé un sortilège puissant pour créer cet espace autour de la formation de scellement, l'intégrant ainsi à celle-ci. De cette façon, chaque fois qu'un cultivateur mourait à l'intérieur du Royaume Scellé, son Dao était absorbé pour nourrir les plantes.
 
 C'était une véritable culture du Dao!
 

@@ -40,7 +40,7 @@ Tandis qu'il volait, les mains de Wang Lin formèrent rapidement des sceaux. Le 
 
 Le Ji Qiong continuait de rugir, les dix-huit têtes continuaient leurs incantations, et d'innombrables sorts furent projetés sur Wang Lin. À cet instant, un nuage noir apparut devant lui, se transformant en une langue sombre qui s'élança rapidement vers lui.
 
-Le visage de Wang Lin était légèrement pâle et une froideur glaçante emplissait ses yeux. Sa main droite pointa vers le vide et le sort « Appeler le Vent » couvrit la moitié du ciel. Il se transforma en quatre dragons noirs qui chargèrent la langue sombre.
+Le visage de Wang Lin était légèrement pâle et une froideur glaçante emplissait ses yeux. Sa main droite pointa vers le vide et le sort « Invoquer le Vent » couvrit la moitié du ciel. Il se transforma en quatre dragons noirs qui chargèrent la langue sombre.
 
 Un fracas tonnerreux retentit et l'impact se propagea en une onde de choc. Wang Lin esquiva sur le côté pour éviter les répercussions, puis sa main droite forma à nouveau des sceaux. Le tonnerre apparut de nouveau, accompagné d'une mer de flammes qui se propageait avec lui.
 

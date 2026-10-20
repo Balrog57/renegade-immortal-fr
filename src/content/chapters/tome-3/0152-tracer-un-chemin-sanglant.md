@@ -44,9 +44,9 @@ Elle eut l'impression de rêver en repensant aux dernières années passées dan
 
 La Li Muwan d'avant ne faisait que cultiver ou raffiner des pilules. Chaque fois qu'elle sortait, son frère l'accompagnait. Avec lui à ses côtés, elle ne courait aucun danger réel.
 
-Grâce à son talent pour le raffinage de pilules et les formations, elle était chérie par les Anciens et très populaire au sein de sa secte. De nombreux prétendants de sa génération la courtisaient, mais aucun n'avait réussi à émouvoir son cœur.
+Grâce à son talent pour le raffinage de pilules et les formations, elle était chérie par les Anciens et très populaire au sein de la Secte Luo He. De nombreux prétendants de sa génération la courtisaient, mais aucun n'avait réussi à émouvoir son cœur.
 
-La première fois qu'elle avait rencontré Wang Lin, elle l'avait pris pour Sun Youcai, ce qui avait failli créer un malentendu. En y repensant aujourd'hui, s'ils s'étaient vraiment affrontés à l'époque, même son frère n'aurait pas été de taille face à lui. Avec ce qu'elle comprenait désormais de Wang Lin, elle savait que s'ils avaient combattu, le seul résultat aurait été leur massacre par Wang Lin. Même elle, malgré sa beauté, aurait péri, car cela n'aurait eu aucun effet sur lui.
+La première fois qu'elle avait rencontré Wang Lin, elle l'avait pris pour Sun Youcai, ce qui avait failli créer un malentendu. En y repensant aujourd'hui, s'ils s'étaient vraiment affrontés à l'époque, même son frère n'aurait pas été de taille face à lui. Avec ce qu'elle comprenait désormais de Wang Lin, elle savait que s'ils avaient combattu, le seul résultat aurait été leur massacre par Wang Lin. Même elle, malgré sa beauté, aurait péri, car sa beauté n'aurait pas suscité chez lui la moindre pitié.
 
 « C'est un homme sans cœur... » Li Muwan observa Wang Lin en soupirant. Après toutes ces années, elle savait qu'il n'aurait aucune intention pervertie à son égard. Après tout, à ses yeux, elle n'était qu'un fourneau à pilules.
 

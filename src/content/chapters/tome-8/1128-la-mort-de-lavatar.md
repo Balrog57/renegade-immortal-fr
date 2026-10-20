@@ -82,7 +82,7 @@ Cette tête ressemblait à Wang Lin!
 
 Wang Lin regarda silencieusement devant lui et réfléchit longuement. Puis il poussa un soupir et murmura avec un sourire amer: « Wang Lin, ton niveau de culture actuel ne représente rien dans ce monde. Je dois encore rester prudent en toute chose! »
 
-Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniaques, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien diable avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait mobilisé diverses forces pour combattre Tuo Sen.
+Une amertume envahit Wang Lin. Dans la Terre des Esprits Démoniaques, il avait combattu le Maître du Vide, il avait combattu l'Omniscient avec la Nuit Déchirée, il avait combattu l'ancien diable avec le Rêve des Temps Anciens, puis il était devenu l'Empereur Divin de l'Oiseau Vermillon. Après cela, il avait réussi à sauver l'Empereur Divin du Dragon Azure et avait réveillé l'Empereur Céleste Qing Lin. Tout au long de ce parcours, le niveau de culture de Wang Lin avait progressé, et après être devenu l'Empereur Divin de l'Oiseau Vermillon, il avait, par des stratagèmes imbriqués, mobilisé diverses forces pour combattre Tuo Sen.
 
 Tout cela lui avait donné l'impression que tout était sous son contrôle, et affronter des cultivateurs au stade du Briseur du Nirvana lui avait inconsciemment insufflé un sentiment de complaisance.
 

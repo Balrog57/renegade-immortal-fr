@@ -48,7 +48,7 @@ Avant de quitter la Secte du Ciel Nuageux, Wang Lin avait déjà consulté toute
 
 Après un long moment, Wang Lin reposa le jade et dit: « Je veux cette recette de la pilule de Retour à l'Origine de la Secte de la Fin du Monde. Votre pavillon possède-t-il des recettes de rang 6? »
 
-L'homme d'âge moyen hésita et consulta le vieil homme, qui acquiesça d'un signe de tête. L'homme reprit alors avec un sourire rapide: « Une pilule de rang 6 est inestimable. Notre pavillon n'en possède qu'une seule, et elle ne sera vendue que lors des enchères de la Mer des Démons qui se tiennent tous les dix ans. Si vous le souhaitez, pourquoi ne pas attendre deux mois? Les enchères débuteront dans deux mois. »
+L'homme d'âge moyen hésita et consulta le vieil homme, qui acquiesça d'un signe de tête. L'homme reprit alors avec un sourire rapide: « Une recette de rang 6 est inestimable. Notre pavillon n'en possède qu'une seule, et elle ne sera vendue que lors des enchères de la Mer des Démons qui se tiennent tous les dix ans. Si vous le souhaitez, pourquoi ne pas attendre deux mois? Les enchères débuteront dans deux mois. »
 
 Wang Lin fronça les sourcils: « Laisse tomber. Combien coûte cette recette de rang 5? »
 
@@ -58,7 +58,7 @@ L'homme sourit: « Cher client, souhaitez-vous l'échanger contre un objet ou l'
 
 L'homme afficha une expression complexe: « Cela... La plupart des objets d'une telle valeur ne s'échangent pas contre des pierres spirituelles... »
 
-Wang Lin fronça les sourcils. Il se leva, tapota son sac de rangement et en extirpa un objet. Puis, prenant la boîte contenant le jade, il commença à descendre l'escalier.
+Wang Lin fronça les sourcils. Il se leva, tapota son sac de rangement et en extirpa un objet. Puis, prenant la boîte contenant les recettes, il commença à descendre l'escalier.
 
 Le vieil homme, surpris, fit instinctivement un pas en avant, mais fut stoppé par une aura glaciale émanant du chapeau de paille de Wang Lin.
 
@@ -132,4 +132,4 @@ Le hurlement de sa nuée d'insectes était terrifiant.
 
 « Il y a quelques jours, j'ai donné en pâture à mes insectes un junior au stade avancé de l'Âme Naissante de la Secte du Ciel Nuageux. Avant de mourir, il a osé dire que Wang Lin ne me laisserait pas en paix. Humph, qui est ce Wang Lin et pourquoi n'en ai-je jamais entendu parler? De plus, Chu n'est qu'un pays de culture de rang 3; un expert de la Formation de l'Âme ne saurait y exister. Ce Wang Lin n'est qu'un cultivateur du stade avancé de l'Âme Naissante légèrement au-dessus de la moyenne, et je tue tout ce qui se présente. Humph, j'ai même tué pas mal d'experts de la Formation de l'Âme. »
 
-Zhan Bai ricana: « Après avoir anéanti ce pays de Chu, je massacrerai mon chemin jusqu'à la Vallée Désolée des Neuf Fantômes. Cette fois, je ferai naître le Roi des Insectes. Une fois qu'il aura pénétré en moi, j'atteindrai le stade intermédiaire de la Formation de l'Âme. Ceng Niu, je veux voir si tu pourras encore me battre à ce moment-là! »
+Zhan Bai ricana: « Après avoir anéanti ce pays de Chu, je massacrerai mon chemin jusqu'à la Vallée Désolée des Neuf Fantômes. Cette fois, je ferai naître le Roi des Insectes. Une fois qu'il aura pénétré en moi, j'atteindrai le stade intermédiaire de la Formation de l'Âme. Ceng Niu, je veux voir si tu pourras me battre à ce moment-là! »

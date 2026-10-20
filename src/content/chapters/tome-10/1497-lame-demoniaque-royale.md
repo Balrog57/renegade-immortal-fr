@@ -32,7 +32,7 @@ Tandis que le Dieu de Sang poussait un cri déchirant, une ligne de sang apparut
 
 En un instant, la ligne de sang brilla et l'âme originelle du Dieu de Sang fut scindée en deux!
 
-Au moment même où son âme était coupée, son corps vola en éclats à l'intérieur du vortex!
+Au moment même où son âme était coupée, son corps vola en éclats à l'intérieur du vortex, à mille pieds de Wang Lin!
 
 Mais la mort du Dieu de Sang ne mit pas fin à cette affaire!
 
@@ -102,7 +102,7 @@ En un éclair, la lame pourpre percuta la paume de Wang Lin, propageant une onde
 
 La paume fantôme de Wang Lin empoigna la lame. Malgré ses efforts désespérés, elle ne put se libérer. Une fois capturée, des rugissements éclatèrent de l'intérieur de l'arme.
 
-Le démon ancien poussa un cri déchirant et cracha une bouffée d'énergie vitale. Ses yeux étaient emplis de désespoir! Le vortex trembla sous l'onde de choc, mais Wang Lin resta immobile, son expression inchangée. Seuls ses vêtements et ses cheveux flottaient au vent!
+Le démon ancien poussa un cri déchirant et cracha une bouffée d'énergie vitale. Ses yeux étaient emplis de désespoir! Le vortex trembla sous l'onde de choc, mais Wang Lin resta immobile, son expression inchangée. Seuls ses vêtements et ses cheveux blancs flottaient au vent!
 
 Les estimés Ling Dong et Zhou Jin se tenaient silencieusement derrière lui. Ling Dong avait été personnellement affiné par Wang Lin; il n'y avait donc aucune chance qu'il se rebelle.
 

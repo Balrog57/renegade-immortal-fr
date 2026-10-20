@@ -30,13 +30,13 @@ Même les deux cultivateurs à leurs côtés, qui étaient restés calmes jusqu'
 
 Simultanément, à l'extérieur de la tour, des acclamations incessantes retentissaient. Tous les disciples de la Secte Gui Yi regardaient le ciel avec exaltation. Ils contemplaient la sphère d'eau qui se contractait comme s'ils pouvaient déjà percevoir l'expression douloureuse de Wang Lin et entendre ses cris de détresse.
 
-Le Général de l'Eau était le plus enthousiaste. Il continuait de faire de grands gestes, et la sphère d'eau ne cessait de se condenser. La sphère mesurait désormais moins de 10 000 pieds de large et se comprimait de plus en plus vite. L'eau était trouble et des grondements en émanaient; c'était le son de l'eau qui se condensait, une mélodie céleste aux oreilles du Général de l'Eau.
+Le Général de l'Eau était le plus enthousiaste. Il continuait de faire de grands gestes, et la sphère d'eau ne cessait de se condenser. La sphère mesurait désormais moins de 100 000 pieds de large et se comprimait de plus en plus vite. L'eau était trouble et des grondements en émanaient; c'était le son de l'eau qui se condensait, une mélodie céleste aux oreilles du Général de l'Eau.
 
 « C'est trop lent. Je dois accélérer pour éviter tout accident! » Pour une raison inconnue, bien que le Général de l'Eau soit excité, il ressentit soudain un pressentiment terrifiant à mesure que la sphère rétrécissait. Ce sentiment surgit si brusquement qu'il en fut lui-même perplexe.
 
 Cependant, cette confusion ne fit qu'accroître son inquiétude, et la seule chose qu'il put faire fut de forcer la condensation de la sphère encore plus rapidement!
 
-Ses mains formèrent un sceau et il cracha une gorgée de sang. Son corps s'affaiblit considérablement, mais le sang provoqua le rétrécissement de la sphère de près de 10 000 à 7 000 pieds!
+Ses mains formèrent un sceau et il cracha une gorgée de sang. Son corps s'affaiblit considérablement, mais le sang provoqua le rétrécissement de la sphère de près de 100 000 à 70 000 pieds!
 
 Ce changement soudain fit gronder l'intérieur de la sphère où se trouvait Wang Lin. Son corps fut distordu par la pression, mais ses yeux brillaient d'excitation.
 
@@ -52,7 +52,7 @@ Ce qui exalta davantage Wang Lin fut la parole suivante du Général de l'Eau:
 
 Les mains de Na Duo formèrent un sceau et une lumière dorée jaillit, l'enveloppant d'une armure. Il sortit de la tour, protégé par cette armure.
 
-« Projetez vos Sens Divins dans la formation! Aujourd'hui, ma Secte Gui Yi éliminera un démon de ce monde! » rugit Na Duo en formant un nouveau sceau. Son Sens Divin se précipita vers le vortex céleste.
+« Projetez vos Sens Divins dans la formation! Aujourd'hui, ma Secte Gui Yi éliminera un démon de ce monde, pour le bénéfice des siècles à venir! » rugit Na Duo en formant un nouveau sceau. Son Sens Divin se précipita vers le vortex céleste.
 
 Il y a toujours ceux qui s'évertuent à dépeindre les autres comme maléfiques pour se draper dans la justice. Ils calomnient et propagent des rumeurs, comme si leur force ne pouvait s'exprimer pleinement sans cette imposture.
 
@@ -66,13 +66,13 @@ Des centaines de Sens Divins convergèrent, déployant toute leur puissance sur 
 
 En particulier, la puissance de Na Duo avait considérablement augmenté grâce à son armure. Le vieil homme en robe noire et les trois autres libérèrent également toute leur culture.
 
-Alors que l'eau se condensait rapidement, elle gronda violemment et rétrécit jusqu'à 3 000 pieds!
+Alors que l'eau se condensait rapidement, elle gronda violemment et rétrécit jusqu'à 30 000 pieds!
 
 Wang Lin, à l'intérieur, avait les yeux brillants d'excitation tandis qu'il appréhendait les mutations de l'essence d'eau. Le fait que la Secte Gui Yi déploie toute sa force pour accélérer ces changements permettait à Wang Lin d'en percevoir presque la totalité!
 
 « Je commence à comprendre... Encore un peu, juste encore un peu... » Inconsciemment, les mains de Wang Lin formèrent des sceaux pour imiter les mutations de l'essence d'eau.
 
-À cet instant précis, une seconde vague de pression s'abattit sur la sphère, la faisant passer précipitamment de 3 000 à 2 000 pieds, puis 1 000, 500... jusqu'à ce qu'elle ne fasse plus que 200 pieds!
+À cet instant précis, une seconde vague de pression s'abattit sur la sphère, la faisant passer précipitamment de 30 000 à 20 000 pieds, puis 10 000, 5 000... jusqu'à ce qu'elle ne fasse plus que 2 000 pieds!
 
 Elle continuait de rétrécir!
 
@@ -82,11 +82,11 @@ Le regard de Wang Lin était empreint d'illumination. Sa main gauche continuait 
 
 Les yeux de Wang Lin étincelèrent lorsqu'il murmura: « Essence d'eau, trois cent quatre-vingts millions de transformations pour se condenser... »
 
-Dès qu'il prononça ces mots, la sphère de 200 pieds trembla violemment comme jamais auparavant, comme si elle allait imploser. L'aura puissante de l'essence d'eau explosa.
+Dès qu'il prononça ces mots, la sphère de 2 000 pieds trembla violemment comme jamais auparavant, comme si elle allait imploser. L'aura puissante de l'essence d'eau explosa.
 
 Simultanément, à l'extérieur de la sphère, le Général de l'Eau forma un sceau et, aux côtés de Na Duo et des autres disciples de la Secte Gui Yi, concentra tous leurs Sens Divins pour une ultime compression!
 
-« 200 pieds! Son corps a dû s'effondrer, écrasons son âme originelle! »
+« 2 000 pieds! Son corps a dû s'effondrer, écrasons son âme originelle! »
 
 « Condensez-le! Transformez-le en une seule Goutte de l'Univers! »
 
@@ -94,11 +94,11 @@ Les Sens Divins fusionnés se ruèrent vers la sphère. Cependant, avant qu'ils 
 
 Na Duo fut saisi de surprise et le Général de l'Eau en trembla. Tous étaient totalement abasourdis.
 
-La sphère de 200 pieds se contracta jusqu'à 50 pieds, puis instantanément à 5 pieds! Cela révéla clairement Wang Lin et son expression exaltée!
+La sphère de 2 000 pieds se contracta jusqu'à 500 pieds, puis instantanément à 50 pieds! Cela révéla clairement Wang Lin et son expression exaltée!
 
 Cette scène fut comme un coup de tonnerre percutant leurs esprits, les laissant prostrés. Même s'il s'était agi d'un autre, personne n'aurait pu accepter une telle vision.
 
-Ils virent la sphère de 5 pieds se condenser pour devenir le cristal dans la main de Wang Lin, puis ils virent le cristal disparaître sans laisser de trace.
+Ils virent la sphère de 50 pieds se condenser pour devenir le cristal dans la main de Wang Lin, puis ils virent le cristal disparaître sans laisser de trace.
 
 Ils virent ensuite Wang Lin se lever lentement, un sourire aux lèvres. Il joignit les mains et s'inclina devant l'assemblée pétrifiée.
 

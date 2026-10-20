@@ -58,7 +58,7 @@ Zhang Daozong et le vieil homme nommé Zhao crachèrent également du sang, leur
 
 En revanche, les deux scorpions verts en dessous d'eux ne purent supporter le choc. Lorsque l'empreinte toucha le sol, une vibration colossale parcourut la terre. Les deux scorpions poussèrent des rugissements avant d'exploser sous les yeux de Wang Lin.
 
-« Voici la véritable Empreinte de l'Esprit Guerrier! » Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il chargeait vers la surface. Sa vitesse était telle qu'il atteignit instantanément la strate supérieure, faisant trembler toute la Prairie de l'Extrême Ciel.
+« Voici la véritable Empreinte de l'Esprit Guerrier! » Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il chargeait vers la surface. Sa vitesse était telle qu'il approcha instantanément de la surface, faisant trembler toute la Prairie de l'Extrême Ciel.
 
 Avec la mort des deux scorpions, deux des Messagers du Démon Vert avaient craché du sang. Voyant que Wang Lin s'apprêtait à surgir, la peur se lut sur les visages glacés des quatre Messagers du Démon Vert.
 

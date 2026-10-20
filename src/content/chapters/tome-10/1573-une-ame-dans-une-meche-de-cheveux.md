@@ -40,13 +40,13 @@ L'espace se tordit lorsque Wang Lin et Zhou Wutai apparurent. Zhou Wutai le guid
 
 Dans l'une des pièces de pierre, Wang Lin aperçut la mystérieuse formation que Zhou Wutai avait déplacée ici!
 
-Cette formation mesurait une centaine de pieds de large et occupait toute la pièce, laquelle était recouverte de glace.
+Cette formation mesurait une centaine de pieds de large et occupait toute la pièce, laquelle était recouverte de glace bleue.
 
 Une mèche de cheveux était figée au centre de la formation. Celle-ci semblait inactive depuis de nombreuses années et ne montrait aucun signe de fonctionnement.
 
 « Voici la formation », dit Zhou Wutai en l'observant, son visage trahissant la perplexité qu'il avait ressentie par le passé. « Je ne crois pas que le maître de Papillon Rouge ait pu placer une telle formation avec son niveau de culture. »
 
-Wang Lin entra dans la formation et baissa la tête pour l'examiner attentivement. Elle était extrêmement complexe et regorgeait de restrictions. Comme Zhou Wutai l'avait affirmé, ce n'était pas l'œuvre d'un cultivateur du premier échelon.
+Wang Lin entra dans la formation et baissa la tête pour l'examiner attentivement. Elle était extrêmement complexe et regorgeait de restrictions. Comme Zhou Wutai l'avait affirmé, ce n'était pas l'œuvre d'un cultivateur du premier pas.
 
 Zhou Wutai ajouta lentement: « Si la formation ne s'était pas déjà arrêtée lorsque je l'ai découverte, elle m'aurait blessé. »
 
@@ -72,7 +72,7 @@ Wang Lin resta silencieux et quitta la pièce. Il se tint au sommet de la statue
 
 « Peu importe la vérité, le fait que Papillon Rouge soit en vie est une bonne chose… Peut-être qu'en cet instant, elle se trouve ailleurs, contemplant la planète Suzaku… Je me demande si elle possède encore des souvenirs de ce lieu, si elle se souvient du passé… » La voix de Wang Lin était légère lorsqu'elle parvint aux oreilles de Zhou Wutai.
 
-« Je suis également heureux qu'elle ne soit pas morte… Il ne reste plus beaucoup d'amis, j'espère pouvoir la revoir un jour. » Zhou Wutai sourit avant de pousser un soupir et de hocher la tête. La haine du passé s'était dissipée depuis longtemps sous le passage du temps.
+« Je suis également heureux qu'elle ne soit pas morte… Il ne reste plus beaucoup d'amis, j'espère pouvoir la revoir de mon vivant. » Zhou Wutai sourit avant de pousser un soupir et de hocher la tête. La haine du passé s'était dissipée depuis longtemps sous le passage du temps.
 
 « Peut-être que je l'ai déjà croisée… » Les yeux de Wang Lin se plissèrent alors qu'il passait en revue les deux mille et quelques dernières années, mais il ne trouva aucune réponse.
 
@@ -94,7 +94,7 @@ Sa silhouette disparut de la statue de Suzaku. Zhou Wutai resta seul, immobile s
 
 Il but jusqu'à ce que le ciel s'obscurcisse. Puis, il leva les yeux vers la voûte céleste et se mit à rire, un rire empreint d'une profonde tristesse.
 
-Nul ne savait qu'autrefois, il avait toujours admiré Liu Mei. Même Wang Lin n'avait décelé cela qu'à travers l'expression de Zhou Wutai, mais que pouvait-il dire de plus...
+Nul ne savait qu'autrefois, il avait toujours été épris de Liu Mei. Même Wang Lin n'avait décelé cela qu'à travers l'expression de Zhou Wutai, mais que pouvait-il dire de plus...
 
 Wang Lin fit preuve de piété filiale en restant devant la tombe de ses parents pendant sept jours. Durant cette période, il ne bougea pas, restant assis devant le monument, buvant son vin.
 

@@ -44,13 +44,13 @@ Ceux qui se trouvaient au plus près de la Formation de Scellement du Royaume n'
 
 À cet instant, la corde de l'arc balaya la zone scellée par les Feuilles Anciennes. Il n'y eut aucun cri de détresse, car tout fut trop rapide. Ce n'est qu'une fois le passage de la corde terminé que les dizaines de milliers de cultivateurs du Royaume Extérieur s'effondrèrent. La corde de l'arc était une force qu'ils ne pouvaient supporter: ils furent tranchés en deux!
 
-Le flou Vieux Fantôme Zhan laissa échapper un ricanement et disparut sans laisser de trace alors que la corde de l'arc se rapprochait.
+Le Vieux Fantôme Zhan, flou, laissa échapper un ricanement et disparut sans laisser de trace alors que la corde de l'arc se rapprochait.
 
 Il était apparu soudainement et s'était éclipsé tout aussi brusquement. C'était comme s'il n'était venu que pour être témoin de quelque chose et ramener l'arc dans le Royaume Intérieur. De son arrivée à son départ, il n'avait même pas daigné regarder l'objet.
 
 Il était inutile de mentionner les cultivateurs présents; y compris Wang Lin, tous étaient insignifiants, semblables à des fourmis.
 
-« Si cet arc reconnaît un maître, il est un trésor. Sinon, il exigera votre force vitale pour être utilisé et sera extrêmement faible! Si l'un d'entre vous le désire, vous pouvez vous en servir pour jouer! » Sa voix résonna puis se dissipa lentement.
+« Si cet arc reconnaît un maître, il est un trésor. Mais personne ne peut le faire reconnaître comme maître; il exigera alors votre force vitale pour être utilisé et sera extrêmement faible! Si l'un d'entre vous le désire, vous pouvez vous en servir pour jouer! » Sa voix résonna puis se dissipa lentement.
 
 Tout cela se produisit en un instant. La corde balaya tout, la Formation de Scellement du Royaume s'effondra et d'innombrables vies furent fauchées. La corde semblait avoir libéré toute sa puissance, et l'arc à la corde brisée, que le Vieux Fantôme Zhan avait projeté dans le Royaume Intérieur, se dirigeait droit sur Wang Lin!
 

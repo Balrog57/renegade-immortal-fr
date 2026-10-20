@@ -42,7 +42,7 @@ Le visage de Zhao Xingsha était blême, tandis que celui de l'illusion commenç
 
 Les yeux de Wang Lin se glacèrent. D'une simple pensée, le drapeau des âmes apparut dans sa main. D'un coup sec, il fit croître le drapeau jusqu'à plus de 300 mètres, qui extirpa alors les âmes primaires du vortex rouge.
 
-Au moment où Wang Lin récupéra ses âmes, le démon au-dessus de Zhao Xingsha laissa échapper un rugissement terrassant. Ses yeux s'ouvrirent brusquement, révélant un regard capable de faire vaciller le cœur de n'importe quelle forme de vie. Son regard était d'une froideur absolue, plus glaçant encore que celui de ceux qui avaient cultivé l'insensibilité, et il perçait les os plus profondément que celui de ceux ayant tranché toute émotion.
+Au moment où Wang Lin récupéra ses âmes, le démon au-dessus de Zhao Xingsha laissa échapper un rugissement terrassant. Ses yeux s'ouvrirent brusquement, révélant un regard capable de faire vaciller le cœur de n'importe quelle forme de vie. Son regard était d'une froideur absolue, plusieurs fois plus glaçant que celui de ceux qui avaient cultivé l'insensibilité, et il perçait les os plus profondément que celui de ceux ayant tranché toute émotion.
 
 Wang Lin n'avait contemplé un tel regard que chez le messager des cieux, incarné en Dieu Ancien!
 
@@ -62,9 +62,9 @@ Le démon géant afficha une expression mystérieuse, puis plongea sa main dans 
 
 « Créature maléfique! Arrête-toi pour ce vieil homme! » Un rugissement retentit soudain depuis le secteur principal de la Secte du Destin Céleste.
 
-À l'écho de cette voix, le démon manifesta une expression de lutte avant de pousser un soupir et de relâcher la bête spirituelle. Le corps de celle-ci se rétracta instantanément pour ne devenir qu'un rayon de lumière verte, retournant ainsi vers Zhao Xingsha.
+À l'écho de cette voix, le démon manifesta une expression de lutte avant de pousser un soupir et de relâcher la bête spirituelle. Le corps du démon se rétracta instantanément pour ne devenir qu'un rayon de lumière verte, qui regagna le front de Zhao Xingsha.
 
-Le symbole sur le front de Zhao Xingsha fulgura violemment encore quelques fois avant de commencer à s'effacer. Ce dernier cracha une gorgée de sang en s'efforçant de contenir la contre-attaque de son propre pouvoir. Il fixa ensuite Wang Lin en affichant un sourire sinistre.
+Le symbole sur le front de Zhao Xingsha fulgura violemment encore quelques fois avant de commencer à s'effacer. Zhao Xingsha cracha une gorgée de sang en s'efforçant de contenir la contre-attaque de son propre pouvoir. Il fixa ensuite Wang Lin en affichant un sourire sinistre.
 
 Une fois libérée, la bête spirituelle ne lutta pas et ne rugit pas. Elle jeta un regard à Zhao Xingsha avant de regagner le char de guerre et de reprendre sa forme de piège à bêtes.
 

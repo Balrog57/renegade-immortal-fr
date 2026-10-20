@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2078 - Two Points
 slug: deux-points
 ---
-Les yeux du Maître Âme Écarlate devinrent rouges et il poussa un rugissement hystérique: « Faux! Personne ne peut créer un vortex reliant le Continent Astral Immortel pour invoquer un Grand Empyréen, tout cela est faux! N'essayez pas de tromper ce vieil homme!!! »
+Les yeux du Maître Âme Écarlate devinrent rouges et il poussa un rugissement hystérique: « Faux! Personne ne peut créer un vortex reliant le monde des grottes au Continent Astral Immortel pour arracher le sens divin d'un Grand Empyréen, tout cela est faux! N'essayez pas de tromper ce vieil homme!!! »
 
 Son expression était féroce et les veines de son front étaient saillantes. À cet instant, il oublia sa peur et sentit son esprit sur le point de s'effondrer face à une telle absurdité.
 
@@ -50,7 +50,7 @@ Avant de s'en aller, Wang Lin et le Maître du Dao Rêve Bleu discutèrent longu
 
 Wang Lin partit. Il voyagea à travers le vaste système stellaire pour atteindre la planète Suzaku. Il resta assis devant sa propre statue pendant plusieurs jours avant de repartir. Il se rendit ensuite sur la planète Tian Yun, devenue une ruine lors de la grande guerre.
 
-Là, Wang Lin déploya son Sens Divin et trouva l'entrée de la Terre des Esprits Démoniaques. Dans ce lieu familier qui fut autrefois la grotte de l'Empereur Céleste Qing Lin, il retrouva le parchemin qu'il avait jadis scellé au fond d'un abîme. Il libéra la femme qui s'y trouvait et lui permit d'entrer en réincarnation.
+Là, Wang Lin déploya son Sens Divin et trouva l'entrée de la Terre des Esprits Démoniaques. Dans ce lieu familier qui fut autrefois la grotte de l'Empereur Céleste Qing Lin, il le restaura et retrouva le rouleau qu'il avait jadis scellé au fond d'un abîme. Il libéra la femme qui s'y trouvait et lui permit d'entrer en réincarnation.
 
 La mystérieuse femme de l'époque n'avait plus d'importance pour Wang Lin.
 
@@ -70,7 +70,7 @@ Le corps du nouveau-né se trouvait au cœur de la planète et semblait dormir. 
 
 Ce sort exigeait qu'il réintègre un corps de bébé pour recommencer sa croissance.
 
-Wang Lin observa l'enfant jusqu'à son départ, plusieurs jours plus tard. Il laissa un Sens Divin pour Tuo Sen afin que, lors de son réveil, le nouveau-né puisse le ressentir.
+Wang Lin observa l'enfant jusqu'à son départ, plusieurs jours plus tard. Il laissa un Sens Divin pour Tuo Sen afin que, une fois grandi et réveillé, le bébé puisse le ressentir.
 
 Pour Wang Lin, le monde des grottes ne recelait plus de mystères. S'il en restait, ce serait l'Omniscient et le Daoïste aux Sept Couleurs. Cependant, toute trace de ces deux êtres avait disparu du monde des grottes.
 
@@ -126,7 +126,7 @@ Treize n'était pas le seul à garder la garde de Wang Lin; il y avait aussi le 
 
 Certains cherchèrent à la capturer, mais après avoir subi les conséquences et réalisé l'abîme qui les séparait de ce monstre, ils l'évitèrent tous, n'osant plus jamais le provoquer. La bête ne blessait personne et quittait parfois la planète pour s'amuser. Les habitants finirent par s'habituer à sa présence.
 
-Quant à Wang Lin et Mu Bingmei, ils étaient entrés dans une grotte de la montagne dix ans auparavant. Wang Lin avait utilisé son Dao des Rêves pour les mener vers la résolution de leur problème et de l'ombre intérieure qu'était Liu Mei. Peut-être qu'une fois ce conflit résolu, la relation entre Wang Lin et Mu Bingmei en serait transformée.
+Quant à Wang Lin et Mu Bingmei, ils étaient entrés dans une grotte de la montagne dix ans auparavant. Wang Lin avait utilisé son Dao des Rêves pour les mener vers la résolution de leur problème et du nœud et de la barrière intérieurs propres à Liu Mei. Peut-être qu'une fois ce conflit résolu, la relation entre Wang Lin et Mu Bingmei en serait transformée.
 
 Le temps passa. En un éclair, dix autres années s'écoulèrent.
 

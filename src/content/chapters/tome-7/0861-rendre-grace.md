@@ -74,7 +74,7 @@ Ces jeunes n'avaient aucune importance en soi, mais le fait que les anciens de l
 
 Lui aussi était au stade Scruteur du Nirvana, et comme Wang Lin, il en était au début. Cependant, il évoluait dans ce stade depuis longtemps et avait déjà atteint le sommet du premier niveau du Scruteur du Nirvana.
 
-Dans le Système Stellaire Tout-Ciel, parmi les familles de culture ordinaires, des cultivateurs du stade Yin et Yang pouvaient être considérés comme les ancêtres d'une lignée. À moins de circonstances exceptionnelles, il était rare de voir apparaître des cultivateurs au stade Scruteur du Nirvana.
+Dans le Système Stellaire Tout-Ciel, parmi les familles de culture ordinaires, des cultivateurs du stade Yin et Yang pouvaient être considérés comme les ancêtres d'une lignée. À moins de circonstances exceptionnelles, il était impossible de voir apparaître des cultivateurs au stade Scruteur du Nirvana.
 
 Seules les familles de culture des planètes principales possédaient des cultivateurs au stade Scruteur du Nirvana, mais en nombre restreint; un seul par famille était la limite habituelle.
 

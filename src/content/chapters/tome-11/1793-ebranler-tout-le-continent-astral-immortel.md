@@ -8,7 +8,7 @@ slug: ebranler-tout-le-continent-astral-immortel
 ---
 Au plus profond de la mer, l'expression de Miao Yin était féroce, mais ses pupilles se contractèrent et ses yeux se remplirent de terreur.
 
-« Vous avez déjà tué mon avatar et pris son âme. Notre rancune aurait dû s'éteindre, alors pourquoi êtes-vous ici pour me tuer?! Il est difficile pour des cultivateurs comme nous d'atteindre un tel niveau de culture. Si vous me traitez ainsi aujourd'hui, quelqu'un fera de même avec vous dans le futur! »
+« Vous avez déjà tué mon avatar et pris mon fragment d'âme. Notre rancune aurait dû s'éteindre, alors pourquoi êtes-vous ici pour me tuer?! Il est difficile pour des cultivateurs comme nous d'atteindre un tel niveau de culture. Si vous me traitez ainsi aujourd'hui, quelqu'un fera de même avec vous dans le futur! »
 
 La voix du Maître Dao Miao Yin était perçante et résonna depuis les abysses. Le son se propagea sur l'océan doré, déclenchant une vague gigantesque. Un immense vortex se forma et se précipita vers Miao Yin.
 
@@ -40,7 +40,7 @@ Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il
 
 Son regard balaya les étoiles et son corps disparut.
 
-Dans la partie sud du Système d'Étoiles Anciennes, se trouvait une zone jonchée de débris. Une planète s'y trouvait autrefois, mais elle s'était effondrée, créant un désert de mort parsemé de roches.
+Dans la partie sud du Système Stellaire Antique, se trouvait une zone jonchée de débris. Une planète s'y trouvait autrefois, mais elle s'était effondrée, créant un désert de mort parsemé de roches.
 
 Le Maître Céleste Dieu du Vide demeurait ici. Il avait renoncé à entrer dans le Royaume Intérieur et même à toute idée de combat. Toutefois, lui-même ignorait si cette situation était temporaire ou permanente.
 
@@ -72,9 +72,9 @@ Wang Lin se tenait sur un rocher à mille pieds du Maître Céleste Dieu du Vide
 
 « Toi... » Le visage du Maître Céleste Dieu du Vide se décomposa et d'innombrables pensées traversèrent son esprit, mais il finit par laisser échapper un long soupir.
 
-« Tu t'en vas et tu ne te sens pas en sécurité en laissant ce vieil homme ici. As-tu pensé qu'une fois que tu seras parti, de nouvelles générations naîtront dans le Système d'Étoiles Anciennes? Certains pourraient être plus puissants que moi! Vas-tu tous les exterminer? »
+« Tu t'en vas et tu ne te sens pas en sécurité en laissant ce vieil homme ici. As-tu pensé qu'une fois que tu seras parti, de nouvelles générations naîtront dans le Système Stellaire Antique? Certains pourraient être plus puissants que moi! Vas-tu tous les exterminer? »
 
-« Je ne peux pas tous les tuer, mais je peux sceller les différents clans du Système d'Étoiles Anciennes et forcer les cultivateurs de la troisième étape à se réincarner! S'ils refusent d'obéir, alors je les tuerai! » Les paroles de Wang Lin étaient calmes, mais leur portée était terrifiante.
+« Je ne peux pas tous les tuer, mais je peux sceller les différents clans du Système Stellaire Antique et forcer les cultivateurs de la troisième étape à se réincarner! S'ils refusent d'obéir, alors je les tuerai! » Les paroles de Wang Lin étaient calmes, mais leur portée était terrifiante.
 
 Le Maître Céleste Dieu du Vide resta silencieux un long moment, fixant Wang Lin avec une crainte accrue.
 
@@ -104,15 +104,15 @@ Des dizaines de Feuilles Anciennes apparurent pour former un vortex. Elles s'él
 
 « Désormais, tout pouvoir de franchir les étoiles est scellé pour ce clan. Leur culture ne pourra jamais dépasser le stade de Briseur du Nirvana! Ils n'auront plus jamais le droit de fouler les étoiles! » Wang Lin agita sa manche et s'éloigna.
 
-Tandis qu'il avançait, tous les clans possédant un cultivateur de la troisième étape subirent le même sort dans le Système d'Étoiles Anciennes. Les maîtres de la troisième étape furent contraints à la réincarnation et leurs clans furent scellés.
+Tandis qu'il avançait, tous les clans possédant un cultivateur de la troisième étape subirent le même sort dans le Système Stellaire Antique. Les maîtres de la troisième étape furent contraints à la réincarnation et leurs clans furent scellés.
 
 Afin de garantir la sécurité du Royaume Intérieur pour les éternités à venir, Wang Lin avait accompli cet acte aussi choquant que tyrannique! Il emmenait avec lui tous les cultivateurs de la troisième étape restants!
 
-Il scella tous les clans sur son passage, même ceux dépourvus de maître de la troisième étape. En conséquence, il deviendrait extrêmement difficile pour des cultivateurs de ce niveau d'apparaître dans le Système d'Étoiles Anciennes. Pendant des millénaires, aucun cultivateur ne pourrait voyager parmi les étoiles, car ils seraient incapables de quitter leurs planètes!
+Il scella tous les clans sur son passage, même ceux dépourvus de maître de la troisième étape. En conséquence, il deviendrait extrêmement difficile pour des cultivateurs de ce niveau d'apparaître dans le Système Stellaire Antique. Pendant des millénaires, aucun cultivateur ne pourrait voyager parmi les étoiles, car ils seraient incapables de quitter leurs planètes!
 
 Car Wang Lin avait laissé des sceaux mystérieux sur leurs clans et leurs mondes!
 
-« Il n'est pas nécessaire de s'inquiéter du Système d'Étoiles Anciennes... Quant aux autres lieux, il n'est pas encore temps de les explorer... » Wang Lin se tenait devant la formation séparant les Royaumes Intérieur et Extérieur. Il contempla longuement le Système d'Étoiles Anciennes avant de franchir la barrière pour se diriger vers Luotian.
+« Il n'est pas nécessaire de s'inquiéter du Système Stellaire Antique... Quant aux autres lieux, il n'est pas encore temps de les explorer... » Wang Lin se tenait devant la formation séparant les Royaumes Intérieur et Extérieur. Il contempla longuement le Système Stellaire Antique avant de franchir la barrière pour se diriger vers Luotian.
 
 À ce stade, Wang Lin avait accompli sa dernière tâche dans le monde des grottes; il était sur le point de partir!
 

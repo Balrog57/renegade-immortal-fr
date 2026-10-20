@@ -40,7 +40,7 @@ Zhan Konglie fronça les sourcils et regarda inconsciemment Wang Lin. Il dit len
 
 Shengong Hu ricana sans toutefois s'expliquer. Il dit froidement: « Si tu ne pars pas dans trois respirations, alors autant ne plus repartir du tout! » Il éprouvait une certaine aversion pour cet homme talentueux de la famille Zhan. Si leurs forces n'étaient pas si proches, les deux se seraient déjà affrontés.
 
-Si ce Zhan Konglie persistait dans son ingratitude et perturbait la culture de son Senior, il l'attaquerait, même avec une culture endommagée. Tant que le Senior jetterait sur Zhan Konglie le même regard qu'autrefois sur Shengong Hu, cela suffirait à faire s'effondrer ce dernier!
+Si ce Zhan Konglie persistait dans son ingratitude et perturbait la culture de son Senior, il l'attaquerait, même avec une culture endommagée. Tant que le Senior jetterait sur Zhan Konglie le même regard qu'autrefois sur Shengong Hu, cela suffirait à faire s'effondrer Zhan Konglie!
 
 Après tout, cet homme n'était pas un messager du Temple Céleste du Tonnerre. Bien que le tuer soit problématique, tant que le Senior était là, ce ne serait qu'une mince affaire.
 
@@ -54,13 +54,13 @@ Le regard de la Bête de Tonnerre fit trembler l'esprit de Zhan Konglie. Bien qu
 
 Les informations révélées par les yeux de la bête étaient trop lourdes à concevoir. La réponse que ce regard suggérait fit vaciller l'âme de Zhan Konglie!
 
-En raison de sa prudence naturelle, il recula sans hésiter et cria: « Shengong Hu, je suis un homme de considération. Si nous nous battons ici, cela perturbera inévitablement la culture de ton junior. Si tu veux combattre, quittons cet endroit pour nous affronter hors du champ d'astéroïdes! » Il insista lourdement sur le mot « junior ».
+En raison de sa prudence naturelle, il recula sans hésiter et cria: « Shengong Hu, je suis un homme droit. Si nous nous battons ici, cela perturbera inévitablement la culture de ton junior. Si tu veux combattre, quittons cet endroit pour nous affronter hors du champ d'astéroïdes! » Il insista lourdement sur le mot « junior ».
 
 Le regard de Shengong Hu devint glacial alors qu'il sortait du lac de tonnerre et ricana: « Pourquoi s'embêter ainsi? Ici, cela fera très bien l'affaire! »
 
 Plus Shengong Hu agissait ainsi, plus Zhan Konglie était plongé dans le doute. Il préférait la retraite à l'attaque; il était clair que Shengong Hu tentait de le forcer à l'engagement.
 
-En repensant au regard de la Bête de Tonnerre, une idée absurde germa dans l'esprit de Zhan Konglie. Ses yeux s'illuminèrent, sa main traça un sceau et un rayon de tonnerre pourpre apparut dans sa paume. L'épée de bois pourpre sous ses pieds libéra une puissante énergie de sabre. Les deux forces fusionnèrent pour créer une pression écrasante.
+En repensant au regard de la Bête de Tonnerre, une idée absurde germa dans l'esprit de Zhan Konglie. Ses yeux s'illuminèrent, ses mains tracèrent un sceau et un rayon de tonnerre pourpre apparut dans ses paumes. L'épée de bois pourpre sous ses pieds libéra une puissante énergie de sabre. Les deux forces fusionnèrent pour créer une pression écrasante.
 
 Cette pression contenait de l'énergie originelle. Il utilisait déjà un sort originel. Il était évident que Zhan Konglie traitait ce combat avec une extrême prudence.
 

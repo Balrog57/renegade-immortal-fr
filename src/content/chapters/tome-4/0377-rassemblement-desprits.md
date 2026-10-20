@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 377 - Gathering Spirits
 slug: rassemblement-desprits
 ---
-Wang Lin observa attentivement la jeune fille alors qu'elle s'éloignait en flottant pour franchir les portes de la Secte de l'Affinement de l'Âme.
+Wang Lin observa attentivement la jeune femme alors qu'elle s'éloignait en flottant pour franchir les portes de la Secte de l'Affinement de l'Âme.
 
 « Cette personne m'est familière... » Wang Lin la dévisagea une nouvelle fois et réfléchit, mais il ne parvint pas à se remémorer où il l'avait déjà vue.
 
@@ -118,7 +118,7 @@ Les mouvements de la main de Wang Lin s'accélérèrent jusqu'à ce que toutes l
 
 La formation trembla violemment, puis une force puissante en jaillit et se propagea. Wang Lin esquiva l'onde de choc et fixa la structure.
 
-Une fois la force dissipée, la formation cessa de fonctionner et l'énergie spirituelle s'interrompit. Wang Lin s'approcha et pointa la formation du doigt. Dans un bruit de craquement, celle-ci se brisa, révélant une pierre spirituelle de la taille d'un poing.
+Une fois la force dissipée, la formation cessa de fonctionner et l'énergie spirituelle s'interrompit. Wang Lin s'approcha et pointa la formation du doigt. Dans un bruit de craquement, celle-ci s'effaça peu à peu, révélant une pierre spirituelle de la taille d'un poing.
 
 La pierre était rouge et semblait contenir des nuages en mouvement à l'intérieur. Wang Lin l'identifia immédiatement: il s'agissait d'une Pierre Kun Cristalline. Elle possédait la capacité d'absorber l'énergie spirituelle, mais non celle de la stocker.
 

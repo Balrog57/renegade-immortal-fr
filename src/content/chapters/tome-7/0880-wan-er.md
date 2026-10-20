@@ -40,7 +40,7 @@ Qing Shui regarda calmement Wang Lin. Il espérait que Wang Lin entrerait dans l
 
 Xu Ting réfléchit un instant et fixa Wang Lin. Il serra les dents et marcha vers le bassin céleste. Il avait été arrogant toute sa vie, et parmi ses pairs, nul n'était digne de lui. Après avoir quitté la planète Dong Lin, personne ne l'avait égalé!
 
-Cependant, lors de la compétition céleste du Temple Céleste du Tonnerre, il avait été battu à plusieurs reprises par Wang Lin. Puis, sur le chemin menant aux cieux, il avait été tué. Il ne pouvait l'accepter!
+Cependant, lors de la compétition céleste du Temple Céleste du Tonnerre, il avait été battu à plusieurs reprises par Wang Lin. Puis, lors de l'épreuve Une Ligne vers les Cieux, il avait été tué. Il ne pouvait l'accepter!
 
 Xu Ting éprouvait une pointe d'admiration pour Wang Lin. Toutefois, cette admiration était insignifiante face à son sentiment d'injustice. S'il continuait ainsi, il savait qu'il lui serait difficile de surpasser Wang Lin. Il devait emprunter une autre voie et réaliser un bond qualitatif!
 
@@ -64,7 +64,7 @@ La performance de Xu Ting influença immédiatement l'esprit des cultivateurs in
 
 Tous ceux qui en sortirent étaient empreints de joie. Le sentiment de puissance et le contrôle absolu sur leurs sorts célestes leur firent oublier tout regret d'avoir choisi cette voie.
 
-Wang Lin regarda calmement le bassin céleste. Son cœur était tourmenté par des sentiments complexes. Il avait vu la troisième étape, et dans le Royaume Céleste, il avait vu l'Empereur Céleste Bai Fan perdre la raison en pointant le ciel du doigt.
+Wang Lin regarda calmement le bassin céleste. Son cœur était tourmenté par des sentiments complexes. Il avait vu la troisième étape, et dans le Royaume Céleste, il avait appris que l'Empereur Céleste Bai Fan avait perdu la raison en pointant le ciel du doigt.
 
 Tout cela était empreint de mystère. Cultiver en tant qu'être céleste n'était pas simple. Il ne pouvait déterminer si cette voie était juste ou mauvaise, mais il n'était pas prêt à choisir.
 

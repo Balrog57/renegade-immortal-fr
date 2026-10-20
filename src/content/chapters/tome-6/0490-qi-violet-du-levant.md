@@ -20,13 +20,13 @@ En un clin d'œil, la forêt environnante avait cessé d'exister, ne laissant de
 
 Les yeux de l'individu brillèrent comme des étoiles lorsqu'il commença à aspirer l'énergie avec force. Toute l'aura qui s'était dispersée revint vers lui et pénétra son corps par sa bouche.
 
-Cette scène évoquait un dragon céleste dévorant les nuages et buvant la mer. Une fois toute l'aura réabsorbée, le jeune homme laissa échapper un long cri qui ébranla les cieux et la terre.
+Cette scène évoquait un dragon des nuages avalant la brume et une baleine géante engloutissant la mer. Une fois toute l'aura réabsorbée, le jeune homme laissa échapper un long cri qui ébranla les cieux et la terre.
 
 Au milieu de ce cri, il se leva. Sa silhouette n'était pas imposante, mais sous la lumière lunaire, il semblait capable de soutenir la voûte céleste. Son image resterait gravée à jamais dans le cœur de ceux qui l'auraient vu.
 
 « Division Pourpre... je viens! » murmura le jeune homme. C'était Wang Lin!
 
-Le regard de Wang Lin était serein lorsqu'il fit un pas en avant et disparut du sommet du pilier. Lorsqu'il réapparut à plusieurs centaines de mètres dans les airs, une lumière argentée surgit et exerça une force puissante pour le repousser.
+Le regard de Wang Lin était serein lorsqu'il fit un pas en avant et disparut du sommet du pilier. Lorsqu'il réapparut à plus d'un kilomètre dans les airs, une lumière argentée surgit et exerça une force puissante pour le repousser.
 
 Sa position actuelle représentait la limite qu'il avait atteinte trois mois auparavant. À l'époque, c'était là son point de rupture. Cependant, aujourd'hui, son expression était calme; loin de ralentir, il accéléra telle une météorite perçant le ciel.
 
@@ -52,7 +52,7 @@ Wang Lin murmura doucement: « Doigt Démoniaque! » Des ondes de lumière démo
 
 « Situ a dit que plus mon niveau de culture est élevé, plus le Doigt Démoniaque sera puissant. J'ai atteint le stade intermédiaire de la Transformation de l'Âme, ce sort est donc au moins plusieurs fois plus puissant qu'auparavant. Je parviendrai certainement à briser cette formation! »
 
-Alors que l'énergie spirituelle céleste affluait dans son corps, son teint changea et une aura maléfique apparut, accompagnée d'une flamme dans sa main.
+Alors que l'énergie spirituelle céleste affluait dans son corps, son teint changea et une aura maléfique apparut, accompagnée d'une étincelle violette sur son index.
 
 Une aura démoniaque monstrueuse émanait de cette flamme. Cette aura libéra un éclat pourpre qui illumina toute la zone.
 
@@ -102,7 +102,7 @@ Dans la Division Pourpre, quelqu'un avait utilisé un puissant sortilège pour a
 
 De loin, toute la Division Pourpre semblait recouverte par cette couche de nuages s'étendant sur plus d'une centaine de kilomètres, comme si elle flottait dans le Royaume Céleste. Sur ces nuages blancs étaient disposées d'innombrables petites tables, et de nombreux disciples de la Division Pourpre servaient les invités sur ces plateformes célestes.
 
-Les convives de la Division Pourpre provenaient de diverses sectes de la planète Tian Yun. Parmi eux se trouvaient des individus à haut niveau de culture, mais en petit nombre. Ces sectes étaient considérées comme les plus faibles de la planète et ne pouvaient séjourner dans la Division Pourpre que pour la durée des festivités.
+Les convives de la Division Pourpre provenaient de diverses sectes de la planète Tian Yun. Parmi eux se trouvaient des individus à haut niveau de culture, mais en petit nombre. Ces sectes, dont la puissance se situait au bas de l'échelle de la planète, ne pouvaient que s'asseoir aux banquets de la Division Pourpre.
 
 Sur les nuages surplombant la Division Pourpre, le frère aîné Zhao Xingsha occupait naturellement la place d'honneur. À sa droite siégeaient le Deuxième Frère, puis le Troisième Frère Bai Wei, suivi de la Quatrième Sœur, au stade avancé de la Transformation de l'Âme. Après elle, trois sièges restaient vides.
 

@@ -28,7 +28,7 @@ Des murmures parcoururent les gradins environnants.
 
 « Qui sait... ce tambour démoniaque est fabriqué à partir de la peau d'un démon ancien. Même si Yu Sen parvient à le faire résonner, il sera blessé par le contrecoup. »
 
-Les huit commandants en chef observaient également Yu Sen avec intérêt. Cependant, ils n'avaient nul besoin de discourir comme la foule; un simple regard leur suffisait pour discerner la situation avec précision.
+Les huit commandants en chef observaient également Yu Sen avec intérêt. Cependant, ils n'avaient nul besoin de discourir comme la foule; un simple regard leur suffisait pour discerner la situation dans neuf cas sur dix.
 
 Bien que les six vice-commandants en chef ne possèdent pas la même clairvoyance que les commandants en chef, leur niveau de culture élevé leur permettait de percevoir certains indices. Seul le Vice-Commandant Xuan ne regardait pas Yu Sen, mais fixait Wang Lin.
 

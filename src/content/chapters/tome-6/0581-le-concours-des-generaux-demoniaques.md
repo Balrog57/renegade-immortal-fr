@@ -34,7 +34,7 @@ En voyant Wang Lin, il eut l'impression de se tenir au pied d'une montagne s'él
 
 « Tu es blessé... » Wang Lin ferma les yeux et toute l'aura qu'il dégageait se rétracta instantanément en lui, sans la moindre fuite. À cet instant, aucune fluctuation ne subsistait autour de son corps; il semblait n'être qu'un simple mortel.
 
-Le sentiment de Mo Lihai changea à nouveau. Si Wang Lin ressemblait auparavant à une montagne immensément haute, il était désormais comme un gouffre insondable. Bien qu'il ne paraisse pas très profond, quiconque y plongerait y mourrait sans même pouvoir être enterré dignement.
+Le sentiment de Mo Lihai changea à nouveau. Si Wang Lin ressemblait auparavant à une montagne immensément haute, il était désormais comme un gouffre insondable. Bien qu'il paraisse aussi calme qu'un vieux puits sans ride, quiconque y plongerait y mourrait sans même pouvoir être enterré dignement.
 
 Mo Lihai prit une profonde inspiration et dit: « J'ai perdu le combat contre Mo Fei! »
 
@@ -56,7 +56,7 @@ Mo Lihai regarda Wang Lin et avoua honnêtement: « Je l'ai utilisé. C'est le s
 
 Wang Lin dit calmement: « Je ferai de mon mieux! »
 
-Mo Lihai prit une profonde inspiration et joignit les mains. « Merci infiniment, Frère Wang. Je ne te dérangerai plus. Demain, nous irons ensemble au palais impérial! » Sur ces mots, il s'inclina une dernière fois et partit.
+Mo Lihai prit une profonde inspiration et joignit les mains. « Merci infiniment, Frère Wang. Je ne te dérangerai plus. Demain, nous irons ensemble dans la cité impériale! » Sur ces mots, il s'inclina une dernière fois et partit.
 
 Sa silhouette laissait transparaître une pointe de mélancolie.
 
@@ -64,13 +64,13 @@ Wang Lin resta silencieusement dans la cour et ferma les yeux.
 
 Il resta ainsi toute la nuit!
 
-Au petit matin, le soleil se leva, chassant l'obscurité de la Cité du Démon Céleste. Tandis que les rayons frappaient le palais impérial, une puissante intention de combat émana des huit cités.
+Au petit matin, le soleil se leva, chassant l'obscurité de la Cité du Démon Céleste. Tandis que les rayons frappaient la cité impériale, une puissante intention de combat émana des huit cités extérieures.
 
 À l'intérieur de la cité impériale, sur la place de 33 kilomètres, trônait un gigantesque tambour de guerre!
 
-Ce tambour était d'un noir absolu et dégageait une aura antique qui enveloppait toute la zone.
+Ce tambour était d'un noir absolu et dégageait une aura antique qui s'étendait sur cinq mille kilomètres.
 
-Des escouades de soldats démoniaques en armures noires sortirent pour encercler la place, quand soudain, un homme s'élança avec la rapidité de l'éclair. Ses cheveux blancs flottaient dans les airs comme ceux d'un dieu de la guerre et son poing frappa le tambour de guerre.
+Des escouades de soldats démoniaques en armures noires sortirent pour encercler la place, quand soudain, un homme s'élança avec la rapidité de l'éclair et s'éleva dans les airs. Ses cheveux blancs flottaient dans les airs comme ceux d'un dieu de la guerre et son poing frappa le tambour de guerre.
 
 Dong!
 
@@ -86,7 +86,7 @@ Un à un, les généraux démoniaques menèrent leurs serviteurs et assistants s
 
 Les huit portes de la cité impériale s'ouvrirent. De nombreux soldats démoniaques étaient postés aux entrées pour vérifier l'identité des généraux avant de les laisser passer.
 
-Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte du Démon Céleste. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de large. D'innombrables fonctionnaires de la Cité du Démon Céleste apparurent et prirent place.
+Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte du Démon Céleste. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de large. D'innombrables fonctionnaires de la Cité du Démon Céleste apparurent et prirent place derrière leurs tables.
 
 Il n'y avait qu'un seul siège au sommet, celui de l'Empereur Démon!
 
@@ -144,7 +144,7 @@ Les huit se saluèrent d'un geste solennel avant de rejoindre leurs sièges resp
 
 Leur apparition capta l'attention de tous, et les yeux de la foule brillèrent d'admiration. Le respect qu'ils inspiraient n'était surpassé que par celui dû à l'Empereur Démon!
 
-Même dans tout le Pays des Esprits Démoniaques, leurs noms étaient célèbres et presque tout le monde les connaissait!
+Même dans toute la Terre des Esprits Démoniaques, leurs noms étaient célèbres et presque tout le monde les connaissait!
 
 Dong! Le troisième coup de tambour retentit sur la zone comme un tonnerre plusieurs fois plus violent que les précédents. Il se propagea sur 500 kilomètres, emplissant les oreilles de chacun de ce fracas.
 

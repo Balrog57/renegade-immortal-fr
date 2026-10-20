@@ -58,7 +58,7 @@ Wang Lin observa le Bassin Dong Lin durant un long moment avant de prendre une p
 
 En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla. Un grondement résonna dans son esprit et il sembla se souvenir de quelque chose.
 
-« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel au Grand Empyréen Dao Yi et à mon Maître sans attirer leur attention... »
+« Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel pendant le combat du Grand Empyréen Dao Yi et de mon Maître, sans attirer leur attention... »
 
 « Pourquoi est-ce que, dans le monde de la grotte, Rêve Bleu et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Astral Immortel, même à présent, personne ne l'a remarqué... »
 
@@ -96,7 +96,7 @@ La montagne était la même et l'eau restait limpide. D'innombrables disciples d
 
 Tout était calme, tout était paisible. On entendait les échos des conférences de Dao provenant de la grande salle où de nombreux disciples écoutaient avec attention.
 
-Au loin, des éclairs de lumière fusaient entre les montagnes et des nuées de grues célestes sillonnaient le ciel... Au sol, de petites bêtes captives poussaient des cris joyeux. Une belle femme souriait en nourrissant ces créatures de pilules.
+Au loin, de longues traînées de lumière fusaient entre les montagnes et des nuées de grues célestes sillonnaient le ciel... Au sol, de petites bêtes captives poussaient des cris joyeux. Une belle femme souriait en nourrissant ces créatures de pilules.
 
 Plus loin encore, dans le jardin d'herbes de la Secte Dong Lin, les disciples s'occupaient des plantes selon les ordres de leur maître.
 

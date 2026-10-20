@@ -22,7 +22,7 @@ Wang Lin traversait lui aussi le vide, se dirigeant vers la position de Shengong
 
 Par conséquent, il ne pouvait pas se déplacer très vite, car il devait rester vigilant face aux mutations de l'espace qui l'entourait.
 
-En plein vol, outre les gémissements déchirants, des explosions résonnaient à travers le vide. Ce tumulte devenait de plus en plus assourdissant à mesure que Wang Lin approchait des fragments en pleine désintégration.
+En plein vol, outre les gémissements déchirants, des bruits sourds résonnaient à travers le vide. Ce bruit devenait de plus en plus net à mesure que Wang Lin approchait des fragments en pleine désintégration.
 
 En chemin, il vit de ses propres yeux deux fragments s'effondrer en une masse colossale de débris. La moitié était aspirée par les failles spatiales, tandis que l'autre moitié était projetée dans toutes les directions.
 
@@ -34,7 +34,7 @@ Wang Lin n'avait aucune inquiétude à se faire. Que ce soit par son sort d'arr�
 
 Toutefois, plus il avançait, plus les fissures se multipliaient. C'était comme si une feuille de papier noire avait été déchirée en d'innombrables endroits et pouvait se désintégrer totalement à tout instant.
 
-Wang Lin fronça les sourcils. Il sentait vaguement qu'une distance considérable le séparait de Shengong Hu. Il ne pourrait pas le rattraper dans un avenir proche.
+Wang Lin fronça les sourcils. Il sentait vaguement qu'une certaine distance le séparait de Shengong Hu. Il ne pourrait pas le rattraper dans un avenir proche.
 
 Après une courte réflexion, ses yeux s'illuminèrent; il pressa alors son doigt entre ses sourcils. Il ouvrit la bouche et cracha un grain de sable qui se métamorphosa instantanément en un fragment gigantesque d'environ mille pieds de large.
 

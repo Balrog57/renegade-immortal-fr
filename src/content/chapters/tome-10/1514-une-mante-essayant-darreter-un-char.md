@@ -78,7 +78,7 @@ Au moment même où la sculpture se formait, une chaleur intense jaillit de la g
 
 De nouveaux fracas tonitruants retentirent et la glace se brisa. Cependant, le poing de Wang Lin ne vacilla pas et ne fut nullement bloqué. Il fonça vers Shui Daozi avec une puissance capable de détruire le monde!
 
-Tout cela se passa à une vitesse fulgurante. En un instant, le poing de Wang Lin percuta Shui Daozi. Les veines sur le visage de ce dernier gonflèrent et il poussa un cri qui ressemblait presque à un sifflement. Il leva la main pour tenter de résister à l'impact!
+Tout cela se passa à une vitesse fulgurante. En un instant, le poing de Wang Lin percuta Shui Daozi. Les veines sur le visage de ce dernier gonflèrent et il poussa un cri qui ressemblait presque à un sifflement. Il leva les mains pour tenter de résister à l'impact!
 
 Pourtant, dès que ses bras pressèrent contre le poing géant, des bruits de rupture retentirent et ses membres s'effondrèrent. Tandis que sa chair et son sang explosaient, même ses os se brisaient centimètre par centimètre!
 

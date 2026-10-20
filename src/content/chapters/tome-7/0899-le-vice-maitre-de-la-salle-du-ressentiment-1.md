@@ -12,7 +12,7 @@ Une ombre illusoire apparut au-dessus de la plante brisée. C'était une silhoue
 
 L'expression de Wang Lin resta sereine tandis qu'il fixait la figure encapuchonnée et déclarait froidement: « Un simple esprit originel du stade Scruteur du Nirvana. Je veux voir comment tu comptes me faire payer de ma vie! »
 
-La main droite de Wang Lin forma un sceau et, d'un geste sec du doigt, la Paire Dao du Flétrissement qu'il portait s'élança. Lorsque l'os de bête apparut, une lueur fantomatique brilla dans ses yeux. Une puissante aura maléfique se propagea, teintant la plante d'une lumière grise.
+La main droite de Wang Lin forma un sceau et, d'un geste sec du doigt, la Paire Dao Fanée qu'il portait s'élança. Lorsque l'os de bête apparut, une lueur fantomatique brilla dans ses yeux. Une puissante aura maléfique se propagea, teintant la plante d'une lumière grise.
 
 L'homme en robe noire leva la tête et fixa Wang Lin sans même accorder un regard à la plante avant de s'envoler. La végétation sous lui s'effondra et se dispersa instantanément.
 
@@ -20,7 +20,7 @@ Des filaments de gaz pourpre s'échappèrent de la plante dévastée pour péné
 
 Les yeux de Wang Lin brillèrent; il fit un pas en avant et ses deux doigts formèrent une épée. Il pointa l'avant, et d'innombrables éclairs jaillirent du vide, engendrant un orage déchaîné. Sous la direction de Wang Lin, la tempête de tonnerre fondit sur l'homme en robe noire.
 
-Le visage de ce dernier se voila d'ombre; il recula aussitôt tout en formant un sceau. Un écran circulaire et noir apparut devant lui. Au moment où l'orage le percuta, une explosion tonitruante fit vibrer la grotte.
+Le visage de ce dernier se voila d'ombre; il recula aussitôt tout en formant un sceau. Un écran circulaire et noir apparut autour de lui. Au moment où l'orage le percuta, une explosion tonitruante fit vibrer la grotte.
 
 L'ensemble de la caverne commença à s'effondrer massivement. L'homme en robe noire laissa échapper un gémissement étouffé et se retira précipitamment.
 
@@ -40,7 +40,7 @@ Wang Lin ne répondit pas. Il se déplaça avec la rapidité de l'éclair pour p
 
 Les yeux de Liu Qingyun étaient empreints de méfiance et il fulmina intérieurement. S'il avait choisi cette planète à moitié abandonnée, c'était parce qu'elle ne possédait rien de valeur capable d'attirer des cultivateurs de ce rang. Son plan était de passer tranquillement des milliers d'années ici pour posséder ce corps, puis de retourner à la Salle pour briguer le poste de Maître de Salle.
 
-Cependant, il n'aurait jamais imaginé attirer un tel expert au moment crucial. Son esprit s'agita: il fut convaincu qu'il s'agissait d'un complot des autres Vice-Maîtres de Salle. Ils avaient dû recevoir des bénéfices occultes pour venir détruire sa base, planifiant de l'attaquer alors qu'il n'était encore qu'une âme originelle afin de l'anéantir sur le coup!
+Cependant, il n'aurait jamais imaginé attirer un tel expert au moment crucial. Son esprit s'agita: il fut convaincu qu'il s'agissait d'un complot des autres Vice-Maîtres de Salle. Ils avaient dû recevoir des bénéfices occultes pour venir saboter sa possession, planifiant de l'attaquer alors qu'il n'était encore qu'une âme originelle afin de l'anéantir sur le coup!
 
 « Maudit soit! Pour ne pas attirer l'attention des autres Vice-Maîtres, j'avais été d'une prudence extrême. Je n'avais même pas envoyé de subordonnés pour me protéger, me contentant de manipuler les choses dans l'ombre. Je ne m'attendais pas à ce que ma position soit découverte! » Liu Qingyun était sombre; tout en reculant, il scrutait attentivement le groupe de Wang Lin.
 
@@ -70,7 +70,7 @@ Liu Qingyun eut un sourire amer. Il savait qu'il ne pourrait échapper à un ma�
 
 Wang Lin le fixa et demanda lentement: « Comment comptez-vous me rembourser? »
 
-Liu Qingyun serra les dents: « J'ai l'esprit originel d'un cultivateur du Scruteur du Nirvana, qu'en dites-vous? » Il s'agissait de l'âme de son ennemi mortel. Des années auparavant, il avait utilisé le pouvoir de la Secte des Cadavres pour détruire le corps de son adversaire et capturer son âme. Il avait initialement prévu de l'utiliser pour raffiner une marionnette, mais en cet instant critique, il était prêt à s'en défaire.
+Liu Qingyun serra les dents: « J'ai l'esprit originel d'un cultivateur du Scruteur du Nirvana, qu'en dites-vous? » Il s'agissait de l'âme de son ennemi mortel. Des années auparavant, il avait utilisé le pouvoir de la Secte des Cadavres pour détruire le corps de son adversaire et capturer son âme. Il avait initialement prévu de l'utiliser pour raffiner une marionnette, mais en cet instant critique, il était prêt à s'en défaire, le cœur déchiré.
 
 L'expression de Wang Lin resta impassible: « Oh? Apportez-le. »
 

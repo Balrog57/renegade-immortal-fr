@@ -46,7 +46,7 @@ La main droite de Wang Lin s'étira et s'abattit violemment sur Papillon Rouge.
 
 Alors que Papillon Rouge allait tenter de résister, l'onde de choc de l'explosion de l'ombre la frappa, lui arrachant un gémissement de douleur et une nouvelle bouffée de sang. C'est à cet instant que la main de Wang Lin l'atteignit.
 
-Wang Lin engageait tout ce qu'il possédait. Il ignorait totalement le risque d'endommager son corps en laissant son âme originelle s'en détacher. Cette attaque était empreinte d'une once d'intention meurtrière!
+Wang Lin engageait tout ce qu'il possédait. Il ne se souciait nullement du risque de blesser son âme originelle en la laissant se détacher de son corps. Cette attaque était empreinte d'une once d'intention meurtrière!
 
 Papillon Rouge leva la main droite pour parer l'assaut. Un rayon de lumière blanche émana de son corps; cette lumière était extrêmement périlleuse pour les âmes originelles. Wang Lin sentit son âme originelle s'affaiblir à une vitesse fulgurante.
 
@@ -82,7 +82,7 @@ L'ancien de la Secte des Cadavres se retourna, déploya son sens divin et fondit
 
 « Ting Er, regarde. Celui qui t'a volée s'enfuit. Je l'ai déjà dit: quiconque ose te dérober doit mourir! Laisse-moi utiliser les derniers restes de ma vie pour abattre cet homme, et nous pourrons disparaître ensemble dans ce vide. Qu'en penses-tu...? Étrange, pourquoi ai-je l'impression de ne pas assez bien te connaître? J'ai le sentiment de me souvenir de quelque chose... j'ai le sentiment de me souvenir de quelque chose... Ting Er... » Zhou Yi serrait la femme dans ses bras avec une passion profonde, mais cet élan se mua bientôt en confusion.
 
-Il embrassa les lèvres de la femme et fronça les sourcils avant de poursuivre l'ancien de la Secte des Cadavres, le regard troublé.
+Il embrassa les lèvres de la femme et fronça les sourcils avant de poursuivre l'ancien de la Secte des Cadavres, le cadavre dans les bras et le regard troublé.
 
 Wang Lin pénétra dans le tunnel et descendit rapidement. Les bruits d'effondrement de la troisième couche s'estompèrent progressivement. Bien que toutes les couches finiraient par s'écrouler, la quatrième était actuellement l'endroit le plus sûr.
 
@@ -126,15 +126,15 @@ Zhou Yi regarda tendrement la femme, embrassa son front et ferma les yeux. Lorsq
 
 C'était une distinction aussi nette que celle entre le noir et le blanc!
 
-Il fit un pas en avant et, soudain, un rugissement tonnerre déchira le ciel.
+Il fit un pas en avant et, soudain, un coup de tonnerre déchira le ciel.
 
 Sous ce grondement, Zhou Yi se mua en une météorite ardente et chargea l'ancien.
 
 Le ciel environnant se mit à hurler alors que l'effondrement reprenait de plus belle. Cette fois, le phénomène était bien plus spectaculaire dans les hauteurs.
 
-Des bruits de déchirure résonnèrent dans les cieux, comme si une main invisible fendait l'azur.
+Des bruits de déchirure résonnèrent dans les cieux, comme si une main invisible fendait l'azur, et d'immenses fissures s'ouvrirent dans le ciel.
 
-« Mon domaine est la folie... Mon cœur Dao est Ting Er. Mourir pour elle me comble de satisfaction! » La voix de Zhou Yi émanait de la météorite incandescente.
+« Mon domaine est la folie... Mon cœur Dao est Ting Er. Mourir pour elle, je le veux de tout mon cœur! » La voix de Zhou Yi émanait de la météorite incandescente.
 
 L'astre de feu traversa le ciel, générant des détonations soniques à chaque instant.
 
@@ -150,6 +150,6 @@ Il regarda Chi Hu, qui était dans un état encore plus critique. Non préparé 
 
 Même les palais au sol furent réduits en gravats par cette force, à l'exception du palais central, lequel commença pourtant à se fissurer.
 
-Le cœur de Wang Lin fut saisi par la terreur tandis qu'il contemplait la météorite ardente avec effroi. Malgré sa force mentale, son corps tremblait involontairement.
+Le cœur de Wang Lin fut saisi par la terreur tandis qu'il contemplait la météorite ardente avec effroi, l'esprit vide. Malgré sa force mentale, son corps tremblait involontairement.
 
 « Ainsi est le Dao... Hélas, c'est ici que ma vie s'achève. Le Maître a dit un jour que ceux qui cherchent le Dao sont prêts à mourir au coucher du soleil s'ils peuvent trouver la voie juste au matin. C'est donc ce qu'il voulait dire... »

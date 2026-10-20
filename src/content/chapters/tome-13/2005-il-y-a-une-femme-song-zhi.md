@@ -10,7 +10,7 @@ L'expression de Wang Lin était calme, ses cheveux blancs flottant au gré du ve
 
 « Je peux déjà percevoir l'étendue du pouvoir impérial du clan Antique à travers cette simple affaire... » Outre l'obtention d'un jade cartographique, Wang Lin était resté ici pour tester la véritable puissance de l'autorité impériale du clan Antique.
 
-Un simple prince, sans même être l'Empereur Shi Antique, suffisait à faire agenouiller une ville entière. Et le simple fait qu'il ait refusé de s'incliner avait déjà stupéfié l'assistance.
+Un simple prince, sans même être l'Empereur Shi Antique, suffisait à faire agenouiller une ville entière. Et le simple fait qu'il ait refusé de s'agenouiller avait déjà stupéfié l'assistance.
 
 L'homme massif en armure dorée, initialement poli, fut soudainement envahi par une intention meurtrière et une colère noire. C'était comme si refuser de s'agenouiller constituait un crime impardonnable!
 
@@ -22,7 +22,7 @@ Une telle situation ne pouvait survenir que lorsque le pouvoir impérial avait a
 
 On aurait dit que Wang Lin avait été pris au piège!
 
-À la vue de ce spectacle, qu'il s'agisse de l'homme massif en armure dorée, du Seigneur Démon Kong Shi, du jeune homme en robe noire, de la foule agenouillée ou même du soldat en armure de cuir qui avait remis la gemme à Wang Lin, tous affichèrent des regards glacials.
+À la vue de ce spectacle, qu'il s'agisse de l'homme massif en armure dorée, du Seigneur Démon Kong Shi, du jeune homme en robe noire, de la foule agenouillée ou même du soldat en armure de cuir qui avait remis le jade à Wang Lin, tous affichèrent des regards glacials.
 
 Leurs yeux semblaient condenser une seule pensée:
 
@@ -82,9 +82,9 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 « Le groupe de trois de Liang Yun possède une culture équivalente au Vide Arcanique. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau de la Tribulation du Vide. »
 
-« Lorsque j'étais dans le monde des cavernes, mes 27 étoiles n'étaient pas complètes; elles se sont progressivement stabilisées durant mes centaines d'années au sein du clan céleste, mais la puissance que je peux déployer est bien supérieure à celle de cet homme. »
+« Lorsque j'étais dans le monde des cavernes, mes 27 étoiles n'étaient pas complètes; elles se sont progressivement complétées durant mes centaines d'années au sein du clan céleste, mais la puissance que je peux déployer est bien supérieure à celle de cet homme. »
 
-« C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Sept-Couleurs, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Exalté Empyréen. Les chances qu'il soit un Ascendant Empyréen sont faibles, sans quoi il ne serait pas mort. »
+« C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Sept Couleurs, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Exalté Empyréen. Les chances qu'il soit un Ascendant Empyréen sont faibles, sans quoi il ne serait pas mort. »
 
 « De ce point de vue, Ye Mo doit posséder une puissance similaire à celle d'un Exalté Empyréen. Il avait intégré ses 27 étoiles et franchi toutes les épreuves. Par conséquent, ce membre du clan Antique est comparable aux Exaltés Empyréens. »
 

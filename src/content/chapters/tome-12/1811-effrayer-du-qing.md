@@ -10,13 +10,13 @@ slug: effrayer-du-qing
 
 Du Qing aperçut Wang Lin. À l'intérieur des flammes, Wang Lin sentit également la présence de Du Qing à l'extérieur!
 
-Une aura infiniment proche de la Tribulation du Vide émanait du corps de Du Qing. Depuis que son corps était devenu un corps de bois, Wang Lin percevait cette présence avec une clarté accrue.
+Une aura infiniment proche de la Tribulation du Vide émanait du corps de Du Qing. Surtout au moment où son corps se transformait en bois, Wang Lin percevait cette présence avec une clarté accrue.
 
 L'expression de Wang Lin resta calme. Il savait depuis longtemps que Du Qing le poursuivait, et qu'il finirait par être rattrapé. À cet instant, il ne paniqua pas et n'accorda même aucune attention à Du Qing. Les seize dragons de feu et l'Oiseau Vermillon chargèrent vers le dragon de feu formé par la veine de feu terrestre.
 
 Les deux forces n'étaient plus très éloignées. Alors qu'elles convergeaient, elles entrèrent immédiatement en collision. Bien que Du Qing ait voulu charger, il eut un instant de retard.
 
-Les seize dragons de feu furent les premiers à entrer en contact avec l'âme de la veine terrestre, provoquant un grondement tonitruant qui fit vibrer la terre. Au moment du choc, Wang Lin, debout sur la tête de l'Oiseau Vermillon, pointa la main vers l'avant.
+Les seize dragons de feu furent les premiers à entrer en contact avec l'âme de la veine terrestre, provoquant un grondement tonitruant qui fit vibrer la terre. Au moment du choc, Wang Lin, debout sur la tête de l'Oiseau Vermillon, forma un sceau de la main droite et la pointa vers l'avant.
 
 Les seize dragons de feu rugirent et enveloppèrent la veine de feu terrestre tels des chaînes, la ligotant. L'âme de la veine laissa échapper un cri assourdissant.
 
@@ -84,7 +84,7 @@ Du Qing était un homme prudent, et chaque événement rencontré jusqu'ici l'av
 
 « Qui êtes-vous? Pourquoi avez-vous détruit la Secte du Dragon Bleu? Si vous ne me donnez pas d'explication, vous resterez ici aujourd'hui! » lança Du Qing avec une froideur glaciale.
 
-« Votre disciple de la Secte du Dragon Bleu voulait me transformer en marionnette. Je me suis contenté de détruire votre secte sans tuer une seule personne. C'était par pure bonté de ma part. » Les seize dragons de feu contrôlés par la main gauche de Wang Lin, qui maintenaient le grand dragon, tremblèrent. L'âme du feu terrestre poussa un rugissement alors que son corps se désagrégeait davantage. L'ombre de l'Oiseau Vermillon commençait à fusionner avec le dragon, la dévoration étant sur le point de s'achever.
+« Votre disciple de la Secte du Dragon Bleu voulait me transformer en marionnette. Je me suis contenté de détruire votre secte sans tuer une seule personne. C'est déjà faire preuve de clémence. » Les seize dragons de feu contrôlés par la main gauche de Wang Lin, qui maintenaient le grand dragon, tremblèrent. L'âme du feu terrestre poussa un rugissement alors que son corps se désagrégeait davantage. L'ombre de l'Oiseau Vermillon commençait à fusionner avec le dragon, la dévoration étant sur le point de s'achever.
 
 Voyant cela, le corps de Du Qing commença à se déformer à nouveau; il était sur le point de redevenir un être de bois. Le rugissement de cette veine de feu affecta l'essence de feu en lui, la rendant instable.
 
@@ -106,7 +106,7 @@ En voyant cette paume, l'expression de Du Qing se décomposa!
 
 « La grande empreinte de la Secte Mondiale, l'Empreinte de l'Esprit Guerrier!! Vous êtes un membre de la Secte Mondiale du Continent des Nuages Spirituels! »
 
-À ces mots, le cœur de Wang Lin manqua un battement. Tandis que l'Empreinte de l'Esprit Guerrier descendait, il forma un autre sceau et pointa à nouveau vers les cieux.
+À ces mots, Wang Lin eut soudain une idée. Tandis que l'Empreinte de l'Esprit Guerrier descendait, il forma un autre sceau et pointa à nouveau vers les cieux.
 
 Une lumière aux sept couleurs se rassembla instantanément devant lui, enveloppant les environs. Cette lumière se condensa rapidement pour former la Lance aux Sept Couleurs!
 

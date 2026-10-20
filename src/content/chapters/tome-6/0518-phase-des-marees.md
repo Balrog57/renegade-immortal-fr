@@ -24,7 +24,7 @@ Ce cri était insupportable pour les oreilles, semblable au hurlement d'un spect
 
 Cette rotation était terrifiante, comme si le système stellaire entier était en pleine convulsion. Certains cultivateurs de niveau inférieur ne purent s'empêcher d'être aspirés vers la mer tourbillonnante; sans l'intervention de leurs compagnons qui les retenaient de force, ils auraient été engloutis par ces eaux.
 
-Le regard de Wang Lin demeurait calme et son cœur dao était inébranlable; il ne serait donc pas emporté par ce tourbillon.
+Le regard de Wang Lin demeurait calme et son cœur dao était inébranlable; il ne serait donc pas emporté par ce tourbillon, et son corps ne bougea pas d'un pouce.
 
 Alors que la Mer de l'Est tournait, le rugissement devint plus perçant encore, supplantant les grondements initiaux. Enfin, une brume verte commença à émaner de tous les objets contenus dans la Mer des Esprits Démoniaques de l'Est.
 

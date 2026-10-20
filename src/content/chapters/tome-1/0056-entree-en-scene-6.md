@@ -10,7 +10,7 @@ Malheureusement pour lui, ses prières ne furent pas exaucées. Les yeux de Wang
 
 Yang Yi sentit l'espace se resserrer autour de lui, comme si l'air était aspiré et qu'une force invisible le pressait de tous côtés, l'immobilisant totalement. Il ne put que regarder la bombe puante fondre sur lui.
 
-Dans un fracas, Yang Yi fut frappé par la bombe. Son visage entier devint noir et une odeur infecte émana de son corps.
+Dans un fracas, Yang Yi fut frappé par la bombe. Ses cheveux étaient en désordre et son visage entier devint noir et une odeur infecte émana de son corps.
 
 Il n'avait cure de son teint ou de l'odeur qui le parasitait; son visage était déformé par l'horreur. Sentant la force de compression faiblir légèrement, il mobilisa toute la puissance de son corps pour se libérer. Son cœur battait à tout rompre tandis qu'il pensait: « Cette Main de Capture du Dragon est trop puissante. Je vais perdre quoi qu'il arrive. Très bien, allons-y à fond! »
 
@@ -20,7 +20,7 @@ Yang Yi serra les dents et cracha une bouffée de lumière rouge. Cette lueur s'
 
 Simultanément, il s'élança à nouveau et projeta des poignées de talismans. Ces derniers grandirent instantanément, activant des techniques aux couleurs variées qui pleuvirent sur Wang Lin.
 
-Wang Lin ricana. Il activa sa technique d'attraction pour former une main. D'un geste ample, il balaya et détruisit tous les talismans en plein vol. Puis, il créa une seconde main pour saisir la lumière rouge.
+Wang Lin ricana. Il activa sa technique d'attraction pour former une main. D'un geste ample, il balaya et détruisit tous les talismans en plein vol. Tout en maintenant la première, il créa une seconde main pour saisir la lumière rouge glaciale.
 
 La lueur se dissipa, révélant sa véritable forme: une épée volante rouge! L'arme fut stoppée net en plein air et continua de lutter fébrilement. Wang Lin scruta l'épée volante et découvrit qu'elle contenait un fragment de sens divin, tout comme la bombe puante. Il effaça aisément ce sens divin et accentua la force de sa technique d'attraction. Dans un craquement sinistre, l'épée volante se fendit en deux et s'écrasa au sol.
 
@@ -30,7 +30,7 @@ Wang Lin fut stupéfait, mais un sourire étira ses lèvres. « Une technique an
 
 « Hmph, nul besoin de le nier. Votre Main de Capture du Dragon a déjà été perçue par mon oncle-maître! » Yang Yi descendit de l'estrade tandis que tous les disciples de la Secte Xuan Dao s'écartaient sur son passage. L'odeur émanant de son corps était tout simplement insoutenable.
 
-Le visage de l'Ancien Ouyang rougit légèrement. Il toussa et dit d'un ton raide: « Jeune Wang Lin, la technique que vous avez utilisée est bien la Main de Capture du Dragon. Ces techniques anciennes sont imprévisibles et puissantes. Je n'en avais entendu parler que dans de vieux textes. Je n'aurais jamais cru que la Secte Heng Yue possédait encore une technique perdue depuis des millénaires, héritée d'une puissante secte d'il y a cinq cents ans! »
+Le visage de l'Ancien Ouyang rougit légèrement. Il toussa et dit d'un ton raide: « Jeune Wang Lin, la technique que vous avez utilisée est bien la Main de Capture du Dragon. Ces techniques anciennes sont imprévisibles et puissantes. Je n'en avais entendu parler que dans de vieux textes. Je n'aurais jamais cru que la Secte Heng Yue possédait encore une technique perdue depuis des millénaires, digne d'une grande secte vieille de cinq cents ans. Je suis admiratif! »
 
 À force de discourir, il finit par s'en convaincre lui-même. Même si ce n'était pas la Main de Capture du Dragon, cela devait être une technique ancienne, faute de quoi une telle puissance aurait été inexplicable.
 
@@ -48,19 +48,19 @@ Situ Nan en avait finalement conclu que cela était lié à la perle défiant le
 
 Avec le temps, cette désynchronisation disparaîtrait; ce n'était donc pas un problème majeur.
 
-Avec la puissance du 14e niveau de Condensation de Qi et plus de vingt ans d'entraînement acharné sur la technique d'attraction, il n'était pas étonnant que sa force pousse les gens à des conjectures aussi folles.
+Avec la puissance du 14e niveau de Condensation de Qi et plus de vingt ans d'entraînement acharné sur la Main de Capture du Dragon, il n'était pas étonnant que sa force pousse les gens à des conjectures aussi folles.
 
-Huang Long plissa les yeux vers Wang Lin: « Wang Lin, la technique que tu as utilisée est-elle vraiment une ancienne technique? » Il n'avait nullement l'intention de chercher le nom exact de cette technique, mais il brûlait de faire perdre la face à la Secte Xuan Dao.
+Huang Long plissa les yeux vers Wang Lin: « Wang Lin, la technique que tu as utilisée est-elle vraiment la fameuse Main de Capture du Dragon? » Il n'avait nullement l'intention de chercher le nom exact de cette technique, mais il brûlait de faire perdre la face à la Secte Xuan Dao.
 
 Wang Lin secoua la tête avec un sourire: « Chef de secte, la technique utilisée par ce disciple est clairement la technique d'attraction. Quant à la Main de Capture du Dragon, je n'en ai jamais entendu parler. »
 
-Huang Long loua intérieurement l'intelligence de Wang Lin. Il tourna son regard vers les trois anciens de la Secte Xuan Dao et éclata de rire: « Mon ami Ouyang, je peux vous assurer que cette technique n'est pas la "Main de Capture du Dragon", mais la technique la plus élémentaire de ma Secte Heng Yue: la technique d'attraction. Vos disciples sont incapables de parer la technique la plus basique de notre secte, et vous inventez ce nom de "Main de Capture du Dragon" pour justifier votre échec! »
+Huang Long loua intérieurement l'intelligence de Wang Lin. Il tourna son regard vers les trois anciens de la Secte Xuan Dao et éclata de rire: « Mon ami Ouyang, je peux vous assurer que cette technique n'est pas la "Main de Capture du Dragon", mais la technique la plus élémentaire de ma Secte Heng Yue: la technique d'attraction. Vos disciples sont incapables de parer la technique la plus basique de notre secte, et vous inventez ce nom de "Main de Capture du Dragon" pour justifier votre échec! Quelle absurdité! »
 
 L'Ancien Ouyang était profondément embarrassé, mais en apparence, il ne pouvait reculer. Il répliqua: « Mon ami Huang Long, nul besoin de le nier. Hmph, je l'ai déjà perçue! C'est bien la Main de Capture du Dragon! »
 
-Dao Xu laissa échapper un rire et dit au chef de secte Huang Long: « Chef de secte, je trouve que ce nom est excellent. Et si nous changions le nom de la technique d'attraction pour celui de la Main de Capture du Dragon? »
+Dao Xu laissa échapper un rire et dit au chef de secte Huang Long: « Chef de secte, je trouve que ce nom est excellent. Et si nous changions le nom de la technique d'attraction pour celui de la Main de Capture du Dragon? Ce serait alors un nom parfaitement approprié! »
 
-Les yeux de Huang Long s'illuminèrent et il adressa un regard approbateur à Dao Xu. Il déclara: « Bien! Désormais, la technique d'attraction de ma Secte Heng Yue sera renommée la Main de Capture du Dragon. Je remercie la Secte Xuan Dao pour cette suggestion! »
+Les yeux de Huang Long s'illuminèrent et il adressa un regard approbateur à Dao Xu. Il déclara: « Bien! Désormais, la technique d'attraction de ma Secte Heng Yue sera renommée la Main de Capture du Dragon. Je remercie la Secte Xuan Dao pour ce beau nom! »
 
 L'Ancien Ouyang et les deux autres anciens affichaient une amertume profonde. Ils secouèrent la tête en silence.
 

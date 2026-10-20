@@ -8,7 +8,7 @@ slug: trois-epreuves-sept-calamites
 ---
 La voix de Tuo Sen résonna à travers le vide, suivie du rugissement du dragon de sang. Telle une bête féroce gardant le vortex, le dragon de sang s'enroulait autour de celui-ci.
 
-Cependant, cela témoignait de l'arrogance de Tuo Sen; autrement, il n'aurait pas ordonné au dragon de sang d'ouvrir le vortex menant à la mer de sang!
+Cependant, cela témoignait de l'arrogance de Tuo Sen; autrement, il n'aurait pas ordonné au dragon de sang d'ouvrir le vortex menant au monde écarlate!
 
 L'homme âgé vêtu de noir n'attaqua pas; il se contenta de contempler silencieusement le dragon de sang. Nul ne savait ce qu'il pensait. Les yeux de Maître Yan Leizi s'illuminèrent, puis il fit un pas en avant et chargea la créature.
 
@@ -72,7 +72,7 @@ Après ces deux respirations, les yeux de Wang Lin se remplirent de confusion et
 
 Maître Yan Leizi, le plus proche du dragon, pâlit et battit en retraite. Les fragments du Royaume Céleste tourbillonnaient devant lui avant que plusieurs d'entre eux ne se brisent.
 
-Quant aux huit rois de la Secte des Cadavres, deux d'entre eux s'effondrèrent instantanément tandis que les six autres reculaient. L'un d'eux sortit précipitamment deux cercueils supplémentaires de son espace de stockage. Deux silhouettes floues s'y engouffrèrent immédiatement.
+Quant aux huit rois de la Secte des Cadavres, deux de leurs corps explosèrent instantanément tandis que les six autres reculaient. L'un d'eux sortit précipitamment deux cercueils supplémentaires de son espace de stockage. Deux silhouettes floues s'y engouffrèrent immédiatement.
 
 En un éclair, les deux cercueils éclatèrent et deux vieillards en sortirent.
 

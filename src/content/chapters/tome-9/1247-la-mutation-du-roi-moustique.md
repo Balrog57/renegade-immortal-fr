@@ -50,7 +50,7 @@ La lumière se dispersait telle une pluie d'épées tranchantes alors que le roi
 
 La bête moustique violette la plus proche rugit et fondit sur lui. Sa gueule béante pouvait rivaliser avec n'importe quel trésor du monde; une fois qu'elle aurait percé Wang Lin, une seule succion suffirait à le vider de son sang.
 
-Au moment où la bête s'approchait, Wang Lin abattit son trident. La foudre commença à tomber, prenant cette bête violette pour centre névralgique.
+Au moment où la bête s'approchait, Wang Lin abattit son trident. La foudre commença à tomber, centrée sur cette bête violette.
 
 Wang Lin ne marqua pas de pause. Il fit pivoter son arme vers l'arrière pour frapper une autre bête violette qui le talonnait.
 
@@ -82,7 +82,7 @@ Les bêtes environnantes hésitèrent un instant. Profitant de ce moment, Wang L
 
 Le trident traversa la nuée violette pour pénétrer dans la zone de la faille spatiale, vers les moustiques dorés. Soudain, une ondulation invisible se propagea devant l'arme qui percuta une force mystérieuse. Dans un fracas de tonnerre, d'innombrables runes anciennes apparurent.
 
-L'impact du trident fut stoppé par cette ondulation. Mais malgré cet obstacle, le roi moustique de Wang Lin chargea, fixant avec avidité le gigantesque roi moustique qui se trouvait derrière les centaines de moustiques dorés.
+L'impact du trident fut stoppé par cette ondulation. Mais malgré cet obstacle, le roi moustique de Wang Lin chargea, fixant avec avidité la faille où se trouvait le gigantesque roi moustique, derrière les centaines de moustiques dorés.
 
 Ces centaines de bêtes dorées s'apprêtaient à intercepter l'intrus quand le roi moustique, bien que meurtri, brilla d'un éclat intense et poussa un rugissement qui fit trembler les cieux!
 
@@ -102,6 +102,6 @@ La multitude de moustiques qui l'attaquait l'évita brusquement, manifestant un 
 
 Wang Lin comprit soudainement. À cet instant, ses pensées le ramenèrent sur la planète Suzaku, lorsqu'il avait vu pour la première fois la bête moustique. Il tenait enfin une vague explication sur la raison de sa présence sur la planète Suzaku... et pourquoi il n'y en avait eu qu'une seule!
 
-Dès que l'ombre apparut, les moustiques dorés manifestèrent leur crainte et s'écartèrent promptement, comme s'ils n'osaient entraver le passage du roi moustique de Wang Lin. Ce dernier chargea vers la faille tel un météore doré!
+Dès que l'ombre apparut, les moustiques dorés manifestèrent leur révérence et s'écartèrent promptement, comme s'ils n'osaient entraver le passage du roi moustique de Wang Lin. Ce dernier chargea vers la faille tel un météore doré!
 
 Le colossal roi moustique à l'intérieur de la faille spatiale afficha une expression grave et poussa un rugissement! Il commença à lutter avec une violence encore plus décuplée.

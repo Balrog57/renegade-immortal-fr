@@ -18,7 +18,7 @@ Alors que Wang Lin observait froidement l'arrivée de ces trois individus, il le
 
 La loi d'origine suivait ce mouvement et inondait le monde!
 
-La Nuit Brisée était née de la mer!
+Le soleil de la mer fait naître la Nuit Brisée!
 
 L'Omniscient à la robe violette, qui se déplaçait rapidement avec ses milliers d'ombres fusionnées, percuta de plein fouet la Nuit Brisée. La lumière solaire infinie et la chaleur intense allaient tout détruire sur leur passage, comme si la nuit elle-même n'était qu'une obscurité à balayer. Il n'y avait aucune exception!
 
@@ -26,11 +26,11 @@ Une douleur inimaginable s'échappa du corps de l'Omniscient à la robe violette
 
 Dans sa chute, d'innombrables ombres jaillirent de son corps. Ces ombres sifflèrent et se précipitèrent vers Wang Lin, tapi au cœur du soleil. Cependant, elles n'étaient que des flocons de neige sous un soleil de plomb; elles fondirent toutes sans laisser la moindre trace!
 
-La paume géante formée par l'Omniscient à la robe jaune s'abattit. Même la lumière du soleil ne put percer cette paume, qui fonçait vers l'astre. Ce dernier restait calme et ricana, bien que la paume saisisse le soleil qui enveloppait son corps.
+La paume géante formée par l'Omniscient à la robe jaune s'abattit. Même la lumière du soleil ne put percer cette paume, qui fonçait vers l'astre. Wang Lin restait calme et ricana, bien que la paume saisisse le soleil qui enveloppait son corps.
 
 Cependant, au moment où la paume empoigna l'astre, un cri misérable s'en échappa. Le feu du Yang originel, capable de tout consumer, balaya la paume, la faisant trembler, et celle-ci se transforma immédiatement en retour en Omniscient à la robe jaune!
 
-L'Omniscient à la robe jaune semblait étreindre le soleil, mais en quelques respirations seulement, il fut pris des flammes, et il ne resta de lui que des cendres...
+L'Omniscient à la robe jaune semblait étreindre le soleil, mais en quelques respirations seulement, il fut pris des flammes, et il ne resta de lui que des restes calcinés...
 
 L'épée de sang libérée par l'Omniscient à la robe grise chargea en avant, brisant tout sur son passage dans un acte de désespoir. Elle plongea immédiatement dans le soleil flamboyant.
 
@@ -86,9 +86,9 @@ Il n'était pas le seul. Situ Nan, Da Tou, Maître Fu Fengzi et tous les autres 
 
 Même Wang Wei et Hu Juan eurent le souffle coupé. Ils se regardèrent, voyant la terreur reflétée dans les yeux de l'autre. À l'instant même, ils avaient été entraînés dans cette illusion, comme s'ils avaient été placés dans un espace distinct. Ils ne pouvaient que regarder, impuissants.
 
-Pourtant, ils n'étaient pas les plus choqués. C'étaient l'Ancien Démon Ta Jia, qui chargeait vers le ciel avec sa lame, et la Concubine Impériale des Fleurs!
+Pourtant, ils n'étaient pas les plus choqués. C'étaient l'Ancien Démon Ta Jia, qui chargeait vers le ciel avec sa lame, et la Concubine Impériale Fleur!
 
-La Concubine Impériale des Fleurs regardait Wang Lin avec des yeux empreints de nostalgie et de crainte. Ce qui la faisait songer au passé était la parole de son mari, affirmant qu'il serait sauvé par quelqu'un nommé « Wang ». Ce qui l'effrayait, c'était la loi d'origine que Wang Lin venait de manifester!
+La Concubine Impériale Fleur regardait Wang Lin avec des yeux empreints de nostalgie et de crainte. Ce qui la faisait songer au passé était la parole de son mari, affirmant qu'il serait sauvé par quelqu'un nommé « Wang ». Ce qui l'effrayait, c'était la loi d'origine que Wang Lin venait de manifester!
 
 Personne ne comprenait mieux la loi d'origine qu'elle. À l'époque, l'Empereur Céleste Qing Lin avait failli périr face à elle. Dans le royaume scellé, on l'appelait la loi d'origine, mais au-delà, elle était connue sous le nom de Force du Commencement Absolu!
 

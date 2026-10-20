@@ -56,7 +56,7 @@ En tenant le fouet, il poussa un soupir de soulagement. La lumière dorée qui e
 
 Il reporta son attention sur le fantôme céleste. Si Wang Lin n'avait pas saisi le fouet si promptement, la créature serait déjà morte. Même maintenant, elle s'éteignait et son corps se dissipait lentement.
 
-Wang Lin frappa son sac de rangement et en sortit l'Étendard de l'Âme. D'un geste magistral, il captura le fantôme céleste; grâce à l'environnement spécial de l'artefact, la dissipation s'interrompit.
+Wang Lin frappa son sac de rangement et en sortit le drapeau d'âmes. D'un geste magistral, il captura le fantôme céleste; grâce à l'environnement spécial de l'artefact, la dissipation s'interrompit.
 
 Après avoir accompli cela, Wang Lin examina attentivement le Fouet de l'Âme. L'arme avait changé après avoir été brûlée par les flammes vertes: certains morceaux de cuir s'étaient enroulés, devenant extrêmement robustes.
 
@@ -112,9 +112,9 @@ S'il n'avait pas eu accès aux souvenirs de Lou Yun, Wang Lin serait allé à la
 
 Une expression pensive traversa le visage de Wang Lin, avant de se muer en une résolution inflexible.
 
-« Ceux qui accomplissent de grandes choses ne s'encombrent pas de détails insignifiants. Je vais leur enseigner les sorts de l'Étendard de l'Âme. Ces techniques sont simples et redoutables pour le combat. Plus on tue, plus on rassemble d'âmes, et plus leur puissance croît. »
+« Ceux qui accomplissent de grandes choses ne s'encombrent pas de détails insignifiants. Je vais leur enseigner les sorts du drapeau d'âmes. Ces techniques sont simples et redoutables pour le combat. Plus on tue, plus on rassemble d'âmes, et plus leur puissance croît. »
 
-« Je peux aussi profiter de cette occasion pour voir si je peux réparer l'Étendard de l'Âme au milliard d'âmes. Si j'y parviens, je n'aurai même plus à craindre les cultivateurs Ascendants. Je pourrai sans aucun doute figurer parmi les dix meilleurs de tous ceux qui sont venus ici! »
+« Je peux aussi profiter de cette occasion pour voir si je peux réparer l'étendard d'un milliard d'âmes. Si j'y parviens, je n'aurai même plus à craindre les cultivateurs Ascendants. Je pourrai sans aucun doute figurer parmi les dix meilleurs de tous ceux qui sont venus ici! »
 
 « Ce n'est qu'en agissant ainsi que j'aurai une chance d'obtenir un esprit démoniaque ancien à la fin! »
 
@@ -122,13 +122,13 @@ Tout en réfléchissant, Wang Lin prit une profonde inspiration et toucha son sa
 
 La Secte de l'Affinement de l'Âme possédait trois sorts: l'affinement de l'âme, l'extraction de l'âme et le scellement de l'âme!
 
-Le scellement de l'âme était une technique réservée aux véritables disciples de la secte. En réalité, ce sort avait été conçu pour l'Étendard de l'Âme au milliard d'âmes; c'était la clé pour le contrôler.
+Le scellement de l'âme était une technique réservée aux véritables disciples de la secte. En réalité, ce sort avait été conçu pour l'étendard d'un milliard d'âmes; c'était la clé pour le contrôler.
 
 Quant à l'affinement et à l'extraction des âmes, ils constituaient les fondements mêmes de la Secte de l'Affinement de l'Âme.
 
 Outre l'apprentissage de ces deux sorts, la création de leurs propres étendards était une étape cruciale pour devenir un véritable disciple. Ce n'est qu'après avoir affiné un étendard que l'on pouvait être considéré comme membre de la secte.
 
-L'affinement consistait à perfectionner des âmes déjà existantes, tandis que l'extraction consistait à arracher l'âme d'un être vivant.
+L'affinement consistait à raffiner des âmes déjà existantes, tandis que l'extraction consistait à arracher l'âme d'un être vivant.
 
 Wang Lin ne laissa dans les jades que le stade initial des incantations d'affinement et d'extraction. Après une courte réflexion, il ajouta des instructions simples sur la fabrication des étendards. En utilisant cette méthode, il y aurait un défaut fatal que seul Wang Lin connaîtrait.
 

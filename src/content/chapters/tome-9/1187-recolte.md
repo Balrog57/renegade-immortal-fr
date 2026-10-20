@@ -12,7 +12,7 @@ Wang Lin fronça les sourcils et s'apprêta à parler.
 
 Wang Lin resta silencieux.
 
-« Puisque le camarade cultivateur Lu est d'accord, je m'en remets au camarade cultivateur Pang. » Une fois son discours terminé, le Maître Pin Cendré jeta un regard à la vieille femme en vert et tous deux quittèrent la grotte. Ils se dirigèrent droit vers la chaîne de montagnes qui se dressait au loin comme un mur infranchissable.
+« Puisque le camarade cultivateur Lu est d'accord, je m'en remets au camarade cultivateur Pang. » Une fois son discours terminé, le Maître Pin Cendré jeta un regard à la vieille femme en vert et tous deux quittèrent la grotte. Ils se dirigèrent droit vers la chaîne de montagnes qui se dressait au loin, semblable à une muraille.
 
 Cependant, avant de partir, la vieille femme en vert lança un dernier regard à Wang Lin. De même, le Maître Pin Cendré observa l'homme âgé nommé Pang.
 
@@ -48,7 +48,7 @@ L'homme cracha un jet de sang, ses yeux écarquillés par l'incrédulité. Son c
 
 Il n'aurait jamais imaginé que l'homme devant lui ne soit pas blessé! Alors qu'il tentait de fuir, Wang Lin leva la main droite et une épée de fer apparut. Il trancha l'air sans l'ombre d'une hésitation!
 
-Un éclair d'énergie d'épée jaillit, et l'âme originelle de l'homme fut coupée en deux dans un cri déchirant. Wang Lin agita la main pour capturer les restes de l'âme. Sa main écrasa une moitié de l'âme originelle et, avant que l'énergie ne puisse se dissiper, Wang Lin l'inhala. L'autre moitié, presque transparente, n'osait pas s'enfuir; elle tournoyait dans la paume de Wang Lin, sous la menace de l'épée de fer.
+Un éclair d'énergie d'épée jaillit, et l'âme originelle de l'homme fut coupée en deux dans un cri déchirant. Wang Lin agita sa large manche pour capturer les restes de l'âme. Sa main écrasa une moitié de l'âme originelle et, avant que l'énergie ne puisse se dissiper, Wang Lin l'avala. L'autre moitié, presque transparente, n'osait pas s'enfuir; elle tournoyait dans la paume de Wang Lin, sous la menace de l'épée de fer.
 
 Tout cela se produisit en un instant. Wang Lin avait porté le coup fatal sans perdre une seconde. L'homme, pris au dépourvu, n'avait pu utiliser ni ses sorts ni ses trésors magiques.
 

@@ -14,7 +14,7 @@ Il réfléchit longuement, le regard brillant d'une lueur intense.
 
 « Le Temple Céleste du Tonnerre... »
 
-Wang Lin prit une profonde inspiration, puis son corps vacilla et il disparut dans la grotte, suivi de près par le garde céleste.
+Wang Lin prit une profonde inspiration, puis son corps vacilla et il disparut dans la grotte, suivi de près par le gardien céleste.
 
 Le corps de Wang Lin flottait dans les airs, dominant le ciel de la partie orientale de la planète. D'un geste de la main vers le bas, provoquant un grondement assourdissant, il aplatit tout sur un rayon de 5 000 kilomètres.
 
@@ -40,7 +40,7 @@ Ce jour-là, trois rayons d'énergie d'épée traversèrent rapidement les étoi
 
 Le plus frappant restait ses yeux, qui brillaient comme des étoiles. Son corps exhalait un parfum subtil qui se répandait partout sur son passage. Plusieurs disques papillons scintillants ornaient le côté droit de son front, et leurs reflets colorés la rendaient encore plus belle.
 
-Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'était celle qui avait quitté Suzaku après avoir dévoré Qian Feng, avant d'être expulsée de la planète des Cinq Éléments: Zi Xin!
+Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'était celle qui avait quitté Suzaku après avoir dévoré le domaine de Qian Feng, avant d'être expulsée de la planète des Cinq Éléments: Zi Xin!
 
 Lorsqu'elle fut traquée par le Palais de l'Eau Céleste, elle fut sauvée par le père de Yao Xixue, l'Ancêtre Sanguin, et devint sa concubine.
 
@@ -62,9 +62,9 @@ Les yeux de Zi Xin s'illuminèrent et son sens divin se déploya pour sonder les
 
 Une froideur empreinte d'une intention meurtrière retentit soudainement.
 
-« DISPARAIS! » Cette voix était plus violente que le tonnerre et dégageait une majesté écrasante. De nouvelles fissures déchirèrent la terre, et le ciel s'assombrit comme s'il n'osait résister à ce commandement. La voix portait des ondes sonores infinies qui se superposaient, rugissant comme une multitude de voix simultanées.
+« DÉGAGE! » Cette voix était plus violente que le tonnerre et dégageait une majesté écrasante. De nouvelles fissures déchirèrent la terre, et le ciel s'assombrit comme s'il n'osait résister à ce commandement. La voix portait des ondes sonores infinies qui se superposaient, rugissant comme une multitude de voix simultanées.
 
-« DISPARAIS!!! »
+« DÉGAGE!!! »
 
 À cet instant, la planète entière sembla s'effondrer. Les montagnes s'écroulèrent et la terre s'affaissa. D'innombrables fissures spatiales apparurent dans le ciel tandis que des vents glacés hurlaient. C'était l'enfer sur terre.
 
@@ -92,7 +92,7 @@ L'expression de ce corps était aussi glaciale qu'une glace millénaire. Il dég
 
 « Cette planète n'a plus d'énergie spirituelle à m'offrir... » Wang Lin réfléchit un instant en contemplant les débris autour de lui, puis tendit la main droite pour saisir le vide. La poussière s'immobilisa soudainement et une aura ancienne commença à se condenser avant de se dissiper aussitôt.
 
-« Ce sort d'extraction d'âme exige un certain niveau de culture! » Le corps originel de Wang Lin fit un pas en avant. Avec la puissance de son physique, il n'avait nul besoin de boussole stellaire pour voyager à travers le cosmos.
+« Ce sort d'extraction d'âme a encore besoin d'être perfectionné! » Le corps originel de Wang Lin fit un pas en avant. Avec la puissance de son physique, il n'avait nul besoin de boussole stellaire pour voyager à travers le cosmos.
 
 « Malheureusement, je n'ai toujours trouvé aucune aura de Dieu Ancien adulte. Sinon, j'aurais véritablement atteint les quatre étoiles... Devrais-je retourner sur la planète Suzaku... Je ne sais pas quand Ta Sen se libérera... » Le corps originel de Wang Lin disparut lentement parmi les étoiles.
 

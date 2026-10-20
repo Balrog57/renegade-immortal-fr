@@ -28,15 +28,15 @@ Wang Lin fut surpris. Il s'en saisit rapidement pour le ranger dans son sac de r
 
 « Voici la technique pour ouvrir la formation ici. Mémorise-la bien. » Liu Wenju sortit un autre morceau de jade, puis entra dans une pièce de culture en isolement avec la vieille femme.
 
-Après avoir fait ses adieux à tout le monde, il utilisa la technique pour ouvrir la formation. Il prit une profonde inspiration et sauta hors de la grotte. Une fois dehors, il ne marqua pas de pause; il s'élança dans les airs, activa la technique d'attraction autour de son corps et s'envola vers le ciel.
+Après avoir fait ses adieux à tout le monde, il utilisa la technique pour ouvrir la formation. Il prit une profonde inspiration et sauta hors de la grotte. Une fois dehors, il ne marqua pas de pause; il s'élança dans les airs, activa la technique d'attraction autour de son corps et s'envola vers le ciel, se transformant en un arc-en-ciel qui disparut au loin.
 
 Situ Nan dit à Wang Lin: « Tu pars enfin. Comptes-tu revenir? »
 
 Après une courte réflexion, Wang Lin répondit: « Je ne reviendrai pas de sitôt. Une fois mes affaires familiales réglées, j'ai mes propres projets. »
 
-Situ Nan ajouta: « Si ma supposition est correcte, une fois que tu auras donné à la Perle Défiant le Ciel suffisamment d'élément bois, sa capacité à ralentir le temps augmentera considérablement. Actuellement, elle multiplie le temps par dix, mais une fois l'élément bois comblé, elle pourrait atteindre cent fois. À ce moment-là, ta vitesse de culture augmentera nettement. »
+Situ Nan ajouta: « Si ma supposition est correcte, une fois que tu auras donné à la Perle Défiant le Ciel suffisamment d'élément bois, sa capacité à multiplier le temps augmentera considérablement. Actuellement, elle multiplie le temps par dix, mais une fois l'élément bois comblé, elle pourrait atteindre cent fois. À ce moment-là, ta vitesse de culture augmentera nettement. »
 
-Tout en discutant, Wang Lin volait à une vitesse fulgurante, laissant derrière lui une traînée rouge.
+Tout en discutant, Wang Lin volait à une vitesse fulgurante, laissant derrière lui une traînée d'arc-en-ciel.
 
 Après une journée de voyage, il pénétra dans l'ancien territoire de la Secte Heng Yue. Craignant d'attirer l'attention, il ralentit sa progression. Le deuxième jour, il atteignit le petit village.
 
@@ -44,7 +44,7 @@ De loin, le village semblait identique à ses souvenirs. Seule sa propre maison 
 
 Tôt le matin, de la fumée s'échappait des habitations alors que chacun se levait pour préparer le petit-déjeuner.
 
-Wang Lin se tenait à l'entrée du village, fixant sa demeure. Cinq ans s'étaient écoulés en un clin d'œil, mais il pouvait encore ressentir avec clarté les regards pleins d'espoir de ses parents. Il hésita un instant, mais ne franchit pas le seuil. Il fit le tour du village avant de trouver un endroit pour s'asseoir et cultiver, à l'abri des arbres qui dissimulaient son corps.
+Wang Lin se tenait à l'entrée du village, fixant sa demeure, le cœur en tumulte. Cinq ans s'étaient écoulés en un clin d'œil, mais il pouvait encore ressentir avec clarté les regards pleins d'espoir de ses parents. Il hésita un instant, mais ne franchit pas le seuil. Il fit le tour du village avant de trouver un grand arbre, de s'asseoir en tailleur dans sa cime pour cultiver, à l'abri du feuillage qui dissimulait son corps.
 
 Il n'était pas certain que les membres de la Secte Xuan Dao viendraient tuer ses parents par vengeance contre lui; ainsi, avant d'avoir réglé la situation, il ne voulait pas rentrer pour ne pas les inquiéter.
 

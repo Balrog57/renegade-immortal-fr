@@ -50,7 +50,7 @@ La nuit sur le continent de Mo Luo touchait à sa fin et le soleil commençait �
 
 Le jeune homme en pourpre à ses côtés affichait une exaltation intense, d'où se dégageait une lubricité répugnante.
 
-« Oncle Song, blessez gravement Lu Yanfei, mais ne la tuez pas. Laissez-moi m'amuser avec elle quelques jours et aspirer toute son énergie originelle; alors, il ne sera pas trop tard pour l'achever! » Le jeune homme se lécha les lèvres.
+« Oncle Song, blessez gravement Lu Yanfei, mais ne la tuez pas. Laissez-moi m'amuser avec elle quelques jours et aspirer tout son yin originel; alors, il ne sera pas trop tard pour l'achever! » Le jeune homme se lécha les lèvres.
 
 Le vieil homme à ses côtés hocha la tête. Juste au moment où il s'apprêtait à parler, il fut soudainement saisi d'un sursaut et fixa l'espace devant lui.
 
@@ -104,7 +104,7 @@ Tout cela se produisit en quelques respirations! Une exécution instantanée!
 
 Jusque dans la mort, le vieil homme ne put croire qu'il avait été tué si rapidement! Pourtant, sa fin n'avait rien d'illogique. Que ce soit l'énergie de massacre ou l'invocation de la pluie, ces sorts étaient assez puissants pour qu'un cultivateur domine le monde de la cultivation. De plus, l'attaque provenant du trésor de Pseudo-Vide du Nirvana était suffisante pour arracher une couche de peau à un cultivateur de la fin du Purificateur du Nirvana s'il ne mourait pas sur le coup!
 
-Sans même mentionner l'expérience de combat de Wang Lin, Song Wude n'était pas mort des mains d'un inconnu quelconque!
+Sans même parler de l'expérience de combat de Wang Lin, la mort de Song Wude n'a rien d'injuste!
 
 Après avoir instantanément éliminé Song Wude, Wang Lin se tourna vers la bête spirituelle noire qui ne s'était pas encore trop éloignée. Le jeune homme pourpre, témoin de la scène, poussa un cri de terreur.
 
@@ -112,4 +112,4 @@ Wang Lin lança un regard glacial au jeune homme et fit un pas en avant!
 
 Des rayons de lumière arrivèrent derrière Wang Lin. Le cri empreint d'une peur extrême atteignit clairement les oreilles des quatre anciens de la Secte de l'Origine et résonna dans l'esprit de Lu Yanfei.
 
-À cet instant, le ciel s'éclaircit et la pluie cessa. Un vague arc-en-ciel apparut, suspendu à la voûte céleste sous le soleil levant. La silhouette poursuivait la bête spirituelle noire. Ses cheveux blancs étaient si éblouissants que l'image de cet homme resta profondément gravée dans les yeux de Lu Yanfei...
+À cet instant, le ciel s'éclaircit et la pluie cessa. Un vague arc-en-ciel apparut, suspendu à la voûte céleste sous le soleil levant. La silhouette, au sein de l'arc-en-ciel, poursuivait la bête spirituelle noire. Ses cheveux blancs étaient si éblouissants que l'image de cet homme resta profondément gravée dans les yeux de Lu Yanfei...

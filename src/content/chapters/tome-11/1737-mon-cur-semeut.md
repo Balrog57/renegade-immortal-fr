@@ -26,7 +26,7 @@ Le Grand Empyréen Xuan Luo secoua doucement la tête. Il ne s'attendait pas à 
 
 Cependant, cette attente était très ténue. Lorsqu'il nota cette légère espérance, il ne put s'empêcher de rire.
 
-« Je ne devrais pas trop espérer... Même si l'empereur de cette génération chargeait dans cette formation sans aucune connaissance préalable, il en serait piégé! »
+« Je ne devrais pas trop espérer... Même si l'empereur du Dao Antique de cette génération chargeait dans cette formation sans aucune connaissance préalable, il en serait piégé! »
 
 L'expression de Wang Lin était grave alors qu'il contemplait la planète des Cinq Éléments. Cependant, plus il regardait, plus la rotation s'accélérait.
 

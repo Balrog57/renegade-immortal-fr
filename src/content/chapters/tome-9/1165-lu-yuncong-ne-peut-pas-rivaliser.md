@@ -50,7 +50,7 @@ En chemin, Lu Yuncong et Li Qianmei discutèrent tranquillement, échangeant leu
 
 Le vieil homme restait à quelques pas derrière. Son regard se posait occasionnellement sur eux. On lisait une certaine étrangeté dans ses yeux, mais aussi une pointe de joie.
 
-« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors notre Secte Dao Pourpre pourra ébranler la Mer des Nuages! »
+« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors notre Secte Dao Pourpre pourra se faire connaître dans toute la Mer des Nuages! »
 
 Depuis qu'elle avait quitté la Secte Brise-Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
@@ -68,7 +68,7 @@ Lu Yuncong ne cachait pas ses pensées; n'ayant aucune raison de le faire, il lu
 
 Li Qianmei dit doucement: « Tout cela n'est que spéculation de Frère Lu. Peut-être que la vérité est tout autre. »
 
-« J'espère que mes conjectures sont vraies, afin d'avoir la chance de le rencontrer. Cela donnerait un peu d'émulation à l'existence. » Lu Yuncong poussa un soupir, une lueur d'attente dans les yeux.
+« J'espère que mes conjectures sont vraies, afin d'avoir la chance de le rencontrer. Cela rendrait l'existence plus palpitante. » Lu Yuncong poussa un soupir, une lueur d'attente dans les yeux.
 
 À mesure qu'ils avançaient, ils se rapprochaient du continent de Mo Luo. À cet instant, ils pouvaient vaguement distinguer l'ombre de la terre continentale.
 

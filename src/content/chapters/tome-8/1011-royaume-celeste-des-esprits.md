@@ -41,12 +41,12 @@ L'apparition successive des trois piliers de lumière dans la Terre des Esprits 
 
 L'énergie spirituelle céleste émanant des trois piliers semblait engager trois combats simultanés contre l'énergie démoniaque. Hormis à l'est, le ciel au-dessus de la Terre des Esprits Démoniaques était paré de lumières multicolores. Cependant, l'énergie démoniaque accumulée depuis des éons était si vaste que les trois piliers ne suffisaient pas encore à ébranler le domaine.
 
-Dans la première grotte, le Couple de Culture Céleste se tenait silencieusement au cœur de la grande formation. Bien que Wang Wei paraisse calme, une pointe d'excitation irrépressible brillait dans ses yeux. Il prit une profonde inspiration et murmura: « Ce jour... Le jour que nous attendions est enfin arrivé... »
+Dans la première grotte, le Couple de Cultivateurs du Nuage Céleste se tenait silencieusement au cœur de la grande formation. Bien que Wang Wei paraisse calme, une pointe d'excitation irrépressible brillait dans ses yeux. Il prit une profonde inspiration et murmura: « Ce jour... Le jour que nous attendions est enfin arrivé... »
 
 Hu Juan, debout à ses côtés, lui prit la main et dit doucement: « Nous réussirons cette fois. »
 « Nous avons planifié si longtemps; nous ne pouvons pas échouer! » répondit Wang Wei d'un hochement de tête.
 
-Derrière eux, une ombre pourpre se dessinait, dégageant une aura féroce qui rappelait vaguement celle que Wang Lin reconnaîtrait sans peine.
+Derrière eux, une ombre pourpre se dessinait, dégageant une aura féroce que Wang Lin connaissait très bien.
 
 « La Terre des Esprits Démoniaques... Qui aurait cru que cet endroit portait autrefois le nom de Royaume Céleste des Esprits... » soupira Wang Wei en pointant sa main droite vers la pierre noire de la formation. La pierre étincela et la formation s'activa. « L'énergie démoniaque est un poison. Aujourd'hui, que sa véritable forme réapparaisse! » Ses yeux brillaient d'un éclat intense.
 

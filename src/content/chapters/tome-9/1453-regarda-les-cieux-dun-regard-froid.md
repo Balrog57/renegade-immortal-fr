@@ -16,7 +16,7 @@ Comme l'autre personne l'avait affirmé, il était venu ici avec une partie de s
 
 S'il avait combattu un cultivateur ordinaire du troisième pas, cela n'aurait pas posé de problème, mais son ennemi avait une renommée égale à la sienne, et ces obstacles devenaient fatals! De plus, il avait toujours été fier et possédait une personnalité singulière, ce qui faisait qu'il n'avait guère d'amis. Seul dans le Tombeau de l'Ordre Ancien, il ne put que laisser échapper un froid reniflement, faute de réplique.
 
-En peu de temps, ils avaient échangé des centaines de coups. Derrière chacun d'eux flottait une plateforme noire de 40 000 pieds dégageant une pression colossale. La collision de leurs sorts créait des rugissements qui ébranlaient l'esprit des cultivateurs combattant en dessous.
+En peu de temps, ils avaient échangé une centaine de coups. Derrière chacun d'eux flottait une plateforme noire de 40 000 pieds dégageant une pression colossale. La collision de leurs sorts créait des rugissements qui ébranlaient l'esprit des cultivateurs combattant en dessous.
 
 À cet instant, à l'extérieur de cette terre scellée, une plateforme violet foncé se déplaçait à travers la brume. Wang Lin se tenait là, entouré de plusieurs dizaines de milliers de bêtes-moustiques. Son regard était glacial tandis qu'il avançait en suivant la carte gravée dans son esprit.
 
@@ -30,7 +30,7 @@ En un éclair, la bête-moustique s'approcha et disparut lorsqu'elle toucha la b
 
 Dans le ciel de la terre scellée, le Maître du Dao Miao Yin et Grande Désolation poursuivaient leur affrontement. Une tempête les entourait, rendant invisible la férocité du combat. Cependant, ce tourbillon qui balayait le monde était extrêmement terrifiant.
 
-La bête-moustique apparut dans un coin et resta immobile. Le fragment de Sens Divin que Wang Lin y avait déposé perçut immédiatement tout. Pourtant, à cet instant précis, un rayon de lumière jaillit de la tempête vers la créature. La bête-moustique explosa instantanément, et même le fragment de Sens Divin de Wang Lin fut anéanti.
+La bête-moustique apparut dans un coin et resta immobile. Le fragment de Sens Divin que Wang Lin y avait déposé perçut immédiatement tout. Pourtant, à cet instant précis, un rayon de lumière noire jaillit de la tempête vers la créature. La bête-moustique explosa instantanément, et même le fragment de Sens Divin de Wang Lin fut anéanti.
 
 « Aucun intrus n'est autorisé à entrer, disparaissez! » La voix du Maître du Dao Miao Yin résonna.
 
@@ -38,7 +38,7 @@ La bête-moustique apparut dans un coin et resta immobile. Le fragment de Sens D
 
 « Maître du Dao Miao Yin... La personne qui combat est imprégnée de poison et est également un cultivateur du troisième pas... C'était trop rapide, je n'ai pas pu voir son identité! » Les yeux de Wang Lin brillèrent. Il avait également aperçu la terre en dessous, où près de 100 cultivateurs se livraient bataille, y compris la fille du clan de l'Extermination des Sceaux.
 
-« La culture du Maître du Dao Miao Yin est un peu étrange... Il semble n'être qu'au niveau de Maître Simo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Lorsqu'il vit la femme en blanc, il constata que son niveau de culture avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
+« La culture du Maître du Dao Miao Yin est un peu étrange... Il semble n'être qu'au niveau de Maître Simo... L'adversaire qu'il combat est de force comparable... » Wang Lin commença à méditer. Dès son entrée dans la tombe, en voyant la femme en blanc, il avait constaté que son niveau de culture avait bien trop chuté par rapport à ce qu'elle était à l'extérieur du Tombeau de l'Ordre Ancien.
 
 Ayant revu le Maître Miao Yin une fois de plus, et constatant qu'il était lui aussi bien affaibli, tout comme la femme en blanc, ses spéculations s'accentuèrent. « Devrais-je parier... » Wang Lin fronça les sourcils.
 
@@ -56,7 +56,7 @@ Les bêtes étaient légion; elles apparurent en un éclair, couvrant le ciel. T
 
 « Le visage de cet homme m'est inconnu. Quel cultivateur du troisième pas s'est présenté dans un autre corps? Ces bêtes féroces sont inédites; pourraient-elles être une autre espèce issue du tombeau? » Les quelque 100 cultivateurs fixaient Wang Lin et ses bêtes-moustiques.
 
-Wang Lin n'hésita pas une seconde. Dès son apparition, les bêtes-moustiques rugirent et chargèrent les cultivateurs.
+Wang Lin n'hésita pas une seconde. Dès son apparition, il pointa la main droite vers le bas, et les bêtes-moustiques, dans un bourdonnement, chargèrent les cultivateurs.
 
 Sans même accorder un regard à la tempête, Wang Lin quitta la plateforme. Il fonça vers la jeune fille du clan de l'Extermination des Sceaux telle une flèche de tonnerre.
 
@@ -66,15 +66,15 @@ Tout en reculant, la jeune fille traça rapidement un sceau. Sa marque de clan b
 
 Cependant, Wang Lin était trop rapide et se rapprocha instantanément. Une lueur d'intention meurtrière traversa les yeux d'un homme d'âge moyen qui, ayant remarqué que Wang Lin n'était pas un cultivateur du troisième pas, eut l'intention de lui barrer la route.
 
-L'expression de Wang Lin demeura sereine. Alors qu'il convergeait vers l'homme, il le pointa du doigt. L'intention meurtrière de l'homme se transforma en Flamme Éthérée qui se mit à brûler avec sauvagerie.
+L'expression de Wang Lin demeura sereine. Alors qu'il convergeait vers l'homme, il le pointa du doigt. L'intention meurtrière de l'homme se transforma en Feu Éthéré qui se mit à brûler avec sauvagerie.
 
-Tandis que l'homme hurlait de douleur en reculant, la Flamme Éthérée redoublait d'intensité. Il était sur le point de devenir une simple boule de feu.
+Tandis que l'homme hurlait de douleur en reculant, le Feu Éthéré redoublait d'intensité. Il était sur le point de devenir une simple boule de feu.
 
-Wang Lin ne marqua aucun temps d'arrêt et poursuivit sa charge. Sa vitesse était telle qu'il paraissait presque invisible à l'œil nu. Les sept ou huit autres cultivateurs qui avaient initialement voulu l'intercepter furent terrifiés par la Flamme Éthérée. Ils ne purent que s'arrêter, le regard pétrifié par la peur.
+Wang Lin ne marqua aucun temps d'arrêt et poursuivit sa charge. Sa vitesse était telle qu'il paraissait presque invisible à l'œil nu. Les sept ou huit autres cultivateurs qui avaient initialement voulu l'intercepter furent terrifiés par le Feu Éthéré. Ils ne purent que s'arrêter, le regard pétrifié par la peur.
 
-Gardant son calme, Wang Lin agita la main et la Flamme Éthérée réapparut. Les sept ou huit cultivateurs commencèrent à brûler, puis reculèrent précipitamment, n'osant plus entraver sa route... « Invoquez le grand sceau de mon clan... » Le visage de la jeune fille était livide. Elle fuyait frénétiquement, sa voix devenant aiguë et brisée par la panique.
+Gardant son calme, Wang Lin agita la main et le Feu Éthéré réapparut. Les sept ou huit cultivateurs commencèrent à brûler, puis reculèrent précipitamment, n'osant plus entraver sa route... « Invoquez le grand sceau de mon clan... » Le visage de la jeune fille était livide. Elle fuyait frénétiquement, sa voix devenant aiguë et brisée par la panique.
 
-À peine quelques respirations s'étaient-elles écoulées depuis l'apparition de Wang Lin dans cette terre scellée. Il se trouvait désormais à moins de 300 pieds de la jeune fille. Entre eux, outre les cultivateurs qui fuyaient en hurlant, plus d'une dizaine d'individus restaient là, terrifiés par sa progression. À chaque pas de Wang Lin, ils reculaient. Son élan était tel un arc-en-ciel; vu de loin, seuls ces mots pouvaient le décrire. La distance de 300 pieds tomba à 200, puis 100, puis 30. « Comment un junior ose-t-il! » Alors que Wang Lin n'était plus qu'à 30 pieds d'elle, le rugissement du Maître du Dao Miao Yin jaillit de la tempête, suivi d'un rire ancien qui semblait vouloir l'entraver. Les grondements s'intensifièrent au cœur du tourbillon. Le Maître du Dao Miao Yin poussa un grognement alors qu'un rayon de lumière perçait le monde. Ce rayon, dirigé vers Wang Lin, contenait la puissance de 100 000 Flammes Joss. Tandis que la lumière convergeait, la voix de la jeune fille retentit:
+À peine quelques respirations s'étaient-elles écoulées depuis l'apparition de Wang Lin dans cette terre scellée. Il se trouvait désormais à moins de 300 pieds de la jeune fille. Entre eux, outre les cultivateurs qui fuyaient en hurlant, plus d'une dizaine d'individus restaient là, terrifiés par sa progression. À chaque pas de Wang Lin, ils reculaient. Son élan était tel un arc-en-ciel; vu de loin, seuls ces mots pouvaient le décrire. La distance de 300 pieds tomba à 200, puis 100, puis 30. « Comment un junior ose-t-il! » Alors que Wang Lin n'était plus qu'à 30 pieds d'elle, le rugissement du Maître du Dao Miao Yin jaillit de la tempête, suivi d'un rire ancien qui semblait vouloir l'entraver. Les grondements s'intensifièrent au cœur du tourbillon. Le Maître du Dao Miao Yin poussa un grognement alors qu'un rayon de lumière noire perçait le monde. Ce rayon, dirigé vers Wang Lin, contenait la puissance de 100 000 Flammes Joss. Tandis que la lumière convergeait, la voix de la jeune fille retentit:
 
 «... scellez l'essence de cet individu... »
 

@@ -6,11 +6,11 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 510 - Collapse! Break Down!"
 slug: effondrement-rupture
 ---
-Les deux anciens de la Secte de l'Épée Da Lou se regardèrent, puis le plus petit d'entre eux tendit soudainement la main. L'homme en blanc aux côtés de Qian Qin poussa un cri et son corps fut projeté dans la vallée par une force invisible.
+Les deux anciens de la Secte de l'Épée Da Luo se regardèrent, puis le plus petit d'entre eux tendit soudainement la main. L'homme en blanc aux côtés de Qian Qin poussa un cri et son corps fut projeté dans la vallée par une force invisible.
 
 Au moment même où il basculait dans l'abîme, un son strident capable de percer les cieux résonna au fond de la vallée. En un clin d'œil, une multitude de points rouges jaillirent des feuilles mortes qui recouvraient le sol et commencèrent à s'agglutiner. De loin, ce spectacle était terrifiant.
 
-« Frère aîné! » Qian Qin se retourna brusquement. Elle fixa les membres de la Secte de l'Épée Da Lou et hurla: « Que signifie cela, Senior?! »
+« Frère aîné! » Qian Qin se retourna brusquement. Elle fixa les membres de la Secte de l'Épée Da Luo et hurla: « Que signifie cela, Senior?! »
 
 À peine avait-elle fini sa phrase que les innombrables points rouges s'animèrent. Ils fusionnèrent pour former un immense nuage écarlate qui se mit à émettre un bourdonnement assourdissant avant de fondre sur le jeune homme en robe blanche.
 
@@ -34,7 +34,7 @@ Quant à l'autre femme, celle qui appelait Guo Xingyi « frère aîné », son v
 
 Seul l'homme en robe bleue, qui n'avait cessé de faire l'éloge de Guo Xingyi, ne montrait aucun signe d'inconfort. Au contraire, lorsqu'il tourna les yeux vers la vallée, une expression d'extase illumina son visage.
 
-Shi Fang, de la Secte de l'Épée Da Lou, sourit à l'ancien de petite taille et dit: « Il semble que nous n'ayons plus besoin de tuer personne. Cet individu a déjà attiré la majorité des Insectes des Neuf Multitudes dans son propre corps. »
+Shi Fang, de la Secte de l'Épée Da Luo, sourit à l'ancien de petite taille et dit: « Il semble que nous n'ayons plus besoin de tuer personne. Cet individu a déjà attiré la majorité des Insectes des Neuf Multitudes dans son propre corps. »
 
 Le petit ancien sourit en retour: « Le frère Shi est plus doué pour les restrictions; j'espère que vous ne vous retenez pas. Une fois les Fruits d'Or Brillants en notre possession, nous devrons encore rendre compte à la secte. »
 
@@ -56,7 +56,7 @@ L'expression du petit ancien resta sereine tandis qu'il levait sa main droite po
 
 En vérité, s'il y avait eu quelques Insectes des Neuf Multitudes supplémentaires, il lui aurait été difficile de les maîtriser, mais comme il n'en restait que peu, la tâche semblait dérisoire.
 
-Shi Fang descendit également dans la vallée. Avec son aide, les derniers insectes furent instantanément anéantis.
+Shi Fang descendit également dans la vallée. Avec son aide, les insectes restés à l'extérieur furent instantanément anéantis, à l'exception de ceux qui s'étaient logés dans le corps du jeune homme.
 
 La troisième personne à pénétrer dans la vallée fut l'oncle-maître de Guo Xingyi, suivi par tous les autres. Quant à Qian Qin, la colère avait quitté son visage pour laisser place à un calme terrifiant.
 
@@ -78,9 +78,9 @@ En conséquence, le vieillard nommé Lu, qui s'apprêtait à récolter les fruit
 
 Les autres subirent le même sort. Seuls les yeux de Qian Qin restaient calmes tandis qu'elle contemplait le cadavre de son frère aîné. C'était comme si tout ce qui se passait autour d'elle ne la concernait plus.
 
-Shi Fang réfléchit un instant, puis cria: « Camarade cultivateur qui vient d'arriver, nul besoin de feindre ou de se cacher! Je suis l'un des anciens de la Secte de l'Épée Da Lou, Shi Fang. Je vous prie de bien vouloir sortir pour converser! » Les deux anciens échangèrent un regard où transparaissait leur choc mutuel.
+Shi Fang réfléchit un instant, puis cria: « Camarade cultivateur qui vient d'arriver, nul besoin de feindre ou de se cacher! Je suis l'un des anciens de la Secte de l'Épée Da Luo, Shi Fang. Je vous prie de bien vouloir sortir pour converser! » Les deux anciens échangèrent un regard où transparaissait leur choc mutuel.
 
-Au moment où ce vent souffla, la sensation précédente s'intensifia de plusieurs crans. Au début, on aurait dit qu'une bête féroce se trouvait au loin, mais en un battement de cils, cette bête était là, sous leurs yeux.
+Au moment où ce vent souffla, la sensation précédente s'intensifia de manière démesurée. Au début, on aurait dit qu'une bête féroce se trouvait au loin, mais en un battement de cils, cette bête était là, sous leurs yeux.
 
 Ce changement radical fit vaciller le cœur des deux anciens.
 
@@ -100,7 +100,7 @@ Alors que les deux anciens attaquaient, le vieillard de la Formation de l'Âme, 
 
 La lumière du miroir de bronze agissait comme une restriction enserrant le gaz gris. Simultanément, l'épée de Shi Fang fondit sur la cible comme si elle tombait du sommet du neuvième ciel. Avant même l'impact, un sifflement déchirant l'air retentit.
 
-La Secte de l'Épée Da Lou était célèbre pour ses lames; leur puissance ne pouvait être décevante!
+La Secte de l'Épée Da Luo était célèbre pour ses lames; leur puissance ne pouvait être décevante!
 
 Cependant!
 

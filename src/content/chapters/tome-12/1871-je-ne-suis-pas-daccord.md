@@ -76,7 +76,7 @@ Dans la grotte, Wang Lin fixait le vortex dans le ciel. Il écoutait le rugissem
 
 La première étape pour invoquer l'âme du Taureau Céleste consistait à tracer l'empreinte sanguine. La seconde consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé!
 
-« Compagnons cultivateurs, prélevez 450 grammes de sang, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
+« Compagnons cultivateurs, prélevez 495 grammes de sang, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
 
 Simultanément, les mille cultivateurs levèrent la main droite. À ce stade, il n'y avait plus de retour en arrière possible. Ils suivirent l'exemple du vieil homme et pressèrent leurs doigts pour libérer la quantité requise de sang.
 
@@ -88,7 +88,7 @@ Le cri devint encore plus puissant et Lu Wenran fut transporté par l'excitation
 
 « Ceci est à moi; cela m'appartient, Lu Wenran! Avec l'armure d'âme du Taureau Céleste, je pourrai me frayer un chemin par le massacre. Bien que cette puissance ne soit que temporaire, je ne rendrai pas cette armure si facilement! » Lu Wenran fixait le vortex avec ferveur. Il avait attendu ce jour pendant une éternité!
 
-S'il avait ciblé Wang Lin, c'était à cause de l'attitude du Très Respecté Taureau Vert envers ce dernier, ce qui l'avait fait se sentir menacé. Le fait qu'ils aient tous deux été envoyés ici avait poussé Lu Wenran à agir ainsi.
+S'il avait ciblé Wang Lin, c'était à cause de l'attitude de l'Ancêtre Taureau Vert envers ce dernier, ce qui l'avait fait se sentir menacé. Le fait qu'ils aient tous deux été envoyés ici avait poussé Lu Wenran à agir ainsi.
 
 La chaîne rouge continua de tirer, et le rugissement du Taureau Céleste devint plus limpide encore. Une silhouette de taureau commençait à être extraite.
 

@@ -14,13 +14,13 @@ Wang Lin observa la lumière aux sept couleurs qui baignait le ciel et réfléch
 
 « Qu'est-ce que cet endroit, au juste? » demanda Chen Tianjun, de la Secte de la Bête de Bataille.
 
-Maître Pin Cendré leva la tête et répondit lentement: « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région centrale. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
+Maître Pin Cendré leva la tête et répondit lentement: « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région intérieure. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
 
 Tous suivirent de près Maître Pin Cendré, progressant avec prudence. Ce dernier restait d'une grande gravité tout au long du trajet, suivant un itinéraire précis depuis l'autel vers la plaine. Ils finirent par pénétrer dans une zone montagneuse noyée dans la brume.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il inspectait les environs. Il n'y avait aucun arbre ici, seulement des montagnes dénudées. Les différentes strates de brume coexistaient en groupes distincts sans jamais se mélanger.
 
-À cet instant précis, Chen Tianjun s'arrêta soudainement et fixa une montagne non loin de là. Une grotte de pierre était vaguement perceptible à mi-pente. Elle n'était manifestement pas naturelle; on pouvait deviner au premier coup d'œil qu'elle avait été aménagée pour servir de grotte de culture.
+À cet instant précis, Chen Tianjun s'arrêta soudainement et fixa une montagne sur la droite, non loin de là. Une grotte de pierre était vaguement perceptible à mi-pente. Elle n'était manifestement pas naturelle; on pouvait deviner au premier coup d'œil qu'elle avait été aménagée pour servir de grotte de culture.
 
 « Il y a bien une grotte là-bas, mais elle est gardée par des bêtes de rang 12. La dernière fois que je suis venu, j'ai attiré ces bêtes loin du site pour m'y faufiler. J'en avais tiré quelques précieux artefacts », murmura Maître Pin Cendré en jetant un regard à Chen Tianjun, avant de reprendre sa marche.
 
@@ -64,7 +64,7 @@ Chen Tianjun se lécha les lèvres: « Je veux l'âme de ce dragon! »
 La vieille femme en vert ajouta: « Le corps du dragon me revient! »
 Les yeux de Wang Lin brillèrent et il déclara calmement: « Je veux tous les cristaux d'origine présents dans la brume! » Après ces déclarations, leurs regards se tournèrent tous vers Maître Pin Cendré.
 
-Ce dernier éclata de rire: « Très bien. Le compagnon Pang et moi n'avons que faire de ces choses. Nous voulons simplement passer. »
+Ce dernier sourit: « Très bien. Le compagnon Pang et moi n'avons que faire de ces choses. Nous voulons simplement passer. »
 
 Une lueur froide traversa le regard du jeune homme qui prit une grande inspiration. Ses mains formèrent un sceau et ses cheveux s'agitèrent comme sous l'effet d'un vent invisible. Ses yeux s'illuminèrent, laissant apparaître les symboles du soleil et de la lune dans chacun de ses globes oculaires. Il poussa alors un rugissement, pointant sa main gauche entre ses sourcils et sa main droite vers l'avant.
 

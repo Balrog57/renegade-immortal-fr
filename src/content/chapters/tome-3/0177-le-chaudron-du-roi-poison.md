@@ -74,7 +74,7 @@ En plus des pierres spirituelles, il y avait plusieurs flacons. Enfin, concernan
 
 Wang Lin comprit rapidement après réflexion. Bossu Meng étant resté piégé durant une longue période, il avait dû épuiser tous ses trésors.
 
-Sa supposition était très juste. Bossu Meng possédait de nombreux trésors, tous de niveau Âme Naissante ou supérieur. Cependant, après avoir tenté à plusieurs reprises de franchir les tornades, il avait tout consommé, particulièrement lors de l'épreuve où il utilisa dix bêtes spirituelles comme substituts. Il avait jeté d'innombrables richesses dans cette tentative, allant même jusqu'à faire exploser ses trésors pour tenter de frayer un passage, sans succès.
+Sa supposition était très juste. Bossu Meng possédait de nombreux trésors, tous de niveau Âme Naissante ou supérieur. Cependant, après avoir tenté à plusieurs reprises de franchir les tornades, il avait tout consommé, particulièrement lors de l'épreuve où il utilisa plus de dix bêtes spirituelles comme substituts. Il avait jeté d'innombrables richesses dans cette tentative, allant même jusqu'à faire exploser ses trésors pour tenter de frayer un passage, sans succès.
 
 C'est pour cette raison que le seul trésor magique qu'il lui restait était ce chaudron vert.
 
@@ -92,7 +92,7 @@ Cependant, cette méthode était extrêmement tyrannique. Le pratiquant devait e
 
 De plus, ce n'est qu'en atteignant le neuvième niveau, celui du retour à la simplicité originelle, que le corps expulserait le poison pour former le véritable Poison Ming et que le pratiquant redeviendrait un être normal. Avant cela, le corps subirait toutes sortes de mutations, la plus flagrante étant l'apparition de pustules.
 
-Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Bossu Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son apparence, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en un mort-vivant qui ne sait que tuer.
+Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Bossu Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son propre corps, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en un mort-vivant qui ne sait que tuer.
 
 C'était la raison principale de son renoncement. Bien qu'il ne puisse pas pratiquer cette méthode, les jades contenaient de nombreuses techniques qu'il pourrait utiliser s'il disposait du poison nécessaire.
 
@@ -150,7 +150,7 @@ Dès son entrée, le cristal fondit et se mêla au contenu du fourneau.
 
 Wang Lin continua d'y jeter les morceaux avec calme. Une heure plus tard, tous les fragments étaient à l'intérieur. Il poussa un soupir de soulagement, puis ses mains formèrent de nouveaux sceaux.
 
-La rotation s'accéléra encore. Il ne pouvait plus distinguer le contenu; ce n'était plus qu'une masse informe. Le vortex vert semblait immobile, mais en y regardant de près, on percevait un mouvement si rapide qu'il paraissait statique.
+La rotation s'accéléra encore, deux fois plus vite. Il ne pouvait plus distinguer le contenu; ce n'était plus qu'une masse informe. Le vortex vert semblait immobile, mais en y regardant de près, on percevait un mouvement si rapide qu'il paraissait statique.
 
 Wang Lin murmura: « Toujours pas assez! » Grâce à son Sens Divin, il constata que la chaleur générée par la rotation était insuffisante. Elle avait seulement fait rougir le chaudron vert sans parvenir à le fondre.
 

@@ -36,7 +36,7 @@ La belle femme murmura doucement: « Cette jeune fille a quelques informations. 
 
 Lie Yunzi laissa échapper un reniflement froid. Il était naturellement au courant. Le camp de Luotian avait déjà envisagé cette hypothèse, mais à l'exception de Maître Yan Leizi, qui pensait qu'il s'agissait très probablement de « lui », personne d'autre n'y croyait. Ainsi, la possibilité que « lui » soit le nouvel Empereur Divin fut écartée, car cela paraissait tout simplement inconcevable.
 
-« Lui? Il n'a pas les qualifications pour devenir l'Empereur Divin! » Une pointe de dédain brillait dans les yeux de Lie Yunzi. S'il n'y avait pas eu Qing Shui, Lie Yunzi l'aurait déjà capturé pour le transformer en marionnette afin de l'aider à percer les mystères du Parchemin de la Bataille.
+« Lui? Il n'a pas les qualifications pour devenir l'Empereur Divin! » Une pointe de dédain brillait dans les yeux de Lie Yunzi. Si cet homme n'avait pas invoqué le nom de Qing Shui, Lie Yunzi l'aurait déjà capturé pour le transformer en marionnette afin de l'aider à percer les mystères du Parchemin de la Bataille.
 
 Si quelqu'un prétendait que Wang Lin était le nouvel Empereur Divin, Lie Yunzi ne le croirait jamais!
 
@@ -46,7 +46,7 @@ En plus d'accomplir la tâche confiée par Luotian, il avait un objectif personn
 
 Il pensait que la Secte Divine de l'Oiseau Vermillon avait ses raisons d'avoir pris Wang Lin. Trois ans étaient suffisants pour épuiser la valeur de ce dernier. Désormais, Wang Lin était probablement devenu inutile pour eux; il ne devrait donc pas être difficile de le récupérer.
 
-La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit que ses sorts étaient capables de tuer Maître du Vide. Il a également fait périr deux des trois grands avatars de l'Omniscient et blessé le troisième. Pourquoi le Senior Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divine de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
+La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit qu'une seule de ses techniques a suffi à tuer Maître du Vide. Il a également fait périr deux des trois grands avatars de l'Omniscient et blessé le troisième. Pourquoi le Senior Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divine de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
 
 Lie Yunzi répondit calmement: « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de culture! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
 
@@ -62,7 +62,7 @@ La belle femme fut la dernière à lever les yeux. Au moment où leurs regards c
 
 À cet instant, l'énergie originelle du feu sembla s'animer, devenant vibrante et exaltée. En tournoyant, elle s'écarta comme pour céder le passage en signe de respect.
 
-Un homme entra lentement dans la salle sous les yeux médusés des trois interlocuteurs. Il portait une armure rouge qui lui couvrait le visage, ne laissant apparaître que ses cheveux blancs. Une cape blanche flottait derrière lui, s'harmonisant avec le tatouage blanc de l'Oiseau Vermillon, dégageant une pression écrasante.
+Un homme entra lentement dans la salle sous les yeux médusés des trois interlocuteurs. Il portait une armure rouge qui lui couvrait le visage, ne laissant apparaître que ses cheveux blancs. Une cape blanche flottait derrière lui, s'harmonisant avec le emblème blanc de l'Oiseau Vermillon, dégageant une pression écrasante.
 
 Alors qu'il avançait, son armure émettait des cliquetis métalliques; il ignorait totalement l'assistance. Sa cape ondulait au rythme de ses cheveux blancs tandis qu'une vague de chaleur inimaginable envahissait la pièce.
 
@@ -76,7 +76,7 @@ Les quatre entrèrent avec l'homme en armure, se tenant derrière lui tout en ob
 
 L'homme en armure s'avança devant tout le monde et releva sa cape avant de s'asseoir. Ses yeux, semblables à des flammes, perçèrent l'intérieur du casque pour se poser sur les trois interlocuteurs.
 
-Il dégageait une majesté absolue. De plus, l'énergie originelle qui l'entourait empêchait tout Sens Divin de l'espionner. Même si quelqu'un parvenait à transpercer cette barrière énergétique, très peu de gens seraient capables d'identifier Wang Lin.
+Il dégageait une majesté absolue. De plus, l'énergie originelle qui l'entourait empêchait tout Sens Divin de l'espionner. Même si quelqu'un parvenait à transpercer cette barrière énergétique, la cape de la Secte rendrait très peu de gens capables d'identifier Wang Lin.
 
 Un silence de mort s'installa dans la salle. L'apparition de cet homme était trop saisissante et avait provoqué une agitation inattendue de l'énergie du feu. Le front de la belle femme était perlé de sueur, comme si elle était assise dans un four. Normalement, avec son niveau de culture, la chaleur ne l'aurait pas affectée, mais depuis l'apparition de l'homme, l'accumulation d'énergie était devenue presque insupportable.
 

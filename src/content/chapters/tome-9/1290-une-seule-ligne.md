@@ -10,7 +10,7 @@ Le vieil homme en noir afficha un sourire sardonique alors qu'il s'avançait pou
 
 Les six cultivateurs du premier Fléau Céleste lancèrent tous leurs attaques simultanément. Il semblait qu’ils étaient déterminés à tuer Wang Lin!
 
-Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien Suprême de la Secte Divine, Shui Daozi, a échoué à le tuer. Quelle absurdité! Cet homme a offensé la Secte Divine et a survécu à une calamité, pour ensuite venir provoquer notre Secte Éternelle. Nous allons le capturer et le livrer à la Secte Divine afin de toucher une récompense! »
+Le vieil homme en noir s'écria immédiatement: « Il prétend que l'Ancien en chef de la Secte Divine, Shui Daozi, a échoué à le tuer. Quelle absurdité! Cet homme a offensé la Secte Divine et a survécu à une calamité, pour ensuite venir provoquer notre Secte Éternelle. Nous allons le capturer et le livrer à la Secte Divine afin de toucher une récompense! »
 
 Les six auras étaient assourdissantes. Il s'agissait d'une attaque combinée de six cultivateurs du premier Fléau Céleste. Seuls ceux atteignant le deuxième Fléau Céleste seraient capables de riposter; tous les autres périraient!
 
@@ -58,7 +58,7 @@ Bien qu'elle ne fût pas encore totalement constituée, un vortex se forma!
 
 C’était un rayon de lumière rouge, une lueur rouge sang! Au cœur de cette lumière se trouvait une épée de la taille d'une paume! Cette épée était faite de sang, et le fluide à l'intérieur circulait, émettant une lueur écarlate qui imprégnait le monde!
 
-Un chant d'épée s'éleva, contenant une pointe d'excitation et de joie, comme si elle se libérait de millénaires de suppression. Dès que l'épée de sang atterrit dans la main de Wang Lin, il ressentit un lien sanguin immédiat avec elle!
+Un chant d'épée s'éleva, contenant une pointe d'excitation et de joie, comme si elle se libérait de dizaines de milliers d'années de suppression. Dès que l'épée de sang atterrit dans la main de Wang Lin, il ressentit un lien sanguin immédiat avec elle!
 
 C’était comme si cette épée de sang lui avait toujours appartenu, qu'elle était son essence même!
 

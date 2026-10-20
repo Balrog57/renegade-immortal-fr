@@ -40,7 +40,7 @@ Le grondement de l'effondrement des 7 Millions de Mondes s'estompa progressiveme
 
 À travers la brèche, une lumière éclatante apparut devant lui. Le Daoïste Esprit Dispersé, transportant tout son clan dans l'excitation, surgit dans le domaine stellaire du Clan du Tonnerre Dispersé!
 
-Dès son apparition, deux larmes coulèrent de ses yeux et il laissa échapper un rire empreint d'une joie infinie! Il n'était pas le seul; ceux qu'il protégeait ressentaient la même émotion. Grâce à sa protection, même les mortels n'avaient pas péri dans le vide spatial comme ils l'auraient dû. Ils avaient été témoins de leur évasion des 7 Millions de Mondes pour pénétrer dans le Royaume Céleste qui les enveloppait désormais. L'exaltation qu'ils ressentaient était indescriptible!
+Dès son apparition, deux larmes coulèrent de ses yeux et il laissa échapper un rire empreint d'une joie infinie! Il n'était pas le seul; ceux qu'il protégeait ressentaient la même émotion. Grâce à sa protection, même les mortels ne périssaient pas dans le vide spatial. Ils avaient été témoins de leur évasion des 7 Millions de Mondes pour pénétrer dans le Royaume Céleste qui les enveloppait désormais. L'exaltation qu'ils ressentaient était indescriptible!
 
 « Voici le Royaume Céleste, ce Royaume Céleste qui a toujours décidé de notre vie ou de notre mort. Désormais, mon clan sera le Clan Céleste. Puisque cet endroit abrite le Clan du Tonnerre Dispersé, il doit aussi abriter notre Clan Céleste! » Le Daoïste Esprit Dispersé riait de plus en plus fort, jusqu'à en pleurer.
 

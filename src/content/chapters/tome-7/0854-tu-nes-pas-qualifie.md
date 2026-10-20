@@ -110,11 +110,11 @@ Une explosion qui fit trembler les cieux retentit alors que l'espace entre le Di
 
 Le corps du Dieu de Sang trembla tandis qu'il se retirait précipitamment. Il fixa Qing Shui et cria avec hâte:
 
-« Qing Shui, je te respecte car tu es un Seigneur Céleste, mais ne me pousse pas à bout! Tu as dormi trop longtemps; serais-tu devenu confus? Même si ce Xu Mu a appris l'Invoque le Vent, comment pourrait-il être ton jeune frère apprenti!?! De plus, il a tué plusieurs membres de la troisième génération de la famille Yao, il est donc naturel que je vienne le supprimer. Qing Shui, ce vieil homme n'a pas peur de toi, ne me force pas! »
+« Qing Shui, je te respecte car tu es un Seigneur Céleste, mais ne me pousse pas à bout! Tu as dormi trop longtemps; serais-tu devenu confus? Même si ce Xu Mu a appris l'Invoque le Vent, comment pourrait-il être ton jeune frère apprenti!?! De plus, il a tué plusieurs membres de la troisième génération de la famille Yao, il est donc naturel que je vienne le supprimer. De quel droit t'en mêles-tu? Qing Shui, ce vieil homme n'a pas peur de toi, ne me force pas! »
 
 Le Dieu de Sang ignorait que Qing Shui éprouvait une immense culpabilité envers son maître. Ce sentiment était profond, mais il n'aurait plus jamais l'occasion de s'en acquitter.
 
-Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son combat contre Maître Yan Leizi, une émotion complexe envers Wang Lin s'était développée en lui.
+Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son combat contre Maître Flamespark, une émotion complexe envers Wang Lin s'était développée en lui.
 
 « Même s'il a tort, c'est à moi de le discipliner pour le compte du Maître. Tu n'es pas qualifié! » Alors que le Seigneur Céleste Qing Shui parlait froidement, les six dragons noirs rugirent soudainement.
 

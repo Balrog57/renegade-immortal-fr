@@ -46,7 +46,7 @@ C'est pour cette raison que la perception de la force chez Wang Lin différait r
 
 « Quand j'étais enfant, en lisant des livres, j'ai entendu dire qu'une goutte d'eau pouvait percer la roche. L'eau peut sembler douce, mais en vérité, elle est extrêmement tenace. Lorsqu'elle tombe sur la pierre, elle doit supporter la force de réaction. Les innombrables gouttelettes créent une force de rebond qui finit par permettre à l'eau de pénétrer la roche! »
 
-« Sans parler des roches; si un Dieu Ancien restait couché là, même lui finirait par être percé par ces gouttelettes après un long moment! » L'illumination brilla dans les yeux de Wang Lin alors qu'il tournait son regard vers le vieil homme.
+« Sans parler des roches; si un Dieu Ancien, au corps que nul sortilège ne peut percer, restait couché là, il finirait lui aussi par être percé par ces gouttelettes après un long moment! » L'illumination brilla dans les yeux de Wang Lin alors qu'il tournait son regard vers le vieil homme.
 
 L'expression du vieil homme devint sérieuse, trahissant une pointe de choc. Il ne s'attendait pas à ce que Wang Lin saisisse l'essence de ce sort par lui-même!
 
@@ -92,7 +92,7 @@ Wang Lin observa attentivement cette Flamme Éthérée et fut secrètement stup�
 
 « Cette Flamme Éthérée... Elle ne dégage aucune chaleur, et pourtant, elle donne l'illusion que mon âme est en train de brûler! »
 
-Grâce à la puissance de culture du vieil Oiseau Vermillon, Wang Lin fut transporté instantanément au-dessus de l'arène de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
+Grâce à la puissance de culture du vieil Oiseau Vermillon, Wang Lin fut transporté instantanément au-dessus de l'arène de mille lieues de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
 
 Des dizaines de milliers de cultivateurs entouraient l'arène pour observer le combat, et plusieurs zones restaient désertées, car nul n'osait s'en approcher.
 

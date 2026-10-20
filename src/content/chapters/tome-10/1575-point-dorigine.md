@@ -8,7 +8,7 @@ slug: point-dorigine
 ---
 Le cœur de Wang Lin battait la chamade. Il était ébranlé par sa conjecture audacieuse. Il fixa le dernier tatouage scellant la porte et prit une profonde inspiration.
 
-Le sceau du tatouage contenait l'ascendance céleste et une aura ancienne, créant ainsi une force de rejet. Cependant, ce tatouage circulaire ne se contentait pas d'empêcher cette force de briser la porte; il servait également à la sceller.
+Le sceau du tatouage contenait la lignée céleste et une aura ancienne, créant ainsi une force de rejet. Cependant, ce tatouage circulaire ne se contentait pas d'empêcher cette force de briser la porte; il servait également à la sceller.
 
 L'ingéniosité de ce tatouage stupéfia Wang Lin!
 
@@ -20,7 +20,7 @@ Les yeux de Wang Lin étaient empreints de réflexion, mais après un long momen
 
 S'il n'avait pas quitté la planète Suzaku, il ne serait jamais allé dans les Terres des Esprits Démoniaques. Il n'aurait alors jamais utilisé la faille de ce lieu pour entrer dans Luotian. Et s'il n'était pas allé à Luotian, il n'aurait pu pénétrer dans la Bête des Limbes.
 
-S'il n'avait pas connu la Bête des Limbes, il n'aurait jamais eu l'idée d'en faire sa bête d'essence vitale. De ce fait, il n'aurait pas été avalé par elle pour se soigner lors de leur première bataille à la Mer des Nuages. Il n'aurait alors jamais rencontré le fou, et encore moins obtenu l'ascendance céleste. Naturellement, il n'aurait pas eu à composer avec cette force de rejet.
+S'il n'avait pas connu la Bête des Limbes, il n'aurait jamais eu l'idée d'en faire sa bête d'essence vitale. De ce fait, il n'aurait pas été avalé par elle pour se soigner lors de leur première bataille à la Mer des Nuages. Il n'aurait alors jamais rencontré le fou, et encore moins obtenu la lignée céleste. Naturellement, il n'aurait pas eu à composer avec cette force de rejet.
 
 Maintenant qu'il était revenu sur la planète Suzaku, il se retrouvait là où il avait fait ses premiers pas. Il était revenu au point d'origine.
 
@@ -62,11 +62,11 @@ Ce tatouage ne pouvait être ouvert que par cette méthode. Si l'on n'utilisait 
 
 Le temps s'étira. Wang Lin mit près de quinze minutes pour achever ce dernier fragment. Lorsqu'il eut terminé et que son doigt engourdi revint à sa position initiale, une puissante force de rejet jaillit du tatouage pour pénétrer dans sa main droite.
 
-Dans un fracas assourdissant, Wang Lin fut projeté en arrière. Une lumière émana de son corps et le Bouclier Lumière et Ombre s'activa, mais il ne tint que quelques respirations avant de se briser.
+Dans un fracas assourdissant, Wang Lin fut projeté en arrière. Une lumière émana de son corps et le Bouclier de Lumière et d'Ombre s'activa, mais il ne tint que quelques respirations avant de se briser.
 
 Wang Lin cracha une gorgée de sang. À l'instant même où le bouclier s'effondra, le Fourneau Impérial apparut. Dans un bang, le Fourneau fut déformé par l'impact et repoussé vers le point d'étoile entre les sourcils de Wang Lin.
 
-Grâce au Bouclier Lumière et Ombre et au Fourneau Impérial, la puissance du tatouage avait été considérablement affaiblie. Elle frappa son corps, faisant à nouveau couler le sang de sa bouche. Il fut projeté sur plusieurs centaines de pieds contre le mur. Des craquements retentirent alors que la paroi derrière lui commençait à se fissurer.
+Grâce au Bouclier de Lumière et d'Ombre et au Fourneau Impérial, la puissance du tatouage avait été considérablement affaiblie. Elle frappa son corps, faisant à nouveau couler le sang de sa bouche. Il fut projeté sur plusieurs centaines de pieds contre le mur. Des craquements retentirent alors que la paroi derrière lui commençait à se fissurer.
 
 Le tatouage circulaire projeta une lumière intense qui illumina toute la pièce. Sous cet éclat, la porte de pierre gronda et s'ouvrit lentement, révélant le passage intérieur!
 

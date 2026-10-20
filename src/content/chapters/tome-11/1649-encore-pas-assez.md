@@ -14,7 +14,7 @@ Il était impossible d'imaginer quelle souffrance pouvait provoquer de tels hurl
 
 Ces têtes renfermaient l'âme originelle et les âmes de leurs propriétaires, scellées à l'intérieur. Leurs corps étaient morts, mais pas leurs têtes. Elles subissaient un cycle de réincarnation forgé par le karma, la vie et la mort, le vrai et le faux!
 
-Leurs têtes contenaient les trois essences éthérées de Wang Lin. Grâce à ces essences, elles semblaient plongées dans un rêve entre réalité et illusion, où elles subissaient une multitude de morts atroces.
+Leurs têtes contenaient les trois essences éthérées de Wang Lin. Grâce à ces essences, elles semblaient plongées dans un rêve entre réalité et illusion, où elles revivaient une multitude de drames atroces de leur existence.
 
 Wang Lin les avait scellées avec ses essences éthérées pour qu'elles souffrent d'une douleur sans fin. Ce n'était pas par simple désir de torture, mais ce n'était que la première étape de son massacre.
 
@@ -48,7 +48,7 @@ Cette aura appartenait à un cultivateur du stade avancé du Vide Spirituel, mai
 
 D'un pas assuré, Wang Lin ignora l'aura du cultivateur de la troisième étape et arriva devant une planète. Cette dernière abritait des milliers de cultivateurs du Royaume Extérieur.
 
-La plupart d'entre eux cultivaient les yeux fermés. Certains s'amusaient ou abusaient de leurs fours de culture. D'autres riaient sauvagement en massacrant des mortels, tandis que d'autres encore dévoraient la culture de cultivateurs du Royaume Intérieur capturés.
+La plupart d'entre eux cultivaient les yeux fermés. Certains s'amusaient ou abusaient de leurs fours de culture. D'autres riaient sauvagement en massacrant des mortels, tandis que d'autres encore dévoraient le sang, l'essence et la culture de cultivateurs du Royaume Intérieur capturés.
 
 Wang Lin percevait tout cela avec une clarté absolue grâce à l'extension de son Sens Divin.
 
@@ -78,7 +78,7 @@ Une paume gigantesque occupait le firmament. Elle couvrait presque tout le ciel,
 
 Cette paume portait également une marque vacillante. Parfois nette, parfois floue, la contemplation de ce symbole suffisait à troubler l'esprit de quiconque.
 
-Ce symbole était une porte; c'était la Porte des Dix Mille Vides, formée d'innombrables ossements blancs! Après avoir été détruite, cette porte avait été imprimée sur la paume de Wang Lin!
+Ce symbole était une porte; c'était la Porte des Dix Mille Vides, formée d'innombrables ossements blancs! Après avoir été détruite, cette porte avait été imprimée sur la paume de Wang Lin, où elle demeurait à jamais!
 
 Dès que les milliers de cultivateurs virent la porte, les doigts de la paume se refermèrent lentement, comme pour former un poing. Les cultivateurs ressentirent un grondement sourd alors que des filaments d'aura semblaient être arrachés de leurs sept orifices pour être aspirés vers le ciel.
 
@@ -108,7 +108,7 @@ La planète était en ruines et l'aura de mort qui y régnait était extrêmemen
 
 Il existait un clan dans le Système Stellaire Antique appelé le Clan des Enfers. Les membres de ce clan absorbaient l'aura de mort pour cultiver, et leurs lieux de rassemblement étaient donc souvent saturés de cette essence. Cette planète leur avait été offerte par le Conseil Souverain en récompense de certains exploits.
 
-Le Clan des Enfers était un petit clan du Système Stellaire Antique. La plupart de ses membres s'étaient regroupés ici pour en faire leur nouveau foyer.
+Le Clan des Enfers était un petit clan du Système Stellaire Antique. La plupart de ses membres, venus du Royaume Extérieur, s'étaient regroupés ici pour en faire leur nouveau foyer.
 
 D'innombrables bulles grises flottaient dans l'espace. Ces bulles contenaient des captifs du Royaume Intérieur, et la plupart étaient des femmes. L'une d'entre elles était Zhou Zihong!
 

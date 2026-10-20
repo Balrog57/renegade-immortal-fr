@@ -10,7 +10,7 @@ La formation brilla et une silhouette en sortit.
 
 Teng Huayuan était sur le point de se téléporter lorsqu'il s'arrêta brusquement. Une fureur incontrôlable l'envahit, car cette personne n'était absolument pas Wang Lin, mais un simple disciple au début du stade de l'Établissement des Fondations de la Vallée Wu Feng.
 
-Le visage de Teng Huayuan devint d'une noirceur extrême. De sa main droite, il écrasa une douzaine d'âmes avant de retrouver son calme.
+Le visage de Teng Huayuan devint d'une noirceur extrême. De sa main droite, il écrasa plus d'une dizaine d'âmes avant de retrouver son calme.
 
 Dès l'apparition du disciple, celui-ci courut précipitamment vers Teng Huayuan et le vieillard au visage sombre. Il s'agenouilla au sol et, la voix tremblante de terreur, s'exclama: « Ancêtre, ils sont morts... ils sont tous morts! Même le frère aîné Wang Peng est mort! J'étais loin, alors j'ai pu m'échapper... »
 

@@ -16,7 +16,7 @@ Le cœur de Wang Lin était empreint d'une folie féroce, et l'énergie spiritue
 
 Ses yeux étaient injectés de sang alors qu'il faisait un pas dans les airs. Des échos sourds résonnaient, comme si ses foulées brisaient le ciel lui-même. Il progressait rapidement, fendant l'azur de ses grandes enjambées.
 
-Il était encore loin de l'ancien champ de bataille. Ses yeux rougis par le sang alors qu'il traversait le ciel attiraient l'attention de nombreuses personnes au sein de la Terre des Esprits Démons.
+Il était encore loin de l'ancien champ de bataille. Ses yeux rougis par le sang alors qu'il traversait le ciel attiraient l'attention de nombreuses personnes au sein de la Terre des Esprits Démoniaques.
 
 Parmi elles se trouvaient des cultivateurs et des généraux démons du Pays des Démons de Feu. Tant qu'ils ne provoquaient pas Wang Lin, il les ignorait, mais dès qu'ils manifestaient la moindre intention meurtrière à son égard, il pouvait immédiatement les détecter en raison de son état actuel.
 
@@ -24,7 +24,7 @@ Quiconque nourrirait une intention meurtrière serait tué par Wang Lin sans la 
 
 Il existait une planète privée, loin de la planète Tian Yun, nommée planète Mo. Cette planète appartenait à un être appelé l'Ancêtre Mo. Sa culture avait atteint le stade de l'Yin Illusoire de la phase Yin et Yang.
 
-Cette fois-ci, avec son niveau de culture actuel, il avait dépassé le niveau requis pour entrer dans la Terre des Esprits Démons. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
+Cette fois-ci, avec son niveau de culture actuel, il avait dépassé le niveau autorisé pour entrer dans la Terre des Esprits Démoniaques. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
 
 À cet instant, deux jeunes hommes vêtus de robes grises volaient à travers le ciel du Pays des Démons de Feu. Il s'agissait des deux disciples directs de l'Ancêtre Mo!
 
@@ -52,7 +52,7 @@ Le visage du jeune homme se décomposa, terrassé par l'effroi. En croisant le r
 
 Le doigt de Wang Lin lui fit ressentir une impuissance absolue, comme si cette simple pression représentait la volonté des cieux!
 
-L'index toucha son front à une vitesse inimaginable. Le jeune homme laissa échapper un gémissement misérable avant que son corps ne se dessèche instantanément et que son âme originelle ne s'effondre. L'âme brisée et l'essence de son corps furent transformées en énergie de massacre, laquelle quitta son enveloppe pour voler vers Wang Lin.
+L'index toucha son front à une vitesse inimaginable. Le jeune homme laissa échapper un gémissement misérable avant que son corps ne se dessèche instantanément et que son âme originelle ne s'effondre. L'âme brisée et l'essence de son corps furent transformées en énergie de massacre, laquelle quitta son enveloppe par les sept orifices de son visage pour voler vers Wang Lin.
 
 Tout cela se produisit avec une rapidité telle que le frère aîné fut incapable de réagir. Lorsqu'il sortit de sa stupeur, son corps tremblait de tous ses membres. Sans hésiter, il tenta une téléportation pour s'enfoncer dans le vide.
 
@@ -106,7 +106,7 @@ Le général démon Yin Dong s'élança, se transformant en un rayon de lumière
 
 Les yeux de Yin Dong devinrent froids, révélant une intention meurtrière. Il devait accomplir ce meurtre avec panache devant le Vice-Commandant en Chef. S'il parvenait à attirer son attention, il serait sur la voie du succès!
 
-« Un cultivateur Ascendant au stade initial et gravement blessé, humph. Ma force démoniaque avoisine les 300 000; bien que je n'aie aucune confiance face à un véritable Ascendant, tu es affaibli. Te tuer ne sera pas une épreuve! »
+« Un cultivateur Ascendant au stade initial et gravement blessé, humph. Ma force démoniaque avoisine les 300 000; bien que je n'aie pas grande confiance face à un véritable Ascendant, tu es affaibli. Te tuer ne sera pas une épreuve! »
 
 « Une intention meurtrière... » Tandis que Wang Lin volait, ses yeux s'embuèrent d'une rougeur monstrueuse, et l'intention de combat envahit son esprit!
 

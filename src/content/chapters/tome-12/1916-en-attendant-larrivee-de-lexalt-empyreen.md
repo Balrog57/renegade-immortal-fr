@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1916 - Waiting for the Exalté Empyréen to Arrive!"
 slug: en-attendant-larrivee-de-lexalt-empyreen
 ---
-Après avoir dévoré le Maître de la Secte du Dao Démoniaque, Wang Lin ferma les yeux et des bruits de craquements résonnèrent dans son corps. Il effaça le Sens Divin de l'âme originelle et l'injecta dans ses Veines Magiques. Lorsqu'il aurait du temps libre, il pourrait utiliser cette âme originelle pour augmenter le nombre de Veines Magiques dont il disposait.
+Après avoir dévoré le Maître de la Secte du Dao Démoniaque, Wang Lin ferma les yeux et des bruits de craquements résonnèrent dans son corps. Il effaça la conscience de l'âme originelle et l'injecta dans ses Veines Magiques. Lorsqu'il aurait du temps libre, il pourrait utiliser cette âme originelle pour augmenter le nombre de Veines Magiques dont il disposait.
 
 Un instant plus tard, Wang Lin ouvrit les yeux et agita sa manche. La terre trembla, tout comme le lac et l'île à moitié effondrés. Tandis qu'une tempête balayait les lieux, ils furent totalement détruits.
 
@@ -82,7 +82,7 @@ Le cœur de Wang Lin fit un bond. Il sourit et ne dit plus rien.
 
 Voyant cela, l'émissaire comprit qu'il était temps de savoir s'il devait avancer ou reculer. Il joignit les mains devant Wang Lin.
 
-« Cher Cultivateur Wang, cet édit impérial peut servir pour un transfert vers le Continent Central. Cet endroit étant loin, vous devrez effectuer huit transferts. Je dois rentrer pour faire mon rapport à l'Empereur. Lorsque vous arriverez à la cité impériale, je viendrai vous saluer. » L'émissaire sourit et partit précipitamment. Il craignait de dire une parole de trop qui mettrait Wang Lin en colère et l'obligerait à offrir un autre objet « pas très précieux ».
+« Cher Cultivateur Wang, cet édit impérial peut servir pour un transfert vers le Continent Central. Cet endroit étant loin, vous devrez effectuer huit transferts. Je dois rentrer pour faire mon rapport à l'Empereur. Lorsque vous arriverez à la cité impériale, je viendrai vous saluer. » L'émissaire sourit et partit précipitamment. Il craignait de s'attarder davantage, et qu'une parole de trop ne mette Wang Lin en colère et ne l'oblige à offrir un autre objet « pas très précieux ».
 
 Ce n'est que lorsque l'émissaire fut parti que le sourire de Wang Lin disparut, remplacé par une expression sombre.
 

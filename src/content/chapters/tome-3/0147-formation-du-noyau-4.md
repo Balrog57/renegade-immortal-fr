@@ -84,7 +84,7 @@ Il prit une grande inspiration pour calmer son sens divin, puis dit aux deux aut
 
 « J'ai déjà informé le chef de la secte. Je pense qu'il enverra des renforts sous peu. »
 
-Le sourcil de Wang Lin se fronça. Normalement, le Royaume Ji n'aurait eu aucun effet sur des cultivateurs de la Formation du Noyau, mais il était influencé par son niveau de culture actuel. Grâce à l'achèvement de la Méthode de Culture de l'Ascension des Enfers et à la fusion de ses trois pilules en un noyau prototype, il pouvait blesser des cultivateurs de la Formation du Noyau, sans toutefois pouvoir les achever.
+Le sourcil de Wang Lin se fronça. Normalement, le Royaume Ji n'aurait eu aucun effet sur des cultivateurs de la Formation du Noyau, mais il était influencé par son niveau de culture actuel. Grâce à l'achèvement de la Méthode d'Ascension des Enfers et à la fusion de ses trois pilules en un noyau prototype, il pouvait blesser des cultivateurs de la Formation du Noyau, sans toutefois pouvoir les achever.
 
 Bien que les blessures semblassent graves, ces cultivateurs n'auraient besoin que de quelque repos pour récupérer.
 

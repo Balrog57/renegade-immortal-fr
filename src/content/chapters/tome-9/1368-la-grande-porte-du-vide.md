@@ -27,13 +27,13 @@ Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres acco
 
 Une fois sa culture du tonnerre ayant atteint le sommet du Briseur du Nirvana, son âme originelle s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur: le Tonnerre Dao!
 
-Le Clan du Tonnerre Dispersé avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivaient le Dao et pouvaient ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie!
+Le Clan du Tonnerre Dispersé avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivent leur domaine et peuvent ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie!
 
 Si ce tonnerre résistait, Wang Lin n'hésiterait pas à l'écraser. Son âme originelle surgit avec la puissance d'une armée immense, mais contre toute attente, le Tonnerre Dao ne résista point! Une intention Dao complexe émanait des innombrables âmes contenues dans le tonnerre. Wang Lin sentit que ces âmes lui étaient extrêmement familières: c'étaient des cultivateurs du Royaume Intérieur!
 
 Ces âmes ressentirent également l'intention Dao de Wang Lin et chargèrent son âme originelle. Sans même que Wang Lin ait besoin de le dévorer, le Tonnerre Dao s'intégra de lui-même à son essence! Une intégration parfaite!
 
-Les six types de tonnerres accompagnateurs furent dévorés et tournaient désormais frénétiquement autour de l'essence du tonnerre de Wang Lin. Sa culture avait atteint le paroxysme du stade Briseur du Nirvana! Ses yeux s'ouvrirent soudainement, et dans la marque de tonnerre de son œil droit, les six types de tonnerres accompagnateurs tournaient en boucle. D'innombrables grondements s'élevèrent du tonnerre dans le ciel!
+Les six types de tonnerres accompagnateurs furent entièrement raffinés et tournaient désormais frénétiquement autour de l'essence du tonnerre de Wang Lin. Sa culture avait atteint le paroxysme du stade Briseur du Nirvana! Ses yeux s'ouvrirent soudainement, et dans la marque de tonnerre de son œil droit, les six types de tonnerres accompagnateurs tournaient en boucle. D'innombrables grondements s'élevèrent du tonnerre dans le ciel!
 
 Les dizaines de milliers de cultivateurs sur la planète qui traquaient Wang Lin remarquèrent immédiatement ce changement atmosphérique. Leurs Sens Divins fusionnèrent pour balayer toute la planète, mais ils ne trouvèrent toujours rien! Si le Clan Zhen Yan ne les en avait pas empêchés, ces cultivateurs auraient ignoré toute forme de vie pour raffiner la planète entière afin de forcer Wang Lin à se manifester! Des rayons de lumière emplirent le ciel; des cultivateurs étaient partout!
 
@@ -69,7 +69,7 @@ La volonté de Wang Lin était empreinte de folie et de puissance. Il se leva br
 
 Un éclair qui n'était jamais apparu depuis l'aube des temps naquit des paroles de Wang Lin. Il était invisible pour la plupart des gens; seuls ceux habités par une volonté défiante pouvaient le percevoir! Lorsque cet éclair surgit soudainement, il chargea vers l'œil droit de Wang Lin, portant en lui toute la lutte contre le destin et les cieux.
 
-Il s'intégra instantanément! Dans l'œil droit de Wang Lin, les neuf types de tonnerres accompagnateurs autour de son essence étaient désormais complets! En tournant, ils formèrent un tatouage de tonnerre dans sa pupille! Au moment où ce tatouage prit forme, une force de tonnerre indescriptible explosa du corps de Wang Lin telle l'éruption d'un volcan sans fin!
+Il s'intégra instantanément! Dans l'œil droit de Wang Lin, les neuf types de tonnerres accompagnateurs autour de son essence étaient désormais complets! En tournant, ils formèrent un tatouage de tonnerre dans sa pupille! Au moment où ce tatouage prit forme, une force de tonnerre indescriptible explosa du corps de Wang Lin, s'élançant vers le vide infini, telle l'éruption d'un volcan sans fin!
 
 Alors que le grondement résonnait, une porte illusoire gigantesque apparut soudainement devant les cultivateurs de la planète, totalement médusés! Cette porte était infinie et semblait faire partie des cieux eux-mêmes. C'était comme la porte du ciel étoilé, le verrou du ciel et de la terre; si l'on parvenait à l'ouvrir, on pourrait s'élancer hors de ce monde!
 

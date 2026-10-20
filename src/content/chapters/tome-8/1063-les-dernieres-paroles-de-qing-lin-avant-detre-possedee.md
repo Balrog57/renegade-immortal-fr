@@ -14,7 +14,7 @@ Wang Lin recula rapidement, le regard devenu glacial.
 
 Alors que le Maître du Vide poursuivait Wang Lin, le brouillard sombre saturé de sorts s'étendit soudainement une fois de plus, et cette fois, l'Omniscient fut projeté à l'extérieur. Bien qu'il parût pâle, il n'avait rien de piteux. Dès qu'il fut expulsé, le brouillard noir se mua en la lumière noire qui avait blessé Wang Wei et chargea l'Omniscient.
 
-Les yeux de l'Omniscient s'illuminèrent. Il s'élança et sa main droite toucha l'espace entre ses sourcils. Un rayon de lumière aux sept couleurs jaillit de son front et percuta la lumière noire.
+Les yeux de l'Omniscient s'illuminèrent. Il s'élança et sa main droite toucha l'espace entre ses sourcils. Un rayon de lumière aux sept couleurs jaillit de son front et forma une barrière qui percuta la lumière noire.
 
 Un fracas retentit lors de la collision entre les deux énergies. L'Omniscient profita de cette force pour reculer sans hésitation.
 

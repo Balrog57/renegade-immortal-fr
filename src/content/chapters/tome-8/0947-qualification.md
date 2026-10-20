@@ -114,4 +114,4 @@ Le corps de Xu Ting trembla sous l'effet d'un vent monstrueux. C'était comme si
 
 L'expression de Lie Yunzi trahissait une pointe de tension. Il était rare qu'un homme de sa culture et de son âge manifeste une telle inquiétude. Il savait pertinemment que de nombreux talents de sa famille avaient pu contempler le premier parchemin, mais n'avaient pu résister à l'intention de bataille inimaginable du second avant même qu'il ne soit totalement déployé.
 
-La conséquence la moins grave était une blessure ou une mutilation sévère; la plus terrible... était la destruction totale de leur âme originelle!
+La conséquence la moins grave était une blessure ou une mutilation sévère; la plus terrible... était la destruction totale de leur corps et de leur âme originelle!

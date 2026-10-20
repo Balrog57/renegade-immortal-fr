@@ -70,7 +70,7 @@ Neige Blanche acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement en
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-Neige Blanche esquissa un léger sourire et sauta de l'autel. Un rayon de lumière blanche jaillit pour la porter dans les airs.
+Neige Blanche esquissa un léger sourire et sauta de l'autel. Un rayon de lumière blanche jaillit, sans le moindre souffle de vent, pour la porter dans les airs.
 
 C'était une grue d'un blanc immaculé.
 

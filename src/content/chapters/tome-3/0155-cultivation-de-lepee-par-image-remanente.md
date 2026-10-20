@@ -58,7 +58,7 @@ Wang Lin ne ressentit aucune joie face au trépas de Jie Donglei. Au contraire, 
 
 Pour se protéger, il devait faire comprendre à tous qu'il était un être avec lequel on ne jouait pas et que toute provocation entraînerait des conséquences funestes. La première démonstration de puissance de Wang Lin dans la Mer des Démons s'achevait ainsi.
 
-Cette démonstration fut un succès éclatant. Du moins, dans un rayon d'un million de lieues autour de la ville de Nan Dou, nul n'ignorait la montagne de cadavres que Wang Lin avait érigée. Cela suffit à dissuader quiconque de convoiter l'ordre d'exécution.
+Cette démonstration fut un succès éclatant. Du moins, dans un rayon d'un million de lieues autour de la ville de Nan Dou, nul n'ignorait que Wang Lin avait fait couler une mer de sang et dressé une montagne de cadavres. Cela suffit à dissuader quiconque de convoiter l'ordre d'exécution.
 
 Contemplant les dizaines de milliers de disciples prosternés devant lui, Wang Lin tourna son regard vers la mer intérieure et songea: « Teng Huayuan, pour me venger, que je sois immortel ou démon, tant que ma puissance grandit, qu'importe si je deviens un roi démon?! »
 
@@ -92,7 +92,7 @@ Puis, après avoir disposé plusieurs formations autour de lui, Wang Lin concent
 
 C'était la première fois que Wang Lin pénétrait dans la perle défiant le ciel après avoir atteint le stade de la Formation du Noyau. Au moment où il y entra, Shang Guanmo, qui était en train de réprimander sévèrement les Anciens de la Formation du Noyau, trembla soudain: il sentit nettement que ce démon terrifiant avait disparu.
 
-Pour être plus précis, son sang d'âme avait disparu sans laisser de trace. Choqué et terrifié, il s'élança dans les airs. Après un moment, il se retourna, le regard empreint d'incrédulité.
+Pour être plus précis, son sang d'essence d'âme avait disparu sans laisser de trace. Choqué et terrifié, il s'élança dans les airs. Après un moment, il se retourna, le regard empreint d'incrédulité.
 
 Li Muwan, qui venait de descendre de la tête du dragon, fut surprise en levant les yeux avant de laisser échapper un soupir.
 

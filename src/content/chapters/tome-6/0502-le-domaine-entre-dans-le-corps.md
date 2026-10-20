@@ -17,7 +17,7 @@ Le regard de Wang Lin était glacial et l'aura qu'il dégageait était glaciale.
 
 Au sommet de la tour, à la cime de la montagne, l'Omniscient était assis, observant Wang Lin qui avançait pas à pas vers le sommet. Ses yeux brillaient intensément alors qu'il fixait Wang Lin, perdu dans ses pensées.
 
-À l'origine, l'Omniscient pensait que Wang Lin s'arrêterait après dix pas dans la Terre Brisée des Célestes. Dix pas étaient la limite d'un cultivateur au stade de la Transformation de l'Âme! Si Wang Lin réussissait cela, il l'inviterait à monter à la tour pour lui enseigner un sort interdit.
+À l'origine, l'Omniscient pensait que Wang Lin s'arrêterait après dix pas dans la Terre Brisée des Célestes. Dix pas étaient la limite d'un cultivateur au stade intermédiaire de la Transformation de l'Âme! Si Wang Lin réussissait cela, il l'inviterait à monter à la tour pour lui enseigner un sort interdit.
 
 Mais à présent, Wang Lin avait déjà parcouru 21 pas, ce qui constituait la limite absolue d'un cultivateur de la Transformation de l'Âme. Seul un cultivateur Ascendant, doté de l'énergie spirituelle céleste, pouvait garantir, après 21 pas, que son âme originelle ne soit pas gelée jusqu'à l'effondrement.
 
@@ -33,7 +33,7 @@ Des rivières et des montagnes se dessinaient sur le parchemin; cependant, il n'
 
 Wang Lin prit une profonde inspiration, leva le pied et fit le 22e pas.
 
-À cet instant, la montagne entière trembla et la glace sous ses pieds se fendit. Cela démontrait avec précision la puissance de ce pas.
+À cet instant, la montagne entière trembla et la glace sous ses pieds se fendit. Cela démontrait la solidité de ce pas.
 
 Les yeux de l'Omniscient projetèrent un éclat intense alors qu'il se tenait dans la tour.
 
@@ -45,7 +45,7 @@ Cette fois, il ne fit pas qu'un seul pas; il en fit deux, trois, quatre, cinq!
 
 Au premier pas, Wang Lin leva la tête et son regard devint glacial. Au deuxième pas, tout son corps fut aussi froid que la glace. Au troisième pas, le parchemin de la vie et de la mort derrière lui se rétracta soudainement pour flotter au-dessus de sa tête.
 
-Au quatrième pas, Wang Lin fut envahi par l'énergie tandis que la froideur de son cœur emplissait son corps. Ce froid fusionna avec son domaine pour créer une force mystérieuse, et c'est ainsi qu'il fit le cinquième pas!
+Au quatrième pas, l'aura de Wang Lin s'éleva tel un arc-en-ciel tandis que la froideur de son cœur emplissait son corps. Ce froid fusionna avec son domaine pour créer une force mystérieuse, et c'est ainsi qu'il fit le cinquième pas!
 
 Après ce cinquième pas, le regard de Wang Lin était tel un éclair alors qu'il fixait la tour au sommet de la montagne.
 
@@ -69,9 +69,9 @@ S'il continuait ainsi, ses chances d'atteindre le stade Ascendant seraient mince
 
 Mais aujourd'hui, dans la Terre Brisée des Célestes, son domaine et sa pureté de l'esprit fusionnèrent, lui permettant de franchir cinq pas de plus que sa limite initiale de 22 pas!
 
-Ces cinq pas étaient des avancées sur le chemin du Dao, empreintes d'une détermination sans retour. S'il ne faisait pas un pas, cela aurait suffi, mais puisqu'il s'élançait, il devait surpasser ceux qui l'avaient précédé!
+Ces cinq pas étaient des avancées sur le chemin du Dao, empreintes d'une détermination sans retour. Ne pas faire un pas, c'était ne rien faire; mais puisqu'il s'élançait, il devait surpasser ceux qui l'avaient précédé!
 
-Grâce à cet instant, Wang Lin venait de franchir une étape cruciale vers la matérialisation de son domaine! Bien que ce progrès n'ait pas décuplé sa compréhension ou sa culture, il avait tracé une voie fondamentale pour atteindre le stade Ascendant.
+Grâce à cet instant, Wang Lin venait de franchir une étape cruciale vers la matérialisation de son domaine! Bien que ce progrès n'ait pas beaucoup accru la puissance de son domaine ni sa culture, il avait tracé une voie fondamentale pour atteindre le stade Ascendant.
 
 « Le domaine entre dans le corps! » Dans la tour, l'Omniscient prit une profonde inspiration et déclara: « Cet enfant a l'espoir d'atteindre le stade Ascendant d'ici cent ans! »
 
@@ -93,7 +93,7 @@ D'un premier pas, il s'élança sur l'arc-en-ciel, et d'un second, il franchit p
 
 Cette tour avait une apparence très ordinaire. À cet instant, des rayons de lumière aux sept couleurs se rassemblèrent au pied de l'édifice pour former l'Omniscient.
 
-« L'ancêtre de ma Secte du Destin Céleste n'est pas un cultivateur, mais ce Sortilège du Destin Céleste. La seule chose que je recherche est le destin des cieux. Les sorts liés au destin peuvent être créés par les cieux ou par les hommes, mais quoi qu'il en soit, le destin est la clé!
+« L'ancêtre de ma Secte du Destin Céleste n'est pas un cultivateur, mais le destin céleste lui-même. La seule chose que je recherche est le destin des cieux. Les sorts liés au destin peuvent être créés par les cieux ou par les hommes, mais quoi qu'il en soit, le destin est la clé!
 
 « Je passais justement par la planète Suzaku lorsque tu comprenais ton domaine. Je t'ai vu suivre ton domaine jusqu'à son origine, et mon amour pour le talent m'a poussé à vouloir faire de toi mon disciple. Cela signifie qu'il y avait un lien entre nous, le destin entre maître et disciple.
 
@@ -119,13 +119,13 @@ Sans un mot, Wang Lin s'agenouilla promptement et leva la tête pour contempler 
 
 La main droite de l'Omniscient pointa vers Wang Lin et il cria: « Aujourd'hui, moi, l'Omniscient, j'accepte Wang Lin comme septième disciple de la Division Pourpre sous les neuf couleurs! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao?! Réponds-moi! »
 
-Le regard de Wang Lin se fit solennel. Il afficha une détermination sans faille et répondit: « Tant que Maître ne me trahira pas, je ne trahirai pas Maître! Tant que la Secte du Destin Céleste ne me trahira pas, je ne trahirai pas la Secte du Destin Céleste! C'est ma promesse, celle de Wang Lin! »
+Le regard de Wang Lin se fit solennel. Il afficha une détermination sans faille et répondit: « Tant que Maître ne me trahira pas, je ne trahirai pas Maître! Tant que le Destin Céleste ne me trahira pas, je ne trahirai pas le Destin Céleste! C'est ma promesse, celle de Wang Lin! »
 
 Les yeux de l'Omniscient se plissèrent et il observa attentivement Wang Lin avant de hocher lentement la tête. Sa main gauche s'étira vers la faille et le ciel tout entier trembla soudainement.
 
 Un autel gigantesque aux sept couleurs descendit lentement du ciel.
 
-Cet autel était d'une taille démesurée. Lorsqu'une partie seulement commença sa descente, une série de craquements retentit, comme si le sol ne pouvait supporter un tel poids. D'innombrables tablettes de bois aux sept couleurs jonchaient l'autel.
+Cet autel était d'une taille démesurée. Lorsqu'une partie seulement commença sa descente, une série de craquements retentit, comme si l'espace alentour ne pouvait supporter un tel poids. D'innombrables tablettes de bois aux sept couleurs jonchaient l'autel.
 
 À cet instant, d'un geste de la main gauche de l'Omniscient, une tablette s'envola pour atterrir dans sa paume.
 
@@ -133,4 +133,4 @@ L'ongle de l'Omniscient était tranchant comme un couteau alors qu'il gravait ra
 
 « Planète Tian Yun, première année de Yanwu, Wang Lin a été accepté comme septième disciple de la Division Pourpre! » Sur ce, l'Omniscient lança la tablette qui s'enflamma de flammes violettes, avant de repartir dans un rayon de lumière pour rejoindre l'autel.
 
-« Maintenant, je vais t'enseigner une technique interdite. Quel type souhaites-tu apprendre? »
+« Maintenant, je vais t'enseigner un sort interdit. Quel type souhaites-tu apprendre? »

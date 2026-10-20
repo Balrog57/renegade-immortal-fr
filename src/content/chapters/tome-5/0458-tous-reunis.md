@@ -34,7 +34,7 @@ Grâce à sa compréhension du Tombeau de Suzaku, il avait été profondément c
 
 Ces formes de vie étaient clairement façonnées par le pouvoir mystérieux du Cristal de la Planète de Culture. D'après ses souvenirs, le précédent Suzaku lui avait dit que ces formes de vie n'apparaissaient que dans la partie intérieure du Tombeau de Suzaku.
 
-Cependant, la montagne spirituelle était restée la même; la porte était l'unique passage vers le tombeau du premier Suzaku. Le Cristal de la Planète de Culture était conservé à l'intérieur du tombeau du premier Suzaku.
+Cependant, la montagne spirituelle était bien réelle; la porte était l'unique passage vers le tombeau du premier Suzaku. Le Cristal de la Planète de Culture était conservé à l'intérieur du tombeau du premier Suzaku.
 
 Toutefois, il était impossible d'ouvrir cette porte sans le Cœur de la Planète de Culture. S'il voulait entrer, il devait attendre qu'elle se brise jusqu'à un certain point.
 

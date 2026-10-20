@@ -10,7 +10,7 @@ L'une des Concubines Célestes et le Maître Démon des Neuf Cieux pénétrèren
 
 Il n'avait aucune crainte que les autres le voient agir ainsi, car nul autre que Tuo Sen n'en était capable.
 
-« Il est en train de créer lui-même les runes! » En voyant cela, les pupilles du Maître Démon des Neuf Cieux se rétractèrent, mais il ne s'arrêta pas. Ses mouvements devinrent toutefois plus délicats lorsqu'il aperçut l'ancien démon à l'intérieur. Il semblait avoir compris quelque chose et ne voulait pas perturber la créature antique.
+« Il est en train de créer lui-même les runes! » En voyant cela, les pupilles du Maître Démon des Neuf Cieux se rétractèrent, mais il ne s'arrêta pas et franchit mille pieds en un instant. Ses mouvements devinrent toutefois plus délicats lorsqu'il aperçut l'ancien démon à l'intérieur. Il semblait avoir compris quelque chose et ne voulait pas perturber la créature antique.
 
 La femme en rose remarqua également les actions de Wang Lin. Surprise un instant, elle comprit immédiatement la situation. Elle secoua la tête et s'avança rapidement.
 
@@ -66,7 +66,7 @@ Bien que le bras n'ait pas touché Tuo Sen, l'onde de choc qui en résulta frapp
 
 Ce bras balaya le Tombe de l'Ordre Antique en direction de la huitième carte.
 
-Simultanément, dans la première carte, un autre bras gigantesque fendit la brume. Plusieurs dizaines de cultivateurs se trouvaient encore dans cette zone et progressaient à travers le brouillard. En un instant, un fracas tonitruant couvrit tout son environnement et, avant qu'ils ne puissent réagir, le bras passa sur eux.
+Simultanément, dans la première carte, un autre bras gigantesque fendit la brume. Plusieurs dizaines de cultivateurs se trouvaient encore dans cette zone et progressaient à travers le brouillard. En un instant, un fracas tonitruant couvrit tout son environnement et, avant qu'ils ne puissent réagir, le bras passa derrière eux.
 
 Leurs cris de mort furent étouffés par le fracas. Une fois le bras passé, aucun d'eux n'avait survécu. Même leurs plateformes s'étaient effondrées.
 

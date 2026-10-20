@@ -8,7 +8,7 @@ slug: le-jade-du-royaume-scelle
 ---
 Le Shui Daozi était terrifié par les essences qui émanaient du corps de Wang Lin, au point que ses yeux manquaient de sortir de leurs orbites. Les trois essences de Wang Lin surpassaient de loin son imagination. Il n'osait même pas concevoir la puissance destructrice dont Wang Lin ferait preuve s'il survivait et devenait un cultivateur du troisième niveau dans mille ans!
 
-« Dès qu'il atteindra le troisième niveau, il sera assez puissant pour affronter ceux qui sont au stade initial du Nirvana Vide depuis des dizaines de milliers d'années. En réalité, ils ne lui feront absolument pas le poids. Une telle figure défiant les cieux attirerait même la jalousie des cieux. Il ne devrait jamais apparaître! Je dois le tuer, je dois absolument le tuer. Sinon, il n'y aura plus de place pour moi dans l'avenir! »
+« Dès qu'il atteindra le troisième niveau, il sera assez puissant pour affronter ceux qui sont au stade initial du Nirvana Vide depuis des dizaines de milliers d'années. En réalité, ils ne lui feront absolument pas le poids. Une telle figure défiant les cieux attirerait même la jalousie des cieux. Il ne devrait jamais apparaître! Je dois le tuer, je dois absolument le tuer. Sinon, ni au ciel ni sur terre il n'y aura plus pour moi la moindre chance de survie! »
 
 À cet instant, le Shui Daozi ignorait que ces trois essences n'étaient pas encore la limite de Wang Lin.
 
@@ -16,13 +16,11 @@ Il avait brisé sa vitalité pour comprendre sa première essence: l'essence de 
 
 Cependant, au sein de son corps qui ne s'était pas encore dissipé, brûlait encore le feu de l'Oiseau Vermillon!
 
-Ce feu de l'Oiseau Vermillon avait déjà subi trois métamorphoses. Chaque métamorphose avait considérablement accru sa compréhension du feu. La troisième métamorphose avait permis à la maîtrise du feu de Wang Lin d'atteindre un degré terrifiant!
+Ce feu de l'Oiseau Vermillon avait déjà subi trois métamorphoses. Chaque métamorphose avait considérablement accru sa compréhension du feu. La troisième métamorphose avait permis à Wang Lin de devenir le maître du feu de ce monde, et sa maîtrise du feu avait atteint un degré terrifiant!
 
 Tous les sorts de feu devaient s'incliner devant lui!
 
 S'il y avait un cultivateur pratiquant des sorts de feu, Wang Lin pouvait d'un simple geste déclencher le propre feu de l'adversaire pour l'anéantir. Même si celui-ci ne pratiquait pas le feu, Wang Lin pouvait utiliser sa colère et le consumer jusqu'à la mort!
-
-Dans ce monde, le feu le plus élémentaire était la flamme de la colère. Tout le monde en possédait une, invisible, mais une fois qu'elle s'embrasait et que l'on ne pouvait plus la contenir, on mourait!
 
 Au-dessus de la flamme de la colère se trouvait également le feu ardent, doté d'une puissance capable d'ébranler ciel et terre. Le feu ardent était le feu lui-même, permettant à la flamme de brûler une seconde fois, produisant ainsi un pouvoir incroyable!
 
@@ -50,7 +48,7 @@ Il avait dévoré la moitié d'un ancien dragon de tonnerre, transformé son âm
 
 Ensuite, s'il atteignait l'illumination et dévorait les neuf types de tonnerre nés à l'ouverture du ciel et de la terre, il pourrait devenir le maître du tonnerre et parfaire son Dao du tonnerre, lui conférant le pouvoir d'agir selon la Voie!
 
-D'autres agiraient en lieu et place des cieux, mais Wang Lin agirait selon sa propre volonté!
+D'autres agiraient en lieu et place des cieux, mais Wang Lin accomplirait la Voie par lui-même!
 
 Ces deux essences étaient profondément enfouies dans son corps, et le Shui Daozi ne pouvait absolument pas les détecter. S'il savait que Wang Lin possédait en réalité cinq essences, quelle expression de choc aurait-il?
 
@@ -68,7 +66,7 @@ Sur la planète de culture qu'il avait projetée, les 1,5 milliard de disciples 
 
 Les yeux de Wang Lin étaient d'un calme absolu. À ce stade, il avait tout lâché. Vivre ou mourir n'avait plus d'importance alors que tout défilait devant ses yeux. Les seules choses qu'il ne pouvait rompre étaient le lien avec ses parents, l'amour de Wan Er et son amitié avec Situ et Qing Shui.
 
-Il ne voulait pas les perdre; il n'en était pas capable. Il allait simplement... tout emporter avec lui et marcher vers la mort ensemble!
+Il ne voulait pas les abandonner, et il ne le ferait pas. Il allait simplement... tout emporter avec lui et marcher vers la mort ensemble!
 
 Le feu de la mort peut être plus éclatant que n'importe quelle nébuleuse. Si l'on meurt sans personne dans le cœur, sa mort est solitaire et froide.
 
@@ -108,9 +106,9 @@ Même la planète de culture formée par son sortilège s'immobilisa en plein ci
 
 Une pression indescriptible jaillit du jade avec une force folle et se propagea parmi les étoiles!
 
-« C'est... c'est Maître!! C'est l'aura de Maître, c'est le jade de Maître, et c'est le Jade du Royaume Scellé!! C'est la seule chose que Maître a emportée avec lui du Royaume Céleste Antique! » Depuis la mort de son maître, il avait toujours vécu dans l'angoisse. En voyant ce jade, la terreur qu'il éprouvait pour son maître éclata de toutes ses forces!
+« C'est... c'est Maître!! C'est l'aura de Maître, c'est le jade de Maître, et c'est le Jade du Royaume Scellé!! C'est la seule chose que Maître a emportée avec lui du Royaume Céleste Antique! » Depuis la mort de son maître, il avait toujours vécu dans l'angoisse. En voyant ce jade, la terreur qu'il éprouvait pour son maître, enfouie depuis des dizaines de milliers d'années, éclata de toutes ses forces!
 
-À cet instant précis, le jade flottant devant Wang Lin libéra une lumière dorée et un doigt apparut soudainement. Ce doigt jaillit tel un rayon de lumière d'or et pressa impitoyablement le clou situé entre les sourcils du Shui Daozi!
+À cet instant précis, le jade flottant devant Wang Lin libéra une lumière dorée et un doigt apparut soudainement. Ce doigt de jade jaillit tel un rayon de lumière d'or et pressa impitoyablement le clou situé entre les sourcils du Shui Daozi!
 
 Sa vitesse était inimaginable. Le Shui Daozi semblait avoir oublié toute résistance, tant la peur pour son maître l'avait paralysé.
 

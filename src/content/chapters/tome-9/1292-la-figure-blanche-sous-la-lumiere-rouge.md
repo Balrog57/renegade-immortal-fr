@@ -36,7 +36,7 @@ Les six génies chargèrent pour affronter le Dragon des Neuf Abîmes tapi dans 
 
 « Si nous travaillons ensemble pour tuer ce dragon, nous pourrons devenir membres de la Secte Démon! » cria l'un des hommes d'âge mûr parmi les six. Ses mains formèrent un sceau, son corps fut enveloppé d'une lumière violette et son aura explosa!
 
-Les cinq autres utilisèrent tous leurs sorts les plus puissants. Les cheveux de la belle femme d'âge mûr devinrent instantanément blancs; sa chevelure balaya l'air pour former une tempête de cheveux blancs devant elle, chargée d'une puissance foudroyante, qui chargea vers le Dragon des Neuf Abîmes.
+Les cinq autres utilisèrent tous leurs sorts les plus puissants. Les cheveux de la belle femme d'âge mûr devinrent instantanément blancs; sa chevelure balaya l'air pour former une tempête de cheveux blancs devant elle, chargée d'une puissance à ébranler le ciel, qui chargea vers le Dragon des Neuf Abîmes.
 
 Il y avait aussi ce vieil homme, possédant le niveau de culture le plus élevé. D'un geste de la main droite, il fit apparaître d'innombrables noyaux dorés autour de lui. Cela ressemblait aux noyaux dorés des cultivateurs, mais s'en distinguait grandement: c'était un sort qu'il avait créé lui-même grâce à sa grande sagesse. Ces noyaux dorés étaient formés de l'énergie du ciel et de la terre, et leur effondrement pouvait se transformer en une puissance encore plus grande. En un éclair, plus de 10 000 noyaux dorés apparurent autour de lui!
 
@@ -72,7 +72,7 @@ Tandis que leurs voix résonnaient, une lueur fantomatique jaillit de la faille 
 
 Certaines bêtes féroces ne purent esquiver assez vite et leurs corps explosèrent. Même le Dragon des Neuf Abîmes dut rétracter précipitamment sa tête pour éviter d'être tranché en deux.
 
-En voyant cela, le vieil homme soupira. Il avait initialement voulu attirer le Dragon des Neuf Abîmes à mi-chemin avant d'utiliser la formation pour l'anéantir. Cependant, ils n'étaient pas assez forts pour réussir une telle provocation.
+En voyant cela, le vieil homme soupira. Il avait initialement voulu faire sortir à moitié le Dragon des Neuf Abîmes avant d'utiliser la formation pour l'anéantir. Cependant, ils n'étaient pas assez forts pour réussir une telle provocation.
 
 « Si Li Qianmei était ici, avec sa force et ses trésors magiques, elle aurait peut-être été capable de briser le crâne et de forcer le Dragon des Neuf Abîmes à sortir! » Le vieil homme soupira et chassa ces pensées. Profitant de l'instant où la faille était close, il agita sa main droite. D'innombrables noyaux dorés apparurent et chargèrent le crâne.
 

@@ -89,7 +89,7 @@ Cependant, ce mépris ne passa pas inaperçu pour Wang Lin. Bien qu'absorbé par
 Une fois les pierres spirituelles disposées, Wang Lin dit froidement sans même se retourner:
 « Je compte rester dans cette grotte pour un long moment. Si la formation est brisée, je pourrai m'échapper facilement, mais toi, tu devras compter sur tes propres moyens. » Sur ces mots, il se retourna vers elle.
 
-Li Muwan serra les dents et s'avança sans mot dire. Elle sortit des drapeaux noirs de son sac de rangement et les disposa autour de la grotte. Se sentant toujours vulnérable, elle installa d'autres formations et prit même l'initiative de relier celles de Wang Lin entre elles.
+Li Muwan serra les dents et s'avança sans mot dire. Elle sortit des drapeaux noirs de son sac de rangement et les disposa autour de la grotte. N'étant toujours pas rassurée, elle installa d'autres formations et prit même l'initiative de relier celles de Wang Lin entre elles.
 
 Après ce travail, elle contracta la mâchoire et sortit un os de bête cristalline bleu. À l'aide de son épée volante, elle le dépeça en morceaux et, après quelques calculs, en plaça un.
 
@@ -156,7 +156,7 @@ Une autre raison était le besoin de crânes de bêtes spirituelles pour fabriqu
 
 Cependant, beaucoup avaient déjà été pillés, et malgré sa marche, Wang Lin n'en trouvait aucun. De plus, l'épaisseur de la brume rendait sa vue inutile; il devait se fier uniquement à son Sens Divin.
 
-Soudain, son expression changea et il recula d'un pas. Une épée volante, traçant un mouvement sinueux, passa près de lui.
+Soudain, son expression changea et il recula de quelques pas. Une épée volante, traçant un mouvement sinueux, passa près de lui.
 
 Wang Lin, au sommet du stade avancé de l'Établissement des Fondations (stade pseudo-Formation du Noyau), put parfaitement déceler la nature de cet homme d'une quarantaine d'années qui n'était qu'au début de l'Établissement des Fondations. Le visage de ce dernier était violacé et sa respiration rauque; il était manifeste qu'un puissant poison l'affectait, l'empêchant de contrôler son énergie spirituelle.
 

@@ -84,7 +84,7 @@ Si d'autres le vénéraient, ils obtenaient le droit de contrôler le tonnerre. 
 
 Pourtant, Wang Lin allait lui résister. La foudre clignota dans son œil droit et l'âme originelle du dragon de tonnerre ancien s'élança. Alors que la sphère de foudre se refermait, elle poussa un rugissement. Ce cri portait en lui la majesté nécessaire pour commander tout le tonnerre du monde!
 
-La sphère de foudre continua de se contracter, mais elle s'arrêta à dix pieds de Wang Lin. Un grondement assourdissant retentit, mais elle ne put reculer d'un pouce supplémentaire!
+La sphère de foudre continua de se contracter, mais elle s'arrêta à dix pieds de Wang Lin. Un grondement assourdissant retentit, mais elle ne put plus se contracter d'un pouce!
 
 Wang Lin s'était déjà redressé. Il ressemblait à une divinité du tonnerre!
 
@@ -100,7 +100,7 @@ La sphère se transforma en rayons de foudre et chargea vers l'âme originelle d
 
 Wang Lin fit un pas en avant, marchant sur le vide. Il se retourna et fixa la marque de foudre entre les sourcils de la statue qui ne s'était toujours pas dissipée.
 
-« Désormais, votre clan ne pourra plus contester mon droit sur le tonnerre! » L'œil droit de Wang Lin s'illumina et l'âme originelle du dragon de tonnerre ancien poussa un rugissement en s'enroulant autour de lui. Elle fusionna avec le tonnerre issu de son œil et chargea la marque de foudre sur la statue.
+« Désormais, votre clan est désormais privé, devant moi, du droit d'exercer le tonnerre! » L'œil droit de Wang Lin s'illumina et l'âme originelle du dragon de tonnerre ancien poussa un rugissement en s'enroulant autour de lui. Elle fusionna avec le tonnerre issu de son œil et chargea la marque de foudre sur la statue.
 
 Le dragon sur la marque entre les sourcils de la statue et la statue elle-même tremblèrent plus violemment encore. Au moment précis où le dragon toucha sa cible, les yeux de la statue s'illuminèrent et Wang Lin aperçut un système stellaire à l'intérieur.
 
@@ -118,4 +118,4 @@ Parmi les neuf rayons, il y en avait un autre: un éclair. Partout où il passai
 
 L'indifférence et le dédain dans le regard de ceux qui étaient à l'extérieur s'accentuèrent. C'était comme si des nobles observaient des mortels semblables à des fourmis!
 
-« Je refuse que cela continue! Je refuse! Un jour viendra où une future génération de cultivateurs brisera cette formation et causera votre extinction, vous les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! » hurla un être céleste touché par l'éclair juste avant de mourir.
+« Je ne m'y résigne pas! Je ne m'y résigne pas! Un jour viendra où une future génération de cultivateurs brisera cette formation et causera votre extinction, vous les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! » hurla un être céleste touché par l'éclair juste avant de mourir.

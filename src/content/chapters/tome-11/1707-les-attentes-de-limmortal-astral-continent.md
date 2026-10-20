@@ -40,7 +40,7 @@ Cette aura avait pour but d'invoquer l'Ancêtre Ancien. À mesure qu'elle se ré
 
 Dans le Royaume Intérieur, le démon ancien de la Mer des Nuages, qui avait survécu à tant de batailles, ouvrit les yeux avec stupeur. Fixant l'horizon, il sentit cette aura et éprouva un instinct profond de vénération envers elle.
 
-Dans la faille invisible entourant la planète effondrée Dong Lin, une femme, également un dieu ancien, ouvrit les yeux. Son regard se remplit d'horreur; elle fut saisie d'effroi avant que son corps ne se mette à trembler de manière incontrôlable.
+Dans la faille invisible entourant la planète Dong Lin, au sein du système de Luotian effondré, une femme, également un dieu ancien, ouvrit les yeux. Son regard se remplit d'horreur; elle fut saisie d'effroi avant que son corps ne se mette à trembler de manière incontrôlable.
 
 « La Calamité du Sang Céleste de la Race Ancienne... »
 
@@ -104,7 +104,7 @@ Le jeune homme réfléchit longuement avant de répondre: « L'héritier de Ye M
 
 C'était l'héritier de Ye Mo!
 
-S'il réussit, et s'il parvient à rejoindre le Continent Astral Immortel, j'envisagerai de le prendre pour mon unique disciple! Atteindre un tel stade dans le Monde des Grottes pour ensuite en sortir signifie qu'il deviendra un être d'une puissance immense! Un pilier pour notre race! Après ma réincarnation, il pourra aider à protéger la Race Ancienne! J'espère qu'il réussira! » dit lentement Xuan Luo en fixant la statue.
+S'il réussit, et s'il parvient à rejoindre le Continent Astral Immortel, j'envisagerai de le prendre pour mon unique disciple! Atteindre un tel stade dans le Monde des Grottes pour ensuite en sortir signifie qu'il deviendra un être d'une puissance immense! Un pilier pour notre clan Dao! Après ma réincarnation, il pourra aider à protéger le clan Dao! J'espère qu'il réussira! » dit lentement Xuan Luo en fixant la statue.
 
 Le temps s'étira. Huit jours, neuf jours... jusqu'à ce que treize jours s'écoulent!
 

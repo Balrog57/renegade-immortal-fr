@@ -8,15 +8,15 @@ slug: mort-de-wang-lin
 ---
 Les 30 000 âmes entraient et sortaient du dragon comme s'il s'agissait d'une fête. Teng Huayuan fut stupéfait alors que le dragon, traversant la nuée d'âmes, chargeait vers lui.
 
-L'expression de Teng Huayuan devint très troublée; cependant, n'ayant pas le temps de réfléchir, il recula précipitamment. Il lança plusieurs trésors magiques défensifs pour stopper le dragon, mais peu importaient les efforts de ces artefacts, ils furent impuissants. Le dragon les traversa comme s'ils n'existaient pas, poussa un rugissement et engloutit Teng Huayuan.
+L'expression de Teng Huayuan devint très troublée; cependant, n'ayant pas le temps de réfléchir, il recula précipitamment. Il lança plusieurs trésors magiques défensifs pour stopper le dragon, mais quelle que soit la matière qu'ils prenaient, ces artefacts furent impuissants. Le dragon les traversa comme s'ils n'existaient pas, poussa un rugissement et engloutit Teng Huayuan.
 
 L'expression de Lin Yi était étrange. Il regarda le géant qui assistait au spectacle et constata que celui-ci affichait lui aussi une expression singulière. Les deux se dévisagèrent, puis le géant éclata de rire en contemplant le dragon d'un air moqueur.
 
-Teng Huayuan ne ressentit qu'une brise légère au moment où le dragon le dévorait. La créature paraissait féroce, mais dès l'instant où elle le toucha, elle disparut sans laisser de trace.
+Teng Huayuan ne ressentit qu'une brise légère au moment où le dragon le dévorait. La créature paraissait féroce, mais dès l'instant où elle le toucha, sa tête se dissipa sans bruit.
 
 Cela faisait longtemps que Teng Huayuan n'avait pas eu une telle sueur froide, mais à cet instant précis, son dos était trempé.
 
-« Illusion... » Le visage de Teng Huayuan passa du vert au rouge. Finalement, incapable de se contenir, il explosa en jurons. C'était la première fois qu'il perdait ainsi son sang-froid depuis qu'il avait atteint le stade de la Formation du Noyau, quelques centaines d'années auparavant.
+« Illusion... » Le visage de Teng Huayuan passa du vert au rouge. Finalement, incapable de se contenir, il explosa en jurons. C'était la première fois qu'il proférait ainsi des insultes depuis qu'il avait atteint le stade de la Formation du Noyau, quelques centaines d'années auparavant.
 
 Il avait été tourné en ridicule par une illusion devant tous les cultivateurs de Zhao. La colère de Teng Huayuan atteignit soudainement son paroxysme. D'un geste sombre, il frappa son sac de rangement pour en extraire le drapeau noir et écraser un par un, sous les yeux de Wang Lin, tous les membres de sa famille, mais à ce moment précis, des points de lumière apparurent dans l'air. La lumière se rassembla et le jeune homme réapparut.
 
@@ -76,7 +76,7 @@ Teng Huayuan était hors de lui. Devoir traiter avec un junior de l'Établisseme
 
 Il se sentait aussi insulté que s'il avait reçu une gifle en public, et ce n'était pas une simple gifle, mais une série de coups répétés.
 
-Ce qui l'agaçait le plus était que Wang Lin, bien qu'incapable de survivre à une seule attaque, savait utiliser la téléportation. Cela stupéfia Teng Huayuan, car la téléportation était un art réservé aux cultivateurs de l'Âme Naissante.
+Ce qui l'agaçait le plus était que Wang Lin, bien qu'incapable de survivre à une seule attaque, savait utiliser la téléportation. Cela stupéfia Teng Huayuan, car la téléportation était un art réservé aux cultivateurs de l'Âme Naissante et au-delà.
 
 En outre, la détermination de Wang Lin à s'amputer lui-même la main droite pour stopper l'explosion le frappa au plus haut point. À cet instant, Teng Huayuan ne put s'empêcher d'admirer ce courage, mais cette admiration fut aussitôt engloutie par la haine.
 

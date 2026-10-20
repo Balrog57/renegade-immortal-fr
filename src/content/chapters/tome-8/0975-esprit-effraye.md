@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 975 - Frightened Spirit
 slug: esprit-effraye
 ---
-« L'implication de Ling Tianhou en me révélant autant de secrets et en m'aidant est d'établir une bonne relation avec moi... Je crains que la raison principale ne soit que je fais partie de la Série de l'Oiseau Vermillon... Et qu'une partie de tout cela n'ait pour but que de me rassurer! » L'expression de Wang Lin était calme, mais dans son cœur, il réfléchissait lentement à tout cela.
+« L'implication de Ling Tianhou en me révélant autant de secrets et en m'aidant est d'établir une bonne relation avec moi... Je crains que la raison principale ne soit le fait que je fasse partie de la Série de l'Oiseau Vermillon... Et qu'une partie de tout cela n'ait pour but que de me rassurer! » L'expression de Wang Lin était calme, mais dans son cœur, il réfléchissait lentement à tout cela.
 
-Après que Ling Tianhou eut pénétré dans la tour, les dizaines de milliers de disciples de la Secte de l'Épée Da Lou se tournèrent vers Wang Lin. Ce dernier était habitué à ce genre d'attention. Son sens divin se propagea calmement dans toutes les directions telle une tempête.
+Après que Ling Tianhou eut pénétré dans la tour, les dizaines de milliers de disciples de la Secte de l'Épée Da Luo se tournèrent vers Wang Lin. Ce dernier était habitué à ce genre d'attention. Son sens divin se propagea calmement dans toutes les directions telle une tempête.
 
-Le sens divin d'un cultivateur au stade initial du Scruteur du Nirvana n'était pas une chose que ces disciples de la Secte de l'Épée Da Lou pouvaient supporter. D'un seul balayage de son sens divin, les expressions de tous les disciples changèrent radicalement; ils regardèrent Wang Lin avec un profond respect dans les yeux.
+Le sens divin d'un cultivateur au stade initial du Scruteur du Nirvana n'était pas une chose que ces disciples de la Secte de l'Épée Da Luo pouvaient supporter. D'un seul balayage de son sens divin, les expressions de tous les disciples changèrent radicalement; ils regardèrent Wang Lin avec un profond respect dans les yeux.
 
 Wang Lin demanda calmement: « Où ce vieil homme peut-il séjourner? »
 
@@ -40,7 +40,7 @@ Après une longue réflexion, Wang Lin serra les dents; il prit une trace du Yan
 
 Cependant, c'était comme si une mer de flammes d'une chaleur inimaginable avait surgi au sein de son corps. Il eut l'impression d'être cuit dans un four.
 
-Ling Tianhou, assis à l'intérieur de la tour colossale qui s'élevait jusqu'aux nuages sur la planète Da Lou, les yeux brillants d'un éclat démoniaque, vit la fissure entre ses sourcils s'ouvrir à nouveau.
+Ling Tianhou, assis à l'intérieur de la tour colossale qui s'élevait jusqu'aux nuages sur la planète Da Luo, les yeux brillants d'un éclat démoniaque, vit la fissure entre ses sourcils s'ouvrir à nouveau.
 
 Il fixa la direction où se trouvait Wang Lin et réfléchit.
 
@@ -66,9 +66,9 @@ Il ouvrit soudainement les yeux. On aurait dit que deux flammes bleues brûlaien
 
 Lorsque les flammes devinrent encore plus violentes, Wang Lin ne put s'empêcher de pousser un rugissement. Ce cri était semblable à un coup de tonnerre qui se propagea rapidement dans toute la zone.
 
-À ce moment-là, sur la montagne en forme de trident où siégeait l'Omniscient, ses yeux clos s'entrouvrirent légèrement, révélant un regard capable de tout percer.
+À ce moment-là, sur la montagne en forme de trident de la planète Tian Yun où siégeait l'Omniscient, ses yeux clos s'entrouvrirent légèrement, révélant un regard capable de tout percer.
 
-Son regard plongea vers le ciel comme s'il pouvait traverser n'importe quelle distance et vit Wang Lin sur la planète Da Lou.
+Son regard plongea vers le ciel comme s'il pouvait traverser n'importe quelle distance et vit Wang Lin sur la planète Da Luo.
 
 L'expression de l'Omniscient ne changea pas, mais il fronça légèrement les sourcils et dit doucement: « Ce n'est pas une chose que tu peux dévorer... Tu vas la recracher dans sept respirations... Un... Deux... »
 
@@ -104,9 +104,9 @@ Il n'avait jamais ressenti cela, même face à l'Omniscient. Seul son passage à
 
 Au moment où l'ombre d'épée s'élança, la lumière invisible apparut et entra en collision avec elle. Aucun observateur extérieur ne pouvait entendre ou ressentir ce choc, mais Ling Tianhou cracha brusquement une grande bouchée de sang. Son corps percuta le mur et fut éjecté de la tour.
 
-L'ombre d'épée trembla, manquant de s'effondrer, avant de retourner entre les sourcils de Ling Tianhou en poussant un cri misérable. Le visage de ce dernier devint livide et il cracha encore plus de sang; son corps semblait vidé de sa substance. Paniqué, le cuir chevelu picotant, il s'engouffra sous terre et se précipita vers le centre de la planète Da Lou sans hésiter.
+L'ombre d'épée trembla, manquant de s'effondrer, avant de retourner entre les sourcils de Ling Tianhou en poussant un cri misérable. Le visage de ce dernier devint livide et il cracha encore plus de sang; son corps semblait vidé de sa substance. Paniqué, le cuir chevelu picotant, il s'engouffra sous terre et se précipita vers le centre de la planète Da Luo sans hésiter.
 
-En s'enfuyant, les mains de Ling Tianhou formèrent des sceaux pour ouvrir, les uns après les autres, les scellements devant lui. La panique régnait dans son esprit, et sa seule pensée était d'atteindre le centre de la planète Da Lou!
+En s'enfuyant, les mains de Ling Tianhou formèrent des sceaux pour ouvrir, les uns après les autres, les scellements devant lui. La panique régnait dans son esprit, et sa seule pensée était d'atteindre le centre de la planète Da Luo!
 
 Quant à l'Omniscient, perché sur le sommet du pic trident sur la planète Tian Yun, il était calme au début, mais son expression changea bientôt radicalement. Un tel changement était extrêmement rare pour lui!
 

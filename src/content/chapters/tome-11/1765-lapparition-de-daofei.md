@@ -62,11 +62,11 @@ Les neuf soleils explosèrent, libérant une force destructrice indescriptible. 
 
 Le monde commença à se briser. Ce monde venait de périr!
 
-Cependant, ce n'était pas la fin. Cette force destructrice représentait la pleine puissance du Daoïste aux Sept Couleurs, et les 300 mondes en décomposition ne pouvaient y résister. À mesure que l'onde se propageait, les 300 mondes commencèrent à s'effondrer les uns après les autres.
+Cependant, ce n'était pas la fin. Cette force destructrice représentait la pleine puissance du Daoïste aux Sept Couleurs, et les 300 mondes détruits ne pouvaient y résister. À mesure que l'onde se propageait, les 300 mondes commencèrent à s'effondrer les uns après les autres.
 
 Le visage de la Tortue Noire était pétrifié par la terreur; il poussa un cri et recula précipitamment avec le Général Oiseau Vermillon. Le Souverain pâlit et se transforma en une longue traînée de lumière pour s'enfuir.
 
-Au loin, les expressions de la troisième concubine, du Maître Daoïste Bleu Rêve et des habitants de la planète des Cinq Éléments changèrent radicalement. Ils reculèrent tous hors de la Première Fleur des 300 Mondes, saturée de force destructrice!
+Au loin, les expressions de la troisième concubine, du Maître Dao Bleu Rêve et des habitants de la planète des Cinq Éléments changèrent radicalement. Ils reculèrent tous hors de la Première Fleur des 300 Mondes, saturée de force destructrice!
 
 Au centre de la force destructrice, la poitrine du Daoïste aux Sept Couleurs trembla. La collision entre la troisième flèche et les neuf soleils avait créé une onde de choc qui s'était propagée dans son corps, faisant jaillir le sang de sa poitrine et le laissant gravement blessé.
 

@@ -14,7 +14,7 @@ Une fois Wang Lin parti, Huang Long se retourna. Il s'inclina respectueusement e
 
 Un vieil homme chétif vêtu d'une robe bleue sortit dans la salle principale, le visage empreint d'une profonde sévérité. « Quelle part de vérité y a-t-il? Huang Long, ne vois-tu pas que ce petit gars n'a pas dit un seul mot de vrai? »
 
-Huang Long afficha une expression embarrassée. Cet homme était l'un des dix anciens de l'Établissement des Fondations. Dans le monde de la culture, seule la force importait. Le fait qu'il soit le chef de la secte et que ses pairs soient des anciens n'était qu'une façade destinée au monde extérieur.
+Huang Long afficha une expression embarrassée. Cet homme était l'un des dix anciens de l'Établissement des Fondations. Dans le monde de la culture, seule la force importait. Le chef de la secte, ainsi que tous ses pairs, n'étaient que des façades destinées au monde extérieur.
 
 La règle de la Secte Heng Yue était la suivante: celui qui atteignait le stade de l'Établissement des Fondations pouvait devenir un ancien et jouir de ses privilèges. Si l'on atteignait la Formation du Noyau, on devenait l'un des véritables anciens de la Secte Heng Yue, et si l'on atteignait l'Âme Naissante, on était considéré comme un ancêtre de la secte.
 
@@ -84,11 +84,11 @@ Les yeux de Wang Lin s'illuminèrent et son corps bondit. L'expression de Sun Da
 
 En un instant, il fut aux côtés de Sun Dazhu. Ses yeux brillèrent et il frappa violemment la poitrine de ce dernier. Lorsque Sun Dazhu avait bu le thé, Wang Lin avait compris qu'il n'avait pas réellement avalé le liquide, mais l'avait entouré d'une couche d'énergie spirituelle pour simuler l'ingestion.
 
-Sous la force du coup, l'énergie spirituelle de Sun Dazhu fut dispersée et le thé se dissipa brutalement à l'intérieur de son corps.
+Sous la force du coup, l'énergie spirituelle de Sun Dazhu fut dispersée et le thé apparut aussitôt et se dissout rapidement dans son corps.
 
 Le visage de Sun Dazhu se transforma, laissant poindre une pointe de fureur. Il s'écria: « Wang Lin, que fais-tu? Veux-tu tuer ton maître? Si tu me tues, la Secte Heng Yue ne te pardonnera jamais! »
 
-Wang Lin resta silencieux. Il déploya son Sens Divin et constata que le thé s'était totalement dissous dans l'organisme de Sun Dazhu. Il sentit ensuite des filaments s'insinuer du thé vers le cerveau de ce dernier.
+Wang Lin resta silencieux. Il déploya son Sens Divin et constata que le thé s'était totalement dissous dans l'organisme de Sun Dazhu. Il sentit ensuite des filaments argentés remonter le long des vaisseaux sanguins, du thé vers le cerveau de ce dernier.
 
 Sun Dazhu sentit lui aussi que quelque chose n'allait pas, mais avant qu'il ne puisse parler, l'objet filamenteux avait déjà atteint sa tête. Instantanément, son expression farouche commença à s'estomper.
 
@@ -100,7 +100,7 @@ L'expression de Sun Dazhu restait vide. Il murmura rapidement: « Le thé... ne 
 
 Wang Lin fut stupéfait. Il examina attentivement Sun Dazhu un moment avant de demander: « Pourquoi? »
 
-Sun Dazhu répondit d'une voix monocorde: « Il y a de l'Herbe Nématode à Trois Fils dans le thé. »
+Sun Dazhu répondit d'une voix monocorde: « Il y a de l'Herbe Nématode des Trois Cadavres dans le thé. »
 
 Les yeux de Wang Lin s'illuminèrent. « Quel est l'effet de cette herbe? »
 
@@ -114,7 +114,7 @@ Wang Lin prit une profonde inspiration et demanda: « Qu'est-ce que l'Herbe de D
 
 « L'Herbe de Dispersion de l'Énergie Spirituelle est indispensable pour dissiper une culture; son effet est de disperser l'énergie spirituelle présente dans le corps. Quant à toi, je n'en ai parlé à personne. Je ne voulais pas que d'autres me volent tes gourdes. Après cela, les choses ont changé trop brusquement; en parler maintenant ne ferait que me nuire, alors j'ai décidé d'agir. »
 
-« Quant à l'Herbe Nématode à Trois Fils, je ne l'avais pas auparavant. Je l'ai obtenue d'un autre cultivateur, en échange de classiques de la secte que j'avais dérobés, lors de mon voyage hors de la montagne l'année dernière. Ce cultivateur a affirmé que si elle est utilisée sur un cultivateur inférieur à l'Établissement des Fondations, elle a 100 % de chances de réussir, et qu'en plus elle est incolore et inodore, donc difficile à déceler. À l'origine, je voulais l'utiliser sur Lu Yunjie pour lui soutirer des Pilules de Bonne Fortune. »
+« Quant à l'Herbe Nématode des Trois Cadavres, je ne l'avais pas auparavant. Je l'ai obtenue d'un autre cultivateur, en échange de classiques de la secte que j'avais dérobés, lors de mon voyage hors de la montagne l'année dernière. Ce cultivateur a affirmé que si elle est utilisée sur un cultivateur inférieur à l'Établissement des Fondations, elle a 100 % de chances de réussir, et qu'en plus elle est incolore et inodore, donc difficile à déceler. À l'origine, je voulais l'utiliser sur Lu Yunjie pour lui soutirer des Pilules de Bonne Fortune. »
 
 Wang Lin devint furieux et ricana: « N'aviez-vous pas peur que je m'en aperçoive? »
 
@@ -128,4 +128,4 @@ Une lumière froide traversa les yeux de Wang Lin. Il demanda froidement: « Tou
 
 Wang Lin fixa le corps de Sun Dazhu. Il ressentit une émotion indescriptible. C'était la première fois qu'il tuait quelqu'un, et c'était son propre maître.
 
-Après une longue réflexion, Wang Lin emporta le corps de Sun Dazhu. Il sortit de la Secte Heng Yue d'un air abattu, jusqu'à trouver un ravin de montagne où il finit par jeter le cadavre. Quant à la bourse de rangement de Sun Dazhu, il la garda: elle contenait encore quelques bonnes choses.
+Après une longue réflexion, Wang Lin emporta le corps de Sun Dazhu. Il sortit de la Secte Heng Yue d'un air abattu, jusqu'à trouver un ravin de montagne où il finit par jeter le cadavre.

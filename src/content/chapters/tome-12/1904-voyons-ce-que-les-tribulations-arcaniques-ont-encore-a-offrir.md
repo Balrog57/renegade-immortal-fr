@@ -30,7 +30,7 @@ Alors qu'il secouait la tête, des grondements sourds s'élevèrent des nuages. 
 
 Son rugissement surpassa le son du tonnerre et étouffa les grondements des nuages de tribulation. La volonté du tonnerre jaillit du corps de Wang Lin. C'était la volonté du Seigneur du Tonnerre lui-même!!
 
-L'éclair qui allait frapper trembla soudainement et recula à mille pieds de Wang Lin, comme s'il était saisi de peur. Non seulement il n'attaqua pas Wang Lin, mais il se retourna pour charger les nuages de tribulation!
+L'éclair, qui n'était plus qu'à mille pieds de Wang Lin, trembla soudainement, comme saisi de peur, et recula. Non seulement il n'attaqua pas Wang Lin, mais il se retourna pour charger les nuages de tribulation!
 
 « Puisque mon essence de tonnerre a atteint la perfection, je suis le seul capable de faire tomber la foudre sur autrui! » Wang Lin leva la main gauche vers les cieux. Les nuages tremblèrent et poussèrent un rugissement, comme s'ils ne pouvaient supporter une telle pression. Tout le tonnerre contenu en leur sein vola vers Wang Lin.
 

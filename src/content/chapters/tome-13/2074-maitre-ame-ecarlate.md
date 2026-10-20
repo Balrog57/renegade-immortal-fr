@@ -16,7 +16,7 @@ Les voix des cultivateurs formèrent une onde sonore qui explosa dans les airs. 
 
 Derrière ces figures se trouvait une dense brume de sang. La brume semblait bouillonner, et une personne était assise à l'intérieur.
 
-« Vieux fou, tu cherches la mort! Lorsque la formation sera brisée dans deux jours, ce jeune maître demandera à son Maître de me donner ton âme originelle. Je veux goûter à ce que vaut l'âme originelle d'un cultivateur du troisième niveau. » L'expression du jeune homme changea et une lueur d'intention meurtrière brilla dans ses yeux.
+« Vieux fou, tu cherches la mort! Lorsque la formation sera brisée dans deux jours, ce jeune maître demandera à son Maître de me donner ton âme originelle. Je veux goûter à ce que vaut l'âme originelle d'un cultivateur de la troisième étape. » L'expression du jeune homme changea et une lueur d'intention meurtrière brilla dans ses yeux.
 
 Maître Nan Yunzi rugit: « Qu'y a-t-il à craindre de la mort?! »
 

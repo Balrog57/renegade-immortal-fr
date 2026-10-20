@@ -64,9 +64,9 @@ L'énergie de l'épée fendit le ciel dans un éclat fulgurant. Elle se mua en l
 
 L'énergie était trop rapide. On pouvait esquiver, on pouvait fuir, mais le domaine exercé par l'épée ne faisait que croître. Ce domaine tyrannique devenait plus puissant à mesure que la cible s'affaiblissait.
 
-Le visage de l'ancêtre de la famille Huan se voila d'ombre alors qu'il projetait Liu Mei en arrière. Sa main traça un sceau et une lumière blanche jaillit. Son Dao était le Dao des Dix Mille Illusions Sans Identité; il pouvait plonger tout ce qui existe dans l'illusion, mais entre ses mains, ce pouvoir revêtait une dimension encore plus spéciale.
+Le visage de l'ancêtre de la famille Huan se voila d'ombre alors qu'il projetait Liu Mei en arrière. Ses deux mains se joignirent, et une lumière blanche jaillit. Son Dao était le Dao des Dix Mille Illusions Sans Identité; il pouvait plonger tout ce qui existe dans l'illusion, mais entre ses mains, ce pouvoir revêtait une dimension encore plus spéciale.
 
-La lumière blanche brilla intensément sur son doigt alors que son intention Dao augmentait de façon effrénée. L'ancêtre de la famille Huan mobilisa toute l'énergie originelle de son corps pour la concentrer au bout de son doigt, puis il pointa impitoyablement vers l'avant.
+La lumière blanche brilla intensément sur son doigt alors que son intention Dao augmentait de façon effrénée. L'ancêtre de la famille Huan mobilisa toute l'énergie originelle de son corps pour la concentrer au bout de son doigt, puis, dans un grand cri, il pointa impitoyablement vers l'avant.
 
 Le jaillissement de lumière blanche percuta l'énergie de l'épée de Ling Tianhou. Une explosion assourdissante se propagea sur toute la planète Mille Illusions. La lumière blanche se dissipa, laissant passer l'énergie de l'épée qui, telle un éclair, s'engouffra dans le corps de l'ancêtre de la famille Huan par son doigt.
 
@@ -98,17 +98,17 @@ Après avoir pris sa décision, l'ancêtre de la famille Huan déploya immédiat
 
 « Vieux ami de la famille Qian, Frère Xu, j'ai une requête... »
 
-Sur la planète Ran Yun, Wang Lin observa le vortex effondré avant de détourner le regard. Ses yeux se posèrent sur la brume noire entourant la marionnette de garde céleste. Des sanglots déchirants s'échappaient de l'obscurité.
+Sur la planète Ran Yun, Wang Lin observa le vortex effondré avant de détourner le regard. Ses yeux se posèrent sur la brume noire entourant la marionnette de garde céleste. Des cris stridents s'échappaient de l'obscurité.
 
 Chaque cri était comme une lame acérée transperçant le cœur de Wang Lin.
 
-Une trace de douleur apparut dans le regard de Wang Lin alors qu'il contemplait la brume noire. Chaque fois que ces yeux voilés croisaient les siens, ils dégageaient une amertume profonde.
+Une trace de douleur apparut dans le regard de Wang Lin alors qu'il contemplait la brume noire. Chaque fois que ces yeux voilés croisaient les siens, ils dégageaient une profonde rancune.
 
-« C'est mon enfant... C'est mon descendant direct dans ce monde... »
+« Serait-ce donc mon enfant... Mon descendant direct dans ce monde... »
 
-Wang Lin s'avança lentement dans l'ombre projetée par la garde céleste pour approcher la marionnette. Une pointe de douceur émanait de son regard. Il hésita un instant avant de lever sa main droite et de l'enfoncer dans la brume.
+Wang Lin s'avança lentement vers la brume noire cernée par la marionnette de garde céleste. Une pointe de douceur émanait de son regard. Il hésita un instant avant de lever sa main droite et de l'enfoncer dans la brume.
 
-L'esprit tourmenté n'hésita pas à mordre le doigt de Wang Lin. Les dents acérées déchirèrent sa peau, et l'aura froide et rancunière pénétra immédiatement son corps par la blessure.
+L'esprit vengeur n'hésita pas à mordre le doigt de Wang Lin. Les dents acérées déchirèrent sa peau, et l'aura froide et rancunière pénétra immédiatement son corps par la blessure.
 
 Wang Lin ne retira pas sa main. Ses yeux restaient empreints de douceur tandis qu'il regardait silencieusement l'enfant qui s'acharnait à lui sucer le sang.
 

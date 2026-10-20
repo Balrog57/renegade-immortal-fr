@@ -16,7 +16,7 @@ Les paroles de Xu Liguo mirent Wang Lin sur ses gardes. Il connaissait très bie
 
 Xu Liguo possédait une intelligence que les âmes errantes n'avaient pas. Le fait qu'il fût un cultivateur de l'Âme Naissante transformé en démon y avait largement contribué. Par la suite, son intellect s'était lentement restauré jusqu'à ce qu'il devienne l'esprit d'épée démoniaque qu'il était aujourd'hui.
 
-La personnalité de Xu Liguo était celle d'un poltron, mais il était en même temps très orgueilleux. Dans l'ensemble, cela faisait de lui un démon très complexe. Le fait qu'il supplie ainsi Wang Lin de libérer cette âme rendit ce dernier prudent.
+La personnalité de Xu Liguo était celle d'un poltron, mais il pouvait aussi se montrer indomptable. Dans l'ensemble, cela faisait de lui un démon très complexe. Le fait qu'il supplie ainsi Wang Lin de libérer cette âme rendit ce dernier prudent.
 
 « Intéressant! » Les yeux de Wang Lin s'illuminèrent. Après avoir réfléchi un instant, il parvint à deviner ce qui s'était produit. L'ancêtre du Clan des Démons Géants avait dû utiliser l'âme enfermée dans la roue pour tenter Xu Liguo. C'est pourquoi Xu Liguo y pensait encore, même après être revenu auprès de lui.
 

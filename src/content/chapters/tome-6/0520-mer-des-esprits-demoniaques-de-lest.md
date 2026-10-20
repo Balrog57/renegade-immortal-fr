@@ -30,7 +30,7 @@ Aux côtés de Wang Lin, les neuf autres répondirent d'une même voix. Ils se l
 
 Cependant, la vitesse de Wang Lin ralentit légèrement et il ne fut pas le premier à entrer. Il attendit que les autres passent devant lui avant de s'avancer.
 
-Une fois les disciples des Sectes de la Grande Épée et du Destin Céleste entrés, les disciples des sectes célèbres ainsi que les vieux monstres s'élancèrent tous vers l'entrée.
+Une fois les disciples des Sectes de l'Épée Da Luo et du Destin Céleste entrés, les disciples des sectes célèbres ainsi que les vieux monstres s'élancèrent tous vers l'entrée.
 
 Yao Xixue, perchée sur son jade de sang, hésita un instant avant de serrer les dents et de charger vers l'ouverture.
 
@@ -58,17 +58,17 @@ Après leur départ, les vieux monstres restants furent emportés par diverses p
 
 La zone entourant la Mer des Esprits Démoniaques de l'Est retrouva son état de calme initial. La mer d'objets flottants se mouvait lentement, dégageant une aura mystérieuse. Les lueurs rouges et vertes continuaient de scintiller sous la surface.
 
-Le Saint de l'Épée Ling Tianhou, transformé en un rayon d'énergie d'épée, fendit le vide. La demeure de la Secte de la Grande Épée ne se trouvait ni sur la planète Tian Yun, ni sur l'une des cinq planètes qui l'orbitaient, mais sur une vaste planète que Ling Tianhou avait lui-même entraînée ici.
+Le Saint de l'Épée Ling Tianhou, transformé en un rayon d'énergie d'épée, fendit le vide. La demeure de la Secte de l'Épée Da Luo ne se trouvait ni sur la planète Tian Yun, ni sur l'une des cinq planètes qui l'orbitaient, mais sur une vaste planète que Ling Tianhou avait lui-même entraînée ici.
 
-Bien que cette planète ne puisse rivaliser avec Tian Yun, elle était bien plus grande que les cinq satellites de cette dernière. Elle possédait également une énergie spirituelle dense, idéale pour les cultivateurs.
+Bien que cette planète ne puisse rivaliser avec Tian Yun, elle était plusieurs fois plus grande que les cinq satellites de cette dernière. Elle possédait également une énergie spirituelle dense, idéale pour les cultivateurs.
 
-C'est lui qui y avait établi la Secte de la Grande Épée! Et il l'avait nommée Da Luo!
+C'est lui qui y avait fondé la Secte de l'Épée Da Luo, et il avait aussi nommé cette planète Da Luo!
 
 Ling Tianhou se déplaçait à une vitesse fulgurante, traversant l'atmosphère de la planète pour rejoindre son lieu de culture solitaire situé dans sa partie orientale.
 
 « Je dois utiliser ces 200 ans pour perfectionner l'Épée Céleste. Je vais fusionner neuf esprits de bêtes démoniaques en un seul afin d'affiner cette épée céleste et d'en faire une épée démoniaque. À ce moment-là, mes chances d'obtenir le jeton seront doublées. » Les yeux du Saint de l'Épée s'illuminèrent alors qu'il disparaissait dans son pavillon personnel.
 
-Quant à l'Omniscient, dès son retour sur la planète Tian Yun, il se précipita dans la tour aux sept couleurs située au sommet des trois montagnes. Il s'assit à l'intérieur, entouré de plusieurs os de bêtes noires. Ces ossements étaient d'une lissité et d'un éclat extrêmes, dégageant une aura maléfique.
+Quant à l'Omniscient, dès son retour sur la planète Tian Yun, il entra dans la tour aux sept couleurs située au sommet du pic aux trois couleurs. Il s'assit à l'intérieur, entouré de plusieurs os de bêtes noires. Ces ossements étaient d'une lissité et d'un éclat extrêmes, dégageant une aura maléfique.
 
 « Mon disciple Wang Lin est un homme de grande fortune... Je me demande simplement quelle part de cette fortune lui reste... » L'expression de l'Omniscient demeura impassible tandis que sa main droite s'étendait pour attirer les os vers sa paume, avant de les disperser à nouveau sur le sol.
 

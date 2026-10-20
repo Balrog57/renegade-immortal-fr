@@ -16,7 +16,7 @@ Sur la planète des Cinq Éléments, les gens sentirent leur cuir chevelu engour
 
 En conséquence, le géant et les neuf qilins rugissaient face aux centaines de cultivateurs entourant la tour et les quatre personnes qui observaient depuis le miroir à l'intérieur de celle-ci!
 
-Sous ce rugissement soudain, de nombreux cultivateurs autour de la tour reculèrent par réflexe, le visage pâle. Le sang jaillit de la bouche des cultivateurs de bas niveau. Ils battirent en retraite et s'assirent, accablés.
+Sous ce rugissement soudain, de nombreux cultivateurs autour de la tour reculèrent par réflexe, le visage pâle. Le sang jaillit de la bouche des cultivateurs de bas niveau. Ils battirent en retraite et s'assirent en tailleur.
 
 Sous leurs regards paniqués, Wang Lin se tenait sur la tête du géant, suivi par les neuf qilins. Le géant fit un pas en avant et agita ses deux bras.
 
@@ -42,7 +42,7 @@ Un vieil homme, situé au milieu de la phase de Purificateur du Nirvana, poussa 
 
 « C'est un envahisseur, comment pouvons-nous le laisser entrer?! » La voix du vieil homme était rauque et ses yeux brûlaient de haine.
 
-« C'est vrai, cet homme se nomme Wang Lin, et je sais une chose sur lui. Il est infâme en dehors de la planète des Cinq Éléments et il est d'une cruauté extrême. Partout où il passe, toute vie s'éteint et il ne laisse aucun survivant! »
+« C'est vrai, cet homme se nomme Wang Lin, et j'en ai entendu parler. Il est infâme en dehors de la planète des Cinq Éléments et il est d'une cruauté extrême. Partout où il passe, toute vie s'éteint et il ne laisse aucun survivant! »
 
 Une autre personne s'avança et rugit: « Il n'y a pas si longtemps, j'ai entendu parler d'une famille nommée Teng sur une planète de culture. Il a convoité un trésor de leur lignée et a massacré toute la famille, y compris les mortels. Ni les vieux ni les jeunes n'ont été épargnés, le sang coulait comme une rivière! »
 
@@ -60,7 +60,7 @@ Directement face à Wang Lin, l'homme d'âge moyen aux cheveux noirs se tenait a
 
 « Wang Lin!! » Dès que Wang Lin posa les yeux sur lui, l'homme poussa un rugissement soudain. Il bondit dans les airs et des ondes surgirent sous ses pieds. Une vague colossale déferla vers Wang Lin.
 
-Des rugissements retentirent dans la mer entourant Wang Lin. Puis, quatre murs d'eau, hauts d'environ dix mille pieds, surgirent, l'emprisonnant totalement!
+Des rugissements retentirent dans la mer entourant Wang Lin. Puis, quatre murs d'eau, hauts d'environ cent mille pieds, surgirent, l'emprisonnant totalement!
 
 Simultanément, l'homme aux cheveux noirs poussa un cri de guerre et bondit dans les airs avec sa lance. Il la projeta violemment vers le bas, en direction de Wang Lin qui était piégé par les remparts d'eau!
 
@@ -84,7 +84,7 @@ Alors que ses paroles résonnaient, tous les cultivateurs de la Secte Gui Yi aut
 
 « Le Seigneur Général de l'Eau a déjà atteint la légendaire troisième étape. Cet envahisseur maudit, quelle qualification a-t-il pour lui tenir tête? »
 
-Des vagues d'acclamations éclatèrent parmi les cultivateurs. L'homme d'âge moyen paraissait extrêmement suffisant; il brandit sa lance et poussa un rugissement.
+Des vagues d'acclamations éclatèrent parmi les cultivateurs. L'homme d'âge moyen paraissait extrêmement suffisant; il brandit sa lance, désigna la mer en contrebas et poussa un rugissement.
 
 « Wang Lin, tu n'es que blessé. Sors de là! »
 
@@ -104,7 +104,7 @@ Wang Lin murmura doucement en sortant lentement de l'eau.
 
 Ses paroles étaient d'un calme désinvolte, mais elles plongèrent le Général de l'Eau dans une terreur profonde.
 
-À cet instant, à l'extérieur des cinq anneaux, le mystérieux Grand Empyréen Xuan Luo, jeune homme aux cheveux noirs, se tenait là, observant la scène.
+À cet instant, à l'extérieur des cinq anneaux, le Grand Empyréen Xuan Luo, jeune homme aux cheveux noirs qui était apparu auparavant dans le Monde des Grottes, venu du Continent Astral Immortel, se tenait là, le regard calme, observant la scène.
 
 En entendant les paroles de Wang Lin, le Grand Empyréen Xuan Luo esquissa un sourire satisfait.
 

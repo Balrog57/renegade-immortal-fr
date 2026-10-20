@@ -88,7 +88,7 @@ Ling Er cultivait en contemplant les cloches devant elle. Plus elle les regardai
 
 Grâce à cette lumière, Ling Er ne ressentit qu'un certain inconfort. Les sourcils froncés, elle se leva et sortit. En découvrant la scène, sa petite bouche s'ouvrit de stupeur et l'incrédulité envahit son regard.
 
-À l'horizon, un géant était accroupi, et sa silhouette perçait déjà les cieux. Si ce géant se redressait, il lui suffirait d'un pas pour faire s'effondrer la planète entière.
+À l'horizon, un géant était accroupi, et sa silhouette perçait déjà les cieux. Si ce géant se redressait, il lui suffirait de frapper le sol du pied pour faire s'effondrer la planète entière.
 
 Da Tou et sa compagnie sortirent également, pétrifiés par le spectacle. Le corps de Lei Ji trembla et une immense révérence envahit ses yeux alors qu'il contemplait l'illusion derrière le bouclier. Il se souvenait parfaitement que sur la planète Géant Démon, il existait un totem dans le Sanctuaire Royal qui était un objet sacré pour le clan. Cet objet représentait un géant semblable à celui-ci!
 

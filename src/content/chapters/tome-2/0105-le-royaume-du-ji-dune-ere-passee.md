@@ -79,7 +79,7 @@ Le premier effet du Royaume Ji fit montre de sa puissance: contre des cultivateu
 
 Fixant les trois individus, Wang Lin agita la main d'un geste sombre. Dans un éclair de lumière bleue, la glace au sol se projeta et enveloppa instantanément les trois assaillants. Leurs expressions et leurs mouvements se figèrent net au moment où ils passaient à l'action.
 
-Wang Lin se redressa. Il tendit sa main droite pour récupérer la Perle Défiant le Ciel. Après l'avoir replacée contre sa poitrine, il passa devant les trois hommes. Des fissures apparurent sur la glace qui les recouvrait; elle se brisa et les trois moururent instantanément.
+Wang Lin se redressa. Il tendit sa main droite pour récupérer la Perle Défiant le Ciel. Après l'avoir replacée contre sa poitrine, il passa devant les trois individus. Des fissures apparurent sur la glace qui les recouvrait; elle se brisa et les trois moururent instantanément.
 
 Wang Lin progressait silencieusement dans la Vallée Jue Ming lorsqu'une épée volante surgit soudainement devant lui. Un jeune homme apparut. Sans un mot, il pointa son doigt vers l'épée, qui fonça vers Wang Lin.
 

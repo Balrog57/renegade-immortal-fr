@@ -14,7 +14,7 @@ Wang Lin traîna le dragon jusque dans la formation et demanda à Li Muwan: « L
 
 Li Muwan hocha la tête, l'esprit totalement embrumé. Elle avait lu des récits sur ce type de créature. Leur puissance rivalisait avec celle d'un cultivateur au stade avancé de l'Âme Naissante, et leur corps entier pouvait être considéré comme un trésor suprême.
 
-Dans la tête du dragon se trouvait une pilule de dragon. C'était une essence naturelle qui n'avait besoin que d'un léger raffinement pour devenir une véritable pilule capable d'augmenter la culture. La peau du dragon était un matériau de première qualité pour la fabrication d'armures, tandis que ses os et ses tendons constituaient également des ressources rares. Le plus précieux de tous les trésors demeurait toutefois la moelle.
+Dans la tête du dragon se trouvait une pilule de dragon. C'était une pilule naturelle qui n'avait besoin que d'un léger raffinement pour devenir une véritable pilule capable d'augmenter la culture. La peau du dragon était un matériau de première qualité pour la fabrication d'armures, tandis que ses os et ses tendons constituaient également des ressources rares. Le plus précieux de tous les trésors demeurait toutefois la moelle.
 
 La moelle dépendait de l'âge du dragon. Plus il vivait longtemps, plus sa moelle se raréfiait et plus ses effets étaient puissants; lorsqu'il s'était pleinement métamorphosé en véritable dragon, sa moelle se transformait en pilule de véritable dragon.
 
@@ -22,7 +22,7 @@ La pilule de véritable dragon était un prodige dont même les cultivateurs de 
 
 Cependant, pour former une pilule de véritable dragon, il fallait vivre 9 990 000 ans. C'est pourquoi aucun registre précis ne mentionnait quelqu'un l'ayant consommée; même ses effets ne demeuraient que rumeurs.
 
-Après avoir remis le dragon à Li Muwan, Wang Lin ne s'en soucia plus et reprit sa route. Il avait obtenu tout ce dont il avait besoin pour ce voyage, à l'exception d'un fourneau, mais il avait appris qu'il existait un lieu appelé la Secte du Raffinage des Trésors où il pourrait en acquérir un.
+Après avoir remis le dragon à Li Muwan, Wang Lin ne s'en soucia plus et rentra dans la grotte. Il avait obtenu tout ce dont il avait besoin pour ce voyage, à l'exception d'un fourneau, mais il avait appris qu'il existait un lieu appelé la Secte du Raffinage des Trésors où il pourrait en acquérir un.
 
 La Secte du Raffinage des Trésors possédait de nombreux magasins à travers la Mer des Démons. Le plus proche se trouvait dans la ville de Nan Dou, à plus de 200 000 kilomètres de là. Toutefois, les objets tels que les fourneaux à pilules coûtaient généralement une fortune; après avoir entendu Sang Muya raconter que le chef de la Secte de la Lutte contre le Mal avait dépensé la majeure partie des pierres spirituelles de sa secte pour un seul fourneau, Wang Lin renonça à l'idée d'en acheter un pour l'instant.
 
@@ -76,7 +76,7 @@ Un mois supplémentaire passa et Wang Lin parvint enfin à former son troisième
 
 Wang Lin ouvrit les yeux, le regard exalté. Il les referma aussitôt, décidé à agir d'un seul coup: il allait fusionner les trois noyaux froids en un seul.
 
-Situ Nan lui avait précédemment expliqué en détail ce processus. La fusion se composait d'une fusion initiale et d'une fusion profonde. S'il atteignait la première étape, il serait véritablement à mi-chemin du stade de la Formation du Noyau. S'il consommait la Pilule du Ciel Lointain au moment précis où la fusion s'achèverait, il aurait 80 % de chances de franchir avec succès ce stade.
+Situ Nan lui avait précédemment expliqué en détail ce processus. La fusion se composait d'une fusion initiale et d'une fusion profonde. S'il atteignait la première étape, il aurait véritablement un pied dans le stade de la Formation du Noyau. S'il consommait la Pilule du Ciel Lointain au moment précis où la fusion s'achèverait, il aurait 80 % de chances de franchir avec succès ce stade.
 
 Il n'avait pas laissé Li Muwan terminer la Pilule du Ciel Lointain car elle nécessitait un meilleur fourneau et il ne restait qu'une seule pilule incomplète; il devait garantir le taux de réussite le plus élevé possible. Par précaution, il avait également prévu un plan de secours consistant à utiliser la vigne de sang de démon pour fabriquer une Pilule du Ciel Lointain de qualité inférieure.
 

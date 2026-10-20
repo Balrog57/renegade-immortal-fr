@@ -8,7 +8,7 @@ slug: la-technique-de-dispersion
 ---
 Une fois de retour dans sa chambre, il ferma immédiatement la porte. Il ne prit pas les quatre Pilules de Rassemblement de Qi, mais les rangea dans son sac de rangement. Il s'apprêtait à mener une expérimentation avec la perle de pierre.
 
-Il sortit prudemment les trois gourdes et la perle, puis resta un instant pensif, l’expression incertaine. Il pesait le pour et le contre, car sans cette rosée, sa vitesse de culture future serait extrêmement lente.
+Il sortit prudemment les trois gourdes et la perle, puis resta un instant pensif, l’expression incertaine. Il pesait le pour et le contre, car sans cette rosée, sa vitesse de culture future serait lente.
 
 Cependant, les nuages mystérieux qui stagnaient sur la perle de pierre piquaient la curiosité de Wang Lin. Après réflexion, il prit sa décision. Il pourrait toujours collecter davantage de rosée, bien que cela demande du temps. En revanche, si le dixième nuage apparaissait, cela pourrait transformer la perle. Peut-être que l'eau dans laquelle elle tremperait contiendrait alors une énergie spirituelle encore plus dense.
 
@@ -28,7 +28,7 @@ Sans se décourager, il remit le bol sous son lit. Après une hésitation, il so
 
 Lors du mois passé avec Sun Dazhu, il avait vécu ce processus quotidiennement. Il se remit aussitôt à cultiver, et ce, jusqu'à la tombée de la nuit suivante. Wang Lin expira lentement un souffle blanc et, les sourcils froncés, esquissa un sourire amer. « Cette Pilule de Rassemblement de Qi est semblable aux médicaments de Sun Dazhu, élaborés à partir d'herbes riches en énergie spirituelle. Chaque fois que j'en consomme, mon corps se détend et déborde de vitalité. Je ne ressens plus la faim, mais je ne parviens toujours pas à condenser l'énergie spirituelle. »
 
-Il soupira. Wang Zhuo avait atteint le premier niveau de Condensation de Qi en seulement trois mois. Bien que son visage soit resté impassible, son cœur était partagé. Le talent était, après tout, le pilier fondamental de la culture.
+Il soupira. Wang Zhuo avait atteint le premier niveau de Condensation de Qi en seulement trois mois. Bien que son visage soit resté impassible, son cœur était rempli d'émotion. Le talent était, après tout, le pilier fondamental de la culture.
 
 Mais avec la détermination de Wang Lin, il n'abandonnerait pas si facilement. Il possédait cette perle mystérieuse et ne manquait point d'énergie spirituelle. Bien qu'il ne puisse rien condenser pour l'instant, il finirait par y parvenir avec le temps.
 
@@ -60,7 +60,7 @@ Au fil du temps, la sensation de gonflement s'atténua progressivement et ses va
 
 Cette coïncidence providentielle permit à Wang Lin d'expulser l'Herbe de Dispersion du Qi de son organisme.
 
-Pour forcer l'expulsion de l'Herbe de Dispersion du Qi, une méthode consistait à consumer l'herbe petit à petit à l'aide d'une immense quantité d'énergie spirituelle, jusqu'à la dissoudre. C'était la stratégie de Sun Dazhu, mais celui-ci, ayant changé d'attitude envers Wang Lin et refusant de gaspiller ses précieuses herbes, avait renoncé.
+Pour forcer l'expulsion de l'Herbe de Dispersion du Qi, une méthode consistait à consumer l'herbe petit à petit à l'aide d'une immense quantité d'énergie spirituelle, jusqu'à la dissoudre. C'était la stratégie de Sun Dazhu, mais celui-ci, découragé par Wang Lin et peiné de gaspiller ses précieuses herbes, l'avait laissé à son sort.
 
 La seconde méthode consistait à utiliser la technique de dispersion: vider intégralement son corps de toute énergie spirituelle pour recommencer sa culture depuis le début. Sun Dazhu n'avait pas opté pour cette voie car Wang Lin ne possédait presque aucune énergie spirituelle; il lui était donc impossible d'enclencher un tel processus.
 

@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1311 - The First Predestined Battle (1)
 slug: la-première-bataille-predestinee-1
 ---
-Ce coup de poing unique fit trembler les cieux, portant en lui l'impact d'une planète entière de culture s'écrasant sur le monde. Parmi les trois cultivateurs du troisième niveau, l'un se trouvait au stade du Vide Spirituel, tandis que les deux autres étaient au début du Vide du Nirvana. Ayant pris l'habitude de combattre Tuo Sen, ils restèrent calmes face à cette attaque. Ils ne se dispersèrent pas, mais chacun porta la main à son front.
+Ce coup de poing unique fit trembler les cieux, portant en lui l'impact d'une planète entière de culture s'écrasant sur le monde. Parmi les trois cultivateurs du troisième niveau, l'un se trouvait au stade du Vide Spirituel, tandis que les deux autres étaient au début du Vide du Nirvana. Connaissant bien les méthodes d'attaque de Tuo Sen, ils restèrent calmes face à cette attaque. Ils ne se dispersèrent pas, mais chacun porta la main à son front.
 
 En un instant, une force puissante émana de leurs corps et se mua en trois rayons de lumière démoniaque qui s'élancèrent pour intercepter le coup de poing de Tuo Sen.
 
 Un grondement tonitruant résonna à travers le monde et, tandis que des craquements sinistres retentissaient, d'immenses fissures spatiales apparurent. À mesure que les ondes de choc se propageaient, il semblait que l'espace lui-même allait être scindé en deux!
 
-Le combat entre cultivateurs du troisième niveau pouvait provoquer l'effondrement d'un système stellaire!
+Le combat entre cultivateurs du troisième niveau pouvait provoquer l'effondrement d'une rivière d'étoiles!
 
 Tuo Sen laissa échapper un grognement étouffé, ses yeux brillant d'une pointe de folie. Les trois cultivateurs qui le traquaient ne s'étaient jamais séparés. Durant les dix années de leur poursuite, ils n'avaient jamais rompu leur formation pour lui laisser une chance de les éliminer un par un!
 
@@ -84,9 +84,9 @@ Le vieil homme au stade du Vide Spirituel regarda la lumière blanche, les yeux 
 
 Il semblait que la femme en blanc était la seule chose qui subsistait dans ce monde. Une rivière d'étoiles semblait se dissiper sous ses pas alors qu'elle marchait vers la zone où Tuo Sen poursuivait sa proie.
 
-Wang Lin continuait de progresser vers le Clan de la Lune, utilisant la Déformation Spatiale en s'appuyant sur les souvenirs de l'emplacement du clan. Son expression était sombre; les fluctuations de l'aura de l'Ancien Dieu lui avaient laissé quelques spéculations.
+Wang Lin continuait de progresser vers le Clan de la Lune, utilisant la Distorsion Spatiale en s'appuyant sur les souvenirs de l'emplacement du clan. Son expression était sombre; les fluctuations de l'aura de l'Ancien Dieu lui avaient laissé quelques spéculations.
 
-Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé la Déformation Spatiale à plusieurs reprises, il atteignit un domaine stellaire baigné d'une douce lumière lunaire. La lueur provenait des planètes environnantes et se répandait dans le vide, créant un spectacle d'une beauté extrême, semblable à un royaume onirique.
+Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé la Distorsion Spatiale à plusieurs reprises, il atteignit un domaine stellaire baigné d'une douce lumière lunaire. La lueur provenait des planètes environnantes et se répandait dans le vide, créant un spectacle d'une beauté extrême, semblable à un royaume onirique.
 
 « C'est ici! » Un éclat de froideur passa dans les yeux de Wang Lin. Le Clan de la Lune était là!
 

@@ -8,7 +8,7 @@ slug: le-premier-essai-du-pouvoir-malefique-de-lunivers
 ---
 Une demi-heure plus tard, Wang Lin quitta la jungle. Il paraissait calme, mais il laissa échapper un soupir. Le python était bel et bien l'une des huit portes, mais ce n'était pas la véritable porte.
 
-« Cinq fleurs, huit portes. Si je vérifie les portes une à une, je finirais par la trouver. Cependant, même si je cultivais pleinement l'Art Céleste du Dao des Nuages, cela ne provoquerait pas de changement suffisant dans la mémoire de la troisième âme... Dans ce cas, je serais incapable de chercher les huit portes. »
+« Cinq fleurs, huit portes. Si je vérifie les portes une à une, j'aurais une chance de la trouver. Cependant, même si je cultivais pleinement l'Art Céleste du Dao des Nuages, cela ne provoquerait pas de changement suffisant dans la mémoire de la troisième âme... Dans ce cas, je serais incapable de chercher les huit portes. »
 
 « Pour l'instant, je ne peux qu'attendre la compétition dans quelques mois. Le Souverain Céleste aux Sept Couleurs possédait des souvenirs profonds de cette épreuve. Si je parviens à subvertir suffisamment ces souvenirs durant la compétition, je pourrai trouver la vraie porte au moment où sa mémoire sera confuse! » Wang Lin flotta dans les airs, plongé dans ses pensées.
 
@@ -22,7 +22,7 @@ La Secte Dong Lin faisait partie des Neuf Sectes et Treize Factions. Tous les tr
 
 De plus, la possibilité de cultiver pendant quelques jours au sein du Bassin de Dong Lin rendait chaque compétition extrêmement féroce.
 
-Le monde des cultivateurs était aussi un lieu où les forts se nourrissaient des faibles. Bien que la règle exigeât de s'arrêter au premier coup, des blessures et des morts survenaient toujours. Tant qu'il n'y avait pas de massacre délibéré, la secte ne s'en souciait guère.
+Le monde des cultivateurs était aussi un lieu où les forts se nourrissaient des faibles. Bien que la règle exigeât de s'arrêter au premier coup, des blessures et des morts survenaient toujours. Tant qu'il ne s'agissait pas de meurtres en série, la secte ne s'en souciait guère.
 
 La Secte Dong Lin comptait 321 lignées, et chaque lignée envoyait trois à cinq représentants. La lignée victorieuse obtenait d'immenses récompenses. Par conséquent, la compétition était particulièrement acharnée.
 

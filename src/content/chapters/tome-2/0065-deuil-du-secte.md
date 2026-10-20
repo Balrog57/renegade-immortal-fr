@@ -6,23 +6,23 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 65 - Secte Mourning
 slug: deuil-du-secte
 ---
-Huang Long toucha son sac de rangement et regarda vers la Montagne Heng Yue d'un air complexe. Dao Xu se tenait à ses côtés et déclara: « Chef de secte, un jour viendra où nous reprendrons la Montagne Heng Yue. »
+Huang Long toucha son sac de rangement et regarda vers la Montagne Heng Yue d'un air mélancolique. Dao Xu se tenait à ses côtés et déclara: « Chef de secte, un jour viendra où nous reprendrons la Montagne Heng Yue. »
 
 Huang Long eut un sourire amer et répondit: « L'Épée Zi Yue m'a été offerte par l'Ancêtre Liu lorsque je suis devenu le chef de secte. Je lui avais dit que tant que l'épée serait là, je serais là aussi... mais maintenant, hélas. »
 
-L'Ancien au visage rouge, nommé Ma, déclara d'un ton sombre: « Chef de secte, la Secte Xuan Dao possédait un cultivateur de l'Âme Naissante. Ne pas l'affronter était la chose la plus logique à faire. Il n'y a aucune raison d'avoir des regrets pour ce genre de choses. Le monde de la culture a toujours été ainsi. À l'époque où la Secte Heng Yue était puissant, nous faisions la même chose. »
+L'Ancien au visage rouge, nommé Ma, déclara d'un ton sombre: « Chef de secte, la Secte Xuan Dao possédait un cultivateur de l'Âme Naissante. Ne pas l'affronter était la chose la plus logique à faire. Il n'y a aucune raison d'avoir des regrets pour ce genre de choses. Le monde de la culture a toujours été ainsi: les forts dévorent les faibles. À l'époque où la Secte Heng Yue était puissant, nous faisions la même chose. »
 
 Huang Long soupira intérieurement et ne dit mot.
 
 Wang Lin s'assit en tailleur dans un coin, les yeux fixés sur la montagne Heng Yue. Tout s'était déroulé trop vite et il était encore sous le choc, mais sa principale préoccupation concernait ses parents.
 
-Après avoir réfléchi un long moment, il ne parvint toujours pas à apaiser ses inquiétudes. Il craignait que les disciples de la Secte Xuan Dao n'aillent traquer ses parents pour se venger. À cette pensée, une lueur glaciale passa dans le regard de Wang Lin. Bien qu'il n'eût point envie de tuer, s'ils osaient s'en prendre à ses parents, il ne s'opposerait pas à les éliminer.
+Après avoir réfléchi un instant, il ne parvint toujours pas à apaiser ses inquiétudes. Il craignait que les disciples de la Secte Xuan Dao n'aillent traquer ses parents pour se venger. À cette pensée, une lueur glaciale passa dans le regard de Wang Lin. Bien qu'il n'eût point envie de tuer, s'ils osaient s'en prendre à ses parents, il ne s'opposerait pas à les éliminer.
 
-Situ Nan se targua avec fierté: « C'est la bonne attitude, Wang Lin! Héhé, tu aurais dû être comme ça depuis longtemps. Ce n'est que du meurtre, qu'est-ce qu'il y a de si terrible? J'ai dix mille façons de faire souhaiter la mort à mes ennemis. »
+Situ Nan se targua avec fierté: « C'est la bonne attitude, Wang Lin! Héhé, tu aurais dû être comme ça depuis longtemps. Ce n'est que du meurtre, qu'est-ce qu'il y a de si terrible? J'ai dix mille façons de faire en sorte que mes ennemis ne puissent ni vivre ni mourir. »
 
 Wang Lin fronça les sourcils et répondit à Situ Nan: « Tuer des gens n'est pas la solution. Si j'en tue un, un autre apparaîtra, à moins que je ne massacre tous les disciples de la Secte Xuan Dao. »
 
-Situ Nan insista pour le pousser: « Qu'y a-t-il de si difficile? Je vais t'enseigner une technique, la technique des marionnettes. Tu pourras ainsi capturer quelqu'un et le transformer en une marionnette loyale. Qu'en dis-tu? De cette façon, tu pourras vivre sans aucun souci. »
+Situ Nan insista pour le pousser: « Qu'y a-t-il de si difficile? Je vais t'enseigner une technique, la technique des marionnettes. Tu pourras ainsi capturer quelqu'un et le transformer vivant en une marionnette loyale. Qu'en dis-tu? De cette façon, tu pourras vivre sans aucun souci. »
 
 À peine Situ Nan eut-il fini de parler que le jeune homme gras du pavillon des épées s'approcha de Wang Lin et s'assit à ses côtés. Il esquissa un sourire amer: « Grand frère aîné, je m'appelle Huang Dashan. À l'avenir, je vous prie de bien vouloir prendre soin de votre cadet. »
 
@@ -40,7 +40,7 @@ Les yeux du frère Zhang s'illuminèrent. Il fixa Lu Song et répondit: « Bien 
 
 Lu Song laissa échapper un soupir. Il s'assit à côté de Wang Lin, lui tapota l'épaule et dit: « Wang Lin, la Secte Heng Yue n'existe plus que de nom. Je vais être franc avec toi: si tu étais resté à la Secte Xuan Dao, tu aurais eu un avenir bien plus radieux qu'en venant ici avec nous. »
 
-Puis, il adressa un sourire amer au frère Zhang et ajouta: « Zhang Dekun, ton entêtement est resté le même. À quoi bon cette promesse de dix ans alors que la secte n'existe même plus? Hélas. »
+Puis, il adressa un sourire amer au frère Zhang et ajouta: « Zhang Dekun, ton entêtement est resté le même. Quelle foutaise que cette promesse de dix ans, alors que la secte n'existe même plus et que nous errons tous aux quatre coins du monde? Hélas. »
 
 Wang Lin regarda Lu Song. Il écarta l'épaule pour s'éloigner du contact et demanda: « Le grand frère Lu Song n'est-il pas resté, lui non plus, à la Secte Xuan Dao? »
 
@@ -48,9 +48,9 @@ Lu Song secoua la tête: « Ne m'appelle pas "grand frère". Selon les règles, 
 
 Zhang Dekun déclara froidement: « Non seulement tu as offensé des gens de la Secte Xuan Dao, mais tu en as également offensé beaucoup au sein de la Secte Heng Yue. »
 
-Lu Song leva la tête, regarda Zhang Dekun et soupira: « Jeune frère Zhang, avant de devenir un disciple central, j'étais une personne très détestée, mais c'est du passé. À quoi bon en parler maintenant? À l'époque, il n'y avait qu'une seule place pour un disciple central cette année-là, et je devais faire ce qui était nécessaire. Je te présente mes excuses, jeune frère Zhang. »
+Lu Song leva la tête, regarda Zhang Dekun et soupira: « Jeune frère Zhang, avant de devenir un disciple central, j'étais une personne très détestée, mais c'est du passé. À quoi bon en parler maintenant? À l'époque, il n'y avait qu'une seule place pour un disciple central cette année-là, et je n'avais guère le choix. Je te présente mes excuses, jeune frère Zhang. »
 
-Le visage de Zhang Dekun resta de marbre et il ne dit mot. Lors de la compétition pour la place de disciple central cette année-là, il s'était mesuré à un parent de Lu Song. Avant le combat, Lu Song était apparu pour le blesser, provoquant sa défaite.
+Le visage de Zhang Dekun resta de marbre et il ne dit mot. Lors de la compétition pour la place de disciple central cette année-là, il s'était mesuré à un parent de Lu Song. Avant le combat, Lu Song était apparu et l'avait blessé sans peine, causant sa défaite le lendemain.
 
 Lu Song lui avait alors lancé que s'il n'était pas convaincu, il pourrait venir le défier dix ans plus tard.
 
@@ -62,15 +62,15 @@ Wang Lin vit que tous les regards étaient braqués sur lui. Il réfléchit un i
 
 La gorge de Lu Song se dessécha. Il eut un sourire empreint d'ironie: « Félicitations, grand frère Wang. Tu atteindras bientôt le stade de l'Établissement des Fondations. Le moment venu, ce sera moi qui devrai t'appeler « Ancien ». »
 
-Zhang Dekun lança à Wang Lin un regard profond et pensif avant de soupirer, tandis que les yeux de Huang Dashan s'illuminèrent d'admiration.
+Zhang Dekun lança à Wang Lin un regard profond et pensif avant de soupirer, tandis que les yeux de Huang Dashan s'illuminèrent.
 
-Les autres disciples intérieurs aux alentours observaient attentivement le groupe. Ceux qui possédaient une ouïe fine saisirent les paroles de Wang Lin, et leur respect pour lui grandit instantanément.
+Les autres disciples intérieurs aux alentours observaient attentivement le groupe. Ceux qui possédaient une ouïe fine saisirent les paroles de Wang Lin, changèrent d'expression, et leur respect pour lui grandit instantanément.
 
 Lu Song prit une profonde inspiration: « Grand frère Wang Lin, à partir de maintenant, nous sommes les disciples d'élite de la Secte Heng Yue. Tu seras le premier disciple aîné, je serai le second, Zhang Dekun le troisième et Huang Dashan le quatrième. Nous devrions désormais partager nos expériences et former un groupe. Qu'en pensez-vous? »
 
 Wang Lin réfléchit brièvement. Avant qu'il ne puisse répondre, Huang Dashan s'empressa de dire: « Ce que le deuxième frère aîné propose est juste. C'est ainsi que les choses doivent être. »
 
-Zhang Dekun hésita un instant, puis acquiesça: « Il doit y avoir des meneurs parmi les disciples intérieurs. Cela aidera les Anciens et leur allégera la charge. »
+Zhang Dekun hésita un instant, puis acquiesça: « Il doit y avoir des meneurs parmi les disciples intérieurs. Cela aidera les Anciens et leur allégera la charge, pour qu'ils puissent cultiver en paix. »
 
 Voyant que les deux autres avaient déjà donné leur accord, Wang Lin hocha la tête en signe de consentement. Cette affaire ne l'occupait guère, car il avait d'autres projets en tête.
 

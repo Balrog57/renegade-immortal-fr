@@ -76,7 +76,7 @@ Ji Xiantian rit de façon délirante et recula. Puis ses yeux brillèrent et il 
 
 « Aujourd'hui, aucun d'entre vous ne partira! »
 
-Tout en se retirant, le corps de Ji Xiantian disparut. Wang Lin resta calme; au moment où Ji Xiantian s'évanouit, sa main droite se serra en poing et il frappa sur le côté.
+Tout en se retirant, le corps de Ji Xiantian disparut. Wang Lin resta calme; au moment où Ji Xiantian disparut, sa main droite se serra en poing et il frappa sur le côté.
 
 Dans un fracas, le corps de Wang Lin fut repoussé, mais Ji Xiantian fut également contraint de se dévoiler.
 

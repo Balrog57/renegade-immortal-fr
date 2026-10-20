@@ -188,4 +188,4 @@ Il prit sa décision, recula pour s'entourer d'une nouvelle couche de débris gr
 
 Son visage devint de plus en plus sombre. Bien qu'il ait volé très loin, cette zone vide semblait sans fin.
 
-Si l'on comparait cette zone vide à une bande blanche, elle semblait traverser tout le vide de part en part. Après plusieurs jours de vol, il fut contraint d'abandonner l'idée de contourner les créatures.
+Si l'on comparait cette zone vide à une bande blanche, elle semblait traverser tout le vide de part en part. Après plusieurs jours de vol, il fut contraint d'abandonner l'idée de contourner cette zone.

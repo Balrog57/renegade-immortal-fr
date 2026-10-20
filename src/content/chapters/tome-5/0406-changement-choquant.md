@@ -64,7 +64,7 @@ Deux impacts résonnèrent sur toute la planète alors que les deux épées per�
 
 Deux autres épées volantes se précipitèrent vers lui. Malgré leurs efforts, elles furent vaincues et contrôlées par l'homme pour venir également transpercer sa poitrine.
 
-« Des dizaines de milliers d'années ont passé... j'aurais dû être mort, mais mon clan m'a considéré comme leur ancêtre fondateur. Ils m'ont nourri avec les tatouages de mon propre clan pour me maintenir en vie. J'ai survécu grâce à la vie de mes propres semblables... Je suis un pécheur envers mon clan... »
+« Des dizaines de milliers d'années ont passé... j'aurais dû être mort, mais mon clan m'a considéré comme leur ancêtre fondateur. Chaque année, ils m'ont nourri avec les talismans de vie de mon propre clan pour me maintenir en vie. J'ai survécu grâce à la vie de mes propres semblables... Je suis un pécheur envers mon clan... »
 
 Le vieil homme regarda la dernière épée volante dans le filet doré. Il prit une profonde inspiration et tendit la main; soudain, l'ultime épée dorée commença à lutter.
 

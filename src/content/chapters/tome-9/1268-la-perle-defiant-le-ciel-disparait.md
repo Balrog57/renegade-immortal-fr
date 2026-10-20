@@ -8,7 +8,7 @@ slug: la-perle-defiant-le-ciel-disparait
 ---
 À cet instant, le monde entier était entouré par les innombrables restrictions que Wang Lin avait dispersées. C'était comme une sphère en expansion qui se condensait rapidement.
 
-Le vieil homme à l'intérieur du jade laissa poindre un soupçon de désespoir, mais à ce moment précis, un sifflement s'échappa de l'objet. Une brume noire en jaillit et forma une centipède géante d'environ mille pieds de long!
+Le vieil homme à l'intérieur du jade laissa poindre un soupçon de désespoir, mais à ce moment précis, un sifflement s'échappa de l'objet. Une brume noire en jaillit et forma une centipède géante d'environ plusieurs milliers de pieds de long!
 
 Cette centipède était d'un noir absolu, parcourue d'une ligne dorée sur le dos. Elle était d'une férocité extrême!
 
@@ -74,13 +74,13 @@ Tandis que cette résonance s'intensifiait, le jade dans la main de Wang Lin dis
 
 Cette sensation était très vague, mais Wang Lin n'eut pas le temps d'y réfléchir car, au moment de la disparition, son esprit vacilla. Des souvenirs qui ne lui appartenaient pas surgirent en lui.
 
-Dans cette vision, tout était plongé dans l'obscurité et un jade était enfoui sous terre. Après d'innombrables années sans aucun changement, le sol finit par se desserrer et huit petites centipèdes apparurent près de lui. Comme si le jade leur avait accordé une intelligence, elles commencèrent à absorber son aura.
+Dans cette vision, tout était plongé dans l'obscurité et un jade était enfoui sous terre. Après des myriades d'années sans aucun changement, le sol finit par se desserrer et huit petites centipèdes apparurent près de lui. Comme si le jade leur avait accordé une intelligence, elles commencèrent à absorber son aura.
 
 Le temps passa lentement, les siècles s'écoulèrent. À mesure que les huit centipèdes s'abreuvaient de l'énergie du jade, elles commencèrent à émettre l'aura de cultivateurs. Un jour donné, leurs corps tremblèrent et elles moururent, mais les âmes d'origine qu'elles avaient cultivées pénétrèrent dans le jade. Elles devinrent des êtres semblables à des esprits de trésor.
 
 Cependant, elles avaient été créées par une force extérieure et ne pouvaient contrôler le jade; elles ne pouvaient utiliser qu'un millième de sa puissance!
 
-D'innombrables années passèrent encore. La terre trembla de nouveau et un coin du jade, autrefois enfoui, émergea à la surface.
+Des myriades d'années passèrent encore. La terre trembla de nouveau et un coin du jade, autrefois enfoui, émergea à la surface.
 
 Un vieil homme au visage tuméfié fuyait en panique. On entendait des jurons étouffés derrière lui, criant des mots comme « escroc » ou « menteur ».
 
@@ -100,7 +100,7 @@ Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa gr
 
 « Cette pierre de jade est trop troublante. Huit simples centipèdes ont pu cultiver jusqu'au stade proche du Briseur du Nirvana! Ce Liu Jinbiao a pu agir à sa guise dans la Mer des Nuages. Il a trompé d'innombrables personnes sans jamais être démasqué! » Wang Lin prit une profonde inspiration. Il ne voulait plus entendre les lamentations de Liu Jinbiao. D'un revers de manche, il envoya immédiatement l'homme dans son espace de stockage.
 
-« Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte de l'Origine, il doit donc être puni! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
+« Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte de l'Origine, il doit donc recevoir une légère punition! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
 
 Xu Liguo était déprimé et maudissait en son cœur depuis cent ans. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Luotian; il aspirait constamment à les revivre.
 

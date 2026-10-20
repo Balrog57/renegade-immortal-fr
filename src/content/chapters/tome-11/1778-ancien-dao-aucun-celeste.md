@@ -50,7 +50,7 @@ Cela fit changer l'expression du Vieux Fantôme Zhan qui luttait contre la Poup�
 
 Avant qu'il ne puisse approcher, Wang Lin rétracta son poing et ouvrit la paume pour pousser l'air devant lui! Simultanément, les huit étoiles de Démon Ancien dans son œil gauche tournèrent et jaillirent avec sa paume.
 
-« Sort Démoniaque, Montagne de Vent et de Feu! »
+« Sort Démoniaque, Montagne de Feux de Signal! »
 
 Alors que le monde pivotait et se déformait, des feux de signal embrasés jaillirent, formant huit colonnes autour de Wang Lin. De la fumée et une énergie démoniaque dense se répandirent tandis que des cris de détresse résonnaient.
 
@@ -96,7 +96,7 @@ Le vent violent fit rage et la terre s'effondra. Des craquements déchirèrent l
 
 Cela ne toucha pas que cette couche. Lorsque l'aura se propagea, la dernière strate, celle qui n'avait plus de cœur, fut pétrifiée. Même la couche supérieure, voilée de brume, ses plates-formes comprises, ainsi que toute l'Ancienne Tombe, furent transformées en pierre par ce souffle!
 
-Les pupilles du Vieux Fantôme Zhan se rétractèrent, frappées de stupeur. Le visage pâle, il recula comme un fou, ignorant même la Poupée Yi Si qui le poursuivait. En battant en retraite, ses mains formèrent un sceau et une fumée aux sept couleurs émana de son corps pour former l'Âme aux Sept Couleurs. Simultanément, sa seconde âme apparut, enveloppée dans sa cape. Mais alors que la cape l'entourait, le souffle de l'Ancien Dao balaya tout sur son passage.
+Les pupilles du Vieux Fantôme Zhan se rétractèrent, frappées de stupeur. Le visage pâle, il recula comme un fou, ignorant même la Poupée Yi Si qui le poursuivait. En battant en retraite, ses mains formèrent un sceau et une fumée aux sept couleurs émana de ses sept orifices pour former l'Âme aux Sept Couleurs. Simultanément, sa seconde âme apparut, enveloppée dans sa cape. Mais alors que la cape l'entourait, le souffle de l'Ancien Dao balaya tout sur son passage.
 
 L'Âme aux Sept Couleurs se changea immédiatement en pierre, suivie par la seconde âme. Enfin, le corps du Vieux Fantôme Zhan se pétrifia également dans un éclair de lumière grise!
 

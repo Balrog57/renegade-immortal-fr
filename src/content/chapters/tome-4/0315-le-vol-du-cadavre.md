@@ -8,7 +8,7 @@ slug: le-vol-du-cadavre
 ---
 Les yeux de Chi Hu devinrent de plus en plus brillants jusqu'à ce qu'il finisse par pousser un rugissement et se redresser. Des craquements résonnèrent dans tout son corps alors qu'il grandissait, atteignant désormais dix mètres de haut.
 
-De nombreuses veines bleues saillaient sur son corps, lui donnant l'apparence d'un dieu démon.
+De nombreuses veines bleues saillaient et ondulaient sur son corps, lui donnant l'apparence d'un dieu démon.
 
 Derrière lui se dressait une silhouette illusoire. Cette figure devint progressivement solide, révélant être Zhou Yi. Quant au corps original de ce dernier, il était assis en position du lotus, les yeux clos.
 
@@ -20,7 +20,7 @@ Des traces d'une odeur de mort émanaient de son corps et se propageaient dans l
 
 Bien que le jeune homme fût entouré de brume noire, on pouvait encore distinguer d'étranges motifs sur son corps: un motif en forme de monstre à une corne, d'une férocité absolue.
 
-Chi Hu poussa un rugissement et son corps se mit soudainement en mouvement. Malgré sa stature imposante, il se déplaçait avec une rapidité inattendue, chargeant tel un éclair. Il joignit ses mains pour former un poing, créant un immense tourbillon suivi d'une puissante force d'aspiration.
+Chi Hu poussa un rugissement et son corps se mit soudainement en mouvement. Malgré sa stature imposante, il se déplaçait avec une rapidité inattendue, chargeant tel un éclair. Il serra les poings, créant un immense tourbillon suivi d'une puissante force d'aspiration.
 
 Le beau jeune homme derrière Papillon Rouge fit rapidement bouger ses mains, et celles de Papillon Rouge suivirent le mouvement. Une aura de mort se rassembla promptement devant elle, prenant la forme d'un long arc.
 
@@ -50,7 +50,7 @@ En voyant ces quatre corps spirituels surgir soudainement, les yeux de Wang Lin 
 
 Alors que les quatre corps spirituels venaient d'apparaître devant Papillon Rouge, Chi Hu poussa un rugissement et afficha une expression de douleur tandis que la hache sur son front clignotait frénétiquement. Elle s'agita de plus en plus vite jusqu'à quitter son corps pour se poser sur la sphère devant lui.
 
-Soudain, la sphère trembla et commença à bouger d'une manière étrange, avant de prendre la forme d'une hache fend-cieux. Chaque pore du corps de Chi Hu cracha du sang, le faisant ressembler à un être de sang alors qu'il chargeait vers Papillon Rouge.
+Soudain, la sphère trembla et commença à bouger d'une manière étrange, avant de prendre la forme d'une hache fend-cieux. Chaque pore du corps de Chi Hu cracha du sang, le faisant ressembler à un être de sang alors qu'il chargeait vers Papillon Rouge, son élan pareil à un arc-en-ciel.
 
 L'illusion derrière Chi Hu déclara lentement: « Mon domaine est la Folie! Parce que je suis devenu fou par amour, j'ai atteint l'apogée de la démence. Cette folie peut ébranler le ciel et la terre. Chi Hu, je vais utiliser ton corps pour manifester mon domaine qui n'a pas été montré depuis plus de mille ans. Même si tu meurs, tu pourras mourir en paix! »
 
@@ -62,11 +62,11 @@ Cette détermination se mua en une puissante aura de combat! Chi Hu se tenait l�
 
 « Le domaine de la Folie contient la persistance, une forme d'obsession dévorante. Le domaine de Zhou Yi est véritablement étrange! Bien que Chi Hu ne soit qu'au stade de la Formation de l'Âme, cette aura de combat engendrée par cette obsession semble capable de terrasser des êtres célestes! » Wang Lin afficha un visage choqué en comprenant le véritable sens du domaine de la Folie.
 
-L'éclat fantomatique dans les yeux de Papillon Rouge brilla plus intensément encore lorsqu'elle pointa sa tempe, faisant apparaître sa rose; mais celle-ci n'était plus rouge, elle était désormais noire. Sans hésiter, elle arracha les deux stigmates et les pétales restants, puis les jeta sur les quatre éléments spirituels, créant un puissant tourbillon.
+L'éclat fantomatique dans les yeux de Papillon Rouge brilla plus intensément encore lorsqu'elle pressa son front, faisant apparaître sa rose; mais celle-ci n'était plus rouge, elle était désormais noire. Sans hésiter, elle arracha les deux stigmates et les pétales restants, puis les jeta sur les quatre éléments spirituels, créant un puissant tourbillon.
 
 Simultanément, une nuée de fumée verte s'échappa du front de Papillon Rouge. Dès son apparition, la fumée se mua en le beau jeune homme qui, d'un mouvement fluide, pénétra dans le tourbillon. Ce dernier cessa instantanément de tourner et, après une série de grondements, fusionna avec le jeune homme.
 
-Des mouvements étranges survinrent alors que le tourbillon se transformait en une créature à l'allure maléfique. La créature esquissa un sourire et rugit en silence.
+Des mouvements étranges survinrent alors que le tourbillon se transformait en une créature à une seule corne, à l'allure maléfique. La créature esquissa un sourire et rugit en silence.
 
 Le corps de Papillon Rouge frissonna. Après le départ du jeune homme, la fumée noire disparut de son corps. Elle recula de quelques pas, le visage d'une pâleur terrifiante alors qu'elle reprenait conscience.
 
@@ -88,7 +88,7 @@ Chi Hu fixa avec stupeur sa main droite vide. Sa foi puisait sa source dans cett
 
 Les yeux de Chi Hu retrouvèrent leur clarté, mais il poussa immédiatement des gémissements de douleur. Une douleur extrême lui déchirait le corps! Il tomba au sol, face la première, le visage d'une pâleur cadavérique, sans plus une trace de sang.
 
-Wang Lin observa la scène et prit une profonde inspiration.
+Wang Lin observa la scène, le souffle coupé.
 
 « Quel est mon cœur de Dao? »
 
@@ -100,7 +100,7 @@ L'abdomen de Zhou Yi fut lacéré par la griffe, ouvrant une large plaie d'où j
 
 « Non!!! » Les yeux de Zhou Yi devinrent injectés de sang. Ignorant la blessure à son abdomen, il poussa un rugissement qui ébranla les cieux, un cri empreint d'une tristesse infinie pour quiconque l'entendait. Sans la moindre hésitation, il abandonna son corps; son âme originelle s'élança pour poursuivre la pagode.
 
-« Ting Er, je ne permettrai à personne de te me voler! Je ne le permettrai pas! »
+« Ting Er, je ne permettrai à personne de t'arracher à moi! Je ne le permettrai pas! »
 
 Privé du contrôle de son âme originelle, son corps s'effondra, le sang jaillissant tandis que son visage devint blanc comme du papier. Pour Ting Er, Zhou Yi était prêt à laisser son propre corps être détruit. Des milliers d'années de compagnonnage, leurs conversations quotidiennes et leurs moments partagés année après année défilèrent devant ses yeux, le faisant sombrer dans la folie.
 

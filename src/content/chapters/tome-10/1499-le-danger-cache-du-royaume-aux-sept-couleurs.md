@@ -110,7 +110,7 @@ Alors qu'il progressait, une étincelle de soif de combat brillait dans ses yeux
 
 La Planète des Mille Illusions, la planète Ran Yun!
 
-Il y a plus de mille ans, lorsque Wang Lin était arrivé à Luotian via la faille du Pays des Esprits Démoniaques, il avait atterri sur la planète Ran Yun... C'est là qu'il avait accompagné Wang Ping durant toute une vie... Il avait marché aux côtés de Wang Ping, parcourant les montagnes, traversant les rivières et naviguant sur les mers!
+Il y a plus de mille ans, lorsque Wang Lin était arrivé à Luotian via la faille du Pays des Esprits Démoniaques, il avait atterri sur la planète Ran Yun... C'est là qu'il avait accompagné Wang Ping durant toute une vie... Il avait marché aux côtés de Wang Ping, parcourant les montagnes, traversant les rivières et conquérant les mers sur une barque solitaire!
 
 Il avait offert à Wang Ping un cœur capable de supporter le poids du monde. Il lui avait donné une vie de gloire, de richesse et la position suprême du pouvoir... Cependant, ce que Wang Lin n'avait pu lui offrir, c'était un corps complet... Le souvenir de ce siècle de liens entre père et fils remonta dans le cœur de Wang Lin en voyant Ran Yun. Une douleur autrefois estompée ressurgit avec cette émotion.
 
@@ -118,4 +118,4 @@ Le regard de Wang Lin se posa sur la Planète des Mille Illusions... Son passé 
 
 Une partie de la planète Ran Yun était plongée dans l'automne. Une fraîcheur mordante balayait le monde et les feuilles mortes volaient dans la nuit solitaire sous la clarté lunaire...
 
-Sur la planète Ran Yun, dans une cité capitale mortelle, se trouvait une cour. Cette demeure était sombre, et à son entrée, deux lanternes pâles oscillaient au gré du vent. La lueur vacillante de ces lanternes semblait lutter contre le vent froid de l'automne.
+Sur la planète Ran Yun, dans une cité capitale mortelle, se trouvait une cour. Cette demeure était sombre, et à son entrée, deux lanternes pâles oscillaient au gré du vent. La lueur vacillante de ces lanternes semblait repousser la nuit et le vent froid de l'automne, à plusieurs dizaines de pieds de hauteur.

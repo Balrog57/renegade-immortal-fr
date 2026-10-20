@@ -50,7 +50,7 @@ Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier W
 
 « Cette affaire est bien trop insondable pour moi; il est inutile d'y songer pour l'instant. Je dois raffiner les trésors de Cupidité et obtenir l'essence du Clan des Moineaux de Feu! » Après une courte réflexion, Wang Lin chassa l'image de la statue de son esprit. Il sortit plutôt les trésors de Cupidité pour les étudier et les raffiner.
 
-« Les 99 Épées de Cristal Flottant! Cupidité les avait obtenues sur un rocher arborant la tête d'un ancien démon. Dans ses souvenirs, les yeux de cette tête ne portaient aucune étoile. Les 99 épées étaient maculées de sang et formaient une formation d'épées! » Wang Lin agita la main droite et les 99 épées l'entourèrent instantanément, chacune dégageant une puissante énergie glaciale.
+« Les 99 Épées de Cristal Flottant! Cupidité les avait obtenues sur un rocher arborant la tête d'un ancien démon. Dans ses souvenirs, les yeux de cette tête ne portaient aucune étoile. Les 99 épées étaient maculées de sang et formaient une formation d'épées! » Wang Lin agita la main droite et les 99 épées l'entourèrent instantanément, chacune identique aux autres et dégageant une puissante énergie glaciale.
 
 Les yeux de Wang Lin s'illuminèrent tandis que son sens divin balayait la zone. Il examina méticuleusement chaque lame.
 
@@ -74,7 +74,7 @@ Ce visage paraissait très jeune; il ne semblait pas être celui d'un adulte. Un
 
 Finalement, elles rétrécirent jusqu'à se condenser autour du bras droit de Wang Lin. Les neuf tablettes fusionnèrent pour ne former qu'un seul gant! Ce dernier était d'un blanc grisâtre, semblable à un morceau d'os!
 
-Il enveloppa son poing, augmentant sa taille d'une dimension. Il couvrait même ses doigts; ainsi, lorsqu'il serrait le poing, des craquements se faisaient entendre.
+Il enveloppa son poing, augmentant sa taille d'une dimension. Il couvrait même ses doigts, qui se changèrent en os; ainsi, lorsqu'il serrait le poing, des craquements se faisaient entendre.
 
 Le gant portait de nombreuses marques de combat: des entailles d'épée et des fissures, témoins de toutes les batailles livrées par ce jeune ancien dieu.
 
@@ -96,7 +96,7 @@ Lorsque Wang Lin aperçut le Fourneau Impérial, son cœur rata un battement. C'
 
 Les yeux de Wang Lin pétillèrent de joie tandis qu'il contemplait le Fourneau Impérial, et les étoiles divines entre ses sourcils tournèrent rapidement. Une lumière stellaire tomba alors sur l'objet. Le fourneau gronda et se mit à pivoter. Finalement, une lueur astrale s'en échappa pour venir se loger entre les sourcils de Wang Lin.
 
-Sa taille rétrécit promptement jusqu'à fusionner avec la première étoile de Wang Lin!
+Sa taille rétrécit promptement jusqu'à fusionner avec la première de ses six étoiles!
 
 Tuo Sen avait fusionné des cultivateurs du troisième pas dans ses étoiles, tandis que Wang Lin fusionnait des trésors. Ces deux méthodes étant fondamentalement différentes, leurs chemins divergeaient naturellement.
 

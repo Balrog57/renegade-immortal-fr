@@ -12,9 +12,9 @@ Le cycle de la vie et de la mort, le cycle du karma, ainsi que le vrai et le fau
 
 À travers le cycle de la réincarnation de la vie et de la mort, il avait percé le mystère de l'existence. Cela lui avait permis de lutter à travers ses crises et de trouver la vie au cœur même de la mort. En fin de compte, cela avait permis à sa volonté défiante de surgir dans son cœur, lui donnant l'audace de devenir un cultivateur défiant les cieux.
 
-Diviser les étoiles, trancher la lune et dominer les cieux: tel était le chemin d'un cultivateur défiant les cieux. Puisqu'il avait percé le mystère de la vie et de la mort, il n'avait plus rien à craindre! Telles étaient les réflexions que le domaine de la vie et de la mort avait insufflées à Wang Lin.
+Diviser les étoiles, trancher la lune et fouler le ciel la tête basse: tel était le chemin d'un cultivateur défiant les cieux. Puisqu'il avait percé le mystère de la vie et de la mort, il n'avait plus rien à craindre! Telles étaient les réflexions que le domaine de la vie et de la mort avait insufflées à Wang Lin.
 
-Il était devenu puissant parce qu'il possédait cette intention! Pourtant, les cieux étaient impitoyables et forçaient toute vie à leur obéissance! C'était aussi grâce à l'intention de toute vie que d'innombrables Daos s'étaient formés pour que chacun puisse les appréhender. C'était le présent des cieux à tous les êtres vivants, afin de donner un sens à leur culture. Cela revenait à suivre les règles et à cultiver sur une voie docile!
+Il était devenu puissant parce qu'il possédait cette intention! Pourtant, les cieux étaient impitoyables et épuisaient la pensée de toute vie! C'était aussi grâce à l'intention de toute vie que d'innombrables Daos s'étaient formés pour que chacun puisse les appréhender. C'était le présent des cieux à tous les êtres vivants, afin de donner un sens à leur culture. Cela revenait à suivre les règles et à cultiver sur une voie docile!
 
 Mais Wang Lin ne suivrait pas ce chemin!
 
@@ -56,7 +56,7 @@ Son esprit s'étendit lentement, prenant la vallée pour centre. Lorsque sa cons
 
 Les Perdus et les bêtes féroces subirent le même sort. Quant au Maître Pin Cendré, son cœur Dao s'effondra soudainement et ses yeux se remplirent de confusion.
 
-Rien de tout cela n'intéressait Wang Lin. Son esprit continua de s'étendre et il vit un homme robuste assis dans une grotte, au sein d'une montagne de la région extérieure. Les yeux de l'homme étaient empreints de panique alors qu'il fixait le vide. Il ouvrit la bouche, mais fut incapable de prononcer le moindre mot.
+Rien de tout cela n'intéressait Wang Lin. Son esprit continua de s'étendre et il vit un homme robuste assis dans une grotte au sommet d'une montagne de la région extérieure. Les yeux de l'homme étaient empreints de panique alors qu'il fixait le vide. Il ouvrit la bouche, mais fut incapable de prononcer le moindre mot.
 
 Même après le départ de l'esprit de Wang Lin, l'homme robuste ne se remit pas de son choc.
 
@@ -66,15 +66,15 @@ Il vit une vieille femme au visage pâle, vêtue de vert, assise là, cultivant 
 
 Cette vieille femme n'arrêta pas Wang Lin. Il continua sa progression dans la montagne enveloppée de brume. Le brouillard ne put nullement le retenir et, à l'intérieur, il vit deux montagnes entourées de restrictions.
 
-La Restriction du Temps ne put non plus entraver l'esprit de Wang Lin. Sur la première montagne, il n'y avait rien d'autre qu'une tablette de pierre. Elle semblait vide, mais dégageait une aura antique.
+La Restriction Temporelle ne put non plus entraver l'esprit de Wang Lin. Sur la première montagne, il n'y avait rien d'autre qu'une tablette de pierre. Elle semblait vide, mais dégageait une aura antique.
 
 Cependant, aux yeux de Wang Lin, cette aura ancienne disparut progressivement pour révéler que la tablette entière était un trésor.
 
-Alors que l'esprit de Wang Lin s'étendait, il se dirigea vers la seconde montagne protégée par la Restriction du Temps. Là, il vit une statue imposante et une gigantesque porte de pierre à mi-pente. Une marque de foudre ornait la porte.
+Alors que l'esprit de Wang Lin s'étendait, il se dirigea vers la seconde montagne protégée par la Restriction Temporelle. Là, il vit une statue imposante et une gigantesque porte de pierre à mi-pente. Une marque de foudre ornait la porte.
 
 Son esprit traversa la porte de pierre et aperçut des orbes de lumière aux sept couleurs. Des âmes de bêtes y étaient scellées, du rang 7 au rang 13...
 
-Dans cette grotte, il vit une jeune fille qui ressemblait à la vieille femme. Son visage était livide, elle semblait morte, mais son corps tremblait.
+Dans cette grotte, il vit une jeune fille qui ressemblait à la vieille femme. Son visage était livide, comme celui d'une morte; elle semblait en profonde méditation, mais son corps tremblait.
 
 Wang Lin vit également qu'un espace caché existait dans la montagne, et à l'intérieur, il retrouva la tablette. Il vit aussi la moitié d'un squelette clouée sous la tablette par deux clous aux sept couleurs.
 

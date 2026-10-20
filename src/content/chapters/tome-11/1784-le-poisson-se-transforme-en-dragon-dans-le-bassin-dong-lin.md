@@ -18,7 +18,7 @@ Après tout, Wang Lin avait activé la cinquième fleur avec la troisième âme;
 
 Cependant, alors que les souvenirs devenaient confus et s'effondraient, l'aura du Vieux Fantôme Zhan circulait autour de ce monde. Il tentait sans cesse d'y pénétrer.
 
-Pour l'heure, bien que les huit portes fussent apparues, la véritable ne s'était pas encore révélée. S'il tentait de les chercher une à une, cela lui prendrait un temps infini. Après tout, Wang Lin avait fait apparaître ces huit portes en prenant un raccourci: il les avait forcées à surgir en brouillant les souvenirs de la troisième âme.
+Pour l'heure, bien que les huit portes fussent apparues, la véritable ne s'était pas encore révélée. S'il tentait de les chercher une à une, cela lui ferait perdre beaucoup de temps. Après tout, Wang Lin avait fait apparaître ces huit portes en prenant un raccourci: il les avait forcées à surgir en brouillant les souvenirs de la troisième âme.
 
 Le monde était en train d'être détruit. Il était fort probable que cet endroit s'effondre avant qu'il ne trouve la vraie porte, et les huit portes seraient alors de nouveau cachées. À ce moment-là, il serait encore plus difficile de les localiser!
 
@@ -64,7 +64,7 @@ L'eau du bassin diminua encore jusqu'à ce qu'il n'en reste que 20 %. L'essence 
 
 Le choc dans le cœur de Wang Lin atteignait son paroxysme. Il en avait oublié que le Vieux Fantôme Zhan était prêt à s'engouffrer et que la vraie porte se cachait encore parmi les huit portes.
 
-Il n'aurait jamais pu imaginer que le bassin Dong Lin puisse avoir un effet aussi prodigieux, permettant à ses essences d'évoluer en corps véritables, une chose dont il n'avait jamais entendu parler!
+Il n'aurait jamais pu imaginer que le bassin Dong Lin puisse avoir un effet aussi prodigieux, permettant à ses essences d'évoluer en corps véritables, une chose dont il n'avait jamais entendu parler ni rien vu de semblable!
 
 Ce revirement de situation dépassait toutes ses attentes. Il ne s'attendait pas à un tel bouleversement.
 
@@ -108,7 +108,7 @@ Cet endroit était autrefois une montagne depuis longtemps disparue. Ce qui occu
 
 Dès qu'il fut à portée de la porte, il n'hésita pas une seconde pour lever la main droite. Toute sa puissance du Dao Antique et son niveau de culture se concentrèrent dans sa paume pour presser l'entrée.
 
-« Porte de la grotte, ouvre-toi! » rugit Wang Lin, tandis que les huit corps véritables d'essence apparaissaient. Ils levèrent tous les mains et s'appuyèrent contre la porte.
+« Porte de la grotte, ouvre-toi! » rugit Wang Lin, tandis que les huit corps véritables d'essence apparaissaient. Ils levèrent tous la main et frappèrent la porte de leur paume.
 
 La porte trembla dans un grondement de tonnerre. Une brèche apparut et le battant commença à pivoter!
 

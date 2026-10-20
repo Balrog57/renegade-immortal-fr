@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1149 - Mobilization and Control
 slug: mobilisation-et-controle
 ---
-Ce continent était répertorié sous le nom de Kai Ape sur la carte stellaire. Il était parsemé de montagnes qui apparaissaient et disparaissaient au gré du brouillard. Les rugissements de bêtes féroces s'élevaient des cimes.
+Ce continent était répertorié sous le nom de Kai Yuan sur la carte stellaire. Il était parsemé de montagnes qui apparaissaient et disparaissaient au gré du brouillard. Les rugissements de bêtes féroces s'élevaient des cimes.
 
 Les ruines de cités, dissimulées partout dans la brume, témoignaient silencieusement de l'ancienne prospérité de ce continent.
 
@@ -26,7 +26,7 @@ Un arbre géant aux teintes pourpres, qui n'atteignait pas le mollet de la créa
 
 Le singe géant ouvrit les yeux, qui s'illuminèrent avec la vivacité de deux flammes ardentes. Son regard dégageait une férocité telle qu'il perçait le brouillard. Cette lueur se posa sur une silhouette aux cheveux blancs, encerclée par une multitude de bêtes féroces à mi-hauteur de la montagne!
 
-Lorsque son regard croisa celui de Wang Lin, ce dernier agita la main droite. Un vent noir surgit et faucha la vie d'une douzaine de bêtes féroces. Wang Lin leva la tête et soutint ce regard glacial.
+Lorsque son regard croisa celui de Wang Lin, ce dernier agita la main droite. Un vent noir surgit et emporta les âmes d'une douzaine de bêtes féroces. Wang Lin leva la tête et soutint ce regard glacial.
 
 Rugissement!
 
@@ -68,7 +68,7 @@ Ce singe noir était également une bête de rang 5, mais dotée d'un corps extr
 
 En guise de réponse, le singe poussa un rugissement plus violent encore et projeta un coup de poing de son bras gauche. Le coup déclencha une rafale de vent et donnait même l'illusion d'une faible puissance de Dieu Ancien. Cela témoignait de l'immense force du singe noir.
 
-Wang Lin fronça les sourcils. N'étant pas fusionné avec son corps originel, sa résistance physique n'était pas égale à celle du géant. Il laissa échapper un reniflement froid et s'apprêtait à esquiver avant de lancer une nouvelle attaque, mais soudain, pour une raison inconnue, l'image de ce vieil homme utilisant une paume pour bloquer le bras d'un Dieu Ancien surgit dans son esprit!
+Wang Lin fronça les sourcils. N'étant pas fusionné avec son corps originel, sa résistance physique n'était pas égale à celle du géant. Il laissa échapper un reniflement froid et s'apprêtait à esquiver avant de lancer une nouvelle attaque, mais soudain, pour une raison inconnue, l'image de ce vieil homme en robe noire, vu à Luotian, utilisant une paume pour bloquer le bras d'un Dieu Ancien surgit dans son esprit!
 
 Wang Lin réfléchit silencieusement face au vent qui approchait. Il était d'un calme absolu. Toute l'énergie originelle de son corps convergea vers sa paume, provoquant un grondement tonnerre. Il ferma simplement les yeux et la scène où le vieil homme stoppait la main de Tuo Sen se rejoua en boucle. Wang Lin ressentit alors une progressive sensation d'illumination.
 

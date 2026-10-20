@@ -102,4 +102,4 @@ Wang Lin ouvrit les yeux, son corps s'emplissant de la puissance d'un Exalté Do
 
 Ce second corps fit un pas, puis un troisième, un quatrième, un cinquième... jusqu'à ce que quatre-vingt-dix-huit corps soient visibles. Quatre-vingt-dix-sept étaient des images rémanentes, et un seul était réel.
 
-« Je ne peux pas fusionner le Dao à mon corps ni utiliser de sorts par mes simples mouvements. Cependant, je peux utiliser l'Art Rapide des Sorts pour déclencher 98 sorts simultanément afin de combattre un Exalté Empyréen! »
+« Je ne peux pas fusionner le Dao à mon corps ni utiliser de sorts par mes simples mouvements. Cependant, je peux utiliser l'Art Magique Rapide pour déclencher 98 sorts simultanément afin de combattre un Exalté Empyréen! »

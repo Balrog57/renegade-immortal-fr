@@ -22,7 +22,7 @@ Tout en avançant, Xu Liguo avait spécialement choisi deux cultivateurs de la F
 
 « Grand-père Xu est là! Il est imposant, magnifique, inégalé, beau et incomparable! »
 
-Leurs voix tonnaient comme le tonnerre. Xu Liguo riait aux éclats, ivre de fierté. Il s'appuyait contre une cultivatrice tout en dégustant un fruit offert par une autre et en buvant du vin. Deux autres jeunes femmes massaient doucement son corps presque éthéré.
+Leurs voix tonnaient comme le tonnerre. Xu Liguo riait aux éclats, ivre de fierté. Il s'appuyait contre une cultivatrice tout en dégustant un fruit offert par une autre et en buvant du vin. Deux autres jeunes femmes massaient doucement son corps qui prenait peu à peu consistance.
 
 Ce luxe de plaisirs exaltait Xu Liguo.
 

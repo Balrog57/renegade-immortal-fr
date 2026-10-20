@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 824 - Blood Gods Thoughts (1)
 slug: les-pensees-du-dieu-sanguinaire-1
 ---
-Les yeux de Wang Lin se rétrécirent. En tuant ces individus, il avait remarqué qu'aucun membre de la famille Yao ne figurait parmi eux. Ils n'étaient que des mercenaires, tentés par la récompense offerte par le clan.
+Les yeux de Wang Lin se rétrécirent. En tuant ces individus, il avait remarqué qu'aucun membre de la famille Yao ne figurait parmi eux. Ils n'étaient que des mercenaires, tentés par la récompense offerte par la famille Yao.
 
 Peu importe le nombre de ces gens qu'il massacrerait, la famille Yao n'en souffrirait point!
 
@@ -94,9 +94,9 @@ La silhouette de Wang Lin était aussi insaisissable qu'un fantôme tandis que l
 
 En conséquence, l'expression de Yao Changdong devint de plus en plus tourmentée. Bien que les attaques de Wang Lin ne fussent pas dévastatrices pour lui, il devait rester sur ses gardes. Chaque apparition de Wang Lin exigeait une réaction immédiate.
 
-Pourtant, il ne pouvait même pas effleurer l'ombre de Wang Lin. Cette méthode de combat singulière le frustrait profondément. Bien que Yao Changdong n'eût pas mené d'innombrables combats, il n'avait jamais affronté un adversaire tel qu'aujourd'hui.
+Pourtant, il ne pouvait même pas effleurer l'ombre de Wang Lin. Cette méthode de combat singulière le frustrait profondément. Bien que Yao Changdong n'eût pas mené beaucoup de combats, il n'en avait pas mené peu, et il n'avait jamais affronté un adversaire tel qu'aujourd'hui.
 
-Après avoir expulsé cette bouffée d'essence de son âme originelle et tenté de la dissiper, il avait perdu l'initiative. Il devait sans cesse se protéger, incapable de lancer la moindre offensive.
+Après que l'adversaire eut expulsé cette bouffée d'essence de son âme originelle, et que lui-même l'eut dissipée d'un geste de la main, il avait perdu l'initiative. Il devait sans cesse se protéger, incapable de lancer la moindre offensive.
 
 Alors qu'il s'apprêtait à reprendre ses esprits pour riposter avec son sort, le Sceau de cent pieds arriva. Cela exaspéra davantage Yao Changdong.
 

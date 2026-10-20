@@ -18,7 +18,7 @@ Cependant, il s'était effondré de manière si étrange, à partir d'un seul po
 
 La femme en blanc s'avança de quelques pas d'une démarche légère. Fixant Wang Lin de son regard glacial, elle leva sa main droite et pointa doucement le vide!
 
-À cet instant, un sentiment de crise submergea Wang Lin comme une inondation. Il ne ressentit qu'une douleur fulgurante dans la poitrine, comme si une épine acérée s'apprêtait à le transpercer. Sous cette douleur intense, il activa sans hésiter son pouvoir de Dieu Ancien. Des bruits de craquements retentirent dans sa poitrine et une plante illusoire apparut devant lui, mais ses racines furent brisées par la puissance du Dieu Ancien.
+À cet instant, un sentiment de crise submergea Wang Lin comme une inondation. Il ne ressentit qu'une douleur fulgurante dans la poitrine, comme si une épine acérée s'apprêtait à le transpercer. Sous cette douleur intense, il activa sans hésiter son pouvoir de Dieu Ancien. Des bruits de craquements retentirent dans sa poitrine et une racine de plante illusoire apparut devant lui, mais fut brisée par la puissance du Dieu Ancien.
 
 La femme en blanc fronça les sourcils et dit calmement: « Pas étonnant que tu aies osé envahir cette grotte; tu possèdes effectivement quelques qualifications. » Sur ces mots, sa main de jade pointa sur le côté.
 
@@ -58,7 +58,7 @@ Sans marquer de pause, sa main changea de sceau et il cria: « Invoque la Pluie!
 
 Alors que les quatre dragons noirs rugissaient, une pluie torrentielle descendit et couvrit le ciel. Une immense quantité d'énergie spirituelle céleste fut aspirée de toutes les directions pour pénétrer dans les gouttes en un clin d'œil.
 
-L'utilisation successive de « Invoque le Vent » et « Invoque la Pluie » provoqua leur fusion. Dans le vent, la puissance de la pluie était décuplée, et dans la pluie, le vent était encore plus glacial! Par conséquent, les innombrables gouttes d'eau se transformèrent en cristaux de glace. Wang Lin pointa sa main, les quatre dragons rugirent et la pluie de glace s'abattit droit sur la femme en blanc!
+L'utilisation successive de « Invoque le Vent » et « Invoque la Pluie » provoqua leur fusion. Dans le vent, la puissance de la pluie était immense, et dans la pluie, le vent était encore plus glacial! Par conséquent, les innombrables gouttes d'eau se transformèrent en cristaux de glace. Wang Lin pointa sa main, les quatre dragons rugirent et la pluie de glace s'abattit droit sur la femme en blanc!
 
 En ce moment critique, le regard de Wang Lin se fit impitoyable. Ses mains formèrent un nouveau sceau et il cria sans hésiter: « Arsenal Magique! » Un rayon de lumière noire jaillit de sa bouche: c'était le Sceau Céleste des 18 Enfers!
 
@@ -82,7 +82,7 @@ Une puissante bourrasque apparut, accélérant les trois sorts qui la précédai
 
 Les quatre dragons rugirent et une pluie infinie de cristaux de glace tomba, tandis que d'innombrables âmes de combat emplissaient le ciel!
 
-L'expression de la femme en blanc changea légèrement alors qu'elle contemplait l'immense corps de Wang Lin, et elle dit doucement: « Dieu Ancien... » Elle leva sa main droite, et une lueur verte s'en échappa. Puis, une mystérieuse sphère de lumière apparut.
+L'expression de la femme en blanc changea légèrement alors qu'elle contemplait l'immense corps de Wang Lin, et elle dit doucement: « Dieu Ancien... » Elle leva sa main droite, et une lueur azur s'en échappa. Puis, une mystérieuse sphère de lumière apparut.
 
 Dès qu'il vit cette sphère, Wang Lin, sous sa forme de Dieu Ancien, ressentit à nouveau un sentiment de crise terrifiant. Cette fois, il était plusieurs fois plus intense que précédemment, et tout cela était dû à cette simple sphère de lumière!
 
@@ -104,7 +104,7 @@ Dans ce moment critique, le troisième œil de Wang Lin s'ouvrit soudainement. A
 
 La puissance du troisième œil fut libérée totalement!
 
-Au moment où l'œil s'ouvrit, la lumière rouge s'étala comme un éventail pour recouvrir la sphère de lumière. Puis, l'énergie d'origine source contenue dans le troisième œil commença à se manifester lentement.
+Au moment où l'œil s'ouvrit, la lumière rouge s'étala comme un éventail pour recouvrir la sphère de lumière. Puis, l'énergie d'origine source contenue dans le troisième œil commença à se disperser rapidement.
 
 C'était la première fois que Wang Lin combattait avec l'énergie d'origine source de son troisième œil. Bien que cette lumière rouge paraisse paisible, elle était extrêmement dangereuse!
 
@@ -122,7 +122,7 @@ Wang Lin redoutait énormément cette femme, mais il devait impérativement perc
 
 Wang Lin jouait rarement sa vie au jeu, mais maintenant, il n'avait plus d'autre choix que de parier!
 
-« Si j'échoue, je devrai m'enfuir pour trouver le Démon Ancien Bei Luo afin qu'il m'aide à franchir cette grotte céleste. Peu importe, je dois entrer! » Wang Lin serra les dents, leva la main et pointa le doigt. Le sort « Arrêt » apparut soudainement.
+« Si j'échoue, je devrai m'enfuir pour trouver l'Ancien Démon Bei Luo afin qu'il m'aide à franchir cette grotte céleste. Peu importe, je dois entrer! » Wang Lin serra les dents, leva la main et pointa le doigt. Le sort « Arrêt » apparut soudainement.
 
 Dès que la femme en blanc vit le sort « Arrêt », son expression changea radicalement.
 

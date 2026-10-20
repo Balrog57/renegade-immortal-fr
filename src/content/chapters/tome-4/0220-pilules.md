@@ -36,9 +36,9 @@ Wang Lin acquiesça.
 
 Li Muwan esquissa un sourire, les yeux empreints de confiance. Elle cligna des paupières et ajouta: « Pour ce qui est de progresser vers la Formation du Noyau, Wan Er possède pas mal de pilules pour cela. Ma... euh, frère Wang, quelles pilules as-tu consommées jusqu'à présent? »
 
-Wang Lin réfléchit un instant avant de répondre: « Cet avatar n'a pris que très peu de pilules. Hormis les pilules Pei-Yuan, seulement des pilules de l'Établissement des Fondations. »
+Wang Lin réfléchit un instant avant de répondre: « Cet avatar n'a pris que très peu de pilules. Hormis les pilules Pei Yuan, seulement des pilules de l'Établissement des Fondations. »
 
-« Des pilules de l'Établissement des Fondations? » Les yeux de Li Muwan s'emplirent de surprise. « Si ce ne sont que des pilules Pei-Yuan, alors tout va bien. Après tout, ce sont les plus basiques que les alchimistes apprennent à confectionner. Mais la pilule de l'Établissement des Fondations est déjà une pilule spirituelle de rang 1. Frère Wang, l'as-tu fabriquée toi-même? » Elle laissa échapper un léger sourire et dit avec délicatesse: « Hmph, je m'en souviens maintenant. Ton maître, Zhou Lin, est toujours en retraite de porte fermée. Je suis ta maîtresse ancestrale pour le moment. »
+« Des pilules de l'Établissement des Fondations? » Les yeux de Li Muwan s'emplirent de surprise. « Si ce ne sont que des pilules Pei Yuan, alors tout va bien. Après tout, ce sont les plus basiques que les alchimistes apprennent à confectionner. Mais la pilule de l'Établissement des Fondations est déjà une pilule spirituelle de rang 1. Frère Wang, l'as-tu fabriquée toi-même? » Elle laissa échapper un léger sourire et dit avec délicatesse: « Hmph, je m'en souviens maintenant. Ton maître, Zhou Lin, est toujours en retraite de porte fermée. Je suis ta maîtresse ancestrale pour le moment. »
 
 Un rare soupçon de rougeur monta aux joues de Wang Lin, mais disparut aussitôt. Il toussa et dit: « Les pilules de l'Établissement des Fondations ont été fabriquées par moi, mais elles ont été infusées avec ce liquide spirituel que je t'ai offert autrefois. »
 

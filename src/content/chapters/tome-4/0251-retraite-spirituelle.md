@@ -18,7 +18,7 @@ Ce genre de sensation était quelque chose que Wang Lin n'avait jamais éprouvé
 
 En une seule nuit, la substance rouge entourant Wang Lin s'était à nouveau réduite d'un dixième. Wang Lin n'était pas pressé; il savait que condenser cette substance rouge n'était pas une tâche que l'on pouvait précipiter. Il était convaincu que cela prendrait beaucoup de temps.
 
-Tôt le matin, les voyageurs s'éveillèrent un à un pour se laver. Le vieil homme sortit de la calèche et prit une profonde inspiration, avant de commencer à exécuter divers mouvements corporels.
+Tôt le matin, les voyageurs s'éveillèrent un à un pour se laver. Le vieil homme, le médecin itinérant du groupe, sortit de la calèche et prit une profonde inspiration, avant de commencer à exécuter divers mouvements corporels.
 
 D'un seul regard, Wang Lin fut frappé de stupeur. Bien que les mouvements de cet homme n'aient aucune puissance offensive, chaque geste renforçait le corps. Enchaînés, leurs effets étaient bien meilleurs.
 
@@ -84,15 +84,15 @@ Le vieil homme discuta brièvement avec Wang Lin. La dame voilée ne s'avança p
 
 La servante échangea quelques mots avec la dame, puis, saisissant une bourse de soie glacée, s'approcha de Wang Lin. Elle lui tendit l'objet en disant: « Ma maîtresse veut vous remercier. Il y a dix pièces d'or ici. C'est votre prix de consultation. »
 
-Wang Lin ne refusa pas. Cela faisait plus de 400 ans qu'il n'avait pas touché la monnaie des mortels.
+Wang Lin ne refusa pas. Hormis un bref contact il y a plus de 400 ans, c'était la première fois qu'il recevait de la monnaie des mortels.
 
 Il joignit les mains en signe de respect et se détourna.
 
 Ce n'est que lorsque Wang Lin fut déjà loin que la servante poussa un soupir et retourna à la calèche. Le groupe traversa le pont pour entrer dans la partie sud de la ville.
 
-Wang Lin serrait les dix pièces d'or dans sa main tout en arpentant la capitale. C'était véritablement une métropole: une mer de gens et une multitude de boutiques bordant les rues.
+Wang Lin serrait les dix pièces d'or dans sa main tout en arpentant la capitale. C'était véritablement une métropole digne de la capitale du royaume: une mer de gens et une multitude de boutiques bordant les rues.
 
-Peu après, les yeux de Wang Lin s'illuminèrent légèrement. Dans cette capitale du monde mortel, il aperçut de nombreux cultivateurs parmi la foule.
+Peu après, les yeux de Wang Lin s'illuminèrent légèrement. Dans cette capitale du monde mortel, il avait déjà repéré pas moins d'une dizaine de cultivateurs parmi la foule.
 
 Bien que le niveau le plus élevé ne soit que d'environ la 12e ou la 13e couche de Condensation de Qi, c'était une rareté dans les autres pays.
 
@@ -154,7 +154,7 @@ Le vieil homme esquissa un sourire embarrassé et quitta précipitamment les lie
 
 Wang Lin agita la main pour qu'une légère brise dissipe l'odeur. Simultanément, son Sens Divin se verrouilla sur le vieillard. Les actions de ce dernier étaient extrêmement suspectes, mais ses paroles concernant la Formation de l'Âme concordaient avec les connaissances de Wang Lin. C'étaient des choses qu'un mortel ne pouvait absolument pas savoir.
 
-Le doute s'installa, une lueur froide brillant dans ses yeux alors qu'il se levait. Il remarqua le vieillard quitter le restaurant par la porte arrière pour se fondre rapidement dans la foule.
+Le doute s'installa, une lueur froide brillant dans ses yeux alors qu'il se levait. Il remarqua le vieillard, l'air triomphant, quitter le restaurant par la porte arrière pour se fondre rapidement dans la foule.
 
 Le corps de Wang Lin disparut du restaurant pour réapparaître à l'extérieur. Le regard froid, il suivit tranquillement l'homme.
 

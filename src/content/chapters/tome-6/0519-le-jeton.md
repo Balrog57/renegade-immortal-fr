@@ -42,7 +42,7 @@ Il y avait même des cadavres, de grandes bêtes et de gigantesques trésors mag
 
 C'était comme si, à cet instant, tout ce qui se présentait devant eux n'était qu'une illusion.
 
-Wang Lin vit personnellement une bête démoniaque géante à corne unique, émettant des éclairs noirs et possédant un niveau de culture similaire à celui d'un cultivateur Ascendant, traverser son corps à une vitesse telle qu'il n'eut aucune chance de l'esquiver.
+Wang Lin vit personnellement une bête démoniaque géante à corne unique, émettant des éclairs noirs et possédant un niveau de culture non inférieur à celui d'un cultivateur Ascendant, traverser son corps à une vitesse telle qu'il n'eut aucune chance de l'esquiver.
 
 Au moment où elle le traversa, Wang Lin prit une profonde inspiration. Il se retourna soudainement et scruta attentivement la lumière rouge pour tenter d'apercevoir autant de trésors que possible.
 
@@ -50,7 +50,7 @@ Au moment où elle le traversa, Wang Lin prit une profonde inspiration. Il se re
 
 « Il y a aussi... c'est... c'est... » Les yeux de Wang Lin devinrent soudainement graves alors qu'il fixait un rayon de lumière rouge au loin. À l'intérieur de ce rayon se trouvait une épée massive.
 
-Cette épée ressemblait à une planche de bois recouverte d'or. Cependant, elle était rouillée et certaines parties étaient même brisées.
+Cette épée ressemblait à un battant de porte recouvert d'or. Cependant, elle était rouillée et certaines parties étaient même brisées.
 
 En un clin d'œil, l'épée disparut parmi les lueurs rouges.
 
@@ -68,7 +68,7 @@ Il se retourna soudainement, ses yeux semblables à des éclairs, fixant le rayo
 
 Les yeux du Saint de l'Épée, Ling Tianhou, brillèrent comme des torches alors qu'il observait la lumière rouge s'enfoncer profondément dans la Mer des Esprits Démoniaques de l'Est.
 
-À ce moment-là, non seulement ces deux-là, mais parmi tous les cultivateurs, diverses figures antiques surgirent.
+À ce moment-là, non seulement ces deux-là, mais parmi tous les cultivateurs, diverses figures antiques surgirent à une vitesse invisible à l'œil nu.
 
 Ces figures étaient tous de célèbres vieux monstres de la planète Tian Yun. Leur intention initiale n'était que de faire découvrir ce spectacle à leurs jeunes générations, mais après avoir vu ce dernier rayon de lumière rouge, et surtout ce qu'il contenait, ils semblèrent tous rajeunir de plus de dix mille ans et s'élancèrent.
 
@@ -104,7 +104,7 @@ En un clin d'œil, l'éclat rouge de ses yeux fut envahi par une épaisse teinte
 
 De ce fait, son regard au sein de la lumière rouge sembla revitalisé; il brisa les couches de lueurs et entra en collision avec la force mystérieuse interne.
 
-Enfin, à l'instant précis où la lumière rouge disparut dans la Mer des Esprits Démoniaques de l'Est, le regard de Wang Lin parvint enfin à percer l'obscurité pour voir ce qui avait fait changer d'expression l'Omniscient et tous les autres!
+Enfin, à l'instant précis où la lumière rouge disparut dans la Mer des Esprits Démoniaques de l'Est, le regard de Wang Lin parvint enfin à percer cette lueur rouge pour voir ce qui avait fait changer d'expression l'Omniscient et tous les autres!
 
 C'était un jeton!
 

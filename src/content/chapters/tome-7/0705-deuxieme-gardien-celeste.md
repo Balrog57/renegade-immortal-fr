@@ -126,9 +126,9 @@ Le Daoïste resta silencieux et ferma les yeux, ricanant intérieurement: *J'aim
 
 L'expression de Wang Lin trahissait une pointe d'ombre. Il ne se sentirait totalement en sécurité qu'en raffinant cet homme en gardien céleste. À ses yeux, le Daoïste du Tonnerre remplissait tous les critères. De plus, avec la Bête du Tonnerre à l'extérieur, la combinaison des deux augmenterait considérablement ses chances de réussite. Même en cas d'échec, Wang Lin n'y perdrait rien.
 
-Wang Lin cracha une bouffée d'énergie originelle qui se mua en d'innombrables symboles. Chaque symbole tomba sur le corps du Daoïste l'un après l'autre.
+Wang Lin cracha une bouffée d'âme originelle qui se mua en d'innombrables symboles. Chaque symbole tomba sur le corps du Daoïste l'un après l'autre.
 
-Le Daoïste du Tonnerre ouvrit soudainement les yeux et fixa Wang Lin. Après un long moment, il laissa échapper un ricanement intérieur froid et referma les yeux. Il permit à l'énergie originelle de Wang Lin de pénétrer librement dans son corps.
+Le Daoïste du Tonnerre ouvrit soudainement les yeux et fixa Wang Lin. Après un long moment, il laissa échapper un ricanement intérieur froid et referma les yeux. Il permit au souffle d'âme originelle de Wang Lin de pénétrer librement dans son corps.
 
 À l'instant précis où ses yeux se fermèrent, le regard de Wang Lin s'illumina. Il frappa son sac de rangement et le Fouet des Âmes apparut dans sa main; il abattit alors violemment le fouet sur le Daoïste du Tonnerre.
 

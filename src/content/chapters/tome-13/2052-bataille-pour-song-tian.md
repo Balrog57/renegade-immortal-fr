@@ -18,7 +18,7 @@ Dans la Secte Yang Pourpre, les deux petites filles étaient transportées par l
 
 « Il est devenu un Grand Empyréen... »
 
-Sur le Mont de l'Empereur, dans la cité ancestrale, le Grand Empyréen Jiu Di regardait en direction du clan Ancien. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
+Sur le Mont Empereur, dans la cité ancestrale, le Grand Empyréen Jiu Di regardait en direction du clan Ancien. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
 
 « Lorsqu'il était dans le palais souterrain, il avait déjà formé l'esquisse d'un soleil, puis il a obtenu la tête de l'Ancêtre Céleste... Ce soleil possède trois couleurs: noir, blanc et or. L'or doit provenir de la fusion avec la tête de l'Ancêtre Céleste... »
 
@@ -58,13 +58,13 @@ Devant la créature, Wang Lin leva la main droite et pointa l'espace entre les s
 
 Le corps de Ji Du frémit et il leva brusquement les yeux. Incapable de contenir son émotion, il regarda Wang Lin avec une immense gratitude.
 
-« Merci, parrain, pour votre aide!! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur des Anciens Shi!!
+« Merci, parrain, de me l'accorder!! » Ji Du prit une profonde inspiration et rejoignit la tête du démon ancien. Il se tint respectueusement derrière Wang Lin, contemplant son dos. Ce n'était pas un dos imposant, mais il lui semblait aussi vaste qu'une montagne. Tant qu'il pouvait s'appuyer sur ce rempart, il pourrait devenir l'empereur des Anciens Shi!!
 
 Le colossal démon ancien n'attendit aucun ordre de Wang Lin. Il poussa un hurlement, fit volte-face avec Wang Lin et Ji Du sur son dos, et déchira la faille par laquelle il était apparu. Il s'engouffra dans le gouffre et disparut.
 
 Une fois la créature partie, la déchirure dans le ciel se referma lentement jusqu'à ne devenir qu'une ligne blanche avant de s'effacer totalement.
 
-À l'extérieur des Anciens Shi, sur la Montagne de l'Origine, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, ce dernier trembla. Son visage devint livide, mais il reprit vite contenance.
+À l'extérieur des Anciens Shi, sur la Montagne de l'Origine, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, Song Tian trembla. Son visage devint légèrement pâle, mais il reprit vite contenance.
 
 L'expression sombre, il serra la gigantesque hache de guerre dans sa main. Il leva les yeux vers le ciel et sa respiration se régularisa. Il savait que ses actes forceraient Wang Lin à venir ici.
 
@@ -74,7 +74,7 @@ Sur la Montagne de l'Origine, un grondement de tonnerre retentit et une brume en
 
 « Avec la formation d'origine et cette hache de guerre imprégnée de lois, offerte par le Grand Empyréen Gu Dao, même s'il possède le pouvoir de manipuler les lois, je devrais être capable de tenir tête! » Song Tian prit une grande inspiration et observa calmement le ciel, guettant l'arrivée de Wang Lin.
 
-Derrière lui, Chi Man affichait un visage amer et méditait en silence.
+Derrière lui, Chi Man affichait un visage amer et garda le silence.
 
 Le temps s'écoula lentement; en un clin d'œil, la durée d'un bâton d'encens s'égrena. À cet instant précis, un fracas déchira le ciel et une immense faille s'ouvrit dans l'atmosphère. Des nuées de gaz noirs jaillirent, suivies par l'apparition d'un immense démon ancien.
 
@@ -108,7 +108,7 @@ Song Tian sentit son cuir chevelu picoter, mais il endura la douleur, le regard 
 
 Un poing illusoire surgit du néant devant Song Tian. Ce poing était entièrement composé des lignes ténues représentant les lois du monde. Le poing percuta la hache de Song Tian.
 
-Des détonations assourdissantes retentirent et la hache se brisa centimètre par centimètre, avant de voler en éclats sur la terre. Le poing de loi vacilla également et fut tranché en deux.
+Des détonations assourdissantes retentirent et la hache se brisa morceau par morceau, avant de voler en éclats sur la terre. Le poing de loi vacilla également et fut tranché en deux.
 
 Song Tian recracha une gorgée de sang et recula de mille pieds pour retomber sur la Montagne de l'Origine. La montagne entière trembla sous la force du choc, et des fissures apparurent sur ses flancs.
 

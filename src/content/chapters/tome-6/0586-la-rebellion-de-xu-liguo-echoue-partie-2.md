@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 586 - Xu Liguos Rebellion Fails! (Part 2)"
 slug: la-rebellion-de-xu-liguo-echoue-partie-2
 ---
-À cet instant, des bruits d'explosions provenaient de l'intérieur de son sac de rangement. Il était évident que quelque chose s'y déchaînait avec frénésie. D'un geste de la main, il renforça les sceaux du sac.
+À cet instant, des bruits sourds de chocs provenaient de l'intérieur de son sac de rangement. Il était évident que quelque chose s'y déchaînait avec frénésie. D'un geste de la main, il renforça les sceaux du sac.
 
 Une fois cela fait, il lança un regard glacial dans la direction où Xu Liguo s'était enfui et ordonna: « Reviens! » Aussitôt, la restriction qu'il avait placée dans le corps de Xu Liguo s'activa.
 
@@ -62,7 +62,7 @@ Simultanément, la main de Wang Lin traça des sceaux, créant des restrictions 
 
 Cet ensemble de restrictions manquait d'une pièce, et la pièce manquante se trouvait précisément dans l'esprit de Xu Liguo!
 
-Bien que Wang Lin ait déployé d'immenses efforts pour mettre en place cette restriction à l'époque, elle était bien moins puissante que ce qu'il pouvait accomplir aujourd'hui. Une fois les restrictions activées, le corps de Xu Liguo fut immédiatement attiré et projeté involontairement vers elles.
+Bien que Wang Lin ait déployé d'immenses efforts, y mêlant son sang, pour mettre en place cette restriction à l'époque, elle était bien moins puissante que ce qu'il pouvait accomplir aujourd'hui. Une fois les restrictions activées, le corps de Xu Liguo fut immédiatement attiré et projeté involontairement vers elles.
 
 La lame noire, prise d'une grande inquiétude, voulut interrompre ce processus, mais Wang Lin arriva devant elle en un seul pas. Contrainte de l'esquiver, elle fut retardée, laissant Xu Liguo voir l'ensemble des restrictions pénétrer dans son corps. Son corps trembla tandis qu'il arborait un sourire flatteur et suppliait: « Maître, vous voyez? Maintenant que la restriction est aussi là, je vous en prie, pardonnez-moi; je ne me rebellerai plus jamais! »
 

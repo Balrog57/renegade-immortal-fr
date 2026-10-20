@@ -68,7 +68,7 @@ Face à Wu Dongchan se tenait Yi Muzi, vêtu d'une robe verte. Bien que son visa
 
 Des fluctuations de sorts emplissaient l'espace entre eux. Apparemment, un combat bref mais féroce venait de se dérouler. Bien que le Sens Divin de Wang Lin n'ait été présent dans cette pièce qu'un instant, il n'avait pu leur échapper. Cependant, ni Wu Dongchan ni Yi Muzi ne prêtèrent attention à lui.
 
-« Petit, notre énergie originelle est limitée ici. La cible de ce vieil homme n'est pas cet insignifiant céleste. Alors pourquoi es-tu là à me barrer la route au lieu d'aider Xuan Bao à combattre Qing Shui? Ce que tu fais est tout simplement absurde! » lança Yi Muzi à l'attention de Wu Dongchan.
+« Petit, notre énergie originelle est limitée ici. La cible de ce vieil homme n'est pas ce foutu céleste. Alors pourquoi es-tu là à me barrer la route au lieu d'aider Xuan Bao à combattre Qing Shui? Ce que tu fais est tout simplement absurde! » lança Yi Muzi à l'attention de Wu Dongchan.
 
 Wu Dongchan ne répondit pas, se contentant de fixer froidement Yi Muzi. Il leva la main et une bulle aux cinq couleurs flotta au-dessus de sa paume.
 

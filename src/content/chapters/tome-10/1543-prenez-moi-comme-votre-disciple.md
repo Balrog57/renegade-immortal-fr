@@ -14,7 +14,7 @@ Ce cri fit immédiatement pâlir le fou, qui recula, terrifié.
 
 Si Wang Lin n'avait pas été là, la Bête des Limbes se serait enfuie sans hésiter. Cependant, à cet instant, sa seconde personnalité fit surface. Après un moment d’effroi, ses yeux hébétés pivotèrent lentement. Puis, son expression devint soudainement féroce et elle rugit face au fou. Son immense corps se matérialisa complètement et elle chargea l'homme!
 
-Le fou poussa un autre cri misérable et battit en retraite précipitamment. Pourtant, plus il reculait, plus la Bête des Limbes devenait sauvage. Elle était sur le point de l'encercler.
+Le fou poussa un autre cri misérable et battit en retraite précipitamment. Pourtant, plus il reculait, plus la Bête des Limbes devenait sauvage. Elle était sur le point de l'atteindre.
 
 Ses deux grandes moustaches s'agitaient violemment dans l'air, produisant des claquements secs. La Bête des Limbes était en proie à une grande excitation. Toute sa vie, elle avait été mise en fuite par les autres et n'avait presque jamais goûté au plaisir d'effrayer quelqu'un. Ce jeu rendait même son âme joyeuse.
 
@@ -92,7 +92,7 @@ Une fois terminé, il parut encore incertain. Juste à ce moment, les moustaches
 
 Wang Lin ne pouvait se résoudre à trop presser le fou. S'il n'avait pas été impérieux de récupérer ces sorts, il ne l'aurait pas poussé ainsi. Il éprouvait un profond regret envers lui, mais la graine du karma était semée. Bien que cela fût un peu sans gêne, Wang Lin rembourserait cela plusieurs fois à l'avenir!
 
-Sur le chemin de la culture, une fois sa décision prise, il n'hésitait jamais; c'était là la voie de Wang Lin. La fortune que ce fou lui offrait serait gravée à jamais dans son cœur. Même si cela devait lui porter préjudice plus tard, il ne reculerait pas! Car il croyait fermement qu'il se devait de rendre toute bonté reçue.
+Sur le chemin de la culture, une fois sa décision prise, il n'hésitait jamais; c'était là la voie de Wang Lin. Le bienfait que ce fou lui avait accordé serait gravé à jamais dans son cœur. Même si cela devait lui attirer de grands malheurs plus tard, il ne reculerait pas! Car il croyait fermement qu'il se devait de rendre toute bonté reçue.
 
 Après avoir mémorisé la Lance aux Sept Couleurs et l'Arc de Li Guang, Wang Lin s'arrêta soudainement. Il leva sa main gauche et pressa la Bête des Limbes.
 

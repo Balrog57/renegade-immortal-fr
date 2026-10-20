@@ -12,7 +12,7 @@ La Formation de Scellement du Royaume s'effondra, et l'aura du Système Stellair
 
 À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques grands puissants avaient emprunté cette aura pour créer leurs propres royaumes de Flammes Joss, ouvrant un monde pour accueillir le peuple des Flammes Joss, afin de rassembler ces flammes et de s'en servir pour leur culture!
 
-Cependant, après la mise en place de la Formation de Scellement du Royaume, toutes les Flammes Joss furent extraites du Royaume Intérieur jusqu'à ce qu'il n'en reste plus aucune. Cela créa un cycle vicieux pendant des millions d'années, au point que le Royaume Intérieur ne put plus jamais rivaliser avec le Royaume Extérieur.
+Cependant, après la mise en place de la Formation de Scellement du Royaume, toute cette aura fut extraite du Royaume Intérieur jusqu'à ce qu'il n'en reste plus la moindre parcelle. Cela créa un cycle vicieux pendant cent millions d'années, au point que le Royaume Intérieur ne put plus jamais rivaliser avec le Royaume Extérieur.
 
 Pourtant, aujourd'hui, l'aura disparue depuis si longtemps revenait dans le Royaume Intérieur, tel un enfant errant qui se retrouve devant sa porte close. Un jour, la porte s'ouvrirait et l'enfant reviendrait!
 
@@ -36,7 +36,7 @@ Ce son ressemblait à un coup de tonnerre éternel, mais quiconque l'entendait p
 
 Alors que les paroles de Wang Lin se propageaient, il déploya ses bras. Le gigantesque disque des trois essences s'élança et se tint devant lui.
 
-Un bourdonnement retentit et le disque géant commença à croître et à s'étendre dans toutes les directions. Il passa de plus de cent mille pieds à un million, puis à des dizaines de millions, jusqu'à devenir infini!
+Un bourdonnement retentit et le disque géant commença à croître et à s'étendre dans toutes les directions. Il passa de plus d'un million de pieds à dix millions, puis à cent millions, jusqu'à devenir infini!
 
 Il remplacerait la Formation de Scellement du Royaume pour devenir la nouvelle formation!
 
@@ -50,13 +50,13 @@ Alors que sa voix résonnait après le passage de l'onde, des ombres colorées a
 
 Ces trésors étaient tous brisés; ils avaient déjà été détruits et s'étaient dissipés, mais ils possédaient un esprit. Ces esprits, ayant entendu la promesse d'éternité de Wang Lin, se manifestèrent tous. Après un bref silence, ils s'envolèrent vers le disque des trois essences.
 
-En fusionnant avec lui, ils insufflèrent au disque en expansion une majesté puissante. Après que des millions d'esprits de trésors eurent fusionné avec lui, la roue dégagea une force vitale colossale.
+En fusionnant avec lui, ils insufflèrent au disque en expansion une majesté puissante. Après que cent millions d'esprits de trésors eurent fusionné avec lui, la roue dégagea une force vitale colossale.
 
 Les maîtres de tous ces trésors étaient morts et les esprits auraient dû disparaître. Cependant, un cycle de réincarnation régnait dans ce monde, et ces esprits de trésors s'étaient extirpés du cycle de la réincarnation. Ils surgirent des anciens champs de bataille des quatre grands systèmes stellaires, sous forme de fleuves d'étoiles, pour fusionner avec le disque.
 
 À mesure qu'ils s'intégraient, le disque en rotation rapide acquit une majesté extrême!
 
-« Toutes les planètes de culture innocentes qui se sont effondrées durant cette bataille, vous possédez tous des âmes et vos propres modes de vie singuliers. Pourtant, au fil des millions d'années, tant d'entre vous ont été brisés... Aujourd'hui, je vous appelle tous à entrer dans ma formation pour devenir éternels! Âmes des étoiles, vivez à jamais! » Les yeux de Wang Lin étaient empreints de tristesse lorsqu'il prononça ces mots d'une voix douce.
+« Toutes les planètes de culture innocentes qui se sont effondrées durant cette bataille, vous possédez tous des âmes et vos propres modes de vie singuliers. Pourtant, au fil de cent millions d'années, tant d'entre vous ont été brisés... Aujourd'hui, je vous appelle tous à entrer dans ma formation pour devenir éternels! Âmes des étoiles, vivez à jamais! » Les yeux de Wang Lin étaient empreints de tristesse lorsqu'il prononça ces mots d'une voix douce.
 
 Alors que ses paroles résonnaient, d'innombrables ombres illusoires de planètes apparurent à travers les quatre grands systèmes stellaires désormais vides.
 

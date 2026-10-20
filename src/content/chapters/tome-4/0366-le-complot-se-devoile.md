@@ -62,7 +62,7 @@ Le visage de Papillon Rouge était sombre. Après une brève hésitation, elle l
 
 Alors qu'elle parlait, la ligne noire sur le front de Papillon Rouge s'estompa lentement jusqu'à disparaître sans laisser de trace.
 
-Son avatar de domaine ayant été détruit lors du combat, sa méthode pour atteindre la Transformation de l'Âme avec une relative facilité lui était désormais refusée. Mais l'illumination qu'elle avait acquise lui donnait la certitude qu'elle pourrait percer le stade de la Transformation de l'Âme par elle-même d'ici quelques décennies.
+Son avatar de domaine ayant été détruit lors du combat, sa méthode pour atteindre la Transformation de l'Âme avec une relative facilité lui était désormais refusée. Mais l'illumination qu'elle avait acquise lui donnait la certitude qu'elle pourrait percer la Formation de l'Âme, puis atteindre la Transformation de l'Âme, par elle-même, d'ici quelques décennies.
 
 Elle prit une profonde inspiration et quatre rayons de lumière jaillirent de son corps pour se poster aux quatre points cardinaux. Lorsque la lumière se dissipa, quatre silhouettes se tenaient là.
 
@@ -84,11 +84,11 @@ Alors que Papillon Rouge fixait Wang Lin, ses mains formèrent un sceau et elle 
 
 Wang Lin s'apprêtait à la poursuivre quand les quatre esprits s'élancèrent soudainement vers lui.
 
-Les yeux de Wang Lin s'illuminèrent. Il secoua l'étendard de restriction qu'il tenait et la lance se reforma. Il projeta la lance vers l'esprit de tête. L'esprit accéléra pour percuter l'arme.
+Les yeux de Wang Lin s'illuminèrent. Il secoua l'étendard de restriction qu'il tenait et la lance se reforma. Il projeta la lance vers l'esprit de métal, qui était en tête. L'esprit accéléra pour percuter l'arme.
 
 Wang Lin abattit son épée céleste de la main droite, mais l'esprit de bois vint parer le coup tandis que les esprits d'eau et de métal convergeaient vers lui.
 
-Wang Lin eut un ricanement intérieur. Autrefois, avant d'atteindre la Formation de l'Âme, il lui avait fallu d'immenses efforts pour vaincre un seul esprit. Mais il se trouvait désormais au milieu du stade de la Formation de l'Âme et avait déjà planifié la manière de dérober ces esprits élémentaires à Papillon Rouge.
+Wang Lin eut un ricanement intérieur. Autrefois, avant d'atteindre la Formation de l'Âme, il lui avait fallu d'immenses efforts pour venir à bout de ces esprits élémentaires. Mais il se trouvait désormais au milieu du stade de la Formation de l'Âme et avait déjà planifié la manière de dérober ces esprits élémentaires à Papillon Rouge.
 
 À cet instant, son regard était d'un calme olympien. Il frappa son sac de rangement et neuf sculptures apparurent.
 
@@ -100,11 +100,11 @@ Une onde de choc invisible se propagea soudainement, ralentissant un instant les
 
 La vitesse de Wang Lin était fulgurante. Il saisit immédiatement l'esprit de métal et, d'un seul pas, maîtrisa l'esprit de bois. Puis, ignorant les deux autres esprits, il se lança à la poursuite de Papillon Rouge.
 
-Papillon Rouge était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Ceng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Seule l'utilisation de tous ses trésors, alliée au fait qu'elle possédait une réserve d'énergie spirituelle supérieure à la sienne, lui permettrait de l'achever d'un seul coup!
+Papillon Rouge était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Ceng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Il lui fallait d'abord épuiser tous les trésors de cet homme, puis, grâce à une réserve d'énergie spirituelle supérieure à la sienne, le tuer d'un seul coup!
 
 Ses yeux s'assombrirent et elle ordonna: « Esprit de métal, explose! »
 
-L'esprit de métal tenu par Wang Lin trembla soudainement et commença à libérer une aura destructrice. Wang Lin lâcha l'esprit et se téléporta. L'esprit de bois était toujours entre ses mains.
+L'esprit de métal tenu par Wang Lin trembla soudainement et commença à libérer une aura destructrice. Wang Lin lâcha l'esprit et se téléporta. L'esprit de bois était toujours retenu à distance.
 
 Bang!
 
@@ -122,7 +122,7 @@ Le regard de Papillon Rouge était glacial, dénué de toute émotion, lorsqu'el
 
 Les yeux de Wang Lin devinrent encore plus froids alors qu'il pressait son sceau sans l'ombre d'une hésitation. Pour la première fois, la panique apparut sur le visage de Papillon Rouge.
 
-Mais à cet instant précis, une puissance douce descendit du ciel et enveloppa les trois esprits. La force destructrice se dissipa et les esprits furent épargnés.
+Mais à cet instant précis, une puissance douce descendit du ciel et enveloppa les trois esprits d'une lueur dorée. La force destructrice se dissipa et les esprits furent épargnés.
 
 Une silhouette apparut silencieusement devant Papillon Rouge: il s'agissait de Gong Sunpo, de Suzaku.
 

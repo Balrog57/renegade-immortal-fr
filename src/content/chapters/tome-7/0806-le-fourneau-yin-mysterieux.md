@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 806 - Mysterious Yin Furnace
 slug: le-fourneau-yin-mystérieux
 ---
-Wang Lin laissa échapper un froid reniflement avant de se déplacer; il apparut instantanément aux côtés de la bête de brume. Ses deux doigts, formant une épée, se mouvaient plus vite que la créature. Il pressa directement son doigt entre les sourcils de la bête de brume, provoquant une explosion.
+Wang Lin laissa échapper un froid reniflement avant de se déplacer; il apparut instantanément aux côtés de la bête de brume. Ses deux doigts, formant une épée, se mouvaient plus vite que la créature. Il pressa directement son doigt entre les sourcils de la bête de brume, en faisant circuler son énergie originelle; la bête éclata et se dispersa en tous sens.
 
 Cependant, après l'effondrement, elle ne se dissipa pas, mais se transforma en un nuage de brouillard. La brume tourbillonnait et commençait à montrer des signes de reformation.
 
 Les yeux de Wang Lin s'illuminèrent et il se rapprocha de l'endroit où la brume se reformait. Le tonnerre logé dans son corps se concentra à la pointe de son doigt.
 
-Une boule de tonnerre apparut soudainement. D'un geste sec du doigt, Wang Lin projeta la boule de tonnerre vers la brume en pleine reformation.
+Une boule de tonnerre apparut soudainement. D'un geste sec du doigt, Wang Lin projeta la boule de tonnerre vers la brume en pleine reformation. Au moment où elle la frappa, la boule se transforma en une puissance de tonnerre colossale qui s'engouffra dans la brume.
 
 Une série d'explosions retentit alors que la brume se désagrégeait davantage en filaments de fumée. Les yeux de Wang Lin brillèrent tandis que sa main traçait un sceau avant de pointer l'avant. Encore plus de tonnerre apparut, et des grondements violents résonnèrent dans la zone. Toute la brume restante se désintégra instantanément.
 
@@ -20,9 +20,9 @@ Les bêtes de brume restantes poussèrent des rugissements stridents à cet inst
 
 Il flotta dans les airs, son doigt pointé vers le ciel. Il déclara lentement: « Rivière des Enfers! »
 
-Un grondement assourdissant secoua le ciel et la rivière des Enfers apparut. Elle surgit du vide, dégageant une puissante aura de ressentiment.
+Un grondement assourdissant secoua le ciel et la rivière des Enfers tomba du ciel. Surgie du vide, elle s'y fondait à nouveau en dégageant une puissante aura de ressentiment.
 
-Wang Lin se tenait au sommet de la rivière des Enfers, tel le seigneur des enfers.
+Wang Lin se tenait au sommet de la rivière des Enfers, tel le maître de la rivière des Enfers et du cycle de réincarnation de ce monde.
 
 « Troisième capacité: le pouvoir de la rivière des Enfers! »
 
@@ -32,13 +32,13 @@ Ce n'était pas une seule bête, mais presque toutes. Sous la force de l'aspirat
 
 À ce moment-là, l'ancêtre du Clan des Immortels Élus afficha une expression anxieuse et cria pour arrêter Wang Lin: « Haut Céleste, ne faites pas ça! »
 
-Les yeux de Wang Lin se rétrécirent. À l'appel du vieil homme, il sentit que la brume noire aspirée par la rivière des Enfers n'était pas en train d'être raffinée. Au lieu de cela, elle se rassemblait pour former une silhouette humaine.
+Les yeux de Wang Lin se rétrécirent. À l'appel du vieil homme, il sentit que la brume aspirée par la rivière des Enfers n'était pas en train d'être raffinée. Au lieu de cela, elle se rassemblait pour former une silhouette humaine.
 
 Cette figure humaine n'était qu'une ombre emplie de brume, sans apparence précise. Pourtant, dès son apparition, ce fut comme si la rivière des Enfers avait perdu sa puissance et la créature en sortit directement.
 
-Une fois apparue, son expression était totalement floue; seul l'œil droit était net.
+Une fois apparue, son visage était totalement flou; seul l'œil droit était net.
 
-L'ancêtre du Clan des Immortels Élus descendit précipitamment du ciel. Non seulement lui, mais les autres membres du clan atterrirent également en hâte. Lorsque le vieil homme vit que la silhouette humaine n'avait qu'un œil droit, il poussa un soupir de soulagement. Il regarda Wang Lin et cria: « Haut Céleste, veuillez revenir pour que je puisse activer le réseau céleste! C'est une bête de brume humanoïde. Tant que le sort qui l'atteint ne la tue pas instantanément, elle ne sera pas blessée par ce même sort une seconde fois! »
+L'ancêtre du Clan des Immortels Élus descendit précipitamment du ciel. Non seulement lui, mais les autres membres du clan atterrirent également en hâte. Lorsque le vieil homme vit que la silhouette humaine n'avait qu'un œil droit, il poussa un soupir de soulagement. Il regarda Wang Lin et cria: « Haut Céleste, veuillez revenir pour que je puisse activer la formation céleste! C'est une bête de brume humanoïde. Tant que le sort qui l'atteint ne la tue pas instantanément, elle ne sera pas blessée par ce même sort une seconde fois! »
 
 Les yeux de Wang Lin brillèrent et il se retira rapidement. À l'instant même de son retrait, la bête de brume humanoïde à l'œil unique se précipita sur lui.
 
@@ -84,7 +84,7 @@ L'expression de Wang Lin resta neutre alors qu'il suivait tranquillement derriè
 
 Cette fois, aucun des membres du Clan des Immortels Élus n'osa les interrompre. Les yeux de l'homme corpulent s'illuminèrent et il se redressa. Il prit ensuite quelques respirations profondes avant de s'élancer à leur suite.
 
-Le vieil homme se retourna et cria avec colère: « Ta Shan, vas-tu continuer à être ingrat?! Le Haut Céleste a déjà fait preuve de clémence! »
+Le vieil homme se retourna et cria avec colère: « Ta Shan, vas-tu continuer à nous importuner, ingrat?! Le Haut Céleste a déjà fait preuve de clémence! »
 
 Wang Lin avait effectivement fait preuve de clémence. Après tout, il était venu ici sans rien savoir. Il craignait que le meurtre d'un membre du clan ne complique les choses; sinon, Ta Shan serait certainement mort.
 
@@ -128,4 +128,4 @@ Plusieurs niveaux d'escaliers descendaient dans l'entrée. À mesure qu'ils prog
 
 Au moment où ils touchèrent le fond, les yeux de Wang Lin se rétrécirent.
 
-Un autre monde s'étendait au bas de l'entrée. Cette zone mesurait environ 330 mètres de large et un fourneau de 33 mètres de haut trônait en son centre. La surface du fourneau était couverte d'innombrables marques de tatouages gravées dans la matière.
+Un autre monde s'étendait au bas de l'entrée. Cette zone mesurait environ 330 mètres de large et un fourneau de 33 mètres de haut trônait en son centre. La surface du fourneau était couverte d'innombrables runes gravées dans la matière.

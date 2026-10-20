@@ -84,7 +84,7 @@ Après avoir transpercé la tempête, Wang Lin accéléra et parcourut quatre-vi
 
 Les yeux de Wang Lin brillèrent. Il attendait ce moment! Alors que les vagues déferlaient sur lui, sa main droite frappa son sac de rangement et un objet apparut dans sa paume!
 
-C'était la Boussole du Cœur, l'attribut indispensable à l'héritier de la restriction du Cœur!
+C'était la Boussole du Cœur, l'attribut indispensable à l'héritier de la restriction d'Annihilation!
 
 Tenant la boussole, Wang Lin se tint droit. Les vagues cinglaient ses vêtements et ses longs cheveux flottaient en arrière, lui donnant l'allure d'un être céleste! Sa main gauche parcourut la boussole dans un cliquetis, puis celle-ci commença à pivoter.
 
@@ -118,6 +118,6 @@ Quatre pavillons sculptés dans le jade bordaient les côtés, tandis qu'un imme
 
 De plus, dix statues dorées montaient la garde devant le palais. Ces dix statues portaient des armures, telles des sentinelles célestes!
 
-« Or Xuan! » Les yeux de Wang Lin se rétrécirent; ces dix soldats étaient entièrement façonnés en or Xuan. Ce métal était l'un des principaux matériaux, consignés dans la tablette de jade de l'Empereur Céleste Qing Lin, pour renforcer le corps d'une garde céleste!
+« Or Xuan! » Les yeux de Wang Lin se rétrécirent; ces dix soldats étaient entièrement façonnés en or Xuan. Ce métal était l'un des principaux matériaux, consignés dans la tablette de jade de l'ancien Empereur Céleste Qing Lin, pour renforcer le corps d'une garde céleste!
 
 Une aura terrifiante émanait des profondeurs du palais sombre et enveloppa toute la zone.

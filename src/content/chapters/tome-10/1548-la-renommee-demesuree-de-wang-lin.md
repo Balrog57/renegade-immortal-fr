@@ -18,7 +18,7 @@ En contemplant ce gouffre cyclonique, Wang Lin se remémora le passé. À l'épo
 
 C'était le sommet du Système Stellaire du Vide Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance de Culture!
 
-L'Alliance de Culture d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et à le départ de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
+L'Alliance de Culture d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et au départ de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
 
 Wang Lin se tenait là, observant le quartier général de l'Alliance en murmurant des paroles que lui seul pouvait entendre.
 
@@ -30,7 +30,7 @@ Le vortex trembla et cessa peu à peu de tourner! Cette scène fit écarquiller 
 
 En tant qu'ancien de l'Alliance de Culture, il savait que ce vortex constituait le premier sceau, et par extension, la première porte de l'Alliance!
 
-Ce vortex de scellement provenait du monde ancien de la culture. Il avait été acquis par les membres de l'Alliance dans le Royaume Céleste de la Pluie d'autrefois. Plus tard, il fut renforcé par d'autres pour devenir une formation d'une puissance extrême!
+Ce vortex de scellement remontait à la haute Antiquité. Il avait été acquis par les membres de l'Alliance dans le Royaume Céleste de la Pluie d'autrefois. Plus tard, il fut renforcé par d'autres pour devenir une formation d'une puissance extrême!
 
 Une fois activé, il ne s'arrêtait jamais; il puisait constamment dans l'énergie du monde pour accroître sa force!
 
@@ -64,7 +64,7 @@ En un instant, des milliers de cultivateurs jaillirent du vortex. Une aura féro
 
 « N'est-il pas mort? Il... Il est le Seigneur du Royaume Scellé!!! » Un tumulte s'éleva, et les milliers de cultivateurs qui chargeaient reculèrent brusquement. Pas un seul n'osa faire le moindre pas en avant!
 
-Leurs visages étaient pétrifiés par la peur. La silhouette de Wang Lin était pour eux un cauchemar persistant. La plupart de ces cultivateurs appartenaient à la troisième armée. En voyant Wang Lin, c'était comme si la terreur du passé refaisait surface!
+Leurs visages étaient pétrifiés par la peur. La silhouette de Wang Lin était pour eux un cauchemar persistant. La plupart de ces cultivateurs appartenaient à la troisième vague. En voyant Wang Lin, c'était comme si la terreur du passé refaisait surface!
 
 « C'est bien lui!! »
 
@@ -86,7 +86,7 @@ Des grondements tonitruants résonnèrent et le vortex fut scindé en deux. Wang
 
 À mesure qu'il progressait, la déchirure du vortex s'accentuait. Wang Lin était tel une épée invisible; dès qu'il approchait, son énergie tranchante détruisait tout sur son passage!
 
-Le vortex, autrefois immobilisé, fut déchiré et projeté de part et d'autre. Des centaines de cultivateurs poussèrent des cris déchirants en étant emportés par l'effondrement du vortex, périssant sur le coup!
+Le vortex, autrefois immobilisé, fut déchiré en forme de demi-cercle et projeté de part et d'autre. Des centaines de cultivateurs poussèrent des cris déchirants en étant emportés par l'effondrement du vortex, périssant sur le coup!
 
 Wang Lin pénétra dans le vortex. Il leva ensuite son pied droit et l'abattit avec une force implacable!
 
@@ -102,7 +102,7 @@ C'était une planète de culture gigantesque, entourée d'innombrables planètes
 
 Alors qu'il suivait Wang Lin, Maître Yan Leizi observait tout cela avec haine dans les yeux. Il fixa la planète géante et pointa du doigt: « Seigneur du Royaume Scellé, c'est là que se trouve le hall principal de l'Alliance de Culture. Maître Zhong Xuan est là-bas! »
 
-Simultanément, des bruits de bruissement surgirent de toutes parts. Plus de dix mille cultivateurs du Royaume Extérieur jaillirent de la planète. Mais lorsqu'ils aperçurent Wang Lin, leur intention meurtrière monstrueuse s'évanouit et leurs expressions changèrent radicalement!
+Simultanément, des cris de guerre retentirent de toutes parts. Plus de dix mille cultivateurs du Royaume Extérieur jaillirent des planètes environnantes. Mais lorsqu'ils aperçurent Wang Lin, leur intention meurtrière monstrueuse s'évanouit et leurs expressions changèrent radicalement!
 
 Ils avaient reconnu Wang Lin!
 
@@ -120,4 +120,4 @@ Le pouvoir spirituel propre aux cultivateurs du Vide Spirituel se propagea, acco
 
 C'était l'atout maître de l'Estimé Maître Tian Zhao, une technique célèbre dans tout le Système Stellaire Antique. Ces dragons n'étaient pas des illusions; il avait bravé de multiples dangers pour capturer ces dragons réels dans une terre mystérieuse!
 
-Après les avoir affinés pendant dix mille ans, l'Estimé Maître Tian Zhao avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses âmes de Flamme Joss!
+Après les avoir affinés pendant dix mille ans, l'Estimé Maître Tian Zhao avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses chefs d'âmes de Flamme Joss!

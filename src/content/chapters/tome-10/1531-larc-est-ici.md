@@ -60,7 +60,7 @@ Trois étranges écailles dorées trônaient au centre du bouclier. Ses mains, q
 
 Un grondement céleste retentit. Le bouclier trembla et les écailles sur les bords s'effondrèrent. En un éclair, seules les trois écailles dorées subsistèrent.
 
-Cela ne dura qu'une respiration!
+Une respiration, deux respirations!
 
 Ces trois écailles dorées cédèrent en deux respirations, et Tai Aluo recula avec un sourire amer. La seconde flèche n'étant pas dirigée contre lui, il put se retirer lorsqu'il fut dépassé.
 

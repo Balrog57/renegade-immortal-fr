@@ -72,7 +72,7 @@ Des hurlements déchirants résonnèrent alors que le Souverain s'extrayait du s
 
 L'âme du Souverain se dissipait rapidement, offerte en sacrifice. En voyant cela, les pupilles du Maître du Dao Rêve Bleu et de ses compagnons se rétractèrent de choc.
 
-Wang Lin cracha un jet de sang et recula de plus de mille pieds. Il fixa le Souverain qui hurlait dans le ciel, son propre regard empreint d'une froideur cruelle.
+Wang Lin cracha un jet de sang et recula de mille pieds. Il fixa le Souverain qui hurlait dans le ciel, son propre regard empreint d'une froideur cruelle.
 
 À cet instant, les yeux du Souverain étaient injectés de sang. La douleur atroce l'avait rendu fou; il fixa Wang Lin et se rua sur lui tel un dément.
 
@@ -108,7 +108,7 @@ Un silence de mort régna. Seul le souffle du nain démoniaque était audible.
 
 Wang Lin paraissait calme, mais son cœur était tout aussi bouleversé. À travers la brume, il avait été témoin du combat acharné de la marionnette de Yi Si contre le Souverain.
 
-Il lui fallut un long moment pour réprimer le tremblement de son âme. Il savait que le lien qu'il entretenait avec la marionnette était ténu et difficile à maîtriser. Pour obtenir un contrôle total, il devrait continuer à sacrifier des âmes.
+Il lui fallut un long moment pour réprimer le tremblement de son âme. Il savait que le lien qu'il entretenait avec la marionnette était ténu et difficile à maîtriser. Pour obtenir un contrôle total, il devrait continuer à tuer et à sacrifier des âmes.
 
 « Cette chose ne correspond pas tout à fait à la description de la troisième âme du Souverain Céleste aux Sept Couleurs... Selon les souvenirs du Souverain Céleste aux Sept Couleurs, une fois apparue, elle devrait posséder la puissance d'un cultivateur au sommet de la phase initiale de la Tribulation du Vide ayant traversé les neuf Tribulations Arcanes. »
 

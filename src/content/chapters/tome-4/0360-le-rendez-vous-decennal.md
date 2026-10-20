@@ -130,11 +130,11 @@ Le corps de Petit Blanc frissonna et il protesta intérieurement par un grogneme
 
 Les yeux de Zhou Ru s'embuèrent et des larmes coulèrent sur ses joues.
 
-Au cours de ces sept dernières années, elle n'avait jamais été séparée de Wang Lin; un lien profond s'était tissé entre eux. Un sentiment chaleureux grandissait dans son cœur: celui de l'attachement et la peur de le perdre.
+Au cours de ces sept dernières années, elle n'avait presque jamais été séparée de Wang Lin; un lien profond s'était tissé entre eux. Un sentiment chaleureux grandissait dans son cœur: celui de l'attachement et la peur de le perdre.
 
 Il y a tant de coïncidences dans ce monde. L'endroit où se tenait Zhou Ru était précisément là où une larme de Li Muwan était tombée autrefois.
 
-Cette larme, par le passé, avait peut-être engendré un champ de tristesse et de chagrin, mais aujourd'hui, cette même goutte de larmes faisait naître un champ d'amour et d'attachement.
+Cette larme, par le passé, avait peut-être engendré un champ de tristesse et de chagrin, mais aujourd'hui, cette même goutte de larmes faisait naître un champ de nostalgie et de peine à se quitter.
 
 Zhou Ru essuya ses larmes et dit au tigre: « Petit Blanc, fais le poirier! »
 

@@ -28,7 +28,7 @@ Au cours de l'année écoulée, Wang Lin avait tenté à plusieurs reprises de s
 
 Il ferma les yeux pour méditer. Soudain, une substance rouge d'environ une paume d'épaisseur apparut autour de lui.
 
-Cette substance était l'aura maléfique que Wang Lin avait condensée durant l'année écoulée. Il était très satisfait du résultat. En réalité, il n'avait pas forcé cette condensation; elle s'était produite naturellement au gré de ses activités.
+Cette substance était l'aura maléfique que Wang Lin avait condensée durant l'année écoulée. La vitesse de condensation avait fortement augmenté, et Wang Lin était très satisfait du résultat. En réalité, il n'avait pas forcé cette condensation; elle s'était produite naturellement au gré de ses activités.
 
 Wang Lin pensait qu'en seulement un an supplémentaire, il serait capable de comprimer cette aura maléfique jusqu'à son paroxysme. Bien que comprimer cette aura n'ait aucun rapport avec l'amélioration de sa culture ni avec la compréhension des cieux.
 
@@ -44,7 +44,7 @@ Il n'aurait jamais imaginé que sa visite familiale lui permettrait de rencontre
 
 Qu'ils soient sculptés dans la pierre ou le bois, peu importait le matériau. Tant qu'il s'agissait d'une sculpture, le Roi en raffolait.
 
-Et le Prince était un fils très dévoué. S'il lui offrait cet objet, il serait richement récompensé. En y pensant, Xu Tao prit une profonde inspiration.
+Et le Prince était un fils très dévoué. S'il lui offrait cet objet, il recevrait de grands éloges. En y pensant, Xu Tao prit une profonde inspiration.
 
 Le convoi de plus de dix calèches progressait rapidement à travers la capitale, mais il aurait voulu qu'ils aillent encore plus vite afin de regagner le palais au plus tôt.
 
@@ -72,7 +72,7 @@ Sur ce, il frappa un sac d'apparence usée accroché à sa taille. Soudain, une 
 
 Les yeux de Xu Tao furent irrésistiblement attirés. Il déglutit difficilement et détourna le regard, n'osant pas insister.
 
-Le jeune homme n'était pas un mortel, mais un cultivateur; cependant, son niveau de culture n'était guère élevé. Il n'était qu'au 8ème étage de la Condensation de Qi.
+Le jeune homme n'était pas un mortel, mais un cultivateur; cependant, son niveau de culture n'était guère élevé. Il n'était qu'au 8ème niveau de la Condensation de Qi.
 
 Il remarqua le regard de Xu Tao et rit: « Mei Ji, sors. Aujourd'hui, tu appartiens à Xu Tao. »
 

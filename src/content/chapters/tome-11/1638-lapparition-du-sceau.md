@@ -86,11 +86,11 @@ Ses doigts émirent un grondement tonitruant en se refermant sur l'homme d'âge 
 
 Lorsqu'il franchit la barrière des trois pouces, ses yeux brillèrent et il vit ses doigts se désintégrer rapidement. Il n'y eut aucune douleur, mais il put clairement voir sa chair se défaire.
 
-En un instant, une petite partie de ses deux doigts fut pulvérisée. Cette zone de trois pouces agissait comme une frontière absolue: tout ce qui la franchissait était désintégré.
+En un instant, une bonne partie de ses deux doigts fut pulvérisée. Cette zone de trois pouces agissait comme une frontière absolue: tout ce qui la franchissait était désintégré.
 
 S'il avait tenté de forcer le passage, sa main droite aurait disparu sans laisser de trace avant même d'avoir touché l'homme d'âge moyen. Les yeux de Wang Lin se plissèrent et il retira sa main.
 
-Il recula de quelques pas et observa calmement l'homme d'âge moyen, puis ses propres doigts qui, bien que sans blessure apparente, manquaient d'une portion.
+Il recula de quelques pas et observa calmement l'homme d'âge moyen, puis ses propres doigts qui, bien que sans blessure apparente, avaient perdu une bonne partie.
 
 « Quelle puissance étrange... » murmura Wang Lin alors que sa puissance de Dieu Antique remplissait son corps et pénétrait ses doigts. La chair autour de ses phalanges bougea lentement pour régénérer la section manquante.
 

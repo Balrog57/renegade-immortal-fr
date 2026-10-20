@@ -22,7 +22,7 @@ Les cheveux de Wang Lin passaient rapidement du noir au blanc. Il ne semblait pa
 
 On ignorait combien de temps avait passé lorsque la lumière dorée dans le corps de Wang Lin devint plus éclatante et se propagea vers l'extérieur. En son sein, se jouaient un héritage et une possession, une suppression et une rébellion!
 
-L'apparence de Wang Lin restait normale, mais à l'intérieur de son corps résidait une sphère de lumière dorée. Cette sphère contenait le pouvoir de l'Ancêtre Céleste et émettait une radiance qui se répandait dans tout son être, transformant sa chair, son sang et ses os pour les adapter à la présence de cette énergie.
+L'apparence de Wang Lin restait normale, mais à l'intérieur de son corps résidait une sphère de lumière dorée. Cette sphère contenait le pouvoir de l'Ancêtre Céleste et émettait une radiance qui se répandait dans tout son être, transformant, jusque dans ses pieds et ses jambes, sa chair, son sang et ses os pour les adapter à la présence de cette énergie.
 
 Cette lumière dorée était despotique à l'extrême. Elle dégageait une aura capable de dominer toute forme de vie et de plonger quiconque dans la folie. Cette puissance était telle que, même sans la tentative de possession de l'Enseignant Impérial, cet héritage aurait suffi à transformer Wang Lin en un fou dépourvu de conscience!
 
@@ -102,7 +102,7 @@ En un éclair, il s'approcha et fut dévoré par l'œil gauche, tout comme Wang 
 
 À cet instant, la silhouette floue du fou apparut dans l'œil gauche. Son corps émettait une lumière dorée encore plus puissante qui pénétra l'œil. Désormais, les deux yeux de l'Ancêtre Céleste étaient ouverts, irradiant une clarté infinie, comme s'il était véritablement ressuscité!
 
-« Ancêtre Céleste, parle! Brise le sceau de mon clan Dao Wang! » hurla l'Enseignant Impérial avec exaltation. Il n'avait pas remarqué que, dans une partie cachée du corps, l'âme de Wang Lin observait froidement la scène depuis la Perle Défiant le Ciel.
+« Ancêtre Céleste, parle! Libère le clan Dao Wang, brise le sceau de tout le clan! » hurla l'Enseignant Impérial avec exaltation. Il n'avait pas remarqué que, dans une partie cachée du corps, l'âme de Wang Lin observait froidement la scène depuis la Perle Défiant le Ciel.
 
 Sous l'impulsion des paroles de l'Enseignant Impérial, les yeux de l'Ancêtre Céleste brillèrent et sa bouche close s'entrouvrit lentement. Une voix antique, semblable à celle de l'Enseignant Impérial, s'en échappa!
 

@@ -70,11 +70,11 @@ Sans hésiter, Wang Lin se leva et s'élança vers l'horizon!
 
 L'Ancien Royaume Céleste était originellement unique avant d'être scindé en deux. Bien qu'il ait été divisé entre les Royaumes Intérieur et Extérieur, ils restaient liés. Maintenant que le Royaume Céleste Antique du Royaume Intérieur s'était ouvert, celui du Royaume Extérieur allait également s'ouvrir!
 
-Bien qu'une formation bloquât les bouleversements à l'intérieur du Royaume Intérieur, certains cultivateurs de la troisième étape du Royaume Extérieur en ressentirent tout de même les contrecoups. En particulier, le Souverain, dont les yeux se remplirent d'incrédulité lorsqu'il comprit soudainement ce que Wang Lin comptait faire!
+Bien qu'une formation bloquât les bouleversements à l'intérieur du Royaume Intérieur, certains puissants cultivateurs du Royaume Extérieur en ressentirent tout de même les contrecoups. En particulier, le Souverain, dont les yeux se remplirent d'incrédulité lorsqu'il comprit soudainement ce que Wang Lin comptait faire!
 
 « C'est une catastrophe! Il va utiliser la puissance de ses deux arcs pour détruire le Royaume Céleste Antique du Royaume Extérieur! Il... il est fou! Il a dû apprendre que cet endroit n'est qu'un monde caverne! » L'expression du Souverain changea radicalement avant qu'il ne s'élance à travers les étoiles.
 
-À ce moment-là, non seulement le Souverain, mais aussi tous les cultivateurs de la troisième étape observant Wang Lin changèrent d'expression. Ils comprirent tous presque simultanément ce que Wang Lin comptait faire!
+À ce moment-là, non seulement le Souverain, mais aussi tous les puissants cultivateurs observant Wang Lin changèrent d'expression. Ils comprirent tous presque simultanément ce que Wang Lin comptait faire!
 
 Wang Lin se déplaçait à pleine vitesse. Depuis sa position, il ne lui fallait qu'un instant pour atteindre n'importe quel point du Système Stellaire Antique. Il disparut et, lorsqu'il réapparut, il se trouvait dans un domaine stellaire criblé de failles spatiales!
 
@@ -92,7 +92,7 @@ Même la troisième concubine fut secouée et se rua rapidement sur place.
 
 Des rires déments résonnaient dans la faille alors que les figures dorées s'en échappaient. Cependant, tous ceux qui sortirent virent immédiatement le cultivateur aux cheveux blancs, vêtu de blanc, qui semblait les attendre les yeux clos!
 
-Ils ne reconnurent pas Wang Lin. Bien qu'il possédât un certain niveau de culture, ils ne le considéraient pas comme une menace. Ils rirent sauvagement, l'excitation brillant dans leurs yeux.
+Ils ne reconnurent pas Wang Lin. Bien que sa culture fût profonde, ils ne le considéraient pas comme une menace. Ils rirent sauvagement, l'excitation brillant dans leurs yeux.
 
 « Nous pouvons enfin sortir! »
 

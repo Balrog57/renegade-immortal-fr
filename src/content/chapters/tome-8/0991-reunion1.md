@@ -20,13 +20,13 @@ Da Tou et Lei Ji ressentirent également cette onde dévastatrice. Le niveau de 
 
 Da Tou résista à l'impact du sens divin et rejoignit le palais de Wang Lin. Là, il se tint aux côtés de Ta Shan pour protéger la demeure de Wang Lin.
 
-Quant aux cultivateurs juniors, ils étaient tous extrêmement pâles. Ceux qui n'étaient que légèrement blessés crachaient du sang, tandis que les plus touchés s'évanouissaient. Seules Zhao Xue et Ling Er, protégées par des artefacts confiés par les trois frères Chen, parvinrent à peine à tenir debout.
+Quant aux cultivateurs juniors, ils étaient tous extrêmement pâles. Ceux qui n'étaient que légèrement blessés crachaient du sang, tandis que les plus touchés s'évanouissaient. Seuls quelques juniors, dont Zhao Xue et Ling Er, protégés par des artefacts confiés par les trois frères Chen, parvinrent à peine à tenir debout.
 
 Ce sens divin d'une arrogance extrême balaya le palais où se trouvait Wang Lin. Cependant, Wang Lin était en plein processus d'affinage du cadavre féminin et avait atteint l'instant le plus critique.
 
 Le sens divin de Wang Lin était presque totalement lié au cadavre féminin. À moins qu'un être ne possède un niveau de culture bien supérieur, il n'aurait perçu que le cadavre lui-même. Après tout, celui-ci se trouvait également au stade précoce de Purificateur du Nirvana.
 
-Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Fu Fengzi brillèrent puis se plissèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard; il traça un sceau et pointa le doigt vers l'avant.
+Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Fu Fengzi brillèrent puis se plissèrent, et ses sourcils se froncèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard; il traça un sceau et pointa le doigt vers l'avant.
 
 Le sens divin s'accumula comme un tourbillon avant de reculer dans un éclat de rire.
 
@@ -48,7 +48,7 @@ Le visage de Maître Yi Chen était pâle. Il n'avait aucune certitude que ces t
 
 Ces deux derniers étaient gravement blessés, mais même s'ils l'avaient été moins, cela n'aurait pas importé pour Situ Nan. Il rit et disparut de son grand lit pour réapparaître à l'extérieur de la planète Esprit d'Eau.
 
-« Résister, c'est bien. Plus vous résistez, plus je m'excite. Bon sang, cette fois, ce sont des fours de concubine que je vais chercher pour mon frère, pas pour moi! Je suis du côté de la justice! »
+« Résister, c'est bien. Plus vous résistez, plus je m'excite. Bon sang, cette fois, ce sont des concubines et des fours de culture que je vais chercher pour mon frère, pas pour moi! Je suis du côté de la justice! »
 
 Les yeux de Situ Nan brillèrent d'une lueur étrange alors qu'il fondait sur la planète Esprit d'Eau. Soudain, il pointa son index droit vers l'avant!
 
@@ -56,7 +56,7 @@ Les yeux de Situ Nan brillèrent d'une lueur étrange alors qu'il fondait sur la
 
 Un vortex apparut au bout du doigt de Situ Nan, et des sons d'explosion résonnèrent de l'intérieur de la spirale. Une énergie originelle infinie se condensa dans le tourbillon, le faisant pivoter de plus en plus vite. À la fin, il semblait immobile, tant sa vitesse de rotation avait atteint un degré inimaginable.
 
-« Lors de ma dernière retraite, j'ai affiné le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers. De plus, j'ai perfectionné ces trois dernières techniques de doigt. Je peux briser cette simple formation de protection planétaire en quelques respirations à peine! » Les yeux de Situ Nan s'illuminèrent alors qu'il pointait impitoyablement vers l'avant.
+« Lors de ma dernière retraite, j'ai affiné le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers. De plus, j'ai perfectionné trois autres techniques de doigt. Je peux briser cette simple formation de protection planétaire en quelques respirations à peine! » Les yeux de Situ Nan s'illuminèrent alors qu'il pointait impitoyablement vers l'avant.
 
 Le vortex fonça vers la formation entourant la planète Esprit d'Eau. Il la rejoignit instantanément et percuta la première couche.
 
@@ -64,7 +64,7 @@ Un fracas assourdissant retentit lors de la collision entre le vortex et la lumi
 
 La première couche d'ondes noires trembla frénétiquement avant d'exploser! Une tempête gigantesque s'ensuivit et frappa la deuxième couche.
 
-À cet instant précis, Situ Nan pointa à nouveau le doigt et cria: « Un seul doigt désigne les cieux et la terre, l'univers en est réduit au silence! »
+À cet instant précis, Situ Nan pointa à nouveau le doigt et cria: « Un seul doigt désigne les cieux et la terre, l'univers est anéanti! »
 
 D'un geste, un vortex encore plus vaste apparut, et l'énergie originelle du monde convergea avec frénésie. C'était comme si le tourbillon était devenu un trou noir capable d'absorber toute la puissance de l'univers.
 
@@ -82,7 +82,7 @@ Mais si l'on comprenait les lois, on pouvait utiliser la *transformation* en com
 
 Cette fameuse « transformation » consistait en un changement qualitatif: en absorbant l'énergie originelle puis en la comprimant de manière répétée, elle se transformait en une puissance mystérieuse que les cultivateurs Briseurs du Nirvana appelaient la « puissance de la loi ».
 
-En vérité, le sort créé par Wang Lin appartenait à cette puissance de la loi! C'était un phénomène extrêmement rare chez les cultivateurs Purificateur du Nirvana, et plus encore chez les Scruteur du Nirvana. Voilà pourquoi le Maître Fu Fengzi était si stupéfait!
+En vérité, la Nuit Déchirée, sort créé par Wang Lin, appartenait à cette puissance de la loi! C'était un phénomène extrêmement rare chez les cultivateurs Purificateur du Nirvana, et plus encore chez les Scruteur du Nirvana. Voilà pourquoi le Maître Fu Fengzi était si stupéfait!
 
 Situ Nan cria alors que le vortex de 100 pieds devant lui se contracta jusqu'à n'atteindre que la taille de sa main, avant de foncer droit sur la formation planétaire.
 
@@ -98,7 +98,7 @@ Le vortex chargea la planète Esprit d'Eau. Tout en laissant échapper un rire a
 
 Dès que Situ Nan et son vortex apparurent au-dessus de la planète Esprit d'Eau, les trois frères Chen crachèrent du sang une fois de plus. La formation de protection étant liée à leur propre essence, ils furent contraints de reculer.
 
-Derrière Situ Nan, les cultivatrices du Palais Rose suivirent rapidement, remplissant le ciel. Le parfum qu'elles dégageaient était suffisant pour enivrer les esprits. L'homme d'âge mûr vêtu de bleu arriva également. Il fixa les trois frères Chen d'un regard haineux et pensa: « Même vous trois vieux débris pouvez connaître une telle journée! »
+Derrière Situ Nan, les cultivatrices du Palais Rose suivirent rapidement, remplissant le ciel. Le parfum qu'elles dégageaient était suffisant pour enivrer les esprits. L'homme d'âge mûr vêtu de bleu arriva également, le visage exalté. Il fixa les trois frères Chen d'un regard haineux et pensa: « Même vous trois vieux débris pouvez connaître une telle journée! »
 
 Le visage du Maître Yi Chen se fit sombre alors qu'il fixait Situ Nan en criant: « Cher cultivateur possède une puissance incroyable; je présume que vous n'êtes pas un inconnu! »
 

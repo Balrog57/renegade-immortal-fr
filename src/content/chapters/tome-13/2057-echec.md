@@ -8,7 +8,7 @@ slug: echec
 ---
 Certains membres du clan des Anciens croyaient que l'Ancêtre n'était pas mort et qu'il était toujours vivant! La plupart pensaient que même si l'Ancêtre était mort, son esprit demeurait là!
 
-L'esprit de l'Ancêtre continuait de protéger les trois clans. Autrement, comment expliquer la scène étrange qui s'était produite lors des épreuves au temple ancestral des trois clans, et comment justifier la bénédiction accordée par la statue de l'Ancêtre?
+L'esprit de l'Ancêtre continuait de protéger les trois clans. Autrement, comment expliquer l'étrangeté de la statue de l'Ancêtre dans les trois cités impériales, et comment justifier chacune de ses bénédictions?
 
 Comment expliquer les halos qui apparaissaient autour de la statue de l'Ancêtre lorsque quelqu'un subissait la Triple Division de l'Âme de l'Ancien Dao?
 
@@ -26,7 +26,7 @@ Wang Lin sentit clairement le départ de Song Tian. Alors qu'il était assis à 
 
 Avec son niveau de culture actuel, même une infime augmentation de force était prodigieuse!
 
-« Si je peux surmonter cette calamité avec perfection à chaque fois et obtenir le sang de l'âme... serai-je capable de franchir le quatrième pont lorsque je retournerai aux Ponts du Piétinement du Ciel? » murmura Wang Lin pour lui-même.
+« Si je peux surmonter cette calamité avec perfection à chaque fois et obtenir le sang de l'âme... serai-je capable de franchir le quatrième pont lorsque je retournerai aux Ponts du Piétinement Céleste? » murmura Wang Lin pour lui-même.
 
 Wang Lin prit une profonde inspiration et ses yeux brillèrent. Il leva les yeux vers l'ombre au-dessus de lui.
 
@@ -44,7 +44,7 @@ Dès qu'il les ferma, l'ombre au-dessus de sa tête trembla et de fines fissures
 
 Dans le ciel de la ville impériale, Xuan Luo regardait vers le bas avec un sourire. Il s'assit et continua de veiller sur son disciple.
 
-Dans son cœur, il savait que si l'Ancien Dao avait besoin de sa protection, son disciple, qui serait affaibli durant cette scission, en avait tout autant besoin.
+Dans son cœur, il savait que si le Dao Antique avait besoin de sa protection, son disciple, qui serait affaibli durant cette scission, en avait tout autant besoin.
 
 En un éclair, trois ans passèrent.
 
@@ -64,7 +64,7 @@ Dix ans s'étaient écoulés depuis le début de la seconde scission d'âme. Cer
 
 La rumeur de ces dix années de scission d'âme se répandit progressivement dans tout le clan des Anciens. Même des membres du Dao Antique et du Ji Antique étaient venus observer le phénomène.
 
-Le temps continuait de s'écouler. Lorsque la dixième année passa, la tête de l'ombre surplombant Wang Lin se brisa complètement. Il souffrait d'une douleur inimaginable, mais il tenait bon.
+Le temps continuait de s'écouler. Lorsque la dixième année passa, l'ombre surplombant Wang Lin se brisa complètement. Il souffrait d'une douleur inimaginable, mais il tenait bon.
 
 Ces fragments invisibles continuaient de se désagréger, et une fois qu'ils seraient réduits en poussière, cela signifierait que son âme originelle s'était une seconde fois totalement brisée.
 

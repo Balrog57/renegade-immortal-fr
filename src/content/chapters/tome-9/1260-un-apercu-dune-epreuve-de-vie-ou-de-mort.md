@@ -36,9 +36,9 @@ Les gens préféreraient traverser le Monde de la Brume Animale plutôt que de p
 
 Le Maître de la Secte Éternelle poussa un soupir. Bien qu'il ait surestimé la force de Wang Lin, il était, en fin de compte, resté bien en deçà de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Brisée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
 
-« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre un Grand Ancien! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Éternelle doit absolument traiter un tel cultivateur avec les plus grands égards, et ne pas l'offenser... Cependant, avec lui, ma Secte Éternelle s'élèvera lors de la compétition avec les autres sectes de rang 8! »
+« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre un Grand Ancien! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Éternelle doit absolument traiter un tel cultivateur avec les plus grands égards, et ne pas l'offenser ni restreindre sa liberté... Cependant, avec lui, ma Secte Éternelle s'élèvera lors de la compétition avec les autres sectes de rang 8! »
 
-Lu Yanfei regarda la silhouette de Wang Lin, sous le choc. Même elle ne s'attendait pas à ce qu'il soit aussi puissant. En repensant aux paroles de son maître avant sa mort, les yeux de Lu Yanfei s'embuèrent d'un éclat de larmes.
+Lu Yanfei regarda la silhouette de Wang Lin, sous le choc. Même elle ne s'attendait pas à ce qu'il soit aussi puissant. En repensant aux paroles de son maître, qui avait utilisé son pouvoir de sélection des esprits avant de mourir il y a cent ans, les yeux de Lu Yanfei s'embuèrent d'un éclat de larmes.
 
 Le visage de Lu Yuncong était empreint d'amertume tandis qu'il secouait la tête. Il pensait que sa culture avait progressé et que, bien qu'il ne fût pas aussi fort, l'écart entre eux n'était pas si grand. Pourtant, il savait désormais qu'il s'était trompé, et qu'il s'était trompé de la même manière il y a cent ans. S'il l'avait attaqué à l'époque, il aurait été anéanti depuis longtemps.
 
@@ -64,7 +64,7 @@ Bien que le battement d'ailes d'un papillon semble gracieux et léger, nul ne sa
 
 Le visage de Wang Lin était extrêmement pâle, mais il resta calme. Joignant les mains, il dit: « Le Confrère est trop aimable. »
 
-À cet instant, un rire s'éleva des gradins. C'était le Maître de la Secte Éternelle qui, souriant, se leva. Il s'approcha de Wang Lin et reprit: « Pourquoi le Confrère Lu fait-il preuve d'une telle modestie? Tout le monde a été témoin de ce qui s'est produit aujourd'hui. Même ce vieil homme admire les sorts du Confrère Lu. »
+À cet instant, un rire s'éleva des gradins. C'était le Maître de la Secte Éternelle qui, souriant, se leva. Il s'approcha de Wang Lin, à quelques dizaines de pieds, et reprit: « Pourquoi le Confrère Lu fait-il preuve d'une telle modestie? Tout le monde a été témoin de ce qui s'est produit aujourd'hui. Même ce vieil homme admire les sorts du Confrère Lu. »
 
 Wang Lin sourit et joignit les mains, mais garda le silence.
 
@@ -94,7 +94,7 @@ Wang Lin s'inclina avec un sourire. « Puisque le Maître le demande, je suivrai
 
 Le Maître de la Secte Éternelle sourit et se tourna vers la foule sur les gradins. Son expression devint sérieuse lorsqu'il déclara: « Ancien Feng, la compétition est finie, occupez-vous du reste. Cependant, la compétition entre les sectes de rang 8 approche; que les cultivateurs ici présents restent donc quelques jours supplémentaires. » Finalement, la voix du Maître devint glaciale et empreinte d'une intention meurtrière.
 
-Pour le bon déroulement de la compétition des sectes de rang 8 et pour empêcher toute fuite d'informations concernant Wang Lin, il était prêt à tout, même à offenser certains, afin de garantir le secret.
+Pour le bon déroulement de la compétition des sectes de rang 8, pour que Wang Lin serve de surprise lors de cette compétition, et pour empêcher toute fuite d'informations concernant Wang Lin, il était prêt à tout, même à offenser certains, afin de garantir le secret.
 
 Les yeux de Feng Hai s'illuminèrent et il hocha la tête, comprenant l'intention du Maître.
 

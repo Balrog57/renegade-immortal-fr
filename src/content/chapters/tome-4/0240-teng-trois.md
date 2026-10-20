@@ -126,7 +126,7 @@ L'enfance amère de Teng Neuf avait forgé une personnalité tordue, l'amenant �
 
 Teng Huit, Teng Six et Teng Quatre occupaient tous une place dans le cœur de Teng Huayuan, mais Teng Trois demeurait le plus important.
 
-Teng Huayuan avait toujours considéré Teng Trois comme la honte de la famille. Bien que né disciple éminent, au lieu de se consacrer sérieusement à sa culture, il s'était laissé enchaîner par une obsession pour une mortelle. Teng Huayuan les avait séparés de force, laissant le cours impitoyable du temps achever cette femme.
+Teng Huayuan avait toujours considéré Teng Trois comme la honte de la famille. Bien que disciple éminent, au lieu de se consacrer sérieusement à sa culture, il s'était laissé enchaîner par une obsession pour une mortelle. Teng Huayuan les avait séparés de force, laissant le cours impitoyable du temps achever cette femme.
 
 Teng Huayuan savait que Teng Trois le détestait.
 

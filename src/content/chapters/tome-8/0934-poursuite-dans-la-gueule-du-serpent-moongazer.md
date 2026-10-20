@@ -50,7 +50,7 @@ D'innombrables cultivateurs furent aspirés à l'intérieur. Le fourneau du dieu
 
 En contemplant le chaos qui se jouait devant elle, elle poussa un soupir. Elle regarda Wang Lin, un regard complexe traversant ses yeux, et murmura: « Je ne sais pas si le Seigneur me reconnaîtra lors de notre prochaine rencontre... »
 
-Le lotus avait absorbé toute l'aura de mort durant cette bataille. Désormais, cette aura se propageait, donnant l'impression que le lotus était enveloppé d'une brume funeste.
+Le lotus avait absorbé l'aura de mort durant cette bataille. Désormais, cette aura se propageait, donnant l'impression que le lotus était enveloppé d'une brume funeste.
 
 Elle leva sa main de jade, pointa le cadavre doré devant elle et dit doucement: « Libérer le sceau! »
 

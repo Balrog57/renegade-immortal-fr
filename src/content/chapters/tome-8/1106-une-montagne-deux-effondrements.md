@@ -8,7 +8,7 @@ slug: une-montagne-deux-effondrements
 ---
 Sortilège céleste: Montagne qui s'effondre!
 
-À l'instant même où Wang Lin prononça ces mots, les innombrables volcans illusoires qui l'entouraient commencèrent soudainement à se superposer.
+À l'instant même où Wang Lin prononça ces mots, dans le ciel étoilé où se trouvait la formation, les innombrables volcans illusoires qui l'entouraient commencèrent soudainement à se superposer.
 
 Ces volcans indistincts fusionnèrent en un clin d'œil pour ne former qu'un seul bloc. Une montagne majestueuse surgit alors devant Wang Lin! Cette montagne n'avait rien à envier à une montagne réelle!
 
@@ -18,7 +18,7 @@ Dès l'apparition de la montagne, des ondulations violentes déchirèrent l'espa
 
 La montagne se mit à trembler, puis son sommet explosa, projetant d'innombrables rochers dans toutes les directions. Simultanément, une fumée noire jaillit et satura l'air, tandis que des flammes rouge sombre crachaient du pic.
 
-La température de ces flammes était telle qu'elle pouvait anéantir toute forme de vie. En jaillissant, elles se transformèrent en d'immenses roches incandescentes qui s'abattirent impitoyablement sur les victimes.
+La température de ces flammes était telle qu'elle pouvait anéantir toute forme de vie. En jaillissant, elles se transformèrent en d'immenses roches incandescentes dégageant une fumée noire, qui s'abattirent impitoyablement sur les victimes.
 
 Les cultivateurs de la Mer des Nuages hurlèrent lorsque les pierres les frappèrent. Leurs corps furent instantanément broyés et les flammes pénétrèrent leurs chairs, raffinant directement leurs âmes originelles.
 

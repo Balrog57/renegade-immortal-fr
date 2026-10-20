@@ -80,7 +80,7 @@ Avant même que Wang Lin n'entre dans l'armée, plus d'une dizaine d'éclats d'�
 
 Wang Lin, l'air encore tremblant de peur, joignit précipitamment les poings et répondit: « Je suis Ma Liang, disciple du Sanctuaire du Dieu de la Guerre. »
 
-La femme le regarda froidement: « Qingxuan, emmène-le au Sanctuaire du Dieu de la Guerre pour vérifier son identité. S'il n'est pas un disciple, tue-le. »
+La femme le regarda froidement: « Qingxuan, emmène-le dans les rangs du Sanctuaire du Dieu de la Guerre pour vérifier son identité. S'il n'est pas un disciple, tue-le. »
 
 Un jeune homme s'élança et fit un signe de tête à Wang Lin, l'invitant à le suivre vers l'armée. Wang Lin salua brièvement la jeune femme, poings joints, sans se soucier de son ton, avant de suivre le jeune homme.
 

@@ -20,7 +20,7 @@ Plusieurs jeunes disciples regardaient Sun Wen avec admiration.
 
 Sun Wen appréciait énormément ce genre de regards. D'un geste de la main, il fit signe à l'une des filles de lui apporter immédiatement le bol. Il saisit la cuillère et mangea une prune accompagnée d'un peu de soupe, ressentant aussitôt une sensation de fraîcheur se propager dans tout son corps.
 
-Cette prune n'était pas un fruit ordinaire, mais une herbe spéciale qui ne poussait qu'à Gong Sun. En consommer une seule bouchée suffisait à consolider considérablement la culture de celui qui la mangeait.
+Cette prune n'était pas un fruit ordinaire, mais une herbe spirituelle spécialement cultivée à Gong Sun. En consommer une seule bouchée suffisait à consolider considérablement la culture de celui qui la mangeait.
 
 Cela était d'autant plus vrai pour une soupe préparée spécifiquement ainsi; c'était comme si l'on buvait le nectar de la prune.
 
@@ -86,13 +86,13 @@ Pour qu'un cultivateur puisse entrer dans le Royaume Céleste de la Pluie, il do
 
 Bien qu'ils ne fussent pas nombreux, leur présence était possible. Et même s'ils devaient restreindre leur puissance au stade de la Formation de l'Âme, ils n'étaient pas des adversaires que des cultivateurs ordinaires de ce stade pourraient affronter. C'est pourquoi Wang Lin s'était tant préparé.
 
-Quant aux légendaires cultivateurs Ascendants qui se montraient rarement, il était très peu probable qu'ils apparaissent dans le Royaume Céleste de la Pluie, car il n'y en avait sans doute pas plus de cinq sur tout Suzaku.
+Quant aux légendaires cultivateurs Ascendants, qui n'existaient que dans les pays de culture de rang 6 et se montraient rarement, il était très peu probable qu'ils apparaissent dans le Royaume Céleste de la Pluie, car il n'y en avait sans doute pas plus de cinq sur tout Suzaku.
 
 C'étaient là les déductions de Wang Lin, basées sur ses années de culture, sa connaissance de Suzaku et la difficulté d'atteindre le stade de la Formation de l'Âme. Bien que ce ne fût pas parfaitement exact, on n'en était pas loin.
 
 En réalité, l'estimation de Wang Lin était encore un peu haute, car il n'existait que quatre cultivateurs Ascendants sur Suzaku. Deux étaient au stade initial, un au stade intermédiaire, et le dernier, celui qui portait le nom de Suzaku, était au stade avancé.
 
-Ces quatre êtres ne quittaient jamais Suzaku et ne se souciaient guère des affaires des pays de culture. Peu de choses pouvaient les inciter à agir.
+Ces quatre êtres ne quittaient que très rarement Suzaku et ne se souciaient guère des affaires des pays de culture. Peu de choses pouvaient les inciter à agir.
 
 Ils n'interviendraient que si des cultivateurs d'une autre planète venaient semer le chaos.
 

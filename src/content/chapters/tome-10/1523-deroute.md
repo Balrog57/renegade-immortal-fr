@@ -38,7 +38,7 @@ Ses yeux étaient injectés de sang à force de tuer. Il savait que cette batail
 
 Grâce à l'intervention de Wang Lin, le moral des cultivateurs de la Mer des Nuages avait connu un regain insensé. Bien qu'ils aient subi de lourdes pertes, ils lancèrent à cet instant une contre-attaque frénétique. Les formations que le Maître Hong Shan leur avait transmises étaient gravées dans leurs esprits.
 
-À ce moment précis, les 30 000 cultivateurs restants commencèrent tous à ériger une formation!
+À ce moment précis, près de 30 000 cultivateurs restants commencèrent tous à ériger une formation!
 
 Chaque fois qu'une formation était sur le point d'être posée, les cultivateurs du Royaume Extérieur semblaient le savoir à l'avance et se ruaient pour empêcher sa mise en place!
 
@@ -46,7 +46,7 @@ Une fois pouvait être une coïncidence, deux fois aussi. Cependant, trois, quat
 
 La formation de la Mer des Nuages ne parvenait pas à se stabiliser, peu importe le nombre de morts!
 
-Les cultivateurs du Royaume Extérieur étaient habités par une soif de sang. Bien que certains craignent Wang Lin, la majorité restait déchaînée. Ils chargeaient depuis le Royaume Extérieur sans aucune retenue!
+Les cultivateurs du Royaume Extérieur étaient habités par une soif de sang. Bien que certains craignent Wang Lin, la majorité restait déchaînée. Ils chargeaient depuis le Royaume Extérieur, en nombre apparemment illimité et sans aucune retenue!
 
 Tout cela était dû à une seule personne!
 
@@ -54,9 +54,9 @@ La Grande Maîtresse Yun Luo!
 
 Elle se trouvait au cœur d'une masse compacte de cultivateurs du Royaume Extérieur. Ses mains semblables au jade traçaient des sceaux, tandis que des signes divinatoires scintillaient dans ses yeux. Elle leva sa main de jade et pointa l'avant.
 
-Les ordres pleuvaient. L'armée fut scindée en quatre sections pour progresser vers le Royaume Intérieur! Sous son commandement, l'armée semblait avoir acquis une âme!
+Les ordres pleuvaient. L'armée fut scindée en quatre sections pour fondre sur les cultivateurs de la Mer des Nuages du Royaume Intérieur! Sous son commandement, l'armée semblait avoir acquis une âme!
 
-Yun Luo continuait ses divinations pour anticiper chaque danger potentiel. Cela empêchait les cultivateurs de la Mer des Nuages de finaliser leur formation pour éliminer l'ennemi!
+Yun Luo continuait ses divinations, comme si elle connaissait d'avance toutes les occasions favorables. Cela empêchait les cultivateurs de la Mer des Nuages de finaliser leur formation pour éliminer l'ennemi!
 
 Chaque fois qu'une formation était sur le point d'être achevée, la femme pointait du doigt une cible, et une vague de cultivateurs chargeait pour interrompre le processus!
 
@@ -108,7 +108,7 @@ Le visage du Maître Hong Shan pâlit et il recula de quelques pas. Une marque d
 
 Du fait de l'apparition de la femme en rouge, la tempête de glace ne se désintégra pas totalement. Les restes du blizzard enveloppèrent les cultivateurs de la Mer des Nuages dans un fracas de craquements.
 
-Les cultivateurs furent recouverts de givre et transformés en sculptures de glace qui s'effondrèrent. En un éclair, près de 10 000 hommes périrent!
+Les cultivateurs furent recouverts de givre et transformés en sculptures de glace qui s'effondrèrent. En un éclair, près de 10 000 cultivateurs périrent!
 
 La mort brutale de ces 10 000 cultivateurs sema la terreur parmi les survivants de la Mer des Nuages. Face à une telle mortalité, aussi simple que terrifiante, même leur gloire vacilla et commença à chanceler!
 
@@ -134,7 +134,7 @@ Le corps glacial ne laissa aucun répit au Maître Hong Shan. Tel un bloc de gla
 
 Ce revirement soudain ébranla tout le système stellaire. Si la Mer des Nuages ne recevait pas de renforts, elle était perdue!
 
-La troisième armée du Royaume Extérieur, composée de 60 000 cultivateurs issus de dix clans, chargea vers la Formation de Scellement du Royaume!
+La troisième armée du Royaume Extérieur, composée de 60 000 cultivateurs issus de plus de dix tribus, chargea vers la Formation de Scellement du Royaume!
 
 Wang Lin observait la scène. Il réfléchit en silence et recula jusqu'à se placer devant les cultivateurs de la Mer des Nuages. Ses yeux brûlaient d'une intention de combat monstrueuse. Alors que le désespoir gagnait ses alliés, il lâcha un rugissement qui fit trembler les cieux!
 

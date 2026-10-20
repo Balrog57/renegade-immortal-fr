@@ -18,7 +18,7 @@ Même l'ancien démon Bei Luo esquissa un sourire, ses yeux empreints de dérisi
 
 De plus, bien qu'il ait été piégé dans la Terre des Esprits Démoniaques durant toutes ces années, il avait beaucoup appris sur l'Alliance de Culture grâce aux cultivateurs qui venaient ici. En réalité, il en connaissait les détails mieux que la plupart des gens.
 
-« Votre frère aîné, le Maître Zhong Xuan, était déjà un homme redoutable avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin Dragon Azure des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
+« Votre frère aîné, le Maître Zhong Xuan, était déjà un homme redoutable avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin du Dragon Azure des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
 
 « En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste, et ce n'est qu'alors que l'Alliance de Culture fut établie! Moi, Bei Luo, j'admire réellement un tel homme, mais vous... » Bei Luo secoua la tête, le regard moqueur.
 
@@ -40,7 +40,7 @@ Au moment où Zhou Yi s'élança, Wang Lin fit de même. Sa main traça un sceau
 
 L'Oiseau Vermillon poussa un cri strident et chargea le Maître du Vide aux côtés de Zhou Yi.
 
-« Tu cherches la mort! » L'intention de tuer brilla dans les yeux du Maître du Vide alors qu'il agitait sa main droite. Un vortex jaune apparut de nulle part et s'élança en avant.
+« Vous cherchez la mort! » L'intention de tuer brilla dans les yeux du Maître du Vide alors qu'il agitait sa main droite. Un vortex jaune apparut de nulle part et s'élança en avant.
 
 Wang Wei n'avait initialement pas l'intention d'attaquer, mais face à l'assaut de Wang Lin et Zhou Yi, il ne pouvait rester passif. Zhou Yi ne pouvait mourir, et puisque Wang Lin avait ramené ici le corps de Qing Shuang, lui non plus ne pouvait succomber.
 
@@ -88,7 +88,7 @@ Elle retint brusquement son geste. Évitant instinctivement le regard de Wang Li
 
 Le visage du Maître du Vide devint livide. Si la situation s'était arrêtée là, ce n'aurait pas été si grave, mais ce qui le plongea dans l'angoisse fut de voir Wang Wei se lever à son tour. Ce dernier chargea et mena une attaque en tenaille avec Bei Luo, encerclant totalement le Maître du Vide.
 
-Voyant que Wang Wei allait frapper, le Maître du Vide poussa un cri désespéré: « Si vous, cultivateurs, ne prenez pas part à cette affaire, je renoncerai à tout prendre dans cette Grotte de l'Empereur Céleste et je vous aiderai à briser les restrictions de ce lieu! »
+Voyant que Wang Wei allait frapper, le Maître du Vide poussa un cri désespéré: « Si vous, cultivateurs, ne prenez pas part à cette affaire, je renoncerai à tout prendre dans cette Grotte de l'Empereur Céleste et je vous aiderai à briser tous les sceaux de ce lieu! »
 
 Les yeux de Wang Wei se plissèrent, tout comme ceux de Bei Luo qui marquaient un temps d'arrêt.
 

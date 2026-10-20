@@ -10,13 +10,13 @@ Une robe blanche plus blanche que la neige.
 Une chevelure telle un rideau de soie.
 Un soupçon de parfum qui enchanterait les cœurs.
 
-Dès l'apparition du cadavre féminin, même le Grand Ancien de la Secte des Cadavres ne put s'empêcher de jeter un second regard. Ses paroles moqueuses s'éteignirent; il ne restait plus en lui que la stupeur.
+Dès l'apparition du cadavre féminin, même le Grand Ancien de la Secte des Cadavres ne put s'empêcher de jeter un second regard. Ses paroles moqueuses s'éteignirent; il ne restait plus en lui que l'émerveillement.
 
 Papillon Rouge était belle, mais comparée à ce cadavre, elle n'en était guère à la hauteur.
 
 Wang Lin n'en eut qu'un aperçu furtif, et son cœur ne put s'empêcher de tressaillir. Le cadavre semblait dégager une attraction si puissante qu'il éprouva l'envie de le dérober. Mais sa volonté était d'une fermeté absolue; dès que cette pensée surgit, il l'écrasa aussitôt. Néanmoins, il était couvert de sueur froide.
 
-« Quel danger! »
+« Quelle terreur! »
 
 Il prit une profonde inspiration. En regardant autour de lui, il vit que Chi Hu ne cultivait plus, mais marchait, hébété, vers le cadavre. Cependant, après une dizaine de mètres, il commença à lutter pour reprendre ses esprits, révélant un visage terrifié.
 
@@ -30,7 +30,7 @@ Ce gaz se mua en chaînes qui entourèrent Zhou Yi telle une prison céleste.
 
 « Zhou Yi, j'utilise le trésor de la Secte des Cadavres, conçu pour sceller les âmes originelles, afin de m'emparer du cadavre de cette fille. Il n'y a aucun moyen pour toi de t'échapper! » Le corps du vieil homme recula tandis que le jeune homme, qui lui ressemblait étrangement, lança le cadavre féminin en l'air. Le vieil homme l'attrapa, puis le jeune homme se changea en fumée et s'engouffra dans le front du vieillard.
 
-Le vieil homme continua de reculer et, en un clin d'œil, atteignit le cercueil avant de s'élancer vers le ciel.
+Le vieil homme continua de reculer et, en un clin d'œil, atteignit le cercueil avant de s'élancer vers le ciel, le cadavre dans les bras.
 
 Les yeux de Zhou Yi devinrent injectés de sang lorsqu'il hurla: « Non!!! »
 
@@ -44,7 +44,7 @@ Bang! Bang!
 
 « Rends-moi Ting Er! »
 
-« Tu es vraiment un damné! Zhou Yi, si tu réintègres ton corps maintenant, tu peux encore te sauver. Si tu restes sans corps, tu mourras dans le Royaume Céleste! » Le vieil homme de la Secte des Cadavres, voyant l'éclat dans les yeux de Zhou Yi, sentit son propre cœur trembler et accéléra sa course vers le tunnel supérieur.
+« Tu es vraiment fou! Zhou Yi, si tu réintègres ton corps maintenant, tu peux encore te sauver. Si tu restes sans corps, tu mourras dans le Royaume Céleste! » Le vieil homme de la Secte des Cadavres, voyant l'éclat dans les yeux de Zhou Yi, sentit son propre cœur trembler et accéléra sa course vers le tunnel supérieur.
 
 Voyant que le vieillard allait s'engouffrer dans le tunnel pour s'enfuir, les yeux de Zhou Yi semblèrent saigner. Il avait déjà tout oublié. Dans ce monde, il ne restait plus que ce cadavre qui s'éloignait de lui, sa Ting Er!
 
@@ -62,7 +62,7 @@ Tel un homme de feu, il rattrapa presque instantanément le vieillard près du t
 
 « Rends-moi Ting Er! » Ses paroles étaient chargées d'une émotion brute. Zhou Yi n'utilisa aucune technique; il se contenta de percuter le vieil homme avec la force pure de son âme originelle.
 
-Mais cela rendait l'attaque plus terrifiante encore. S'il s'était agi d'une technique, il y aurait eu un moyen de la contrer. Cependant, une collision frontale avec l'âme originelle quasi solide d'un cultivateur au stade avancé de la Transformation de l'Âme était une force proprement apocalyptique pour le vieillard.
+Mais cela rendait l'attaque plus terrifiante encore. S'il s'était agi d'une technique, il y aurait eu un moyen de la contrer. Cependant, une collision frontale avec l'âme originelle quasi solide d'un cultivateur au stade avancé de la Transformation de l'Âme était une force proprement terrifiante pour le vieillard.
 
 Kaka! Kaka!
 
@@ -82,7 +82,7 @@ L'effondrement des environs s'accéléra à mesure que les failles spatiales se 
 
 Le corps de Wang Lin fonça vers Papillon Rouge comme un éclair. Chi Hu vit la scène et ouvrit la bouche, mais resta muet. S'échapper vivant était sa priorité absolue.
 
-Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Papillon Rouge. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
+Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Papillon Rouge. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme, et sa culture ne cessait de décliner. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
 
 « Haha, Papillon Rouge, de telles menaces ne sont pas dignes d'une fille bénie du ciel. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
 
@@ -90,7 +90,7 @@ Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à
 
 Après ce cri, tout le gaz se rassembla pour former la lance que Wang Lin tenait en main alors qu'il avançait vers elle.
 
-« Papillon Rouge, ne voulais-tu donc pas encore te mesurer à moi?! » L'actuel Wang Lin ressemblait à un dieu céleste alors qu'il s'élançait avec sa lance.
+« Papillon Rouge, ne voulais-tu donc pas encore te mesurer à moi?! » Wang Lin, à cet instant, ressemblait à un dieu céleste en s'élançant avec sa lance.
 
 *Rip!*
 
@@ -102,7 +102,7 @@ Wang Lin franchit les 99 mètres d'un bond, pointant sa lance de restriction ver
 
 « Ceng Niu, tu es devenu fou?! Cet endroit s'effondre! Si tu ne t'échappes pas maintenant, tu ne sortiras jamais d'ici! » L'expression de Papillon Rouge se décomposa. Elle sortit précipitamment une épée volante blanche pour parer l'attaque.
 
-Ne pouvant ni esquiver ni se téléporter, elle fut contrainte de bloquer. Derrière elle, une faille; à côté, une autre; elle était encerclée par le vide. Si elle restait piégée sans boussole stellaire ou sans la volonté de brûler son âme originelle, seule la mort lui serait offerte.
+Ne pouvant ni esquiver ni se téléporter, elle fut contrainte de bloquer. Derrière elle, une faille; à côté, une autre; elle était encerclée par le vide. Si elle restait piégée ni boussole stellaire ni volonté de brûler son âme originelle, seule la mort lui serait offerte.
 
 Bang!
 
@@ -116,7 +116,7 @@ Papillon Rouge serra les dents. Alors que la lance approchait, elle leva la main
 
 *Ding!*
 
-La lance de Wang Lin se désintégra à nouveau, redevenant un gaz de restriction incapable de se condenser une seconde fois. Un domaine puissant déferla sur Wang Lin, troublant ses pensées. Cependant, sa détermination était inébranlable. Bien que son talent fût moyen, sa force mentale était hors du commun.
+La lance de Wang Lin se désintégra à nouveau, redevenant un gaz de restriction incapable de se condenser une seconde fois. Un domaine puissant déferla sur Wang Lin, troublant ses pensées. Cependant, sa détermination était inébranlable. Bien que son talent fût moyen, sa force mentale était hors du commun, sans égale sur toute la planète Suzaku.
 
 Dans sa jeunesse, lorsqu'il ne connaissait aucune technique et qu'il gravissait les montagnes de la Secte Heng Yue, sa volonté suffisait déjà à émouvoir autrui. Après 400 ans d'expérience, elle était désormais aussi dure que l'acier.
 

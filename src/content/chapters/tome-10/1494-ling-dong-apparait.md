@@ -10,7 +10,7 @@ slug: ling-dong-apparait
 
 « J'en ai assez de cette Bataille Littéraire. » Wang Lin secoua la tête et son regard se posa sur le Dieu de Sang au visage pâle qui se tenait derrière le Maître Lu Fu. Il comptait contourner le Maître Lu Fu pour capturer directement le Dieu de Sang!
 
-Le Maître Lu Fu, déjà furieux à cause du premier combat, éclata d'un rire de rage face à l'action de Wang Lin. Il agita la main et sa pleine puissance de culture éclata. Il se tenait là comme s'il trônait au-dessus des étoiles!
+Le Maître Lu Fu, déjà furieux à cause du premier combat, éclata d'un rire de rage face à l'action de Wang Lin. Il agita la main et toute sa puissance de cultivateur de la troisième étape au stade initial du Vide du Nirvana éclata. Il se tenait là comme s'il trônait au-dessus des étoiles!
 
 Cet élan était semblable à une tempête et secoua le domaine stellaire grâce à son essence du vent. À cet instant, neuf dragons de vent de plusieurs centaines de milliers de pieds apparurent et rugirent!
 
@@ -50,11 +50,11 @@ Les Flammes Joss dont il avait besoin pour atteindre ce stade provenaient de ce 
 
 Les yeux de Wang Lin restaient aussi calmes qu'une eau dormante alors qu'il observait le Maître Lu Fu déployer divers sorts. L'aura du Maître Lu Fu atteignit immédiatement son apogée, mais Wang Lin demeura impassible.
 
-À ses yeux, le Maître Lu Fu manquait de quelque chose.
+À ses yeux, le Maître Lu Fu ne faisait pas le poids.
 
 Ce calme insuffla au Maître Lu Fu un sentiment de mystère. Son regard eut un éclair; il ne parvenait pas à comprendre comment Wang Lin pouvait rester aussi serein!
 
-« Peu importe sa force, il est impossible qu'il ait supprimé sa culture pour que je ne puisse pas le percer à jour. Ce calme est étrange!! Je veux voir jusqu'où il peut rester ainsi! »
+« Peu importe sa force, il est impossible qu'il ait supprimé sa culture pour que je ne puisse pas le percer à jour. Ce calme est étrange!! Je veux voir ce qui lui permet de rester si calme! »
 
 Tout cela se produisit en un instant. L'épée brisée chargea tandis que le royaume fantôme libérait une énergie spirituelle céleste monstrueuse. Des volutes de Flammes Joss enveloppèrent son corps.
 
@@ -114,7 +114,7 @@ Il était tout à fait normal pour un cultivateur d'avoir un esclave, mais cet e
 
 Même dans le Royaume Extérieur, une telle nouvelle provoquerait une onde de choc monumentale, et plus encore dans le Royaume Intérieur, où l'on ne voyait qu'exceptionnellement un cultivateur de la troisième étape tous les dizaines de milliers d'années!
 
-Même si on avait dit au Maître Yan Leizi que Luotian s'effondrerait, il n'en serait pas moins bouleversé!
+Même si on avait annoncé au Maître Yan Leizi l'effondrement de Luotian, ce choc n'aurait pas égalé celui-ci!
 
 L'apparition de l'Estimé Ling Dong, cette force mystérieuse, cette pression qui faisait trembler l'espace, cette aura qui terrifiait les cultivateurs, cette puissance presque égale à celle de l'ancêtre de Luotian, voire un peu supérieure, et l'expression du Maître Lu Fu révélaient tout!
 

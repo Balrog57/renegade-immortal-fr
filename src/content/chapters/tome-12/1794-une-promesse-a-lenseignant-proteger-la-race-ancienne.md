@@ -10,7 +10,7 @@ Le corps du dragon était le chemin de la réincarnation. Il s'étirait au loin,
 
 Pendant un instant, il sembla pouvoir voir Li Qianmei et sa compagnie progresser sur la route menant vers la réincarnation.
 
-« Wang Lin, si tu veux protéger son âme, alors tu dois l'emmener avec toi et forcer le passage vers le Continent Astral Immortel. Pour résister à la loi du Continent Astral Immortel, tu dois quitter cette route. Tu pourrais te perdre, tu pourrais mourir... » La voix de Xuan Luo résonna dans le cœur de Wang Lin.
+« Wang Lin, si tu veux protéger son âme résiduelle, alors tu dois l'emmener avec toi et forcer le passage vers le Continent Astral Immortel. Pour résister à la loi du Continent Astral Immortel, tu dois quitter cette route. Tu pourrais te perdre, tu pourrais mourir... » La voix de Xuan Luo résonna dans le cœur de Wang Lin.
 
 « La loi du Continent Astral Immortel est invisible et se ressent sous forme de pression. Si tu parviens à y résister, alors tu pourras peut-être en sortir!
 

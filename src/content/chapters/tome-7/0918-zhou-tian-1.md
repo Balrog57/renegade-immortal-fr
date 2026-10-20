@@ -72,7 +72,7 @@ Sa voix résonna dans le vide, permettant à l'âme originelle de l'homme d'âge
 
 L'âme originelle, habitée par la terreur, s'apprêtait à fuir.
 
-L'expression de Wang Lin resta neutre alors qu'il agita nonchalamment sa main droite. Une bourrasque de vent apparut devant lui et se transforma instantanément en d'innombrables Coupes Célestes fusionnant en une seule. Elle s'élança pour traquer l'âme originelle en fuite.
+L'expression de Wang Lin resta neutre alors qu'il agita nonchalamment sa main droite. Une bourrasque de vent apparut devant lui et se transforma instantanément en d'innombrables Coups Célestes fusionnant en une seule. Elle s'élança pour traquer l'âme originelle en fuite.
 
 Le cultivateur aux six doigts afficha un sourire étrange et pointa également sa main droite. Les innombrables ombres formant son manteau chargèrent pour intercepter le Coup Céleste de Wang Lin.
 
@@ -120,11 +120,7 @@ Des ondulations apparurent près de Xi Zifeng alors que Wang Lin avançait et la
 
 « Peu importe que tu veuilles la tuer, mais pas devant moi! » La voix de Wang Lin était monocorde, et dès qu'il eut fini de parler, il s'élança vers Zhou Tian, le regard empreint d'une intention meurtrière.
 
-Zhou Tian ricana, ses mains formèrent un sceau et il pointa le vide. Une masse d'ombres derrière lui se condensa pour former une hache noire. Zhou Tian la saisit et la projeta avec acharnement.
-
 « Dévoreur des Dix Mille Âmes! » hurla Zhou Tian tandis que la hache géante chargeait Wang Lin.
-
-Wang Lin fit un pas en avant et lança un coup de poing. Un grondement retentit alors que la grande hache s'effondrait instantanément, se transformant en d'innombrables ombres. Celles-ci se dispersèrent avant de charger Wang Lin de toutes parts.
 
 L'expression de Wang Lin resta neutre alors qu'il pointait le ciel. Le tonnerre fut aspiré du vide sur un rayon de dizaines de milliers de kilomètres pour converger instantanément en ce point.
 

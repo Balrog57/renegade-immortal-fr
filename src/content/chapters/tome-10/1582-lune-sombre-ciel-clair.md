@@ -10,7 +10,7 @@ slug: lune-sombre-ciel-clair
 
 Wang Lin recracha plusieurs bouffées de sang et fut projeté en arrière. Les poumons dans sa poitrine se flétrirent et disparurent à l'intérieur de son corps. Privé de ses poumons, il ne pouvait plus respirer. La douleur le fit pousser des gémissements étouffés.
 
-Après la mort de ses poumons, sa rate dépérit. Des quantités massives de sang se répandirent sur tout son corps. La décomposition de sa rate entra gravement en conflit avec sa récupération. Le corps de Wang Lin devint livide et des taches de sang apparurent partout sur lui.
+Après la mort de ses poumons, sa rate dépérit. Des quantités massives de sang se répandirent sur tout son corps. La décomposition de sa rate entrava gravement sa récupération. Le corps de Wang Lin devint livide et des taches de sang apparurent partout sur lui.
 
 Enfin, son foie fondit sous ses paroles.
 
@@ -46,7 +46,7 @@ Alors que les hurlements résonnaient, Wang Lin ne prêta aucune attention au r�
 
 « Montagne S'Écroule, Terres S'Effondrent! » Wang Lin n'avait pas atteint l'illumination du sort *Terres S'Effondrent*, mais avec son niveau de culture, il pouvait l'imiter. Tandis qu'il pointait le doigt, de vastes volcans apparurent et des grondements de tonnerre résonnèrent à travers le monde. Grâce à l'énergie céleste de Wang Lin, le sort de Bai Fan devint un véritable sort céleste!
 
-Tout cela ne suffisait pas à résister à la Concubine Impériale Céleste. Wang Lin n'avait d'ailleurs nullement l'intention d'utiliser ces sorts pour la repousser; il prévoyait d'employer les derniers sorts de Bai Fan!
+Tout cela ne suffisait pas à résister à la Concubine Impériale Céleste. Wang Lin n'avait d'ailleurs nullement l'intention d'utiliser ces sorts pour la repousser; il prévoyait d'employer le dernier sort de Bai Fan!
 
 Lune Sombre, Ciel Clair!
 
@@ -114,7 +114,7 @@ Elle n'était pas surprise que Wang Lin puisse la trouver. S'il n'en avait pas �
 
 Elle laissa l'épée de sang la transpercer. Son corps était une illusion, comme s'il n'existait que dans les yeux de Wang Lin et n'avait aucune substance réelle. Elle sourit doucement.
 
-Un ancien proverbe dit: « un seul regard en arrière et un sourire peuvent charmer toute vie ». Bien qu'elle ne se fût pas retournée, ce sourire sembla illuminer le monde d'une beauté inimaginable.
+Un ancien proverbe dit: « un seul regard en arrière et un sourire font naître mille charmes ». Bien qu'elle ne se fût pas retournée, ce sourire sembla illuminer le monde d'une beauté inimaginable.
 
 « Je n'ai pas entendu la musique de cithare de Grande Sœur depuis longtemps. Pouvoir l'entendre aujourd'hui est entièrement grâce à toi. »
 
@@ -122,4 +122,4 @@ L'épée de sang fut inefficace et fut repoussée, tournoyant autour de Wang Lin
 
 « Je ne veux vraiment pas te tuer... » La femme sans corps réel regarda Wang Lin. Elle leva sa main semblable au jade et pointa doucement vers lui.
 
-« Je prédis par mon âme céleste que tu mourras dans trois respirations... Ma prédiction se réalisera, ayant mon âme pour catalyseur. » La femme sourit et hocha la tête vers Wang Lin.
+« Je prédis par mon âme céleste que tu mourras dans trois respirations... Ma prédiction s'accomplit à l'instant, ayant mon âme pour catalyseur. » La femme sourit et hocha la tête vers Wang Lin.

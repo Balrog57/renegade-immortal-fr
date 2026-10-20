@@ -8,7 +8,7 @@ slug: un-corps-de-tresors
 ---
 Wang Lin volait à basse altitude près du fond de la mer, un drapeau à la main. C'était un drapeau d'âmes contenant plus de cent âmes scellées, dont celle de Sang Muya. Ce drapeau appartenait autrefois à Sang Muya; il ne s'attendait pas à ce qu'il devienne sa propre tombe.
 
-Après avoir discuté avec Sang Muya, Wang Lin apprit que tout ce qui se trouvait dans un rayon d'un million de kilomètres était considéré comme la périphérie extérieure de la Mer des Démons. D'innombrables sectes, grandes et petites, peuplaient cette zone, et la Secte de la Lutte contre le Mal en faisait partie.
+Après avoir discuté avec Sang Muya, Wang Lin apprit que tout ce qui se trouvait dans un rayon de cinq cent mille kilomètres était considéré comme la périphérie extérieure de la Mer des Démons. D'innombrables sectes, grandes et petites, peuplaient cette zone, et la Secte de la Lutte contre le Mal en faisait partie.
 
 Le cultivateur au niveau le plus élevé de la secte était son chef, Liu Sen, le grand-maître de Sang Muya. Il se situait au sommet du stade intermédiaire de la Formation du Noyau et jouissait d'une certaine renommée dans la région.
 

@@ -16,9 +16,9 @@ De plus, elle ne pouvait permettre aux habitants de ce lieu d'en découvrir l'ex
 
 Yao Xixue observa Wang Lin et se mit à réfléchir. En repensant aux paroles de ce dernier, elle sembla en saisir le sens: les quatre mois qu'il réclamait n'étaient qu'un levier pour obtenir une meilleure récompense.
 
-Un sentiment de mépris l'envahit, et sa voix devint naturellement plus glaciale lorsqu'elle demanda: « Que voulez-vous de plus? Encore plus de jades célestes? Des trésors? Des sorts? »
+Un sentiment de mépris l'envahit, et sa voix devint naturellement plus glaciale lorsqu'elle demanda: « Que voulez-vous de plus? Encore plus de jades célestes? Des trésors? Des méthodes de culture? »
 
-Wang Lin ne fut pas affecté par son ton et répondit calmement: « Les trésors ou les sorts m'importent peu. Le mieux serait de les convertir en davantage de jades célestes! »
+Wang Lin ne fut pas affecté par son ton et répondit calmement: « Les trésors et les méthodes de culture, je n'en manque pas. Le mieux serait de les convertir en davantage de jades célestes! »
 
 Le mépris dans le cœur de Yao Xixue s'intensifia et elle déclara: « La grotte de sang de mon père regorge de jades célestes. Je vous donnerai un jeton et, une fois que vous aurez quitté la Terre des Esprits Démoniaques, vous pourrez aller les chercher vous-même! »
 
@@ -26,7 +26,7 @@ Wang Lin hocha la tête: « Très bien, mais cette affaire est périlleuse, je d
 
 Le visage de Yao Xixue se figea et elle demanda d'un ton glacial: « Combien de temps comptez-vous encore réfléchir?! »
 
-« Environ trois mois! » répondit calmement Wang Lin.
+« Trois mois, disons! » répondit calmement Wang Lin.
 
 « Vous! » Yao Xixue était hors d'elle. Elle agita ses manches, faisant s'ouvrir la porte, avant de se détourner pour s'en aller.
 
@@ -96,9 +96,9 @@ Wang Lin ne perdit pas de temps: « Connais-tu l'Ancêtre Sanguin? »
 
 Wang Lin réfléchit un instant: « As-tu entendu parler de la Pilule de l'Âme Sanguine? »
 
-« La Pilule de l'Âme Sanguine!!! » Cao Yidou s'emballa immédiatement. Son excitation était plus grande que lorsqu'il avait espéré un corps de Transformation de l'Âme de la part de Wang Lin.
+« La Pilule de l'Âme Sanguine!!! » Cao Yidou s'emballa immédiatement. Son excitation était plus grande que lorsque Wang Lin lui avait promis un corps de Transformation de l'Âme.
 
-« Maître, cette pilule est considérée comme l'un des trois trésors suprêmes de la planète Tian Yun! Elle possède le pouvoir de défier les cieux et de changer le destin en permettant aux cultivateurs de renaître des morts! Elle n'appartient qu'à l'Ancêtre Sanguin; nul ne sait comment il a pu en obtenir autant! » Cao Yidou parlait de plus en plus vite, surexcité.
+« Maître, cette pilule est considérée comme l'un des trois trésors suprêmes de la planète Tian Yun! Elle possède le pouvoir de défier les cieux et de changer le destin en permettant aux cultivateurs de renaître des morts! Elle n'appartient qu'à l'Ancêtre Sanguin; nul ne sait comment il a pu l'obtenir! » Cao Yidou parlait de plus en plus vite, surexcité.
 
 Wang Lin ouvrit sa main droite, où la pilule de cire émettait un étrange scintillement. « Sais-tu ce que c'est? »
 

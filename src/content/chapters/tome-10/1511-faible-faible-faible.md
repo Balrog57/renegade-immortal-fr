@@ -50,7 +50,7 @@ Le monde trembla. Bien que Wang Lin ne fût pas un cultivateur du troisième pas
 
 Cette paume couvrit l'horizon et retomba soudainement derrière Wang Lin, traversant son corps pour fondre sur le Shui Daozi, sur les pics en contrebas!
 
-De loin, cette scène était inoubliable! Les cinq montagnes entourant le Shui Daozi ressemblaient à une paume, et elles entrèrent bientôt en collision avec l'illusion créée par Wang Lin!
+De loin, cette scène était inoubliable! Les cinq montagnes sous le Shui Daozi ressemblaient à une paume, et elles entrèrent bientôt en collision avec l'illusion créée par Wang Lin!
 
 Le visage du Shui Daozi se tordit de férocité. Alors que Wang Lin s'approchait, il agita ses grandes manches. Plusieurs clous aux sept couleurs apparurent et furent projetés vers Wang Lin!
 
@@ -74,7 +74,7 @@ Le visage du vieil homme était couvert de protubérances et d'une hideuse appar
 
 « Jeune ami, j'espère que tu coopéreras pour me permettre d'obtenir un esprit Dao de rang 6... » Bien que ce vieil homme paraisse calme, il était extrêmement vigilant. Il était secrètement choqué par la puissance de la paume de Wang Lin.
 
-En vérité, il brûlait de désir pour l'esprit Dao de rang 6 et était venu depuis longtemps avec son avatar, mais la paume de Wang Lin l'avait surpris. Malgré ses paroles posées, il attaqua de toutes ses forces!
+En vérité, il brûlait de désir pour l'esprit Dao de rang 6 et était venu depuis longtemps avec son avatar, mais la paume de Wang Lin l'avait fait hésiter. Malgré ses paroles posées, il attaqua de toutes ses forces!
 
 Il se rapprocha instantanément, puis un marais sans fin apparut dans l'obscurité derrière lui. C'était comme s'il voulait dévorer Wang Lin au sein de ce bourbier!
 
@@ -92,7 +92,7 @@ Dès qu'il bougea, les étoiles du Dieu Antique de Wang Lin brillèrent et l'Est
 
 Un hurlement de loup à ébranler les cieux retentit presque en même temps que l'apparition de Ling Dong. Le corps de Zhou Jin se fondit dans un loup de sang long de plusieurs centaines de milliers de pieds, qui chargea vers les perles d'abaque derrière Wang Lin!
 
-« Meute de loups, saluez la lune! » Un rugissement glacial résonna, et le ciel sombre sembla être déchiré par la lune de sang qui illuminait la terre!
+« Meute de loups, saluez la lune! » Un rugissement glacial résonna, et le ciel sombre sembla être déchiré par la lune de sang qui enveloppait la terre!
 
 Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Estimé Ling Dong entrèrent en collision. Le vieil homme n'étant qu'un avatar, il ne pouvait absolument pas rivaliser avec l'Estimé Ling Dong en termes de flammes Joss. Le marais du vieil homme s'effondra et il cracha une bouchée d'énergie de l'âme originelle. Il se retira alors rapidement, les yeux écarquillés par le choc.
 

@@ -12,7 +12,7 @@ Une tour antique flottait au-dessus des soldats démons et avançait au rythme d
 
 À cet instant, un rayon de lumière jaillit de l'horizon et chargea droit sur la grande armée. Avant que le rayon ne les atteigne, une silhouette sortit de la tour. Les vêtements de cette personne semblaient ordinaires, mais elle dégageait une aura de majesté.
 
-Un sourire étira ses lèvres alors qu'elle contemplait la lumière approcher au loin. « Frère Wang, comment allez-vous! »
+Un sourire étira ses lèvres alors qu'il contemplait la lumière approcher au loin. « Frère Wang, comment allez-vous! »
 
 Le rayon de lumière se mua en Wang Lin à l'extérieur de la tour. Il regarda celui qui venait d'en sortir sans être le moins du monde surpris. Au lieu de cela, il déclara: « Wang Lin salue l'Empereur Démon! »
 
@@ -58,7 +58,7 @@ Les pupilles de Wang Lin se contractèrent imperceptiblement. À cet instant pr�
 
 L'expression de Wang Lin devint sombre; il saisit Xu Liguo et le renvoya dans son sac de rangement. Puis, il joignit les mains: « C'était embarrassant, Frère Gu. Je suis venu vous demander où se trouve le Général Démon Mo Fei! »
 
-L'Empereur Démon poussa un soupir intérieur. À l'origine, il n'avait pas souhaité s'engager dans une relation aussi délicate avec Wang Lin, mais il ne pouvait supporter de voir Shuang Er être malmenée.
+L'Empereur Démon poussa un soupir intérieur. À l'origine, il n'avait pas souhaité s'engager dans un affrontement aussi tendu avec Wang Lin, mais il ne pouvait supporter de voir Shuang Er être malmenée.
 
 Bien que l'esprit d'épée de Wang Lin le cachât très bien, il percevait aisément la lubricité dans ses yeux. L'Empereur Démon soupira secrètement et dit: « Frère Wang, Mo Fei est déjà devenu vice-commandant en chef. Il se trouve auprès du Commandant Céleste. Ensemble, ils dirigent l'armée de gauche et devraient être arrivés à Songtao, dans le Pays Démon de Feu. »
 

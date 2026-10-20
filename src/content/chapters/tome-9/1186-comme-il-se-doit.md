@@ -34,7 +34,7 @@ Cependant, Wang Lin possédait le corps d'un Dieu Ancien; cela n'était rien pou
 
 Quatre pas, cinq pas, six pas!
 
-Au moment où le sixième pas fut posé, la pression atteignit un degré cataclysmique. C'était comme si d'innombrables mains s'écrasaient sur lui et que d'innombrables sorts l'assaillaient de face. Il se sentait comme une barque solitaire perdue dans une mer déchaînée.
+Au moment où le sixième pas fut posé, la pression atteignit un degré cataclysmique. C'était comme si d'innombrables mains s'enroulaient autour de lui et que d'innombrables sorts l'assaillaient de face. Il se sentait comme une barque solitaire perdue dans une mer déchaînée.
 
 Le visage de Wang Lin était livide et son corps tremblait légèrement. Il semblait sur le point de reculer, mais à cet instant, une force surgit derrière lui pour l'empêcher de faire marche arrière.
 
@@ -76,7 +76,7 @@ Dès que sa main toucha l'homme, son énergie originelle et son sens divin s'eng
 
 Il ne pouvait pas tuer Wang Lin devant la femme en vert; cela l'aurait placée dans un état d'alerte extrême et aurait causé des troubles inutiles par la suite. Son but était simplement de vérifier si ce Lu était réellement gravement blessé. Ayant obtenu sa réponse, il n'avait aucune intention de s'attarder sur quelqu'un qui n'était plus une menace.
 
-À cet instant précis, un rugissement bestial retentit soudainement. Une créature semblable à un faucon jaillit de la montagne et chargea le groupe.
+À cet instant précis, un rugissement bestial retentit soudainement. Une créature semblable à un faucon jaillit du brouillard de la montagne et chargea le groupe.
 
 Maître Pin Cendré saisit Wang Lin et s'engouffra directement dans le tunnel qui venait d'apparaître suite à l'effondrement de la formation. Le vieil homme nommé Pang et la femme en vert les suivirent précipitamment.
 
@@ -124,6 +124,6 @@ Wang Lin observa les lieux et soupira. « Je ne peux pas continuer votre voyage 
 
 « Cependant, bien que cet endroit soit calme, il reste dangereux en raison de la présence possible de bêtes féroces. Camarade Pang, j'ai une requête à vous faire. » Maître Pin Cendré réfléchit un instant avant de se tourner vers le vieil homme.
 
-« Si le camarade Lu doit guérir seul ici, je serais inquiet. J'aimerais donc demander au camarade Pang de rester pour assurer sa protection. Une partie de ce que la camarade Zhao et moi trouverons vous sera remise en guise de paiement. Qu'en dites-vous? »
+« Si le camarade Lu doit guérir seul ici, je serais inquiet. J'aimerais donc demander au camarade Pang de rester pour assurer sa protection. Une partie de ce que la camarade Zhao et moi trouverons vous sera remise en guise de remerciement. Qu'en dites-vous? »
 
 Les yeux du vieil homme nommé Pang s'illuminèrent et il répondit: « Comme il se doit! »

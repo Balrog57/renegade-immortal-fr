@@ -32,7 +32,7 @@ C'était l'ultime atout de l'Empereur Céleste: il ne laisserait pas l'Enseignan
 
 Alors que l'Enseignant Impérial était sur le point de mourir, un souvenir scellé depuis une éternité s'éveilla.
 
-Il se souvenait vaguement que le clan Dao Wang, après des années d'héritage, était presque éteint. Il se rappelait que, bien longtemps après sa naissance, il ne restait plus que trois personnes, lui inclus.
+Il se souvenait vaguement que le clan Dao Wang, au fil des générations, était presque éteint. Il se rappelait que, bien longtemps après sa naissance, il ne restait plus que trois personnes, lui inclus.
 
 Il ignorait qui étaient ses parents et personne ne lui l'avait dit. Il savait seulement qu'il était un membre du clan Dao Wang... En dehors de lui, il se souvenait avoir vu une femme et une petite fille.
 
@@ -46,7 +46,7 @@ Il grandit lentement, ses souvenirs étant scellés. Il croyait toujours être l
 
 Il restait convaincu que son clan comptait encore de nombreux membres... Mais maintenant que ses souvenirs s'éveillaient, il comprit qu'en dehors de la petite fille disparue, il était le dernier de son lignage...
 
-« Pas étonnant que l'Empereur Céleste ait osé lever le sceau... Car il sait que je suis le seul survivant du clan Dao Wang... Tant que je meurs, même si le sceau est levé, tout ira bien. »
+« Pas étonnant que l'Empereur Céleste ait osé lever le sceau... Car il sait que je suis le seul survivant du clan Dao Wang... Tant que je meurs, même si le sceau est levé, cela n'aura aucune importance. »
 
 « Ainsi, je ne suis pas l'Enseignant Impérial... Alors... Suis-je un membre du clan Dao Wang... Je dois l'être, je suppose...? Maintenant que le sceau est levé, la petite fille disparue doit être le vrai Enseignant Impérial. Où est-elle? Qui est-elle...? » Il avait passé sa vie à croire qu'il était l'Enseignant Impérial, prêt à tout sacrifier pour comploter contre l'Empereur Céleste au nom de son clan. Maintenant qu'il avait échoué, ses souvenirs étaient libérés et ses pensées se dissipaient lentement.
 

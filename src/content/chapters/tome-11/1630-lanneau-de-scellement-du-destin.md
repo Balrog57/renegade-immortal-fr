@@ -94,7 +94,7 @@ Moins d'un souffle plus tard, une énergie démoniaque monstrueuse, noire comme 
 
 Mais cela ne s'arrêta pas là. Après les quatre Diables, une énergie démoniaque colossale surgit pour dissiper la précédente. Quatre Démons Anciens à 8 étoiles apparurent telle une fumée épaisse, d'une apparence terrifiante. Leurs griffes acérées et leur peau verdâtre étaient saisissantes alors qu'ils s'avançaient.
 
-Quatre Dieux Anciens, quatre Grands Diables, quatre Grands Démons. Les douze membres des Êtres Anciens rugirent tous en se précipitant sur Wang Lin.
+Quatre Dieux Anciens, quatre Diables Anciens, quatre Démons Anciens. Les douze membres des Êtres Anciens rugirent tous en se précipitant sur Wang Lin.
 
 L'assaut devenait imminent!
 

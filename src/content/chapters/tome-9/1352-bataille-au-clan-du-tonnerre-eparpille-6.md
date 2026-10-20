@@ -12,7 +12,7 @@ slug: bataille-au-clan-du-tonnerre-eparpille-6
 
 Le Fouet de l'Âme s'étira sur cent mille pieds, et des bruits de craquements résonnèrent alors que les huit anciens dragons de tonnerre étaient tous frappés par le fouet. Ils poussèrent des rugissements de douleur et s'apprêtaient à charger de nouveau quand Wang Lin saisit le fouet et commença à frapper avec frénésie!
 
-Le Fouet de l'Âme provenait de la planète Suzaku et se spécialisait dans la destruction de l'âme originelle! Quel que soit votre niveau de culture, tant que vous étiez sous forme d'âme, vous ne pourriez que désespérer face à ce fouet!
+Le Fouet de l'Âme provenait de la planète Suzaku et se spécialisait dans la destruction de l'âme originelle, et n'avait jamais failli jusqu'ici! Quel que soit votre niveau de culture, tant que vous étiez sous forme d'âme, vous ne pourriez que désespérer face à ce fouet!
 
 Il était impossible d'y échapper!
 
@@ -22,7 +22,7 @@ Même le fantôme céleste ne pouvait s'en défaire; il se retrouvait figé, tre
 
 Au fur et à mesure qu'ils reculaient, les zones touchées par le fouet semblaient brûler et montraient des signes de fusion!
 
-Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa culture dans le Fouet de l'Âme. Le fouet émit une lueur spectrale, tandis qu'une lumière dorée jaillissait de la partie brisée de l'arme!
+Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa culture dans le Fouet de l'Âme. Le fouet émit une lueur spectrale, tandis qu'une faible lumière dorée s'échappait de la partie brisée de l'arme!
 
 En voyant cette lumière dorée, l'expression du Grand Ancien changea radicalement. Une trace de peur apparut dans ses yeux!
 
@@ -68,7 +68,7 @@ En un instant, le fouet de cent mille pieds se contracta jusqu'à ne mesurer plu
 
 C'était comme si quelqu'un avait extrait la lumière du monde par un sort puissant pour la condenser en ce fil doré de cent pieds! Une pression indescriptible émanait de ce fil!
 
-Wang Lin tenait cette ligne dorée. À cet instant, son esprit trembla et il eut l'illusion de tenir des millions d'âmes dans sa main! Ces âmes et cette lumière avaient été fusionnées par un sort étrange pour former le Fouet de l'Âme, spécialisé dans la destruction des âmes!
+Wang Lin tenait cette ligne dorée. À cet instant, son esprit trembla et il eut l'illusion de tenir des dizaines de milliers, voire des centaines de millions d'âmes dans sa main! Ces âmes et cette lumière avaient été fusionnées par un sort étrange pour former le Fouet de l'Âme, spécialisé dans la destruction des âmes!
 
 Un sentiment d'illumination apparut vaguement dans l'esprit de Wang Lin. Il saisit ce fil doré de cent pieds et l'agita doucement. Le fil se tortilla comme un serpent et fouetta l'orage formé par les anciens dragons de tonnerre!
 

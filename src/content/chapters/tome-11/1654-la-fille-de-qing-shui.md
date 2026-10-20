@@ -34,7 +34,7 @@ Parmi les envahisseurs du Royaume Extérieur se trouvait un jeune homme vêtu de
 
 Le regard du jeune homme perça la lumière et se posa sur Mu Bingmei. Il sourit.
 
-« Belle enfant, ne t'inquiète pas, cet écran va bientôt se briser. J'ai entendu dire que tu étais l'une des femmes du défunt Seigneur du Royaume Scellé. J'ai toujours été intéressé par la culture de couple avec la femme d'autrui. » Cette voix semblait émaner lentement de l'autre côté de la lumière. Même le fracas tonitruant des dizaines de milliers de cultivateurs ne parvenait pas à étouffer ses paroles.
+« Belle enfant, inutile de ruser, cet écran va bientôt se briser. J'ai entendu dire que tu étais l'une des femmes du défunt Seigneur du Royaume Scellé. J'ai toujours été intéressé par la culture de couple avec la femme d'autrui. » Cette voix semblait émaner lentement de l'autre côté de la lumière. Même le fracas tonitruant des dizaines de milliers de cultivateurs ne parvenait pas à étouffer ses paroles.
 
 Ce jeune homme était l'un des sept cultivateurs de la troisième étape, juste en dessous de ceux du Vide Arcanique!
 

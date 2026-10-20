@@ -22,7 +22,7 @@ Wang Lin prit une profonde inspiration et cracha une bouffée d'énergie spiritu
 
 Les fissures commencèrent à se refermer, parvenant à contenir l'attaque de l'épée, mais une légère fêlure apparut sur le jade.
 
-« Qu'est-ce que c'est? » Les yeux de l'homme d'âge moyen se plissèrent. Il fixa Wang Lin et lança: « Il semble que tu ne sois pas au 8e niveau. Cependant, même si tu es au stade de l'Établissement des Fondations, tu ne pourras échapper vivant à mon épée volante! »
+« Tiens? » Les yeux de l'homme d'âge moyen se plissèrent. Il fixa Wang Lin et lança: « Il semble que tu ne sois pas au 8e niveau. Cependant, même si tu es au stade de l'Établissement des Fondations, tu ne pourras échapper vivant à mon épée volante! »
 
 Sur ces mots, l'homme d'âge moyen pointa du doigt, le regard empreint de gravité. Il agita la main, et l'épée volante revint se loger dans son fourreau. Cette fois, elle ne s'y enfonça que sur deux cinquièmes de sa longueur; sa couleur passa du bleu au noir avant de jaillir à nouveau du fourreau, sur un bref cri de l'homme d'âge moyen.
 

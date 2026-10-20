@@ -10,7 +10,7 @@ La terreur se lut dans les yeux de Yu Fei. Il pouvait voir que la culture de ce 
 
 Cette réalisation fit trembler son esprit.
 
-Ce qui le laissa sans voix fut que le rugissement de l'instant avait pulvérisé les quatre avatars. Il ressentit lui-même une peur irrésistible.
+Ce qui le glaça jusqu'à l'âme fut que le rugissement de l'instant avait pulvérisé les quatre avatars. Il ressentit lui-même une peur irrésistible.
 
 À cet instant, il n'avait plus le courage de poursuivre le combat. Son corps vacilla et il cracha une large bouffée de sang. Puis, s'enveloppant de lumière sanguine, il s'enfuit au loin.
 
@@ -26,7 +26,7 @@ L'impact frappa le vide et fit éclater l'espace environnant. L'énergie d'origi
 
 Dans un élan de folie, Yu Fei traça un sceau et un rayon de lumière sanguine jaillit de son front. Cette lueur rouge était d'une intensité extrême et dégageait une puissante aura maléfique. Tandis que Yu Fei hurlait, elle se mua en un rayon d'énergie d'épée de cent pieds de long qui fonça sur Wang Lin.
 
-C'était le trésor de vie de Yu Fei. Acculé, il l'utilisa sans la moindre hésitation. Après avoir lancé son trésor de vie, sa main traça un autre sceau; le sang devant lui s'agita et se transforma en un python de mille pieds de long. Le python ouvrit ses mâchoires pour tenter d'engloutir Wang Lin.
+C'était le trésor de vie de Yu Fei. Acculé, il l'utilisa sans la moindre hésitation. Après avoir lancé son trésor de vie, sa main, forte de sa culture de Scruteur du Nirvana au stade intermédiaire, traça un autre sceau; le sang devant lui s'agita et se transforma en un python de mille pieds de long. Le python ouvrit ses mâchoires pour tenter d'engloutir Wang Lin.
 
 Malgré cela, l'inquiétude persistait. Il frappa donc son sac de rangement, faisant jaillir une multitude de trésors. Tandis que divers éclats lumineux s'échappaient des objets, il cracha du sang essentiel sur chacun d'eux et hurla: « Tuez! »
 
@@ -68,7 +68,7 @@ Au moment où les deux se croisèrent, les deux doigts de Wang Lin formèrent un
 
 Dans le Domaine de la Boucherie du Système Stellaire de l'Alliance, composé de deux temples, quatre saints et huit domaines!
 
-Un vortex elliptique apparut soudainement près d'un édifice ressemblant à une épée plantée dans le sol. Une force d'attraction mystérieuse émana du vortex, attirant l'attention des cultivateurs du Domaine de la Boucherie.
+Un vortex elliptique apparut soudainement près d'un édifice ressemblant à une épée plantée dans le vide. Une force d'attraction mystérieuse émana du vortex, attirant l'attention des cultivateurs du Domaine de la Boucherie.
 
 Le corps de Yu Fei surgit du vortex. Son visage était livide et son bras gauche continuait de saigner. Une fois sorti, le vortex derrière lui se rétracta brusquement.
 
@@ -102,7 +102,7 @@ Ce silence générait une intention meurtrière inimaginable, contenue de force,
 
 Le vieillard aux cheveux rouges prit une profonde inspiration, le visage sombre. Il agita ses manches et retourna dans la tour. Après un long moment, une voix glaciale s'en échappa:
 
-« Chassez Xu Mu! »
+« Pourchassez et tuez Xu Mu! »
 
 Quant à Wang Lin, il rétracta ses doigts et son corps reprit lentement sa taille normale en quelques respirations. S'il décidait de tuer, il devait le faire avec une rigueur absolue. Laisser un survivant ne ferait qu'inviter d'autres tentatives d'assassinat; il visait donc l'extermination totale.
 
@@ -112,6 +112,6 @@ Après réflexion, Wang Lin observa la branche dans sa main et la rangea. L'obte
 
 Lorsqu'il réapparut, il se trouvait sur le dos de Lei Ji. Le garçon à la grosse tête, encore inquiet, se détendit en voyant Wang Lin revenir et afficha un regard respectueux.
 
-Ta Shan, légèrement blessé lors du combat contre l'avatar de Yu Fei, était assis là pour récupérer. Wang Lin s'installa sur le dos de Lei Ji et dit calmement: « Lei Ji, trouve-moi une planète cachée et déserte. Je veux me consacrer à la culture en méditation fermée! »
+Ta Shan, légèrement blessé lors du combat contre l'avatar de Yu Fei, était assis là pour récupérer. Wang Lin s'installa sur le dos de Lei Ji et dit calmement: « Lei Ji, trouve-moi une planète cachée et abandonnée. Je veux me consacrer à la culture en méditation fermée! »
 
 Lei Ji poussa un grondement sonore et s'envola au loin dans l'immensité.

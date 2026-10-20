@@ -14,7 +14,7 @@ Wang Lin se tenait à nouveau devant la porte. En contemplant l'entrée et le br
 
 « Avant que l'âme du scorpion ne meure, il a dit... Perle Blanche... Qu'est-ce que cela signifie... » Wang Lin réfléchit longuement. Ses yeux s'illuminèrent, puis il marcha lentement vers la porte.
 
-Alors qu'il se rapprochait, le bras vert bougea soudainement et chargea Wang Lin avec une pression écrasante, ses cinq doigts déployés lacérant le vide de cinq entailles. L'expression de Wang Lin resta imperturbable et il ne ralentit pas d'un pas. Il agita sa main droite vers le bras géant qui fondait sur lui.
+Alors qu'il se rapprochait, le bras vert bougea soudainement et chargea Wang Lin avec une pression écrasante, ses cinq doigts déployés lacérant le vide de cinq entailles. L'expression de Wang Lin resta imperturbable et il ne ralentit pas d'un pas. Il leva sa main droite et frappa d'une paume le bras géant qui fondait sur lui.
 
 Le monde trembla et le bras vert fut projeté à des centaines de pieds dans les airs par la force de Wang Lin. Le bras qui, autrefois, avait suscité la crainte chez lui ne pouvait plus l'arrêter depuis qu'il avait atteint le stade de la Tribulation du Vide. Wang Lin avança calmement vers la porte.
 

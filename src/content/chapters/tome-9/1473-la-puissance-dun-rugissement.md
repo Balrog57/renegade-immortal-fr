@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1473 - The Power of A Roar !!"
 slug: la-puissance-dun-rugissement
 ---
-Dans la neuvième carte, l'avatar de Maître Démon des Neuf Cieux se déplaçait également à toute allure à travers le tombeau. Bien que Wang Lin ait fait le premier pas, il n'était pas inquiet, car son corps originel se trouvait déjà dans le tombeau.
+Dans la neuvième carte, l'avatar de Maître Démon des Neuf Cieux se déplaçait également à toute allure à travers le tombeau, sur sa plateforme funéraire. Bien que Wang Lin ait fait le premier pas, il n'était pas inquiet, car son corps originel se trouvait déjà dans le tombeau.
 
 « Voler! Même si tu voles tout, tu ne pourras pas quitter ce tombeau antique vivant! » Un éclair de froideur traversa les yeux de Maître Démon des Neuf Cieux. Cependant, à cet instant, le vide devant lui se mit à rouler dans un grondement et les turbulences autour de lui se dissipèrent.
 
@@ -114,7 +114,7 @@ La puissance de cette attaque était phénoménale. Le tombeau antique entier tr
 
 La force de cette paume était capable de détruire un monde!
 
-Elle représentait la limite ultime de ce système stellaire!
+Elle représentait la limite ultime du ciel étoilé!
 
 Pourtant, comment la volonté du tombeau antique et celle résiduelle de Ye Mo pouvaient-elles être si facilement anéanties? Alors que la paume perçait la faille, un rugissement jaillit de la troisième couche du tombeau!
 
@@ -126,7 +126,7 @@ RUGISSEMENT!!
 
 La puissance de ce cri fit changer les couleurs du monde et ébranla l'éternité elle-même!
 
-Des tempêtes obscurcirent le ciel; Tuo Sen cracha du sang et fut projeté en arrière. Il leva son bras pour se protéger, mais la chair de la moitié de son corps se désintégra instantanément, révélant les os blancs en dessous.
+Des tempêtes obscurcirent le ciel; Tuo Sen cracha du sang et fut projeté en arrière. Il leva les bras pour se protéger, mais la chair de la moitié de son corps se désintégra instantanément, révélant les os blancs en dessous.
 
 Le corps d'un Dieu Ancien Royal à 8 étoiles venait de s'effondrer!
 

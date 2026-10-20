@@ -34,13 +34,13 @@ C'était la voix d'un Ancien Dieu, et elle était d'une étrange résonance. Dè
 
 Le regard de Wang Lin était calme. Il savait que sans son corps d'Ancien Dieu, cette aura oppressive l'aurait tué. Ce trésor était différent du Fourneau de l'Ancien Dieu!
 
-Bien que le Fourneau de l'Ancien Dieu possédât l'aura d'un Ancien Dieu, il manquait d'intelligence et n'était qu'un simple outil. Après tout, le Fourneau de l'Ancien Dieu était un trésor dont Tu Si n'était pas satisfait; il l'avait jeté négligemment après l'avoir créé.
+Bien que le Fourneau de l'Ancien Dieu possédât l'aura d'un Ancien Dieu, il manquait de vivacité et n'était qu'un simple outil. Après tout, le Fourneau de l'Ancien Dieu était un trésor dont Tu Si n'était pas satisfait; il l'avait jeté négligemment après l'avoir créé.
 
 On pourrait même dire que Tu Si ne l'avait jamais utilisé, mais ce bouclier était très différent. Il devait être un objet qu'un Ancien Dieu utilisait fréquemment, sans quoi il n'aurait pas projeté l'illusion de son maître lors de son activation.
 
 Bien qu'il ne soit pas aussi puissant que la véritable Lance Tueuse de Dieux, il s'en rapprochait. C'était un trésor qui ne pouvait être manié que par un Ancien Dieu!
 
-Si un non-Ancien Dieu l'obtenait, il ne pourrait en utiliser qu'une infime partie. Et si le sceau était totalement ouvert, le bouclier refuserait tout propriétaire! Car, en fin de compte, il ne reconnaîtrait pour maître qu'un Ancien Dieu!
+Si un non-Ancien Dieu l'obtenait, il ne pourrait en utiliser qu'une infime partie. Et si le sceau était totalement ouvert, ils n'oseraient jamais le laisser les reconnaître pour maîtres! Car, en fin de compte, il ne reconnaîtrait pour maître qu'un Ancien Dieu!
 
 Wang Lin se tint suspendu dans les airs et dit calmement: « Maître Fu Fengzi, attaquez-moi une fois de toute votre puissance! »
 

@@ -12,7 +12,7 @@ Les yeux de Yang Sen bouillonnaient de rage alors qu'il fixait Wang Lin, les poi
 
 L'érudit d'âge moyen était également stupéfait. Il regarda Wang Lin d'un air complexe et poussa un soupir.
 
-Song Xing hurla: « Tu oses?! » Puis, il bondit promptement en avant, tentant de saisir la tête de Wang Lin.
+Song Xing hurla: « Tu oses?! » Puis, il bondit promptement en avant, la main en griffe, tentant de saisir la tête de Wang Lin.
 
 Le geste de Song Xing déconcerta le groupe de Liu San, mais celui-ci n'intervint pas pour l'arrêter. Les autres s'écartèrent également, ouvrant une voie vers Wang Lin.
 

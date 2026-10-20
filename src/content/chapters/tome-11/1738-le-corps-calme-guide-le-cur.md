@@ -8,7 +8,7 @@ slug: le-corps-calme-guide-le-cur
 ---
 Le premier souffle du neuvième cycle!
 
-Wang Lin ferma les yeux. Il tenta d'utiliser l'essence vraie et fausse, mais elle n'eut aucun effet, comme si elle s'était volatilisée. Ici, là où tout est vrai ou faux, tout dépendait de son cœur.
+Wang Lin ferma les yeux. Il tenta d'utiliser l'essence vraie et fausse, mais elle n'eut aucun effet, comme si elle s'était volatilisée. Ici, que ce soit vrai ou faux, tout ne dépendait que de son cœur.
 
 Si le cœur de Wang Lin était activé, alors tout s'animerait!
 
@@ -22,7 +22,7 @@ Pour l'instant, il n'avait calmé que son corps!
 
 Le deuxième souffle du neuvième cycle!
 
-Une fois son corps stabilisé, la rotation de la planète ralentit brusquement. Bien que la planète fût toujours un vortex, le vertige, les nausées et la folie s'estompèrent, comme si de l'eau froide avait été versée sur son cœur. Cela permit à son esprit de montrer des signes d'un calme total.
+Une fois son corps stabilisé, la rotation de la planète ralentit brusquement. Bien que la planète fût toujours un vortex, le vertige, les nausées et la folie s'estompèrent, comme si de l'eau froide avait été versée sur son cœur. Cela permit à son cœur de montrer des signes d'un calme total.
 
 En conséquence, l'âme de Wang Lin se calma!
 

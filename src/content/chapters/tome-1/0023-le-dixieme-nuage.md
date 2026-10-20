@@ -8,7 +8,7 @@ slug: le-dixieme-nuage
 ---
 Après un temps indéterminé, Wang Lin ouvrit les yeux et constata que l'obscurité régnait dehors. Il se leva de son lit et s'étira longuement. Son corps ne semblait pas avoir changé. Il sortit le bol en pierre qui reposait sous son lit: il ne contenait plus une goutte de liquide. Il prit la perle, l'examina attentivement et, ravi, découvrit que le dixième nuage était enfin apparu à l'endroit qui était resté vide.
 
-Wang Lin était transporté par l'excitation. Fixant la perle, il se précipita hors de la maison. Il alla puiser un grand bol d'eau de source avant de revenir en hâte. Il plaça la perle de pierre dans l'eau et la remua vigoureusement.
+Wang Lin était transporté par l'excitation. Fixant la perle, il se précipita hors de la maison. Il alla puiser un grand bol d'eau de source avant de revenir en hâte. Il plaça la perle de pierre dans l'eau et la remua.
 
 Une fois cela fait, il but l'eau de source et la goûta un instant, mais elle ne lui sembla pas différente de d'habitude. Perplexe, il observa longuement la perle, puis tenta de la mordre, mais elle demeurait dure comme le roc.
 

@@ -8,7 +8,7 @@ slug: une-chance-de-survie
 ---
 Un courant sous-jacent agitait la Mer des Nuages, provoqué par la Secte Divine. Il interférait avec une série de personnes et d'événements!
 
-Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement prolongé pour empêcher sa disciple la plus chère de s'échapper.
+Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement de dix mille ans pour empêcher sa disciple la plus chère de s'échapper.
 
 Il traversait ses propres difficultés; il devait agir ainsi pour la sécurité de Li Qianmei!
 
@@ -96,7 +96,7 @@ L'image changea encore. Cette fois, le visage de Wang Lin était livide alors qu
 
 D'un seul regard, le corps de Wang Lin s'effondra et son âme originelle mourut!
 
-L'image changea à nouveau. Cette fois, la vision était plus complète. On y voyait Wang Lin dans sa chambre. Il leva les yeux et n'hésita pas une seconde à partir. Sans accorder la moindre attention à la secte qui était encore en train de s'organiser, il s'élança dans l'espace!
+L'image changea à nouveau. Cette fois, la vision était plus complète. On y voyait Wang Lin dans sa chambre. Il leva les yeux et n'hésita pas une seconde à partir. Sans accorder la moindre attention aux disciples qui rangeaient encore leurs affaires, il s'élança dans l'espace!
 
 L'image ne montrait pas le passage du temps. Une durée indéterminée s'écoula, et alors que Wang Lin s'échappait, une paire d'yeux sembla percer le brouillard stellaire pour se poser sur lui.
 
@@ -122,9 +122,9 @@ La perle absorba la lumière septicolore avant de s'effondrer soudainement en un
 
 Fixant ce vortex, Wang Lin serra les dents et l'inhala d'un trait. Son esprit fut soudainement secoué!
 
-« Invoquer les Défiants, Sort de Prédiction du Monde! »
+« Invoquer les Défieurs, Sort de Prédiction du Monde! »
 
-La voix de Wang Lin était chargée d'intention meurtrière. Il utilisa son propre corps comme le ciel et la terre pour invoquer le sort des Défiants, afin de débusquer cette infime chance de survie!
+La voix de Wang Lin était chargée d'intention meurtrière. Il utilisa son propre corps comme le ciel et la terre pour invoquer le sort des Défieurs, afin de débusquer cette infime chance de survie!
 
 Au moment où ses mots résonnèrent, l'esprit de Wang Lin trembla et une aura puissante éclata dans son corps. Elle se précipita dans son esprit et s'abattit sur l'image. Elle déchira tout le brouillard et permit à cette ultime vision d'apparaître!
 

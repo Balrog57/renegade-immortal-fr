@@ -50,7 +50,7 @@ Ce regard fit rater un battement au cœur de Qiu Dehai. Sans hésiter, il agita 
 
 Le Clan du Tonnerre Dispersé n'autorisait pas ses membres à s'entretuer, mais il était permis de gaspiller leur culture ou de les tuer indirectement. Ce vieil homme le savait parfaitement et l'avait déjà fait maintes fois. À cet instant, terrifié, sa seule pensée était la fuite.
 
-Wang Lin ignora ces cultivateurs de l'Âme Naissante en pleine téléportation et agita sa main droite. Les trois cultivateurs de la Formation du Noyau poussèrent des cris déchirants alors que les marques entre leurs sourcils s'effondraient, libérant une multitude de trésors. Wang Lin les ramassa tous avant de s'élever dans les airs.
+Wang Lin ignora ce cultivateur de l'Âme Naissante en pleine téléportation et agita sa main droite. Les trois cultivateurs de la Formation du Noyau poussèrent des cris déchirants alors que les marques entre leurs sourcils s'effondraient, libérant une multitude de trésors. Wang Lin les ramassa tous avant de s'élever dans les airs.
 
 Les trois cultivateurs crachèrent du sang et s'effondrèrent un à un, leurs noyaux ayant tous été brisés. Bien qu'ils ne fussent pas morts, leur culture était définitivement perdue!
 
@@ -60,7 +60,7 @@ Lorsqu'il réapparut, il était déjà loin. À peine arrivé, il se téléporta
 
 La silhouette et la voix de Wang Lin devinrent un nuage noir pesant lourdement sur son âme naissante. Il craignait d'être trop lent et de se faire rattraper.
 
-Il effectua plus de dix téléportations et parcourut près de 50 000 kilomètres. Durant cette course effrénée pour sa survie, il dévora une quantité colossale de pilules. Il avait même brisé le jade de sa secte pour appeler à l'aide les membres des sectes environnantes!
+Il effectua plus de dix téléportations et parcourut près de 50 000 kilomètres. Durant cette course effrénée pour sa survie, il dévora une quantité colossale de pilules. Il avait même brisé le jade de sa secte pour appeler à l'aide les membres de sa propre secte alentour!
 
 Il existait de nombreuses petites sectes comme la Secte du Tonnerre Céleste. Le clan n'intervenait naturellement pas et encourageait même les gens à former ou à rejoindre des sectes.
 
@@ -108,7 +108,7 @@ La secte entière fut plongée dans un silence de mort. Certains cultivateurs pl
 
 « Depuis que j'ai aperçu l'Aîné, mon cœur ne peut plus trouver le repos. Votre culture est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma culture augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan du Tonnerre Dispersé, même le Chef du Clan, ne sauraient vous égaler à votre âge.
 
-« Aîné, ce Junior ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que l'Aîné me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à l'Aîné jusqu'à mon dernier souffle!!! »
+« Aîné, ce Junior ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que l'Aîné me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, travailler jour et nuit pour vous, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à l'Aîné jusqu'à mon dernier souffle!!! »
 
 Même avec sa culture, Wang Lin ne put s'empêcher d'être surpris par les paroles de cet homme chétif, et il ne put s'empêcher de penser à Xu Liguo.
 

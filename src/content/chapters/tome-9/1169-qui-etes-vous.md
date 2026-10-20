@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1169 - Who Are You
 slug: qui-etes-vous
 ---
-« Tous les quelques centaines d'années, la région de rang 9 forme une armée de cultivateurs pour aider à combattre les bêtes féroces issues du système stellaire mystérieux... Peut-être que bientôt Qianmei devra elle aussi s'en aller. » Les cheveux bleus de Li Qianmei flottaient et elle en saisit quelques mèches de sa main droite tout en souriant.
+« Tous les quelques centaines d'années, la région de rang 9 forme une armée de cultivateurs qui se rend à la Secte Démon pour l'aider à combattre les bêtes féroces issues du système stellaire mystérieux... Peut-être que bientôt Qianmei devra elle aussi s'en aller. » Les cheveux bleus de Li Qianmei flottaient et elle en saisit quelques mèches de sa main droite tout en souriant.
 
 Wang Lin réfléchit silencieusement.
 
@@ -62,7 +62,7 @@ Bien que la Secte du Jade Précieux soit méprisable, Peng Lai était magnifique
 
 Il y avait même des montagnes et des rivières majestueuses; c'était un véritable festin pour les yeux.
 
-Le lieu de l'enchère se trouvait dans la partie est de Peng Lai. C'était un spectacle grandiose où des pierres flottaient dans les airs, surmontées de pavillons construits au sommet.
+Le lieu de l'enchère se trouvait dans la partie est de Peng Lai. C'était un spectacle grandiose où des pierres flottaient dans les airs, surmontées de cités bâties à leur sommet.
 
 Des nuages blancs emplissaient le ciel et enveloppaient ces rochers, donnant à la partie est de Peng Lai l'apparence du Royaume Céleste.
 

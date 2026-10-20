@@ -16,7 +16,7 @@ Le chef de la Vallée Wu Feng était un vieil homme approchant les soixante-dix 
 
 Il fixa Wang Lin et ricana: « Petit morveux, ce vieux doit te remercier d'avoir rassemblé tous ces jetons pour moi. Laisse-les derrière toi et disparais d'ici. »
 
-Le front du chef de la Secte He Huan se détendit. Après avoir échangé quelques mots avec les membres de sa secte — plus de dix, hommes et femmes —, ils reculèrent tous lentement.
+Le front de la disciple qui dirigeait la Secte He Huan se détendit. Après avoir échangé quelques mots avec les membres de sa secte — plus de dix, hommes et femmes —, ils reculèrent tous lentement.
 
 Le regard de Wang Lin balaya le groupe avant de se poser sur l'arrogant vieillard. Puis, sans dire un mot, il frappa son sac de rangement et un grain de riz cyan apparut en suspens dans l'air.
 
@@ -56,7 +56,7 @@ L'esprit de Li Shan devint vide alors qu'il contemplait, hébété, la scène qu
 
 Les disciples de la Secte He Huan avaient réussi à échapper au désastre car ils se trouvaient à 500 mètres de là, mais ils n'osaient plus bouger, le regard glacial de Wang Lin les clouant sur place.
 
-Voir les disciples de la Vallée Wu Feng se transformer ainsi en statues de glace plongea les membres de la Secte He Huan dans un état de stupeur totale. En observant la dizaine de sculptures de glace aux postures variées qui se trouvaient non loin, la disciple féminine qui dirigeait le groupe pâlit et sortit le jeton sans l'ombre d'une hésitation. Une fois le jeton déposé avec précaution au sol, Wang Lin lança: « Combien y a-t-il de jetons au total? »
+Voir les disciples de la Vallée Wu Feng se transformer ainsi en statues de glace plongea les membres de la Secte He Huan dans un état de stupeur totale. En observant la dizaine de sculptures de glace aux postures variées qui se trouvaient non loin, la disciple féminine qui dirigeait le groupe pâlit et sortit le jeton. Une fois le jeton déposé avec précaution au sol, Wang Lin lança: « Combien y a-t-il de jetons au total? »
 
 Le corps de la jeune femme trembla. Réprimant sa peur, elle répondit d'une voix vacillante: « Il y en a sept en tout. »
 

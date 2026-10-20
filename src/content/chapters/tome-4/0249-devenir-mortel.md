@@ -22,7 +22,7 @@ En réalité, le véritable niveau de culture de Wang Lin n'était pas celui de 
 
 Alors qu'il marchait sur la route, le corps de Wang Lin changea progressivement: son corps principal s'enfonça en lui pour sombrer dans un profond sommeil, tandis que son avatar se manifestait à l'extérieur.
 
-Wang Lin était arrivé à une certaine compréhension concernant son Royaume Ji; il ne chercherait donc plus à forcer le franchissement de ses blocages. Il ne dépendrait plus autant de ce domaine non plus. Désormais, il ne serait pour lui qu'un autre trésor magique.
+Wang Lin était arrivé à une certaine compréhension concernant son Royaume Ji; il ne chercherait donc plus à forcer le franchissement de ses blocages. Il ne dépendrait plus autant du Royaume Ji non plus. Désormais, il ne serait pour lui qu'un autre trésor magique.
 
 Ses trésors magiques actuels étaient trop faibles pour blesser des cultivateurs de la Formation de l'Âme. Pour que ce trésor gagne en puissance, il aurait besoin de trésors célestes extrêmement rares, tel le Cristal de la Planète de Culture, trésor national d'un pays de rang 6.
 

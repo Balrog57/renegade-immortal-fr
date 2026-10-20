@@ -38,9 +38,9 @@ Wang Lin avait une vague impression de ce nom, Wang Yu. À l'époque où le Clan
 
 Tout en réfléchissant, il se détourna et sortit de la salle ancestrale. En observant la foule agenouillée sur la place, bien qu'ils partagent tous son sang, il n'avait pas l'impression d'être parmi ses proches.
 
-« Vous êtes désormais livrés à vous-mêmes. Plus aucun cultivateur ne s'immiscera dans le monde mortel! Quant à la Grande Dynastie Wang, si certains possèdent les compétences nécessaires, alors vous pourrez conserver cet héritage pendant mille ans. »
+« Vous êtes désormais livrés à vous-mêmes. Plus aucun cultivateur ne s'immiscera dans le monde mortel! Quant à la Grande Dynastie Wang, si certains ont de grands talents, alors vous pourrez conserver cet héritage pendant mille ans. »
 
-« Mais si vous n'êtes que des êtres confus et impitoyables, cette richesse ne vous servira à rien! Bien que les événements passés aient eu leurs causes, vous avez été entraînés par ce ressentiment, cette dynastie est imprégnée de tristesse. Si cela a été provoqué par ma famille Wang, alors vous devriez tous simplement devenir des civils! »
+« Mais si vous n'êtes que des êtres confus et sans principes, cette richesse ne vous servira à rien! Bien que les événements passés aient eu leurs causes, vous avez été entraînés par ce ressentiment, cette dynastie est imprégnée de tristesse. Si cela a été provoqué par ma famille Wang, alors vous devriez tous simplement devenir des civils! »
 
 Après avoir réglé le karma de la famille Wang, Wang Lin jeta un regard froid à tous ses descendants, agita ses manches et s'élança dans les airs. Ta Shan et le garçon à la grosse tête le suivirent, ainsi que Lei Ji, dont la stature atteignait les trente pieds.
 
@@ -62,7 +62,7 @@ Wang Lin fronça légèrement les sourcils et fixa le point de disparition du ce
 
 Tie Yan attendait toujours Wang Lin sur la place de la Secte du Ciel Nuageux. Il savait que ce dernier viendrait inévitablement.
 
-Il ne lui restait plus beaucoup de temps. Sa culture avait régressé jusqu'au sommet du dernier stade de la Formation de l'Âme et il ne pouvait plus franchir le seuil de la Transformation de l'Âme. Il consommait lentement le reste de sa vie.
+Il ne lui restait plus beaucoup de temps. Sa culture avait régressé jusqu'au stade avancé de la Formation de l'Âme et il ne pouvait plus franchir le seuil de la Transformation de l'Âme. Il consommait lentement le reste de sa vie.
 
 À l'origine, avec ses aptitudes et l'illumination reçue de Wang Lin, il n'aurait pas dû en arriver là. Cependant, un incident s'était produit il y a cent ans; un incident qu'il avait provoqué de sa propre volonté.
 
@@ -78,7 +78,7 @@ Wang Lin leva les yeux vers le ciel et sa mélancolie s'accentua. Il soupira en 
 
 Tie Yan resta silencieux un instant, puis hocha la tête.
 
-Il aurait été impossible pour Zhou Ru de quitter la planète Suzaku avec son niveau de culture. Afin de l'aider à réaliser son souhait, il avait sacrifié sa propre vie, avec l'aide de Zhou Wutai et une immense quantité de jades célestes, pour permettre à Zhou Ru d'atteindre tout juste le stade de la Transformation de l'Âme.
+Il aurait été impossible pour Zhou Ru de quitter la planète Suzaku avec son niveau de culture. Afin de l'aider à réaliser son souhait, il avait sacrifié sa propre vie, avec l'aide de Zhou Wutai et la majeure partie des jades célestes qu'il avait pu obtenir, pour permettre à Zhou Ru d'atteindre tout juste le stade de la Transformation de l'Âme.
 
 « C'est absurde! » Wang Lin fronça les sourcils en regardant Tie Yan, mais ne rajouta rien. Il frappa son sac de rangement, libérant une quantité massive de jades célestes qui se mirent à flotter dans les airs. Puis, la main droite de Wang Lin s'élança vers le vide.
 

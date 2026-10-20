@@ -18,9 +18,9 @@ Les autres suivirent immédiatement les ordres de Liu Wenju, prirent chacun un d
 
 Liu Wenju prit une profonde inspiration. Sa main traça un sceau et il cria: « Élevez-vous! »
 
-L'environnement commença à trembler. Le disque lumineux s'éleva, puis s'élança vers l'horizon à une vitesse fulgurante.
+L'environnement commença à trembler. Le disque lumineux s'éleva dans un grand fracas, marqua une brève pause, puis s'élança vers l'horizon à une vitesse fulgurante.
 
-Cette vitesse était plusieurs fois supérieure à celle des épées volantes. À peine le mouvement entamé, les disciples internes ne purent plus supporter la force. Sans l'aide de quelqu'un, ils seraient déjà tombés.
+Cette vitesse était plusieurs fois supérieure à celle des épées volantes. Un vent violent leur fouettait le visage. À peine le mouvement entamé, quelques disciples internes ne purent plus supporter la force. Sans l'aide de quelqu'un, ils seraient déjà tombés.
 
 Toute la force subie par les disciples internes fut transférée à Shang Guan, Song Yu et Wang Lin par une méthode mystérieuse.
 
@@ -28,7 +28,7 @@ Wang Lin sentit une force colossale frapper son corps. Il faillit tomber, mais i
 
 Il regarda Shang Guan et Song Yu et constata que les deux anciens étaient très sereins et ne semblaient nullement éprouvés. Wang Lin soupira intérieurement: « Pas étonnant qu'ils soient des anciens de l'Établissement des Fondations, ce n'est pas un niveau que je peux égaler. »
 
-Situ Nan dit d'un ton dédaigneux: « Ce n'est rien de spécial. C'est simplement une technique de voyage aérien. À mon époque, quand j'utilisais cette technique, je pouvais transporter 10 000 personnes sans avoir besoin que l'on maintienne l'équilibre! »
+Situ Nan dit d'un ton dédaigneux: « Ce n'est rien de spécial. C'est simplement une technique de voyage aérien. À mon époque, quand j'utilisais cette technique, je pouvais transporter 10 000 personnes sans avoir besoin que l'on maintienne l'équilibre, moi seul suffisais! »
 
 Wang Lin ne savait s'il devait rire ou pleurer. Il répondit: « Inutile de vous comparer à tout bout de champ. Je sais déjà que vous êtes puissant. »
 
@@ -66,18 +66,18 @@ Dès que le disque toucha le sol, tous les disciples internes s'effondrèrent et
 
 Wang Lin se sentait également très étourdi et sa poitrine était oppressée.
 
-Liu Wenju traça un sceau et déclencha une technique. La montagne entière trembla et une fissure apparut dans la roche. Sans un mot, Liu Wenju s'engouffra dans la brèche.
+Liu Wenju traça un sceau d'une seule main et déclencha une technique. Une lumière bleue jaillit et la montagne entière trembla et une fissure apparut dans la roche. Sans un mot, Liu Wenju s'engouffra dans la brèche.
 
 La vieille femme nommée Wang jeta un regard circulaire avant de le suivre.
 
 Le reste du groupe entra également dans la fissure avec l'aide des anciens. Une fois tout le monde à l'intérieur, la faille se referma lentement.
 
-Dès son entrée, Wang Lin balaya toute la caverne de son Sens Divin et constata qu'il n'y avait rien d'autre que quelques salles de pierre.
+Dès son entrée, Wang Lin balaya toute la caverne de son Sens Divin et constata qu'il n'y avait rien d'autre que quelques salles de pierre, d'une simplicité extrême.
 
 Liu Wenju attendit que tout le monde soit installé pour dire, d'un ton solennel: « La plupart d'entre vous ont atteint un niveau de culture où la nourriture n'est plus nécessaire. Quant à ceux dont le niveau est trop bas et qui doivent encore manger, il y a des provisions dans la salle de pierre là-bas qui devraient suffire pour plusieurs années. Moi et votre ancêtre Wang allons entrer en retraite de méditation et ne nous occuperons de rien d'autre. Suivez les instructions des anciens pour vos arrangements. »
 
-La vieille femme nommée Wang ajouta d'une voix empreinte de gravité: « Ma Secte Heng Yue entrera en retraite de méditation pendant cent ans, afin d'effacer notre déshonneur. Désormais, si des disciples ont besoin des chants pour atteindre le niveau supérieur, ils pourront les obtenir auprès des anciens. Durant ce siècle, à moins d'un événement majeur, aucun disciple n'est autorisé à quitter les lieux. Vous trois, le groupe de Huang Long, vous devez également entrer en retraite et tenter d'atteindre l'Établissement des Fondations avant la fin de leur vie. »
+La vieille femme nommée Wang ajouta d'une voix empreinte de gravité: « Ma Secte Heng Yue entrera en retraite de méditation pendant cent ans, afin d'effacer notre déshonneur. Désormais, si des disciples ont besoin des techniques et des chants pour atteindre le niveau supérieur, ils pourront les obtenir auprès des anciens. Durant ce siècle, à moins d'un événement majeur, aucun disciple n'est autorisé à quitter les lieux. Vous trois, le groupe de Huang Long, vous devez également entrer en retraite et tenter d'atteindre l'Établissement des Fondations avant la fin de leur vie. »
 
 Le groupe de Huang Long acquiesça.
 
-Le regard de Liu Wenju balaya les disciples internes: « Lu Song, tu es responsable de tous les disciples internes. Wang Lin, toi, suis-moi. Je vais te préparer un endroit spécial. »
+Le regard de Liu Wenju balaya les disciples internes: « Lu Song, tu es responsable de tous les disciples internes, de leur cultivation et des affaires courantes. Wang Lin, toi, suis-moi. Je vais te préparer un endroit spécial. »

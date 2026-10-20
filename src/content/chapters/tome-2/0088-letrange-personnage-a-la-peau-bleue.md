@@ -90,7 +90,7 @@ Dès que le sang apparut, il se transforma en cristaux de glace avant de tomber 
 
 L'étranger poussa un gémissement de douleur et recula précipitamment de quelques pas, affichant une expression horrifiée.
 
-Le cœur de Wang Lin sombra. L'étranger, malgré l'attaque de l'épée volante, était encore capable de bouger. Une lueur froide passa dans ses yeux alors qu'il frappait son sac de rangement, et un fourreau d'épée d'allure antique et sobre s'en échappa.
+Le cœur de Wang Lin sombra. L'étranger, malgré l'attaque de l'épée volante, était encore capable de bouger. Une lueur froide passa dans les yeux de Wang Lin, qui frappa son sac de rangement, et un fourreau d'épée d'allure antique et sobre s'en échappa.
 
 L'épée verte s'engouffra rapidement dans le fourreau sur environ deux cinquièmes de sa longueur. La lame changea brusquement de couleur, passant du vert au bleu, puis du bleu au noir. L'épée jaillit du fourreau et fendit l'air vers l'étranger avec rapidité.
 

@@ -54,7 +54,7 @@ Wang Lin joignit les mains et dit calmement: « Wang Lin salue le Maître du Dao
 
 Le Maître du Dao Rêve Bleu observa silencieusement Wang Lin. Le temps passa lentement. Après un long moment, l'expression tourmentée dans ses yeux s'effaça pour laisser place à une résolution ferme, puis il prit la parole:
 
-« La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les puissants du Vide Arcanique du Système Stellaire Antique. Les concubines impériales célestes ont également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
+« La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les puissants du Vide Arcanique du Système Stellaire Antique. Une concubine impériale céleste antique a également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
 
 « Ce monde ne peut subsister que trois heures... Durant ces trois heures, tu... trouveras difficile d'échapper à la mort!
 
@@ -82,7 +82,7 @@ Le dragon gris se rapprochait. Sans hésiter, Wang Lin fit un pas en avant et po
 
 Ils entrèrent en collision instantanément dans un fracas de tonnerre. Le dragon gris se tordait, s'entrelaçant avec les treize dragons noirs. Les rugissements ébranlaient le ciel et la terre.
 
-Sous l'impact, les longs cheveux de Wang Lin fouettèrent l'air et il recula de plusieurs dizaines de pieds. Le visage pâle, il leva son poing droit. Au lieu d'attaquer de front, il pivota pour lancer un coup de poing dans son dos.
+Sous l'impact, les longs cheveux de Wang Lin fouettèrent l'air et il recula de plusieurs pieds. Le visage pâle, il leva son poing droit. Au lieu d'attaquer de front, il pivota pour lancer un coup de poing dans son dos.
 
 Au moment même de ce mouvement, une ondulation résonna et une vieille femme à la silhouette floue apparut. L'expression de la vieille femme était sombre alors qu'elle levait sa main droite desséchée pour viser le dos de Wang Lin.
 
@@ -122,15 +122,15 @@ Des grondements de tonnerre secouèrent le monde. Des cris déchirants s'élevè
 
 L'épée de sang vacilla et la lueur sanguine s'effondra. Wang Lin saisit son arme et fixa l'adversaire devant lui.
 
-Un homme vêtu de blanc sortit lentement de l'ombre de l'épée brisée, le regard impitoyable.
+À côté de l'épée de glace brisée, un homme vêtu de blanc s'avança lentement, le regard impitoyable.
 
 « Vite, achevez ce combat! » Les paroles de l'homme étaient aussi froides que son apparence. Tandis qu'il avançait, le vieil homme en gris et la vieille femme en noir chargèrent Wang Lin!
 
-Wang Lin recula promptement. Bien que leur culture fût ici supprimée, résister à trois cultivateurs du stade intermédiaire du Vide Spirituel n'était pas une mince affaire!
+Wang Lin recula promptement. Bien que leur culture fût ici supprimée, Wang Lin était incapable de résister à trois cultivateurs du stade intermédiaire du Vide Spirituel!
 
 Tout en reculant, Wang Lin pointa le ciel. L'Empreinte de l'Esprit de Guerre interrompue réapparut. Ses yeux brillèrent d'un éclat doré, libérant une intense intention de combat.
 
-« Puisque vous voulez combattre, alors battons-nous!! » La voix de Wang Lin était calme. Plus le danger était grand, plus il devenait fou, mais son esprit, lui, devenait plus limpide. C'était un trait qu'il avait forgé au cours de ses deux mille ans de culture.
+« Puisque vous voulez combattre, alors battons-nous!! » La voix de Wang Lin était calme. Plus le danger était grand, plus il devenait fou, mais son esprit, lui, devenait plus limpide. C'était un trait qu'il avait forgé au cours de ses deux mille ans de vie et de mort.
 
 À cet instant, il fit signe au ciel et le monde trembla sous l'éclat d'une lumière dorée. L'immense empreinte de paume, baignée d'un éclat d'or, descendit. Avant même qu'elle ne soit proche, une pression écrasante s'abattit sur les lieux.
 

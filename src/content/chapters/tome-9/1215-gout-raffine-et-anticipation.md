@@ -90,7 +90,7 @@ Cependant, après avoir observé le combat, il fut frappé de stupeur et ne put 
 
 « Cet homme ne me laissera jamais partir, mais il doit être gravement blessé après son combat contre ce Briseur du Nirvana au stade avancé. J'ai peut-être encore une chance! S'il récupère, je mourrai sans aucun doute, mais s'il est affaibli, je pourrais l'affronter dans un combat à mort!
 
-« Une fois que je l'aurai tué, tout le Royaume aux Sept Couleurs m'appartiendra! » Le cœur de Maître Nuage-Âme fut emporté par cette pensée. Avant d'entrer dans le royaume, il était certain de pouvoir tuer Wang Lin. Mais désormais, bien qu'il espère que Wang Lin soit blessé, il ressentait la nervosité d'un mortel tentant de terrasser un être céleste.
+« Une fois que je l'aurai tué, tout le Royaume aux Sept Couleurs m'appartiendra! » Le cœur de Maître Nuage-Âme fut emporté par cette pensée. Avant d'entrer dans le royaume, il était certain de pouvoir tuer Wang Lin. Mais désormais, bien qu'il espère que Wang Lin soit blessé, il ressentait la nervosité d'un mortel tentant de terrasser un immortel.
 
 Ce changement témoignait de la peur inconsciente que Wang Lin inspirait à Maître Nuage-Âme. Il serra les dents et chargea en avant.
 
@@ -110,6 +110,6 @@ De cette position, les gémissements provenant de la grotte étaient encore plus
 
 « La chaleur a atteint la température requise... Seulement, ce feu ne convient pas pour planter le Dao... Car il n'a pas encore fait bouillir l'âme... » dit une voix ancienne émanant de derrière la bougie.
 
-« Un faux membre du Clan de l'Extermination des Sceaux est mort. Avez-vous des doutes sur les causes de son décès? » demanda une voix indifférente.
+« Un faux membre du Clan de l'Extermination Scellée est mort. Avez-vous des doutes sur les causes de son décès? » demanda une voix indifférente.
 
 « Pourquoi douterais-je... Je connaîtrai la réponse une fois que le Dao aura été planté. Ce sera bien plus intéressant... L'inconnu possède le goût le plus délicieux... L'attente est l'arrière-goût éternel. Alors, laissez le feu devenir fou... »

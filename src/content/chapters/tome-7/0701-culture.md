@@ -84,7 +84,7 @@ Dès qu'il surgit, une quantité massive de foudre l'enveloppa. Le ciel s'obscur
 
 La voix du Daoïste du Tonnerre était glaciale alors qu'il fixait Wang Lin: « Peu importe qui vous êtes. Laissez la marionnette, et ce vieil homme vous épargnera tous les trois! »
 
-Les yeux de Wang Lin devinrent plus froids encore et il répondit calmement: « Même si vous me laissiez partir, je ne vous pardonnerais pas. Si j'avais été un instant plus lent, mon fils serait mort par votre faute. Cette affaire a touché ma limite. Peu importe votre identité, aujourd'hui, vous mourrez! »
+Les yeux de Wang Lin devinrent plus froids encore et il répondit calmement: « Même si vous me laissiez partir, je ne vous épargnerai pas. Si j'avais été un instant plus lent, mon fils serait mort par votre faute. Cette affaire a touché ma limite. Peu importe votre identité, aujourd'hui, vous mourrez! »
 
 Sa voix était empreinte de résolution et une intention meurtrière surgit soudainement. Simultanément, la garde céleste fit un pas en avant, son corps entier émettant un éclat doré. Elle s'élança telle une statue d'or et lança un coup de poing au Daoïste du Tonnerre.
 
@@ -112,7 +112,7 @@ Au moment où la sphère de Wang Lin atteignit sa cible, le Daoïste du Tonnerre
 
 Ses yeux se plissèrent et il hurla: « Tonnerre du ciel et de la terre, rassemblez-vous! »
 
-La sphère de tonnerre approchait dans un fracas assourdissant, mais fut immédiatement affectée par la barre métallique. Elle chargea inopinément vers l'artefact, enveloppée d'une puissante couche d'éclairs.
+La sphère de tonnerre approchait dans un fracas assourdissant, mais fut immédiatement attirée par la barre métallique. Elle chargea inopinément vers l'artefact, enveloppée d'une puissante couche d'éclairs.
 
 Tandis que la foudre coulait le long de la barre, toutes les runes se mirent à briller comme si elles absorbaient frénétiquement une énergie.
 

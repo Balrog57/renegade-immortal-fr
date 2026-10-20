@@ -10,7 +10,7 @@ L'expression de Wang Lin était calme. Après avoir appris que le premier, le de
 
 « Un plan top secret? » fronça Wang Lin les sourcils.
 
-« Je ne suis venu que pour transmettre l'ordre et j'en ignore les détails. J'espère que ce Compagnon Cultivateur pourra retourner rapidement à la secte. Il y a au total quatre personnes comme moi, envoyées vers chaque méridien. » Ouyang Zhen tendit la main vers le vide, et un jade apparut. Il le lança vers Wang Lin.
+« Je ne suis venu que pour transmettre l'ordre et j'en ignore les détails. J'espère que ce Compagnon Cultivateur pourra se rendre rapidement à la Secte Gui Yi. Il y a au total quatre personnes comme moi, envoyées vers chaque méridien. » Ouyang Zhen tendit la main vers le vide, et un jade apparut. Il le lança vers Wang Lin.
 
 « Ce jade contient l'emplacement exact du réseau de transfert et peut activer la formation trois fois. J'espère que tu seras rapide, Compagnon Cultivateur. J'ai encore une autre tâche à accomplir, je dois donc te faire mes adieux! » Ouyang Zhen semblait anxieux. Après avoir joint les mains en signe de salut devant Wang Lin, il partit.
 
@@ -84,7 +84,7 @@ Wang Lin se frotta le nez en volant vers la secte, sous le regard étrange de l'
 
 Bientôt, tout le monde atteignit la Secte Gui Yi et pénétra dans la formation, guidé par l'homme d'âge moyen. Une lumière violette clignota; il semblait que ce n'était pas la première fois que Ta Jia se rendait à la Secte Gui Yi, car elle se dirigea directement vers le grand hall.
 
-Une demi-heure plus tard, Wang Lin aperçut une immense place où une cloche colossale était retournée, dégageant des vagues de pression.
+Une heure plus tard, Wang Lin aperçut une immense place où une cloche colossale était retournée, dégageant des vagues de pression.
 
 Deux cultivateurs étaient assis sous cette cloche. L'un était un vieil homme aux cheveux blancs et au visage sombre qui semblait ignorer tout ce qui l'entourait. Sur le côté droit de son visage, le tatouage du Taureau Céleste brillait, émanant l'aura de l'âme du Taureau.
 

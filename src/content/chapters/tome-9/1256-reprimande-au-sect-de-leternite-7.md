@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1256 - Rebuking the Everlasting Secte (7)
 slug: reprimande-au-sect-de-leternite-7
 ---
-Parmi les cultivateurs présents, nul ne comprenait la portée de l'acte de Wang Lin. Ils sentirent seulement la main du jeune homme se refermer sur le sol, provoquant un tressaillement.
+Parmi les cultivateurs présents, tous ne comprenaient pas la portée de l'acte de Wang Lin. Ils sentirent seulement la main du jeune homme se refermer sur le sol, provoquant un tressaillement.
 
 Ils n'en ressentirent que la secousse, mais en vérité, la terre ne bougeait pas. Ce qui vacillait, c’étaient leurs cœurs!
 
@@ -90,7 +90,7 @@ Bien que cela puisse paraître long à décrire, tout fut fulgurant. Lorsque la 
 
 Le tonnerre et les éclairs déchiraient l'air dans un fracas assourdissant. Le corps de Du Lin fut projeté en arrière et il cracha du sang. Après avoir subi l'assaut de la planète entière, son corps était au bord de l'effondrement. S'il n'y avait pas eu l'absence d'intention meurtrière chez Wang Lin, il serait sans aucun doute mort!
 
-Le corps de Yin Yue trembla également; elle cracha un jet de sang qui se changea en une brume écarlate, rapidement balayée par la pluie. Frappée par un impact puissant, elle fut repoussée violemment. Son visage était livide et ses cheveux en désordre, totalement trempés par l'averse.
+Le corps de Yin Yue trembla également; elle cracha un jet de sang qui se changea en une brume écarlate, rapidement balayée par la pluie. Frappée par un impact puissant, elle fut repoussée violemment. Son visage était livide et ses cheveux en désordre, totalement trempés par l'averse, comme si elle était devenue une créature d'eau.
 
 Les alentours étaient étrangement silencieux, troublés seulement par le martèlement de la pluie et les coups de tonnerre occasionnels.
 

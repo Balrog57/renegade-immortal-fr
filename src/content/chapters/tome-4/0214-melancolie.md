@@ -54,11 +54,11 @@ Cheng Xian cria rapidement: « Frère Wang Lin, je vous attends ici! N'oubliez p
 
 Wang Lin ne répondit pas et traversa le pont.
 
-Une fois entré dans la cour sud, le brouillard devint plus épais encore. Il ne pouvait rien distinguer à plus de dix mètres devant lui. Si le corps principal de Wang Lin s'était trouvé ici, cela ne l'aurait pas dérangé: il lui aurait suffi de déployer son Sens Divin pour tout voir.
+Une fois entré dans la cour sud, le brouillard devint plus épais encore. Il ne pouvait rien distinguer à plus de neuf mètres devant lui. Si le corps principal de Wang Lin s'était trouvé ici, cela ne l'aurait pas dérangé: il lui aurait suffi de déployer son Sens Divin pour tout voir.
 
 Mais actuellement, l'avatar de Wang Lin n'était qu'au huitième niveau de la Condensation de Qi, il ne pouvait donc que progresser lentement.
 
-Plus il s'enfonçait, plus la brume se densifiait. Sa vision se réduisit progressivement de dix mètres à trois mètres.
+Plus il s'enfonçait, plus la brume se densifiait. Sa vision se réduisit progressivement de neuf mètres à trois mètres.
 
 Une voix émergea du brouillard:
 
@@ -154,7 +154,7 @@ L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: 
 
 Un éclair de froideur traversa les yeux de Li Muwan. Elle fixa l'homme et trancha: « Ne reparlez plus jamais de cette affaire! »
 
-L'homme la regarda silencieusement. Après un long moment, il dit calmement: « Jeune sœur, si je ne vous avais pas sauvée lors de l'attaque du pays de Huo Fen, vous seriez morte. Comment ai-je agi envers vous ces dernières années? Je veux comprendre pourquoi vous vous y opposez ainsi. »
+L'homme la regarda silencieusement. Après un long moment, il dit calmement: « Jeune sœur, si je ne vous avais pas sauvée lorsque vous êtes venue ici depuis le pays de Huo Fen, vous seriez morte. Comment ai-je agi envers vous ces dernières années? Je veux comprendre pourquoi vous vous y opposez ainsi. »
 
 Li Muwan réfléchit. La silhouette d'un homme flotta inconsciemment dans son esprit. Elle refoula cette pensée et dit: « Sans raison... »
 

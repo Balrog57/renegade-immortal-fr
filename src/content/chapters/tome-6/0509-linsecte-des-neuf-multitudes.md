@@ -30,7 +30,7 @@ C'était comme si une paire d'yeux les observait, mais lorsqu'ils tentaient de v
 
 « Nous ne sommes pas encore entrés profondément dans les montagnes, il ne devrait donc y avoir aucune bête désolée dans les environs. Pourquoi cette sensation est-elle si nette? » Bien que les deux Anciens paraissaient très calmes, ils communiquaient nerveusement entre eux par leur Sens Divin tout en suivant le groupe.
 
-« Quelque chose s'est peut-être produit ici. Au cours des dix derniers jours, ce sentiment n'a pas cessé de nous accompagner, pourtant nous avons inspecté nos environs et rien ne s'est passé. Je pense que, quoi que ce soit, cela ne nous cible pas directement. »
+« Quelque chose s'est peut-être produit ici. Depuis plus de dix jours, ce sentiment n'a pas cessé de nous accompagner, pourtant nous avons inspecté nos environs et rien ne s'est passé. Je pense que, quoi que ce soit, cela ne nous cible pas directement. »
 
 « Peu importe. Cet endroit est tout simplement trop étrange. Une fois notre tâche accomplie, le mieux sera de partir au plus vite. Chaque seconde passée ici rend ma respiration plus difficile; c'est comme si une montagne immense pesait sur mes épaules. J'ai même l'impression que je vais craquer, perdre le contrôle et tuer quelqu'un. C'est un sentiment que je n'avais pas éprouvé depuis que j'ai atteint le stade de la Formation de l'Âme. »
 
@@ -46,7 +46,7 @@ Le Fruit d'Or Brillant n'est pas destiné à être consommé; c'est un matériau
 
 La rumeur prétend que les quatre épées illusoires derrière le Saint de l'Épée Ling Tianhou de la Secte de l'Épée Da Luo ont été raffinées avec une quantité phénoménale de Fruits d'Or Brillants. La quantité utilisée dépassait l'entendement, et c'est ainsi qu'il avait forgé ces quatre épées incomparables.
 
-Les lieux où le Fruit d'Or Brillant peut croître sont extrêmement imprévisibles. Le fruit se forme à partir de l'élément métal naturel; c'est un trésor céleste qui peut apparaître n'importe où.
+Les lieux où le Fruit d'Or Brillant peut croître sont extrêmement imprévisibles. Le fruit se forme à partir du métal primordial du ciel et de la terre; c'est un trésor céleste qui peut apparaître n'importe où.
 
 Une fois que ce fruit commence à pousser, il ressemble en tout point à un fruit ordinaire, mais lorsqu'il arrive à maturité, il change soudainement pour se charger d'éléments métalliques.
 
@@ -100,7 +100,7 @@ Au moment où elles s'élevèrent, ce qui fut révélé sur leur revers était c
 
 « C'est clairement la Racine d'Esprit Dorée. Que signifie ce terme de Fruit d'Or Brillant? Je suppose que ces gens ne comprennent pas vraiment comment utiliser ce trésor et croient que le fruit en est l'essence. Ils ne réalisent pas que, comparé à la Racine d'Esprit Dorée, le fruit est insignifiant! » Les yeux de Wang Lin s'illuminèrent. Bien que le nom du Fruit d'Or Brillant lui soit inconnu, il parvint à retrouver sa trace dans les souvenirs de Tu Si après l'avoir vu.
 
-Ce trésor étant formé des cinq éléments naturels, il existait depuis très longtemps et figurait naturellement dans la mémoire de Tu Si. La meilleure façon de l'utiliser était de dévorer la racine; cela rendrait son corps encore plus résistant.
+Ce trésor étant formé du métal primordial des cinq éléments, il existait depuis très longtemps et figurait naturellement dans la mémoire de Tu Si. La meilleure façon de l'utiliser était de dévorer la racine; cela rendrait son corps encore plus résistant.
 
 Pour un enfant de Dieu Ancien, ce trésor constituait un rare complément nutritionnel.
 

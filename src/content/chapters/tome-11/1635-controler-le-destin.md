@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1635 - Controlling Fate
 slug: controler-le-destin
 ---
-« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Si moi, Wang Lin, je pouvais pénétrer dans l’Ancien Royaume Céleste et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
+« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Puisque moi, Wang Lin, je peux pénétrer dans l’Ancien Royaume Céleste et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
 
 « De quels droits se permettent-ils d'élever des êtres sensibles en captivité? De quels droits se croient-ils maîtres d'autres êtres?
 
@@ -32,13 +32,13 @@ Après avoir brisé trois soleils consécutifs, Wang Lin s'élança en avant, ri
 
 Le quatrième soleil contenait quatre épées et dégageait une énergie d'épée terrifiante. Cependant, Wang Lin ne se souciait absolument pas de cette énergie!
 
-Le cinquième soleil renfermait d'innombrables silhouettes illusoires. Ces figures fusionnaient pour former un flou indistinct. C'était la racine de la rétribution de l'illusion.
+Le cinquième soleil renfermait d'innombrables silhouettes illusoires. Ces figures fusionnaient en une forme floue et insaisissable. C'était la racine de la rétribution de l'illusion et du réel.
 
 Le sixième soleil contenait les auras de trois trésors. Il s'agissait de la Pagode de Suppression Céleste, de l'Anneau de Scellement du Destin et d'autres trésors qui avaient été utilisés contre Wang Lin précédemment. Maintenant que Wang Lin les avait détruits, leurs auras s'étaient fusionnées.
 
 Le septième soleil contenait la force de l'âme des trois clans anciens. D'innombrables âmes de ces trois clans y étaient scellées. C'était la méthode ultime pour manipuler les messagers des cieux.
 
-En approchant du huitième soleil, Wang Lin ressentit l'aura de la rétribution de soi. Cette aura changeait si rapidement qu'il était difficile de la distinguer.
+En approchant du huitième soleil, Wang Lin ressentit l'aura de la rétribution personnelle. Cette aura changeait si rapidement qu'il était difficile de la distinguer.
 
 Après avoir brisé huit soleils d'affilée, un grondement tonitruant déchira l'Ancien Royaume Céleste. Ce fracas sourd fit trembler la terre, et les statues au sol vibrèrent également.
 
@@ -48,7 +48,7 @@ Il percevait vaguement des auras très familières à l'intérieur du neuvième 
 
 Debout près du neuvième soleil, Wang Lin se calma et ferma les yeux. Il resta là très longtemps; on ignorait combien de temps s'était écoulé avant qu'il ne les rouvre. Une lueur d'illumination brillait dans son regard.
 
-« Ce neuvième soleil, la neuvième divine rétribution, l'origine même de la rétribution divine... Elle contient le destin de tous les êtres sensibles des Royaumes Intérieur et Extérieur. Cette neuvième divine rétribution était le plan directeur. Quiconque naît dans cette grotte est inscrit ici... »
+« Ce neuvième soleil, la neuvième divine rétribution, l'origine même de la rétribution divine... Elle contient le destin de tous les êtres sensibles, vivants ou morts, des Royaumes Intérieur et Extérieur. Cette neuvième divine rétribution était le plan directeur. Quiconque naît dans cette grotte est inscrit ici... »
 
 En contemplant le neuvième soleil, un éclat de froideur passa dans les yeux de Wang Lin. Il voulait détruire cette divine rétribution et, avec son niveau de culture actuel, il en avait la possibilité. Cependant, selon sa compréhension, le monde serait plongé dans le chaos s'il agissait ainsi. Après tout, ce monde n'était pas naturel; il avait été créé par l'homme aux sept couleurs.
 
@@ -72,7 +72,7 @@ Tandis qu'il tremblait, son être sembla devenir complet, comme si, désormais, 
 
 Cette divine rétribution ne le pourrait pas! Pas même cet homme aux sept couleurs!
 
-C'était comme s'il était devenu entier, comme s'il avait arraché son destin au ciel pour s'en libérer! À travers les âges, les mortels avaient poursuivi le luxe de décider de leur propre sort, mais depuis l'Antiquité, presque aucun n'y était parvenu.
+C'était comme s'il était devenu entier, comme s'il avait arraché son destin au ciel pour s'en libérer! À travers les âges, les mortels avaient presque tous rêvé de pouvoir décider de leur propre sort, mais depuis l'Antiquité, presque aucun n'y était parvenu.
 
 Le destin est capricieux et la puissance d'un mortel est limitée. Ils ne peuvent que lutter contre lui en poussant des rugissements de révolte. C'est comme une fourmi prise dans la paume d'une main: elle ne peut que subir la volonté du géant, incapable d'échapper à l'étreinte de la main.
 
@@ -98,7 +98,7 @@ Il trouva Maître Nan Yunzi, Maître Hong Shan, Wang Zhuo, le vieil Empereur Div
 
 Il trouva encore plus de monde. Il trouva son propre enfant, Wang Ping, et Zhou Ru. Il prit leurs destins afin qu'ils ne soient plus asservis par les cieux, leur permettant de s'échapper des cieux comme il l'avait fait.
 
-Il trouva également Papillon Rouge, Mu Bingmei, Xizi Feng; il retrouva tous ces visages qu'il ne pouvait oublier.
+Il trouva également Papillon Rouge, Mu Bingmei, Xizi Feng; il retrouva tous ces visages de femmes rencontrées au fil de sa vie, celles qu'il avait fini par oublier.
 
 Il y avait aussi Li Qianmei.
 

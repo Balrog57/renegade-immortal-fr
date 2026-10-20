@@ -8,7 +8,7 @@ slug: larmure-de-lame-reconnait-son-maitre
 ---
 Lu Wenran était d'une rapidité fulgurante. Sa décision était prise: il devait tuer Wang Lin. Même sous les yeux de tous les témoins, il ne reculerait pas. Ayant déjà perdu l'avantage, il n'avait d'autre choix que de lancer l'offensive immédiatement!
 
-En un éclair, il fondit sur Wang Lin. Wang Lin, tout en reculant, fit trois pas d'affilée. Au troisième, sa main droite se leva vivement et le palais souterrain gronda. Une Lance aux Sept Couleurs apparut, suivie d'une seconde, enveloppée de flammes ardentes.
+En un éclair, il fondit sur Wang Lin. Wang Lin, tout en reculant, fit trois pas d'affilée. Au troisième, sa main droite se leva vivement et le palais souterrain gronda. Une Lance aux Sept Couleurs apparut, suivie d'une seconde, condensée à partir de la véritable essence du feu.
 
 Les deux Lances aux Sept Couleurs jaillirent vers Lu Wenran.
 
@@ -36,7 +36,7 @@ Tout sembla disparaître pour laisser place à un océan sans fin. Le monde fut 
 
 À l'opposé de ce premier astre, un second soleil sembla entrer en combustion. Dès son apparition, il déchaîna une force égale pour lacérer les ténèbres!
 
-Immédiatement après, deux portes gigantesques surgirent au-dessus de la mer. Une aura antique se fit sentir, donnant l'impression que le temps lui-même ralentissait, enveloppant l'esprit de Lu Wenran!
+Immédiatement après, deux portes gigantesques surgirent au-dessus de la mer. Une aura antique se fit sentir, donnant l'impression que le temps lui-même s'écoulait, enveloppant l'esprit de Lu Wenran!
 
 Tout cela se produisit en un battement de cils. En plus de deux mille ans de cultivation, Wang Lin n'avait jamais utilisé autant de sorts en un laps de temps aussi court.
 
@@ -51,7 +51,7 @@ Alors qu'il agitait sa manche, deux lunes noires apparurent aux côtés des deux
 
 Les fracas du tonnerre se succédèrent. Lu Wenran luttait contre les Empreintes de l'Esprit Guerrier tout en étant brûlé par les Ombrelles Brûlantes du Royaume et frappé par la puissance de Nuit Brisée. Alors que le temps commençait à s'inverser, un rugissement de colère retentit et tous les sorts de Wang Lin s'effondrèrent.
 
-Les deux empreintes de paumes géantes explosèrent et les deux ombrelles antiques se brisèrent. Le ciel et la mer se désintégrèrent totalement. Enfin, les deux lunes et les portes de pierre s'écroulèrent.
+Les deux empreintes de paumes géantes explosèrent et les deux ombrelles antiques se brisèrent. Le ciel et la mer se désintégrèrent totalement, avec les deux soleils. Enfin, les deux portes de pierre s'écroulèrent.
 
 Lu Wenran était dans un état lamentable. Il avait perdu un bras et était déjà gravement blessé. Pour résister au bombardement de sorts de Wang Lin, il avait dû puiser dans toutes ses forces. Le visage pâle, il chargea vers Wang Lin.
 

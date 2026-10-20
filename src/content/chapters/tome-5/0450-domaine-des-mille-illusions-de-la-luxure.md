@@ -10,11 +10,11 @@ Yun Quezi fut surpris et demanda: « Est-ce là ton ancien domaine de la luxure?
 
 Le troisième ancêtre hocha la tête et répondit: « C'est mon domaine de la luxure. Si elle réussit sa possession, elle s'emparera certainement d'une partie de ma puissance. Comment pourrais-je la laisser faire? »
 
-« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications mineures. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
+« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
 
 Après avoir fini de parler, le troisième ancêtre pointa son front. La plante sur son front commença à bouger de manière mystérieuse. Des runes s'échappèrent de son front avant de disparaître dans les airs.
 
-Dans le Tombeau Suzaku, Wang Lin monta sur l'autel et l'activa. Il sentit l'autel entamer sa téléportation et il était sur le point de disparaître.
+Dans le Tombeau Suzaku, Wang Lin monta sur l'autel, s'accroupit et posa la main dessus pour l'activer. Il sentit l'autel entamer sa téléportation et il était sur le point de disparaître.
 
 Mais à ce moment précis, une immense quantité de brouillard rose jaillit soudainement des sept orifices de Liu Mei, suivie par le cri de Mei Ji.
 

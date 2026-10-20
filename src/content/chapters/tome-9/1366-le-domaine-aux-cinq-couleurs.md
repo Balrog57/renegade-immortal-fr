@@ -24,9 +24,9 @@ Na Duo était l'un de ceux qui avaient traqué Situ Nan et qui s'était retrouv�
 
 Bien que l'image eût disparu, les yeux de Wang Lin brillèrent. Il semblait avoir découvert un immense secret!
 
-« La lumière dorée entourant cette personne devrait être le Fouet de l'Âmes. Conjugué à ce que le Grand Ancien a dit lors de notre combat... et avec le Royaume Ji aux Cinq Couleurs de Na Duo... Se pourrait-il que ces mystérieux cultivateurs ne soient pas partis, mais se soient dirigés vers le Royaume Intérieur? »
+« Le fil d'or entourant cette personne devrait être le Fouet de l'Âme. Conjugué à ce que le Grand Ancien a dit lors de notre combat... et avec le Royaume Ji aux Cinq Couleurs de Na Duo... Se pourrait-il que ces mystérieux cultivateurs ne soient pas partis, mais se soient dirigés vers le Royaume Intérieur? »
 
-« Pour une raison inconnue, son Royaume Ji aux Cinq Couleurs s'est retrouvé entre les mains de Na Duo! Même le Fouet de l'Âmes a été laissé derrière sur la planète Suzaku... »
+« Pour une raison inconnue, son Royaume Ji aux Cinq Couleurs s'est retrouvé entre les mains de Na Duo! Même le Fouet de l'Âme a été laissé derrière sur la planète Suzaku... »
 
 « Na Duo doit en savoir beaucoup à ce sujet... La Planète des Cinq Éléments... Na Duo! » Tandis que Wang Lin méditait silencieusement, ses yeux s'illuminèrent. Après un long moment, il prit une profonde inspiration et écarta ces pensées. Ce n'était pas le moment de s'y attarder.
 
@@ -56,9 +56,9 @@ Le lien entre les secteurs ouest et nord de la ville était habituellement très
 
 Pourtant, sous cette pluie battante, tout était devenu calme. Seules les enseignes de quelques auberges et restaurants, ouverts toute la journée, laissaient encore filtrer une faible lueur en oscillant dans le vent et la pluie.
 
-Wang Lin marcha lentement à travers le quartier ouest jusqu'à l'entrée d'un restaurant. Il n'y avait que deux ou trois clients à l'intérieur, et le serveur affichait un regard si léthargique qu'il semblait sur le point de s'endormir à tout instant.
+Wang Lin marcha lentement à travers le quartier ouest jusqu'à l'entrée d'un restaurant. Il n'y avait que deux ou trois clients à l'intérieur, qui buvaient en contemplant la nuit pluvieuse et murmuraient entre eux, et le serveur, ronflant à moitié, affichait un regard si léthargique qu'il semblait sur le point de s'endormir à tout instant.
 
-Wang Lin entra dans l'établissement et posa la cruche de vin devant le serveur avec un bruit sourd.
+Wang Lin entra dans l'établissement et posa la cruche de vin devant le serveur affalé sur la table, dans un léger bruit.
 
 « Donne-moi une cruche de vin. »
 
@@ -70,7 +70,7 @@ Tenant la cruche, il sortit du restaurant. Le tonnerre grondait et la foudre éc
 
 Dans la nuit pluvieuse, il prenait parfois une gorgée de vin. Sa marche n'était pas rapide, mais à chaque pas qu'il posait, la pluie semblait marquer un temps d'arrêt.
 
-Dans le ciel au nord de la capitale, l'homme âgé en robe taoïste qui avait utilisé le sort de recherche s'éloignait, l'expression sombre. Les sept autres qui le suivaient paraissaient tous épuisés.
+Dans le ciel au nord de la capitale, l'homme âgé en robe taoïste qui avait utilisé le sort de recherche s'éloignait, l'expression sombre. Les sept autres qui le suivaient paraissaient légèrement fatigués.
 
 Ils avaient déjà fouillé de nombreux endroits cette nuit, sans rien trouver. Clairement, l'individu ayant anéanti le Clan du Tonnerre Dispersé n'était pas là.
 
@@ -80,19 +80,19 @@ Ils avaient déjà fouillé de nombreux endroits cette nuit, sans rien trouver. 
 
 « Le Grand Maître Yun Luo du Conseil Souverain avait prédit que cet homme se trouverait dans ce domaine stellaire. Il ne faudra pas longtemps avant qu'il puisse localiser la planète exacte. Si nous parvenons à le trouver avant le Grand Maître Yun Luo, nous pourrons sûrement... » Les yeux de l'Ancien s'illuminèrent à cette pensée.
 
-Cependant, à cet instant précis, un coup de tonnerre retentit et la foudre déchira le ciel. À ce moment-là, une silhouette vêtue d'un imperméable et tenant une cruche de vin apparut!
+Cependant, à cet instant précis, un coup de tonnerre retentit et la foudre déchira le ciel. À ce moment-là, une silhouette vêtue d'un imperméable et tenant une cruche de vin apparut au loin!
 
 Il était si rapide que personne ne l'avait vu, si rapide qu'aucun des sept compagnons ne s'en aperçut. La silhouette surgit soudainement à moins de trois pieds de l'homme en robe taoïste!
 
 Les pupilles de l'Ancien se rétractèrent, ses yeux emplis de choc et de terreur. Il n'eut pas le temps de réagir que la silhouette but une gorgée de vin de sa main droite, tandis que sa main gauche venait se poser entre les sourcils du vieil homme.
 
-Instantanément, un fracas tonitruant secoua le ciel. Une partie de l'âme originelle de l'Ancien fut arrachée et expulsée de son corps.
+Instantanément, un fracas tonitruant secoua le ciel. Une partie de l'âme originelle de l'Ancien fut arrachée, traversa son corps et s'échappa par son dos.
 
 Dès que cette parcelle d'âme eut quitté l'homme, Wang Lin fit un pas en avant. Sa main gauche saisit l'âme originelle qui s'échappait, puis il continua sa route.
 
 Le tonnerre venait de cesser et le son résonnait encore. Puis, la foudre illumina à nouveau le ciel. Les sept cultivateurs n'avaient rien remarqué du tout. Même l'Ancien en robe taoïste était confus, mais il reprit vite ses esprits.
 
-« Ce sera sans aucun doute un immense mérite! » L'expression de l'homme restait sombre, mais son visage était d'une pâleur mortelle. Il semblait n'avoir rien remarqué ou avoir oublié la terreur qu'il venait de ressentir. Il reprit sa course en avant.
+« Ce sera sans aucun doute un immense mérite! » L'expression de l'homme restait sombre, mais son visage était d'une pâleur à peine perceptible. Il semblait n'avoir rien remarqué et avoir oublié la terreur qu'il venait de ressentir. Il reprit sa course en avant.
 
 Tandis que les éclairs éclairaient la terre, la silhouette s'éloignait de plus en plus des huit cultivateurs. Dans sa main, il tenait une âme originelle qui avait l'apparence du vieil homme. Ce dernier tentait d'appeler à l'aide, mais aucun son ne sortit.
 
@@ -104,11 +104,11 @@ Il tenait toujours l'âme originelle dans sa main gauche et, dès qu'il entra, i
 
 Wang Lin n'aurait pas pris le risque inutile de tuer l'Ancien en robe taoïste, mais il avait besoin de connaître la situation actuelle dans le Système Stellaire Antique. Il avait utilisé son tonnerre pour sectionner instantanément une partie de l'âme originelle du vieil homme afin d'en sonder la mémoire.
 
-« C'est bien ce que je craignais, le Système Stellaire Antique a commencé des recherches minutieuses... Le Grand Maître Yun Luo du Conseil Souverain... Son sort est capable de calculer ma position... » Les yeux de Wang Lin brillèrent. Grâce à ces souvenirs, il apprit non seulement l'existence de la traque lancée par le Système Stellaire Antique, mais aussi tous les dispositifs qu'ils avaient déployés dans ce domaine stellaire.
+« C'est bien ce à quoi je m'attendais, le Système Stellaire Antique a commencé des recherches minutieuses... Le Grand Maître Yun Luo du Conseil Souverain... Son sort est capable de calculer ma position... » Les yeux de Wang Lin brillèrent. Grâce à ces souvenirs, il apprit non seulement l'existence de la traque lancée par le Système Stellaire Antique, mais aussi tous les dispositifs qu'ils avaient déployés dans ce domaine stellaire.
 
 Avec un ricanement, Wang Lin agita la main et une âme originelle apparut dans sa paume. C'était celle du Grand Ancien du Clan du Tonnerre Dispersé. Ses yeux étaient clos et il était à l'agonie!
 
-« Les cinq autres types de tonnerre qui complètent l'ensemble, mis à part le Tonnerre Spirituel, doivent être obtenus via l'âme originelle du Grand Ancien! Lorsqu'il utilisa les six types de tonnerre, ils ne provenaient pas de son corps, il les invoquait. Bien qu'ils se soient dissipés, ils n'ont pas été détruits et peuvent être invoqués à nouveau! Malheureusement, il existe neuf types de tonnerre et ce n'est pas encore complet... Je me demande si le fait de parfaire ma marque de tonnerre me permettra de franchir les étapes du Fléau Céleste et d'atteindre la troisième étape en tant que cultivateur du tonnerre! »
+« Les cinq autres types de tonnerre qui complètent l'ensemble, mis à part le Tonnerre Spirituel, doivent être obtenus via l'âme originelle du Grand Ancien! Lorsqu'il utilisa les six types de tonnerre, ils ne provenaient pas de son corps, il les invoquait. Bien qu'ils se soient dissipés, ils n'ont pas été détruits et peuvent être invoqués à nouveau! Malheureusement, il existe neuf types de tonnerre et ce n'est pas encore complet... Je me demande si le fait de parfaire mon tatouage de tonnerre me permettra de franchir les étapes du Fléau Céleste et d'atteindre la troisième étape en tant que cultivateur du tonnerre! »
 
 Sans hésiter, Wang Lin ouvrit la bouche et aspira. L'âme originelle du Grand Ancien pénétra dans sa bouche telle un flux de lumière. Le tonnerre gronda à l'intérieur de l'âme originelle de Wang Lin alors que celle du Grand Ancien était totalement broyée.
 

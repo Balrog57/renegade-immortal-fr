@@ -30,7 +30,7 @@ Bien que ce pas fût simple, il était extrêmement difficile pour Wang Lin. Fac
 
 Les dieux anciens osaient défier les cieux et le Dao. S'il devait s'incliner devant cette simple statue, Wang Lin ne serait pas digne de porter le titre de véritable dieu ancien!
 
-À chaque pas, Wang Lin entendait les sons terrifiants de choses se brisant à l'intérieur de lui. Faire ce pas signifiait affronter directement cette pression et rejeter toute possibilité de négociation!
+En faisant ce pas, Wang Lin entendait les sons terrifiants de choses se brisant à l'intérieur de lui. Faire ce pas signifiait affronter directement cette pression et rejeter toute possibilité de négociation!
 
 Pourtant, c'était précisément ce que l'héritage du dieu ancien en lui exigeait!
 
@@ -64,7 +64,7 @@ Dès qu'il vit la statue, il devina qui elle représentait. L'apparence de cette
 
 De plus, une seule personne pouvait faire en sorte qu'une simple statue dégage une pression aussi écrasante!
 
-« L'Empereur Céleste Qing Lin! » Le dos de Wang Lin était trempé de sueur. Le danger qu'il avait ressenti à l'instant n'avait aucun précédent. Sans la puissance des dieux anciens, il aurait instantanément explosé et serait mort.
+« L'Empereur Céleste Qing Lin! » Le dos de Wang Lin était trempé de sueur. Le danger qu'il avait ressenti à l'instant n'avait aucun précédent. Sans la puissance des dieux anciens, il serait mort sur-le-champ.
 
 Une trace de froideur apparut dans le regard de Wang Lin lorsqu'il fixa la femme en blanc.
 
@@ -136,7 +136,7 @@ C'était comme si la grotte entière résidait dans son esprit. Par une simple p
 
 Il vit Situ Nan, Maître Fu Fengzi et leur compagnie, qui avaient disparu sous la mer de fleurs.
 
-D'une pensée, Maître Fu Fengzi, les trois frères Chen, Da Tou et Lei Ji disparurent. Situ Nan resta là, le sourcil froncé. Depuis que Wang Lin était entré dans le palais, il était sur ses gardes, et une lueur froide traversa ses yeux.
+D'une pensée, Maître Fu Fengzi, les trois frères Chen, Da Tou et Lei Ji disparurent. Au loin, Situ Nan resta là, le sourcil froncé. Depuis que Wang Lin était entré dans le palais, il était sur ses gardes, et une lueur froide traversa ses yeux.
 
 À cet instant précis, l'expression de Situ Nan changea lorsqu'il sentit un Sens Divin passer près de lui. Ce Sens Divin lui était très familier.
 

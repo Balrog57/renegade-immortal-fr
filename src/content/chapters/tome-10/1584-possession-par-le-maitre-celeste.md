@@ -52,7 +52,7 @@ Wang Lin laissa échapper un rugissement de douleur, mais celui-ci s'affaiblit p
 
 Cependant, alors qu'il s'élevait dans les airs, la main gauche de Wang Lin traça un sceau et pointa vers le Champ de Bataille Extérieur, situé dans la 18e couche du Clan du Tatouage.
 
-À ce geste répondit le frémissement d'innombrables âmes errantes au sein du Champ de Bataille Extérieur. Wang Lin ayant été autrefois un dévoreur d'âmes, il possédait un contrôle absolu sur ces entités.
+À ce geste répondit le frémissement d'innombrables âmes errantes au sein du Champ de Bataille Extérieur. Wang Lin ayant été autrefois un dévoreur d'âmes, il possédait un contrôle extrême sur ces entités.
 
 Les innombrables âmes errantes dans la projection du Champ de Bataille Extérieur commencèrent à entrer en rage. En balayant la zone comme une tempête, elles rassemblèrent encore plus d'âmes.
 
@@ -72,7 +72,7 @@ Toutefois, son niveau de culture étant bien supérieur à celui de Wang Lin, il
 
 « Ce massacre touche à sa fin... » La voix antique du Maître Céleste Dieu du Vide s'échappa de la bouche de Wang Lin. Il tourna son regard vers les deux concubines impériales célestes et l'homme en blanc qui sortaient de la glace.
 
-Mais avant qu'il n'ait pu achever sa phrase, la planète Suzaku derrière lui trembla et explosa soudainement. Un fracas assourdissant déchira le monde alors que la planète volait en éclats. Une tempête noire monstrueuse jaillit de la planète en ruines et enveloppa l'univers.
+Mais avant qu'il n'ait pu achever sa phrase, la planète Suzaku derrière lui trembla et explosa soudainement. Un fracas assourdissant déchira le monde alors que la planète volait en éclats. Une tempête noire monstrueuse jaillit de la planète en ruines et enveloppa ce monde.
 
 L'expression du Maître Céleste Dieu du Vide changea et ses pupilles se contractèrent lorsqu'il se retourna. Mais il était trop tard pour fuir. La tempête d'âmes errantes surgissait de la planète Suzaku et fondait sur lui à une vitesse inimaginable.
 
@@ -84,7 +84,7 @@ Le corps de Wang Lin trembla et s'effondra à nouveau. Cet effondrement se propa
 
 D'immenses nuages de brume se dispersèrent tandis que les âmes errantes faisaient rage. Le phénomène perdura jusqu'à ce que la brume se reforme pour reconstituer le corps du Maître Céleste Dieu du Vide!
 
-Ses yeux étaient empreints de regret lorsqu'il poussa un rugissement et chargea à nouveau. Simultanément, la concubine impériale céleste presque couverte par la Lune Sombre afficha un regard glacial et fit un pas en avant. L'homme en blanc s'approcha également, chargé d'une puissante intention meurtrière.
+Ses yeux étaient emplis de dépit lorsqu'il poussa un rugissement et chargea à nouveau. Simultanément, la concubine impériale céleste presque couverte par la Lune Sombre afficha un regard glacial et fit un pas en avant. L'homme en blanc s'approcha également, chargé d'une puissante intention meurtrière.
 
 Cependant, à cet instant précis, le corps de Wang Lin se reforma grâce aux innombrables âmes errantes. Désormais, il ne s'effondrerait plus pendant un certain temps. Ses yeux brillèrent intensément alors qu'il fixait le Maître Céleste Dieu du Vide qui fonçait sur lui.
 
@@ -94,7 +94,7 @@ Peu après, la main droite de Wang Lin saisit la corde et la tira en arrière. E
 
 Son corps était tendu comme un arc. Une lueur de froideur passa dans ses yeux, désormais emplis d'une intention meurtrière monstrueuse.
 
-Au moment où il banda la corde, une flèche à pointe arrondie apparut. Le corps de la flèche était couvert de runes complexes, et l'on pouvait y entendre les hurlements stridents de Nan Zhao et Tian Zhao.
+Au moment où il banda la corde, une flèche à la pointe en forme d'anneau apparut. Le corps de la flèche était couvert de runes complexes, et l'on pouvait y entendre les hurlements stridents de Nan Zhao et Tian Zhao.
 
 Des décharges d'énergie de flèche enveloppèrent les environs et une aura antique se propagea. Cela fit changer radicalement l'expression du Maître Céleste Dieu du Vide, dont le corps se mit à trembler!
 

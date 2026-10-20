@@ -40,7 +40,7 @@ Pour la première fois, Wang Lin laissa paraître un soupçon de choc, mais celu
 
 Il fixa le symbole, puis son regard se porta sur le pinceau. L'excitation dans ses yeux se transforma en une joie indicible!
 
-Wang Lin n'était pas étranger à ce symbole. Il était exactement le même que celui qu'il avait rencontré sur le sentier devant la grotte.
+Wang Lin n'était pas étranger à ce symbole. Il était exactement le même que celui qu'il avait rencontré sur le Chemin du Dragon Sacré, devant la grotte.
 
 Il l'avait étudié et dessiné de nombreuses fois, mais sans jamais en voir la puissance. Il n'avait jamais réussi à reproduire la force incroyable de ce symbole à quatre traits, et il en éprouvait toujours un regret profond.
 
@@ -72,7 +72,7 @@ Il avait peur de la mort!
 
 Cependant, il finit par oublier cette prudence après avoir rassemblé dix gardiens célestes. Il commença à agir personnellement pour capturer davantage de cultivateurs afin de les fusionner avec les jades brisés, espérant ainsi cultiver des experts du niveau des gardiens célestes.
 
-« Quel est le pedigree de ce maudit Wang Lin? Comment peut-il être aussi puissant?! Bon sang, si je m'échappe cette fois, j'irai briser la tête du cultivateur de la Cité de l'Ancien Démon qui m'a donné des nouvelles de lui! » lança le vieil homme dans sa fuite, maudissant intérieurement.
+« Quelles sont les origines de ce maudit Wang Lin? Comment peut-il être aussi puissant?! Bon sang, si je m'échappe cette fois, j'irai briser la tête du cultivateur de la Cité de l'Ancien Démon qui m'a donné des nouvelles de lui! » lança le vieil homme dans sa fuite, maudissant intérieurement.
 
 Les yeux de Wang Lin étaient embrasés par la passion. Même s'il devait épuiser toute l'énergie spirituelle céleste de son corps, il ne laisserait pas ce vieil homme s'échapper. Ses yeux étaient d'un rouge éclatant; non pas à cause du massacre, mais à cause du trésor que tenait l'homme.
 
@@ -98,7 +98,7 @@ Wang Lin eut un ricanement et se téléporta. Il déploya son Sens Divin et loca
 
 Le feu disparut du corps du vieil homme qui s'élança aussitôt. Une expression d'amertume envahit son visage lorsque la silhouette de Wang Lin surgit du vide devant lui pour charger.
 
-L'homme hésita un instant. Il serra les dents et lança le pinceau qu'il tenait. Le pinceau flotta dans l'air tandis que des ondulations se propageaient autour de lui, comme s'il était sur le point de percer le vide pour disparaître.
+L'homme hésita un instant. Il serra les dents et lança le pinceau qu'il tenait. Le pinceau tomba dans le vide tandis que des ondulations se propageaient autour de lui, comme s'il perçait le néant pour disparaître.
 
 Après avoir jeté son pinceau, le vieil homme forma rapidement un sceau. Une aura métallique enveloppa instantanément tout son corps. Il s'élança alors pour fuir Wang Lin, sa vitesse ayant augmenté de cent fois de manière inattendue!
 
@@ -108,7 +108,7 @@ L'expression de Wang Lin resta impassible tandis que sa main droite effleurait s
 
 La lame noire fulgura et disparut, emportant Xu Liguo directement dans le vide.
 
-Wang Lin fit un pas et activa un sort de téléportation supérieur pour poursuivre le vieil homme.
+Wang Lin fit un pas et activa le grand sort de téléportation pour poursuivre le vieil homme.
 
 En s'enfuyant, l'homme remarqua la poursuite de Wang Lin et se mit à pleurer intérieurement: « Lui... Que veut-il?! J'ai déjà jeté mon pinceau céleste, pourquoi ne me laisse-t-il pas partir?! »
 

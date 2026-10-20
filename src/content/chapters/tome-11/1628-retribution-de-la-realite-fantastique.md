@@ -62,7 +62,7 @@ Il y avait ses parents, son quatrième oncle, Wang Zhuo, Zhang Hu, Liu Mei et Li
 
 Alors qu'ils convergeaient, les nuages se remplirent de rugissements et d'appels empreints de douceur qui s'engouffrèrent dans l'esprit de Wang Lin.
 
-Wang Lin médita silencieusement face à ces silhouettes qui approchaient. Il vit ses parents aux cheveux blancs, s'enlaçant et tremblant alors qu'ils avançaient vers lui. Il vit les larmes dans leurs yeux et leurs mains desséchées levées comme pour effleurer son visage.
+Wang Lin resta silencieux face à ces silhouettes qui approchaient. Il vit ses parents aux cheveux blancs, se soutenant mutuellement et tremblant alors qu'ils avançaient vers lui. Il vit les larmes dans leurs yeux et leurs mains desséchées levées comme pour effleurer son visage.
 
 Il vit Li Muwan. Elle avait le regard embué de larmes, mais un sourire chaleureux illuminait son visage. Elle essuya ses pleurs et marcha paisiblement vers lui.
 

@@ -16,7 +16,7 @@ Son corps tremblait. Cette sensation était comparable à celle d'un mortel aval
 
 Li Yuan régla sa respiration et ses yeux s'illuminèrent en observant Wang Lin. À cet instant, l'homme semblait plongé dans une agonie indicible, comme si une flamme dévorait ses entrailles.
 
-Une lueur de férocité passa dans le regard de la femme nommée Ge alors qu'elle fixait Wang Lin. Elle devinait que son état était précaire. D'un geste furtif, elle toucha son sac de rangement, et un poignard noir apparut dans sa main.
+Une lueur de férocité passa dans le regard de la femme nommée Ge alors qu'elle fixait Wang Lin. Elle devinait que son état était précaire, mais hésitait intérieurement. D'un geste furtif, elle toucha son sac de rangement, et un poignard noir apparut dans sa main.
 
 Dès l'apparition de l'arme, d'innombrables spectres surgirent autour d'elle. Ce poignard était un héritage familial hautement toxique: son venin pouvait corroder la chair, et le fantôme scellé en son sein s'avérait extrêmement délétère pour l'âme originelle.
 

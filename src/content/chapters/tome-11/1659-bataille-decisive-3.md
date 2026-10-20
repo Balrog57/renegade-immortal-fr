@@ -42,7 +42,7 @@ Le brouillard issu de son corps se propagea et enveloppa les cultivateurs du Roy
 
 L'intention meurtrière dans les yeux du vieil homme en noir s'intensifia alors qu'il poursuivait Wang Lin.
 
-La brume dans laquelle Wang Lin s'était transformé se rétracta rapidement, emportant avec elle tous les cultivateurs du Royaume Extérieur qu'elle avait englobés. En quelques respirations à peine, plus de dix mille cultivateurs périrent.
+La brume dans laquelle Wang Lin s'était transformé s'étendit rapidement vers l'arrière. En quelques respirations à peine, plus de dix mille cultivateurs périrent.
 
 À cet instant, le vieil homme en noir accéléra encore la cadence. D'un seul pas, il atteignit la brume de Wang Lin. Il leva alors son épée et frappa sans aucune pitié.
 

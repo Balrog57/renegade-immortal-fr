@@ -10,7 +10,7 @@ Peut-être restait-il désormais moins de trois cents mondes détruits. Après t
 
 À cet instant, dans l'un de ces mondes, un vortex apparut et un rayon de lumière en jaillit avant même que celui-ci ne soit pleinement formé. La silhouette émergeant de la clarté portait des vêtements blancs: c'était Wang Lin.
 
-Dès qu'il fut sorti du vortex, il se retourna et leva la main droite. Le bras droit de Ye Mo apparut et déchira le vide derrière lui.
+Dès qu'il fut sorti du vortex, il se retourna et leva la main droite. La puissance du bras droit de Ye Mo se concentra et déchira le vide derrière lui.
 
 Le vide fut lacéré, fendant le vortex en deux et provoquant son effondrement immédiat.
 
@@ -18,7 +18,7 @@ Tout cela se produisit en un éclair. Wang Lin s'engouffra dans la faille créé
 
 L'instant après sa disparition, un grognement froid retentit dans le vide. Des grondements tonnants résonnèrent tandis que le Daoïste aux Sept Couleurs sortait du vortex effondré.
 
-Son regard était glacial et son visage empreint d'une profonde mélancolie. Si Wang Lin n'avait pas réagi si promptement en utilisant la destruction du vortex pour le ralentir, il n'aurait pu s'échapper aussi calmement; il aurait été capturé par le Daoïste aux Sept Couleurs.
+Son regard était glacial et son visage extrêmement sombre. Si Wang Lin n'avait pas réagi si promptement en utilisant la destruction du vortex pour le ralentir, il n'aurait pu s'échapper aussi calmement; il aurait été capturé par le Daoïste aux Sept Couleurs.
 
 La chasse se poursuivit. Wang Lin utilisait divers sorts pour voyager d'un monde à l'autre, tandis que le Daoïste aux Sept Couleurs le suivait de près. La moindre erreur de la part de Wang Lin signifierait sa capture.
 

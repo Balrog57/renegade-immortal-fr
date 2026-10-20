@@ -18,7 +18,7 @@ Des éclats de lumière aux sept couleurs jaillirent de la brèche dans le ciel.
 
 Une à une, des illusions apparurent soudainement et se mirent à danser dans les cieux. L'une d'elles trônait au centre. Cette illusion portait une robe dorée et dégageait une quantité monstrueuse d'énergie spirituelle céleste. Bien qu'il ne s'agisse que d'une image, une pression céleste écrasante émanait de son corps.
 
-Flottant dans les airs, elle regarda vers le bas, et son regard se posa sur les plus de 10 000 disciples de la Secte de l'Épée Da Luo. Elle n'ouvrit pas la bouche, mais une voix puissante fit vibrer le ciel.
+Flottant dans les airs, il regarda vers le bas, et son regard se posa sur les plus de 10 000 disciples de la Secte de l'Épée Da Luo. Il n'ouvrit pas la bouche, mais une voix puissante fit vibrer le ciel.
 
 « Je suis le corps illusionnaire du messager éternel du Royaume Céleste. Je suis venu pour guider les cultivateurs du royaume inférieur! » Cette phrase semblait avoir été prononcée d'innombrables fois. Le messager abaissa alors une main immense. À cet instant, l'espace où flottaient les disciples de la Secte de l'Épée Da Luo trembla, puis fut scellé par une lumière dorée!
 
@@ -62,7 +62,7 @@ Wang Lin leva les yeux vers le ciel et commença à méditer. Ce sortilège cél
 
 La scène créée par le Sortilège de Guidance Céleste n'avait manifestement pas été générée par l'Omniscient. En vérité, ce sort était une existence éternelle. Il suffisait de connaître la méthode pour ouvrir le passage et d'avoir les qualifications requises pour l'utiliser. Quiconque remplissait ces deux conditions pouvait l'employer n'importe où pour emmener ceux qu'il souhaitait guider vers le Royaume Céleste.
 
-Après avoir démontré ce sort, l'Omniscient ne déclara pas la fin de cette séance d'enseignement du Dao. Au lieu de cela, ses yeux brillèrent d'une lueur mystérieuse et il dit lentement: « Aujourd'hui, outre la célébration de mon anniversaire, je souhaite que mes compagnons cultivateurs soient témoins. Je possède au total sept divisions de disciples, et seules les Divisions Jaune et Violette n'ont aucun détenteur du titre de véritable disciple. Aujourd'hui est le jour où les véritables disciples de ces deux divisions seront choisis! »
+Après avoir démontré ce sort, l'Omniscient ne déclara pas la fin de cette séance d'enseignement du Dao. Au lieu de cela, ses yeux brillèrent d'une lueur mystérieuse et il dit lentement: « Aujourd'hui, outre la célébration de mon anniversaire, je souhaite que mes compagnons cultivateurs soient témoins. Je possède au total sept divisions de disciples, et seules les Divisions Jaune et Pourpre n'ont aucun détenteur du titre de véritable disciple. Aujourd'hui est le jour où les véritables disciples de ces deux divisions seront choisis! »
 
 À ces mots, les regards des cultivateurs environnants se tournèrent vers les Divisions Jaune et Violette. Cependant, la plupart fixaient la Division Jaune; peu s'intéressaient à la Division Pourpre.
 
@@ -76,9 +76,9 @@ Après elle, les autres disciples de la Division Jaune sortirent également un �
 
 Parmi les deux restants, Wang Lin n'avait qu'un vague souvenir de l'un d'eux: celui qui avait reçu l'épée de l'Omniscient plus tôt, Kunpeng Zi!
 
-À côté de Kunpeng Zi se tenait un vieil homme. Son visage était sillonné de rides et son apparence était extrêmement singulière. Bien qu'il portât une robe jaune, il ressemblait à un singe décharné.
+À côté de Kunpeng Zi se tenait un vieil homme. Son visage était sillonné de rides et son apparence n'avait rien de remarquable. Bien qu'il portât une robe jaune, il ressemblait à un singe décharné.
 
-C'était Yundao Zi, le plus ancien disciple de la Division Jaune; il avait détenu le titre de véritable disciple pendant huit cents ans avant que leur Troisième Frère ne le lui ravisse. Cependant, cet homme n'avait aucun esprit de compétition et menait une vie très paisible.
+C'était Yundao Zi, le plus ancien disciple de la Division Jaune; il avait détenu le titre de véritable disciple pendant plus de huit cents ans avant que leur Troisième Frère ne le lui ravisse. Cependant, cet homme n'avait aucun esprit de compétition et menait une vie très paisible.
 
 À ce moment, il regarda l'Omniscient, fit un pas en avant et dit respectueusement: « Ce disciple renonce également. La personne la plus apte à recevoir le titre de véritable disciple de la Division Jaune est le Deuxième Frère, qui a reçu le trésor céleste du Maître. »
 
@@ -88,11 +88,11 @@ L'Omniscient cria alors: « Kunpeng Zi! »
 
 « Disciple est présent! » Le corps de Kunpeng Zi trembla tandis qu'il avançait rapidement pour se tenir droit.
 
-« Tu es le véritable disciple de la Division Jaune. Si tu parviens à maintenir ce titre pendant mille ans, je t'enseignerai un sort céleste de qualité inférieure. Les Sept Disciples du Destin Céleste ne sont pas de simples êtres; ils sont le symbole de ma Secte du Destin Céleste et les véritables disciples de la secte. Sauras-tu honorer ce titre? » La voix de l'Omniscient était empreinte de majesté.
+« Tu es le véritable disciple de la Division Jaune. Si tu parviens à maintenir ce titre pendant mille ans, je t'enseignerai l'intégralité d'un sort céleste de qualité inférieure. Les Sept Disciples du Destin Céleste ne sont pas de simples êtres; ils sont le symbole de ma Secte du Destin Céleste et les véritables disciples de la secte. Sauras-tu honorer ce titre? » La voix de l'Omniscient était empreinte de majesté.
 
 Les cultivateurs environnants ne réagirent guère, mais la bouche du Saint de l'Épée Ling Tianhou s'agita. Il afficha un air de dédain, comme pour dire: « Les Sept Disciples du Destin Céleste... hmph... »
 
-Kunpeng Zi s'agenouilla dans les airs et s'inclina devant l'Omniscient. « Disciple se souviendra des paroles du Maître! »
+Kunpeng Zi s'agenouilla dans les airs et se prosterna devant l'Omniscient. « Disciple se souviendra des paroles du Maître! »
 
 L'Omniscient hocha la tête, puis pointa l'espace entre ses sourcils. Une lumière jaune jaillit, faisant briller intensément les yeux de l'Omniscient. Bientôt, un cristal jaune apparut dans sa main.
 

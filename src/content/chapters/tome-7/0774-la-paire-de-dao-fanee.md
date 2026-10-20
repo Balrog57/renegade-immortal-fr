@@ -84,13 +84,13 @@ Un instant plus tard, un tatouage en forme d'os de bête apparut sur le dos de l
 
 Il ne retira pas le brouillard originel et regarda Li Yuan. La plupart des blessures de ce dernier avaient guéri et son âme originelle absorbait l'énergie pour sa percée finale. Wang Lin ne savait pas si Li Yuan réussirait.
 
-En attendant le réveil de Li Yuan, Wang Lin ouvrit les sacs des trois personnes qu'il avait tuées. Le sac de la femme contenait quelques objets, mais rien qui n'attirât son attention. Après avoir retiré les jades célestes, Wang Lin les mit de côté.
+En attendant le réveil de Li Yuan, Wang Lin ouvrit les sacs des trois personnes qu'il avait tuées. Le sac de la femme contenait quelques objets, mais rien qui n'attirât son attention. Après avoir retiré les jades célestes, Wang Lin jeta le sac à l'écart.
 
 Quant au sac de rangement du Jeune Maître Yao, il contenait également divers objets. Après inspection, les yeux de Wang Lin se plissèrent et se fixèrent sur un article précis.
 
 C'était un talisman en papier!
 
-Comparé à cela, le reste n'avait aucune importance. C'était le deuxième talisman de ce genre qu'il trouvait depuis son arrivée dans le Système Solaire Luotian.
+Comparé à cela, le reste n'avait aucune importance. C'était le deuxième talisman de ce genre qu'il trouvait depuis son arrivée dans le Système Stellaire de Luotian.
 
 Après réflexion, Wang Lin frappa son propre sac de rangement et l'autre talisman apparut dans sa main. Les deux étaient de taille similaire, mais les symboles tracés dessus différaient.
 
@@ -100,21 +100,21 @@ Avec son niveau de culture précédent, il n'aurait pas pu les remarquer.
 
 « Intéressant. Cet objet pourrait-il lui aussi être un trésor?! » Wang Lin réfléchit silencieusement avant de ranger les talismans. Il avait le pressentiment qu'ils n'étaient pas ordinaires.
 
-Lorsqu'il prit le dernier sac de rangement, ses yeux s'illuminèrent et il murmura: « L'esprit du vieil homme était confus, mais son objectif dans le Royaume Céleste du Tonnerre était très clair. Il comptait emmener le jeune maître de la famille Yao à la Galerie des Collections pour obtenir un sort céleste! »
+Lorsqu'il prit le dernier sac de rangement, ses yeux s'illuminèrent et il murmura: « L'esprit du vieil homme était confus, mais son objectif dans le Royaume Céleste du Tonnerre était très clair. Il comptait emmener le jeune maître de la famille Yao au Pavillon des Collections pour obtenir un sort céleste! »
 
-Wang Lin avait appris des souvenirs du vieillard qu'il existait un fragment scellé par les forces combinées des quatre familles du Système Solaire Luotian, possédant des héritages du Royaume Céleste.
+Wang Lin avait appris des souvenirs du vieillard qu'il existait un fragment scellé il y a d'innombrables années par les forces combinées des quatre familles du Système Stellaire de Luotian, possédant des héritages du Royaume Céleste.
 
-Sur ce fragment scellé se trouvait la Galerie des Collections. Elle renfermait des sorts célestes qui étaient encore parfaitement conservés.
+Sur ce fragment scellé se trouvait le Pavillon des Collections. Il renfermait des sorts célestes qui étaient encore parfaitement conservés.
 
-Cependant, cette Galerie avait été créée par l'ancien Empereur Céleste du Royaume Céleste du Tonnerre et ses subordonnés. La galerie possédait ses propres règles, et l'obtention d'un sort dépendait uniquement de la chance.
+Cependant, ce Pavillon avait été créé par l'ancien Empereur Céleste du Royaume Céleste du Tonnerre et ses subordonnés. Le Pavillon possédait ses propres règles, et l'obtention d'un sort dépendait uniquement de la chance.
 
 Les quatre grandes familles détentrices des héritages célestes ne pouvaient briser ces règles. Elles ne pouvaient que sceller le fragment et l'ouvrir périodiquement pour permettre à leurs membres de tenter leur chance.
 
-Pendant très longtemps, cette Galerie fut un lieu exclusif aux quatre grandes familles; aucun étranger n'y était admis.
+Pendant très longtemps, ce Pavillon fut un lieu exclusif aux quatre grandes familles; aucun étranger n'y était admis.
 
 La famille Yao n'avait pas envoyé une seule équipe dans le Royaume Céleste du Tonnerre, mais dix groupes!
 
-« La Galerie des Collections... » Les yeux de Wang Lin brillèrent.
+« Le Pavillon des Collections... » Les yeux de Wang Lin brillèrent.
 
 À ce moment précis, la respiration de Li Yuan devint saccadée et il ouvrit lentement les yeux. Il regarda devant lui et soupira: « Merci, Frère Xu, mais il semble que je ne sois pas destiné à atteindre le stade Yin Illusoire. Mon âme originelle n'a pas pu supporter une telle quantité d'énergie originelle. »
 

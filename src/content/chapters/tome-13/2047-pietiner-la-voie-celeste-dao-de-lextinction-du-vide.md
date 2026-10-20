@@ -18,7 +18,7 @@ Les yeux du Prince Ji Du brillèrent d'une lueur étrange tandis qu'il sentait u
 
 Bien que ces deux corps véritables fussent identiques en apparence, l'aura qu'ils dégageaient était radicalement différente.
 
-Le corps des cinq éléments représentait la vie de culture de Wang Lin; il imposait une pression douce mais puissante, celle d'un être suprême.
+Le corps des cinq éléments représentait la vie de culture de Wang Lin; il imposait une pression douce mais puissante, celle d'un puissant.
 
 Le corps d'essence de massacre représentait sa vie de carnage; il glaçait le cœur et interdisait à quiconque de s'en approcher.
 
@@ -44,7 +44,7 @@ Regardant le corps d'essence de massacre aux cheveux noirs, Wang Lin serra les d
 
 En un clin d'œil, le corps d'essence de massacre atteignit Wang Lin. Il ne s'arrêta que lorsqu'il commença à se superposer à lui. Les deux formes fusionnèrent et entamèrent une lente symbiose.
 
-Au fil de la fusion, la confusion s'installa dans les yeux de Wang Lin. Simultanément, son niveau de culture grimpa à une vitesse indescriptible et le monde changea de couleur. Sa culture semblait avoir brisé un goulot d'étranglement pour gravir rapidement vers un royaume mystérieux.
+Au fil de la fusion, la confusion s'installa dans les yeux de Wang Lin. Simultanément, son niveau de culture grimpa à une vitesse indescriptible et le monde se transforma autour de lui. Sa culture semblait avoir brisé un goulot d'étranglement pour gravir rapidement vers un royaume mystérieux.
 
 Durant ce processus, son niveau dépassa instantanément le stade de l'Exalté Empyréen pour atteindre bientôt celui de l'Ascendant Empyréen.
 

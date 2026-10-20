@@ -88,7 +88,7 @@ Sans un mot, Papillon Rouge pressa son front et la rose réapparut. Elle arracha
 
 Bang! Bang!
 
-Deux explosions assourdissantes se produisirent, repoussant la vague rouge. Papillon Rouge sentit une amertume monter dans sa gorge alors qu'elle crachait une importante quantité de sang.
+Deux explosions assourdissantes se produisirent, repoussant la vague rouge. Papillon Rouge sentit un goût sucré lui monter dans la gorge alors qu'elle crachait une importante quantité de sang.
 
 Grâce à la puissance de l'explosion, Chi Hu parvint à diriger la boussole hors de l'aura, mais ils n'étaient pas encore hors de danger. L'ouverture créée par le pétale de rose ressemblait désormais à une gueule béante s'apprêtant à engloutir la boussole.
 

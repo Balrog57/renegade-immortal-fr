@@ -12,7 +12,7 @@ Bien qu'il paraisse calme, de puissantes ondes s'agitaient dans son cœur.
 
 « Le sommet du Royaume Ji correspond au stade de l'Âme Naissante. La personne que j'ai rencontrée, Na Duo, était originaire de la planète des Cinq Éléments. Elle possédait le Royaume Ji et affirmait que c'était un don d'un ami défunt. En plus d'elle, c'est la deuxième fois que je rencontre le Royaume Ji! » Wang Lin commença à réfléchir tout en survolant de nombreux fragments à travers le vide, en direction du centre du royaume céleste.
 
-« Serait-il possible... qu'il existe réellement un moyen de faire évoluer le Royaume Ji...? » Le cœur de Wang Lin rata un battement et sa bouche se dessécha. Ces quelques centaines d'années passées au sein du Royaume Ji lui avaient permis de comprendre profondément la nature de ce pouvoir incroyable.
+« Serait-il possible... qu'il existe réellement un moyen de faire évoluer le Royaume Ji...? » Le cœur de Wang Lin s'emballa et sa bouche se dessécha. Ces quelques centaines d'années passées au sein du Royaume Ji lui avaient permis de comprendre profondément la nature de ce pouvoir incroyable.
 
 « Ji, Dao, Shi... » Wang Lin commença à méditer. Il en savait trop peu pour pouvoir tout analyser. Il poussa un soupir et cessa d'y songer pour concentrer son esprit sur le Pavillon des Collections.
 

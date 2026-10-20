@@ -12,7 +12,7 @@ Il avait fait preuve d'une grande prudence tout ce temps. Il n'agissait que lors
 
 Maintenant qu'il avait coupé la voie de retraite du vieil homme, il savait que celui-ci était furieux. Bien que le vieil homme fût alors à son point le plus faible, Wang Lin savait aussi que son propre niveau de culture était bien trop bas. Sans la vitesse de la boussole stellaire, il serait déjà devenu la marionnette tatouée du vieil homme.
 
-Peu importe la faiblesse d'un shaman aux sept feuilles — qui possédait une puissance comparable à celle d'un cultivateur de la Transformation de l'Âme —, il aurait toujours eu la capacité de tuer Wang Lin. Ce dernier ne croyait pas avoir, de lui-même, le pouvoir de tuer le vieil homme.
+Peu importe la faiblesse d'un chaman aux sept feuilles — qui possédait une puissance comparable à celle d'un cultivateur de la Transformation de l'Âme —, il aurait toujours eu la capacité de tuer Wang Lin. Ce dernier ne croyait pas avoir, de lui-même, le pouvoir de tuer le vieil homme.
 
 Peu après son départ, le vieil homme ouvrit soudainement les yeux à l'intérieur de la plante. Une lumière rouge jaillit de son regard alors qu'il scrutait la direction de Wang Lin. Sentant que celui-ci s'éloignait rapidement, il soupira: « Malheureusement, ce gamin est trop prudent... S'il était venu, j'aurais pu le tuer à coup sûr. »
 
@@ -34,7 +34,7 @@ Wang Lin laissa échapper un cri bref et afficha une expression de douleur. Les 
 
 La plante mystérieuse réapparut. La perle défiant le ciel brilla d'une lueur verte et commença à l'absorber.
 
-Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Ce sort du Clan des Immortels Délaissés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
+Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Enfin, toutes les plantes tatouées ont été expulsées. Ce sort du Clan des Immortels Délaissés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
 
 Il saisit la perle défiant le ciel pour l'examiner. Neuf feuilles s'étaient pleinement formées et la dixième était partiellement achevée.
 
@@ -98,7 +98,7 @@ L'épée volante fonça vers le poing du corps original. Ce dernier resta impass
 
 L'épée se fendit instantanément en deux avant de voler en éclats. Simultanément, le domaine d'un cultivateur de la Formation de l'Âme jaillit de l'épée pour envahir le corps original.
 
-Les yeux du corps original s'illuminèrent. En tant que Dieu Ancien, il ne possédait pas de domaine, mais il détenait une intention meurtrière surpuissante. Sa chevelure rousse s'agita et une lumière rouge sang irradia de son corps. Le domaine du vieil homme ne put résister à une seule attaque et s'effondra.
+Les yeux du corps original s'illuminèrent. En tant que Dieu Ancien, il ne possédait pas de domaine, mais il détenait une intention meurtrière surpuissante. Sa chevelure rousse s'agita et une lumière rouge sang irradia de son corps. Le domaine du vieil homme, aussitôt fragilisé, s'effondra à l'intérieur même du corps original.
 
 Le poing du corps original arriva de nouveau.
 
@@ -120,7 +120,7 @@ La femme au voile blanc frappa rapidement son sac de rangement et un rayon de lu
 
 Après avoir saisi l'arme, le vieillard attrapa la femme et se mordit la langue pour projeter un jet de sang sur le sabre brisé.
 
-À cet instant, le poing du corps original atteignit sa cible: la tête du vieil homme. Ce dernier poussa un rugissement de panique et envoya le sabre pour parer l'attaque.
+À cet instant, le poing du corps original se dirigea vers sa cible: la tête du vieil homme. Ce dernier poussa un rugissement de panique et envoya le sabre pour parer l'attaque.
 
 Bang!
 

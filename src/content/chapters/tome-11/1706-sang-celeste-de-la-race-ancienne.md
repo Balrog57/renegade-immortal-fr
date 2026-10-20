@@ -84,7 +84,7 @@ La troisième épreuve des clans anciens, où les trois viendraient à la fois!
 
 Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Ancien! Et quant à la troisième, c'était la plus redoutable des calamités affrontées par les Êtres Anciens: la Bénédiction de l'Ancêtre Ancien!
 
-Wang Lin ne connaissait pas tous les détails. Bien qu'il ait reçu l'héritage de Ye Mo, ses souvenirs étaient limités. Il savait seulement que pour affronter les deux dernières calamités, il devrait se rendre au temple ancien du Pays Ancien sur le Continent Astral Immortel.
+Wang Lin ne connaissait pas tous les détails. Bien qu'il ait reçu l'héritage de Ye Mo, ses souvenirs étaient limités. Il savait seulement que pour affronter les deux dernières calamités, surtout la dernière, il devrait se rendre au temple ancien du Pays Ancien sur le Continent Astral Immortel.
 
 Chaque fois qu'un membre du Pays Ancien atteignait la dernière calamité, un événement grandiose était organisé dans tout le pays. Une cérémonie solennelle avait lieu! L'Ancien Dao Ye Mo avait traversé la dernière calamité dans le temple ancien. Il avait ensuite obtenu le titre d'Ancien Dao et était devenu l'un des piliers du Pays Ancien, admiré par cent millions de personnes. Même les célestes accordaient une importance capitale à cette ultime épreuve des clans anciens.
 

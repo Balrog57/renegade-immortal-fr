@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 71 - Four Years
 slug: quatre-ans
 ---
-Avec son niveau de culture actuel, Wang Lin n'avait plus besoin de dormir. Après être resté allongé un moment sur son lit, il se redressa et observa la lune par la fenêtre. D'un geste de la main droite, il sortit une calebasse et en prit une longue gorgée.
+Avec son niveau de culture actuel, Wang Lin n'avait plus besoin de dormir. Allongé sur son lit, il se redressa et observa la lune par la fenêtre. D'un geste de la main droite, il sortit une calebasse et en prit une longue gorgée.
 
 Wang Lin marmonna pour lui-même: « La quantité d'énergie spirituelle nécessaire pour passer de la Condensation de Qi à l'Établissement des Fondations est tout simplement colossale. Il est temps de commencer à collecter la rosée. »
 
@@ -34,7 +34,7 @@ Quant à Huang Long et aux autres, ils n'avaient guère eu de contacts approfond
 
 Durant la première année de la réclusion de Wang Lin, il garda des contacts réguliers avec Zhou Peng. Il apprit ainsi que tous les cultivateurs de la Secte Xuan Dao au stade de l'Établissement des Fondations et au-delà s'étaient retirés dans la montagne arrière, si bien que nul n'avait remarqué l'anomalie de Zhou Peng. Grâce au statut de disciple principal de Zhou Peng, personne n'osait s'en prendre à lui au sein de la secte, ce qui facilita ses recherches. Zhou Peng élimina en secret plusieurs anciens disciples de la Secte Heng Yue qui avaient leurs propres idées, et le souvenir de Wang Lin disparut peu à peu de toutes les mémoires.
 
-L'entrée de la grotte où Wang Lin cultivait était désormais recouverte de végétation, rendant l'endroit indétectable.
+L'entrée de la grotte où Wang Lin cultivait était désormais recouverte de végétation, rendant l'endroit très difficile à repérer, même de près.
 
 Au cours de ces quatre ans, les lieux devinrent un rassemblement de bêtes sauvages des montagnes ; même quelques bêtes rares et singulières y rôdaient souvent, inspirant et expirant face à la grotte.
 
@@ -44,7 +44,7 @@ Un jour, deux traînées de lumière arc-en-ciel volèrent vers la grotte. Deux 
 
 Si Wang Lin avait vu cette jeune fille, il l'aurait trouvée très familière. C'était la jeune femme nommée Xu qui éprouvait des sentiments secrets pour Wang Zhuo. Elle était passée du statut de jolie adolescente à celui de femme magnifique.
 
-L'homme d'âge mûr semblait perdu dans ses pensées. Reprenant soudainement ses esprits, il dit: « Petite sœur, travaille dur et efforce-toi d'intégrer les montagnes arrières. Une fois que je t'aurai aidée à capturer cette bête de cristal d'encre, je devrai moi aussi entrer en culture fermée pour un temps. »
+L'homme d'âge mûr semblait perdu dans ses pensées. Après un long moment, il reprit ses esprits et dit: « Petite sœur, travaille dur et efforce-toi d'intégrer les montagnes arrières. Une fois que je t'aurai aidée à capturer cette bête de cristal d'encre, je devrai moi aussi entrer en culture fermée pour un temps. »
 
 Un autre adolescent se tenait près de la jeune fille. Âgé d'environ huit ou neuf ans, il s'agrippait fermement à elle, le petit visage livide, et s'exclama: « Frère et sœur aînés, vous volez trop vite! Je n'arrive même pas à garder les yeux ouverts. Puisque nous sommes déjà là, descendons! »
 

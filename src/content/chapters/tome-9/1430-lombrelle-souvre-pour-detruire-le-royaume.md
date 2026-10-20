@@ -64,7 +64,7 @@ Ou alors, il pourrait choisir son plan de secours: quitter le Royaume Extérieur
 
 Cependant, c'était en ce moment même la meilleure opportunité pour blesser gravement ou tuer le Souverain. S'il manquait cette chance, il n'en aurait plus jamais!
 
-Wang Lin avait passé sa vie à chercher l'avantage dans les situations périlleuses; comment pourrait-il laisser passer cela? Il voulait accomplir quelque chose d'historique dans le Royaume Extérieur, après avoir anéanti le clan Tonnerre Dispersé, qui ébranlerait tout le Système Stellaire Antique!
+Wang Lin avait passé sa vie à chercher l'avantage dans les situations périlleuses; comment pourrait-il laisser passer cela? Il voulait accomplir quelque chose d'historique dans le Royaume Extérieur, après avoir anéanti le Clan du Tonnerre Dispersé, qui ébranlerait tout le Système Stellaire Antique!
 
 Tuer le Souverain!
 

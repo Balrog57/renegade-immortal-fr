@@ -16,7 +16,7 @@ Wang Lin se souvint que, pendant la bataille, tous trois n'avaient pas été aff
 
 L'expression de Wang Lin resta calme alors qu'il ouvrait les yeux et avançait d'un pas. Des ondulations apparurent sous ses pieds et il disparut.
 
-« Le sort céleste "Effondrement de la Montagne" était extrêmement puissant. Bien que je m'attendais à ce que les trois derniers sorts de l'Empereur Céleste Bai Fan soient plus merveilleux que les trois premiers, cet Effondrement de la Montagne dépassait mon imagination... Effondrement de la Montagne, Effondrement de la Montagne... quelle compréhension l'Empereur Céleste Bai Fan a-t-il dû avoir pour créer un sort aussi dévastateur... Je ne sais même pas quand je serai capable de créer mon propre sort... »
+« Le sort céleste "Effondrement des Montagnes" était extrêmement puissant. Bien que je m'attendais à ce que les trois derniers sorts de l'Empereur Céleste Bai Fan soient plus merveilleux que les trois premiers, cet Effondrement des Montagnes dépassait mon imagination... Effondrement des Montagnes, Effondrement des Montagnes... quelle compréhension l'Empereur Céleste Bai Fan a-t-il dû avoir pour créer un sort aussi dévastateur... Je ne sais même pas quand je serai capable de créer mon propre sort... »
 
 Un rocher flottait lentement loin à l'est de Wang Lin. Ce rocher provenait manifestement d'une planète de culture effondrée. En dérivant, de petits fragments s'en détachaient.
 

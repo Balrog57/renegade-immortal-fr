@@ -28,7 +28,7 @@ Il y avait aussi la vieille femme en vert. Elle s'était également élevée dan
 
 Par ailleurs, en raison du feu et du tonnerre, le brouillard qui entourait Maître Nuage-Âme dans la vallée s'était contracté. Les bêtes féroces à l'intérieur tremblaient et se terrèrent, lui permettant enfin de s'échapper. Dès qu'il fut hors de danger, il ressentit immédiatement les puissantes vibrations du Royaume aux Sept Couleurs. Il percevait clairement l'énergie originelle et le tonnerre, mais ce qui fit chuter son cœur fut de déceler distinctement l'aura de Wang Lin...
 
-La collision des deux Empreintes de l'Esprit Guerrier provoqua l'effondrement et la scission du Royaume aux Sept Couleurs. À cet instant, Wang Lin ressentit l'impact et fut repoussé. Il cracha un sang noir et son visage pâlit instantanément. Le tatouage de foudre entre ses sourcils s'affaiblit.
+La collision des deux Empreintes de l'Esprit Guerrier provoqua l'effondrement et la scission du Royaume aux Sept Couleurs. À cet instant, Wang Lin ressentit l'impact et fut repoussé. Il cracha du sang et son visage pâlit instantanément. Le tatouage de foudre entre ses sourcils s'affaiblit.
 
 Cette paume contenait une immense quantité de sa puissance du tonnerre.
 
@@ -62,7 +62,7 @@ Il pressentait que même s'il était prêt à sacrifier davantage de vitalité p
 
 Ce sentiment fut si intense qu'avant même qu'il ne puisse réagir durant sa brève transe, Wang Lin l'avait déjà atteint. Ce dernier n'utilisa aucun sort; il s'appuya sur son corps de Dieu Ancien pour lancer un bombardement physique.
 
-Le corps de Wang Lin dégageait une intention de combat effrénée, telle celle d'un céleste guerrier!
+Le corps de Wang Lin dégageait une intention de combat effrénée, telle celle d'un immortel guerrier!
 
 Le vieil homme aux cheveux blancs recula. Bien que sa condition physique fût inférieure, sa culture étant plus élevée, il utilisa immédiatement des sorts. Les deux combattants s'engagèrent dans un corps-à-corps acharné. Le vieil homme dégainait une multitude de trésors, mais ceux-ci ne firent aucun effet sur Wang Lin. Alors que les grondements résonnaient, le poing de Wang Lin percuta sa cible, suivi d'un balayage du pied droit qui força l'homme à reculer.
 
@@ -94,7 +94,7 @@ En se dissipant, des âmes de Dao s'échappèrent de leurs restes. Elles s'envol
 
 Les Éclairés disparurent également, libérant une immense quantité d'intentions de Dao qui se transformèrent en âmes de Dao pour voler vers l'homme!
 
-Même les bêtes féroces du royaume extérieur qui luttaient dans les flammes s'effondrèrent les unes après les autres. Leurs âmes furent arrachées et aspirées vers le vieil homme!
+Même les bêtes féroces de la périphérie qui luttaient dans les flammes s'effondrèrent les unes après les autres. Leurs âmes furent arrachées et aspirées vers le vieil homme!
 
 « J'emprunte la puissance de l'Antiquité pour disperser le Dao qu'il a cultivé! »
 

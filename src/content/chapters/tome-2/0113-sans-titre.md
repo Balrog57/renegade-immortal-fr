@@ -62,13 +62,13 @@ Tandis que Xin Hai observait ses huit disciples, l'ancêtre de la Secte Yuan Tia
 
 Xin Hai ricana: « Frère Shangguan, inutile d'être sarcastique. Puisque j'ai perdu mon pari, je ne reviendrai pas sur notre accord. » Sur ces mots, il regarda ses huit disciples et demanda d'un ton lugubre: « Votre frère aîné est mort? »
 
-L'un d'eux s'agenouilla et murmura: « Ils sont tous morts... tous les autres disciples sont morts. »
+L'un d'eux s'agenouilla et murmura: « Ancêtre, ils sont tous morts... tous les autres disciples sont morts. »
 
 Les sept autres se mirent également à genoux, le visage marqué par la terreur.
 
 Shangguan Yun ricana intérieurement, mais afficha une mine compatissante en secouant silencieusement la tête.
 
-Le visage de Xin Hai s'assombrit: « Tant de morts... Bien! Quelle secte les a massacrés? »
+Le visage de Xin Hai s'assombrit, et il ricana: « Tant de morts... Bien! Quelle secte les a massacrés? »
 
 Le premier disciple à genoux hésita. Xin Hai fit un geste de la main et une barrière enveloppa les disciples de la Secte Piao Miao. Shangguan Yun leva la tête, moqueur en pensée.
 

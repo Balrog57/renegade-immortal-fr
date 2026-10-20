@@ -16,7 +16,7 @@ Un tremblement issu des souvenirs gravés dans leurs âmes envahit leur esprit. 
 
 À mesure que le corps de la Bête des Limbes se matérialisait lentement, les dizaines de bêtes féroces battirent en retraite. La Bête des Limbes était enfin apparue!
 
-Au moment de son apparition, la moitié de son corps dépassait de la formation. Étant si vaste, elle s'étendait au point de presque toucher les cultivateurs du Royaume Extérieur. Elle ne se trouvait qu'à dix pieds d'un cultivateur!
+Au moment de son apparition, la moitié de son corps dépassait de la formation. Étant si vaste, elle s'étendait au point de presque toucher les cultivateurs du Royaume Extérieur. Elle ne se trouvait qu'à moins de dix pieds d'un cultivateur!
 
 Ce dernier était un homme d'âge moyen dont l'âme originelle était déjà blessée. À cet instant, traumatisé par la vue de la créature gigantesque, il perdit toute capacité de réflexion.
 
@@ -70,7 +70,7 @@ Elle n'aimait pas manger ces bêtes féroces ancestrales... Elles n'étaient pas
 
 Les cultivateurs du Royaume Extérieur étaient pétrifiés lorsque Wang Lin ordonna à la Bête des Limbes de revenir. Celle-ci n'hésita pas une seconde, se changea en graine de moutarde et se dissipa pour regagner l'espace entre ses sourcils. Cette sortie l'avait tellement effrayée que son corps en était devenu mou. Elle avait besoin d'un long repos pour calmer son cœur qui battait violemment.
 
-La lumière ancienne, invoquée par le sacrifice de 100 000 âmes originelles et des dizaines de chars de bêtes féroces, fut entièrement détruite devant la formation circulaire. Cependant, les cultivateurs du Royaume Extérieur possédaient encore un dernier atout: la gigantesque tablette de pierre enserrée de chaînes et les neuf cercueils qui y étaient attachés.
+La lumière ancienne, invoquée par le sacrifice de 100 000 âmes originelles et plus d'une dizaine de chars de guerre suprêmes conservés par le Conseil Souverain, fut entièrement détruite devant la formation circulaire. Cependant, les cultivateurs du Royaume Extérieur possédaient encore un dernier atout: la gigantesque tablette de pierre enserrée de chaînes et les neuf cercueils qui y étaient attachés.
 
 Alors que les cultivateurs du Royaume Extérieur étaient encore sous le choc de la Bête des Limbes, les neuf runes sur la tablette de pierre s'illuminèrent. Neuf auras se précipitèrent le long des chaînes vers les neuf cercueils. Lorsque ces auras pénétrèrent dans les cercueils, des claquements sourds résonnèrent à travers le système stellaire et les couvercles volèrent en éclats!
 

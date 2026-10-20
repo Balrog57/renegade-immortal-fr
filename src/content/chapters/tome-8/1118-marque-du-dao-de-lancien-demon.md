@@ -24,7 +24,7 @@ C'est pourquoi il ne permettrait pas à cette bataille de se terminer prématur�
 
 Plus l'Ancien Démon Ta Jia serait puissant et plus il ressentirait le désespoir, plus Wang Lin en retirerait dans ce combat.
 
-À cet instant, après avoir brisé trois étoiles et alors que l'énergie démoniaque saturait son corps, celui de Ta Jia se rétracta de manière inattendue, ne mesurant bientôt plus que mille pieds. Cependant, à mesure qu'il rétrécissait, il devenait plus dense, presque corporel.
+À cet instant, après avoir brisé trois étoiles et alors que l'énergie démoniaque saturait son corps, celui de Ta Jia se rétracta de manière inattendue, ne mesurant bientôt plus que cent pieds. Cependant, à mesure qu'il rétrécissait, il devenait plus dense, presque corporel.
 
 « Moi, Ta Jia, j'ai dévoré l'Ancien Démon Bei Luo ainsi que trois anciens démons de mon propre clan! J'utilise ces démons raffinés comme catalyseur pour condenser ma colère, ma tristesse, mon envie et ma cupidité en un sortilège surpuissant de mon clan d'anciens démons! » Le corps de l'Ancien Ta Jia s'éleva, entouré d'une énergie démoniaque semblable à un vent hurlant balayant le monde.
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin brillèrent alors qu'il avançait pour pénétrer les ondul
 
 À l'intérieur des ondes, Wang Lin sentit clairement qu'elles étaient spécialisées dans l'attaque de l'âme originelle. Elles pouvaient infliger des dégâts dévastateurs à l'âme originelle et, pour un être un tant soit peu faible, provoquer son effondrement immédiat.
 
-« Si tu avais atteint neuf étoiles, cette onde aurait pu avoir un effet sur moi, mais pour l'instant... » Wang Lin secoua la tête et fit un pas en avant, atterrissant précisément là où deux ondes se chevauchaient. De cette manière, il traversa sans subir d'impact. C'était comme si son corps était devenu transparent; même si une onde l'effleurait, elle passait simplement à travers lui.
+« Si tu avais atteint neuf étoiles, cette onde aurait pu avoir un effet sur moi, mais pour l'instant... » Wang Lin secoua la tête et fit un pas en avant, atterrissant précisément entre deux ondes. De cette manière, il traversa sans subir d'impact. C'était comme si son corps était devenu transparent; même si une onde l'effleurait, elle passait simplement à travers lui.
 
 « Corps de la Loi... Qing Lin t'a transmis l'héritage du Corps de la Loi pour que tu puisses le comprendre! » Ta Jia recula brusquement, mais avant qu'il ne puisse s'éloigner, Wang Lin fit un pas et pointa nonchalamment sa main droite.
 
@@ -100,6 +100,6 @@ Après ces sept assauts, la majeure partie de l'énergie démoniaque de Ta Jia s
 
 Wang Lin esquissa un sourire, retira son doigt et flotta en arrière comme un nuage. S'il avait paru si détaché jusque-là, c'était pour forcer l'ancien démon à briser toutes ses étoiles restantes. Ce n'était qu'ainsi que l'ancien démon pourrait déchaîner son attaque la plus puissante pour aider Wang Lin à confirmer son Dao!
 
-Les étoiles dans les yeux de Ta Jia s'effondrèrent et une aura plusieurs fois supérieure à la précédente explosa. Il poussa un hurlement tandis que son corps s'agitait, brisant avec force le sort d'immobilisation.
+Les étoiles dans les yeux de Ta Jia s'effondrèrent et une aura d'innombrables fois supérieure à la précédente explosa. Il poussa un hurlement tandis que son corps s'agitait, brisant avec force le sort d'immobilisation.
 
 « Tu m'as forcé à en arriver là. Si ce démon meurt, tu mourras avec lui! Sortilège de l'Ancien Démon à 9 étoiles: la Calamité Démoniaque du Nuage Pourpre! »

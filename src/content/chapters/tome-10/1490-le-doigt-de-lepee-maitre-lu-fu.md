@@ -110,7 +110,7 @@ Cette scène soudaine terrifia tous les présents, plongeant les membres du Temp
 
 Wang Lin n'avait tué personne de trop, et n'en avait épargné aucun. Il avait utilisé son Sens Divin pour libérer près de cent rayons d'énergie d'épée afin de balayer Luotian! C'était la dernière chose qu'il accomplirait pour Xi Zifeng!
 
-Tout en avançant, Wang Lin apparut à l'extérieur de la gigantesque formation bâtie par Luotian!
+Tout en avançant, Wang Lin apparut à l'extérieur de la gigantesque formation bâtie par le Temple Céleste du Tonnerre!
 
 Il scruta les profondeurs de cette structure composée de centaines de planètes. Les innombrables cultivateurs du Temple Céleste du Tonnerre restèrent silencieux tandis qu'il progressait lentement.
 

@@ -8,15 +8,15 @@ slug: su-dao
 ---
 « Le monde est une auberge pour tous les êtres vivants... Le temps est l'invité des âges... Et la vie fugace est semblable à un rêve... combien de joies nous offre-t-elle... et pour combien de joies? »
 
-En juin, la ville de Su laissa derrière elle la saison où tout renaît pour entrer dans le mois où les fleurs s'épanouissent en mille couleurs. Les flocons de saule qui voltigeaient dans le ciel semblaient vouloir emporter avec elles le passage du temps.
+En juin, la ville de Su laissa derrière elle la saison où tout renaît pour entrer dans le mois où les fleurs s'épanouissent en mille couleurs. Les flocons de saule qui voltigeaient dans le ciel semblaient, dans un dernier élan, vouloir emporter avec elles le temps qui restait.
 
 Les flocons de saule emplissaient le ciel comme de la neige; c'était une scène d'une grande beauté. Elles ressemblaient à des flocons estivaux dérivant dans les airs. Si le vent soufflait plus fort, elles s'agitaient davantage, semblant dépourvues de racines. Bien que magnifiques, elles dégageaient aussi une pointe de mélancolie.
 
-Elles paraissaient être des vagabondes sans foyer, ne pouvant se mouvoir qu'au gré du vent, ignorant leur destination. Peut-être atterriraient-elles dans la rivière pour ne faire qu'un avec l'eau, ou tomberaient-elles au sol pour se mêler à la poussière, avant d'être emportées par un vent puissant.
+Elles paraissaient être des vagabondes sans foyer, ne pouvant se mouvoir qu'au gré du vent, ignorant leur destination. Peut-être atterriraient-elles sur la rivière, pour devenir un paysage d'eau et de ciel aux yeux des promeneurs, ou tomberaient-elles au sol pour se mêler à la poussière, avant d'être emportées par un vent puissant.
 
 Leur destin était le vent, et chaque souffle leur offrait une vie différente.
 
-Une petite brindille de saule, blanche et couverte de fleurs, papillonnait doucement dans l'air. Elle vint se poser dans la paume d'un jeune homme vêtu de blanc, debout sur une petite barque.
+Un petit flocon de saule, blanc et duveteux, papillonnait doucement dans l'air. Il vint se poser dans la paume d'un jeune homme vêtu de blanc, debout sur une petite barque.
 
 Le jeune homme tenait une cruche de vin de sa main gauche et buvait une gorgée tout en récitant un poème plein de fougue. Sa voix n'était pas forte, mais elle dégageait une impression de nonchalance, comme s'il était prêt à poursuivre l'horizon même du monde.
 
@@ -24,7 +24,7 @@ Derrière lui se tenait un homme d'âge mûr, vêtu de l'habit d'un serviteur le
 
 « Une cruche de vin d'osmanthus coûte sept pièces d'argent. C'est cher, vraiment trop cher! Chaque gorgée revient presque à avaler la moitié d'une pièce d'argent... »
 
-Le flocon de saule tombé dans la main du jeune homme marqua un temps d'arrêt, mais ne sembla pas atteindre son terme. Elle parut pousser un léger soupir avant de s'envoler de sa paume. Elle papillonna au loin avec une pointe de folie, comme si elle connaissait sa destinée et fonçait sans relâche vers son but.
+Le flocon de saule tombé dans la main du jeune homme marqua un temps d'arrêt, mais ne sembla pas atteindre son terme. Il parut pousser un léger soupir avant de s'envoler de sa paume. Il papillonna au loin avec une pointe de folie, comme s'il connaissait sa destinée et fonçait vers le lieu du retour au néant, où il ne connaîtrait plus la fatigue.
 
 Sur la rive se trouvait une forêt de pêchers en fleurs. Tandis que les flocons de saule s'éloignaient, les pétales de pêcher tombaient dans la rivière, créant des ondulations successives.
 
@@ -36,11 +36,11 @@ Outre le batelier et ces deux hommes, trois magnifiques femmes se trouvaient ég
 
 Grande Fortune eut une expression de détresse et continua de soupirer. Il saisit une cruche et la tendit à contrecœur à Wang Lin, commençant à parler comme s'il était sur le point de pleurer.
 
-« Jeune Seigneur, il ne reste vraiment plus beaucoup d'argent... Nous louons ce bateau, mais nous achetons aussi du vin. Ces trois jeunes filles qui nous accompagnent coûtent cher également, les dépenses quotidiennes sont tout simplement trop élevées... Et si... et si nous débarquions pour trouver une auberge bon marché afin d'économiser un peu? »
+« Jeune Maître, il ne reste vraiment plus beaucoup d'argent... Nous louons ce bateau, mais nous achetons aussi du vin. Ces trois jeunes filles qui nous accompagnent coûtent cher également, les dépenses quotidiennes sont tout simplement trop élevées... Et si... et si nous débarquions pour trouver une auberge bon marché afin d'économiser un peu? »
 
 « Pourquoi se presser? La personne que j'attends n'est pas encore arrivée. » Wang Lin secoua la tête en souriant. Il prit la cruche, but une gorgée et s'assit. Il écoutait la belle femme jouer de la cithare. Les notes étaient douces et joyeuses, mais elles ne parvenaient pas à pénétrer l'esprit de Wang Lin.
 
-« Jeune Seigneur, j'ai sorti tout l'argent que je cachais. Vous... vous... Maudit soit! Ce vieil homme a fait le compte. Si nous continuons ainsi, nous finirons mendiants dans sept jours! »
+« Jeune Maître, j'ai sorti tout l'argent que je cachais. Vous... vous... Maudit soit! Ce vieil homme a fait le compte. Si nous continuons ainsi, nous finirons mendiants dans sept jours! »
 
 « Cela fait plus d'un mois, un mois! Qui diable attendez-vous et pourquoi n'est-il pas encore venu? » Grande Fortune se plaignait amèrement, le cœur serré.
 
@@ -60,7 +60,7 @@ On ignorait depuis combien de temps Wang Lin était assis devant l'instrument av
 
 Même Grande Fortune était pétrifié. Il buvait des gorgées de vin les unes après les autres, oubliant sa douleur pour fixer son poignet droit.
 
-Cette musique était celle que Li Muwan jouait jadis. Ce n'était pas la même mélodie, mais elle avait le même charme, et il l'avait aussi entendue entre les mains de la femme aveugle de la Terre des Esprits Démoniaques.
+Cette musique était celle que Li Muwan jouait jadis. Ce n'était pas la même mélodie, mais elle avait le même charme, et elle avait aussi résonné entre les mains de la femme aveugle de la Terre des Esprits Démoniaques.
 
 À cet instant, des larmes coulèrent lentement des yeux clos de Wang Lin. Ses larmes tombèrent sur la cithare, semblant fusionner avec la chanson pour se disperser dans la musique.
 

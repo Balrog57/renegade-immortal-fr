@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2022 - Filled With Rage (1)
 slug: empli-de-rage-1
 ---
-La femme portait une robe de phénix aux couleurs éclatantes qui lui conférait un air noble. Elle gardait la tête baissée, son visage dissimulé derrière un rideau de perles qui cachait son froncement de sourcils tandis qu'elle s'avançait vers l'Empereur Dao Antique.
+La femme portait une robe de phénix aux couleurs éclatantes qui lui conférait un air noble. Elle gardait la tête baissée, son visage dissimulé derrière un rideau de perles à travers lequel on devinait son froncement de sourcils tandis qu'elle s'avançait vers l'Empereur Dao Antique.
 
 Le tintement que l'on entendait ne provenait pas de clochettes, mais du choc des perles qui recouvraient son visage.
 
@@ -56,7 +56,7 @@ Il décela vaguement la racine de ce sentiment: c'était son tempérament. Cette
 
 Le visage de la femme s'empourpra légèrement et une pointe de colère brilla dans ses yeux, comme si le regard de Wang Lin l'offensait. Elle ne savait pourquoi, mais au fond d'elle, elle ressentait un sentiment de familiarité. Mais dès que cette sensation émergeait, elle se dissipait étrangement, comme si elle n'avait jamais été.
 
-« Je vous pose une question! » L'Empereur Dao Antique leva la main gauche et frappa violemment l'accoudoir du trône de dragon. Le choc fut sonore, mais l'accoudoir resta intact.
+« Je te pose une question! » L'Empereur Dao Antique leva la main gauche et frappa violemment l'accoudoir du trône de dragon. Le choc fut sonore, mais l'accoudoir resta intact.
 
 Cependant, à cet instant précis, des dizaines d'intentions meurtrières se verrouillèrent simultanément sur Wang Lin. Autour de lui, on distinguait vaguement plus d'une douzaine de silhouettes illusoires, semblables à des volutes de fumée, qui n'attendaient que l'ordre de l'Empereur pour frapper.
 
@@ -80,7 +80,7 @@ Il poursuivit lentement: « Peut-être vous connaissez-vous réellement. Mon Imp
 
 La femme en robe de phénix se leva avec grâce et regarda Wang Lin avant de descendre lentement les marches. Wang Lin la fixa et, pendant un instant, il eut l'impression que c'était Li Muwan qui marchait vers lui. Son cœur et son corps tout entiers tremblèrent.
 
-La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais du Dao Antique, oublier le clan ancestral, oublier le Continent Astral Immortel; il se croyait de retour dans le monde des grottes, dans la vallée de la planète Suzaku. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
+La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais du Dao Antique, oublier les terres des Anciens, oublier le Continent Astral Immortel; il se croyait de retour dans le monde des grottes, dans la vallée de la planète Suzaku. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
 
 Voyant cette tristesse, la femme ressentit soudain une douleur au cœur. La confusion traversa son regard, mais elle fut vite balayée par une nouvelle vague d'indignation.
 
@@ -96,7 +96,7 @@ Wang Lin pleurait rarement, mais tandis qu'il buvait, des larmes coulèrent au c
 
 La femme en robe de phénix retourna aux côtés de l'Empereur et retrouva son calme. Elle garda la tête basse sans dire un mot. Le sourire de l'Empereur Dao Antique s'élargit, son regard se posant par intermittence sur Wang Lin avec des éclairs de fierté et de joie.
 
-« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion qui est apparue était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva sa coupe et but avec les près de dix mille convives du banquet.
+« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion que le fragment avait montrée après sa fusion avec un corps était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva sa coupe et but avec les près de dix mille convives du banquet.
 
 Selon la tradition du Dao Antique, il aurait dû laisser partir la femme, mais il choisit de la faire rester. Il continuait d'observer Wang Lin, comme si cela lui procurait le plus grand des plaisirs.
 
@@ -104,4 +104,4 @@ Sous l'impulsion de l'Empereur, le banquet atteignit son apogée. La foule exult
 
 Dans ce tumulte joyeux, Wang Lin restait assis en silence, buvant ses gorgées de vin. La tristesse dans ses yeux ne pouvait être lavée par l'alcool.
 
-« Impératrice, le moral du Gardien Wang semble morose. Allez donc boire avec lui pour moi. » dit l'Empereur Dao Antique dans un sourire.
+« Impératrice, notre cher Wang semble morose. Allez donc boire avec lui pour moi. » dit l'Empereur Dao Antique dans un sourire.

@@ -44,7 +44,7 @@ Ce son résonna dans le vide silencieux et parut particulièrement strident.
 
 Cependant, une tête ne s'était pas abaissée pour dévorer le cadavre. Elle fixait froidement Wang Lin. Alors que celui-ci reculait lentement, la tête sembla onduler comme un serpent et lécha ses lèvres.
 
-C'était la tête d'un homme d'âge moyen. Ses cheveux étaient en désordre et du sang coulait du coin de sa bouche. Il fixait Wang Lin tout en goûtant la chair qu'il avait en bouche.
+C'était la tête d'un homme d'âge moyen. Ses cheveux étaient en désordre et du sang coulait du coin de sa bouche. Il fixait Wang Lin tout en mâchant la chair qu'il avait en bouche.
 
 Après que Wang Lin eut reculé de dix pas, les 17 autres têtes s'étaient toutes abaissées, mais les yeux de l'homme d'âge moyen s'illuminèrent et il cracha un morceau de viande pourrie.
 

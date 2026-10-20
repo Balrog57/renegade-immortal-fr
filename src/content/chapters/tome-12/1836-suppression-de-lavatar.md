@@ -24,7 +24,7 @@ Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, 
 
 Tout cela était dû au regard terrifiant de Wang Lin!
 
-L'Ancien Taureau Vert se trouvait également au Pic du Ciel Vert. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Taureau Vert croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
+L'Ancien Taureau Vert se trouvait également au Pic Céleste Vert. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Taureau Vert croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
 
 Le regard de Wang Lin disparut bientôt, mais l'Estimé Taureau Vert sentait encore son cœur palpiter, les yeux emplis de choc. Ce regard était impitoyable, indifférent, comme si le monde entier n'était qu'une poussière sous ses pieds et devait lui rendre culte!
 

@@ -14,39 +14,39 @@ Le Clan des Scorpions Noirs, au statut le plus élevé, occupa une zone située 
 
 Zhong Grand Rouge était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan du Tonnerre Dispersé.
 
-À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan du Dragon Blindé, avant que le messager ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Délaissés seraient restructurés.
+À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan du Dragon Blindé, avant que l'envoyé du Grand Empereur ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Délaissés seraient restructurés.
 
 Certains conserveraient leur statut, tandis que d'autres seraient remplacés.
 
-Cependant, Wang Lin n'y accordait guère d'importance. Ce qui lui importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan de l'Hirondelle de Feu grâce à cette élection des Anciens Délaissés.
+Cependant, Wang Lin n'y accordait guère d'importance. Ce qui lui importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan des Moineaux de Feu grâce à cette élection des Anciens Délaissés.
 
 « L'appât est posé... » Les yeux de Wang Lin s'illuminèrent, puis il les ferma tandis que son Sens Divin se déployait. Son Sens Divin fusionna progressivement avec le monde, ne faisant plus qu'un avec lui.
 
 Après un long moment, Wang Lin perçut lentement une sensation familière qui s'éloignait de plus en plus dans la distance.
 
-Dans l'espace obscur à l'extérieur des Terres Déchues, trois membres du Clan de l'Hirondelle de Feu volaient au loin. L'un d'eux était un homme d'âge moyen à l'expression solennelle. Il toucha la marque entre ses sourcils, et une étrange lueur brilla dans ses yeux.
+Dans l'espace obscur à l'extérieur des Terres Déchues, trois membres du Clan des Moineaux de Feu volaient au loin. L'un d'eux était un homme d'âge moyen à l'expression solennelle. Il toucha la marque entre ses sourcils, et une étrange lueur brilla dans ses yeux.
 
-« L'Ancien m'a chargé de renvoyer le sang extrait de la pilule. Cette affaire est d'une importance capitale pour notre clan, nous ne pouvons commettre la moindre erreur. Si l'analyse de l'Ancien est exacte, alors une fois que le Patriarche et les autres Anciens l'auront vu, ils donneront certainement de nouveaux ordres. » Le regard de l'homme était empreint de détermination. Lui et les deux compagnons accélérèrent leur vol avant de disparaître dans l'immensité.
+« L'Ancien m'a chargé de renvoyer le sang extrait de la pilule. Cette affaire est d'une importance capitale pour notre clan, nous ne pouvons commettre la moindre erreur. Si l'analyse de l'Ancien est exacte, alors une fois que le Patriarche, le Grand Ancien et les autres l'auront vu, ils donneront certainement de nouveaux ordres. » Le regard de l'homme était empreint de détermination. Lui et les deux compagnons accélérèrent leur vol avant de disparaître dans l'immensité.
 
 Wang Lin ouvrit les yeux et son Sens Divin se rétracta. Un rictus apparut sur son visage. Ce sang contenait une température élevée ainsi qu'une trace d'essence de feu. Rien d'autre que son propre sang ne pouvait s'y substituer.
 
-Par conséquent, il pouvait utiliser le lien avec son propre sang pour localiser approximativement sa position, même à une distance considérable.
+Par conséquent, il pouvait utiliser le lien avec son propre sang pour localiser approximativement sa position, même séparé par d'innombrables régions stellaires.
 
-« Une fois que cette parcelle d'essence sera revenue au Clan de l'Hirondelle de Feu, elle déclenchera sans aucun doute une vague monumentale. Mon plan pour obtenir leur essence de feu devrait alors réussir! »
+« Une fois que cette parcelle d'essence sera revenue au Clan des Moineaux de Feu, elle déclenchera sans aucun doute une vague monumentale. Mon plan pour obtenir leur essence de feu devrait alors réussir! »
 
 « Puisque le sang est déjà parti, je dois préparer la seconde étape... » Les yeux de Wang Lin brillèrent d'une lueur sombre. Il agita sa main droite et une faille spatiale se déchira.
 
-À l'instant où la faille s'ouvrit, un cri plaintif en émana. Ce cri, chargé de tristesse, aurait pu faire trembler les cœurs les plus fermes.
+À l'instant où la faille s'ouvrit, un cri perçant en émana. Ce cri, d'une violence stridente, aurait fait trembler le cœur de quiconque l'entendait.
 
-« Grand-père Xu, Petit Biao sait qu'il a eu tort! Grand-père Xu, je vous en prie, laissez partir Petit Biao, je n'oserai plus jamais vous tromper! » Un autre cri retentit, mêlé aux éclats de rire de Xu Liguo.
+« Grand-père Xu, Petit Biao sait qu'il a eu tort! Grand-père Xu, je vous en prie, laissez partir Petit Biao, je n'oserai plus jamais vous tromper! » Un autre cri retentit, mêlé au rire lubrique de Xu Liguo.
 
-« Tomber entre les mains de ton Grand-père Xu est une bénédiction pour toi! Ton Grand-père Xu est seul depuis des milliers d'années, je ne te tuerai pas. Mon petit précieux Jinbiao, sois sans crainte, ton Grand-père Xu ne sera pas trop cruel... »
+« Tomber entre les mains de ton Grand-père Xu est une bénédiction pour toi! Ton Grand-père Xu est seul depuis des milliers d'années, il ne te tuera pas. Mon petit précieux Jinbiao, sois sans crainte, ton Grand-père Xu ne sera pas trop cruel... »
 
-Ces hurlements misérables résonnaient de façon tragique... Wang Lin fronça les sourcils et laissa échapper une toux sèche. Alors que sa toux résonnait dans l'espace de stockage, les cris s'arrêtèrent brusquement. Peu après, la voix excitée de Xu Liguo retentit et il sortit précipitamment de l'espace de stockage.
+Ces cris déchirants s'élevaient à tour de rôle, d'une horreur inhumaine... Wang Lin fronça les sourcils et laissa échapper une toux sèche. Alors que sa toux résonnait dans l'espace de stockage, les cris s'arrêtèrent brusquement. Peu après, la voix excitée de Xu Liguo retentit et il jaillit de l'espace de stockage tel un trait de lumière noire.
 
 Xu Liguo tenait un homme. Ses vêtements étaient en lambeaux, comme s'il venait d'être violé, et il paraissait extrêmement hagard. Ses yeux étaient pétrifiés par l'horreur alors que Xu Liguo le présentait devant Wang Lin.
 
-« Maître, y a-t-il encore une bonne affaire à arranger? Ce petit vous garantit qu'il fera du bon travail, et ce ne sera pas comme au Clan du Tonnerre Dispersé! » Xu Liguo jeta Liu Jinbiao sur le côté et se frotta les mains avec empressement.
+« Maître, y a-t-il encore une bonne affaire à arranger? Ce petit Xu vous garantit qu'il fera du bon travail, et ce ne sera pas comme au Clan du Tonnerre Dispersé! » Xu Liguo jeta Liu Jinbiao sur le côté et se frotta les mains avec empressement.
 
 Wang Lin ne daigna pas un regard à Xu Liguo, mais fixa Liu Jinbiao, qui se mit à trembler. Son cœur était envahi par une peur indicible. Après avoir été jeté dans l'espace de stockage, il avait subi les tourments de Xu Liguo. Il était dévasté et misérable; chaque pensée évoquant Xu Liguo était pour lui un véritable cauchemar.
 
@@ -68,9 +68,9 @@ Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer ins
 
 « L'art de la tromperie que j'étudie se divise en trois royaumes. Le premier royaume est celui de tromper les autres. Le deuxième est celui de se tromper soi-même. Le troisième est une forme d'illumination, comme voir la montagne comme une montagne, puis ne plus la voir comme une montagne, et enfin revenir à la simplicité originelle, semblable au premier royaume: tromper les autres! »
 
-« Ces trois royaumes semblent simples, mais en réalité, la plupart des gens stagnent dans le premier. Ils ne croient même pas leurs propres paroles et se contentent de tromper pour la forme; leurs compétences sont dérisoires! » Liu Jinbiao se détendit un peu, tout en restant sur ses gardes.
+« Ces trois royaumes semblent simples, mais en réalité, parmi les nombreux confrères de la Voie de la tromperie, la plupart stagnent dans le premier. Ils ne croient même pas leurs propres paroles et se contentent de tromper pour la forme; leurs compétences sont dérisoires! » Liu Jinbiao se détendit un peu, tout en restant sur ses gardes.
 
-« Ce n'est qu'après avoir atteint une certaine compréhension que l'on peut accéder au deuxième royaume: celui de se tromper soi-même! Utiliser chaque méthode et chaque expérience de vie pour s'auto-illusionner jusqu'à ce que vous croyiez vous-même que la tromperie est la réalité! » Liu Jinbiao prit une profonde inspiration. Il semblait avoir oublié sa situation actuelle, devenu soudain très sérieux.
+« Ce n'est qu'après avoir atteint une certaine compréhension que l'on peut accéder au deuxième royaume: celui de se tromper soi-même! Utiliser chaque méthode et chaque expérience de vie pour s'auto-illusionner jusqu'à ce que vous croyiez vous-même que la tromperie est la réalité! Ainsi, l'art de la tromperie peut atteindre un stade intermédiaire! » Liu Jinbiao prit une profonde inspiration. Il semblait avoir oublié sa situation actuelle, devenu soudain très sérieux.
 
 « Ceux de ma sorte qui atteignent ce deuxième royaume existent: au fil de mes voyages à travers le monde, j'ai rencontré bien des confrères. Chaque fois que nous nous rencontrons, nous débattons du Dao et comparons nos compréhensions. »
 
@@ -78,7 +78,7 @@ Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer ins
 
 « Il y avait aussi des aînés qui se sont trop enfoncés dans ce deuxième royaume au point d'en oublier qu'ils étaient des escrocs. Chaque fois que je pense à eux, mon cœur se serre de tristesse! »
 
-« Lamentable, lamentable! » Liu Jinbiao, transporté par son propre discours, en oubliait sa condition de prisonnier. Il y avait une certaine noblesse dans ses paroles qui laissa Xu Liguo bouche bée. Ce dernier se moqua: « Ne serais-tu pas simplement un escroc? Tu en parles comme s'il s'agissait d'une culture... »
+« Lamentable, lamentable! » Liu Jinbiao, transporté par son propre discours, en oubliait sa condition de prisonnier. Il y avait une certaine noblesse dans ses paroles qui laissa Xu Liguo bouche bée. Ce dernier se moqua: « Ne serais-tu pas simplement un escroc? Tu en parles comme si c'était une voie de cultivation... »
 
 Xu Liguo n'eut pas le temps de finir sa phrase que Liu Jinbiao se redressa brusquement et lui lança un regard noir. Ses yeux brillaient de fierté et d'arrogance, mais aussi d'une pointe de solitude. Une solitude propre à celui qui se tient au sommet!
 

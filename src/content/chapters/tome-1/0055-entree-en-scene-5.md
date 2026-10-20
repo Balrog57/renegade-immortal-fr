@@ -40,11 +40,11 @@ Il n'eut pas le temps de finir sa phrase; il remarqua que tous les autres discip
 
 Yang Yi maudit intérieurement: « Ce crétin... Wang Lin est si puissant qu'il peut vaincre un frère aîné en un seul mouvement, et pourtant le vieux Ouyang me force quand même à monter. C'est humiliant. Et je ne sais pas non plus combien de bombes puantes ce bâtard de Li Shan lui a vendues. Ce Li Shan, je lui donnerai une leçon une fois de retour. »
 
-Tout en pensant cela, il tourna un regard féroce vers Li Shan. Puis, joignant les mains avec respect, il déclara: « Frère Wang, je suis Yang Yi. Vous êtes très élégant et possédez une culture si élevée! Vous deviendrez certainement célèbre dans le pays de la culture de Zhao! Avoir l'opportunité de combattre mon frère est un véritable privilège! »
+Tout en pensant cela, il tourna un regard féroce vers Li Shan. Puis, joignant les mains avec respect, il déclara: « Frère Wang, je suis Yang Yi. Vous êtes très élégant et possédez une culture si élevée! Vous deviendrez certainement célèbre dans le pays de la culture de Zhao! Avoir l'opportunité de combattre mon frère est un véritable privilège, je ne peux contenir ma joie! »
 
 Wang Lin jeta un coup d'œil à Yang Yi, mais ne dit mot.
 
-Nullement embarrassé, Yang Yi poursuivit: « Frère Wang, nous sommes ici pour un simple échange amical entre nos deux sectes. Que diriez-vous d'un combat au toucher* pour déterminer le vainqueur? Si je parviens à tenir 100 secondes, la victoire m'appartient. »
+Nullement embarrassé, Yang Yi poursuivit: « Frère Wang, nous sommes ici pour un simple échange amical entre nos deux sectes. Que diriez-vous d'un combat au toucher pour déterminer le vainqueur? Si je parviens à tenir 100 secondes, la victoire m'appartient. »
 
 À peine eut-il fini qu'il regretta aussitôt ses paroles: « Non, 50 secondes. En fait, faisons 30 secondes... non, partons sur 20 secondes. »
 
@@ -80,7 +80,5 @@ Wang Lin esquissa un sourire moqueur. Son Sens Divin était bien supérieur à c
 
 Dès qu'il aperçut la bombe puante, le visage de Yang Yi changea radicalement et il accéléra brusquement.
 
-Li Shan regardait avec stupeur la bombe puante dans la main de Wang Lin en marmonnant: « Frère martial Wang, Grand frère Wang, Grand-père Wang! Je vous en prie, n'utilisez plus ça! J'ai déjà provoqué la colère du frère aîné. Si j'irrite aussi le deuxième frère aîné, ma vie est finie... »
+Li Shan regardait avec stupeur la bombe puante dans la main de Wang Lin en marmonnant: « Frère martial Wang, Grand frère Wang, Grand-père Wang! Je vous en prie, n'utilisez plus ça! J'ai déjà provoqué la colère du frère aîné. Si le deuxième frère aîné se fait encore toucher par cette bombe, ma vie est finie... »
 
----
-*\*Note: Il s'agit d'un combat où, au moment de porter un coup critique ou après avoir brisé les défenses de l'adversaire, on s'arrête juste avant l'impact pour ne pas blesser réellement l'autre.*

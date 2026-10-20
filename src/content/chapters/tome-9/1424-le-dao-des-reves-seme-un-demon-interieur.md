@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1424 - Dream Dao Plants Inner Demon
 slug: le-dao-des-reves-seme-un-demon-interieur
 ---
-Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Nuit Brisée était extrêmement puissant, mais la loi d'origine était trop rare. Ce n'était qu'à l'aube qu'il pouvait en libérer toute la puissance, sans consumer sa propre énergie originelle.
+Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Nuit Brisée était extrêmement puissant, mais la loi d'origine était insondable et difficile à saisir. Ce n'était qu'à l'aube qu'il pouvait en libérer toute la puissance, sans consumer sa propre énergie originelle.
 
 Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Nuit Brisée par la force, il devrait altérer l'espace, les astres et la planète autour de lui, transformer le jour en nuit et la nuit en aube, pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
 
@@ -14,21 +14,21 @@ Quant à Temps Fluide, bien qu'elle fût inférieure à Nuit Brisée en termes d
 
 Briser la nuit du ciel et de la terre, faire couler la lumière des années, revenir en rêve au Dao antique...
 
-Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré, avec l'aide du Seigneur du Royaume Scellé, dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
+Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré, avec l'aide du Seigneur du Royaume Scellé, dans le mystérieux Royaume du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Royaume du Dao!
 
-À l'intérieur du Domaine du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier était le sort qui avait gravement blessé l'Omniscient et qui était le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
+À l'intérieur du Royaume du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier, issu de la Terre des Esprits Démoniaques, était le sort qui avait gravement blessé l'Omniscient et qui était le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 
 Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme du Clan de l'Extermination Scellée dans le Royaume aux Sept Couleurs!
 
 Ces deux sorts étaient extrêmement puissants et s'étaient profondément gravés dans la mémoire de Wang Lin!
 
-Durant les dix années passées dans le Domaine du Dao, Wang Lin avait appréhendé la puissance terrifiante du Rêve des Temps Anciens et du Dao Dispersé!
+Durant les dix années passées dans le Royaume du Dao, Wang Lin avait appréhendé la puissance terrifiante du Rêve des Temps Anciens et du Dao Dispersé!
 
 Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas être utilisé comme un sort de cultivateur ordinaire, même si Wang Lin était lui-même un Dieu Ancien. Cependant, dans la vie de Wang Lin, le danger et la fortune coexistaient toujours. Le sort Dao Dispersé utilisé par le vieil homme dans le Royaume aux Sept Couleurs avait ouvert la voie des sorts de Dao pour Wang Lin.
 
-Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Domaine du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao du Rêve!
+Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Royaume du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao du Rêve!
 
-De retour dans la Mer des Nuages, à l'extérieur de la Secte Démon, Wang Lin ne l'avait testé que sur l'Ancien Fléau Céleste. Si Wang Lin ne l'avait pas prévenu, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
+Autrefois, à l'extérieur de la faille de la Secte Démon dans la Mer des Nuages, Wang Lin ne l'avait testé que sur l'Ancien Fléau Céleste. Si Wang Lin ne le lui avait pas fait remarquer après coup, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
 
 Le Dao du Rêve, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
 

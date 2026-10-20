@@ -32,7 +32,7 @@ Le visage de la femme était pâle et une intention meurtrière remplissait ses 
 
 « Depuis la première fois que je t'ai remarquée, je me posais une question. Si tu étais vraiment une cultivatrice du troisième pas, comment as-tu pu me laisser partir si facilement? Si tu possédais un corps réel, pourquoi n'ai-je pu sentir ton odeur alors que tu étais si proche? Et si tu avais un corps réel, pourquoi aurais-tu besoin d'un trésor pour résister au Sceau d'Inversion Céleste? » Wang Lin sourit. Ses paroles étaient comme des lames tranchant la femme en blanc.
 
-C'était là sa conjecture. Pour la confirmer, il n'avait pas cherché à fuir, mais avait décidé de combattre la femme en blanc! Si cette personne était réellement une cultivatrice du troisième pas, même en utilisant la Distorsion Spatiale, il lui serait difficile de s'échapper. En revanche, si elle ne l'était pas, alors lui, Wang Lin, n'était pas non plus quelqu'un que l'on pouvait provoquer impunément!
+C'était là sa conjecture. Pour la confirmer, il n'avait pas cherché à fuir, mais avait décidé de combattre la femme en blanc! Si cette personne était réellement une cultivatrice du troisième pas, même en utilisant la Déformation Spatiale, il lui serait difficile de s'échapper. En revanche, si elle ne l'était pas, alors lui, Wang Lin, n'était pas non plus quelqu'un que l'on pouvait provoquer impunément!
 
 « Tu n'es qu'un simple avatar de projection sans corps physique. Tu voulais absorber ma "divinité" et tu as même utilisé une illusion pour prendre l'apparence de mon être cher. Pour cela, tu dois mourir! » Wang Lin fit un pas en avant et agita la main après avoir parlé. Le Monde du Vent et de la Pluie se déploya soudainement sur dix mille pieds. Les âmes de combat s'élancèrent des fragments et chargèrent la femme en blanc!
 
@@ -78,7 +78,7 @@ Il abattit une nouvelle fois son épée de sang sans aucune pitié!
 
 L'apparition de cette main sembla figer le monde. Même la lumière faiblit. Tout parut perdre ses couleurs devant cette main! C'était comme si le monde entier avait été remplacé par ce membre! Et tout ce que la main désignait s'effondrait!
 
-Au moment où le doigt s'abaissa, Wang Lin ressentit soudain un sentiment de crise de vie ou de mort d'une puissance bien supérieure à celle éprouvée face à Shui Daozi! Il s'arrêta brusquement et n'hésita pas à agiter la main. Les milliers de Mondes du Vent et de la Pluie fusionnèrent instantanément pour envelopper son corps.
+Au moment où le doigt s'abaissa, Wang Lin ressentit soudain un sentiment de crise de vie ou de mort d'une puissance bien supérieure à celle éprouvée face à Shui Daozi! Il s'arrêta brusquement et n'hésita pas à agiter la main. Les milliers de Mondes du Vent et de la Pluie fusionnèrent instantanément pour l'envelopper à dix pieds de son corps.
 
 À cet instant, Wang Lin utilisa une nouvelle fois le Bouclier de Lumière et d'Ombre. Une masse colossale de lumière convergea pour former une ombre lumineuse gigantesque!
 

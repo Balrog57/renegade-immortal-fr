@@ -30,7 +30,7 @@ Maître Pin Cendré ricana intérieurement. Lui et Maître Nuage-Âme échangèr
 
 Maître Nuage-Âme transmit sa pensée à Maître Pin Cendré: « Cet homme a bien la capacité de tuer Wu Qing, mais il subsiste un fossé entre lui et les cultivateurs Briseur du Nirvana de stade intermédiaire comme nous. Si j'attaque seul, je peux le tuer en dix respirations! Si nous unissons nos forces, nous pouvons l'éliminer instantanément! »
 
-Maître Pin Cendré ferma les yeux et répondit par message: « Ce qui m'effraie le plus n'est pas son identité potentielle de membre de la Secte Divine. C'est qu'il est manifestement un cultivateur Purificateur du Nirvana, et pourtant ses sorts ont pu tuer Wu Qing instantanément. Il cache clairement son niveau de culture. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé; pendant le trajet, trouvez une occasion de le tester encore quelques fois! »
+Maître Pin Cendré ferma les yeux et répondit par message: « Ce qui m'effraie le plus n'est pas son identité potentielle de membre de la Secte Divine. C'est qu'il est manifestement un cultivateur Purificateur du Nirvana, et pourtant ses sorts ont même pu tuer Wu Qing. Il cache clairement son niveau de culture. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé; pendant le trajet, trouvez une occasion de le tester encore quelques fois! »
 
 Les yeux de Maître Nuage-Âme brillèrent d'assentiment.
 
@@ -38,7 +38,7 @@ Wang Lin baissa la tête tandis qu'il restait assis, afin que personne ne puisse
 
 « Un Briseur du Nirvana de stade intermédiaire... C'est effectivement très puissant. L'énergie d'origine contenue dans ce sort n'est pas une chose qu'un cultivateur Briseur du Nirvana de stade précoce peut affronter. La différence est comparable à celle entre un jeune homme et un guerrier aguerri... Cependant, si je devais combattre avec mes trésors les plus puissants, il est peu probable que je perde! Ce dont je dois me garder, c'est d'une attaque surprise conjointe de Maître Pin Cendré et de cet individu. » L'expression de Wang Lin demeurait calme, ne laissant filtrer aucun indice sur ses pensées.
 
-Le vieil homme au visage grêlé avait observé tout le combat. Il fit tourner silencieusement la bague à son doigt, son regard balayant occasionnellement Maître Pin Cendré.
+Le vieil homme au visage balafré avait observé tout le combat. Il fit tourner silencieusement la bague à son doigt, son regard balayant occasionnellement Maître Pin Cendré.
 
 Il y avait également cette vieille femme en vert qui restait assise tranquillement, les yeux clos. Elle ne jetait pas même un regard à ce qui venait de se passer, comme plongée en méditation.
 

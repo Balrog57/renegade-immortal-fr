@@ -26,7 +26,7 @@ Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoi
 
 À l'exception des planètes de rang 8 et 9 du Système de l'Alliance, Wang Lin connaissait déjà tous ces détails. Lors de son voyage, Li Yuan lui avait exposé l'histoire complète des familles cultivatrices. C'est pourquoi Wang Lin restait si calme face aux quatre grandes familles héritières du Royaume Céleste.
 
-Les deux vieillards qui soutenaient le sceau fragmentaire au-dessus du pavillon réfléchirent silencieusement un instant. L'un d'eux esquissa un sourire amer et dit: « Puisque ce Compagnon Cultivateur possède des sorts et des trésors aussi puissants, vous ne pouvez être un simple inconnu. Veuillez nous révéler votre nom! »
+Les deux vieillards qui résistaient au sceau fragmentaire au-dessus du pavillon réfléchirent silencieusement un instant. L'un d'eux esquissa un sourire amer et dit: « Puisque ce Compagnon Cultivateur possède des sorts et des trésors aussi puissants, vous ne pouvez être un simple inconnu. Veuillez nous révéler votre nom! »
 
 Wang Lin répondit avec calme: « Xu Mu! »
 

@@ -94,7 +94,7 @@ Son corps trembla et les éclairs qui parcouraient sa peau cessèrent net. À ce
 
 Son poing avait déjà entamé la moitié d'un arc de cercle, mais il ne pourrait jamais achever son mouvement. Seuls ses yeux pouvaient encore bouger. À cet instant, une terreur qu'il n'avait jamais connue de sa vie l'envahit. Si la peur dans ses yeux était un océan, cet océan serait capable de noyer l'intégralité de la Terre des Esprits Démoniaques.
 
-La silhouette de Wang Lin sortit lentement de la tour. Ses cheveux flottaient derrière lui et, vêtu de sa robe blanche, il ressemblait à une divinité céleste!
+La silhouette de Wang Lin sortit lentement de la tour. Ses cheveux flottaient derrière lui et, vêtu de sa robe blanche, il ressemblait à un être céleste!
 
 Après être sorti, il ne daigna même pas regarder l'homme robuste et fit un mouvement de manche. Un vent puissant projeta immédiatement l'homme au loin. En crachant du sang, celui-ci fut expulsé hors de la Tribu de l'Affinement de l'Âme.
 
@@ -124,7 +124,7 @@ La femme du Pays du Démon de l'Eau fut également pétrifiée. Cependant, aprè
 
 Wang Lin flottait dans les airs, ressentant silencieusement la puissance du sort céleste. Pour lui, le massacre qui se déroulait au sol semblait appartenir à un autre monde; il n'y prêtait aucune attention.
 
-« Je ne maîtrise pas encore totalement ce sort céleste... Mais l'échéance de mon accord avec l'Ancien Démon approche, je n'ai plus le temps pour la compréhension... Il est temps de partir... » Wang Lin agita sa main droite et les trois épées volèrent vers lui. La gueule de Zi Shu contenait l'âme originelle de la femme.
+« Je ne maîtrise pas encore totalement ce sort céleste... Mais l'échéance de mon accord avec l'Ancien Démon approche, je n'ai plus le temps pour la compréhension... Il est temps de partir... » Wang Lin agita sa main droite et la Formation des Trois Talents à l'Épée vola vers lui. La gueule de Zi Shu contenait l'âme de la femme.
 
 Un mois plus tard, Wang Lin quitta la Tribu de l'Affinement de l'Âme. En partant, il emporta l'Étendard de l'Âme et laissa une trace de Sens Divin pour monter la garde sur la tribu.
 
@@ -136,12 +136,12 @@ Les flammes de la guerre dévoraient le Pays du Démon de Feu. Les sept autres n
 
 Outre l'odeur du sang, d'innombrables cadavres jonchaient le sol. Des effluves de mort s'échappaient des corps, formant une brume grise qui enveloppait tout le Pays du Démon de Feu.
 
-C'était une lutte à mort entre le Pays du Démon Céleste et le Pays du Démon de Feu! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que la puissance du Pays du Démon de Feu s'étiolait lentement.
+C'était une lutte à mort entre le Pays du Démon Céleste et le Pays du Démon de Feu! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que toute la puissance du Pays du Démon de Feu était lentement anéantie.
 
 La capitale du Pays du Démon de Feu était totalement déserte. Même l'Empereur Démon était personnellement entré dans le combat. Hormis la terre sacrée de la Vallée Démoniaque, tout le reste était désert!
 
 L'Ancien Démon du Pays du Démon de Feu avait imité celui du Pays du Démon Céleste: il avait scellé la capitale pour en interdire l'accès.
 
-La Vallée Démoniaque n'était pas située à l'extérieur de la cité, mais dans ses profondeurs. Une énergie spirituelle démoniaque dense s'en dégageait, enveloppant toute la capitale. Vu de loin, la cité semblait entourée d'une brume démoniaque mêlée à une puissante aura de mort; elle ressemblait à une ville fantôme qui inspirait une profonde tristesse à quiconque la contemplait.
+La Vallée Démoniaque n'était pas située à l'extérieur de la cité, mais dans ses profondeurs. Une énergie spirituelle démoniaque dense s'en dégageait, enveloppant toute la capitale. Vu de loin, la cité semblait entourée d'une brume démoniaque mêlée à une puissante aura de mort; elle ressemblait à une cité noyée dans la brume qui inspirait une profonde tristesse à quiconque la contemplait.
 
 Lorsque Wang Lin atterrit aux abords de la capitale du Pays du Démon de Feu, le bruit de ses pas résonna nettement, tant l'environnement était silencieux. La terre rouge sombre avait une texture boueuse sous les pieds; cette consistance provenait du sang de dizaines de millions de personnes qui avait imprégné le sol au cours des cent dernières années.

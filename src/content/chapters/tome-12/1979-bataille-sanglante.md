@@ -34,7 +34,7 @@ Le vent et la neige hurlaient, mêlés à un son de sanglots. Le brouillard dans
 
 Ayant été témoins de cette scène terrifiante, les neuf abandonnèrent l'idée d'encercler l'Exalté Empyréen Hai Zi. Ils reculèrent comme des fous, mais leur vitesse n'était rien comparée au brouillard de Wang Lin qui les rattrapa instantanément. Le brouillard se répandit et ne laissa derrière lui que neuf squelettes desséchés!
 
-Les environs devinrent totalement silencieux, jonchés d'ossements. Le brouillard de Wang Lin se reforma aux côtés de l'Exalté Empyréen Hai Zi. Son visage était pâle et elle cracha une bouffée de sang qui offrit un spectacle saisissant sur la neige blanche.
+Les environs devinrent totalement silencieux, jonchés d'ossements. Le brouillard de Wang Lin se reforma aux côtés de l'Exalté Empyréen Hai Zi. Son visage était pâle et il cracha une bouffée de sang qui offrit un spectacle saisissant sur la neige blanche.
 
 « Allons-y! » Wang Lin fit un pas en avant et se précipita vers le bout de la longue rue.
 
@@ -58,7 +58,7 @@ Il avait rapidement fouillé les souvenirs des âmes originelles, mais tout éta
 
 « Par conséquent, il ne sert à rien de compter sur le Grand Empyréen Jiu Di. Si j'avais conçu ce piège, je ferais deux préparatifs. Le premier serait de bloquer toutes les auras provenant de cet endroit, et le second serait de trouver quelqu'un pour entraver le Grand Empyréen Jiu Di!
 
-« Bien sûr, tout cela suppose que ce ne soit pas le Grand Empyréen Jiu Di lui-même qui l'ait fait, mais mon intuition me dit qu'il ne s'agit pas de lui! Celui qui a orchestré cela attend peut-être le coup de grâce pour m'achever! » Les pensées de Wang Lin défilaient à toute allure tandis qu'il fonçait vers la fin de la rue avec l'Exalté Empyréen Hai Zi.
+« Bien sûr, tout cela suppose que ce ne soit pas le Grand Empyréen Jiu Di lui-même qui l'ait fait, mais mon intuition me dit qu'il ne s'agit pas de lui! Celui qui a orchestré cela est peut-être ici même, à attendre le coup de grâce pour m'achever! » Les pensées de Wang Lin défilaient à toute allure tandis qu'il fonçait vers la fin de la rue avec l'Exalté Empyréen Hai Zi.
 
 Mais à cet instant précis, trois silhouettes apparurent dans le blizzard. Ces trois êtres flottaient dans les airs et fixaient Wang Lin. Ils se transformèrent en trois rayons de lumière rouge et convergèrent vers lui.
 

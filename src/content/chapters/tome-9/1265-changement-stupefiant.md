@@ -44,7 +44,7 @@ Sa conversation avec Wang Lin avait dénoué les attaches mortelles de son cœur
 
 Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Éternelle pour regagner la Secte Briseur de Ciel!
 
-On aurait dit que quelque chose de caché s'agitait.
+On aurait dit que la tempête approchait.
 
 Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Briseur de Ciel lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
 
@@ -60,7 +60,7 @@ Car avec l'arrivée de Wang Lin, la compétition n'était plus équilibrée. La 
 
 Cependant, comme Wang Lin et Mu Bingmei l'avaient pressenti, le monde est imprévisible!
 
-Une demi-heure avant le départ de la Secte Éternelle, un rayon de lumière jaillit de la secte. Ce rayon portait une aura capable de faire trembler les cieux et fonça droit sur le Maître de la Secte.
+Une heure avant le départ de la Secte Éternelle, un rayon de lumière jaillit de la secte. Ce rayon portait une aura capable de faire trembler les cieux et fonça droit sur le Maître de la Secte.
 
 Un vieil homme se trouvait à l'intérieur de ce faisceau lumineux. Wang Lin n'avait jamais vu cet homme auparavant, mais d'après l'aura qui émanait de son corps, il était lui aussi au stade du Fléau Céleste!
 
@@ -108,6 +108,6 @@ Cette fois, il ne fusionnait pas avec l'Omniscient pour combattre un ennemi, mai
 
 Au même moment, dans la Secte Briseur de Ciel de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
 
-Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert; elle était devenue une formation de scellement! Son maître était sorti de sa culture en ermitage de près de dix mille ans et se tenait à l'extérieur de la structure. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément!
+Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert; elle était devenue une formation de scellement! Son maître était sorti de sa culture en ermitage de près de dix mille ans et était assis en tailleur à l'extérieur de la formation. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément!
 
 « Il est interdit de franchir cette formation pendant trois mois! Faute de quoi, tu seras punie conformément aux lois de la secte! »

@@ -42,7 +42,7 @@ Il devait y avoir une raison pour qu'un homme sur le point de mourir mente. Et W
 
 « De plus, cette vieille femme a immédiatement tenté de me tuer dès mon apparition. Elle a dû conclure que je représentais une autre secte. »
 
-« Plus important encore, la vieille femme a lâché quelque chose avant d'attaquer: "Tu es venu si vite..." » Wang Lin leva soudainement les yeux vers le ciel et ses pupilles se rétractèrent.
+« Plus important encore, la vieille femme a lâché quelque chose avant d'attaquer: "Ils sont venus si vite..." » Wang Lin leva soudainement les yeux vers le ciel et ses pupilles se rétractèrent.
 
 « Se pourrait-il qu'une multitude de cultivateurs issus de diverses sectes convergent ici? Si tel est le cas, la valeur du jade et de la recette doit être extrêmement élevée pour déclencher un tel conflit inter-sectaire! » Wang Lin prit une profonde inspiration, les yeux brillants.
 
@@ -58,7 +58,7 @@ Cependant, parmi les cendres, reposaient un jade et un fragment d'os animal de l
 
 Une pointe d'excitation traversa le regard de Wang Lin alors qu'il tendait la main pour saisir les objets. Son sens divin inspecta d'abord le jade, et son expression changea radicalement!
 
-« Secte Céleste Brise-Ciel, rang 8!! » Wang Lin prit une profonde inspiration avant de se calmer pour examiner le fragment d'os. Malgré sa grande force mentale, il sentit son rythme cardiaque s'accélérer.
+« Secte Brise-Ciel, rang 8!! » Wang Lin prit une profonde inspiration avant de se calmer pour examiner le fragment d'os. Malgré sa grande force mentale, il sentit son rythme cardiaque s'accélérer.
 
 Ses yeux étaient empreints d'incrédulité face au fragment d'os qu'il tenait. Il resta muet durant un long moment.
 

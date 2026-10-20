@@ -82,7 +82,7 @@ Les stades Yin Illusoire et Yang Corporel marquaient la transition entre la prem
 
 Ce processus était appelé transformation originelle. Il visait à élever un cultivateur au rang des anciens.
 
-Depuis la disparition des anciens et l'effondrement du Royaume Céleste, très peu de personnes avaient réussi à franchir ces deux royaumes lors de l'entrée dans le stade Yin et Yang; mais tous ceux qui y étaient parvenus avaient accompli des exploits prodigieux et siégé au sommet de la seconde étape!
+Depuis la disparition des anciens et l'effondrement du Royaume Céleste, très peu de personnes avaient réussi à franchir ces deux royaumes d'un seul élan, au moment de la percée de l'Ascendant; mais tous ceux qui y étaient parvenus avaient accompli des exploits prodigieux et siégé au sommet de la seconde étape!
 
 Même l'Omniscient avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et l'Ancêtre Sanguin près de 1 000 ans.
 
@@ -92,6 +92,6 @@ Cela n'avait rien à voir avec le talent. La raison principale était l'énergie
 
 L'Ancêtre Sanguin fixa les nuages devant lui, son intention meurtrière redoublant d'intensité.
 
-« Je suis venu pour le tuer, et je lui offre une fortune immense! Je ne l'accepterai pas! »
+« Je suis venu pour le tuer, et je lui offre une fortune immense! Je ne m'y résigne pas! »
 
 Au-dessus du fragment, niché dans les nuages, Wang Lin leva la tête. Ses yeux étaient limpides et empreints d'une pointe d'attente. Des grondements tonitruants déchirèrent les cieux alors qu'un éclair aux sept couleurs se condensait rapidement...

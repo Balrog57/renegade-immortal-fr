@@ -24,13 +24,13 @@ L'ancêtre de la Secte de la Grande Âme, le Très Respecté Taureau Vert, poss�
 
 « Tout cela parce qu'il voulait former un véritable corps d'essence, une chose si difficile à créer que cela relève presque de la légende! » Le visage de la jeune femme pâlit et une froideur glaciale émana de ses yeux. Elle connaissait parfaitement les véritables corps d'essence pour en avoir rêvé elle-même. Elle comprit qu'une fois le véritable corps d'essence formé, la veine de feu terrestre s'effondrerait et disparaîtrait.
 
-« Je ne peux pas le laisser réussir! » La jeune femme serra les dents. Que ce soit par crainte de la destruction de la veine de feu terrestre ou par l'extrême jalousie qui lui rongeait le cœur, elle refusait de laisser ce véritable corps d'essence prendre forme. Elle cracha un jet de sang et fusionna son être avec lui. En un éclair, elle se déplaça plus de dix fois plus vite qu'auparavant, fonçant vers le véritable corps d'essence de Wang Lin telle une ombre.
+« Je ne peux pas le laisser réussir! » La jeune femme serra les dents. Que ce soit par crainte de la destruction de la veine de feu terrestre ou par l'extrême jalousie qui lui rongeait le cœur, elle refusait de laisser ce véritable corps d'essence prendre forme. Elle cracha un jet de sang et fusionna son être avec ce sang. En un éclair, elle se déplaça plus de dix fois plus vite qu'auparavant, fonçant vers le véritable corps d'essence de Wang Lin telle une ombre.
 
 Après que le véritable corps d'essence de Wang Lin eut poussé ce rugissement de volonté, la volonté de l'âme du dragon s'effondra. La volonté de Wang Lin prit le contrôle et la dernière résistance de l'âme du dragon fut balayée!
 
 Une fois la volonté du dragon brisée, celle de Wang Lin prit les commandes et commença à dévorer les vestiges de l'âme draconique. Un grondement tonitruant résonna dans l'esprit de Wang Lin.
 
-Tandis que ce fracas résonnait, le sens divin de Wang Lin se propagea dans toutes les directions. Il entendit vaguement un rugissement misérable provenant des profondeurs de la terre du Continent du Taureau Céleste, à l'extérieur de la veine de feu principale.
+Tandis que ce fracas résonnait, le sens divin de Wang Lin se propagea dans toutes les directions. Il entendit vaguement un rugissement déchirant provenant des profondeurs de la terre du Continent du Taureau Céleste, à l'extérieur de la veine de feu principale.
 
 Au moment où ce cri pénétra son esprit, il venait d'absorber tous les derniers vestiges de la volonté effondrée de l'âme du dragon de feu. Le rugissement résonna comme le tonnerre dans son esprit, créant une véritable illusion!
 
@@ -88,7 +88,7 @@ La confusion n'avait pas encore quitté ses yeux que les plumes du véritable co
 
 À cet instant précis, une lumière sanguine monstrueuse jaillit devant lui. Au cœur de cette lueur se trouvait une jeune femme magnifique. En voyant que les cheveux du véritable corps d'essence de Wang Lin se formaient à vue d'œil, elle fut prise d'anxiété. Une intention meurtrière brilla dans ses yeux et elle s'apprêta à lancer un sort pour détruire ce véritable corps d'essence sur le point de naître!
 
-Des ondulations se formèrent derrière la jeune femme alors que le corps originel de Wang Lin en émergeait. Au moment où elle allait déclencher son attaque, une lueur froide traversa les yeux de Wang Lin. Le sort d'Arrêt qu'il avait préparé tout au long du chemin et qu'il n'avait pas encore utilisé éclata soudainement.
+Des ondulations se formèrent derrière la jeune femme alors que le corps originel de Wang Lin en émergeait. Au moment où elle allait déclencher son attaque, une lueur froide traversa les yeux de Wang Lin et sa main droite se leva. Le sort d'Arrêt qu'il avait préparé tout au long du chemin et qu'il n'avait pas encore utilisé éclata soudainement.
 
 « Sort d'Arrêt! » Arrêter les cieux et la terre, arrêter tous les sorts, arrêter l'esprit, tout arrêter. C'était le sort d'Arrêt de Wang Lin. Il ne s'attaquait pas qu'au corps!
 

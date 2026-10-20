@@ -16,7 +16,7 @@ La belle femme d'âge moyen et ses quatre disciples étaient derrière lui!
 
 « Si je ne me trompe pas, c'est le célèbre monde de la bouteille de l'Empereur Céleste Qing Lin! La rumeur raconte que Qing Lin a tué d'affilée 39 Ancêtres d'Âme du Clan du Tatouage, un peuple venu d'ailleurs, et s'est emparé de leurs reliques sacrées. Il les a ensuite raffinées par un sort puissant pour créer un monde qu'il a fusionné dans la bouteille! »
 
-« On ignore ce qu'il a fait exactement, mais selon les archives de l'Alliance, cette bouteille était l'outil que Qing Lin utilisait pour collecter l'énergie spirituelle céleste. Il se murmurait également que ce trésor pouvait briser le sceau du monde entourant les quatre systèmes stellaires! »
+« Ses effets sont de mauvais augure, mais selon les archives de l'Alliance, cette bouteille était l'outil que Qing Lin utilisait pour collecter l'énergie spirituelle céleste. Il se murmurait également que ce trésor pouvait briser le sceau du monde entourant les quatre systèmes stellaires! »
 
 Maître du Vide parlait tout en contemplant la pierre de jade violette et verte dans sa main.
 
@@ -34,7 +34,7 @@ Les pupilles du Maître du Vide se rétractèrent soudainement!
 
 Le visage de la belle femme était empreint de choc, et une trace d'anxiété apparut sur ses traits lorsqu'elle répondit rapidement: « Lorsque je l'ai vu auparavant, il ne possédait que le marquage de l'Oiseau Vermillon, et il était complètement scellé. Il est impossible qu'il s'éveille en un laps de temps aussi court! »
 
-« L'éveil de l'Oiseau Vermillon... C'est un événement qui ébranle les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Vide Brillant. Si l'Alliance n'avait pas obtenu davantage d'héritages et de reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte du Vide Brillant, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
+« L'éveil de l'Oiseau Vermillon... C'est un événement qui ébranle les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Vide Brillant. Si l'Alliance n'avait pas obtenu la plus grande part des héritages et reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte du Vide Brillant, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
 
 Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Saints, l'intention meurtrière dans les yeux du Maître du Vide s'intensifia.
 
@@ -110,7 +110,7 @@ Plus particulièrement, les yeux de l'Oiseau Vermillon affichaient un regard fro
 
 La mer de flammes qui recouvrait le monde commença à converger et, en un clin d'œil, fut absorbée par l'Oiseau Vermillon. Il était impossible de dire si l'oiseau recrachait la mer de flammes ou si celle-ci était aspirée par lui.
 
-De loin, on voyait la mer de flammes déferler de toutes les directions. Le cri de l'Oiseau Vermillon retentit une fois de plus, empreint cette fois d'une joie immense.
+De loin, on voyait la mer de flammes déferler de toutes les directions. Le cri de l'Oiseau Vermillon retentit une fois de plus, empreint cette fois d'un soupçon de joie.
 
 Alors que ce cri résonnait, toutes les flammes couvrant des millions de kilomètres dans le royaume se rassemblèrent vers lui comme possédées.
 

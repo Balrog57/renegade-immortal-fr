@@ -204,6 +204,6 @@ Une fois que les généraux démons et leurs assistants eurent franchi la Porte 
 
 Les débats éclatèrent avec une intensité sans précédent; même les discussions lors de la blessure d'Ao Di par Wang Lin semblaient dérisoires en comparaison.
 
-L'homme en armure dorée laissa échapper un ricanement glacial qui se propagea sur la place comme le tonnerre, imposant le silence. Bien qu'il ne comprenne pas totalement l'ordre de l'Empereur Démon, il reprit froidement: « Ce tambour a été laissé par le premier empereur démon du Pays du Démon Céleste; la rumeur dit qu'il est fait de la peau d'un démon ancien. Ceux qui manquent de force exploseront avant même d'avoir pu le faire sonner une seule fois. Si vous le faites sonner trois fois, vous êtes fort; si vous le faites six fois, vous êtes un génie béni par les cieux. Peu d'entre vous pourront atteindre les trois coups. »
+L'homme en armure dorée laissa échapper un ricanement glacial qui se propagea sur la place comme le tonnerre, imposant le silence. Bien qu'il ne comprenne pas totalement l'ordre de l'Empereur Démon, il reprit froidement: « Ce tambour a été laissé par le premier empereur démon du Pays du Démon Céleste; la rumeur dit qu'il est fait de la peau d'un démon ancien. Ceux qui manquent de force exploseront avant même d'avoir pu le faire sonner une seule fois. Si vous le faites sonner trois fois, vous êtes fort; si vous le faites six fois, vous êtes un génie béni par les cieux. Peu d'entre vous pourront dépasser les trois coups. »
 
 « Les dix premiers de ce tour sont qualifiés! »

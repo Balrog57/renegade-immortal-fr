@@ -94,7 +94,7 @@ Voyant qu'il restait immobile si longtemps, les trois autres sentirent leur cœu
 
 Lin Tao craignait que Wang Lin ne se sente toujours en insécurité et se demandait ce qu'il adviendrait s'il décidait de le tuer.
 
-Zhou Zihong, elle, s'inquiétait de savoir si cet homme la désirerait; une expression de lutte intérieure marquait son visage.
+Zhou Zihong, elle, s'inquiétait de savoir si cet homme exigerait qu'elle partage sa couche; une expression de lutte intérieure marquait son visage.
 
 Yang Xiong était encore plus anxieux, ses pensées s'emballant. Il ne craignait pas seulement pour sa vie, mais redoutait aussi que Wang Lin n'abandonne le corps de Ma Liang pour s'emparer du sien.
 

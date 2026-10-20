@@ -128,7 +128,7 @@ La femme réfléchit un instant en observant Wang Lin, puis dit lentement: « Le
 
 Juste au moment où Wang Lin s'apprêtait à répondre, le sol trembla et un rugissement furieux retentit au loin.
 
-Il ne pouvait rien distinguer dans le lointain. Les restrictions de la Grotte de l'Empereur Céleste étaient si nombreuses qu'elles formaient d'immenses obstacles, comme autant de mondes distincts. Même lorsque deux personnes sont proches, si elles se trouvent dans des zones de restrictions différentes, il est difficile de se trouver.
+Il ne pouvait rien distinguer dans le lointain. Les restrictions de la Grotte de l'Empereur Céleste étaient si nombreuses qu'elles formaient d'immenses obstacles, comme autant de mondes distincts. Même lorsque deux personnes sont proches, si elles se trouvent dans des zones de restrictions différentes, il est difficile de se trouver, et même la vue s'y déforme.
 
 À première vue, la grotte semblait calme, mais ce n'était qu'une apparence. Si toutes les restrictions étaient levées, on découvrirait immédiatement une forêt de bambous au loin. Elle était enveloppée d'un brouillard rouge monstrueux, et le rugissement féroce qui en émanait faisait trembler le ciel.
 

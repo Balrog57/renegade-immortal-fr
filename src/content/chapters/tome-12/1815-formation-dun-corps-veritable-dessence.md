@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1815 - Forming an Essence True Body!"
 slug: formation-dun-corps-véritable-dessence
 ---
-« Avec mon sceau doré, il devrait s'en sortir dans les terres célestes... Maintenant qu'il est arrivé, il n'y a pas d'urgence à aller le chercher... Laissons-le perfectionner ses compétences afin qu'il puisse devenir encore plus puissant à l'avenir! » murmura Xuan Luo pour lui-même. Il ne se rendrait pas dans les terres des Cieux. Après tout, avec son statut, il n'était pas opportun d'y aller trop souvent, au risque de provoquer des ennuis inutiles.
+« Avec mon empreinte dorée, il devrait s'en sortir dans les terres célestes... Maintenant qu'il est arrivé, il n'y a pas d'urgence à aller le chercher... Laissons-le perfectionner ses compétences afin qu'il puisse devenir encore plus puissant à l'avenir! » murmura Xuan Luo pour lui-même. Il ne se rendrait pas dans les terres des Cieux. Après tout, avec son statut, il n'était pas opportun d'y aller trop souvent, au risque de provoquer des ennuis inutiles.
 
 Tout comme si plusieurs Grands Empyréens du clan céleste venaient sans cesse dans les Anciens Pays, ils finiraient par être chassés, voire assiégés conjointement.
 
@@ -42,7 +42,7 @@ Ce changement et cette expansion avaient donné à Wang Lin l'idée de former un
 
 Au fil du temps, la boule de feu de dix pieds s'affaiblissait et montrait des signes d'extinction. L'Oiseau Vermillon, doté de ces deux jambes, restait immobile, mais commença lentement à dépérir.
 
-L'essence de feu manquait. Les yeux de Wang Lin brillèrent; il chargea vers la terre et, s'étant posé sur la montagne, plaqua sa main au sol.
+L'essence de feu manquait. Les yeux de Wang Lin brillèrent; il chargea vers la terre et, s'étant posé sur la montagne, plaqua sa main droite au sol.
 
 À cet instant, le sens divin de Wang Lin jaillit de sa main, pénétra la terre et se propagea à une vitesse fulgurante. Des milliers de kilomètres, des dizaines de milliers, des centaines de milliers, des millions de kilomètres... jusqu'à l'infini.
 
@@ -50,7 +50,7 @@ C'était la première fois que Wang Lin déployait son sens divin de la sorte su
 
 Cependant, cette étendue était infiniment proche de celle du monde des grottes. Dans cette zone, on dénichait 172 veines de feu terrestre secondaires et deux veines enfantines!
 
-« 172 âmes de feu terrestre, sortez pour moi! » Wang Lin poussa un rugissement et leva la main. À mesure que sa main s'élevait, la terre trembla. Toutes les veines de feu terrestre situées dans le périmètre de son sens divin commencèrent à vibrer.
+« 172 âmes de feu terrestre, sortez pour moi! » Wang Lin poussa un rugissement et leva la main droite. À mesure que sa main s'élevait, la terre trembla. Toutes les veines de feu terrestre situées dans le périmètre de son sens divin commencèrent à vibrer.
 
 Si l'on observait la scène du haut du ciel par un puissant sortilège, on aurait vu d'innombrables chaînes de montagnes s'effondrer tandis que des âmes de dragons de feu s'en échappaient.
 
@@ -80,7 +80,7 @@ Cette scène l'effrayait.
 
 Wang Lin, essoufflé sur le sommet de la montagne, contemplait la boule de feu et l'Oiseau Vermillon dont les quatre membres étaient formés, mais qui était encore loin d'être complet...
 
-« Deux âmes de dragons de feu enfantines, sortez pour moi! » Wang Lin serra les dents et plaqua sa main au sol. Des grondements sourds retentirent et un rugissement se fit entendre. Dans le champ de son sens divin, deux fluctuations puissantes surgirent de deux directions opposées.
+« Deux âmes de dragons de feu enfantines, sortez pour moi! » Wang Lin serra les dents et plaqua les deux mains au sol. Des grondements sourds retentirent et un rugissement se fit entendre. Dans le champ de son sens divin, deux fluctuations puissantes surgirent de deux directions opposées.
 
 À l'est de Wang Lin, une montagne enneigée qui n'avait pas fondu depuis des dizaines de milliers d'années trembla. À cet instant, toute la neige fondit d'un coup, se transformant en un océan dévalant les pentes. Mais avant d'atteindre le bas, des sifflements stridents retentirent et toute l'eau se changea en vapeur blanche. L'âme d'une veine enfantine de feu terrestre apparut au cœur de cette brume et chargea vers Wang Lin.
 

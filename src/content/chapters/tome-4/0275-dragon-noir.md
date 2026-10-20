@@ -8,7 +8,7 @@ slug: dragon-noir
 ---
 La jeune femme vêtue de blanc ferma les yeux et utilisa une méthode spéciale pour ressentir les batailles qui se déroulaient au sein des quatre sectes. Esquissant un sourire glacial, elle forma un sceau de sa main droite et une lumière blanche jaillit de sa paume pour s'engouffrer dans une déchirure céleste.
 
-Dans un rugissement tonnerre, toutes les déchirures situées dans un rayon de 10 000 mètres autour de la femme fusionnèrent pour former une unique et gigantesque brèche dans le ciel.
+Dans un rugissement tonnerre, toutes les déchirures situées dans un rayon de 5 000 000 mètres autour de la femme fusionnèrent pour former une unique et gigantesque brèche dans le ciel.
 
 Des tours de glace descendirent du gouffre, l'une après l'autre.
 
@@ -40,7 +40,7 @@ En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'â
 
 Papillon Rouge, le génie de Xue Yu que Suzaku cherchait à recruter, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
 
-Les yeux de la femme s'illuminèrent et elle répondit: « Ainsi, il s'agit de Zhou Yun, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
+Les yeux de la femme eurent un bref éclat et elle répondit: « Ainsi, il s'agit de Zhou Yun, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
 
 Le sourcil de Zhou Yun se fronça. Cette femme n'avait pas répondu à sa question. Ce n'était manifestement pas ce qu'il attendait et, voyant qu'elle ne semblait guère vouloir lui répondre, son regard devint glacial et il agita sa manche.
 
@@ -58,7 +58,7 @@ Ce conflit entre deux nations se scinda en deux champs de bataille distincts: l'
 
 C'était la bataille la plus féroce que Wang Lin ait jamais vue. Caché dans la montagne de neige, il observait attentivement ces puissants combattants utiliser des techniques imprégnées de leurs domaines respectifs, étudiant chaque mouvement avec soin.
 
-Les affrontements entre cultivateurs de la Formation de l'Âme ne restaient jamais statiques, car ils pouvaient parcourir 10 000 mètres en un clin d'œil. Peu de temps après, ces experts s'éparpillèrent, transformant toute l'Alliance des Quatre Sectes en un immense terrain de combat à mort.
+Les affrontements entre cultivateurs de la Formation de l'Âme ne restaient jamais statiques, car ils pouvaient parcourir 5 000 000 mètres en un clin d'œil. Peu de temps après, ces experts s'éparpillèrent, transformant toute l'Alliance des Quatre Sectes en un immense terrain de combat à mort.
 
 Le dédain dans le regard de la femme vêtue de blanc s'intensifia tandis qu'elle formait un sceau, faisant apparaître une lumière blanche au creux de sa main. Cependant, à cet instant précis, neuf points lumineux surgirent soudainement autour d'elle.
 

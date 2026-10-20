@@ -50,7 +50,7 @@ Le regard de Wang Lin devint déterminé. Il avait déjà goûté à la cruauté
 
 Il devait devenir si puissant que chacun le craindrait. Ce n'est qu'à ce prix qu'il ne serait plus victime des autres.
 
-« Si mon niveau de culture était celui de la Formation de l'Âme ou de la Transformation de l'Âme, même si je tuais Teng Li ou massacrais toute la famille Teng, Teng Huayuan n'oserait pas dire un mot et n'oserait même pas aller chercher mes parents. Le pouvoir... tout repose sur le pouvoir. Ce n'est qu'en devenant un puissant cultivateur que l'on peut décider de la vie ou de la mort d'autrui. » Le cœur de Wang Lin se serra de douleur tandis que son regard se glaçait.
+« Si mon niveau de culture était celui de la Formation de l'Âme ou de la Transformation de l'Âme, même si je tuais Teng Li ou massacrais tous les habitants de la ville de la famille Teng, Teng Huayuan n'oserait pas dire un mot et n'oserait même pas aller chercher mes parents. Le pouvoir... tout repose sur le pouvoir. Ce n'est qu'en devenant un puissant cultivateur que l'on peut décider de la vie ou de la mort d'autrui. » Le cœur de Wang Lin se serra de douleur tandis que son regard se glaçait.
 
 Il prit une profonde inspiration, ferma les yeux et projeta son Sens Divin dans l'espace du rêve. Peu après, ses mains formèrent un sceau. Il tendit ensuite la main droite pour saisir le vide. Tous les corps de lumière convergèrent pour former une porte.
 

@@ -18,7 +18,7 @@ Le vieil homme réfléchit un instant avant de déclarer lentement: « Camarade 
 
 En entendant ces paroles, les trois femmes furent surprises. Elles connaissaient bien ce vieil Ancêtre. Bien que son niveau de culture fût élevé, il était d'une grande mesquinerie. Or, alors qu'on frappait à sa porte, non seulement il n'attaquait pas, mais il laissait même Wang Lin s'en aller.
 
-C'était particulièrement vrai pour Sun Ruonan. Bien qu'elle ne sache que peu de choses sur Wang Lin, elle pensait que peu importe sa férocité, il ne pouvait égaler le vieil Ancêtre. Il fallait dire que l'Ancêtre était un être céleste; un seul de ses sorts suffisait à piéger quatre cultivateurs au sommet de la phase de Transformation de l'Âme.
+C'était particulièrement vrai pour Sun Ruonan. Bien qu'elle ne sache que peu de choses sur Wang Lin, elle pensait que si puissant soit-il, il ne pouvait égaler le vieil Ancêtre. Il fallait dire que l'Ancêtre était un être céleste; un seul de ses sorts suffisait à piéger quatre cultivateurs au sommet de la phase de Transformation de l'Âme.
 
 Sans parler du fait que l'Ancêtre disposait encore de huit autres gardiens célestes. Elle ne croyait absolument pas qu'ils pourraient perdre si les huit gardiens attaquaient de concert!
 
@@ -54,9 +54,9 @@ Cependant, il n'avait parcouru qu'un demi-pas que les huit gardiens célestes cr
 
 Ces huit bouffées de sang furent absorbées par l'homme d'âge moyen. Soudain, son regard envers Wang Lin devint encore plus vif et intelligent!
 
-Au moment précis où le pas de Wang Lin devait se poser, il ouvrit la bouche et prononça un mot silencieux!
+Au moment précis où le pas de Wang Lin devait se poser, l'homme d'âge moyen ouvrit la bouche et prononça un mot silencieux!
 
-Ce mot fut muet, mais les oreilles de Wang Lin furent assaillies par un fracas inimaginable. Il prit une profonde inspiration et ferma les yeux.
+Ce mot fut muet, mais les oreilles de Wang Lin furent assaillies par un fracas inimaginable. Il expira profondément et ferma les yeux.
 
 Son pied toucha soudain le sol!
 
@@ -68,7 +68,7 @@ Cette sensation terrifiante disparut totalement.
 
 « Quelle puissante attaque illusoire… » Les yeux de Wang Lin devinrent glacials et il laissa échapper un grognement méprisant. Il reprit sa progression en fusionnant avec la rivière des enfers. Celle-ci se déplaça tel un dragon jaune, passant directement par les huit gardiens célestes assis au sol.
 
-Lorsqu'elle passa, les corps des huit gardiens s'effondrèrent. Ils furent piégés dans la rivière des enfers et ne purent jamais s'en échapper.
+Lorsqu'elle passa, les corps des huit gardiens s'effondrèrent. Ils furent piégés dans la rivière des enfers et ne purent jamais s'en échapper, condamnés au cycle de la réincarnation.
 
 Huit éclats de jade brisés volèrent et furent capturés par Wang Lin, qui les rangea dans son sac de stockage. Un rugissement de rage retentit du château et un filament d'énergie spirituelle céleste extrêmement pur explosa. Ce fil continua de se condenser tout en fonçant sur Wang Lin.
 
@@ -98,7 +98,7 @@ Bien que les cultivateurs alentour n'eussent aucune idée de ce qu'il entendait 
 
 Wang Lin avait eu l'impression d'avoir déjà vu cela lorsqu'il avait aperçu ces fils bleus à l'intérieur de Sun Yunshan. En y réfléchissant, il s'agissait clairement de la nourriture pour bêtes célestes qu'il avait rencontrée dans le Royaume Céleste lorsqu'il était entré dans cette grotte avec un disciple de la Secte de l'Épée Da Luo! Il n'en avait pas parlé à Sun Yunshan.
 
-Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconnaître cela. Même après avoir obtenu cette nourriture, il n'avait pas réussi à la contrôler totalement. En la déchaînant ainsi, il agissait par pur désespoir. Normalement, avec sa culture au milieu du stade Ascendant, il n'aurait pas dû en arriver là. Cependant, il traversait des difficultés dont il ne pouvait parler, ce qui justifiait son comportement.
+Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconnaître cela. Même après avoir obtenu cette nourriture, il n'avait pas réussi à la contrôler totalement. En la déchaînant ainsi, il agissait par pur désespoir. Normalement, avec sa culture au milieu du stade Ascendant, il n'aurait pas dû en arriver là. Cependant, il traversait des difficultés dont il ne pouvait parler, ce qui expliquait son comportement.
 
 « Dévorez-le! » hurla le vieil homme en formant un sceau pointé vers les innombrables filaments bleus.
 

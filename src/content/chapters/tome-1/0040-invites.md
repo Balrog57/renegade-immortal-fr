@@ -24,7 +24,7 @@ En voyant les disciples se replier, les visages des Anciens se crispèrent et il
 
 Une fois le mille-pattes posé, il resta immobile. Des dizaines de personnes sautèrent de son dos. Hormis trois Anciens, tous les autres étaient très jeunes.
 
-La Secte Xuan Dao comptait des disciples masculins et féminins. On ne sait si c'était pour irriter la Secte Heng Yue, qui comptait peu de disciples vêtus de pourpre, mais chacun d'eux arborait une tenue violette. Une autre chose éblouit les disciples internes de la Secte Heng Yue: chaque membre de la Secte Xuan Dao, homme ou femme, était d'une grande beauté. Les hommes étaient séduisants et pleins d'aisance, les femmes d'une beauté éclatante.
+La Secte Xuan Dao comptait des disciples masculins et féminins. On ne sait si c'était pour irriter la Secte Heng Yue, qui comptait peu de disciples vêtus de violet, mais chacun d'eux arborait une tenue violette. Une autre chose éblouit les disciples internes de la Secte Heng Yue: chaque membre de la Secte Xuan Dao, homme ou femme, était d'une grande beauté. Les hommes étaient séduisants et pleins d'aisance, les femmes d'une beauté éclatante.
 
 En particulier l'homme et la femme en tête de cortège. L'homme était extraordinairement beau, empreint d'une virilité éclatante. Ses longues manches et ses cheveux flottaient au gré du vent, tandis qu'une précieuse épée attachée dans son dos, au pompon flottant, lui conférait une prestance héroïque. Son apparence ensorcela immédiatement plusieurs disciples internes féminins.
 
@@ -46,7 +46,7 @@ L'Ancien Ouyang éclata de rire: « Je t'ai déjà repéré tout à l'heure, vie
 
 L'Ancien Song sourit: « Ce n'est pas de l'avarice, c'est simplement que lorsque tu te mets à boire, c'est terrifiant. Peu importe le nombre de pots que je sors, ce n'est jamais suffisant. »
 
-Alors que les deux commençaient à discuter, les deux autres Anciens de la Secte Xuan Dao reconnurent des visages familiers et entamèrent une conversation, comme si les paroles hostiles d'autrefois n'avaient jamais été prononcées.
+Alors que les deux commençaient à discuter, les deux autres Anciens de la Secte Xuan Dao reconnurent des visages familiers et entamèrent une conversation, comme si les paroles hostiles de tout à l'heure n'avaient jamais été prononcées.
 
 En évoquant les anecdotes amusantes du monde de la culture dans le pays de Zhao, les yeux des disciples des deux sectes s'écarquillèrent d'intérêt.
 

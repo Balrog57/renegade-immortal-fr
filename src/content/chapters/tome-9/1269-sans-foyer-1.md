@@ -18,7 +18,7 @@ Le jade que Liu Jinbiao avait envoyé était devenu un simple morceau de pierre,
 
 Maintenant que les huit centipèdes étaient morts, l'aura s'était évanouie et le jade n'était plus qu'un objet ordinaire.
 
-Lu Yanfei regarda Wang Lin et dit doucement: « Oncle-Maître, ma Secte de l'Origine a tout organisé; nous pouvons partir à tout moment. »
+Lu Yanfei regarda Wang Lin et dit doucement: « Grand Oncle-Maître, ma Secte de l'Origine a tout organisé; nous pouvons partir à tout moment. »
 
 Wang Lin réfléchit en silence en contemplant la Secte de l'Origine. Il éprouvait encore une certaine affection pour ce lieu. C'était ici qu'il avait passé ses premiers temps dans la Mer des Nuages et là qu'il avait forgé son identité.
 

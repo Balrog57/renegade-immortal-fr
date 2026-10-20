@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1663 - Destroying the Formation!"
 slug: detruire-la-formation
 ---
-Les cultivateurs du Royaume Extérieur concentraient l'essence de la puissance des Flammes Joss pour nourrir leur corps tout entier et atteindre l'éternité. Cependant, dans le Royaume Intérieur, les Flammes Joss étaient rares, ce qui posait problème. Non seulement cela empêchait les gens d'atteindre le troisième stade, mais une fois ce stade atteint, si trop d'essence était consommée, il devenait difficile de récupérer.
+Les cultivateurs du Royaume Extérieur concentraient l'essence de la puissance des Flammes Joss pour nourrir leur corps tout entier et atteindre l'éternité. Cependant, dans le Royaume Intérieur, les Flammes Joss étaient rares, ce qui creusait un véritable abîme. Non seulement cela empêchait les gens d'atteindre le troisième stade, mais une fois ce stade atteint, si trop d'essence était consommée, il devenait difficile de récupérer.
 
 Wang Lin n'avait pas compté sur les Flammes Joss pour atteindre le troisième stade. Il s'était appuyé sur sa propre compréhension pour compléter ses trois essences éthérées. Il avait dévoré d'autres essences pour parachever ses essences du tonnerre et du feu.
 
 Par conséquent, il n'avait nul besoin de Flammes Joss au troisième stade; il lui suffisait d'obtenir les essences que d'autres avaient formées. Dévorer d'innombrables quantités d'essence permettrait de restaurer sa culture et de l'augmenter!
 
-De même, son corps ne possédait pas de domaine de Flammes Joss comme les cultivateurs Vide Spirituel ordinaires. Il n'était pas nécessaire de fusionner un tel domaine avec son corps pour atteindre un état de perfection.
+De même, son corps ne possédait pas de domaine de Flammes Joss comme les cultivateurs Vide Spirituel ordinaires. Son corps étant à lui seul le ciel et la terre, il n'était pas nécessaire de fusionner un tel domaine avec lui pour atteindre la perfection.
 
 Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa culture qu'il pouvait tuer des cultivateurs Vide Arcanique du premier stade alors qu'il n'était qu'au milieu du stade Vide Spirituel!
 
@@ -28,7 +28,7 @@ De plus, comme il n'avait pas absorbé de Flammes Joss, ses essences ne posséda
 
 Si la huitième essence apparaissait et parvenait à sa complétion, il pourrait atteindre le sommet de Vide Spirituel!
 
-Avec neuf essences, il pourrait franchir le stade Vide Arcanique! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Astral Immortel, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Exalté de la Tribulation du Vide!
+Avec neuf essences, il pourrait franchir le stade Vide Arcanique! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Astral Immortel, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Grand Exalté de la Tribulation du Vide!
 
 La différence entre un Exalté de la Tribulation du Vide et un Vide Arcanique résidait dans une calamité de vie ou de mort. Le succès signifiait la vie, l'échec signifiait la mort. À travers les âges, il n'y avait eu aucune exception; c'était un gouffre que chacun devait affronter!
 
@@ -36,7 +36,7 @@ Cette calamité était appelée la Tribulation Arcane. Elle se divisait en neuf 
 
 Même un être aussi puissant que le Souverain n'avait traversé que trois Tribulations Arcanes et n'avait pas eu le courage d'affronter la quatrième.
 
-Le Maître du Dao Rêve Bleu n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il avait encore des choses à accomplir et ne pouvait supporter le regret de l'échec.
+Le Maître du Dao Rêve Bleu n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il ne parvenait pas à trancher ses attachements : il lui restait une dernière chose à accomplir et il ne pouvait supporter le regret de l'échec.
 
 Au cours d'innombrables centaines de millions d'années, de nombreux talents étaient nés dans le Royaume Intérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalté!
 
@@ -46,15 +46,15 @@ Cette fortune céleste avait provoqué une explosion de sa culture, lui permetta
 
 Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral Immortel étaient considérés comme des Grands Exaltés! C'était un niveau de culture au sommet du troisième stade, et si l'on parvenait à faire ce pas légendaire, on piétinerait les cieux!
 
-Le Souverain Céleste aux Sept Couleurs était un Exalté de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire!
+Le Souverain Céleste aux Sept Couleurs était un Grand Exalté de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire!
 
 Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Astral Immortel et de fonder sa propre secte: la Secte des Sept Dao!
 
-Wang Lin ignorait tout de cela, et à cet instant, il n'avait pas le temps d'y songer. Il ouvrit les yeux et se leva, contemplant les étoiles. Il n'était pas grand, mais l'aura qu'il dégageait laissait croire qu'il pouvait soutenir la voûte céleste. Le dos tourné vers le Royaume Intérieur, il inspirait un sentiment de sécurité indicible, tel un protège-poignet béni par un Dieu Ancien.
+Wang Lin n'en connaissait qu'une partie, et à cet instant il n'avait pas le temps d'y songer. Il ouvrit les yeux et se leva, contemplant les étoiles. Il n'était pas grand, mais l'aura qu'il dégageait laissait croire qu'il pouvait soutenir la voûte céleste. Le dos tourné vers le Royaume Intérieur, il inspirait un sentiment de sécurité indicible, tel un protège-poignet béni par un Dieu Ancien.
 
 Le regard empreint de calme, il avança. D'un pas, il se posa sur la mourante Formation de Scellement du Royaume. La formation trembla et laissa paraître une lumière bien plus faible qu'auparavant.
 
-En silence, Wang Lin leva le pied droit et l'écrasa au sol. Dans un fracas assourdissant, toute la Formation de Scellement du Royaume trembla et sa structure immense, semblable à un filet, se manifesta. La formation se révéla à travers tout le Royaume Intérieur!
+En silence, Wang Lin leva le pied droit et l'écrasa sur la formation. Dans un fracas assourdissant, toute la Formation de Scellement du Royaume trembla et sa structure immense, semblable à un filet, se manifesta. La formation se révéla à travers tout le Royaume Intérieur!
 
 Même les dizaines de milliers de cultivateurs en convalescence à Luotian ouvrirent les yeux pour contempler la Formation de Scellement du Royaume!
 
@@ -62,7 +62,7 @@ La puissance de ce pas força la formation à se dévoiler totalement. Ce n'éta
 
 « Vous avez scellé les Royaumes Intérieur et Extérieur pendant de nombreuses années. Vous avez empêché l'invasion du Royaume Extérieur durant des éons et vous êtes le gardien du Royaume Intérieur... Pour cela, je m'incline devant vous! » Wang Lin joignit les mains et s'inclina devant la Formation de Scellement du Royaume.
 
-« Mais parallèlement, à cause de votre existence, il y a eu peu de cultivateurs du troisième stade dans mon Royaume Intérieur. En conséquence, l'équilibre des pouvoirs entre le Royaume Intérieur et le Royaume Extérieur est devenu disproportionné. Votre présence a piégé et scellé mon Royaume Intérieur! » Wang Lin leva la main et l'abattit impitoyablement.
+« Mais parallèlement, à cause de votre existence, il y a eu peu de cultivateurs du troisième stade dans mon Royaume Intérieur. En conséquence, l'équilibre des pouvoirs entre le Royaume Intérieur et le Royaume Extérieur est devenu disproportionné. Votre présence a éternellement piégé et scellé mon Royaume Intérieur! » Wang Lin leva la main et l'abattit impitoyablement.
 
 L'Empreinte du Karma apparut sous la paume de Wang Lin. Puis, ses doigts se crispèrent en un poing qu'il retira brusquement.
 
@@ -70,7 +70,7 @@ L'Empreinte du Karma apparut sous la paume de Wang Lin. Puis, ses doigts se cris
 
 C'était une lance illusoire faite de tonnerre. Cette lance contenait un tonnerre infini et constituait le trésor sacré du Clan du Tonnerre Dispersé!
 
-Wang Lin serra les dents et la lance de tonnerre s'effondra. D'innombrables éclairs se dispersèrent dans toutes les directions, illuminant l'espace environnant.
+D'une pression de la main droite, Wang Lin fit s'effondrer la lance de tonnerre. D'innombrables éclairs se dispersèrent dans toutes les directions sur plusieurs millions de li, illuminant l'espace environnant.
 
 Puisque cette lance de tonnerre avait été initialement fusionnée dans la formation, c'était la première fois qu'elle était extraite et détruite. Désormais, cet esprit n'existerait plus au sein de la formation!
 
@@ -80,15 +80,15 @@ Alors que la lance s'effondrait, la formation commença à vibrer et de fines fi
 
 Six grondements, six karmas et six coups de poing. La formation commença immédiatement son effondrement réel. Le réseau infini se mit à gronder et à se briser.
 
-Une lumière rouge sang apparut devant Wang Lin; toute la formation semblait irradier une lueur sanguine. Un hurlement douloureux, capable de faire basculer le monde, retentit. La Masse Météorique aux Neuf Têtes surgit soudainement dans ce cri. La masse trembla et du sang noir s'écoula de ses têtes. Cependant, après avoir quitté la formation, elle se brisa et disparut devant Wang Lin.
+Une lumière rouge sang apparut devant Wang Lin; toute la formation semblait irradier une lueur sanguine. Des hurlements et des rugissements de douleur retentirent entre ciel et terre. La Masse Météorique aux Neuf Têtes surgit soudainement dans ce cri, son sifflement se répandant dans toutes les directions. Elle fendit l'air en dégageant une intention dominatrice terrifiante, et du sang noir ruissela de ses têtes, exhalant une odeur de sang sans fin. Cependant, après avoir quitté la formation, elle se brisa et disparut devant Wang Lin.
 
-Après la masse météoritique, une vague de chaleur déferla et une gigantesque catapulte de feu apparut. D'innombrables cultivateurs des deux royaumes étaient morts à cause d'elle, la plupart étant issus du Royaume Intérieur!
+Après la masse météoritique, une vague de chaleur déferla et une gigantesque catapulte de feu, hideuse, apparut. D'innombrables cultivateurs des deux royaumes étaient morts à cause d'elle, la plupart étant issus du Royaume Intérieur!
 
 À cet instant, la catapulte fut extirpée puis rapidement réduite en brume, avant de se dissiper totalement.
 
-Après la catapulte, une lumière dorée jaillit et une lame d'or apparut. Puis vint une lumière violette monstrueuse: un fouet géant de couleur pourpre, long d'environ dix mille pieds, surgit. Il était couvert de runes et se tordait comme un python!
+Après la catapulte, une lumière dorée jaillit et une lame d'or apparut. Puis vint une lumière violette monstrueuse: un fouet géant de couleur pourpre, long d'environ dix mille pieds, surgit. Il était couvert de runes, claquait bruyamment et se tordait comme un python!
 
-Après le fouet, la formation trembla et une aura antique se fit sentir. Une gigantesque massue à dents de loup apparut, couverte d'épines. D'innombrables fantômes agités tourbillonnaient autour d'elle, témoignant du massacre qu'elle avait perpétré autrefois.
+Après le fouet, la formation trembla et une aura antique se fit sentir. Une gigantesque massue à dents de loup apparut, hérissée d'épines et d'aspect terrifiant. D'innombrables fantômes agités tourbillonnaient autour d'elle, témoignant du massacre qu'elle avait perpétré autrefois.
 
 Cependant, dès que ces esprits de formation apparurent, ils explosèrent tous. Ils disparurent à jamais de ce monde, s'effaçant de la Formation de Scellement du Royaume!
 

@@ -28,21 +28,21 @@ Maître Âme Écarlate recula inconsciemment de quelques pas, le front perlant d
 
 Cela dépassait l'entendement; tout lui semblait n'être qu'un songe.
 
-En reculant, une pensée lui traversa soudain l'esprit. L'apparition du dragon marin ne provenait pas de Wang Lin, mais de l'épaule d'un cultivateur à l'aura mystérieuse et étrangère.
+En reculant, une pensée lui traversa soudain l'esprit. L'apparition du dragon marin ne provenait pas de Wang Lin, mais de l'épaule d'un cultivateur à l'allure d'immortel.
 
 « Ce n'est pas que ce Wang Lin soit si fort — il ne dégage aucune pression ni fluctuation. Bien qu’il s’agisse d’un trésor dissimulant son aura, seuls les faibles utilisent cette méthode pour se protéger. Si Wang Lin agit ainsi, c'est que son niveau de culture ne doit pas être élevé!
 
-« Ce dragon marin ne lui appartient pas, mais au cultivateur à l'aura étrangère!
+« Ce dragon marin ne lui appartient pas, mais au cultivateur à l'allure d'immortel!
 
 « Le niveau de culture de Wang Lin est modeste, mais il doit être un ami proche de ce cultivateur. Il a dû craindre d'être trop vulnérable lors de son voyage de retour et a demandé à un ami de l'accompagner.
 
-« Et à en juger par l'apparence de ce cultivateur étranger, son propre niveau de culture n'est pas élevé non plus. Cela signifie qu'il doit avoir pour maître un Exalté Empyréen sur le Continent Astral Immortel! C'est la seule explication logique. » Les yeux de Maître Âme Écarlate s'illuminèrent.
+« Et à en juger par l'allure de ce cultivateur, son propre niveau de culture n'est pas élevé non plus. Cela signifie qu'il doit avoir pour maître un Exalté Empyréen sur le Continent Astral Immortel! C'est la seule explication logique. » Les yeux de Maître Âme Écarlate s'illuminèrent.
 
 Alors qu'il reculait, le dragon marin Exalté Doré ouvrit la gueule pour le dévorer, et Maître Âme Écarlate poussa soudain un cri.
 
 « Cher compagnon cultivateur, je vous en prie, écoutez-moi! » La personne à qui il s'adressait n'était ni Wang Lin ni le dragon, mais Liu Jinbiao, qui observait la scène de loin avec un air de fierté.
 
-« Le maître de ce cher compagnon doit être un Exalté Empyréen sur le Continent Astral Immortel. Avec votre talent, vous devez être un disciple direct d'un Exalté Empyréen. Autrement, on ne vous aurait pas fait don d'un dragon marin Exalté Doré. Ceci est une affaire privée entre Wang Lin et moi; je demande donc à ce cher compagnon de ne pas s'en mêler. Je vous en serai éternellement reconnaissant par la suite! » Maître Âme Écarlate n'avait plus d'autre choix. Sous la pression du dragon marin, il n'avait même plus le courage de tenter la fuite.
+« Le maître de ce cher compagnon doit être un Exalté Empyréen sur le Continent Astral Immortel. Vu votre prestance, vous devez être un disciple direct d'un Exalté Empyréen. Autrement, on ne vous aurait pas fait don d'un dragon marin Exalté Doré. Ceci est une affaire privée entre Wang Lin et moi; je demande donc à ce cher compagnon de ne pas s'en mêler. Je vous en serai éternellement reconnaissant par la suite! » Maître Âme Écarlate n'avait plus d'autre choix. Sous la pression du dragon marin, il n'avait même plus le courage de tenter la fuite.
 
 C'était une question de vie ou de mort et le temps pressait. Bien qu'il sût que cet individu était présent à cause de Wang Lin et qu'il serait difficile de le convaincre, il devait tenter sa chance.
 

@@ -52,7 +52,7 @@ Song Tian afficha une expression amère, mais il serra les dents et bondit sur l
 
 La Montagne d'Origine laissa échapper un fracas de tonnerre. Elle se libéra de son inertie et fondit à nouveau sur Wang Lin.
 
-Wang Lin secoua la tête et s'élança. Avant même que la montagne ne l'atteigne, il apparut devant elle et pressa sa main droite contre la paroi.
+Wang Lin secoua la tête et s'élança. Avant même que la montagne ne l'atteigne, il apparut sous elle et pressa sa main droite contre la paroi.
 
 Dès que sa paume toucha la roche, la montagne trembla soudainement et Song Tian cracha de nouveau du sang. Il fut projeté en arrière de plusieurs pas avant de réussir à se stabiliser.
 
@@ -74,9 +74,9 @@ Ce vieil homme était l'actuel empereur des Anciens Shi. Il hésita un instant, 
 
 Le prince Ji Du était transporté par l'excitation. Tout cela lui paraissait irréel. Ce qu'il avait toujours espéré lui était offert si aisément qu'il en entra dans une sorte de transe. Cependant, il n'était pas un homme ordinaire; après un instant, il prit une profonde inspiration et s'avança devant l'assemblée.
 
-Il hésita un moment, ne remerciant ni Song Tian ni son père. Au lieu de cela, il se détourna et tomba à genoux devant Wang Lin, en présence de Song Tian, de l'empereur et des membres les plus puissants des Anciens Shi.
+Il hésita un moment, ne remerciant ni Song Tian ni son père. Au lieu de cela, il se détourna et tomba à genoux devant Wang Lin, en présence de Song Tian, de l'empereur, des autres princes et des membres les plus puissants des Anciens Shi.
 
-« Merci, parrain, pour votre aide! »
+« Merci, parrain, de me l'accorder! »
 
 Cette révérence et ces mots provoquèrent un choc général. Tous se tournèrent vers lui, le regard empreint d'incrédulité.
 
@@ -90,11 +90,11 @@ Au loin, Chi Man ressentait initialement une pointe de frustration, mais il éta
 
 « Ji Du, en tant que prince, comment peux-tu désigner n'importe qui comme parrain? Tu seras le futur empereur des Anciens Shi, comment peux-tu t'incliner devant un Grand Empyréen de l'Ancien Dao?! »
 
-L'empereur des Anciens Shi restait silencieux, plongé dans ses pensées. Il observait son fils agenouillé devant Wang Lin, ne cachant pas la mélancolie qui perçait dans ses yeux.
+L'empereur des Anciens Shi restait silencieux, plongé dans ses pensées. Il observait son fils agenouillé devant Wang Lin, et une lueur sombre traversa ses yeux.
 
 Le tumulte environnant fit pâlir le visage de Ji Du, mais ses yeux brillaient de détermination lorsqu'il regarda Wang Lin. Il savait ce qu'il faisait: il voulait signifier à son parrain que même s'il devenait l'empereur des Anciens Shi, Wang Lin resterait son parrain!
 
-Wang Lin observa également Ji Du. Il ne s'attendait pas à ce que le jeune homme ait le courage d'accomplir un tel acte devant son père, ses frères et ses pairs du clan.
+Wang Lin observa également Ji Du. Il ne s'attendait pas à ce que le jeune homme ait le courage d'accomplir un tel acte devant son père et les nombreux membres du clan.
 
 Ji Du aurait pu honorer sa promesse envers Wang Lin en secret. De cette façon, son ascension au trône aurait été sans encombre, mais désormais, son chemin serait semé d'embûches.
 

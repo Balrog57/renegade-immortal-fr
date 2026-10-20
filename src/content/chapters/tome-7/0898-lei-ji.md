@@ -54,7 +54,7 @@ Ce geste parut dérisoire pour Wang Lin, mais ce que vit l'ancêtre du Clan des 
 
 Dès que le bout du doigt de Wang Lin eut touché la surface, le cercueil de milliers de pieds s'effondra instantanément, se dispersant dans toutes les directions. Une masse de brume blanche s'en échappa, emplissant l'espace.
 
-Au sein de cette brume flottait un homme nu gigantesque. Sa peau était d'un bleu acier. Contrairement à un Dieu Ancien, sa peau ne présentait aucune fissure; elle était parfaitement lisse.
+Au sein de cette brume flottait le cadavre nu d'un homme gigantesque. Sa peau était d'un bleu acier. Contrairement à un Dieu Ancien, sa peau ne présentait aucune fissure; elle était parfaitement lisse.
 
 Une plante pourpre recouvrait le corps du géant et s'agitait continuellement. À chaque mouvement de la plante, le corps du géant rétrécissait visiblement avant de reprendre rapidement sa forme initiale. Au fil de ce cycle, une quantité massive de brume blanche et glaciale était libérée par la plante.
 
@@ -96,7 +96,7 @@ Alors que la plante démoniaque poussait un cri strident, ses vignes chargèrent
 
 Le Sceau Céleste provoqua un grondement sourd en s'abattant sur l'ennemi.
 
-Wang Lin leva sa main droite, imprégnée d'une intention tonnante. La foudre surgit du néant pour converger dans sa paume. Alors qu'il domptait la foudre des cieux, une sphère de lumière pourpre apparut en un éclair.
+Wang Lin leva sa main droite, imprégnée d'une intention tonnante. La foudre surgit du néant pour converger dans sa paume. Alors qu'il domptait la foudre des cieux, une sphère de foudre pourpre apparut en un éclair.
 
 Il la projeta en avant, et la boule de tonnerre fonça droit sur la plante.
 

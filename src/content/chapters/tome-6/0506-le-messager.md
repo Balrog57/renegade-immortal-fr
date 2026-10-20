@@ -74,7 +74,7 @@ L'expression de Wang Lin demeura impassible alors qu'il agita ses manches pour e
 
 La zone fut soudainement plongée dans un brouillard noir dégageant une aura lugubre.
 
-Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau d'une dizaine de mètres de long. Bien que le Drapeau des Mille Millions d'Âmes ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
+Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau d'une dizaine de mètres de long. Bien que le Drapeau des Âmes d'un Milliard ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
 
 Après ces préparatifs, Wang Lin prit une profonde inspiration, puis d'un geste de la main, un jade apparut!
 
@@ -118,12 +118,12 @@ Cependant, cette pratique était extrêmement difficile à cultiver.
 
 Après un mois et demi, Wang Lin n'ayant toujours pas saisi l'essence de l'art, il décida finalement d'abandonner pour le moment. À la place, il choisit de se consacrer à la compréhension du Dao céleste afin de continuer à affiner ses sorts actuels.
 
-C'est durant cette période qu'il subit un contrecoup de son chariot de guerre!
+C'est durant cette période qu'il subit un contrecoup de son Char de Guerre Divin!
 
 Il s'agissait du premier contrecoup après avoir libéré le premier sceau. Wang Lin s'y était préparé et, après avoir combattu la bête pendant plusieurs jours, il utilisa un sort secret pour la réprimer. La contre-attaque de l'esprit de la bête échoua.
 
 Le vieil homme de Ling Yue, qui était entré dans la zone à ce moment-là, avait personnellement vu l'inflexible esprit de la bête.
 
-Après avoir maîtrisé le chariot de guerre, Wang Lin cultiva silencieusement durant plusieurs jours. Un jour, il ouvrit soudainement les yeux, et son regard brilla d'un éclair de compréhension.
+Après avoir maîtrisé le Char de Guerre Divin, Wang Lin cultiva silencieusement durant plusieurs jours. Un jour, il ouvrit soudainement les yeux, et son regard brilla d'un éclair de compréhension.
 
 « L'Art du Massacre Céleste doit être compris au cœur même du massacre. Le déduire ainsi, à vide, manque de vivacité. Si je veux véritablement cultiver cet art, tout doit commencer par le carnage! » Les yeux de Wang Lin s'illuminèrent; il se leva, fit un pas et sortit directement de la tour.

@@ -32,7 +32,7 @@ Des grondements tonitruants se propagèrent follement et l'espace lui-même trem
 
 Cependant, l'impact ne fut pas sans conséquence pour Wang Lin; il fut projeté en arrière de plusieurs milliers de pieds. Une entaille profonde atteignant l'os apparut sur son poing, et même ses os étaient fissurés. La Hache de la Fente Céleste était d'une puissance extrême!
 
-Tout en reculant, les yeux de Wang Lin brillèrent. Tandis que sa main droite se rétablissait, il tendit le bras. Une lumière sanglante surgit avec l'Épée de Sang. D'un geste, il fit s'étendre l'épée sur mille pieds; la lueur rouge était éblouissante.
+Tout en reculant, les yeux de Wang Lin brillèrent. Tandis que sa main droite se rétablissait, il tendit le bras. Une lumière sanglante surgit avec l'Épée de Sang. D'un geste, il fit s'étendre l'épée sur mille pieds; la lueur rouge, éblouissante, enveloppa les huit directions.
 
 Armé de son épée de sang, Wang Lin chargea. Il leva l'arme bien haut et trancha l'air. Un rayon monstrueux d'énergie d'épée jaillit vers la Hache de la Fente Céleste.
 

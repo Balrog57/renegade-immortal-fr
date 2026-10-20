@@ -66,7 +66,7 @@ Chaque messager traça un sceau lui permettant de communiquer par une méthode s
 
 Wang Lin ignorait tout de ce déploiement. L'appel venant de son âme devint plus impérieux; alors que son âme tremblait, son sang se mit à bouillir.
 
-Toujours debout sur le grand fourneau, Wang Lin accéléra pour se précipiter vers l'extrémité du étroit passage. L'appel de son âme redoublait de force, jusqu'à saturer tout son être.
+Toujours debout sur le grand fourneau, Wang Lin accéléra pour se précipiter vers l'extrémité du passage étroit. L'appel de son âme redoublait de force, jusqu'à saturer tout son être.
 
 « Viens... Viens... »
 
@@ -112,7 +112,7 @@ Ce changement soudain assombrit le visage de Wang Lin. Sans hésiter, il regagna
 
 La zone subissant cette mutation colossale ne se limitait pas à l'espace de Wang Lin; tout le passage étroit était en plein chaos.
 
-Comme si le Serpent aux yeux de lune était en proie au désespoir, il absorbait toute la vitalité disponible, comme s'il voulait consommer instantanément toutes les réserves accumulées au fil des éternités.
+Comme s'il ne se souciait plus de rien, le Serpent aux yeux de lune absorbait toute la vitalité disponible, comme s'il voulait consommer instantanément toutes les réserves accumulées au fil des éternités.
 
 Des bruits de craquements résonnèrent alors que les corps momifiés s'effondraient, leur ultime étincelle de vie étant aspirée par le serpent.
 

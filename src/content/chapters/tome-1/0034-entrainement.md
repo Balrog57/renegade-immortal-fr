@@ -38,7 +38,7 @@ Sun Dazhu dit froidement: « As-tu autre chose à dire? Sinon, fiche le camp. Ch
 
 Wang Lin s'inclina et dit respectueusement: « Maître, ce disciple s'ennuie vraiment à rester ici dans les montagnes et aimerait pouvoir partir jusqu'après le Nouvel An. Qu'en pensez-vous? »
 
-Sun Dazhu refusa d'un ton sec: « Partir de la montagne? C'est impossible. J'ai failli oublier avant que tu ne l'évoques, mais dans quatre ans aura lieu la compétition entre les autres sectes. Cette fois, le Chef a déjà ordonné qu'après le Nouvel An, la plupart des disciples internes devront suivre un entraînement intensif de quatre ans. Tu devrais t'y consacrer afin de ne pas ternir ma réputation lors de la compétition inter-sectes. »
+Sun Dazhu refusa d'un ton sec: « Partir de la montagne? C'est impossible. J'ai failli oublier avant que tu ne l'évoques, mais dans quatre ans aura lieu la compétition avec la Secte Xuan Dao. Cette fois, le Chef a déjà ordonné qu'après le Nouvel An, la plupart des disciples internes devront suivre un entraînement intensif de quatre ans. Tu devrais t'y consacrer afin de ne pas ternir ma réputation lors de la compétition inter-sectes. »
 
 « Un entraînement intensif? » Wang Lin était stupéfait.
 

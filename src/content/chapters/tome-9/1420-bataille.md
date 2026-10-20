@@ -32,7 +32,7 @@ Pourtant, à cet instant, des paroles incroyables qui stupéfièrent tous les sp
 
 « Je ne suis pas si sûr. Bien que sa culture ne puisse rivaliser avec celle d'un maître de la troisième étape, le choc des épreuves a porté son élan à son apogée. S'il ne se bat pas maintenant, il gaspillerait cette opportunité! »
 
-« Hmph, un cultivateur de la troisième étape n'est pas de notre trempe. Je parie que Maître Simo n'aura besoin que d'un seul sort pour enseigner à ce troisième Jeune Empereur les conséquences de son arrogance! »
+« Hmph, un cultivateur de la troisième étape n'est pas à la portée de gens comme nous. Je parie que Maître Simo n'aura besoin que d'un seul sort pour enseigner à ce troisième Jeune Empereur les conséquences de son arrogance! »
 
 « J'admire le troisième Jeune Empereur pour son audace. Qu'il réussisse ou non importe peu; combien parmi vous oseraient agir ainsi? Vous parlez tous avec dédain, mais qui d'entre vous oserait s'avancer pour le défier comme lui? »
 
@@ -40,7 +40,7 @@ Au début, les dizaines de milliers de cultivateurs murmuraient dans le dos de W
 
 Les paroles de Wang Lin, et plus particulièrement son ultime commandement — « Viens » — témoignaient d'une confiance absolue!
 
-La Grande Maîtresse Yun Luo était également sous le choc. Elle n'aurait jamais imaginé que Wang Lin oserait défier Maître Simo. À cet instant, l'homme devant elle se transformait rapidement en une figure terrifiante. Elle avait l'impression d'être en transe, incapable de distinguer l'homme de la légende qu'il devenait.
+La Grande Maîtresse Yun Luo était également sous le choc. Elle n'aurait jamais imaginé que Wang Lin oserait défier Maître Simo. À cet instant, l'homme devant elle se transformait rapidement en une figure terrifiante. Elle avait l'impression d'être en transe, incapable de distinguer l'homme devant elle de la silhouette terrifiante de sa vision.
 
 Le vieux Oiseau Vermillon afficha un sourire suffisant. C’était précisément ce qu’il attendait: il voulait que son cadet accomplisse ce que tout le monde jugeait impossible!
 
@@ -80,7 +80,7 @@ Une tête de dragon gigantesque émergea du cœur de la tempête éthérée. Le 
 
 Un feu monstrueux emplit rapidement ces fractures, donnant au ciel un aspect d'une férocité extrême!
 
-À cet instant, une autre tête de dragon surgit du tourbillon. Cette fois, c'était un dragon orange qui rugit en s'élançant contre les montagnes montant des profondeurs. Ce dragon de dix mille pieds de long fit s'embraser les sommets sur son passage.
+À cet instant, une autre tête de dragon surgit du tourbillon. Cette fois, c'était un dragon orange qui rugit en s'élançant contre les montagnes montant des profondeurs. Ce dragon de plusieurs dizaines de milliers de pieds de long fit s'embraser les sommets sur son passage.
 
 Peu après, les rugissements se succédèrent pour le troisième, le quatrième, le cinquième... jusqu'à ce que neuf dragons de feu soient apparus!
 

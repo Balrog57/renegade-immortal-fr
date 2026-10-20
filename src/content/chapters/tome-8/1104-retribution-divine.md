@@ -8,7 +8,7 @@ slug: retribution-divine
 ---
 À l'instant même où ces volcans illusoires apparurent, d'immenses quantités d'énergie originelle commencèrent à s'y rassembler. Tandis que Wang Lin avançait, on aurait dit qu'une traînée de volcans le suivait.
 
-Quiconque aurait été témoin de cette scène en serait resté pantois et totalement terrifié.
+Quiconque aurait été témoin de cette scène en serait resté pantois.
 
 Le problème résidait dans le fait que ces volcans paraissaient trop réels. D'un simple coup d'œil, on pouvait deviner leur nature illusoire, mais en y regardant à nouveau, on aurait eu l'impression de se tenir juste à leurs côtés. Leur réalisme était tel qu'il pouvait ébranler l'esprit.
 
@@ -30,7 +30,7 @@ Tout en réfléchissant, Wang Lin agita la main droite et une fissure d'environ 
 
 La main droite de Wang Lin plongea dans la fissure pour en extraire un talisman jaune. D'une simple pensée, la faille disparut instantanément.
 
-Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon était d'un jaune terreux et, en tournant, il produisait un hurlement de vent violent. Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, multipliant plusieurs fois sa vitesse.
+Il projeta le talisman jaune sur la bête-moustique. L'animal trembla, puis un tourbillon l'enveloppa avant qu'il ne s'élance dans l'espace supérieur. Ce tourbillon était d'un jaune terreux et, en tournant, il produisait un hurlement de vent violent. Simultanément, un oiseau géant apparut au-dessus du vortex et déploya ses ailes. La bête-moustique poussa soudain un cri assourdissant et fonça en avant tel un éclair, multipliant sa vitesse d'innombrables fois.
 
 La bête atteignit alors une limite de célérité telle que Wang Lin se retrouva chevauchant la créature; elle allait si vite que les étoiles au loin ne lui apparaissaient plus que comme de longues traînées lumineuses.
 

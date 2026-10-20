@@ -12,7 +12,7 @@ Cette voix était rauque, empreinte d'une haine farouche. Provenant des profonde
 
 Un rayon de lumière violette jaillit de l'abîme et fendit le ciel. De loin, il ressemblait à un pilier gigantesque capable de soutenir les cieux et la terre.
 
-Dès l'apparition de cette lueur, tout le palais fut enveloppé d'un halo pourpre. Cette lumière violette était composée d'innombrables formations, comme si une grande formation avait été activée.
+Dès l'apparition de cette lueur, tout le palais fut enveloppé d'un halo violet. Cette lumière violette était composée d'innombrables formations, comme si une grande formation avait été activée.
 
 Un cercueil violet émergea lentement du sol effondré. Ce rideau de lumière exhalait une aura de mort, mais dégageait également une puissance antique si écrasante qu'elle attira tous les regards. Le cercueil se redressa et son couvercle vola en éclats, révélant un corps squelettique à l'intérieur.
 
@@ -40,7 +40,7 @@ Wang Lin ignorait qui était cette personne, mais après avoir vu la vieille fem
 
 Dans les dizaines de milliers d'années d'histoire du Dao Antique, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur du Dao Antique!
 
-Son accession au trône avait provoqué un tollé dans tout le Dao Antique. Après avoir subi les critiques des membres du clan, le Grand Empyréen Gu Dao avait publié un décret pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
+Son accession au trône avait provoqué un tollé dans tout le Dao Antique. Après avoir subi les critiques des membres du clan, le Grand Empyréen Gu Dao avait fait transmettre un message pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
 
 Cette femme faisait également partie de la famille impériale. À cette époque, le Dao Antique touchait presque à son apogée et était devenu le plus puissant des trois clans sous sa direction. Cependant, après son règne, le Dao Antique finit par devenir le plus faible des trois clans des dizaines de milliers d'années plus tard.
 
@@ -84,7 +84,7 @@ La vieille femme resta silencieuse un instant avant de regarder Xuan Luo. Ses ye
 
 « En tant qu'empereur, aurait-il dû agir ainsi?! Crois-tu vraiment que cette formation puisse piéger Wang Lin?! » À la fin de son discours, Xuan Luo se mit à rugir. Ses yeux étaient emplis de tristesse et, lorsqu'il regarda Wang Lin, sa douleur devint déchirante.
 
-Il ne pourrait jamais oublier ce sourire semblable à des pleurs. Puis cette révérence après le sourire, suivie de la paume que Wang Lin avait utilisée pour mettre fin à ses jours afin de rompre leur lien.
+Il ne pourrait jamais oublier ce sourire semblable à des pleurs. Puis cette révérence et cette prosternation après le sourire, suivies de la paume que Wang Lin avait utilisée pour mettre fin à ses jours afin de rompre leur lien.
 
 Il comprit que son statut de maître de Wang Lin s'était évanoui lorsque le corps de ce dernier s'était effondré.
 

@@ -30,7 +30,7 @@ La main droite de Lie Yunzi s'étira et le Parchemin de Bataille revint dans sa 
 
 Sur les 147 participants, il ne restait plus que 112 personnes.
 
-Alors que Lie Yunzi regagnait son tapis de prière, le regard du Maître Yan Leizi balaya les 112 survivants. Ses yeux brillaient comme des torches et il déclara d'une voix lente: « Les trois épreuves sont terminées, et tous ceux qui restent ici sont l'élite de cette génération. À l'origine, les six voies de la réincarnation devaient tester votre Dao, mais puisque votre nombre est déjà proche de 108, nous passerons directement à "Une Ligne vers les Cieux"! »
+Alors que Lie Yunzi regagnait son tapis de prière, le regard du Maître Yan Leizi balaya les 112 survivants. Ses yeux brillaient comme des torches et il déclara d'une voix lente: « Les trois épreuves sont terminées, et tous ceux qui restent ici sont l'élite de cette génération du Système Stellaire de Luotian. À l'origine, les six voies de la réincarnation devaient tester votre Dao, mais puisque votre nombre est déjà proche de 108, nous passerons directement à "Une Ligne vers les Cieux"! »
 
 « "Une Ligne vers les Cieux" est l'ultime étape de la compétition pour le titre céleste. Celui qui aura fait le plus de victimes sera le premier des 108 immortels, et les 36 premiers seront nommés "Célestes du Ciel"! »
 
@@ -66,7 +66,7 @@ Wang Lin réfléchit silencieusement. Après avoir fait circuler son énergie d'
 
 À cet instant, un autre sens divin se propagea pour scanner la zone. Les yeux de Wang Lin brillèrent et il bougea rapidement. Sa vitesse était telle qu'en un instant, il aperçut le cultivateur qui déployait son sens divin.
 
-Il s'agissait de Zhao Tongdao, qui avait été interrompu deux fois par Wang Lin lors des trois épreuves précédentes. En apparaissant, il était extrêmement désorienté par son environnement. Suivant les enseignements de sa famille, il déploya inconsciemment son sens divin pour observer les alentours. Cependant, dès que son sens divin s'étendit, un puissant sentiment de crise l'enveloppa. Paniqué, il réalisa qu'il avait commis une erreur fatale!
+Il s'agissait de Zhao Yidao, qui avait été interrompu deux fois par Wang Lin lors des trois épreuves précédentes. En apparaissant, il était extrêmement désorienté par son environnement. Suivant les enseignements de sa famille, il déploya inconsciemment son sens divin pour observer les alentours. Cependant, dès que son sens divin s'étendit, un puissant sentiment de crise l'enveloppa. Paniqué, il réalisa qu'il avait commis une erreur fatale!
 
 Il voulut immédiatement s'enfuir, mais à ce moment précis, un brouillard noir passa derrière lui. Une intention meurtrière puissante surgit et dévora instantanément le Zhao qui tentait de s'échapper.
 
@@ -98,7 +98,7 @@ Du début à la fin, Wang Lin resta impassible. Dès l'apparition du cultivateur
 
 Pris de panique, le cultivateur forma un sceau manuel et un sort commença à se manifester. Cependant, ces sorts n'eurent aucun effet sur le Sceau Céleste. Ce dernier se rapprocha instantanément et grandit soudainement. Il pressa impitoyablement la cible tandis qu'une multitude de runes dorées apparaissaient pour bloquer toute fuite.
 
-Le regard du cultivateur fut empreint de désespoir; il frappa son sac de rangement et des centaines d'épées volantes apparurent. Il voulut résister, mais alors qu'un grondement tonitruant résonnait, toutes les épées s'effondrèrent. Le Sceau Céleste s'écrasa sur lui dans un fracas, et il laissa échapper un gémissement de douleur. Alors que le cultivateur se dissipait, une rune dorée s'en échappa en scintillant. Un instant plus tard, la rune dorée semblait douée d'intelligence.
+Le regard du cultivateur fut empreint de désespoir; il frappa son sac de rangement et des centaines d'épées volantes apparurent. Il voulut résister, mais alors qu'un grondement tonitruant résonnait, toutes les épées s'effondrèrent. Le Sceau Céleste s'écrasa sur lui dans un fracas, et il laissa échapper un gémissement de douleur. Alors que le cultivateur se dissipait, une rune dorée jaillit en scintillant et se fondit dans son corps. Un instant plus tard, la rune dorée semblait douée d'intelligence et réintégra le Sceau Céleste.
 
 Les yeux de Wang Lin se rétrécirent et il rétracta le Sceau Céleste. Après l'avoir observé attentivement, il leva lentement la tête vers la jungle lointaine et déclara calmement: « Combien de temps comptez-vous attendre avant de m'attaquer?! »
 

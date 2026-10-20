@@ -76,11 +76,11 @@ Le Maître du Dao Rêve Bleu réfléchit un instant puis répondit lentement: «
 
 Le Maître du Dao Rêve Bleu ne répondit pas à cette question. Au lieu de cela, après un long silence méditatif, il déclara:
 
-« La troisième étape de la culture est appelée les quatre royaumes du vide! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et le Vide de la Tribulation est le sommet! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet du Vide de la Tribulation, mais jamais de quiconque ayant traversé la tribulation avec succès; quant à la légendaire quatrième étape, la Marche sur le Ciel, personne ne l'a jamais atteinte!
+« La troisième étape de la culture est appelée les quatre royaumes du vide! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et la Tribulation du Vide est le sommet! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet de la Tribulation du Vide, mais jamais de quiconque ayant traversé la tribulation avec succès; quant à la légendaire quatrième étape, la Marche sur le Ciel, personne ne l'a jamais atteinte!
 
 Même les huit concubines impériales célestes n'ont pas atteint ce stade! » Le Maître du Dao Rêve Bleu détourna son regard de Wang Lin et parla lentement en contemplant l'horizon lointain.
 
-« J'ai deux essences dans mon corps. L'une est au stade intermédiaire du Vide Arcanique, et l'autre essence est actuellement scellée, mais elle est infiniment proche du début du Vide de la Tribulation. Lorsque les deux fusionneront, je pourrai déployer une puissance égale au sommet du stade du Vide Arcanique!
+« J'ai deux essences dans mon corps. L'une est au stade intermédiaire du Vide Arcanique, et l'autre essence est actuellement scellée, mais elle est infiniment proche du début de la Tribulation du Vide. Lorsque les deux fusionneront, je pourrai déployer une puissance égale au sommet du stade du Vide Arcanique!
 
 Savez-vous combien de personnes comme moi existent ici, dans le Royaume Extérieur? » demanda calmement le Maître du Dao Rêve Bleu.
 
@@ -88,7 +88,7 @@ Savez-vous combien de personnes comme moi existent ici, dans le Royaume Extérie
 
 « Votre Royaume Intérieur ne possède pas de Flammes Joss et il est piégé par la Formation du Royaume Scellé depuis d'innombrables années. Le Souverain est également réputé pour ses machinations, et il a semé de nombreuses graines de notre Royaume Extérieur, laissant votre Royaume Intérieur au bord de l'effondrement! À quoi bon vous accrocher à une cause perdue? » Face aux paroles du Maître du Dao Rêve Bleu, Wang Lin resta silencieux.
 
-Après un long moment, Wang Lin leva la tête vers le Maître du Dao Rêve Bleu et dit calmement: « Si ce que le Senior dit est vrai, alors pourquoi le Royaume Extérieur n'a-t-il pas encore déclenché de guerre contre le Royaume Intérieur? Pourquoi se contentent-ils d'affaiblir lentement les forces du Royaume Intérieur? Je crains qu'il n'y ait quelque chose dans le Royaume Intérieur qui inquiète profondément le Senior et les autres! »
+Après un long moment, Wang Lin leva la tête vers le Maître du Dao Rêve Bleu et dit calmement: « Si ce que le Senior dit est vrai, alors pourquoi le Royaume Extérieur n'a-t-il pas encore déclenché de guerre contre le Royaume Intérieur? Pourquoi s'appuient-ils sur le pouvoir du temps pour affaiblir lentement les forces du Royaume Intérieur? Je crains qu'il n'y ait quelque chose dans le Royaume Intérieur qui inquiète profondément le Senior et les autres! »
 
 Le Maître du Dao Rêve Bleu réfléchit silencieusement un instant avant de répondre calmement: « Il existe en effet une telle existence. Autrefois, un simple rugissement avait eu le pouvoir de forcer le Souverain à fuir dans la panique! »
 

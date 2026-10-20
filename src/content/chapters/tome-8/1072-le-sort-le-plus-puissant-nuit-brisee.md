@@ -16,7 +16,7 @@ Pour saisir cette opportunité, il était prêt à payer n'importe quel prix. Pe
 
 Tous les autres convoitaient le corps ou les sorts de l'Empereur Céleste Qing Lin. Certains cherchaient même à percer le secret de la troisième étape. D'autres le croiraient fou, mais ce qu'il désirait, c'était livrer à Qing Lin une guerre de prédictions!
 
-« Puisque tu voulais sceller l'ancien démon et mettre en place de nombreux plans pour l'affronter à l'avenir, je vais tout détruire. L'ancien démon n'est qu'un outil pour m'offrir un duel contre l'Empereur Céleste Qing Lin! » Personne ne pouvait deviner les pensées de l'Omniscient... Si quelqu'un le pouvait, c'était Ling Tianhou.
+« Puisque tu voulais sceller l'ancien démon tout en ménageant de nombreux plans pour le jour où il s'emparerait de ton corps, je vais tout détruire. L'ancien démon n'est qu'un outil pour m'offrir un duel contre l'Empereur Céleste Qing Lin! » Personne ne pouvait deviner les pensées de l'Omniscient... Si quelqu'un le pouvait, c'était Ling Tianhou.
 
 Cependant, au sein de la Grotte de l'Empereur Céleste, le premier éveil de l'Oiseau Vermillon de Wang Lin était un événement imprévu pour l'Omniscient. Dès cet instant, il ressentit une certaine pression.
 
@@ -32,17 +32,17 @@ Ces huit couleurs vacillèrent, puis huit avatars distincts, vêtus de robes de 
 
 Bien que les huit avatars de l'Omniscient se ressemblassent, chacun possédait une aura différente. Ils se dispersèrent immédiatement vers Wang Lin, le Couple Céleste Nuageux et les autres cultivateurs. Trois d'entre eux chargèrent vers la voûte céleste qui s'effondrait.
 
-Simultanément, l'Impératrice Fleur fut entourée de lumière stellaire et, dans un fracas retentissant, cette lumière fut repoussée. Elle émergea de l'intérieur des neuf sphères. Bien qu'elles aient considérablement faibli, son expression demeurait sereine.
+Simultanément, la Concubine Impériale Fleur fut entourée de lumière stellaire et, dans un fracas retentissant, cette lumière fut repoussée. Elle émergea de l'intérieur des neuf sphères. Bien qu'elles aient considérablement faibli, son expression demeurait sereine.
 
-L'Ancien Démon Ta Jia scruta le ciel avec gravité. Sa main s'étendit et une lame au dos épais apparut. Tenant la lame, il ne fit pas face à l'Impératrice Fleur, mais au ciel, et fendit l'air de son épée, projetant un rayon d'énergie tranchante vers les hauteurs.
+L'Ancien Démon Ta Jia scruta le ciel avec gravité. Sa main s'étendit et une lame au dos épais apparut. Tenant la lame, il ne fit pas face à la Concubine Impériale Fleur, mais au ciel, et fendit l'air de son épée, projetant un rayon d'énergie tranchante vers les hauteurs.
 
-L'Impératrice Fleur esquissa un sourire. Dès que le changement survint dans le ciel, elle sut que les paroles de Qing Lin s'étaient réalisées!
+La Concubine Impériale Fleur esquissa un sourire. Dès que le changement survint dans le ciel, elle sut que les paroles de Qing Lin s'étaient réalisées!
 
 « Celui qui me sauvera portera le nom de Wang. Lorsque le Royaume Céleste de l'Esprit Céleste s'effondrera, j'aurai la chance de m'éveiller! »
 
-À cet instant, l'énergie de la lame de l'Ancien Démon Ta Jia percuta le ciel et le corps de l'Impératrice Fleur disparut progressivement. Lorsqu'elle réapparut, elle se trouvait dans les airs, face à l'onde de choc. Elle prit une profonde inspiration, puis les neuf sphères s'élancèrent pour entrer en collision avec l'énergie de la lame.
+À cet instant, l'énergie de la lame de l'Ancien Démon Ta Jia percuta le ciel et le corps de la Concubine Impériale Fleur disparut progressivement. Lorsqu'elle réapparut, elle se trouvait dans les airs, face à la lame d'énergie. Elle prit une profonde inspiration, puis les neuf sphères s'élancèrent pour entrer en collision avec l'énergie de la lame.
 
-Un grondement de tonnerre résonna et l'impact puissant la força à reculer. Une intention meurtrière traversa les yeux de Ta Jia avant qu'il ne charge l'Impératrice Fleur.
+Un grondement de tonnerre résonna et l'impact puissant la força à reculer. Une intention meurtrière traversa les yeux de Ta Jia avant qu'il ne charge la Concubine Impériale Fleur.
 
 Quant à Wang Lin, dès l'arrivée de l'avatar de l'Omniscient, il se retrouva dans une situation périlleuse, d'autant plus avec l'attaque déchaînée du Maître du Vide. Le glacier que Wang Wei avait placé ne tint pas; il s'effondra, et le Maître du Vide chargea Wang Lin comme un possédé.
 
@@ -60,7 +60,7 @@ Cependant, face à la crise qui le frappait, Wang Lin n'eut pas le temps de leve
 
 Cette loi était celle qu'il avait comprise en observant le lever du soleil pendant plusieurs mois depuis le sommet de la montagne de la planète Esprit d'Eau. C'était aussi la puissance de son premier sort créé par lui-même: Nuit Brisée!
 
-La nuit brisée née de l'océan!
+Le soleil de la mer fait naître la Nuit Brisée!
 
 À ce moment, bien que confronté à l'attaque du Maître du Vide et de trois avatars de l'Omniscient, Wang Lin s'immobilisa sans hésiter en ressentant cette puissance. Ses yeux brillèrent de folie tandis qu'il levait les bras pour fixer les quatre assaillants. La loi qui venait d'apparaître sembla alors être attirée par une force invisible et se précipita vers lui.
 

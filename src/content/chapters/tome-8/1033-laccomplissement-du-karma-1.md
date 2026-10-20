@@ -20,7 +20,7 @@ On ne pouvait pas y échapper!
 
 Soit on vivait, soit on mourait, et l'on n'avait souvent qu'une seule chance.
 
-« Si tu t'étais contenté de me faire cela, tout en serait resté là, mais tu as dû être si cruel envers mon père. Wang Lin, y avait-il une telle haine entre toi et moi? Dans ce monde de culture, il est courant de comploter les uns contre les autres. Bien que j'aie eu tort, Yao Xixue, cela suffisait-il pour me condamner à mort? » Yao Xixue fixa Wang Lin. La haine brûlait dans ses yeux et sa voix était empreinte de douleur.
+« Si tu t'étais contenté de me faire cela, tout en serait resté là, mais tu as même été si cruel envers mon père. Wang Lin, y avait-il une telle haine entre toi et moi? Dans ce monde de culture, il est courant de comploter les uns contre les autres. Bien que j'aie eu tort, Yao Xixue, cela suffisait-il pour me condamner à mort? » Yao Xixue fixa Wang Lin. La haine brûlait dans ses yeux et sa voix était empreinte de douleur.
 
 Wang Lin réfléchit en silence. Il regarda l'horizon et son regard s'assombrit.
 
@@ -36,7 +36,7 @@ Il n'avait pas le choix! Du point de vue de Wang Lin, il n'avait pas tort!
 
 Pourtant, du point de vue de Yao Xixue, elle avait payé le prix d'être scellée pendant des centaines d'années pour avoir comploté contre Wang Lin. Comme elle l'avait dit, bien qu'elle le haïsse, ils étaient quittes.
 
-Mais avec la mort de son père, devait-elle encore chercher à raisonner avec le meurtrier de celui-ci? Elle était incapable de distinguer le bien du mal. En tant qu'enfant, peu importait la raison, elle devait se venger. Du point de vue de Yao Xixue, elle non plus n'avait pas tort.
+Mais avec la mort de son père, devait-elle encore chercher à raisonner avec le meurtrier de celui-ci? Elle était incapable d'analyser qui avait tort ou raison. En tant qu'enfant, peu importait la raison, elle devait se venger. Du point de vue de Yao Xixue, elle non plus n'avait pas tort.
 
 « Tout cela est karma... La cause karmique d'hier produira l'effet karmique d'aujourd'hui. Chaque étape n'était ni quelque chose qu'elle pouvait contrôler, ni quelque chose que je pouvais contrôler... Si elle n'avait pas comploté contre moi en premier, ou si je n'avais pas craint l'Ancêtre Sanguin, rien de tout cela ne serait arrivé.
 
@@ -64,15 +64,15 @@ Ses cheveux poussèrent soudainement jusqu'à ses pieds, virant au rouge écarla
 
 Les hideuses cicatrices sur son visage se mirent à bouger. Elles se rejoignirent pour former une rune complexe.
 
-Une énergie démoniaque d'une froideur extrême explosa de son corps et se propagea dans les cieux. En un clin d'œil, plus de la moitié du ciel fut envahie par cette puissance occulte.
+Une énergie démoniaque d'une froideur extrême explosa de son corps et se propagea dans les cieux. En un clin d'œil, la majeure partie du ciel fut envahie par cette puissance occulte.
 
 Cette énergie était empreinte d'une intention glaciale. Tandis qu'elle se répandait, des craquements retentirent dans l'océan. À cet instant précis, la majeure partie de l'océan gela!
 
 L'eau à la surface se transforma rapidement en glace et la gelée se propagea avec rapidité. Même les vagues déchaînées furent figées comme des sculptures de glace!
 
-Même les murs d'eau furent pétrifiés. De loin, le spectacle était saisissant.
+Même les murs d'eau furent figés par la glace. De loin, le spectacle était saisissant.
 
-« Ainsi soit-il! » Une voix glaciale s'échappa de la bouche de Yao Xixue. C'était comme un vent polaire balayant le monde.
+« Comme tu le souhaites! » Une voix glaciale s'échappa de la bouche de Yao Xixue. C'était comme un vent polaire balayant le monde.
 
 Elle avait sacrifié sa chair et son âme pour devenir entièrement le réceptacle de l'un des neuf anciens esprits démoniaques. C'était le prix que Yao Xixue avait accepté de payer pour se venger de Wang Lin.
 
@@ -112,7 +112,7 @@ La silhouette démoniaque vacilla et le Démon du Vent fixa froidement Wang Lin.
 
 Elle se montrait extrêmement prudente à cet instant, car elle jugeait le cultivateur devant elle très dangereux. L'aura que dégageait cet homme la faisait presque suffoquer.
 
-Elle n'avait accepté d'aider Yao Xixue que pour la tromper et l'inciter à tout abandonner. Même son dernier « Ainsi soit-il » n'était qu'un moyen d'apaiser Yao Xixue pour qu'elle ne résiste pas à la fin.
+Elle n'avait accepté d'aider Yao Xixue que pour la tromper et l'inciter à tout abandonner. Même son dernier « Comme tu le souhaites » n'était qu'un moyen d'apaiser Yao Xixue pour qu'elle ne résiste pas à la fin.
 
 Maintenant que tout était accompli, elle, le Démon du Vent, ne prendrait aucun risque de combattre ce cultivateur qui l'effrayait, pour une Yao Xixue qui n'avait plus aucune valeur.
 

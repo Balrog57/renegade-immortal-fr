@@ -32,7 +32,7 @@ Le jeune homme chauve ne vit qu'une lumière rouge aveuglante, puis l'éclair pe
 
 Son corps trembla et il cracha un flot de sang, mais il ne mourut pas! Une aura puissante jaillit soudainement de son front, formant une protection autour de lui. Sa culture se déploya brusquement, dégageant une aura ancienne capable de faire trembler la terre!
 
-C'était comme si une âme capable de secouer les cieux sommeillait en cet homme. Il était si extrêmement puissant que même le Royaume Ji ne pourrait l'éliminer instantanément!
+C'était comme si une âme capable de secouer les cieux sommeillait en cet homme. Il était si extrêmement puissant que même le Royaume Ji ne pourrait l'éliminer d'un seul coup!
 
 « Précisément comme je l'avais prévu! » Les yeux de Wang Lin s'illuminèrent d'une lueur étrange alors qu'il fit un pas en avant pour tendre la main vers le jeune homme.
 

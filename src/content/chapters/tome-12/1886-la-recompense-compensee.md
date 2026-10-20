@@ -112,7 +112,7 @@ Il lui faudrait encore plus de la moitié d'un mois avant de pouvoir utiliser à
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 
-C'était la première fois que Wang Lin pénétrait dans le monde mortel du Continent Astral Immortel. Bien que cet endroit fût encore éloigné de la Mer des Pilules, il était considéré comme un voisin immédiat, mais n'avait pas été détruit lors de l'effondrement de la Mer des Pilules.
+C'était la première fois que Wang Lin pénétrait dans le monde mortel du Continent Astral Immortel. Bien que cet endroit fût encore éloigné de la Mer des Pilules, il pouvait être considéré comme un voisin proche, mais n'avait pas été détruit lors de l'effondrement de la Mer des Pilules.
 
 Aucun mortel n'aurait dû périr lors de l'effondrement de la Mer des Pilules. Après tout, la légende de cet endroit circulait depuis très longtemps. Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, ils avaient tous deux fait de la zone environnante une terre interdite pour les mortels.
 

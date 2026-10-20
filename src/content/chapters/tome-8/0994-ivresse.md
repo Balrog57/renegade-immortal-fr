@@ -14,7 +14,7 @@ L'intention meurtrière explosa dans le regard glacial de Wang Lin alors qu'il l
 
 Wang Lin demanda lentement: « La planète Feng Luan possède-t-elle des cultivateurs du Briseur du Nirvana? »
 
-Situ Nan secoua la tête et répondit: « Il n'y a pas de Briseurs de Nirvana, au plus des Purificateurs de Nirvana au stade intermédiaire. Il n'y a même pas de Purificateurs de Nirvana au stade tardif ou au sommet du stade tardif. C'est juste que... il y a beaucoup de Purificateurs de Nirvana sur la planète Feng Luan, et en comptant leurs alliés venus d'ailleurs, ils sont plus de dix! »
+Situ Nan secoua la tête et répondit: « Il n'y a pas de Briseurs de Nirvana, au plus des Purificateurs de Nirvana au stade intermédiaire. Il n'y a même pas de Purificateurs de Nirvana au stade tardif ni au stade de la Grande Perfection. C'est juste que... il y a beaucoup de Purificateurs de Nirvana sur la planète Feng Luan, et en comptant leurs alliés venus d'ailleurs, ils sont plus de dix! »
 
 Wang Lin ricana en hochant la tête: « Nous devons absolument nous venger, mais plus important encore, nous devons trouver un moyen de neutraliser ton poison! »
 
@@ -104,7 +104,7 @@ Cette comptine qui s'échappait de la bouche de Wang Lin portait une trace de tr
 
 « Parce que j'ai déjà embrassé la vie d'un cultivateur, il est trop difficile de faire marche arrière! Trop de choses me poussent à continuer. Si je deviens craintif, je ne pourrai plus jamais cultiver!
 
-« Situ, j'ai eu un enfant que tu ne rencontreras jamais. Il s'appelait Wang Ping. Je lui ai donné ce nom moi-même pour qu'il vive une vie de mortel, heureuse et paisible... Pour ne jamais cultiver... Durant sa vie, il m'a demandé trois fois pourquoi il ne pouvait pas pratiquer la culture... Pourquoi... Était-ce parce qu'il n'en était pas capable, ou parce que je refusais qu'il devienne comme moi! »
+« Situ, j'ai eu un enfant que tu ne rencontreras jamais. Il s'appelait Wang Ping. Je lui ai donné ce nom moi-même pour qu'il vive une vie de mortel, heureuse et paisible... Pour ne jamais cultiver... Durant sa vie, il m'a demandé trois fois pourquoi il ne pouvait pas pratiquer la culture... Pourquoi... Parce qu'il n'en était pas capable, et parce que je refusais qu'il devienne comme moi! »
 
 Wang Lin tenait le verre et le vida d'un trait. Il sentit un léger vertige lui prendre à la tête. La seule autre fois où il s'était senti ivre ainsi, c'était lorsqu'il buvait en cachette le vin de riz de son père quand il était enfant.
 

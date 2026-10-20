@@ -36,7 +36,7 @@ Fort de cette idée, Wang Lin nettoya la chambre du disciple Liu. Outre le lit e
 
 Pendant qu'il s'activait, plusieurs disciples arrivèrent à la maison des corvées. Ayant appris que Wang Lin était désormais responsable de l'attribution des tâches, beaucoup d'entre eux étaient nerveux. Les visages de ceux qui avaient le plus ridiculisé Wang Lin étaient pâles et leurs cœurs battaient la chamade.
 
-Certains avaient l'intention d'aider Wang Lin à ranger, mais après avoir reçu un regard glacial, ils se tinrent tous sagement dans la cour.
+Certains avaient l'intention d'aider Wang Lin à ranger, mais après avoir reçu un regard glacial, ils se tinrent tous sagement dans la cour, tremblants comme des cigales en hiver.
 
 Une fois le nettoyage terminé, Wang Lin s'assit nonchalamment sur une chaise. Il fixa froidement les plus de cent disciples honoraires devant lui. Il savait que la Secte Heng Yue comptait de nombreux disciples honoraires; ceux-ci n'en étaient qu'une fraction. Dans les jours à venir, d'autres reviendraient pour rendre compte de leur travail.
 

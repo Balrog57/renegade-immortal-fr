@@ -24,7 +24,7 @@ Du point de vue de Wang Lin, les guerres répétées entre les Royaumes Intérie
 
 « Que cherche la figure aux sept couleurs? » Wang Lin pensa au cristal à l'intérieur du dos de la Tortue Noire qu'il avait pris.
 
-Un grondement de tonnerre interrompit ses pensées. Il leva les yeux et vit Qing Shui pointer la Porte du Vide. La porte vrombit, montrant des signes d'ouverture.
+Un grondement de tonnerre interrompit ses pensées. Il leva les yeux et vit Qing Shui, les cheveux flottant au vent, pointer la Porte du Vide. La porte vrombit, montrant des signes d'ouverture.
 
 Fixant la Porte du Vide, Wang Lin laissa paraître une aspiration ardente. Il voulait devenir un cultivateur de la troisième étape. Seul avec un niveau de culture suffisamment élevé serait-il qualifié pour percer le secret derrière le voile et ressusciter Li Muwan!
 
@@ -44,9 +44,9 @@ Wang Lin prit une profonde inspiration en observant Qing Shui. L'essence de mass
 
 Une partie de la Porte du Vide fut brisée par Qing Shui et repoussée vers l'intérieur. Une lumière douce émana de l'ouverture et l'enveloppa.
 
-Cette lumière n'avait aucune couleur et emplissait le ciel. Elle convergea sur Qing Shui, et son aura commença à croître rapidement. Bientôt, l'aura d'un cultivateur du stade initial du Vide du Nirvana se manifesta.
+Cette lumière n'avait aucune couleur et emplissait le ciel. Elle convergea sur Qing Shui, et son aura commença à croître rapidement. Bientôt, l'aura d'un cultivateur du stade initial du Vide du Nirvana se manifesta, enveloppant le ciel et la terre.
 
-Cette présence exhalait la mort, et d'innombrables fantômes apparurent autour de lui. Ces silhouettes étaient toutes les personnes que Qing Shui avait tuées! Ces spectres sans fin tremblaient en regardant Qing Shui. Ils semblaient hurler, mais aucun son ne sortait de leurs bouches.
+Cette aura contenait le massacre, et d'innombrables fantômes apparurent autour de lui. Ces silhouettes étaient toutes les personnes que Qing Shui avait tuées! Ces spectres sans fin tremblaient en regardant Qing Shui. Ils semblaient hurler, mais aucun son ne sortait de leurs bouches.
 
 Sous ces cris silencieux, tous ces fantômes s'agenouillèrent en tremblant pour vénérer Qing Shui! Cependant, une silhouette refusait de ployer le genou et regardait Qing Shui avec un sourire tendre.
 

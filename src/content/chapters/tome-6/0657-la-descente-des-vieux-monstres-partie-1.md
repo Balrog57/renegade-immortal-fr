@@ -20,7 +20,7 @@ La femme laissa échapper un soupir et sa voix éthérée résonna:
 
 Wang Lin fronça les sourcils. Son expression était sombre lorsqu'il dit froidement: « Cela ne m'intéresse pas! »
 
-La femme fut surprise. Elle afficha un sourire amer et dit: « Il y a très longtemps, il existait un domaine mystérieux. Cet endroit était la terre sacrée des cultivateurs du monde entier... non, de l'univers entier. On l'appelait le Domaine Céleste... »
+La femme marqua une pause. Elle afficha un sourire amer et dit: « Il y a très longtemps, il existait un domaine mystérieux. Cet endroit était la terre sacrée de tous les cultivateurs de l'univers. On l'appelait le Domaine Céleste... »
 
 « De nombreux récits concernant le Domaine Céleste se sont évanouis dans le fleuve du temps; personne ne sait même si ce Domaine Céleste a réellement existé. »
 
@@ -124,7 +124,7 @@ Alors qu'il s'élevait, le regard de Wang Lin se fit glacial.
 
 « Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Cupidité que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système de Luotian! »
 
-« Une fois que mon niveau de culture aura atteint un point où je pourrai rivaliser avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte! »
+« Une fois que mon niveau de culture aura atteint un point où je pourrai traiter d'égal à égal avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte! »
 
 Les yeux de Wang Lin étaient étincelants.
 

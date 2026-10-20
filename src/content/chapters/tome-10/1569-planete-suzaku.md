@@ -18,7 +18,7 @@ Les cultivateurs sont aussi des êtres humains... Ils possèdent eux aussi des �
 
 Voyant que Wang Lin fixait l'horizon sans lui accorder la moindre attention, le fou cessa de hurler sur lui. Au lieu de cela, il commença à graviter autour de Wang Lin tout en rugissant. Il semblait déterminé à ne pas abandonner tant que Wang Lin ne l'aurait pas écouté.
 
-Wang Lin avançait silencieusement. Il se rapprochait de plus en plus de la planète Suzaku. Même les yeux fermés, il pouvait localiser la planète Suzaku dans le Vide Brillant. Cela était peut-être dû à ses sorts, mais surtout, quelque chose là-bas faisait frémir son âme de tristesse.
+Wang Lin avançait silencieusement. Il se rapprochait de plus en plus de la planète Suzaku. Même les yeux fermés, il pouvait localiser la planète Suzaku dans le Vide Brillant. Cela était peut-être dû à ses pouvoirs divins, mais surtout, quelque chose là-bas faisait frémir son âme de tristesse.
 
 Le bavardage du fou devint plus intense encore et ne s'interrompit jamais. Sans paraître fatigué, il continuait de tourner autour de Wang Lin en hurlant:
 
@@ -26,7 +26,7 @@ Le bavardage du fou devint plus intense encore et ne s'interrompit jamais. Sans 
 
 « Assez! » Après que le fou l'eut fait tournoyer des milliers de fois, la concentration de Wang Lin fut rompue. Il leva la main droite et contraignit le fou à s'arrêter devant lui.
 
-Wang Lin regarda le fou et dit lentement: « Sois tranquille un instant. »
+Wang Lin regarda le fou et dit lentement: « Calme-toi un peu. »
 
 Le fou, immobilisé par Wang Lin, le fixa en rugissant: « Transformez-les en feuilles! »
 
@@ -36,7 +36,7 @@ Wang Lin fronça les sourcils.
 
 D'une voix calme, Wang Lin reprit lentement: « Tu avais en réalité vu clair dans leur plan et leur escroquerie... »
 
-« Euh... Ce Roi... Ce Roi n'a pas vu clair. » Le fou fut surpris un instant, ses yeux s'agitèrent et il secoua la tête, tel un enfant mortel jouant avec un tambourin.
+« Euh... Ce Roi... Ce Roi n'a pas vu clair. » Le fou fut surpris un instant, ses yeux s'agitèrent et il secoua la tête, tel un enfant mortel secouant un hochet.
 
 Wang Lin lui lança un regard éloquent, puis relâcha sa prise pour reprendre sa marche.
 

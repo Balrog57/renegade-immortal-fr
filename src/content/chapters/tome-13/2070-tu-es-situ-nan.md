@@ -46,7 +46,7 @@ Les gardes déposèrent silencieusement plusieurs cruches de vin près de Wang L
 
 « Pour que Monsieur vienne ici en toute discrétion, cela signifie que même si les soldats s'interposaient, ils ne pourraient pas vous arrêter; alors, à quoi bon? » répondit le vieux général en saisissant une cruche, brisant le sceau et buvant à grandes encolures.
 
-Le sourire de Wang Lin s'élargit. Il était véritablement heureux. On pouvait dire que depuis son arrivée sur le Continent Astral Immortel, les instants de pur bonheur étaient devenus rares. Ce sentiment différait de celui d'avoir retrouvé l'âme de Li Muwan ou d'être aux côtés de Xuan Luo; c'était cette sensation indescriptible de retrouver un vieil ami.
+Le sourire de Wang Lin s'élargit. Il était véritablement heureux. On pouvait dire que depuis son arrivée sur le Continent Astral Immortel, les instants de pur bonheur étaient devenus rares. Ce sentiment différait de celui d'avoir retrouvé les fragments de l'âme de Li Muwan ou d'être aux côtés de Xuan Luo; c'était cette sensation indescriptible de retrouver un vieil ami.
 
 Cette émotion lui procurait une paix et une joie immenses.
 
@@ -66,7 +66,7 @@ Wang Lin hocha la tête sans mot dire, continuant de boire.
 
 Le temps fila jusqu'à l'aurore. L'obscurité se dissipa et le soleil commença à poindre dans le ciel. Wang Lin et le vieux général avaient bu tout au long de la nuit. Wang Lin lui raconta ses périples sur le Continent Astral Immortel: le Continent du Taureau Céleste, le Continent du Démon Vert, la cité ancestrale... Il évoqua même tout ce qui s'était passé au sein du clan Antique.
 
-Lorsqu'il mentionna avoir trouvé les fragments de l'âme de Li Muwan, des larmes coulèrent. Et quand il parla de l'assassinat de l'Empereur Dao Antique et du prix payé pour la grâce de son maître, son visage s'assombrit.
+Lorsqu'il mentionna avoir trouvé les fragments de l'âme de Li Muwan, des larmes coulèrent. Et quand il parla de l'assassinat de l'Empereur Dao Antique et du prix d'une vie payé pour la grâce de son maître, son visage s'assombrit.
 
 Il raconta tout, jusqu'au moment où il quitta le clan Antique pour retourner auprès du clan céleste.
 
@@ -92,7 +92,7 @@ La voix de Wang Lin résonna dans la tente. Le vieux général écoutait, la con
 
 Le temps passa. Alors que le matin était là et que le soleil brillait de mille feux, le récit de Wang Lin continuait.
 
-« Li Qianmei, Situ Nan, Qing Shui... Ils ont tous tous été réincarnés sur le Continent Astral Immortel. J'ai laissé ma marque en eux, et c'est le seul moyen de les retrouver. » Wang Lin prit une gorgée de vin en souriant au vieux général.
+« Li Qianmei, Situ Nan, Qing Shui... Ils ont tous été réincarnés sur le Continent Astral Immortel. J'ai laissé ma marque en eux, et c'est le seul moyen de les retrouver. » Wang Lin prit une gorgée de vin en souriant au vieux général.
 
 Le vieil homme resta silencieux, plongé dans ses pensées. Son corps trembla et, après un long moment, il ouvrit soudainement les yeux.
 

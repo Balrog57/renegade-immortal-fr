@@ -10,7 +10,7 @@ Les cultivateurs du Continent du Démon Vert s'inclinèrent avec un immense resp
 
 L'aura de la Tribulation du Vide faisait rage au cœur de la tempête, d'une puissance extrême. À mesure que cette aura se dissipait, les couleurs du monde changeaient; c'était comme si le ciel lui-même cherchait à l'éviter.
 
-Au sein de la tempête se dessinait une silhouette à peine visible. Cette figure était svelte et ses longs cheveux flottaient au gré des bourrasques. Bien que son apparence fût invisible, elle dégageait une puissante aura de Tribulation du Vide.
+Au sein de la tempête se dessinait une silhouette à peine visible. Cette figure était svelte et ses longs cheveux flottaient au gré des bourrasques. Bien que son apparence restât floue, elle dégageait une puissante aura de Tribulation du Vide.
 
 Bien qu'il ne s'agisse que de la pression d'un cultivateur au début du stade de la Tribulation du Vide, cela fit trembler le cœur de tous les cultivateurs présents. C'était comme s'ils ne faisaient pas face à un simple cultivateur du début de ce stade, mais à quelqu'un se trouvant au sommet de la Tribulation du Vide!
 
@@ -94,7 +94,7 @@ Bien que l'âme du scorpion reculât rapidement, elle ne pouvait rivaliser avec 
 
 Un souffle, deux souffles, trois souffles!
 
-En l'espace de trois respirations, l'immense âme du scorpion rétrécit furieusement jusqu'à être totalement absorbée par la Perle Défiant le Ciel, ne laissant derrière elle que les quatre sceaux de l'Ancêtre Céleste. Privés de l'âme du scorpion pour les maintenir, les sceaux devinrent gris et se dissipèrent dans l'éther.
+En l'espace de trois respirations, l'immense âme du scorpion rétrécit furieusement jusqu'à être totalement absorbée par la Perle Défiant le Ciel, ne laissant derrière elle que les quatre sceaux de l'Ancêtre Céleste. Privés de l'âme du scorpion pour les maintenir, les sceaux se réduisirent en cendres qui se dispersèrent dans l'éther.
 
 Ce changement soudain manqua de faire perdre la raison aux cultivateurs environnants. Pour eux, Wang Lin était devenu un véritable cauchemar. Ils se dispersèrent tous, utilisant désespérément leurs sorts pour s'enfuir le plus vite possible.
 

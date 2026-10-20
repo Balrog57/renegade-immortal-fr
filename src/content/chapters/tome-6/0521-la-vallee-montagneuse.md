@@ -18,7 +18,7 @@ L'expression de Wang Lin demeura impassible alors qu'il continuait sa course.
 
 Le temps passa lentement. Dix jours plus tard, alors que Wang Lin volait, son expression changea soudainement; il tourna le regard vers l'horizon, les yeux étincelants comme des éclairs. D'un seul pas, son corps s'élança tel une météorite, progressant vers cette direction à une vitesse plusieurs fois supérieure à celle d'auparavant.
 
-À la lisière de la terre désolée se trouvait une forêt dense.
+À la lisière de la terre désolée s'élevaient de profondes montagnes couvertes d'une forêt dense.
 
 À cet instant précis, un homme gisait au sol dans les bois. Il était presque entièrement nu et sa peau était maculée d'un liquide vert.
 

@@ -76,7 +76,7 @@ Suzaku avait annoncé ce duel entre Wang Lin et le Papillon Rouge dix ans aupara
 
 Bien que les deux combattants ne fussent qu'au stade de la Formation de l'Âme, il existait un abîme entre leurs statuts sociaux.
 
-Le Papillon Rouge était le génie de Xue Yu et la figure de proue de Suzaku. Elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans et était la candidate privilégiée pour atteindre le stade Ascendant.
+Le Papillon Rouge était le génie de Xue Yu et, à Suzaku, passait pour la plus douée de tous. Elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans et comptait parmi les candidates les plus susceptibles d'atteindre le stade Ascendant.
 
 Ceng Niu, d'origine inconnue, avait réussi à obtenir un chaudron de pluie. Puis, il lui avait arraché un bras au Papillon Rouge, devenant instantanément célèbre.
 
@@ -142,7 +142,7 @@ Cette aura se condensa en particules de glace de la taille d'un pouce qui, à 33
 
 Cette statue de glace mesurait plus de 33 mètres de haut et avait une forme humaine. Son visage était inexpressif tandis qu'elle projetait son poing gigantesque sur Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il recula.
+Le regard de Wang Lin s'aiguisa et il recula.
 
 Un éclat de lumière rouge apparut au sommet de la sculpture de glace, et le Papillon Rouge en émergea. Ses yeux étaient froids alors qu'elle fixait Wang Lin et exhala un éclat brillant qui se mua en une rose de glace flottant devant elle.
 

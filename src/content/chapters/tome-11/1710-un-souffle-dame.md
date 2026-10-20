@@ -24,7 +24,7 @@ Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme a
 
 « La troisième épreuve comporte trois calamités, la première étant le Sang Céleste de la Race Ancienne. Il a obtenu neuf gouttes de sang suivies d'une goutte de Sang d'Âme, et ce n'est que la première étape. S'il atteint la deuxième calamité, les Trois Distractions du Dao Ancien... quelle fortune obtiendra-t-il alors? »
 
-« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancien. S'il a obtenu une telle reconnaissance de l'Ancêtre et qu'il est un génie, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancien que nul n'a jamais obtenu? »
+« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancien. S'il a obtenu une telle reconnaissance de l'Ancêtre et qu'on peut le qualifier de palanquin, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancien que nul n'a jamais obtenu? »
 
 Les débats firent écho alors que tous restaient bouleversés par cette goutte de Sang d'Âme. Heureusement, cet endroit avait été scellé par le Grand Empyréen Xuan Luo qui, de sa puissance immense, empêcha quiconque de divulguer ce qui s'était produit ici.
 
@@ -38,7 +38,7 @@ Tout reposait sur cette unique goutte de Sang d'Âme!
 
 Une fois que les six gouttes de sang et leur éclat eurent disparu dans le vortex, l'aura s'évanouit également. Le Grand Empyréen Xuan Luo agita sa main droite vers le soleil rouge qui enveloppait la zone.
 
-Le soleil projeta soudain une lumière encore plus éclatante et se divisa en près d'un million de fragments. Ces éclats retombèrent sur les corps des présents, formant un sortilège de scellement.
+Le soleil projeta soudain une lumière encore plus éclatante et se divisa en près d'un million de fragments. Ces éclats s'infiltrèrent dans le corps des présents, formant un sortilège de scellement.
 
 Une fois l'opération terminée, le soleil qui masquait les lieux se dissipa et le ciel retrouva son aspect normal. Le vent se mit à souffler, comme pour balayer la tension et le choc qui imprégnaient l'atmosphère.
 
@@ -50,7 +50,7 @@ Tout ce qui s'était produit ici fut enfoui au plus profond de leurs cœurs. En 
 
 Ils brûlaient d'impatience de voir le Grand Empyréen ramener celui qui les avait tant stupéfaits. Ils mouraient d'envie de découvrir l'apparence et l'identité de cet individu.
 
-« Mon Clan Dao est le plus faible des trois pays ancestraux... J'espère que le retour du Grand Empyréen changera tout cela... »
+« Mon clan Dao est le plus faible des trois clans anciens... J'espère que le retour du Grand Empyréen changera tout cela... »
 
 Ce n'est qu'une fois la foule dispersée que l'empereur regagna les profondeurs de la cité céleste, vers son palais. Ce palais était si vaste qu'il était difficile d'en percevoir les limites. Il était orné de sculptures complexes et d'un luxe extrême.
 
@@ -58,7 +58,7 @@ De nombreux serviteurs se trouvaient à l'intérieur du palais, le visage pâle 
 
 Cette aura était imprégnée d'une colère irrépressible.
 
-Des grondements tonitruants résonnèrent dans tout le palais. Le palais résidentiel de l'empereur s'effondra, libérant une puissante onde de choc. Certains travailleurs et gardes ne purent s'en extraire assez vite et périrent tragiquement.
+Des grondements tonitruants résonnèrent dans tout le palais. Le palais résidentiel de l'empereur s'effondra, libérant une puissante onde de choc. Certains serviteurs et gardes, incapables de les éviter, furent déchiquetés par les débris et périrent.
 
 Une odeur de sang se répandit. Une silhouette émergea lentement des décombres du palais effondré: c'était l'homme en robe royale. Ses yeux étaient calmes, dépourvus de toute émotion. Après être sorti des ruines, il ne daigna même pas regarder en arrière avant de déclarer d'une voix lente:
 
@@ -68,7 +68,7 @@ Une odeur de sang se répandit. Une silhouette émergea lentement des décombres
 
 L'homme en robe royale agita sa manche et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait au sommet de la plus haute tour du palais. Il se tenait là, face au monde, surplombant le domaine et la statue de l'Ancêtre Ancien qui perçait les cieux.
 
-« Je suis l'empereur du pays Dao, un véritable descendant de l'Ancêtre Ancien, et son sang coule dans mes veines. Un simple héritier de Ye Mo... quelles qualifications a-t-il pour être si hautement estimé par Xuan Luo? »
+« Je suis l'empereur du clan Dao, un véritable descendant de l'Ancêtre Ancien, et son sang coule dans mes veines. Un simple héritier de Ye Mo... quelles qualifications a-t-il pour être si hautement estimé par Xuan Luo? »
 
 « Sang d'Âme... » L'homme en robe royale paraissait calme, mais sa main droite se serra en un poing puissant. Il se mit soudain à rire.
 
@@ -94,7 +94,7 @@ Le vieil homme agenouillé resta impassible et répondit:
 
 « Bien que l'Enseignant Impérial ait offert l'âme de cette femme à Votre Majesté, il ne peut la localiser lui-même. Cependant, cette femme sera d'une utilité capitale pour Votre Majesté à l'avenir. Grâce à elle, Votre Majesté pourra posséder un pays ancestral complet! »
 
-« Il a seulement dit à ce serviteur qu'il divinait l'avenir de mon ancien pays Dao et que son esprit s'était fondu dans l'insondable. Il a prélevé son âme dans un fragment d'âme du Dao Céleste, présent en un lieu étrange où il n'était jamais allé... »
+« Il a seulement dit à ce serviteur qu'il divinait l'avenir de mon clan Dao et que son esprit s'était fondu dans l'insondable. Il a prélevé son âme dans un fragment d'âme du Dao Céleste, présent en un lieu étrange où il n'était jamais allé... »
 
 L'homme en robe royale réfléchit silencieusement un instant, puis contempla la perle rouge dans sa main, ses yeux brillant d'une lueur étrange.
 

@@ -78,7 +78,7 @@ Les mots s'animaient avec une célérité effrayante; même les paupières close
 
 Il vit clairement les mots sur le mur s'effacer pour laisser place à une silhouette vêtue de blanc. Le visage était flou, mais il put distinguer les mains de la figure formant plusieurs sceaux à la suite, en laissant derrière elles une traînée d'images rémanentes. La silhouette se divisa en deux, puis en trois.
 
-Les avatars du vieil homme en robe verte, l'autre jour, avaient certes une force comparable à celle du corps principal, mais ils avaient quelque chose de raide: chacun de leurs gestes imitait ceux de l'original.
+Les avatars du vieil homme en robe verte avaient certes une force comparable à celle du corps principal, mais ils avaient quelque chose de raide: chacun de leurs gestes imitait ceux de l'original.
 
 Les avatars de cette figure blanche, eux, étaient tous d'une agilité extrême, sans la moindre raideur. Wang Lin avait l'impression qu'il était impossible de distinguer le corps originel.
 

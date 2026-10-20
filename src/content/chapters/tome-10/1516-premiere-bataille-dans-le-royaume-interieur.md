@@ -10,7 +10,7 @@ Le son se propagea comme une vague à travers la Secte Divine, devenant de plus 
 
 Wang Lin regarda les cultivateurs devant lui et resta calme. Depuis son retour, il savait que puisqu'il avait obtenu l'héritage du Seigneur du Royaume Scellé, il se devait de perpétuer cette tradition!
 
-Il ressentit la gloire de la Mer des Nuages d'autrefois. Il joignit les mains en signe de respect envers tous, tout en méditant silencieusement.
+Il ressentit la gloire de la Mer des Nuages d'autrefois. Il joignit les mains en signe de respect envers tous, en silence.
 
 L'estimable Ling Dong et Zhou Jin retournèrent se tenir derrière Wang Lin. L'expression de Zhou Jin était complexe et ses yeux trahissaient une profonde stupéfaction; il ne s'attendait pas à ce que Wang Lin jouisse d'un statut aussi noble dans le Royaume Intérieur!
 
@@ -32,13 +32,13 @@ L'homme âgé de la Secte des Cadavres déclara lentement: « Ce vieil homme est
 
 Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent progressivement. La Mer des Nuages reprit ses intenses préparatifs de guerre.
 
-Maître Hong Shan et Maître Nan Yunzi restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était bien plus grande que ce qu'ils avaient anticipé.
+Maître Hong Shan et Maître Nan Yunzi restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était un peu plus grande que ce qu'ils avaient anticipé.
 
-« En piégeant Grande Désolation et deux des cinq maîtres du Système Stellaire Antique, vous avez grandement contribué à cette guerre! Sans votre intervention, la bataille contre le Royaume Extérieur aurait été encore plus difficile! » soupira Maître Hong Shan.
+« En piégeant Grande Désolation et deux des cinq maîtres du Système Stellaire Antique, vous avez accompli un immense exploit! Sans votre intervention, la bataille contre le Royaume Extérieur aurait été encore plus difficile! » soupira Maître Hong Shan.
 
 « Cette Bête des Limbes semble un peu différente de mes souvenirs. Elle a dévoré la tempête dorée, vous devriez donc l'observer de plus près. Cette cloche dorée avait manifestement été envoyée par le Royaume Céleste Antique pour cette bataille, mais elle a été détruite par le Shui Daozi! »
 
-« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous en faites vous-même la demande, vous pouvez vous occuper de celui qui se trouve au siège de l'Alliance dans le Système Stellaire du Vide Brillant. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître Nan Yunzi d'un ton grave.
+« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous en faites vous-même la demande, vous pouvez vous occuper immédiatement de celui qui se trouve au siège de l'Alliance dans le Système Stellaire du Vide Brillant. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître Nan Yunzi d'un ton grave.
 
 « Quant à Tai Aluo, la moitié de votre sceau peut être levée. Une fois la guerre contre le Royaume Extérieur terminée, l'autre moitié pourra l'être! » Le regard de Maître Hong Shan se posa sur l'homme pieds nus.
 
@@ -52,7 +52,7 @@ Alors qu'il s'avançait, il ne s'arrêta pas devant la Secte Divine. Cependant, 
 
 « Les cultivateurs de la Secte de l'Origine fusionneront avec la Secte Divine! »
 
-« Ainsi soit-il, selon les ordres du Seigneur du Royaume Scellé! » répondirent les cultivateurs de la Secte Divine en entendant ces paroles.
+« Nous obéirons aux ordres du Seigneur du Royaume Scellé! » répondirent les cultivateurs de la Secte Divine en entendant ces paroles.
 
 La brume dissipée réapparut progressivement, mais elle n'était plus aussi dense qu'auparavant. Elle ne parvenait plus à masquer la Formation de Scellement du Royaume qui était apparue après le passage de la tempête dorée! Cette formation ressemblait à un filet et pouvait être vue par chaque cultivateur.
 
@@ -64,7 +64,7 @@ En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressiveme
 
 Cependant, à cet instant précis, un changement fracassant se produisit dans le Système Stellaire de la Mer des Nuages!
 
-À l'extérieur de la Formation de Scellement du Royaume, un rayon d'énergie d'épée fulgurant fonça vers le domaine stellaire occupé par les membres restants du Clan de la Lune! Avant que l'énergie de l'épée ne les atteigne, un grondement tonitruant résonna, entendu par toutes les branches du Clan de la Lune.
+À l'extérieur de la Formation de Scellement du Royaume, plusieurs rayons d'énergie d'épée fulgurants foncèrent vers le domaine stellaire occupé par les membres restants du Clan de la Lune! Avant que l'énergie de l'épée ne les atteigne, un grondement tonitruant résonna, entendu par toutes les branches du Clan de la Lune.
 
 Lorsqu'ils levèrent la tête, l'énergie de l'épée explosa, enveloppant toute la zone. Une voix antique résonna à travers le monde:
 
@@ -102,11 +102,11 @@ Cette dernière phrase résonna dans tout le Système Stellaire Antique, parvena
 
 « Pillez tous les trésors. Seule la victoire importe. Dans cette bataille, tout ce que vous saisirez vous appartiendra! »
 
-« Réouvrez le classement du Système Stellaire Antique, dont les noms resteront gravés dix mille ans! Les 1 000 premiers recevront la fortune du Royaume Céleste Antique. Les 100 premiers deviendront les disciples des concubines célestes. Les 10 premiers pourront chacun contrôler un royaume! »
+« Réouvrez le classement du Système Stellaire Antique, dont les noms resteront gravés dix mille ans! Les 1 000 premiers recevront la fortune du Royaume Céleste Antique. Les 100 premiers deviendront les disciples des concubines impériales célestes. Les 10 premiers pourront chacun contrôler un royaume! »
 
 « Pour les trois premiers, s'ils sont des cultivateurs du troisième pas, ils recevront chacun dix esprits taoïstes de rang 3! S'ils ne le sont pas, ils deviendront les disciples du Souverain! »
 
-« Selon le décret du Royaume Céleste Antique, le premier du classement final de cette bataille pourra devenir le partenaire de culture d'une concubine céleste et sera nommé Souverain Céleste! »
+« Selon le décret du Royaume Céleste Antique, le premier du classement final de cette bataille pourra devenir le partenaire de culture d'une concubine impériale céleste et sera nommé Souverain Céleste! »
 
 Ces messages résonnèrent dans tout le Système Stellaire Antique, stimulant une soif de sang impitoyable. Des rugissements sourds éclatèrent au sein de chaque clan, faisant trembler l'univers! Pour ce Système Stellaire antique dispersé composé d'innombrables clans, la seule raison de combattre était le pillage!
 

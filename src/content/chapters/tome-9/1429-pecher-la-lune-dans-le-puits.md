@@ -114,7 +114,7 @@ Wang Lin frissonna, le visage pâle, mais il ne flancha pas. Il leva la main dro
 
 Le monde trembla et, au moment où les paroles de Wang Lin résonnèrent, l'homme d'âge moyen se redressa brusquement. Ses yeux s'illuminèrent et une voix indifférente retentit:
 
-« Ce vieil homme t'a effectivement sous-estimé. Tu as tout préparé avant de venir ici. Tu as remplacé ta propre âme par un fragment d'âme démoniaque... Bien, très bien! »
+« Ce seigneur t'a effectivement sous-estimé. Tu as tout préparé avant de venir ici. Tu as remplacé ta propre âme par un fragment d'âme démoniaque... Bien, très bien! »
 
 Wang Lin resta silencieux. Avant de venir, il s'était fusionné avec l'âme de l'Omniscient et avait pratiqué la divination frénétiquement. Tout comme lors de son combat contre le Shui Daozi, il avait entrevu une vision floue.
 

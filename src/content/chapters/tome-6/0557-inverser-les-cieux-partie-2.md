@@ -14,7 +14,7 @@ Dès son apparition, il lança un regard glacial vers les sculptures de glace o�
 
 La lueur rouge émanant de la sculpture de glace de Yao Xixue s'intensifia, comme si une vague de chaleur en jaillissait. Des volutes de brume blanche s'élevèrent de la glace et, en un clin d'œil, celle-ci fondit, permettant à Yao Xixue d'en sortir.
 
-« Vous êtes venue ici trois fois et vous utilisez les sorts du Seigneur Sanguin. J'ai été clément envers vous à trois reprises, considérant que vous étiez sa descendante, en vous permettant d'utiliser votre sort de résurrection; mais vous êtes une ingrate. Cette fois, utilisez votre sort de résurrection et disparaissez d'ici immédiatement avant de ne plus en avoir la possibilité! » Bien que la voix de l'homme d'âge moyen fût calme, elle dégageait une aura puissante.
+« Vous êtes venue ici à plusieurs reprises et vous utilisez les sorts de l'Ancêtre Sanguin. J'ai été clément envers vous à trois reprises, considérant que vous étiez sa descendante, en vous permettant d'utiliser votre sort de résurrection; mais vous êtes une ingrate. Cette fois, utilisez votre sort de résurrection et disparaissez d'ici immédiatement avant de ne plus en avoir la possibilité! » Bien que la voix de l'homme d'âge moyen fût calme, elle dégageait une aura puissante.
 
 À cet instant, la sculpture de glace de Wang Lin fondit progressivement. Son expression demeurait sereine tandis qu'il les fixait froidement.
 
@@ -74,7 +74,7 @@ Wang Lin poussa un rugissement tandis que toute l'énergie spirituelle démoniaq
 
 La lumière dorée fondit sur lui et percuta son doigt.
 
-Le rayon doré agissait comme un poinçon qui fendait directement l'énergie démoniaque, mais simultanément, celle-ci s'engouffrait dans la lumière pour tenter de l'affaiblir.
+Le rayon doré agissait comme un poinçon qui fendait directement l'énergie démoniaque, mais simultanément, celle-ci se fondait dans la lumière et se dissolvait peu à peu.
 
 Bien que la lueur dorée semblât ordinaire, elle était d'une puissance extrême. Elle perça l'énergie démoniaque et s'enfonça brutalement dans le corps de Wang Lin.
 

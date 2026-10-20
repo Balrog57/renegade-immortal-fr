@@ -12,23 +12,23 @@ Ce sentiment ne dura qu'un instant avant de s'évanouir, comme s'il n'avait jama
 
 Hormis le Maître Fu Fengzi, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen, eux aussi originaires de Tian Yun, appartinssent à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre des Esprits Démoniaques auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
 
-En revenant dans ce lieu familier, Wang Lin ressentit un pincement de regret. Sa première pensée n'avait pas été de se rendre à la grotte céleste, mais d'aller vérifier l'état de la Tribu du Raffinement des Âmes. À l'époque, il avait dû fuir dans l'urgence. Avec le recul, ce sentiment de culpabilité l'habitait.
+En revenant dans ce lieu familier, Wang Lin fut profondément ému. Sa première pensée n'avait pas été de se rendre à la grotte céleste, mais d'aller vérifier l'état de la Tribu du Raffinement des Âmes. À l'époque, il avait dû fuir dans l'urgence. Avec le recul, il ressentait une profonde émotion.
 
 « La Tribu du Raffinement des Âmes a été créée pour accomplir le dernier vœu du Maître Dun Tian. Je me demande s'il existe toujours... et il y a aussi Treize. » Wang Lin ne pouvait oublier la loyauté indéfectible de Treize, qui l'avait suivi jusqu'au bout.
 
-Dans sa vie, il n'avait rencontré qu'une seule personne aussi fidèle que lui. En pensant à Treize, un autre visage surgit dans l'esprit de Wang Lin.
+Dans sa vie, il n'avait rencontré qu'une seule personne aussi fidèle que Treize. En pensant à Treize, un autre visage surgit dans l'esprit de Wang Lin.
 
 Hu Pao!
 
 La loyauté de Treize et la trahison de Hu Pao formaient un contraste saisissant, gravé à jamais dans sa mémoire.
 
-Il ne pouvait oublier comment il s'était jeté dans une armée de plus de 100 000 hommes, au cœur de la cité du général démon, pour sauver ces deux individus! À ce moment-là, il ignorait que Hu Pao l'avait déjà trahi, mais même s'il l'avait su, il aurait agi de la même manière!
+Il ne pouvait oublier comment il s'était jeté dans une armée de plus de 100 000 hommes, au cœur de la Cité du Démon Antique, pour sauver ces deux individus! À ce moment-là, il ignorait que Hu Pao l'avait déjà trahi, mais même s'il l'avait su, il aurait agi de la même manière!
 
 Il ne pouvait oublier ses paroles de ce jour-là, alors qu'il contemplait le ciel comme pour témoigner de son propre Dao!
 
-« Dans ce monde, certaines choses doivent être et d'autres non. Les cultivateurs cherchent l'immortalité et tentent d'échapper au destin. En règle générale, ils cherchent à éviter les catastrophes et à accueillir la volonté des cieux! Mais Treize et Hu Pao n'ont aucun lien avec moi. J'ai défié la volonté du général démon, ce qui signifie que j'ai défié le pays démon!
+« Dans ce monde, certaines choses doivent être et d'autres non. Les cultivateurs cherchent l'immortalité et tentent d'échapper au destin. En règle générale, ils cherchent à éviter les catastrophes et à accueillir la volonté des cieux! Mais Treize et Hu Pao n'ont aucun lien avec moi. J'ai forcé le palais et défié le général démon, ce qui signifie que j'ai défié le pays démon!
 
-On dit qu'un gentilhomme ne se tient pas sous un mur qui menace de s'effondrer; sur ce point, cela n'en valait pas la peine! Je ne suis ni un gentleman, ni un scélérat. Je ne suis ni sincère, ni hypocrite. C'est simplement qu'il y a certaines choses dans ce monde que je me dois de faire!
+On dit qu'un gentilhomme ne se tient pas sous un mur qui menace de s'effondrer; sur ce point, cela n'en valait pas la peine! Je ne suis ni un gentilhomme, ni un scélérat. Je ne suis ni sincère, ni hypocrite. C'est simplement qu'il y a certaines choses dans ce monde que je dois faire, par obsession!
 
 Cependant, moi, Wang Lin, je marche en ce monde non pas pour suivre le Dao des cieux, mais pour n'avoir aucun regret dans mon cœur.
 
@@ -46,11 +46,11 @@ Situ Nan activa le jeton selon la méthode de Wang Lin. Ils disparurent tous pou
 
 D'innombrables entraves protégeaient l'intérieur de la grotte céleste. Il fallait toutes les briser pour atteindre le cœur, et c'était là leur objectif ultime! Contrairement à l'Omniscient et à Ling Tianhou, qui avaient déjà vaincu toutes les restrictions dans leurs grottes respectives, Wang Lin accusait un certain retard.
 
-De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouvait sur la Terre des Esprits Démoniaques, il pouvait y pénétrer à tout moment. Avec son niveau actuel de culture, il lui suffisait d'apporter quelques modifications mineures au jeton pour que Situ Nan et les autres ne soient pas attaqués par l'esprit de la grotte.
+De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouvait sur la Terre des Esprits Démoniaques, il pouvait y pénétrer à tout moment, sauf en certains lieux particuliers. Avec son niveau actuel de culture, il lui suffisait d'apporter quelques modifications mineures au jeton pour que Situ Nan et les autres ne soient pas attaqués par l'esprit de la grotte.
 
 Une fois ce problème résolu, Wang Lin réfléchit un instant, puis son sens divin se déploya lentement. Avec sa culture actuelle de Scruteur du Nirvana de stade moyen, il couvrit aisément l'intégralité de la Terre des Esprits Démoniaques!
 
-Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu du Raffinement des Âmes transportaient vers la capitale du Pays des Démons du Feu libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, elles fusionnèrent.
+Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu du Raffinement des Âmes transportaient vers la capitale du Pays des Démons du Feu libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, les deux fusionnèrent.
 
 La lueur noire émanant de la statue devint progressivement plus intense, jusqu'à recouvrir plus de la moitié du ciel au-dessus du Pays des Démons du Feu. D'innombrables membres de la Tribu du Raffinement des Âmes contemplèrent la statue ancestrale avec stupéfaction.
 

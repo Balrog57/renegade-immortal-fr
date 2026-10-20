@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2086 - Reincarnation is Right There
 slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cette
 ---
-« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral de Shi Antique. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas l'Omniscient, mais fixa le pont situé derrière lui.
+« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral de Shi Antique. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas l'Omniscient, mais fixa le pont situé derrière l'Omniscient.
 
 « J'avais peur que cette scène soit réelle, peur que la résurrection de Wan Er ait échoué. Je craignais que tout ne soit qu'une vie antérieure où j'avais rencontré Wan Er et fait de mon mieux pour la ressusciter, en vain; alors je me suis immergé dans le Dao du Rêve pour modifier la réincarnation jusqu'à ce que mon rêve devienne réalité!
 
@@ -16,7 +16,7 @@ slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cett
 
 « Je ne savais toujours pas lequel manquait...
 
-« Dans le monde de la grotte, j'ai vu une scène. L'Empereur Céleste Bai Fan a pointé le ciel avant de sombrer dans la folie. J'ai appris plus tard qu'il avait réalisé par inadvertance que ce monde n'était qu'une simple grotte. Il ne put l'accepter et perdit la raison.
+« Dans le monde de la grotte, j'ai vu une scène illusoire. L'Empereur Céleste Bai Fan a pointé le ciel avant de sombrer dans la folie. J'ai appris plus tard qu'il avait réalisé par inadvertance que ce monde n'était qu'une simple grotte. Il ne put l'accepter et perdit la raison.
 
 « Tout comme l'Estimé Esprit Dispersé, mais il n'avait ni le courage ni la persévérance de ce dernier.
 

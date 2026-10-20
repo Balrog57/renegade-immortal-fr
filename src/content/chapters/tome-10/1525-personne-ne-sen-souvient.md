@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1525 - No One Remembers!"
 slug: personne-ne-sen-souvient
 ---
-Lorsque Wang Lin saisit la Hache Brise-Ciel, une puissante aura de Dieu Ancien jaillit et pénétra son corps par sa main droite. Elle se dirigea directement entre ses sourcils, vers la huitième étoile qui n'était plus qu'un vortex!
+Lorsque Wang Lin saisit la Hache Brise-Ciel, une puissante aura de Dieu Ancien jaillit et pénétra son corps par sa main droite. Elle se dirigea directement entre ses sourcils, vers la huitième étoile, qui n'était encore qu'un vortex inachevé!
 
 Cette aura de Dieu Ancien était phénoménale. Tandis qu'elle s'engouffrait en Wang Lin, le vortex de sa huitième étoile commença à gonfler et à absorber l'énergie avec frénésie!
 
@@ -18,7 +18,7 @@ Wang Lin se tenait au-dessus de dizaines de milliers de personnes et regarda les
 
 Cette question déclencha une tempête qui résonna dans les oreilles des milliers de cultivateurs, les poussant à pousser un rugissement capable de faire trembler les cieux!
 
-Ce rugissement parvint aux oreilles d'innombrables cultivateurs du Royaume Extérieur et fit trembler leurs cœurs. Ils regardèrent Wang Lin avec effroi. Il y a d'innombrables années, lors de la deuxième Guerre du Royaume Scellé, leurs ancêtres avaient regardé une autre personne avec ces mêmes yeux: le Seigneur du Royaume Scellé de l'époque!
+Ce rugissement parvint aux oreilles d'innombrables cultivateurs du Royaume Extérieur et fit trembler leurs cœurs. Ils regardèrent Wang Lin avec effroi. Il y a d'innombrables années, lors de la seconde Guerre du Scellement du Royaume, leurs ancêtres avaient regardé une autre personne avec ces mêmes yeux: le Seigneur du Royaume Scellé de l'époque!
 
 Les yeux de Wang Lin étincelaient comme des éclairs alors qu'il se tournait vers le Grand Maître Yun Luo, laquelle était protégée par d'innombrables cultivateurs. Une intention meurtrière monstrueuse jaillit de son regard!
 
@@ -48,7 +48,7 @@ C'était un véritable combat à mort!
 
 Sur la montagne froide au loin, les signaux de feu brûlaient pendant plusieurs saisons. La frontière tombait, et les ossements étaient enterrés sans que personne ne s'en souvienne!
 
-Wang Lin s'élança parmi les envahisseurs du Royaume Extérieur comme une épée perçant l'ennemi. Il ne brandissait pas la Hache Brise-Ciel dans sa main droite; il se contenta de lever la main. Sa seule intention meurtrière suffisait à faire reculer quiconque!
+Wang Lin s'élança parmi les envahisseurs du Royaume Extérieur comme une épée perçant l'ennemi. Il ne brandissait pas la Hache Brise-Ciel; il se contentait de la tenir levée dans sa main droite. Sa seule intention meurtrière suffisait à faire reculer quiconque!
 
 L'expression du Grand Maître Yun Luo changea radicalement. Elle fixa Wang Lin et leva sa main semblable au jade! À l'ordre donné, les cultivateurs du Royaume Extérieur, sous le choc, chargèrent avec des expressions féroces. C'était comme si c'était leur seul moyen de masquer leur peur!
 
@@ -58,7 +58,7 @@ Tuez!
 
 Les cultivateurs qui avaient chargé se dispersèrent immédiatement. La peur dans leurs cœurs étouffait leur férocité!
 
-Maître Hong Shan et Maître Nan Yunzi chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape d'interférer. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Blessé, Maître Hong Shan ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
+Maître Hong Shan et Maître Nan Yunzi chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape de s'enfuir. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Blessé, Maître Hong Shan ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
 
 L'ancêtre du Clan des Moineaux de Feu fut le premier à s'extraire du combat contre Maître Hong Shan. Empli d'une intention meurtrière et entouré de flammes noires, il chargea!
 
@@ -126,7 +126,7 @@ Tous les cultivateurs du Royaume Extérieur semblèrent reprendre leurs esprits.
 
 Même le cultivateur le plus proche du Grand Maître Yun Luo pâlit et recula par instinct. Ils regardaient Wang Lin comme s'il était un démon surgi des enfers, venu pour anéantir toute forme de vie!
 
-Même le Grand Maître Yun Luo commença à battre en retraite. La peur dans ses yeux était plus intense que chez les autres. Elle regarda Wang Lin, à mille pieds d'elle, et se remémora l'image qu'elle avait divinée. Cette silhouette vue de dos, cette existence terrifiante, semblait marcher droit vers elle!
+Même le Grand Maître Yun Luo commença à battre en retraite. La peur dans ses yeux était plus intense que chez les autres. Elle regarda Wang Lin, à dix mille pieds d'elle, et se remémora l'image qu'elle avait divinée. Cette silhouette vue de dos, cette existence terrifiante, semblait marcher droit vers elle!
 
 « Gloire au Seigneur du Royaume Scellé!!! »
 

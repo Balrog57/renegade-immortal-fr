@@ -10,7 +10,7 @@ Lui-même était le Dao! Le ciel et la terre étaient composés d'innombrables D
 
 Devant lui se trouvaient d'innombrables sphères de lumière, oscillant entre la vie et la mort, de la mort à la vie. C'était son Dao de la vie et de la mort.
 
-Dans le cycle karmique, s'il y avait un effet, il y avait une cause; comme la quête de réponses de Li Muwan ou la vie ordinaire de Wang Ping. C'était son Dao du karma.
+Dans le cycle karmique, s'il y avait un effet, il y avait une cause; comme la quête de réponses de Li Muwan ou la vie ordinaire de Wang Ping et de Qing Yi. C'était son Dao du karma.
 
 Pendant un instant, Wang Lin eut l'impression de comprendre quelque chose, tout en ne comprenant absolument rien. Cette confusion était semblable à une vague déferlant dans son esprit. Cette vague devint de plus en plus intense, jusqu'à faire trembler son âme!
 
@@ -22,7 +22,7 @@ Rien autour de lui n'avait changé. Le tonnerre grondait encore et la lumière v
 
 Si irréel, et pourtant si réel...
 
-La porte, qui ne s'était entrouverte que d'une fente, se referma lentement sous ses yeux avant de disparaître. Le bras gigantesque enveloppé de lumière pourpre s'évanouit également. La lueur violette se rétracta pour redevenir la Perle Défiant le Ciel.
+La porte, qui ne s'était entrouverte que d'une fente, se referma lentement sous ses yeux avant de disparaître. Le bras gigantesque enveloppé de lumière violette s'évanouit également. La lueur violette se rétracta pour redevenir la Perle Défiant le Ciel.
 
 Un changement mystérieux s'était opéré sur la Perle Défiant le Ciel. Auparavant, les cinq éléments y étaient gravés; désormais, ils avaient été remplacés par le Yin et le Yang. Le Yin était représenté par une lune et le Yang par un soleil. Chacun couvrait une moitié de la perle, se distinguant nettement l'un de l'autre.
 
@@ -76,7 +76,7 @@ Après une courte hésitation, il serra les dents et la Bête de Tonnerre charge
 
 Il vit immédiatement Wang Lin surplombant le lac. Le Wang Lin actuel était tout simplement trop étrange aux yeux de l'homme aux cheveux noirs. Wang Lin flottait dans les airs, une quantité phénoménale de tonnerre circulait à travers son corps et ses cheveux s'agitaient sans qu'aucun vent ne soufflât.
 
-L'étendue du lac de tonnerre fit haleter l'homme aux cheveux noirs. Le spectacle devant lui lui donnait l'impression d'être arrivé au mauvais endroit. Il était en fait deux fois plus petit que lors de sa dernière visite!
+L'étendue du lac de tonnerre fit haleter l'homme aux cheveux noirs. Le spectacle devant lui lui donnait l'impression d'être arrivé au mauvais endroit. Il était en fait réduit de près de moitié depuis sa dernière visite!
 
 Il semblait infini auparavant, mais maintenant, il avait presque l'impression de pouvoir en voir l'autre rive.
 

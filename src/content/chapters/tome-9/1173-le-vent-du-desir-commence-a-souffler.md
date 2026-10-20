@@ -94,7 +94,7 @@ Même Maître Pin Cendré laissa paraître un soupçon d'insatisfaction.
 
 « Je n'en veux plus. » Après avoir dit cela, il ferma simplement les yeux pour contenir l'intention meurtrière qui bouillonnait en lui.
 
-Les yeux de Wu Qing s'illuminèrent et il éclata de rire: « Merci de m'avoir laissé la victoire. » Sur ces mots, il récupéra le jade et conclut l'affaire avec le vieil homme en noir.
+Les yeux de Wu Qing s'illuminèrent et il éclata de rire: « Merci de m'avoir laissé la victoire. » Sur ces mots, il récupéra la plume et conclut l'affaire avec le vieil homme en noir.
 
 À la suite de l'interruption de Wu Qing, l'enchère se calma progressivement. Les autres commencèrent à présenter les objets qu'ils souhaitaient vendre, et même Wang Lin sortit quelques articles.
 
@@ -110,13 +110,13 @@ L'enchère prit fin peu de temps après, et chacun quitta les lieux un à un. Qu
 
 Maître Pin Cendré réfléchit un instant et proposa: « Voici ce que je suggère: le cultivateur peut séjourner dans la ville principale quelque temps. Une fois l'enchère terminée, moi et quelques-uns de mes vieux amis partirons. Nous pourrons vous accompagner afin que Wu Qing n'ose plus nourrir de pensées malveillantes à votre égard. »
 
-Sans attendre la réponse de Wang Lin, le visage de Maître Pin Cendré se fit grave: « Le cultivateur souhaite échanger cinq mille cristaux originels. Est-ce bien exact? »
+Sans attendre la réponse de Wang Lin, le visage de Maître Pin Cendré se fit grave: « Le cultivateur souhaite échanger cinq mille cristaux d'origine. Est-ce bien exact? »
 
 Wang Lin acquiesça sans mot dire.
 
 La main droite de Maître Pin Cendré s'étira vers le vide pour ouvrir son espace de stockage. Il en sortit un sac de rangement et le lança à Wang Lin, tout en le fixant d'un regard intense. Personne ne pouvait lire dans ses pensées.
 
-Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux originels. Les cristaux originels étaient extrêmement rares dans la Mer des Nuages, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Pin Cendré avait pu s'en procurer autant.
+Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer des Nuages, et une telle quantité représentait une somme astronomique. On ignorait comment Maître Pin Cendré avait pu s'en procurer autant.
 
 Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sortit le sac qu'il avait préparé avec ses jades célestes. Il le lança à Maître Pin Cendré qui l'attrapa. Après l'avoir inspecté par son Sens Divin, ce dernier afficha un sourire.
 
@@ -126,13 +126,13 @@ Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sor
 
 Wang Lin ne discuta plus et se leva pour partir.
 
-Une fois Wang Lin sorti, le sourire de Maître Pin Cendré s'effaça et il marmonna: « Mes cristaux originels ne sont pas quelque chose que l'on peut acquérir si aisément... »
+Une fois Wang Lin sorti, le sourire de Maître Pin Cendré s'effaça et il marmonna: « Mes cristaux d'origine ne sont pas quelque chose que l'on peut acquérir si aisément... »
 
-En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Maître Pin Cendré, qui n'était qu'un membre de la Secte du Jade Précieux mais possédait tant de cristaux originels.
+En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Maître Pin Cendré, qui n'était qu'un membre de la Secte du Jade Précieux mais possédait tant de cristaux d'origine.
 
 En songeant à ces cristaux, le cœur de Wang Lin s'emballa de convoitise tandis qu'il s'engageait dans le passage.
 
-« Ce Maître Pin Cendré a certainement des intentions malveillantes, mais il ignore que les miennes sont bien plus viles que les siennes! Cinq mille cristaux originels ne suffiront pas à nourrir cette bête mutée. Si je veux que la bête-moustique puisse évoluer grâce à cette méthode et me protéger dans le Royaume Céleste du Vent, il me faudra une quantité phénoménale de cristaux originels! »
+« Ce Maître Pin Cendré a certainement des intentions malveillantes, mais il ignore que les miennes sont bien plus viles que les siennes! Cinq mille cristaux d'origine ne suffiront pas à nourrir cette bête mutée. Si je veux que la bête-moustique puisse évoluer grâce à cette méthode et me protéger dans le Royaume Céleste du Vent, il me faudra une quantité phénoménale de cristaux d'origine! »
 
 En quittant le passage, Wang Lin croisa Ouyang Long en chemin. Ce dernier le raccompagna au pavillon avant que Wang Lin ne reparte. Le ciel commençait à peine à s'éclaircir et l'agitation s'était apaisée.
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1829 - The Dead Soul of the Heavenly Bull !"
 slug: lame-morte-du-taureau-celeste
 ---
-D'un seul geste, l'ombre de phénix entourant Yan Luan s'effondra. Un vent ardent jaillit de la distorsion et forma huit piliers de fumée autour de Wang Lin!
+D'un seul geste, l'ombre de phénix entourant Yan Luan s'effondra. Des feux de signal embrasés jaillirent de la distorsion et formèrent huit piliers de fumée autour de Wang Lin. Une énergie démoniaque dense se répandit de toutes parts, tandis que d'épaisses volutes de fumée roulaient!
 
 Des hurlements déchirants s'élevèrent des piliers de fumée, enveloppant toute la zone.
 
@@ -26,7 +26,7 @@ Les cheveux de Yan Luan étaient ébouriffés. Elle se trouvait prise au piège 
 
 Un sentiment de vie ou de mort envahit son cœur.
 
-« Que diable est-il donc?! Le sort du cercle de fumée était déjà impressionnant, mais je ne pensais pas qu'il possédait un sort aussi terrifiant! » Il était trop tard pour que Yan Luan réfléchisse. Elle mordit le bout de sa langue et cracha une bouchée de sang. Sa main de jade forma un sceau avant de saisir le sang pour l'écraser sans pitié!
+« Que diable est-il donc?! Le sort du cercle de fumée était déjà impressionnant, mais je ne pensais pas qu'il possédait un sort aussi terrifiant! » Il était trop tard pour que Yan Luan réfléchisse. Elle mordit le bout de sa langue et cracha une bouchée de sang. Sa main de jade fendit l'air, saisit le sang et l'écrasa sans pitié!
 
 « J'utiliserai mon essence de sang pour invoquer les âmes héroïques des Ancêtres de la Secte de la Grande Âme de tous les âges et briser le vide!! Retour du Fantôme de l'Âme! » La voix de Yan Luan était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
 

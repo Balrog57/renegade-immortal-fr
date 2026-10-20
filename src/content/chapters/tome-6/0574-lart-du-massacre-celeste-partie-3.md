@@ -66,17 +66,17 @@ Ce vortex tourna frénétiquement devant lui avant de disparaître à l'intérie
 
 À cet instant précis, chaque habitant de ce monde écarlate ouvrit les yeux pour fixer Wang Lin.
 
-« Aura du Massacre! » La voix de Wang Lin tonna dans l'univers écarlate!
+« Énergie de massacre! » La voix de Wang Lin tonna dans l'univers écarlate!
 
 Alors que son Art du Massacre Céleste se propageait, des sons d'explosions retentirent dans les bassins de sang proches de lui. Les personnes qui avaient été tuées et ressuscitées un nombre incalculable de fois explosèrent toutes, formant ainsi des filaments d'énergie de massacre!
 
-En un instant presque imperceptible, près de cent filaments d'énergie de massacre se formèrent, tournoyant autour de Wang Lin tels des spectres gris.
+En un instant presque imperceptible, plus d'une centaine de filaments d'énergie de massacre se formèrent, tournoyant autour de Wang Lin tels des spectres gris.
 
 Et cela ne s'arrêta pas là. Prenant Wang Lin pour centre, toutes les personnes à l'intérieur des bassins de sang explosèrent et se transformèrent en un gaz gris!
 
 Le monde écarlate tout entier commença à s'effondrer! Une masse colossale de gaz gris se condensa en énergie de massacre et encercla Wang Lin.
 
-Aucune des personnes dont les corps s'étaient effondrés ne ressuscita. Cette fois, elles étaient véritablement mortes! Au moment où leurs corps se désintégrèrent, leurs yeux retrouvèrent la clarté pour la première fois depuis des années, et dans cette lucidité, on pouvait lire une pointe de soulagement.
+Aucune des personnes dont les corps s'étaient effondrés ne ressuscita. Cette fois, elles étaient véritablement mortes! Au moment où leurs corps se désintégrèrent, leurs yeux retrouvèrent la clarté pour la première fois depuis d'innombrables années, et dans cette lucidité, on pouvait lire une pointe de soulagement.
 
 Les sons d'explosions et le spectacle du gaz gris emplirent le monde écarlate. Au loin, le jeune homme aux cheveux noirs dans son bassin de sang leva soudainement la tête. Ses yeux étaient totalement injectés de sang et une fine couche de brume sanguine enveloppait son corps! Il poussa un grognement en serrant les dents, devenant l'unique personne à ne pas succomber à l'Art du Massacre Céleste!
 

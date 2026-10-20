@@ -10,7 +10,7 @@ Sort d'Extermination Divine de la Grande Lune, Ailes de la Lune Sanglante, Neuf 
 
 Chacun de ces trésors était d'une puissance extrême. Ils avaient été préparés par le Clan de la Lune au fil d'innombrables années pour capturer un Ancien Dieu vivant!
 
-Il faut dire qu'en dehors des anciens dieux, des démons et des esprits maléfiques, ceux qui comprenaient le mieux les anciens dieux étaient les membres du Clan de la Lune! Le Clan de la Lune avait imaginé d'innombrables méthodes pour faire face à eux!
+Il faut dire qu'en dehors des anciens dieux, des anciens diables et des anciens démons, ceux qui comprenaient le mieux les anciens dieux étaient les membres du Clan de la Lune! Le Clan de la Lune avait imaginé d'innombrables méthodes pour faire face à eux!
 
 Le rugissement de Tuo Sen résonna dans le monde de la lune. Face aux innombrables lunes croissantes, il agita les bras et des grondements de tonnerre retentirent tandis que toutes les lunes qui se rapprochaient de lui s'effondraient!
 

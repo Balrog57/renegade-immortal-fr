@@ -14,7 +14,7 @@ La lance se précipita vers Wang Lin. L'énergie de massacre se condensa au bout
 
 Une force explosive pénétra la main de Wang Lin depuis la lance et consuma l'énergie de massacre en lui avec frénésie. Simultanément, cette énergie de massacre pénétra la lance et commença à la détruire.
 
-Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin et l'ancien démon. Alors que les un million de fils d'énergie de massacre étaient sur le point de s'effondrer, les yeux de Wang Lin s'illuminèrent. Il retira alors son doigt et recula de plusieurs mètres. L'énergie de massacre sur sa main bénéficia d'un bref répit, permettant à sa puissance infinie de refouler et de gonfler à nouveau, lui permettant de se rétablir aussitôt un peu.
+Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin et l'ancien démon. Alors que les un million de fils d'énergie de massacre étaient sur le point de s'effondrer, les yeux de Wang Lin s'illuminèrent. Il retira alors son doigt et recula d'une dizaine de mètres. L'énergie de massacre sur sa main bénéficia d'un bref répit, permettant à sa puissance infinie de refouler et de gonfler à nouveau, lui permettant de se rétablir aussitôt un peu.
 
 Le doigt de Wang Lin s'avança une fois de plus et frappa la lance alors qu'elle se refermait sur lui.
 

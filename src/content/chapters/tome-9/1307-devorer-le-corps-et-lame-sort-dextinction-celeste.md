@@ -8,7 +8,7 @@ slug: devorer-le-corps-et-lame-sort-dextinction-celeste
 ---
 L'infinie divine rétribution commença!
 
-Les Neuf Palais se transformèrent en neuf météores et formèrent un motif complexe. À l'intérieur des Huit Diagrammes, une lueur jaillit tandis qu'ils pivotaient! Au cœur de ces Huit Diagrammes résidaient les Sept Étoiles, libérant une pression terrifiante!
+Les Neuf Palais se transformèrent en neuf météores et formèrent un motif complexe. À l'intérieur des Huit Diagrammes, une lueur jaillit tandis qu'ils pivotaient! Au cœur de ces Huit Diagrammes résidaient les Sept Étoiles, libérant une aura meurtrière effroyable!
 
 Au sein des Sept Étoiles se trouvaient les Six Carapaces de Tortue des Directions, et plus profondément encore, les Cinq Éléments qui s'écoulaient en flux perpétuels!
 
@@ -18,7 +18,7 @@ Profondément enfouie dans les Quatre Divinités, la lumière monstrueuse des Tr
 
 Les Deux Rites étaient le Yin et le Yang, formant un diagramme qui tournait lentement. Cela entraîna la rotation de toutes les couches externes. Elles tournèrent de plus en plus vite, jusqu'à devenir un flou indistinct. Ce qui était étrange, c'est que les huit couches de la divine rétribution tournaient à des vitesses différentes. Des Deux Rites aux Neuf Palais, les huit types de rétributions formèrent huit vortex rotatifs dont les vitesses divergeaient, avant de fusionner ensemble!
 
-Alors que des grondements tonitruants résonnaient au sein du diagramme Yin et Yang en rotation, une explosion de lumière sans couleur éclata. Mais elle portait en elle la sensation du Royaume Ji!
+Alors que des grondements tonitruants résonnaient au sein du diagramme Yin et Yang en rotation, une explosion de lumière sans couleur éclata. Mais elle portait en elle la sensation du Royaume Ji, l'ultime de toutes choses entre ciel et terre, l'ultime de tous les êtres vivants!
 
 Le Royaume Ji!
 
@@ -40,7 +40,7 @@ Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, i
 
 Au moment où l'attaque arriva, Wang Lin laissa échapper un rire; des éclairs rouges jaillirent de ses yeux pour venir se poser dans sa main droite. Puis, il saisit le Royaume Ji issu de la divine rétribution.
 
-Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Royaume Scellé. Il utilisa son corps, extrêmement familier avec le Royaume Ji, comme un médium pour transférer la puissance du Royaume Ji sur la Formation du Royaume Scellé.
+Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Royaume Scellé. Il utilisa son corps, extrêmement familier avec le Royaume Ji, comme un médium pour transférer la puissance de la rétribution divine sur la Formation du Royaume Scellé.
 
 La formation gronda et les esprits d'artefact apparurent pour riposter. À cet instant, une multitude de fils verts surgit et les enchevêtra, empêchant les esprits d'artefact de se manifester!
 
@@ -70,13 +70,13 @@ Cependant, au moment où il surgit, la hache géante de l'Ancien Dieu, entravée
 
 Avec ce coup, un rayon d'énergie de hache capable de fendre le ciel fonça vers Wang Lin et le frappa instantanément!
 
-L'expression de Wang Lin fut féroce alors qu'il rugissait face au rayon de la hache: « Tu es une arme des anciens dieux, et pourtant tu oses attaquer ton maître?! »
+L'expression de Wang Lin fut féroce alors qu'il rugissait face au rayon de la hache: « Tu es une arme des anciens dieux, et pourtant tu oses te retourner contre ton maître?! »
 
 Au moment où l'énergie de la hache se rapprocha, elle trembla comme si elle luttait. Pourtant, en fin de compte, elle passa en trombe et pénétra la poitrine de Wang Lin!
 
 Le sang jaillit partout et une entaille béante apparut sur sa poitrine. Son visage devint livide et il cracha du sang. Il était déjà gravement blessé par la divine rétribution, et l'impact de la hache aggravait son état. Son âme originelle s'était effondrée et même son corps ne parvenait pas à se régénérer à cause de l'aura d'Ancien Dieu contenue dans la hache!
 
-Le sang continuait de couler et les organes de Wang Lin commençaient à se briser. Sa vision se brouillait, mais il fixa la Formation du Royaume Scellé tout en titubant en arrière.
+Le sang continuait de couler et tous ses organes commençaient à se briser. Sa vision se brouillait, mais il fixa la Formation du Royaume Scellé tout en titubant en arrière.
 
 À cet instant, la brèche par laquelle Wang Lin était sorti se referma rapidement jusqu'à redevenir parfaite. Cependant, les fils verts chargèrent l'ouverture avec frénésie et semblèrent s'y enraciner!
 

@@ -8,7 +8,7 @@ slug: ne-pas-abandonner
 ---
 Ce type de pierre spirituelle de qualité supérieure était appelé « fausse pierre spirituelle de qualité supérieure ».
 
-Après avoir lu la description de cette recette de pilule, même avec la force mentale de Wang Lin, il fut sous le choc. Cette recette était trop impitoyable.
+Après avoir lu la description de cette recette de pilule, même avec la force mentale de Wang Lin, il fut sous le choc. Cette méthode était trop perfide.
 
 Elle indiquait que toutes les fausses pierres spirituelles de qualité supérieure contenaient un fil de sang en leur sein, mais qu'ils ne pouvaient être perçus que par l'âme originelle d'un cultivateur du stade de la Formation de l'Âme ou au-delà.
 
@@ -28,7 +28,7 @@ La vie de Wang Lin retrouva son calme. Il continua à soigner le corps de Li Muw
 
 Elle ne craignait pas la mort, mais elle ne voulait pas quitter Wang Lin. Afin de rester à ses côtés, elle consacra tous ses efforts à l'étude de cette recette.
 
-Parfois, elle levait la tête et voyait Wang Lin cultiver à proximité. Ses yeux se remplissaient de tendresse, une tendresse mêlée de tristesse et d'amour.
+Parfois, elle levait la tête et voyait Wang Lin cultiver à proximité. Ses yeux se remplissaient de tendresse, une tendresse mêlée de réticence et d'un profond attachement.
 
 Li Muwan soupira intérieurement.
 
@@ -68,7 +68,7 @@ Ces scènes du passé surgirent dans son esprit. Il finit le vin en quelques gor
 
 Le regard de Wang Lin se fit grave alors qu'il fixait Ouyang Zi.
 
-Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disant: « Ces trois ingrédients sont éteints, mais j'ai trouvé une combinaison de 34 autres composants qui produiront le même effet. Bien que l'efficacité soit moindre, elle ne devrait pas trop s'écarter de l'original. »
+Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disant: « Ces trois ingrédients sont éteints, mais j'ai trouvé une combinaison de 34 autres composants qui produiront un effet approchant. Bien que l'efficacité soit moindre, elle ne devrait pas trop s'écarter de l'original. »
 
 Wang Lin accepta le jade, le parcourut de son sens divin et en mémorisa instantanément le contenu.
 
@@ -76,7 +76,7 @@ Ouyang Zi ajouta: « Ces ingrédients sont très rares. La Secte du Ciel Nuageux
 
 Wang Lin se leva. Le jade à la main, il disparut.
 
-Au moment où il partit, Li Muwan ouvrit les yeux, laissant transparaître une trace de tristesse.
+Au moment où il partit, Li Muwan ouvrit les yeux, laissant transparaître une trace de réticence.
 
 « Tu ne me vois jamais durant mes heures les plus solitaires, car je ne suis seule que lorsque tu n'es pas là. »
 
@@ -94,11 +94,11 @@ Le domaine de l'oubli l'avait véritablement terrifié.
 
 Une autre occasion, dans un pays de culture de rang 5, impliqua un cultivateur de la Formation de l'Âme au stade avancé. Bien que son domaine fût assez conventionnel, il était sur le point d'atteindre le sommet de ce stade et son domaine changeait constamment selon sa volonté.
 
-Avec le recul, Wang Lin estima que la puissance de cet homme était légèrement supérieure à celle de Papillon Rouge. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
+Avec le recul, Wang Lin estima que la puissance de cet homme était légèrement inférieure à celle de Papillon Rouge. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
 
 Au cours de ces sept mois, Wang Lin réalisa que parmi les cultivateurs de la Formation de l'Âme, Papillon Rouge n'était pas la plus puissante. Bien que ces individus n'aient pas encore atteint le stade de la Transformation de l'Âme, ils étaient redoutables.
 
-Surtout ceux possédant des domaines spéciaux; ils manifestaient une force anormale.
+Surtout ceux possédant des domaines spéciaux; ils possédaient une puissance redoutable.
 
 Après son retour à Chu, Wang Lin se dirigea rapidement vers la vallée.
 
@@ -122,11 +122,11 @@ Le retour de Wang Lin poussa Ouyang Zi à se consacrer corps et âme au raffinag
 
 Presque tous les ingrédients de substitution avaient été choisis après de longues recherches. Il utilisa près de 1 000 composants pour remplacer les 137 originaux, en calculant scrupuleusement l'effet de chaque élément et le temps nécessaire à leur raffinage.
 
-Sans une expérience inégalée en alchimie, il n'aurait jamais pu y parvenir.
+Sans une solide expérience de l'alchimie, il n'aurait jamais pu y parvenir.
 
 Même Ouyang Zi ne pouvait se permettre la moindre négligence. Il ne se souciait guère de Li Muwan; c'était un défi personnel. Il était sur le point de réaliser le rêve de sa vie. Il s'était répété d'innombrables fois qu'il pouvait échouer autant de fois qu'il le faudrait dans sa vie, mais que cette fois-ci, l'échec n'était pas une option.
 
-À mesure que le processus progressait, l'humeur d'Ouyang Zi devenait de plus en plus massacrante. Parfois, il se montrait impatient envers Wang Lin lorsque celui-ci venait s'enquérir de l'avancement.
+À mesure que le processus progressait, l'humeur d'Ouyang Zi devenait de plus en plus brutale. Parfois, il se montrait impatient envers Wang Lin lorsque celui-ci venait s'enquérir de l'avancement.
 
 Ce n'était pas par crainte de Wang Lin, mais par tempérament. Il avait oublié le monde; dans son esprit, seule la pilule comptait.
 
@@ -140,6 +140,6 @@ Les jours passèrent lentement. En un clin d'œil, trois ans s'écoulèrent. Le 
 
 Depuis le retour de Wang Lin, il avait passé chaque seconde aux côtés de Li Muwan. Ses cheveux étaient désormais entièrement blancs. Si Wang Lin n'avait pas transféré d'énergie spirituelle en elle sans interruption durant ces trois dernières années, sa beauté aurait depuis longtemps été flétrie par les assauts du temps...
 
-Trois années supplémentaires passèrent avant qu'Ouyang ne réalise une percée dans son alchimie. Bien que la pilule ne fût pas encore terminée, l'échéance approchait. Une forte odeur de remèdes émanait de sa maison en pierre.
+Trois années supplémentaires passèrent avant qu'Ouyang ne réalise une percée dans son alchimie. Bien que la pilule ne fût pas encore terminée, l'achèvement n'était plus très loin. Une forte odeur de remèdes émanait de sa maison en pierre.
 
 Le corps de Li Muwan était devenu extrêmement faible. Elle ne pouvait plus bouger et restait clouée au lit, le regard fixé sur Wang Lin. La réticence dans ses yeux devenait de plus en plus profonde.

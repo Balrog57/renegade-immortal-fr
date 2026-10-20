@@ -32,7 +32,7 @@ Cinq rayons de lumière dorée jaillirent immédiatement de ses doigts vers Wang
 
 Situ Nan utilisa alors toute la force dont il était capable pour propulser Wang Lin vers le haut!
 
-Wang Lin avait pris des risques considérables en plongeant pour sauver Situ Nan et luttait de toutes ses forces pour remonter. En lançant Situ Nan, il ne put s'empêcher de marquer un temps d'arrêt. Cela permit à la mer de sang de ne plus être qu'à 1 000 pieds de lui. L'odeur du sang s'engouffra dans son visage et ses narines.
+Wang Lin avait pris des risques considérables en plongeant pour sauver Situ Nan et luttait de toutes ses forces pour remonter. En lançant Situ Nan, il ne put s'empêcher de marquer un temps d'arrêt. Cela permit à la mer de sang de ne plus être qu'à moins de 1 000 pieds de lui. L'odeur du sang s'engouffra dans son visage et ses narines.
 
 La mer de sang était peuplée d'âmes tourmentées aux corps allongés qui s'étiraient depuis le vortex. Elles fixaient Wang Lin comme si elles voulaient l'entraîner dans les profondeurs pour qu'il ne puisse plus jamais réintégrer le cycle de la réincarnation.
 

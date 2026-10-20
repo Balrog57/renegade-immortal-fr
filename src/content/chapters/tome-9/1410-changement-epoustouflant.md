@@ -8,7 +8,7 @@ slug: changement-epoustouflant
 ---
 Le feu rouge sang emplissait le ciel de l'Épreuve Humaine. Il forma une puissante vague de chaleur qui déferla sur Wang Lin. La puissance contenue dans ce brasier était suffisante pour consumer les cieux eux-mêmes.
 
-Wang Lin se trouvait au cœur des flammes, debout sur le dos du Vermillon Noir. Il ressentait la température cuisante du feu rouge sang et, lorsque la vague de chaleur l'encercla, il éprouva la douleur atroce d'être brûlé.
+Wang Lin se trouvait au cœur des flammes, debout sur le dos de l'Oiseau Vermillon noir. Il ressentait la température cuisante du feu rouge sang et, lorsque la vague de chaleur l'encercla, il éprouva la douleur atroce d'être brûlé.
 
 Le premier des neuf châtiments karmiques était rouge. Il représentait l'immense carnage né de l'obsession de Wang Lin. Ce châtiment de carnage déferla et brûla avec violence.
 
@@ -84,13 +84,13 @@ Tandis que ces souvenirs refaisaient surface, le feu orange se précipita dans l
 
 Si l'âme est empreinte de tristesse, elle aspire à son foyer. Et si l'âme retourne vers sa demeure, des larmes de chagrin sont versées devant la tombe... Après le feu orange, la lumière jaune s'engouffra et brûla le corps de Wang Lin avec acharnement.
 
-Le temps est impitoyable, et le désir pour ceux qui nous ont quittés devient une blessure éternelle qui nous accompagne toute une vie... Le feu vert fantomatique arriva enfin, recouvrant tout le ciel d'une teinte émeraude. Tel un spectre, il pénétra soudainement dans le corps de Wang Lin.
+Même si le ciel azur et les sources jaunes sont lointains, on voudrait les chercher aussi bien au ciel que sous terre. Mais le temps est impitoyable, et le désir pour ceux qui nous ont quittés devient une blessure éternelle qui nous accompagne toute une vie... Le feu vert fantomatique arriva enfin, recouvrant tout le ciel d'une teinte émeraude. Tel un spectre, il pénétra soudainement dans le corps de Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et le flux de souvenirs s'interrompit. Les quatre types de flammes brûlaient avec une fureur folle, déchaînant une force destructrice. La vitesse de raffinement de Wang Lin ne pouvait absolument pas rivaliser avec ces quatre feux; il semblait sur le point d'être réduit en cendres. Wang Lin leva la main et l'agita pour ouvrir son espace de stockage.
 
 La cruche remplie de sang de dragon apparut dans sa main!
 
-Une seule gorgée de ce sang pouvait décupler la puissance du feu à l'intérieur de lui. À cet instant, sans la moindre hésitation, il rit et but à la cruche!
+Une seule gorgée de ce sang pouvait faire bondir la puissance du feu à l'intérieur de lui. À cet instant, sans la moindre hésitation, il rit et but à la cruche!
 
 Il vida le récipient d'un trait, ne laissant pas une seule goutte!
 

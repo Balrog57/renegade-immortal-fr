@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 347 - Forsaken Immortal Clan
 slug: le-clan-de-limmortel-delaisse
 ---
-Il repensa au moment où il avait pris la fondation de Teng Li, lorsqu'il était entré dans ces ruines et y avait vu cette étrange créature à la peau bleue!
+Il repensa au moment où il avait pris l'Établissement des Fondations de Teng Li, lorsqu'il était entré dans ces ruines et y avait vu cette étrange créature à la peau bleue!
 
-Les tatouages sur le corps du jeune homme dégageaient une lueur spectrale et commencèrent à briller plus intensément. Après un instant, la lumière faiblit, mais les tatouages se déplacèrent pour couvrir une plus grande partie de son corps.
+Les tatouages sur le corps du jeune homme dégageaient une lueur spectrale et atteignirent aussitôt un éclat aveuglant. Après un instant, la lumière faiblit, mais les tatouages s'étendirent légèrement sur son corps avant de s'immobiliser.
 
 Le regard du jeune homme était empreint d'excitation alors qu'il murmurait quelque chose à l'homme âgé dans une langue inconnue. En entendant ces paroles étranges, Wang Lin fut certain que ce monstre d'autrefois était lié à eux, car sa langue était identique à celle-ci.
 
@@ -100,7 +100,7 @@ Bien que cela fût dû au fait qu'il ne résistait pas et n'utilisait aucun tré
 
 Wang Lin sourit simplement: « Ce n'est rien. »
 
-Un jour plus tard, la femme au voile blanc et le vieil homme à la cape noire n'étant toujours pas arrivés, ils décidèrent de ne plus les attendre après avoir discuté avec Wang Lin. Bien que le vieil homme Hu ignore l'emplacement exact de l'Arbre de Réincarnation, il en connaissait la direction approximative; ils choisirent donc de chercher tout en progressant.
+Un jour plus tard, la femme au voile blanc et le vieil homme à la robe verte n'étant toujours pas arrivés, ils décidèrent de ne plus les attendre après avoir discuté avec Wang Lin. Bien que le vieil homme Hu ignore l'emplacement exact de l'Arbre de Réincarnation, il en connaissait la direction approximative; ils choisirent donc de chercher tout en progressant.
 
 Wang Lin acquiesça. Tous pénétrèrent au troisième étage.
 

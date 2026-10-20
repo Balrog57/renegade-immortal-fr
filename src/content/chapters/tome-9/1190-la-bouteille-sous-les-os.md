@@ -98,7 +98,7 @@ Dès son retour, il quitterait les lieux sans attendre. La fissure de la restric
 
 Cependant, à cet instant précis, un reniflement glacial retentit et une silhouette apparut devant Maître Pin Cendré. Cette personne portait également du vert. C'était la vieille femme en vert!
 
-Son apparition rendit la situation absurde; même Maître Pin Cendré fut stupéfait!
+Son apparition rendit la situation étrange; même Maître Pin Cendré fut stupéfait!
 
 Deux cultivatrices nommées Zhao! L'une était une belle femme d'âge moyen d'environ quarante ans, l'autre une vieille femme ridée. Pourtant, on pouvait déceler entre elles une similitude frappante!
 

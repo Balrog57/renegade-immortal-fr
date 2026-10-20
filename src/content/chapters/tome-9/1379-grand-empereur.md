@@ -54,7 +54,7 @@ Il y avait un autre ciel sous le ciel et une autre terre au-dessus de la terre. 
 
 Wang Lin était désormais encerclé par le monde formé par le Dao Briseur de Ciel et ne pouvait plus en sortir!
 
-L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il ouvrit brusquement les bras, avant de les refermer aussitôt en rugissant: « Brisez les cieux! »
+L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il ouvrit brusquement les bras, avant de les refermer aussitôt et de les abattre violemment en rugissant: « Brisez les cieux! »
 
 À ce cri, le monde dans lequel se trouvait Wang Lin trembla et la peinture céleste commença à se déchirer. La silhouette de Wang Lin à l'intérieur du tableau se déforma davantage encore.
 
@@ -70,13 +70,13 @@ Dans la terre sainte du Clan du Dragon Blindé, le jeune maître avait égalemen
 
 Le Patriarche du Clan du Dragon Blindé détourna également son regard du ciel et se calma légèrement.
 
-« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué l'Ancien du Clan du Tonnerre Dispersé, il est impuissant face à Maître Simo! »
+« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué le Grand Ancien du Clan du Tonnerre Dispersé, il est impuissant face à Maître Simo! »
 
 « Cependant, le simple fait qu'il puisse blesser Maître Simo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait se venger de notre clan pour notre aide, il serait difficile de s'en défaire. »
 
 Pourtant, alors que tous étaient convaincus que Wang Lin ne pourrait s'échapper, un revirement soudain se produisit!
 
-Une douleur intense lacéra le corps de Wang Lin et ses yeux devinrent injectés de sang. Les 40 millions de rayons d'énergie d'épée qui l'entouraient jaillirent vers le ciel!
+Une douleur intense lacéra le corps de Wang Lin et ses yeux devinrent injectés de sang. Les 40 millions de rayons d'énergie d'épée qui l'entouraient jaillirent vers la peinture céleste!
 
 « 40 millions de rayons d'énergie d'épée, brisez cette peinture des cieux et de la terre pour moi! Brisez, brisez, brisez!!! » Wang Lin sembla se transformer en un rayon de lumière, mais il s'agissait plutôt d'un rayon d'énergie d'épée constitué de son propre corps!
 
@@ -98,7 +98,7 @@ Non seulement lui, mais même le jeune maître du Clan du Dragon Blindé était 
 
 Le Patriarche du Clan du Dragon Blindé changea également de visage, son expression devenant extrêmement sombre.
 
-« Sima Mo, notre bataille ne fait que commencer! » Wang Lin chargea et pointa sa main droite vers le ciel en criant: « Puisque tu as tenté de percer les cieux, alors je vais inverser le ciel! »
+« Sima Mo, notre bataille ne fait que commencer! » Wang Lin vacilla, puis pointa sa main droite vers le ciel en criant: « Puisque tu as tenté de percer les cieux pour me piéger, je vais inverser le ciel et t'anéantir! »
 
 Alors que Wang Lin parlait, un monde apparut dans ses yeux et se mit soudainement à pivoter. Le ciel devint la terre et la terre devint le ciel!
 

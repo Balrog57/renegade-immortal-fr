@@ -24,7 +24,7 @@ Le classement devait être publié quelques jours après l'examen. Tous les éru
 
 Cette chance consistait à se rendre dans la ville de Su pour y participer aux examens, avec l'espoir ultime de s'élever vers les cieux. Une fois qu'ils auraient obtenu le titre de l'Élu de Su, ils pourraient tenter leur ultime ascension vers la capitale de Zhao!
 
-S'ils possédaient assez de talent pour gagner l'estime du Grand Érudit Su, leur renommée serait instantanée. Et s'ils parvenaient à devenir les disciples de Su Dao, la gloire qu'ils obtiendraient serait inimaginable!
+S'ils possédaient assez de talent pour gagner l'estime du Grand Érudit Su, leur renommée s'étendrait à tout le pays. Et s'ils parvenaient à devenir les disciples de Su Dao, la gloire qu'ils obtiendraient serait inimaginable!
 
 C'était le désir de presque tous les érudits de Zhao.
 
@@ -44,7 +44,7 @@ Rien n'avait d'importance, seul le cœur demeurait immuable. Son cœur était au
 
 L'aura d'un grand érudit se manifestait désormais sur lui. Parmi les innombrables lettrés, son dos droit et son regard serein le faisaient ressortir telle une perle.
 
-En tant qu'immortel, il contemplerait froidement les autres cultivateurs; en tant que mortel, il serait tout autant un génie parmi les hommes!
+En tant qu'immortel, il contemplerait froidement les autres cultivateurs; en tant que mortel, il serait tout autant un homme d'exception parmi les mortels!
 
 « La vie est un rêve. Je ne souhaite pas m'éveiller de ce songe. » Tandis que de nombreux érudits célébraient ou sombraient dans la mélancolie, Wang Lin quitta la ville, son coffre à livres en bambou sur le dos, avec Grande Fortune.
 
@@ -54,7 +54,7 @@ Grande Fortune suivait Wang Lin tout en continuant de compter leur argent. Il ma
 
 À la porte de la ville, Wang Lin s'arrêta et son regard se posa sur un étal de vin non loin de là. « Grande Fortune, va nous acheter du vin! » Il ressentit soudain l'envie de boire, bien qu'il eût déjà sombré dans l'ivresse après seulement deux coupes auparavant.
 
-« Nous n'avons presque plus d'argent et tu veux encore du vin?! » Grande Fortune leva les yeux au ciel en ajustant le tissu autour de sa poitrine, secouant la tête de dépit.
+« Nous n'avons presque plus d'argent et tu veux encore du vin?! » Grande Fortune leva les yeux au ciel en agrippant le tissu de sa poitrine, secouant la tête de dépit.
 
 « À quoi bon cet argent? On peut disperser des milliers de pièces d'or, elles finiront toujours par revenir. Vite, va chercher ce vin! » Wang Lin sourit et poussa Grande Fortune.
 
@@ -74,11 +74,11 @@ Il était alors midi. Les deux s'éloignèrent davantage. L'aura solitaire et m�
 
 La ville de Su se trouvait à 250 kilomètres au sud de la capitale de Zhao. C'était une cité étendue, traversée par plusieurs cours d'eau; une véritable cité fluviale.
 
-Elle était célèbre grâce à Su Dao. La ville de Su était aussi un carrefour de talents, et là où résident les talents, les beautés ne manquent jamais.
+Elle tirait son nom de Su Dao. La ville de Su était aussi un carrefour de talents, et là où résident les talents, les beautés ne manquent jamais.
 
 Des embarcations naviguaient sans cesse sur les rivières. Entre chants et danses, la vie y était animée jour et nuit. La poésie, les chorégraphies élégantes et la musique de cithare emplissaient l'atmosphère de la cité.
 
-Les étals de vin à l'osmanthus y étaient aussi renommés que les érudits eux-mêmes. On racontait que les officiels de la capitale envoyaient des émissaires pour s'approvisionner en ce vin précieux à Su.
+Les étals de vin à l'osmanthus y étaient aussi renommés que les beautés de la ville. On racontait que les officiels de la capitale envoyaient des émissaires pour s'approvisionner en ce vin précieux à Su.
 
 Le Grand Érudit, Su Dao, avait aimé ce breuvage dès sa jeunesse, le consommant souvent tout en méditant sur les lois du monde. Une fois sa renommée acquise, la célébrité du vin à l'osmanthus ne fit que croître.
 
@@ -86,7 +86,7 @@ Le voyage de deux mois passa en un clin d'œil. Wang Lin et Grande Fortune voyag
 
 « Jeune Maître, ne buvez plus! La quantité que vous consommez est effrayante. Cela ne fait que deux mois, seulement deux mois! Regardez tout ce que vous avez déjà englouti! Presque tout notre argent est parti dans votre ivresse! » s'exclama Grande Fortune, exprimant son désespoir le plus total.
 
-« Si vous continuez ainsi, même une fois arrivés à Su, il ne nous restera rien pour payer une auberge! Qui vous a dit de boire autant? » Les remontrances de Grande Fortune étaient devenues quotidiennes durant ce voyage.
+« Si vous continuez ainsi, même une fois arrivés à Su, il ne nous restera rien pour payer une auberge! Qui vous a dit de boire autant? Allez, buvez donc encore! » Les remontrances de Grande Fortune étaient devenues quotidiennes durant ce voyage.
 
 Pourtant, loin d'agacer Wang Lin, ces jérémiades lui procuraient un sentiment de familiarité apaisant.
 
@@ -122,7 +122,7 @@ Wang Lin secoua la tête avec un sourire énigmatique. Il regarda Grande Fortune
 
 « Ah bon? Euh... j'ai oublié... » Grande Fortune cligna des yeux, l'air embarrassé.
 
-« Sors l'argent que tu as caché, achète du vin à l'osmanthus et loue un bateau. Nous séjournerons ici quelques jours. » Wang Lin agita sa manche avec un sourire, sans plus regarder Grande Fortune.
+« Sors l'argent que tu as caché, achète du vin à l'osmanthus et loue un bateau. Nous vivrons sur le bateau quelques jours. » Wang Lin agita sa manche avec un sourire, sans plus regarder Grande Fortune.
 
 Un vent léger souffla, créant des ondulations à la surface de la rivière qui vint effleurer le corps de Wang Lin. C'était une brise douce et chaleureuse. Porté par ce souffle, le son de la cithare s'intensifia.
 

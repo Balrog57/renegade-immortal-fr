@@ -38,7 +38,7 @@ Chasser!!
 
 Quoi qu'il en coûte, il devait rattraper Wang Lin et le dévorer. Puis, il se retournerait pour dévorer les trois cultivateurs du troisième niveau qui le traquaient, afin d'apaiser la rage de son cœur!
 
-Wang Lin fusionna avec le monde et utilisa la Déformation Spatiale sans aucune cible précise. Il déploya toute sa puissance pour s'éloigner le plus possible.
+Wang Lin fusionna avec le monde et utilisa la Distorsion Spatiale sans aucune cible précise. Il déploya toute sa puissance pour s'éloigner le plus possible.
 
 De vastes ondulations se propagèrent dans un champ stellaire de la partie nord du Système Stellaire Antique. La silhouette de Wang Lin en émergea, toujours enveloppée d'un brouillard noir. Sans hésiter, il entreprit de se téléporter à nouveau.
 
@@ -48,7 +48,7 @@ Un vent glacial s'en échappa avec sauvagerie tandis qu'un rugissement retentiss
 
 « Wang Lin!! Ce Dieu t'a enfin trouvé!! »
 
-Wang Lin continua sa progression. Au lieu de se téléporter, il utilisa la Déformation Spatiale. Tout en fusionnant avec le monde, il se retourna pour faire face à Tuo Sen qui surgissait de la brèche. Ses yeux brillèrent d'un rouge écarlate tandis que le Royaume Ji se transformait en éclairs rouges et fonçait sur Tuo Sen.
+Wang Lin continua sa progression. Au lieu de se téléporter, il utilisa la Distorsion Spatiale. Tout en fusionnant avec le monde, il se retourna pour faire face à Tuo Sen qui surgissait de la brèche. Ses yeux brillèrent d'un rouge écarlate tandis que le Royaume Ji se transformait en éclairs rouges et fonçait sur Tuo Sen.
 
 Tuo Sen afficha une expression féroce, serra le poing de sa main droite et lança un coup de poing dévastateur.
 
@@ -70,7 +70,7 @@ Alors qu'il s'apprêtait à reprendre sa poursuite, il fronça soudainement les 
 
 La silhouette de Wang Lin tituba en émergeant du vide quelque part dans le Système Stellaire Antique. Le visage pâle, il cracha une nouvelle bouchée de sang. La blessure sur sa poitrine s'était rouverte, teintant ses vêtements de pourpre.
 
-Cette plaie portait l'aura de la Hache Brise-Ciel; il était donc extrêmement difficile pour un Dieu Ancien de s'en remettre. À moins d'extraire de force cette aura, sa guérison prendrait une éternité.
+Cette plaie portait l'aura de la Hache Brise-Ciel; il était donc extrêmement difficile pour un Dieu Ancien de s'en remettre. À moins d'extraire de force cette aura, sa guérison prendrait un temps extrêmement long.
 
 Wang Lin n'était pas surpris de croiser Tuo Sen ici. Cependant, bien qu'il sache que Tuo Sen le traquait pour le tuer, comment Wang Lin aurait-il pu ne pas braver la mort?
 
@@ -80,7 +80,7 @@ Cette arme était également un trésor de Dieu Ancien. Bien qu'elle ne fût pas
 
 Plus important encore, grâce à sa sagacité et à sa compréhension de Tuo Sen, il savait que ce dernier ne resterait pas caché. Il avait forcément mené un carnage, ce qui attirerait inévitablement l'attention des cultivateurs du troisième niveau du Système Stellaire Antique, pouvant même mener à une traque!
 
-« Outre la brèche de la Formation du Royaume Scellé, les blessures de Tuo Sen doivent aussi provenir d'une attaque. Il semblait épuisé, je présume donc... qu'il est lui aussi traqué en ce moment! » Les yeux de Wang Lin s'illuminèrent et il se téléporta avec célérité.
+« Outre la brèche de la Formation du Royaume Scellé, les blessures de Tuo Sen doivent aussi provenir d'un encerclement. Il semblait épuisé, je présume donc... qu'il est lui aussi traqué en ce moment! » Les yeux de Wang Lin s'illuminèrent et il se téléporta avec célérité.
 
 Sa silhouette traversa l'espace, franchissant à chaque éclat des distances incommensurables. Après un temps, Wang Lin ne détecta aucun signe de la poursuite de Tuo Sen, ce qui confirma ses soupçons.
 
@@ -108,6 +108,6 @@ Un vieil homme vêtu de vert s'élança hors de la planète en rugissant: « Que
 
 L'expression du vieil homme changea; il s'apprêtait à résister quand une voix lugubre résonna:
 
-« Arrête! »
+« Immobile! »
 
 En un seul mot, le corps du vieil homme se figea un instant, et ce bref sursis fut la différence entre la vie et la mort. L'éclair rouge dans lequel Wang Lin s'était transformé percuta l'homme, qui poussa un cri de douleur déchirant. Le brouillard noir enveloppa immédiatement le vieillard.

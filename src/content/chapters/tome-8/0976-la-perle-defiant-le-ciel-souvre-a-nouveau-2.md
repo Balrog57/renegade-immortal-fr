@@ -96,4 +96,4 @@ Cette lumière portait une pointe de chaleur. Non seulement il ne ressentit aucu
 
 L'énergie originelle à l'intérieur de son corps commença à circuler plus rapidement. À chaque cycle complet, une fine parcelle de lumière y pénétrait. Finalement, l'énergie originelle de Wang Lin se chargea d'une trace de chaleur!
 
-À mesure que l'énergie originelle se transformait, l'âme originelle de Wang Lin commença à changer lentement. Son âme originelle était initialement un ancien dragon de tonnerre, mais désormais, une masse de brume floconneuse était apparue au-dessus de lui.
+À mesure que l'énergie originelle se transformait, l'âme originelle de Wang Lin commença à changer lentement, en absorbant peu à peu la force de cette lumière. Son âme originelle était initialement un ancien dragon de tonnerre, mais désormais, une masse de brume floconneuse était apparue au-dessus de lui.

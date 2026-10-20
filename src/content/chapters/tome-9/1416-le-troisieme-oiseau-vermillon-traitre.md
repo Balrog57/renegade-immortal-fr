@@ -16,7 +16,7 @@ Après avoir médité un instant, Wang Lin joignit les mains devant la statue et
 
 « S'éveiller quatre fois sans posséder une lignée sanguine puissante... tu es très doué... » résonna une voix puissante et bourdonnante.
 
-« Disciple... » L'expression de Wang Lin resta calme alors qu'il s'apprêtait à parler.
+« Junior... » L'expression de Wang Lin resta calme alors qu'il s'apprêtait à parler.
 
 « Tu pourras poser tes questions durant l'épreuve. Je suis gravement blessé et mon Sens Divin ne restera éveillé que peu de temps. Pour chaque cinq respirations que tu tiendras, tu pourras poser une question! » Cette voix bourdonnante, dépourvue de toute émotion, l'interrompit net.
 
@@ -30,7 +30,7 @@ De plus en plus de poussière s'accumula jusqu'à former une tempête autour de 
 
 Une force terrifiante jaillit de la tempête, détruisant tout sur son passage. De nombreuses planètes abandonnées à proximité furent aspirées par la force de succion; elles furent rapidement déchiquetées au cœur de l'orage pour n'en devenir que des fragments.
 
-Dans la partie nord du Système Stellaire Antique, dix-neuf planètes de culture étaient alignées. La dixième planète, située au centre, ressemblait à un monde entièrement recouvert d'océans, une véritable planète d'eau.
+Dans la partie nord du Système Stellaire Antique, dix-neuf planètes de culture étaient alignées. La dixième planète, située au centre, ressemblait à un monde presque entièrement recouvert d'océans, une véritable planète d'eau.
 
 Un cultivateur était assis au fond de l'abîme, sous les eaux infinies. Il paraissait très vieux et ses cheveux étaient blancs. À chaque inspiration, l'océan rugissait et des vagues se propageaient dans toutes les directions.
 
@@ -46,7 +46,7 @@ Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et o
 
 Le vieil homme au visage Yin et Yang hésita un instant avant de changer de direction, guidant le serpent aux yeux de lune vers la localisation de la Tombe de l'Ordre Antique.
 
-Sur la Planète du Grand Empereur, tous les regards étaient tournés vers l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
+Sur la Planète du Grand Empereur, les dizaines de milliers de cultivateurs avaient tous les yeux rivés sur l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
 
 Sur ces mots, il se retourna et fit un pas dans le vide. Son corps se changea en éclats de lumière et disparut. Ce changement soudain stupéfia l'assistance, et les visages de tous les cultivateurs du troisième niveau se crispèrent.
 
@@ -68,11 +68,11 @@ Dès son apparition, le feu dégagea une force destructrice terrifiante. Trois r
 
 À chaque respiration, le feu subissait neuf transformations, augmentant ainsi considérablement sa puissance à chaque cycle! Trois respirations seulement suffirent à donner à Wang Lin la sensation qu'il allait s'effondrer.
 
-Quelle sorte d'épreuve était-ce? Ce feu tentait de raffiner son âme!
+Ce n'était pas une épreuve : ce feu tentait de raffiner son âme!
 
 Wang Lin sentait clairement que si son Oiseau Vermillon n'avait pas connu son quatrième éveil et si le Feu Éthéré n'était pas apparu dans son corps, son âme aurait été réduite en cendres après seulement trois respirations.
 
-Sur la Planète du Grand Empereur, son corps commença à trembler et de grosses perles de sueur roulèrent sur son front. Cependant, dès qu'elles apparaissaient, elles se transformaient en brume. Son corps était tel un morceau de fer incandescent sur le point d'être détruit par la chaleur intérieure!
+Sur la Planète du Grand Empereur, son corps, privé de son âme, commença à trembler et de grosses perles de sueur roulèrent sur son front. Cependant, dès qu'elles apparaissaient, elles se transformaient en brume. Son corps était tel un morceau de fer incandescent sur le point d'être détruit par la chaleur intérieure!
 
 Dans l'Épreuve Céleste, le visage de Wang Lin était livide. Son expression n'était plus respectueuse, elle était devenue féroce. Il poussa un rugissement, sa main traçant un sceau, tandis qu'un feu aux neuf couleurs jaillissait de son œil gauche. Puis, ce même feu déferla de tout son corps. Il utilisait le feu pour résister au feu!
 
@@ -94,10 +94,10 @@ Témoin de cette scène, le Vieux Oiseau Vermillon prit un air grave et son expr
 
 Les yeux du Maître Simo s'illuminèrent d'une pointe de surprise. Il ne put s'empêcher de regarder la Grande Maîtresse Yun Luo. Elle mordit sa lèvre inférieure et plissa les yeux. Elle voulut tenter une divination, mais en se rappelant le regard de Wang Lin, son esprit vacilla et elle n'osa point essayer.
 
-Sixième respiration... septième... huitième... Sous l'encens céleste, du sang s'écoula de la bouche de Wang Lin et sa peau se flétrit, devenant sèche; même son sang commença à bouillir. C'était comme si son essence vitale s'évaporait sous la chaleur émanant de son âme.
+Sixième respiration... septième... huitième... Sous l'encens céleste, du sang s'écoula de la bouche de Wang Lin et sa peau se flétrit, devenant sèche; même son sang commença à s'évaporer sous la chaleur émanant de son âme.
 
 À l'intérieur de l'Épreuve Céleste, l'âme de Wang Lin serra les dents, le visage tordu par la souffrance. Le feu du premier Ancêtre de l'Oiseau Vermillon n'était plus aux neuf couleurs, mais devint chaotique. La température avait atteint les limites de résistance de Wang Lin. Sous cette chaleur intense, la douleur frappait comme des lames d'océan. Elle était plusieurs fois plus violente que l'Épreuve Humaine ou l'Épreuve Terrestre!
 
 « Est-ce là une épreuve? » Wang Lin leva soudain les yeux et fixa avec fureur la statue du premier Ancêtre de l'Oiseau Vermillon. La colère brûlait dans son regard, et le tatouage du tonnerre apparut dans son œil droit!
 
-Un fracas soudain secoua le monde et un tonnerre infini envahit l'Épreuve Céleste. Les éclairs convergèrent vers son œil droit tandis que le tatouage de la foudre se déployait autour de son corps. Grâce à cette puissance, Wang Lin parvint à franchir la neuvième, puis la dixième respiration!
+Un fracas soudain secoua le monde et un tonnerre infini envahit l'Épreuve Céleste. Les éclairs convergèrent vers son œil droit tandis que le tatouage du tonnerre se déployait autour de son corps. Grâce à cette puissance, Wang Lin parvint à franchir la neuvième, puis la dixième respiration!

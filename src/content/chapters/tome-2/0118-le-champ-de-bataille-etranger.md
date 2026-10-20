@@ -7,7 +7,7 @@ en: Chapter 118 - Foreign Battleground
 slug: le-champ-de-bataille-etranger
 ---
 
-Le géant afficha un regard avide et éclata de rire. « Bien, bien! Le mérite de cette découverte m'appartiendra! La récolte d'aujourd'hui est excellente. D'abord, j'ai perçu l'aura d'hostilité, puis j'ai aperçu la perle. Lin Yi, si tu oses te mesurer à moi, je te tuerai! » Sur ces mots, le géant émergea des nuages. Son corps mesurait plus de trois cents pieds de haut et dégageait une aura qui oppressait tout un chacun.
+Le géant afficha un regard avide et éclata de rire. « Bien, bien! Le mérite de cette découverte m'appartiendra! La récolte d'aujourd'hui est excellente. D'abord, j'ai perçu l'aura d'hostilité, puis j'ai aperçu la perle. Lin Yi, si tu oses me la disputer, je te tuerai! » Sur ces mots, le géant émergea des nuages. Son corps mesurait plus de trois cents pieds de haut et dégageait une aura qui oppressait tout un chacun.
 
 Des craquements se firent entendre dans son corps alors qu'il rétrécissait jusqu'à atteindre la taille d'un homme ordinaire. Un motif en forme de marteau apparut entre ses sourcils.
 
@@ -27,7 +27,7 @@ Le visage de Teng Huayuan était sombre, car il ignorait si Wang Lin était mort
 
 Les gens à l'extérieur de la vallée Jue Ming partirent progressivement, emportant avec eux l'histoire de Wang Lin. Finalement, chaque cultivateur de Zhao finit par connaître son nom.
 
-Pu Nanzi ramena les disciples à la Secte Xuan Dao. Une disciple le suivait: c'était Liu Mei. Elle avait tout observé et ressentait une amertume profonde dans son cœur. Elle ne savait pas pourquoi, mais elle éprouvait une pointe d'affection pour Wang Lin. Cette affection, loin de s'estomper avec le temps, refaisait surface dans son esprit au cœur de la nuit.
+Pu Nanzi ramena les disciples à la Secte Xuan Dao. Une jeune femme le suivait: c'était Liu Mei. Elle avait tout observé et ressentait une amertume profonde dans son cœur. Elle ne savait pas pourquoi, mais elle éprouvait une pointe d'affection pour Wang Lin. Cette affection, loin de s'estomper avec le temps, refaisait surface dans son esprit au cœur de la nuit.
 
 Wang Zhuo et Wang Hao apprirent également ce qui s'était passé près de la vallée Jue Ming. La haine qu'ils vouaient à Wang Lin pour le désastre qui avait anéanti leur famille disparut peu à peu. Tous deux savaient qu'ils n'avaient pas l'audace d'affronter des cultivateurs de l'Âme Naissante, mais cela ne signifiait pas qu'ils renonçaient à leur vengeance. Wang Zhuo et Wang Hao étaient déterminés à tuer Teng Huayuan; c'était l'objectif de leur vie.
 

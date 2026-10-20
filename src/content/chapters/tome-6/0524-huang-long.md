@@ -30,7 +30,7 @@ Ouyang Hua dit respectueusement: « Par ici, Céleste Suprême! »
 
 Wang Lin ne perdit pas de temps; il avait effectivement trop de questions à poser. Il fit un pas en avant.
 
-À l'intérieur de la vallée, on avait l'impression que même au cœur de la nuit la plus noire, l'espoir subsistait. L'endroit ressemblait à une zone résidentielle pour cultivateurs. Cependant, il n'y avait là que d'innombrables maisons, sans aucun jade ni trésor magique à vendre.
+À l'intérieur de la vallée, on avait l'impression que même au cœur de la nuit la plus noire, l'espoir subsistait. L'endroit ressemblait à un marché pour cultivateurs. Cependant, il n'y avait là que d'innombrables maisons, sans aucun jade ni trésor magique à vendre.
 
 L'environnement de la vallée était très verdoyant et foisonnant de feuillage. Bien que le soleil se couchât, toute la zone conservait une teinte émeraude.
 
@@ -62,7 +62,7 @@ Les yeux d'Ouyang Hua s'illuminèrent comme jamais auparavant. Il fixa les boute
 
 Il se retourna et commença à parler à son clan dans une autre langue. Tous hochèrent la tête, et certains lui adressèrent même un sourire bienveillant tout en continuant de lui joindre les mains avec respect.
 
-Une fois Ouyang Hua terminé, les dizaines de personnes se dispersèrent pour regagner leurs foyers. Peu de temps après, des rumeurs de festivités s'élevèrent des maisons.
+Une fois Ouyang Hua terminé, les dizaines de personnes se dispersèrent pour regagner leurs foyers. Peu de temps après, des bruits de fête s'élevèrent des maisons.
 
 Dans la vallée, les enfants sortirent jouer et les femmes apparurent toutes. En un instant, le vide qui régnait auparavant fut balayé par une effervescence de vie.
 

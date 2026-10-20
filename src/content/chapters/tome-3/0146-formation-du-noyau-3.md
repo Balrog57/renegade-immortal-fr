@@ -30,7 +30,7 @@ Gardant une expression sereine, Wang Lin demanda: « Pourriez-vous m'en présent
 
 L'homme d'âge moyen rit et désigna une chaise sur le côté. « Camarade cultivateur, je vous en prie, asseyez-vous, je vais vous les chercher. » Sur ce, il versa une tasse de thé avant de s'approcher d'un mur et de le frapper. Des ondulations apparurent à la surface, puis le mur devint de plus en plus illusoire.
 
-Soudain, trois magnifiques jeunes femmes sortirent, chacune portant un plateau de jade blanc. Sur chaque plateau reposait une grande boîte rouge d'environ deux pieds carrés. Ces trois coffrets étaient de taille identique, mais les motifs gravés sur eux différaient. Chaque boîte était également protégée par des sceaux.
+Soudain, trois magnifiques jeunes femmes vêtues de fines gazes sortirent, chacune portant un plateau de jade blanc. Sur chaque plateau reposait une grande boîte rouge d'environ deux pieds carrés. Ces trois coffrets étaient de taille identique, mais les motifs gravés sur eux différaient. Chaque boîte était également protégée par des sceaux.
 
 Les trois jeunes femmes s'arrêtèrent à quelques pas de Wang Lin et fixèrent sans cesse sa cape noire.
 
@@ -90,6 +90,6 @@ Il n'avait cependant pas pu percer le niveau de culture de Wang Lin. Selon ses s
 
 Outre lui, plus de dix personnes apparurent, affichant divers niveaux de culture. La plupart étaient au stade de l'Établissement des Fondations, mais trois d'entre eux étaient enveloppés d'une brume noire. Ces trois-là étaient précisément ceux qui inquiétaient Wang Lin.
 
-Wei San se retourna et dit respectueusement: « Anciens, je ne peux croire que vous soyez également à Nan Dou! Je suis certain que cet individu possède un trésor sur lui. »
+Wei San se retourna et dit d'un ton obséquieux: « Anciens, je ne peux croire que vous soyez également à Nan Dou! Je suis certain que cet individu possède un trésor sur lui. »
 
 Une voix rauque, empreinte de colère, répondit: « Wei San, tu exagères. Je pensais vraiment qu'il s'agissait d'un cultivateur de la Formation du Noyau. Humph, comment un simple pseudo-Noyau pourrait-il posséder des trésors? Quelle perte de temps! »

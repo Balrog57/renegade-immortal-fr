@@ -46,7 +46,7 @@ Tout cela se produisit en un éclair. Après l'avoir tué, Wang Lin fit un pas d
 
 Sans marquer de pause, sa main gauche balaya négligemment vers l'avant, frappant le dos du vieillard. Celui-ci voulut se retourner, mais son corps trembla et il explosa en une brume de sang qui fut absorbée par Wang Lin.
 
-Wang Lin se lécha les lèvres et son corps vacilla. Lorsqu'il réapparut, il se trouvait aux côtés d'un jeune homme. Le visage de ce dernier était pâle et il recula sans hésiter. Puis ses mains formèrent un sceau et il cracha du sang. Ce sang se transforma en un énorme crâne ensanglanté qui laissa échapper un rugissement alors qu'il tentait de dévorer Wang Lin.
+Wang Lin se lécha les lèvres et son corps vacilla. Lorsqu'il réapparut, il se trouvait aux côtés d'un jeune homme. Le visage de ce dernier était pâle et il recula sans hésiter. Puis ses mains formèrent un sceau et il cracha du sang. Ce sang se transforma en un énorme crâne ensanglanté qui laissa échapper un rugissement silencieux alors qu'il tentait de dévorer Wang Lin.
 
 Loin de l'esquiver, Wang Lin chargea directement le jeune homme. Voyant le crâne de sang s'approcher, une lumière mystérieuse brilla dans ses yeux et il poussa un rugissement!
 
@@ -56,7 +56,7 @@ Le crâne ensanglanté vacilla sous la puissance du rugissement et se dissipa. L
 
 Wang Lin avait tué trois personnes d'affilée!
 
-Cependant, le massacre ne s'arrêta pas là. Bien que les six restants aient été témoins de cette scène, reculer signifierait la mort; ils devaient voler une plateforme. Ils serrèrent les dents et chargèrent la plateforme que Wang Lin venait de quitter.
+Cependant, le massacre ne s'arrêta pas là. Bien que les six restants aient été témoins de cette scène, reculer signifierait la mort; ils devaient s'emparer d'une plateforme. Ils serrèrent les dents et chargèrent la plateforme que Wang Lin venait de quitter.
 
 « Idiots qui cherchent la mort! » Les mots de Wang Lin étaient glacials. Si les six avaient pris la fuite, il les aurait laissés partir. Mais comme ils refusaient d'abandonner, Wang Lin fit un pas et pointa sa main droite trois fois. Instantanément, dix millions de rayons d'énergie d'épée jaillirent de sa main. Ces rayons se divisèrent en trois sections et frappèrent les trois individus les plus rapides.
 
@@ -104,4 +104,4 @@ Il y avait plus de dix fleurs de prunier ensanglantées sur cette plateforme!
 
 Une autre était occupée par un homme en pourpre. Il dégageait une aura sombre et une puissante énergie Yin. D'un mouvement de manches, il fit apparaître un poisson féroce de 10 000 pieds derrière lui. Le poisson se déplaçait comme le vent et dévorait les cultivateurs environnants.
 
-Parmi les deux derniers, l'un était un homme mince vêtu de noir, les yeux clos. Il était si rapide que même Wang Lin ne pouvait le percevoir clairement. En un éclair, son ombre semblait encore là, mais les cultivateurs alentour poussaient des cris d'agonie. Leurs âmes originelles étaient extraites et leurs corps tombaient dans la mer de brouillard.
+Parmi les deux derniers, l'un était un homme mince et très grand, vêtu de noir, les yeux clos. Il était si rapide que même Wang Lin ne pouvait le percevoir clairement. En un éclair, son ombre semblait encore là, mais les cultivateurs alentour poussaient des cris d'agonie. Leurs âmes originelles étaient extraites et leurs corps tombaient dans la mer de brouillard.

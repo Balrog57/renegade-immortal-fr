@@ -44,7 +44,7 @@ L'École du Ciel était devenue extrêmement vaste, englobant les trois empires 
 
 Ce bouleversement fut comme verser de l'huile sur un feu ardent. Ce changement plongea le monde mortel dans le chaos et provoqua un immense tumulte.
 
-La réaction de l'École du Ciel fut d'une férocité extrême. En seulement quinze jours, ils parvinrent à prendre le contrôle de l'armée de l'Empire Di Shan sans verser une goutte de sang. Six ou sept personnes sur dix dans l'Empire Di Shan étaient des partisans de l'École du Ciel.
+La réaction de l'École du Ciel fut d'une férocité extrême. En seulement quinze jours, ils parvinrent à prendre le contrôle de l'armée de l'Empire Di Shan sans verser une goutte de sang. Six ou sept fonctionnaires sur dix de la cour de l'Empire Di Shan étaient des fidèles de l'École du Ciel.
 
 Prendre moins d'un mois pour asservir un empire fut comme un coup de tonnerre qui frappa les esprits. Personne ne s'y attendait, et tous furent ébranlés jusque dans leur âme.
 
@@ -74,7 +74,7 @@ Wang Lin sourit et hocha la tête: « Aujourd'hui, je ne boirai qu'une seule cru
 
 Le serveur sourit et alla saluer d'autres clients. Lorsqu'il eut un moment de répit, il s'appuya contre le comptoir près de la porte, observa Wang Lin et soupira: « Ce vieil homme Wang mène une existence amère. Il est si vieux et n'a pas d'enfants pour lui tenir compagnie. »
 
-Le caissier derrière le comptoir arrêta son mouvement sur l'abaque et secoua la tête: « J'ai entendu dire par une servante de leur manoir qu'il avait un fils. Cependant, ce fils a quitté la maison il y a de nombreuses années et n'est jamais revenu. »
+Le gérant derrière le comptoir arrêta son mouvement sur l'abaque et secoua la tête: « J'ai entendu dire par une servante de leur manoir qu'il avait un fils. Cependant, ce fils a quitté la maison il y a de nombreuses années et n'est jamais revenu. »
 
 Wang Lin saisit sa cruche de vin et but une gorgée. Son regard se posa sur la fenêtre et il resta ainsi assis toute la journée.
 
@@ -84,7 +84,7 @@ Wang Lin et les vieux serviteurs marchèrent sous la lune qui montait progressiv
 
 Après avoir congédié les serviteurs, Wang Lin s'assit dans la cour et leva les yeux vers le ciel en murmurant: « Le temps passe si vite. Ping Er a déjà 47 ans... Peut-être a-t-il lui-même trouvé des indices... »
 
-La guerre entre les trois empires se déroulait lentement, mais l'ingérence des cultivateurs provoqua de nombreux rebondissements inattendus. Cependant, tout changea lorsque l'empereur de l'Empire Céleste prit personnellement les rênes du pouvoir.
+La guerre entre les trois empires se déroulait lentement, mais l'ingérence des cultivateurs provoqua de nombreux rebondissements inattendus. Cependant, tout changea lorsque l'empereur de l'Empire Céleste prit personnellement la tête de ses armées.
 
 Peu importe le niveau de culture des intervenants, tous reculaient devant lui. Peu à peu, tous les cultivateurs qui tentaient d'interférer se retirèrent du monde mortel.
 
@@ -94,7 +94,7 @@ Wang Ping siégeait au sommet d'une tente dorée dans le camp militaire. Après 
 
 Le visage de Wang Ping paraissait un peu plus marqué par l'âge, et les cheveux autour de ses tempes étaient devenus d'un blanc immaculé. Après être devenu le souverain suprême des mortels, le bonheur s'était fait rare dans sa vie. Le poids de ses responsabilités accablait son cœur.
 
-Soudain, il regretta les dix-neuf années de son enfance et tout ce qu'il avait vécu au village lorsqu'il était un petit garçon.
+Soudain, il ressentit la nostalgie des dix-neuf années de son enfance et tout ce qu'il avait vécu au village lorsqu'il était un petit garçon.
 
 Alors qu'il contemplait le mont Quilian, pensif, Qing Yi sortit de la tente. Elle se tint aux côtés de Wang Ping et dit doucement: « Tu as dit que c'était là que tu avais grandi. Veux-tu aller voir? »
 
@@ -134,7 +134,7 @@ Cupidité fixa la planète Yun Xia un instant. Après une courte hésitation, il
 
 À mesure qu'il se rapprochait, son cœur battait la chamade et ses yeux brillaient de plus belle.
 
-« Je n'ai ressenti cela que lorsque j'ai obtenu ce fourneau géant. Se pourrait-il qu'un trésor comparable à ce fourneau se trouve ici? » Les yeux de Cupidité étaient empreints d'excitation. À cet instant, il oubliait totalement Wang Lin et les restrictions qui pesaient sur lui.
+« Je n'ai ressenti cela que lorsque j'ai obtenu ce fourneau géant. Se pourrait-il qu'un trésor comparable à ce fourneau se trouve ici? » Les yeux de Cupidité étaient empreints d'excitation. À cet instant, il oubliait totalement Wang Lin et le sceau qui pesait sur lui.
 
 Il serra les dents, frappa son sac de stockage, et le fourneau géant apparut devant lui. S'en servant pour frayer un chemin, Cupidité s'avança et disparut lentement dans la brume.
 

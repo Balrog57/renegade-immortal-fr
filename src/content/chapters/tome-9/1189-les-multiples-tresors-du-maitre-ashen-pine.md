@@ -12,7 +12,7 @@ Les yeux du Maître Pin Cendré brillèrent d'une lueur étrange lorsqu'il décl
 
 « Camarade cultivatrice Zhao, vous souvenez-vous de ce qui se murmurait parmi ma génération lorsque l'on ne possédait point de pilule d'Ascendant? » Le Maître Pin Cendré leva les yeux vers la statue.
 
-La vieille femme répondit d'une voix douce: « Ceux qui cherchent le Dao naissent à l'aube et meurent au crépuscule. Cela suffit! »
+La vieille femme répondit d'une voix douce: « Celui qui entend le Dao naît à l'aube et meurt au crépuscule. Cela suffit! »
 
 « Allons-y. » Le Maître Pin Cendré détourna son regard et s'élança en avant. La vieille femme en vert marqua une pause pour réfléchir, puis le suivit.
 
@@ -90,6 +90,6 @@ En voyant cela, la belle femme écarquilla les yeux et prit une grande inspirati
 
 « Brise! » rugit le Maître Pin Cendré, tentant de donner tout ce qu'il avait.
 
-Le pendentif de jade fonça dans la fissure et s'effondra brusquement. Un impact bien plus violent que les précédents surgit, créant une tempête qui affecta la brume sur des dizaines de milliers de kilomètres. Malgré les craquements, l'écran de lumière noire ne céda pas totalement, mais la fissure atteignit désormais cent pieds de large. Bien qu'elle se régénérât, le processus était ralenti.
+Le pendentif de jade fonça dans la fissure et s'effondra brusquement. Un impact bien plus violent que les précédents surgit, créant une tempête qui affecta la brume sur plusieurs kilomètres. Malgré les craquements, l'écran de lumière noire ne céda pas totalement, mais la fissure atteignit désormais cent pieds de large. Bien qu'elle se régénérât, le processus était ralenti.
 
 Le Maître Pin Cendré s'élança et se précipita dans la brèche, ignorant la femme. La jeune femme, les yeux brillants, suivit immédiatement son mouvement. Peu après, un rayon de lumière perça la brume: c'était Wang Lin. Il observa la fissure sans s'y engouffrer aussitôt; après avoir disposé d'une grande quantité de restrictions à l'extérieur, il se précipita lui aussi dans l'ouverture!

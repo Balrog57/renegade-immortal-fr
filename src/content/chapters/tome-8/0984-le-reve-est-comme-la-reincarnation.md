@@ -106,9 +106,9 @@ Wang Lin poussa un soupir et observa attentivement la couronne avant de la range
 
 « Si je parviens à raffiner et à contrôler le prochain objet, j'aurai plus d'assurance pour mon voyage vers la Terre des Esprits Démoniaques. » Wang Lin prit une profonde inspiration et frappa son sac de rangement. Un cadavre féminin émettant une lueur argentée apparut devant lui.
 
-Lors de la grande bataille entre Luotian et l'Alliance, cette femme faisait partie des trois cadavres raffinés les plus puissants déployés par l'Alliance. Après qu'elle eut été blessée, Wang Lin avait réussi à s'en emparer.
+Lors de la grande bataille entre Luotian et l'Alliance, cette femme faisait partie des trois cadavres raffinés les plus puissants déployés par l'Alliance, issus du Royaume de la Prison des Cadavres. Après qu'elle eut été blessée, Wang Lin avait réussi à s'en emparer.
 
-La femme portait une robe argentée qui soulignait ses courbes magnifiques. De son vivant, elle aurait été une femme enchanteresse. Mais à présent, son visage était livide et une terrifiante explosion d'énergie Yin émanait de son corps, emplissant la pièce.
+La femme portait une robe argentée qui soulignait ses courbes magnifiques. De son vivant, elle aurait été une femme enchanteresse. Mais à présent, son visage était livide et des bouffées d'énergie Yin émanaient de son corps, emplissant la pièce.
 
 Deux chaînes entravaient encore son corps: l'une attachée à son omoplate, l'autre à son bassin. Ces chaînes, d'un violet noirâtre, dégageaient une odeur fétide si puissante qu'un mortel en mourrait instantanément.
 

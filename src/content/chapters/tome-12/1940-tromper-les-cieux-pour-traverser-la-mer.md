@@ -74,7 +74,7 @@ Ses yeux s'illuminèrent tandis que son regard se faisait sérieux. Il fixa les 
 
 Ces derniers devinrent instantanément pâles de nervosité sous son regard intense. Pourtant, ils serrèrent les dents sans verser une larme.
 
-« Pas mal. En réalité, ce vieil homme ne vous a pas dit la vérité devant vos proches. Votre talent est en fait très médiocre et vous êtes à peine qualifiés pour la culture. Si je vous ai choisis, c'est uniquement parce que votre détermination est sans faille! Les cultivateurs n'ont pas peur d'un talent limité; un cœur résolu est l'essentiel! »
+« Pas mal. En réalité, ce vieil homme ne vous a pas dit la vérité devant vos proches. Votre talent est en fait plutôt ordinaire et vous êtes à peine qualifiés pour la culture. Si je vous ai choisis, c'est uniquement parce que votre détermination est sans faille! Les cultivateurs n'ont pas peur d'un talent limité; un cœur résolu est l'essentiel! »
 
 Les cinq enfants regardèrent Liu Jinbiao avec anxiété, restant silencieux.
 
@@ -114,4 +114,4 @@ Parmi les cinq enfants, trois, terrifiés, choisirent de rentrer chez eux. Cepen
 
 Liu Jinbiao lança un regard profond au garçon ayant choisi le talent bon. Parmi les cinq, il était celui qui possédait le meilleur potentiel et la volonté la plus ferme. Sa famille n'était pas riche mais modeste, et Liu Jinbiao ne l'avait remarqué que par pur hasard.
 
-Liu Jinbiao hocha la tête et effaça la mémoire des trois autres enfants. Il les fit sortir de la grotte vers l'extérieur de la montagne, où se trouvaient ses partisans. Il envoya également un message pour que ses subordonnés ramènent les enfants à la cité, afin d'informer leurs parents qu'ils avaient échoué à intégrer la secte.
+Liu Jinbiao hocha la tête et effaça la mémoire des trois autres enfants. Il les fit sortir de la grotte vers l'extérieur de la montagne, où l'attendaient ses subordonnés. Il envoya également un message pour que ses subordonnés ramènent les enfants à la cité, afin d'informer leurs parents qu'ils avaient échoué à intégrer la secte.

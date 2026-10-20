@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1641 - Celestials Aren’t Anything Special
 slug: les-celestes-ne-sont-rien-de-special
 ---
-« Si le Souverain Céleste aux Sept Couleurs avait été gravement blessé et contraint à une culture en isolement, alors qui était ce Daoïste aux Sept Couleurs que j'ai vu dans le Domaine Brillant des Sept Couleurs... » Wang Lin se frotta les tempes et cessa de songer à ces pensées confuses. Il porta son regard au loin vers les quatre auras lointaines.
+« Si le Souverain Céleste aux Sept Couleurs avait été gravement blessé et contraint à une culture en isolement, alors qui était ce Daoïste aux Sept Couleurs que j'ai vu dans le Royaume aux Sept Couleurs... » Wang Lin se frotta les tempes et cessa de songer à ces pensées confuses. Il porta son regard au loin vers les quatre auras lointaines.
 
 En vérité, il avait ressenti ces auras dès son entrée dans le Royaume Céleste Antique. La raison de sa présence ici, outre la destruction des statues, était de rencontrer l'une de ces quatre auras familières.
 

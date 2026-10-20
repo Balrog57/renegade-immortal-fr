@@ -78,7 +78,7 @@ Le son fut d'abord discret, puis, en un instant, il devint un fracas de tonnerre
 
 Un soleil gigantesque, couleur sang, apparut derrière Xuan Luo. Dès son apparition, la lueur dorée du système stellaire pâlit, incapable de rivaliser.
 
-À l'instant où le soleil se manifesta, la main droite de Xuan Luo traça un sceau et s'élança vers le vide.
+À l'instant où le soleil se manifesta, la main droite de Xuan Luo traça un sceau et saisit le vide.
 
 « Esprit Céleste de l'Empereur Dragon, moi, Xuan Luo, je vous invoque! » La voix de Xuan Luo était chargée d'une force mystérieuse. À mesure qu'elle résonnait, le grondement redoublait d'intensité. D'innombrables ondulations surgirent, suivies d'un vortex colossal. Le tourbillon tournait si rapidement qu'il semblait prêt à engloutir le système stellaire tout entier.
 
@@ -96,7 +96,7 @@ Un instant plus tard, alors que le rugissement semblait sur le point de faire im
 
 Cette tête gigantesque était celle d'un dragon!
 
-Il possédait une corne unique et deux moustaches draconiques s'étirant sur des milliers de pieds. Ses écailles étaient d'un noir violacé et son regard, froid et glacial. L'ensemble formait un béhémoth capable de terrifier n'importe quel observateur.
+Il possédait une corne unique et deux moustaches draconiques s'étirant sur des milliers de pieds. Ses écailles étaient d'un noir violacé, son expression féroce et son regard froid et glacial. L'ensemble formait un béhémoth capable de terrifier n'importe quel observateur.
 
 Plus étrange encore, l'extrémité de sa corne n'était pas pointue mais carrée. De loin, elle ressemblait presque à la couronne d'un empereur!
 

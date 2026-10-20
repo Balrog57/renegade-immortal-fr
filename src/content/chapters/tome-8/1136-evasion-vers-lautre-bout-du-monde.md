@@ -48,7 +48,7 @@ L'épée brisée siffla dans les airs, portée par une intention meurtrière qui
 
 L'épée brisée pénétra inopinément le pied droit de Tuo Sen. Portant une force irrésistible, elle traversa la jambe et chargea vers le visage du colosse.
 
-La vitesse de cette épée brisée dépassait de loin celle d'un cultivateur du Briseur du Nirvana. Même les cultivateurs du Fléau Céleste ne pouvaient égaler la vitesse de cette arme.
+La vitesse de cette épée brisée dépassait de loin celle d'un cultivateur du Briseur du Nirvana. Même les cultivateurs au stade intermédiaire du Fléau Céleste ne pouvaient égaler la vitesse de cette arme.
 
 Tout cela ne prit qu'un instant: l'épée perça la jambe droite de Tuo Sen! En un éclair, elle atteignit le visage de ce dernier et chargea vers la quatrième étoile.
 
@@ -140,4 +140,4 @@ Lorsqu'il réapparut, il était déjà très loin de la planète Suzaku. Pourtan
 
 « Si j'avais dû affronter Tuo Sen, même si mon corps originel avait traversé les Trois Épreuves et Sept Calamités, même si j'avais le trident en main, je ne survivrais pas à un seul de ses coups... » Wang Lin afficha une expression amère. Il ignorait si Tuo Sen s'était échappé, mais il savait qu'il ne pouvait rester dans le Système Stellaire de l'Alliance. Il devait partir au plus vite et ne jamais... jamais revenir... À moins d'acquérir la puissance nécessaire pour résister à Tuo Sen...
 
-Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et désertique... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure, à la Secte des Quatre Divinités.
+Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et abandonnée... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure, à la Secte des Quatre Divinités.

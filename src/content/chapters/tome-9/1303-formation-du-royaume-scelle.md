@@ -68,7 +68,7 @@ Ce sourire était extrêmement étrange. En un instant, une lumière l'enveloppa
 
 Sa voix, telle un coup de tonnerre, retentit à travers toute la Secte Démon. Cela tirailla les cultivateurs de la secte qui étaient tombés dans la léthargie. Cependant, sitôt réveillés, ils sombrèrent de nouveau dans l'engourdissement.
 
-Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Fantôme, à la Secte Divine, à la Secte Brise-Ciel et parmi les bêtes féroces dans la brume, des gens s'évanouissaient également.
+Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Fantôme, à la Secte Divine, à la Secte Brise-Ciel et parmi les bêtes féroces dans la brume, des gens disparaissaient également.
 
 L'épée de sang encerclait Wang Lin. Il leva les yeux vers le vortex formé par les quatre épées. La voix étrange pénétra aussi son esprit et, puisqu'il était celui qui subissait la divine rétribution, elle résonnait en lui avec une clarté accrue. Pourtant, la voix à ses oreilles n'était pas unique, mais changeait constamment!
 
@@ -108,7 +108,7 @@ Lorsque la faille fut déchirée, une énergie glaciale s'en échappa. Le corps 
 
 Alors que Wang Lin et la montagne entraient dans le vide, une structure semblable à un filet apparut. Elle dégageait une aura si puissante qu'elle empêchait toute créature vivante de la briser!
 
-Une lueur étrange brilla dans les yeux de Wang Lin et il se précipita vers le filet. Ses mains formèrent un sceau et se changèrent devant lui en une multitude d'empreintes. À cet instant, la montagne de nuages le rattrapa et s'écrasa sur lui.
+Une lueur étrange brilla dans les yeux de Wang Lin et il recula aussitôt vers le filet. Ses mains formèrent un sceau et se changèrent devant lui en une multitude d'empreintes. À cet instant, la montagne de nuages le rattrapa et s'écrasa sur lui.
 
 Wang Lin leva soudainement les bras comme s'il soutenait la montagne elle-même, puis un rugissement indescriptible retentit. Son corps trembla et il cracha du sang tout en transférant cette force colossale vers la Formation du Royaume Scellé.
 

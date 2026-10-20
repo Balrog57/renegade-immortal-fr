@@ -90,7 +90,7 @@ Le vieil homme poussa un rugissement de rage et invoqua à nouveau le cocon illu
 
 Il referma ensuite sa main et tira brusquement. Un bruit de déchirure retentit alors qu'il arrachait le cocon illusoire du dos du vieil homme. Les yeux de Wang Lin brillèrent d'un éclat sinistre lorsqu'il projeta le cocon derrière lui.
 
-Puis, il tendit violemment sa main droite.
+Puis, il saisit violemment le vide de sa main droite.
 
 Le cocon explosa en plein vol. Une masse de pus fut projetée et un gémissement étouffé s'échappa du vide. Le corps de Chanson du Vent apparut là où le cocon avait explosé. Son visage était pâle, mais son regard était plus sombre encore.
 

@@ -12,7 +12,7 @@ Les gouttes de pluie tombaient sur la roche dans un bruit agréable à l'oreille
 
 Heureusement, le vent balayait les gouttes, dissipant cette pointe d'irritation. Le grondement puissant de la pluie résonnait alors.
 
-Une silhouette vêtue de blanc apparut soudainement dans la tempête. Il observa silencieusement le vieil homme, transporté par l'émotion, sur la plateforme de pierre.
+Une silhouette vêtue de blanc apparut soudainement au sommet du mont Hengyun, dans la tempête. Il observa silencieusement le vieil homme, transporté par l'émotion, sur la plateforme de pierre.
 
 Il ne chercha pas à empêcher la pluie de tremper ses vêtements, pas plus qu'il ne s'efforça d'en détourner les gouttes comme il l'avait fait lors de son éveil. Wang Lin se tenait simplement là, immobile sous l'averse.
 
@@ -46,7 +46,7 @@ Même Xie Qing ignorait la raison de ce phénomène. Ne connaissant aucune méth
 
 Il détourna le regard vers la pluie qui tombait du ciel. L'eau était glaciale lorsqu'elle frappait son visage, et il murmura lentement: « Les cultivateurs immortels cherchent à devenir immortels et à vivre éternellement... Les cultivateurs de la Vérité cherchent leur vrai moi et vivent libres, au-delà du monde... Les cultivateurs du Dao confirment l'origine et deviennent eux-mêmes le Dao... Et les cultivateurs de l'âme font entrer leur âme dans leur destin: le Ciel, la Terre, le souverain, les parents, le maître! »
 
-Agenouillé sur la plateforme, Xie Qing affichait un regard empreint de confusion et d'ignorance. La pluie redoubla d'intensité, ses vêtements mouillés collant à sa peau, ce qui le gênait. Encore troublé, il leva inconsciemment la main droite pour former un sceau qu'il avait lui-même conçu.
+Agenouillé sur la plateforme, Xie Qing affichait un regard empreint de confusion et d'ignorance. La pluie redoubla d'intensité, ses vêtements mouillés collant à sa peau, ce qui le gênait. Encore troublé, il leva inconsciemment la main droite pour former un petit sort qu'il avait lui-même conçu.
 
 Dès que sa main prit la forme du sceau, le monde trembla. La pluie sembla changer de trajectoire, déviée sur les côtés.
 
@@ -54,7 +54,7 @@ Wang Lin secoua la tête et murmura: « Tu n'as pas encore totalement renoncé a
 
 « Xie Qing, regarde cette montagne. A-t-elle jamais tenté d'arrêter la pluie? Regarde la rivière et l'océan. Ont-ils rejeté les précipitations? Regarde les arbres et tout ce qui nous entoure. Hormis les humains, quelle autre créature empêche la pluie de se poser sur elle? »
 
-« Puisque tu es un cultivateur de l'âme, pourquoi chérisses-tu encore cette peau? Retourne à l'origine. Peu de gens peuvent réellement le comprendre... Même moi, ton Maître, je m'étais cru autrefois en pleine compréhension de ces quatre mots... Mais ce n'est qu'après avoir traversé tant d'épreuves et être retourné à Luotian que j'ai eu l'illumination... Retourner à l'origine, c'est devenir un avec les arbres, les montagnes et les rivières. C'est se libérer de toute limite pour ne faire qu'un avec le monde... Voilà ce que signifie véritablement retourner à l'origine! »
+« Puisque tu es un cultivateur de l'âme, pourquoi chérisses-tu encore cette peau? Comme le dit l'adage daoïste, retourne à l'origine. Peu de gens peuvent réellement le comprendre... Même moi, ton Maître, je m'étais cru autrefois en pleine compréhension de ces quatre mots... Mais ce n'est qu'après avoir traversé tant d'épreuves et être retourné à Luotian que j'ai eu l'illumination... Retourner à l'origine, c'est devenir un avec les arbres, les montagnes et les rivières. C'est se libérer de toute limite pour ne faire qu'un avec le monde... Voilà ce que signifie véritablement retourner à l'origine! »
 
 Le corps de Xie Qing frémit alors qu'une compréhension vague commençait à poindre en lui.
 
@@ -90,19 +90,19 @@ Wang Lin était parti.
 
 Il devait se rendre en quatre lieux pour accomplir quatre tâches à Luotian! Il venait de terminer la première. Alors qu'il traversait l'immensité des étoiles brillantes, le regard de Wang Lin se glaça et se remplit d'une intention meurtrière.
 
-« Ancêtre de la famille Xiang... Il est temps de régler les comptes du passé... » D'un revers de manche, il s'élança vers la planète de la famille Xiang, là où il avait perdu toute sa force vitale!
+« Ancêtre de la famille Xiang... Il est temps de régler les comptes du passé... » D'un revers de manche, sa silhouette fila comme une navette vers la planète de la famille Xiang, là où, par le sortilège Qixi, il avait perdu toute sa force vitale!
 
 Quelques heures après le départ de Wang Lin, une équipe de plusieurs dizaines de cultivateurs volait vers la planète Qing Ling, menée par un homme d'âge moyen vêtu d'une robe de tonnerre.
 
 Ils appartenaient au Temple Céleste du Tonnerre. Ils avaient reçu l'ordre de trouver des planètes répondant aux critères de leur Ancêtre afin de former la légendaire Formation des Sept Calamités Stellaires!
 
-Qing Ling remplissait les conditions. Après avoir reçu l'ordre de déplacer la planète par la force, ils étaient prêts à agir. Cependant, lorsqu'ils se trouvèrent à 30 millions de kilomètres de Qing Ling, ils ressentirent une énergie d'épée monstrueuse.
+Qing Ling remplissait les conditions. Après avoir reçu l'ordre de déplacer la planète par la force, ils étaient prêts à agir. Cependant, lorsqu'ils se trouvèrent à 30 millions de kilomètres de Qing Ling, ils ressentirent une énergie d'épée monstrueuse, qui se répandait comme la pluie.
 
 Cette puissance était si intense qu'elle semblait capable de faire s'effondrer l'espace lui-même. L'homme d'âge moyen en tête fut le premier frappé par cette aura; son visage se décomposa, il cracha du sang et fut violemment repoussé.
 
 Les cultivateurs qui le suivaient toussaient également du sang. Leurs yeux étaient écarquillés par la terreur et ils reculèrent tous en désordre.
 
-Alors qu'ils étaient terrifiés par l'énergie de l'épée sur Qing Ling, une distorsion apparut au-dessus de Xie Qing et un homme en sortit.
+Alors qu'ils étaient terrifiés par l'énergie de l'épée sur Qing Ling, une distorsion apparut au-dessus de Xie Qing, qui méditait en tailleur, et un homme en sortit.
 
 Il s'agissait d'un vieil homme vêtu d'une robe taoïste: Maître Lu Fu!
 

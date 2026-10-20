@@ -24,7 +24,7 @@ L'expression de Wang Lin demeurait calme. Alors que le loup blanc fondait sur lu
 
 Cela permit au corps de Wang Lin d'incorporer toute la puissance du contour du soleil du Grand Empyréen. Il pivota son corps et décocha un coup de pied au loup!
 
-À cet instant, un seul coup de poing ou un seul coup de pied contenait la puissance du monde et pouvait déclencher n'importe quel sortilège. Sous l'impact de ce coup, le vide trembla!
+Lorsque les arts du Grand Dao atteignent un certain degré, un seul coup de poing ou de pied contient les trajectoires du ciel et de la terre et peut déclencher des transformations de sortilèges. Sous l'impact de ce coup, le vide trembla!
 
 De loin, il ne s'agissait plus d'une collision entre un loup blanc et le coup de pied de Wang Lin, mais du choc entre un soleil blanc et un soleil noir et blanc!
 
@@ -50,7 +50,7 @@ Les quatre-vingt-dix-neuf images entourèrent la zone et, alors que la lame bala
 
 Le visage de Wang Lin était livide. Dès son apparition, il leva la main droite et pointa l'espace entre les sourcils du crâne de Dao Yi.
 
-Dans un fracas assourdissant, le corps de Dao Yi chuta du ciel sous un cri déchirant. La malédiction ancestrale avait totalement éclaté; en tombant, il laissait derrière lui des lambeaux de chair et de sang. Désormais, sous ses vêtements en lambeaux, la moitié de son corps n'était plus que d'ossements! Il s'écrasa lourdement sur le sol fracassé.
+Dans un fracas assourdissant, le corps de Dao Yi chuta du ciel sous un cri déchirant. La malédiction ancestrale avait totalement éclaté; en tombant, il laissait derrière lui des lambeaux de chair et de sang. Désormais, sous ses vêtements en lambeaux, la majeure partie de son corps n'était plus que d'ossements! Il s'écrasa lourdement sur le sol fracassé.
 
 « Je refuse que cela se termine ainsi! » Dao Yi était consumé par le ressentiment. Sans cette malédiction ancestrale, il n'aurait jamais fini dans un tel état devant Wang Lin! Mais il était à présent réduit à une misère absolue!
 
@@ -60,17 +60,17 @@ Hai Zi réfléchit silencieusement et leva la main droite. Elle fit un geste ver
 
 « Par le pouvoir du clan Dao Wang, transformez les pensées des vivants et les pensées des morts... Que ceux qui existent continuent d'exister, et que ceux qui sont sur le point de se dissiper... s'arrêtent! »
 
-Hai Zi agita la main et des ondulations bleues se propagèrent autour de Dao Yi. Lorsque Wang Lin tenta de s'approcher, il eut l'impression de s'enfoncer dans des sables mouvants.
+Hai Zi agita la main et des ondulations bleues se propagèrent autour de Dao Yi. Lorsque Wang Lin tenta de s'approcher, il eut l'impression de s'enfoncer dans la vase.
 
 Les yeux de Wang Lin brillèrent et une multitude de fils noirs jaillirent de son corps vers Dao Yi. Ces filaments pénétrèrent les ondulations bleues et se reformèrent pour reconstituer le corps de Wang Lin devant Dao Yi.
 
 Dans sa folie, Dao Yi voulut résister désespérément, mais la malédiction ancestrale avait totalement pris le dessus. Au moment où il allait lancer un sortilège, son pouvoir s'effondra et son corps se décomposa davantage. Il poussa un cri de douleur lorsque Wang Lin apparut devant lui. Le pied de Wang Lin s'abattit sur sa poitrine, l'empêchant toute lutte.
 
-« Tu combats quand bon te semble et t'arrêtes quand tu le décides. Comment les choses pourraient-elles suivre tes désirs? C'est Dao Yi qui m'a attaqué le premier. Si tu veux que je m'arrête, il faudra en payer le prix! » Wang Lin, un pied sur Dao Yi, regardait calmement Jiu Di qui fonçait vers lui.
+« Vous combattez quand bon vous semble et vous arrêtez quand vous le décidez. Comment les choses pourraient-elles suivre vos désirs? C'est Dao Yi qui m'a attaqué le premier. Si vous voulez que je m'arrête, il faudra en payer le prix! » Wang Lin, un pied sur Dao Yi, regardait calmement Jiu Di qui fonçait vers lui.
 
 L'expression de Jiu Di était sombre et il s'arrêta à mille pieds de Wang Lin. Il le fixa intensément, tandis que la malédiction ancestrale au sein de son propre corps devenait violente.
 
-Jiu Di prit une profonde inspiration pour tenter de se calmer. « Que veux-tu? »
+Jiu Di prit une profonde inspiration pour tenter de se calmer. « Quel prix veux-tu? »
 
 Le pied droit de Wang Lin exerça une pression sur le corps de Dao Yi, propageant davantage les gaz noirs. Cette stimulation dispersa la folie de Dao Yi, lui infligeant une douleur fulgurante et inédite, doublée du sentiment d'humiliation d'être piétiné par Wang Lin.
 
@@ -96,7 +96,7 @@ Après avoir récupéré l'objet, Wang Lin recula pour se placer près de la tê
 
 « Wang Lin, le clan Dao Wang et moi avons élaboré ce plan, pourtant c'est toi qui en tires le plus grand profit. Ce vieil homme s'en souviendra. Quitte cet endroit, et tu ferais mieux de devenir un Grand Empyréen au plus vite. Sinon, une fois que je me serai débarrassé de la malédiction, tu devras me rendre des comptes! » dit Jiu Di en fixant Wang Lin, sans dissimuler ses pensées.
 
-« Et toi, Gémeaux. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte du Yang Pourpre ne s'en sortira pas seule! »
+« Et toi, Gémeaux. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte Yang Pourpre ne s'en sortira pas seule! »
 
 « Ce vieil homme avait initialement un plan parfait. J'allais laisser tous les Grands Empyréens se partager les reliques de l'Ancêtre Céleste afin que nous devenions plus forts, pour qu'il n'y ait plus jamais d'Empereur Céleste! »
 
@@ -104,7 +104,7 @@ Après avoir récupéré l'objet, Wang Lin recula pour se placer près de la tê
 
 Gémeaux resta silencieuse, mais une lueur de confusion et de trouble passa dans ses yeux.
 
-Wang Lin s'excusa intérieurement. Il regarda le Grand Empyréen Gémeaux et prit une décision ferme!
+Wang Lin éprouva intérieurement du remords. Il regarda le Grand Empyréen Gémeaux et prit une décision ferme!
 
 « Je dois énormément au Grand Empyréen Gémeaux... Je ne peux qu'essayer d'empêcher la guerre entre le clan Antique et le clan Céleste, afin qu'elle ne regrette pas sa décision d'aujourd'hui. »
 

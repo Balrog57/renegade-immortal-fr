@@ -10,7 +10,7 @@ Wang Lin afficha une expression joyeuse en acceptant le talisman de jade. Le sav
 
 Wang Lin n'était pas quelqu'un qui ignorait sa place. Dès que le savant d'âge moyen eut pénétré dans le char, il partit pour rejoindre les rangs de l'armée.
 
-À la frontière de Huo Fen se trouvait Xuan Wu. Aux côtés des cultivateurs, tous les mortels migraient également avec leurs familles vers Xuan Wu. Ces bêtes de feu qui avaient subi une transformation n'attaquaient plus guère les mortels désormais; leur unique cible était Wang Lin.
+À la frontière de Huo Fen se trouvait Xuan Wu. Aux côtés des cultivateurs, de nombreux mortels migraient également avec leurs familles vers Xuan Wu. Ces bêtes de feu qui avaient subi une transformation n'attaquaient plus guère les mortels désormais; leur unique cible était Wang Lin.
 
 Au fil du temps, les bêtes de feu commencèrent à rattraper l'arrière-garde. De plus en plus d'entre elles apparurent derrière l'armée des cultivateurs, exerçant une pression écrasante sur les esprits de chacun.
 

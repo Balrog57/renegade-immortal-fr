@@ -62,6 +62,8 @@ Elles pénétrèrent la brèche et entrèrent dans le vide où se trouvait la Fo
 
 Les Neuf Palais du Scellement Céleste!
 
+Ce n'est pas un scellement de la vie, mais un sceau!
+
 Simultanément, neuf points blancs apparurent sur le corps de Wang Lin. Ces neuf points étaient les neuf principaux nœuds de flux sanguin. Lorsque ces neuf points se lièrent, ils connectèrent l'intégralité de son corps!
 
 À l'arrivée des neuf palais, les neuf points provoquèrent une douleur insupportable. C'était comme si neuf clous avaient transpercé son corps. Cela aurait suffi à le rendre fou.
@@ -90,7 +92,7 @@ La douleur intense dans le corps de Wang Lin manqua de faire s'effondrer son âm
 
 Des grondements tonnerreux retentirent et les neuf points de sang sur son corps bougèrent. Les météorites à l'intérieur de lui s'arrêtèrent brusquement, incapables de converger vers le dernier palais!
 
-Cependant, la rétribution divine n'en avait pas fini. La foudre violette, les quatre épées colorées, l'Invocation du Paramita, la montagne de nuages... tout cela n'était que le début. La rétribution divine était infinie, sans commencement ni fin, jusqu'à ce que la rétribution infinie s'achève!
+Cependant, la rétribution divine n'en avait pas fini. La foudre violette, les quatre épées colorées, l'Appel de Paramita, la montagne de nuages... tout cela n'était que le début. La rétribution divine était infinie, sans commencement ni fin, jusqu'à ce que la rétribution infinie s'achève!
 
 Après les neuf palais vinrent les Huit Diagrammes!
 

@@ -16,7 +16,7 @@ Ils lui procuraient une sensation très familière, comme si ces cinq éléments
 
 « C'est... le monde de la Perle Défiant le Ciel... » Un mois; deux mois; trois mois, ou bien un an; deux ans; trois ans... Wang Lin ignorait combien de temps s'était écoulé, mais son âme ne se dissipait pas...
 
-Au fil de ces innombrables années, une lumière rouge sang et chaleureuse émanait parfois de toutes les directions, dissipant la froideur qui habitait Wang Lin. Cette lueur nourrissait progressivement son âme, lui permettant de passer lentement d'un état transparent à une forme semi-corporelle.
+Au fil de ces innombrables années, une lumière rouge sang et chaleureuse émanait presque sans cesse de toutes les directions, dissipant la froideur qui habitait Wang Lin. Cette lueur nourrissait progressivement son âme, lui permettant de passer lentement d'un état transparent à une forme semi-corporelle.
 
 À mesure que cette lumière le nourrissait, la confusion qui entourait Wang Lin s'estompait. Il regarda autour de lui et se remémora peu à peu de nombreux souvenirs, y compris le monde qu'il avait contemplé il y a près de deux mille ans.
 
@@ -52,9 +52,9 @@ Wang Lin accéléra de plus en plus. En avançant, il sentait distinctement cett
 
 « Qu'est-ce que cette lumière rouge sang...? » Wang Lin fronçait les sourcils tandis qu'il progressait, incapable de concevoir l'origine de cette lueur.
 
-Sa vitesse devint alors fulgurante. Il fendit le brouillard dans un grondement tonitruant. Désormais, il se déplaçait des milliers de fois plus vite qu'auparavant.
+Sa vitesse devint alors plus rapide que la foudre. Il fendit le brouillard dans un grondement tonitruant. Il se déplaçait de nombreuses fois plus vite qu'auparavant.
 
-La brume fut repoussée et s'effondra instantanément devant la vélocité de Wang Lin. Il traça sa voie à travers les ténèbres. Le temps passa lentement. Un an, deux ans, trois ans...
+La brume fut repoussée et s'effondra instantanément devant la vélocité de Wang Lin. Il avançait, implacable, comme un bambou qu'on fend. Le temps passa lentement. Un an, deux ans, trois ans...
 
 Wang Lin continuait sa course. Étant une âme, il n'utilisait aucune énergie originelle. Comme il se trouvait dans la Perle Défiant le Ciel et qu'il en était le maître, il était comme un poisson dans l'eau. À mesure qu'il avançait, la brume s'éclaircissait.
 
@@ -116,7 +116,7 @@ Après avoir retiré une croûte qui ne s'était pas encore cicatrisée, les yeu
 
 Quatre ans s'étaient écoulés. Durant ces quatre années, Li Qianmei n'avait pas quitté cet endroit. Elle accompagnait silencieusement la statue de pierre en la nourrissant de son propre sang.
 
-Il y a quatre ans, elle n'avait besoin que de recouvrir la statue de sang, puis disposait de dix heures de repos. Quatre ans plus tard, la statue était devenue encore plus brillante et exigeait davantage de sang. Elle devait désormais la couvrir de sang quatre fois par jour, et son temps de repos n'était plus que de quatre heures...
+Il y a quatre ans, elle n'avait besoin que de recouvrir la statue de sang, puis disposait de vingt heures de repos. Quatre ans plus tard, la statue était devenue encore plus brillante et exigeait davantage de sang. Elle devait désormais la couvrir de sang quatre fois par jour, et son temps de repos ne dépassait plus huit heures...
 
 « Je vais vous réveiller... » Li Qianmei regarda la statue de pierre. Aucune larme ne coulait de ses yeux, si ce n'est une fissure tracée par un flux de pleurs constants. Au cours de ces quatre années, elle s'était demandé maintes fois: tout cela... en valait-il la peine?
 

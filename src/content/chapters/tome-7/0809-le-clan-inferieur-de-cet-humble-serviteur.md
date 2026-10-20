@@ -68,7 +68,7 @@ Seul Xu Liguo luttait encore pour hurler: « À moins que vous ne passiez sur mo
 
 Cependant, avant qu'il n'ait pu finir, la grande bête tourna la tête vers lui. Xu Liguo fut si terrifié qu'il en avala la seconde moitié de sa phrase.
 
-« Ton grand-père Xu possède l'héritage de l'esprit de l'épée antique. Une fois que j'aurai fini de l'absorber, nous verrons bien qui aura peur! » Bien qu'il maudît intérieurement, Xu Liguo recula prestement. Il était si rapide qu'en un clin d'œil, il se trouvait déjà loin de là.
+« Ton grand-père Xu possède l'héritage de l'intention de l'épée antique. Une fois que j'aurai fini de l'absorber, nous verrons bien qui aura peur! » Bien qu'il maudît intérieurement, Xu Liguo recula prestement. Il était si rapide qu'en un clin d'œil, il se trouvait déjà loin de là.
 
 L'expression de Wang Lin demeura neutre tandis qu'il fixait la bête devant lui. Son âme originelle retourna dans son corps, puis son corps s'élança dans les airs.
 
@@ -112,7 +112,7 @@ Une série de craquements retentit et des fissures parcoururent le cocon jusqu'�
 
 Ce papillon était d'une beauté telle que Wang Lin en plissa les yeux.
 
-À cet instant précis, le réseau de transfert au fond du Fourneau Yin Mystérieux brilla et une silhouette en sortit. Cette personne vacilla un instant avant de se ruer vers la porte. Elle apparut près de l'entrée et s'élança à l'extérieur.
+À cet instant précis, le tableau de transfert au fond du Fourneau Yin Mystérieux brilla et une silhouette en sortit. Cette personne vacilla un instant avant de se ruer vers la porte. Elle apparut près de l'entrée et s'élança à l'extérieur.
 
 C'était un homme vêtu d'une robe bleue, le regard glacial.
 

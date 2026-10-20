@@ -16,7 +16,7 @@ Wang Lin fit quelques pas en avant et toucha le mur. La paroi était froide, mai
 
 Après une courte réflexion, il frappa son sac de rangement. Le morceau de métal apparut aussitôt dans sa main.
 
-Dès qu'il fut révélé, le métal émit soudain une lumière éclatante et commença à chauffer. Wang Lin ressentit un soudain regain d'excitation. Il recula et lança le morceau de métal en l'air.
+Dès qu'il fut révélé, le métal émit soudain une lumière éclatante et commença à chauffer. Wang Lin ressentit un soudain regain d'excitation. Il le lâcha et le lança en l'air.
 
 Soudain, l'éclat du métal s'intensifia jusqu'à ce qu'il commence à fondre. Cependant, aucun liquide ne s'en écoula; au lieu de cela, il se transforma en un nuage de fumée.
 
@@ -28,7 +28,7 @@ Une fois la silhouette apparue, celle-ci forma un sceau manuel, créant une lumi
 
 Le sol sous les pieds de Wang Lin trembla, mais il resta calme, observant attentivement son environnement.
 
-Après un long moment, les secousses cessèrent. Sur l'un des murs apparut une porte violette et lumineuse.
+Après un long moment, les secousses cessèrent. Sur le mur du centre apparut une porte violette et lumineuse.
 
 La silhouette traça d'étranges sceaux et pointa la porte violette avant de disparaître. Même le morceau de métal s'était totalement volatilisé.
 
@@ -44,7 +44,7 @@ Le sens divin de Wang Lin se déploya et ses yeux s'illuminèrent aussitôt.
 
 Cette dixième salle n'était pas très vaste. Outre quelques matériaux de raffinage de trésors éparpillés sur le côté, les objets les plus frappants étaient les trois structures monstrueuses au centre.
 
-Il n'était pas exagéré de parler d'objets monstrueux, car ils semblaient recouverts d'une matière ressemblant à de la peau de bête, et des épines féroces en jaillissaient, dont une, au centre, était de la taille d'un homme.
+Il n'était pas exagéré de parler d'objets monstrueux, car ils semblaient recouverts d'une matière ressemblant à de la peau de bête, et des épines féroces en jaillissaient, dont une, au centre, était aussi épaisse qu'un homme.
 
 Ce n'étaient là que les parties supérieures de ces objets. Leurs bases ressemblaient à de grands chars de guerre utilisés par les mortels, dotés de quatre grandes roues.
 

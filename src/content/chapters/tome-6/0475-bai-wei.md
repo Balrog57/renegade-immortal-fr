@@ -16,9 +16,9 @@ L'expression de Wang Lin resta imperturbable alors qu'il levait la main et l'agi
 
 Les yeux de Li Dannan s'illuminèrent. Cela faisait longtemps qu'il séjournait dans la ville de Ming Mei et il était déjà venu deux fois dans le secteur nord. Bien que des patrouilles y circulent, un tel incident ne s'était jamais produit avant même qu'une personne n'ait pu pénétrer dans la zone.
 
-Le visage de Wang Lin demeura serein. Le niveau de culture de ce jeune homme n'était pas négligeable. Bien qu'il n'ait pas atteint le stade de la Transformation de l'Âme comme Wang Lin, il en était à mi-chemin et était en plein processus d'absorption de l'énergie spirituelle céleste.
+Le visage de Wang Lin demeura serein. Le niveau de culture de ce jeune homme n'était pas négligeable. Bien qu'il n'ait pas atteint le début du stade de la Transformation de l'Âme comme Wang Lin, il n'y avait mis qu'un pied et était en plein processus d'absorption de l'énergie spirituelle céleste.
 
-Cet individu possédait suffisamment d'énergie pour atteindre la Transformation de l'Âme, mais il avait choisi la seconde méthode de percée, tout comme Wang Lin. De la sorte, une fois qu'il aurait accumulé assez de jades célestes et franchi l'étape, sa progression au sein du stade de la Transformation de l'Âme serait bien plus aisée.
+Cet individu possédait suffisamment d'énergie spirituelle céleste pour atteindre la Transformation de l'Âme, mais il avait choisi la seconde méthode de percée, tout comme Wang Lin. De la sorte, une fois qu'il aurait accumulé assez de jades célestes et franchi l'étape, sa progression au sein du stade de la Transformation de l'Âme serait bien plus aisée.
 
 Le jeune homme lança un regard à Wang Lin, renifla froidement et cracha: « Dégage! »
 
@@ -36,7 +36,7 @@ Une goutte de sueur froide perla du bout de son nez, mais ses yeux restèrent ca
 
 « Arrête! » Un son ténu provint de la troisième boutique, suivi d'une lueur verte. Au cœur de cette lumière ne se trouvait qu'une tasse à thé qui volait à une vitesse inimaginable, saturée d'énergie spirituelle céleste.
 
-Les yeux de Wang Lin s'illuminèrent. Sa main gauche traça un sceau et l'énergie spirituelle céleste se concentra au bout de son doigt. Il pointa la tasse et dessina un cercle en déclarant: « Rotation des Étoiles! »
+Les yeux de Wang Lin s'illuminèrent. Sa main gauche traça un sceau et l'énergie spirituelle céleste se concentra au bout de son doigt. Il pointa vers l'endroit d'où venait la tasse et dessina un arc en déclarant: « Rotation des Étoiles! »
 
 Sous le mouvement du doigt de Wang Lin, l'arc commença à se densifier jusqu'à devenir un cercle parfait. Une fois le cercle achevé, il fut projeté vers la tasse à thé.
 
@@ -44,9 +44,9 @@ La vitesse de la tasse ralentit et sa trajectoire dévia selon la rotation du ce
 
 Un cri de surprise s'éleva de l'intérieur de la boutique.
 
-Le poing droit de Wang Lin fendit l'air avec la rapidité de l'éclair et percuta l'espace juste devant le jeune homme. Le visage de ce dernier devint instantanément rouge et il cracha une gorgée de sang brun. Ses yeux s'obscurcirent alors qu'il titubait en arrière; son corps trembla de nouveau avant qu'il n'expire un second jet de sang.
+Le poing droit de Wang Lin fendit l'air avec la rapidité de l'éclair et percuta l'espace juste devant le jeune homme. Le visage de ce dernier devint instantanément rouge et il cracha une gorgée de sang brun. Ses yeux s'obscurcirent alors qu'il titubait en arrière; son corps trembla de nouveau avant qu'il ne crache un second jet de sang.
 
-Il fut secoué par de violents tremblements tandis qu'une énergie spirituelle céleste blanche s'échappait frénétiquement de ses pores. En un instant, il ne resta plus aucune trace d'énergie céleste dans son corps.
+Il fut secoué par de violents tremblements tandis qu'une énergie spirituelle céleste blanche s'échappait frénétiquement de ses pores et de ses sept orifices. En un instant, il ne resta plus aucune trace d'énergie céleste dans son corps.
 
 « Tu... tu as détruit ma fondation céleste!!! » Le visage du jeune homme n'était plus rouge, mais aussi blanc que celui d'un cadavre.
 
@@ -100,7 +100,7 @@ Après avoir hésité un instant, Li Dannan oublia Wang Lin pour s'asseoir et co
 
 Wang Lin examina les sculptures de pierre spirituelle devant lui. Elles représentaient toutes des femmes, chacune unique, mais elles partageaient toutes une beauté exceptionnelle.
 
-Dans les mains de chaque statue se trouvait une boîte. À l'intérieur de ces boîtes résidaient des trésors magiques, des pilules et tout ce que l'on pouvait imaginer.
+Dans les mains de chaque statue se trouvait une boîte. Sur ces boîtes reposaient des trésors magiques, des pilules et tout ce que l'on pouvait imaginer.
 
 À cet instant, un rire cristallin retentit dans le vide. Peu après, une femme voluptueuse et magnifique descendit les marches, ses yeux posés sur Wang Lin.
 
@@ -112,6 +112,6 @@ Ses cheveux noirs et soyeux retombaient négligemment derrière sa tête. Trois 
 
 Sa beauté était absolue, mais ce qui captiva l'attention de Wang Lin fut le fin accessoire sous son œil gauche. Avec sa perspicacité, il comprit immédiatement qu'il s'agissait d'un trésor magique!
 
-Même les neuf fleurs de mandara étaient des trésors magiques extrêmement rares. Même les trois épingles dans ses cheveux l'étaient également. Son corps entier était paré de trésors magiques. Cela témoignait véritablement de l'immense richesse de ce lieu.
+Même les neuf fleurs de mandara étaient des trésors magiques extrêmement rares. Les trois épingles dans ses cheveux l'étaient sans doute également. Son corps entier était paré de trésors magiques. Cela témoignait véritablement de l'immense richesse de ce lieu.
 
 Wang Lin ne perdit pas de temps et demanda calmement: « Cette boutique possède-t-elle de l'encre de neige? »

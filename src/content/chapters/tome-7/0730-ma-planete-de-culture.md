@@ -8,21 +8,21 @@ slug: ma-planete-de-culture
 ---
 L'expression de Wang Lin était étrange alors qu'il regardait son sac de rangement. Le sac dégageait également une puissante intention d'épée, accompagnée d'une aura arrogante sur le point de jaillir.
 
-« Petit Lin Zi, tu ne laisses toujours pas ton seigneur Xu sortir. Humph, humph, laisse-moi te dire que je suis un dur à cuire maintenant!!! » La voix autoritaire de Xu Liguo émanait du sac. Ce dernier tremblait violemment, comme si une force issue d'un temps antique était sur le point de s'en échapper.
+« Petit Lin Zi, tu ne laisses toujours pas ton grand-père Xu sortir. Humph, humph, laisse-moi te dire que je suis un dur à cuire maintenant!!! » La voix autoritaire de Xu Liguo émanait du sac. Ce dernier tremblait violemment, comme si une force issue d'un temps antique était sur le point de s'en échapper.
 
 Au moment précis où cette force atteignit son apogée, les yeux de Wang Lin restèrent calmes alors qu'il frappait lourdement le sac de rangement. La voix impérieuse de Xu Liguo s'affaiblit aussitôt.
 
 Même l'intense intention d'épée fut réprimée, incapable de se propager.
 
-« Oh? Petit Lin Zi, tu ne comprends toujours pas la situation, mon seigneur ne t'en veut pas. Je ne suis plus le petit Xu Liguo que j'étais auparavant. J'ai hérité de l'ancienne intention d'épée... »
+« Oh? Petit Lin Zi, tu ne comprends toujours pas la situation, ton grand-père ne t'en veut pas. Je ne suis plus le petit Xu Liguo que j'étais auparavant. J'ai hérité de l'ancienne intention d'épée... »
 
-Avant qu'il ne puisse achever sa phrase, la main de Wang Lin traça un sceau et pointa le sac. Cette fois, la voix de Xu Liguo s'interrompit brusquement.
+Avant qu'il ne puisse achever sa phrase, la main de Wang Lin traça un sceau et appuya sur le sac. Cette fois, la voix de Xu Liguo s'interrompit brusquement.
 
 Wang Lin fronça les sourcils et dit calmement: « Trop bruyant! »
 
 Son corps chargea directement vers la planète déserte qui s'étendait devant lui. De loin, cette planète était parée de bleu; il semblait que les océans occupaient la majeure partie de sa surface. La vitalité qui en émanait était très intense; manifestement, de nombreux mortels y vivaient.
 
-La vitesse de Wang Lin était fulgurante; il ressemblait à une météore fonçant vers la planète. En raison de sa vélocité extrême, un cône lumineux elliptique apparut autour de lui. Il perça l'espace pour s'élancer vers la planète.
+La vitesse de Wang Lin était fulgurante; il ressemblait à un météore fonçant vers la planète. En raison de sa vélocité extrême, un cône lumineux elliptique apparut autour de lui. Il perça l'espace pour s'élancer vers la planète.
 
 L'atmosphère de cette planète était ténue et Wang Lin la traversa sans ralentir. Lorsqu'il atteignit le ciel et regarda en bas, une trace de confusion se lut sur son visage.
 
@@ -42,7 +42,7 @@ Ce phénomène étrange était lié au fait que la planète manquait d'énergie 
 
 Le Pic Heng Yun appartenait à la famille Zhang, qui possédait le plus grand nombre de cultivateurs de l'Âme Naissante. Normalement, les membres de la famille Zhang dont la longévité touchait à sa fin venaient ici pour s'isoler et s'éteindre en position assise. Au fil du temps, ce pic autrefois magnifique était devenu aride pour une raison inconnue. Même le vent qui soufflait sur la montagne était devenu glacial.
 
-Ce jour-là, Zhang Xinhai, le chef de la famille Zhang et celui qui était resté bloqué au stade avancé de l'Âme Naissante le plus longtemps, sortit de la montagne, le corps imprégné d'une aura de mort.
+Ce jour-là, Zhang Xinhai, le chef de la famille Zhang et celui qui était resté bloqué au stade avancé de l'Âme Naissante le plus longtemps, gravit la montagne, le corps imprégné d'une aura de mort.
 
 Chaque cultivateur dont la fin est proche traverse ce cycle: s'asseoir au sommet du Pic Heng Yun et contempler le ciel tandis que sa vie s'étiole lentement.
 
@@ -72,7 +72,7 @@ Zhang Xinhai laissa échapper un sourire amer et répondit respectueusement: « 
 
 Wang Lin se détourna et sa main droite projeta un rayon d'énergie spirituelle entre les sourcils de Zhang Xinhai. Il dit doucement: « Je ne peux pas changer votre destin, mais brûler votre propre énergie spirituelle pour prolonger votre vie de dix ans est une chose que je peux accomplir. »
 
-En projetant ce rayon, Wang Lin laissa échapper un soupir. Ce sort était une technique qu'il pouvait à peine utiliser depuis qu'il avait entrevu le chemin de la troisième étape. S'il l'avait su plus tôt, Li Muwan ne se serait pas réfugiée dans la perle défiant les cieux.
+En projetant ce rayon, Wang Lin laissa échapper un soupir. Ce sort était une technique qu'il pouvait à peine utiliser depuis qu'il avait entrevu le chemin de la troisième étape. S'il l'avait su plus tôt, Li Muwan ne se serait pas réfugiée dans la Perle Défiant le Ciel.
 
 Lorsque le sort atteignit le front de Zhang Xinhai, son corps trembla et il ressentit instantanément une vitalité jaillissant de l'énergie spirituelle injectée en lui. Son visage devint rouge alors qu'il prenait une profonde inspiration. Il regarda Wang Lin et dit avec respect: « Merci, Senior. Si le Senior a la moindre commande, le Junior fera tout son possible pour s'y conformer! » Quelqu'un ayant dirigé la famille Zhang n'était pas stupide. Personne dans ce monde n'agissait ainsi gratuitement.
 

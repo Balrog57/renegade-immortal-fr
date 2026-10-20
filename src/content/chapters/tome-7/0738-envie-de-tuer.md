@@ -14,7 +14,7 @@ Pour être plus précis, cet endroit était le point de jonction de tous les tun
 
 Comment pouvait-il se laisser duper par une telle personne? En cet instant, il devait briser ce stratagème par sa propre force!
 
-Wang Lin leva la tête et fixa la terre au-dessus de lui. Il frappa ensuite son sac de contenance, et le Char de Guerre Divin s'envola, se transformant en Bête du Tonnerre. Dès l'apparition de la créature, celle-ci poussa un rugissement. Étant liée à Wang Lin, elle n'attendit pas ses ordres pour faire circuler une immense quantité de tonnerre à travers son corps et la concentrer sur sa corne argentée.
+Wang Lin leva la tête et fixa la terre au-dessus de lui. Il frappa ensuite son sac de rangement, et le Char de Guerre Divin s'envola, se transformant en Bête du Tonnerre. Dès l'apparition de la créature, celle-ci poussa un rugissement. Étant liée à Wang Lin, elle n'attendit pas ses ordres pour faire circuler une immense quantité de tonnerre à travers son corps et la concentrer sur sa corne argentée.
 
 À cet instant, sa corne argentée émit une lumière éclatante. Dans un rugissement, la bête chargea, portée par cette puissance lumineuse. Elle était semblable à une épée tranchante fonçant vers la terre au-dessus du tunnel.
 
@@ -84,7 +84,7 @@ Diverses rumeurs propagées par divers individus attirèrent d'innombrables cult
 
 En plus des puits, les cultivateurs de Luotian utilisaient un outil appelé « outil d'origine ». L'énergie qu'il contenait différait de celle des jades célestes. Si un cultivateur de la première étape l'absorbait, elle se transformait en énergie spirituelle céleste, mais si un cultivateur de la deuxième étape l'absorbait, elle devenait de l'énergie originelle!
 
-Toutes ces raisons avaient tenté Wang Lin. Il s'étonnait également de n'avoir jamais entendu parler de telles choses dans le Royaume Céleste de la Pluie.
+Toutes ces raisons avaient tenté Wang Lin. Il s'étonnait également de n'avoir jamais entendu parler de telles choses dans le Royaume Céleste de la Pluie du Système Stellaire de l'Alliance.
 
 Il n'en avait pas la réponse, mais il supposait vaguement que le Royaume Céleste de la Pluie était bien modeste comparé au Royaume Céleste du Tonnerre. Cela pouvait être dû à des effondrements plus graves ayant fait disparaître de vastes zones, ou alors certaines régions étaient devenues inaccessibles ou n'étaient tout simplement pas ouvertes au public!
 

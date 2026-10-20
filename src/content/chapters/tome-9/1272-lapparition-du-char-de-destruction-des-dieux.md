@@ -10,7 +10,7 @@ Le temps était comme une lame mortelle suspendue dans les airs, chutant inexora
 
 Autour de Wang Lin se trouvaient désormais cent continents sauvages. Ils étaient disposés de manière étrange, renfermant de l'énergie originelle ainsi qu'un soupçon de loi.
 
-Wang Lin et la femme en argent avaient enveloppé ces continents avec trois des grandes restrictions, formant une tempête capable de déchiqueter les cieux. Cependant, Wang Lin continuait de la contenir, refusant qu'elle n'éclate avant que les continents environnants ne soient raffinés en un immense trésor de restriction grâce à l'usage de ces trois grandes restrictions!
+Wang Lin et la femme en argent avaient enveloppé ces continents avec trois des grandes restrictions, formant une tempête capable de détruire ciel et terre. Cependant, Wang Lin la comprimait sans relâche, refusant qu'elle n'éclate avant que les continents environnants ne soient raffinés en un immense trésor-formation grâce à l'usage de ces trois grandes restrictions!
 
 Maître Yan Leizi avait emprunté des fragments du Royaume Céleste du Tonnerre pour raffiner un trésor. Bien que les matériaux de Wang Lin fussent de moindre qualité, sa méthode était équivalente, voire légèrement supérieure grâce aux trois grandes restrictions.
 
@@ -38,7 +38,7 @@ Les bêtes féroces des continents sauvages tremblèrent toutes et poussèrent d
 
 Les innombrables bêtes féroces poussèrent des rugissements fracassants qui résonnèrent à travers toute la région de rang 5. Tous les cultivateurs de cette région ressentirent ce choc; ceux dont le niveau de culture était faible commencèrent même à avoir des hallucinations, incapables de contrôler leur esprit.
 
-Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des continents, créant une pression stupéfiante. Cette pression suffisait à détruire un cultivateur Briseur du Nirvana au stade tardif. Son corps s'effondrerait instantanément et il serait difficile pour son âme originelle d'échapper à la mort!
+Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des continents, couvrant le ciel, créant une pression stupéfiante. Cette pression suffisait à détruire un cultivateur Briseur du Nirvana au stade tardif. Son corps s'effondrerait instantanément et il serait difficile pour son âme originelle d'échapper à la mort!
 
 « Dix millions d'épées condensées en un seul doigt est la première contre-attaque que j'ai préparée contre ce cultivateur de la troisième étape qui veut me tuer! Cent continents sauvages fusionnés avec les trois grandes restrictions constituent la deuxième! »
 

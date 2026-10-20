@@ -20,13 +20,13 @@ D'un mouvement fulgurant, il s'élança pour saisir le vieil homme. Ce dernier l
 
 Le jeune homme n'hésita pas et se retira rapidement en portant le vieil homme.
 
-La formation constituée de gaz noir et blanc se dissipa pour redevenir une brume éthérée. Puis, elle pénétra le réseau en pleine reconstitution et retourna dans la Perle Défiant le Ciel.
+La formation constituée de gaz noir et blanc se dissipa pour redevenir une brume éthérée. Puis, elle pénétra le réseau déjà entièrement refermé et retourna dans la Perle Défiant le Ciel.
 
 La Perle Défiant le Ciel vola lentement vers Wang Lin et flotta devant lui.
 
 Le réseau scintillant environnant fut à nouveau lentement recouvert par le vide. Il ne restait alors plus que l'obscurité et le silence infinis.
 
-Quant au Serpent aux yeux de lune et à Lou Chen, ils étaient isolés à l'extérieur du réseau. Lorsque le vide se propagea, ils disparurent à jamais...
+Quant au Serpent aux yeux de lune et à Luo Chen, ils étaient isolés à l'extérieur du réseau. Lorsque le vide se propagea, ils disparurent à jamais...
 
 Qing Shui observait la scène. La majeure partie de son énergie d'origine céleste avait été scellée. Il regarda Wang Lin, et ses yeux, autrefois confus, devinrent intenses.
 
@@ -110,8 +110,8 @@ Soutenant Qing Shui, Wang Lin suivit le fragment céleste. Au neuvième jour, Qi
 
 La même froideur, la même cruauté et la même solitude.
 
-Ce jour-là, le fragment céleste brilla soudainement d'un éclat intense et s'immobilisa. Tandis qu'il rayonnait, un vortex apparut devant lui.
+Ce jour-là, le fragment céleste brilla soudainement d'un éclat doré et s'immobilisa. Tandis qu'il rayonnait, un vortex apparut devant lui.
 
-Sur ce vortex se dressait un autel où d'innombrables cultivateurs entonnaient des chants. Maître Yan Leizi se tenait sur l'autel, un sourire aux lèvres, et sa voix s'éleva:
+Sur ce vortex se dressait un autel où d'innombrables cultivateurs étaient assis en tailleur et entonnaient des incantations. Maître Yan Leizi se tenait sur l'autel, un sourire aux lèvres, et sa voix s'éleva:
 
-« Bienvenue de retour! » Un chœur de voix reprit en écho : « Bienvenue de retour! »
+« Bienvenue de retour! »

@@ -8,7 +8,7 @@ slug: dispersion-de-la-secte
 ---
 Le dragon rugit, se retourna contre Pu Nanzi et l'attaqua.
 
-Pu Nanzi ricana. D'une chiquenaude sur l'épée, il lança: « Bête, maîtrise-toi! »
+Pu Nanzi ricana. D'une chiquenaude sur l'épée, il lança: « Bête, rentre! »
 
 Le corps du dragon trembla et perdit instantanément toute volonté. Il retourna à contrecœur dans l'épée, laquelle cessa de briller.
 
@@ -46,19 +46,19 @@ Pu Nanzi était certain que, à moins que Wang Lin ne soit stupide, il ne suivra
 
 Wang Lin réfléchit un instant. Sans un mot, il joignit les mains, s'éleva dans les airs et vint se placer aux côtés de Huang Long.
 
-Les yeux de Pu Nanzi brillèrent de satisfaction. « Sale petit ingrat! » lança-t-il.
+Les yeux de Pu Nanzi vacillèrent. « Sale petit ingrat! » lança-t-il.
 
 Liu Wenju et la vieille femme lancèrent des regards pensifs à Wang Lin. Ils attendirent encore un moment, mais en voyant tous les disciples de la Secte Heng Yue la tête basse, la vieille femme soupira: « Très bien, partons. »
 
 Sur ces mots, elle s'élança vers l'horizon. Les dix autres personnes la suivirent, l'expression amère.
 
-Les membres de la Secte Heng Yue suivirent les deux anciens de la Formation du Noyau et quittèrent leur montagne tels des chiens errants.
+Les membres de la Secte Heng Yue suivirent les deux anciens de la Formation du Noyau et quittèrent leur montagne tels des chiens errants, en silence, filant au loin comme plusieurs arcs-en-ciel.
 
-En chemin, personne ne parla. Outre la colère, ils étaient tous empreints d'un profond sentiment de perte.
+En chemin, personne ne parla. Outre la colère, leurs visages étaient tous empreints de désarroi.
 
-Après avoir volé longtemps, jusqu'à ce que le ciel s'assombrisse, Liu Wenju et la vieille femme débattirent un moment avant de se poser sur le flanc d'une montagne.
+Après avoir volé longtemps, jusqu'à ce que le ciel s'assombrisse, Liu Wenju et la vieille femme se concertèrent un moment avant de se poser sur une montagne isolée, où tous mirent pied à terre.
 
-La vieille femme soupira en regardant ceux qui l'entouraient. Hormis les deux anciens de l'Établissement des Fondations, tous étaient au stade de la Condensation de Qi. Il n'y avait que quatre personnes de la génération de Huang Long et douze de celle de Wang Lin. Elle esquissa un sourire amer et se força à s'apaiser. Elle dit: « Ne perdez pas courage sous prétexte que la Secte Heng Yue traverse cette catastrophe. Tout change dans le monde de la culture. Aujourd'hui, il nous a volé la montagne de Heng Yue, mais une fois que l'Ancêtre Liu et moi aurons atteint l'Âme Naissante, nous pourrons la reprendre! »
+La vieille femme soupira en regardant ceux qui l'entouraient. Hormis les deux anciens de l'Établissement des Fondations, tous étaient au stade de la Condensation de Qi. Il n'y avait que quatre personnes de la génération de Huang Long et douze de celle de Wang Lin. Elle esquissa un sourire amer et se força à s'apaiser. Elle dit: « Ne perdez pas courage, alors que la Secte Heng Yue traverse cette catastrophe. Tout change dans le monde de la culture. Aujourd'hui, il nous a volé la montagne de Heng Yue, mais une fois que l'Ancêtre Liu et moi aurons atteint l'Âme Naissante, nous pourrons la reprendre! »
 
 Parmi les deux anciens de l'Établissement des Fondations se trouvait l'Ancien Shang Guan, qui avait observé Wang Lin dans la salle principale quelques jours plus tôt. Il toussa sèchement et dit: « L'Ancêtre Wang a raison. Plus notre misère sera grande aujourd'hui, plus notre esprit de combat sera ardent demain. Nous devons graver cette humiliation dans nos cœurs. Si nous réussissons à l'avenir, nous devrons reprendre la montagne! »
 

@@ -44,7 +44,7 @@ Le temps passa rapidement. L'examen impérial du comté devait se tenir dans cin
 
 Durant ces cinq jours, Wang Lin s'était rendu au bureau pour soumettre son inscription et connaître sa salle d'examen. En dehors de cela, il n'avait pas quitté son auberge, passant tout son temps à lire. Il était très nerveux car, s'il réussissait, il pourrait poursuivre son chemin, mais en cas d'échec, il devrait tout recommencer. Il devrait retourner au village et attendre silencieusement quelques années avant le prochain examen.
 
-Wang Lin ne voulait pas échouer; il ne pouvait supporter l'idée de voir l'expression déçue de ses parents. Il ne voulait pas que son échec pousse ses proches à adresser à ses parents ces regards de fausse compassion qui n'étaient, en réalité, que des moqueries.
+Wang Lin ne voulait pas échouer; il ne pouvait supporter l'idée de voir l'expression déçue de ses parents. Il ne voulait pas que son échec pousse ses proches arrogants à adresser à ses parents ces regards de fausse compassion qui n'étaient, en réalité, que des moqueries.
 
 Grande Fortune s'était ennuyé durant ces cinq jours. Très actif, il était sorti seul pendant que Wang Lin étudiait. Il avait erré dans la ville et avait progressivement fait des rencontres. Il avait même réussi à devenir encore plus avare.
 
@@ -106,7 +106,7 @@ Le soleil commença à décliner et la salle d'examen s'assombrit. Il ne restait
 
 Wang Lin ne leva pas les yeux mais ferma les paupières. Quelques instants plus tard, il les rouvrit et ajouta de l'eau à son encre. Ses yeux brillèrent d'un éclat vif et il commença à écrire frénétiquement sur le papier.
 
-« Qu'est-ce que le karma? Je cherche une maison de bois, mais cette montagne est dépourvue de bois, alors je plante cet arbre solitaire. Au lever du soleil, j'en récolte les branches. À midi, j'en récolte le bois. Et au coucher du soleil, j'en récolte les racines... » Wang Lin semblait avoir oublié ce qui l'entourait, tandis qu'une voix antique résonnait en lui. La peinture s'imprégnait dans son esprit alors qu'il consignait ses pensées et ses interrogations.
+« Qu'est-ce que le karma? Si je cherche du bois pour une maison, mais que cette montagne est dépourvue de bois, alors je plante cet arbre solitaire. Au lever du soleil, j'en récolte les branches. À midi, j'en récolte le bois. Et au coucher du soleil, j'en récolte les racines... » Wang Lin semblait avoir oublié ce qui l'entourait, tandis qu'une voix antique résonnait en lui. La peinture s'imprégnait dans son esprit alors qu'il consignait ses pensées et ses interrogations.
 
 « Hein? » L'examinateur debout à côté de Wang Lin jeta un œil sur la copie et fut stupéfait avant d'examiner le texte de plus près. Rapidement, d'autres examinateurs furent attirés et vinrent observer. Certains ricanèrent d'un coup d'œil avant de partir, mais bientôt, les autres examinateurs restants secouèrent la tête et s'éloignèrent, médusés.
 

@@ -24,7 +24,7 @@ L'ancien Divin Empereur leva la tête. Une lueur subsistait dans ses yeux qui ne
 
 « L'Alliance de Culture cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Zhong Xuan et les autres se sont rendus dans le Royaume Céleste de la Pluie pour la première fois, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
 
-« Je crains que même le Royaume du Vide Brillant n'ait connaissance de cette affaire. Ces choses mystérieuses sont trop importantes; elles pourraient affecter les quatre Royaumes Célestes! »
+« Je crains que même le Royaume du Vide Brillant n'en sache rien. Ces choses mystérieuses sont trop importantes; elles pourraient affecter les quatre Royaumes Célestes! »
 
 « Wang Lin, va vite sauver l'Empereur Divin du Dragon Azure, puis envoie immédiatement ce jade au Royaume du Vide Brillant. Cette affaire est trop terrifiante! Ton niveau de culture n'est pas assez élevé, ne t'implique pas dans tout cela! » L'ancien Divin Empereur était déjà sur son lit de mort; après avoir déversé tant de paroles d'un coup, il fut contraint de chercher son souffle.
 
@@ -108,7 +108,7 @@ Un éclair de froideur traversa le regard de Wang Lin; il ne daigna même pas re
 
 Un grondement retentit et l'épée géante vola en éclats. Xu Liguo recula, terrifié, mais refusa d'abandonner. Dans un rugissement, il se divisa en neuf grandes épées formant une formation de combat. Cette formation dégageait une intention d'épée monstrueuse et chargea de nouveau Wang Lin.
 
-Wang Lin hocha légèrement la tête. Le Xu Liguo actuel répondait à peine à ses exigences. Il pénétra dans la formation d'épées et saisit négligemment l'une d'entre elles.
+Wang Lin hocha légèrement la tête. Le Xu Liguo actuel correspondait enfin à ses exigences. Il pénétra dans la formation d'épées et saisit négligemment l'une d'entre elles.
 
 Il la pressa impitoyablement; des bruits de craquement résonnèrent et les huit autres épées s'effondrèrent instantanément. Cependant, l'intention d'épée subsista et se mua en huit crânes géants qui chargèrent Wang Lin.
 

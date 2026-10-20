@@ -18,7 +18,7 @@ D'innombrables âmes des avatars de l'Omniscient pénétraient une à une dans l
 
 Alors que ces âmes fusionnaient, la voix lugubre de l'Omniscient résonna dans l'esprit de l'avatar de Wang Lin:
 
-« Comment peux-tu rivaliser avec ce vieil homme? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien? »
+« Comment peux-tu rivaliser de vitesse avec ce vieil homme? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien? »
 
 Plus de mille âmes de l'Omniscient, provenant de la Rivière Invoquée et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer des Nuages et de Luotian approchaient.
 
@@ -28,7 +28,7 @@ Le système stellaire devint flou puis s'effondra; finalement, tout disparut. Pu
 
 Elle différait de la porte apparue à l'intérieur de la Perle Défiant le Ciel. Celle-ci ne dégageait aucune aura majestueuse; elle semblait s'être intégrée au monde lui-même.
 
-Wang Lin ignorait ce qui se trouvait derrière cette porte, mais il entendit des grondements tonitruants provenir de l'autre côté. C'était comme si la porte avait été frappée par une force colossale venant de l'extérieur. Elle se mit soudainement à trembler.
+Wang Lin ignorait ce qui se trouvait derrière cette porte, mais il entendit des grondements tonitruants provenir de l'autre côté. C'était comme si la porte avait été frappée par une force colossale venant de l'intérieur. Elle se mit soudainement à trembler.
 
 Dans ses tremblements, Wang Lin vit une fissure apparaître à sa surface, et des craquements résonnèrent tandis que la brèche s'étendait. Elle continuait de se propager, comme si elle allait fendre la porte en deux.
 

@@ -20,7 +20,7 @@ L'un des anciens de la famille Sun était un vieil homme au visage rubicond. Il 
 
 Le vieil homme au stade avancé de l'Âme Naissante, qui avait tenté d'intercepter Wang Lin, hocha rapidement la tête: « Junior n'a certainement pas mal entendu. Cette personne a clairement dit: "juste une fois, et pas de prochaine fois!" »
 
-Un reniflement glacial émana d'un vieil homme en robe verte; ses yeux devinrent glaciaux tandis qu'il déclarait: « Il semble que quelqu'un cherche à provoquer notre famille Sun. Cet individu peut faire s'effondrer le noyau d'un cultivateur de la Formation du Noyau d'un simple regard, et a fait reculer trois cultivateurs de l'Âme Naissante d'un seul pas. Je crains qu'il ne soit au stade de la Transformation de l'Âme! »
+Un reniflement glacial émana d'un vieil homme en robe verte; ses yeux devinrent glaciaux tandis qu'il déclarait: « Il semble que quelqu'un cherche encore à provoquer notre famille Sun. Cet individu peut faire s'effondrer le noyau d'un cultivateur de la Formation du Noyau d'un simple regard, et a fait reculer trois cultivateurs de l'Âme Naissante d'un seul pas. Je crains qu'il ne soit au stade de la Transformation de l'Âme! »
 
 Le dernier ancien déclara calmement: « Et alors, s'il est un cultivateur de la Transformation de l'Âme? L'ancêtre de notre famille Sun est toujours présent, et il y a aussi ce senior qui nous protégera durant un siècle. Même la famille Huan de la planète Mille Illusions n'oserait provoquer ce senior. Avec lui à nos côtés, notre famille Sun ne s'effondrera pas! »
 

@@ -47,7 +47,7 @@ Ce jour-là, alors que Wang Lin pilotait encore la boussole stellaire pour s'éc
 
 « Une autre attaque! » Wang Lin dut instantanément diviser son attention. Une partie de son esprit restait concentrée sur le contrôle de la boussole, tandis que l'autre tentait de supprimer la puissance du tatouage.
 
-Après un long moment, il ouvrit les yeux. Le tatouage dans ses yeux était plus net qu'auparavant et ses mains étaient entièrement couvertes de motifs. Si un cultivateur voyait Wang Lin à cet instant, il aurait cru voir un membre du Clan des Immortels Délaissés.
+Après un long moment, il ouvrit les yeux. Le tatouage dans ses yeux était plus net qu'auparavant et le dos de sa main était entièrement couvert de motifs. Si un cultivateur voyait Wang Lin à cet instant, il aurait cru voir un membre du Clan des Immortels Délaissés.
 
 Le visage de Wang Lin était sombre alors qu'il laissait échapper un soupir. Il sentait que le tatouage s'était enfoncé dans son âme originelle et commençait à se propager. Une fois que l'âme originelle serait entièrement recouverte, il deviendrait ce que le vieillard appelait une marionnette de tatouage.
 

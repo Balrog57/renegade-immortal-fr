@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 997 - Master Void
 slug: maitre-du-vide
 ---
-C'était un trésor dont Tu Si était très satisfait, mais malheureusement, aucun esprit de trésor ne s'était formé. Afin de le perfectionner, Tu Si l'avait caché dans une planète et l'avait transformée en trois montagnes. Il voulait utiliser l'esprit montagneux de la planète pour forger un esprit de trésor à ce trident!
+C'était un trésor dont Tu Si était très satisfait, mais malheureusement, aucun esprit de trésor ne s'était formé. Afin de le perfectionner, Tu Si l'avait déposé sur une planète et l'avait transformée en trois montagnes. Il voulait utiliser l'esprit montagneux de la planète pour forger un esprit de trésor à ce trident!
 
-Il avait prévu de le récupérer une fois qu'il maîtriserait le sort de lignée royale, mais après son départ, il n'est jamais revenu...
+Il avait prévu de le récupérer une fois que le pouvoir de lignée royale serait pleinement formé, mais après son départ, il n'est jamais revenu...
 
-Lorsqu'il vit le trident entrer dans le trou noir avec l'Omniscient, il ressentit une profonde mélancolie. Cette tristesse émanait des regrets enfouis dans les souvenirs de Tu Si.
+Lorsqu'il vit le trident entrer dans le trou noir avec l'Omniscient, il ressentit une légère mélancolie. Cette tristesse émanait des regrets enfouis dans les souvenirs de Tu Si.
 
 Ling Tianhou et l'homme en violet se transformèrent en rayons de lumière et foncèrent vers le trou noir. Cependant, ils s'arrêtèrent brusquement.
 
@@ -32,7 +32,7 @@ Les yeux de Situ Nan s'illuminèrent et il murmura: « Briseur du Nirvana! » Il
 
 « Si je veux m'amuser dans ce monde, j'ai besoin d'une culture capable de le subjuguer. Briseur du Nirvana... J'ai été bien trop paresseux jusqu'ici... »
 
-Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blancs, dégageant une aura ancestrale. Il regarda Ling Tianhou avec un sourire d'admiration.
+Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blancs, dégageant une aura ancestrale. Le visage calme, il regarda Ling Tianhou avec un sourire d'admiration.
 
 « Combien de temps s'est-il écoulé depuis notre dernière rencontre? »
 
@@ -72,21 +72,21 @@ Les cultivateurs alentour se dispersèrent avec regret. Certains restèrent là,
 
 Ce n'était là qu'un recoin du Pays des Démons de Feu. À l'échelle du pays entier, les cadavres couvraient tout le paysage. Sous cette chaleur accablante, ils se décomposaient plus vite encore, et le vent emportait leurs vêtements, révélant la peau noircie en dessous.
 
-Une guerre immense ravageait le Pays des Démons de Feu sous l'assaut de la Tribu du Raffinement des Âmes. Tous les puissants dispersés dans le pays étaient tombés. Ceux qui ne se rendaient pas mouraient!
+Une guerre immense ravageait le Pays des Démons de Feu, déjà morcelé, sous l'assaut de la Tribu du Raffinement des Âmes. Toutes les factions, grandes et petites, dispersées dans le pays, s'étaient effondrées. Ceux qui ne se rendaient pas mouraient!
 
 La capitale du Pays des Démons de Feu, là où l'un des neuf anciens démons avait autrefois résidé, était désormais le dernier bastion. Ce lieu était occupé par l'une des armées d'élite du pays: l'Armée Spirituelle des Démons de Feu!
 
-Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Bien que l'Armée Spirituelle des Démons de Feu eût subi de lourdes pertes, elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays des Démons de Feu.
+Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Après la défaite du pays, l'Armée Spirituelle des Démons de Feu avait subi de lourdes pertes, mais elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays des Démons de Feu.
 
 À cet instant, l'armée de la Tribu du Raffinement des Âmes encerclait la capitale. D'innombrables individus flottaient dans le ciel, entourés de grands drapeaux. Un épais brouillard noir enveloppait la zone.
 
 Les cris perçants des fragments d'âmes ne s'interrompaient jamais, balayant la terre. Les lamentations des âmes tourmentées étaient devenus le seul son qui régnait sur le monde.
 
-Devant les portes de la capitale, au sein de l'armée de la Tribu du Raffinement des Âmes, se trouvait une statue de pierre. Plusieurs membres de la tribu la transportaient, empreints d'une immense fierté. Être choisi parmi des millions de membres pour porter la statue de l'Ancêtre était un honneur qui ne se présentait qu'une fois dans une vie!
+Devant les portes de la capitale, au sein de l'armée de la Tribu du Raffinement des Âmes, se trouvait une statue de pierre noire. Plusieurs membres de la tribu la transportaient, empreints d'une immense fierté. Être choisi parmi des millions de membres pour porter la statue de l'Ancêtre était un honneur qui ne se présentait qu'une fois dans une vie!
 
 Dans le ciel, un vieil homme dégageait une majesté imposante. Vêtu d'une robe noire, il était entouré de dizaines de grands drapeaux formant un tourbillon sombre.
 
-« Chefs Démoniaques Bois Charmant et Scorpion d'Or, allez-vous vous rendre? » La voix du vieil homme tomba comme un vent glacial. À l'instant où sa voix retentit, un sifflement aigu jaillit du tourbillon noir qui l'entourait.
+« Chefs Démoniaques Mu Yun et Xie Jin, allez-vous vous rendre? » La voix du vieil homme tomba comme un vent glacial. À l'instant où sa voix retentit, un sifflement aigu jaillit du tourbillon noir qui l'entourait.
 
 La voix de l'homme n'était pas le seul son; les millions de membres de la Tribu du Raffinement des Âmes encerclant la capitale rugirent à l'unisson:
 
@@ -102,7 +102,7 @@ Pourtant, étrangement, tous les membres de la Tribu du Raffinement des Âmes en
 
 Au moment où la main du colosse allait s'écraser, une voix extrêmement froide résonna à ses oreilles.
 
-« Oses-tu porter atteinte à la statue de mon seigneur? Meurs! » Un homme d'une banalité extrême avança au rythme de cette voix. Il portait une robe noire et affichait une expression glaciale. Si quelqu'un connaissait Wang Lin, il serait stupéfait, car le tempérament de cet individu était similaire à 60 ou 70 % à celui de Wang Lin.
+« Quiconque ose porter atteinte à la statue de mon seigneur meurt! » Un homme d'une banalité extrême avança au rythme de cette voix. Il portait une robe noire et affichait une expression glaciale. Si quelqu'un connaissait Wang Lin, il serait stupéfait, car le tempérament de cet individu était similaire à 60 ou 70 % à celui de Wang Lin.
 
 L'homme avança et lança un coup de poing avec désinvolture. À cet instant, d'innombrables fragments d'âmes jaillirent de son corps pour fusionner avec son poing, créant une tempête. Ce souffle puissant percuta violemment le colosse.
 
@@ -116,7 +116,7 @@ Ouyang Hua éclata de rire, puis pointa la capitale du Pays des Démons de Feu d
 
 « Rendez-vous... » soupira une femme vêtue d'une armure bleue sur les remparts de la capitale.
 
-À cet instant, le Pays des Démons de Feu devint la capitale de la Tribu du Raffinement des Âmes! La Tribu était devenue l'une des neuf puissances de la Terre des Esprits Démoniaques. La statue noire serait placée là où trônait autrefois celle de l'ancien démon, devenant le fondement spirituel de la Tribu du Raffinement des Âmes!
+À cet instant, le Pays des Démons de Feu devint la capitale de la Tribu du Raffinement des Âmes! La Tribu était devenue l'une des neuf puissances de la Terre des Esprits Démoniaques. La statue noire serait placée là où résidait autrefois l'esprit de l'ancien démon, devenant le fondement spirituel de la Tribu du Raffinement des Âmes!
 
 Alors que Treize levait les pieds pour marcher vers la capitale, son corps trembla violemment et son expression glaciale se brisa. Elle fut remplacée par un enthousiasme qu'il n'avait pas ressenti depuis des centaines d'années, et il leva brusquement la tête:
 

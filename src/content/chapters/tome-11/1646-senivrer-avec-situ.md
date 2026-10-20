@@ -8,7 +8,7 @@ slug: senivrer-avec-situ
 ---
 Après une journée, Wang Lin quitta l'Ancien Royaume Céleste, fort de la promesse des quatre généraux.
 
-L'Ancien Royaume Céleste ne pouvait être entré ou quitté que par la faille créée par la rétribution divine. Cette faille faisait partie du sceau de l'Ancien Royaume Céleste; quiconque possédait la lignée du Continent Astral Immortel aurait grand peine à s'échapper par elle, à moins que tous ne s'unissent pour propulser une seule personne vers l'extérieur, comme ils l'avaient fait pour le Seigneur du Royaume Scellé.
+L'Ancien Royaume Céleste ne pouvait être entré ou quitté que par la faille créée par la rétribution divine. Cette faille faisait partie du sceau de l'Ancien Royaume Céleste; quiconque venait du Continent Astral Immortel et possédait la lignée d'un être céleste aurait grand peine à s'échapper par elle, à moins que tous ne s'unissent pour propulser une seule personne vers l'extérieur, comme ils l'avaient fait pour le Seigneur du Royaume Scellé.
 
 Peut-être la Perle Défiant le Ciel était-elle ici l'élément le plus crucial!
 
@@ -78,7 +78,7 @@ Wang Lin secoua la tête avec un sourire amer. Il saisit le vin et prit une long
 
 « La longévité, la longévité... il n'y a aucune véritable longévité dans cette vie. Ce qu'on appelle la longévité, c'est simplement s'autoriser à vivre plus longtemps, à devenir plus fort, à devenir assez libre pour que personne ne puisse plus te donner d'ordres. »
 
-« Nous avons tous une peur bleue de la mort; nous ne voulons pas mourir, alors nous poursuivons la longévité. Ce vieil homme ne croit pas que tu ne comprennes pas cela! »
+« Quant à la longévité, bon sang, nous avons tous une peur bleue de la mort; nous ne voulons pas mourir, alors nous poursuivons la longévité. Ce vieil homme ne croit pas que tu ne comprennes pas cela! »
 
 Situ Nan vida une cruche entière avant de la jeter brusquement et de hurler à Wang Lin: « Regarde-toi! Qu'as-tu vu dans cette faille? Dis-le à ce vieil homme! »
 
@@ -92,7 +92,7 @@ Situ Nan vida une cruche entière avant de la jeter brusquement et de hurler à 
 
 « Je voulais devenir plus fort pour survivre. Je refusais de mourir avant que Wan Er ne se réveille. Je voulais la reprendre au destin. Puis je suis devenu le Seigneur du Royaume Scellé. Ma renommée est née des batailles entre le Royaume Intérieur et le Royaume Extérieur. »
 
-« Je n'ai rien voulu de tout cela, ce n'est pas ce que je désire! Je ne voulais pas être le Seigneur du Royaume Scellé, et la culture me lasse toujours! » Wang Lin regarda Situ et saisit une cruche. Il en but la moitié, laissant le vin couler au coin de sa bouche.
+« Je n'ai rien voulu de tout cela, ce n'est pas ce que je désire! Je ne voulais pas être le Seigneur du Royaume Scellé, et la culture me lasse toujours! » Wang Lin regarda Situ et saisit une cruche. Il en but la moitié, laissant le vin couler au coin de sa bouche et tremper ses vêtements.
 
 « Toi!... » Situ Nan vit la confusion dans les yeux de Wang Lin et resta sans voix. Il poussa un soupir et commença à boire, l'humeur sombre. « Puisque tu ne veux pas dire à ce vieil homme ce que tu as vu dans cette faille, alors je ne demanderai plus rien, d'accord? »
 

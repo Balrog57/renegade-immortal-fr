@@ -44,7 +44,7 @@ Après que Zhou Wutai eut parcouru une certaine distance, quatre ombres apparure
 
 L'un d'eux lança d'un ton glacial: « Confrère cultivateur Zhou, l'ordre donné par l'Alliance des Quatre Sectes est de tuer tout cultivateur suspect entré dans le pays au cours des deux cents dernières années. Pourquoi n'avez-vous pas agi? »
 
-Zhou Wutai ne se retourna même pas et ricana: « Avec votre niveau de culture à tous les quatre, même si je vous aidais, pensez-vous que nous pourrions le tuer? S'il décidait vraiment de nous nuire, qui pourrait l'arrêter? »
+Zhou Wutai ne se retourna même pas et ricana: « Avec votre niveau de culture à tous les quatre, même si je vous aidais, pensez-vous que nous pourrions le tuer? S'il voulait s'enfuir, qui pourrait l'arrêter? »
 
 Un autre homme vêtu de noir dit calmement: « Pas nécessairement. Bien que nous ne soyons qu'au stade avancé de l'Âme Naissante, si nous utilisons une formation, à moins qu'il ne soit au stade de la Formation de l'Âme, il mourra. »
 
@@ -88,7 +88,7 @@ Sa main droite bougea d'un mouvement qui semblait lent, mais qui fut en réalit�
 
 Wang Lin ne daigna même pas un regard à la fuite; il se retourna et poussa un rugissement silencieux. Sous l'effet de ce cri, une fumée noire apparut au-dessus de sa tête. Sa forme de dévoreur d'âmes jaillit et engloutit immédiatement l'Âme Naissante qui tentait de s'enfuir.
 
-La neige tombante n'osait plus approcher Wang Lin. Chaque flocon semblait s'écarter de lui, comme si aucun ne voulait défier ce démon.
+La neige tombante n'osait plus approcher Wang Lin: dans un rayon de 330 mètres autour de lui, chaque flocon semblait s'écarter, comme si aucun ne voulait défier ce démon.
 
 Cet homme en noir n'aurait pas dû mourir, mais il n'aurait pas dû s'en prendre à un démon vieux de quatre cents ans. S'il l'avait su, il aurait amèrement regretté sa décision.
 

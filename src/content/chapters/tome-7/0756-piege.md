@@ -10,7 +10,7 @@ Au moment de la crise entre la vie et la mort, Wang Lin ouvrit son troisième œ
 
 Cette lueur rouge ne brillait pas vers le vide, mais vers Li Yuan!
 
-La force qui maintenait Li Yuan au sol se relâcha immédiatement lorsque la lumière rouge l'atteignit. Son visage était livide, mais il leva promptement sa main droite et la pressa entre ses sourcils sans hésiter.
+La sensation de blocage qui enserrait Li Yuan se relâcha immédiatement lorsque la lumière rouge l'atteignit. Son visage était livide, mais il leva promptement sa main droite et la pressa entre ses sourcils sans hésiter.
 
 Une ligne noire aussi épaisse qu'un bras de nouveau-né jaillit aussitôt de son front. Elle se transforma rapidement en une rune devant lui et Li Yuan hurla: « Restriction d'Annihilation du Cœur! »
 
@@ -18,7 +18,7 @@ En un instant, la restriction commença à clignoter frénétiquement et s'éten
 
 Boum!
 
-Un bruit assourdissant résonna soudainement, déclenchant une immense onde de choc qui rendit la force retenant la zone instable. La restriction n'était pas détruite, elle s'était brisée en des milliers de fines lignes noires formant divers motifs étranges qui se propageaient rapidement.
+Un bruit assourdissant résonna soudainement, déclenchant une immense onde de choc qui rendit instable la force comprimant la zone sur 330 mètres de rayon. La restriction n'était pas détruite, elle s'était brisée en des milliers de fines lignes noires formant divers motifs étranges qui se propageaient rapidement.
 
 Ces restrictions entretenaient un lien mystérieux entre elles et, à mesure qu'elles s'étendaient, le visage de Li Yuan devenait de plus en plus pâle. Il était évident que l'usage de la véritable Restriction d'Annihilation représentait un fardeau colossal pour son corps.
 
@@ -32,7 +32,7 @@ Profitant du relâchement de la force qui les maintenait, Wang Lin saisit Li Yua
 
 Le réseau de transfert brilla et Wang Lin et Li Yuan disparurent instantanément. Au moment même où ils s'évanouissaient, la main gauche de Wang Lin frappa impitoyablement le réseau, provoquant sa dissipation immédiate.
 
-Les environs furent plongés dans un silence total. La silhouette rouge sang s'avança lentement. Il se tint devant l'endroit où se trouvait le réseau de transfert et réfléchit en silence.
+Dans un rayon de 330 mètres, les environs furent plongés dans un silence total. La silhouette rouge sang s'avança lentement. Il se tint devant l'endroit où se trouvait le réseau de transfert et réfléchit en silence.
 
 Après un long moment, il leva son pied droit et frappa le sol avec une violence inouïe!
 
@@ -66,7 +66,7 @@ Le ciel était sombre, seulement troublé par parfois des éclats de lumière pr
 
 Au sol, de petites collines formaient une vallée accidentée. Les environs étaient très calmes.
 
-Des déchirures spatiales apparaissaient occasionnellement dans le ciel, libérant des vents froids et hurlants.
+Des déchirures spatiales apparaissaient occasionnellement dans le ciel, s'ouvrant puis se refermant lentement, et libérant des vents froids et hurlants.
 
 C'était le seul son qui régnait ici.
 
@@ -126,7 +126,7 @@ Sur ces mots, il se leva et inspecta les lieux.
 
 Wang Lin dit doucement en observant la vallée au loin: « Vous ne pouvez pas déployer votre Sens Divin, car les déchirures spatiales le dévoreraient. »
 
-Une lueur étrange brilla dans les yeux de Li Yuan. Il sauta de l'autel et saisit une poignée de terre. Après l'avoir examinée, il bondit sur un arbre. Il brisa une branche, la porta à sa bouche, et l'éclat dans son regard s'intensifia.
+Une lueur étrange brilla dans les yeux de Li Yuan. Il sauta de l'autel et saisit une poignée de terre. Après l'avoir examinée, il s'avança de quelques pas vers un arbre. Il brisa une branche, la porta à sa bouche, et l'éclat dans son regard s'intensifia.
 
 « Frère Xu, prêtez-moi votre marionnette! » Li Yuan s'éleva lentement dans les airs, provoquant instantanément l'apparition de déchirures spatiales qui semblaient vouloir l'engloutir.
 
@@ -142,7 +142,7 @@ S'élevant toujours plus haut, Li Yuan scruta l'horizon. Ses yeux furent frappé
 
 L'expression de Li Yuan changea et de nouvelles fissures surgirent autour de lui. Face à une telle multiplication des failles, même le garde céleste n'était pas assez rapide. Ils se retrouvèrent soudain en situation critique.
 
-Wang Lin fit un pas en avant et frappa son sac de rangement, faisant apparaître l'Écran des Montagnes et des Rivières. La peinture du paysage recouvrit le ciel et absorba instantanément la plupart des déchirures spatiales. Wang Lin profita de cette opportunité pour s'élancer et ramener Li Yuan de force.
+Wang Lin fit un pas en avant et frappa son sac de rangement, faisant apparaître l'Écran des Montagnes et des Rivières. La peinture du paysage recouvrit le ciel et masqua instantanément la plupart des déchirures spatiales. Wang Lin profita de cette opportunité pour s'élancer et ramener Li Yuan de force.
 
 Au moment où la faille sous Li Yuan tentait de les aspirer, les deux hommes et le garde céleste furent instantanément ramenés au sol.
 

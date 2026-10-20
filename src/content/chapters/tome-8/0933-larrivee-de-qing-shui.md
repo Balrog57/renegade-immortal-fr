@@ -38,7 +38,7 @@ Le Royaume de Ji était apparu!
 
 Dès que Qing Shui fut sur place, sa main traça un sceau et pointa vers le ciel. En un instant, un vent noir surgit et se mua en sept dragons noirs. Ils poussèrent des rugissements et crachèrent un souffle glacial capable d'éteindre toute vie alors qu'ils fondaient sur l'Estimé Xuan Bao.
 
-« Xuan Bao, reconnais-tu encore ce seigneur? » Qing Shui était déjà présent sur le champ de bataille depuis un moment. À part l'Estimé Xuan Bao, personne n'était digne de l'inciter à agir!
+« Xuan Bao, reconnais-tu encore ce seigneur du Royaume Céleste du Tonnerre? » Qing Shui était déjà présent sur le champ de bataille depuis un moment. À part l'Estimé Xuan Bao, personne n'était digne de l'inciter à agir!
 
 « Qing Shui, tu n'es pas mort! » L'Estimé Xuan Bao recula promptement, mais sa fuite fut entravée par les sept dragons noirs. Sous la déferlante d'air glacial, il serra les dents tout en formant un sceau pour pointer l'avant.
 

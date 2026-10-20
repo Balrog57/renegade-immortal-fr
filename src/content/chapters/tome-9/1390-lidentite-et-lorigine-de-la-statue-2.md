@@ -44,7 +44,7 @@ Le corps de Cupidité trembla violemment et, en un instant, il fut couvert de su
 
 « Je ne prendrai pas tes trésors sans raison. Tu peux partir! »
 
-Le visage de Cupidité était livide; il mordit sa lèvre et cracha du sang. Sa vitesse augmenta considérablement alors qu'il s'enfuyait. En un clin d'œil, il ne laissa aucune trace de son passage.
+Le visage de Cupidité était livide; il se mordit la langue et cracha du sang. Sa vitesse augmenta considérablement alors qu'il s'enfuyait. En un clin d'œil, il ne laissa aucune trace de son passage.
 
 Les yeux de Cupidité étaient emplis d'une peur persistante, mêlée à un sentiment d'injustice.
 
@@ -62,7 +62,7 @@ Les yeux de Cupidité brillaient de joie. Durant ces centaines d'années, il ava
 
 « Je ne prendrai pas tes trésors sans raison, tu peux partir... » Cupidité se remémora les paroles de Wang Lin avant son départ, et une expression complexe se dessina sur son visage.
 
-Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner vers le Clan des Scorpions Noirs. Cupidité, malgré la barrière entre le Royaume Intérieur et le Royaume Extérieur, était arrivé avant lui dans le Système Stellaire Antique et lui avait remis tous ces trésors. Après avoir obtenu les richesses durement acquises de Cupidité, sans compter la joie d'avoir rencontré quelqu'un de son monde, comment Wang Lin aurait-il pu vouloir le tuer?
+Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner vers le Clan des Scorpions Noirs. Cupidité, malgré la barrière entre le Royaume Intérieur et le Royaume Extérieur, était arrivé avant lui dans le Système Stellaire Antique et lui avait remis tous ces trésors. Après avoir obtenu les richesses durement acquises de Cupidité, sans compter la joie de retrouver une connaissance en terre étrangère, comment Wang Lin aurait-il pu vouloir le tuer?
 
 « Ce Cupidité est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan des Scorpions Noirs.
 
@@ -90,7 +90,7 @@ Le patriarche de l'Évasion Nuageuse s'avança rapidement et agita la main pour 
 
 « Ce n'est qu'un modeste présent, j'espère que Seigneur l'acceptera. »
 
-Zhong Grand Rouge la saisit et l'examina. La joie illumina ses yeux lorsqu'il la rangea; il toussa alors: « Ce vieux fera de son mieux pour l'utiliser. »
+Zhong Grand Rouge la saisit et l'examina. La joie illumina ses yeux lorsqu'il la rangea; il toussa alors: « Ce vieux va essayer. »
 
 À cet instant précis, des ondulations se propagèrent dans le ciel et Wang Lin en sortit. Dès qu'il apparut, l'expression de Zhong Grand Rouge changea radicalement et il se redressa brusquement. Craignant d'être trop lent, il repoussa les cultivatrices qui l'entouraient, affichant un visage empreint de flatterie.
 

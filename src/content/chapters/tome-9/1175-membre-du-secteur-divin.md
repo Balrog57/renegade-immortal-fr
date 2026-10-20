@@ -26,13 +26,13 @@ L'homme d'âge moyen marqua une pause, puis tendit à nouveau la main pour sorti
 
 La voix de Wang Lin était calme, mais elle dégageait une majesté naturelle lorsqu'il déclara lentement: « Je ne poursuivrai plus l'offense de Wu Qing à mon égard, mais cela ne suffit pas à effacer l'offense de la Secte de la Collection des Démons. »
 
-Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de l'Oiseau Vermillon. Il n'avait nul besoin de forcer les choses; la simple pensée de son ancien titre lui permettait de manifester naturellement cette majesté.
+Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de l'Oiseau Vermillon. Il n'avait nul besoin de forcer les choses; il lui suffisait de se remémorer la Secte de l'Oiseau Vermillon pour manifester naturellement cette majesté.
 
 L'homme d'âge moyen eut un sourire désabusé et sortit deux pilules enrobées de cire. Il regarda Wang Lin et dit amèrement: « Deux pilules de rang 10. C'est ma limite. »
 
 Wang Lin répondit avec calme: « Wu Qing a dépensé des dizaines de milliers de jades célestes pour entraver l'obtention de ce trésor. »
 
-L'homme d'âge moyen ne répondit rien et sortit un sac de son espace de stockage. Sans même y jeter un œil, Wang Lin prit tout et adressa un signe de tête à l'homme. Il se transforma alors en un rayon de lumière et s'envola vers une auberge située dans une ville du côté est de Peng Lai.
+L'homme d'âge moyen ne répondit rien et sortit un sac de son espace de stockage. Sans même y jeter un œil, Wang Lin prit tout et adressa un signe de tête à l'homme. Il se transforma alors en un rayon de lumière et s'envola vers le marché de la partie est de Peng Lai.
 
 Ce n'est qu'une fois Wang Lin parti que le visage de l'homme d'âge moyen se décomposa. Une rage presque monstrueuse bouillonnait en lui.
 
@@ -58,13 +58,13 @@ La plume entre ses doigts se transforma instantanément en une flamme prenant la
 
 Au moment où l'Oiseau Vermillon pénétra son œil, une mer de flammes enveloppa ses environs. Cependant, ces flammes ne détruisirent rien dans l'auberge; elles brûlèrent plutôt le vide lui-même. Après un long moment, les flammes furent absorbées par son corps. Wang Lin prit une profonde inspiration et commença à méditer.
 
-« Après avoir tué Wu Qing et utilisé le nom de la Secte Divine, il ne devrait plus y avoir personne sur Peng Lai qui ose me défier. » Les yeux de Wang Lin s'illuminèrent. « Il est donc temps de commencer la récolte. »
+« Après avoir tué Wu Qing et utilisé le nom de la Secte Divine, il ne devrait plus y avoir personne sur Peng Lai qui ose s'en prendre à moi. » Les yeux de Wang Lin s'illuminèrent. « Il est donc temps de passer au pillage. »
 
 Au cours des jours suivants, les sectes de rang 6 vinrent tous lui rendre visite, tout comme les vieux monstres de l'entourage de Maître Pin Cendré. Wang Lin les reçut tous avec calme. Aucun des visiteurs ne venait les mains vides et tous se montraient extrêmement respectueux. Bien qu'ils doutassent encore de l'identité de Wang Lin, il était impossible de la vérifier. Seuls les membres de la Secte Divine pouvaient confirmer s'il était authentique ou non!
 
 S'il s'agissait d'une imposture, ce n'était pas grave: ils ne perdraient au plus que quelques cadeaux. Mais s'il était réel, nouer une relation avec lui était le rêve de n'importe quelle secte.
 
-Ce jour-là, après avoir congédié les cultivateurs de la Secte des Sorts Dao, le vieil homme décharné vêtu de noir, l'ancien propriétaire de la plume, vint le voir. Ce dernier ne mentionna aucunement les événements passés et paraissait calme. Au fond de lui, il craignait Wang Lin. Après tout, Wu Qing avait été tué avec une facilité déconcertante, et lui-même, au stade précoce du Briseur du Nirvana, se montrait donc très prudent.
+Ce jour-là, après avoir congédié les cultivateurs de la Secte du Sort Dao, le vieil homme décharné vêtu de noir, l'ancien propriétaire de la plume, vint le voir. Ce dernier ne mentionna aucunement les événements passés et paraissait calme. Au fond de lui, il craignait Wang Lin. Après tout, Wu Qing avait été tué avec une facilité déconcertante, et lui-même, au stade précoce du Briseur du Nirvana, se montrait donc très prudent.
 
 Après les civilités d'usage, le vieil homme joignit les mains. « Camarade cultivateur Lu, je ne me suis pas encore présenté. Je m'appelle Du De. Je n'appartiens à aucune secte et je suis un simple cultivateur indépendant dans la région de rang 6. C'est un honneur de rencontrer le camarade cultivateur Lu ici, à Peng Lai. »
 

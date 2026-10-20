@@ -68,7 +68,7 @@ Après une longue réflexion, Lu Yuncong regarda Zhao Long et dit: « Si le Frè
 
 Zhao Long afficha un sourire sinistre et laissa échapper un rire rauque avant de se détourner. À ses côtés, Lu Yingjie lança un regard d'excuse à Lu Yanfei, mais il ne daigna même pas regarder Lu Yuncong alors qu'il partait avec Zhao Long.
 
-L'endroit où ils se trouvaient n'était qu'une goutte d'eau dans l'océan comparé à la vaste plateforme où se déroulait la compétition. À cet instant, un rayon de lumière blanche convergea vers les différentes plateformes de combat. Cette lumière traversa le ciel en provoquant une série de grondements tonitruants. Avant même son approche, elle avait déjà capté l'attention des cultivateurs environnants.
+L'endroit où ils se trouvaient n'était qu'une goutte d'eau dans l'océan comparé à la vaste plateforme où se déroulait la compétition. À cet instant, un rayon de lumière blanche fonça vers la planète où se trouvaient les plateformes de combat. Cette lumière traversa le ciel en provoquant une série de grondements tonitruants. Avant même son approche, elle avait déjà capté l'attention des cultivateurs environnants.
 
 L'aura d'un cultivateur de niveau Briseur du Nirvana émanait de cette lueur blanche. Plusieurs silhouettes s'élancèrent depuis la Secte Éternelle pour l'accueillir.
 

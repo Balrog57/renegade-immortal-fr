@@ -60,11 +60,11 @@ L'Omniscient aux robes jaunes était le détenteur de la technique du Doigt du D
 
 Il voulait détruire ce soleil!
 
-L'Omniscient aux robes violettes forma un sceau et une brume pourpre apparut derrière lui. Cette brume s'éleva dans les airs pour fusionner avec la nuit. L'Omniscient aux robes violettes lui-même se fondit dans l'obscurité.
+L'Omniscient aux robes violettes forma un sceau et une brume violette apparut derrière lui. Cette brume s'éleva dans les airs pour fusionner avec la nuit. L'Omniscient aux robes violettes lui-même se fondit dans l'obscurité.
 
 En un instant, une nuance violette imprégna la nuit, et des silhouettes hideuses en sortirent une à une. Elles étaient toutes différentes, hommes et femmes confondus, ressemblant à des fantômes enragés prisonniers de l'enfer. Dès leur apparition, elles poussèrent des sifflements et des rugissements stridents.
 
-C'étaient les âmes dévorées par la Secte du Destin Céleste au fil des éons!
+C'étaient les personnes dévorées par la Secte du Destin Céleste au fil des éons!
 
 Cependant, dès que leurs sorts se manifestèrent, ils furent transpercés par la lumière solaire, tout comme l'obscurité de la nuit.
 

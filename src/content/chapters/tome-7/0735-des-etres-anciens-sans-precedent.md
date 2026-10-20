@@ -14,7 +14,7 @@ Avec le temps, les gens cessèrent de s'interroger sur l'origine de ce phénomè
 
 À cet instant précis, le tonnerre céleste arriva au moment même où Wang Lin rangeait son fourneau. Bien que l'éclair ne fût pas encore tombé, chargé d'une énergie céleste dense, son grondement se faisait déjà entendre.
 
-Les yeux de Wang Lin laissèrent poindre une lueur étrange et son âme originelle s'activa avec frénésie. Des décharges de tonnerre jaillirent de son corps, se propageant jusqu'au monde extérieur. À cet instant, il semblait être le maître absolu du tonnerre et de la foudre.
+Les yeux de Wang Lin laissèrent poindre une lueur étrange et son âme originelle s'activa avec frénésie. Des décharges de tonnerre jaillirent de son corps, se propageant jusqu'au sol alentour. À cet instant, il semblait être le celui qui contrôlait le tonnerre et la foudre.
 
 Au moment où le tonnerre descendit, le corps de Wang Lin jaillit vers l'avant tel un météore. Il ouvrit la bouche et dévora l'éclair sans la moindre hésitation!
 
@@ -28,11 +28,11 @@ Il chuta du ciel tel un cerf-volant brisé et s'écrasa au sol dans un fracas as
 
 À l'instant où son corps toucha terre, une immense quantité de tonnerre s'en échappa et se propagea. En un instant, une zone d'un rayon de cinq kilomètres autour de lui fut enveloppée par une tempête électrique.
 
-Il ne restait qu'un large cratère dans le sol. Des explosions continuèrent de secouer le corps de Wang Lin, et la force du tonnerre l'enfonçait toujours plus profondément dans la fosse. Tout son être déchargeait d'intenses quantités de foudre tandis qu'il gardait les yeux hermétiquement clos. Son âme originelle absorbait le tonnerre céleste avec frénésie. Le sortilège d'origine du tonnerre était également actif, puisant l'énergie d'origine au cœur de la foudre.
+Il ne restait qu'un cratère profond dans le sol. Des explosions continuèrent de secouer le corps de Wang Lin, et la force du tonnerre l'enfonçait toujours plus profondément dans la fosse. Tout son être déchargeait d'intenses quantités de foudre tandis qu'il gardait les yeux hermétiquement clos. Son âme originelle absorbait le tonnerre céleste avec frénésie. Le sortilège d'origine du tonnerre était également actif, puisant l'énergie d'origine au cœur de la foudre.
 
 Cette scène ressemblait au lac de tonnerre situé dans le champ d'astéroïdes!
 
-Le tonnerre dans le ciel résonnait parmi les nuages, comme si la majesté du tonnerre céleste ne pouvait être contestée.
+Le tonnerre dans le ciel résonnait parmi les nuages, comme si la majesté du royaume des immortels ne pouvait être défiée.
 
 Après l'arrivée du tonnerre, les nuages commencèrent à se dissiper et à disparaître. À ce moment-là, au plus profond de la fosse, Wang Lin ouvrit soudainement les yeux. Son regard dégageait une puissance électrique et une pointe d'excitation.
 
@@ -82,7 +82,7 @@ Même lorsqu'il manipulait la foudre, il n'avait jamais ressenti un tel engourdi
 
 À cet instant, le vortex de foudre au-dessus du fourneau tourna à une vitesse folle, absorbant tout sur son passage. De loin, on aurait dit que le monde entier allait être englouti par l'artefact!
 
-Quiconque n'y connaissait rien aurait cru que ce fourneau était un trésor de rang suprême, capable d'absorber l'univers lui-même!
+Quiconque n'y connaissait rien aurait cru que ce fourneau était un trésor de rang suprême, capable d'absorber le ciel lui-même!
 
 Presque instantanément, l'immense vortex fut entièrement absorbé dans le fourneau de tonnerre. Alors que le vortex se dissipait au-dessus de la planète Qing Ling, le fourneau émit des craquements sinistres et une fissure apparut sur sa surface!
 

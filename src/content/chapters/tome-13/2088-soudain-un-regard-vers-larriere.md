@@ -34,7 +34,7 @@ Leurs silhouettes atteignirent peu à peu l'extrémité du pont. Juste avant d'e
 
 Ce geste fit jaillir trois rayons de lumière vers la terre.
 
-Le premier rayon était une demi-boussole. Il fonça vers le sol et fit trembler le continent circulaire. La partie illusoire de la terre devint réelle, et d'innombrables tranchées et montagnes se mirent à briller intensément. Une fois assemblée, elle commença à s'activer.
+Le premier rayon était une demi-boussole. Il fonça vers le sol et fit trembler le continent circulaire. La partie illusoire de la terre devint réelle, et d'innombrables tranchées et montagnes, devenues graduations et runes, se mirent à briller intensément. Une fois assemblée, elle commença à s'activer.
 
 Le deuxième rayon était une aiguille géante. Elle descendit rapidement pour fusionner avec la montagne enneigée aux sept couleurs. L'aiguille balaya alors la terre.
 
@@ -134,7 +134,7 @@ Wang Lin s'assit sur une montagne paisible au sein du Clan Ancien. Li Muwan s'in
 
 Il semblait attendre quelque chose, Li Muwan l'ignorait et ne souhaitait pas le savoir. Tant qu'elle pouvait être aux côtés de Wang Lin, elle était comblée. Pourtant, une question brûlait son cœur, mais elle préférait attendre qu'il s'éveille pour la lui poser.
 
-Trois jours passèrent encore. Au crépuscule de ce jour, alors que le ciel déclinait, Wang Lin ouvrit les yeux et contempla l'horizon.
+Trois jours passèrent encore. Au crépuscule de ce jour, alors que le ciel déclinait, Wang Lin ouvrit les yeux et contempla le ciel.
 
 À cet instant, un homme vêtu de noir, aux longs cheveux sombres, apparut aux abords du Continent Astral Immortel. Son être était imprégné de massacre et de destruction. Debout à la lisière du continent, ses yeux indifférents se posèrent sur le Clan Ancien, où il vit quelqu'un le regarder.
 

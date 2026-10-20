@@ -72,13 +72,13 @@ Le pays de Zhao, les terres au-delà, la Secte de l'Affinement de l'Âme, Xue Yu
 
 Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan; tout disparut. Le pays de Huo Fen, le pays de Xuan Wu, la Mer des Démons et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
 
-Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs vaquant à leurs occupations. Ils ne disparurent pas; ils demeurèrent calmement, çà et là dans ce monde.
+Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs figés dans leurs gestes. Ils ne disparurent pas; ils demeurèrent calmement, çà et là dans ce monde.
 
 Tout comme Li Muwan et Grande Fortune aux côtés de Wang Lin.
 
 « Qu'est-ce que la vie et la mort... Ma main gauche est la vie, ma main droite est la mort... » Deux larmes coulèrent des yeux de Wang Lin. À peine eut-il prononcé ces mots que le tonnerre gronda et que les éclairs déchirèrent le ciel au-dessus de la planète Suzaku.
 
-À l'instant même où il parla, Li Muwan, qui était la plus proche de lui, sembla être frappée par une bourrasque et se changea en cendres. Non seulement elle, mais les innombrables mortels restés dans la ville de Su après sa disparition s'envolèrent en poussière.
+À l'instant même où il parla, Li Muwan, qui était la plus proche de lui, sembla être frappée par une bourrasque et se changea en cendres. Non seulement elle, mais les innombrables mortels du fleuve disparu et ceux restés dans la ville de Su après sa disparition s'envolèrent en poussière.
 
 Dans tout le pays de Zhao, toutes ces figures qu'il connaissait ou non disparurent.
 
@@ -115,7 +115,7 @@ Il se vit pointant le ciel et rugissant près d'un volcan éteint. Il pouvait to
 Au milieu des vagues et des vents infinis de la mer, il vit un navire marchand lutter contre les éléments. Il vit tous les passagers chanter une antique chanson de marins. Il vit cette volonté défiant la mort!
 Il vit une femme tenant un bébé sous la pluie devant un pavillon. Elle était si glaciale que la pluie se transformait en glace.
 Il vit l'incompréhension dans les yeux de Liu Mei aux confins de Zhao, et la pilule qu'elle avait laissée avec un sourire.
-Il vit son père fermer les yeux dans ses bras. Il vit une feuille d'automne s'envoler avec son âme, s'éloignant toujours plus loin... Il vit les yeux de sa mère ne jamais se rouvrir, et un sourire apparaître au coin de ses lèvres, comme si elle avait retrouvé son père.
+Il vit son père fermer les yeux dans ses bras. Il vit une feuille d'automne s'envoler avec son âme, s'éloignant toujours plus loin... Il vit les yeux de sa mère ne jamais se rouvrir, et un sourire apparaître au coin de ses lèvres, comme si elle avait rêvé de son père et s'en allait avec lui.
 Il se vit foudroyant du regard le cultivateur venu pour le tuer dans la ville de Su. Une seule phrase suffit à effrayer l'assaillant!
 Il vit Su Dao et son enterrement. Il revit l'année où lui et Grande Fortune arrivèrent pour la première fois à Su, quand les flocons de saule volaient dans l'air. Ils avaient loué un bateau pour attendre leur rencontre avec lui-même.
 

@@ -16,7 +16,7 @@ Il dit d'un ton amer: « Ascendant... »
 
 « Quand je suis venu dans le Royaume Céleste pour la première fois, je t'ai rencontré... Le domaine de la folie est une chose que tu m'as imposée. Je connais désormais ton objectif et je comprends tout, mais je ne le regrette pas. S'il existe une réincarnation, je choisirais de te rencontrer à nouveau... » Zhou Yi ne daigna même pas regarder le vieil homme; il fixait uniquement la dépouille féminine dans ses bras.
 
-Il fut autrefois un disciple très talentueux de la Secte des Cinq Éléments, doté d'une détermination bien supérieure à celle d'un homme ordinaire. Il cultiva la Méthode des Cinq Éléments et surpassa tous ses pairs les uns après les autres, jusqu'à devenir finalement le disciple du seul Ancien au stade avancé de la Transformation de l'Âme de la secte, tandis que son niveau de culture ne cessait de croître.
+Dans sa jeunesse arrogante, il fut autrefois un disciple très talentueux de la Secte des Cinq Éléments, doté d'une détermination bien supérieure à celle d'un homme ordinaire. Il cultiva la Méthode des Cinq Éléments et surpassa tous ses pairs les uns après les autres, jusqu'à devenir finalement le disciple du seul Ancien au stade avancé de la Transformation de l'Âme de la secte, tandis que son niveau de culture ne cessait de croître.
 
 Lorsqu'il atteignit le stade de la Formation de l'Âme, son maître lui offrit le Chaudron de la Pluie et il entra pour la première fois dans le Royaume Céleste, mais nul n'aurait pu prédire qu'il en serait totalement transformé.
 
@@ -26,13 +26,13 @@ Dans le Royaume Céleste, il entra par hasard dans un pavillon élégant et vit 
 
 Pour cette femme morte, il quitta sa secte. Son maître, refusant de tuer son propre disciple bien-aimé, ne put que laisser échapper trois longs soupirs avant de le laisser partir.
 
-« Amoureux des cadavres », « Le Fou »; toutes sortes de rumeurs se répandirent à travers Suzaku. Cependant, rien de tout cela ne l'affecta. Il n'avait aucun regret.
+« Amoureux des cadavres », « Le Fou »; toutes sortes de rumeurs se répandirent à travers la planète Suzaku. Cependant, rien de tout cela ne l'affecta. Il n'avait aucun regret.
 
 En empruntant le domaine de la folie, sa culture devint encore plus puissante, jusqu'à ce qu'il atteigne le stade de la Transformation de l'Âme.
 
 Son maître n'avait pas réussi à atteindre le stade d'Ascendant et avait atteint la fin de sa vie. Le jour où son maître mourut, Zhou Yi s'agenouilla devant la Secte des Cinq Éléments. Il resta ainsi agenouillé pendant sept jours.
 
-Après cela, il accomplit trois actes pour sauver la Secte des Cinq Éléments, mais il n'était plus l'un de ses disciples.
+Dans les années qui suivirent, il accomplit trois actes pour sauver la Secte des Cinq Éléments, mais il n'était plus l'un de ses disciples.
 
 À cet instant, tous ces souvenirs traversèrent le cœur de Zhou Yi.
 

@@ -50,7 +50,7 @@ Les épées volantes défiaient la hauteur du ciel et menaçaient de faire bascu
 
 Les cultivateurs de Luotian étaient empreints d'une intention meurtrière alors qu'ils quittaient les planètes de culture pour poursuivre leur progression.
 
-Le Maître Yan Leizi, porté par une sphère de flammes bleutées avec un groupe de cultivateurs autour de lui, affichait une expression sombre. Alors qu'ils se frayaient un chemin vers le Système Stellaire de l'Alliance, il ressentit un sentiment de crise imminent. Lorsqu'il tentait de prédire l'avenir, il ne percevait qu'une lumière sanguine dense qui l'empêchait de voir clair.
+Le Maître Yan Leizi, porté par une sphère de flammes bleutées avec un groupe de cultivateurs autour de lui, affichait une expression sombre. Alors qu'ils se frayaient un chemin vers le Système Stellaire de l'Alliance, il ressentit un sentiment de crise profond. Lorsqu'il tentait de prédire l'avenir, il ne percevait qu'une lumière sanguine dense qui l'empêchait de voir clair.
 
 Ils furent contraints de poursuivre leur offensive dans la région nord car ils étaient restés trop longtemps dans la région occidentale. Ils ne pouvaient pas battre en retraite sans combattre; ainsi, bien qu'il sût que l'Alliance complotait, il fut forcé de foncer!
 
@@ -58,7 +58,7 @@ Ils furent contraints de poursuivre leur offensive dans la région nord car ils 
 
 De vastes cohortes de cultivateurs de Luotian chevauchant des rayons d'énergie d'épée traversèrent la région occidentale pour atteindre la région nord.
 
-Alors que ces forces chargeaient vers le nord, une aura antique jaillit soudainement d'une des planètes de la région occidentale déjà conquise par Luotian. Cette aura explosa avec frénésie et, en un instant, un impact destructeur s'abattit sur la planète de culture.
+Alors que ces forces chargeaient vers le nord, une aura antique jaillit soudainement d'une des planètes de la région occidentale déjà conquise par Luotian. Cette aura explosa avec frénésie et, en un instant, un impact destructeur jaillit de la planète de culture.
 
 Plus d'une centaine de cultivateurs étaient stationnés sur cette planète; ils tentèrent de fuir dans une panique totale. Mais ce qu'ils aperçurent fut la dernière chose qu'ils virent de leur vie.
 
@@ -74,7 +74,7 @@ Le grondement qui en résulta fut assourdissant. L'effondrement planétaire éta
 
 Des explosions fracassantes résonnèrent. À mesure que l'onde destructrice se propageait, de nombreuses failles spatiales apparurent dans son sillage.
 
-Les fissures étaient si nombreuses qu'il ne fallut qu'un instant pour qu'elles finissent par toutes se rejoindre!
+Les fissures étaient si nombreuses qu'il ne fallut qu'un instant pour qu'elles finissent presque toutes par se rejoindre!
 
 Tous les cultivateurs de Luotian situés dans un rayon de dizaines de milliers de kilomètres furent frappés par ce choc, voyant leurs corps et leurs âmes originelles instantanément détruits.
 
@@ -88,9 +88,9 @@ Faisant fi de la vie de chaque créature de la région occidentale, ils lancère
 
 L'effondrement frénétique s'intensifia. Tandis que les planètes s'écrasaient, la tempête née de ce chaos balaya la région. De multiples déchirures spatiales apparurent sous l'effet de la tempête pour finalement fusionner.
 
-Le fracas tonitruant résonna et la région occidentale parut sombrer dans la fin du monde! L'effondrement à grande échelle provoqua une multitude de failles spatiales, projetant au hasard des fragments rocheux chargés d'une puissance destructrice.
+Le fracas tonitruant résonna et la région occidentale parut sombrer dans la fin du monde! L'effondrement à grande échelle provoqua une multitude de failles spatiales, projetant de toutes parts des fragments rocheux chargés d'une puissance destructrice.
 
-Ce fut un véritable massacre. La plupart des cultivateurs de Luotian ne purent même pas riposter et furent balayés par la tempête.
+Ce fut un véritable massacre. Un nombre incalculable de cultivateurs de Luotian ne purent même pas riposter et furent balayés par la tempête.
 
 À mesure que les failles spatiales s'élargissaient, des vents glacials en jaillirent pour se fondre dans la tempête, formant un vortex gigantesque. Ce vortex était si vaste qu'il couvrit la majeure partie de la région occidentale, coupant ainsi la route aux cultivateurs de Luotian qui tentaient de rejoindre le Système Stellaire de Luotian par le tunnel depuis la région nord.
 
@@ -106,10 +106,10 @@ Dans le domaine nord, une ondulation parcourut les rangs de l'armée de l'Allian
 
 « Maître Yan Leizi, cela faisait longtemps. Vous souvenez-vous encore du vieux Saint Démon Noir? »
 
-Les yeux du Maître Yan Leizi virèrent au rouge vif, mais son expression ne trahissait aucune réaction face à cette provocation. Il dit calmement: « Ainsi, c'était là votre plan? Très bien! Laissez-moi vous montrer les sorts de mes cultivateurs de Luotian! »
+Les yeux du Maître Yan Leizi virèrent au rouge vif, mais son expression ne trahissait aucune réaction face à ce bouleversement. Il dit calmement: « Ainsi, c'était là votre plan? Très bien! Laissez-moi vous montrer les sorts de mes cultivateurs de Luotian! »
 
 Le Maître Yan Leizi leva la main et pointa vers le haut. Une immense fissure fut silencieusement déchirée dans le ciel. Cette brèche était si vaste qu'elle ressemblait à un ravin s'étendant sur l'immensité céleste.
 
 Au même instant, une pression colossale s'en échappa et dix-huit sphères de sang, larges de cent pieds, descendirent des cieux!
 
-« Votre Système Stellaire de l'Alliance a osé détruire la région occidentale; comment mon Système Stellaire de Luotian pourrait-il ne pas réagir? Voyons qui l'emportera lors de ce premier affrontement! Puisque vous avez tué certains des miens, je tuerai les vôtres! » La voix du Maître Yan Leizi était empreinte d'une absolue confiance.
+« Votre Système Stellaire de l'Alliance a osé détruire la région occidentale; comment mon Système Stellaire de Luotian n'aurait-il pas pris de précautions? Voyons qui l'emportera lors de ce premier affrontement! Puisque vous avez tué certains des miens, je tuerai quelques-uns des vôtres! » La voix du Maître Yan Leizi était empreinte d'une absolue confiance.

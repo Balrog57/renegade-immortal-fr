@@ -62,7 +62,7 @@ La silhouette n'était pas imposante par sa taille, mais sa simple présence fit
 
 Dès son apparition, un silence de mort s'abattit sur la planète. Même le soleil dans le ciel disparut.
 
-« Est-ce vous qui disiez que le clan du Dao Antique n'était que composé de barbares face à votre Secte Gui Yi? » La voix indifférente émanait de la silhouette vaporeuse. L'entité avança, et personne n'osa lui opposer la moindre résistance. Elle arriva devant le vieil homme portant l'armure aux doubles éléments et lui saisit brusquement le cou!
+« Est-ce vous qui disiez que le clan du Dao Antique n'était que composé de barbares face à votre Secte Gui Yi? » La voix indifférente émanait de la silhouette vaporeuse. L'entité avança, et personne n'osa lui opposer la moindre résistance. Elle arriva devant le vieil homme portant l'armure aux doubles éléments et lui saisit le cou d'un geste désinvolte!
 
 Tout se déroula avec une rapidité fulgurante, sous une pression écrasante qui ne faiblissait pas. L'homme en armure ne put ni fuir ni résister. Dès qu'il fut saisi par la silhouette, il commença à lutter douloureusement.
 

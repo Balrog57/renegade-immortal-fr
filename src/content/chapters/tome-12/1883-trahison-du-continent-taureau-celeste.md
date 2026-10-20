@@ -68,7 +68,7 @@ Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. 
 
 Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Ta Jia et Bord-des-Nuages. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire qui lui enveloppait même le visage; seuls ses cheveux blancs flottaient sans qu'aucun vent ne soufflât.
 
-Le niveau de culture de Wang Lin bondit soudainement du stade avancé de la Tribulation de l'Esprit au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit de la Guerre. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
+Le niveau de culture de Wang Lin bondit soudainement du stade avancé du Vide Spirituel au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit Guerrier. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
 
 Des grondements de tonnerre résonnèrent sur la place de la Secte Gui Yi alors que l'empreinte démoniaque s'effondrait. La main noire trembla et la moitié de sa masse se désintégra, mais le reste finit par percuter Wang Lin.
 

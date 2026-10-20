@@ -56,27 +56,27 @@ Une fois la formation activée, ses yeux s'illuminèrent. Lors de son voyage dan
 
 Tout en réfléchissant, il toucha son sac de rangement et une armure de cuir apparut. La peau utilisée pour sa confection était très rugueuse et gravée de runes. En tenant l'armure, la main gauche de Wang Lin la caressa délicatement.
 
-« Armure de Cuir de l'Ancien Dieu... » Wang Lin la fixa silencieusement un instant avant de la lancer en l'air. Puis, il cracha une bouffée d'énergie originelle.
+« Armure de Cuir de l'Ancien Dieu... » Wang Lin la fixa silencieusement un instant avant de la lancer en l'air. Puis, il cracha une bouffée d'énergie de l'âme originelle.
 
-Une flamme blanche surgit soudainement et enveloppa l'armure. Celle-ci ne montra aucun changement sous les flammes, mais Wang Lin ne s'arrêta pas pour autant et expulsa davantage d'énergie originelle.
+Une flamme blanche surgit soudainement et enveloppa l'armure. Celle-ci ne montra aucun changement sous les flammes, mais Wang Lin ne s'arrêta pas pour autant et expulsa davantage d'énergie de l'âme originelle.
 
 Le précédent propriétaire était très probablement Maître Xiaoyaozi. Bien qu'il fût mort, sa culture était immense. Même à présent, une trace de sens divin, brisé mais indépendant, imprégnait encore l'armure.
 
 « Si quelques dizaines de milliers d'années de plus s'étaient écoulées, je crains que ce fragment de conscience divine ne se soit éveillé de lui-même. Il aurait développé sa propre volonté et serait devenu le nouvel esprit de l'Armure de Cuir de l'Ancien Dieu! » Grâce à son niveau de culture, Wang Lin était capable de percer la nature profonde des choses. Bien que tous les esprits de trésors ne se forment pas ainsi, c'était le cas pour la majorité d'entre eux.
 
-L'énergie originelle enveloppa l'armure tandis que le temps s'écoulait lentement. C'était un processus laborieux; après tout, l'ancien propriétaire était extrêmement puissant, bien plus que l'actuel Wang Lin. Bien que le sens divin fût fragmenté, il ne pouvait être sous-estimé. Surtout qu'il avait évolué au fil des éons pour commencer à se transformer en un véritable esprit de trésor.
+L'énergie de l'âme originelle enveloppa l'armure tandis que le temps s'écoulait lentement. C'était un processus laborieux; après tout, l'ancien propriétaire était extrêmement puissant, bien plus que l'actuel Wang Lin. Bien que le sens divin fût fragmenté, il ne pouvait être sous-estimé. Surtout qu'il avait évolué au fil des éons pour commencer à se transformer en un véritable esprit de trésor.
 
 « Bien que l'esprit d'un trésor soit précieux, s'il n'est pas extrait, l'Armure de Cuir de l'Ancien Dieu ne m'appartiendra jamais; elle appartiendra à cet esprit. Elle finira comme les Épées Célestes de la Pluie, dont le véritable maître n'est que l'esprit qui les habite. De plus, il ne s'agit là que d'un fragment du sens divin d'un être céleste, ce qui entre en conflit avec les anciens dieux. Bien qu'ils aient commencé à fusionner après d'innombrables années, cela reste insuffisant! »
 
 Le regard de Wang Lin devint glacial, puis s'illumina de détermination. Il était résolu à effacer cet esprit de trésor avant qu'il ne gagne une conscience complète.
 
-Plusieurs jours passèrent en un éclair. Ce jour-là, une brume bleue émergea de l'armure que Wang Lin affinait. Cette brume bougeait comme si elle souffrait atrocement, mais elle fut expulsée de l'armure par la force de l'énergie originelle de Wang Lin.
+Plusieurs jours passèrent en un éclair. Ce jour-là, une brume bleue émergea de l'armure que Wang Lin affinait. Cette brume bougeait comme si elle souffrait atrocement, mais elle fut expulsée de l'armure par la force de l'énergie de l'âme originelle de Wang Lin.
 
 Des filaments reliaient encore la brume bleue à l'armure. À cet instant, Wang Lin ouvrit les yeux, le regard sombre. Il leva la main et frappa impitoyablement!
 
-Les Coups Célestes jaillirent. Ce qu'il tranchait, c'était la Loi elle-même! Il tranchait les derniers liens entre l'esprit de trésor et l'Armure de Cuir de l'Ancien Dieu!
+Le Coup Céleste jaillit. Ce qu'il tranchait, c'était la Loi elle-même! Il tranchait les derniers liens entre l'esprit de trésor et l'Armure de Cuir de l'Ancien Dieu!
 
-Les filaments se rompirent dans un crépitement et la brume bleue s'élança vers le ciel. Wang Lin sortit alors le Étendard de l'Âme. Celui-ci se mua en une brume noire qui dévora la brume bleue.
+Les filaments se rompirent dans un crépitement et la brume bleue s'élança vers le ciel. Wang Lin sortit alors l'Étendard de l'Âme. Celui-ci se mua en une brume noire qui dévora la brume bleue.
 
 L'Armure de Cuir de l'Ancien Dieu flotta devant lui. Les yeux de Wang Lin brillèrent; son sens divin se projeta dans l'armure pour y laisser sa propre empreinte. Cette marque était si puissante que l'armure dégagea instantanément une aura antique.
 

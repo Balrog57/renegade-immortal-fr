@@ -8,9 +8,9 @@ slug: wang-lin-aux-cheveux-noirs
 ---
 Le rugissement de la boucherie et de la destruction fusionna pour former un tonnerre massacre qui effacerait toute vie!
 
-Ce tonnerre portait en lui la destruction et constituait l'essence même de l'anéantissement. Son existence était la source de toutes les ténèbres du monde, l'expression de toute mort et de toute destruction.
+Ce tonnerre portait en lui l'anéantissement du monde et constituait l'essence même de l'extinction de la vie. Son existence était la source de toutes les ténèbres du monde, l'expression de toute mort et de toute destruction.
 
-Lorsque Wang Lin ouvrit les yeux, ils ne contenaient aucune lumière; ils étaient d'une obscurité totale. Cette noirceur remplaça ses pupilles, et ses cheveux devinrent entièrement noirs!
+Lorsque Wang Lin ouvrit les yeux, ils ne contenaient aucune lueur dorée; ils étaient d'une obscurité totale. Cette noirceur remplaça ses pupilles, et ses cheveux devinrent entièrement noirs à vue d'œil!
 
 De longs cheveux noirs et des yeux sombres!
 
@@ -24,11 +24,11 @@ Le Wang Lin aux cheveux noirs lui inspirait une peur extrême, comme s'il était
 
 Le doigt qui était apparu dans le vide se rétracta lentement. C'était comme si le vide abritait deux paires d'yeux remplis de choc!
 
-« Que le massacre commence. » Wang Lin bondit dans les airs et un grondement résonna dans son corps. D'innombrables éclairs noirs apparurent autour de lui. Il poussa un rugissement vers le ciel, et ces éclairs jaillirent vers les centaines de silhouettes qui s'approchaient de lui.
+« Que le massacre commence. » Wang Lin fonça droit devant lui et un grondement résonna dans son corps. D'innombrables éclairs noirs apparurent autour de lui. Il poussa un rugissement vers le ciel, et ces éclairs jaillirent vers les centaines de silhouettes qui s'approchaient de lui.
 
 Ces centaines de figures n'auraient normalement ressenti aucune peur. C'étaient des cultivateurs de la mort, dont l'unique but était de mourir pour accomplir leur tâche; même leurs émotions avaient été supprimées, presque effacées!
 
-Cependant, à cet instant, lorsqu'ils entendirent le rugissement du Wang Lin aux cheveux noirs, leurs cœurs tremblèrent. Mais n'ayant plus de voie de retraite, ils chargèrent tous ensemble.
+Cependant, à cet instant, lorsqu'ils virent le Wang Lin aux cheveux noirs rugir, leurs cœurs tremblèrent. Mais n'ayant plus de voie de retraite, ils chargèrent tous ensemble.
 
 Le sourire du Wang Lin aux cheveux noirs révélait une cruauté sans nom et ses yeux étaient empreints de folie. Tandis qu'il avançait, il se rapprocha des centaines d'adversaires. Il agita la main droite et le tonnerre noir forma un filet.
 
@@ -40,7 +40,7 @@ Quiconque était touché par ces éclairs tremblait avant que son corps ne vole 
 
 Wang Lin avançait tel le vent. Face à ces centaines de personnes, le tonnerre continuait de se propager depuis son corps. Quiconque chargeait contre lui était anéanti!
 
-Il se déplaçait avec une rapidité fulgurante et apparut instantanément derrière une silhouette. Il leva la main droite et pointa l'individu; un éclair noir jaillit, et le cultivateur trembla avant d'exploser.
+Il se déplaçait avec une rapidité fulgurante et apparut instantanément derrière une silhouette floue, au milieu du vent et de la neige. Il leva la main droite et pointa l'individu; un éclair noir jaillit, et le cultivateur trembla avant d'exploser.
 
 Le corps de Wang Lin tressaillait, mais il continuait de tuer. Il semblait ne plus ressentir la fatigue ni la douleur des blessures. La puissance des autodestructions le bombardait sans relâche, mais cela ne parvenait pas à l'interrompre.
 
@@ -76,7 +76,7 @@ Une fois l'armure rejetée, la folie dans les yeux de Wang Lin disparut pour lai
 
 Après avoir perdu son armure d'âme, le niveau de culture du Wang Lin aux cheveux noirs diminua, mais son aura de massacre augmenta de plusieurs fois. En quelques respirations à peine, le gaz noir autour de lui devint plus dense encore, et il se précipita vers les milliers de personnes!
 
-Le massacre se poursuivait tandis que le cœur de l'Exalté Empyréen Hai Zi tremblait. Wang Lin ressemblait à un dieu démon. Pour chaque personne qu'il abattait, une nouvelle parcelle de massacre apparaissait autour de lui.
+Le massacre se poursuivait tandis que le cœur de l'Exalté Empyréen Hai Zi tremblait. Wang Lin ressemblait à un dieu démon. Pour chaque personne qu'il abattait, un nouveau filament noir apparaissait autour de lui.
 
 Chaque mort infligée renforçait le sentiment d'étrangeté que l'Exalté Empyréen Hai Zi éprouvait envers Wang Lin!
 
@@ -111,7 +111,7 @@ Des grondements tonitruants éclatèrent et, un instant plus tard, Wang Lin fut 
 
 « Vie et mort, karma, vrai et faux, sortez de là!! » Le Wang Lin aux cheveux noirs poussa un rugissement et son corps trembla. Ses trois essences éthérées furent également forcées hors de son être!
 
-À ce moment, le Wang Lin aux cheveux noirs ne possédait plus que deux essences — le massacre et la fin absolue! Il n'y avait plus de corps véritables d'essences, seulement son corps originel!
+À ce moment, le Wang Lin aux cheveux noirs ne possédait plus que deux essences — le massacre et la destruction! Il n'y avait plus de corps véritables d'essences, seulement son corps originel!
 
 Le gaz noir autour de lui se rétracta soudainement pour former une robe noire. Ses cheveux étaient devenus totalement noirs. Ses yeux étaient remplis de mort et il n'y avait plus trace de sourire sur ses lèvres. Il ressemblait à l'incarnation même de la Mort!
 

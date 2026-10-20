@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1404 - The Biased Old Vermillion Bird
 slug: le-parti-pris-du-vieil-oiseau-vermillon
 ---
-« Quelques vieux briscards sont arrivés. » Juste au moment où tous levèrent les yeux, la voix du vieil Oiseau Vermillon résonna dans le ciel d'un ton moqueur. Tandis qu'il descendait, le feu éthéré qui l'entourait se dispersa et s'évanouit sans laisser de trace.
+« Pas mal de vieux briscards sont arrivés. » Juste au moment où tous levèrent les yeux, la voix du vieil Oiseau Vermillon résonna dans le ciel d'un ton moqueur. Tandis qu'il descendait, le feu éthéré qui l'entourait se dispersa et s'évanouit sans laisser de trace.
 
 Cela révéla la silhouette de Wang Lin derrière le vieil Oiseau Vermillon.
 
@@ -106,7 +106,7 @@ Les yeux de l'Oiseau Vermillon s'écarquillèrent en entendant l'insulte « vieu
 
 « Prends-le. Cette chose contient le venin de ce petit insecte. C'est une arme redoutable contre tes ennemis! »
 
-Tandis qu'il parlait, l'Oiseau Vermillon leva la main droite et fit un geste vers l'arène. Il cria: « La sélection de l'Ancien Déchu est reportée, et l'épreuve du Jeune Empereur commence! »
+Tandis qu'il parlait, l'Oiseau Vermillon leva la main droite et fit un geste vers l'arène. Il cria: « La Sélection des Anciens Délaissés est reportée, et l'épreuve du Jeune Empereur commence! »
 
 Sa voix tonna comme le tonnerre et résonna dans toute l'arène. Le rugissement d'une tortue dragon retentit, et la tortue géante, déjà apparue sous les coups de Wang Lin, surgit de l'arène, sa carapace se reformant plaque après plaque.
 

@@ -14,7 +14,7 @@ La ville dissimulée sous le brouillard était d'un vide effrayant. Il était di
 
 Pourtant, aujourd'hui, elle était totalement morte!
 
-Aux yeux des neuf anciens démons, les peuples de leurs contrées n'étaient que des êtres qu'ils avaient illuminés. Ils n'étaient que des outils destinés à favoriser leur propre récupération. Même si tous les habitants venaient à mourir, cela n'affecterait en rien leur cœur.
+Aux yeux des neuf anciens démons, les peuples de leurs contrées n'étaient que des êtres qu'ils avaient façonnés. Ils n'étaient que des outils destinés à favoriser leur propre récupération. Même si tous les habitants venaient à mourir, cela n'affecterait en rien leur cœur.
 
 Dans la capitale du Pays du Démon de Feu, de l'Empereur Démon et de ses commandants jusqu'aux simples soldats et civils, tous avaient été envoyés sur le champ de bataille pour finir en cadavres éparpillés sur la terre, ou en sang ayant teinté le sol de rouge.
 
@@ -68,11 +68,11 @@ Cette scène se produisit simultanément en de multiples endroits à travers le 
 
 Les belligérants du Pays du Démon de Feu cessèrent tous le combat. Ils levèrent les yeux vers le ciel avec incertitude et confusion.
 
-Car non seulement de nombreux membres de la Tribu de l'Affinement de l'Âme s'étaient cachés parmi les soldats démons durant les cent dernières années, mais beaucoup de généraux des deux camps en étaient également issus.
+Car non seulement de nombreux membres de la Tribu de l'Affinement de l'Âme s'étaient cachés parmi les soldats démons et les hommes en noir durant les cent dernières années, mais beaucoup de généraux des deux camps en étaient également issus.
 
 À cet instant, d'innombrables généraux démons tremblèrent légèrement, et une traînée d'énergie de massacre s'échappa de chacun de leurs fronts avant de disparaître. Après avoir perdu cette essence, ils utilisèrent immédiatement leurs propres techniques pour s'enfuir au plus vite.
 
-Le Pays du Démon de Feu était en guerre depuis un siècle. La scène d'aujourd'hui choqua tous les survivants chanceux. Le ciel n'était plus bleu, il était désormais gris. Des filaments d'énergie de massacre s'élancèrent dans les airs pour converger vers la capitale du Pays du Démon de Feu!
+Le Pays du Démon de Feu était en guerre depuis un siècle. La scène d'aujourd'hui choqua tous les survivants. Le ciel n'était plus bleu, il était désormais gris. Des filaments d'énergie de massacre s'élancèrent dans les airs pour converger vers la capitale du Pays du Démon de Feu!
 
 Cent mille filaments d'énergie de massacre convergeaient de toutes les directions vers Wang Lin. Un rugissement incessant déchiquetait le ciel au-dessus de la capitale. Wang Lin se trouvait au centre d'un vortex colossal alors que ces cent mille filaments se précipitaient sur lui.
 
@@ -94,4 +94,4 @@ Ces un million de filaments pouvaient encore se diviser, mais Wang Lin n'avait a
 
 « Brisez! » Les cheveux de Wang Lin voltèrent dans les airs alors qu'il pointa soudainement le voile d'énergie spirituelle démoniaque.
 
-Le million de filaments d'énergie de massacre s'abattit sur le sceau telle une pluie torrentielle!
+Le million de filaments d'énergie de massacre s'abattit sur le sceau telle une pluie!

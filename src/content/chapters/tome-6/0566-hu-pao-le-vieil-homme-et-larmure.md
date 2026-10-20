@@ -34,15 +34,15 @@ Parmi ces jades figurait l'enregistrement d'une méthode de culture corporelle n
 
 Wang Lin le scruta avec son Sens Divin et pensa: « C'est bien ça! » Les Neuf Cultivations du Titan comprenaient un total de neuf niveaux et constituaient une technique de raffinement corporel. Après avoir mémorisé les neuf incantations, il effaça les trois derniers niveaux, ne gardant que les six premiers, et les remit à Treize!
 
-Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déjà indescriptible. Il se prosterna au sol, effectua plusieurs kowtows et s'exclama: « Ancêtre, Treize ne vous écoutera que vous pour le reste de sa vie! »
+Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déjà indescriptible. Il se prosterna au sol, effectua plusieurs kowtows et s'exclama: « Ancêtre, Treize n'obéira qu'à vous pour le reste de sa vie! »
 
 « Garde bien la Tribu du Affinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
 
 Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Étendard de l'Âme, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
 
-« Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, la capitale est trop loin, je ne peux donc pas laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
+« Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, dans trois mois, je me rendrai dans la capitale, bien trop loin pour que je puisse laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
 
-À ce moment-là, loin à l'ouest de la Tribu du Affinement de l'Âme, presque à mi-chemin à travers le Pays du Démon Céleste, s'étendait un désert infini.
+À ce moment-là, loin à l'ouest de la Tribu du Affinement de l'Âme, après avoir traversé plus de la moitié du Pays du Démon Céleste, s'étendait un désert infini.
 
 Cet endroit était réputé pour être une zone extrêmement périlleuse dans les Terres des Esprits Démoniaques!
 
@@ -52,7 +52,7 @@ La rumeur disait qu'il y a des éons, ce lieu fut l'un des anciens champs de bat
 
 En ce moment précis, un jeune homme était assis au milieu de ce champ de bataille antique. Devant lui se trouvaient plus d'une centaine de petits drapeaux. Ces derniers s'animaient sans aucun vent, et des âmes en jaillissaient une à une pour tournoyer autour de lui.
 
-Un panache de brume noire enveloppait son corps, et la présence de cette brume provoquait le réveil des innombrables âmes qui dormaient en ces lieux.
+Une brume noire peu épaisse enveloppait son corps, et sa seule présence provoquait le réveil des innombrables âmes qui dormaient en ces lieux.
 
 Chaque fois qu'un fragment d'âme s'éveillait, un violent jet de gaz noir jaillissait du sol. Il tournait avec la brume noire pendant quelques tours avant de pénétrer dans l'un des petits drapeaux.
 
@@ -74,7 +74,7 @@ Le vieil homme regarda Hu Pao et demanda: « Il t'a pourtant enseigné le sort d
 
 Hu Pao réfléchit un instant avant de ricaner: « Bien qu'il m'ait enseigné ce sort, il avait des intentions cachées. Si Wang Lin n'avait pas provoqué la colère de Sima Yan, je n'aurais jamais été jeté dans la Prison des Ténèbres! »
 
-« Durant les premiers mois à la Prison des Ténèbres, j'espérais que Wang Lin vienne me sauver, mais avec le temps, cet espoir s'est éteint. Quand j'étais torturé, où était-il? Quand j'étais maltraité, où était-il? »
+« Durant les premiers mois à la Prison des Ténèbres, j'espérais que Wang Lin vienne me sauver, mais cet espoir s'est éteint peu à peu, usé par cette vie insupportable. Quand j'étais torturé, où était-il? Quand j'étais maltraité, où était-il? »
 
 « Finalement, toutes mes attentes se sont transformées en haine. Sans lui, je n'en serais pas arrivé là... Heureusement, le Bienfaiteur m'a secouru, et au moment où j'ai quitté la Prison des Ténèbres, j'ai juré de ne plus jamais être un esclave! »
 

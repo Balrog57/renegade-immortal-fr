@@ -40,7 +40,7 @@ Zhang Kuang s'était déjà réveillé, mais par peur de perdre la face, il fais
 
 « Un rêve! Je dois rêver! » L'homme d'âge mûr qui avait accepté le métal de l'oncle quatrième de Wang Lin se mordit la langue.
 
-La réaction de Lu Song fut moins intense. C'était la première fois qu'il entendait le nom de Wang Lin. Il le regarda et pensa: « Quand un tel expert est-il apparu parmi les disciples intérieurs? Humph, pourquoi les Anciens ne l'ont-ils pas envoyé d'abord au lieu de moi?! »
+La réaction de Lu Song fut moins intense. C'était la première fois qu'il entendait le nom de Wang Lin. Il le regarda et pensa: « Quand un tel expert est-il apparu parmi les disciples intérieurs? Humph, si j'avais su, pourquoi serais-je monté? Le chef de secte, lui, aurait dû l'envoyer directement! »
 
 « Ai-je fait une erreur lors de mon test? Le talent de Wang Lin est-il réellement aussi exceptionnel? » Songea le troisième frère aîné de la maison des pilules, toujours sous le choc de la scène.
 
@@ -58,14 +58,14 @@ Le visage délicat de Liu Mei prit également un air étrange. Ses pensées dive
 
 Parmi tous les témoins choqués, Li Shan était sans doute la troisième personne la plus choquée. Son corps se dérobait et il s'effondra au sol en gémissant: « C'est fini, tout est fini! Je lui ai vendu la bombe puante et il l'a utilisée contre le senior frère martial! Le senior frère a perdu la face si vite! Il va me haïr à mort et doit déjà réfléchir à comment me punir! »
 
-« Li Shan, Li Shan, pourquoi n'as-tu pas compris que Wang Lin faisait semblant d'être un porc pour mieux dévorer le tigre? Wang Lin, tu es trop méprisable, trop honteux, trop sinistre! Cette fois, tu m'as vraiment mis dans une position inextricable... comment pourrai-je rester à la Secte Xuan Dao? Le senior frère ne me pardonnera jamais! »
+« Li Shan, Li Shan, pourquoi n'as-tu pas compris que Wang Lin faisait semblant d'être un porc pour mieux dévorer le tigre? Wang Lin, tu es trop méprisable, trop éhonté, trop sinistre! Cette fois, tu m'as vraiment mis dans une position inextricable... comment pourrai-je rester à la Secte Xuan Dao? Le senior frère ne me pardonnera jamais! »
 
 « Non, je dois trouver un moyen de nettoyer cette boue noire et d'éliminer cette odeur... moi... cette boue est mon invention la plus fière! Il n'existe aucun remède autre qu'un bain de six mois! »
 
 « Et cette puanteur, c'est quelque chose que j'ai développé pour détourner les petites amies des autres. Même moi, je ne toucherais pas à ça. La seule façon de s'en débarrasser est de rester dans un tunnel de vent pendant un mois. Il n'y a pas d'autre solution... je suis fini... fini! »
 
-À cet instant, Zhou Peng reprit connaissance. Assommé par l'odeur, il hurla: « Li Shan! Je ne te pardonnerai jamais ça! »
+À cet instant, Zhou Peng reprit connaissance. Presque assommé par l'odeur, il hurla: « Li Shan! Ce n'est pas fini entre nous! »
 
-Li Shan ne put supporter un tel coup. Il se mit à pleurer: « Senior frère, j'ai eu tort! Senior frère, je vous en prie, pardonnez-moi! Je ne chercherai plus jamais à profiter de la situation par la triche! »
+Li Shan ne put supporter un tel coup. Il se mit à pleurer: « Senior frère, j'ai eu tort! Senior frère, je vous en prie, pardonnez-moi! Je ne chercherai plus jamais à grappiller le moindre avantage! »
 
-Le visage de Zhou Peng était déformé par la rage. Se mouvant comme un éclair tout en traînant avec lui la boue noire et l'odeur nauséabonde, il retourna instantanément sur scène et cria follement: « Wang Lin, ça ne compte pas! Je n'étais pas prêt et tu as attaqué prématurément! Nous allons nous battre à nouveau, et cette fois, il est interdit d'attaquer en premier! »
+Le visage de Zhou Peng était déformé par la rage. Se mouvant comme un éclair tout en traînant avec lui la boue noire et l'odeur nauséabonde, il retourna instantanément sur scène et cria follement: « Wang Lin, ça ne compte pas! Je n'étais pas prêt et tu m'as attaqué par surprise! Nous allons nous battre à nouveau, et cette fois, pas de coup en traître! »

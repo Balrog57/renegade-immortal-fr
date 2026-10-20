@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1361 - Get Down Here
 slug: descendez-dici
 ---
-La lumière dorée et aveuglante brillait intensément, attirant l'attention de tous les membres du Clan du Tonnerre Dispersé. Lorsque leurs regards se posèrent sur cette lueur, leurs expressions changèrent radicalement!
+La lumière dorée et aveuglante brillait intensément, attirant l'attention de tous les membres du Clan du Tonnerre Dispersé. Lorsque leurs regards se posèrent sur cette lueur et sur l'âme originelle qu'elle enserrait, leurs expressions changèrent radicalement!
 
 « Grand Ancien! »
 
@@ -22,13 +22,13 @@ Leurs esprits tremblaient, car leur pilier spirituel s'était totalement effondr
 
 Tout cela se produisit en un instant. Wang Lin se montrait totalement impitoyable envers les cultivateurs du Royaume Extérieur. Lorsqu'il avait annoncé la capture du Grand Ancien, il savait qu'en raison de leur foi, les membres du clan ne le croiraient pas immédiatement, mais il pouvait utiliser cela pour planter une graine!
 
-Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet de l'Âme. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un coup impitoyable dans les cœurs du Clan du Tonnerre Dispersé!
+Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet de l'Âme. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un fouet invisible, un coup impitoyable dans les cœurs du Clan du Tonnerre Dispersé!
 
 Cela provoquerait l'explosion soudaine de la graine qu'il avait semée. Exactement comme Wang Lin l'avait prévu, tout le Clan du Tonnerre Dispersé sombra dans le chaos!
 
 Alors que le clan s'agitait suite à la capture de leur Grand Ancien, une lueur d'intention meurtrière traversa les yeux de Wang Lin. Tandis que le tonnerre grondait, Wang Lin agita la main et une lueur sanglante jaillit. L'invincible épée de sang fonça directement vers le cultivateur de la quatrième étape du Fléau Céleste!
 
-C'était l'atout que Wang Lin avait préparé! La lumière sanglante se déplaçait à une vitesse inimaginable. Lorsque le cultivateur de la quatrième étape du Fléau Céleste s'en aperçut, l'épée de sang lui avait déjà transpercé le milieu des sourcils!
+C'était le piège mortel que Wang Lin avait préparé! La lumière sanglante se déplaçait à une vitesse inimaginable. Lorsque le cultivateur de la quatrième étape du Fléau Céleste s'en aperçut, l'épée de sang lui avait déjà transpercé le milieu des sourcils!
 
 Un cri misérable résonna, tirant tous les membres du Clan du Tonnerre Dispersé de leur confusion. Bien qu'ils n'aient été plongés dans le chaos que pendant un court instant, le prix à payer était extrêmement lourd!
 
@@ -52,7 +52,7 @@ De nombreux cultivateurs du Clan du Tonnerre Dispersé se trouvaient à l'extér
 
 Des grondements tonitruants résonnèrent lorsque le dragon de tonnerre fonça sur la terre sainte et la percuta!
 
-La terre sainte trembla. Une formation l'entourait, mais elle se brisa et s'effondra sous le choc du dragon. Le continent frémit et ses bordures commencèrent à s'écrouler.
+La terre sainte trembla. Une formation l'entourait, mais elle se brisa et s'effondra sous le choc du dragon. Le continent frémit et une partie de ses bords irréguliers s'effondra en d'innombrables éclats de pierre.
 
 La terre sainte vibrait comme si des dragons s'agitaient sous la terre. Des bruits de craquements résonnèrent et des fissures se propagèrent partout. Les grondements provenant du temple sur la terre sainte devinrent encore plus assourdissants!
 
@@ -80,7 +80,7 @@ Si le tonnerre s'était enfui à travers les étoiles, Wang Lin aurait pu le pou
 
 Ce sentiment lui glaça le sang, semblable à ce que Daoïste Esprit Dispersé avait ressenti en découvrant le prétendu Royaume Céleste pour la première fois!
 
-« Ce tonnerre éternel est ma cible, personne ne pourra me le voler! Je tuerai les Célestes et les Dieux s'ils essaient! » Une volonté défiante brûlait dans le cœur de Wang Lin. Après avoir été témoin de la détermination sans borne d'innombrables êtres dans les 7 Millions de Mondes, il ne permettrait pas à ce qui se trouvait de l'autre côté du vortex de lui dérober son butin!
+« Ce tonnerre éternel est ma cible, personne ne pourra me le voler! Je tuerai les Célestes et les Dieux s'ils essaient! » Une volonté défiante brûlait dans le cœur de Wang Lin. Après avoir été témoin de la détermination sans borne d'innombrables êtres des 7 Millions de Mondes, qui luttaient pour leur liberté et leur survie, il ne permettrait pas à ce qui se trouvait de l'autre côté du vortex de lui dérober son butin!
 
 « Corps de Dieu Ancien, étends-toi! » Alors qu'il s'agrippait au tonnerre éternel en train d'être aspiré, les étoiles divines entre ses sourcils tournèrent rapidement. En un instant, il grandit pour atteindre près de 10 000 pieds de haut, revêtant sa véritable forme de Dieu Ancien!
 

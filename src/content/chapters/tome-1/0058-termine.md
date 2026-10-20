@@ -8,7 +8,7 @@ slug: termine
 ---
 L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es qu'un simple junior. De quel droit prétends-tu commercer avec moi? Si tu sors un trésor de la trempe de l'Épée Zi Yue de la Secte Heng Yue, je pourrais peut-être accepter d'échanger une seule goutte de ce poison contre lui! »
 
-Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa technique d'attraction de toutes ses forces et tendit la main.
+Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa technique d'attraction de toutes ses forces et tendit brutalement la main pour saisir.
 
 Le visage de l'Ancien Ouyang changea instantanément. « Junior, oses-tu! » Sur ces mots, il agita sa manche et une épée volante à l'aspect antique apparut. Dès qu'elle fut libérée, le vent commença à tourbillonner, formant une lame gigantesque dans les airs qui s'abattit avec puissance.
 
@@ -18,7 +18,7 @@ Le visage de Huang Long s'assombrit. Réalisant les intentions d'Ouyang, il sort
 
 Deux mains gigantesques émettant une lumière blanche apparurent. Des tourbillons de lumière s'enroulèrent autour d'elles, dispersant les nuages environnants.
 
-L'une des mains colossales saisit le cou du mille-pattes, tandis que l'autre s'élevait pour intercepter l'épée descendante.
+L'une des mains colossales saisit la tête du mille-pattes, tandis que l'autre s'élevait pour intercepter l'épée descendante.
 
 La trajectoire de l'épée ralentit jusqu'à être stoppée net en plein vol. Le visage de l'Ancien Ouyang devint tout rouge, empreint d'une profonde horreur.
 
@@ -30,7 +30,7 @@ Tout cela se produisit en un éclair. Huang Long poussa un rugissement de colèr
 
 Profitant de cet instant, Wang Lin se précipita vers le mille-pattes de mille pieds. Sa technique d'attraction maintenant la créature, celle-ci ne pouvait s'échapper malgré ses efforts désespérés. Wang Lin posa sa main droite sur la tête du mille-pattes et déchaîna son énergie spirituelle. La créature poussa un hurlement de douleur et recracha un liquide noir.
 
-L'action ne dura que quelques secondes, si brèves que personne n'eut le temps de réagir. Les anciens des deux sectes se firent face, de chaque côté du mille-pattes, prêts au combat. Lorsque Dao Xu vit le mille-pattes cracher son poison, craignant que Wang Lin n'ait rien pour le recueillir, il agita sa manche et lança une fiole blanche en criant: « Neveu-disciple Wang Lin, utilise ceci pour contenir le poison! »
+L'action ne dura que quelques secondes, si brèves que personne n'eut le temps de réagir. Les anciens des deux sectes se firent face, de chaque côté du mille-pattes, prêts au combat. Lorsque Dao Xu vit le mille-pattes cracher son poison, craignant que Wang Lin n'ait rien pour le recueillir, il agita sa manche et lança une fiole de jade blanc en criant: « Neveu-disciple Wang Lin, utilise ceci pour contenir le poison! »
 
 Aussitôt, il saisit son épée volante et engagea le combat contre l'Ancien de la Secte Xuan Dao qui avait lancé les feux spectraux.
 
@@ -42,9 +42,9 @@ L'Ancien Ouyang hurla avec rage: « Secte Heng Yue, vous allez trop loin! »
 
 Huang Long soupira intérieurement. Il rengaina son épée et prit du recul, suivi par les autres anciens.
 
-Le visage de Wang Lin trahissait un certain regret. Le poison de ce mille-pattes pouvait être le remède à la maladie de son père; il était donc déterminé à l'obtenir coûte que coûte. Il joignit les mains et dit: « Ancien Ouyang, le poison de ce mille-pattes est vital pour moi. J'ai quelque chose qui pourrait constituer un échange équitable. » Sur ces mots, il lança une fiole de jade d'apparence tout à fait ordinaire, remplie de l'eau de rivière qu'il avait accumulée dans la montagne arrière.
+Le visage de Wang Lin trahissait un certain regret. Le poison de ce mille-pattes pouvait être le remède à la maladie de son père; il était donc déterminé à l'obtenir coûte que coûte. Il joignit les mains et dit: « Ancien Ouyang, le poison de ce mille-pattes est vital pour moi. J'ai un objet qui pourra servir d'échange. » Sur ces mots, il lança une fiole de jade d'apparence tout à fait ordinaire, remplie de l'eau de rivière qu'il avait accumulée dans la montagne arrière.
 
-L'Ancien Ouyang affichait un visage sombre. Il s'apprêtait à parler lorsqu'il scruta attentivement la fiole. Fronçant les sourcils, il demanda: « J'ai entendu dire qu'il y a 500 ans, plusieurs cultivateurs de l'Âme Naissante de la Secte Heng Yue avaient créé un terrain de culture dont l'énergie spirituelle était bien supérieure à la normale. Ce liquide provient-il de là? »
+L'Ancien Ouyang affichait un visage sombre. Il s'apprêtait à parler lorsqu'il scruta attentivement la fiole. Fronçant les sourcils, il demanda: « J'ai entendu dire qu'il y a 500 ans, plusieurs cultivateurs de l'Âme Naissante de la Secte Heng Yue avaient créé un terrain de culture dont l'énergie spirituelle était plusieurs fois supérieure à celle de l'extérieur. Ce liquide provient-il de là? »
 
 Dès que la fiole fut sortie, une puissante aura d'énergie spirituelle s'en échappa. Huang Long jeta un regard à la fiole de jade, puis se frotta la barbe en disant: « Quel gamin... Il ose proposer une simple bouteille d'eau de rivière. »
 
@@ -58,9 +58,9 @@ Sur ces mots, il toucha le mille-pattes de mille pieds qui, lançant un regard n
 
 Il resta stupéfait, son esprit résonnant encore des paroles de l'Ancien Ouyang. Quant au propriétaire de ce regard captivant, après l'avoir observé un instant, il ne lui accorda plus aucune attention.
 
-Une fois la Secte Xuan Dao partie, le silence retomba sur le Pic des Pins. Le regard de Huang Long balaya la zone. Un sourire aux lèvres, il déclara: « Aujourd'hui, l'échange est remporté par ma Secte Heng Yue! Tous les disciples intérieurs seront récompensés! Rendez-vous à la maison des pilules pour recevoir une fiole de pilules de rassemblement d'énergie spirituelle. Et vous tous, prenez exemple sur Wang Lin! »
+Une fois la Secte Xuan Dao partie, le silence retomba sur le Pic des Pins. Le regard de Huang Long balaya la zone. Un sourire aux lèvres, il déclara: « Aujourd'hui, l'échange est remporté par ma Secte Heng Yue! Tous les disciples intérieurs seront récompensés! Rendez-vous à la maison des pilules pour recevoir une fiole de pilules de rassemblement de Qi. Et vous tous, cultivez-vous avec ardeur et prenez exemple sur Wang Lin! »
 
-Les disciples intérieurs se mirent à acclamer un à un. Désormais, plus personne n'osait le traiter de déchet.
+Les disciples intérieurs, un à un, se réjouirent et fixèrent Wang Lin. Désormais, plus personne n'osait le traiter de déchet.
 
 Le cœur de Wang Zhuo était en plein chaos. Il dit à Dao Xu: « Maître, le disciple souhaite entrer dans le passage de la vie et de la mort. Je ne me soucierai plus d'aucune autre affaire. »
 

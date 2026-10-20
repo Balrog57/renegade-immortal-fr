@@ -41,7 +41,7 @@ Tout comme Wang Lin s'était concentré sur certains individus, de nombreux cult
 
 « Je ne peux pas le provoquer. Il m'a laissé la vie sauve tout à l'heure, je lui suis redevable... » Le vieil homme que Wang Lin avait épargné baissa la tête, terrifié. Le combat qu'il venait de vivre resterait gravé en sa mémoire à jamais.
 
-La femme aux longs cheveux détourna lentement son regard pour ensuite fixer Wang Lin. Son expression restait impénétrable, et nul ne savait ce qu'elle pensait.
+La femme aux longs cheveux détourna lentement son regard pour ensuite fixer Wang Lin. Au bout d'un long moment, elle détourna de nouveau les yeux. Son expression restait impénétrable, et nul ne savait ce qu'elle pensait.
 
 Alors que chacun s'observait secrètement tout en se soignant, l'environnement commença peu à peu à se calmer. Même la mer de brouillard semblait s'apaiser. Après un bref instant de récupération, un cultivateur se leva et chargea vers le trésor situé devant la tête sur sa plateforme.
 
@@ -73,7 +73,7 @@ La vieille femme qui avait semé la confusion parla d'une voix rauque: « Compag
 
 Alors que sa voix résonnait, les bêtes humanoïdes poussèrent des rugissements de folie et chargèrent hors du brouillard vers les 25 cultivateurs répartis sur les plateformes! La scène était terrifiante: elles étaient des milliers!
 
-Les yeux de Wang Lin brillèrent. Il percevait des émotions oppressantes émanant de ces bêtes féroces. Il pourrait utiliser cela pour embraser le Feu Éthéré!
+Les yeux de Wang Lin brillèrent. Il percevait des émotions violentes émanant de ces bêtes féroces. Il pourrait utiliser cela pour embraser le Feu Éthéré!
 
 Les cultivateurs du Feu Éthéré étaient des êtres extrêmement mystérieux dans les Royaumes Intérieurs et Extérieurs, car très peu en avaient croisé. Cependant, ils jouissaient d'une réputation légendaire dans le Système Stellaire Antique! Comme ils n'apparaissaient qu'une fois tous les dizaines de milliers d'années, des rumeurs s'étaient propagées, prétendant qu'ils étaient aussi puissants que des cultivateurs du troisième pas!
 

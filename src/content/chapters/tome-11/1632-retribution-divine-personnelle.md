@@ -20,7 +20,7 @@ Cette barrière était imprégnée d'une puissante énergie céleste. Elle dissi
 
 « Tu veux connaître la rétribution divine, tu veux en découvrir l'origine. Bat-moi et tu sauras tout... Ne sois pas surpris que je lise dans tes pensées, car je suis toi. » Le jeune homme s'avança, ses cheveux blancs flottant au vent, dégageant un tempérament d'une grande grâce.
 
-Il sourit et ajouta doucement: « À travers les âges, tu n'es pas le premier cultivateur défiant le ciel à atteindre la troisième étape, mais aucun d'entre eux n'a survécu à cette rétribution divine... J'ai hâte de voir si toi, tu y parviendras. »
+Il sourit et ajouta doucement: « À travers les âges, tu n'es pas le premier cultivateur défiant le ciel à atteindre la troisième étape, mais aucun d'entre eux n'a survécu à cette rétribution divine personnelle... J'ai hâte de voir si toi, tu y parviendras. »
 
 Tout en parlant, le jeune homme sortit de la barrière d'eau, à plus de cent pieds de Wang Lin. Il leva sa main droite et pointa Wang Lin du doigt.
 
@@ -60,9 +60,9 @@ Sa main gauche s'éleva, entourée d'une brume blanche, tandis que sa main droit
 
 « Sceau de la Vie et de la Mort! »
 
-Une aura de vie et de mort d'une puissance inouïe jaillit de son corps. Sa main gauche contenait la vie, ainsi que les cieux et la terre eux-mêmes; sa main droite contenait la mort, comme si elle commandait au destin de toute chose!
+Une aura de vie et de mort d'une puissance inouïe jaillit de son corps. Sa main gauche contenait la vie de toutes les créatures du ciel et de la terre; sa main droite contenait la mort, comme si elle maîtrisait l'apparition et l'extinction de toutes choses!
 
-En s'approchant, sa main gauche fendit l'air vers Wang Lin, projetant le gaz blanc vers lui. Cette brume était une force vitale qui, en temps normal, ne pouvait causer aucun mal. Cependant, Wang Lin savait qu'elle faisait partie intégrante du Sceau de la Vie et de la Mort. Une fois entrée dans son corps, la mort frapperait pour parfaire le sceau.
+En s'approchant, sa main gauche fendit l'air vers Wang Lin, projetant le gaz blanc vers lui. Cette brume était une force vitale qui, en temps normal, ne pouvait causer aucun mal. Cependant, Wang Lin savait qu'elle faisait partie intégrante du Sceau de la Vie et de la Mort. Une fois entrée dans son corps, la brume de la mort la suivrait pour parfaire le sceau.
 
 Le visage de Wang Lin se fit sombre. Il laissa échapper un grognement froid et leva sa main gauche, chargée d'une force vitale transformée en brume. Sa main pénétra la vapeur adverse et percuta celle du jeune homme.
 
@@ -77,7 +77,7 @@ Tandis que les grondements de tonnerre secouaient l'air, Wang Lin toucha le sol 
 
 Son corps était dans un état lamentable sous l'impact du Sceau de la Vie et de la Mort. S'il n'avait pas pleinement compris les concepts de vie et de mort, il aurait été gravement blessé.
 
-Le jeune homme aux cheveux blancs recula également et percuta la barrière d'eau. Il la traversa pour atterrir au-dessus d'une ancienne statue de démon. D'innombrables fissures se propagèrent instantanément sur toute la structure, partant du point d'impact.
+Le jeune homme aux cheveux blancs recula également et percuta la barrière d'eau. Il la traversa pour atterrir au-dessus d'une statue de Démon Ancien. D'innombrables fissures se propagèrent instantanément sur toute la structure, partant du point d'impact.
 
 La statue s'effondra, dissipant la force résiduelle. Du sang coula de la bouche du jeune homme, mais il gardait ce même sourire étrange.
 

@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 119 - Soul Awakens
 slug: leveil-de-lame
 ---
-Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent depuis des myriades d'années. À présent au bord de l'effondrement, cet endroit se serait déjà écroulé et réduit au néant si l'Union de Culture ne le consolidait pas de temps à autre par de grands sortilèges.
+Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent depuis des myriades d'années. À présent au bord de l'effondrement, cet endroit se serait déjà écroulé et réduit au néant si l'Alliance de Culture ne le consolidait pas de temps à autre par de grands sortilèges.
 
 De l'autre côté des déchirures spatiales s'étend une mer d'étoiles sans limites, un lieu saturé d'énergies violentes et peuplé d'innombrables créatures mystérieuses.
 
@@ -38,7 +38,7 @@ Lors de son réveil, il n'avait aucune conscience, car il n'était qu'une boule 
 
 La lumière pénétra soudainement la tête du géant et s'y installa lentement.
 
-L'âme de Wang Lin pouvait être considérée comme entourée d'une flamme démoniaque; le froid disparut et son âme se calma progressivement. Le temps passa à nouveau, et cette période fut encore plus longue que la précédente. Durant cet intervalle, le corps qui abritait Wang Lin flottait lentement à travers le champ de bataille étranger.
+L'âme de Wang Lin pouvait être considérée comme entourée d'une flamme démoniaque; le froid disparut et son âme se calma progressivement. Le temps passa à nouveau, et cette période fut encore plus longue que la précédente. Durant cet intervalle, le corps qui abritait Wang Lin flottait lentement dans le vide.
 
 Sans certitude, peut-être parce que ce corps contenait l'âme de Wang Lin, davantage de ces créatures apparurent pour tenter de le dévorer. Cependant, c'est lui qui finit par toutes les dévorer. Son Sens Divin s'étendit et son feu d'âme se renforça.
 

@@ -60,7 +60,7 @@ Nul ne pouvait comprendre ses pensées, car elle-même était encore confuse… 
 
 Il y avait un sentiment plus complexe encore qui lui déchirait le cœur… À cause de cela, elle ne permettrait à personne de tuer Wang Lin.
 
-Cette pensée s'était ancrée dans son âme depuis bien longtemps. De nombreuses fois, elle avait été tirée de sa culture par la stupeur au milieu de la nuit. Elle se tenait seule sur la plus haute montagne du Royaume du Vide Brillant, contemplant le vide infini. Cette douleur lui donnait l'impression que son cœur saignait. Cette idée la faisait presque perdre le contrôle d'elle-même.
+Cette pensée s'était ancrée dans son âme depuis bien longtemps. De nombreuses fois, elle avait été tirée de sa culture par la stupeur au milieu de la nuit. Elle se tenait seule sur la plus haute montagne du Royaume du Vide Brillant, contemplant le ciel noir. Cette douleur lui donnait l'impression que son cœur saignait. Cette idée la faisait presque perdre le contrôle d'elle-même.
 
 Elle avait traversé d'innombrables années avec ce sentiment… Aujourd'hui, en voyant Wang Lin, cette douleur et ces émotions complexes qui bouillonnaient en elle envahirent tout son esprit.
 

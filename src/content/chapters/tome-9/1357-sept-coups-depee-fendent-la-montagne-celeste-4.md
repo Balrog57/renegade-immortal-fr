@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1357 - Seven Sword Chops the Heavenly Mountain (4)
 slug: sept-coups-depee-fendent-la-montagne-celeste-4
 ---
-L'Ancien en chef fut totalement ébranlé par la puissance de cette épée. Il était plongé dans une terreur extrême. Ce coup d'épée aurait suffi à le détruire complètement si ce n'était pour l'armure de tonnerre éternel! Même son âme originelle n'aurait eu aucune chance de s'échapper avant d'être anéantie par un tel assaut!
+Le Grand Ancien fut totalement ébranlé par la puissance de cette épée. Il était plongé dans une terreur extrême. Ce coup d'épée aurait suffi à le détruire complètement si ce n'était pour l'armure de tonnerre éternel! Même son âme originelle n'aurait eu aucune chance de s'échapper avant d'être anéantie par un tel assaut!
 
 « Quel genre d'épée est-ce là?! Même l'armure de tonnerre éternel ne peut y résister, et je suis gravement blessé! » Le visage de l'Ancien était pâle, empreint d'horreur.
 
@@ -42,7 +42,7 @@ Le tumulte fut violent et les morts continuèrent de pleuvoir dans les 7 Million
 
 Le Daoïste Esprit Dispersé traça un sceau et le pressa contre sa poitrine. Il cracha du sang et sembla faiblir, mais une force puissante émana des 7 Millions de Mondes!
 
-Cette puissance provenait des montagnes, des rivières, de la terre, de l'herbe et de toutes les bêtes! Elle fut infusée dans la tempête pour empêcher l'tonnerre éternel de percer!
+Cette puissance provenait des montagnes, des rivières, de la terre, de l'herbe, de toutes les bêtes et des oiseaux! Elle fut infusée dans la tempête pour empêcher l'tonnerre éternel de percer!
 
 L'Ancien recula dans un cri misérable en crachant six bouffées de sang. La protection formée par sa marque de clan s'effondra et une blessure réapparut sur son torse, si profonde que ses os étaient visibles!
 
@@ -78,7 +78,7 @@ Cependant, au moment où il s'élançait, le quatrième coup de Wang Lin s'abatt
 
 Les deux rayons d'énergie d'épée volèrent l'un après l'autre, formant presque une vague, portée par les hurlements des âmes. L'Ancien, déjà rendu fou par la douleur, ne se souciait plus de sa longévité et agita la main:
 
-« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan du Tonnerre Dispersé comme flammes sacrificielles afin d'activer le Sort du Boisseau du Sud! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
+« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan du Tonnerre Dispersé comme Flammes Joss afin d'activer le Sort du Boisseau du Sud! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
 
 Le Sort du Boisseau du Sud était l'art le plus puissant du Clan du Tonnerre Dispersé. Empruntant le pouvoir des astres, il se manifestait sous la forme de neuf étoiles meurtrières. L'espace devant l'Ancien se déforma et brilla intensément alors que neuf étoiles apparurent en formation. Un seul regard suffisait à donner l'impression que l'esprit était aspiré.
 
@@ -86,7 +86,7 @@ Ces neuf étoiles émettaient une lueur démoniaque et s'élancèrent pour contr
 
 Un fracas tonitruant éclata lorsque les lames d'énergie entrèrent en collision avec les neuf étoiles du Sort du Boisseau du Sud.
 
-Le grondement fut si intense qu'on aurait dit que l'espace lui-même s'effondrait. Cette force de déchirure se propagea à travers les 7 Millions de Mondes. La place contrôlée par le Clan au centre trembla et fut pulvérisée en d'innombrables fragments.
+Le grondement fut si intense qu'on aurait dit que l'espace lui-même s'effondrait. Cette force de déchirure se propagea à travers les 7 Millions de Mondes. La place centrale du Clan trembla et fut pulvérisée en d'innombrables fragments.
 
 Dans ce vacarme, la carte du Boisseau du Sud trembla et se déchira. Les neuf étoiles mortelles se brisèrent et se dissipèrent. Le corps de l'Ancien n'était plus qu'un amas sanglant; ses jambes avaient explosé, ne laissant que son buste. Une peur indescriptible le submergea, le tirant de sa folie. Il recula avec anxiété en formant des sceaux de toutes urgence. La chair de son bas du corps s'agita et il se régénéra rapidement!
 

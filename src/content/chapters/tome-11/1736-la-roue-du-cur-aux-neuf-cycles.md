@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1736 - Nine Cycle Heart Wheel!"
 slug: la-roue-du-cur-aux-neuf-cycles
 ---
-Après avoir rangé l'armure du Général de l'Eau, les yeux de Wang Lin étaient aussi froids que la glace. Il fixa le vortex et tendit la main vers lui.
+Après avoir rangé l'armure du Général de l'Eau, les yeux de Wang Lin étaient aussi froids que la glace. Il fixa le vortex et, d'un geste brusque, tendit la main pour le saisir.
 
 Au même instant, une lumière dorée et éclatante jaillit du vortex telle une pluie d'épées acérées. Elle percuta violemment la main droite de Wang Lin.
 
@@ -64,11 +64,11 @@ Cette déchirure fit se dissiper les nuages, suivie d'un craquement assourdissan
 
 En vérité, l'univers devant Wang Lin fut littéralement coupé en deux. Le centre de la faille plongeait dans un vide obscur. À cet instant, elle s'étendit rapidement, telle la nuit dévorant le jour.
 
-Mais cela ne suffisait pas à manifester toute la puissance du Déchirure du Ciel. Les innombrables feuilles furent elles aussi déchirées avec le monde! Chaque feuille fut fendue en deux, révélant les nervures qui reliaient ses deux moitiés.
+Mais cela ne suffisait pas à manifester toute la puissance du Déchirure du Ciel. Les innombrables feuilles furent elles aussi déchirées avec le monde! Chaque feuille fut fendue en deux, révélant les fins filaments qui reliaient ses deux moitiés.
 
 Toutes les feuilles convergeant de toutes parts furent ainsi déchiquetées!
 
-Lorsque le Déchirure du Ciel jaillit de la main droite de Wang Lin, un grondement tonitruant retentit, comme si la formation du bois était sur le point de s'effondrer.
+Lorsque la Déchirure du Ciel jaillit de la main droite de Wang Lin, un grondement tonitruant retentit, comme si la formation du bois était sur le point de s'effondrer.
 
 Les feuilles qui fonçaient sur Wang Lin furent coupées en deux et dérivèrent sur ses flancs, entrant en collision avec celles venant de la direction opposée.
 
@@ -78,7 +78,7 @@ Les débris de feuilles créaient un chaos indescriptible. C'était comme si le 
 
 Alors que Wang Lin sortait, les arbres dépouillés de leurs feuilles commencèrent à bouger étrangement. Sous le regard de Wang Lin, les troncs s'étirèrent et s'entrelacèrent. Rapidement, ils prirent la forme d'un visage gigantesque.
 
-« Rendez-vous ou soyez détruits. » Les cheveux blancs de Wang Lin flottaient doucement derrière lui, accompagnant le mouvement de sa robe blanche. Il fixa ce visage végétal au sol.
+« Soumettez-vous ou soyez détruits. » Les cheveux blancs de Wang Lin flottaient doucement derrière lui, accompagnant le mouvement de sa robe blanche. Il fixa ce visage végétal au sol.
 
 Le visage dans la forêt sembla méditer en silence et, après un long moment, ferma lentement ses yeux séculaires. À cet instant, une lumière verte éclatante se concentra entre ses sourcils, formant un cristal émeraude qui jaillit vers Wang Lin.
 
@@ -86,7 +86,7 @@ L'objet flotta devant lui, et Wang Lin le saisit de la main droite. Dès qu'il l
 
 Wang Lin ne s'attarda pas et fit un pas en avant; le monde autour de lui se distordit jusqu'à son effondrement total. La formation du bois se dissipa rapidement pour laisser place à la dernière: la formation métallique!
 
-La formation métallique était imprégnée d'une puissance brute, et une odeur d'intention meurtrière saturait l'air. Il n'y avait aucune terre ici; à la place, on ne trouvait que de grandes épées chargées de métal et de soif de sang.
+La formation métallique était imprégnée d'une puissance brute, et une odeur d'intention meurtrière saturait l'air. Il n'y avait aucune terre ici; à la place, on ne trouvait que de grandes épées qui irradiaient une lumière dorée, chargées de métal et de soif de sang.
 
 Ni nuages ni soleil ne parsemaient le ciel, seulement d'innombrables épées suspendues tête en bas dans les airs. Ces lames bourdonnèrent dès l'apparition de Wang Lin!
 
@@ -108,7 +108,7 @@ Na Duo hésita et demanda: « Ancêtre, notre formation la plus puissante, la Ro
 
 « La Roue du Cœur aux Neuf Cycles... neuf respirations pour un cycle. Plus le cœur bat vite, plus elle tourne... Il est difficile de le dire. Cette formation peut être aussi complexe que simple. C'est l'une des formations de protection de la Secte Gui Yi sur le Continent Astral Immortel.
 
-« Bien que cette formation ne déploie que 40 % de sa puissance, tant qu'il ne parvient pas à percer son mystère dès le début et que la roue du cœur tourne ne serait-ce qu'un peu, il ne pourra pas briser cette formation!
+« Bien que cette formation n'ait que 40 % de la puissance de la grande formation de la Secte Gui Yi, tant qu'il ne parvient pas à percer son mystère dès le début et que la roue du cœur tourne ne serait-ce qu'un peu, il ne pourra pas briser cette formation!
 
 « Tout dépend de son cœur: va-t-il s'agiter ou non! » murmura l'Ancien, ses paroles demeurant énigmatiques. Na Duo écouta sans trop comprendre, mais n'osa poser d'autres questions. Il se contenta de scruter le ciel au-delà de la tour.
 

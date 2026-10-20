@@ -46,7 +46,7 @@ L'esprit de Wang Lin tressaillit et son sens divin continua sa progression. Dans
 
 Il aperçut d'innombrables bêtes dont les restes étaient extrêmement féroces et dégageaient des auras puissantes. Il était évident qu'elles avaient été terriblement redoutables de leur vivant.
 
-Son sens divin s'étendit encore davantage. Il vit les cadavres de moustiques géants, le corps d'un Ji Qiong, et même d'innombrables restes de bêtes mesurant des centaines de milliers de pieds!
+Son sens divin s'étendit encore davantage. Il vit les cadavres de moustiques géants, le corps d'un Ji Qiong, et même d'innombrables restes de bêtes mesurant des dizaines de milliers de pieds!
 
 Hormis la Bête des Limbes, toutes les autres créatures qu'il avait croisées dans sa vie existaient ici, dans le Champ de Bataille Extérieur!
 

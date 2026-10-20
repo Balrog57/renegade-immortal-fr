@@ -34,7 +34,7 @@ Grâce à cette vélocité, Wang Lin parvint enfin à rattraper le Daoïste aux 
 
 Le Daoïste aux Sept Couleurs fronça les sourcils. Il avait bien sûr remarqué Wang Lin. Ayant modifié cette illusion par la force, il savait naturellement qu'un intrus s'était glissé en son sein. Cependant, il traversait un moment critique pour découvrir la destination de la troisième âme.
 
-Une telle opportunité ne se présentait qu'une fois dans une vie. Après tout, personne dans le Monde des Grottes ne pouvait utiliser un sort d'illusion aussi puissant!
+Une telle opportunité ne se présentait qu'une fois tous les mille ans. Après tout, personne dans le Monde des Grottes ne pouvait utiliser un sort d'illusion aussi puissant!
 
 Il ignora totalement Wang Lin et se concentra sur la traque de la troisième âme. Il voulait voir où elle se dirigeait!
 
@@ -94,7 +94,7 @@ Enfin, l'essence de Massacre apparut. Dès qu'elle pénétra dans le vortex, cel
 
 Wang Lin avait utilisé ses six essences pour façonner cette corne capable d'amplifier sa voix. Les essences tournoyant à l'intérieur pourraient multiplier le son produit par un nombre incalculable de fois!
 
-Après avoir préparé cela, Wang Lin activa ses trois pouvoirs ancestraux pour manifester une puissance antique. L'ombre d'un être ancien apparut derrière lui.
+Après avoir préparé cela, Wang Lin activa la puissance des trois clans anciens pour manifester une puissance antique. L'ombre d'un être ancien apparut derrière lui.
 
 Les veines du visage de Wang Lin se gonflèrent alors qu'il inspirait profondément. Puis, il lâcha un rugissement dans la corne formée par ses six essences!
 

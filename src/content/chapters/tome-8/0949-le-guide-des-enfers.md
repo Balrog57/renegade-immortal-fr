@@ -30,7 +30,7 @@ En réalité, il avait ses propres desseins. En plus de la recherche de l'Ancêt
 
 Wang Lin réfléchit. Après un long moment, il secoua la tête. « Avec mon niveau de culture actuel, je ne devrais pas être capable d'ouvrir le troisième parchemin. » Lorsqu'il avait observé le deuxième parchemin de bataille, l'énergie d'origine source était entrée dans son troisième œil.
 
-« Cela n'a rien à voir avec ton niveau de culture, tu devrais donc essayer. Moi, Lie Yunzi, je m'efforcerai de satisfaire n'importe laquelle de tes requêtes! » La main droite de Lie Yunzi toucha l'espace entre ses sourcils et un parchemin en jaillit immédiatement.
+« Cela n'a rien à voir avec ton niveau de culture, tu devrais donc essayer. Moi, Lie Yunzi, je m'efforcerai de satisfaire n'importe laquelle de tes requêtes! » La main droite de Lie Yunzi toucha l'espace entre ses sourcils et un parchemin en jaillit immédiatement au-dessus de sa tête.
 
 C'était le troisième Parchemin de Bataille!
 

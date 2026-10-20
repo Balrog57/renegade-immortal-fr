@@ -36,7 +36,7 @@ Wang Lin savait que son cœur était déjà mort ce jour-là, cette année-là, 
 
 *Le ciel coloré semble manquer d'une couleur. Je passerai ma vie à la chercher...*
 
-Wang Lin leva la tête vers les cieux. Un oiseau blanc semblait tournoyer dans l'azur tandis qu'il se demandait doucement: « Es-tu prête à couper les liens... Peux-tu les couper... »
+Wang Lin leva la tête vers les cieux. Un oiseau blanc semblait tournoyer dans l'azur tandis qu'il se demandait doucement: « As-tu le cœur de couper les liens... Peux-tu les couper... »
 
 La trente et unième année après avoir quitté Zhao, Wang Lin et Li Muwan étaient assis sur un rocher, entourés de cultivateurs s'étendant sur des milliers de kilomètres. Wang Lin tenait Li Muwan avec un sourire, contemplant le monde à ses côtés.
 
@@ -58,7 +58,7 @@ Des larmes perlèrent dans les yeux de Li Muwan et elle hocha la tête.
 
 « Emmène-moi là-bas. » Wang Lin caressa les cheveux de Li Muwan. Son visage marqué révélait deux mille ans de nostalgie.
 
-Li Muwan mordit sa lèvre inférieure et serra Wang Lin contre elle alors qu'ils s'élevaient dans les airs. Ils s'envolèrent vers l'horizon sous le regard de tous les cultivateurs environnants.
+Li Muwan mordit sa lèvre inférieure et serra Wang Lin contre elle alors qu'ils s'élevaient dans les airs. Fendant le vide, ils s'envolèrent vers l'horizon sous le regard de tous les cultivateurs dispersés sur des milliers de kilomètres.
 
 Ils disparurent au loin, s'effaçant des regards. C'était comme s'ils n'avaient jamais été là, comme s'ils n'étaient jamais venus en ce lieu.
 
@@ -104,7 +104,7 @@ Sa femme.
 
 Ils ne se souciaient ni de l'âge ni de l'apparence de l'autre. Ce qui comptait, c'était l'âme qui brillait dans leurs yeux.
 
-Ils ignoraient le passage du temps et la barrière du Yin et du Yang. Seul importait cet instant de communion.
+Ils ignoraient le passage du temps et la barrière du Yin et du Yang. Seuls comptaient cet instant de communion et la nostalgie de ce rêve.
 
 C'était ainsi qu'ils vivaient. Alors que le soleil se couchait sur la vallée et que la musique de la cithare résonnait, les deux vieillards se regardaient en silence. Le sourire du vieil homme répondait à celui de la vieille dame.
 

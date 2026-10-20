@@ -64,7 +64,7 @@ Cependant, juste au moment où le démon ancien s'éloignait, une voix froide et
 
 Cette voix était celle du Prince Ji Du!
 
-Le Pays Sombre des Shi Antique. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays Sombre reposait une entité semblable à une brume, capturée puis scellée par l'Ancêtre Ancien pour former ce royaume.
+Parmi les douze pays de la lignée Shi Antique se trouvait le Pays Sombre. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays Sombre reposait une entité semblable à une brume, capturée puis scellée par l'Ancêtre Ancien pour former ce pays.
 
 Au cœur de la brume se dressait une montagne en forme de fer à cheval, sur laquelle trônait un immense palais dégageant une aura puissante. De nombreux serviteurs et gardes y résidaient. Ce jour-là, le brouillard au-dessus du palais se fendit, révélant le ciel nocturne. Une immense faille apparut, et un géant démon ancien en sortit!
 

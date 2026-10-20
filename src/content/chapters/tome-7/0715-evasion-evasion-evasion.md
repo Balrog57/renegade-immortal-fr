@@ -8,7 +8,7 @@ slug: evasion-evasion-evasion
 ---
 Même le corps de la garde céleste trembla, et la lumière dorée qui l'entourait s'estompa légèrement.
 
-Wang Lin serra les dents. Ignorant l'aura de la gueule géante, il chargea une fois de plus vers le brouillard dense.
+Wang Lin serra les dents. Ignorant le rugissement de la gueule géante, il chargea une fois de plus vers le brouillard dense.
 
 Cependant, la fissure au sol se mit à s'élever follement. À cet instant, la terre commença à se soulever sans relâche et la planète entière se mit à gronder. De vastes pans de terre s'effondrèrent et furent projetés dans l'espace. Cette scène était presque identique à celle où son corps original avait causé l'effondrement d'une planète!
 
@@ -32,7 +32,7 @@ Voyant la gueule se rapprocher de plus en plus, les yeux de Wang Lin brillèrent
 
 Un son étouffé retentit dans la gueule, suivi d'un rugissement intérieur. La gueule s'avança encore plus vite et se retrouva à moins de mille pieds de Wang Lin. La vitesse de ce dernier était fulgurante; lui et la garde céleste venaient de pénétrer dans le brouillard dense.
 
-Pourtant, ce brouillard se dissipa rapidement à mesure que la gueule se refermait. Il disparut sans laisser de trace en un clin d'œil! Après d'innombrables années, c'était la première fois que le brouillard entourant le serpent s'évanouissait!
+Pourtant, ce brouillard se dissipa rapidement à mesure que la gueule approchait. Il disparut sans laisser de trace en un clin d'œil! Après d'innombrables années, c'était la première fois que le brouillard entourant le serpent s'évanouissait!
 
 « Cochon, mouton, singe, bœuf, tigre et lièvre, explosez tous! » Les yeux de Wang Lin étaient empreints de folie.
 
@@ -54,11 +54,11 @@ Au moment où les mots des anciens dieux résonnèrent, le ciel changea. Wang Li
 
 La langue des anciens dieux, d'une antiquité profonde, résonna. Mais ce qu'elle apporta à Wang Lin fut la certitude qu'une crise de vie ou de mort était imminente! Des fissures apparurent dans l'espace environnant comme si la réalité elle-même allait s'effondrer. Wang Lin en perdit presque son sang-froid.
 
-Il connaissait ce sort. C'était un sort de fragmentation que seul un ancien dieu à huit étoiles pouvait utiliser! Il pouvait pulvériser tout ce qui se trouvait sur son passage et réduire en poussière tout ce qui se trouvait dans sa portée. Le sentiment de péril n'avait jamais été aussi viscéral. Wang Lin se retourna et poussa un rugissement puissant et étrange!
+Il connaissait ce sort. C'était un sort de fragmentation que seul un ancien dieu à huit étoiles pouvait utiliser! Il pouvait faire s'effondrer tout ce que son regard embrassait, le réduisant en poussière. Le sentiment de péril n'avait jamais été aussi viscéral. Wang Lin se retourna et poussa un rugissement puissant et étrange!
 
 Ce qu'il prononça était lui aussi la langue des anciens dieux, héritée de Tu Si!
 
-La terre s'immobilisa soudainement et la gueule géante se referma légèrement. Au même moment, deux autres fissures apparurent, révélant une paire d'yeux froids! Ce regard tomba sur Wang Lin, empreint d'une froideur mêlée de confusion.
+La terre s'immobilisa soudainement et la gueule géante se referma légèrement. Au même moment, deux autres fissures apparurent, révélant un regard froid! Ce regard tomba sur Wang Lin, empreint d'une froideur mêlée de confusion.
 
 L'interruption du Serpent aux yeux de lune stoppa l'effondrement de l'espace. Wang Lin s'enfuit sans hésiter, et la garde céleste le suivit sans relâche. À cet instant précis, une silhouette mince surgit des profondeurs de la fissure, animée par un mélange de terreur et d'exultation.
 

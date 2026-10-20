@@ -170,7 +170,7 @@ Il s'éloigna avec son père, un sourire méprisant aux lèvres.
 
 Une fois rentré chez lui, Tie Zhu se coucha. Dans le secret de son cœur, il prit une décision: il devait être sélectionné, quoi qu'il en coûte!
 
-Quinze jours passèrent rapidement. Ce jour-là, le quatrième oncle arriva en calèche. Les parents de Tie Zhu l'accueillirent avec empressement. L'homme se lava le visage et annonça précipitamment: « Deuxième frère, deuxième belle-sœur, je ne peux pas rester longtemps. Je viens chercher Tie Zhu. La Secte Heng Yue viendra recruter les disciples demain matin. »
+Quinze jours passèrent rapidement. Ce jour-là, le quatrième oncle arriva en calèche. Les parents de Tie Zhu l'accueillirent avec empressement. L'homme se lava le visage et annonça précipitamment: « Deuxième frère, deuxième belle-sœur, je ne peux pas rester longtemps. Je viens chercher Tie Zhu. La Secte Heng Yue viendra chercher les recrues demain matin. »
 
 Le père de Tie Zhu fut frappé de stupeur, une ombre de tristesse sur le visage. Il dit fermement: « Soit. Tie Zhu, suis ton oncle. Si tu es sélectionné, étudie avec ardeur à la Secte Heng Yue. Mais si ce n'est pas le cas, ne t'en fais pas et reviens à la maison. »
 

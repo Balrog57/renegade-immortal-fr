@@ -108,7 +108,7 @@ Son arrivée fut silencieuse, comme s'il avait toujours été là. Il émergea d
 
 Wang Lin regarda Gu Dao sans dire un mot. Il continua de fixer la tempête marine. L'ouverture dans la porte de pierre était désormais bien plus vaste, et une lueur d'anticipation brillait dans ses yeux.
 
-À cet instant, il ne restait que huit personnes à l'extérieur de la tempête marine. Ils étaient entourés par le néant alors que le monde s'était effondré autour d'eux. Lorsque le jour passa et qu'arriva le dernier jour avant l'ouverture, les grondements formèrent un vortex. Tandis que ce tourbillon tournait avec une rapidité fulgurante, il fit cracher du sang à Jiu Di et ses compagnons. Ils se retirèrent à contrecœur, sachant au fond d'eux qu'ils avaient atteint leurs limites.
+À cet instant, il ne restait que huit personnes à l'extérieur de la tempête marine. Ils étaient entourés par le néant alors que le monde s'était effondré autour d'eux. Lorsque le jour passa et qu'arriva le dernier jour avant l'ouverture, les grondements formèrent un vortex. Tandis que ce tourbillon tournait avec une rapidité fulgurante, il fit cracher du sang à Jiu Di et ses compagnons, qui furent repoussés de mille zhang en arrière. Ils se retirèrent à contrecœur, sachant au fond d'eux qu'ils avaient atteint leurs limites.
 
 Dao Yi fut le premier à serrer les dents pour partir, suivi par un Wu Feng impuissant. Seul Jiu Di affichait une expression déformée, les veines de son visage saillantes sous l'effort; il voulait continuer à résister.
 

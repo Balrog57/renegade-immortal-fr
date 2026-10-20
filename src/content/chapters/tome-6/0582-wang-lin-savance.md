@@ -10,7 +10,7 @@ Après le troisième coup de tambour, l'écho résonna sur toute la place. Le si
 
 À cet instant précis, un homme vêtu d'une armure dorée sortit du palais situé derrière la place. Il balaya les environs du regard avant de fixer la place et de hurler: « Généraux démons, avancez! »
 
-Sa voix, semblable à un tonnerre grondant, résonna sur toute la place. Toutes les portes s'ouvrirent et les divers généraux démons entrèrent en scène.
+Sa voix, semblable à un tonnerre grondant, résonna sur toute la place. La Porte du Démon Céleste s'ouvrit et les divers généraux démons entrèrent en scène.
 
 Chacun de ces généraux démons était suivi par des cultivateurs. À cet instant, tous les regards quittèrent le siège vide pour se porter sur les généraux démons.
 

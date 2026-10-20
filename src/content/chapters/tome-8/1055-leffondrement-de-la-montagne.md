@@ -30,7 +30,7 @@ Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indiffé
 
 Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons fin à cette affaire aujourd'hui. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
 
-Hormis l'homme en noir, tous avaient clairement choisi un camp. Le regard de Wang Lin jeta un éclair et il joignit les mains devant Wang Wei: « Mon affaire ne compte pas. Je laisserai l'Aîné décider de la suite. »
+Hormis l'homme en noir, tous avaient clairement choisi un camp. Le regard de Wang Lin jeta un éclair et il joignit les mains devant Wang Wei: « Mon affaire ne compte pas. Je laisserai le Senior décider de la suite. »
 
 Bien que Wang Wei n'eût pas apprécié l'attaque soudaine de Wang Lin, il acquiesça en voyant que celui-ci savait faire preuve de retenue. Son regard se posa sur l'Omniscient et ses alliés, et il déclara calmement: « Très bien. Laissons de côté nos querelles personnelles pour l'instant! Les trois derniers étages sont semés d'embûches; je vous prie donc, chers compagnons, de ne pas vous retenir. Une fois transférés au septième étage, retrouvons-nous au centre. »
 
@@ -72,7 +72,7 @@ En la voyant partir, les yeux de Wang Lin brillèrent d'une lueur étrange. Bien
 
 Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Divin. Après un long moment, il rouvrit les paupières, plus confiant que jamais dans ses spéculations. Ce volcan n'était pas apparu de lui-même; il avait été déplacé ici par quelqu'un. Plus il s'approchait, plus les preuves étayaient cette théorie. Il remarqua clairement que les roches entourant le volcan étaient totalement distinctes du reste du sol.
 
-« Je suppose que tout le monde a remarqué l'étrangeté de ce volcan. » Wang Lin se tint au pied de la montagne sans se précipiter à l'intérieur. Ses yeux s'illuminèrent alors qu'il observait la lave coulant des crevasses. La chaleur extrême ne lui causait aucun inconfort; au contraire, elle l'apaisait. Même l'énergie d'origine en lui devenait plus active.
+« Je suppose que tout le monde a remarqué l'étrangeté de ce volcan. » Sans se précipiter à l'intérieur, Wang Lin s'assit en tailleur au pied de la montagne. Ses yeux s'illuminèrent alors qu'il observait la lave coulant des crevasses. La chaleur extrême ne lui causait aucun inconfort; au contraire, elle l'apaisait. Même l'énergie d'origine en lui devenait plus active.
 
 « Ce changement me profite! » La main droite de Wang Lin plongea dans la lave d'une fissure. Il ressentit immédiatement l'immensité de l'élément de feu qui y résidait.
 

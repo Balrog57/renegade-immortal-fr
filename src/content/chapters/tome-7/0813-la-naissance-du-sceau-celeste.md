@@ -26,7 +26,7 @@ Tout en fixant le liquide doré entre ses doigts, les yeux de Wang Lin brillère
 
 Sous le regard du troisième œil, le liquide commença à se dissiper lentement pour retourner à sa source, mais sa progression était lente. Après un instant, le troisième œil de Wang Lin s'estompa, alors que seule la moitié du liquide s'était dissipée.
 
-« C'est étrange qu'il résiste aussi longtemps sous l'effet du troisième œil! » Les yeux de Wang Lin s'illuminèrent et l'énergie d'origine à l'intérieur de son corps afflua rapidement vers son troisième œil, malgré la consommation intense que cela exigeait. La lumière rouge de l'œil s'intensifia aussitôt.
+« C'est étrange qu'il résiste aussi longtemps sous l'effet du troisième œil! » Les yeux de Wang Lin s'illuminèrent et l'énergie originelle à l'intérieur de son corps afflua rapidement vers son troisième œil, malgré la consommation intense que cela exigeait. La lumière rouge de l'œil s'intensifia aussitôt.
 
 Le liquide doré commença à se dissiper plus vite. Un instant plus tard, sous l'effet du sort de Wang Lin, le liquide se transforma en d'innombrables fils dorés. Ces fils s'entrecroisèrent pour former une rune dorée extrêmement complexe.
 
@@ -44,7 +44,7 @@ Le moustique volait joyeusement quand soudain, tous ses poils se hérissèrent; 
 
 La rune brilla et s'imprima sur la bête moustique. Elle se brisa instantanément en liquide doré, enveloppant la créature. Le moustique lutta violemment avant de parvenir à se libérer après quelques instants. Il s'enfuit alors au loin, jetant un regard vers Wang Lin comme s'il s'était senti lésé, tout en poussant un cri.
 
-Les yeux de Wang Lin pétillèrent. En utilisant le pinceau céleste, il n'avait consommé que 10 % de son énergie d'origine, et pourtant la rune était déjà si puissante. S'il utilisait toute sa puissance pour la créer, son effet en serait multiplié.
+Les yeux de Wang Lin pétillèrent. En utilisant le pinceau céleste, il n'avait consommé que 10 % de son énergie originelle, et pourtant la rune était déjà si puissante. S'il utilisait toute sa puissance pour la créer, son effet en serait multiplié.
 
 Wang Lin rangea le pinceau céleste. Après une courte réflexion, il comprit la vérité: « La véritable capacité de ce trésor réside dans cette rune. Lorsqu'elle était enfermée dans l'objet, sa pleine puissance ne pouvait s'exprimer, mais avec le pinceau, je peux libérer son essence véritable. »
 
@@ -58,7 +58,7 @@ Si n'importe qui d'autre avait tenté l'expérience, à moins de posséder un so
 
 En fixant ce fragment, l'éclat mystérieux dans le regard de Wang Lin s'intensifia davantage.
 
-« Il s'agissait à l'origine d'un fragment du Royaume Céleste, raffiné par la tribulation divine. Il n'a pas été endommagé lors de l'attaque du Seigneur Céleste Qing Shui, sa robustesse a donc atteint un certain degré. Cependant, ce trésor n'est pas complet; lorsqu'il attaque, il se contente d'utiliser l'énergie spirituelle céleste qu'il possède pour emprisonner une cible. En réalité, il n'est pas très puissant; il ne peut rivaliser avec la force mortelle de la Paire Dao Fanée, et certainement pas avec le troisième Charriot de Guerre Divin. »
+« Il s'agissait à l'origine d'un fragment du Royaume Céleste, raffiné par la tribulation divine. Il n'a pas été endommagé lors de l'attaque du Seigneur Céleste Qing Shui, sa robustesse a donc atteint un certain degré. Cependant, ce trésor n'est pas complet; lorsqu'il attaque, il se contente d'utiliser l'énergie spirituelle céleste qu'il possède pour emprisonner une cible. En réalité, il n'est pas très puissant; il ne peut rivaliser avec la force mortelle de la Paire Dao Fanée, et certainement pas avec le troisième Char de Guerre Divin. »
 
 Wang Lin sortit à nouveau le pinceau céleste et commença à dessiner. Un instant plus tard, une Rune de Scellement apparut.
 
@@ -74,7 +74,7 @@ Wang Lin ne ressentit aucune fatigue et ne marqua aucune pause. Le fragment éta
 
 Il avait placé une quantité indéterminée de Runes de Scellement lorsque le fragment émit une lueur dorée pâle. Pourtant, Wang Lin ne cessa pas. Il continua d'en ajouter, une par une.
 
-Trois jours plus tard, Wang Lin se posa au sol et commença immédiatement à cultiver. Son visage était légèrement pâle. Durant ces trois jours, il avait utilisé son énergie d'origine sans relâche. Même avec sa culture, il avait atteint ses limites.
+Trois jours plus tard, Wang Lin se posa au sol et commença immédiatement à cultiver. Son visage était légèrement pâle. Durant ces trois jours, il avait utilisé son énergie originelle sans relâche. Même avec sa culture, il avait atteint ses limites.
 
 Le fragment de 330 mètres s'était réduit à environ 264 mètres. Il émettait toujours une lueur dorée, bien que plus sombre désormais.
 

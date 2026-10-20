@@ -28,7 +28,7 @@ Les deux êtres traversaient le ciel comme une étoile filante. Bientôt, ils pa
 
 Quant à Wang Lin, il pensait à l'individu qui les poursuivait et n'avait nul temps pour autre chose. En plein vol, pressentant quelque chose, il tendit la main droite et l'épée volante cristalline atterrit dans sa paume.
 
-Wang Lin s'arrêta brusquement en fixant une trace de sang sur l'épée volante. Il étala le sang sur sa main et, après l'avoir observé un instant, son expression devint très troublée. Il pouvait ressentir une énergie spirituelle dense émanant de ce sang. Une telle concentration d'énergie dans une si infime quantité... Quel niveau de culture cet individu avait-il atteint?
+Wang Lin s'arrêta brusquement en fixant une trace de sang sur l'épée volante. Il racla le sang avec sa main et, après l'avoir observé un instant, son expression devint très troublée. Il pouvait ressentir une énergie spirituelle dense émanant de ce sang. Une telle concentration d'énergie dans une si infime quantité... Quel niveau de culture cet individu avait-il atteint?
 
 Il sortit une fiole de jade et y enferma le sang. En cet instant, il sentait comme si une montagne pesait sur son cœur. Il regarda l'immense inscription « Punir » qui surplombait sa tête, ricana, puis s'élança plus vite encore, emportant Li Muwan avec lui.
 

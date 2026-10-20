@@ -12,7 +12,7 @@ Un son assourdissant résonna à travers la cité impériale de Shi Antique. Le 
 
 Ji Du ne ressemblait plus à un jeune homme; il dégageait désormais une aura de maturité. Il restait là, contemplant le ciel alors que ce son fracassant résonnait encore à ses oreilles.
 
-Le ciel était d'un bleu limpide. Une brise légère soufflait doucement, procurant une sensation de grand confort à quiconque la laissait effleurer sa peau.
+Le ciel était d'un bleu limpide, sans le moindre nuage. Une brise légère soufflait doucement, procurant une sensation de grand confort à quiconque la laissait effleurer sa peau.
 
 Devant lui se dressait le grand fourneau, et l'encens attendait d'être allumé.
 
@@ -120,7 +120,7 @@ L'ombre semblait se superposer à la statue, mais en le faisant, l'apparence de 
 
 C'était parce que l'âme originelle de Wang Lin s'était étendue pour recouvrir la statue de l'Ancêtre Ancien!
 
-Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme du Dao Antique... il a enfin réussi!! Je me demande quel genre de présent il obtiendra de l'Ancêtre Ancien... »
+Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme de l'Ancien Dao... il a enfin réussi!! Je me demande quel genre de présent il obtiendra de l'Ancêtre Ancien... »
 
 Sur la Montagne de l'Origine, Song Tian, qui n'assistait pas à la cérémonie de Ji Du, contemplait également la statue, et les mêmes pensées traversaient son esprit.
 
@@ -132,7 +132,7 @@ Les halos montèrent dans l'azur, créant des ondulations dans l'air. Une fois l
 
 Les neuf chants résonnèrent à travers la cité impériale de Shi Antique!
 
-Ce son était merveilleux, indescriptible. Des ondulations apparurent, suivies d'une lumière spectrale descendant soudainement du firmament. Puis, un faible rayon rouge apparut, s'intensifiant progressivement jusqu'à teindre le ciel d'un rouge sanglant!
+Ce son était merveilleux, indescriptible. Des ondulations apparurent, suivies d'une lumière spectrale descendant soudainement du firmament. Puis, un faible rayon rouge apparut, s'intensifiant progressivement jusqu'à transformer cette lueur sombre en un rouge sanglant!
 
 C'était une goutte de sang!
 

@@ -12,7 +12,7 @@ Dans la partie nord du territoire du Clan Dévorant la Lune, il existait une ter
 
 Neuf statues gigantesques trônaient dans ce lieu interdit. Il s'agissait de statues de neuf anciens dieux! Chaque statue était surmontée d'un vieil homme assis en méditation; ils tenaient des sceaux étranges et semblaient absorber de force le pouvoir des anciens dieux contenu dans les statues.
 
-Depuis l'Antiquité, après avoir trahi les anciens dieux, le Clan Dévorant la Lune avait toujours cherché un moyen de s'approprier leur puissance. Ils espéraient un jour laver l'humiliation du passé et faire des anciens dieux les esclaves du Clan Dévorant la Lune!
+Depuis l'Antiquité, après avoir trahi les anciens dieux, le Clan Dévorant la Lune avait toujours cherché un moyen de s'approprier leur puissance et prendre leur place. Ils espéraient un jour laver l'humiliation du passé et faire des anciens dieux les esclaves du Clan Dévorant la Lune!
 
 Afin d'y parvenir, l'ensemble du Clan Dévorant la Lune avait déployé tous ses efforts et mené des recherches pendant d'innombrables années avant de finalement trouver une méthode pour dévorer les anciens dieux!
 
@@ -78,7 +78,7 @@ La mer de flammes jaillissant du corps de Wang Lin s'intensifia jusqu'à remplir
 
 Ce feu blanc possédait le pouvoir de détruire le monde. Dès son apparition, il provoqua l'émanation de vastes quantités de gaz noirs provenant de la montagne située en dessous, comme si elle était raffinée. Avant que ce gaz noir ne puisse se propager, il se dissipa sous l'impact du feu.
 
-On ne pouvait voir que la montagne rétrécir et commencer à s'effondrer. Des fissures apparurent même sur la porte de pierre de la montagne. La jeune femme en vert trembla et fut transformée en gaz, disparaissant sans laisser de trace. Ce qui fut encore plus choquant, ce fut le sort de l'âme de la bête scellée par les sept lumières. Une partie de la lumière s'effondra et l'âme de la bête à l'intérieur fut brûlée jusqu'à mort. Cependant, l'intention Dao de la bête ne se dissipa pas; elle fusionna avec le feu!
+On ne pouvait voir que la montagne rétrécir et commencer à s'effondrer. Des fissures apparurent même sur la porte de pierre de la montagne. La femme en vert trembla et fut transformée en gaz, disparaissant sans laisser de trace. Ce qui fut encore plus choquant, ce fut le sort de l'âme de la bête scellée par les sept lumières. Une partie de la lumière s'effondra et l'âme de la bête à l'intérieur fut brûlée jusqu'à mort. Cependant, l'intention Dao de la bête ne se dissipa pas; elle fusionna avec le feu!
 
 En conséquence, le feu semblait désormais doté d'une volonté! Ce n'était pas une seule volonté, mais d'innombrables volontés qui, en fin de compte, seraient toutes soumises au contrôle de Wang Lin!
 

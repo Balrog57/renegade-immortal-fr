@@ -10,7 +10,7 @@ Le vieil homme en armure noire fronça les sourcils et ses yeux s'illuminèrent.
 
 Ses yeux brillaient intensément alors qu'il fixait cette énergie d'épée et il prit une profonde inspiration.
 
-« Il y a quelque chose de mystérieux dans ce fleuve formé par son Dao. Cependant, il vient tout juste de se former, il manque donc de puissance. Mais cette énergie d'épée... cette énergie d'épée est forte... très forte! La personne qui a créé cette énergie d'épée doit être un expert incomparable. Je crains que le niveau de culture de cette personne n'ait déjà atteint le stade du Briseur du Nirvana! »
+« Ce fleuve formé par son Dao possède bien un pouvoir divin, mais il n'en est qu'à l'état d'ébauche et son pouvoir d'intimidation reste insuffisant. Mais cette énergie d'épée... cette énergie d'épée est forte... très forte! La personne qui a créé cette énergie d'épée doit être un expert incomparable. Je crains que le niveau de culture de cette personne n'ait déjà atteint le troisième royaume du Briseur du Nirvana! »
 
 Wang Lin avait déployé ses deux atouts les plus puissants. Son objectif n'était pas de combattre, mais d'intimider l'ennemi!
 
@@ -26,7 +26,7 @@ Les environs étaient plongés dans un silence total, à l'exception du grondeme
 
 Dès que ce son retentit, le sol commença à se briser, mais les secousses s'arrêtèrent à une trentaine de mètres de Wang Lin.
 
-Les yeux de Wang Lin se rétrécirent. Il s'en souvenait maintenant: c'était cette voix qui l'avait gravement blessé d'innombrables fois sur le chemin de sa progression. S'il n'avait pas eu l'énergie de massacre et le Doigt de la Mort, il serait déjà mort.
+Les yeux de Wang Lin se rétrécirent. Il s'en souvenait maintenant: c'était cette voix qui l'avait gravement blessé d'innombrables fois sur le chemin de sa progression. S'il n'avait pas eu l'énergie d'extinction et de massacre, il serait déjà mort.
 
 Wang Lin déclara: « Je l'ai appris dans le Royaume Céleste! »
 
@@ -84,7 +84,7 @@ L'expression du vieil homme restait sereine. Il ouvrit les bras en ricanant et s
 
 Le vent reprit de plus belle et forma un vortex gigantesque dans le ciel. Ce tourbillon de vent aspira instantanément toute la fumée noire en son centre.
 
-Le vieil homme cria à nouveau: « Pluie! » Des gouttes de pluie noire apparurent à l'intérieur du vortex. Ces gouttes étaient imprégnées d'énergie démoniaque, elles n'avaient rien de naturel!
+Le vieil homme cria à nouveau: « Pluie! » Des gouttes de pluie noire apparurent à l'intérieur du vortex. Ces gouttes étaient imprégnées d'énergie démoniaque, et leur puissance était remarquable!
 
 « Tonnerre! » Un rugissement tonitruant retentit et un autre éclair noir surgit des nuages sombres. Au moment où le tonnerre apparut, des filaments de foudre noire se mirent à parcourir les gouttes de pluie.
 
@@ -99,6 +99,8 @@ Wang Lin leva la tête. Il atteignait un nouveau sommet; c'était un combat tel 
 L'énergie d'épée de Ling Tianhou était cet objet providentiel!
 
 Wang Lin frappa son sac de rangement, en sortit l'étendard d'âme, et cent millions de fragments d'âme s'envolèrent instantanément. Une fois apparus, ces fragments ne montèrent pas vers le ciel, mais plongèrent rapidement dans le fleuve des enfers.
+
+Dix mille fragments d'âme se fondirent entièrement dans le fleuve des enfers.
 
 Les cent millions de fragments d'âme fusionnèrent bientôt avec le fleuve des enfers.
 

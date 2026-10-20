@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 624 - Tie Him Up
 slug: le-lier
 ---
-Le vieil homme affichait une expression de tristesse alors qu'il tenait le Filet de Capture Céleste. Il décida de ne plus fuir et resta immobile. Il savait très bien qu'il n'était qu'un cultivateur Ascendant du stade intermédiaire sans réelle puissance. Il lui serait bien trop difficile d'échapper à Wang Lin, qui possédait son propre Dao et avait atteint le stade Ascendant par ses propres moyens.
+Le vieil homme affichait une expression de tristesse alors qu'il tenait le Filet de Capture Céleste. Il décida de ne plus fuir et resta immobile. Il savait très bien qu'il n'était qu'un cultivateur Ascendant du stade intermédiaire sans réelle puissance. Il lui serait bien trop difficile d'échapper à Wang Lin, qui possédait son propre Dao et avait véritablement atteint le stade Ascendant.
 
 Ce n'était qu'une question de temps avant qu'il ne soit capturé.
 
@@ -42,7 +42,7 @@ Le visage du vieil homme devint d'une pâleur extrême. Il recula précipitammen
 
 Alors que Wang Lin était stupéfait, la lumière verte brilla intensément et enveloppa le vieil homme. Le corps de celui-ci fut enveloppé de flammes alors qu'il tentait de s'échapper, mais dès leur apparition, elles se dissipèrent instantanément.
 
-Le vieil homme afficha une expression de désespoir et hurla: « Ingrat! Filet de Capture Céleste ingrat! Tu ne fais que me lier moi, et jamais l'ennemi! » Une lumière dorée jaillit du vieil homme mais disparut aussitôt.
+Le vieil homme afficha une expression de désespoir et hurla: « Traître! Filet de Capture Céleste traître! Tu ne fais que me lier moi, et jamais l'ennemi! » Une lumière dorée jaillit du vieil homme mais disparut aussitôt.
 
 « Ton propriétaire d'origine est certainement mort à cause de toi!!! » L'amertume dans le cœur du vieil homme était au-delà des mots. Il multiplia les incantations, mais même après avoir activé plus de dix sorts d'évasion différents, tous échouèrent. Il ne put que regarder la lumière verte l'envelopper totalement.
 
@@ -82,7 +82,7 @@ Alors qu'il volait, Wang Lin se retourna vers la femme. Ses yeux étaient emprei
 
 La vitesse de Wang Lin était fulgurante. En une seule enjambée, il avait déjà parcouru des dizaines de milliers de kilomètres.
 
-Sun Yunshan se tenait là, anxieux, près d'une dizaine de cultivateurs effondrés au sol. Il était profondément troublé quand ses yeux se contractèrent: un rayon de lumière surgit du lointain et se transforma en Wang Lin!
+Sun Yunshan se tenait là, anxieux, plus d'une dizaine de cultivateurs effondrés au sol. Il était profondément troublé quand ses yeux se contractèrent: un rayon de lumière surgit du lointain et se transforma en Wang Lin!
 
 Wang Lin tenait un homme et une femme dans ses mains. Le regard de Sun Yunshan tomba d'abord sur la silhouette féminine familière.
 
@@ -98,7 +98,7 @@ La bête semblait ravie. Elle poussa un rugissement avant de se transformer en u
 
 Il n'avait guère de patience pour les querelles entre ce frère et cette sœur.
 
-La silhouette de Wang Lin apparut à l'intérieur de la tour de la Tribu de l'Affinement de l'Âme. Il jeta négligemment le petit vieil homme au sol et s'assit en position du lotus. Ses yeux brillaient comme des torches alors qu'il touchait son sac de rangement; trois rayons d'énergie d'épée en jaillirent. Les pointes des épées dégageaient des auras froides et puissantes, qu'il pressa contre la peau du vieil homme.
+La silhouette de Wang Lin apparut à l'intérieur de la tour de la Tribu de l'Affinement de l'Âme. Il jeta négligemment le petit vieil homme au sol et s'assit en position du lotus. Ses yeux brillaient alors qu'il touchait son sac de rangement; trois rayons d'énergie d'épée en jaillirent. Les pointes des épées dégageaient des auras froides et puissantes, qu'il pressa contre la peau du vieil homme.
 
 Ces trois épées étaient celles de Zi Shu, de Mo Yang et de Hai Zhu. Après avoir été raffinées par Wang Lin, l'énergie d'épée des trois armes fusionna. La maîtrise combinée de ces trois lames acheva l'activation de la formation!
 
@@ -108,4 +108,4 @@ Wang Lin reprit lentement: « Une fois que votre Filet de Capture Céleste vous 
 
 Il avait découvert le nom de cette formation en fouillant l'âme de Hai Zhu! Les douze épées étaient divisées en groupes de trois. Si les douze étaient activées, elles formeraient la Formation des Douze Épées qui Tue le Ciel, dont le Saint de l'Épée Ling Tianhou était si fier!
 
-« Maintenant, dis-moi qui tu es! » Fort de son expérience, Wang Lin comprit immédiatement la lâcheté de cet homme. Sa voix, imprégnée d'une énergie démoniaque, tonna: « Si tu ne parles pas, j'utiliserai le sort de recherche d'âme. Ensuite, je raffinerai ton âme en un fragment pour que tu ne puisses jamais entrer dans le cycle de la réincarnation! »
+« Maintenant, dis-moi qui tu es! » Fort de son expérience, Wang Lin comprit immédiatement la lâcheté de cet homme. Sa voix, imprégnée d'un son démoniaque, tonna: « Si tu ne parles pas, j'utiliserai le sort de recherche d'âme. Ensuite, je raffinerai ton âme en un fragment pour que tu ne puisses jamais entrer dans le cycle de la réincarnation! »

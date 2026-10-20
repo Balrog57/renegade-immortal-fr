@@ -32,7 +32,7 @@ Su Jinshi s'était rendu à la Montagne de l'Affinement de l'Âme il y a de nomb
 
 Su Jinshi serra les dents et déclara: « Je peux te donner le jade d'extraction de l'âme, mais il me manque plus de 300 fragments d'âme pour raffiner ce drapeau en un drapeau de mille âmes. Si tu peux me fournir ces 300 fragments, je te laisserai consulter le jade. »
 
-Wang Lin regarda Su Jinshi. Vu son niveau de culture, il jugeait indigne de lui de voler cet objet. Il sortit son drapeau de mille âmes ordinaire qui contenait plus de 2 000 fragments, le secoua, et 300 fragments d'âme s'envolèrent.
+Wang Lin regarda Su Jinshi. Compte tenu de son rang, il jugeait indigne de lui de voler cet objet. Il sortit son drapeau de mille âmes ordinaire qui contenait plus de 2 000 fragments, le secoua, et 300 fragments d'âme s'envolèrent.
 
 Wang Lin tendit la main gauche et les 300 fragments se transformèrent en une perle noire de la taille d'un poing, qu'il lança à Su Jinshi.
 

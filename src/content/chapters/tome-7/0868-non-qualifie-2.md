@@ -18,7 +18,7 @@ Wang Lin gardait une expression calme et descendit sereinement vers la place. Co
 
 Wang Lin fronça légèrement les sourcils. Alors que l'immense main approchait, elle dégageait une bourrasque violente. S'il ne l'esquivait pas ou ne résistait pas, même s'il réussissait l'épreuve humaine, il en sortirait blessé.
 
-Wang Lin n'était pas du genre à se laisser malmener. Son regard se glaça et son troisième œil, situé entre ses sourcils, s'ouvrit instantanément. Une lumière rouge jaillit de son troisième œil en un éventail qui recouvrit immédiatement la main géante.
+Wang Lin n'était pas du genre à se laisser malmener. Son regard se glaça et son troisième œil, situé entre ses sourcils, s'ouvrit instantanément. Une lumière rouge jaillit de son troisième œil en un éventail qui se déploya au moment où il se retournait et recouvrit immédiatement la main géante.
 
 Sans s'arrêter, il continua sa marche. Tandis que la lueur rouge enveloppait la main, des bruits de craquements retentirent et celle-ci se dissipa. Wang Lin atterrit sur la place, joignit les mains en signe de respect envers Luo Su et dit calmement: « Je vous prie de bien vouloir me conseiller! »
 
@@ -54,7 +54,7 @@ Le cœur de Xi Zifeng battait la chamade et son visage rougit légèrement en fi
 
 Il y avait aussi ce garçon à la grosse tête. Bien qu'il affichait toujours un sourire idiot, une froideur se cachait derrière celui-ci.
 
-Le visage de Luo Su s'enfonça dans l'amertume tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours: en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son jeune cousin avait été tué à l'extérieur du réseau de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu!
+Le visage de Luo Su s'assombrit tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours: en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son jeune cousin avait été tué à l'extérieur du réseau de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu!
 
 Et ce Xu Mu se trouvait actuellement au Temple Céleste du Tonnerre, participant à la compétition pour le titre céleste!
 
@@ -76,9 +76,9 @@ Le colosse s'effondra dans un fracas retentissant. Au même moment, par la combi
 
 Cependant, juste au moment où les trois géants s'effondraient, Luo Su passa à l'action! C'était la première fois qu'il agissait physiquement au lieu d'utiliser son sens divin. Il se déplaça comme un éclair. Sa vitesse était phénoménale et, alors qu'il convergeait vers Wang Lin, il pointa son doigt vers lui!
 
-En lançant cette attaque, Luo Su engagea toute sa culture. Sa puissance de stade intermédiaire du Scruteur du Nirvana jaillit soudainement de son doigt. Le regard de Wang Lin se glaça. Il était trop tard pour reculer; il ouvrit donc la bouche et cracha le Sceau Céleste.
+En lançant cette attaque, Luo Su engagea toute sa culture. Sa puissance, au sommet du stade intermédiaire du Scruteur du Nirvana, jaillit soudainement de son doigt. Le regard de Wang Lin se glaça. Il était trop tard pour reculer; il ouvrit donc la bouche et cracha le Sceau Céleste.
 
-Le doigt de Luo Su percuta le Sceau Céleste, faisant trembler l'objet. Wang Lin ressentit immédiatement une force dévastatrice en émaner. Cette force n'affecta pas son corps, mais elle projeta directement son âme originelle hors de lui. Bien qu'elle ne l'ait expulsée que d'une dizaine de centimètres et que Wang Lin l'ait aussitôt ramenée dans son corps, Luo Su afficha un sourire sinistre, retira son doigt et recula!
+Le doigt de Luo Su percuta le Sceau Céleste, faisant trembler l'objet. Wang Lin ressentit immédiatement une force puissante en émaner. Cette force n'affecta pas son corps, mais elle projeta directement son âme originelle hors de lui. Bien qu'elle ne l'ait expulsée que d'une dizaine de centimètres et que Wang Lin l'ait aussitôt ramenée dans son corps, Luo Su afficha un sourire sinistre, retira son doigt et recula!
 
 « Non qualifié! » Luo Su écarta sa grande manche en désignant une autre personne dans le ciel: « Toi, descends! »
 
@@ -88,7 +88,7 @@ Le cultivateur désigné par Luo Su descendit sans mot dire. Pourtant, à cet in
 
 « Non qualifié? » Wang Lin était venu participer à cette compétition pour gagner et il était déterminé à se classer parmi les premiers. Les paroles de Luo Su avaient touché sa limite ultime!
 
-S'il avait été réellement non qualifié, cela aurait été acceptable, mais il était évident que ce Luo Su le sabotait délibérément. Le regard de Wang Lin devint d'une froideur extrême alors qu'il s'avançait d'un pas lourd. Il ne prit même pas la peine de regarder le cultivateur qui descendait. Ce dernier sentit un vent glacial passer, ce qui fit changer son expression et le poussa à s'écarter précipitamment tout en pestant intérieurement.
+S'il avait été réellement non qualifié, cela aurait été acceptable, mais il était évident que ce Luo Su le sabotait délibérément. Le regard de Wang Lin devint d'une froideur extrême alors qu'il s'avançait d'un pas lourd. Il ne prit même pas la peine de regarder le cultivateur qui descendait. Ce dernier sentit un vent violent lui fouetter le visage, ce qui fit changer son expression et le poussa à s'écarter précipitamment tout en pestant intérieurement.
 
 « Tu oses dire que je ne suis pas qualifié?! » Tandis que Wang Lin approchait, une intention meurtrière monstrueuse explosa de son corps. Le stade intermédiaire du Scruteur du Nirvana n'était pas un sommet inatteignable. Wang Lin avait emprunté le chemin du massacre dès le début de sa culture. Wang Lin venait d'atteindre le stade initial du Scruteur du Nirvana; bien qu'il ne fût pas certain de vaincre un cultivateur de ce niveau, il ne pourrait se satisfaire d'un simple départ! De plus, avec la présence de Qing Shui, Wang Lin n'avait rien à craindre!
 

@@ -20,11 +20,11 @@ Ses yeux s'illuminèrent et il murmura: « À l'époque, le grand fourneau préc
 
 En d'autres circonstances, Wang Lin n'aurait même pas songé à ce fourneau. Après tout, le Serpent aux yeux de lune était tout simplement trop terrifiant. Une fois éveillé, il provoquerait une catastrophe.
 
-Cependant, en cet instant, de nombreux cultivateurs se trouvaient à l'extérieur pour servir de paratonnerre à la colère du serpent; Wang Lin serra donc les dents et prit sa décision.
+Cependant, en cet instant, de nombreux cultivateurs se trouvaient à l'extérieur pour dissiper la colère du serpent; Wang Lin serra donc les dents et prit sa décision.
 
 Son corps vacilla tandis qu'il continuait de progresser à travers le Serpent aux yeux de lune, mais il déploya également son Sens Divin. Wang Lin savait que l'intérieur de la créature n'était pas sûr et que de petits Serpents aux yeux de lune pouvaient y surgir à tout instant. Lorsqu'il avait tenté d'arracher l'os auparavant, il était tombé sur un petit spécimen et il lui avait fallu énormément d'efforts pour s'en échapper.
 
-À ce moment précis, d'innombrables cultivateurs encerclaient la planète. Ces derniers étaient parfaitement conscients de la cruauté de Xu Mu; cela était gravé dans leurs os par la poursuite qu'ils menaient.
+À ce moment précis, d'innombrables cultivateurs encerclaient la planète. Ces derniers, le regard hésitant, étaient parfaitement conscients de la cruauté de Xu Mu; cela était gravé dans leurs os par la poursuite qu'ils menaient.
 
 Le moindre faux pas signifiait la mort. Lorsqu'ils virent Wang Lin pénétrer dans la planète, leur première pensée fut que cet endroit recelait quelque chose d'étrange.
 
@@ -38,7 +38,7 @@ Et cette bête ne figurait dans aucun registre familial. Cela signifiait qu'elle
 
 « Il n'est pas difficile de tuer cette bête! » Yao Yunhai détourna le regard. Membre de la troisième génération de la famille Yao, bien que son niveau de culture ne fût pas élevé — seulement au sommet du stade Corporel Yang —, il était extrêmement orgueilleux. À ses yeux, le Serpent aux yeux de lune n'était pas digne d'intérêt.
 
-Yao Bingyun fixa le brouillard noir formé par le serpent. Ses yeux brillèrent et elle fonça droit dans la brume noire. Son mouvement servit de déclic: dès qu'elle eut pénétré la brume, ceux qui possédaient une culture puissante s'élancèrent à ses côtés.
+Yao Bingyun fixa le brouillard noir formé par le serpent. Ses yeux brillèrent et elle fonça droit dans la brume noire. Son mouvement servit de déclic: dès qu'elle eut pénétré la brume, certains de ceux qui possédaient une culture puissante s'élancèrent à sa suite.
 
 Yao Yunhai fut l'un d'eux. Perché sur son épée volante, il s'engouffra dans le brouillard noir.
 
@@ -68,7 +68,7 @@ Yao Yunhai affichait un air arrogant tandis que son Sens Divin ravageait la zone
 
 Des fissures apparurent soudainement derrière ces derniers, d'où s'échappa une aura glaciale. Un Serpent aux yeux de lune de 330 mètres de long jaillit tel un éclair. La quantité de tentacules s'agitant autour de son corps était terrifiante.
 
-Ce serpent était d'une rapidité inouïe. Dès sa sortie, il dévora un cultivateur avant que quiconque ne puisse réagir, puis son corps percuta un autre homme. Ce dernier cracha du sang, les yeux écarquillés par la terreur; il abandonna son corps physique pour tenter de précipiter son âme originelle dans la terre.
+Ce serpent était d'une rapidité inouïe. Dès sa sortie, il dévora un cultivateur avant que quiconque ne puisse réagir, puis son corps percuta un autre homme. Ce dernier cracha du sang, les yeux écarquillés par la terreur; il abandonna son corps physique pour tenter de plonger son âme originelle dans la terre.
 
 Tout s'était déroulé en un éclair. Les pupilles de Yao Yunhai se rétractèrent et sa chair fut parcourue d'un frisson. Il recula sans hésiter, ses mains formant un sceau pour lancer un sortilège. Cependant, alors que son attention était totalement focalisée sur le serpent devant lui, Wang Lin surgit du sol derrière lui.
 

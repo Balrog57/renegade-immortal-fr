@@ -24,7 +24,7 @@ Maître Yan Leizi reprit calmement: « La Pierre de l'Investiture Céleste s'est
 
 « Luo Su, entre dans le lac du tonnerre! » La voix de Maître Yan Leizi résonna dans toute la zone tandis qu'un rayon de lumière verte s'approchait. Cette lumière se mua devant tout le monde en un homme d'âge moyen vêtu de robes vertes.
 
-L'homme joignit les mains en signe de respect et déclara: « Selon les ordres du Seigneur du Temple! » Tout en parlant, il descendit vers la place. Il se tint au sommet de celle-ci, les mains derrière le dos, une trace d'orgueil perçant son expression sereine.
+L'homme joignit les mains en signe de respect et déclara: « Selon les ordres du Seigneur du Temple! » Tout en parlant, il descendit vers la place. Il se tint sur les dalles bleues de la place, les mains derrière le dos, une trace d'orgueil perçant son expression sereine.
 
 Son apparition attira l'attention des cultivateurs environnants. Certains connaissaient l'identité de Luo Su, et les murmures commencèrent.
 
@@ -34,7 +34,7 @@ Son apparition attira l'attention des cultivateurs environnants. Certains connai
 
 « Ce Luo Su n'est pas un homme ordinaire, surtout au regard de l'évolution de son sens divin. On dit que même certains vieux monstres célèbres font son éloge! »
 
-Les discussions s'intensifièrent dans la zone. Luo Su leva la tête et fixa les centaines de juniors du regard. D'un ton calme, il déclara: « À mes yeux, aucun d'entre vous n'est qualifié pour devenir l'un des 108 Célestes, car vous tuer serait aussi facile que d'écraser des fourmis! Désormais, je vais désigner l'un d'entre vous. Quiconque je pointerai devra descendre! »
+Les discussions s'intensifièrent dans la zone. Luo Su leva la tête et fixa les centaines de juniors du regard. D'un ton calme, il déclara: « À mes yeux, aucun d'entre vous n'est qualifié pour devenir l'un des 108 titres célestes, car vous tuer serait aussi facile que d'écraser des fourmis! Désormais, je vais désigner l'un d'entre vous. Quiconque je pointerai devra descendre! »
 
 Après les paroles de Luo Su, la majorité des cultivateurs sortis des réseaux de transfert le regardèrent d'un air sombre. C'était particulièrement le cas de Xu Ting; ses yeux brillèrent d'une lueur rouge, mais il resta silencieux.
 
@@ -66,7 +66,7 @@ Il y avait désormais un candidat de moins parmi les 325 initiaux.
 
 Luo Su fronça les sourcils, son regard balayant les cultivateurs suspendus dans le ciel, puis il désigna une personne au hasard. Le cultivateur pointé serra les dents et descendit en hâte. Une fois sur la place, il joignit les mains devant Luo Su et dit respectueusement: « Senior, je vous prie de m'instruire! »
 
-L'expression de Luo Su s'adoucit légèrement, mais il ne répondit pas. Le géant doré fit un pas en avant et utilisa le même sort qu'auparavant.
+L'expression de Luo Su s'adoucit légèrement, mais il ne répondit pas. Le géant doré fit un pas en avant et, avec le même sort qu'auparavant, abattit son poing.
 
 Le cultivateur serra les dents, ses mains formant un sceau tandis qu'une lumière blanche enveloppait son corps pour tenter d'endiguer le géant. Cependant, la lumière blanche s'effondra instantanément face au poing doré. Le cultivateur fut repoussé; il mordit alors l'extrémité de sa langue et cracha du sang pour tenter de bloquer l'impact.
 
@@ -86,7 +86,7 @@ Environ une heure plus tard, plus de la moitié des cultivateurs avaient été t
 
 Le regard de Luo Su était glacial lorsqu'il tendit sa main droite et que la main gigantesque apparut, chargeant directement vers Xu Ting. Alors que la main se refermait, Xu Ting forma un sceau entre ses mains. Un gaz noir l'enveloppa, prenant la forme d'une créature démoniaque. Ce démon poussa un rugissement et s'entrelaça avec la main géante. Xu Ting ricana en s'élançant. Il n'était pas venu sur cette place simplement pour être testé; en s'avançant, il joignit ses mains avant de les écarter brusquement. Un gaz noir jaillit de ses paumes pour former une lance obscure.
 
-Un éclair de froideur traversa les yeux de Luo Su, puis le géant doré se précipita vers Xu Ting. Ce dernier pivota et renonça à foncer vers Luo Su; au lieu de cela, il rejoignit le géant doré en un seul pas et lança sa pique!
+Un éclair de froideur traversa les yeux de Luo Su, puis le géant doré se précipita vers Xu Ting. Ce dernier pivota et renonça à foncer vers Luo Su; au lieu de cela, il rejoignit le géant doré en un seul pas et frappa de sa lance!
 
 Le géant doré lança aussitôt son poing droit. Cependant, juste au moment où la lance noire allait entrer en collision avec le coup, elle se tordit soudainement. Ce qui était auparavant la pointe de la lance se mua instantanément en un étrange serpent noir au corps gracile. Après avoir ouvert la gueule, il atteignit une centaine de mètres de long. Cette scène, d'une étrangeté absolue, rendit les cultivateurs environnants extrêmement sérieux.
 

@@ -30,11 +30,11 @@ Il s'agissait des trésors « Pseudo-Vide du Nirvana »!
 
 Bien que ces derniers ne fussent pas aussi rares que les trésors du Nirvana, il n'en existait qu'une quantité dérisoire. La quasi-totalité se trouvait entre les mains de cultivateurs briseurs de Nirvana au sommet de leur puissance.
 
-La condition pour rejoindre le groupe des Anciens de l'Alliance était de posséder un trésor « Pseudo-Vide du Nirvana »!
+L'une des conditions pour rejoindre le groupe des Anciens de l'Alliance était de posséder un trésor « Pseudo-Vide du Nirvana »!
 
-Outre leur puissance extrême, ces trésors jouaient également un rôle crucial pour aider un cultivateur à résister aux cinq Fléaux Célestes.
+Outre leur puissance extrême, ces trésors jouaient également un certain rôle pour aider un cultivateur à résister aux cinq Fléaux Célestes.
 
-Les trésors « Pseudo-Vide du Nirvana » étaient eux-mêmes divisés en différentes qualités: basse, moyenne, haute et parfaite, comme les trésors ordinaires. Après tout, ces objets avaient été laissés par des ancêtres; leurs descendants ne savaient même pas comment les fabriquer, et encore moins comment les catégoriser correctement.
+Les trésors « Pseudo-Vide du Nirvana » étaient eux-mêmes divisés, de façon assez floue, en différentes qualités: basse, moyenne, haute et parfaite, comme les trésors ordinaires. Après tout, ces objets avaient été laissés par des ancêtres; leurs descendants ne savaient même pas comment les fabriquer, et encore moins comment les catégoriser correctement.
 
 « Il peut absorber l'intention meurtrière d'un cultivateur, générer une illusion et posséder une telle puissance... Le trésor entre les mains de Wang Lin est au moins un Pseudo-Vide du Nirvana de haute qualité, et il pourrait même s'agir d'un Pseudo-Vide du Nirvana parfait! » La belle femme eut un souffle coupé, la terreur brillant dans ses yeux.
 
@@ -52,7 +52,7 @@ Il était à bout de forces et n'avait pu terroriser l'homme en noir et la belle
 
 À cet instant, il n'avait pas le temps de s'asseoir pour récupérer. Il devait profiter de sa connaissance de la disposition de la grotte pour mettre de la distance entre lui et ses poursuivants.
 
-Après une profonde inspiration, Wang Lin traversa les diverses restrictions et atteignit bientôt l'un des yeux de restriction marqués sur la carte. Après un examen rapide, il confirma immédiatement sa supposition: quelqu'un était arrivé ici avant lui et avait brisé l'œil de restriction. Il ignorait à quel étage ces individus avaient déjà progressé.
+Après une profonde inspiration, Wang Lin traversa les diverses restrictions et atteignit bientôt l'un des yeux de restriction marqués sur la carte. Après un examen rapide, il confirma immédiatement sa supposition: quelqu'un était arrivé ici avant lui et avait ouvert l'œil de restriction. Il ignorait à quel étage ces individus avaient déjà progressé.
 
 Il traîna son corps épuisé vers le palais central entouré de brume. Les six premiers étages de la Grotte de l'Empereur Céleste présentaient une structure similaire. Grâce à sa connaissance des lieux, bien qu'il fût plus lent que d'habitude, il atteignit rapidement le centre du deuxième étage, là où se trouvait l'entrée du troisième.
 
@@ -72,7 +72,7 @@ Dès que les bougies prirent feu, la lueur des flammes enveloppa Wang Lin, et il
 
 Déplacer les chandeliers n'avait servi qu'à tromper autrui; même les traces de mouvement n'étaient là que pour détourner l'attention du fait essentiel: les chandeliers devaient être allumés.
 
-Le temps s'écoula lentement et, en un clin d'œil, Wang Lin avait passé deux mois dans la Grotte de l'Empereur Céleste. Durant cette période, il n'avait eu qu'un bref moment pour se soigner; le reste du temps fut consacré à l'exploration de chaque étage.
+Le temps s'écoula lentement et, en un clin d'œil, Wang Lin avait passé deux mois dans la Grotte de l'Empereur Céleste. Durant cette période, il n'avait eu chaque jour qu'un bref moment pour se soigner; le reste du temps fut consacré à l'exploration de chaque étage.
 
 Plus il s'enfonçait, plus les restrictions devenaient puissantes. Malgré ses connaissances et les indications de la carte, il lui fallut un temps considérable pour les franchir.
 

@@ -40,7 +40,7 @@ Une fois le démon parti, le cœur de Li Muwan se calma peu à peu. Elle hésita
 
 Les yeux de Wang Lin brillèrent d'un éclat singulier. Aucun cultivateur ne se trouvait à moins de cent lieues de lui. Tous les corps des défunts étaient enveloppés par le tendon de dragon, flottant derrière lui telle une cape.
 
-Cette bataille allait faire résonner le nom de Wang Lin dans toute la région de Nan Dou. Au moins mille cadavres s'étendaient derrière lui, obscurcissant le ciel. Le symbole rouge « Punir » qui survolait sa tête n'était plus une tentation, mais le signe distinctif d'un puissant cultivateur.
+Cette bataille allait faire résonner le nom de Wang Lin dans un rayon d'un million de lieues autour de Nan Dou. Au moins mille cadavres s'étendaient derrière lui, obscurcissant le ciel. Le symbole rouge « Punir » qui survolait sa tête n'était plus une tentation, mais le signe distinctif d'un puissant cultivateur.
 
 « C'est un démon », dit calmement Wang Lin, tout en fixant les deux rayons de lumière qui fonçaient vers lui depuis plus de mille lieues. Il ferma les yeux un instant avant de faire demi-tour pour partir.
 

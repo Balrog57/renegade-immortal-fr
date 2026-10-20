@@ -100,7 +100,7 @@ La Tombe de l'Ordre Ancien!
 
 Les yeux de Wang Lin s'illuminèrent et il était sur le point de franchir la faille. À cet instant précis, le brouillard environnant gronda. Wang Lin se retourna et ses pupilles se contractèrent.
 
-Tandis que la brume derrière lui tourbillonnait, une silhouette apparut lentement. C'était un scribe d'âge moyen au visage très beau, presque féminin! Cependant, son teint était légèrement pâle, signe qu'il avait eu beaucoup de mal à atteindre cet endroit.
+Tandis que la brume derrière lui tourbillonnait, une silhouette apparut lentement. C'était un lettré d'âge moyen au visage très beau, presque féminin! Cependant, son teint était légèrement pâle, signe qu'il avait eu beaucoup de mal à atteindre cet endroit.
 
 Neuf statues étranges et chauves entouraient son corps. Chacune affichait une expression différente: colère, joie, tristesse, etc. Elles encerclaient l'érudit aux traits fins et dégageaient une lueur jaune qui lui avait permis d'arriver jusqu'ici!
 

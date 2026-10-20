@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1486 - Elder Shen!!"
 slug: ancien-shen
 ---
-Le corps émacié était complètement décomposé. Il n'y avait plus de peau, seulement des traces de chair et de sang noirs. Cela ne ressemblait plus à un être humain, mais à un cadavre ayant pourri durant d'innombrables années!
+Le corps émacié était complètement décomposé. Il n'y avait plus de peau, seulement des traces de chair et de sang noirs. Cela ne ressemblait plus à un être humain, mais à un cadavre mort depuis d'innombrables années et pas encore entièrement pourri!
 
 Des vaisseaux sanguins étaient enfouis dans la chair, semblant lutter pour maintenir un semblant de vie. Seul au niveau de la poitrine, là où les vaisseaux se croisaient, on pouvait apercevoir un cœur rouge sombre de la taille d'un poing.
 
 Ce cœur battait; pourtant, ce qu'il dégageait n'était pas une force vitale, mais une puissante aura de mort!
 
-Un œil rouge sang fixait Wang Lin, révélant une lueur de colère et de peur.
+Deux yeux rouge sang fixaient Wang Lin, révélant une lueur de colère et de peur.
 
 Une aura redoutable émanant d'un cultivateur du Cinquième Ciel de la Calamité se dégageait de son corps. Cette puissance concentrait la sinistre aura de mort environnante pour la transformer en les hurlements d'innombrables âmes. C'était comme si des esprits tourmentés rugissaient tous contre Wang Lin.
 
@@ -38,7 +38,7 @@ Tout cela se produisit en un instant. Un instant plus tard, Wang Lin saisit la t
 
 Wang Lin ne perdit pas une seconde en paroles. Son énergie originelle s'activa et il commença une recherche d'âme pour obtenir les réponses qu'il cherchait!
 
-« Tu oses me tuer?! Ma famille Xiang est une branche de l'ancienne famille Dong Lin! Je suis issu de cette lignée, je m'appelle Dong Lintai! Comment oses-tu me tuer?! »
+« Tu oses me tuer?! Ma famille Xiang est une branche de l'ancienne famille Dong Lin! Je suis un membre collatéral de cette lignée, je m'appelle Dong Lintai! Comment oses-tu me tuer?! »
 
 Une folie désespérée brûlait sous la peur dans ses yeux. Il hurlait tandis que Wang Lin procédait à la recherche d'âme.
 

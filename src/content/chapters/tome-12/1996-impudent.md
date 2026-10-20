@@ -70,7 +70,7 @@ Le visage des deux petites filles était d'une pâleur mortelle; elles paraissai
 
 Wang Lin n'hésita pas. Dès qu'elles apparurent à ses côtés, il leva le pied droit et écrasa la tête de l'Ancêtre Céleste. La tête trembla, et deux yeux souillés de sang doré résiduel furent expulsés du crâne!
 
-La tête de l'Ancêtre Céleste contenait la malédiction ancestrale, mais celle-ci avait été brisée par l'Empereur Céleste et ses compagnons. Lorsque Wang Lin avait recueilli l'âme de l'Empereur Céleste, il en avait pris conscience et ne craignait pas la malédiction.
+La tête de l'Ancêtre Céleste contenait la malédiction ancestrale, mais celle-ci avait été brisée et partagée entre Jiu Di et trois autres, dont l'Empereur Céleste. Lorsque Wang Lin avait recueilli l'âme de l'Empereur Céleste, il en avait pris conscience et ne craignait pas la malédiction.
 
 Les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule paire; une fois expulsés, les deux fillettes s'en saisirent immédiatement.
 
@@ -78,7 +78,7 @@ Les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule paire; une f
 
 Les yeux de Dao Yi devinrent rouge sang alors qu'il s'élançait, enveloppé d'un gaz noir!
 
-« Wu Feng, Hai Zi, attaquez immédiatement! » Jiu Di se sentait profondément humilié. Il était un Grand Empyréen ayant vécu des éons, et pourtant, il devait appeler les autres à agir avec lui. C'était une rare ignominie pour lui.
+« Wu Feng, Hai Zi, agissez ensemble! » Jiu Di se sentait profondément humilié. Il était un Grand Empyréen ayant vécu des éons, et pourtant, il devait appeler les autres à agir avec lui. C'était une rare ignominie pour lui.
 
 « Cet enfant ne doit pas rester en vie! » hurlait Jiu Di, dévoré par l'intention meurtrière. Alors qu'il s'approchait, le Grand Empyréen Gémeaux, redevenue deux fillettes, tenait chacune un œil. Malgré leur pâleur, leurs regards étaient déterminés. Leurs corps tremblèrent tandis qu'elles fusionnaient à nouveau pour redevenir la véritable Gémeaux et se précipitaient vers Jiu Di et Dao Yi!
 
@@ -88,7 +88,7 @@ Tandis que Gémeaux résistait à Jiu Di et Dao Yi, les yeux de Wang Lin s'illum
 
 Un sang doré éclaboussa l'air alors que la paire d'oreilles, brillant intensément, vola vers Wu Feng!
 
-« Grand Empyréen Wu Feng, voici ce dont vous avez besoin! Je ne vous accompagnerai pas! » Le Grand Empyréen Wu Feng leva la main droite et les rattrapa. Il rangea silencieusement les oreilles et recula de quelques pas. Il n'avait nul besoin de prendre part au combat, surtout avec la malédiction qui le rongeait. Il ne voulait pas agir; il devait retourner dans sa grotte pour se libérer du mal!
+« Grand Empyréen Wu Feng, voici ce dont vous avez besoin! Je ne vous raccompagne pas! » Le Grand Empyréen Wu Feng leva la main droite et les rattrapa. Il rangea silencieusement les oreilles et recula de quelques pas. Il n'avait nul besoin de prendre part au combat, surtout avec la malédiction qui le rongeait. Il ne voulait pas agir; il devait retourner dans sa grotte pour se libérer du mal!
 
 En battant en retraite, Wu Feng resta silencieux et ne lança à Wang Lin qu'un regard profond. Puis, il fit volte-face et disparut!
 

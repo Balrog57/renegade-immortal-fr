@@ -50,9 +50,9 @@ Dans la grotte, Wang Lin ouvrit les yeux. Il contempla le jade dans sa main et r
 
 Il était tout simplement impossible de maîtriser ce sort! Au mieux, on ne pouvait atteindre que le stade intermédiaire!
 
-Wang Lin laissa échapper un froid reniflement et ferma les yeux. Il continua de s'immerger dans la gravure des empreintes sur son âme. À l'approche du crépuscule du troisième jour, alors que le ciel était teinté d'or, Wang Lin ouvrit les yeux.
+Wang Lin laissa échapper un froid reniflement et ferma les yeux. Il continua de s'immerger dans la gravure des empreintes sur son âme. À l'approche du crépuscule du troisième jour, alors que le ciel était teinté d'or et qu'une pointe de pénombre s'y mêlait, Wang Lin ouvrit les yeux.
 
-« Exactement comme prévu par le temps indiqué dans le jade. Trois jours pour graver 100 000 empreintes sur l'âme... » Wang Lin leva sa main droite pour former un sceau et pointa l'espace entre ses sourcils. Une énergie d'âme jaillit de son front et se manifesta rapidement sous la forme d'une petite silhouette au-dessus de lui.
+« Exactement comme prévu par le temps indiqué dans le jade. Trois jours pour graver 100 000 empreintes sur l'âme... » Wang Lin leva sa main droite pour former un sceau et pointa l'espace entre ses sourcils. Une énergie d'âme jaillit du sommet de son crâne et se manifesta rapidement sous la forme d'une petite silhouette au-dessus de lui.
 
 Cette petite personne ne mesurait que trois pouces de haut et était formée par les 100 000 empreintes dans l'âme de Wang Lin. Elle ne lui ressemblait pas; elle n'avait qu'une paire d'yeux, sans nez, ni bouche, ni oreilles.
 

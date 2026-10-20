@@ -34,7 +34,7 @@ Pourtant, au plus profond de son âme, une trace de tristesse persistait.
 
 Et à présent, Qing Shui se tenait devant lui pour faire barrage à Dieu de Sang et à la rétribution divine. Tout cela pour un sort nommé « Appel du Vent » et un héritage qui n'existait même pas.
 
-L'expression de Dieu de Sang était d'une extrême noirceur. À cet instant, les gouttes de pluie qui l'entouraient firent vaciller sa détermination. Il n'était pas aussi intrépide qu'il en avait l'air; en vérité, quelques mois auparavant, lorsqu'il avait encaissé la frappe brise-étoiles du jeune enfant de l'ancien dieu, il avait été gravement blessé.
+L'expression de Dieu de Sang était d'une extrême noirceur. À cet instant, les gouttes de pluie qui l'entouraient firent vaciller sa détermination. Il n'était pas aussi intrépide qu'il en avait l'air; en vérité, quelques mois auparavant, dans le corps du Serpent aux yeux de lune, lorsqu'il avait encaissé la frappe brise-étoiles du jeune enfant de l'ancien dieu, il avait été gravement blessé.
 
 Il avait cependant réprimé sa douleur par la force et utilisé une technique secrète transmise par son clan pour se rétablir. Néanmoins, s'il devait affronter Qing Shui maintenant, le danger serait immense.
 

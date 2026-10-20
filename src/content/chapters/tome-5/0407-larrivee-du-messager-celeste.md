@@ -48,7 +48,7 @@ Une rumeur se propageait désormais sur toute la planète Suzaku.
 
 Il y avait de cela d'innombrables années, le Clan de l'Immortel Délaissé avait mis au point une technique: en sacrifiant un grand nombre de membres du clan, ils pouvaient transformer un membre de leur lignée en cultivateur.
 
-Au fil des siècles, le Clan de l'Immortel Délaissé avait ainsi converti neuf individus. Comme ces derniers ne possédaient pas les corps originaux du clan, ils n'étaient pas entravés par le sceau; ils étaient donc partis rejoindre diverses sectes.
+Au fil des siècles, le Clan de l'Immortel Délaissé avait ainsi converti neuf individus. Comme ces derniers n'étaient plus soumis au système du clan, ils n'étaient pas entravés par le sceau; ils étaient donc partis rejoindre diverses sectes.
 
 C'était là la carte la plus puissante que le Clan de l'Immortel Délaissé jouait pour cette guerre.
 

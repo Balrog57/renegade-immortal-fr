@@ -40,7 +40,7 @@ Le temps passa, seconde après seconde. Pour la première fois, l'Enseignant Imp
 
 « Wang Lin, je n'ai aucune malice, et tout ce que j'ai dit est vrai. Il n'y a aucun différend entre nous, je ne vous ferai donc aucun mal. Je veux seulement lutter pour un avenir libre pour mon clan.
 
-« Je vous en prie, aidez-moi!
+« Ne serait-ce qu'une fois, je vous en prie, aidez-moi!
 
 « Personne ne veut être esclave toute sa vie, et même vos futures générations seront les esclaves d'autrui. Pouvez-vous imaginer cela? Les enfants de mon clan ont vu leur destin scellé dès leur naissance! Cette situation perdure depuis d'innombrables années. Nous devons lutter, nous voulons lutter, nous voulons nous libérer!
 

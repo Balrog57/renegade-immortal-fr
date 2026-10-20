@@ -60,7 +60,7 @@ L'expression de Maître Pin Cendré devint féroce. Serrant les dents, il dépla
 
 Sans hésiter, Maître Pin Cendré lança la perle sur l'âme originelle de la vieille femme.
 
-« Invoque, Défiant! » rugit Maître Pin Cendré, tandis que la perle émettait une lueur spectrale. Elle attira la lumière aux sept couleurs et l'absorba totalement.
+« Invoque, Défieur! » rugit Maître Pin Cendré, tandis que la perle émettait une lueur spectrale. Elle attira la lumière aux sept couleurs et l'absorba totalement.
 
 Peu après, la perle s'effondra et un éclair aux sept couleurs jaillit vers l'âme originelle de la vieille femme.
 
@@ -104,7 +104,7 @@ Le scorpion mesurait des dizaines de milliers de pieds de long. Sa queue fouetta
 
 Wang Lin fit soudainement volte-face, un éclat froid dans les yeux. Il leva sa main gauche et décocha un coup de poing contre la queue du scorpion! Un grondement tellurique retentit, faisant trembler la queue qui s'effondra instantanément.
 
-À cet instant précis, Maître Pin Cendré surgit également, les yeux injectés de sang. Il sortit une autre perle et, faisant fi de la douleur lancinante, il la lança en criant: « Invoque, Défiant! »
+À cet instant précis, Maître Pin Cendré surgit également, les yeux injectés de sang. Il sortit une autre perle et, faisant fi de la douleur lancinante, il la lança en criant: « Invoque, Défieur! »
 
 À peine eut-il parlé que toute la lumière aux sept couleurs du monde convergea vers la perle pour y être engloutie. Puis, la perle s'effondra brusquement.
 

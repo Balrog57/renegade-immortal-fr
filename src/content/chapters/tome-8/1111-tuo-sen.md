@@ -48,7 +48,7 @@ L'expression de Zhou Wutai était sombre. Très peu des cultivateurs survolant l
 
 Heureusement, bien que ces cultivateurs appartenaient à de nombreuses factions différentes, aucune n'importuna les locaux. Tous fonçaient vers la Mer des Démons.
 
-Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, une ombre gigantesque apparut. Le soleil fut occulté par cette masse immense; à cet instant, la planète entière fut plongée dans l'obscurité. Ces ombres étaient les palais du Temple Céleste du Tonnerre. Ils ne descendirent pas sur la planète Suzaku, mais restèrent en orbite. Après tout, la planète Suzaku était à moitié dévastée et ne pouvait supporter les puissantes fluctuations émanant de ces palais.
+Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, une ombre gigantesque apparut. Le soleil fut occulté par cette masse immense; peu à peu, la surface de la planète fut plongée dans la demi-obscurité. Ces ombres étaient les palais du Temple Céleste du Tonnerre. Ils ne descendirent pas sur la planète Suzaku, mais restèrent en orbite. Après tout, la planète Suzaku était à moitié dévastée et ne pouvait supporter les puissantes fluctuations émanant de ces palais.
 
 Peu après l'apparition des ombres, des cercueils commencèrent à descendre. Il y avait des cercueils de toutes tailles, entourés par une multitude de cultivateurs.
 
@@ -62,7 +62,7 @@ La femme qui venait de parler était Xi Zifeng. Elle lança un regard glacial au
 
 Sur ce, elle l'ignora, contemplant la statue d'un regard complexe avant de soupirer et de s'envoler. Le cultivateur arrogant fronça les sourcils et examina attentivement l'œuvre. Plus il la scrutait, plus elle lui semblait familière, jusqu'à ce que ses yeux s'écarquillent de terreur. « C'est... le Céleste du Tonnerre, Xu Mu! »
 
-Bien que Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, dont les massacres avaient été colossaux, et qu'il n'était pas homme à provoquer. Sentant qu'il serait vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
+Bien que Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, dont les massacres avaient été colossaux, et qu'il n'était pas homme à provoquer. Trouvant mesquin et vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
 
 Maître Yan Leizi et son entourage, ainsi que les membres de la Secte des Cadavres, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
 

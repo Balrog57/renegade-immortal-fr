@@ -44,7 +44,7 @@ Wang Lin réfléchit un instant avant d'esquisser un sourire discret. Il s'y att
 
 La jeune fille s'apprêtait à répondre quand son maître l'interrompit. L'homme âgé scruta attentivement Wang Lin et déclara: « Senior, Suzaku n'a émis aucun ordre d'arrestation pour Ceng Niu. »
 
-Wang Lin eut un petit rire. Il dévisagea la jeune fille au-delà de l'homme, sortit une fiole de pilules de son sac, la lui lança et sourit: « Cette petite est honnête et intelligente, pas mal du tout, bien mieux que ton maître. Cette fiole de pilules t'aidera à atteindre le stade de la Formation du Noyau. C'est mon cadeau pour toi. » Sur ces mots, Wang Lin disparut.
+Wang Lin eut un petit rire. Il dévisagea la jeune fille au-delà de l'homme, sortit une fiole de pilules de son sac, la lui lança et sourit: « Cette petite est franche et spontanée, pas mal du tout, bien mieux que ton maître. Cette fiole de pilules t'aidera à atteindre le stade de la Formation du Noyau. C'est mon cadeau pour toi. » Sur ces mots, Wang Lin disparut.
 
 Le vortex d'éclairs se dissipa lentement avec la disparition de Wang Lin, et la pluie reprit de plus belle.
 
@@ -54,9 +54,9 @@ La jeune fille, tenant la fiole entre ses mains, demanda curieusement: « Maîtr
 
 L'homme âgé prit la fiole et jeta un œil à l'intérieur; son expression changea instantanément en découvrant leur contenu. Il en versa rapidement une et la renifla. Son corps fut parcouru d'un frisson. Il remit précipitamment la pilule dans la fiole, rangea celle-ci dans son sac de rangement, entraîna la jeune fille et quitta les lieux à toute allure.
 
-La jeune fille se sentait frustrée. Ce n'est que lorsqu'ils furent à plus de 5 kilomètres que la patience de l'homme âgé s'épuisa et qu'il finit par répondre.
+La jeune fille se sentait frustrée. Ce n'est que lorsqu'ils furent à plus de 5 kilomètres que la patience de la jeune fille s'épuisa et qu'elle finit par poser sa question.
 
-Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être une puissance incommensurable. Ces pilules s'appellent des Pilules de la Terre Brisée. Ce sont des trésors pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Shuilu! »
+Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être un maître des arts magiques et des pouvoirs divins. Ces pilules s'appellent des Pilules de la Terre Brisée. Leur effet est prodigieux pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Shuilu! »
 
 La jeune fille resta bouche bée.
 
@@ -82,7 +82,7 @@ Quant à la boussole stellaire, Wang Lin constata qu'elle ne pouvait être utili
 
 « Et pourquoi Suzaku n'a-t-il pas encore mis ma tête à prix? C'est étrange. » Tout en volant, Wang Lin sortit son chapeau de paille et le posa sur sa tête.
 
-« Ce chapeau contient de nombreuses restrictions et formations que je ne parviens pas encore à activer. À mon retour à Chu, je devrai prendre le temps de l'étudier. De plus, avec les épées précieuses récupérées sur les disciples de la Secte de l'Épée Da Luo, je pourrai ajouter bien plus de restrictions à mon drapeau de restriction. Malheureusement, je n'en ai ramassé que trois. »
+« Ce chapeau contient de nombreuses restrictions et formations que je ne parviens pas encore à activer. À mon retour à Chu, je devrai prendre le temps de l'étudier. De plus, avec les épées précieuses récupérées sur les disciples de la Secte de l'Épée Da Luo, je pourrai ajouter bien plus de restrictions d'attaque à mon drapeau de restriction. Malheureusement, je n'en ai ramassé que trois. »
 
 Wang Lin avait obtenu l'une de ces épées en tuant un disciple de la Secte de l'Épée Da Luo. Les deux autres, il les avait trouvées avec Chi Hu alors qu'ils collectaient des sacs de rangement dans le vide.
 

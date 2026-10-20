@@ -22,7 +22,7 @@ Le vieil homme laissa échapper un léger reniflement méprisant.
 
 L'un des cultivateurs réalisa qui était ce vieil homme et s'écria: « La Secte des Cadavres! »
 
-À l'instant même où ces mots furent prononcés, les expressions de tous changèrent radicalement.
+À l'instant même où ces mots furent prononcés, les expressions de la plupart changèrent légèrement.
 
 « Dégagez! » Le vieil homme, très agacé, fit un geste de la main. Les deux cultivateurs proches de lui crachèrent du sang et leurs corps furent projetés en arrière comme s'ils avaient été frappés par une force dévastatrice.
 
@@ -52,9 +52,9 @@ Wang Lin réfléchit un instant avant de frapper son sac de rangement pour en so
 
 Chi Hu prit une profonde inspiration avant de sauter sur la boussole stellaire. Il ouvrit la bouche pour dire quelque chose à Wang Lin, mais ne parvint finalement pas à prononcer un seul mot.
 
-Il avait reculé de quelques pas plus tôt, et par ces quelques pas seulement, le lien entre eux s'était rompu.
+Il avait reculé de quelques pas plus tôt, et par ces quelques pas seulement, leur amitié s'était aussitôt refroidie.
 
-Wang Lin ne dit rien de plus. Il dirigea la boussole vers le vortex.
+Wang Lin ne dit rien de plus. Il entra dans le vide et dirigea la boussole vers le vortex.
 
 Après un très long moment, Chi Hu dit: « Merci. »
 
@@ -68,7 +68,7 @@ Certains cultivateurs étaient encore assis sur les plateformes, discutant des �
 
 Lorsqu'ils approchèrent du vortex, Wang Lin rangea la boussole stellaire. Lui et Chi Hu volèrent le reste du chemin et arrivèrent sur la plateforme située directement sous le vortex après un court instant.
 
-Les deux hommes se regardèrent. Wang Lin joignit les mains et dit: « Frère Chi Hu, rencontrons-nous à nouveau à Suzaku. » Sur ces mots, il frappa son sac de rangement et le chaudron de retour apparut dans sa main.
+Les deux hommes se regardèrent. Wang Lin joignit les mains et dit: « Frère Chi Hu, adieu Suzaku! » Sur ces mots, il frappa son sac de rangement et le chaudron de retour apparut dans sa main.
 
 Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Ceng, vous devrez venir au Clan des Démons Géants pour que nous puissions boire ensemble. »
 
@@ -76,7 +76,7 @@ Wang Lin rit et hocha la tête. Il activa le chaudron de retour et un vortex se 
 
 Chi Hu frappa également son sac de rangement pour en sortir son chaudron de retour. Il l'activa et entra dans le vortex, tout comme Wang Lin.
 
-Beaucoup de choses s'étaient produites ces derniers mois, mais la nouvelle qui avait choqué tous les pays de culture de rang 4 ou supérieur fut que la disciple centrale de Suzaku, Papillon Rouge, avait perdu un bras lors d'un combat!
+Beaucoup de choses s'étaient produites ces derniers mois, mais la nouvelle qui avait choqué tous les pays de culture de rang 4 ou supérieur fut que la disciple centrale de Suzaku, Papillon Rouge, avait perdu un bras!
 
 Avec la destruction de l'Alliance des Quatre Sectes et l'ascension de Xue Yu au rang de pays de culture de niveau 5, sa renommée avait explosé sur la planète. Les rumeurs à son sujet étaient incessantes, évoquant notamment comment elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans, ou encore comment elle avait été acceptée comme disciple centrale de Suzaku. Ces faits alimentaient encore les discussions parmi les cultivateurs.
 

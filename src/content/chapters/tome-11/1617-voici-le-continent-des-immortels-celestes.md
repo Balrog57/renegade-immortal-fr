@@ -58,11 +58,11 @@ Les deux vortex menaient à des endroits différents. L'un dégageait une aura q
 
 L'autre émanait une faible lumière dorée et une énergie céleste dense. Elle attira la goutte de sang dorée cachée entre les sourcils de Wang Lin.
 
-« Cet endroit est... » Les yeux de Wang Lin se rétrécirent tandis qu'il observait de plus près. Il leva sa main droite et pointa le vortex. Le mouvement du vortex ralentit immédiatement, et les yeux de Wang Lin s'illuminèrent. Son Sens Divin s'élança hors du vortex et découvrit un monde extérieur qui le choqua totalement.
+« Cet endroit est... » Les yeux de Wang Lin se rétrécirent tandis qu'il observait de plus près. Il leva sa main droite et pointa le vortex. Le mouvement du vortex ralentit immédiatement, et les yeux de Wang Lin s'illuminèrent. Son Sens Divin s'engouffra comme une tempête dans le vortex et découvrit un monde extérieur qui le choqua totalement.
 
 C'était une terre sans limites. Neuf soleils trônaient dans le ciel, d'une taille infinie. Tandis qu'ils pendaient là, leur lumière enveloppait toute la région.
 
-Il y avait de nombreux sommets hauts et imposants, des mers infinies aux vagues déchaînées, ainsi que des lacs et des rivières. Le Sens Divin de Wang Lin ne pouvait couvrir l'ensemble de la zone; il n'en embrassait qu'une infime portion.
+Il y avait de nombreux sommets hauts et imposants, des mers infinies aux vagues déchaînées, ainsi que des lacs et des rivières. Le Sens Divin de Wang Lin ne pouvait couvrir l'ensemble de la zone; il n'en embrassait pas même un dix-millième.
 
 Ce continent était comparable à d'innombrables Royaumes Intérieurs et Extérieurs!
 

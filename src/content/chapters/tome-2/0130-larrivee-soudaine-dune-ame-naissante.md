@@ -52,7 +52,7 @@ Par conséquent, Wang Lin n'hésita pas à rendre l'essence sanguine de l'âme d
 
 Quelques minutes plus tard, la silhouette de la femme apparut à l'embouchure du volcan où Wang Lin avait déposé l'objet. Elle tendit la main droite et l'essence sanguine de l'âme de Zhou Zihong vint rapidement à elle.
 
-La femme contempla la lueur avec une expression tendre et aimante. Après avoir soigneusement rangé l'essence sanguine, elle regarda dans la direction prise par Wang Lin et murmura doucement: « Puisque vous avez sauvé Hong Er et rendu si promptement son essence sanguine, j'ai réglé pour vous ce problème de possession. »
+La femme contempla la lueur avec une expression tendre et aimante. Après avoir soigneusement rangé l'essence sanguine, elle regarda dans la direction prise par Wang Lin et murmura doucement: « Puisque vous avez sauvé Hong Er et rendu si promptement son essence sanguine, j'ai étouffé pour vous cette affaire de possession. »
 
 Pendant deux jours, hormis quelques pauses nécessaires, il avait volé sans interruption. Comme cette femme n'était jamais réapparue, il se détendit un peu, mais soudain, ses yeux se fixèrent sur le sol, non loin de lui.
 
@@ -84,7 +84,7 @@ L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux
 
 Wang Lin le regarda, puis s'envola sans même lui accorder une seconde attention.
 
-Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démoniaque. »
+Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démon. »
 
 Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il se tapa les cuisses et, d'un bond, rattrapa Wang Lin en un clin d'œil. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez à l'Atelier du Ravin, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes-fourneaux du pays de Zhou au stade de la Condensation de Qi. »
 

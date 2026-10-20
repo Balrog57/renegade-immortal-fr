@@ -42,7 +42,7 @@ Le jeune homme murmura doucement: « Je me suis enfui jusqu'ici, au bout des 7 M
 
 « Je n'ai plus fui. J'ai choisi de les affronter, j'ai choisi de résister! Je suis retourné dans les 7 Millions de Mondes et j'ai fondé la Secte de l'Esprit Dispersé. Chaque avatar est un Daoïste Esprit Dispersé qui propage les idéaux de ma secte, et ils contrôlent la majorité des cultivateurs des 7 Millions de Mondes! »
 
-« Je leur ai enseigné la méthode de culture qui leur permettrait d'atteindre le stade de la Formation de l'Âme le plus rapidement possible. J'ai cultivé comme un fou, créant avatar après avatar. Des dizaines de milliers d'années plus tard, j'ai atteint le stade que vous, les êtres célestes, appelez la "Quatrième Fléau Céleste"! » Le jeune homme se tourna vers Wang Lin.
+« Je leur ai enseigné la méthode de culture qui leur permettrait d'atteindre le stade de la Formation de l'Âme le plus rapidement possible. J'ai cultivé comme un fou, créant avatar après avatar. Des dizaines de milliers d'années plus tard, j'ai atteint le stade que vous, les êtres célestes, appelez le "Quatrième Fléau Céleste"! » Le jeune homme se tourna vers Wang Lin.
 
 « Je vais tuer les êtres célestes, je vais subvertir le Clan du Tonnerre Dispersé et arracher mon peuple de cet endroit! Cependant, même après des dizaines de milliers d'années, malgré la puissance que j'ai accumulée, je ne peux toujours pas vaincre le Grand Ancien, qui est au stade du cinquième Fléau Céleste... »
 
@@ -72,7 +72,7 @@ Le jeune homme fut exalté. Il regarda Wang Lin avec intensité et sourit.
 
 « Bien. Je vais tuer tous les cultivateurs du Clan du Tonnerre Dispersé ici présents. Cela attirera leur attention, et le Grand Ancien viendra sûrement! »
 
-« C'est inutile, dit calmement Wang Lin. Si tous les membres du clan meurent, ils n'enverront pas seulement le Grand Ancien. Si plusieurs Anciens arrivent, cela posera problème. Si vous avez un moyen de me téléporter ici, je pourrai attirer le Grand Ancien seul. Une fois qu'il sera mort, l'affaire sera réglée! »
+« C'est inutile, dit calmement Wang Lin. Si tous les membres du clan meurent, ils n'enverront pas seulement le Grand Ancien. Si plusieurs Anciens arrivent, cela posera problème. Si vous avez un moyen de me faire entrer ici librement, je pourrai attirer le Grand Ancien seul. Une fois qu'il sera mort, l'affaire sera réglée! »
 
 Le jeune homme réfléchit un instant avant de hocher la tête.
 
@@ -90,9 +90,9 @@ La voix de Wang Lin résonna puis s'estompa progressivement.
 
 Le jeune homme fixa l'endroit où Wang Lin était parti. Après une longue réflexion, il murmura: « Je ne peux que lui faire confiance... seulement lui... »
 
-Tandis que Wang Lin se déplaçait à une vitesse fulgurante dans l'espace, ses yeux brillaient de réflexion. Il ne croyait pas tout ce que le jeune homme avait dit; c'était sa nature. Avec son niveau de culture, il savait parfaitement quelle quantité d'énergie était nécessaire pour ouvrir un tel passage. Le fait que le jeune homme soit prêt à sacrifier tant d'êtres en un instant était une preuve de sincérité indéniable.
+Tandis que Wang Lin se déplaçait à une vitesse fulgurante dans l'espace, ses yeux brillaient de réflexion. Il ne croyait pas tout ce que le jeune homme avait dit; c'était sa nature, et c'est pour cela qu'il avait réclamé ce talisman. Avec son niveau de culture, il savait parfaitement quelle quantité d'énergie était nécessaire pour ouvrir un tel passage. Le fait que le jeune homme soit prêt à sacrifier tant d'êtres en un instant était une marque de sincérité.
 
-Tuer le Grand Ancien du Clan du Tonnerre Dispersé n'était qu'un des motifs. La raison la plus profonde était qu'il voulait aider ces gens à briser leurs chaînes. Il voulait briser quelque chose, il voulait que ce peuple puisse enfin partir, afin de prouver une vérité...
+Tuer le Grand Ancien du Clan du Tonnerre Dispersé n'était qu'un des motifs. La raison la plus importante était qu'il voulait aider ces gens. Il voulait briser quelque chose, il voulait que ce peuple puisse enfin partir, afin de prouver une vérité...
 
 Wang Lin progressait très vite vers la place centrale. Bientôt, l'esplanade apparut devant lui. D'un seul pas, il franchit une distance incommensurable et atterrit sur la place.
 

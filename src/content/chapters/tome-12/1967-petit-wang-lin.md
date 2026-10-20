@@ -12,7 +12,7 @@ Le Grand Empyréen Dao Yi laissa échapper un reniflement froid. Avec sa perspic
 
 Cependant, il ne s'attendait pas à ce que Wu Feng tienne de tels propos.
 
-« Bien sûr, je n'ai pas fini. Ce seigneur n'a pas encore sorti son dernier atout! » Dao Yi afficha un regard déterminé et leva la main droite, formant impitoyablement un poing.
+« Bien sûr, je n'ai pas fini. Ce seigneur n'a pas encore sorti son dernier atout! » Dao Yi afficha un regard déterminé et leva la main droite, serrant brusquement le poing.
 
 « Wang Lin, cet objet a été forgé par mon intention dao. Si tu meurs, ce seigneur sera blessé; mais si je suis blessé, tu ne seras pas affecté. Cela n'aura d'effet que sur moi. Avec cela, quiconque osera t'attaquer fera de moi son ennemi! » Le cœur du Grand Empyréen Dao Yi se serra. C'était sa limite ultime et il espérait ne pas avoir à l'utiliser. Pourtant, les paroles de Wu Feng l'avaient contraint à sortir son plus grand atout!
 
@@ -74,7 +74,7 @@ Wang Lin esquissa un sourire amer.
 
 « Hai Zi, ne fais pas de bêtises! » Dans le ciel, le Grand Empyréen Jiu Di conservait la même apparence, mais son expression était sérieuse. Pourtant, aucune majesté de Grand Empyréen ne se dégageait de lui; même sérieux, il paraissait ordinaire.
 
-« Wang Lin, ce vieil homme t'acceptera comme disciple. Es-tu d'accord? » Le Grand Empyréen Jiu Di appartenait à la même époque que l'Ancêtre Céleste. « Si tu acceptes, je peux te promettre qu'une fois le Royaume Divin Immémorial ouvert, je t'aiderai à y pénétrer! Et je t'aiderai à devenir un Grand Empyréen! » C'était un engagement que seuls les Grands Empyréens oseraient formuler, car eux seuls en connaissaient le prix.
+« Wang Lin, ce vieil homme t'acceptera comme disciple. Es-tu d'accord? » Le Grand Empyréen Jiu Di appartenait à la même époque que l'Ancêtre Céleste. Il ne disait cela sans aucune arrogance, et même Wu Feng, à ses côtés, ne parut nullement gêné. « Si tu acceptes, je peux te promettre qu'une fois le Royaume Divin Immémorial ouvert, je t'aiderai à y pénétrer! Et je t'aiderai à devenir un Grand Empyréen! » C'était un engagement que seuls les Grands Empyréens oseraient formuler, car eux seuls en connaissaient le prix.
 
 C'était ce qu'il avait dit à l'Ascendant Empyréen Ming Dao, mais celui-ci, sans savoir quelles conditions l'Empereur Céleste lui avait offertes, n'avait pas choisi Jiu Di.
 
@@ -110,4 +110,4 @@ Wang Lin regarda le cultivateur jeté au sol, qui baissa les mains pour révéle
 
 Ce changement soudain surprit Wang Lin.
 
-L'Exalté Empyréen Gu Ya recula de quelques pas avec un sourire amer. Avec son niveau de culture, il n'avait pas la qualification pour intervenir et ne pouvait que regarder les deux petits ancêtres gérer la situation.
+L'Exalté Empyréen Gu Ya recula de quelques pas avec un sourire amer. Avec son niveau de culture, il n'avait pas la qualification pour intervenir et ne pouvait que regarder les deux petits ancêtres s'agiter à leur guise.

@@ -8,7 +8,7 @@ slug: que-le-tout-voyant-se-trompe-une-fois
 ---
 Bai Wei regarda la restriction surplombant la vallée et dit: « Je m'appelle Bai Wei! Frère Wang, votre venue ici signifie que vous avez dû comprendre le sens caché de mes paroles. »
 
-Wang Lin fronça les sourcils. Non seulement l'énergie Yin était toujours présente dans le corps de Bai Wei, mais elle était d'une puissance extrême. En réalité, elle avait atteint un degré inimaginable.
+Wang Lin fronça les sourcils. Non seulement l'énergie Yin était toujours présente dans le corps de Bai Wei, mais elle était plus dense qu'auparavant et d'une puissance extrême. En réalité, elle avait atteint un degré inimaginable.
 
 Une énergie Yin aussi dense ne devrait pas se trouver dans le corps d'un cultivateur. Elle était si forte qu'elle en devenait presque solide. Avec le niveau de culture de Bai Wei, son corps n'aurait pas dû pouvoir supporter une telle énergie Yin; il aurait déjà dû perdre toute fonction vitale et devenir un cadavre.
 
@@ -22,7 +22,7 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « Avant que Maître n'arrive, le frère Wang serait-il prêt à écouter une histoire... » Bai Wei esquissa un sourire amer, tandis que la confusion et la nostalgie emplissaient ses yeux.
 
-« Je suis né dans une riche famille mortelle sur la planète Tian Yun. Juste avant ma naissance, le ciel était baigné d'une lueur rouge, puis cette lueur a disparu après ma venue au monde.
+« Je suis né dans une riche famille mortelle sur la planète Tian Yun. Au moment de ma naissance, le ciel était baigné d'une lueur rouge, puis cette lueur a disparu après ma venue au monde.
 
 « Ce n'est qu'après être entré dans le monde de la culture que j'ai appris que cette lumière rouge était le véritable Yang; et si l'on calcule mon heure de naissance, c'était lors d'un moment d'extrême Yang.
 
@@ -44,7 +44,7 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « Désespéré, j'ai sollicité l'aide de Maître, et celui-ci me remit la méthode du Double Désir Yin et Yang. Il dit qu'une fois que j'aurais atteint le neuvième niveau, ma sœur et moi serions séparés.
 
-« Je n'aurais jamais cru que Maître me mentirait. Grâce à la méthode du Double Désir Yin et Yang, ma culture a progressé de manière fulgurante comme prévu. Cette méthode se concentrait sur l'âme et avait une influence immense sur ma croissance. Cependant, je m'en moquais; mon seul désir était de permettre un jour à l'âme de ma petite sœur de retourner dans le cycle de la réincarnation.
+« Je n'aurais jamais cru que Maître me mentirait. Grâce à la méthode du Double Désir Yin et Yang, ma culture a progressé de manière fulgurante et étrange. Cette méthode se concentrait sur l'âme et avait une influence immense sur ma croissance. Cependant, je m'en moquais; mon seul désir était de permettre un jour à l'âme de ma petite sœur de retourner dans le cycle de la réincarnation.
 
 « En un éclair, des centaines d'années s'écoulèrent. C'est aussi l'époque où vous avez quitté la planète Tian Yun. Lorsque j'ai réalisé que quelque chose n'allait pas, il était trop tard... » Les yeux de Bai Wei se remplirent de tristesse et il déchira sa chemise, exposant son torse. Une ligne verte et une ligne rouge s'étendaient de chacun de ses bras, et les deux lignes se croisaient au milieu comme des branches d'arbre.
 
@@ -56,11 +56,11 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « En restant à la Secte du Destin Céleste, j'ai progressivement compris. La culture de Maître a atteint un goulot d'étranglement. Il est incapable de s'en sortir et a été possédé par ce démon intérieur... Je ne suis qu'une de ses expériences...
 
-« Je sais que Maître attend que l'extrême Yin atteigne son apogée. Tout comme le jour de l'extrême Yang possédait cet instant d'extrême Yin, il attend ce moment de Yang extrême provenant de l'extrême Yin qui réside en moi!
+« Je sais que Maître attend que mon énergie Yin atteigne son apogée. Tout comme le jour de l'extrême Yang possédait cet instant d'extrême Yin, il attend l'instant d'extrême Yang qui surgira en moi!
 
 « Je sais aussi que Maître a tenté cette tragédie du Yang et du Yin extrêmes plusieurs fois avant moi et après moi. Pourtant, au final, je pense être le seul à avoir survécu! »
 
-C'était comme si Wang Lin avait été frappé par la foudre en entendant les paroles de Bai Wei. Il eut un haut-le-cœur, les yeux écarquillés par le choc.
+C'était comme si Wang Lin avait été frappé par la foudre en entendant les paroles de Bai Wei. Il retint son souffle, les yeux écarquillés par le choc.
 
 « Qu'est-ce que cet extrême Yin et cet extrême Yang... qui ont poussé l'Omniscient à traverser tout cela pour les obtenir? » Wang Lin regarda Bai Wei. En se fiant à son intuition, il croyait soixante-dix pour cent de ce qu'il disait.
 
@@ -68,7 +68,7 @@ Le visage de Bai Wei prit une expression féroce et il éclata de rire. « Wang 
 
 « Cependant, moi, cette fourmi, cette expérience de son œuvre, je vais faire quelque chose pour le choquer! Je ne crois pas qu'il puisse prévoir avec certitude cette idée qui vient soudainement de germer dans mon esprit!
 
-« Wang Lin, je connais ma situation mieux que quiconque; il est impossible de me sauver. Cependant, avant de mourir, je veux prendre cet extrême Yang qui a été cultivé pendant mille ans, la chose que l'Omniscient attendait tant, et vous la donner. Wang Lin, osez-vous la prendre? »
+« Wang Lin, je connais ma situation mieux que quiconque; il est impossible de me sauver. Cependant, avant de mourir, je veux extraire de mon corps cet extrême Yang qui a été cultivé pendant mille ans, la chose que l'Omniscient attendait tant, et vous la donner. Wang Lin, osez-vous la prendre? »
 
 Bai Wei fixa Wang Lin, et sa voix résonna dans toute la vallée. Les mêmes mots semblèrent surgir de partout dans la vallée pour pénétrer les oreilles de Wang Lin comme des coups de tonnerre.
 

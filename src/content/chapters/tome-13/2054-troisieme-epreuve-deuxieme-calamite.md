@@ -8,7 +8,7 @@ slug: troisieme-epreuve-deuxieme-calamite
 ---
 Il n'existait que trois temples ancestraux dans tout le clan Ancien. Ils se trouvaient dans la cité impériale de chaque famille royale, érigés au pied de chacune des statues de l'Ancêtre.
 
-Chaque membre adulte du clan Ancien se rendait volontairement au temple ancestral lors de sa troisième épreuve. Cependant, ils n'y pénétraient pas très profondément; seuls les membres de la famille royale étaient autorisés à entrer dans la zone intérieure.
+Chaque membre adulte du clan Ancien se rendait au temple ancestral lors de sa troisième épreuve. Cependant, ils n'y pénétraient pas très profondément; seuls les membres de la famille royale étaient autorisés à entrer dans la zone intérieure.
 
 Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une culture en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empyréens, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
 
@@ -28,7 +28,7 @@ Wang Lin demanda lentement: « Qui a sculpté la statue de l'Ancêtre? »
 
 Wang Lin hocha doucement la tête. Il savait qu'une race devait posséder un symbole d'espoir; sans lui, elle ne pourrait perdurer et finirait par s'éteindre lentement.
 
-Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Ancien croyait! Le Grand Empyréen Gu Dao, gardien du clan Ancien... Rien que ce geste témoignait de sa sagesse.
+Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Ancien croyait! Tant que cette statue existe, le clan Ancien perdure! Le Grand Empyréen Gu Dao, gardien du clan Ancien... Rien que ce geste témoignait de sa sagesse.
 
 Wang Lin et Song Tian restèrent sous la statue, comme s'ils attendaient silencieusement quelque chose.
 
@@ -64,7 +64,7 @@ Une fois tous les autres princes nommés rois et écartés, le peuple des Ancien
 
 Ji Du commença progressivement à entrer en contact avec les puissances occultes rattachées à l'Empereur. Au cours des soixante-dix années suivantes, son père lui transmettrait lentement le pouvoir. C’était une étape nécessaire pour tout nouvel empereur des trois clans Anciens, et c'était aussi la période la plus paisible.
 
-Tout se déroula comme prévu et Ji Du conservait ses bonnes habitudes. Presque chaque matin, au réveil, il regardait silencieusement en direction du temple ancestral.
+Tout continuait ainsi, et Ji Du conservait ses bonnes habitudes. Presque chaque matin, au réveil, il regardait silencieusement en direction du temple ancestral.
 
 Il ignorait quand il reverrait son parrain, mais cette habitude ne le quitta jamais. De nombreux membres du clan qui suivirent Ji Du remarquèrent ce geste et furent perplexes. Bien qu'ils aient mené des enquêtes secrètes, ils ne purent trouver la moindre piste.
 
@@ -110,7 +110,7 @@ Ji Du ne répondit pas, restant agenouillé un long moment avant de se relever e
 
 Le corps de Ji Du trembla et il se retourna brusquement. Il regarda le temple ancestral et sourit.
 
-Wang Lin était assis au plus profond du temple. Son corps dégageait une odeur de décomposition et s'était considérablement desséché; il ressemblait à un cadavre. Mais ses yeux brillaient comme des étoiles.
+Wang Lin était assis au plus profond du temple. Son corps dégageait une odeur de décomposition et s'était considérablement desséché; il ressemblait à un cadavre. Mais ses yeux restaient lumineux.
 
 « Les Trois Épreuves et les Sept Calamités du clan Ancien... Dans le monde des grottes, j'ai accompli deux épreuves et quatre calamités, et j'ai même passé la première calamité de la troisième épreuve. »
 

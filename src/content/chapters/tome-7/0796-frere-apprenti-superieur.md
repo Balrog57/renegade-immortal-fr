@@ -28,7 +28,7 @@ Qing Shui dit calmement: « Si vous mentez, je ferai exploser le Royaume Ji! » 
 
 Peu après, des éclairs du Royaume Ji jaillirent de l'œil droit de Qing Shui pour frapper chacun des fragments.
 
-L'intégralité du trésor de la Formation Céleste dégageait une aura glaciale et des lueurs d'éclairs rouges. L'objet tout entier exsudait l'aura du Royaume Ji.
+L'intégralité du trésor de la Formation Céleste dégageait une aura glaciale et des lueurs d'éclairs rouges. L'objet tout entier renfermait les pouvoirs du Royaume Ji.
 
 « Le Seigneur Céleste peut être rassuré, ce vieil homme ne ment pas! » rit le Maître Yan Leizi en formant un sceau de la main droite avant de la presser en avant. Les quarante-neuf fragments tournèrent dans le ciel, formant un immense vortex noir.
 
@@ -70,9 +70,9 @@ Cependant, bien que ce réseau permette de partir, il comportait de grandes rest
 
 C'était une règle strictement appliquée depuis la mise en place du réseau par le Temple Céleste du Tonnerre. Même un intrus accidentel subissait généralement une mort immédiate.
 
-La puissance du Temple Céleste du Tonnerre ne pouvait être sous-estimée!
+L'autorité du Temple Céleste du Tonnerre ne souffre aucune atteinte!
 
-Actuellement, ses relations avec le Temple étaient tendues, c'est pourquoi il n'était pas venu plus tôt et avait privilégié la porte céleste.
+Actuellement, ses relations avec le Temple étaient tendues, c'est pourquoi il n'avait pas choisi ce réseau plus tôt et avait privilégié la porte céleste.
 
 Toutefois, la porte étant fermée et le Royaume Céleste subissant un effondrement généralisé, Shengong Hu fut non seulement ralenti, mais contraint de se diriger vers le réseau de transfert du Temple Céleste du Tonnerre.
 

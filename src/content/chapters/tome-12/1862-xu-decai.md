@@ -16,7 +16,7 @@ L'averse commença.
 
 Alors que la pluie tombait, Wang Lin s'arrêta soudainement et leva les yeux vers ce monde enveloppé par les eaux. Il agita la main droite et la boussole de restriction apparut dans sa paume. La boussole affichait clairement plus d'une douzaine de points verts fonçant vers lui.
 
-Les yeux de Wang Lin s'illuminèrent et il recula immédiatement. Sa vitesse était fulgurante; en un instant, il s'était retiré à plus de 10 000 pieds tout en changeant de direction. Il s'arrêta et scruta la boussole dans sa main, le regard brillant.
+Les yeux de Wang Lin s'illuminèrent et il recula immédiatement. Sa vitesse était fulgurante; en un instant, il s'était retiré à des dizaines de milliers de pieds tout en changeant de direction. Il s'arrêta et scruta la boussole dans sa main, le regard brillant.
 
 Les plus d'une douzaine de points sur la boussole avaient changé de trajectoire au même moment que Wang Lin. Ils semblaient avoir remarqué son mouvement et se rapprochaient rapidement.
 
@@ -24,7 +24,7 @@ Simultanément, sur la boussole, plus d'une douzaine de nouveaux points verts ap
 
 « C'est là le dessein de Lu Wenran. » Dès que Wang Lin avait quitté le palais, il avait compris le plan de Lu Wenran. Ce dernier soupçonnait Wang Lin et l'avait délibérément envoyé dehors pour voir s'il pourrait attirer les cultivateurs du Continent du Démon Vert.
 
-Bien que Wang Lin eût pu choisir de ne pas partir, sa nature était de rester caché. Parfois, reculer pour mieux avancer était préférable.
+Bien que Wang Lin eût pu choisir de ne pas partir, rester caché n'était pas dans sa nature. Parfois, reculer pour mieux avancer était préférable.
 
 « Si j'avais été Lu Wenran, j'aurais scellé toutes les entrées du palais! » Wang Lin frappa le sol et une force de répulsion l'empêcha de retourner dans le palais souterrain.
 
@@ -78,7 +78,7 @@ Les pupilles de Xu Decai se contractèrent sous le choc. Wang Lin était trop ra
 
 Une magnifique fleur illusoire apparut soudainement dans la nuit sombre et pluvieuse, occupant une bonne part du firmament. Bien qu'elle parût splendide, un regard attentif aurait révélé qu'il s'agissait d'une fleur faite de crânes!
 
-À l'apparition de cette fleur, une lueur froide brilla dans les yeux de Wang Lin. À présent, il ne restait plus que cinq personnes. Hormis le cultivateur de la Tribulation du Vide, les quatre autres ne valaient pas l'attention qu'ils exigeaient.
+À l'apparition de cette fleur, une lueur froide brilla dans les yeux de Wang Lin. À présent, il ne restait plus que cinq personnes. Hormis le cultivateur de la Tribulation du Vide, les quatre autres n'étaient pas à craindre.
 
 Les corps des quatre autres tremblèrent et ils tentèrent de fuir, mais leur vitesse était dérisoire face à celle de Wang Lin. Ce dernier s'élança et une lueur sanglante jaillit. L'épée de sang prit la forme d'un dragon et chargea. Deux personnes furent touchées et découpées en morceaux dans des cris de douleur.
 

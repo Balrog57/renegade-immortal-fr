@@ -30,13 +30,13 @@ Yun Quezi regarda calmement la figure et dit: « Dès que tu agiras, Zhu Quezi l
 
 À l'instant où ils s'éloignèrent, les nuages virèrent au rouge et révélèrent lentement la silhouette de Zhu Quezi.
 
-« Yunque! Montre-toi! » rugit Zhu Quezi, le visage dévoré par la colère. Sa voix se propagea soudainement dans toutes les directions.
+« Yun Quezi! Montre-toi! » rugit Zhu Quezi, le visage dévoré par la colère. Sa voix se propagea soudainement dans toutes les directions.
 
 « Frère aîné, l'affrontement entre nous est inévitable. Puisque nous avons appartenu à la même secte pendant mille ans, je te donne trois mois pour te remettre. Après cela, notre combat aura lieu au pied du mont Suzaku! »
 
 La voix de Yun Quezi résonna lentement dans le vide.
 
-Zhu Quezi prit une profonde inspiration. L'expression sombre, il marmonna: « Je connais ton objectif, Yunque. Tu joues avec le feu! » Puis il disparut.
+Zhu Quezi prit une profonde inspiration. L'expression sombre, il marmonna: « Je connais ton objectif, Yun Quezi. Tu joues avec le feu! » Puis il disparut.
 
 Yun Quezi et la silhouette apparurent lentement quelque part dans le ciel au-dessus du continent Suzaku. La figure demanda: « Pourquoi lui accorder autant de temps? Tuer Zhu Quezi ne devrait pas prendre si longtemps. »
 
@@ -48,7 +48,7 @@ Yun Quezi regarda l'entité et dit: « Au sein du Clan des Immortels Délaissés
 
 La figure réfléchit un instant et dit: « Tu es parmi les cultivateurs depuis trop longtemps et tu en as oublié tes origines. Te souviens-tu encore du nombre de membres de ton clan qui furent sacrifiés pour t'envoyer dans le pays de Suzaku... »
 
-Les yeux de Yun Quezi s'illuminèrent et il ricana: « Premier Ancêtre, je vais vous le dire pour la dernière fois: ne sous-estimez pas Zhu Quezi. Il possède le Cristal de la Planète de Culture. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de la Planète de Culture avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance de Culture enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan des Immortels Délaissés puisse faire face à l'Alliance de Culture? »
+Le regard de Yun Quezi se figea et il ricana: « Premier Ancêtre, je vais vous le dire pour la dernière fois: ne sous-estimez pas Zhu Quezi. Il possède le Cristal de la Planète de Culture. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de la Planète de Culture avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance de Culture enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan des Immortels Délaissés puisse faire face à l'Alliance de Culture? »
 
 La figure resta silencieuse.
 
@@ -110,7 +110,7 @@ Les yeux de Zhou Wutai brillèrent: « Frère Wang, je te porte une seconde coup
 
 Après ces deux coupes, un silence soudain s'installa entre eux.
 
-Peu après, Zhou Wutai regarda au loin et dit: « Wang Lin, Senior veut que tu ailles le voir... pour qu'il t'enseigne comment utiliser véritablement le chapeau d'Yunque. »
+Peu après, Zhou Wutai regarda au loin et dit: « Wang Lin, Senior veut que tu ailles le voir... pour qu'il t'enseigne comment utiliser véritablement le chapeau de Yun Quezi. »
 
 En voyant Zhou Wutai arriver avec ce chapeau de paille, il avait déjà compris que celui-ci avait un lien avec Yun Quezi. D'après ce qu'il savait, le chapeau n'était pas un objet qu'Yun Quezi distribuerait ainsi par hasard.
 
@@ -118,7 +118,7 @@ Wang Lin comprit immédiatement pourquoi Zhou Wutai n'était pas mort en voyant 
 
 Wang Lin dit calmement: « Dis à Yun Quezi que je n'irai pas le trouver. »
 
-Zhou Wutai afficha une expression complexe: « Frère Wang, toi et moi ne sommes que des pions dans son jeu. Senior a donné ce chapeau de paille à quatre personnes. Il en reste une que tu devrais connaître: elle s'appelle Zi Xin! »
+Zhou Wutai afficha une expression complexe: « Frère Wang, toi et moi ne sommes que des pions dans son jeu. D'après ce que je sais, Senior a donné ce chapeau de paille à quatre personnes. Il en reste une que tu devrais connaître: elle s'appelle Zi Xin! »
 
 Les yeux de Wang Lin s'illuminèrent et il ricana.
 

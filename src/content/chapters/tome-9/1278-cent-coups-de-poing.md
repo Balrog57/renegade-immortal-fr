@@ -118,6 +118,6 @@ Tandis que Wang Lin parlait, le vide effondré autour de lui se transforma en me
 
 Les 85e, 86e, 87e... jusqu'au 100e coup!!
 
-En ce laps de temps si court, Wang Lin avait consommé toute la puissance du sang, toute la vitalité de son corps, et utilisé le Temps Fluide pour gagner 5 000 ans de vie supplémentaire afin d'achever ces cent coups époustouflants!
+En ce laps de temps si court, Wang Lin avait consommé toute la puissance du sang, toute son énergie originelle, et utilisé le Temps Fluide pour gagner 5 000 ans de vie supplémentaire afin d'achever ces cent coups époustouflants!
 
 C'étaient les cent coups les plus puissants de Wang Lin; c'était toute sa... vie!

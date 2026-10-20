@@ -46,7 +46,7 @@ Il entendit le craquement incessant de miroirs se brisant alors que ses symboles
 
 Wang Lin avait déjà inspecté ces trois sacs et y avait trouvé quelques objets utilisables. Tout autre que lui n'oserait sans doute pas contrôler autant de trésors à la fois; même avec le Sens Divin de Wang Lin, leur maniement était quelque peu laborieux.
 
-La synchronisation entre la matrice et le jade entrait dans sa seconde phase. La première seconde était passée; place à la deuxième.
+La synchronisation entre la matrice et le jade entrait dans sa phase intermédiaire. La première seconde était passée; place à la deuxième.
 
 Les pupilles de Wang Lin se contractèrent brusquement. Il esquissa un sourire amer alors que plusieurs centaines de lignes noires chargeaient vers lui. Il ne lui restait plus que moins de cent symboles, qui furent instantanément anéantis avant même d'avoir pu jouer leur rôle.
 
@@ -98,7 +98,7 @@ Nul ne sait d'où provient le Royaume Ji, mais il est certain que les cultivateu
 
 En réalité, la main géante formée par la loi du monde fut le catalyseur permettant à l'âme de Wang Lin d'intégrer la puissance du Royaume Ji. Après que la perle défiant le ciel eut fusionné avec son âme, il était resté dans son Sens Divin une trace infime du Ji. Cependant, sans pression extérieure, une fois son énergie spirituelle retrouvée, ce fragment aurait disparu.
 
-Mais sous l'assaut extérieur, l'âme de Wang Lin se contracta et le Royaume Ji s'étendit jusqu'à leur fusion. Cette union n'en était qu'à ses prémices; on ne peut dire que l'âme de Wang Lin était totalement imprégnée du Royaume Ji, car elle contenait encore de nombreux autres éléments.
+Mais sous l'assaut extérieur, l'âme de Wang Lin se contracta et le Royaume Ji s'étendit jusqu'à leur fusion. Cette fusion sans précédent n'en était qu'à ses prémices; on ne peut dire que l'âme de Wang Lin était totalement imprégnée du Royaume Ji, car elle contenait encore de nombreux autres éléments.
 
 Le Royaume Ji est un état de nature unique: s'il se manifeste dans l'énergie spirituelle, tout son développement repose uniquement sur l'énergie spirituelle.
 

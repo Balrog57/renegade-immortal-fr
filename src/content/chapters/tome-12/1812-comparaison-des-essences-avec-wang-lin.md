@@ -10,7 +10,7 @@ Du Qing avait cultivé pendant de nombreuses années et avait fait face à bien 
 
 Pourtant, le cultivateur aux cheveux blancs devant lui le laissait stupéfait, et son cuir chevelu en picotait à plusieurs reprises.
 
-D'abord, il y avait toutes ces veines de feu de terre flétrie. Puis, lorsqu'il parvint à les rattraper, vinrent les sorts des Sectes Dong Lin, Mondiale et de Song Yun Dao.
+D'abord, il y avait toutes ces veines de feu terrestre desséchées. Puis, lorsqu'il parvint à le rattraper, vinrent les sorts des Sectes Dong Lin, Mondiale et de Song Yun Dao.
 
 Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de Wang Lin. De son point de vue, Wang Lin était enveloppé de voiles de mystère; chaque fois qu'une couche était levée, d'innombrables autres apparaissaient.
 
@@ -34,7 +34,7 @@ Il avait initialement pensé devoir livrer une bataille acharnée contre Du Qing
 
 La majesté de sa voix résonna à travers le monde.
 
-« La probabilité du second cas est faible. Il ne connaît peut-être que ces trois sorts. Peut-être les a-t-il utilisés avant moi pour m'effrayer et me faire fuir! Ce doit être là sa limite! » Du Qing avait cultivé pendant de nombreuses années; comment pourrait-il être si facilement dupe? En entendant les paroles de Wang Lin, il poussa un long cri.
+« La probabilité du second cas est faible. Il ne connaît peut-être que ces trois sorts. Peut-être les a-t-il utilisés devant moi pour m'effrayer et me faire fuir! Ce doit être là sa limite! » Du Qing avait cultivé pendant de nombreuses années; comment pourrait-il être si facilement dupe? En entendant les paroles de Wang Lin, il poussa un long cri.
 
 Il chargea vers Wang Lin. Des distorsions apparurent autour de lui, révélant son corps de bois violet. Le feu jaillit de son être et l'enveloppa.
 
@@ -112,7 +112,7 @@ Grâce à l'existence du dragon de feu, Wang Lin était lié à lui. Le dragon c
 
 Il avait même scellé le Souverain et osé défier le Vieux Fantôme Zhan ainsi que le Daoïste aux Sept Couleurs. Comment pourrait-il craindre de combattre ce petit Du Qing?
 
-Si ce n'était pour l'impossibilité d'ouvrir son espace de stockage, Du Qing aurait certainement perdu dès la sortie de la Poupée Yi Si!
+Si ce n'était pour l'impossibilité d'ouvrir entièrement son espace de stockage, Du Qing aurait certainement perdu dès la sortie de la Poupée Yi Si!
 
 Des fracas tonitruants résonnèrent, mais la culture de Du Qing était trop puissante. Même sans utiliser de sorts spécifiques, ses trois essences constituaient ses attaques les plus dévastatrices.
 

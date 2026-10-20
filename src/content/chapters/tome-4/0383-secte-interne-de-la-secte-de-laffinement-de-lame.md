@@ -16,7 +16,7 @@ Ces trois auras sont l'aura de la mort, l'aura yin et l'aura du meurtre.
 
 L'aura de la mort provient de l'absorption de l'énergie des cadavres. Bien qu'il s'agisse d'une forme d'énergie yin, elle est imprégnée de mort.
 
-La seconde, l'aura yin, est l'énergie yin issue des femmes. Cette aura yin contient la vie.
+La seconde, l'aura yin, est l'énergie yin issue des femmes, accumulée par la technique de captation du yin. Cette aura yin contient la vie.
 
 Après avoir obtenu ces deux auras, le cultivateur doit les fusionner, puis combiner le résultat avec une troisième aura: l'aura du meurtre! Une fois les trois auras fusionnées, l'individu devra subir une épreuve avec seulement 10 % de chances de survie. Quiconque survivra pourra commencer à utiliser le sortilège de la mort. Mais dès lors qu'un cultivateur entreprend cette voie, il devra endurer une douleur inimaginable chaque jour et affronter un nouveau défi tous les trois ans, avec, pour chacun d'eux, seulement 10 % de chances de survie.
 
@@ -28,7 +28,7 @@ Sima prononça le mot « meurs » et activa le sortilège de la mort. Une étran
 
 L'air était comme une mare calme dans laquelle on aurait jeté une pierre; d'innombrables ondulations se propagèrent dans l'atmosphère.
 
-Les yeux de Wang Lin laissèrent paraître une lueur mystérieuse. Il ne bougea pas d'un iota face au sortilège de la mort. Au moment où Sima le pointa du doigt, il sentit un soupçon d'aura yin pénétrer son corps.
+Les yeux de Wang Lin laissèrent paraître une lueur mystérieuse. Il ne bougea pas d'un iota face au sortilège de la mort. Au moment où Sima le pointa du doigt, il sentit un soupçon d'aura yin glacée se détacher de l'énergie spirituelle de son corps.
 
 Cette aura yin était très différente de l'énergie yin qu'il avait utilisée pour cultiver la Méthode de l'Ascension des Enfers. À l'instant même où cette aura yin apparut, une autre aura surgit en lui.
 
@@ -80,7 +80,7 @@ Wang Zhen se tourna vers lui et demanda: « Qing Mu, connais-tu Ceng Niu? »
 
 « Ceng Niu? » Wang Lin hocha la tête avec calme et répondit: « J'en ai entendu parler. »
 
-« Ma Secte de l'Affinement de l'Âme comptait dix cultivateurs au stade de la Formation de l'Âme, mais l'un d'eux a été tué par Ceng Niu. » Les yeux de Wang Zhen brillaient d'admiration. « Il est mon modèle. Un jour, je deviendrai le premier cultivateur sous le stade de la Transformation de l'Âme sur Suzaku! »
+« Ma Secte de l'Affinement de l'Âme comptait dix cultivateurs au stade de la Formation de l'Âme, mais l'un d'eux a été tué par Ceng Niu. » Les yeux de Wang Zhen brillaient d'admiration. « Il est mon objectif. Un jour, je deviendrai le premier cultivateur sous le stade de la Transformation de l'Âme sur Suzaku! »
 
 « Oh, vraiment? » Wang Lin réfléchit un long moment, mais ne se souvenait pas avoir tué un jour un cultivateur au stade de la Formation de l'Âme de la Secte de l'Affinement de l'Âme.
 

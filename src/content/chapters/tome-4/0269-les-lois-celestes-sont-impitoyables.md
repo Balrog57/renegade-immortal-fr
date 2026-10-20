@@ -62,7 +62,7 @@ Parallèlement à l'installation de ces formations, une masse immense de cultiva
 
 L'énergie spirituelle semblait avoir peu d'effet sur la neige; celle-ci paraissait très sensible aux fluctuations spirituelles. Ainsi, les cultivateurs devaient recourir à la force physique pour l'évacuer.
 
-Comme les cultivateurs étaient mobilisés, les mortels suivirent le mouvement. Le roi des mortels du pays semblait avoir déjà reçu les ordres des cultivateurs, et de larges troupes de soldats commençaient à déblayer la neige.
+Comme les cultivateurs étaient mobilisés, les mortels suivirent le mouvement. L'empereur mortel du pays semblait avoir déjà reçu les ordres des cultivateurs, et de larges troupes de soldats commençaient à déblayer la neige.
 
 L'Alliance des Quatre Sectes étant très vaste, non seulement l'armée s'activait, mais même les citoyens étaient contraints d'aider.
 
@@ -72,7 +72,7 @@ Même les vieillards au crépuscule de leur vie n'étaient pas épargnés, mais 
 
 Cette opération dura plusieurs mois. Da Niu avait déjà été envoyé vers le sud. La capitale entière — non, toutes les cités de l'Alliance des Quatre Sectes — étaient bien plus désertes. À moins d'occuper un poste important, presque tout le monde était dehors pour déblayer la neige.
 
-Durant cette période, ni les femmes ni les enfants ne furent épargnés. Lorsque Da Niu fut emmené, Wang Lin lui offrit une sculpture en bois à garder sur lui, en guise de cadeau pour ces trente dernières années. Quant à l'épouse de Da Niu, Wang Lin lui offrit également une petite sculpture. L'effet de ces objets était de diffuser une chaleur permettant d'empêcher le corps de geler.
+Durant cette période, ni les femmes ni les enfants ne furent épargnés. Lorsque Da Niu fut emmené, Wang Lin lui offrit une sculpture en bois à garder sur lui, en souvenir des plus de trente ans de leur amitié. Quant à l'épouse de Da Niu, Wang Lin lui offrit également une petite sculpture. L'effet de ces objets était de diffuser une chaleur permettant d'empêcher le corps de geler.
 
 Dans cette bataille qui devait initialement opposer des cultivateurs, les mortels de l'Alliance des Quatre Sectes furent les premiers à en pâtir. Ces gens ignoraient la cause de cette neige, mais pour sauver leurs familles, ils s'enfonçaient volontiers dans ce froid impitoyable.
 
@@ -94,4 +94,4 @@ Ce phénomène n'avait qu'une seule interprétation: Xue Yu prévoyait d'anéant
 
 Sur la planète Suzaku, une guerre d'anéantissement était rare car le pays Suzaku, unique pays de culture de rang 6, intervenait pour maintenir l'équilibre, mais ce n'était pas un événement sans précédent. Les anciens registres de l'Alliance des Quatre Sectes mentionnaient quatre guerres d'extermination: trois impliquant des pays de culture de rang 4 et une impliquant un pays de rang 5.
 
-Mais sans exception, toutes ces guerres avaient eu la main de Suzaku. Cela signifiait que Xue Yu avait utilisé diverses méthodes pour amener Suzaku à consentir à ce que Xue Yu déclenche cette guerre.
+Mais sans exception, toutes ces guerres avaient eu la main de Suzaku. Cela signifiait très probablement que Xue Yu avait utilisé diverses méthodes pour amener Suzaku à consentir à ce que Xue Yu déclenche cette guerre.

@@ -104,7 +104,7 @@ Wang Lin abattit l'épée céleste. L'énergie de l'épée traversa le dragon co
 
 « Est-il possible que l'énergie spirituelle céleste soit inefficace contre lui?! » Wang Lin fut stupéfait.
 
-Une odeur fétide flotta dans l'air alors que le dragon fondait sur lui. La main de Wang Lin forma rapidement un sceau pour créer une restriction. Cette barrière, imprégnée d'énergie spirituelle céleste, percuta la tête du dragon.
+Une odeur fétide flotta dans l'air alors que le dragon fondait sur lui. La main de Wang Lin forma rapidement un sceau pour créer une restriction. Cette barrière, imprégnée d'énergie spirituelle céleste, percuta la gueule du dragon.
 
 *Boum!*
 

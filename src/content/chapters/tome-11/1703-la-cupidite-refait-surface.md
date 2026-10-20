@@ -18,7 +18,7 @@ Aujourd'hui, grâce au pouvoir du Continent Astral Immortel, il avait enfin trou
 
 Sous ses yeux, il vit la troisième âme percer la Rivière Invoquée et se diriger vers ce qui deviendrait plus tard le Vide Brillant. Sa main traça un sceau pour tenter d'observer de plus près, mais à cet instant précis, un changement stupéfiant se produisit!
 
-Un rugissement tonitruant retentit à ses oreilles. D'abord faible, il monta brusquement en intensité pour devenir le seul son perceptible par le Daoïste aux Sept Couleurs!
+Un rugissement tonitruant retentit à ses oreilles. D'abord faible, il monta brusquement en intensité pour couvrir tous les autres sons qui parvenaient aux oreilles du Daoïste aux Sept Couleurs!
 
 GRRAAAH!!
 
@@ -62,7 +62,7 @@ Il ne permettrait absolument pas une telle chose, et il devait donc détruire le
 
 Alors qu'il fuyait, l'espace derrière lui trembla; il sentait la présence du Daoïste aux Sept Couleurs qui le traquait. Ce dernier était extrêmement puissant et son Sens Divin pouvait porter très loin, ce qui rendrait la tâche de retrouver Wang Lin bien trop facile!
 
-« Pour l'instant, je n'ai d'autre choix que de me diriger vers l'autel. Peut-être pourra-t-il me sauver. Je l'espère! » Wang Lin avait mûrement réfléchi avant de décider de pénétrer dans l'illusion du Daoïste aux Sept Couleurs.
+« Pour l'instant, je n'ai d'autre choix que de me diriger vers l'autel. Peut-être pourra-t-il me sauver. Je l'espère! » Wang Lin avait mûrement réfléchi pendant près de quinze minutes avant de décider de pénétrer dans l'illusion du Daoïste aux Sept Couleurs.
 
 Non seulement il avait pesé le gain potentiel face au risque, mais il avait également utilisé l'âme de l'Omniscient pour diviner l'avenir. Il avait découvert que l'autel représentait la voie de la survie!
 
@@ -82,13 +82,13 @@ C'était comme si une fléchette avait transpercé un morceau de papier mais s'y
 
 Des éclats d'aura d'un Être Ancien émanaient de l'autel, mais ils ne se propageaient pas très loin, comme si une force invisible les contenait.
 
-Cet autel ressemblait à une petite montagne dotée de huit arêtes. Des gradins entouraient sa base, et le sommet était une zone plane d'environ mille pieds de large. En y regardant de plus près, on pouvait distinguer une formation ancienne sur sa surface.
+Cet autel ressemblait à une petite montagne dotée de huit arêtes. Des gradins entouraient sa base, et le sommet était une zone plane d'environ mille pieds de large. En y regardant de plus près, on pouvait distinguer une formation ancienne, faite de runes noires innombrables, sur sa surface.
 
 Au centre de l'autel gisait un bras. C'était de ce membre que provenait l'aura de l'Être Ancien.
 
 Ce bras n'était pas très imposant, ne mesurant que quelques centaines de pieds de long. Il restait là, silencieux et immobile.
 
-À cause de la faille spatiale, un coin de l'autel était coincé dans un autre monde. Ce monde était parsemé de fleurs et d'oiseaux, avec une terre recouverte d'herbe céleste. De nombreux petits animaux y jouaient, tel un jardin céleste.
+À cause de la faille spatiale, un coin de l'autel était coincé dans un autre monde. Ce monde était parsemé de fleurs et d'oiseaux, avec une terre recouverte d'herbe céleste. Quelques bêtes célestes s'y poursuivaient, tel un jardin céleste.
 
 À cet instant précis, un cri misérable s'éleva de cet espace. C'était un cri empreint d'impuissance et de supplication. Quiconque l'entendrait ressentirait inévitablement pitié et compassion.
 

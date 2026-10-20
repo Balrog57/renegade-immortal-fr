@@ -24,17 +24,17 @@ L'avatar n'eut même pas la possibilité d'esquiver. Lorsque les vingt-trois ép
 
 Parallèlement au cube de glace, l'avatar du Maître du Vide fut réduit en d'innombrables fragments sous la pénétration des vingt-trois lames.
 
-Mais cela ne s'arrêta pas là. Les vingt-trois grandes épées semblèrent former un filet et chargèrent Maître du Vide. Ce dernier, qui était encore plongé dans la compréhension de l'origine source, pâlit soudainement et cracha du sang. Il était horrifié par la situation.
+Mais cela ne s'arrêta pas là. Les vingt-trois grandes épées semblèrent former un filet et chargèrent Maître du Vide. Ce dernier, qui était encore plongé dans la compréhension de l'Origine Source, pâlit soudainement et cracha du sang. Il était horrifié par la situation.
 
-« Ceci... Ceci n'est pas un ordinaire trésor de Pseudo Vide du Nirvana! » Il ne s'attendait pas à ce que Wang Lin possède un trésor aussi puissant et soit si difficile à tuer. Maintenant que son avatar d'âme originelle était détruit, il subissait de graves blessures.
+« Ceci... Ceci n'est pas un ordinaire trésor de Pseudo-Vide du Nirvana! » Il ne s'attendait pas à ce que Wang Lin possède un trésor aussi puissant et soit si difficile à tuer. Maintenant que son avatar d'âme originelle était détruit, il subissait de graves blessures.
 
-Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient anéanti son avatar d'âme originelle charger vers lui après avoir détruit l'un de ses trésors Pseudo Vide du Nirvana. Cependant, il n'avait besoin que de quelques respirations supplémentaires pour comprendre pleinement les mystères de l'origine source. Si l'on voulait le forcer à esquiver, autant tenter de le tuer directement.
+Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient anéanti son avatar d'âme originelle charger vers lui après avoir détruit l'un de ses trésors Pseudo-Vide du Nirvana. Cependant, il n'avait besoin que de quelques respirations supplémentaires pour comprendre pleinement les mystères de l'Origine Source. Si l'on voulait le forcer à esquiver, autant tenter de le tuer directement.
 
-« Au diable tout ça! » Maître du Vide s'était cultivé pendant d'innombrables années et avait naturellement deviné que Wang Lin utilisait l'origine source comme appât pour le contraindre dans une situation où il ne pouvait utiliser toute sa puissance. Cela l'avait forcé à concentrer l'essentiel de ses efforts sur la compréhension de l'origine, créant ainsi une formation mortelle dont il ne pouvait ni avancer ni reculer!
+« Au diable tout ça! » Maître du Vide s'était cultivé pendant d'innombrables années et avait naturellement deviné que Wang Lin utilisait l'Origine Source comme appât pour le contraindre dans une situation où il ne pouvait utiliser toute sa puissance. Cela l'avait forcé à concentrer l'essentiel de ses efforts sur la compréhension de l'origine, créant ainsi une formation mortelle dont il ne pouvait ni avancer ni reculer!
 
 Au lieu de battre en retraite, il frappa son sac de contenance. Une carapace de tortue noire de la taille d'une paume apparut dans sa main. Elle était d'un noir absolu et dégageait une pression colossale. On ignorait de quel endroit cette carapace avait été extraite.
 
-Cette carapace de tortue était également un trésor Pseudo Vide du Nirvana. En tant que membre éminent de l'Alliance de la Culture, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître du Vide serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'origine source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis d'innombrables années!
+Cette carapace de tortue était également un trésor Pseudo-Vide du Nirvana. En tant que membre éminent de l'Alliance de Culture, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître du Vide serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'Origine Source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis d'innombrables années!
 
 La carapace de tortue vola et flotta devant Maître du Vide. Elle dégagea une immense quantité de lumière noire, mais au moment même où cette lueur commençait à briller, les vingt-trois grandes épées fondirent sur elle, les trois premières, alignées, la percutant de plein fouet. Un grondement tonitruant retentit; bien que la carapace fût repoussée, elle parvint à résister à l'assaut.
 
@@ -48,7 +48,7 @@ Une fois le bouclier brisé, la 22e et la 23e épées visèrent directement Maî
 
 Ces deux dernières lames contenaient la puissance la plus destructrice. En un clin d'œil, elles foncèrent vers la poitrine du Maître du Vide.
 
-Il n'avait pas le temps d'utiliser de sort à une telle distance, et il lui était impossible de renoncer à cette chance de comprendre l'origine source. Bien que cela puisse paraître lent, tout se joua en un instant. En ce moment critique, Maître du Vide agita la main et ses vêtements se mirent à flotter comme sous l'effet d'une tempête. Un vent violet apparut soudainement, formant un tourbillon autour de lui.
+Il n'avait pas le temps d'utiliser de sort à une telle distance, et il lui était impossible de renoncer à cette chance de comprendre l'Origine Source. Bien que cela puisse paraître lent, tout se joua en un instant. En ce moment critique, Maître du Vide agita la main et ses vêtements se mirent à flotter comme sous l'effet d'une tempête. Un vent violet apparut soudainement, formant un tourbillon autour de lui.
 
 Pourtant, dès que le tourbillon se forma, la 22e épée le percuta. Un fracas assourdissant retentit et le tourbillon s'effondra!
 
@@ -60,15 +60,15 @@ Il leva sa main gauche endolorie et frotta les traces de rouille sur l'épée de
 
 Lorsque Maître du Vide fut frappé par la 23e épée, il cracha une énorme bouffée de sang. Son visage était livide, ses vêtements en lambeaux et sa poitrine n'était plus qu'un chaos ensanglanté.
 
-« Presque arrivé!!! » Maître du Vide semblait avoir perdu la raison. Il ignorait totalement les blessures de son corps pour se focaliser sur la compréhension de l'origine source. Il avait le sentiment d'être sur le point de toucher le chemin vers la troisième étape et d'atteindre l'illumination totale!
+« Presque arrivé!!! » Maître du Vide semblait avoir perdu la raison. Il ignorait totalement les blessures de son corps pour se focaliser sur la compréhension de l'Origine Source. Il avait le sentiment d'être sur le point de toucher le chemin vers la troisième étape et d'atteindre l'illumination totale!
 
 Cependant, à cet instant précis, le pouvoir étrange issu de la rouille pénétra le vide lorsque Wang Lin fit claquer ses doigts. Alors que le Maître du Vide était sur le point de comprendre la voie de la troisième étape, la rouille effleura son corps comme une brise légère.
 
-Le corps du Maître du Vide trembla et un flot de sang jaillit de sa poitrine. Le sang s'échappait de tous ses orifices, le forçant à reculer. Ce mouvement l'arracha à la lumière rouge où se trouvait l'origine source, ruinant ainsi tous ses efforts!
+Le corps du Maître du Vide trembla et un flot de sang jaillit de sa poitrine. Le sang s'échappait de tous ses orifices, le forçant à reculer. Ce mouvement l'arracha à la lumière rouge où se trouvait l'Origine Source, ruinant ainsi tous ses efforts!
 
-« Non!!! » Les yeux du Maître du Vide devinrent rouges comme ceux d'une bête, mais son corps fut projeté loin de l'origine source, impuissant. Dans le même temps, une quantité massive de sang jaillit de lui.
+« Non!!! » Les yeux du Maître du Vide devinrent rouges comme ceux d'une bête, mais son corps fut projeté loin de l'Origine Source, impuissant. Dans le même temps, une quantité massive de sang jaillit de lui.
 
-Le troisième œil de Wang Lin brilla et la lumière rouge se dissipa. Presque toute l'origine source avait disparu; il n'en restait qu'un infime fragment, que Wang Lin rappela dans son troisième œil.
+Le troisième œil de Wang Lin brilla et la lumière rouge se dissipa. Presque toute l'Origine Source avait disparu; il n'en restait qu'un infime fragment, que Wang Lin rappela dans son troisième œil.
 
 Wang Lin tenait son épée de fer tandis que son regard glacial se tourna vers la belle femme. L'esprit de cette dernière vacilla sous ce regard. Les sorts et le trésor de Wang Lin l'avaient profondément terrifiée. Elle n'osait plus croiser ses yeux et baissa la tête.
 
@@ -76,7 +76,7 @@ Quant à l'homme en noir, lorsque Wang Lin le fixa, ses yeux révélèrent un m�
 
 Que ce fût par la ruse ou par la tromperie, il avait réussi à vaincre un cultivateur Briseur du Nirvana. Personne ne voulait s'attirer les foudres d'un tel homme!
 
-« Si vous voulez mon origine source, si vous voulez mon trésor, alors venez vite les chercher! » Une intention meurtrière traversa les yeux de Wang Lin tandis qu'il affichait un rictus méprisant. Son corps disparut progressivement dans le vortex violet formé par les deux statues.
+« Si vous voulez mon Origine Source, si vous voulez mon trésor, alors venez vite les chercher! » Une intention meurtrière traversa les yeux de Wang Lin tandis qu'il affichait un rictus méprisant. Son corps disparut progressivement dans le vortex violet formé par les deux statues.
 
 Bien qu'il ait disparu, le choc qu'il laissa à la belle femme, à l'homme en noir et au Maître du Vide perdura longtemps.
 
@@ -84,19 +84,19 @@ La peur dans les yeux de l'homme en noir ne pouvait s'estomper. La simple pensé
 
 Cette attaque des vingt-trois épées lui avait fait perdre une partie de sa confiance.
 
-« La Secte Divine de l'Oiseau Vermillon renaîtra grâce à cet homme. Dans ce domaine stellaire de l'Alliance, non seulement ils retrouveront leur gloire passée, mais ils atteindront de nouveaux sommets! Cet homme... possède une origine source! Qui lui a donné l'origine source... » L'homme en noir tremblait, et la terreur dans son regard s'intensifiait.
+« La Secte Divine de l'Oiseau Vermillon renaîtra grâce à cet homme. Dans ce Système Stellaire de l'Alliance, non seulement ils retrouveront leur gloire passée, mais ils atteindront de nouveaux sommets! Cet homme... possède une Origine Source! Qui lui a donné l'Origine Source... » L'homme en noir tremblait, et la terreur dans son regard s'intensifiait.
 
 Le corps du Maître du Vide s'écrasa au sol. Son visage était pâle et il était dans un état lamentable. Ses yeux étaient emplis de frustration!
 
-« Encore un tout petit peu! Juste un fragment de plus, ah! » Maître du Vide serra le poing. La douleur physique et la destruction de la moitié de son âme originelle firent chuter considérablement son niveau de culture. L'espoir qu'il avait ressenti au seuil de la compréhension de l'origine source, suivi d'une déception irréparable, lui fit pousser un rugissement de rage.
+« Encore un tout petit peu! Juste un fragment de plus, ah! » Maître du Vide serra le poing. La douleur physique et la destruction de la moitié de son âme originelle firent chuter considérablement son niveau de culture. L'espoir qu'il avait ressenti au seuil de la compréhension de l'Origine Source, suivi d'une déception irréparable, lui fit pousser un rugissement de rage.
 
 Cependant, il était un être ayant cultivé durant de longues années. Après ce cri, il se calma et une intention meurtrière plus intense encore apparut dans ses yeux.
 
-« Cet enfant est bien trop rusé; il est aussi audacieux et décisif. Je ne dois pas le laisser devenir le futur Empereur Divin de l'Oiseau Vermillon! Pour le tuer, je suis prêt à risquer que mon premier Fléau Céleste arrive 3 000 ans plus tôt afin de saisir cette chance pour l'éliminer et m'emparer de l'origine source! »
+« Cet enfant est bien trop rusé; il est aussi audacieux et décisif. Je ne dois pas le laisser devenir le futur Empereur Divin de l'Oiseau Vermillon! Pour le tuer, je suis prêt à risquer que mon premier Fléau Céleste arrive 3 000 ans plus tôt afin de saisir cette chance pour l'éliminer et m'emparer de l'Origine Source! »
 
 Le choc dans le cœur de la belle femme n'était pas moins intense que celui de l'homme en noir ou du Maître du Vide. En réalité, parce qu'elle en savait davantage, elle était plus stupéfaite que les deux autres.
 
-Ce qui la choquait, outre l'origine source de Wang Lin, c'était cette épée de fer! Elle n'avait entendu parler de trésors d'une telle puissance qu'une seule fois dans sa vie.
+Ce qui la choquait, outre l'Origine Source de Wang Lin, c'était cette épée de fer! Elle n'avait entendu parler de trésors d'une telle puissance qu'une seule fois dans sa vie.
 
 Elle se remémora le Royaume du Vide Brillant, lorsque les Anciens discutaient des trésors du monde. Ils avaient mentionné que, bien que les trésors soient classés en Spirituel, Mystérieux, Céleste, Vide et Nirvana, ces cinq catégories n'étaient pas les seules. Il existait des trésors surpassant ces cinq rangs, mais même l'Ancien qui en parlait n'avait rencontré que des trésors de niveau Nirvana.
 

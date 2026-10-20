@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 716 - Moongazers Wrath, The Finger of the Ancient God
 slug: la-colère-du-moongazer-le-doigt-de-lancien-dieu
 ---
-Dans les souvenirs du dieu ancien Tu Si, il y avait une phrase qu'il utilisait pour décrire les Serpents aux yeux de lune:
+Dans les souvenirs du dieu ancien Tu Si, il y avait une phrase qu'il utilisait pour décrire les Serpents aux yeux de lune, ces entités qui vivent en parasites sur les dieux anciens:
 
 « Si les cieux possèdent un esprit, alors le dieu ancien possède un serpent aux yeux de lune! »
 
@@ -24,7 +24,7 @@ S'il s'agissait d'un dieu ancien d'une seule étoile, cela ne ferait que prêter
 
 Cependant, l'énorme Serpent aux yeux de lune qui se dressait devant Wang Lin n'avait rien d'une plaisanterie!
 
-Le corps de Wang Lin dégageait une lueur froide alors que sa vitesse et celle du garde céleste atteignaient leurs limites pour s'échapper en emportant l'os. Il avait tenté de l'absorber avec la Perle Défiant le Ciel, mais pour une raison quelconque, le processus était d'une lenteur exaspérante et ne pouvait s'achever en peu de temps.
+Le corps de Wang Lin dégageait une lueur froide alors que sa vitesse et celle du garde céleste atteignaient leurs limites pour s'échapper en emportant la moitié de l'os. Il avait tenté de l'absorber avec la Perle Défiant le Ciel, mais pour une raison quelconque, le processus était d'une lenteur exaspérante et ne pouvait s'achever en peu de temps.
 
 À cet instant, un grondement violent résonna à travers la planète Yun Xia. Ce son était si puissant qu'il serait réducteur de ne l'appeler que tonnerre. Ce rugissement de rage retentit à travers les étoiles et put être entendu au loin.
 
@@ -32,7 +32,7 @@ La paupière de Wang Lin tressaillit. Sans se retourner, il s'enfuit avec préci
 
 Toutefois, cet os avait mis d'innombrables années à se former; il n'était donc pas étonnant que le Serpent aux yeux de lune soit dans une telle rage.
 
-Le corps massif du Serpent aux yeux de lune s'étira lentement, perdant sa forme circulaire initiale. Cela fit trembler la terre plus violemment encore, et le sol s'effondra à nouveau. Cette fois, l'effondrement fut total!
+Le corps massif du Serpent aux yeux de lune s'étira lentement, perdant sa forme circulaire initiale. Cela fit trembler la terre plus violemment encore, dans un bruit de déchirement, et le sol s'effondra à nouveau. Cette fois, l'effondrement fut total!
 
 D'innombrables tentacules géants se déployèrent et oscillèrent sans cesse, tandis qu'une aura inimaginable se propageait progressivement de son corps.
 
@@ -42,7 +42,7 @@ Mais à cet instant précis, la fissure se referma lentement.
 
 Les yeux de Cupidité s'emplirent de larmes de sang et il poussa un cri déchirant: « Non!! »
 
-Le Serpent aux yeux de lune referma sa gueule, son corps immense débordant de puissance. Ses mouvements étaient encore lents, car il ne reprenait pas encore totalement le contrôle de lui-même. Cependant, à mesure que les restes de la brume du Fruit d'Ascension Céleste étaient purgés de son système, il regagnait progressivement sa maîtrise.
+Le Serpent aux yeux de lune referma sa gueule, son corps immense débordant de puissance. Ses mouvements étaient encore lents, car il ne reprenait pas encore totalement le contrôle de lui-même. Cependant, à mesure que les restes de l'influence du Fruit d'Ascension Céleste étaient purgés de son système, il regagnait progressivement sa maîtrise.
 
 Wang Lin transportait l'os du Serpent aux yeux de lune, avec le garde céleste dans son sillage. Dès qu'ils pénétrèrent dans l'espace, il frappa son sac de rangement et la Boussole Stellaire apparut. Se transformant en un rayon de lumière argentée, il s'élança au loin sans jamais se retourner.
 
@@ -50,7 +50,7 @@ Le regard glacial du Serpent aux yeux de lune fixa Wang Lin au loin. Les immense
 
 Une onde de choc colossale se propagea dans toutes les directions, puis le Serpent aux yeux de lune fit un mouvement. On aurait presque pu croire qu'il ne s'était pas déplacé, et pourtant, la distance qui le séparait de Wang Lin fut comblée en un instant.
 
-Simultanément, le Serpent aux yeux de lune ouvrit la gueule et parla la langue des dieux anciens. Le cuir chevelu de Wang Lin se hérissa lorsqu'il vit des centaines de serpents aux yeux de lune plus petits jaillir de sa bouche.
+Simultanément, le Serpent aux yeux de lune ouvrit la gueule et parla la langue des dieux anciens. Le cuir chevelu de Wang Lin se hérissa lorsqu'il vit plus d'une centaine de serpents aux yeux de lune plus petits, longs d'environ mille pieds chacun, jaillir de sa bouche.
 
 Cupidité se trouvait également à l'intérieur de cette gueule. En voyant les étoiles, son excitation s'embrasa de nouveau. Cette sensation était trop délicieuse; cela faisait bien trop longtemps qu'il n'avait pas contemplé le firmament. Il était si exalté qu'il en perdait la parole.
 
@@ -58,7 +58,7 @@ Mais il savait qu'il ne s'était pas véritablement échappé. Ses yeux repérè
 
 Toutefois, il n'osait agir avec imprudence. Trop de ces bêtes féroces de mille pieds de long l'entouraient, et il craignait que ses mouvements n'attirent leur attention sur lui.
 
-Wang Lin prit une profonde inspiration glacée. Sans hésiter, il toucha son sac de rangement pour en sortir le vin céleste. Serrant les dents, il en avala une longue gorgée, n'en laissant que deux gouttes.
+Wang Lin prit une profonde inspiration glacée. Sans hésiter, il toucha son sac de rangement pour en sortir le vin céleste. Serrant les dents, il en avala une gorgée, n'en laissant que deux gouttes.
 
 En un instant, une énergie spirituelle céleste infinie explosa dans son corps. Cette énergie était dense et riche; après tout, c'était l'essence même d'un véritable être céleste!
 
@@ -68,7 +68,7 @@ L'énergie spirituelle céleste qui menaçait de faire exploser son corps jailli
 
 Normalement, Wang Lin n'aurait jamais pu accomplir un tel prodige; il s'appuyait entièrement sur le vin céleste. Sans lui, il lui aurait été impossible d'utiliser le sort « Arrête » avec une telle intensité.
 
-Profitant de cet instant, Wang Lin s'élança sans la moindre hésitation. Il se déplaçait avec une rapidité extrême, utilisant les sorts d'évasion qu'il avait appris du vieil homme de la Terre des Esprits Démoniaques.
+Profitant de cet instant, Wang Lin s'élança sans la moindre hésitation. Il se déplaçait avec une rapidité extrême, utilisant les sorts d'évasion du vieil homme de la Terre des Esprits Démoniaques, expert en fuite.
 
 Wang Lin avait immobilisé les petits serpents aux yeux de lune, mais le sort n'avait aucun effet sur le grand serpent qui constituait la planète Yun Xia. Ce dernier s'élança avec une telle violence que l'impact permit aux plus petits spécimens de retrouver leur liberté.
 

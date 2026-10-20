@@ -52,7 +52,7 @@ Le tunnel était court, et il atteignit l'autre grotte en peu de temps. Mais à 
 
 Wang Lin balaya la pièce du regard, hocha la tête et recula de quelques pas. Il fit demi-tour pour regagner sa propre demeure, conscient que la situation avait changé.
 
-Il savait que la Secte des Cadavres imposait des règles strictes, mais peu importe leur rigueur, il était inutile de placer un expert du stade intermédiaire de l'Établissement des Fondations devant sa chambre. Pourtant, il se souvenait distinctement qu'à son arrivée, l'occupant de cette pièce n'était qu'un disciple au 13ème niveau de la Condensation de Qi.
+Il savait que la Secte des Cadavres imposait des règles strictes, mais peu importe leur rigueur, il était inutile de placer un expert du stade intermédiaire de l'Établissement des Fondations devant sa chambre. Pourtant, il se souvenait distinctement qu'à son arrivée, l'occupant de cette pièce n'était qu'un disciple vers le 13ème niveau de la Condensation de Qi.
 
 Face à ce constat, Wang Lin se dirigea vers une autre issue de sa propre grotte. Après un passage dans un tunnel, il déboucha dans une cavité plus petite.
 

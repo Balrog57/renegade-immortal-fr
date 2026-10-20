@@ -76,7 +76,7 @@ La fusion des 3 000 âmes était parfaite et ne pouvait être séparée. Cependa
 
 « C'est impossible! Impossible! Pourquoi? Tu peux encore contrôler ce corps... Cela contredit les règles de ce monde! Cela défie les lois de ce monde! Je suis le Dao Céleste, c'est moi qui fixe les règles! Tous les corps que je prends m'appartiennent!! »
 
-« Je connais tes souvenirs. Même en utilisant le sort des Trois Vies, tu ne devrais pas pouvoir faire cela. Même si tu mourais mille fois, je ne mourrais toujours pas. Toi... Qui es-tu?! » Les 2 999 âmes éparpillées se transformèrent en un brouillard indistinct. Ce nuage contenait toutes les vies que l'Omniscient avait dévorées au cours de ses plus de 90 éveils.
+« Je connais tes souvenirs. Même en utilisant le sort des Trois Vies, tu ne devrais pas pouvoir faire cela. Même si tu mourais mille fois, je ne mourrais toujours pas. Par quel moyen as-tu fait cela? Toi... Qui es-tu?! » Les 2 999 âmes éparpillées se transformèrent en un brouillard indistinct. Ce nuage contenait toutes les vies que l'Omniscient avait dévorées au cours de ses plus de 90 éveils.
 
 Elles hurlaient toutes simultanément!
 

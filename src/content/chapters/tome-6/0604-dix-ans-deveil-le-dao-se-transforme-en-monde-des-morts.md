@@ -32,7 +32,7 @@ Cette rivière était trouble, parcourue par d'innombrables restes et membres qu
 
 D'un mouvement du petit doigt de Wang Lin, de grandes vagues furent créées au sein de la rivière avant de descendre des cieux. Elles s'abattirent comme un déluge, piégeant tout être vivant sur leur passage.
 
-Alors que les eaux du monde des morts tombaient du ciel, l'azur devint nuageux et le domaine de la vie et de la mort fut activé!
+Alors que les eaux du monde des morts tombaient du ciel, l'azur devint nuageux et le cycle de la vie et de la mort commença!
 
 Cette rivière des enfers était une entité qu'il avait comprise durant les dix années nécessaires à la fusion de son âme originelle et de son domaine. Cette rivière n'appartenait pas aux cieux; elle était issue du Dao de Wang Lin, et lui seul en avait le contrôle. Il avait saisi le cycle de réincarnation du ciel et de la terre et, au cours de ces dix années d'éveil, il avait utilisé le Doigt des Enfers pour créer cette rivière sans fin!
 
@@ -64,7 +64,7 @@ La rivière des enfers tourbillonna avant de disparaître du monde, emportant av
 
 Le scorpion formé par les soldats démons s'effondra également. Tandis que les trente mille filaments d'énergie de massacre circulaient, ils ramenèrent avec eux des volutes de gaz gris.
 
-Ces filaments se précipitèrent vers Wang Lin, qui marchait lentement vers la ville. Le gaz gris semblait former une gigantesque cape sur le dos du jeune homme, une cape si vaste qu'elle recouvrait la terre entière.
+Ces filaments se précipitèrent vers Wang Lin, qui marchait vers la ville. Le gaz gris semblait former une gigantesque cape sur le dos du jeune homme, une cape si vaste qu'elle recouvrait la terre entière.
 
 Le visage de l'homme d'âge mûr sur le mur devint livide et sa gorge se dessécha. Il ne cessait de reculer, sentant qu'il était impuissant face à l'homme qui se dressait devant lui.
 
@@ -96,7 +96,7 @@ La puissance du Fruit de l'Ascension Céleste en lui était toujours aussi inten
 
 Il se transforma en un météore féroce, franchit la Montagne des Millions de Démons et fonça vers le lieu qu'il percevait!
 
-Ces derniers jours, ce grognement glacial ne se fit plus entendre. Le corps de Wang Lin s'était déjà rétabli grâce à toute la force vitale qu'il avait puisée dans la terre. En réalité, son corps atteignait son apogée grâce à cette immense énergie de massacre.
+Ces derniers jours, ce grognement glacial ne se fit plus entendre. Le corps de Wang Lin s'était déjà rétabli grâce à toute la force vitale qu'il avait puisée dans la terre. En réalité, son corps progressait vers son apogée grâce à cette immense énergie de massacre.
 
 Dans la tour noire du champ de bataille antique, une lueur fantomatique scintillait à l'intérieur d'une armure dont il manquait un protège-poignet, et un vieil homme était agenouillé devant elle!
 

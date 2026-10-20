@@ -66,7 +66,7 @@ Durant ce combat, le démon dispersé lui avait apporté des bénéfices inimagi
 
 Tout cela avait élargi la brèche dans la porte qui bloquait son ascension vers le second pas. Wang Lin n'avait jamais désiré atteindre ce stade autant qu'à cet instant!
 
-« Même mon garde céleste ne pourrait supporter un seul coup de ces sorts. Le second pas est d'une puissance colossale! Chaque bataille peut facilement anéantir une planète de culture. Cela ressemble étrangement à la scène que j'ai vue lors de la réception de l'héritage de l'Ancien Dieu. »
+« Même mes marionnettes de garde céleste ne pourraient supporter un seul coup de ces sorts. Le second pas est d'une puissance colossale! Chaque bataille peut facilement anéantir une planète de culture. Cela frôle le niveau des scènes de pouvoir que j'ai vues lors de la réception de l'héritage de l'Ancien Dieu. »
 
 Non seulement lui, mais tous les membres de la famille Huan semblaient avoir reçu une illumination après ce combat. C'était comme si un nouveau monde s'était ouvert devant eux. Cependant, comparés à Wang Lin, leurs gains étaient insignifiants.
 

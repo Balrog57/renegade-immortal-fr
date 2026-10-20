@@ -18,9 +18,9 @@ Les brèches de la formation se refermèrent à une vitesse visible à l'œil nu
 
 Après avoir accompli cela, Wang Lin fit un pas en avant puis disparut complètement. Lorsqu'il réapparut, il se trouvait à l'extérieur de la vallée.
 
-L'homme en robe noire le fixa froidement à une centaine de mètres de distance.
+L'homme en robe noire, perché sur son épée volante, le fixa froidement à une centaine de mètres de distance.
 
-Des filaments de gaz violets dansaient autour de chacun d'eux comme des spectres.
+Des filaments de gaz violets dansaient autour de chacun d'eux comme des spectres. Dans les flots d'énergie démoniaque alentour, des bêtes spirituelles démoniaques prenaient parfois forme; certaines, à peine apparues, bondissaient directement sur eux.
 
 La main droite de Wang Lin pointa vers le vide et, soudain, une bête spirituelle démoniaque laissa échapper un cri déchirant avant de disparaître.
 
@@ -30,7 +30,7 @@ Trois filaments de gaz gris dansaient entre les doigts de Wang Lin, produisant u
 
 L'homme en robe noire eut un rire colérique: « Quel être arrogant! Si tu ne me semblais pas familier et que je ne voulais pas blesser un ami ou une connaissance, pourquoi même te parlerais-je? Puisque tu cherches la mort, je vais exaucer ton vœu! »
 
-Wang Lin ne prit même pas la peine de lui répondre. Tandis que l'homme parlait, Wang Lin frappa son sac de rangement et l'épée céleste apparut. Il fit un pas en avant et trancha l'air avec l'épée céleste. Un rayon d'énergie d'épée s'éleva sur une dizaine de mètres de haut avant de fondre sur l'homme telle la foudre.
+Wang Lin ne prit même pas la peine de lui répondre. Tandis que l'homme parlait, Wang Lin frappa son sac de rangement et l'épée céleste apparut. Il fit un pas en avant et trancha l'air avec l'épée céleste. Un rayon d'énergie d'épée large d'une dizaine de mètres jaillit dans les airs avant de fondre sur l'homme tel l'éclair.
 
 Simultanément, la lame demi-lune le suivit de près, telle un éclair.
 
@@ -46,7 +46,7 @@ En contemplant son épée volante fissurée, le regard de l'homme en robe noire 
 
 L'homme cria: « Flamme d'Extinction Terrestre, consume-le jusqu'au néant! » Il pointa l'avant et la flamme noire s'élança. En plein vol, elle se fragmenta en d'innombrables petites étincelles qui pleuvent sur Wang Lin.
 
-Dès que la pluie de flammes noires atteignit sa cible, une lueur fantomatique jaillit. Cette lumière fit changer brusquement l'expression de l'homme en robe noire et força son corps à reculer d'une dizaine de centimètres. Cependant, il était trop tard. Il vit soudain le sang jaillir du côté droit de sa poitrine; un regard d'incrédulité traversa ses yeux alors qu'il reculait précipitamment pour avaler quelques pilules.
+Dès que la pluie de flammes noires atteignit sa cible, une lueur sombre jaillit. Cette lumière fit changer brusquement l'expression de l'homme en robe noire et força son corps à reculer d'une dizaine de centimètres. Cependant, il était trop tard. Il vit soudain le sang jaillir du côté droit de sa poitrine; un regard d'incrédulité traversa ses yeux alors qu'il reculait précipitamment pour avaler quelques pilules.
 
 La lame demi-lune apparut à côté de l'épée céleste en un éclair, encore maculée de sang.
 
@@ -82,11 +82,11 @@ D'immenses ondulations de fluctuations magiques se propagèrent depuis l'épicen
 
 Peu après, les ondes d'énergie démoniaque revinrent en force comme une armée de chevaux au galop pour recouvrir à nouveau la zone.
 
-L'homme en robe noire se tenait au cœur de cette onde de choc. Loin de montrer le moindre signe de joie, son regard devint extrêmement sérieux. Il prit une profonde inspiration, recula brusquement d'une centaine de mètres et commença à former des sceaux, fixant intensément l'endroit de l'explosion sans même ciller!
+L'homme en robe noire se tenait au milieu de ces vagues noires d'énergie démoniaque. Loin de montrer le moindre signe de joie, son regard devint extrêmement sérieux. Il prit une profonde inspiration, recula brusquement d'une centaine de mètres et commença à former des sceaux, fixant intensément l'endroit de l'explosion sans même ciller!
 
 La zone de l'explosion s'assombrit sous le retour de l'énergie démoniaque, mais au milieu de cette obscurité, une silhouette émergea lentement, pas après pas.
 
-Les vêtements de la silhouette flottaient dans l'air malgré l'absence de vent, et des sifflements émanaient de son bras droit. En y regardant de plus près, on aurait pu voir une sorte de petit serpent s'agiter entre ses doigts.
+Les vêtements de la silhouette flottaient dans l'air malgré l'absence de vent, dans un claquement sec, et des sifflements émanaient de son bras droit. En y regardant de plus près, on aurait pu voir une sorte de petit serpent s'agiter entre ses doigts.
 
 À mesure que la silhouette avançait, le visage de l'homme en robe noire s'assombrit davantage. Sa vitesse de formation des sceaux s'accéléra et il se mit à réciter des incantations.
 
@@ -106,7 +106,7 @@ La silhouette suivit immédiatement la pression du pouce. Il leva la tête et re
 
 L'homme en robe noire était extrêmement agacé. Il avait entendu parler de Wang Lin et avait même vu son visage sur un morceau de jade. Après tout, les disciples de l'Omniscient étaient des personnalités suivies par tous sur la planète Tian Yun.
 
-Surtout Wang Lin, dont l'apparition soudaine avait stupéfié le monde. Si le sixième disciple n'était pas revenu subitement pour vaincre Wang Lin grâce à sa culture de niveau Ascendant, le titre de l'un des Sept Disciples du Destin Céleste lui serait sans doute revenu!
+Surtout Wang Lin, qui avait écrasé ses adversaires en un seul combat et dont l'apparition soudaine avait stupéfié le monde. Si le sixième disciple n'était pas revenu subitement pour vaincre Wang Lin grâce à sa culture de niveau Ascendant, le titre de l'un des Sept Disciples du Destin Céleste lui serait sans doute revenu!
 
 Comment ne pas prêter attention à un tel individu? De plus, le sort interdit qu'il utilisait était singulier; il était spécialisé dans l'attaque de cultivateurs plus puissants. Dès lors, comment ne pas le surveiller de près, tant ce sort faisait convoiter bien des gens?
 

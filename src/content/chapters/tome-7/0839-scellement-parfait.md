@@ -40,7 +40,7 @@ La douleur physique ne parvint pas à déstabiliser son cœur dao. Cependant, le
 
 La silhouette illusoire qui apparaissait devant Yao Bingyun devint floue, puis disparut complètement.
 
-« Petite sœur... » Yao Bingyun regarda la fille s'évanouir avant de fermer les yeux. Sa vitalité et son dao étaient rapidement dévorés par les tentacules.
+« Petite sœur... » Yao Bingyun regarda la silhouette de la fille disparaître avant de fermer les yeux. Sa vitalité et son dao étaient rapidement dévorés par les tentacules.
 
 Wang Lin avait tout calculé avant de briser la glace. Si elle ne s'était pas réveillée, cela n'aurait pas eu d'importance; mais même si elle le faisait, compte tenu de l'étreinte des tentacules, Wang Lin n'avait aucune crainte.
 

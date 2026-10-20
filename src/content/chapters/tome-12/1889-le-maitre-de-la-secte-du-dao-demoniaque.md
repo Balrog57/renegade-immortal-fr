@@ -24,7 +24,7 @@ Il y avait aussi les centaines de personnes qui traversaient le réseau de trans
 
 Après Nuit Brisée, le monde changea de couleur. Hormis Wang Lin, il n'y avait plus aucune âme vivante. Son visage était d'une pâleur mortelle et son armure d'âme était sur le point de se dissiper. Sans hésiter, il chargea vers le Continent Terre-Meng, situé à 1 000 kilomètres de là!
 
-Ce n'était pas qu'il n'avait pas envisagé de détruire les six réseaux de transfert, mais ces derniers étaient anormaux. Ils étaient restés intacts après Nuit Brisée, ce qui prouvait leur caractère extraordinaire : il ne pourrait jamais les détruire en peu de temps!
+Ce n'était pas qu'il n'avait pas envisagé de détruire les six réseaux de transfert, mais ces derniers étaient anormaux. Ils étaient restés intacts après Nuit Brisée, ce qui prouvait leur caractère extraordinaire : il ne pourrait pas les détruire en peu de temps!
 
 En un éclair, Wang Lin parcourut la moitié de la distance, mais à cet instant précis, les six réseaux de transfert s'illuminèrent. Des fluctuations encore plus puissantes émanèrent des réseaux et une troisième vague de centaines de cultivateurs se mit à sa poursuite.
 
@@ -38,11 +38,11 @@ Cette ombre était quelque peu floue. Il était évident qu'elle avait été end
 
 « Tremblement Divin, Formation d'Armée! »
 
-« Sort Démoniaque, Montagne de Vent et de Feu! »
+« Sort Démoniaque, Montagne de Feux de Signal! »
 
 « Dao Démoniaque, Inversion de la Vie et de la Mort! »
 
-La main droite de Wang Lin poussa vers l'avant. Les centaines de cultivateurs, à l'exception des vieux monstres du stade avancé de la Tribulation du Vide, tremblèrent tous et leurs trajectoires de vol se déformèrent. Ils se retrouvèrent alignés comme une armée mortelle devant Wang Lin!
+La main droite de Wang Lin poussa vers l'avant. Les centaines de cultivateurs, à l'exception du vieux monstre du stade avancé de la Tribulation du Vide, tremblèrent tous et leurs trajectoires de vol se déformèrent. Ils se retrouvèrent alignés comme une armée mortelle devant Wang Lin!
 
 C'était la formation d'armée! La puissance du Tremblement Divin résonna comme des ondes de choc, provoquant l'hémorragie de leurs orifices pour la moitié de ces cultivateurs!
 
@@ -66,7 +66,7 @@ Wang Lin serra les dents et s'élança. En un éclair, les 500 kilomètres ne de
 
 Cependant, à ce moment précis, les sept réseaux de transfert s'allumèrent de nouveau. La quatrième vague de cultivateurs apparut et se lança à la poursuite de Wang Lin.
 
-« Empreinte de l'Esprit de Guerre! »
+« Empreinte de l'Esprit Guerrier! »
 
 « Lance aux Sept Couleurs! »
 
@@ -74,7 +74,7 @@ Cependant, à ce moment précis, les sept réseaux de transfert s'allumèrent de
 
 « Temps Fluide!! »
 
-« Essences, condensez-vous!! » Les yeux de Wang Lin étaient rouges. Il allait lancer tous ses sorts avant que son armure d'âme ne disparaisse pour anéantir ces cultivateurs du Dao Démoniaque!
+« Essences, condensez et dispersez!! » Les yeux de Wang Lin étaient rouges. Il allait lancer tous ses sorts avant que son armure d'âme ne disparaisse pour anéantir ces cultivateurs du Dao Démoniaque!
 
 Après l'Empreinte de l'Esprit de Guerre, l'immense empreinte de paume à six doigts s'abattit sur les centaines de personnes. Simultanément, la troisième transformation de la Lance aux Sept Couleurs fendit l'air.
 

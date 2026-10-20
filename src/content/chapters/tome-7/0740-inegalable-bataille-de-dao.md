@@ -44,7 +44,7 @@ Seule cette explication permettait à Xu Fenghan de sauver la face. Autrement, i
 
 « Je suppose que cette marionnette est ton corps originel et que ce corps n'est qu'un clone. Tu dois être trop blessé pour que ton âme originelle puisse réintégrer ton corps initial! » Plus Xu Fenghan parlait, plus ses pensées s'éclaircissaient et plus il se sentait certain de sa spéculation.
 
-« Voyons lequel de nos Daos est le plus fort! » Les yeux de Xu Fenghan devinrent glacials, saturés d'intention meurtrière. Le lotus au-dessus de sa tête commença à tourner avec une célérité accrue. La flamme noire devint si monstrueuse qu'elle forma un mur de ténèbres capable de dessécher la gorge du plus brave des spectateurs.
+« Voyons lequel de nos Daos est le plus fort! » Les yeux de Xu Fenghan devinrent glacials, saturés d'intention meurtrière. Le lotus au-dessus de sa tête commença à tourner avec une célérité accrue. La flamme noire devint si monstrueuse qu'elle forma un tourbillon de ténèbres capable de dessécher la gorge du plus brave des spectateurs.
 
 Xu Fenghan hurla: « Flamme démoniaque, brûle! » Le vortex de flammes se détacha du lotus et fonça vers Wang Lin.
 
@@ -52,7 +52,7 @@ Le vortex tournait à une vitesse folle, générant un vent chargé d'une chaleu
 
 Les yeux de Wang Lin lancèrent un éclat perçant. Cette bataille était son premier combat mortel depuis qu'il avait atteint le sommet de la phase tardive de l'Ascendant. Alors que les flammes démoniaques approchaient, Wang Lin leva la main et cria: « Deuxième capacité, Condensation de l'Âme du Fleuve! »
 
-La rivière des enfers trembla instantanément et tout le ressentiment qu'elle contenait se condensa. Ce ressentiment était d'une puissance inouïe; il s'agissait de toute la rancœur que Wang Lin avait recueillie auprès des mortels de la planète Qing Lin. Tous ces griefs fusionnèrent pour former une masse de douleur monstrueuse.
+La rivière des enfers trembla instantanément et tout le ressentiment qu'elle contenait se condensa. Ce ressentiment était d'une puissance inouïe; il s'agissait de toute la rancœur que Wang Lin avait recueillie auprès des mortels de la planète Qing Ling. Tous ces griefs fusionnèrent pour former une masse de douleur monstrueuse.
 
 Ce ressentiment colossal se solidifia et jaillit sous forme d'ombres. Chaque ombre arborait la silhouette d'un mortel.
 
@@ -66,13 +66,13 @@ L'esprit vengeur et le vortex de flammes entrèrent en collision, libérant une 
 
 Le firmament semblait être mis en pièces par cette force!
 
-La terre trembla violemment sous l'impact. Une crevasse apparut devant Wang Lin et Xu Fenghan, se propageant avec rapidité. C'était comme si le continent entier était en train de se scinder en deux!
+La terre trembla violemment sous l'impact. Une crevasse apparut entre Wang Lin et Xu Fenghan, se propageant avec rapidité. C'était comme si le continent entier était en train de se scinder en deux!
 
 L'esprit vengeur vola en éclats, redevenant d'innombrables fils de ressentiment qui retournèrent dans la rivière des enfers. La rivière elle-même s'effondra!
 
 La rivière des enfers était son Dao, et son effondrement signifiait l'effondrement de son propre Dao. Lorsque Wang Lin ressentit les conséquences de cette rupture, son visage pâlit instantanément et il recula en titubant. La puissance de la flamme démoniaque s'était transmise à la rivière des enfers et, lors de son effondrement, elle fut injectée directement dans l'âme originelle de Wang Lin.
 
-Cette flamme démoniaque brûlait comme si elle voulait consumer le monde entier. Le visage de Wang Lin rougit légèrement, puis il cracha une large traînée de sang avant d'être instantanément envahi par une intention meurtrière!
+Cette flamme démoniaque brûlait comme si elle voulait consumer le monde entier. Le visage de Wang Lin rougit légèrement, puis il cracha un gros jet de sang avant d'être instantanément envahi par une intention meurtrière!
 
 « Troisième capacité, Pouvoir de la Rivière des Enfers! » La tête de Wang Lin se redressa brusquement et il fixa le fleuve dévasté. Sa nature inflexible transparaissait dans son regard.
 
@@ -80,7 +80,7 @@ Il ne céderait jamais. Si son Dao s'effondrait, il le reconstruirait! Si la riv
 
 L'expression de Xu Fenghan était également blême et il recula lui aussi de plusieurs pas. Bien que le Dao formé par ses flammes n'ait pas sombré, c'était comme si une pluie torrentielle s'était abattue sur lui, éteignant plus de la moitié des flammes.
 
-Même son corps fut érodé par l'esprit vengeur de la rivière des enfers. Heureusement, sa culture était assez puissante pour le supprimer après de multiples tentatives. S'il n'y était pas parvenu, l'esprit aurait envahi son esprit et il serait devenu fou avant même que Wang Lin ne puisse attaquer.
+Lui-même fut aussi rongé par le ressentiment de la rivière des enfers. Heureusement, sa culture était assez puissante pour le supprimer après de multiples tentatives. S'il n'y était pas parvenu, l'esprit aurait envahi son esprit et il serait devenu fou avant même que Wang Lin ne puisse attaquer.
 
 « Les batailles de Dao sont les plus périlleuses; ces paroles ne sont pas mensongères! » Pour la première fois, Xu Fenghan considéra Wang Lin comme son égal.
 

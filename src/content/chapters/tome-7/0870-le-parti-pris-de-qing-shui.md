@@ -8,7 +8,7 @@ slug: le-parti-pris-de-qing-shui
 ---
 Le visage de Wang Lin était d'une pâleur mortelle lorsqu'il sentit soudainement une force inimaginable surgir au milieu du combat. Cela fit trembler son corps, le contraignant à battre en retraite tout en crachant une bouchée de sang. Après avoir atterri, il recula de plusieurs pas.
 
-Quant à Luo Su, il cracha lui aussi un flot de sang et fut forcé de reculer. Une fois stabilisé, il fixa Wang Lin d'un regard meurtrier.
+Quant à Luo Su, il cracha lui aussi un flot de sang et fut forcé de reculer de plusieurs mètres. Une fois stabilisé, il fixa Wang Lin d'un regard meurtrier.
 
 Le Maître Yan Leizi n'avait pris parti pour aucun des deux camps lorsqu'il les sépara de force. Cependant, le sang versé par Wang Lin avait provoqué l'irruption du Royaume Ji de Qing Shui!
 
@@ -84,7 +84,7 @@ Puisque Luo Su était mort, le Maître Yan Leizi chargea quelqu'un d'autre d'agi
 
 « Deuxième épreuve: l'épreuve terrestre! » La main droite du Maître Yan Leizi traça un sceau avant de presser vers le lac de tonnerre en contrebas.
 
-Une rune illusoire se condensa dans sa main et s'abattit rapidement sur la place. À l'instant où l'empreinte toucha le sol, toute la zone commença à trembler. D'innombrables grondements de tonnerre résonnèrent et des arcs électriques jaillirent partout sur la place. C'était comme si elle s'était transformée en un véritable lac de foudre.
+Une empreinte illusoire se condensa dans sa main et s'abattit rapidement sur la place. À l'instant où l'empreinte toucha le sol, toute la zone commença à trembler. D'innombrables grondements de tonnerre résonnèrent et des arcs électriques jaillirent partout sur la place. C'était comme si elle s'était transformée en un véritable lac de foudre.
 
 Ces éclairs ressemblaient à des serpents d'argent scintillant sans cesse. Ils étaient si denses qu'ils semblaient se presser les uns contre les autres avant de se disperser soudainement dans toutes les directions, laissant apparaître un espace vide de dix mètres de côté au centre de la place.
 
@@ -96,7 +96,7 @@ Tous les regards des cultivateurs environnants convergèrent vers Wang Lin. Il a
 
 Même certains vieux monstres de grande renommée commencèrent à prêter attention.
 
-« La pression des autres esprits dans ce lac n'est pas supportable pour un homme ordinaire. Même ce Xu Mu ne pourra tenir au maximum que 20 respirations. Après tout, même parmi les messagers du Temple Céleste du Tonnerre qui pratiquent la culture du tonnerre, peu peuvent tenir plus de 20 respirations! »
+« La puissance de l'esprit de foudre de ce lac n'est pas supportable pour un homme ordinaire. Même ce Xu Mu ne pourra tenir au maximum que 20 respirations. Après tout, même parmi les messagers du Temple Céleste du Tonnerre qui pratiquent la culture du tonnerre, peu peuvent tenir plus de 20 respirations! »
 
 « Pour autant que je sache, ce lac est l'une des épreuves pour devenir messager du Temple Céleste du Tonnerre. Les messagers sont divisés en quatre rangs: si vous tenez 20 respirations, vous êtes de rang 4; 80 respirations vous placent au rang 1. Si vous dépassez les 100 respirations, vous pouvez devenir un messager du temple intérieur! J'ignore combien de temps ce Xu Mu pourra tenir, mais j'ai hâte de le voir! »
 

@@ -12,7 +12,7 @@ Le choc entre le dragon de tonnerre antique et l'esprit du tonnerre provoqua une
 
 L'âme originelle du dragon de tonnerre antique de Wang Lin et l'esprit du tonnerre continuèrent à se dévorer mutuellement. Ce genre d'engloutissement était une fusion de tonnerre. Bien que l'esprit du tonnerre fût puissant, il n'était pas complet! Bien que le dragon de tonnerre antique fût puissant, Wang Lin ne s'était pas encore totalement fusionné avec lui. À cet instant, ils étaient d'égale force.
 
-Dans un rugissement de rage, l'âme originelle du dragon de tonnerre antique de Wang Lin engloutit la moitié de l'esprit du tonnerre. L'esprit du tonnerre se débattit et s'emporta dans une folie meurtrière en entamant sa propre contre-attaque.
+Dans un rugissement de rage, l'âme originelle du dragon de tonnerre antique de Wang Lin engloutit la moitié de l'esprit du tonnerre. L'esprit du tonnerre se débattit et s'emporta dans une folie furieuse en entamant sa propre contre-attaque.
 
 Le dragon de tonnerre formé par l'âme originelle de Wang Lin afficha un regard glacial. Ce regard ignora l'esprit du tonnerre, tandis que l'âme originelle de Wang Lin ouvrit sa gueule pour dévorer une fois de plus.
 
@@ -44,7 +44,7 @@ Cependant, après avoir dévoré la moitié de l'esprit du tonnerre, il fut enfi
 
 GROOAAR!
 
-En un seul rugissement, les cieux et la terre changèrent de couleur. Tous les éclairs qui convergeaient vers l'esprit du tonnerre tremblèrent puis changèrent de direction. C'était comme s'ils étaient en pèlerinage, car ils se précipitèrent tous vers l'âme originelle du dragon de tonnerre antique de Wang Lin.
+En un seul rugissement, les cieux et la terre changèrent de couleur. Tous les éclairs qui convergeaient vers l'esprit du tonnerre tremblèrent puis changèrent de direction. C'était comme s'ils rendaient hommage, car ils se précipitèrent tous vers l'âme originelle du dragon de tonnerre antique de Wang Lin.
 
 Les expressions de tous les cultivateurs alentour changèrent radicalement. Même les vieux monstres sur les tapis de prière furent stupéfaits.
 
@@ -70,7 +70,7 @@ C'était là la puissance du dragon de tonnerre antique!
 
 D'innombrables éclairs pénétrèrent l'âme originelle de Wang Lin. Son âme originelle jaillit, et cette fois, la moitié restante de l'esprit du tonnerre n'osa pas résister et se laissa dévorer par Wang Lin!
 
-Précédemment, la fusion entre Wang Lin et le dragon de tonnerre antique ne représentait que 1/5ème de l'ensemble. Cependant, après avoir dévoré l'esprit du tonnerre et absorbé le lac de tonnerre, ce fut comme si une tempête éclatait à l'intérieur de son corps. Des grondements incessants résonnèrent alors que la fusion entre l'âme originelle de Wang Lin et le dragon de tonnerre antique atteignait près de 50 %!
+Précédemment, la fusion entre Wang Lin et le dragon de tonnerre antique ne représentait que 1/5ème de l'ensemble. Cependant, après avoir dévoré l'esprit du tonnerre et absorbé le lac de tonnerre, ce fut comme si une tempête éclatait à l'intérieur de son âme originelle. Des grondements incessants résonnèrent alors que la fusion entre l'âme originelle de Wang Lin et le dragon de tonnerre antique atteignait près de 50 %!
 
 Son âme originelle du dragon de tonnerre s'étendit immédiatement sur plus de 300 mètres, dégageant une pression colossale. Son regard glacial balaya la zone avant de se retirer entre les sourcils de Wang Lin. Puis, tout le tonnerre subsistant sur la place convergea rapidement vers lui. Wang Lin ouvrit les yeux sous les grondements infinis tandis que le tonnerre entourait son corps. Un sentiment de contrôle absolu sur la foudre envahit son cœur.
 

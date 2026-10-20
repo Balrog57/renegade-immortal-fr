@@ -40,7 +40,7 @@ Tous ces souvenirs empreints du passage du temps défilèrent devant les yeux de
 
 À ce moment précis, alors qu'il était assis sur la porte de pierre, Wang Lin contemplait le monde tout en se remémorant ces instants. Il intégra lentement tout cela en lui.
 
-« Chercher le Dao... En vérité, c'est faire entrer le Dao dans son cœur, telle est la quête du Dao. La prétendue compréhension et le domaine sont une seule et même chose. On garde une compréhension dans son cœur et on l'expérimente lentement jusqu'à ce qu'elle fusionne avec son propre Dao. Finalement, elle deviendra un domaine, un idéal. »
+« Chercher le Dao... En vérité, c'est faire entrer le Dao dans son cœur, telle est la quête du Dao. La compréhension et le domaine ne sont qu'une seule et même chose. On garde une compréhension dans son cœur et on l'expérimente lentement jusqu'à ce qu'elle fusionne avec son propre Dao. Finalement, elle deviendra un domaine, un idéal. »
 
 Wang Lin semblait se parler à lui-même, ses yeux clos tandis qu'il continuait de murmurer. Bien que ses paupières fussent closes, il pouvait toujours voir le monde, et la magnifique porte se dressait au sein de son esprit.
 
@@ -64,7 +64,7 @@ Le Temps qui S'écoule.
 
 Le temps coulait comme les souvenirs.
 
-Parce qu'il continuait de couler, le temps était éternel. Cependant, si une force pouvait provoquer l'effondrement de cette éternité, ce serait une puissance terrifiante.
+Parce qu'il continuait de couler, le temps était éternel. Cependant, si une force pouvait provoquer l'effondrement de cette éternité, faisant surgir un instant de floraison, ce serait une destruction terrifiante.
 
 La compréhension de Wang Lin se poursuivit. Le temps passa et, en un clin d'œil, sept jours s'écoulèrent. Il était assis sur la porte de pierre depuis dix jours complets.
 

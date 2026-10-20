@@ -12,11 +12,11 @@ La distance entre les deux se réduisit rapidement. En voyant Wang Lin charger, 
 
 Son regard se fit sérieux alors qu'il crachait quelques mots dans sa langue étrange, comme s'il tentait de communiquer quelque chose à Wang Lin.
 
-Wang Lin savait que les neuf talismans portés par l'homme bleu étaient très singuliers. Même après avoir subi une blessure grave infligée par lui, l'homme bleu avait pu se remettre totalement avec un seul talisman. Depuis lors, Wang Lin était devenu très curieux de ces objets.
+Wang Lin savait que les neuf talismans portés par l'homme bleu étaient très singuliers. Même après avoir été gravement blessé par une arme spirituelle, l'homme bleu avait pu se remettre totalement avec un seul talisman. Depuis lors, Wang Lin était devenu très curieux de ces objets.
 
 À présent, l'étranger arracha un autre talisman jaune et sa force doubla instantanément.
 
-Sans un mot, Wang Lin agita la main. Son énergie spirituelle circula dans tout son corps et son aura changea elle aussi brusquement.
+Sans un mot, Wang Lin agita les deux mains. Son énergie spirituelle circula dans tout son corps et son aura changea elle aussi brusquement.
 
 Des éclats d'énergie bleue flottèrent autour de lui. Une aura glaciale enveloppa son corps et une expression d'une froideur extrême apparut sur son visage.
 
@@ -50,7 +50,7 @@ Wang Lin murmura pour lui-même: « Il est temps de partir. Une fois que j'aurai
 
 « Je dois trouver un lieu de Yin terrestre, absolument! », se dit-il. Wang Lin savait qu'il devait trouver un lieu de Yin terrestre car, à chaque niveau de la Méthode d'Ascension des Enfers, la difficulté de la percée augmentait; en ne comptant que sur sa force brute, le taux de réussite serait bien trop faible, et seul un lieu de Yin extrême de haute qualité pouvait l'améliorer.
 
-Bien que les ruines regorgent d'une énergie Yin dense, Wang Lin savait que l'énergie Yin ici n'était que d'une qualité dense de rang 10 environ. Elle ne pourrait atteindre au maximum qu'une qualité extrême de rang 1 ou 2.
+Bien que les ruines regorgent d'une énergie Yin dense, Wang Lin estimait que l'énergie Yin ici n'était que d'une qualité dense de rang 10 environ. Même si son analyse était erronée, elle ne pourrait atteindre au maximum qu'une qualité extrême de rang 1 ou 2.
 
 Il fallait savoir que parmi les énergies Yin célestes, terrestres, mystiques et infernales, la différence entre le mystique et l'infernal n'était pas grande, mais l'écart avec les énergies terrestres et célestes était abyssal. Une énergie Yin terrestre de bonne qualité de rang 1 équivalait à une énergie Yin mystique ou infernale de qualité extrême de rang 1.
 
@@ -100,7 +100,7 @@ Wang Lin réfléchit un instant. Sans dire un mot, il bondit à plusieurs repris
 
 Il s'assit immédiatement et traça un sceau, faisant apparaître une lumière rouge. Celle-ci se divisa aussitôt en quatre, la lumière rouge atteignit son éclat maximal, puis, dans un bang, la boule de lumière se dissipa. Wang Lin fut saisi: il comprit que la qualité d'énergie Yin de cet endroit avait atteint la limite d'un lieu de Yin infernal: qualité extrême, rang 10!
 
-Dans sa joyeuse surprise, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur la dizaine de mètres qui l'entouraient. De loin, on aurait dit qu'une sphère rouge était apparue pour envelopper la tête du dragon.
+Dans sa joyeuse surprise, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur la dizaine de mètres qui l'entouraient. De loin, on aurait dit qu'un halo rouge circulaire était apparu pour envelopper la tête du dragon.
 
 Wang Lin resta assis ainsi pendant cinq jours.
 
@@ -112,7 +112,7 @@ Encore un pas, et il pourrait former son second noyau froid. Une fois cela fait,
 
 Ensuite, il tenta d'élever la qualité de son énergie spirituelle en y fusionnant cette énergie Yin de qualité extrême.
 
-Tout en contrôlant cette fusion, il observait sa propre énergie spirituelle. Il remarqua qu'elle devenait de plus en plus sombre, passant du bleu au bleu profond.
+Tout en contrôlant cette fusion, il observait sa propre énergie spirituelle. Il remarqua qu'elle devenait de plus en plus sombre, passant du bleu clair au bleu profond.
 
 Il ignorait que sa puissance spirituelle se rapprochait encore davantage du Royaume Ji.
 

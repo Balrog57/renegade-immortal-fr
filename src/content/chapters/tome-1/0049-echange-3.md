@@ -70,7 +70,7 @@ L'homme d'âge moyen qui se tenait à l'arrière de la Secte Xuan Dao se tourna 
 
 Lorsque les trois hommes apparurent, ils jetèrent un regard glacial sur l'assistance. L'un d'eux, un quadragénaire, déclara: « La Secte Xuan Dao? Humph. Il y a 20 ans, moi, Lu Song, j'ai perdu. Mais cette fois, ce ne sera pas le cas. »
 
-Les pupilles de Wang Lin se contractèrent. Parmi ces trois personnes, il n'en connaissait qu'une seule: son deuxième frère d'apprentissage, Zhang Kuang.
+Les pupilles de Wang Lin se contractèrent. Parmi ces trois personnes, il n'en connaissait qu'une seule: son second frère apprenti, Zhang Kuang.
 
 Huang Long déclara simplement: « Lu Song, c'est à toi cette fois. »
 

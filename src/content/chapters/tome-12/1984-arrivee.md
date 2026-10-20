@@ -60,7 +60,7 @@ De loin, la cité ancestrale présentait un aspect extrêmement étrange. La par
 
 Mais bientôt, ils ressentirent instantanément la destruction impitoyable émanant de la cité orientale. Cette aura n'était ni écrasante ni vibrante, mais dès qu'ils la perçurent, ils ne pensèrent qu'à la mort et à la fin du monde!
 
-Wang Lin avança lentement, des volutes de gaz noir entourant sa robe blanche. Elles s'accumulèrent jusqu'à ce que les étrangers ne puissent plus distinguer sa silhouette, n'apercevant plus qu'une masse de vapeurs sombres!
+Wang Lin avança lentement, des volutes de gaz noir remplaçant peu à peu sa robe blanche. Elles s'accumulèrent jusqu'à ce que les étrangers ne puissent plus distinguer sa silhouette, n'apercevant plus qu'une masse de vapeurs sombres!
 
 À mesure que Wang Lin progressait, la neige noire envahissait la lumière. À chaque pas, l'obscurité s'étendait d'un pas supplémentaire!
 
@@ -72,7 +72,7 @@ Partout où il passait, la neige noire fondait, transformant le sol en ruines. O
 
 Les bâtiments environnants semblaient traverser des éons en un instant sous les pas de Wang Lin. Ils se changeaient en poussière et s'éparpillaient.
 
-Il marcha pas à pas depuis la cité orientale vers la cité centrale. La distance était immense, mais à cet instant, des ondulations noires résonnaient à chacun de ses pas. Il semblait fusionner avec les ténèbres. Bien qu'il paraisse lent, il se déplaçait avec une rapidité telle qu'on ne voyait que la poussière tourbillonner.
+Il marcha pas à pas depuis la cité orientale vers le palais impérial, au centre de la cité ancestrale. La distance était immense, mais à cet instant, des ondulations noires résonnaient à chacun de ses pas. Il semblait fusionner avec les ténèbres. Bien qu'il paraisse lent, il se déplaçait avec une rapidité telle qu'on ne voyait que la poussière tourbillonner.
 
 L'obscurité dévora la lumière céleste et recouvrit la cité orientale en progressant vers le palais.
 

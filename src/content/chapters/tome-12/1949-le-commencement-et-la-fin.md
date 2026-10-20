@@ -38,7 +38,7 @@ Il s'immergea et utilisa le Dao de la tromperie pour échapper à l'inspection d
 
 « Cette essence de l'absolu commencement était la source de toute chaleur issue de la lumière... » Wang Lin était transporté par cette voix, et il voyait clairement la lumière de son œil gauche l'envelopper totalement. Dans cette clarté, c'était comme s'il contemplait des centaines de millions de levers de soleil.
 
-À travers ces millions d'aurores, Wang Lin ressentit une aura. Cette aura était un souffle de droiture immense, intègre et inflexible, une existence qui se dressait entre ciel et terre!
+À travers ces centaines de millions d'aurores, Wang Lin ressentit une aura. Cette aura était un souffle de droiture immense, intègre et inflexible, une existence qui se dressait entre ciel et terre!
 
 Ceux qui étaient imprégnés par cette aura devaient être des êtres de droiture. Ils ne portaient peut-être pas le poids du monde sur leurs épaules, mais ils étaient des êtres capables d'assumer chacune de leurs décisions!
 

@@ -38,7 +38,7 @@ Cependant, l'humeur du fou changea brusquement. Il ne lui fallut pas longtemps p
 
 Wang Lin avançait en silence, enfouissant sa tristesse et dissimulant son épuisement. Il avait encore tant de choses à accomplir; il ne pouvait pas se reposer pour autant.
 
-En observant le fou qui jouait au loin sans jamais s'éloigner trop, Wang Lin ressentit une pointe d'envie face à un tel bonheur. Cet homme était capable d'oublier tout ce qui importait et trouvait toujours le moyen de se réjouir.
+En observant le fou qui jouait au loin sans jamais s'éloigner trop, Wang Lin ressentit une pointe d'envie face à un tel bonheur. Cet homme était capable d'oublier n'importe quoi et trouvait toujours le moyen de se réjouir.
 
 Wang Lin ne le pouvait pas.
 
@@ -60,13 +60,13 @@ En levant les yeux, le fou aperçut également la planète de culture. Il devint
 
 Le regard de Wang Lin balaya la planète. Il n'attira l'attention d'aucun cultivateur et put analyser clairement la situation.
 
-Il s'agissait d'une planète de culture de rang 7, divisée en près d'une centaine de pays. On y trouvait de nombreux cultivateurs, mais la plupart n'étaient qu'au premier stade. Il n'y avait guère de cultivateurs du second stade.
+Il s'agissait d'une planète de culture de rang 7, divisée en près d'une centaine de pays, peuplée de nombreux mortels. On y trouvait de nombreux cultivateurs, mais la plupart n'étaient qu'au premier stade. Il n'y avait guère de cultivateurs du second stade.
 
 En apparence, l'individu au niveau le plus élevé était un cultivateur au stade du Purificateur du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en culture fermée.
 
 Le plus puissant parmi eux se trouvait au troisième stade du Fléau Céleste. Deux autres étaient au premier stade du Fléau Céleste, et le dernier se trouvait au stade du Briseur du Nirvana.
 
-Des forces de feu et de glace émanaient de la caverne centrale. Ces individus empruntaient manifestement ces puissances pour contenir leurs Fléaux Célestes, tentant ainsi de les surmonter lentement.
+Des forces de feu et de glace alternaient dans la caverne centrale. Ces individus empruntaient manifestement ces puissances pour contenir leurs Fléaux Célestes, tentant ainsi de les surmonter lentement.
 
 « J'ai des affaires importantes à régler, je ne peux pas jouer avec toi. » Wang Lin détourna le regard. Il savait que personne ici ne pourrait blesser ce fou.
 
@@ -120,7 +120,7 @@ Le fou éclata de rire en pointant Xu Liguo du doigt. Il allait dire quelque cho
 
 Xu Liguo cligna des yeux, troublé par ce regard étrange. Il lança un regard interrogateur à Liu Jinbiao.
 
-Liu Jinbiao affichait une expression solennelle et fit quelques pas en avant. Il examina attentivement le fou avant de sourire à Xu Liguo. Cependant, peu importait l'angle sous lequel on le regardait, ce sourire avait quelque chose de profondément sinistre.
+Liu Jinbiao affichait une expression solennelle et fit quelques pas en avant. Il examina attentivement le fou avant de sourire à Xu Liguo. Cependant, peu importait l'angle sous lequel on le regardait, ce sourire avait quelque chose d'écœurant.
 
 « Un fou? »
 

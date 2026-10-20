@@ -52,7 +52,7 @@ Après une profonde inspiration, Wang Lin serra les dents, saisit le clou aux se
 
 Ce clou semblait fusionné avec son os; il était impossible de dire qu'il n'en faisait pas partie! Plus étrange encore, la lumière aux sept couleurs semblait avoir pénétré l'os lui-même. L'os de son épaule droite paraissait être devenu sept couleurs.
 
-Le visage de Wang Lin était livide. Au moment où la lumière aux sept couleurs pénétra son corps, son esprit devint vide. Une lueur de folie pointa le bout de son nez.
+Le visage de Wang Lin était livide. Au moment où la lumière aux sept couleurs pénétra son corps, son esprit se brouilla. Une lueur de folie pointa le bout de son nez.
 
 Bien que cette sensation n'ait duré qu'un instant, elle fit haleter Wang Lin.
 

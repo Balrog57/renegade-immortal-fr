@@ -54,7 +54,7 @@ Wang Lin réfléchit et dit lentement: « Quelle est la puissance de ces trois f
 
 « Très puissantes; ces trois familles sont insondables. Quant à leur force exacte, mon statut n'était pas assez élevé pour le savoir. Cependant, il leur suffirait d'envoyer un simple Ancien pour massacrer la planète Ran Yun...
 
-Quant à la particularité de la planète Dong Lin, je peux seulement dire que c'est un monde chaotique et sanglant. » En se remémorant le passé, les yeux de Sun Tai se remplirent de terreur.
+Quant à la particularité de la planète Dong Lin, je peux seulement dire que c'est un enfer chaotique, un monde sanglant. » En se remémorant le passé, les yeux de Sun Tai se remplirent de terreur.
 
 En remarquant cette trace de peur, Wang Lin soupira intérieurement. L'ancien Grand Ancien de la Secte des Cadavres sur la planète Suzaku n'existait plus. Même s'il retrouvait sa culture, il ne pourrait jamais plus s'élever davantage.
 
@@ -110,7 +110,7 @@ Sun Tai sortit tout en contemplant le coucher du soleil. La lueur orangée l'acc
 
 Il avait retrouvé un vieil ami et ne savait vraiment pas quel sentiment l'habitait. Tandis que Wang Lin regardait la silhouette de Sun Tai, l'image du puissant Grand Ancien de la Secte des Cadavres qui avait combattu Zhou Yi et dérobé le cadavre féminin se superposa lentement à cette silhouette.
 
-Même après son départ, il n'avait pas demandé ce qu'était devenu l'enfant démon qu'il avait libéré autrefois. Peut-être avait-il vraiment tout abandonné pour simplement vivre ses vingt dernières années dans la tranquillité.
+Jusqu'à son départ, il n'avait pas demandé ce qu'était devenu l'enfant démon qu'il avait libéré autrefois. Peut-être avait-il vraiment tout abandonné pour simplement vivre ses vingt dernières années dans la tranquillité.
 
 Donner sa sacoche de rangement était pour lui une manière de dénouer un nœud dans son cœur. Cela signifiait qu'il avait renoncé à se rétablir, qu'il avait renoncé à tout, y compris au regret qui l'habitait depuis des centaines d'années passées ici.
 

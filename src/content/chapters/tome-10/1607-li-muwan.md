@@ -74,9 +74,9 @@ Le papillon qui s'était abrité sous la feuille s'envola dans les airs. Il pass
 
 Dans un soupir, Wang Lin quitta le pavillon. Il marcha vers l'horizon, en direction de la mer.
 
-Quinze ans après avoir quitté Zhao, Wang Lin parcourut encore le continent avant d'atteindre les côtes. Il embarqua sur un navire marchand reliant les deux continents, résolu à découvrir le monde d'outre-mer.
+Quinze ans après avoir quitté Zhao, Wang Lin parcourut encore le continent avant d'atteindre les côtes. Il embarqua sur un navire marchand reliant les deux continents, pour gagner l'autre rive de la mer.
 
-La mer était vaste et magnifique. Le vent soufflait et les vagues roulaient contre la coque du navire. Debout sur le pont, Wang Lin humait la brise marine tandis que ses cheveux blancs flottaient au vent. L'océan grondait, mais rien ne semblait pouvoir effacer les traces du temps.
+La mer était vaste et magnifique. Le vent soufflait et les vagues roulaient contre la coque du navire. Debout sur le pont, Wang Lin humait la brise marine tandis que ses cheveux blancs flottaient au vent. Le vent marin passait sur les rides de son visage sans pouvoir emporter les traces des années.
 
 Le soleil et la lune sur l'océan possédaient leur propre essence. C'était la première fois que Wang Lin naviguait en haute mer, mais il ne ressentit aucun inconfort. Il contempla l'eau, une aura envahissant son corps.
 
@@ -106,7 +106,7 @@ Tandis que Wang Lin fixait ce monde illusoire, son esprit vacillait.
 
 Les légendes anciennes racontaient que si quelqu'un apercevait une illusion en mer, c'était que l'esprit des océans était irrité et qu'il s'apprêtait à punir tous les êtres qui vivent de la mer...
 
-Wang Lin, plongé dans sa contemplation, ne vit pas les mortels se relever pour jeter de lourdes cargaisons à la mer, tentant ainsi d'offrir un sacrifice pour apaiser la colère de l'esprit.
+Wang Lin, plongé dans sa contemplation, ne vit pas les mortels jeter de lourdes cargaisons à la mer, tentant ainsi d'offrir un sacrifice pour apaiser la colère de l'esprit.
 
 « Cela doit être faux. Cela n'existe pas, c'est une pure illusion. Une chose pareille ne peut apparaître dans ce monde. Ce n'est pas un événement qui se produit réellement quelque part... »
 
@@ -120,6 +120,6 @@ Dans l'image illusoire, alors que la fumée noire envahissait l'horizon, une fem
 
 Cette femme sortit du nuage noir et, d'un geste de sa main de jade, pointa le bas. Le volcan en éruption trembla alors qu'il montrait des signes d'extinction.
 
-En voyant cette femme, Wang Lin sembla perdre toute force et resta pétrifié. Un sentiment de tristesse irrationnel surgit et balaya son corps comme une tempête. Il fut submergé par un chagrin immense, et deux larmes coulèrent le long de ses joues.
+En voyant cette femme, Wang Lin sembla perdre toute force et resta pétrifié. Un sentiment de tristesse indicible surgit et balaya son corps comme une tempête. Il fut submergé par un chagrin immense, et deux larmes coulèrent le long de ses joues.
 
 « C'est elle... » Le corps de Wang Lin était déjà vieux, mais il semblait maintenant encore plus marqué par les âges. Il s'appuya contre la paroi du navire, les yeux fixés sur la femme en blanc au cœur de l'illusion, un regard qui sembla durer une éternité.

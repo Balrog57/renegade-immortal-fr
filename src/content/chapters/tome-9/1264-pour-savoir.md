@@ -12,7 +12,7 @@ Ce silence différait de celui qu'il ressentait auprès de Li Qianmei, mais il n
 
 La planète Suzaku était ainsi... Luotian était ainsi... et désormais, dans la Mer des Nuages, c'était encore ainsi.
 
-Dans ce silence, Mu Bingmei baissa la tête et avança lentement. Elle franchit le seuil, entra dans la cour et s'arrêta à dix pieds de Wang Lin.
+Dans ce silence, Mu Bingmei baissa la tête et avança lentement. Elle franchit le seuil, entra dans la cour et s'arrêta à quelques dizaines de pieds de Wang Lin.
 
 « Je ne m'attendais pas à vous rencontrer ici. » Mu Bingmei leva les yeux vers le ciel nocturne. Sa voix était un peu rauque.
 
@@ -52,7 +52,7 @@ Il n'avait jamais imaginé que le réveil de Tuo Sen déclencherait une telle te
 
 « Le Royaume Céleste de la Pluie, celui qui vous tenait le plus à cœur, n'a pas été endommagé. Tuo Sen s'y est rendu, mais il a été intercepté à l'extérieur par Qing Lin. Ils semblent avoir conclu un accord, et ensuite Tuo Sen est reparti. » Mu Bingmei se mordit la lèvre en parlant.
 
-« Vous aviez raison. Si Ru Er avait choisi de rester avec moi, avec son niveau de culture, il lui aurait été difficile d'échapper vivante... Le Royaume du Vide Brillant n'existe plus... Tous les cultivateurs à l'intérieur sont morts au combat. Même le gardien est mort face à Tuo Sen pour me permettre de m'échapper... Mon corps s'est effondré. Ce que vous voyez là est celui que je viens de reformer récemment... »
+« Vous aviez raison. Si Ru Er avait choisi de rester avec moi, avec son niveau de culture, il lui aurait été difficile d'échapper vivante... Le Royaume du Vide Brillant n'existe plus... Tous les cultivateurs à l'intérieur sont morts au combat. Même l'intendant est mort face à Tuo Sen pour me permettre de m'échapper... Mon corps s'est effondré. Ce que vous voyez là est celui que je viens de reformer récemment... »
 
 « Mon niveau de culture a considérablement chuté. S'il me faut revenir à mon apogée, cela prendra du temps. »
 

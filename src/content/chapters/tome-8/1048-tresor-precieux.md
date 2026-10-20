@@ -90,6 +90,6 @@ Il n'y avait aucune pause; la grande épée d'argent se transforma en un rayon d
 
 Sa vitesse devenait de plus en plus effrénée. Le premier coup était quelque peu lent, le second fut plus vif. Désormais, en un clin d'œil, sept frappes se combinaient en une seule.
 
-Toute l'énergie originelle de Wang Lin s'était évaporée lors du sixième coup. Quant au septième, il absorba l'essence même de son corps. Heureusement, son corps de Dieu Ancien était extrêmement robuste et parvint à l'endurer.
+Toute l'énergie originelle de Wang Lin s'était évaporée lors du sixième coup. Quant au septième, il absorba sa propre chair. Heureusement, son corps de Dieu Ancien était extrêmement robuste et parvint à l'endurer.
 
 Après le septième coup, le huitième frappa tel un dragon d'argent, suivi des neuvième, dixième et onzième assauts!

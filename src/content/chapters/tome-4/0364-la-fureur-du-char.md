@@ -80,7 +80,7 @@ L'esprit bestial surgit immédiatement dans un rugissement, ses yeux injectés d
 
 Le Wang Lin actuel ne pouvait plus se soucier de trop se dévoiler. L'essentiel était de remporter cette victoire.
 
-Une fois le char apparu, il faudrait encore un certain temps pour l'activer. Wang Lin saisit l'épée céleste et la lança d'un geste puissant.
+Une fois le char apparu, il faudrait encore un certain temps pour l'activer. Wang Lin saisit l'épée céleste et l'abattit d'un geste puissant.
 
 L'énergie de l'épée provoqua un bang sonique en fendant l'air pour percuter le géant de glace.
 
@@ -106,7 +106,7 @@ Au moment où le poing percuta Wang Lin, l'épée passa près du bras droit et s
 
 L'épée céleste différait grandement de la simple énergie d'épée. Elle retomba à 330 mètres de là, s'enfonçant profondément dans le sol.
 
-Le sang jaillit de tout le corps de Wang Lin et nombre de ses os furent brisés. Pourtant, il éclata de rire: « Papillon Rouge, j'ai pris l'un de tes bras, et maintenant je prends l'un des bras de cet inutile géant de glace. C'est désormais plus approprié pour toi! »
+Le sang jaillit de tout le corps de Wang Lin et nombre de ses os furent brisés. Pourtant, il éclata de rire: « Papillon Rouge, j'ai pris l'un de tes bras, et maintenant je prends l'un des bras de cet inutile géant de glace. Vous voilà assortis! »
 
 D'un geste de la main, il fit apparaître le bras droit du géant. Une lueur bleue jaillit et la glace s'effrita du membre jusqu'à ce qu'il ne réduise qu'à la moitié de sa taille.
 

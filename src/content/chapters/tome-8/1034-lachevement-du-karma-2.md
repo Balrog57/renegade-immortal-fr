@@ -22,9 +22,9 @@ Sans marquer de pause, le corps de Wang Lin suivit le mouvement et il pressa son
 
 Dans un fracas assourdissant, le corps du Démon du Vent fut projeté en arrière et elle cracha une bouffée de sang. Son regard devint glacial.
 
-« Mon Dao est le karma. Pour que mon domaine de karma soit complet, je ne dois pas seulement dissiper toutes mes confusions, mais m'y fondre entièrement... » Wang Lin semblait se parler à lui-même tout en chargeant le Démon du Vent.
+« Mon Dao est le karma. Pour que mon domaine de karma soit complet, je ne dois pas seulement dissiper toutes mes confusions, mais m'y fondre entièrement... » Wang Lin semblait se parler à lui-même tout en marchant droit vers le Démon du Vent.
 
-Le Démon du Vent poussa un rugissement et forma un sceau tout en reculant. Une énergie démoniaque dense se propagea soudainement, faisant fondre à nouveau l'océan gelé. Alors que le Démon du Vent agitait les mains, des dizaines de milliers de li de mer en contrebas volèrent en éclats et d'innombrables blocs de glace furent projetés vers Wang Lin.
+Le Démon du Vent poussa un rugissement et forma un sceau tout en reculant. Une énergie démoniaque dense se propagea soudainement, faisant de nouveau geler la mer qui avait fondu. Alors que le Démon du Vent agitait les mains, des dizaines de milliers de li de mer en contrebas volèrent en éclats et d'innombrables blocs de glace furent projetés vers Wang Lin.
 
 « Petit cultivateur, ce démon ne voulait pas te tuer au départ, mais tu ne connais donc pas ta place! » La voix du Démon du Vent résonna, tandis que les éclats de glace convergeaient brusquement vers Wang Lin.
 
@@ -40,7 +40,7 @@ Les pupilles du Démon du Vent se rétractèrent et elle prit une inspiration sa
 
 Même à l'apogée de sa puissance, elle n'aurait pas osé prétendre à la victoire, et encore moins maintenant qu'elle n'était qu'au stade avancé de Scruteur du Nirvana.
 
-« L'affaire de Yao Xixue est l'obstacle qui m'empêche d'achever mon domaine de karma. Après des centaines d'années, je me suis inconsciemment laissé absorber par lui, au point d'en faire partie. Ce n'est qu'en m'y intégrant totalement que je pourrai véritablement comprendre le karma. Tout comme j'ai dû entrer en enfer pour en comprendre les désirs. »
+« L'affaire de Yao Xixue est l'obstacle qui m'empêche d'achever mon domaine de karma. Après des centaines d'années, je me suis inconsciemment laissé absorber par lui, au point d'en faire partie. Ce n'est qu'en m'y intégrant totalement que je pourrai véritablement comprendre le karma. Comme pour l'enfer : sans y entrer, comment en connaître les désirs ? »
 
 Le regard de Wang Lin devint plus limpide encore et il s'élança. Entouré par la mer de flammes, il lança une charge ardente vers le Démon du Vent.
 
@@ -54,7 +54,7 @@ Des fissures apparurent dans le ciel comme s'il était sur le point de s'effondr
 
 Cependant, ce vent ne parvint pas à faire reculer Wang Lin d'un demi-pas. Il continua sa progression, laissant le vent frapper son corps.
 
-« Maintenant que je suis imprégné de ce karma, je dois m'en libérer. Ce n'est qu'ainsi que mon domaine de karma atteindra sa perfection et que mon cœur de Dao connaîtra une percée! » La main droite de Wang Lin se serra en un poing et il lança un coup dévastateur au moment même où il prononça le mot « percée ».
+« Maintenant que je suis imprégné de ce karma, je dois m'en libérer. Ce n'est qu'ainsi que mon domaine de karma atteindra sa perfection et que mon cœur de Dao connaîtra une percée! » La main droite de Wang Lin se serra en un poing et il lança un coup dévastateur au moment même où il prononça le mot « briser ».
 
 Un grondement fit trembler les cieux. Lorsque Wang Lin frappa, l'ombre d'un Dieu Ancien apparut. Sa tête touchait les cieux et ses pieds reposaient sur l'océan. L'ombre du Dieu Ancien porta le coup de poing simultanément à celui de Wang Lin.
 
@@ -68,9 +68,9 @@ Le poing de Wang Lin percuta soudainement ce vent démoniaque infini. Des bruits
 
 Wang Lin fixa le Démon du Vent qui avait déjà disparu au loin, mais il ne paniqua pas. Il frappa son sac de rangement pour en sortir le Tatou Flétri, puis l'appliqua sur lui-même.
 
-Dès que le tatouage fut posé, un vent noir enveloppa Wang Lin et un tourbillon gigantesque surgit dans ce monde. Parallèlement, un immense vortex se forma dans l'océan sous ses pieds.
+Dès que le tatouage fut posé, un vent noir jaillit de Wang Lin et un tourbillon gigantesque surgit dans ce monde. Parallèlement, un immense vortex se forma dans l'océan sous ses pieds.
 
-Un rugissement capable de déchirer les cieux émana du tourbillon où se trouvait Wang Lin. Puis, un oiseau noir apparut au sein des vents sombres.
+Un rugissement capable de déchirer les cieux émana du tourbillon où se trouvait Wang Lin. Puis, un rapace noir apparut au sein des vents sombres.
 
 Les ailes de l'oiseau s'ouvrirent brusquement. Son corps ne mesurait que quelques dizaines de pieds, mais il grandit de façon prodigieuse en déployant ses ailes: il couvrait désormais des centaines de milliers de pieds!
 
@@ -86,7 +86,7 @@ Cette énergie fit apparaître l'ombre d'un immense démon antique derrière ell
 
 Le Démon du Vent était très confiante en sa vitesse. Mais alors qu'elle pensait avoir réussi à s'échapper, un grondement de tonnerre retentit dans son dos.
 
-En se retournant, elle perdit la raison. Wang Lin approchait à une vitesse inimaginable. Le vortex qui l'accompagnait le suivait de près, progressant avec une célérité choquante et provoquant un rugissement apocalyptique. C'était comme si l'océan tout entier était en pleine ébullition!
+En se retournant, elle fut saisie d'effroi. Wang Lin approchait à une vitesse inimaginable. Le vortex qui l'accompagnait le suivait de près, progressant avec une célérité choquante et provoquant un rugissement apocalyptique. C'était comme si l'océan tout entier était en pleine ébullition!
 
 « L'effet karmique réside dans mon cœur de Dao. La seule façon de le dissiper est de résoudre véritablement le karma qui nous lie! »
 

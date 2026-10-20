@@ -86,7 +86,7 @@ Le drapeau en main, Wang Lin esquissa un sourire froid. Il toucha le sol et se r
 
 Le corps principal de Wang Lin était déjà revenu à la grotte située à l'extérieur de la secte, une demeure protégée par des restrictions bloquant tout Sens Divin.
 
-Pendant ce temps, dans la cour où résidait Wang Lin, son avatar émergea d'un cercle de restriction à l'intérieur de la pièce. Après s'être rapidement rafraîchi, il s'assit pour cultiver.
+Pendant ce temps, dans la cour où résidait Wang Lin, son avatar émergea lentement du sol de la pièce. Après s'être rapidement rafraîchi, il s'assit pour cultiver.
 
 L'affaire fut classée. Au cours des quinze jours suivants, le récit de l'acte du corps principal de Wang Lin se répandit dans toute la secte, décliné en de multiples versions. Il faut dire que la Secte du Ciel Nuageux n'avait pas connu un tel incident depuis longtemps: un individu avait fait irruption dans la secte, avait commis un meurtre et s'était volatilisé sous leurs yeux. C'était une véritable insulte faite à l'honneur de la secte.
 
@@ -114,7 +114,7 @@ Wang Lin afficha un regard empreint d'une douceur rare. Mais cette trace de tend
 
 Li Muwan mordit sa lèvre inférieure. Ses yeux trahissaient un bonheur inédit tandis qu'elle contemplait Wang Lin. Malgré une pointe d'incertitude dans son cœur, son expression changea brusquement et son regard se glaça. Elle cria: « Qui diable êtes-vous? »
 
-Elle se souvint immédiatement que la goutte de sang sur son front n'avait pas réagi. Il était clair que cet homme n'était pas celui qu'elle avait cru. Lentement, une haine envers cet individu refit surface et fut redirigée vers Wang Lin, dont la voix ressemblait presque trait pour trait à celle de l'être tant attendu.
+Elle se souvint immédiatement que le Sens Divin entre ses sourcils n'avait pas réagi. Il était clair que cet homme n'était pas celui qu'elle avait cru. Lentement, une haine envers cet individu refit surface et fut redirigée vers Wang Lin, dont la voix ressemblait presque trait pour trait à celle de l'être tant attendu.
 
 Wang Lin regarda Li Muwan et soupira. Il posa la main sur son sac de rangement et en sortit un morceau de jade. Après l'avoir examiné un instant, il le lança à Li Muwan.
 

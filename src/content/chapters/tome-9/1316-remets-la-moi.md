@@ -50,7 +50,7 @@ Avant que le Maître du Dao Rêve Bleu ne devienne célèbre, le Clan de la Soie
 
 Chaque membre du clan était un maître de la musique, et tous étaient d'une grande beauté. Hommes comme femmes possédaient des traits magnifiques.
 
-En raison de cela, les membres du Clan de la Soie Bleue étaient devenus des parures prisées par les clans puissants.
+En raison de cela, les membres du Clan de la Soie Bleue étaient devenus des concubines et des favoris prisés par les clans puissants.
 
 C'était une source de douleur et de chagrin pour le clan. Cette tristesse imprégna leurs cœurs durant de longues époques, conférant aux femmes comme aux hommes du clan un sentiment de beauté singulier et mélancolique.
 

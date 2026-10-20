@@ -12,7 +12,7 @@ Wang Lin joignit ses mains devant Maître Lu Fu et sourit.
 
 L'attitude de Wang Lin restait constante; il ne profita pas de la situation pour humilier Maître Lu Fu. Ce dernier réfléchit silencieusement un instant, puis poussa un soupir. Il força un sourire et joignit ses mains face à Wang Lin.
 
-« Le fait qu’un camarade cultivateur comme vous possède une culture aussi puissante est une bénédiction pour le Royaume Intérieur. Ce vieil homme est seulement perplexe sur un point. Ces deux-là... ces deux cultivateurs du troisième niveau sont originaires de... » Maître Lu Fu ne termina pas sa phrase et se contenta de désigner l'horizon du doigt.
+« Le fait qu’un camarade cultivateur comme vous possède une culture aussi puissante est une bénédiction pour le Royaume Intérieur. Ce vieil homme s'avoue vaincu, mais il est seulement perplexe sur un point. Ces deux-là... ces deux cultivateurs du troisième niveau sont originaires de... » Maître Lu Fu ne termina pas sa phrase et se contenta de désigner l'horizon du doigt.
 
 Wang Lin sourit et hocha la tête.
 
@@ -70,9 +70,9 @@ Par conséquent, il allait dissiper les tensions passées. Wang Lin l'avait parf
 
 Les vieux monstres ayant cultivé pendant des dizaines de milliers d'années étaient extrêmement rusés. S'ils n'étaient pas tous des démons, ils n'avaient rien d'enfantins.
 
-Maître Lu Fu sourit et agita la main. Une lumière dorée jaillit de sa manche, traçant un chemin. Des sons mélodieux résonnèrent également dans l'éther.
+Maître Lu Fu sourit et agita la main. Une lumière dorée, haute de dix mille pieds, jaillit de sa manche, traçant un chemin. Des sons mélodieux résonnèrent également dans l'éther.
 
-D'innombrables ombres de célestes dansaient autour du sentier doré. Neuf dragons d'or planaient au-dessus, rugissant et dégageant une aura puissante.
+D'innombrables ombres de célestes dansaient autour du sentier doré, et tout le ciel étoilé en était enveloppé. Neuf dragons d'or planaient au-dessus, rugissant et dégageant une aura puissante.
 
 Une multitude d'ombres célestes apparurent et s'inclinèrent devant Wang Lin.
 
@@ -118,7 +118,7 @@ Puis Wang Lin parla de la poursuite menée par le Conseil Souverain dans le Roya
 
 Wang Lin ne mentionna pas la Terre Déchue ni d'autres affaires cruciales. Pourtant, cela suffisait à stupéfier Maître Lu Fu, surtout lorsqu'il entendit parler de ce qui concernait le Souverain.
 
-Si de tels récits produisaient cet effet, il n'était même pas nécessaire de mentionner l'état de Maître Yan Leizi et Lie Yunzi. Après avoir entendu décrire tous ces dangers, ils comprirent enfin comment Wang Lin avait atteint un tel niveau de culture!
+Si Maître Lu Fu lui-même réagissait ainsi, on imagine sans peine l'effet sur Maître Yan Leizi et Lie Yunzi. Après avoir entendu décrire tous ces dangers, ils comprirent enfin comment Wang Lin avait atteint un tel niveau de culture!
 
 Leurs regards vers Wang Lin étaient empreints d'une immense admiration. Lie Yunzi le ressentit plus intensément encore en repensant au passé. Il éprouvait des sentiments complexes, mais il savait que Wang Lin n'avait pas obtenu tout cela par simple chance!
 

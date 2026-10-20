@@ -12,9 +12,9 @@ Le visage de l'homme d'âge moyen pâlit instantanément et il n'hésita pas à 
 
 Cependant, à cet instant précis, Wang Lin leva calmement la main et pointa du doigt. D'un simple geste, les couleurs du monde changèrent, les nuages se mirent à tourbillonner et des grondements incessants résonnèrent. Une masse de nuages sombres apparut soudainement dans le ciel.
 
-Au moment où le doigt de Wang Lin désigna sa cible, le tonnerre gronda. Un éclair aussi épais qu'un pouce descendit à une vitesse inimaginable. L'homme d'âge moyen trembla, mais l'éclair frappa de plein fouet sa tête.
+Au moment où le doigt de Wang Lin désigna sa cible, le tonnerre gronda. Un éclair large de plusieurs dizaines de pieds descendit à une vitesse inimaginable. L'homme d'âge moyen trembla, mais l'éclair frappa de plein fouet sa tête.
 
-Une tempête destructrice s'engouffra dans son corps par le front. Des bruits de craquements résonnèrent en son sein alors que sa chair et son sang se déchiraient, ses os se fragmentaient et son âme originelle était anéantie!
+Une tempête destructrice s'engouffra dans son corps par le sommet du crâne. Des bruits de craquements résonnèrent en son sein alors que sa chair et son sang se déchiraient, ses os se fragmentaient et son âme originelle était anéantie!
 
 Une fois l'éclair passé, l'homme d'âge moyen sembla s'être évaporé. Toute trace de son existence avait disparu, comme s'il n'avait jamais été là.
 
@@ -56,7 +56,7 @@ Le jeune maître se retira parmi la poussière, le visage pâle, mais ses yeux �
 
 « Cette perle est assez intéressante », lança la voix indifférente de Wang Lin depuis les décombres. Sa silhouette intacte émergea lentement de la fumée.
 
-À son apparition, le jeune homme afficha un regard d'incrédulité. Son cuir chevelu était engourdi et il en perdit presque la raison. Il connaissait parfaitement la puissance de cette perle du Scorpion Noir. L'explosion aurait suffi à blesser gravement un cultivateur Scruteur du Nirvana, mais cet homme venait de l'encaisser d'une simple pression de la main sans subir le moindre dommage. La seule pensée de cet acte fit trembler le jeune homme.
+À son apparition, le jeune homme afficha un regard d'incrédulité. Son cuir chevelu était engourdi et il en perdit presque la raison. Il connaissait parfaitement la puissance de cette perle du Scorpion Noir. Lors d'une attaque surprise, l'explosion aurait suffi à blesser gravement un cultivateur Scruteur du Nirvana, mais cet homme venait de l'encaisser d'une simple pression de la main sans subir le moindre dommage. La seule pensée de cet acte fit trembler le jeune homme.
 
 Terrifié, il s'apprêtait à fuir quand Wang Lin agita la main droite. Un filet électrique apparut et encercla le jeune homme. Le filet se rétracta immédiatement, suivi du cri de celui-ci. Il perdit toute capacité de résistance, comme scellé dans les airs, et se retrouva suspendu.
 

@@ -110,7 +110,7 @@ Wang Lin sortit sans même accorder un regard à l'Ascendant Ming Dao. Sous les 
 
 Une indifférence totale!
 
-Il ne tenta pas le 18e palais mais descendit les marches une à une. Il s'arrêta devant les Grands Empyréens Dao Yi et Wu Feng pour leur faire une révérence respectueuse. Après avoir salué Wu Feng du regard, il vola vers l'ancien réseau de transfert pour partir.
+Il ne tenta pas le 18e palais mais descendit les marches une à une. Il s'arrêta devant les Grands Empyréens Dao Yi et Wu Feng pour leur faire une révérence respectueuse. Après avoir salué Wu Feng du regard, il vola, tel un arc-en-ciel, vers l'ancien réseau de transfert pour partir.
 
 En partant, il croisa le regard de Hai Zi dans la foule, lui adressa un sourire et hocha la tête.
 

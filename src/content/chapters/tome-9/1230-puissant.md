@@ -8,7 +8,7 @@ slug: puissant
 ---
 Alors que Wang Lin volait à toute allure, le brouillard devant lui se fendit comme s'il était transpercé par une épée. Il traversa la brume en un éclair.
 
-D'après ce que savait Wang Lin, la région de rang 7 était déjà à demi scellée pour empêcher les étrangers d'y pénétrer. Il devait y avoir une ligne défensive autour de cette région, avec des cultivateurs formant un périmètre de protection.
+D'après ce que savait Wang Lin, la région de rang 7 était déjà à demi scellée pour empêcher les étrangers d'y pénétrer. Il devait y avoir une ligne défensive autour de cette région, avec des cultivateurs formant un périmètre de protection qui se relayaient à plusieurs endroits.
 
 C'était une situation totalement différente de celle de la région de rang 6.
 

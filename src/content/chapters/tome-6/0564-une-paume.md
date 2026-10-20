@@ -108,7 +108,7 @@ De plus, il se trouvait dans la ville du général démon. Son but était de sau
 
 Flottant les yeux clos, il se remémora l'empreinte de main géante qu'il avait vue dans le Royaume Céleste. À l'époque, il y avait passé un temps infini pour tenter de la comprendre, avant de l'utiliser contre Papillon Rouge. Cependant, cette paume n'avait été que forme, sans puissance réelle derrière elle.
 
-Mais ce sort-ci était imprévisible. Dès son apparition, sa pression atteignait déjà un degré inimaginable.
+Mais ce sort-ci était difficile à percer à jour. Dès son apparition, sa pression atteignait déjà un degré inimaginable.
 
 L'empreinte géante se condensa lentement dans son esprit, et son état mental changea pour retrouver celui qu'il avait lors de sa compréhension initiale. À cet instant, ses yeux s'ouvrirent brusquement, affichant une couleur inexplicable.
 

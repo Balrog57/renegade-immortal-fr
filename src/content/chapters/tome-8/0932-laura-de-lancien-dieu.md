@@ -46,7 +46,7 @@ Ce n'était pas le cri d'un seul serpent, mais les rugissements de centaines, vo
 
 Des doigts du dieu ancien apparurent un à un jusqu'à ce que la zone en soit saturée. Tous les pores de Wang Lin s'ouvrirent et l'extase illumina ses yeux alors qu'il absorbait cette aura avec frénésie.
 
-Il pouvait clairement sentir la force de son corps du dieu ancien croître par bonds prodigieux. La quatrième étoile illusoire située entre ses sourcils devenait plus concrète à cet instant même.
+Il pouvait clairement sentir la force de son corps du dieu ancien croître par bonds prodigieux. L'étoile du dieu ancien cachée sous son troisième œil était présente entre ses sourcils, et la quatrième étoile illusoire devenait plus concrète à cet instant même.
 
 Tout cela plongea Wang Lin dans l'allégresse.
 

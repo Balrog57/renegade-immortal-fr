@@ -22,9 +22,9 @@ Ce présent était comparable à un trésor céleste; il était assez précieux 
 
 « Si tu veux entreprendre quelque chose, fais-le... Tant que tu peux assumer ta décision, peu importe l'ampleur du désastre que tu causeras, le Maître sera là... Trouve une femme que tu aimes, ne sois pas comme moi... »
 
-Treize se mordit la lèvre, les yeux embués de larmes. Il regarda silencieusement son maître s'éloigner et s'inclina neuf fois en signe de respect.
+Treize se mordit la lèvre, les yeux embués de larmes. Il regarda silencieusement son maître s'éloigner et s'agenouilla pour se prosterner neuf fois.
 
-Wang Lin marchait silencieusement parmi les étoiles. Il était venu seul et partait seul. Après plus de 2 000 ans, il était habitué à cette solitude et au spectacle des étoiles brillantes contemplées en solitaire. Il avait appris à respirer et à savourer ce sentiment d'isolement indicible par lui-même.
+Wang Lin marchait silencieusement parmi les étoiles. Il était venu seul et partait seul. Après plus de 2 000 ans, il était habitué à cette solitude et au spectacle des nébuleuses brillantes contemplées en solitaire. Il avait appris à respirer et à savourer ce sentiment d'isolement indicible par lui-même.
 
 Il s'y était longuement accoutumé...
 
@@ -104,7 +104,7 @@ Un flash de lumière jaillit dans une vallée et trois silhouettes apparurent. C
 
 « Pourquoi y a-t-il encore un autre réseau de transfert? Ce Roi... ce Roi ne jouera plus! » Xu Liguo avait réussi d'une manière ou d'une autre à convaincre le fou, et un instant plus tard, une nouvelle lueur jaillit. La vallée retrouva son calme.
 
-Ainsi, après chaque rugissement du fou, des éclats de lumière se produisaient dans plus de dix lieux différents. Les cris du fou devenaient de plus en plus intenses.
+Ainsi, après chaque rugissement du fou, des éclats de lumière se produisaient dans plus de dix lieux différents, sur des montagnes, des plaines, des bassins et des îles. Les cris du fou devenaient de plus en plus intenses.
 
 « Combien de réseaux de transfert y a-t-il donc? Ce Roi ne jouera vraiment plus, je dis bien plus! Vous me harcelez, vous dépassez les bornes! Je vais le dire à mon Maître! »
 

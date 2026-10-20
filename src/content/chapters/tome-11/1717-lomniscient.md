@@ -8,7 +8,7 @@ slug: lomniscient
 ---
 L'idée de Wang Lin était d'utiliser l'âme de l'avatar de l'Omniscient pour diviner où se trouvait le véritable Omniscient. Il ferma les yeux et vit l'endroit où il avait confiné l'âme de cet avatar.
 
-Au fil des années, Wang Lin avait utilisé l'âme de l'avatar de l'Omniscient pour diviner d'innombrables situations de vie ou de mort, ce qui lui avait été d'une aide précieuse. S'il n'avait pas ressenti que l'existence même de l'Omniscient représentait une menace majeure pour lui, il n'aurait jamais cherché à le provoquer.
+Au fil des années, Wang Lin avait utilisé l'âme de l'avatar de l'Omniscient pour diviner d'innombrables situations de vie ou de mort, ce qui lui avait été d'une aide précieuse. S'il n'avait pas, à mesure que sa culture progressait, senti confusément l'existence même de l'Omniscient, et que cette présence représentait une menace majeure pour lui, il n'aurait jamais cherché à le provoquer.
 
 Après tout, dans le cœur de Wang Lin, le mystère qui entourait l'Omniscient était une chose qu'il n'avait ressentie chez aucun autre être.
 

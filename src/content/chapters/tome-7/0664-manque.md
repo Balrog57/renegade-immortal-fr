@@ -12,7 +12,7 @@ Il n'osait faire preuve d'aucun manque de respect envers le vieil homme. Bien qu
 
 Le vieil homme regarda la silhouette de Wang Lin disparaître progressivement. Une pointe de doute passa dans son regard, mais il secoua bientôt la tête et retourna à l'intérieur du Pavillon du Trésor Intégral.
 
-« Cette personne me semble quelque peu familière... » Le vieil homme paraissait extrêmement épuisé. Après être rentré dans le bâtiment, il s'assit sur un fauteuil berçant dans un coin. Il se toucha amèrement la poitrine avant de laisser échapper un soupir et de fixer silencieusement le sol.
+« Cette silhouette me semble quelque peu familière... » Le vieil homme paraissait extrêmement épuisé. Après être rentré dans le bâtiment, il s'assit sur un fauteuil berçant dans un coin. Il se toucha amèrement la poitrine avant de laisser échapper un soupir et de fixer silencieusement le sol.
 
 Wang Lin quitta le Pavillon du Trésor Intégral et se dirigea vers l'élégant Pavillon du Bambou Vert. Bien que ce pavillon ne fût pas grand, il dégageait une certaine distinction. En entrant, Wang Lin observa les étagères en bois qui bordaient les murs. Une petite boîte reposait sur chaque étagère, et l'intérieur de chacune était tapissé de soie jaune. Toutes sortes de trésors magiques, de pilules et autres objets y étaient entreposés.
 
@@ -40,7 +40,7 @@ Ses yeux brillaient d'une agréable surprise. Bien que le sort de l'épée n'ait
 
 Il ne tenta pas immédiatement d'activer le sort, mais manipula l'épée pour la pointer vers la grande pierre spirituelle de haute qualité située à l'extérieur de la boutique. L'épée jaillit tel un rayon de lumière vers la pierre. Sans le moindre bruit, elle transperça la pierre spirituelle et revint.
 
-« Quelle épée! » En contemplant l'arme volante, les yeux du jeune homme brillaient d'admiration, teintés pourtant d'un soupçon de regret. « Ce niveau d'intégration peut être considéré comme de qualité moyenne. Une énergie spirituelle aussi féroce pourrait même être qualifiée de haute qualité. Malheureusement, sa vitesse ne suit pas celle de l'épée. Quel dommage! Quel dommage! »
+« Quelle épée! » En contemplant l'arme volante, les yeux du jeune homme brillaient d'admiration, teintés pourtant d'un soupçon de regret. « Ce niveau d'intégration peut être considéré comme de qualité moyenne. Une énergie spirituelle aussi féroce pourrait même être qualifiée de haute qualité. Malheureusement, il est impossible d'égaler la vitesse de cette épée. Quel dommage! Quel dommage! »
 
 Alors qu'il parlait, il activa le sort à l'intérieur de l'épée volante et, à cet instant précis, ses pupilles se rétractèrent brutalement. Il vit l'épée disparaître devant lui pour réapparaître à trente-trois mètres plus loin.
 
@@ -52,7 +52,7 @@ Le corps du jeune homme trembla et il sortit immédiatement de la boutique. D'un
 
 Plus important encore, même pour un cultivateur possédant le niveau requis, à moins de disposer de méthodes extrêmement puissantes et d'un domaine spécial, il serait impossible de faire durer éternellement un sort de téléportation.
 
-C'était le domaine de la Vie et de la Mort de Wang Lin qui permettait au sort de téléportation de l'épée de durer indéfiniment. Cependant, si l'équilibre était rompu, le sort finirait par expirer.
+C'était le domaine de la Vie et de la Mort de Wang Lin qui permettait au sort de téléportation de l'épée de durer en quelque sorte indéfiniment. Cependant, si l'équilibre était rompu, le sort finirait par expirer.
 
 Le jeune homme agrippa l'épée volante. Il retourna précipitamment dans la boutique tout en fixant Wang Lin et s'exclama: « Cher compagnon, cette boutique veut cette épée! Est-ce que cent mille pierres spirituelles de haute qualité suffisent? »
 
@@ -66,13 +66,13 @@ Le jeune homme sursauta. Un air de mécontentement apparut sur son visage et il 
 
 Une fois la pierre envoyée, le jeune homme se rassit silencieusement et commença à manipuler l'épée volante qu'il tenait en main.
 
-Compte tenu de sa culture, Wang Lin ne se souciait naturellement pas d'un cultivateur de rang inférieur. Ayant déjà atteint le statut de maître, il sourit et se mit à contempler les trésors magiques de la boutique.
+Compte tenu de sa culture, Wang Lin ne se souciait naturellement pas d'un cultivateur de rang inférieur. Son état d'esprit ayant déjà atteint celui d'un grand maître, il sourit et se mit à contempler les trésors magiques de la boutique.
 
 À l'inverse, le jeune homme n'était guère plus calme. Après un moment, son regard retomba sur Wang Lin et une pointe de choc apparut dans ses yeux. À ses yeux, bien que ce cultivateur ne fût qu'au stade avancé de la Formation du Noyau, il eut l'impression, pendant un instant, de contempler le patriarche ou les aînés de sa propre lignée.
 
 L'expression décontractée et sereine de Wang Lin n'était pas celle qu'un cultivateur au stade avancé de la Formation du Noyau devrait afficher, pourtant cet homme était bel et bien à ce niveau. Il songea que Wang Lin pouvait dissimuler sa culture, mais le Pavillon du Bambou Vert était protégé par des formations posées par les aînés de la famille. À moins d'avoir atteint le stade de l'Ascendant, il serait impossible de se cacher.
 
-Peu de temps après, une brise légère souffla de l'extérieur. Une fois la brise dissipée, un vieil homme entra dans le pavillon. La première chose que ses yeux cherchèrent fut l'épée volante entre les mains du jeune homme. En la voyant, un éclair de lumière traversa son regard.
+Peu de temps après, une brise légère souffla de l'extérieur. Une fois la brise dissipée, un vieil homme vêtu d'une robe verte entra dans le pavillon. La première chose que ses yeux cherchèrent fut l'épée volante entre les mains du jeune homme. En la voyant, un éclair de lumière traversa son regard.
 
 Voyant le vieil homme, le jeune homme se leva immédiatement et dit respectueusement: « Le junior Sun Mo salue l'Aîné. »
 
@@ -114,4 +114,4 @@ Le vieil homme regarda Wang Lin et demanda: « Possédez-vous d'autres pseudo-tr
 
 L'expression de Wang Lin resta neutre tandis qu'il touchait son sac de rangement. Il en sortit immédiatement un miroir de bronze et le lança vers le vieil homme.
 
-Le vieil homme l'attrapa et son expression changea d'une manière inédite. Cette fois, il fut encore plus bouleversé que devant l'épée volante. Il s'exclama: « Un pseudo-trésor céleste héréditaire! »
+Le vieil homme l'attrapa et son expression changea d'une manière inédite. Cette fois, il fut encore plus bouleversé que devant l'épée volante. Il s'exclama: « Un pseudo-trésor céleste d'héritage! »

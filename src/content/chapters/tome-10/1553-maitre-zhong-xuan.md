@@ -40,7 +40,7 @@ Les anciens tremblaient en regardant le vieil homme vêtu de blanc avec une crai
 
 Cependant, Maître Long Pan lui lança un regard glacial, ce qui fit avaler ses mots à Maître Zhong Xuan. Son corps frissonna et il n'osa plus parler.
 
-« Tu es Zhang Xi... Lorsque tu t'es endormi, tu étais l'enfant qui me servait. » Le regard de Maître Long Pan se posa sur le vieil homme à sa gauche.
+« Tu es Zhang Xi... Lorsque je dormais, tu étais l'enfant qui me servait. » Le regard de Maître Long Pan se posa sur le vieil homme à sa gauche.
 
 « C'est exact, ce junior est bien Zhang Xi! » Les yeux du vieillard brillaient d'excitation. Il ne s'attendait pas à ce que Maître Long Pan se souvienne de lui.
 

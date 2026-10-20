@@ -18,7 +18,7 @@ Sans changer d'expression, Wang Lin frappa son sac de rangement, faisant appara�
 
 Dans un rugissement de tonnerre, la branche vola vers Maître Yan Leizi qui l'attrapa. En l'examinant de plus près, il reconnut aussitôt qu'il s'agissait de l'un des trésors précieux du Domaine de la Boucherie. Grâce à sa culture, il pouvait ressentir deux forces au sein de la branche: l'une appartenait manifestement à Wang Lin, et l'autre était une aura puissante et maléfique!
 
-« Pas mal, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau Saint adjoint du Domaine de la Boucherie! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
+« Exact, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau Saint adjoint du Domaine de la Boucherie! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
 
 Après avoir inspecté la branche, il la renvoya à Wang Lin avec un sourire: « Bien, Xu Mu, tu peux cultiver ici en toute tranquillité. Dans un mois, les renforts arriveront et tu rejoindras l'armée pour envahir la région du Nord! »
 
@@ -46,7 +46,7 @@ La nouvelle du retour de Xu Mu se répandit comme une traînée de poudre. Aprè
 
 Le plus frustré de tous était sans doute Xu Ting. En apprenant la nouvelle, il réfléchit un instant avant de partir en trombe avec une équipe de cultivateurs, pour aller sonder la route en avant; il avait besoin de trouver une planète de culture pour décharger sa colère.
 
-Quant à Wang Lin, il semblait que la saison des pluies s'était installée sur la planète abandonnée où il se trouvait. Une pluie incessante recouvrait une partie de la planète, enveloppant la zone d'une brume aqueuse. L'eau était si dense que la vue en était déformée, et même la lumière du ciel ne pouvait la percer.
+Quant à Wang Lin, il semblait que la saison des pluies s'était installée sur la planète abandonnée où il se trouvait. Une pluie incessante recouvrait près de la moitié de la planète, enveloppant la zone d'une brume aqueuse. L'eau était si dense que la vue en était déformée, et même la lumière du ciel ne pouvait la percer.
 
 La poussière avait été balayée par les eaux, et le ruissellement creusait des tranchées dans le sol; au fil de la pluie, des grains de sable et de terre étaient emportés par l'eau.
 
@@ -54,7 +54,7 @@ Le bruit des gouttes frappant les branches et les feuilles résonnait partout. L
 
 La montagne où se trouvait Wang Lin se dressait, toute droite, sous l'averse. Le garçon au grand crâne fixait la pluie, plongé dans une profonde réflexion.
 
-Les restrictions de la montagne n'empêchaient pas la pluie de tomber; par conséquent, le sommet était lui aussi noyé sous l'eau. En regardant la pluie, le garçon se remémora son enfance. À cette époque, il passait déjà de longs moments à contempler la pluie, l'esprit ailleurs.
+Les restrictions de la montagne n'empêchaient pas la pluie de tomber; par conséquent, le sommet était lui aussi enveloppé par la pluie. En regardant la pluie, le garçon se remémora son enfance. À cette époque, il passait déjà de longs moments à contempler la pluie, l'esprit ailleurs.
 
 Il se souvenait encore du jour où sa famille l'avait expulsé; c'était une nuit de pluie. Il était resté hébété alors qu'on le poussait hors de la demeure familiale pour le laisser dans la boue. À ce moment-là, il affichait toujours son sourire idiot, bien qu'il fût teinté de tristesse.
 
@@ -68,15 +68,15 @@ Dans son esprit, il ne pouvait oublier ce qui s'était passé quelques jours aup
 
 Lei Ji regardait également la pluie, cherchant à comprendre son aptitude sanguine. Dans ce calme relatif, il ne put s'empêcher de remuer son passé.
 
-Il avait été contraint de quitter la Planète du Géant Démon, le cœur rempli de haine. Accompagné des siens, ils avaient fui pour errer parmi les étoiles. À l'époque, il était perdu; son cœur était une mer de sang, mais il était impuissant à renverser le ciel.
+Il avait été contraint de quitter la Planète du Géant Démon, le cœur rempli de haine. Accompagné des siens, ils avaient fui pour errer parmi les étoiles. À l'époque, il était perdu; son cœur était une Mer de Sang, mais il était impuissant à renverser le ciel.
 
 Il n'avait eu d'autre choix que de quitter sa patrie. S'il avait été d'un instant plus lent, il n'aurait peut-être jamais pu échapper à la Planète du Géant Démon. Dans sa confusion, il avait mené son clan sur la planète Suzaku. À cette époque, le Zhu Quezi de la planète Suzaku s'appelait Ye Wuyou. Sous ses ordres, de nombreux cultivateurs s'étaient rassemblés pour déclencher une guerre contre les habitants natifs: le Clan des Immortels Délaissés, experts en runes.
 
-Une planète autrefois riche en énergie spirituelle fut à moitié dévastée par ce conflit. Il y avait, aux côtés de Ye Wuyou, un homme que Lei Ji détestait profondément. Il semblait se souvenir qu'il s'appelait Situ Nan. Cet homme était d'une arrogance telle que ses actes frôlaient la démoniaque. Il préférait nettement Ye Wuyou, qui avait accueilli le Clan du Géant Démon avec une grande hospitalité, allant jusqu'à leur céder un vaste territoire pour qu'ils y fondent leur propre nation.
+Une planète autrefois riche en énergie spirituelle fut à moitié réduite à l'abandon par ce conflit. Il y avait, aux côtés de Ye Wuyou, un homme que Lei Ji détestait profondément. Il semblait se souvenir qu'il s'appelait Situ Nan. Cet homme était d'une arrogance telle que ses actes frôlaient la démoniaque. Il préférait nettement Ye Wuyou, qui avait accueilli le Clan du Géant Démon avec une grande hospitalité, allant jusqu'à leur céder un vaste territoire pour qu'ils y fondent leur propre nation.
 
-Ce territoire était situé loin du Clan des Immortels Délaissés, ce qui garantissait leur sécurité. Lei Ji n'avait trouvé aucun moyen de rendre cette faveur, si ce n'est en saisissant sa hache de guerre pour massacrer lui-même le Clan des Immortels Délaissés. Il avait rapporté leurs têtes pour honorer Ye Wuyou!
+Ce territoire était situé loin du Clan des Immortels Délaissés, ce qui garantissait leur sécurité. Lei Ji n'avait trouvé aucun moyen de rendre cette faveur, si ce n'est en saisissant sa hache de guerre pour s'enfoncer seul dans le Clan des Immortels Délaissés, abattre plusieurs de ses membres et rapporter leurs têtes pour honorer Ye Wuyou!
 
-En contemplant son passé, Lei Ji fut saisi d'émotion. Il n'était pas aussi stupide qu'il en avait l'air; au contraire, il était extrêmement rusé. Ses dizaines de milliers d'années d'existence lui avaient appris bien des choses. C'était simplement que son emprisonnement par la Secte des Cadavres avait duré trop longtemps, embrumant son esprit.
+En contemplant son passé, Lei Ji fut saisi d'émotion. Il n'était pas aussi dénué de calcul qu'il en avait l'air; au contraire, il était extrêmement rusé. Ses dizaines de milliers d'années d'existence lui avaient appris bien des choses. C'était simplement que son emprisonnement par la Secte des Cadavres avait duré trop longtemps, embrumant son esprit.
 
 C'est précisément cette ruse qui avait poussé Lei Ji à accepter sans hésiter de devenir la monture de Wang Lin. Après l'avoir observé, il s'était dit que s'il suivait cet homme, il pourrait peut-être un jour retourner sur la Planète du Géant Démon pour accomplir sa vengeance!
 

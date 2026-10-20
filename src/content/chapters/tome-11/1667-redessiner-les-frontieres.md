@@ -20,7 +20,7 @@ Simultanément, l'apparition de cette formation ne bloqua pas l'aura provenant d
 
 Grâce à l'aura du Système Stellaire Antique, le Royaume Intérieur pouvait désormais rassembler des Flammes Joss pour sa culture. Les chaînes qui entravaient les cultivateurs du Royaume Intérieur disparurent.
 
-Alors que toutes les âmes du Royaume Intérieur entraient dans la formation circulaire, Wang Lin agita la main. Ses cheveux blancs flottaient sans qu'aucun vent ne souffle, ses yeux brillaient d'une lueur étrange, et il poussa un rugissement.
+Alors que toutes les âmes du Royaume Intérieur entraient dans la formation circulaire, Wang Lin agita la main. Sa robe blanche flottait, ses cheveux blancs ondulaient sans qu'aucun vent ne souffle, ses yeux brillaient d'une lueur étrange, et il poussa un rugissement.
 
 « Formation circulaire sans nom, activez-vous! »
 
@@ -72,7 +72,7 @@ Cependant, pour le Royaume Extérieur, ce fut un coup terrible. Jusqu'à présen
 
 L'expression du Souverain était sombre et une froideur glaciale émanait de son regard. Sa peur de Wang Lin surpassait celle de l'être qui l'avait contraint à quitter le Royaume Intérieur d'un simple rugissement.
 
-« Le Maître Dao Miao Yin, le Maître Démon Neuf Cieux et la Grande Désolation sont tous piégés dans l'Ancienne Tombe avec la quatrième concubine... Si ces quatre-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
+« Le Maître Dao Miao Yin, le Maître Démon Neuf Cieux et la Grande Désolation sont tous piégés dans la Terre de l'Ancien Dieu avec la quatrième concubine... Si ces quatre-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
 
 Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sans laisser de trace.
 
@@ -88,7 +88,7 @@ Le visage du Souverain était maussade, une étincelle de froideur dans les yeux
 
 « Et il y a aussi le Maître du Dao Rêve Bleu. Le corps de la cinquième concubine est celui de sa femme, et l'âme de celle-ci existe toujours en elle... » Le Souverain réfléchit silencieusement un instant avant d'afficher un regard décisif et de disparaître.
 
-Lorsqu'il réapparut, il se trouvait sur le Mont Bleu du Clan Soie Bleue. Le Souverain flottait là, écoutant une mélodie mélancolique. Après un long moment, il agita sa manche et s'adressa à la cabane au sommet de la montagne.
+Lorsqu'il réapparut, il se trouvait sur le Mont Bleu du Clan de la Soie Bleue. Le Souverain flottait là, écoutant une mélodie mélancolique. Après un long moment, il agita sa manche et s'adressa à la cabane au sommet de la montagne.
 
 « Vieux ami Rêve Bleu, savez-vous ce qui s'est passé dans le Royaume Intérieur? »
 

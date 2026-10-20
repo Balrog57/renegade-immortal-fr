@@ -64,7 +64,7 @@ Il y avait aussi une lueur de soulagement...
 
 Wang Lin sembla être frappé par ce rugissement. Son expression devint complexe et il recula encore de quelques pas. Il pouvait comprendre les pensées de Bai Wei: c'était un acte de défi pur, une rébellion contre l'Omniscient!
 
-On pouvait dire que c'était une forme ultime de désobéissance!
+On pouvait dire que c'était une forme de défi!
 
 Le rugissement de Bai Wei se propagea frénétiquement sur des dizaines de milliers de kilomètres. Cependant, il fut étouffé par la pluie battante et les tonnerres violents.
 
@@ -92,7 +92,7 @@ Au moment même où la main de Wang Lin toucha l'énergie Yang extrême, l'heure
 
 Dans la Secte du Destin Céleste, il existait une montagne très singulière. Elle ressemblait à un trident géant enfoui sous terre, dont seules les trois pointes émergeaient à la surface!
 
-Des anneaux de sept couleurs différentes projetaient des éclats de lumière. L'énergie spirituelle céleste qui saturait la zone donnait au lieu l'apparence du Royaume Céleste.
+Derrière la montagne, des anneaux de sept couleurs différentes projetaient des éclats de lumière. L'énergie spirituelle céleste qui saturait la zone donnait au lieu l'apparence du Royaume Céleste.
 
 L'Omniscient était assis sur le sommet du pic central. Vêtu de blanc, ses cheveux d'argent flottaient au gré du vent. Bien qu'il fût âgé, il ne semblait pas déclinant; au contraire, il avait l'allure d'un être céleste.
 

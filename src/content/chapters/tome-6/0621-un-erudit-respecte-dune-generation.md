@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 621 - Respect Scholar of a Generation
 slug: un-erudit-respecte-dune-generation
 ---
-Sun Yunshan répondit rapidement: « L'Union de Culture se situe à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
+Sun Yunshan répondit rapidement: « L'Union de Culture se situe à la frontière nord entre le Pays des Démons de Feu et le Pays des Démons d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
 
 Wang Lin sourit. « Je n'ai pas une grande confiance en ma capacité à briser votre restriction. Cependant, je présume que cela ne devrait pas poser de problème à cet Ancêtre! »
 
@@ -16,7 +16,7 @@ Sun Yunshan prit une profonde inspiration, recula de quelques pas et fit un prof
 
 « Frère Wang, quoi qu'il en soit, je m'en souviendrai! » La voix de Sun Yunshan était empreinte d'une sincérité profonde.
 
-Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu du Raffinement des Âmes, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'Union de Culture furent saisis par lui et disparurent.
+Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu de l'Affinement de l'Âme, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'Union de Culture furent saisis par lui et disparurent.
 
 La guerre dans le Pays des Démons de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 
@@ -32,11 +32,11 @@ Il avait quelques spéculations concernant la graine céleste. Cependant, il ne 
 
 Un vieil homme chétif était assis en position de lotus au cœur d'un château, profondément enfoui dans le miasme. Trois femmes étaient assises face à lui. Toutes trois étaient d'une grande beauté, et l'une d'elles n'était autre que la petite sœur de Sun Yunshan, Sun Ruonan.
 
-Des volutes de gaz rose s'échappaient de la bouche et du nez des trois femmes. Ce gaz formait de merveilleuses illusions qui dansaient autour du vieil homme.
+Des volutes de gaz rose s'échappaient de la bouche, du nez et des sept orifices des trois femmes. Ce gaz formait de merveilleuses illusions qui dansaient autour du vieil homme.
 
 Ces silhouettes illusoires se solidifièrent progressivement, avant de se transformer soudainement en magnifiques êtres célestes vêtus d'habits multicolores. Le vieil homme inspira et les engloutit directement.
 
-Au moment précis où Wang Lin pénétra dans le miasme, le vieil homme ouvrit brusquement les yeux, qui projetèrent une lueur dorée. À l'instant où son regard s'ouvrit, les figures illusoires disparurent. Les trois femmes affichèrent des expressions d'épuisement extrême, leurs visages montrant même des signes de vieillissement prématuré.
+Au moment précis où Wang Lin pénétra dans le miasme, le vieil homme ouvrit brusquement les yeux, qui projetèrent une lueur dorée. À l'instant où son regard s'ouvrit, les figures illusoires disparurent. Les trois femmes affichèrent une fatigue profonde, leurs visages laissant même entrevoir un léger signe de vieillissement.
 
 Wang Lin avança dans le miasme. Celui-ci était si dense qu'en se déplaçant, il semblait l'envelopper comme une entité vivante. À mesure qu'il progressait, la brume se faisait plus oppressante et des gémissements fantomatiques lui parvenaient de toutes parts.
 
@@ -50,9 +50,9 @@ Une sphère de miasme de la taille d'un poing se forma dans la main de Wang Lin,
 
 Au loin, on pouvait apercevoir un château blanc. Près de cent cultivateurs flottaient dans les airs à l'extérieur de la forteresse. Tous étaient pétrifiés, fixant avec stupeur la sphère de miasme que tenait Wang Lin.
 
-Le regard froid de Wang Lin balaya la foule, mémorisant immédiatement chaque visage. Certains appartenaient au groupe qui l'avait accompagné, d'autres étaient des inconnus.
+Le regard froid de Wang Lin balaya la foule. Certains appartenaient au groupe qui l'avait accompagné, d'autres étaient des inconnus.
 
-Parmi la multitude, un homme d'âge moyen vêtu de bleu attira l'attention de Wang Lin. Au moment où cet homme aperçut Wang Lin, il sursauta. Il détourna instinctivement le regard, une expression amère sur le visage.
+Parmi la multitude, un homme d'âge moyen vêtu de bleu attira l'attention de Wang Lin. Au moment où cet homme aperçut Wang Lin, il resta un instant interdit. Il détourna instinctivement le regard, une expression amère sur le visage.
 
 C'était le disciple de la Division Bleue de la Secte du Destin Céleste qui était venu dans la Terre des Esprits Démoniaques avec Wang Lin!
 
@@ -64,7 +64,7 @@ Cependant, quelques individus imprudents, croyant pouvoir compter sur le soutien
 
 Il n'eut pas le temps de finir sa phrase; le regard glacial de Wang Lin perça ses yeux comme une lame acérée. Le sang qu'il cracha força ses mots à retourner dans sa gorge.
 
-Wang Lin pratiquait l'Art du Massacre Céleste et possédait un cœur de boucher; son regard était donc comparable à une attaque réelle.
+Wang Lin pratiquait l'Art Céleste du Massacre et possédait un cœur de boucher; son regard était donc comparable à une attaque réelle.
 
 Les spectateurs retinrent leur souffle. La panique s'intensifia et la foule se dispersa davantage. Même ceux qui n'avaient pas reculé la première fois s'enfuirent précipitamment, quitte à risquer de déclencher les restrictions logées dans leurs propres corps.
 
@@ -80,7 +80,7 @@ Wang Lin resta impassible et ne daigna même pas regarder l'assaillant. Il fit u
 
 Seuls ceux possédant une certaine confiance en leur propre culture pouvaient émaner une telle présence.
 
-Le disciple de la Division Bleue observa Wang Lin avec une expression complexe. Il avait entendu parler de lui et avait vu de ses propres yeux sa bataille contre Chen Tao pour le titre de véritable disciple. À l'époque, les performances de Wang Lin avaient attiré l'attention, mais ce n'était qu'une curiosité passagère; après tout, son niveau de culture était alors jugé insuffisant.
+Le disciple de la Division Bleue observa Wang Lin avec une expression complexe. Il avait entendu parler de lui et avait vu de ses propres yeux sa bataille contre Chen Tao pour le titre de l'un des Sept Disciples du Destin Céleste de la Division Pourpre. À l'époque, les performances de Wang Lin avaient attiré l'attention, mais ce n'était qu'une curiosité passagère; après tout, son niveau de culture était alors jugé insuffisant.
 
 Pourtant, à cet instant, il n'osait plus le sous-estimer. Non seulement Wang Lin avait réussi à atteindre le stade de l'Ascendant en si peu de temps, mais surtout, sa présence lui rappelait vaguement celle de l'Omniscient.
 
@@ -100,7 +100,7 @@ Wang Lin pointa un doigt et murmura doucement: «...et tout s'effondre! »
 
 Un éclair de lumière noire jaillit du bout de son doigt, se mua en un filament de gaz noir et s'élança. Depuis qu'il avait atteint le stade de l'Ascendant, son âme originelle et son domaine avaient fusionné, lui conférant une énergie originelle. D'un simple geste, son attaque était la fusion de son domaine et de l'énergie spirituelle céleste. Portant également son propre Dao, tous ses sorts contenaient une trace de sa vérité.
 
-Le Doigt de la Mort s'approcha, chargé du Dao de Wang Lin. Il transperça les illusions de bêtes et s'enfonça directement dans la poitrine de l'homme en noir!
+Le Doigt de la Mort s'approcha, chargé du Dao de Wang Lin. Il transperça les illusions de bêtes, comme s'il brisait le vide, et s'enfonça directement dans la poitrine de l'homme en noir!
 
 Les créatures féroces se désintégrèrent et l'homme en noir mourut sur le coup!
 

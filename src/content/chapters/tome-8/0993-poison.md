@@ -44,7 +44,7 @@ Le combat entre Wang Lin et Situ Nan n'avait été qu'un simple échange amical.
 
 Après plus de mille ans, le jeune garçon d'autrefois avait perdu toute sa naïveté pour devenir un véritable cultivateur!
 
-Pendant que Situ Nan était plongé dans ses pensées, il crut voir l'enfant simple qui venait de ramasser la perle défiant les cieux... Puis l'image changea et devint le jeune garçon de la Secte Heng Yue qui ne comprenait rien à la cruauté du monde des cultivateurs.
+Pendant que Situ Nan était plongé dans ses pensées, il crut voir l'enfant simple qui, après avoir chuté d'une falaise, venait de ramasser la perle défiant les cieux... Puis l'image changea et devint le jeune garçon de la Secte Heng Yue qui ne comprenait rien à la cruauté du monde des cultivateurs.
 
 Le jeune homme qui avait perdu ses parents et son corps avant d'être sauvé par Situ Nan. Puis ce même jeune homme qui s'était engagé sur un chemin de massacre, frôlant la monstruosité...
 
@@ -54,21 +54,21 @@ Situ Nan poussa un soupir en regardant Wang Lin. Il ne put s'empêcher de repens
 
 En un éclair, des centaines d'années s'étaient écoulées, et aujourd'hui, ils se retrouvaient enfin. Si leur amitié était restée immuable, tout le reste avait trop changé.
 
-La vie d'un homme n'est que cela!
+Il n'est rien de plus poignant que la vie!
 
 Alors que Wang Lin contemplait Situ Nan, les souvenirs du passé traversèrent également son esprit. Ces souvenirs étaient très anciens, mais Wang Lin s'en souvenait avec une clarté absolue. Il ne pouvait oublier ses paroles prononcées jadis sous le ciel:
 
-« Moi, Wang Lin, ne m'inclinerai jamais devant les cieux, ni ne rendrai hommage à aucun fantôme ou dieu. Je ne m'incline que devant mes parents et je rends hommage à Situ! »
+« Moi, Wang Lin, de toute ma vie, ne m'inclinerai jamais devant les cieux, ni ne rendrai hommage à aucun fantôme ou dieu. Je ne m'incline que devant mes parents et je rends hommage à Situ! »
 
 Situ Nan l'avait tellement aidé. Sans lui, Wang Lin serait mort à Zhao et n'aurait jamais accompli ce qu'il avait réalisé aujourd'hui.
 
 Sans Situ, il aurait été presque impossible pour Wang Lin de franchir les premiers stades du premier pas: Condensation de Qi, Établissement des Fondations, Formation du Noyau et Âme Naissante! Sans cette base, il n'aurait jamais atteint son niveau actuel.
 
-Sans les Doigts de la Mort, les Doigts Démoniaques et les Doigts de l'Inframonde de Situ, ainsi que ses enseignements sur les sorts et les trésors, Wang Lin n'aurait jamais pu s'imposer sur la planète Tian Yun.
+Sans les Doigts de la Mort, les Doigts Démoniaques et les Doigts des Enfers de Situ, ainsi que ses enseignements sur les sorts et les trésors, Wang Lin n'aurait jamais pu s'imposer sur la planète Tian Yun.
 
-Sans Situ, lorsque Wang Lin fut attaqué par le Démon Éparpillé dans la Terre des Esprits Démoniaques, il serait mort sans le Doigt de la Mort...
+Sans Situ, lorsque Wang Lin fut attaqué par le Démon Dispersé dans la Terre des Esprits Démoniaques, il serait mort sans le Doigt de la Mort...
 
-Et il y avait aussi la perle défiant les cieux! Si Situ Nan avait eu la moindre trace de cupidité, il n'aurait jamais laissé Wang Lin conserver un trésor aussi mystérieux. Si Situ l'avait pris, Wang Lin serait mort, car la perle s'était fondue dans son esprit primordial. C'est pour cela que Situ s'était contenté de sourire et de dire:
+Et il y avait aussi la perle défiant les cieux! Si Situ Nan avait eu la moindre trace de cupidité, il n'aurait jamais laissé Wang Lin conserver un trésor aussi mystérieux. Si Situ l'avait pris, Wang Lin serait mort, car la perle s'était fondue dans son âme originelle. C'est pour cela que Situ s'était contenté de sourire et de dire:
 
 « Je te le donne! »
 
@@ -86,13 +86,13 @@ Wang Lin sourit et acquiesça sans chercher à en savoir plus. Il discuta avec S
 
 Il n'avait pas ressenti cette chaleur depuis très longtemps. Ce genre de chaleur surgit naturellement auprès des vieux amis. C'était comme s'il était revenu sur la planète Suzaku, où, dans la perle défiant les cieux, il survivait aux côtés de Situ Nan.
 
-« Tu étais aussi célèbre dans le Système Stellaire du Tout-Ciel, et on peut dire que tu t'y es bien amusé. Mais pauvre de moi, je m'amusais pourtant très bien sur la planète Feng Luan, jusqu'à ce que je surprenne par hasard ces maudites femmes de la planète Feng Luan dans leurs amours entre femmes. Ce n'était pas grand-chose dans le monde de la culture... Je ne m'en suis pas soucié; je me suis contenté de les regarder et d'enregistrer leurs images sur un jade », dit Situ Nan, l'air déprimé, en prenant une grande gorgée de vin.
+« Tu étais aussi célèbre dans le Système Stellaire Tout-Ciel, et on peut dire que tu t'y es bien amusé. Mais pauvre de moi, je m'amusais pourtant très bien sur la planète Feng Luan, jusqu'à ce que je surprenne par hasard ces maudites femmes de la planète Feng Luan dans leurs amours entre femmes. Ce n'était pas grand-chose dans le monde de la culture... Je ne m'en suis pas soucié; je me suis contenté de les regarder et d'enregistrer leurs images sur un jade », dit Situ Nan, l'air déprimé, en prenant une grande gorgée de vin.
 
 « C'est tout ce que j'ai fait, et pourtant, ils ont lancé un ordre de mise à mort pour me traquer jour et nuit! Cela m'a forcé à me cacher, et je ne pouvais même plus agir comme un roi en paix... Finalement, j'ai dû changer de lieu de culture sans cesse. Ces dernières centaines d'années, j'ai été comme une souris fuyant d'une planète à l'autre. Des planètes riches en énergie spirituelle ou des mondes déserts, je les ai toutes parcourues. »
 
 Situ Nan s'emporta en parlant, saisit une cruche et but avec véhémence. Puis il la reposa et ajouta avec haine: « Après être sorti de ma culture en porte fermée, j'ai massacré mon chemin vers la planète Feng Luan, mais ils étaient trop nombreux. Et ils avaient trouvé des renforts, ce qui m'a causé de lourdes pertes! » En arrivant à ce point, le visage de Situ Nan devint brusquement rouge.
 
-Wang Lin devina grossièrement l'histoire avant que ses yeux ne se rétrécissent et qu'il ne fronce les sourcils. Il saisit la main droite de Situ Nan et déploya soigneusement son Sens Divin. Après un long moment, l'expression de Wang Lin devint encore plus troublante.
+Wang Lin trouva cela étrange avant que ses yeux ne se rétrécissent et qu'il ne fronce les sourcils. Il saisit la main droite de Situ Nan et déploya soigneusement son Sens Divin. Après un long moment, l'expression de Wang Lin devint encore plus troublante.
 
 Situ Nan eut un sourire amer, but une coupe et demanda: « Tu as compris? »
 
@@ -100,7 +100,7 @@ Wang Lin réfléchit un instant, une lueur de froideur et une intention meurtri�
 
 Situ Nan posa sa coupe et eut un sourire désabusé: « Je ne sais pas d'où ces maudites femmes de la planète Feng Luan ont tiré ce poison. J'ai consulté de nombreux registres pour découvrir qu'il s'appelle « Désir d'Immortalité, Désir de Mort ». Trois jours de paradis, puis trois jours d'enfer! Maudit soit, durant ces jours-là, j'ai vraiment souhaité mourir! »
 
-« Ce poison est un vestige du Royaume Céleste; avant son effondrement, il était fabriqué en raffinant d'innombrables êtres célestes pendant plusieurs centaines d'années. Ce poison n'a aucun effet sur les mortels, mais il cible les êtres célestes! Une fois qu'il pénètre dans le corps, il est impossible de l'extirper, car il fusionne totalement avec l'âme originelle.
+« Ce poison est un vestige du Royaume Céleste; avant son effondrement, il était fabriqué en raffinant d'innombrables êtres célestes pendant plusieurs centaines d'années. Ce poison n'a aucun effet sur les mortels, mais il cible les êtres célestes! Une fois qu'il pénètre dans le corps, il est impossible de l'extirper, car il fusionne totalement avec l'âme originelle, sans plus distinguer les deux.
 
 « L'effet principal de ce poison réside dans ses trois jours de paradis et ses trois jours d'enfer. Pendant les trois premiers jours, tu es plongé dans un état d'illusion qui épuise toute ta puissance mentale. Puis viennent les trois jours suivants où tu vis l'agonie. Le septième jour, ton corps et ton âme originelle sont totalement détruits!
 

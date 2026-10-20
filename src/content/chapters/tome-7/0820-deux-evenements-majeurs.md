@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 820 - Two Big Events
 slug: deux-événements-majeurs
 ---
-Le Temple Céleste du Tonnerre avait émis un Décret de Luotian pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Céleste du Tonnerre pour pénétrer dans le Système Stellaire de l'Alliance!
+Le Temple Céleste du Tonnerre avait émis un Décret de Luotian pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Céleste du Tonnerre pour pénétrer dans le Système Stellaire de l'Alliance une fois le passage ouvert!
 
 Cette nouvelle fut comme une tempête balayant le Système Stellaire Luotian, déclenchant des vagues de tumulte!
 
@@ -60,7 +60,7 @@ La frénésie autour des titres célestes atteignit son apogée dans le Système
 
 Mais alors, la famille de culture la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire Luotian et porta la détermination des cultivateurs à son comble!
 
-L'attribution des titres célestes pouvait presque être comparée aux bénédictions divines du Royaume Céleste!
+L'attribution des titres célestes pouvait presque être comparée à la véritable attribution de titres du Royaume Céleste!
 
 Le message ne contenait qu'une seule ligne:
 
@@ -110,19 +110,19 @@ Pourtant, malgré les recherches de la famille Yao, Xu Mu avait disparu. Personn
 
 À ce moment-là, Wang Lin volait à travers le Domaine Étrange. Seule une brume grise se dressait devant lui, mais cela ne l'arrêtait nullement.
 
-Derrière lui, les membres du Clan de l'Immortel Élu étaient d'un calme absolu. Les mois passés à voler dans la brume avaient transformé leur mentalité.
+Derrière lui, les membres du Clan des Immortels Élus étaient d'un calme absolu. Les mois passés à voler dans la brume avaient transformé leur mentalité.
 
 La confusion des débuts s'était évanouie, remplacée par une détermination sans faille et une intention meurtrière!
 
 Durant les mois où ils suivirent Wang Lin dans le brouillard, ils avaient vu et combattu de nombreuses bêtes féroces. Bien que leur nombre ait diminué, leur aura de combat s'était progressivement épaissie.
 
-À présent, les membres du Clan de l'Immortel Élu ressemblaient à des dieux de la mort suivant Wang Lin. Parmi eux se trouvaient des femmes et des enfants, mais toute trace de faiblesse avait disparu de leurs visages.
+À présent, les membres du Clan des Immortels Élus ressemblaient à des dieux de la mort suivant Wang Lin. Parmi eux se trouvaient des femmes et des enfants, mais toute trace de faiblesse avait disparu de leurs visages.
 
 S'ils pouvaient charger, ils vivraient. Sinon, ils seraient dévorés par les bêtes de ce lieu.
 
-Grâce à ces batailles sanglantes, le Clan de l'Immortel Élu s'était rapidement endurci. On percevait une ombre de Wang Lin en chacun d'eux. Après tout, pour ces gens simples, Wang Lin était l'unique modèle.
+Grâce à ces batailles sanglantes, le Clan des Immortels Élus s'était rapidement endurci. On percevait une ombre de Wang Lin en chacun d'eux. Après tout, pour ces gens simples, Wang Lin était l'unique modèle.
 
-Après avoir passé des mois à leurs côtés, même Wang Lin devait admettre que le Clan de l'Immortel Élu était doué et intelligent. Ils possédaient de bonnes racines de culture et leur capacité d'imitation était presque effrayante.
+Après avoir passé des mois à leurs côtés, même Wang Lin devait admettre que le Clan des Immortels Élus était doué et intelligent. Ils possédaient de bonnes racines de culture et leur capacité d'imitation était presque effrayante.
 
 En seulement quelques mois d'interactions dans la brume, ils avaient assimilé la résolution de Wang Lin, son calme et son intention meurtrière.
 
@@ -132,7 +132,7 @@ Ce qui fit rétrécir les yeux de Wang Lin fut de constater leur efficacité dan
 
 Wang Lin réfléchissait en silence tout en enveloppant les femmes et les enfants du Clan dans son sort pour qu'ils puissent progresser plus rapidement.
 
-Ce jour-là, la brume devant eux se dissipa et Wang Lin s'élança. Les membres du Clan de l'Immortel Élu suivirent un à un. Ce qui apparut devant eux fut un ciel étoilé éclatant!
+Ce jour-là, la brume devant eux se dissipa et Wang Lin s'élança. Les membres du Clan des Immortels Élus suivirent un à un. Ce qui apparut devant eux fut un ciel étoilé éclatant!
 
 Domaine Ouest du Système Stellaire Luotian!
 
@@ -140,15 +140,15 @@ En contemplant les étoiles, Wang Lin entra en transe. Juste après les événem
 
 « Système Stellaire Luotian, je suis de retour! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
 
-Wang Lin regarda les membres du Clan de l'Immortel Élu.
+Wang Lin regarda les membres du Clan des Immortels Élus.
 
 « Voici le Système Stellaire Luotian, sous le Royaume Céleste du Tonnerre. Puisque vous êtes arrivés ici, vous êtes libres! »
 
-Le Clan de l'Immortel Élu réfléchit un instant avant de regarder Wang Lin: « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de culture qui pourrait nous abriter temporairement? Une fois que nous aurons pris nos marques dans ce Système Stellaire Luotian, nous partirons sans faute! »
+L'ancêtre du Clan des Immortels Élus garda le silence un instant, puis leva les yeux vers Wang Lin: « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de culture qui pourrait nous abriter temporairement? Une fois que nous aurons pris nos marques dans ce Système Stellaire Luotian, nous partirons sans faute! »
 
 Wang Lin réfléchit brièvement et hocha la tête. La planète Qing Ling était très vaste et pouvait accueillir les membres du clan.
 
-Il se retourna, fit un pas et s'élança comme une météorite. Les membres du Clan de l'Immortel Élu le suivirent. Des centaines de traînées lumineuses foncèrent vers la planète Qing Ling.
+Il se retourna, fit un pas et s'élança comme une météorite. Les membres du Clan des Immortels Élus le suivirent. Des centaines de traînées lumineuses foncèrent vers la planète Qing Ling.
 
 En chemin, Wang Lin déploya son Sens Divin pour chercher des planètes. L'espace était extrêmement vaste, ce qui rendait la tâche difficile. Après dix jours, les yeux de Wang Lin s'illuminèrent lorsqu'il repéra une planète jaune au loin. Les fluctuations d'énergie spirituelle n'étaient pas très fortes, mais pas faibles non plus.
 
@@ -160,7 +160,7 @@ Une forte fluctuation d'énergie d'origine émanait des trois; il était clair q
 
 À leur apparition, leurs visages étaient graves. L'homme d'âge moyen regarda Wang Lin et dit calmement: « Camarade cultivateur, vous arrivez avec une telle hâte; je me demande ce que vous voulez! »
 
-Les regards des deux autres balayèrent le Clan de l'Immortel Élu derrière Wang Lin. Plus ils regardaient, plus ils étaient stupéfaits. Les personnes derrière ne dégageaient aucune fluctuation d'énergie spirituelle, mais possédaient une force mystérieuse qu'ils n'avaient jamais vue auparavant.
+Les regards des deux autres balayèrent le Clan des Immortels Élus derrière Wang Lin. Plus ils regardaient, plus ils étaient stupéfaits. Les personnes derrière ne dégageaient aucune fluctuation d'énergie spirituelle, mais possédaient une force mystérieuse qu'ils n'avaient jamais vue auparavant.
 
 De plus, ils sentaient clairement une intention meurtrière émanant de ces gens. Cette soif de sang était intense, manifestement forgée par de longs mois de massacres.
 

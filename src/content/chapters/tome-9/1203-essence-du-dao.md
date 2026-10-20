@@ -22,7 +22,7 @@ Des bruits de craquements résonnèrent tandis que ses cheveux s'agitaient sans 
 
 À mesure que l'énergie affluait, l'âme originelle de Wang Lin devint aussi vaste que son propre corps. Soudain, les yeux de Wang Lin s'ouvrirent. Son regard, semblable à celui des étoiles éclatantes, perçait le ciel et la terre.
 
-À l'instant même où il ouvrit les yeux, la masse de cristaux d'origine autour de lui s'effondra en poussière, formant un anneau protecteur tout autour de lui.
+À l'instant même où il ouvrit les yeux, la masse de cristaux d'origine autour de lui s'effondra en poussière, formant des anneaux qui l'entouraient.
 
 Stade intermédiaire du Purificateur du Nirvana!
 
@@ -40,7 +40,7 @@ Wang Lin n'avait pas découvert comment le Maître Pin Cendré avait obtenu ces 
 
 « Cependant, cette essence du Dao ne peut pas être consommée immédiatement. Une fois bue, on s'endort pour une durée indéterminée. Le plan du Maître Pin Cendré était de trouver un endroit absolument sûr ici, de la boire et d'attendre le jour de son réveil. C'est aussi pour cela qu'il ne l'avait pas bue lorsqu'il combattait la vieille femme en vert! »
 
-L'endroit qu'il avait choisi était la montagne située dans les profondeurs du Royaume aux Sept Couleurs! Seul bémol: il n'y avait aucune trace de ce vieil homme aux cheveux blancs dans les souvenirs du Maître Pin Cendré.
+L'endroit qu'il avait choisi était la montagne située dans les profondeurs du Royaume aux Sept Couleurs! Seul bémol: les souvenirs du Maître Pin Cendré ne donnaient aucune raison d'y aller, ni la moindre trace de ce vieil homme aux cheveux blancs.
 
 Le regard de Wang Lin s'anima et il fixa la bouteille dans sa main gauche.
 
@@ -52,7 +52,7 @@ Le regard de Wang Lin s'anima et il fixa la bouteille dans sa main gauche.
 
 « La pierre de jade de Sima Mo mentionnait quatre tablettes, mais lorsque j'ai étendu mon esprit, je n'en ai trouvé que deux. L'une des tablettes de pierre ne possédait ni squelette ni bouteille en dessous... C'est assez étrange. »
 
-Après une courte réflexion, Wang Lin observa les neuf grottes de la montagne. Il n'avait ouvert que les trois premières, sans toucher aux suivantes. Son corps vacilla et il apparut devant la quatrième grotte.
+Après une courte réflexion, Wang Lin observa les neuf grottes de la vallée. Il n'avait ouvert que les trois premières, sans toucher aux suivantes. Son corps vacilla et il apparut devant la quatrième grotte.
 
 Il posa sa main droite sur le rocher qui scellait l'entrée et l'énergie originelle de son corps jaillit. En pressant doucement la roche, des bruits de craquements retentirent. Toutes les restrictions s'effondrèrent et furent repoussées sur le côté.
 
@@ -112,7 +112,7 @@ C'était la partie inférieure d'un squelette, sur laquelle étaient gravés d'i
 
 Une fois apaisé, Wang Lin réfléchit. Il n'était pas prêt à repartir ainsi. En examinant le squelette, il remarqua une fracture profonde sur la jambe droite. Bien que l'os ne fût pas détaché, la blessure était très grave.
 
-Après un long moment, les mains de Wang Lin formèrent un sceau. Il pointa son corps à plusieurs reprises pour y placer de lourdes restrictions mentales. Puis, il sortit l'épée de cristal qu'il avait prise au Maître Pin Cendré. Il y laissa une parcelle de sa pensée et s'avança lentement. Ce n'était que quelques dizaines de pieds, mais Wang Lin était d'une prudence extrême à chaque pas. Il arriva finalement près du squelette, s'accroupit et tendit la main vers la fracture de la jambe droite sans hésiter. Son esprit se projeta depuis sa main droite.
+Après un long moment, les mains de Wang Lin formèrent un sceau. Il pointa son corps à plusieurs reprises pour y placer de lourdes restrictions mentales. Puis, il sortit l'épée de cristal qu'il avait prise au Maître Pin Cendré. Il y laissa une parcelle de sa pensée, la posa à l'écart et s'avança lentement. Ce n'était que quelques dizaines de pieds, mais Wang Lin était d'une prudence extrême à chaque pas. Il arriva finalement près du squelette, s'accroupit et tendit la main vers la fracture de la jambe droite sans hésiter. Son esprit se projeta depuis sa main droite.
 
 Il utilisait son âme pour comprendre!
 

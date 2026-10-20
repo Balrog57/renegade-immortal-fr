@@ -20,7 +20,7 @@ Cependant, cette révélation brutale eut un impact violent sur Lie Yunzi. Son c
 
 « Qui est donc ce Wang Lin... Il... Il... Comment a-t-il fait cela? Comment a-t-il pu faire d'un cultivateur du troisième pas son esclave?! »
 
-« Sa force est déjà comparable à celle d'un cultivateur du troisième pas. Maintenant, avec cet esclave en plus, il... sa puissance atteint déjà le sommet au sein du Royaume Intérieur!! »
+« Sa force est déjà comparable à celle d'un cultivateur du troisième pas. Maintenant, avec cet esclave en plus, il... sa puissance atteint déjà le sommet dans les quatre grands domaines stellaires du Royaume Intérieur!! »
 
 Dieu de Sang était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de culture, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
 

@@ -14,7 +14,7 @@ Dès qu'il ferma les yeux, une lueur vacilla dans son ombre et Ta Shan en sortit
 
 Tandis que Wang Lin restait immobile, il ressentit un profond épuisement au fond de son cœur. Depuis son entrée dans le Royaume Céleste du Tonnerre, il était resté en état d'alerte constante. Après avoir quitté ce royaume, il avait été projeté dans la Bête des Limbes et n'avait pu s'en extirper qu'au prix d'une bataille sanglante.
 
-À l'origine, il avait prévu de retrouver Li Yuan pour étudier les restrictions et se reposer un peu après avoir conduit le Clan Immortel Élu vers la planète Qing Ling. Cependant, les événements qui suivirent forcèrent Wang Lin à faire preuve d'une cruauté implacable et à combattre!
+À l'origine, il avait prévu de retrouver Li Yuan pour étudier la Restriction d'Annihilation du Cœur et se reposer un peu après avoir conduit le Clan Immortel Élu vers la planète Qing Ling. Cependant, les événements qui suivirent forcèrent Wang Lin à faire preuve d'une cruauté implacable et à combattre!
 
 La poursuite par la famille Yao et l'intervention d'autres familles de cultivateurs avaient contraint Wang Lin à la fuite. Bien qu'il ait conservé l'avantage, vivre dans une situation où le moindre instant d'inattention pouvait entraîner des blessures graves ou la mort était épuisant. Cette tension s'était accumulée en lui, et maintenant qu'il était assis dans ce fourneau, il pouvait enfin se détendre un peu.
 

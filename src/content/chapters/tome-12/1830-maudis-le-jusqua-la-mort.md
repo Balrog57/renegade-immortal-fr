@@ -80,7 +80,7 @@ Le cœur de Fan Shanmeng bondit à ces mots et son visage se décomposa.
 
 « N'osez pas!! » Yan Luan s'était enfin calmée, mais les paroles de Wang Lin firent jaillir instantanément une intention meurtrière en elle. Ce contraste extrême lui conférait une beauté étrange.
 
-Wang Lin rit et s'engouffra dans la Secte de la Grande Âme. Ses paroles cachaient un autre sens.
+Wang Lin rit et s'engouffra dans la Secte de la Grande Âme. Le geste qu'il venait de faire cachait un autre sens.
 
 Après son départ, Yan Luan fixa soudainement Fan Shanmeng avec un regard étrange. On ignorait ce qu'elle pensait.
 

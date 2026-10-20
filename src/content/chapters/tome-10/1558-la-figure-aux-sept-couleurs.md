@@ -68,7 +68,7 @@ La figure aux sept couleurs sembla rire en secouant la tête: « Si vous parvene
 
 Wang Lin ne pouvait sonder les pensées de cette entité. Cet être avait déployé des efforts colossaux pour observer Qing Shui depuis sa naissance, afin de le maintenir dans un état de chagrin et de désespoir, mettant en place cette formation pour récolter l'Essence du Massacre.
 
-Pourtant, d'après ce que Wang Lin voyait et entendait, il semblait que la figure aux sept couleurs n'en ait cure. Cela renforçait les soupçons de Wang Lin.
+Pourtant, d'après ce que Wang Lin voyait et entendait, il semblait que la figure aux sept couleurs n'en ait cure. Cela remettait en question les propres hypothèses de Wang Lin.
 
 L'indifférence dans le ton de la silhouette ne semblait pas feinte; elle se moquait réellement de tout cela...
 
@@ -110,7 +110,7 @@ Les trois Clans Anciens constituaient la seconde génération de cultivateurs d�
 
 Bien que cela ne fût pas exactement identique aux propos de la figure aux sept couleurs, si l'on combinait les deux récits, une image limpide se dessinait!
 
-« L'Ancien Ye Mo a été attiré ici par l'ancien Empereur Céleste, ou la figure aux sept couleurs. Cette bataille était le conflit ancestral où l'Ancien combattait le Ciel mentionné par Bei Luo! »
+« L'Ancien Ye Mo a été attiré ici par le Souverain Céleste, ou la figure aux sept couleurs. Cette bataille était le conflit ancestral où l'Ancien combattait le Ciel mentionné par Bei Luo! »
 
 « Les 3 000 gouttes de sang se sont finalement transformées en trois Clans Anciens. Les gouttes ayant fusionné ont donné naissance aux lignées royales! Dans quelle mesure tout cela est-il vrai? » Wang Lin prit une profonde inspiration.
 

@@ -14,7 +14,7 @@ Cette onde était d'une puissance phénoménale. Lorsqu'elle atteignit la surfac
 
 Une lueur rouge clignota dans l'œil droit de Qing Shui. Il baissa le regard vers la terre devant lui, mais son expression resta imperturbable.
 
-Le vieil homme Xiang dit respectueusement: « La bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que Junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser le sort Qixi! »
+Le vieil homme Xiang dit respectueusement: « La bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance a commencé. Cet individu a remporté le premier rang lors de la compétition des titres célestes et a obtenu une promesse de notre famille Xiang. Cependant, ce qu'il réclame est une chose que Junior ne peut accomplir. J'espérais que Senior accepterait d'utiliser une fois le sort Qixi! »
 
 À peine Xiang Yundong eut-il fini de parler que Wang Lin sentit immédiatement un Sens Divin inimaginable se verrouiller sur lui. Horrifié, il se força à ne pas reculer et tenta de retrouver son calme autant que possible.
 

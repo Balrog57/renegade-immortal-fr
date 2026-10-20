@@ -34,7 +34,7 @@ Pourtant, cette atmosphère s'évaporait dès leur retour au palais souterrain. 
 
 La bataille de Wang Lin et ses trois sentences avaient imposé le respect et la crainte à ces hommes.
 
-Le temps reprit sa course inexorable. Un mois, deux mois, trois mois. Durant ces trois mois, les cultivateurs avaient exploré la quasi-totalité de la prairie sans rien laisser derrière eux, mais Wang Lin n'était toujours pas sorti de sa méditation.
+Le temps reprit sa course inexorable. Un mois, deux mois, trois mois. Durant ces trois mois, les cultivateurs avaient fouillé la quasi-totalité de la prairie sans presque plus rien y trouver, mais Wang Lin n'était toujours pas sorti de sa méditation.
 
 Un jour, alors que quelques centaines de cultivateurs formaient un petit marché sur la prairie pour échanger leurs trouvailles et leurs propres biens, un grondement sourd retentit au loin. Ce bruit soudain fit pâlir leurs visages. Ils se levèrent d'un bond, la légèreté des trois derniers mois s'effaçant devant une expression solennelle.
 

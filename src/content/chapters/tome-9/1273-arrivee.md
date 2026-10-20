@@ -100,7 +100,7 @@ La main se redressa après cette pause, et une petite exclamation de surprise pa
 
 Une voix ancienne émergea de la brume alors qu'une pression colossale descendait soudainement du ciel: « Tu as du talent! Cependant, comment une luciole peut-elle se comparer à la lune? Comment oses-tu t'élever devant moi? Redescends! »
 
-Cette pression était d'une puissance extrême. Si un cultivateur Briseur du Nirvana l'avait touchée, il serait mort instantanément. Lorsqu'elle s'abattit sur Wang Lin, il cracha du sang. C'était comme si une calèche pesant dix millions de tonnes ou d'innombrables planètes de culture s'écrasaient sur lui. Ses os craquèrent sous la pression qui l'écrasait brutalement contre le sol.
+Cette pression était d'une puissance extrême. Si un cultivateur Briseur du Nirvana l'avait touchée, il serait mort instantanément. Lorsqu'elle s'abattit sur Wang Lin, il cracha du sang. C'était comme si une calèche pesant cinq mille tonnes ou d'innombrables planètes de culture s'écrasaient sur lui. Ses os craquèrent sous la pression qui l'écrasait brutalement contre le sol.
 
 Il n'avait absolument aucun moyen de résister!
 
@@ -116,7 +116,7 @@ Ce sort était suffisant pour tuer n'importe quel Briseur du Nirvana, et même l
 
 Il ne restait qu'un point rouge au centre de la paume, et une goutte de sang tomba.
 
-Les sorts de Wang Lin avaient pu détruire les quatre doigts illusoires du Maître du Dao Rêve Bleu. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
+Les sorts de Wang Lin avaient pu détruire les quatre doigts illusoires du Maître du Dao Rêve Bleu du Système Stellaire Antique. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
 
 Lors de son premier échange avec le Shui Daozi, Wang Lin avait craché du sang. Une douleur intense lui avait déchiré les os et le corps, et il avait été projeté au sol depuis le ciel.
 

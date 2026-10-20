@@ -18,7 +18,7 @@ C’en était comme si le monde entier avait été remplacé par l'océan, et un
 
 Ce seul sort suffisait à faire de Wang Wei l'un des cultivateurs les plus puissants de son époque. Le monde entier paraissait submergé par cette mer déchaînée.
 
-Wang Lin prit une inspiration glacée. D'après ce qu'il percevait, la force de Wang Wei était comparable à celle de Qing Shui, si l'on ne comptait pas son Royaume Ji!
+Wang Lin prit une inspiration glacée. D'après ce qu'il percevait, la force de Wang Wei était comparable à celle de Qing Shui, si l'on ne tenait pas compte du Royaume Ji de Qing Shui!
 
 Cependant, alors que la mer rugissante approchait, l'homme d'âge mûr revêtu de son armure fit un pas et s'éleva dans les airs.
 
@@ -54,7 +54,7 @@ Ces trois puissances avaient pénétré le brouillard noir, et les collisions as
 
 Le Maître du Vide observait le brouillard noir avec un air grave, tout comme l'homme en noir à ses côtés. Le vieil homme sur la gourde hésita également et s'arrêta à la lisière de la brume. Quant à Ling Tianhou, il contemplait le chaos d'un visage sombre.
 
-Wang Lin recula immédiatement sans la moindre hésitation. Bien qu'il ignorât tout des détails de l'affrontement, l'homme en armure qui sortait du palais était le même qui avait interféré avec son Guide Limbes lorsqu'il se trouvait dans le monde de la bouteille et lui avait remis le cristal jaune.
+Wang Lin recula immédiatement sans la moindre hésitation. Bien qu'il ignorât tout des détails de l'affrontement, l'homme en armure et le palais correspondaient exactement à ce qu'il avait vu dans le monde de la bouteille grâce à son Guide Limbes; l'homme qui lui avait remis le cristal jaune était donc cet homme en armure.
 
 Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wang Lin. Cet homme était l'être le plus puissant du Royaume Céleste: l'Empereur Céleste Qing Lin!
 
@@ -70,7 +70,7 @@ Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wa
 
 « Cependant, l'Ancien Démon Ta Jia était lui aussi un être puissant. Il parvint inopinément à saturer la grotte d'énergie démoniaque et corrompit même certains des gardes de Qing Lin, les entraînant sur la voie démoniaque. Ils finirent par passer sous son commandement. »
 
-« Quant au démon dispersé qui errait dans la Terre des Esprits Démoniaques et qui avait occupé un corps identique à celui de Ling Tianhou... je crains qu'il n'y ait là encore un secret bien plus profond. » Les yeux de Wang Lin s'illuminèrent. Grâce à son intelligence, il avait immédiatement saisi les contours de la situation au sein de la grotte.
+« Quant au démon dispersé qui avait occupé un corps identique à celui de Ling Tianhou et qui était apparu dans le monde extérieur... je crains qu'il n'y ait là encore un secret bien plus profond. » Les yeux de Wang Lin s'illuminèrent. Grâce à son intelligence, il avait immédiatement saisi les contours de la situation au sein de la grotte.
 
 Alors que des centaines de pensées traversaient l'esprit de Wang Lin pendant sa retraite rapide, un bruit assourdissant jaillit du brouillard noir. Dans la foulée, ce dernier s'étendit violemment vers l'extérieur.
 
@@ -94,4 +94,4 @@ Une lumière enveloppa Wang Wei et, au moment où la paume du Maître du Vide s'
 
 L'œil droit de Wang Lin brilla d'un bleu azur au moment même où la paume du Maître du Vide descendait, créant un bouclier de lumière azurée entre eux. La main du Maître du Vide percuta le bouclier.
 
-Le bouclier s'enfonça et pressa violemment la poitrine de Wang Lin, le faisant cracher du sang. Son corps fut repoussé avec une telle force que ses yeux devinrent injectés de sang; il finit par atterrir aux côtés de l'inconscient Wang Wei. Il le saisit et recula d'un bond. Tout en faisant cela, il plongea la main dans les vêtements de Wang Wei pour en extraire une pilule. Il brisa ensuite la cire protectrice et la fourra de force dans la bouche de Wang Wei.
+Le bouclier s'enfonça et pressa violemment la poitrine de Wang Lin, le faisant cracher du sang. Son corps fut repoussé avec une telle force que ses yeux devinrent injectés de sang; il finit par atterrir aux côtés de l'inconscient Wang Wei. Il le chargea sur son épaule et recula d'un bond. Tout en faisant cela, il plongea la main dans les vêtements de Wang Wei pour en extraire une pilule. Il brisa ensuite la cire protectrice et la fourra de force dans la bouche de Wang Wei.

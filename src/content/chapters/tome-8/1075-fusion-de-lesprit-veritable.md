@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1075 - Fusion of True Spirit
 slug: fusion-de-lesprit-véritable
 ---
-L'Alliance de la Culture tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume Ji scintillant dans ses yeux alors qu'il pénétrait à l'intérieur.
+L'Alliance de Culture tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume Ji scintillant dans ses yeux alors qu'il pénétrait à l'intérieur.
 
-À l'instant même où Nuit Brisée disparut et que Wang Lin réapparut dans les Terres de l'Esprit Démoniaque, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
+À l'instant même où Nuit Brisée disparut et que Wang Lin réapparut dans la Terre des Esprits Démoniaques, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
 
 L'âme du Maître du Vide lors de son premier Fléau Céleste, l'avatar aux robes violettes de l'Omniscient, et l'avatar aux robes jaunes de l'Omniscient!
 
@@ -30,7 +30,7 @@ Alors que les cris de l'Oiseau Vermillon se rapprochaient, le tatouage de l'Oise
 
 L'Oiseau Vermillon blanc leva fièrement la tête et poussa un cri vers les cieux. Les deux cris se croisèrent, et une pointe de joie perçait dans le cri de l'Oiseau Vermillon blanc de Wang Lin.
 
-L'oiseau blanc tourna autour de Wang Lin en continuant de crier. Puis, une mer de flammes encore plus intense apparut au-dessus des Terres de l'Esprit Démoniaque et recouvrit le monde!
+L'oiseau blanc tourna autour de Wang Lin en continuant de crier. Puis, une mer de flammes encore plus intense apparut au-dessus de la Terre des Esprits Démoniaques et recouvrit le monde!
 
 Alors que les cris de l'Oiseau Vermillon résonnaient, une tête gigantesque d'oiseau émergea de la mer de flammes. Sa taille était telle qu'elle occupait presque tout le ciel. Le feu qui émanait de son corps semblait vouloir assécher la terre entière.
 

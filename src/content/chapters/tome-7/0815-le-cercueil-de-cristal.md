@@ -28,13 +28,13 @@ Cet objet était le fantôme céleste que Wang Lin avait obtenu dans le Royaume 
 
 Simultanément, les yeux de Wang Lin s'illuminèrent et il sortit un autre sac. Une quantité massive de jades célestes emplit l'espace.
 
-Ce n'était pas tout. Après une courte réflexion, il sortit plus de dix crânes sur lesquels scintillaient des runes complexes. C'étaient les crânes du Clan de l'Immortel Délaissé de la planète Suzaku.
+Ce n'était pas tout. Après une courte réflexion, il sortit plus de dix crânes sur lesquels scintillaient des runes complexes. C'étaient les crânes du Clan des Immortels Délaissés de la planète Suzaku.
 
 Wang Lin regarda Ta Shan, en plein raffinage par son énergie de l'âme originelle, et dit calmement: « Je vais utiliser les jades célestes pour nourrir ton corps, le fantôme céleste pour t'aider à former une âme, et les crânes de tes ancêtres pour perfectionner tes tatouages. Ta Shan, je vais t'offrir une fortune inestimable! »
 
 « Si cela échoue encore, ce sera par manque de chance de ton côté, et non par ma faute! »
 
-Le temps s'écoula et plus de deux mois passèrent. Ce jour-là, l'endroit où se trouvait Wang Lin fut secoué par un immense grondement. Le fracas fut si puissant que même les membres du Clan de l'Immortel Élu l'entendirent distinctement et s'envolèrent aussitôt hors de leurs demeures.
+Le temps s'écoula et plus de deux mois passèrent. Ce jour-là, l'endroit où se trouvait Wang Lin fut secoué par un immense grondement. Le fracas fut si puissant que même les membres du Clan des Immortels Élus l'entendirent distinctement et s'envolèrent aussitôt hors de leurs demeures.
 
 Le premier à réagir fut le vieil homme. Il semblait extrêmement émacié, comme si plusieurs années s'étaient écoulées en ces deux mois; il paraissait encore plus âgé.
 
@@ -48,7 +48,7 @@ La complexité de ce motif dépassait l'entendement. Les yeux de cet homme robus
 
 Il regarda le dos de l'homme robuste et ses yeux exprimèrent un soupçon de regret.
 
-« Malheureusement, il ne pourra atteindre que le sommet du stade Yang Corporel et ne parviendra pas à percer vers le stade Scruteur du Nirvana! » Le corps de Wang Lin bougea et, lorsqu'il réapparut, il se tenait sur l'épaule du géant. Ce dernier marcha vers les membres du Clan de l'Immortel Élu.
+« Malheureusement, il ne pourra atteindre que le sommet du stade Yang Corporel et ne parviendra pas à percer vers le stade Scruteur du Nirvana! » Le corps de Wang Lin bougea et, lorsqu'il réapparut, il se tenait sur l'épaule du géant. Ce dernier marcha vers les membres du Clan des Immortels Élus.
 
 « Je ne m'attendais pas à ce que la consommation de tant de jades célestes aide non seulement le corps de Ta Shan à récupérer, mais le fasse aussi, on ne sait pourquoi, croître du double. Le fantôme céleste fut crucial. Sans lui, la deuxième étape aurait échoué immédiatement. »
 
@@ -58,9 +58,9 @@ Wang Lin, debout sur l'épaule de l'homme robuste, commença à réfléchir.
 
 Tout en réfléchissant, l'homme robuste accéléra la cadence. Il franchissait une centaine de mètres en une seule enjambée, se déplaçant comme une rafale de vent.
 
-« De plus, les crânes des ancêtres du Clan de l'Immortel Délaissé étaient très mystérieux. Lors de leur raffinage, ils ont fini par fusionner en un seul tatouage. »
+« De plus, les crânes des ancêtres du Clan des Immortels Délaissés étaient très mystérieux. Lors de leur raffinage, ils ont fini par fusionner en un seul tatouage. »
 
-Au loin, les membres du Clan de l'Immortel Élu s'approchèrent, fixant l'homme robuste avec stupéfaction. Le vieil homme, anormalement excité, s'élança et cria: « Ta Shan! »
+Au loin, les membres du Clan des Immortels Élus s'approchèrent, fixant l'homme robuste avec stupéfaction. Le vieil homme, anormalement excité, s'élança et cria: « Ta Shan! »
 
 L'expression de l'homme robuste était glaciale; il ne daigna même pas regarder le vieil homme. Il s'arrêta sur ordre de Wang Lin et resta immobile. Ce dernier sauta de l'épaule du géant pour atterrir au sol.
 
@@ -74,7 +74,7 @@ Le vieil homme fut surpris et s'apprêtait à poser d'autres questions quand Wan
 
 Le vieil homme jeta un dernier regard vers Ta Shan avant de détourner les yeux et d'incliner respectueusement la tête.
 
-Wang Lin fit un pas en avant et chargea vers l'entrée de l'autel. En chemin, il rangea la grenouille tonitruante et la bête moustique. Ta Shan suivit Wang Lin, tandis que le vieil homme poussait un soupir avant de suivre, accompagné du reste du Clan de l'Immortel Élu.
+Wang Lin fit un pas en avant et chargea vers l'entrée de l'autel. En chemin, il rangea la grenouille tonitruante et la bête moustique. Ta Shan suivit Wang Lin, tandis que le vieil homme poussait un soupir avant de suivre, accompagné du reste du Clan des Immortels Élus.
 
 En passant devant les bâtiments, un grand nombre de femmes sortirent, suivies par des enfants. Ils rejoignirent le groupe et se dirigèrent vers l'autel.
 
@@ -90,19 +90,19 @@ Les yeux de Wang Lin s'illuminèrent; il frappa son sac de contenance et les tro
 
 L'impact créa un bang sonique qui résonna dans le passage. La brume noire qui stagnait dans le couloir recula brusquement, comme balayée par une tempête.
 
-Le regard de Wang Lin se fit glacial. Cette fois, il était déterminé à partir, quoi qu'il en coûte! Il chargea tel un éclair et s'engouffra dans la porte pour descendre le passage. Les membres du Clan de l'Immortel Élu les suivirent, le regard empreint de détermination.
+Le regard de Wang Lin se fit glacial. Cette fois, il était déterminé à partir, quoi qu'il en coûte! Il chargea tel un éclair et s'engouffra dans la porte pour descendre le passage. Les membres du Clan des Immortels Élus les suivirent, le regard empreint de détermination.
 
 Un instant plus tard, Wang Lin atteignit le bout du passage, là où se trouvait le Fourneau Yin Mystérieux. Il vit la silhouette sombre d'une femme tourbillonner frénétiquement autour de Ta Shan en poussant des hurlements incessants.
 
 L'expression de Ta Shan était impassible. En tant que gardien céleste, son âme originelle s'était déjà effondrée pour fusionner avec son corps; le cri n'avait donc aucun effet sur lui. Même si ces ondes pouvaient blesser un corps ordinaire, la robustesse du sien les rendait inopérantes.
 
-Quant à Wang Lin, il bénéficiait de l'Armure en Cuir de l'Ancien Dieu pour protéger son âme originelle. Lorsque le cri frappa l'armure, celle-ci se contenta de dissiper l'onde.
+Quant à Wang Lin, il bénéficiait de l'Armure de Cuir de l'Ancien Dieu pour protéger son âme originelle. Lorsque le cri frappa l'armure, celle-ci se contenta de dissiper l'onde.
 
 La silhouette sombre de la femme, voyant Wang Lin, abandonna Ta Shan. Elle se rua vers lui avec un hurlement de tempête, comme si elle voulait le mettre en pièces!
 
 Wang Lin ricana et forma un sceau. Les trois drapeaux autour de lui s'élancèrent pour former un vortex de gaz violet affrontant l'onde sonore.
 
-Simultanément, Wang Lin recula et atteignit le Fourneau Yin Mystérieux en une seule enjambée. Ta Shan, dont l'esprit était lié à celui de Wang Lin, arriva également aux côtés du fourneau. Dès son arrivée, il leva le poing pour frapper la structure.
+Simultanément, Wang Lin recula et atteignit le Fourneau Yin Mystérieux en une seule enjambée. Ta Shan, qui partageait la pensée de Wang Lin, arriva également aux côtés du fourneau. Dès son arrivée, il leva le poing pour frapper la structure.
 
 Ta Shan libéra le coup le plus puissant qu'il ait porté depuis sa transformation. Bien qu'il fût devenu un gardien céleste, ses instincts primordiaux subsistaient. En cet instant, des années de haine envers le Fourneau Yin Mystérieux explosèrent à travers son poing.
 
@@ -116,11 +116,11 @@ Mais après son premier coup, Ta Shan n'hésita pas et lança un second assaut. 
 
 La silhouette sombre de la femme fut emportée par ce gaz noir.
 
-Les yeux de Wang Lin s'illuminèrent. Il monta sur le réseau de transfert sans hésiter et cria: « Xu Liguo, tu ne comptes toujours pas revenir?! » Un des membres du Clan de l'Immortel Élu trembla instantanément tandis qu'un gaz noir jaillissait entre ses sourcils. Ce gaz se mua en Xu Liguo qui, avec une pointe de nostalgie, s'envola vers Wang Lin.
+Les yeux de Wang Lin s'illuminèrent. Il monta sur le réseau de transfert sans hésiter et cria: « Xu Liguo, tu ne comptes toujours pas revenir?! » Un des membres du Clan des Immortels Élus trembla instantanément tandis qu'un gaz noir jaillissait entre ses sourcils. Ce gaz se mua en Xu Liguo qui, avec une pointe de nostalgie, s'envola vers Wang Lin.
 
 Ta Shan suivit immédiatement Wang Lin et disparut sans laisser de trace. Les environs tombèrent dans un silence de mort, tandis que la terre s'effondrait par pans entiers. Il était évident que l'autel pouvait s'écrouler à tout instant.
 
-L'ancêtre du Clan de l'Immortel Élu regarda ses membres une dernière fois avant de s'élancer dans le réseau de transfert. Un à un, les membres du clan suivirent. Ils quittaient le lieu qu'ils avaient habité et gardé pendant des générations!
+L'ancêtre du Clan des Immortels Élus regarda ses membres une dernière fois avant de s'élancer dans le réseau de transfert. Un à un, les membres du clan suivirent. Ils quittaient le lieu qu'ils avaient habité et gardé pendant des générations!
 
 ***
 
@@ -138,7 +138,7 @@ L'homme en robe noire continua son sortilège. Un par un, d'autres clones apparu
 
 À des dizaines de milliers de kilomètres de là, une lueur multicolore jaillit et un vortex géant se forma. Wang Lin en émergea, tandis que Xu Liguo flottait autour de lui tel un fantôme. Ta Shan sortit du vortex juste après lui.
 
-Un instant plus tard, les membres du Clan de l'Immortel Élu apparurent également.
+Un instant plus tard, les membres du Clan des Immortels Élus apparurent également.
 
 L'expression de Wang Lin resta calme alors qu'il déployait son Sens Divin pour sonder les environs. Cependant, ses yeux se rétrécirent brusquement lorsqu'il vit une silhouette foncer vers lui!
 

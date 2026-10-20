@@ -46,7 +46,7 @@ Après avoir remué son corps pour surmonter l'inconfort des premiers instants, 
 
 Wang Lin baissa la tête et contempla son corps. Il s'élança vers l'horizon tel un météore, son sens divin déployé au maximum. Il était comme une lueur éclatante dans les ténèbres; si quelqu'un le cherchait, il pourrait immédiatement le verrouiller du regard.
 
-Wang Lin volait sans retenue. Il avait réprimé sa présence depuis son arrivée dans le Système Stellaire de Tout-Ciel. Après tout, il s'était enfui ici, et ces vieux monstres du Système Stellaire de l'Alliance auraient pu le poursuivre à tout instant. La réalité de la situation imposait la prudence.
+Wang Lin volait sans retenue. Il avait réprimé sa présence depuis son arrivée dans le Système Stellaire de Luotian. Après tout, il s'était enfui ici, et ces vieux monstres du Système Stellaire de l'Alliance auraient pu le poursuivre à tout instant. La réalité de la situation imposait la prudence.
 
 Toutefois, puisque l'Ancêtre Sanguin était déjà arrivé et compte tenu de la puissance de ce corps, Wang Lin décida de relâcher sa vigilance. Bien que le garde céleste ne fût pas comparable à son corps originel, il était bien plus puissant que n'importe quel cultivateur, et même surpassait certains cultivateurs de raffinement corporel.
 
@@ -78,9 +78,9 @@ Il était prêt à défier les cieux et à massacrer tout ce qui se dressait sur
 
 C'était là qu'il différait radicalement de l'Omniscient et de Ling Tianhou. Si c'était l'Omniscient, il aurait tout sacrifié pour atteindre la troisième étape!
 
-Pour sa propre fille, il était prêt à renoncer à sa dignité, à briser le serment que son père mourant lui avait imposé: celui de ne jamais poser le pied dans le Système Stellaire de Tout-Ciel...
+Pour sa propre fille, il était prêt à renoncer à sa dignité, à briser le serment que son père mourant lui avait imposé: celui de ne jamais poser le pied dans le Système Stellaire de Luotian...
 
-« Père... Quand tu m'as fait prêter ce serment, pourquoi as-tu laissé derrière toi une Pierre de Tout-Ciel... » Cette question hantait le cœur de l'Ancêtre Sanguin depuis bien longtemps.
+« Père... Quand tu m'as fait prêter ce serment, pourquoi as-tu laissé derrière toi une Pierre de Luotian... » Cette question hantait le cœur de l'Ancêtre Sanguin depuis bien longtemps.
 
 L'Ancêtre Sanguin fit un pas calme et se posa sur le fragment. Son sens divin s'étendit comme une tempête, couvrant l'intégralité du continent.
 

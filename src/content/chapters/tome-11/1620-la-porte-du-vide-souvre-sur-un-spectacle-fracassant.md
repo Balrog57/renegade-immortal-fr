@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1620 - The Thunder Gate Opens to a Shocking Ring
 slug: la-porte-du-vide-souvre-sur-un-spectacle-fracassant
 ---
-Si la Formation de Scellement du Royaume était dans un état parfait, il aurait été extrêmement difficile pour quoi que ce soit de la traverser; mais désormais, une brèche avait été ouverte par le Royaume Extérieur, et le rugissement de Wang Lin put ainsi s'y engouffrer par une méthode spéciale. Il jaillit de l'ouverture dans la Mer des Nuages et se propagea à travers tout l'Ancien Système Stellaire.
+Si la Formation de Scellement du Royaume était dans un état parfait, il aurait été extrêmement difficile pour quoi que ce soit de la traverser; mais désormais, une brèche avait été ouverte par le Royaume Extérieur, et le rugissement de Wang Lin put ainsi s'y engouffrer, silencieusement, par une méthode spéciale. Il jaillit de l'ouverture dans la Mer des Nuages et se propagea à travers tout l'Ancien Système Stellaire.
 
 À cet instant, un tonnerre grondant déchira le vaste Ancien Système Stellaire. D'innombrables éclairs surgirent du vide et se précipitèrent vers la brèche de la Mer des Nuages.
 
-Parmi les cultivateurs du Royaume Extérieur, ceux qui cultivaient le tonnerre furent saisis de tremblements. L'énergie originelle en eux quitta leurs corps sans qu'ils puissent la contrôler, se transformant en foudres qui s'envolèrent vers l'objectif.
+Parmi les cultivateurs du Royaume Extérieur, ceux qui cultivaient le tonnerre furent saisis de tremblements. L'énergie originelle en eux quitta leurs corps sans qu'ils puissent la contrôler, se transformant en foudres qui s'envolèrent au loin.
 
 Le tonnerre traversa bientôt l'Ancien Système Stellaire pour pénétrer dans le trou de la Mer des Nuages. Il déferla à travers le Royaume Intérieur et fusionna au fur et à mesure de sa progression vers la planète Suzaku.
 

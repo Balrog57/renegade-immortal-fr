@@ -84,7 +84,7 @@ Les pupilles de Zhu Quezi se contractèrent. Son expression se fit sombre alors 
 
 Le visage de Du Tian était d'une pâleur mortelle. Il ne lui restait qu'un peu plus d'un an à vivre et, après avoir utilisé la grande technique de fusion de l'étendard, son corps était à bout de forces, comme une lampe sans huile. Il murmura faiblement: « Tue-le! »
 
-Le fragment d'âme de stade avancé de l'Ascendant n'avança pas directement; il leva plutôt la main. Un grondement sourd retentit de toutes parts tandis que les nuages s'amassaient pour former un corps humanoïde.
+Le fragment d'âme de stade avancé de l'Ascendant n'avança pas directement; il leva plutôt la main. Un coup de tonnerre retentit dans le ciel, et les nuages venus de cinquante kilomètres s'amassèrent pour former un corps humanoïde.
 
 Ce corps, fait de brume et de nuages, ne semblait, à première vue, guère différent d'un mortel.
 
@@ -114,7 +114,7 @@ L'expression de Zhu Quezi se crispa alors qu'il reculait d'une dizaine de mètre
 
 Une force puissante enveloppa les cinq épées qui, en un éclair, furent piégées à l'intérieur de la gourde.
 
-Les yeux de Zhu Quezi s'illuminèrent. Il s'apprêtait à utiliser la gourde pour capturer les trois autres épées, mais à ce moment précis, il entendit des craquements émaner du récipient. Une seconde plus tard, un fracas assourdissant en jaillit.
+Les yeux de Zhu Quezi s'illuminèrent. Il s'apprêtait à utiliser la gourde pour capturer les quatre autres épées, mais à ce moment précis, il entendit des craquements émaner du récipient. Une seconde plus tard, un fracas assourdissant en jaillit.
 
 Dans une explosion, la gourde vola en éclats. Les cinq épées furent projetées et transpercèrent l'air vers Zhu Quezi sans aucune hésitation.
 

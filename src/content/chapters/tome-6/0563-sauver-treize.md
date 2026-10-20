@@ -57,7 +57,7 @@ Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il 
 
 « Je devrais être prudent et rester à l'écart du danger. Rien de tout cela n'en vaut la peine!
 
-« Pourtant, moi, Wang Lin, je ne veux pas suivre les conventions pour un jour trouver le Dao des cieux; je veux vivre sans avoir le sentiment d'avoir lésé qui que ce soit. Je ne suis ni un gentleman, ni un scélérat, ni un homme honnête, ni un hypocrite, mais il y a certaines choses dans la vie qui doivent être faites, tout simplement!
+« Pourtant, moi, Wang Lin, je ne veux pas suivre les conventions pour un jour trouver le Dao des cieux; je veux vivre sans avoir le sentiment d'avoir lésé qui que ce soit. Je ne suis ni un gentleman, ni un scélérat, ni un homme honnête, ni un hypocrite, mais il y a certaines choses dans la vie qui doivent être faites, par obstination!
 
 « De ce point de vue, je ne suis pas fait pour être un cultivateur!
 
@@ -187,7 +187,7 @@ Ajoutant les dizaines de milliers de soldats qui l'entouraient, Wang Lin savait 
 
 Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus puissant, doté d'une force capable de fendre les cieux, infiniment proche d'un sort céleste de qualité inférieure. Le troisième sort meurtrier!
 
-« Il est vrai que la Terre des Esprits Démoniques repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant s'inclinerait!
+« Il est vrai que la Terre des Esprits Démoniques repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant perdrait!
 
 « Si j'avais dix millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade!
 
@@ -215,7 +215,7 @@ Après sa fusion avec le Doigt de l'Inframonde, Wang Lin se rua soudainement ver
 
 Les cinq anciens, dont la culture égalait celle de la Transformation de l'Âme au stade avancé, furent terrifiés par la puissance du sort, mais ils serrèrent les dents et activèrent leur énergie spirituelle démoniaque pour bloquer sa progression.
 
-Cependant, ils avaient sous-estimé la force du Doigt de l'Inframonde. Lorsque Wang Lin était au stade intermédiaire de la Transformation de l'Âme, il avait pu tenir tête à Sun Tao, qui était au stade intermédiaire de l'Ascendant. Bien qu'il eût fini par perdre, il avait infligé une immense surprise à ce dernier!
+Cependant, ils avaient sous-estimé la force du Doigt de l'Inframonde. Lorsque Wang Lin était au stade intermédiaire de la Transformation de l'Âme, il avait pu tenir tête à Chen Tao, qui était au stade intermédiaire de l'Ascendant. Bien qu'il eût fini par perdre, il avait infligé une immense surprise à ce dernier!
 
 À présent, la culture de Wang Lin atteignant le sommet du stade avancé de la Transformation de l'Âme, le Doigt de l'Inframonde était suffisant pour menacer des cultivateurs Ascendants!
 

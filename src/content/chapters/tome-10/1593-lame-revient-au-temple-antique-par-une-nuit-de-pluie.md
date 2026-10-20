@@ -8,19 +8,19 @@ slug: lame-revient-au-temple-antique-par-une-nuit-de-pluie
 ---
 Wang Lin fixa le ciel et les deux rayons de lumière qui disparaissaient au loin.
 
-« Qui est-elle... Si familière, si familière... » murmura Wang Lin, sentant une douleur lancinante lui transpercer le cœur. Cette sensation se mêla à une tristesse inexplicable pour devenir une force étrange qui accéléra son souffle et fit pâlir son visage.
+« Qui est-elle... Si familière, si familière... » murmura Wang Lin, sentant une douleur lancinante lui transpercer le cœur. Cette sensation se mêla à une tristesse inexplicable pour devenir une force étrange qui suspendit son souffle et fit pâlir son visage.
 
 Son corps vacilla et il recula de quelques pas alors que son regard vers l'horizon s'effondrait. Sa main droite pressa sa poitrine, là où la douleur cuisante prenait naissance. Cette souffrance l'envahit comme une marée; une douleur indicible, comme si son cœur était déchiré, tandis qu'une mélancolie profonde refaisait surface.
 
 Tout cela provenait de cette femme qui avait traversé le ciel. Elle semblait exister dans l'esprit de Wang Lin depuis d'innombrables années, mais les pensées associées à cette silhouette étaient d'une complexité infinie.
 
-Après un long moment, une légère teinte de couleur revint sur le visage de Wang Lin. Il respira profondément et ferma les yeux.
+Après un long moment, une légère teinte de couleur revint sur le visage de Wang Lin. Il haleta et ferma les yeux.
 
 « Ainsi, les immortels existent vraiment... Alors, mon rêve... n'est-il pas vraiment un rêve? » Wang Lin médita silencieusement, debout sur la terre humide après la pluie. Ce ne fut que lorsque le ciel devint totalement lumineux qu'il ouvrit les yeux d'un air hébété et s'avança sans un mot.
 
-« Ai-je rêvé d'une immortelle ou... une immortelle a-t-elle rêvé de moi? » Wang Lin ne comprenait pas. C'était comme si ce rêve embrumé avait changé la trajectoire même de sa vie.
+« Ai-je rêvé d'une immortelle ou... une immortelle a-t-elle rêvé de moi? » Wang Lin ne comprenait pas. C'était comme si ce rêve embrumé de la veille avait changé la trajectoire même de sa vie.
 
-Wang Lin s'engagea sur le chemin principal et reprit sa marche vers la ville du comté. Il n'avait plus l'envie d'observer les environs, marchant silencieusement avec son sac en bambou sur le dos. Le sac en bambou, ballotté à chaque enjambée, grinçait sans cesse.
+Wang Lin s'engagea sur la route officielle et reprit sa marche vers la ville du comté. Il n'avait plus l'envie d'observer les environs, marchant silencieusement avec son sac en bambou sur le dos. Le sac en bambou, ballotté à chaque enjambée, grinçait sans cesse.
 
 Le soleil se leva, le soleil se coucha.
 
@@ -42,7 +42,7 @@ C'était la saison des pluies dans le pays de Zhao. Même lorsque la pluie cessa
 
 Au crépuscule du huitième jour, Wang Lin déploya son parapluie et pressa le pas avec un sourire amer. La pluie tombait autour de lui et le tonnerre grondait. Bien que ce ne fût que le crépuscule, le ciel était déjà sombre.
 
-« Encore une journée de voyage et j'atteindrai la ville du comté, mais cette pluie devient de plus en plus intense. » L'eau recouvrait le sol; au fur et à mesure qu'elle tombait, les gouttes rebondissaient sur le sol pour éclabousser ses vêtements. Sa robe verte, trempée, aspirait sans cesse la chaleur de son corps, ce qui finit par glacer Wang Lin.
+« Encore une journée de voyage et j'atteindrai la ville du comté, mais cette pluie devient de plus en plus intense. » L'eau recouvrait le sol; au fur et à mesure qu'elle tombait, les gouttes rebondissaient sur le sol pour éclabousser ses vêtements. Sa robe bleue, trempée, aspirait sans cesse la chaleur de son corps, ce qui finit par glacer Wang Lin.
 
 Le vent humide soufflait avec une froideur mordante. Wang Lin frissonna et inclina son parapluie pour protéger au mieux son sac en bambou. Il y avait là des livres, de la nourriture séchée et ses vêtements de rechange; ces biens ne pouvaient être mouillés.
 
@@ -60,7 +60,7 @@ L'autre porte était gravement endommagée. Bien qu'elle soit encore partielleme
 
 Wang Lin s'approcha promptement et inspecta le temple avant d'y pénétrer. La cour était jonchée de graviers et de mauvaises herbes. Le vent et la pluie faisaient ployer la végétation, tandis que le clapotis de l'eau se mêlait au craquement de la porte.
 
-Un éclair déchira les cieux, suivi d'un coup de tonnerre qui illumina le monde, permettant à Wang Lin de percevoir l'intérieur du temple. Il poussa un cri de surprise et recula instinctivement de quelques pas: il venait d'apercevoir plusieurs squelettes blancs au bord de l'édifice.
+Un éclair déchira les cieux, suivi d'un coup de tonnerre qui illumina le monde, permettant à Wang Lin de percevoir l'intérieur du temple. Il poussa un cri de surprise et recula instinctivement de quelques pas: il venait d'apercevoir plusieurs squelettes blancs au bord de la cour.
 
 Son cœur battait la chamade et son visage pâlit, mais la pluie redoublait de force. Il serra les dents et ignora les restes de ceux qui étaient morts ici il y a des années pour entrer dans le temple.
 
@@ -68,7 +68,7 @@ Son cœur battait la chamade et son visage pâlit, mais la pluie redoublait de f
 
 L'eau s'infiltrait partout. De nombreuses tuiles du toit étaient cassées, laissant la pluie s'engouffrer et stagner sur le sol.
 
-Une aura de froid enveloppait ce lieu. Wang Lin prit une profonde inspiration, le visage pâle. Il s'inclina d'abord devant la statue avant de trouver un endroit sec pour poser son sac en bambou. Puis, il disposa quelques branches sèches devant lui et tenta de les allumer.
+Une aura lugubre enveloppait ce lieu. Wang Lin prit une profonde inspiration, le visage pâle. Il s'inclina d'abord devant la statue avant de trouver un endroit sec pour poser son sac en bambou. Puis, il disposa devant lui quelques branches sèches ramassées sur la route pendant une accalmie de la pluie et tenta de les allumer.
 
 Ces branches n'étant pas tout à fait sèches, Wang Lin échoua après de multiples tentatives. Son corps était glacé et il tremblait en essayant de nouveau de ranimer le feu.
 

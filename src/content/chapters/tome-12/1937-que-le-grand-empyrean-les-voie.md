@@ -8,7 +8,7 @@ slug: que-le-grand-empyrean-les-voie
 ---
 « Ne parle pas! » dit soudain Wang Lin, les yeux étincelants. Il leva les yeux vers le rideau de lumière où l'ombre formée par la paume brisée le fixait en retour.
 
-« Ce rideau de lumière va bientôt se rompre. Contrôle la formation pour qu'elle éclate, et utilise la force de l'effondrement pour nous propulser dehors le plus vite possible!
+« Ce rideau de lumière va bientôt se rompre. Contrôle la formation pour qu'elle éclate, et utilise la force de l'effondrement, en l'enroulant autour de nos corps, pour nous propulser dehors le plus vite possible!
 
 « Au moment de notre sortie, nous utiliserons tous les deux nos sorts les plus puissants! Je suppose que tu as déjà deviné que ton maître est ici! » Wang Lin regarda la silhouette vague tout en envoyant soudain un message à l'Exalté Empyréen Hai Zi.
 
@@ -64,7 +64,7 @@ Soudain, Dao Yi laissa échapper un léger cri de surprise. Non seulement lui, m
 
 La Mer et la Montagne étaient désormais recouvertes d'une couche d'encre noire. Sous cette encre s'étendait une mer infinie, et au fond se trouvait un trou noir abritant l'Arbre de la Mer et de la Montagne. Des grondements violents émanaient des couches de sceaux qui l'entouraient.
 
-C'était l'attaque de l'Exalté Empyréen Hai Zi. Le sceau ovale avait percuté l'ombre de la paume brisée, mais après son effondrement, celle-ci s'était reformée. Wang Lin leva la main, le tatouage du Taureau Céleste sur son visage fulgurant d'éclat. Une armure d'âme recouvrit tout son corps alors qu'il déployait son sort le plus puissant!
+C'était l'attaque de l'Exalté Empyréen Hai Zi. Le sceau ovale avait percuté l'ombre de la paume brisée, mais après son effondrement, celle-ci s'était reformée. Wang Lin leva les deux mains, le tatouage du Taureau Céleste sur son visage fulgurant d'éclat. Sa cultivation augmenta brusquement, et une armure d'âme recouvrit tout son corps alors qu'il déployait son sort le plus puissant!
 
 « Il doit y avoir un Grand Empyréen dehors — que ce soit Wu Feng, Dao Yi ou Jiu Di. Puisque vous voulez tester mon origine et ma force, alors je vais vous montrer de quoi je suis capable! »
 
@@ -90,7 +90,7 @@ Alors que Wang Lin murmurait ces paroles, la lumière solaire déchira la nuit e
 
 Toutefois, malgré sa teinte terne, l'ombre de la paume brisée ne put échapper indemne au sort le plus puissant de Wang Lin.
 
-La lumière solaire infinie continua de se répandre. Elle ne se contenta pas de percer la nuit, elle pénétra aussi l'Arbre de la Mer et de la Montagne, comme si un soleil brûlait à l'intérieur même de l'arbre!
+La lumière solaire infinie continua de se répandre sur une étendue démesurée. Elle ne se contenta pas de percer la nuit, elle pénétra aussi l'Arbre de la Mer et de la Montagne, comme si un soleil brûlait à l'intérieur même de l'arbre!
 
 Les rayons traversèrent le tronc et les sceaux, ignorant le trou noir pour briller directement depuis les profondeurs de la mer. L'obscurité abyssale s'estompa sous cette clarté.
 

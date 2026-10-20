@@ -90,7 +90,7 @@ Wang Lin songea un instant puis agita sa manche. Il ne retourna pas sur sa propr
 
 « Salutations, Ancien Wang! »
 « Le disciple du Pic de la Combustion du Dao salue l'Ancien Wang! »
-« Le disciple du Pic de la Rupture salue l'Ancien Wang! »
+« Le disciple du Pic Céleste Brisé salue l'Ancien Wang! »
 
 Tout au long de son trajet, chaque disciple croisé s'arrêtait pour le saluer avant de reprendre ses tâches.
 

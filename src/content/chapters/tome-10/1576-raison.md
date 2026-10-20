@@ -10,11 +10,11 @@ Il vit le ciel!
 
 Le ciel était calme, sans nuages ni vent. C'était comme un tableau azur suspendu dans les airs! Cependant, une déchirure gigantesque béait à gauche du firmament!
 
-Ce trou mesurait des dizaines de milliers de pieds de large; c'était un spectacle terrifiant!
+Ce trou mesurait plusieurs milliers de pieds de large; c'était un spectacle terrifiant!
 
 On aurait dit une feuille de papier percée d'un trou. Des débris jonchaient même les bords de la brèche.
 
-Dans ce vide, il aperçut quelque chose dont l'épaisseur atteignait des dizaines de milliers de pieds, et la partie dépassant du trou s'étendait sur des centaines de milliers de pieds. C'était une... flèche!
+Dans ce vide, il aperçut quelque chose dont l'épaisseur atteignait plusieurs milliers de pieds, et la partie dépassant du trou s'étendait sur des dizaines de milliers de pieds. C'était une... flèche!
 
 Cette flèche avait transpercé le ciel, mais elle restait à moitié coincée à l'intérieur.
 
@@ -50,7 +50,7 @@ Il remarqua que la pointe de la flèche n'était pas acérée comme une épine, 
 
 Diverses scènes défilèrent dans son esprit. Celles-ci se lièrent à ses propres souvenirs pour reconstituer la vérité.
 
-Ye Mo avait utilisé son sort pour massacrer d'innombrables êtres avant lui. La flèche de Li Guang avait percé son œil gauche et l'avait arraché, avant de s'envoler vers les étoiles, dans le vide infini.
+Dans la Tombe Antique, Ye Mo avait déployé son sort pour se transformer en un immense corps et massacrer d'innombrables êtres devant lui. La flèche de Li Guang avait percé son œil gauche et l'avait arraché, avant de s'envoler vers les étoiles, dans le vide infini.
 
 Cette flèche était immense; la puissance qu'elle renfermait pouvait transpercer l'œil gauche de Ye Mo, et bien plus encore que l'espace lui-même. Dans sa course, rien ne pouvait l'arrêter.
 
@@ -68,7 +68,7 @@ Au moment où la flèche perçait le firmament, l'intention meurtrière résidue
 
 Cette force ne s'effondra pas, mais se concentra à la pointe avant d'être absorbée par le sceau situé à l'extrémité de la flèche. Elle se transforma alors en anneaux qui furent projetés vers la terre en contrebas.
 
-Au départ, ces anneaux étaient aussi larges que la pointe de la flèche, des dizaines de milliers de pieds. Cependant, plus ils progressaient, plus ils diminuaient en taille, au point de ne plus mesurer qu'environ dix mille pieds en touchant le sol.
+Au départ, ces anneaux étaient aussi larges que la pointe de la flèche, plusieurs milliers de pieds. Cependant, plus ils progressaient, plus ils diminuaient en taille, au point de ne plus mesurer qu'environ mille pieds en touchant le sol.
 
 Les anneaux transpercèrent la terre et rétrécirent à mesure qu'ils s'enfonçaient sous le sol. Finalement, l'anneau ne devint plus que de la taille d'un poing, ce qui correspondait à ce que Wang Lin avait vu sur la porte de pierre.
 
@@ -92,7 +92,7 @@ Peut-être que l'objectif de la fille du Souverain était de comploter contre Qi
 
 Après d'innombrables péripéties, le Clan du Tatouage finit par trouver, sans que personne ne le remarque, ce monde abritant la flèche. Cependant, ils découvrirent qu'ils ne pouvaient dissiper la force de rejet et qu'ils étaient incapables de la contrôler.
 
-Ils scellèrent donc l'endroit. Peut-être le Clan de l'Extermination des Sceaux les avait-il aidés. Finalement, ils laissèrent cette porte ici. Elle fut placée en un lieu ingénieux, utilisant le cercle pour former le premier sceau de la porte!
+Ils scellèrent donc l'endroit. Peut-être le Clan de l'Extermination des Sceaux les avait-il aidés. Finalement, ils laissèrent ici cette porte, celle par laquelle Wang Lin était entré plus tôt. Elle fut placée en un lieu ingénieux, utilisant le cercle pour former le premier sceau de la porte!
 
 Ils attendaient... Ils attendaient que le Souverain vienne personnellement chercher cette flèche...
 
@@ -102,7 +102,7 @@ Une partie des membres du clan fut prise comme esclave par les êtres célestes 
 
 Un groupe d'entre eux partit pour la planète Suzaku où ils survécurent. Cette porte était entre leurs mains et fut enterrée ici. La vérité s'était peu à peu estompée, remplacée par une légende racontant que la 19e couche scellait une partie de l'âme de leur ancêtre.
 
-Peut-être le Souverain était-il déjà venu ici. Il était prêt à pénétrer dans le Royaume Scellé quel qu'en soit le prix. Peut-être qu'au-delà de vouloir tuer le Seigneur du Royaume Scellé, il était aussi venu pour la flèche que le Clan du Tatouage avait découverte...
+Peut-être le Souverain était-il déjà venu ici. Il était prêt à pénétrer dans le Royaume Intérieur quel qu'en soit le prix. Peut-être qu'au-delà de vouloir tuer le Seigneur du Royaume Scellé, il était aussi venu pour la flèche que le Clan du Tatouage avait découverte...
 
 Pourtant, le rugissement provenant du Royaume Intérieur brisa les plans du Souverain. Terrifié, il fut contraint de quitter le Royaume Intérieur, gravement blessé.
 
@@ -112,10 +112,10 @@ Wang Lin soupira. Il ne savait pas si ses déductions étaient exactes. Tout cel
 
 Tout en méditant silencieusement, Wang Lin fit un pas en avant. Il se retrouva ainsi aux côtés de la flèche qui dépassait du ciel. À côté d'elle, il paraissait minuscule; tel un homme au pied d'une montagne.
 
-Il prit une profonde inspiration et s'assit sur la gigantesque flèche. Puis, posant la main sur le sang ancien séché, il ferma les yeux. Les étoiles divines anciennes entre ses sourcils tournèrent rapidement et il commença l'absorption.
+Il prit une profonde inspiration et s'assit sur la gigantesque flèche. Puis, posant la main sur le sang ancien séché, il ferma les yeux. Les étoiles de Dieu Ancien entre ses sourcils tournèrent rapidement et il commença l'absorption.
 
 Il allait absorber le sang de l'œil gauche de Ye Mo!
 
 Ce sang contenait une énergie démoniaque très bien dissimulée. Cette énergie serait extrêmement utile à Wang Lin!
 
-Tout en absorbant, Wang Lin agita la main gauche et son espace de stockage apparut. La statue démoniaque ancienne se matérialisa et il la saisit de sa main gauche.
+Tout en absorbant, Wang Lin agita la main gauche et son espace de stockage apparut. La statue démoniaque ancienne se matérialisa et il la pressa de sa main gauche.

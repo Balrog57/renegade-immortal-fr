@@ -68,7 +68,7 @@ Désormais, la signification changeait: c'était une provocation, ou pour mieux 
 
 Puisque cette personne avait envoyé un tel message, Wang Lin voulait voir quel genre d'individu osait le défier au sein de cette tribu!
 
-Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet adversaire était bien supérieur au sien, il retournerait simplement au village pour soigner Treize et éviterait soigneusement cette tribu. Bien qu'une telle possibilité existe, elle était infime. D'après ce que Wang Lin avait observé via le sort utilisé sur Treize, l'individu n'était qu'au stade de la Formation de l'Âme.
+Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet adversaire était bien supérieur au sien, il retournerait simplement au village pour soigner Treize et éviterait soigneusement cette tribu. Bien qu'une telle possibilité existe, elle était infime. D'après ce que Wang Lin avait observé via le sort utilisé sur Treize, l'individu n'était tout au plus qu'au stade de la Formation de l'Âme.
 
 Fort de cette pensée, il laissa échapper un reniflement glacial et s'élança comme une météorite traversant le ciel.
 

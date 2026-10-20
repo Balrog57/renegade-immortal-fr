@@ -58,7 +58,7 @@ Plus il observait, plus il était stupéfait!
 
 « Ce seigneur n'a pas encore assez tué. »
 
-Le Maître Long Pan forma également un sceau, et le Peinture des Montagnes et des Rivières apparut pour barrer la route au Seigneur du Palais de la Punition Céleste. Il fit ensuite un pas vers l'homme en noir.
+Le Maître Long Pan forma également un sceau, et la Peinture des Montagnes et des Rivières apparut pour barrer la route au Seigneur du Palais de la Punition Céleste. Il fit ensuite un pas vers l'homme en noir.
 
 « Ce vieil homme n'a pas encore assez combattu, ne sois pas si pressé de partir. »
 
@@ -66,9 +66,9 @@ Un éclair de froideur passa dans les yeux de l'homme en noir lorsqu'il tourna s
 
 « Puisque vous refusez de laisser ce vieil homme partir, vous en paierez le prix! »
 
-Le Maître Long Pan médita un instant avant que sa main droite ne forme un sceau. Le Peinture des Montagnes et des Rivières dégagea une force d'aspiration. Les montagnes et les rivières à l'intérieur semblèrent prendre vie et surgirent soudainement dans le Royaume aux Sept Couleurs.
+Le Maître Long Pan médita un instant avant que sa main droite ne forme un sceau. La Peinture des Montagnes et des Rivières dégagea une force d'aspiration. Les montagnes et les rivières à l'intérieur semblèrent prendre vie et surgirent soudainement dans le Royaume aux Sept Couleurs.
 
-Le Maître Long Pan fit un pas en avant et disparut, fusionnant avec le Peinture des Montagnes et des Rivières! Les reliefs se précipitèrent pour s'écraser sur le Seigneur du Palais de la Punition Céleste!
+Le Maître Long Pan fit un pas en avant et disparut, fusionnant avec la Peinture des Montagnes et des Rivières! Les reliefs se précipitèrent pour s'écraser sur le Seigneur du Palais de la Punition Céleste!
 
 Ayant déjà consumé sa force vitale, il attaquait désormais sans aucun souci pour sa propre vie. Les montagnes et les rivières se muèrent en une paume gigantesque, brûlant de la culture la plus puissante du Maître Long Pan. Cette paume s'abattit vers le Seigneur du Palais de la Punition Céleste.
 

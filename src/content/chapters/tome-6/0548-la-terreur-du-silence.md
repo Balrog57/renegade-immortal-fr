@@ -60,7 +60,7 @@ Bien que l'expression de Treize fût sombre, ses yeux étaient d'un calme absolu
 
 Treize s'assit à la droite de Wang Lin, ferma les yeux et commença à pratiquer la méthode de raffinage corporel du Clan des Démons Géants.
 
-Le temps passa lentement et, en un clin d'œil, la nuit tomba. Tout au long de la journée, les cris d'entraînement des soldats démons n'avaient jamais cessé. Leur discipline reposait sur le combat réel et l'usage de formations tactiques. Les rares soldats qui passaient devant Wang Lin ne pouvaient s'empêcher de le regarder avec un profond mépris.
+Le temps passa lentement et, en un clin d'œil, la nuit tomba. Tout au long de la journée, les cris d'entraînement des soldats démons n'avaient jamais cessé. Leur discipline reposait sur le combat réel et l'usage de formations tactiques. De temps à autre, des soldats passaient devant Wang Lin et ne pouvaient s'empêcher de le regarder avec un profond mépris.
 
 L'expression de Wang Lin ne changea pas d'un iota. Il était comme l'eau d'un puits, incapable de susciter la moindre ondulation!
 
@@ -70,7 +70,7 @@ Hu Pao était le seul à ne pouvoir rester calme; il foudroyait du regard chaque
 
 Non seulement l'expression de Wang Lin était sereine, mais son esprit l'était tout autant. Il n'avait aucune hâte de prendre le contrôle de ce lieu et préférait observer. Bien que ses yeux fussent clos, il avait déployé son Sens Divin pour scruter attentivement chacun des dix mille soldats présents.
 
-Chaque régiment de mille hommes possédait un chef, tous étant les fidèles lieutenants de Sima Yan. Quant aux six soldats du restaurant, bien que leur niveau de culture fût modeste, ils occupaient des fonctions importantes ici.
+Chaque régiment de mille hommes possédait un chef, dont la plupart étaient de fidèles lieutenants de Sima Yan. Quant aux six soldats du restaurant, bien que leur niveau de culture fût modeste, ils occupaient des fonctions importantes ici.
 
 S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Lou Yun. Les neuf pays de cette région suivaient un droit militaire très différent du monde de la culture. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance!
 

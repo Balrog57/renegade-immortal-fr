@@ -11,7 +11,7 @@ Dans le corps du Dieu Ancien, des cultivateurs démoniaques fouillaient presque 
 
 Malgré leurs efforts, ils ne trouvaient rien. Pourtant, aucun des cultivateurs démoniaques ne renonçait, car la découverte ou non du Dévoreur d'Âmes conditionnait directement leur avenir.
 
-Tandis que Wang Lin était entouré de tentacules, il entra dans un état étrange. Autour de lui régnait une obscurité parsemée d'innombrables étoiles. Il ne sentait plus son corps, mais la sensation différait de celle qu'il éprouvait lorsque son âme quittait son enveloppe charnelle; il percevait clairement sa progression rapide vers l'avant.
+Tandis que Wang Lin était entouré de tentacules, il entra dans un état étrange. Autour de lui régnait une obscurité parsemée d'innombrables étoiles. Il ne sentait plus son corps, mais la sensation différait de celle qu'il éprouvait lorsque son Sens Divin quittait son enveloppe charnelle; il percevait clairement sa progression rapide vers l'avant.
 
 Les étoiles étincelantes grandissaient et grandissaient, jusqu'à devenir d'immenses sphères. Peu après, il aperçut un géant. Celui-ci était assis en tailleur sur une vaste sphère, les mains jointes pour former un sceau. D'un mouvement de la main droite, il fit exploser l'une des sphères lointaines, libérant une déflagration terrifiante.
 
@@ -69,9 +69,9 @@ Pour y pénétrer, il fallait avoir obtenu l'héritage de la puissance du Dieu A
 
 La race des Dieux Anciens transmettait depuis longtemps une technique magique mystérieuse nommée la Technique Divine de Transformation d'Encre Fluide. Une fois maîtrisée, elle permettait au Dieu Ancien de diviser sa conscience divine d'un en dix, de dix en milliers, en dizaines de milliers, et finalement en centaines de millions de fragments. Chaque fragment de conscience posséderait une culture non inférieure à celle du corps original. L'auteur de cette technique était inconnu, et au fil des millénaires, personne n'avait réussi à la pratiquer avec succès.
 
-Tu Si était un génie de la culture. Après avoir échoué à maîtriser la technique par les voies classiques, il eut une idée folle: la culture inversée. Il renonça à sa longue vie et, au moment même où son âme commençait à se dissiper, il utilisa de force la technique pour empêcher des milliers de fragments de conscience de disparaître, se préparant à les cultiver un à un jusqu'à obtenir finalement le même effet que la Technique Divine de Transformation d'Encre Fluide.
+Tu Si était un génie de la culture. Après avoir échoué à maîtriser la technique par les voies classiques, il eut une idée folle: la culture inversée. Il renonça à sa longue vie et, au moment même où son Sens Divin commençait à se disperser, il utilisa de force la technique pour empêcher des milliers de fragments de conscience de disparaître, se préparant à les cultiver un à un jusqu'à obtenir finalement le même effet que la Technique Divine de Transformation d'Encre Fluide.
 
-Malheureusement, si Tu Si avait eu plus de temps, il aurait sans doute réussi. Mais un événement vint bouleverser son plan: l'irruption d'un homme aux cheveux roux dans le corps du Dieu Ancien. La puissance de cet intrus était prodigieuse; il s'empara de force de l'héritage de la puissance et engagea une lutte contre l'âme résiduelle de Tu Si. Finalement, Tu Si étant déjà mort, son âme fut détruite.
+Malheureusement, si Tu Si avait eu plus de temps, il aurait sans doute réussi. Mais un événement vint bouleverser son plan: l'irruption d'un homme aux cheveux roux dans le corps du Dieu Ancien. La puissance de cet intrus était prodigieuse; il s'empara de force de l'héritage de la puissance et engagea une lutte contre le Sens Divin résiduel de Tu Si. Finalement, Tu Si étant déjà mort, son Sens Divin fut anéanti.
 
 La Mer de la Connaissance se scinda alors en deux: une partie devint la Mer de Sang pour piéger l'homme aux cheveux roux et l'empêcher de partir, tandis que l'autre devint la Mer des Âmes Mortes pour interdire toute intrusion. C'est là que l'intégralité de l'héritage de la connaissance fut dissimulée.
 

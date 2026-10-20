@@ -48,7 +48,7 @@ Tout cela se produisit en un instant. La flèche hurlait en fonçant sur sa cibl
 
 Cette faille partait de la frontière avec la Mer des Nuages et s'étendait à l'infini!
 
-Cette flèche contenait la colère de Wang Lin et le carnage qu'il avait semé après avoir traversé le Vide Brillant, la Rivière Invoquée et la Mer des Nuages. Elle vola instantanément vers l'empreinte de paume située à l'extérieur du palais du Souverain.
+Cette flèche contenait la colère de Wang Lin et le carnage qu'il avait semé après avoir traversé le Vide Brillant, la Rivière Invoquée et la Mer des Nuages. Elle vola instantanément vers l'empreinte de paume qui s'abattait du ciel sur le palais du Souverain.
 
 C’était le combat de Wang Lin contre le Souverain!
 
@@ -90,7 +90,7 @@ Le Souverain cracha du sang et sa robe noire vola en éclats, dévoilant son cor
 
 Des grondements sourds résonnèrent tandis que des fissures apparaissaient sur l'édifice. Simultanément, la flèche se rapprochait; juste avant qu'elle ne frappe le palais, le Souverain traça un sceau. Un puits gigantesque apparut soudainement devant lui. Ce puits contenait le ciel et la terre, le soleil et la lune, ainsi qu'un firmament d'étoiles sans fin!
 
-Ce puits était le second domaine de Flamme Joss du Souverain! C'était un trésor que le fou lui avait remis sur le Continent des Immortels Célestes! Au moment où il le déploia, la flèche frappa!
+Ce puits était le second domaine de Flamme Joss du Souverain! C'était un trésor que le fou lui avait remis sur le Continent Astral Immortel! Au moment où il le déploia, la flèche frappa!
 
 Ce puits n'était pas posé à plat mais disposé verticalement. À la surface de l'eau, des ondulations se formèrent et, à cet instant précis, une copie exacte de la flèche apparut!
 
@@ -104,7 +104,7 @@ Pourtant, sous leurs yeux, ils virent leur palais s'effondrer. L'édifice se fra
 
 Le Souverain fut anéanti, le palais s'écroula, et le monde changea de couleur!
 
-Cependant, le Souverain n'était pas totalement mort. Au moment où son corps fut détruit et que l'énergie de la flèche se dissipa, ses restes déchiquetés commencèrent à bouger. Ils se rassemblèrent rapidement et son corps se reforma à l'extérieur de la faille.
+Cependant, le Souverain n'était pas totalement mort. Au moment où son corps fut détruit et que l'énergie de la flèche se dissipa, ses restes déchiquetés commencèrent à bouger. Ils se rassemblèrent rapidement et son corps se reforma à l'intérieur de la faille.
 
 « Le sort de la Triple Vie du Clan de l'Extermination des Sceaux!! » Les pupilles de Wang Lin se rétractèrent.
 
@@ -120,7 +120,7 @@ Du côté des cultivateurs du Vide Arcanique du Royaume Extérieur, la vieille f
 
 Le vieil homme en noir était lui aussi pétrifié. En voyant la puissance de ce tir, il eut l'impression de contempler la mort elle-même!
 
-Il y avait aussi ces deux concubines impériales célestes. Malgré leur haut rang, elles fixaient Wang Lin avec effroi! Peu importait qu'elles fussent des Célestes du Continent des Immortels Célestes; elles devaient craindre Wang Lin, qu'elles considéraient comme un simple cultivateur de grotte!
+Il y avait aussi ces deux concubines impériales célestes. Malgré leur haut rang, elles fixaient Wang Lin avec effroi! Peu importait qu'elles fussent des Célestes du Continent Astral Immortel; elles devaient craindre Wang Lin, qu'elles considéraient comme un simple cultivateur de grotte!
 
 Au loin, la Grande Maîtresse Yun Luo tremblait de façon incontrôlable. De sa position, elle ne pouvait voir que le dos de Wang Lin. Elle connaissait cette silhouette, et elle en avait peur. C'était le dos de l'être qui, selon ses divinations, détruirait le monde!
 

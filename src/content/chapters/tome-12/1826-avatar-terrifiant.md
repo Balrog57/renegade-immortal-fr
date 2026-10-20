@@ -92,7 +92,7 @@ Toute la veine de feu terrestre trembla. La veine principale était si vaste que
 
 La veine de feu tout entière entra en ébullition et une mer de flammes monstrueuse éclata. Cette mer étant d'une ampleur démesurée, les montagnes de la Secte de la Grande Âme semblèrent immédiatement s'embraser, et le feu terrestre se diffusa même dans les environs.
 
-« Empreinte de l'Esprit Martial! » Wang Lin leva la main droite et toute l'essence de feu restante dans la veine se rassembla frénétiquement de toutes parts pour former une empreinte de paume géante!
+« Empreinte de l'Esprit Guerrier! » Wang Lin leva la main droite et toute l'essence de feu restante dans la veine se rassembla frénétiquement de toutes parts pour former une empreinte de paume géante!
 
 Simultanément, le véritable corps d'essence de Wang Lin s'anima et une empreinte de paume de feu encore plus immense apparut derrière lui.
 

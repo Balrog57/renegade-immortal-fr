@@ -28,7 +28,7 @@ Wang Lin réfléchit un instant, puis frappa son sac de rangement. Dans un écla
 
 Le regard de Wang Lin était limpide lorsqu'il s'assit et dit: « Troisième Frère, je t'en prie, assieds-toi! »
 
-Bai Wei esquissa un léger sourire en s'asseyant. Il versa d'abord une tasse pour Wang Lin, puis une pour lui-même. Après avoir reposé la théière, il déclara: « Quand je t'ai rencontré la première fois, je n'aurais jamais imaginé que tu serais le disciple honoraire dont Maître avait parlé fortuitement il y a des années. »
+Bai Wei esquissa un léger sourire en s'asseyant. Il versa d'abord une tasse pour Wang Lin, puis une pour lui-même. Après avoir reposé la théière, il déclara: « Depuis notre séparation de ce jour-là, je n'aurais jamais imaginé que tu serais le disciple honoraire dont Maître avait parlé fortuitement il y a des années. »
 
 Wang Lin se contenta de sourire sans dire un mot.
 
@@ -56,7 +56,7 @@ Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant d
 
 Wang Lin fronça légèrement les sourcils: « Le titre des sept véritables disciples de l'Omniscient n'est qu'un titre. Pourquoi se battre ainsi? »
 
-Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire. « Un simple titre? Septième Frère, comprends-tu qu'une fois devenu l'un des sept véritables disciples de l'Omniscient, tu ne seras inférieur qu'à quelques rares individus et tu te placeras au-dessus de dizaines de milliers d'autres? Chaque pays de culture devra te témoigner un immense respect, et d'innombrables personnes chercheront à devenir tes disciples. »
+Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire. « Un simple titre? Septième Frère, comprends-tu qu'une fois devenu l'un des sept véritables disciples de l'Omniscient, tu ne seras inférieur qu'à quelques rares individus et tu te placeras au-dessus de dizaines de milliers d'autres? Chaque pays de culture devra t'obéir, et d'innombrables personnes chercheront à devenir tes disciples. »
 
 « En plus de cela, chacun des sept véritables disciples peut disposer d'un pays de culture entier pour s'entraîner. Tu pourras choisir n'importe quel pays sur la planète Tian Yun, ou même l'un des pays des planètes environnantes! »
 
@@ -78,7 +78,7 @@ Les pupilles de Wang Lin se contractèrent!
 
 Le regard de Wang Lin devint grave et il demanda, avec précision: « Si je reste un véritable disciple pendant 1 000 ans, je recevrai un sort céleste complet. Est-ce bien vrai? »
 
-Bai Wei acquiesça. « C'est absolument vrai! La véritable disciple de la division verte, Li Shengnan, l'est depuis plus de mille ans. Il y a cent ans, elle a reçu de Maître un sort céleste complet de qualité inférieure. Elle est toujours en culture fermée pour l'étudier. À sa sortie, sa puissance sera d'un niveau inimaginable! »
+Bai Wei acquiesça. « C'est absolument vrai! La véritable disciple de la division verte, Li Shengnan, l'est depuis plus de mille ans. Il y a cent ans, elle a reçu de Maître un sort céleste complet de qualité inférieure. Elle est toujours en culture fermée pour l'étudier. À sa sortie, sa puissance sera d'un niveau terrifiant! »
 
 Les yeux de Wang Lin reflétèrent une lueur mystérieuse. Après avoir longuement réfléchi en silence, il hocha la tête et se leva. Il joignit les mains devant Bai Wei et dit: « Troisième Frère, je suis fatigué. Nous discuterons un autre jour. Je reviendrai te voir. »
 
@@ -100,7 +100,7 @@ Un être céleste possédant des trésors de haute qualité et maîtrisant des s
 
 Il existait peut-être des techniques rivalisant avec les sorts célestes, mais d'après ce que savait Wang Lin, seules les techniques des anciens dieux pouvaient en être à la hauteur.
 
-Wang Lin possédait de nombreuses techniques des anciens dieux issues des souvenirs de Tu Si. Cependant, elles exigeaient toutes des conditions extrêmement strictes et, avec le niveau de culture actuel de son corps originel, il ne pouvait en utiliser aucune.
+Wang Lin possédait de nombreuses techniques des anciens dieux issues des souvenirs de Tu Si. Cependant, elles ne pouvaient être utilisées que par les membres de la race des Anciens Dieux, et elles exigeaient des conditions extrêmement strictes. Avec le niveau de culture actuel de son corps originel, il ne pouvait en utiliser aucune.
 
 « Les sept véritables disciples de l'Omniscient... Intéressant! » Les yeux de Wang Lin s'illuminèrent. Il enfila ses vêtements de disciple et sortit du pavillon.
 

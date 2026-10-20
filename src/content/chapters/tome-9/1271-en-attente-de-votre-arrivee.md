@@ -58,7 +58,7 @@ Les cultivateurs ordinaires ne pourraient pas supporter un tel nombre d'ombres d
 
 « Ces deux courtes épées sont étranges... » Lorsque les presque dix millions d'ombres se condensèrent dans son index, le ciel s'éclaircit. Les deux poignards étaient devenus deux filaments d'énergie noire et blanche qui pénétrèrent également le doigt de Wang Lin.
 
-Deux cerfs illusoires poussèrent de longs sifflements et circulèrent autour de l'index de Wang Lin. Finalement, ils se transformèrent en deux tatouages qui s'imprimèrent sur son doigt.
+Deux cerfs illusoires poussèrent de longs sifflements et circulèrent autour de l'index de Wang Lin, soulevant vents et nuages. Finalement, ils se transformèrent en deux tatouages qui s'imprimèrent sur son doigt.
 
 À cet instant, l'index de Wang Lin pouvait détruire le corps d'un cultivateur au stade du Briseur du Nirvana. Même un trésor ordinaire du stade Pseudo-Nirvana Vide ne ferait pas le poids; quiconque toucherait l'index de Wang Lin se désintégrerait instantanément!
 
@@ -86,7 +86,7 @@ D'un mouvement de la main, les cent avatars se dispersèrent dans toutes les dir
 
 Wang Lin ferma les yeux comme s'il était en pleine culture.
 
-Le temps passa progressivement et, en un clin d'œil, deux jours s'écoulèrent. Ses cent avatars contenaient tous la puissance d'un Dieu Ancien et étaient extrêmement puissants. Durant ces deux jours, grâce à sa compréhension de la région de rang 5, ses cent avatars rapportèrent cent continents sauvages!
+Le temps passa progressivement et, en un clin d'œil, deux jours s'écoulèrent. Ses cent avatars contenaient tous la puissance d'un Dieu Ancien et étaient extrêmement puissants. Durant ces deux jours, grâce à sa compréhension des cartes stellaires de la région de rang 5, ses cent avatars rapportèrent cent continents sauvages!
 
 Ces cent continents furent déplacés frénétiquement pour encercler le continent sauvage où se trouvait Wang Lin.
 
@@ -108,4 +108,4 @@ Si cela s'arrêtait là, la méthode de Wang Lin ne serait pas totalement révé
 
 À cet instant, il l'utilisa, et la Restriction du Temps commença à se manifester. Au cinquième jour, la Restriction du Temps couvrait également tous les continents!
 
-« La puissance de la Restriction du Temps dépend de la durée. Je possède le sort du Temps qui s'écoule et peux inverser le temps pour aider la Restriction du Temps à atteindre un sommet en un laps de temps réduit! La fusion des trois grandes restrictions possède une puissance capable de secouer les cieux. Celui qui veut me tuer, même si vous êtes un cultivateur de la troisième étape, vous ne soupçonnez pas tout ce que j'ai préparé pour vous! » Un éclair de froideur passa dans les yeux de Wang Lin!
+« La puissance de la Restriction du Temps dépend de la durée. Je possède le sort du Temps Fluide et peux inverser le temps pour aider la Restriction du Temps à atteindre un sommet en un laps de temps réduit! La fusion des trois grandes restrictions possède une puissance capable de secouer les cieux. Celui qui veut me tuer, même si vous êtes un cultivateur de la troisième étape, vous ne soupçonnez pas tout ce que j'ai préparé pour vous! » Un éclair de froideur passa dans les yeux de Wang Lin!

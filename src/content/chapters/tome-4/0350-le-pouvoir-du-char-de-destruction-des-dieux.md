@@ -36,7 +36,7 @@ Les yeux de Wang Lin s'illuminèrent en observant le vieil homme Hu. Cet homme �
 
 Alors que le corps de Xu Luo percutait le sol, les trois points jaunes sur l'arbre de la réincarnation brillèrent intensément avant de lentement prendre forme.
 
-Le vieil homme Hu comprit que cela ne suffisait pas et poussa un soupir. Il pointa Yun Meng du doigt, provoquant chez elle un rejet de sang. Elle regarda le vieil homme Hu avec tristesse dans les yeux avant de les fermer lentement.
+Le vieil homme Hu comprit que cela ne suffisait pas et poussa un soupir. Il pointa Yun Meng du doigt, la faisant cracher un jet de sang. Elle regarda le vieil homme Hu avec tristesse dans les yeux avant de les fermer lentement.
 
 Une quantité massive d'aura blanc laiteux s'échappa soudainement de sa tête pour entrer dans l'arbre de la réincarnation.
 

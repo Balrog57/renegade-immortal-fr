@@ -64,7 +64,7 @@ Rien ne semblait pouvoir arrêter Wang Lin ni sa détermination à sauver Qing S
 
 C'est alors que les yeux du vieil homme brillèrent. Il leva les mains, exécuta un sceau complexe, puis les referma avant de les ouvrir brusquement.
 
-Dès l'apparition du sceau, la planète entière trembla et le sol se déroba. D'innombrables montagnes s'effondrèrent tandis que deux immenses chaînes de montagnes s'élevaient lentement. De loin, ces deux reliefs paraissaient rectilignes et se dressaient, parallèles, à des dizaines de milliers de kilomètres l'une de l'autre!
+Dès l'apparition du sceau, la planète entière trembla et le sol se déroba. D'innombrables montagnes s'effondrèrent tandis que deux immenses chaînes de montagnes s'élevaient lentement. De loin, ces deux reliefs paraissaient rectilignes et se dressaient, parallèles, à plusieurs milliers de kilomètres l'une de l'autre!
 
 Ils ressemblaient à deux branches; si un parchemin avait été placé entre elles, on aurait dit une peinture déployée!
 
@@ -72,7 +72,7 @@ Ils ressemblaient à deux branches; si un parchemin avait été placé entre ell
 
 De loin, cela ressemblait bel et bien à un tableau!
 
-Lorsque la peinture se manifesta, toute la planète frémit. Des ondulations résonnèrent et l'encre commença à s'élever comme si elle était douée d'une âme. Elle convergea devant le vieil homme pour former une peinture fantomatique de plus de 100 000 pieds!
+Lorsque la peinture se manifesta, toute la planète frémit. Des ondulations résonnèrent et l'encre commença à s'élever comme si elle était douée d'une âme. Elle convergea devant le vieil homme pour former une peinture fantomatique d'environ 1 000 000 pieds!
 
 L'œuvre se déploya, devenant de plus en plus nette, révélant des montagnes et des rivières magnifiques!
 
@@ -98,7 +98,7 @@ L'empreinte la plus authentique, activée par Wang Lin grâce à sa lignée cél
 
 Le corps céleste, semblable à une âme originelle logée dans le corps de Wang Lin, déversa une quantité massive d'énergie spirituelle céleste dans son bras droit. Cela permit à l'Empreinte de l'Esprit Guerrier d'être saturée d'une puissance divine!
 
-L'apparition d'une énergie aussi pure dans le Système Stellaire du Vide Brillant revenait à verser une goutte d'huile bouillante dans de l'eau claire: l'explosion était inévitable! Depuis la naissance du système, une telle pureté n'avait jamais été observée!
+L'apparition d'une énergie aussi pure dans le Système Stellaire du Vide Brillant revenait à verser une goutte d'huile bouillante dans de l'eau claire: l'explosion était inévitable! Depuis la naissance du système, une telle pureté n'avait jamais été observée, et jamais à une si grande échelle!
 
 Dès que l'Empreinte apparut, cette énergie déclencha une onde de choc monstrueuse qui stupéfia quelques personnes, les plongeant dans l'incrédulité!
 

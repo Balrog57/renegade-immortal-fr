@@ -12,7 +12,7 @@ Quelques jours plus tard, Wang Lin retourna à la grotte où il s'était trouvé
 
 Wang Lin prit une profonde inspiration et ferma lentement les yeux. Il guida l'énergie spirituelle chaotique dans son corps pour qu'elle circule le long de ses méridiens. Le temps s'écoula. Il fit lentement circuler son énergie spirituelle à travers son corps et son noyau afin de réparer la circulation de l'énergie spirituelle.
 
-Peu à peu, son noyau se rétablit et sa culture retrouva le sommet du stade avancé de la Formation du Noyau, celui de la pseudo-Formation du Noyau.
+Peu à peu, son noyau se rétablit et sa culture retrouva le sommet du stade avancé de la Formation du Noyau, celui de la pseudo-Âme Naissante.
 
 Simultanément, Wang Lin coupa brusquement la circulation de son pouvoir spirituel dans ses canaux. Ensuite, il rassembla l'énergie spirituelle de son corps et la projeta violemment contre la restriction du lotus.
 
@@ -48,7 +48,7 @@ Wang Lin savait qu'il ne pouvait pas rester longtemps dans la Mer des Démons, s
 
 Le seul problème résidait dans la percée vers le stade de l'Âme Naissante, ce qui imposait une légère modification de ses plans.
 
-Après avoir quitté la grotte, Wang Lin atteignit sa vitesse maximale, son corps fendant l'espace telle une météorite.
+Après avoir quitté la grotte, Wang Lin atteignit sa vitesse maximale, son corps filant au ras du sol telle une météorite.
 
 Le lendemain matin, Wang Lin arriva à l'ancienne grotte de culture où il avait obtenu l'Âme Naissante. Une fois sur place, il balaya les environs de son Sens Divin. Après s'être assuré qu'il n'y avait personne, il frappa son sac de rangement et son épée empoisonnée en sortit. D'un geste du doigt, l'épée créa un tourbillon et chargea dans les décombres.
 

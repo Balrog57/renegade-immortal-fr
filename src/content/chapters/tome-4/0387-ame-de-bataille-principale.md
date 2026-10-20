@@ -56,7 +56,7 @@ Le vieil homme hurla: « Dix mille âmes, dévorez! » Il pointa le drapeau vers
 
 Le Qilin haussa ses sourcils et se déplaça comme l'éclair. Au lieu d'esquiver, il chargea au milieu des âmes et commença à les dévorer frénétiquement.
 
-Ce n'était manifestement pas la première fois que le vieil homme affrontait cette bête, il ne fut donc nullement surpris. Il observa la créature dévorer les âmes; chaque fois qu'elle en engloutissait une, elle grandissait un peu plus.
+Ce n'était manifestement pas la première fois que le vieil homme affrontait cette bête, il ne fut donc nullement surpris et affichait même une certaine détermination. Il observa la créature dévorer les âmes; chaque fois qu'elle en engloutissait une, elle grandissait un peu plus.
 
 Avec son niveau de culture, il n'était normalement pas de taille face à ce Qilin, mais il était spécialisé dans l'affinement des âmes. Grâce au drapeau de 10 000 âmes, il parvenait tout juste à tenir tête à la bête.
 
@@ -74,13 +74,13 @@ Le visage du vieil homme se décomposa. La dernière fois qu'il avait combattu l
 
 Il frappa de nouveau son sac de rangement et une lumière noire apparut dans sa main. L'objet contenu dans cette lueur était une cloche dotée d'un manche en bois pourpre sur lequel étaient gravés des motifs complexes.
 
-« J'ai emprunté, contre un trésor extrêmement rare, cette cloche de scellement d'âmes de la Montagne du Scellement, juste pour te traiter! » hurla le vieil homme. Il secoua alors la cloche. Au son de l'instrument, des créatures humanoïdes à corne unique apparurent et chargèrent les Qilin.
+« J'ai emprunté, contre un trésor extrêmement rare, cette cloche de scellement d'âmes de la Montagne du Scellement de l'Âme, juste pour te traiter! » hurla le vieil homme. Il secoua alors la cloche. Au son de l'instrument, des créatures humanoïdes à corne unique apparurent et chargèrent les Qilin.
 
 Les deux Qilin continuèrent de rugir tandis qu'ils étaient pris au piège. Le vieil homme afficha un sourire de triomphe en se concentrant sur le contrôle de son trésor.
 
 Cependant, à cet instant précis, davantage de gaz noir jaillit du drapeau et un troisième Qilin apparut!
 
-Le vieil homme poussa un rugissement de frustration. Cette fois, il donna tout ce qu'il avait pour forcer l'apparition du troisième Qilin. Pourtant, il se sentait plus impuissant que jamais. Au début, il pensait qu'il n'y avait qu'un seul Qilin, mais lorsqu'il utilisa son drapeau de 10 000 âmes pour piéger le premier, un deuxième surgit. La seconde fois, il perdit face au second Qilin. Pour cette troisième tentative, il avait déployé des efforts colossaux pour obtenir la cloche, pour finalement découvrir qu'un troisième Qilin l'attendait.
+Le vieil homme poussa un rugissement de frustration. Cette fois, il donna tout ce qu'il avait pour forcer l'apparition du troisième Qilin. Pourtant, il se sentait plus impuissant que jamais. Il y a plusieurs années, il pensait qu'il n'y avait qu'un seul Qilin, mais lorsqu'il utilisa son drapeau de 10 000 âmes pour piéger le premier, un deuxième surgit. La seconde fois, il perdit face au second Qilin. Pour cette troisième tentative, il avait déployé des efforts colossaux pour obtenir la cloche, pour finalement découvrir qu'un troisième Qilin l'attendait.
 
 Il ne pouvait s'empêcher de penser qu'après le troisième, viendraient un quatrième, un cinquième, un sixième...
 

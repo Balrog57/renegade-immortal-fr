@@ -60,7 +60,7 @@ De loin, on aurait dit que le corps de Xu Decai était aspiré vers le ciel tel 
 
 « Tue! »
 
-Des grondements tonitruants résonnèrent tandis que le ciel bleu s'effondrait et que les 30 millions d'âmes attaquaient de concert. Toute cette force destructrice convergea vers Xu Decai, qui se trouvait en son centre.
+Des grondements tonitruants résonnèrent tandis que le ciel bleu s'effondrait et que les 30 millions d'âmes attaquaient de concert, tandis que la neige noire se rabattait en sens inverse. Toute cette force destructrice convergea vers Xu Decai, qui se trouvait en son centre.
 
 Simultanément, les pleurs de la femme en blanc plongèrent Xu Decai dans un rêve.
 

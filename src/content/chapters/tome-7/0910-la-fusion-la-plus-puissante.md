@@ -74,7 +74,7 @@ Il s'apprêtait à charger quand Wang Lin se retourna soudainement et poussa un 
 
 ROAR!!!
 
-Ce cri était celui d'un dieu ancien. Cela faisait une éternité que la voix d'un dieu ancien n'avait résonné en ce monde. Sa réapparition soudaine était comme l'éveil d'une voix véritable, capable de fendre les cieux.
+Ce cri était celui d'un dieu ancien. Cela faisait une éternité que la voix d'un dieu ancien n'avait résonné en ce monde. Sa réapparition soudaine évoquait une présence éternelle, une voix capable de fendre les cieux.
 
 Devant le rugissement d'un dieu ancien, même le tonnerre céleste devait trembler et la voûte étoilée elle-même devait s'incliner! Car il était un dieu ancien qui, il y a d'innombrables dizaines de milliers d'années, avait balayé toute la voûte étoilée!
 
@@ -92,7 +92,7 @@ Finalement, son cœur battait si vite que les pulsations se confondirent. Ses ye
 
 Pour la première fois, Yu Fei connut la peur. Ce qui n'était qu'une étincelle au début envahit soudainement tout son esprit.
 
-Le visage du garçon à la grosse tête devint blême. Son esprit vacillait sous le rugissement divin. Il possédait désormais une origine céleste et était donc un être céleste, mais à cet instant, il avait l'illusion de n'être qu'une simple fourmi.
+Le visage du garçon à la grosse tête devint blême. Son esprit vacillait sous le rugissement divin. Il possédait désormais une origine céleste et était donc un immortel, mais à cet instant, il avait l'illusion de n'être qu'une simple fourmi.
 
 Lei Ji, lui aussi, tremblait de tout son corps. Une volonté rugissait dans son cœur, comme celle d'un serviteur rencontrant son véritable maître. Il ne put s'empêcher de s'agenouiller pour obéir docilement aux ordres de Wang Lin.
 
@@ -106,6 +106,6 @@ Comme balayés par un vent destructeur, les quatre avatars s'effondrèrent et se
 
 Wang Lin fit un pas. Des ondulations apparurent sous ses pieds et il disparut. Lorsqu'il réapparut, il était aux côtés de Ta Shan, faisant face au dernier avatar de Yu Fei. Ce dernier, terrifié, avait cessé d'attaquer pour tenter de fuir, mais comment pouvait-il espérer échapper à Wang Lin? À l'instant où Wang Lin apparut, ses deux doigts formèrent une épée et s'abattirent vers le bas. Un tonnerre infini jaillit de toutes les directions et les poissons Yin et Yang apparurent. Lorsque ses doigts touchèrent la cible, le dernier avatar explosa.
 
-Il n'avait fallu que quelques respirations à Wang Lin pour anéantir successivement les sept avatars, mais le choc provoqué fut inimaginable!
+Il n'avait fallu que quelques respirations à Wang Lin pour anéantir successivement les sept avatars, mais, pour les autres, le choc semblait éternel!
 
 Le regard de Wang Lin resta glacial alors qu'il fixait Yu Fei, dont le visage était devenu livide, et dit froidement: « Voici le miracle que je t'offre. Es-tu satisfait? »

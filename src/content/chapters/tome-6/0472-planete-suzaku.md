@@ -16,7 +16,7 @@ Cet homme n'était autre que Wang Lin.
 
 Le moustique s'approchait lentement d'une ville en contrebas: la capitale mortelle du pays de Zhou.
 
-La cité était parsemée de bâtiments imposants et une rivière la traversait de part en part, du nord au sud. De nombreux bateaux naviguaient sur le cours d'eau; bien qu'il fût près de minuit, des lueurs émanaient des embarcations et les éclats de rire des femmes s'en échappaient, conférant à l'endroit une atmosphère encore plus luxueuse.
+La cité était parsemée de bâtiments imposants et une rivière la traversait de part en part, du nord au sud. De nombreux bateaux naviguaient sur le cours d'eau; bien qu'il fût près de minuit, des lueurs émanaient des embarcations, d'où s'échappaient parfois des récitations de poèmes et les éclats de rire des femmes, conférant à l'endroit une atmosphère encore plus luxueuse.
 
 Wang Lin observa ces bateaux et ordonna au moustique de descendre. La bête glissa silencieusement au-dessus de la rivière, tel un fantôme, comme un immortel venu d'ailleurs.
 
@@ -76,11 +76,11 @@ Pays de Chu, village du Phénix.
 
 Les parents de Zhou Ru discutaient avec elle dans la cour, les traits empreints de joie. Alors qu'ils échangeaient, la jeune fille leva brusquement la tête vers le ciel.
 
-« Oncle... » murmura-t-elle en fixant l'immensité. À cet instant, elle sentait son oncle s'éloigner d'elle. Cette distance ne cessait de croître, comme si elle allait augmenter pour l'éternité.
+« Oncle... » murmura-t-elle en fixant l'immensité. À cet instant, elle sentait son oncle s'éloigner d'elle. Cette distance ne cessait de croître, comme si elle devait durer toute une vie.
 
 Planète Suzaku, domaine du Clan Immortel Délaissé.
 
-Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans le Tombeau de Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré. Il sentait également sa fin approcher, une fatigue immense l'accablant.
+Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans le Tombeau de Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré, et son énergie vitale était entamée. Il sentait également sa fin approcher, une fatigue immense l'accablant.
 
 L'espérance de vie des membres du Clan Immortel Délaissé était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yun Quezi, il serait mort depuis longtemps.
 
@@ -98,6 +98,6 @@ Sur la planète Suzaku, l'ancêtre du Clan des Démons Géants, prisonnier de la
 
 Dans la Terre de l'Ancien Dieu, les rires démoniaques de Tuo Sen résonnaient encore. Le jour où il recouvrerait sa liberté n'était plus très loin.
 
-Dans la Mer des Démons, la rumeur de l'ordre d'exécution de cent jours circulait toujours parmi les cultivateurs démoniaques, sans jamais s'éteindre...
+Dans la Mer des Démons, la rumeur de l'ordre de mise à mort des Dix Mille Démons en cent jours circulait toujours parmi les cultivateurs démoniaques, sans jamais s'éteindre...
 
 Une légende: un cultivateur nommé Wang Lin avait laissé son empreinte sur toute la planète Suzaku...

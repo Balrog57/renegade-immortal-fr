@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 551 - Transaction
 slug: transaction
 ---
-« Il y a deux autres cultivateurs dans la Cité du Démon Antique en dehors de moi. Parmi les deux, l'un d'eux n'est qu'au stade initial de la Transformation de l'Âme, il ne pourra donc pas beaucoup aider. Seul ce Wang Lin, capable d'encaisser jusqu'au septième coup du général démon, devrait être assez puissant... Le seul problème est que sa personnalité est froide; sans aucune récompense, je crains qu'il soit très difficile de le convaincre de m'aider... »
+« Il y a deux autres cultivateurs dans la Cité du Démon Antique en dehors de moi. Parmi les deux, l'un d'eux n'est qu'au stade initial de la Transformation de l'Âme, il ne pourra donc pas beaucoup aider. Seul ce Wang Lin, capable d'encaisser l'Intention de Combat des Sept Effondrements du général démon, devrait être assez puissant... Le seul problème est que sa personnalité est froide; sans aucune récompense, je crains qu'il soit très difficile de le convaincre de m'aider... »
 
 Yao Xixue réfléchit un instant, puis agita la main devant elle. Une lumière blanche enveloppa son corps nu et elle fut bientôt dissimulée sous une robe blanche.
 
@@ -94,7 +94,7 @@ Lorsque Yao Xixue décida de solliciter l'aide de Wang Lin, elle savait qu'il ne
 
 Wang Lin ouvrit les yeux et vit, dans l'obscurité de la pièce, deux yeux aussi brillants que la lune qui le fixaient. Il regarda Yao Xixue et demanda: « Combien pouvez-vous en fournir? »
 
-Yao Xixue esquissa un sourire. Elle ne craignait pas que Wang Lin exige un prix trop élevé; il n'en avait simplement montré aucun intérêt auparavant. Maintenant qu'il posait la question, elle était confiante de pouvoir le satisfaire.
+Yao Xixue esquissa un sourire. Elle ne craignait pas que Wang Lin exige un prix trop élevé; ce qu'elle redoutait, c'était qu'il ne se laisse pas tenter. Maintenant qu'il posait la question, elle était confiante de pouvoir le satisfaire.
 
 Yao Xixue dit calmement: « Je peux en fournir suffisamment pour que vous atteigniez le stade initial de l'Ascendant! »
 

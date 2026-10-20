@@ -42,7 +42,7 @@ Cet or n'avait même pas servi à dissimuler une arme précieuse; sous cette dor
 
 En tenant l'épée, Wang Lin se remémora les deux gemmes géantes sur la garde de Richesse. Pourtant, ces deux pierres n'avaient aucune énergie spirituelle; elles n'étaient là que pour l'apparat.
 
-Même les glands de Richesse étaient faits de fragments d'or.
+Même les glands de Richesse étaient tressés de fils d'or.
 
 Richesse avait disparu dans une fissure spatiale lorsque le sac de rangement de Wang Lin fut détruit. Sans cette épée céleste, il ne se serait jamais souvenu de Richesse.
 

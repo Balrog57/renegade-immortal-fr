@@ -20,7 +20,7 @@ Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement: « P
 
 Wang Lin réfléchit longuement. « Senior, la prochaine étape doit-elle être la préparation à l'Établissement des Fondations? Junior ne connaît aucun chant pour accéder à l'Établissement des Fondations. »
 
-Situ Nan renifla et dit: « Je connais le chant, mais atteindre le stade de l'Établissement des Fondations est la véritable étape qui marque l'entrée dans le monde de la culture, et c'est extrêmement difficile. Tu devrais trouver un endroit isolé pour t'y retirer en méditation afin d'augmenter tes chances de percer. De plus, ton eau spirituelle et ton eau de neige ne suffiront plus. Lorsque tu entreras dans l'Établissement des Fondations, tu auras besoin de beaucoup d'énergie spirituelle; tu ferais mieux de préparer un peu de rosée spirituelle. »
+Situ Nan renifla et dit: « Je connais le chant, mais atteindre le stade de l'Établissement des Fondations est la véritable étape qui marque l'entrée dans le monde de la culture, et c'est extrêmement difficile. Tu devrais trouver un endroit isolé pour t'y retirer en méditation afin d'augmenter tes chances de percer. De plus, ton eau spirituelle et ton eau de neige ne suffiront plus. Lorsque tu entreras dans l'Établissement des Fondations, tu auras besoin de beaucoup d'énergie spirituelle; tu ferais mieux de préparer beaucoup de rosée spirituelle. »
 
 Wang Lin hocha la tête et dit: « La rosée est facile à obtenir. Cela demande simplement beaucoup de temps. »
 
@@ -38,11 +38,11 @@ Wang Lin réfléchit un instant et hocha la tête.
 
 Le temps passa lentement tandis que Situ Nan parlait. Après deux jours passés dans l'espace de rêve, Wang Lin se réveilla.
 
-Il s'assit en tailleur, plaça la perle contre sa poitrine, prit une gorgée de liquide spirituel et cultiva toute la nuit en silence. Le lendemain matin, Wang Lin ouvrit la porte. Son corps flotta dans les airs alors qu'il se dirigeait vers la salle principale.
+Il s'assit en tailleur, plaça la perle contre sa poitrine, prit une gorgée de liquide spirituel et cultiva toute la nuit en silence. Le lendemain matin, Wang Lin ouvrit la porte. Son corps s'éleva dans les airs et, tel un arc-en-ciel, fila vers la salle principale.
 
-Dès son arrivée dans la salle principale, Huang Long sortit et afficha un sourire bienveillant en voyant Wang Lin. Ce sourire était bien plus chaleureux que celui de la veille. Il dit: « Wang Lin, viens avec moi. »
+Dès son arrivée au-dessus de la salle principale, Huang Long sortit et afficha un sourire bienveillant en voyant Wang Lin. Ce sourire était un peu plus chaleureux que celui de la veille. Il dit: « Wang Lin, viens avec moi. »
 
-Sur ce, il agita ses manches et s'élança dans les airs. Wang Lin le suivit rapidement. Après un moment, ils arrivèrent à un sous-sommet de la Montagne Heng Yue: le Pic des Pins.
+Sur ce, il agita ses manches et s'élança dans les airs, foulant un nuage auspicieux. Wang Lin le suivit rapidement. Après un moment, ils arrivèrent à un sous-sommet de la Montagne Heng Yue: le Pic des Pins.
 
 Alors qu'ils survolaient la zone où s'était déroulée la compétition la veille, Huang Long ne s'arrêta pas; il continua de voler pour s'enfoncer plus profondément dans le Pic des Pins, jusqu'à ce qu'il s'immobilise devant d'étranges rochers. Il dit alors: « Wang Lin, c'est un lieu interdit de la Secte Heng Yue. C'est ici que les véritables Anciens de la Formation du Noyau et les Anciens de l'Établissement des Fondations cultivent. Ne déploie donc pas ton sens divin n'importe comment, au risque de les offenser. »
 
@@ -64,7 +64,7 @@ Wang Lin se mit en alerte et dit respectueusement: « Le disciple Wang Lin salue
 
 L'expression de Huang Long changea brusquement et il grogna: « Comment? Ancien? C'est l'Ancêtre! »
 
-Wang Lin fut stupéfait. La voix reprit: « Ce n'est rien. Les coutumes de la secte n'ont aucune importance ici. Wang Lin, cette fois, tu as accompli un grand acte pour la secte; tu peux donc choisir la technique de ton choix dans cette bibliothèque des écritures. Cette bibliothèque est incomparable à celle de la cour. C'est ici que sont conservées les véritables techniques de la Secte Heng Yue. On y trouve des techniques de toutes sortes. Si l'on comparait cette bibliothèque à toutes les autres collections des sectes du pays de Zhao, aucune ne serait aussi complète. Ne sois pas trop gourmand et choisis celle qui te convient! Huang Long, emmène-le maintenant. »
+Wang Lin fut stupéfait. La voix reprit: « Ce n'est rien. Ces formalités du monde profane n'ont aucune importance ici. Wang Lin, cette fois, tu as accompli un grand acte pour la secte; tu peux donc choisir la technique de ton choix dans cette bibliothèque des écritures. Cette bibliothèque n'a rien à voir avec celle de la cour principale. C'est ici que sont conservées les véritables techniques de la Secte Heng Yue. On y trouve des techniques de toutes sortes. Si l'on comparait cette bibliothèque à toutes les autres collections des sectes du pays de Zhao, aucune ne serait aussi complète. Ne sois pas trop gourmand et choisis celle qui te convient! Huang Long, emmène-le maintenant. »
 
 Dans l'esprit de Wang Lin, Situ Nan ricana avec dédain: « Un simple stade de la Formation du Noyau pour Ancêtre? Quand j'étais jeune, tous les cultivateurs de la Formation du Noyau tentaient de me flatter, et certaines femmes de ce stade allaient même jusqu'à se mettre à nu pour tenter de coucher avec moi. »
 

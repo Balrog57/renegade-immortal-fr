@@ -36,7 +36,7 @@ La flèche s'élança avec la tension de la corde. Dès que la force monstrueuse
 
 Le monde changea radicalement!
 
-Un hurlement assourdissant déchira l'espace! Cette flèche était telle un rayon de mort projeté avec une fureur folle.
+Un hurlement assourdissant déchira l'espace! Cette flèche était tel un arc-en-ciel de mort projeté avec une fureur folle.
 
 Ce qui s'élança avec elle était l'âme de Wang Lin, son âme originelle et toute la puissance contenue dans son corps: son énergie ancienne, la puissance de sa lignée, et tout le reste!
 
@@ -46,7 +46,7 @@ Il n'avait assez de puissance que pour un seul tir!
 
 Le corps de Wang Lin trembla sous le contrecoup de l'arc et montra des signes d'effondrement. Il recula de centaines de pieds mais ne put compenser la force du tir. Le sang jaillit et il fut projeté dans l'eau au loin.
 
-Pourtant, il fixait l'horizon avec un sourire carnassier, les yeux rivés sur l'effroyable flèche qui venait d'être décochée!
+Pourtant, il fixait droit devant lui avec un sourire carnassier, les yeux rivés sur l'effroyable flèche qui venait d'être décochée!
 
 Dès son départ, une profonde gorge se creusa dans l'eau calme. Cette entaille semblait suivre la trajectoire de la flèche et s'étendait à mesure que le projectile avançait, comme si une paire de mains gigantesques écartait les eaux.
 
@@ -68,7 +68,7 @@ Un fracas de tonnerre retentit et la tête de l'homme en blanc explosa. Son corp
 
 Son cri lugubre fut étouffé dans l'œuf. Ce spectacle fit trembler les trois autres, qui faillirent perdre la raison.
 
-La concubine impériale céleste dissimulée par la lune sombre avait une apparence hideuse, mais ses yeux ne reflétaient que terreur et désespoir. La flèche fonçait sur elle.
+La concubine impériale céleste dissimulée par la lune sombre avait une apparence hideuse, mais ses yeux ne reflétaient que désespoir. La flèche fonçait sur elle.
 
 Cette concubine se retourna brusquement, révélant un visage tordu par l'effroi. Elle leva la main droite et des couches d'écrans de lumière apparurent pour la protéger. Cependant, la flèche les transperça tous sans ralentir.
 
@@ -82,7 +82,7 @@ La tête de la concubine explosa comme celle de l'homme en blanc et son corps se
 
 Ayant tué deux personnes d'affilée, la flèche avait perdu un peu de son élan, mais elle conservait une puissance monstrueuse. Elle fonça alors vers la troisième personne: la femme qui avait utilisé le sort de divination!
 
-Cette femme avait été témoin de la mort de l'homme en blanc puis de celle de sa sœur. Son visage était empreint d'une misère profonde. Bien que son corps ne fût qu'une projection et qu'une mort normale n'aurait pas eu de conséquences graves, mourir sous ce tir infligerait des blessures terribles à son corps originel. Cette flèche n'appartenait pas à ce monde; elle venait de sa terre natale, c'était un trésor célèbre de la famille Li, renommé sur tout le Continent des Immortels Célestes!
+Cette femme avait été témoin de la mort de l'homme en blanc puis de celle de sa sœur. Son visage était empreint d'une misère profonde. Bien que son corps ne fût qu'une projection et qu'une mort normale n'aurait pas eu de conséquences graves, mourir sous ce tir infligerait des blessures terribles à son corps originel. Cette flèche n'appartenait pas à ce monde; elle venait de sa terre natale, c'était un trésor célèbre de la famille Li, renommé sur tout le Continent Astral Immortel!
 
 Sombrant dans le désespoir, la femme cessa de fuir. Elle se retourna pour faire face au projectile qui grandissait jusqu'à envahir tout son champ de vision. Elle ferma les yeux.
 
@@ -98,7 +98,7 @@ La flèche traversa ensuite la femme et poursuivit sa course vers le Maître Cé
 
 Celle-ci s'effondra soudainement. En se dissipant, elle se condensa rapidement pour former un vieil homme vêtu de noir. Son visage était livide et, alors qu'il tentait de reculer, son corps se décomposa une fois de plus.
 
-Un cri déchirant retentit. En un laps de temps infime, le Maître Céleste Dieu du Vide avait subi plusieurs effondrements. Lorsqu'il parvint à se reformer une dernière fois, la marque entre ses sourcils vola en éclats et la flèche lui transperça le corps.
+Un cri déchirant retentit. En un laps de temps infime, le Maître Céleste Dieu du Vide avait subi plusieurs effondrements. Lorsqu'il parvint à se reformer une dernière fois, l'endroit entre ses sourcils vola en éclats et la flèche lui transperça le corps.
 
 L'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Dieu du Vide, esquissa un sourire amer avant d'exploser. Une immense quantité de brume se dissipa sans laisser de trace.
 
@@ -114,4 +114,4 @@ Il tendit sa main droite desséchée et saisit la flèche!
 
 Son corps trembla, puis il leva lentement la tête pour regarder Wang Lin. Il prit la parole d'une voix calme et rauque:
 
-« Le rugissement provenant du pouvoir emprunté au Tombeau Antique, bloquant mon armée de cultivateurs antiques lors de la bataille de la Mer des Nuages... Wang Lin, nous nous rencontrons enfin... Ce vieil homme est le Souverain... »
+« Le rugissement provenant du pouvoir emprunté au Tombeau Antique, bloquant mon armée de cultivateurs antiques lors de la bataille de la Mer des Nuages... Wang Lin, nous nous revoyons... Ce vieil homme est le Souverain... »

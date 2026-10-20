@@ -44,13 +44,13 @@ Il en fut de même pour la famille Xu dans le sud. Près de dix mille cultivateu
 
 Quant à la famille Liu à l'est, tous les cultivateurs invoquèrent leurs grands trésors. Des lueurs monstrueuses jaillirent vers le ciel comme des serpents d'argent, toutes dirigées vers Wang Lin! Les membres de la famille Liu s'assirent alors en tailleur, entamant la formation de sceaux tandis que les incantations résonnaient en écho.
 
-« Art du Tournesol de Sang! » Le chant de près de dix mille cultivateurs fusionna en une voix unique qui s'éleva vers le ciel. Soudain, un étrange parfum floral émana de leurs corps!
+« Sortilège du Tournesol de Sang! » Le chant de près de dix mille cultivateurs fusionna en une voix unique qui s'éleva vers le ciel. Soudain, un étrange parfum floral émana de leurs corps!
 
 À l'apparition de cette fragrance, un gigantesque tournesol jaune surgit du sol. Ses bords étaient dorés mais son centre était noir, parsemé de multiples grains semblables à des semences. Cependant, Wang Lin voyait clairement que ces grains étaient en réalité les têtes de ces dix mille cultivateurs!
 
 À cet instant précis, une ligne de sang apparut sur leurs cous alors que leurs incantations devenaient plus violentes. Puis, dans un éclair rouge, leurs têtes se détachèrent de leurs corps. Une quantité massive de sang jaillit et fusionna avec le sortilège pour former une force colossale!
 
-Le tournesol géant libéra une lumière dorée mêlée d'un éclat rouge sang. Il s'arracha du sol et chargea Wang Lin! De loin, on aurait dit qu'un pilier de lumière gigantesque fonçait sur lui!
+Le tournesol géant libéra une lumière dorée mêlée d'un éclat rouge sang. Il s'arracha du sol et chargea Wang Lin! De loin, on aurait dit qu'un pilier de lumière, large de plusieurs centaines de milliers de pieds, fonçait sur lui!
 
 Une force destructrice se propagea rapidement depuis l'intérieur du pilier. Puis, une ombre sans tête apparut vaguement dans la lumière. Cette ombre, vêtue d'une armure et tenant une lance, chargea à travers le pilier!
 
@@ -66,7 +66,7 @@ Le fracas fut assourdissant. Les cheveux blancs de Wang Lin furent balayés par 
 
 Sous les grondements de tonnerre, le monde semblait se déchirer. Une immense faille apparut dans la terre sous les pieds de Wang Lin. Ce gouffre s'enfonça profondément dans la planète et, à cet instant précis, la partie orientale de Dong Lin se détacha du reste du globe!
 
-De loin, on pouvait voir une partie de la planète se fissurer et se séparer. Ce fragment colossal, chargé des cadavres des cultivateurs ayant utilisé l'Art du Tournesol de Sang, fut projeté dans l'immensité de l'espace. La planète Dong Lin était mutilée et commençait à s'effondrer à grande échelle!
+De loin, on pouvait voir une partie de la planète se fissurer et se séparer. Ce fragment colossal, chargé des cadavres des cultivateurs ayant utilisé le Sortilège du Tournesol de Sang, fut projeté dans l'immensité de l'espace. La planète Dong Lin était mutilée et commençait à s'effondrer à grande échelle!
 
 Le pilier de lumière disparut, emportant avec lui l'ombre sans tête... Wang Lin ne recula pas d'un seul pas avant que la menace ne soit dissipée, puis il retira lentement sa main droite.
 

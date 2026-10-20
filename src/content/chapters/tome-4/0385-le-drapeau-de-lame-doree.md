@@ -44,7 +44,7 @@ La bête manqua sa cible. Elle regarda au loin et poussa un rugissement. Le cri 
 
 La bête laissa échapper quelques autres rugissements de rage avant de redevenir un brouillard noir et de disparaître à nouveau dans le petit drapeau doré.
 
-Wang Lin réapparut dans une veine spirituelle située à plus de mille mètres de là. Il fronça légèrement les sourcils en jetant un regard vers l'endroit où se trouvait le brouillard noir.
+Wang Lin réapparut dans une veine spirituelle située à plus de mille mètres de là, où les minerais spirituels répandaient un éclat cristallin. Il fronça légèrement les sourcils en jetant un regard vers l'endroit où se trouvait le brouillard noir.
 
 « Ce n'est pas un Qilin, mais il est similaire au Qilin que possédait Ling Tianhou dans le Royaume Céleste. Ce petit drapeau doré doit être un trésor de la Secte de l'Affinement de l'Âme. Cette bête est à la fois la gardienne du drapeau et l'une des âmes qu'il renferme. »
 
@@ -74,7 +74,7 @@ Le sourcil de Liu Wei tressaillit alors qu'elle demandait: « Sœur apprentie a�
 
 Liu Wei était l'une des deux jeunes filles mentionnées plus tôt. Elle avait une petite silhouette et était d'une tête plus courte qu'Xu Yun, mais son corps était très beau et gracieux.
 
-« Cela ne devrait pas arriver, car tout cultivateur apprécie un environnement agréable. Nous avons rendu cet endroit magnifique; même s'il n'exprime aucune joie en surface, il ne sera pas en colère. Sœur apprentie Liu Wei, détends-toi. » Xu Yun sourit en prenant un fruit et en croquant dedans.
+« Cela ne devrait pas arriver, car tout cultivateur aime la propreté et la beauté. Nous avons rendu cet endroit magnifique; même s'il n'exprime aucune joie en surface, il ne sera pas en colère. Sœur apprentie Liu Wei, détends-toi. » Xu Yun sourit en prenant un fruit et en croquant dedans.
 
 Liu Wei afficha un air joyeux et dit: « Ces derniers mois, la réputation du frère aîné Qing Mu a été propagée par nous, sœurs, et notre vie s'en est trouvée bien meilleure. Si cela peut continuer, ce serait merveilleux. J'ai réussi à collecter plus d'âmes brisées ces derniers mois qu'en une année entière auparavant. »
 

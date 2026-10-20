@@ -100,7 +100,7 @@ Même en traçant la technique d'enregistrement qu'elle utilisait, les espions n
 
 Peu après son départ, Sun Zhenwei entra dans la bibliothèque. Il sortit un jeton or pourpre sur lequel était inscrit clairement le mot « Nuage ».
 
-À l'instant où le jeton apparut, l'espace à trois mètres devant lui se distordit et deux hommes en robes grises en émergèrent. Ils regardèrent le jeton avant de s'agenouiller: « Le disciple de la secte extérieure salue l'Ordre Nuage », déclarèrent-ils.
+À l'instant où le jeton apparut, l'espace à dix mètres devant lui se distordit et deux hommes en robes grises en émergèrent. Ils regardèrent le jeton avant de s'agenouiller: « Le disciple de la secte extérieure salue l'Ordre Nuage », déclarèrent-ils.
 
 « Cette bibliothèque a toujours été gardée par la secte extérieure. Qu'avez-vous découvert durant ce mois passé à espionner Li Muwan? » Le visage de Sun Zhenwei n'était plus empreint de douceur, mais révélait une lueur d'obscurité.
 

@@ -32,7 +32,7 @@ La Poupée Yi Si était accroupie à ses côtés, et son regard devint plus viol
 
 Alors que le cœur de Wang Lin et celui de Ye Mo fusionnaient et que Wang Lin comprenait ce nouveau sort, la pénultième couche de la Tombe Antique trembla. À cet instant, une bataille féroce faisait rage.
 
-Un fracas tonitruant retentit, assez puissant pour donner l'impression que le monde se déchirait. Une rafale de vent projeta la troisième concubine Tang Shan dans les airs, et elle s'écrasa sur la terre effondrée.
+Un fracas tonitruant retentit, assez puissant pour donner l'impression que le monde se déchirait. Une rafale de vent projeta la troisième concubine Tang Shan depuis le ciel, et elle s'écrasa sur la terre effondrée.
 
 Une immense quantité de poussière fut soulevée. Le visage de Tang Shan était pâle alors qu'elle luttait pour se relever. Du sang coulait au coin de sa bouche; son cœur tremblait et elle était gravement blessée.
 
@@ -50,7 +50,7 @@ C'était là que se trouvait le Vieux Fantôme Zhan, et le Maître du Dao Rêve 
 
 L'expression du Maître du Dao Rêve Bleu était sombre et ses pas étaient instables. La plupart de ses sorts étaient défensifs, car il ne parvenait pas à approcher le Vieux Fantôme Zhan. Le vieil homme nommé Ma affichait un regard impuissant, mais ses attaques faisaient trembler le monde.
 
-Il devait agir; il était venu ici avec les cultivateurs de la Planète des Cinq Éléments à la demande de Xuan Luo. S'il ne faisait rien, il risquait d'irriter Xuan Luo, ce qui l'empêcherait de quitter ce monde caverneux.
+Il devait agir; il était venu ici avec ses congénères de la Planète des Cinq Éléments à la demande de Xuan Luo. S'il ne faisait rien, il risquait d'irriter Xuan Luo, ce qui l'empêcherait de quitter ce monde caverneux.
 
 Les yeux du Vieux Fantôme Zhan étaient empreints de froideur. Si ces deux-là ne l'avaient pas bloqué, il aurait pu pénétrer dans la dernière couche et tuer Wang Lin pour obtenir la troisième âme. Cependant, ces deux adversaires étaient très difficiles à gérer; ils étaient prêts à subir des blessures pour le retarder.
 
@@ -60,7 +60,7 @@ Tandis que les trois combattaient, le vieil homme nommé Ma fit plusieurs pas en
 
 Dès qu'il eut envoyé son message, le Maître du Dao Rêve Bleu agita la main et une lumière bleue l'enveloppa alors qu'il chargeait le Vieux Fantôme Zhan. Un grondement de tonnerre retentit lorsque le Vieux Fantôme Zhan agita sa main droite. Le caractère « bataille » apparut et s'étendit rapidement. Une force monstrueuse se propagea, et la lumière bleue se déforma avant de s'effondrer promptement.
 
-« Même une luciole ose rivaliser avec la lune brillante! » Le Vieux Fantôme Zhan laissa échapper un ricanement froid et agita sa manche en chargeant le vieil homme nommé Ma. Il ne craignait pas Rêve Bleu; après tout, ce dernier n'avait pas traversé les Tribulations Arcanes.
+« Même la lueur d'un grain de riz ose rivaliser avec la lune brillante! » Le Vieux Fantôme Zhan laissa échapper un ricanement froid et agita sa manche en chargeant le vieil homme nommé Ma. Il ne craignait pas Rêve Bleu; après tout, ce dernier n'avait pas traversé les Tribulations Arcanes.
 
 Le vieil homme nommé Ma, en revanche, n'était pas comparable. Si le Vieux Fantôme Zhan voulait ne plus être entravé, il lui faudrait infliger de graves blessures à ce vieillard!
 

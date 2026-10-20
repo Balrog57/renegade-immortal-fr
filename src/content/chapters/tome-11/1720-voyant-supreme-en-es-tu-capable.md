@@ -76,7 +76,7 @@ L'expression de l'Omniscient devint immédiatement sombre. L'action de Wang Lin 
 
 Wang Lin sourit calmement et dit d'une voix posée: « Omniscient, je te le demande: même si tu peux voler mes essences, mes sorts et mes souvenirs, peux-tu voler mon lignage du Dao Antique? »
 
-« Si tu parviens à manifester ne serait-ce qu'un seul sort divin de mon lignage du Dao Antique, alors je me rendrai immédiatement et je serai à ta merci. Mais que pourrais-tu faire ensuite? En es-tu capable? » Wang Lin afficha un regard de mépris souverain.
+« Si tu parviens à manifester ne serait-ce qu'un seul sort divin de mon lignage du Dao Antique, alors je me rendrai immédiatement et je serai à ta merci. Et qu'importe ce qui suivra? En es-tu capable? » Wang Lin afficha un regard de mépris souverain.
 
 « Oses-tu? »
 
@@ -84,11 +84,11 @@ L'Omniscient fixa Wang Lin longuement sans mot dire. Il ne montra aucun pouvoir 
 
 « Tu ne peux pas, tu n'en as pas la capacité. Toute ta mystique est un simulacre! Penses-tu que je suis encore le même homme qu'à l'époque de la planète Tian Yun? Crois-tu encore que je suis celui de la Terre des Esprits Démoniaques... Omniscient, ton niveau de culture ne peut surpasser le mien, et ton lignage n'est pas aussi noble que le mien. Ton statut face au mien n'est que celui d'une fourmi. J'ai mené le Royaume Intérieur à la lutte contre le Royaume Extérieur tandis que tu te cachais dans l'ombre. Ma statue a été érigée dans le Royaume Céleste et sera vénérée durant des éons; la tienne ne le sera jamais! »
 
-« J'ai créé le Royaume Céleste et je suis vénéré par d'innombrables cultivateurs. Toi, tu n'y parviendras jamais! Même si tu es un maître de la manipulation, tu ne sais que jouer des tours dans l'obscurité. De quel droit joues-tu à ce jeu avec moi? »
+« J'ai créé le Royaume Céleste et je suis gardé en mémoire par d'innombrables cultivateurs. Et toi, en es-tu capable? Même si tu es un maître de la manipulation, tu ne sais que jouer des tours dans l'obscurité. De quel droit joues-tu à ce jeu avec moi? »
 
 « Es-tu seulement qualifié? » Wang Lin sourit, mais ses paroles étaient d'une cruauté venimeuse.
 
-« Je peux te donner cette qualification, mais ce n'est pas moi qui t'accompagnerai dans ce jeu, c'est toi qui m'accompagneras! Je n'aime pas les complots dissimulés, je préfère les affrontements directs! »
+« Je peux te donner cette qualification, mais ce n'est pas moi qui t'accompagnerai dans ce jeu, c'est toi qui m'accompagneras! Je n'aime pas les complots dissimulés, je préfère les stratagèmes au grand jour! »
 
 « Tu ne possèdes aucune aura du Dao Antique sur toi! Quel est ce sortilège d'Intégration de la Réincarnation? Tu es incapable de copier mon lignage! Le fait que tu puisses mourir encore et encore signifie que tout cela n'est qu'une succession d'avatars... Alors, Omniscient, où se cache ton corps originel? » Le sourire de Wang Lin s'élargit. L'expression de l'Omniscient ne changea pas, il parut seulement plus sombre, mais son cœur trembla.
 

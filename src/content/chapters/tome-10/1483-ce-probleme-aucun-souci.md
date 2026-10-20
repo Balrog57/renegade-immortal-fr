@@ -14,7 +14,7 @@ S'il l'avait su, peut-être n'aurait-il pas pu prononcer ces quatre mots si simp
 
 Wang Lin se tenait à des centaines de milliers de pieds de la planète Dong Lin. Il contemplait cette planète, bien plus vaste que la planète Tian Yun. L'intention meurtrière dans ses yeux ne faisait que croître.
 
-Lorsqu'il était revenu de l'Alliance, il était habité par l'espoir de ressusciter Li Muwan. Il s'était frayé un chemin à travers Luotian pour finalement remporter le titre de Céleste du Tonnerre et obtenir une promesse de la famille Xiang.
+Lorsqu'il était venu de l'Alliance, il était habité par l'espoir de ressusciter Li Muwan. Il s'était frayé un chemin à travers Luotian pour finalement remporter, lors de la bataille de scellement des immortels, le titre de Céleste du Tonnerre et obtenir une promesse de la famille Xiang.
 
 À l'époque, Wang Lin ne voulait pas se faire d'ennemis parmi la puissante famille Xiang; il ne souhaitait que le réveil de Li Muwan.
 
@@ -22,7 +22,7 @@ Il était arrivé sur la planète Dong Lin pour la première fois aux côtés de
 
 Si ce n'avait été le Doigt de la Mort, Wang Lin serait depuis longtemps mort!
 
-À mesure que son niveau de culture augmentait et qu'il comprenait la difficulté de ressusciter Li Muwan, Wang Lin découvrit peu à peu que tout ce que l'Ancêtre de la famille Xiang avait affirmé n'était que mensonge. Il n'avait aucun moyen de ressusciter Li Muwan, pas même avec le sortilège Qixi! Si Wang Lin n'avait pas trouvé ce cercueil, le moindre espoir de réveil pour elle aurait été anéanti!
+À mesure que son niveau de culture augmentait et qu'il comprenait la difficulté de ressusciter Li Muwan, Wang Lin découvrit peu à peu que tout ce que l'Ancêtre de la famille Xiang avait affirmé n'était que mensonge. Il n'avait aucun moyen de ressusciter Li Muwan, pas même avec le sortilège Qixi! Si Wang Lin n'avait pas trouvé le Cercueil Évitant le Ciel, le moindre espoir de réveil pour elle aurait été anéanti!
 
 Ce prétendu apport de vitalité par le sortilège Qixi était, Wang Lin le voyait bien désormais, l'une des causes majeures de la dispersion de l'âme de Li Muwan!
 
@@ -58,15 +58,15 @@ La lumière de la formation vacilla violemment, brillant avec l'éclat fulgurant
 
 Debout devant la planète Dong Lin, les yeux de Wang Lin étincelaient comme la foudre. Une fois apparu, il ouvrit la bouche et prononça une phrase d'un ton calme mais implacable:
 
-— Tu sais qui je suis... Sors de là immédiatement!
+— Tu sais qui je suis... Dégage de là immédiatement!
 
 À l'instant même où Wang Lin parla, un écho monstrueux se déclencha!
 
-*Sors de là immédiatement!*
+*Dégage de là immédiatement!*
 
-*Sors de là immédiatement!!*
+*Dégage de là immédiatement!!*
 
-*Sors de là immédiatement!!!*
+*Dégage de là immédiatement!!!*
 
 Cette unique phrase libérait la colère de Wang Lin, refoulée depuis mille ans, et faisait jaillir sa haine envers la famille Xiang!
 

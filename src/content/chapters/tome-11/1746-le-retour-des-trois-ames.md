@@ -78,7 +78,7 @@ Pourtant, en y réfléchissant, un frisson soudain parcourut le cœur de Wang Li
 
 La troisième âme vola vers la Mer des Nuages de l'époque future et disparut en un éclair sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
 
-Le temps passa. Un jour donné, la planète s'effondra et se dispersa dans toutes les directions. Des nuées de poussière se répandirent, enveloppant le lieu. Sur l'un des fragments, un python mourut et un rayon de lumière s'élança vers le système stellaire.
+Le temps passa. Un jour donné, la planète s'effondra et se dispersa dans toutes les directions. Des brumes se répandirent, enveloppant le lieu. Sur l'un des fragments, un python mourut et un rayon de lumière s'élança vers le système stellaire.
 
 Bouleversé, Wang Lin accéléra au maximum pour suivre ce rayon de lumière. Il avait trouvé les traces de la réincarnation de la troisième âme, et il allait maintenant découvrir en quoi elle s'était réincarnée!
 

@@ -94,7 +94,7 @@ Le regard de l'homme robuste se fit grave et il laissa échapper un rire. Il fit
 
 Ce coup de poing fendit l'air comme la foudre, mais étrangement sans aucun bruit. Bien qu'il n'ait frappé que le vide, la force se projeta directement vers Wang Lin.
 
-Wang Lin ne manifesta aucune surprise; il leva simplement son pouce droit et pressa l'air!
+Wang Lin ne manifesta aucune surprise; d'un geste de la manche, il leva simplement son pouce droit et pressa l'air!
 
 « Le Doigt de la Mort! » Les yeux de la femme en robe blanche s'illuminèrent.
 
