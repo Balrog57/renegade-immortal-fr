@@ -24,7 +24,7 @@ C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également
 
 L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la grande guerre entre l'Alliance de Culture, le Royaume du Vide Brillant et les Quatre Sectes Divines — l'Empereur Divin Dragon Azure n'avait rien demandé.
 
-Après avoir éloigné tout le monde, l'Empereur Divin Dragon Azure s'assit dans la salle principale de la Secte Divine Dragon Azure. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
+Après que Wang Lin et les siens se furent éloignés au loin, l'Empereur Divin Dragon Azure s'assit dans la salle principale de la Secte Divine Dragon Azure. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
 
 Cependant, son regard ne se portait pas sur les Trésors Sacrés, mais vers l'extérieur de la salle principale. Après un long moment, il soupira et détourna les yeux. Il murmura quelques mots que lui seul pouvait entendre.
 
@@ -110,4 +110,4 @@ Plus de dix branches surgissaient de son cou, et une tête trônait à l'extrém
 
 Wang Lin finit par distinguer clairement la source du bruit: les têtes se disputaient une carcasse de bête. Il semblait qu'elles dévoraient même les os.
 
-Lorsque Wang Lin aperçut l'homme corpulent, celui-ci remarqua également sa présence. Les dix têtes se redressèrent lentement pour le fixer. Certaines laissaient couler du sang de leur bouche, tandis que d'autres continuaient de mâcher...
+Lorsque Wang Lin aperçut l'homme corpulent, celui-ci remarqua également sa présence. Ses plus de dix têtes se redressèrent lentement pour le fixer. Certaines laissaient couler du sang de leur bouche, tandis que d'autres continuaient de mâcher...

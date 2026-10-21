@@ -12,7 +12,7 @@ Puis, il tendit la main et saisit le Fouet de l'Âme qui flottait dans les airs.
 
 Une trace de sens divin de niveau Ascendant subsistait sur le Fouet de l'Âme, que Wang Lin ne pouvait pas retirer pour le moment. Mais tant qu'il le tenait entre ses mains, il était confiant que, une fois tout cela terminé, il pourrait utiliser le drapeau des mille millions d'âmes pour former une âme Ascendante capable de briser ce sens divin et s'approprier véritablement le Fouet de l'Âme.
 
-Après avoir fait cela, Wang Lin regarda une dernière fois l'endroit où Papillon Rouge avait disparu et secoua la tête. Puis, d'un pas, son corps disparut. Il se mit à charger vers la montagne spirituelle au loin.
+Après avoir fait cela, Wang Lin regarda une dernière fois l'endroit où Papillon Rouge avait disparu et secoua la tête. Puis, son corps se transforma en une fine fumée et disparut, se dirigeant vers la montagne spirituelle au loin.
 
 À cet instant, le nuage rouge traversait rapidement la montagne spirituelle pour arriver directement au sommet. Une fois sur place, le nuage rouge se transforma en une tornade et descendit sur le pic de la montagne. Yun Quezi sortit de la tornade rouge tandis que Zhou Wutai le suivait respectueusement.
 
@@ -32,7 +32,7 @@ Sur ces mots, une intention meurtrière traversa son regard avant qu'il ne ferme
 
 Grâce à sa compréhension du Tombeau de Suzaku, il avait été profondément choqué tout au long de son voyage. C'était totalement différent de ce que le précédent Suzaku lui avait décrit.
 
-Ces formes de vie étaient clairement façonnées par le pouvoir mystérieux du Cristal de la Planète de Culture. D'après ses souvenirs, le précédent Suzaku lui avait dit que ces formes de vie n'apparaissaient que dans la partie intérieure du Tombeau de Suzaku.
+Ces formes de vie étaient clairement façonnées par le pouvoir mystérieux du Cristal de la Planète de Culture. D'après ses souvenirs, le précédent Suzaku lui avait dit que ces formes de vie n'apparaissaient que dans la partie intérieure du Cristal de la Planète de Culture.
 
 Cependant, la montagne spirituelle était bien réelle; la porte était l'unique passage vers le tombeau du premier Suzaku. Le Cristal de la Planète de Culture était conservé à l'intérieur du tombeau du premier Suzaku.
 

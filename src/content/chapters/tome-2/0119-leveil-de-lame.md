@@ -48,7 +48,7 @@ Wang Lin ne savait pas exactement combien de temps s'était écoulé. Depuis son
 
 Enfin, un jour, Wang Lin se souvint du moment de sa naissance, des seize années passées avec ses parents, des jours à la Secte Heng Yue... et il se souvint enfin de Teng Huayuan.
 
-Une vague de tristesse traversa son âme lorsqu'il réalisa ce qui s'était produit. Au dernier moment, Situ Nan avait risqué sa vie pour le sauver et l'avait emmené dans ce champ de bataille étranger.
+Une vague de tristesse traversa son âme lorsqu'il réalisa ce qui s'était produit. Au dernier moment, Situ Nan avait risqué sa vie pour le sauver et l'avait emmené dans ce champ de bataille étranger, jusqu'à la faille spatiale.
 
 Au moment où ils avaient pénétré dans la déchirure spatiale, la Perle Défiant le Ciel avait subi une mutation. Pour être plus précis, elle avait disparu sans laisser de trace. Mais Wang Lin pouvait clairement sentir qu'elle n'avait pas disparu: elle s'était mystérieusement fusionnée avec son âme. On pourrait dire que la Perle Défiant le Ciel avait fondu pour ne faire qu'un avec l'âme de Wang Lin.
 

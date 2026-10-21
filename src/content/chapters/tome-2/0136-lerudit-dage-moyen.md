@@ -70,7 +70,7 @@ Les créatures transformées s'envolèrent dans les airs pour poursuivre l'armé
 
 Quant à l'armée de cultivateurs, parmi les dix membres de l'Âme Naissante revenant du combat, quatre rejoignirent le groupe du Sanctuaire du Dieu de la Guerre. L'un des vieillards aux cheveux gris balaya le chariot du regard et fixa Wang Lin. Sa voix était glaciale lorsqu'il demanda: « Est-ce ce junior qui a attiré les bêtes de feu ici? »
 
-Wang Lin soutint le regard froid du vieillard et hocha la tête.
+Wang Lin fixa le vieillard d'un regard froid et hocha la tête.
 
 L'homme laissa échapper quelques grognements méprisants, puis sa main gigantesque se tendit vers Wang Lin. Le visage de Feng Luan s'assombrit légèrement lorsqu'elle frappa le char du phénix aux cinq couleurs. Un phénix aux cinq couleurs apparut et poussa un cri perçant. Il battit des ailes et une onde annulaire multicolore se propagea.
 

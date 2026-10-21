@@ -16,7 +16,7 @@ Wang Lin soupira intérieurement. Tuer un cultivateur du deuxième niveau était
 
 Cependant, il ne pouvait que blesser, et non tuer, un cultivateur de l'étape Yin Illusoire qui ne pouvait même pas être considéré comme ayant véritablement atteint le deuxième niveau.
 
-« Cet homme est bien plus puissant que le Daoïste du Tonnerre de l'époque. » Wang Lin agita la main et rassembla tous les fragments exposés à la surface.
+« Cet homme est bien plus puissant que le Daoïste du Tonnerre de l'époque. » Wang Lin agita la main et rassembla tous les fragments exposés à la surface et les rangea dans son sac de rangement.
 
 Wang Lin fixait la flamme de lotus démoniaque qui surplombait la tête de Xu Fenghan.
 

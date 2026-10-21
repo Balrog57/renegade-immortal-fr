@@ -120,7 +120,7 @@ L'Omniscient fixait Wang Lin avec une expression solennelle.
 
 Wang Lin soutint son regard. Après un court instant, il s'agenouilla sur un genou et dit respectueusement: « Le disciple Wang Lin salue le Maître! »
 
-« Bien! » L'Omniscient rit en regardant Wang Lin avec un sourire bienveillant. « Ne vas-tu pas libérer ta cinquième sœur? Si tu t'attardes trop, ton maître ne risque-t-il pas de manquer un disciple? »
+« Bien! » L'Omniscient rit en regardant Wang Lin avec un sourire bienveillant. « Ne vas-tu pas libérer l'âme originelle de ta cinquième sœur? Si tu t'attardes trop, ton maître ne risque-t-il pas de manquer un disciple? »
 
 Wang Lin leva la tête et répondit calmement: « Je peux libérer l'âme originelle de la cinquième sœur, mais les deux autres ont été irrespectueuses envers moi, je ne peux donc pas les libérer! »
 

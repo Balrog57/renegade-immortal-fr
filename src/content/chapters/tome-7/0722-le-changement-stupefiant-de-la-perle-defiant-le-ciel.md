@@ -60,7 +60,7 @@ Cette infime trace d'énergie impure fusionna instantanément avec la Perle Déf
 
 Un rugissement tonitruant, inaudible pour ceux de l'extérieur mais parfaitement clair pour Wang Lin, résonna à l'intérieur de son corps. C'était comme s'il avait été frappé sans pitié par une montagne immense. Le visage de Wang Lin pâlit instantanément, son âme originelle fut secouée et même son corps se mit à trembler incessamment.
 
-La Perle Défiant le Ciel à l'intérieur de lui n'obéit pas aux ordres de Wang Lin. Elle flotta lentement hors de la zone située entre ses sourcils.
+Sans attendre l'appel de Wang Lin, la Perle Défiant le Ciel se manifesta d'elle-même. Elle flotta lentement hors de la zone située entre ses sourcils.
 
 Wang Lin fixa la scène devant lui, l'esprit bouleversé.
 

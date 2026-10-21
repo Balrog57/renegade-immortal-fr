@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 101 - Soul Jade
 slug: jade-de-lame
 ---
-Une fois cela terminé, l'expression de Wang Lin devint encore plus grave tandis qu'il fixait le symbole sur le fourreau de l'épée. Il forma un sceau de ses deux mains et cracha une bouffée d'énergie spirituelle bleue. Dès que cette énergie toucha le fourreau, une flamme bleue l'enveloppa.
+Une fois cela terminé, l'expression de Wang Lin devint encore plus grave tandis qu'il fixait la formation sur le fourreau de l'épée. Il forma un sceau de ses deux mains et cracha une bouffée d'énergie spirituelle bleue. Dès que cette énergie toucha le fourreau, une flamme bleue l'enveloppa.
 
 Il semblait inapproprié de l'appeler du feu. Bien qu'elle ait la forme d'une flamme, elle n'en avait pas la température. En réalité, au moment où cette flamme apparut, la température de toute la pièce chuta brusquement.
 
@@ -62,7 +62,7 @@ Wang Lin fronça les sourcils. Il avait le sentiment que quelque chose clochait.
 
 Il n'y avait aucun cultivateur du milieu du stade de l'Établissement des Fondations, mais trois d'entre eux se trouvaient au stade avancé. Ces derniers étaient radicalement différents des autres, comme la différence entre un mort et un vivant.
 
-Les pupilles de Wang Lin se rétractèrent légèrement. Au même instant, les seize boules de feu alentour s'assombrirent brusquement, puis la silhouette de Ye Zizai apparut sans un bruit en plein air. Wang Lin remarqua qu'à son apparition, les yeux de la plupart des occupants de la grotte se remplirent d'une ferveur fanatique.
+Les pupilles de Wang Lin se rétractèrent légèrement. Au même instant, les seize boules de feu alentour s'assombrirent brusquement, puis la silhouette de Ye Zizai apparut sans un bruit dans les airs. Wang Lin remarqua qu'à son apparition, les yeux de la plupart des occupants de la grotte se remplirent d'une ferveur fanatique.
 
 Le regard de Ye Zizai balaya l'assistance et s'arrêta sur Wang Lin durant quelques secondes. Il déclara d'un ton plat: « Le champ de bataille étranger, qui ne s'ouvre que tous les cent ans, est sur le point de s'ouvrir. Pour gagner le droit d'y entrer, il faut rivaliser avec les sectes orthodoxes. Comme le veut la coutume, les cultivateurs de la Formation du Noyau et de l'Âme Naissante n'ont pas le droit d'y participer. Dans un instant, vous serez tous envoyés au lieu de rassemblement des quatre sectes démoniaques. Là-bas, pour toutes les actions de notre Secte des Cadavres, Du Chen sera votre chef. Du Chen, sors des rangs. »
 
@@ -98,7 +98,7 @@ Une fois tout le monde parti, une voix rauque résonna dans la cavité.
 
 Ye Zizai répondit calmement: « L'énergie Yin de Wang Lin est très pure, il doit donc receler des secrets. Si c'était il y a quelques années, j'aurais pris le temps d'enquêter, mais il ne me reste plus que trois mois à vivre. Le jour où le champ de bataille s'ouvrira sera le jour où je serai entièrement dévoré, cela n'a donc plus d'intérêt. Puisque j'ai décidé de ne pas le choisir comme chaudron, autant en faire l'amorce des marionnettes, pour leur ajouter un peu de puissance. »
 
-« Luo Cha, je te demande de faire progresser Adai jusqu'au stade de la Formation du Noyau: il sera mon chaudron. Quant à la marionnette cadavérique, j'espère qu'une fois le champ de bataille ouvert, tu y entreras pour m'en choisir une. En échange, je me rendrai dans la jungle pour aider le Seigneur Zi à dévorer mon jeune frère de discipline, Wu Yu. »
+« Luo Cha, je te demande de faire progresser Adai jusqu'au stade de la Formation du Noyau: il sera mon chaudron. Quant à la marionnette cadavérique, j'espère qu'une fois le champ de bataille ouvert, tu y entreras pour m'en choisir une. En échange, je me rendrai dans la jungle de Ku Mang pour aider le Seigneur Zi à dévorer mon jeune frère de discipline, Wu Yu. »
 
 La voix rauque éclata d'un rire dément et accepta la proposition.
 

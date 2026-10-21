@@ -16,7 +16,7 @@ Wang Hao eut un sourire amer et dit: « Frère Tie Zhu, avais-tu besoin de moi p
 
 Wang Lin regarda Wang Hao. Il garda pour lui son projet de décoction de remède populaire et secoua la tête. Il voulait aider Wang Hao, mais l'ennemi était déjà au 6ème niveau; Wang Lin n'était pas sûr de ses chances.
 
-Bien que son Sens Divin fût différent de celui des autres et qu'il eût pratiqué la technique d'attraction pendant plus de vingt ans, il n'avait jamais combattu d'autre cultivateur; il ne pouvait donc pas dire avec certitude quelle était sa véritable force.
+Bien que son Sens Divin fût différent de celui des autres et qu'il eût pratiqué la technique d'attraction pendant plus de vingt ans de temps de rêve, il n'avait jamais combattu d'autre cultivateur; il ne pouvait donc pas dire avec certitude quelle était sa véritable force.
 
 Voyant que Wang Lin restait silencieux, Wang Hao tapota amèrement ses vêtements et dit: « Frère Tie Zhu, tu possèdes bien plus de talent que moi. Repenser à l'époque où nous passions nos tests... on dirait un rêve. Le temps passe trop vite... » Wang Hao soupira et s'en alla, l'expression sombre. Il disparut lentement de la vue de Wang Lin.
 

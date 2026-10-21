@@ -54,7 +54,7 @@ Le Maître du Dao Rêve Bleu fixa ces visions et les examina minutieusement. Son
 
 « Ton père... a sous-estimé un homme... C'est la première fois que je me trompe... » Après un long moment, le Maître du Dao Rêve Bleu poussa un soupir, l'incrédulité brillant toujours dans ses yeux.
 
-« Tu continueras à te tromper. Personne ne peut percer son avenir. Même si tu étais l'un des Cinq Maîtres du Système Stellaire Antique, tu n'y parviendrais pas. » Li Qianmei regarda l'homme tentant de briser le vide sur les images et sourit doucement.
+« Tu continueras à te tromper. Personne ne peut percer son avenir. Même si tu es l'un des Cinq Maîtres du Système Stellaire Antique, tu n'y parviendrais pas. » Li Qianmei regarda l'homme tentant de briser le vide sur les images et sourit doucement.
 
 « Tu... tu blâmes ton père...? » Le Maître du Dao Rêve Bleu regarda sa fille avec une expression complexe.
 

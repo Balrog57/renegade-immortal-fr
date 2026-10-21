@@ -14,7 +14,7 @@ Bien qu'inconnu, cet endroit dégageait une aura familière. C'était bel et bie
 
 Il fallait une connaissance approfondie des restrictions pour concevoir un réseau de transfert capable de quitter l'espace de stockage d'un être céleste. Wang Lin savait qu'il lui aurait été extrêmement difficile d'accomplir une telle prouesse.
 
-Après avoir détourné son regard, Wang Lin leva la main et fit signe au réseau de transfert derrière lui. Celui-ci se rétracta pour devenir un cristal de la taille d'un poing, qu'il rangea dans sa sacoche.
+Après avoir détourné son regard, Wang Lin leva la main et frappa le réseau de transfert derrière lui. Celui-ci se rétracta pour devenir un cristal de la taille d'un poing, qu'il rangea dans sa sacoche.
 
 Il inspecta les environs avant de se transformer en un rayon de lumière et de s'élancer vers l'horizon. Après plusieurs jours de vol, Wang Lin prit secrètement note de la zone. Il atterrit avec prudence sur une montagne et, après s'être assuré qu'aucune anomalie ne rôdait à proximité, il s'enfonça sous terre. Une fois profondément ancré dans la montagne, il cacha la sacoche qu'il n'arrivait pas à ouvrir et qu'il avait obtenue de Yao Xixue.
 

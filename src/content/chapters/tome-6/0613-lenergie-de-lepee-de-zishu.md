@@ -36,7 +36,7 @@ Wang Lin se concentra et trancha d'un geste décisif la tête de Zi Shu. Il s'en
 
 La flamme incolore enveloppa la tête de Zi Shu et commença à la consumer pour la raffiner.
 
-Sur le côté, Teng Yun assistait à la scène, le cœur battant la chamade. Il pensa amèrement: « C'est fini, c'est fini... Il doit être un cultivateur pour posséder une flamme originelle. Mais il doit être un cultivateur particulièrement vicieux, pratiquant la voie démoniaque, puisqu'il ne laisse même pas reposer les morts! J'ai une chance inouïe d'avoir été témoin de cela. J'espère seulement qu'il ne me tuera pas pour me réduire au silence... »
+Sur le côté, Teng Yun assistait à la scène, le cœur battant la chamade. Il pensa amèrement: « C'est fini, c'est fini... Il doit être un cultivateur pour posséder une flamme originelle. Mais il doit être un cultivateur particulièrement vicieux, pratiquant la voie démoniaque, puisqu'il ne laisse même pas reposer les morts! J'ai eu bien de la malchance d'avoir été témoin de cela. J'espère seulement qu'il ne me tuera pas pour me réduire au silence... »
 
 Wang Lin contemplait la tête de Zi Shu en cours de raffinage. Ses yeux s'illuminèrent et il libéra davantage de flammes originelles. Bientôt, la tête disparut, ne laissant que la lumière dorée.
 

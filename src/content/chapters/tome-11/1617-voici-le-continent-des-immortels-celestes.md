@@ -78,7 +78,7 @@ Cette enfant semblait n'avoir que sept ou huit ans et était très jolie. Ses ye
 
 Observant le vortex menant au monde mystérieux, Wang Lin réfléchit silencieusement. Après un long moment, ses yeux s'illuminèrent et il se dirigea vers le vortex menant à la planète Suzaku. Au moment où il allait y pénétrer, la voix ténue d'un enfant résonna dans son esprit.
 
-« Pourquoi pars-tu? C'est le Continent des Immortels Célestes... Je m'appelle Poupée, et toi, quel est ton nom? »
+« Pourquoi pars-tu? C'est le Continent des Immortels Célestes... Je m'appelle Wa Wa, et toi, quel est ton nom? »
 
 Le pas de Wang Lin s'arrêta, mais la voix était floue. Elle semblait simplement trop lointaine et se dissipa progressivement.
 

@@ -60,7 +60,7 @@ Lie Yunzi était le plus faible d'entre eux et avait été gravement blessé. Bi
 
 La terreur se lut dans ses yeux et, tout comme Maître Yan Leizi, il contempla Wang Lin. Le Wang Lin actuel était un étranger absolu; le fossé avec le garçon de ses souvenirs était trop immense!
 
-« Atteindre un tel niveau de culture en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de bataille? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse l'arrêter aujourd'hui! Il... il est devenu si puissant!! »
+« Atteindre un tel niveau de culture en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de la famille Zhan? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse l'arrêter aujourd'hui! Il... il est devenu si puissant!! »
 
 Dieu de Sang ressentait une terreur encore plus vive. Son cuir chevelu picotait et il était presque terrifié à en perdre la raison! Il savait qu'il avait trop offensé Wang Lin. En voyant l'homme de ses propres yeux et en subissant le choc du rugissement, il ne put s'empêcher de trembler.
 

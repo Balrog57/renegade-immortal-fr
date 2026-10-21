@@ -18,7 +18,7 @@ Lorsque le pied droit de Wang Lin toucha terre et qu'il leva la tête, la terre 
 
 Le soleil et la lune disparurent, les rivières et les mers se dissipèrent, et le ciel et la terre formant ce Monde Ancien tout entier s'effondrèrent.
 
-Le corps de Gu Dao trembla et il cracha une bouchée de sang. Il recula de plus de cent pas avant de s'arrêter, son visage devenant pâle pour la première fois.
+Le corps de Gu Dao trembla et il cracha une bouchée de sang. Il recula de plus de cent pieds avant de s'arrêter, son visage devenant pâle pour la première fois.
 
 « Le stade du Piétinement des Cieux! C'est le stade complet du Piétinement des Cieux! » Il était sous le choc en regardant Wang Lin. Il sentait qu'une puissance terrifiante était en train de s'éveiller.
 

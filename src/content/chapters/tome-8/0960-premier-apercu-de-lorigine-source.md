@@ -64,7 +64,7 @@ C'était comme si un artiste martial mortel venait d'ouvrir tous ses méridiens.
 
 Alors que l'énergie originelle circulait frénétiquement, le troisième œil de Wang Lin s'ouvrit silencieusement, créant une brèche. Cependant, aucune lumière rouge n'en jaillit; au contraire, c'était comme si l'œil absorbait quelque chose. Cela accéléra encore davantage la circulation de l'énergie originelle dans son corps!
 
-Cette vitesse atteignait déjà un niveau inimaginable, mais Wang Lin ne ressentait aucune douleur. Il semblait stupéfait, les yeux rivés sur la flamme. La conviction qui émanait de son regard atteignit son paroxysme.
+Cette vitesse atteignait déjà un niveau inimaginable, mais Wang Lin ne ressentait aucune douleur. Il semblait stupéfait, les yeux rivés sur la flamme. L'incrédulité qui émanait de son regard atteignit son paroxysme.
 
 Il ne pouvait croire ce qu'il voyait. Ce qui se présentait à lui n'était plus une simple flamme de bougie, mais une lueur extrêmement ténue: la flamme que Wang Lin avait lui-même créée auparavant.
 

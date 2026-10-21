@@ -12,7 +12,7 @@ Il créa des ondes de choc qui se propagèrent dans toutes les directions.
 
 Tous les cultivateurs reculèrent, l'expression incertaine.
 
-Un vieil homme était assis au sommet du cercueil. Il regarda calmement Wang Lin avec un regard complexe.
+Un vieil homme était assis au sommet du cercueil. Il fixa Wang Lin sans cligner des yeux, avec un regard complexe.
 
 Le vieil homme demanda lentement: « Tu savais que j'étais là? »
 
@@ -46,7 +46,7 @@ L'expression de Wang Lin resta cependant imperturbable. Il observa calmement les
 
 Après un long moment, le vieil homme revint, enveloppé d'une puissante aura meurtrière. Ses yeux étaient encore plus rouges que précédemment lorsqu'il fixa Wang Lin. Après un long silence, il lança un morceau de jade qui jaillit comme l'éclair. Wang Lin l'attrapa.
 
-« Durant ces mille ans, je t'aiderai une fois! Tu as intérêt à rester en vie pour moi! » Une fois ses mots prononcés, le vieil homme monta sur son cercueil et disparut.
+« Durant ces mille ans, je t'aiderai une fois! Tu as intérêt à rester en vie pour moi! » Une fois ses mots prononcés, le vieil homme s'éleva dans les airs avec son cercueil et disparut.
 
 Wang Lin réfléchit un instant avant de frapper son sac de rangement pour en sortir la boussole stellaire. Il sauta dessus, puis se retourna vers Chi Hu: « Frère Chi Hu, montez. Retournons à Suzaku. »
 
@@ -108,7 +108,7 @@ Après avoir déclaré cela, Chi Hu entra immédiatement en culture de méditati
 
 Par la suite, une fois rétablie, Papillon Rouge envoya un message à travers Suzaku: « Ceng Niu, notre combat n'est pas terminé! Je t'attends! »
 
-« Ceng Niu, qui es-tu au juste?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Papillon Rouge, mais aussi l'esprit de tous. Qui était réellement ce Ceng Niu? Bien que Papillon Rouge ait fait réaliser son portrait, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
+« Ceng Niu, qui es-tu au juste?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Papillon Rouge, mais aussi l'esprit de tous. Qui était réellement ce Ceng Niu? Bien que Papillon Rouge ait enregistré une image, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
 
 Dans une petite secte d'un pays de culture de rang 4, un homme d'âge mûr marmonna pour lui-même: « Ceng Niu... c'est le nom de mon père. Il s'appelait Ceng Daniu... »
 

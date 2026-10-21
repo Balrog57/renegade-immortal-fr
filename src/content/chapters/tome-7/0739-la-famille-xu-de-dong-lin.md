@@ -54,7 +54,7 @@ Impassible, Wang Lin frappa son sac de rangement, et un objet apparut dans sa ma
 
 Alors que le rideau d'eau approchait, Wang Lin pressa sa main droite sur la montagne, une lueur mystérieuse dans les yeux. Lorsqu'il leva la main, des filaments de l'âme de la montagne furent extirpés, comme s'ils se tiraient mutuellement vers l'extérieur.
 
-Lorsque sa main redescendit, l'âme de la montagne s'était transformée en une sphère de brume dégageant une aura ancestrale.
+Lorsque sa main fut entièrement levée et ouverte, l'âme de la montagne s'était transformée en une sphère de brume dégageant une aura ancestrale.
 
 Le corps de Wang Lin fut aussi rapide que l'éclair, provoquant un rugissement tonitruant dans son élan. Tenant la brume, il chargea précisément au moment où le rideau d'eau allait le frapper. L'eau pénétra son corps avant de se transformer en une énergie démoniaque glaciale, semblable à une immense goutte d'eau, qui l'enveloppa aussitôt.
 

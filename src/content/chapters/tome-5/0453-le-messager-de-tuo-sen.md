@@ -76,7 +76,7 @@ Dans la mer de sang, aux profondeurs des terres du Dieu Ancien, sur l'unique pil
 
 « J'ai passé tant d'années et déployé tant d'efforts, au prix fort, pour enfin trouver ce cristal si bien caché. Après l'avoir fusionné avec moi, j'ai retrouvé bien des souvenirs. »
 
-« Au fil des ans, je pouvais sentir un pouvoir mystérieux croître au cœur de cette planète. Ce pouvoir ressemble à la croissance d'un jeune Dieu Ancien; c'est ce que vos cultivateurs appellent le Cristal de Planète de Culture. Je peux utiliser cet objet pour briser mon sceau, puis employer une technique d'échange d'âme pour quitter ce lieu. »
+« Au fil des ans, je pouvais sentir un pouvoir mystérieux croître au cœur de cette planète. Ce pouvoir ressemble à la croissance d'un jeune Dieu Ancien; c'est ce que vos cultivateurs appellent le Cristal de Planète de Culture. Grâce à cet objet, mon sceau pourra présenter une faille, me permettant d'employer une technique d'échange d'âme pour quitter ce lieu. »
 
 « Je devrai remercier Tu Si. Lorsqu'il a choisi cet endroit pour diviser sa conscience, certains indigènes l'ont élevé au rang de dieu. Tout cela est consigné dans ce dernier cristal de connaissance. Tu Si leur a répondu et leur a fait établir les lieux sacrificiels du Dieu Ancien. »
 
@@ -90,7 +90,7 @@ Tuo Sen leva la tête et éclata de rire. Son rire emplissait toute la mer de sa
 
 Ses yeux brillaient d'un rouge intense. Cette lueur semblait bien plus épaisse que le sang de la mer elle-même.
 
-« Wang Lin, le jour où je, Tuo Sen, m'échapperai est proche! Une fois que je t'aurai dévoré, je serai un Dieu Ancien, un Dieu Ancien à huit étoiles! À ce moment-là, qui dans ce ciel étoilé pourra rivaliser avec moi?! »
+« Wang Lin, le jour où je, Tuo Sen, m'échapperai est proche! Une fois que j'aurai dévoré ton héritage, je serai un Dieu Ancien, un Dieu Ancien à huit étoiles! À ce moment-là, qui dans ce ciel étoilé pourra rivaliser avec moi?! »
 
 Alors que Tuo Sen riait, des petits cris s'élevèrent de la mer de sang. Deux petits singes apparurent et se glissèrent aux côtés de Tuo Sen.
 
@@ -98,13 +98,13 @@ Les yeux de ces deux créatures émettaient une lueur rouge démoniaque.
 
 À cet instant précis, dans le Tombeau de Suzaku, les yeux du vieil homme au sourire effrayant brillèrent d'un éclat rouge. Les yeux du singe sur son épaule étaient encore plus écarlates.
 
-Lorsque le petit singe poussa un cri, le vieil homme marqua une pause et regarda au loin. Ses yeux s'illuminèrent de nouveau d'un rouge sanglant.
+Lorsque le petit singe poussa un cri, la lueur rouge dans les yeux du vieil homme s'estompa, et il se retourna pour regarder au loin. Ses yeux s'illuminèrent de nouveau d'un rouge sanglant.
 
 « Il est là! » Le vieil homme s'apprêtait à bouger quand le singe sur son épaule laissa échapper un grognement.
 
 Mais le vieillard hésita un instant avant de faire demi-tour et de partir. Son objectif était le centre du Tombeau de Suzaku.
 
-Tandis que le vieil homme s'éloignait, le petit singe scruta devant lui et ses yeux rougeoyèrent.
+Tandis que le vieil homme s'éloignait, le petit singe scruta derrière lui et ses yeux rougeoyèrent.
 
 Ce vieil homme était extrêmement rapide; il semblait capable de prédire l'apparition des failles, ce qui lui permettait de les esquiver avec aisance. Malgré sa grande vitesse, aucun danger ne semblait l'atteindre.
 

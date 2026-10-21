@@ -40,7 +40,7 @@ Les disciples internes de la Secte Heng Yue étaient tous confus, mais ils senta
 
 Wang Lin fut alarmé. Il semblait que ce que Situ Nan avait dit soit vrai: le monde de la culture était véritablement divisé par les rangs.
 
-Le visage de Sun Dazhu était livide et son regard éteint. Il murmura pour lui-même: « C'est fini... tout est fini... tous les ancêtres de la Secte Heng Yue sont morts. Auparavant, nous pouvions au moins compter sur eux pour intimider les autres sectes et tenir bon, mais maintenant qu'ils sont morts, c'est la fin. Damnation! Si le pays Qinglong, un pays de rang 4, n'avait pas, il y a 500 ans, drainé tous les cultivateurs de l'Âme Naissante de Zhao pour la lutte autour des étoiles de culture extérieures, la Secte Heng Yue n'en serait pas arrivée là. »
+Le visage de Sun Dazhu était livide et son regard éteint. Il murmura pour lui-même: « C'est fini... tout est fini... tous les ancêtres de la Secte Heng Yue sont morts. Auparavant, nous pouvions au moins compter sur eux pour intimider les autres sectes et tenir bon, mais maintenant qu'ils sont morts, c'est la fin. Damnation! Si le pays Qinglong, un pays de rang 4, n'avait pas, il y a 500 ans, drainé tous les ancêtres de l'Âme Naissante de Zhao pour la lutte autour des étoiles de culture extérieures, la Secte Heng Yue n'en serait pas arrivée là. »
 
 Huang Long, percevant l'inquiétude de ses frères et des disciples internes, réprima l'agitation dans son cœur et cria: « Tout le monde à la Secte Heng Yue, cessez de paniquer! Que cela soit vrai ou non, ce sera vérifié par l'Ancien de la Formation du Noyau. De quoi vous inquiétez-vous? Lu Song, continue l'échange! »
 

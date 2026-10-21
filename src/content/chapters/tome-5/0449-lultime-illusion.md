@@ -19,7 +19,7 @@ Ses yeux étaient indifférents, impitoyables et glacials. Bien qu'elle ressembl
 
 Seul celui qui possède des émotions peut s'en affranchir.
 
-Et les cieux étaient, par nature, dépourvus d'émotions. Puisqu'il n'y avait aucune émotion à trancher au départ, cela représentait un degré supérieur.
+Et ceux qui sont, par nature, dépourvus d'émotions. Puisqu'il n'y avait aucune émotion à trancher au départ, cela représentait un degré supérieur.
 
 Le dragon descendit et sa gueule gigantesque atteignit le paon. En un éclair, le dragon se divisa en de fines particules de brume grise qui enveloppèrent l'oiseau.
 
@@ -65,7 +65,7 @@ La silhouette séduisante de Mei Ji apparut à l'intérieur. Sa voix cristalline
 
 Elle laissa échapper un rire charmeur qui surprit même Wang Lin, lui prenant quelques instants pour reprendre ses esprits.
 
-Une brume noire s'échappa de l'épée céleste tandis que Xu Liguo fixait Mei Ji, le regard brûlant de désir.
+Une brume noire s'échappa de l'épée céleste et Xu Liguo s'y matérialisa tandis qu'il fixait Mei Ji, le regard brûlant de désir.
 
 « C'est... » La voix hésitante de Liu Mei émana du paon.
 

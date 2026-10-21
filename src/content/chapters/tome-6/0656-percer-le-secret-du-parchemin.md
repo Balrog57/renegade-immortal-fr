@@ -10,7 +10,7 @@ Wang Lin s'arrêta.
 
 « Je vous en supplie, descendez... Emmenez-moi avec vous... » Une voix empreinte de tristesse et d'urgence résonna.
 
-Wang Lin réfléchit. Cette voix, disparue depuis treize ans, échoit à nouveau dans son esprit. Durant ces treize années passées à tenter de comprendre la force d'aspiration, cette femme n'avait jamais prononcé un mot. Pourtant, ses paroles étaient désormais chargées d'une émotion qui n'existait pas auparavant.
+Wang Lin se tut. Cette voix, disparue depuis treize ans, échoit à nouveau dans son esprit. Durant ces treize années passées à tenter de comprendre la force d'aspiration, cette femme n'avait jamais prononcé un mot. Pourtant, ses paroles étaient désormais chargées d'une émotion qui n'existait pas auparavant.
 
 De sa main droite, il toucha le sac de rangement et le parchemin s'en échappa. Le rouleau dégageait une douce lumière et la force d'aspiration n'eut aucun effet sur lui. Le parchemin se déroula, révélant la silhouette de la femme vue de dos.
 

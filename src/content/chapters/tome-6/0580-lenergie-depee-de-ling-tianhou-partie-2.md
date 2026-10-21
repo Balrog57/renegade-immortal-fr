@@ -70,7 +70,7 @@ En y regardant de plus près, cette fine ligne était manifestement une épée, 
 
 « Puisque j'ai aperçu ce rayon d'énergie d'épée, il m'appartiendra! »
 
-Il ferma les yeux et posa son bras sur son genou. Un éclat de lumière jaillit au-dessus de sa tête alors que son âme originelle quittait son corps. Des sceaux vitaux enveloppèrent son âme comme des couches d'armure.
+Il ferma les yeux et posa ses deux mains sur ses genoux. Un éclat de lumière jaillit au-dessus de sa tête alors que son âme originelle quittait son corps. Des sceaux vitaux enveloppèrent son âme comme des couches d'armure.
 
 L'âme originelle de Wang Lin s'approcha de celle de Mo Yang. Après une courte réflexion, il cracha une flamme originelle qui fusionna avec la flamme fantomatique, laquelle se mit soudain à brûler avec une intensité accrue.
 

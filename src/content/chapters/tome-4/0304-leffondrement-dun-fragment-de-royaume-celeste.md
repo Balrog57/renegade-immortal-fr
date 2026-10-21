@@ -22,7 +22,7 @@ Wang Lin avait cultivé longtemps dans la perle défiant le ciel et maîtrisait 
 
 Une lumière mystérieuse émana de la gravure et se répandit dans la glace noire. Bien que la glace noire fût puissante, Wang Lin ne l'affrontait pas de front; le domaine temporel la rendit seulement un peu moins rigide, ce qui ne fut pas trop difficile.
 
-En empruntant un fragment de pouvoir du domaine temporel, Wang Lin ne fut pas entravé par la glace noire comme Sun Lei l'avait imaginé. À peine Sun Lei eut-il fini de prononcer ses mots que Wang Lin s'avança.
+En empruntant un fragment de pouvoir du domaine temporel, Wang Lin ne fut pas entravé par la glace noire comme Sun Lei l'avait imaginé. À peine Sun Lei eut-il fini de prononcer ses mots que Wang Lin s'en échappa.
 
 Il se déplaça à une vitesse dépassant même celle de Sun Lei, passant devant les créatures célestes pour apparaître à l'entrée de la grotte.
 
@@ -40,7 +40,7 @@ Mais dès que sa main toucha l'arme, il poussa un gémissement misérable alors 
 
 Wang Lin ne daigna même pas un regard vers lui et s'élança hors de la grotte. Il sortit son drapeau de restriction, qui émit de nombreux dragons faits de brume noire. Ces derniers encerclèrent Wang Lin, puis il chargea directement vers le haut, perçant les parois.
 
-Les yeux de Sun Lei devinrent rouges de rage; il poussa un rugissement de frustration et tendit à nouveau la main vers l'épée. Cette fois, il endura la douleur et parvint enfin à saisir l'épée céleste. Cependant, au même instant, un cri perçant lui échappa alors que sa main était transpercée de multiples fois. Une partie de l'énergie de l'épée traversa sa main pour frapper sa poitrine, faisant fondre l'armure d'argent qu'il portait.
+Les yeux de Sun Lei devinrent rouges de rage; il poussa un rugissement de frustration et tendit à nouveau la main vers l'épée. Cette fois, il endura la douleur et parvint enfin à saisir l'épée céleste. Cependant, au même instant, un cri perçant lui échappa alors que sa main était transpercée de multiples fois. L'énergie de l'épée frappa aussi sa poitrine, faisant fondre l'armure d'argent qu'il portait.
 
 Sun Lei retira promptement sa main et renonça à l'épée. Il poussa un rugissement de colère et s'élança hors de la grotte. Selon ses calculs, huit respirations s'étaient écoulées; s'il partait maintenant, il pourrait encore s'en sortir. S'il tardait davantage, la situation deviendrait périlleuse.
 

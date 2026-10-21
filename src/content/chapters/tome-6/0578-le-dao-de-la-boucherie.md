@@ -30,7 +30,7 @@ L'énergie de l'épée se rapprocha brusquement et franchit les 3,3 kilomètres 
 
 Les sifflements stridents se mêlaient à la musique de la cithare, créant une harmonie singulière!
 
-Wang Lin ne tourna pas la tête et ne daigna même pas regarder l'assaillant. Il leva simplement son pouce droit vers l'énergie de l'épée entrante et utilisa une fois de plus le Doigt de la Mort!
+Wang Lin ne tourna pas la tête et ne daigna même pas regarder l'assaillant. Il appuya simplement son pouce droit vers l'énergie de l'épée entrante et utilisa une fois de plus le Doigt de la Mort!
 
 Un rayon de lumière noire jaillit à nouveau. D'une rapidité fulgurante, il chargea l'énergie de l'épée. En un instant presque imperceptible, les deux forces entrèrent en collision!
 

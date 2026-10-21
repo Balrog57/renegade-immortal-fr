@@ -30,7 +30,7 @@ Le cœur du vieil homme de l'Âme Naissante battait la chamade et il n'osait plu
 
 Wang Lin leva les yeux vers la formation. Bien qu'elle lui semble rudimentaire, elle possédait néanmoins une certaine complexité.
 
-Au moment où il redressa la tête, une lueur meurtrière traversa les yeux du vieil homme qui se précipita dehors. Il utilisa le sort de téléportation, une technique réservée aux cultivateurs de l'Âme Naissante!
+Au moment où il redressa la tête, une lueur meurtrière traversa les yeux du vieil homme qui s'élança en avant. Il utilisa le sort de téléportation, une technique réservée aux cultivateurs de l'Âme Naissante!
 
 La téléportation constituait la différence la plus flagrante entre les cultivateurs de l'Âme Naissante et ceux de la Formation du Noyau. Un vieux monstre de l'Âme Naissante doté de cette capacité était d'une puissance dépassant l'entendement pour un expert de la Formation du Noyau.
 
@@ -74,11 +74,11 @@ Cette liste comptait au total 800 noms, chacun associé à un nombre représenta
 
 Wang Lin regarda le premier nom et fronça les sourcils. « 1 900 007 000... » La personne en tête de liste s'appelait Maître Spruce.
 
-« 1 300 009 000... » Le second était nommé Lotus.
+« 1 300 009 000... » Le second était nommé Furong.
 
 Après un examen rapide, il nota que même le 800e nom possédait plus de 400 000 cristaux de tonnerre. Quant au vieil homme de la grotte, il n'en avait que 70 000, ce qui était insignifiant.
 
-Les cristaux de tonnerre n'étaient pas de simples objets ou des noms symboliques; il existait de nombreuses façons de les obtenir. Le moyen le plus rapide consistait à faire un tribut au Clan du Tonnerre Dispersé. Qu'il s'agisse de sorts, de trésors magiques, de pilules, de matériaux d'alchimie et de forge ou même de Flammes Joss, tout pouvait être échangé contre des cristaux. Les Flammes Joss rapportaient le plus, le reste dépendant du rang.
+Les cristaux de tonnerre n'étaient pas des objets réels, mais une simple dénomination; il existait de nombreuses façons de les obtenir. Le moyen le plus rapide consistait à faire un tribut au Clan du Tonnerre Dispersé. Qu'il s'agisse de sorts, de trésors magiques, de pilules, de matériaux d'alchimie et de forge ou même de Flammes Joss, tout pouvait être échangé contre des cristaux. Les Flammes Joss rapportaient le plus, le reste dépendant du rang.
 
 Ce n'était pas la première fois qu'il rencontrait un tel système. La Terre des Esprits Démons fonctionnait de manière similaire, mais avec des mérites de guerre au lieu des cristaux de tonnerre. De cette façon, le Clan du Tonnerre Dispersé mobilisait l'ensemble de ses membres pour accumuler des ressources, ce qui, en plus d'améliorer la culture de chacun, permettait de constituer un trésor collectif.
 

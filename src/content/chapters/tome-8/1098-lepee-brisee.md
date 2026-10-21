@@ -84,7 +84,7 @@ Il avait ouvertement diffusé la nouvelle concernant le dieu ancien, et tout le 
 
 Si Wang Lin n'était pas devenu l'Empereur Divin de l'Oiseau Vermillon en diffusant cette information, cela n'aurait eu aucun effet. Au contraire, il se serait attiré un péril mortel. Que ce soit la Secte des Cadavres ou Luotian, ils l'auraient d'abord capturé pour l'interroger.
 
-Cependant, à présent, ni la Secte des Cadavres ni Luotian n'avaient le choix. Après tout, il existait une troisième force avec laquelle ils ne pourraient jamais s'entendre: les cultivateurs de l'Alliance! De plus, les mystères entourant les Quatre Sectes Divines et leur ancien statut d'hégémon du système suffisaient à dissuader quiconque. Ils savaient que le prix de la guerre serait trop élevé!
+Cependant, à présent, ni la Secte des Cadavres ni Luotian ne feraient ce choix. Après tout, il existait une troisième force avec laquelle ils ne pourraient jamais s'entendre: les cultivateurs de l'Alliance! De plus, les mystères entourant les Quatre Sectes Divines et leur ancien statut d'hégémon du système suffisaient à dissuader quiconque. Ils savaient que le prix de la guerre serait trop élevé!
 
 C'était là la véritable raison pour laquelle Wang Lin osait répandre cette nouvelle.
 

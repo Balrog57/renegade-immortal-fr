@@ -92,4 +92,4 @@ L'expression de Wang Lin ne changea pas tandis qu'il hochait silencieusement la 
 
 La famille Huan possédait une grande quantité de Fruits d'Ascension Céleste, mais cela ne suffirait toujours pas aux besoins de Wang Lin.
 
-« Il semble que je doive emprunter le nom du Temple Céleste du Tonnerre et parcourir ce domaine nordique pour en obtenir davantage! » Wang Lin caressa la tête de la Bête du Tonnerre.
+« Il semble que je doive emprunter le nom du Temple Céleste du Tonnerre et parcourir ce domaine nordique du Système Stellaire de Luotian pour en obtenir davantage! » Wang Lin caressa la tête de la Bête du Tonnerre.

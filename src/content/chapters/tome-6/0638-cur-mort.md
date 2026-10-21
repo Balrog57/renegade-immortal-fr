@@ -48,7 +48,7 @@ Au moment où il traça le septième trait, toute l'énergie spirituelle célest
 
 Les sept traits fusionnèrent pour devenir un symbole circulaire. Ce symbole paraissait d'une puissance extrême, comme s'il contenait l'univers tout entier. On aurait dit que le soleil était descendu du ciel pour tomber dans la faille. Non seulement les rayons de lumière dorée étaient éblouissants, mais ils blessaient également l'âme.
 
-Le symbole céleste créé avec le pinceau céleste et l'énergie spirituelle céleste était considéré comme un sortilège céleste complet! Sa lumière perça la falaise de l'Abîme des Marées telle une épée.
+Le symbole céleste créé avec le pinceau céleste et les caractères et talismans célestes était considéré comme un sortilège céleste complet! Sa lumière perça la falaise de l'Abîme des Marées telle une épée.
 
 À cet instant, si quelqu'un regardait depuis l'extérieur, il pourrait clairement voir la lumière dorée jaillir de la fissure. Cette lueur continua de se propager et illumina bientôt l'entrée du Pays des Démons de l'Eau dans l'Abîme des Marées, restée plongée dans l'obscurité depuis d'innombrables années.
 

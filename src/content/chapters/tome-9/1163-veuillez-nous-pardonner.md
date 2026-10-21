@@ -78,7 +78,7 @@ Wang Lin dit calmement: « Vous pouvez continuer vos recherches. »
 
 « Si notre secte apprend que nous avons offensé un vieux monstre possédant un domaine Dao, il sera difficile d'éviter la punition. Même notre secte n'offenserait pas si facilement un cultivateur aussi puissant. Sans parler du fait qu'il a blessé Zhou Hai d'un simple geste; s'il avait voulu le tuer, Zhou Hai serait déjà mort. » En soupirant, Feng Peishan se remémora les paroles de son maître avant son départ.
 
-Son maître lui avait dit qu'il existait de nombreuses personnes au-dessus de lui et que de nombreux vieux monstres étaient cachés dans l'ombre. Certains vivaient forcément dans des sectes de rang 5. Beaucoup de ces sectes possédaient des héritages anciens, et certains de leurs membres, bien qu'ayant décliné en notoriété, pouvaient posséder une puissance capable de secouer les cieux. Bien que ces individus ne soient pas célèbres, il fallait être extrêmement prudent s'ils étaient croisés.
+Son maître lui avait dit qu'il existait de nombreuses personnes au-dessus de lui et que de nombreux vieux monstres étaient cachés dans l'ombre. Certains vivaient forcément dans des sectes de rang 5. Beaucoup de ces sectes possédaient des héritages anciens, et certains de leurs membres, bien que partis autrefois, pouvaient posséder une puissance capable de secouer les cieux. Bien que ces individus ne soient pas célèbres, il fallait être extrêmement prudent s'ils étaient croisés.
 
 C'était pour cette raison qu'il convenait d'expliquer les choses poliment et de ne pas les offenser lors de cette fouille.
 
@@ -110,7 +110,7 @@ Le regard de Wang Lin se détacha de l'horizon. Sa décision était prise dès a
 
 Il n'avait pas la capacité ni le temps de les effacer. Plus important encore, plus il tenterait d'effacer ses traces, plus il risquait d'en créer de nouvelles.
 
-« L'essentiel pour moi est d'augmenter mon niveau de culture le plus vite possible! Si je suis découvert, je n'aurai qu'à me rendre plus tôt dans le Royaume Céleste du Vent! » D'après les souvenirs de la Vieille Poisonneuse et les archives de la Secte de l'Origine, il savait que le Royaume Céleste du Vent était ouvert. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément; ils se contentaient de collecter des trésors en périphérie.
+« L'essentiel pour moi est d'augmenter mon niveau de culture le plus vite possible! Si je suis découvert, je n'aurai qu'à me rendre plus tôt dans le Royaume Céleste du Vent! » D'après les souvenirs de la Vieille Poisonneuse et les archives de la Secte de l'Origine, il savait que le Royaume Céleste du Vent n'avait pas besoin d'être ouvert et restait ouvert en permanence. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément; ils se contentaient de collecter des trésors en périphérie.
 
 « Le Royaume Céleste du Vent est mon atout pour éliminer Tuo Sen... » Une lueur de froideur apparut dans les yeux de Wang Lin. S'il accordait tant d'importance à la technique de mutation apprise dans les souvenirs de la vieille femme, c'était parce qu'une fois maîtrisée, ses chances de réussite dans le Royaume Céleste du Vent seraient bien plus grandes.
 

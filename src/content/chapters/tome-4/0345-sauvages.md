@@ -102,7 +102,7 @@ Le sauvage fit un mouvement singulier pour esquiver l'épée tout en balayant l'
 
 Après son assaut, le sauvage se retira rapidement.
 
-Le vieux Hu grogna: « Reste là! » Sans bouger, il tendit sa main droite.
+Le vieux Hu grogna: « Reste là! » Sans bouger, il saisit l'air de sa main droite.
 
 Le sauvage laissa échapper un rugissement étrange tandis que les marques sur ses membres s'animaient. Une fumée noire s'échappa de ces marques pour pénétrer son corps, puis il projeta son bras.
 

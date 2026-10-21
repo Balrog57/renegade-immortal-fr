@@ -98,7 +98,7 @@ Soudain, tout devint silencieux. Li Muwan resta stupéfaite, oubliant même de l
 
 Voyant l'état de Li Muwan, Wang Lin ressentit un pincement au cœur et desserra doucement sa prise.
 
-« Je m'appelle Wang Lin. » À ces mots, Li Muwan recula brusquement de plus de mille pieds. Elle marqua une pause, le regardant avec timidité, puis s'inclina devant lui pour le remercier avant de partir précipitamment.
+« Je m'appelle Wang Lin. » À ces mots, Li Muwan recula brusquement de plusieurs centaines de pieds. Elle marqua une pause, le regardant avec timidité, puis s'inclina devant lui pour le remercier avant de partir précipitamment.
 
 En observant la silhouette manifestement effrayée de Li Muwan, Wang Lin afficha un sourire heureux. Cependant, l'amertume et la tristesse dissimulées sous ce sourire restaient invisibles pour autrui.
 

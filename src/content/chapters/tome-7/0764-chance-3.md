@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 764 - Chance (3)
 slug: chance-3
 ---
-L'effondrement de l'espace de stockage l'avait contraint à utiliser le sort de fusion du sang originel. Il se considérait désormais comme malchanceux d'avoir rencontré ce vieil homme qui lui avait dérobé la moitié de son âme originelle, ainsi que la moitié de l'énergie originelle qu'il avait mis d'innombrables années à cultiver.
+L'effondrement de l'espace de stockage l'avait contraint à utiliser la technique de dissolution de l'esprit et de transformation du sang. Il se considérait désormais comme malchanceux d'avoir rencontré ce vieil homme qui lui avait dérobé la moitié de son âme originelle, ainsi que la moitié du corps de sang formé de l'énergie originelle qu'il avait mis d'innombrables années à cultiver.
 
 Cela avait considérablement réduit son niveau de culture, mais cela n'aurait pas été un problème si ce n'était pour la dernière attaque du vieil homme qui l'avait replongé dans un état de léthargie, l'obligeant à attendre que les gouttes de sang se rassemblent à nouveau. De plus, l'assaut du vieil homme contenait une force puissante qui agissait comme une prison.
 

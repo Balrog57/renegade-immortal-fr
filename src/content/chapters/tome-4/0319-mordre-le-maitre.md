@@ -36,7 +36,7 @@ Tenant la lumière dorée, le cadavre féminin la pointa vers l'âme originelle 
 
 « Après m'avoir protégé pendant plus de 2000 ans, tu as bien travaillé! Je te donne l'âme d'une épée céleste. Dans 10 000 ans, tu deviendras un saint céleste! »
 
-Elle se retourna et lança un regard glacial à Chi Hu et au vieil homme. Enfin, son regard se posa sur Wang Lin. Elle l'examina attentivement, puis agita doucement la main pour que la pagode s'envole vers lui.
+Elle se retourna et lança un regard glacial à Wang Lin et aux autres. Enfin, son regard se posa sur Wang Lin. Elle l'examina attentivement, puis agita doucement la main pour que la pagode s'envole vers lui.
 
 Puis, la lumière dorée qu'elle tenait se transforma en un dragon d'or gigantesque qui l'emporta et disparut à travers le vide.
 

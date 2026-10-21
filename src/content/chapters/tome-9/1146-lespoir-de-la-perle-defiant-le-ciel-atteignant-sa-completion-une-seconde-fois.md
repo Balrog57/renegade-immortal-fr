@@ -58,7 +58,7 @@ Après un long moment, Lu Yanfei mordit sa lèvre inférieure et demanda douceme
 
 En vérité, il y a fort longtemps dans le Système Stellaire de l'Alliance, une femme avait posé la même question et reçu la même réponse. Après tout, que ce soit le corps original ou l'avatar, les deux étaient Wang Lin.
 
-Lu Yanfei laissa échapper un sourire d'une grande beauté. Elle s'inclina vers la maison et dit doucement: « Maître avait un oncle-maître nommé Lu Zihao. Selon Maître, le Grand Oncle-maître Lu Zihao était obsédé par le Dao. Hormis lors de sa disparition, il n'avait jamais quitté le continent de Mo Luo. Il ne se rendait même jamais à la secte principale et n'avait guère d'amis. Avec le temps, peu de gens au sein de la Secte de l'Origine se souviennent de lui. »
+Lu Yanfei laissa échapper un sourire d'une grande beauté. Elle s'inclina vers la maison et dit doucement: « Maître avait un oncle-maître nommé Lu Zihao. Selon Maître, le Grand Oncle-maître Lu Zihao était obsédé par le Dao. Hormis lors de sa disparition, il n'avait jamais quitté le continent de Mo Luo. Il ne se rendait même jamais à la secte principale et n'avait guère d'amis. Avec le temps, plus personne au sein de la Secte de l'Origine ne l'a jamais vu. »
 
 « Même mes trois frères apprentis aînés ne l'ont jamais vu. Je n'ai vu qu'un portrait de lui, que Maître m'a montré. Il me l'a confié… car ce Grand Oncle-maître Lu est un ancêtre de ma famille Lu. Ce portrait était très ancien et en lambeaux. En revenant à l'instant, il a été détruit. »
 

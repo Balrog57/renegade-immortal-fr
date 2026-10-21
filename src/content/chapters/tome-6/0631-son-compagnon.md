@@ -78,7 +78,7 @@ Cependant, plus cette aura est pure, moins j'ose la dévorer... » À la pensée
 
 Plus important encore, une intention très bien dissimulée se cachait dans cette aura. Une intention qui m'a fait frémir dès que je l'ai perçue. La seule chose capable de dégager un tel sentiment est le lignage royal...
 
-C'est grâce à cette aura que j'ai pu prendre forme en empruntant son sang, sans craindre l'effondrement de mon esprit. À l'époque, je ne lui avais pas dit la vérité. Même si quelqu'un possédait l'aura d'un dieu ancien, cela n'aurait pas suffi pour que je prenne forme sans cette trace du lignage royal!
+C'est grâce à cette aura que j'ai pu prendre forme en empruntant son sang, sans craindre de faire s'effondrer son esprit. À l'époque, je ne lui avais pas dit la vérité. Même si quelqu'un possédait l'aura d'un dieu ancien, cela n'aurait pas suffi pour que je prenne forme sans cette trace du lignage royal!
 
 Si l'Ancien Diable Ta Jia et moi avons pu survivre jusqu'ici, alors un dieu ancien le peut aussi. Si j'extrais et absorbe cette aura, ce serait comme planter une graine de trouble pour l'avenir!
 

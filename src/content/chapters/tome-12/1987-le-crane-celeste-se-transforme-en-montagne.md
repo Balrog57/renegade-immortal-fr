@@ -98,7 +98,7 @@ Wang Lin hésita, puis, après avoir serré les dents, il se jeta dans l'eau. D�
 
 Le ciel était rouge comme le bassin de sang. À cet instant, une faille s'ouvrit dans les cieux, des vagues de sang déferlèrent, et Wang Lin ainsi que l'Enseignant Impérial tombèrent à travers. La paume dorée et la silhouette de Ming Dao les suivirent.
 
-Neuf montagnes étranges se dressaient sur le sol!
+Six montagnes étranges se dressaient sur le sol!
 
 L'une d'elles était sculptée en forme de crâne. Ce crâne regardait le ciel, et il ressemblait trait pour trait à l'Ancêtre Céleste!
 

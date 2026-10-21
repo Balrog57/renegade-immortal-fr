@@ -132,7 +132,7 @@ Sous la lune, il semblait marcher sur l'astre lui-même. Ses vêtements flottaie
 
 « Faites attention au Maître! » La voix de Wang Lin résonna dans les oreilles de Chen Tao. Ce dernier fixa le ciel pendant un long moment, incapable de prononcer un mot.
 
-Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme des Marées. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir cette terre pour atteindre la Mer des Esprits Démoniaques de l'Est.
+Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme des Marées. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir la limite du ciel pour atteindre la Mer des Esprits Démoniaques de l'Est.
 
 Devant la porte de la Mer des Esprits Démoniaques, l'Omniscient, Ling Tianhou, l'Ancêtre Sanguin et sept ou huit anciens se tenaient là.
 

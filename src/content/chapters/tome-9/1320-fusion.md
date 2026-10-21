@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1320 - Fuse
 slug: fusion
 ---
-Le premier sort que le Maître du Dao Rêve Bleu déploya fut une technique offensive d'une puissance extrême!
+Le premier sort transmis par le Maître du Dao Rêve Bleu, le Sceau d'Inversion Céleste, était une technique offensive d'une puissance extrême!
 
 Le second, le Bouclier de Lumière et d'Ombre, représentait l'apogée de la défense! Lorsque ces deux sorts se manifestaient, le monde entier changeait de couleur!
 
@@ -66,7 +66,7 @@ Le temps passa: trois jours, sept jours, une demi-lune... sans qu'il s'en rende 
 
 Après un mois, Wang Lin était toujours assis là, immobile. Ses yeux étaient injectés de sang et empreints de confusion. Des tempêtes déferlaient dans son esprit, résonnant comme des coups de tonnerre. Wang Lin tentait de comprendre ces trois sorts grandioses, mais ces techniques contenaient l'essence même du monde. Même avec la démonstration personnelle et les explications du Maître du Dao Rêve Bleu, leur apprentissage restait d'une difficulté extrême.
 
-« Le Sceau d'Inversion Céleste... faire du ciel la terre... » Wang Lin ferma les yeux comme s'il dormait, mais son esprit travaillait avec frénésie, tentant de déduire une restriction pour comprendre les changements opérés par ce sort.
+« Le Sceau d'Inversion Céleste... faire du ciel la terre... » Wang Lin ferma les yeux comme s'il dormait, mais dans son esprit, comme lorsqu'il déduisait des restrictions, il analysait frénétiquement les variations de ce sort.
 
 Un mois, deux mois... trois mois passèrent.
 

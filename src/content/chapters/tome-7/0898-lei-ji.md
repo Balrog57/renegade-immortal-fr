@@ -12,7 +12,7 @@ Wang Lin marchait en tête et traversa les grottes. D'un calme imperturbable, il
 
 En observant l'impasse scellée, rien ne semblait anormal en surface. Wang Lin se souvenait qu'une grotte se trouvait autrefois ici; c'est là qu'il avait cultivé la Méthode d'Ascension Souterraine.
 
-Sans s'arrêter, il se dirigea vers le mur. À mesure qu'il approchait, des fissures apparurent sur la paroi et, lorsqu'il atteignit l'obstacle, celui-ci s'effondra. C'était comme si une force étrange poussait vers l'avant. Rien ne pouvait entraver la progression de Wang Lin, tandis que des craquements résonnaient dans le tunnel. Au fur et à mesure qu'il avançait, le mur continuait de s'écrouler, ouvrant un passage derrière lui.
+Sans s'arrêter, il se dirigea vers le mur. À mesure qu'il approchait, des fissures apparurent sur la paroi et, lorsqu'il atteignit l'obstacle, celui-ci s'effondra. C'était comme si une force étrange poussait vers l'avant. Rien ne pouvait entraver la progression de Wang Lin, tandis que des craquements résonnaient dans le tunnel. Au fur et à mesure qu'il avançait, le mur continuait de s'écrouler, ouvrant un passage devant lui.
 
 Si un cultivateur avait été témoin de cette scène étrange, il en aurait été profondément stupéfait. Même si un cultivateur au stade Yin et Yang pouvait accomplir un tel exploit, cela resterait extrêmement difficile.
 
@@ -74,7 +74,7 @@ La force était la seule loi dans le monde de la culture!
 
 Les yeux de Wang Lin s'illuminèrent. Il tendit sa main droite vers Lei Ji, dont le corps se mit à trembler violemment. La vigne pourpre sur son corps commença à s'agiter.
 
-En un instant, les racines furent arrachées une à une et la vigne se contracta rapidement. Une pression écrasante surgit soudainement. Wang Lin fronça les sourcils en observant la plante.
+En un instant, les vignes furent arrachées une à une et la vigne se contracta rapidement. Une pression écrasante surgit soudainement. Wang Lin fronça les sourcils en observant la plante.
 
 Tandis que les vignes se rétractaient, elles poussèrent un cri strident. À mesure que les racines se retiraient, une plante extrêmement féroce, haute de plusieurs centaines de pieds, apparut dans les airs.
 
@@ -96,7 +96,7 @@ Alors que la plante démoniaque poussait un cri strident, ses vignes chargèrent
 
 Le Sceau Céleste provoqua un grondement sourd en s'abattant sur l'ennemi.
 
-Wang Lin leva sa main droite, imprégnée d'une intention tonnante. La foudre surgit du néant pour converger dans sa paume. Alors qu'il domptait la foudre des cieux, une sphère de foudre pourpre apparut en un éclair.
+Wang Lin leva sa main droite, ses yeux imprégnés d'une intention tonnante. La foudre surgit du néant pour converger dans sa paume. Alors qu'il domptait la foudre des cieux, une sphère de foudre pourpre apparut en un éclair.
 
 Il la projeta en avant, et la boule de tonnerre fonça droit sur la plante.
 

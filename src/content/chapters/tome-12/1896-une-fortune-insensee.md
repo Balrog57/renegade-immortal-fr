@@ -58,4 +58,4 @@ La lame ressemblait à une colonne vertébrale incurvée, offrant un spectacle t
 
 Le vieil homme semblait possédé par la démence alors que la brume se rassemblait rapidement à l'intérieur de Wang Lin. Elle s'engouffra dans sa main droite, qui devint instantanément noire, comme si elle avait été figée par une glace éternelle!
 
-Dans un craquement sinistre, une lame de neuf pouces jaillit de la paume de sa main!
+Dans un craquement sinistre, une lame de neuf pieds jaillit de la paume de sa main!

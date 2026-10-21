@@ -7,7 +7,7 @@ en: Chapter 291 - No Name (2)
 slug: sans-nom-2
 ---
 
-Après avoir placé dix-huit nouveaux ensembles de restrictions différentes sur le drapeau, Wang Lin laissa échapper un soupir. Il avait déjà fait de son mieux. S'il souhaitait continuer, il lui faudrait étudier davantage de restrictions, en combinant les atouts de toutes les écoles; c'était l'unique moyen d'augmenter la proportion de restrictions purement offensives.
+Après avoir placé dix-huit nouveaux ensembles de restrictions différentes sur le drapeau, Wang Lin laissa échapper un soupir. Il avait déjà fait de son mieux. S'il souhaitait continuer, il lui faudrait étudier davantage de restrictions, en combinant les atouts de toutes les écoles; c'était l'unique moyen d'augmenter le nombre de restrictions purement offensives.
 
 Wang Lin avait déjà pris la décision d'apprendre davantage de restrictions à l'avenir. Dès sa première complétion (quatre-vingt-dix-neuf ensembles de restrictions), le drapeau était déjà si puissant qu'il brûlait d'impatience de voir ce qu'il deviendrait lors de sa seconde complétion (neuf cent quatre-vingt-dix-neuf ensembles). À ce stade, il pourrait probablement effrayer des cultivateurs de la Transformation de l'Âme.
 

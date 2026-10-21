@@ -40,7 +40,7 @@ Tandis que les grondements tonitruants résonnaient, la sphère de l'Ancien se c
 
 Tout cela se produisit en un instant. Alors que les deux hommes compressaient le tonnerre, un changement titanesque survint. Le monde sembla se déchirer en deux, chaque moitié étant attirée vers l'un d'eux!
 
-Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait le Clan du Tonnerre Dispersé était le tonnerre éternel, l'essence du tonnerre descendue du ciel et de la terre il y a d'innombrables éons!
+Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait l'Ancien en chef du Clan du Tonnerre Dispersé était le tonnerre éternel, l'essence du tonnerre descendue du ciel et de la terre il y a d'innombrables éons!
 
 Les yeux de l'Ancien brillèrent d'une lueur étrange et il bondit soudainement. Il chargea Wang Lin avec le tonnerre compressé 5 000 000 de fois!
 

@@ -26,7 +26,7 @@ C'était une puissance acquise au prix de sa propre vie, il était donc difficil
 
 Il ressentait sa propre force. Cette puissance lui donnait l'impression de tenir le monde entier entre ses poings lorsqu'il les serrait. La confiance inondait son cœur!
 
-« Mon objectif est de devenir un cultivateur de la Troisième Étape, pour tuer le Shui Daozi et l'ancêtre de la famille Luotian qui m'a trompé avec le sort Qixi! » [1]
+« Mon objectif est de devenir un cultivateur de la Troisième Étape, pour tuer le Shui Daozi et l'ancêtre d'une ancienne famille de Luotian qui m'a trompé avec le sort Qixi! » [1]
 
 Avant son combat contre le Shui Daozi, Wang Lin considérait la Troisième Étape comme un royaume légendaire et dévastateur, capable de briser le ciel, qui semblait réservé aux vrais dieux. Chaque fois qu'il y pensait, cela exerçait sur lui une pression si puissante qu'elle semblait pouvoir tout détruire, une force à laquelle il ne pouvait résister.
 
@@ -74,7 +74,7 @@ C'était grâce à la rudesse de la Secte Démon et à leur mission spéciale qu
 
 Quiconque défiait les ordres était immédiatement exécuté par la Secte Démon! Seul un talent exceptionnel pouvait obtenir la reconnaissance de la Secte pour espérer y entrer. Ce n'était alors que là qu'un individu recevait leur attention.
 
-Li Qianmei était l'une des trois personnes ayant obtenu cette reconnaissance. Même lorsqu'elle avait clairement désobéi à l'ordre de partir, la Secte Démon ne l'avait pas tuée pour l'en empêcher!
+Li Qianmei était l'une des trois personnes ayant obtenu cette reconnaissance. Même lorsqu'elle avait enfreint les ordres en partant, la Secte Démon ne l'avait pas tuée pour l'en empêcher!
 
 Cependant, Li Qianmei étant partie depuis 10 ans, la colère de la Secte Démon s'était éveillée. Pour eux, il n'y avait aucune raison légitime de s'absenter pendant une décennie. S'ils ne la punissaient pas, ils ne seraient plus la Secte Démon!
 

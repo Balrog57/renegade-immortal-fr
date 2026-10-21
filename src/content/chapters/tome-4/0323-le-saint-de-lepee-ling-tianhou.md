@@ -12,7 +12,7 @@ Les épées célestes filaient comme des éclairs de lumière. Wang Lin suivit d
 
 Chi Hu remarqua également la femme en robe blanche. Choqué, il resta plongé dans une réflexion silencieuse.
 
-Une fois arrivé, Wang Lin rangea sa boussole. Une expression de stupéfaction apparut sur son visage tandis qu'il se mettait, lui aussi, à méditer en silence.
+Une fois arrivé, Wang Lin rangea sa boussole. Il se mit à flotter dans les airs.
 
 Les deux dragons dorés rugissaient avec frénésie, et toutes les épées célestes provenant des quatre coins du royaume céleste chargeaient vers eux. Progressivement, à mesure que de nouvelles lames arrivaient, elles s'entremêlaient pour former un troisième dragon doré.
 
@@ -54,7 +54,7 @@ Ils n'étaient pas les seuls: de nombreuses personnes avaient le sang coulant de
 
 Quelques-uns, ayant reconnu le Qilin, baissèrent rapidement la tête en ricanant intérieurement: « Hmph, le Saint de l'Épée de la Secte Da Luo n'est pas un adversaire à notre portée. Son niveau de culture surpasse les cieux et ces quatre épées sont ses trésors de vie, forgés par sa propre culture. Elles ne disparaissent jamais et peuvent se multiplier en milliers de lames. Si votre culture n'est pas assez élevée, le simple fait de les regarder vous blessera. Si vous tentez de forcer votre regard, vous pourriez même en mourir. »
 
-Wang Lin prit une profonde inspiration, frappa son sac de rangement pour en sortir le drapeau de restriction. Le drapeau se transforma en une brume noire qui l'enveloppa rapidement. Il avala quelques pilules et commença à cultiver, ce qui permit à une légère rougeur de revenir sur ses joues.
+Wang Lin prit une profonde inspiration, frappa son sac de rangement pour en sortir le drapeau de restriction. Il agita le drapeau, et une brume noire l'enveloppa rapidement. Il avala quelques pilules et commença à cultiver, ce qui permit à une légère rougeur de revenir sur ses joues.
 
 Après l'apparition du Qilin, celui-ci expulsa deux jets d'air, puis avança un sabot.
 
@@ -112,7 +112,7 @@ Bang! Bang! Bang! Bang!
 
 Ce n'est qu'après plus de trois cents écrans de lumière que le dernier se contenta de trembler au lieu de se briser. Le visage du vieil homme était livide, mais ses yeux ne montraient pas de panique, seulement une excitation fébrile. Car il percevait clairement que le corps de la femme vacillait; une lueur de mort apparut sur son visage.
 
-« Une Céleste n'est donc pas plus forte que cela! » Il rit et joignit les mains devant sa poitrine. Lorsqu'il les écarta, des éclairs jaillirent entre ses paumes. La foudre prit la forme d'une épée qui, sous son contrôle, fonça sur la femme en robe blanche.
+« Une Céleste n'est donc pas plus forte que cela! » Il rit et joignit les mains devant sa poitrine. Lorsqu'il les écarta, un éclair jaillit entre ses paumes. La foudre prit la forme d'une épée qui, sous son contrôle, fonça sur la femme en robe blanche.
 
 L'expression de cette dernière demeura sereine. Elle soupira et agita la main, mais cette fois, après son geste, l'aura de mort sur son corps s'intensifia considérablement.
 

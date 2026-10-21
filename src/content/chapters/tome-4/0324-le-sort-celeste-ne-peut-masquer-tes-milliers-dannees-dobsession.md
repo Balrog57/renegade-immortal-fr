@@ -18,7 +18,7 @@ Ce geste fit irradier une aura de mort sur son visage. Les deux mille ans d'éne
 
 « Esprit de l'épée, Deuxième Épée Céleste de la Pluie, apparais! »
 
-L'épée céleste libéra une lumière dorée, puis un orbe doré jaillit de sa lame. L'aura de mort de la femme s'intensifia davantage. Elle saisit prestement l'orbe et le lança vers le dragon qui portait une masse violette sur le front.
+L'épée céleste libéra une lumière dorée, puis un orbe doré jaillit de sa lame. L'aura de mort de la femme s'intensifia davantage. Elle saisit prestement l'orbe et le lança vers le dragon qui portait une brume noire sur le front.
 
 Privée de son orbe, l'épée céleste perdit son éclat et tomba du ciel.
 

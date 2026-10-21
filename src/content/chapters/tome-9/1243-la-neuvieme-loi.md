@@ -64,7 +64,7 @@ La gigantesque porte de pierre semblait inchangée depuis sa construction. Le pa
 
 Alors que l'écho de son cri s'éteignait, certains êtres célestes agenouillés furent pris de tremblements, leurs yeux écarquillés par la terreur. L'instant d'après, leurs corps explosèrent, projetant du sang sur les survivants dans une scène atroce.
 
-« Autrefois, le Royaume Céleste Antique avait laissé un message stipulant que le Royaume Céleste du Vent ferait face à une grande calamité. Pour y résister, nous avons bâti cette porte céleste. Maintenant que la calamité est là, pourquoi l'ancien être céleste ne vient-il pas nous sauver? »
+« Autrefois, le Royaume Céleste Antique avait laissé un message stipulant que le Royaume Scellé ferait face à une grande calamité. Pour y résister, nous avons bâti cette porte céleste. Maintenant que la calamité est là, pourquoi l'ancien être céleste ne vient-il pas nous sauver? »
 
 Des centaines d'êtres célestes apparurent à l'horizon. Beaucoup périrent avant même d'atteindre leur but et s'effondrèrent à genoux. De plus en plus d'êtres célestes arrivaient, fixant la porte en poussant des cris de désespoir.
 

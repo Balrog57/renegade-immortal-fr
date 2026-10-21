@@ -78,11 +78,11 @@ Un jeune homme vêtu de noir était assis près de la statue. Il affichait un vi
 
 « Je vous en prie, laissez-moi entrer... » dit la femme d'une voix brisée par les larmes en s'adressant au jeune homme.
 
-Le jeune homme noir ouvrit les yeux et répondit froidement: « Non! »
+Le jeune homme vêtu de noir ouvrit les yeux et répondit froidement: « Non! »
 
 Le corps de la femme trembla et elle s'apprêtait à répliquer quand, soudain, un soupir résonna dans le ciel. Des ondulations apparurent sur le sommet de la montagne et Wang Lin en sortit.
 
-Dès l'apparition de Wang Lin, le jeune homme noir fut pris d'un mélange d'excitation et de respect. Il se leva et dit: « Treize salue le Maître. »
+Dès l'apparition de Wang Lin, le jeune homme vêtu de noir fut pris d'un mélange d'excitation et de respect. Il se leva et dit: « Treize salue le Maître. »
 
 En voyant Wang Lin, l'expression de la femme devint encore plus amère, mais elle garda le silence.
 
@@ -106,7 +106,7 @@ Une ondulation apparut derrière lui et Wang Lin et Ling Er se matérialisèrent
 
 Wang Lin soupira et s'approcha du vieil homme. Il s'assit sur le rempart, saisit une cruche et prit lui aussi une grande gorgée.
 
-À cet instant précis, au cœur du Système Stellaire de l'Alliance, là où se trouvaient les forces alliées, un groupe de dizaines de bêtes moustiques passa en travers de leur chemin. Leurs yeux étaient d'un rouge sanglant et un parfum que seules les bêtes moustiques pouvaient percevoir se répandait dans l'air. C'était comme si ces créatures étaient contrôlées par cette fragrance...
+À cet instant précis, au cœur du Système Stellaire de l'Alliance, là où se trouvait l'Alliance des Cultivateurs, un groupe de dizaines de bêtes moustiques passa à toute allure. Leurs yeux étaient d'un rouge sanglant et un parfum que seules les bêtes moustiques pouvaient percevoir se répandait dans l'air. C'était comme si ces créatures étaient contrôlées par cette fragrance...
 
 Trois jeunes hommes vêtus de jaune marchaient devant elles. Ils tenaient chacun un encens étrange, attirant soigneusement ce troupeau de bêtes moustiques.
 

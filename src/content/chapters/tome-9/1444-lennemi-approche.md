@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1444 - Enemy Approaches
 slug: lennemi-approche
 ---
-Le regard indifférent de Wang Lin balaya les cultivateurs qui battaient en retraite. Des fluctuations émotionnelles intenses émanaient d'eux. Tant qu'il parviendrait à attiser leurs émotions, il pourrait leur infliger de lourds dommages.
+Le regard indifférent de Wang Lin balaya les cultivateurs qui battaient en retraite. Des fluctuations émotionnelles intenses émanaient d'eux. Il lui suffirait d'une pensée pour enflammer leur Feu Éthéré et leur infliger de lourds dommages.
 
 Cependant, la Tombe de l'Ordre Ancien était un lieu très dangereux; tant qu'il n'en aurait pas percé les mystères, il ne les tuerait pas tous. Ce qu'il désirait, c'était afficher sa puissance!
 

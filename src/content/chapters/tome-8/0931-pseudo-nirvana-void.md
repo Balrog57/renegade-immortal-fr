@@ -32,7 +32,7 @@ Alors que le Serpent aux yeux de lune rugissait, ses tentacules balayaient tout 
 
 Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les ébranler légèrement, sans leur faire marquer la moindre pause. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs de Luotian.
 
-La main droite de l'Estimé Xuan Bao s'enfonça à nouveau dans le vide et une autre fissure apparut. Une pression écrasante s'en dégagea, et neuf papillons noirs en sortirent.
+La main droite de l'Estimé Xuan Bao saisit à nouveau le vide. Une pression écrasante s'échappa de la fissure, et neuf papillons noirs en sortirent.
 
 Ces neuf papillons étaient d'un noir absolu et, de loin, ils paraissaient extrêmement féroces. Dès leur apparition, ils battirent des ailes, déclenchant une tempête.
 

@@ -19,7 +19,7 @@ Papillon Rouge ouvrit les yeux et répondit froidement: « Chaque fois que je co
 
 « Ceng Niu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen.
 
-« Ceng Niu voulait détruire mon Dao de cœur; cependant, parce qu'il m'a pris le bras, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Je me réjouis que le Mont Suzaku veuille qu'il m'affronte, cela unifiera ma volonté! » Papillon Rouge leva la tête et regarda au loin.
+« Ceng Niu voulait détruire mon Dao de cœur; cependant, grâce à la haine de mon bras perdu, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Le Mont Suzaku veut qu'il m'affronte, cela unifiera ma volonté! » Papillon Rouge leva la tête et regarda au loin.
 
 « Hmph, si ce n'était pour le Mont Suzaku, je serais déjà sorti pour capturer Ceng Niu afin que tu puisses l'exécuter, jeune sœur de discipline. » Les yeux de l'homme d'âge moyen étincelaient.
 
@@ -39,7 +39,7 @@ L'expression de l'homme devint maussade et il se rassea. Cependant, il sortit un
 
 Papillon Rouge ne répondit pas. Elle ferma les yeux pour concentrer son attention sur le scellement de la ligne noire qui l'avait envahie.
 
-À l'est de Suzaku se trouvait une montagne en forme d'oiseau, connue sous le nom de Mont Suzaku. Le Mont Suzaku était la terre sacrée de Suzaku; tout ce qui s'y passait devait recevoir leur approbation.
+À l'est de Suzaku se trouvait une montagne en forme d'oiseau, connue sous le nom de Mont Suzaku. Le Mont Suzaku était la terre sacrée de Suzaku; toute décision concernant le pays de Suzaku devait recevoir leur approbation.
 
 Ce jour-là, un jeune homme vêtu de blanc arriva au pied de la montagne. Dans une position embarrassée, il fit les cent pas avant d'entamer l'ascension des marches. Devant un palais situé à mi-pente, le jeune homme s'agenouilla sur un genou et déclara: « Le disciple Feng Yushan, diacre à la robe blanche, sollicite une audience auprès de l'Ancien. »
 
@@ -63,7 +63,7 @@ Pourtant, à cet instant précis, une lumière rouge descendit du sommet du Mont
 
 Après un long silence, un léger reniflement s'échappa du palais: « Laisse tomber, tu n'as pas besoin d'y aller; nous l'attendrons dix ans. »
 
-Zi Wu haussa les épaules et disparut dans le Mont Suzaku. À l'intérieur du palais, un vieil homme aux cheveux et aux sourcils entièrement blancs fixait le jade rouge dans sa main en marmonnant: « Quel genre d'arrière-plan Ceng Niu possède-t-il pour qu'il puisse interférer trois fois? »
+Zi Wu haussa les épaules et disparut dans le Mont Suzaku. À l'intérieur du palais, un vieil homme aux cheveux et aux sourcils entièrement blancs fixait le jade rouge dans sa main en marmonnant: « Quel genre d'arrière-plan Ceng Niu possède-t-il pour que l'Ancien ait dû intervenir trois fois? »
 
 ***
 
@@ -99,7 +99,7 @@ Trois jours plus tard, la force commença lentement à se dissiper et le corps d
 
 Wang Lin ouvrit les yeux avec une pointe d'inquiétude. En regardant le piège sur son poignet droit, son regard se glaça.
 
-« La succion était assez puissante pour épuiser une pierre spirituelle de qualité supérieure... Char de Guerre Divin... Je devrai trouver le moment de voir si tu es digne de ce nom. »
+« La succion était assez puissante pour briser une pierre spirituelle de qualité supérieure; son attaque doit être extrêmement puissante... Char de Guerre Divin... Je devrai trouver le moment de voir si tu es digne de ce nom. »
 
 Wang Lin réfléchit un instant. Il ne rangea pas les sept pierres restantes, mais les garda sur lui. D'après son expérience, le piège allait probablement aspirer son énergie spirituelle après chaque usage; il était plus prudent de conserver ces pierres à portée de main.
 

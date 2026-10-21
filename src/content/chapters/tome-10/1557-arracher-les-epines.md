@@ -112,4 +112,4 @@ Chaque pas faisait couler le sang le long des pointes. Le corps de Wang Lin rét
 
 « Senior Frère, j'arrive... » Wang Lin s'avança dans les nuages aux sept couleurs, la vue brouillée. Pourtant, il aperçut toujours le tremblant Qing Shui, dont les cheveux couvraient le visage.
 
-Alors que le sang continuait de couler, Wang Lin atteignit lentement Qing Shui. Il s'arrêta à sept pouces de lui et tendit sa main droite vers la première blessure dans la poitrine de son frère. Après une profonde inspiration, il saisit l'épine et tira!
+Alors que le sang continuait de couler, Wang Lin atteignit lentement Qing Shui. Il s'arrêta à sept pieds de lui et tendit sa main droite vers la première blessure dans la poitrine de son frère. Après une profonde inspiration, il saisit l'épine et tira!

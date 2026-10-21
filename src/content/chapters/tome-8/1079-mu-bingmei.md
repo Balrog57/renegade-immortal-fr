@@ -134,4 +134,4 @@ Mu Bingmei prit la pilule et la plaça sans hésiter contre les lèvres de Wang 
 
 Cette pilule n'avait pas besoin d'être avalée. Dès qu'elle toucha ses lèvres, elle se mua en deux filaments de vapeur blanc laiteux qui s'engouffrèrent dans ses narines.
 
-« Personne dans ce monde ne pourra te tuer avant moi! » Mu Bingmei leva sa main magnifique, capable de faire trembler le cœur de n'importe quel cultivateur. Elle fixa l'Omniscient, et son regard devint glacial!
+« Personne dans ce monde ne pourra te tuer avant moi! » Mu Bingmei leva sa tête magnifique, capable de faire trembler le cœur de n'importe quel cultivateur. Elle fixa l'Omniscient, et son regard devint glacial!

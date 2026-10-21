@@ -8,7 +8,7 @@ slug: le-royaume-celeste-brise
 ---
 Après l'avoir rangé, Wang Lin vit au loin un immense tourbillon. Des cultivateurs y entraient pour ensuite disparaître.
 
-Le corps de Wang Lin s'élança et il chargea dans l'un d'eux, disparaissant progressivement à son intérieur.
+Le corps de Wang Lin s'élança et il chargea vers le tourbillon, disparaissant progressivement à son intérieur.
 
 Une lumière aveuglante lui brûla les yeux et il eut l'impression de tomber du ciel. Cependant, il se força à garder les yeux ouverts et vit une scène qu'il n'oublierait jamais.
 
@@ -58,7 +58,7 @@ Au centre du palais, Wang Lin s'arrêta, terrifié par la scène qui s'offrait �
 
 Wang Lin fut stupéfait. À la vue de cette trace, il pensa immédiatement à celle qui marquait la Porte Céleste.
 
-La puissance d'une seule empreinte de main avait suffi à dévaster une zone de plusieurs kilomètres à la ronde. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais il s'agissait ici du Royaume Céleste.
+La puissance d'une seule empreinte de main avait suffi à dévaster une zone de milliers de kilomètres à la ronde. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais il s'agissait ici du Royaume Céleste.
 
 Tout dans le Royaume Céleste était bien plus résistant qu'ailleurs, et ce lieu avait été peuplé de cultivateurs au stade de la Formation de l'Âme ou au-delà, ayant pratiqué la culture de l'énergie spirituelle céleste. Si l'on prenait tout cela en compte, cette empreinte était absolument terrifiante.
 

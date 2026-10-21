@@ -28,7 +28,7 @@ Les yeux de Wang Lin s'illuminèrent. Bien que le corps de cet homme ne puisse �
 
 Au moment de l'impact, l'homme envoya son poing droit. À cet instant, le monde environnant parut trembler. Les tatouages alentour brillèrent intensément, comme autant de techniques divines, et chargèrent vers Wang Lin.
 
-Une lueur froide passa dans les yeux de Wang Lin; il leva la main droite et activa le sort céleste « Arrêt ». Le corps de l'homme s'immobilisa net, tandis que simultanément, le doigt de Wang Lin pressait à nouveau la poitrine du colosse.
+Une lueur froide passa dans les yeux de Wang Lin; il leva la main droite et activa le sort céleste « Arrêt ». Le corps de l'homme s'immobilisa net, tandis que simultanément, les deux doigts de Wang Lin, formant une épée, pressaient à nouveau la poitrine du colosse.
 
 Le corps de l'homme fut projeté en arrière dans un fracas retentissant. Il cracha une bouffée de sang, son regard vers Wang Lin empreint de choc. Quant aux tatouages qui l'entouraient, ils furent également repoussés avec lui.
 

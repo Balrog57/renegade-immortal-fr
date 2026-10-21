@@ -52,7 +52,7 @@ Chacun des onze rayons renfermait une épée d'argent imprégnée d'une intentio
 
 Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres des âmes de ceux que le Royaume de la Boucherie avait massacrés. Ces âmes encerclaient les rayons de lumière et poursuivaient Wang Lin avec acharnement pour le dévorer, comme si elles voulaient l'aspirer à leur tour.
 
-« De bonnes épées! » Un éclat de froideur passa dans les yeux de Wang Lin. Ces onze lames étaient en effet exceptionnelles, d'autant plus qu'elles avaient toutes été forgées à la même époque et avaient subi le même processus d'affinage. Chacune commençait à manifester des signes de formation d'un esprit de trésor propre. Si l'on parvenait à les collecter et à les condenser, le résultat serait plusieurs fois plus puissant que les quatre épées d'âme originelle que Ling Tianhou avait condensées en affinant quatre petits mondes!
+« De bonnes épées! » Un éclat de froideur passa dans les yeux de Wang Lin. Ces onze lames étaient en effet exceptionnelles, d'autant plus qu'elles avaient toutes été forgées à la même époque et avaient subi le même processus d'affinage. Entre elles s'était déjà formé un esprit de trésor qui se renforçait mutuellement. Si l'on parvenait à les collecter et à les condenser, le résultat serait plusieurs fois plus puissant que les quatre épées d'âme originelle que Ling Tianhou avait condensées en affinant quatre petits mondes!
 
 « Si je peux m'emparer de ces 99 épées volantes, même si ma culture n'égale pas celle de Ling Tianhou, je devrais pouvoir résister grâce à la puissance de ce trésor! » Les yeux de Wang Lin s'illuminèrent et il se lécha les lèvres.
 

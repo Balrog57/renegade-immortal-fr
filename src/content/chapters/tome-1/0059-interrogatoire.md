@@ -8,7 +8,7 @@ slug: interrogatoire
 ---
 Lu Yunjie frissonna. Il força un sourire et dit: « Wang... frère Wang, avez-vous besoin de quelque chose? Si vous avez besoin de pilules de rassemblement de Qi, j'en ai encore beaucoup en réserve et je peux vous en donner. »
 
-« Troisième frère, il y a une chose que je veux de votre part: votre assistant, Wang Hao. » Wang Lin fixa Lu Yunjie. Auparavant, il n'avait pas eu assez d'assurance pour s'opposer à lui, alors il n'était pas intervenu pour Wang Hao. Mais après cette bataille, il avait une bien meilleure compréhension de sa propre puissance.
+« Troisième frère, il y a une chose que je veux de votre part: votre assistant, Wang Hao. » Wang Lin fixa Lu Yunjie. Auparavant, il n'avait pas eu assez d'assurance pour s'opposer à lui, alors il n'était pas intervenu pour Wang Hao. Mais après ces combats, il avait une bien meilleure compréhension de sa propre puissance.
 
 L'expression de Lu Yunjie devint instable. Il eut un rire amer au fond du cœur. Serrant les dents, il déclara: « Wang Lin, ce Wang Hao est mon assistant et il est essentiel à la création de mes élixirs, je ne peux donc pas accepter! »
 

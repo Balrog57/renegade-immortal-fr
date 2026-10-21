@@ -56,7 +56,7 @@ Des vagues de bavardages résonnèrent. Les yeux de Lie Yunzi restèrent calmes 
 
 Une brise légère souffla. Des dizaines de personnes furent immédiatement emportées sans aucune résistance, projetées vers le réseau de transfert où elles disparurent. Les personnes ainsi renvoyées étaient toutes celles qui n'avaient pas réussi la deuxième épreuve. Il ne restait plus que 147 participants!
 
-« L'épreuve céleste consiste à comprendre le Parchemin de la Bataille de ce vieil homme pendant dix secondes. Après ces dix secondes, ne vous donnez pas la peine d'ouvrir les yeux, je saurai si vous êtes qualifiés! » Les paroles de Lie Yunzi plongèrent les cultivateurs dans la confusion. Cependant, compte tenu de son prestige, tout le monde se tut.
+« L'épreuve céleste consiste à comprendre le Parchemin de la Bataille de ce vieil homme pendant dix secondes. Après ces dix secondes, ne vous donnez pas la peine d'ouvrir la bouche, je saurai si vous êtes qualifiés! » Les paroles de Lie Yunzi plongèrent les cultivateurs dans la confusion. Cependant, compte tenu de son prestige, tout le monde se tut.
 
 Lie Yunzi regarda Zhan Konglie et dit lentement: « Zhan Konglie, tu passes en premier! »
 

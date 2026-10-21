@@ -86,11 +86,11 @@ Un à un, les généraux démoniaques menèrent leurs serviteurs et assistants s
 
 Les huit portes de la cité impériale s'ouvrirent. De nombreux soldats démoniaques étaient postés aux entrées pour vérifier l'identité des généraux avant de les laisser passer.
 
-Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte du Démon Céleste. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de large. D'innombrables fonctionnaires de la Cité du Démon Céleste apparurent et prirent place derrière leurs tables.
+Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte du Démon Céleste. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de long. D'innombrables fonctionnaires de la Cité du Démon Céleste apparurent et prirent place derrière leurs tables.
 
 Il n'y avait qu'un seul siège au sommet, celui de l'Empereur Démon!
 
-Aux extrémités sud et nord de la place se trouvaient des tribunes de huit étages, larges d'environ 264 mètres, où étaient assis d'innombrables dames et de jeunes héritiers des grandes demeures. Les deux étages supérieurs de chaque tribune ne comportaient que quatre sièges chacun.
+Aux extrémités sud et nord de la place se trouvaient des tribunes de huit étages, longues d'environ 264 mètres, où étaient assis d'innombrables dames et de jeunes héritiers des grandes demeures. Les deux étages supérieurs de chaque tribune ne comportaient que quatre sièges chacun.
 
 Sur ces 16 sièges, les huit du haut étaient réservés aux commandants en chef, et les huit du bas aux vice-commandants en chef.
 

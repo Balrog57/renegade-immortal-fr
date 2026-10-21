@@ -14,7 +14,7 @@ Lors de leur effondrement, rien ne put empêcher le Sceau d'Inversion Céleste d
 
 Alors qu'il tentait de se rétablir, l'Empreinte de l'Esprit Guerrier de Wang Lin arriva avec une vitesse inimaginable. Elle percuta immédiatement le Grand Ancien.
 
-Un grondement tonitruant résonna, et le Daoïste Esprit Dispersé sembla sombrer dans la folie. Il fondit sur l'ennemi avec ses 971 marques tout en lançant l'Empreinte de l'Esprit Guerrier, libérant une force capable de briser les cieux!
+Un grondement tonitruant résonna, et le Daoïste Esprit Dispersé sembla sombrer dans la folie. Il fondit sur l'ennemi avec ses 971 marques, libérant de concert avec l'Empreinte de l'Esprit Guerrier une force capable de briser les cieux!
 
 Le Grand Ancien fut projeté en arrière par ce fracas assourdissant et cracha du sang. Il était à nouveau blessé. Son expression devint hideuse alors qu'il poussait un rugissement pour stabiliser son corps. Une lueur de démence brillait dans ses yeux tandis qu'il frappait la marque de son clan située entre ses sourcils.
 
@@ -34,7 +34,7 @@ Ces six types de tonnerre différents l'entourèrent et formèrent un vortex gé
 
 Lorsque l'Empreinte de l'Esprit Guerrier entra en collision avec le vortex, des craquements stridents résonnèrent. De nombreuses fissures apparurent sur la paume avant que celle-ci ne s'effondre. Les marques du Daoïste Esprit Dispersé ne faisaient pas le poids non plus et se voyaient repoussées.
 
-« Je veux voir comment vous deux allez résister aux six tonnerres divins que mon Clan du Tonnerre Dispersé a amassés. Mourez! Après vous avoir tués, je massacrerai les cent millions de vies ici pour apaiser ma colère. J'anéantirai la plupart des cultivateurs de ce lieu pour garantir à mon clan dix mille ans de tranquillité! »
+« Je veux voir comment vous deux allez résister aux six tonnerres divins que mon Clan du Tonnerre Dispersé a amassés. Mourez! Après vous avoir tués, je massacrerai les dix millions de vies ici pour apaiser ma colère. J'anéantirai la plupart des cultivateurs de ce lieu pour garantir à mon clan dix mille ans de tranquillité! »
 
 Le Grand Ancien rugit comme un fou en projetant les six tonnerres divins vers l'avant. Wang Lin et le Daoïste Esprit Dispersé reculaient sans cesse. Les yeux de Wang Lin s'illuminèrent pendant sa retraite, et il lança: « C'est là votre confiance à 70 %?! »
 
@@ -78,7 +78,7 @@ S'ils avaient été en dehors des 7 Millions de Mondes et que le Grand Ancien av
 
 Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes Joss jaillirent des têtes des innombrables âmes, qui n'étaient pas entrées dans le cycle de la réincarnation, au sein du Monde du Vent et de la Pluie! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
 
-Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient le tiers du total!
+Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient une bonne part du total!
 
 Wang Lin rassembla ces Flammes Joss à travers le Monde du Vent et de la Pluie et les condensa en une sphère!
 

@@ -46,7 +46,7 @@ Yao Xixue ne cacha pas son mépris: « Vous ne savez même pas ce que c'est? Cel
 
 La valeur de cette pilule était inestimable!
 
-Yao Xixue reprit froidement: « Cette pilule est nommée Âme Sanguine. Elle n'est pas destinée à être ingérée; elle sert à y déposer votre âme originelle et votre empreinte charnelle afin de créer un lien. Même si votre âme originelle est détruite, vous pourrez toujours vous réincarner! Pour être plus précis, elle peut mourir à votre place une fois! »
+Yao Xixue reprit froidement: « Cette pilule est nommée Âme Sanguine. Elle n'est pas destinée à être ingérée; elle sert à y déposer votre âme originelle et votre empreinte charnelle afin de créer un lien. Même si votre âme originelle est détruite, vous pourrez ressusciter une fois! Pour être plus précis, elle peut mourir à votre place une fois! »
 
 L'expression de Wang Lin changea enfin. D'un geste de la main droite, il fit voler la pilule de la main de Yao Xixue vers la sienne.
 

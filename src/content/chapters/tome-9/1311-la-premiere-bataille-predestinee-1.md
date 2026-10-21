@@ -48,7 +48,7 @@ L'expression du vieil homme au stade du Vide Spirituel changea radicalement et i
 
 Maître Simo était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer: « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
 
-Sa voix était étrange, et dès qu'il commença ses incantations, l'expression de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen laissa passer ce dernier pour s'élancer vers l'autre cultivateur du troisième niveau.
+Sa voix était étrange, et dès qu'il commença ses incantations, l'expression de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen épargna Maître Simo, croisa le vieil homme pour s'élancer vers l'autre cultivateur du troisième niveau.
 
 Il s'agissait d'une femme. Elle avait été blessée par l'onde de choc de l'étoile brisée de Tuo Sen. Alors qu'elle reculait, ses pupilles se rétractèrent en percevant l'arrivée imminente de l'adversaire.
 

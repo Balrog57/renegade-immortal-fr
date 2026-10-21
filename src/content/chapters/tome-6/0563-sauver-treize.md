@@ -19,7 +19,7 @@ Le sens divin de Wang Lin continua de fouiller l'esprit de Sima Yan. Les souveni
 
 Six mois après son départ, Treize et Hu Pao eurent une dispute. Hu Pao décida de ne plus attendre et retourna à la tribu, tandis que Treize était déterminé à rester ici pour attendre Wang Lin.
 
-Finalement, Hu Pao partit, mais sa fuite fut un échec. Sima Yan l'attrapa facilement et, sous prétexte d'une violation des règlements militaires, gaspilla sa culture avant de le jeter dans la Prison des Ténèbres. Trois mois plus tard, Hu Pao disparut mystérieusement!
+Finalement, Hu Pao partit, mais sa fuite fut un échec. Sima Yan l'attrapa facilement et, sous prétexte d'une violation des règlements militaires, anéantit sa culture avant de le jeter dans la Prison des Ténèbres. Trois mois plus tard, Hu Pao disparut mystérieusement!
 
 La Prison des Ténèbres était si bien gardée que même Sima Yan ignorait comment Hu Pao avait pu disparaître.
 
@@ -31,7 +31,7 @@ La froideur dans son regard s'intensifia tandis qu'il fixait les yeux exorbités
 
 Après quelques respirations, le corps de Sima Yan explosa dans un fracas retentissant, projetant des lambeaux de chair tout autour. Des brins de gaz gris s'échappèrent de certains morceaux de chair pour se rassembler entre les doigts de Wang Lin.
 
-L'Art du Massacre Céleste était extrêmement difficile à maîtriser, mais cette fois, dans un accès de colère, Wang Lin réussit à raffiner un sceau de vie à partir de Sima Yan en un instant.
+L'Art du Massacre Céleste était extrêmement difficile à raffiner, mais cette fois, dans un accès de colère, Wang Lin réussit à raffiner ce gaz gris à partir de Sima Yan en un instant.
 
 Après avoir tué Sima Yan, Wang Lin tourna son regard vers l'homme costaud qui se tenait non loin de lui. D'après les souvenirs de Sima Yan, c'était lui qui avait emmené Treize, alors qu'il était au bord de la mort!
 
@@ -49,7 +49,7 @@ L'homme costaud avait lancé ces paroles dans un moment de désespoir. Ayant ét
 
 Levant la tête, il regarda la fumée verte que Wang Lin était devenu à l'horizon. Il hésita un instant et dit: « Il y a six mois, le général démon est entré en culture de méditation et a verrouillé tous les tableaux de transfert. Si tu veux entrer, la seule façon est de forcer le passage! » Il porta la main à sa poitrine en s'éloignant. Gravement blessé, il devait retourner à son palais pour se rétablir.
 
-Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité du Démon Antique menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'autre côté et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
+Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité du Démon Antique menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'intérieur et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
 
 « Treize et Hu Pao ont été amenés dans cette Cité du Démon Antique par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
 
@@ -215,7 +215,7 @@ Après sa fusion avec le Doigt de l'Inframonde, Wang Lin se rua soudainement ver
 
 Les cinq anciens, dont la culture égalait celle de la Transformation de l'Âme au stade avancé, furent terrifiés par la puissance du sort, mais ils serrèrent les dents et activèrent leur énergie spirituelle démoniaque pour bloquer sa progression.
 
-Cependant, ils avaient sous-estimé la force du Doigt de l'Inframonde. Lorsque Wang Lin était au stade intermédiaire de la Transformation de l'Âme, il avait pu tenir tête à Chen Tao, qui était au stade intermédiaire de l'Ascendant. Bien qu'il eût fini par perdre, il avait infligé une immense surprise à ce dernier!
+Cependant, ils avaient sous-estimé la force du Doigt de l'Inframonde. Lorsque Wang Lin était au stade intermédiaire de la Transformation de l'Âme, il avait pu tenir tête à Sun Tao, qui était au stade intermédiaire de l'Ascendant. Bien qu'il eût fini par perdre, il avait infligé une immense surprise à ce dernier!
 
 À présent, la culture de Wang Lin atteignant le sommet du stade avancé de la Transformation de l'Âme, le Doigt de l'Inframonde était suffisant pour menacer des cultivateurs Ascendants!
 

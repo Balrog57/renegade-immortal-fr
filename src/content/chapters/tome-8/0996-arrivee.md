@@ -54,7 +54,7 @@ On pouvait voir quatre personnes sur le dos du démon géant! Trois d'entre eux 
 
 Alors que de plus en plus de personnes identifiaient les cavaliers, les discussions s'éteignirent, remplacées par la stupeur. Même Ling Tianhou et sa compagnie furent surpris, leurs yeux brillant d'une lueur intense.
 
-À mesure que Lei Ji se rapprochait, ils aperçurent un Ancien vêtu de rouge derrière les trois frères Chen et le colosse à la grosse tête. Son corps était immense, telle une montagne de chair, une vision terrifiante. Sa culture au stade initial du Purificateur du Nirvana se propageait, ébranlant l'esprit de tous ceux dont le niveau était inférieur.
+À mesure que Lei Ji se rapprochait, ils aperçurent un vieil homme vêtu de rouge derrière les trois frères Chen et le colosse à la grosse tête. Son corps était immense, telle une montagne de chair, une vision terrifiante. Sa culture au stade initial du Purificateur du Nirvana se propageait, ébranlant l'esprit de tous ceux dont le niveau était inférieur.
 
 « Maître Fu Fengzi! »
 

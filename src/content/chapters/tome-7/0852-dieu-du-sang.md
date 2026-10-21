@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 852 - Blood God
 slug: dieu-du-sang
 ---
-Yao Yun ne daigna même pas un regard au miroir de bronze. À cet instant, il avait depuis longtemps oublié l'ordre de son ancêtre. Il se tenait la tête et rugissait de douleur sans relâche. L'ombre démoniaque mesurait plus de trente mètres de haut. Elle détourna son regard de l'éclair de la rétribution divine pour fixer froidement Wang Lin.
+Yao Yun ne daigna même pas un regard au miroir de bronze. À cet instant, il avait depuis longtemps oublié l'ordre de son ancêtre. Il se tenait la tête et rugissait de douleur sans relâche. L'ombre démoniaque mesurait plus de trente mètres de haut. Elle détourna son regard du nuage de rétribution divine pour fixer froidement Wang Lin.
 
 « Un ancien démon! » Les yeux de Wang Lin s'illuminèrent.
 

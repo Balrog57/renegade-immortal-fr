@@ -116,4 +116,4 @@ Le plus frappant était le sang que l'ancêtre de la Secte du Dao Démoniaque av
 
 Wang Lin regarda devant lui. Ce n'était pas que tout était figé par une force physique, mais que tout n'osait plus bouger devant l'apparition du Grand Empyréen Dao Yi.
 
-« Tu es digne de me suivre. Ceux qui me suivent ne mourront pas, tant que je ne mourrai pas! » déclara lentement le jeune homme aux cheveux noirs en fixant Wang Lin. Ses yeux étaient empreints d'une sagesse et d'une lumière infinies.
+« Tu es digne de me suivre. Je ne mourrai pas, tu ne mourras pas! » déclara lentement le jeune homme aux cheveux noirs en fixant Wang Lin. Ses yeux étaient empreints d'une sagesse et d'une lumière infinies.

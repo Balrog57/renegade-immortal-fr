@@ -106,7 +106,7 @@ Cette scène étrange laissa les trois occupants de la demeure ancestrale dans u
 
 L'homme murmura pour lui-même: « Les rumeurs étaient vraies... »
 
-Le jade que Wang Lin avait laissé ici contenait un infime fragment de son Royaume Ji. Avec sa culture de l'époque, n'importe quel cultivateur de l'Âme Naissante mourrait instantanément face à lui.
+Le jade que Wang Lin avait laissé ici contenait un infime fragment de son Royaume Ji. Avec sa culture de l'époque, n'importe quel cultivateur de l'Âme Naissante mourrait instantanément face à ce fragment.
 
 En ce moment même, au pied de la montagne Heng Yue, à l'extérieur de la Secte Tian Dao, la plupart des cultivateurs de Zhao étaient rassemblés. Leurs visages étaient empreints de colère alors qu'ils scrutaient l'horizon.
 

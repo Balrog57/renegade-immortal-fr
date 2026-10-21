@@ -96,7 +96,7 @@ Une lueur d'intention meurtrière apparut dans ses yeux. Elle ne croyait pas à 
 
 « Ils sont venus si vite! » La vieille femme fit un pas en avant et chargea vers le singe noir. Un brouillard empoisonné commença à se répandre devant elle.
 
-Les yeux de Wang Lin s'illuminèrent; il réalisa qu'il venait d'entrer par accident au cœur d'une bataille. Ces huit crânes constituaient manifestement une formation destinée à piéger et à tuer quiconque, homme ou bête, pénétrerait dans la vallée.
+Les yeux de Wang Lin s'illuminèrent; il réalisa qu'il venait d'entrer par accident au cœur d'une bataille. Ces huit crânes constituaient manifestement une formation destinée à piéger et à tuer les hommes ou bêtes à l'intérieur de la vallée.
 
 Cependant, il n'avait pas le temps d'expliquer quoi que ce soit. La vieille femme était trop rapide et le poison se propageait déjà vers lui, sans parler de son intention meurtrière. Wang Lin sauta du dos du singe noir et lui lança un ordre.
 

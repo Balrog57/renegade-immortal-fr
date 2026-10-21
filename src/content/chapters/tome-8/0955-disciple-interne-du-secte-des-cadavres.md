@@ -11,7 +11,7 @@ Alors que les ondulations se propageaient, Wang Lin sortit calmement. Il ne daig
 
 En voyant l'empreinte noire sur le dos du garçon, une lueur glaciale traversa les yeux de Wang Lin.
 
-Il tendit sa main droite et saisit l'enfant. Sa paume frappa ensuite le garçon, libérant d'immenses quantités d'énergie originelle dans son corps. Le visage du garçon devint rouge et il cracha une bouffée de sang noir qui dégageait une odeur fétide et puissante.
+Il tendit sa main droite et saisit l'enfant à distance. Sa paume frappa ensuite le garçon, libérant d'immenses quantités d'énergie originelle dans son corps. Le visage du garçon devint rouge et il cracha une bouffée de sang noir qui dégageait une odeur fétide et puissante.
 
 À cet instant, le jeune homme en robe bleue, toujours penché en arrière en train de manger des cerises, pointa Wang Lin du doigt après avoir avalé un fruit: « Sun Gouzi, tu possèdes ce corps du Clan des Démons Géants depuis assez longtemps pour utiliser ta culture. Va tuer cet individu qui m'a insulté! »
 

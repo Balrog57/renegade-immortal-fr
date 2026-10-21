@@ -148,7 +148,7 @@ En montant au deuxième étage, sa supposition fut confirmée. Il y avait quatre
 
 Au troisième étage, Wang Lin vit le tourbillon qui servait de sortie, ainsi qu'un autre carré vide.
 
-Loin d'être déçu, Wang Lin réfléchit un moment. Il se souvint des messages, de la même main, laissés par l'homme mystérieux lors de la première épreuve et sur le Chemin sans Retour. Bien qu'il n'y eût aucun message lors de la deuxième épreuve, il sentait qu'il faisait partie des trois personnes ayant reçu le fragment de jade avant lui.
+Loin d'être déçu, Wang Lin réfléchit un moment. Il se souvint des messages, de la même main, laissés par l'homme mystérieux lors de la première épreuve et sur le Chemin sans Retour. Bien qu'il n'y eût aucun message lors de la deuxième épreuve, il sentait que cet homme mystérieux était très probablement l'un des trois Éveillés qui l'avaient précédé.
 
 Après un silence, Wang Lin inspecta les trois étages de la pagode. C'est au deuxième étage qu'il vit le message familier à côté des carrés vides:
 

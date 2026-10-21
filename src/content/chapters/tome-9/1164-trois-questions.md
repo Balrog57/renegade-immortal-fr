@@ -48,7 +48,7 @@ Le vieil homme inspira brusquement et son esprit vacilla. Il lui fallut un long 
 
 « Le Noble Argent de la Secte de la Fleur Claire a été tué! » Il ignorait manifestement cette affaire.
 
-« La Vieille Poisonneuse ne peut pas avoir fait ça. Seule la personne qui a réellement obtenu le jade et la recette pourrait posséder une telle force. Cette personne a dû être contrainte de tuer le Noble Argent. On peut supposer qu'en quittant les terres sauvages, elle a croisé le Noble Argent; celui-ci a éveillé ses soupçons, et elle a été forcée d'attaquer. » L'homme d'âge moyen afficha un regard mêlant admiration et estime.
+« La Vieille Poisonneuse ne peut pas avoir fait ça. Seule la personne qui a réellement obtenu le jade et la recette pourrait posséder une telle force. Cette personne a dû être contrainte de tuer le Noble Argent. On peut supposer qu'en quittant les terres sauvages, elle a croisé le Noble Argent; éveillant les soupçons de celui-ci, elle a été forcée d'attaquer. » L'homme d'âge moyen afficha un regard mêlant admiration et estime.
 
 « Il possède des méthodes cruelles, une détermination implacable, et il a exécuté le Noble Argent avec une précision chirurgicale. De plus, avant cela, cette personne a rapidement rejeté la suspicion sur la Vieille Poisonneuse, créant ainsi un voile de confusion pour gagner du temps. En agissant ainsi, il a suffi de tromper les sectes de rang 6 pour s'échapper avant que leur blocus ne soit établi. Même si j'avais été à sa place, je crains que je n'aurais pu accomplir tout cela. »
 

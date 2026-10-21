@@ -64,15 +64,15 @@ Wang Lin marqua une pause, puis tapota son sac de rangement pour en sortir la pa
 
 « Je souhaite trouver un esprit d'épée. Cette tour contient son sens divin. Je demande l'aide de l'Ancien Démon pour le localiser. »
 
-L'Ancien Démon déploya son sens divin et déclara: « Aucune présence de cet esprit d'épée n'est perceptible dans mon Pays du Démon Céleste. Quant au reste, je l'ignore. La Terre des Esprits Démoniaques est bien trop vaste pour que je puisse le fouiller entièrement. Si vous parvenez à m'aider à capturer l'un des Anciens Démons, je serai en mesure de lancer un sort de recherche à grande échelle après l'avoir absorbé. Pour l'instant, ma force actuelle ne me le permet pas. Si vous possédez la tour de l'Ancien Diable, vous pouvez également déployer votre sens divin. »
+L'Ancien Démon déploya son sens divin et déclara: « Aucune présence de cet esprit d'épée n'est perceptible dans mon Pays du Démon Céleste. Quant au reste, je l'ignore. La Terre des Esprits Démoniaques est bien trop vaste pour que je puisse le fouiller entièrement. Si vous parvenez à m'aider à capturer un démon, je serai en mesure de lancer un sort de recherche à grande échelle après l'avoir absorbé. Pour l'instant, ma force actuelle ne me le permet pas. Si vous possédez la tour de l'Ancien Diable, vous pouvez également déployer votre sens divin. »
 
 Wang Lin rétracta la pagode et hocha la tête. Puis, pointant l'homme encerclé de cristal pourpre, il dit: « Je veux cet homme! »
 
-L'Ancien Démon sembla hésiter plus longtemps cette fois, puis finit par dire: « Je vous le céderai, mais vous devrez avoir récupéré un Ancien Démon pour moi d'ici cent ans! »
+L'Ancien Démon sembla hésiter plus longtemps cette fois, puis finit par dire: « Je vous le céderai, mais vous devrez avoir récupéré un démon pour moi d'ici cent ans! »
 
 Les yeux de Wang Lin brillèrent et il acquiesça. « Je souhaite pénétrer dans l'héritage des Anciens Démons pour comprendre ce royaume mystérieux et utiliser cette connaissance pour affiner mes sorts! »
 
-« Cette tâche n'est pas difficile, mais je vous ai déjà aidé maintes fois et j'ai tenu ma promesse. Vous, en revanche, n'avez encore rien accompli; nous en reparlerons donc une fois que vous aurez rapporté un Ancien Démon! »
+« Cette tâche n'est pas difficile, mais je vous ai déjà aidé maintes fois et j'ai tenu ma promesse. Vous, en revanche, n'avez encore rien accompli; nous en reparlerons donc une fois que vous aurez rapporté un démon! »
 
 Wang Lin esquissa un léger sourire. « Très bien, mais il me sera difficile d'y parvenir seul. »
 

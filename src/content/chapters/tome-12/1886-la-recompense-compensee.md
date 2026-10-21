@@ -48,7 +48,7 @@ Wang Lin resta silencieux, plongé dans ses pensées.
 
 Dans la deuxième sphère de lumière se trouvait une petite voile noire. Pour être précis, il s'agissait d'une Voile Fantôme. Elle dégageait une aura qui plongeait quiconque dans un rêve profond.
 
-Wang Lin pouvait ressentir l'aura de la Voile Fantôme principale, celle qui servait de formation de protection à la Secte de la Grande Âme. Si ses soupçons étaient exacts, il s'agissait de la Voile Fantôme de Vice, faisant partie de la récompense pour avoir tué Wang Lin!
+Wang Lin pouvait ressentir l'aura de la Voile Fantôme principale, celle qui servait de formation de protection à la Secte de la Grande Âme. Si ses soupçons étaient exacts, il s'agissait du drapeau secondaire de la Voile Fantôme, faisant partie de la récompense pour avoir tué Wang Lin!
 
 En contemplant cette petite voile, Wang Lin fut envahi par un sentiment indescriptible.
 

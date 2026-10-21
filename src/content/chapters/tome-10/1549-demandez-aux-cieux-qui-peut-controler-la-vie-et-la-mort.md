@@ -94,7 +94,7 @@ La bataille entre les Royaumes, l'honneur personnel, l'ordre du Conseil Souverai
 
 « C'est impossible. C'est... C'est... Cette lumière dorée est... »
 
-La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de son temps. Il fit un pas, se retrouvant à une centaine de pieds de l'Estimé Maître Tian Zhao, qui reculait frénétiquement. Il lança un coup de poing.
+La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de son temps. Il fit un pas, se retrouvant à un millier de pieds de l'Estimé Maître Tian Zhao, qui reculait frénétiquement. Il lança un coup de poing.
 
 Des grondements tonitruants résonnèrent, et une tempête dorée sembla se condenser pour former un poing géant de lumière. Celui-ci perça le vide avec rapidité pour frapper le corps de l'Estimé Maître Tian Zhao.
 

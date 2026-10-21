@@ -90,7 +90,7 @@ Le démon dispersé éclata d'un rire et projeta son énergie démoniaque. L'anc
 
 L'environnement retomba dans un silence total; les membres de la famille Huan étaient tous pétrifiés. Tout ce qui s'était produit aujourd'hui les avait profondément choqués et avait suscité chez eux un immense respect pour Wang Lin.
 
-Wang Lin regarda calmement Liu Mei, les yeux clos. Il resta silencieux durant un long moment.
+Wang Lin regarda calmement Liu Mei, dont les yeux étaient clos. Il resta silencieux durant un long moment.
 
 Huan Feng Shen hésita un instant avant de s'avancer: « Cher compagnon de culture, avant que Liu Mei ne parte, elle avait conclu un accord avec... Huan Wuqing. S'il ne pouvait pas vous tuer, il devait vous remettre ce sac de rangement. »
 

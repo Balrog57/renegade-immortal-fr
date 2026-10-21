@@ -36,7 +36,7 @@ Wang Lin n'accorda aucune attention à ces jeunes gens. Après s'être élancé,
 
 « L'endroit le plus proche d'ici est la Secte de la Musique Céleste. De là, vous pourrez vous téléporter vers la Secte Éternelle! » Le visage de la vieille femme était livide alors qu'elle regardait Wang Lin avec effroi.
 
-« Cet homme est fou! Complètement fou! Pour accélérer le transfert, il n'a même pas voulu attendre une demi-heure. Il a choisi la méthode extrêmement dangereuse d'infuser l'énergie d'origine dans le réseau pour rendre le transfert instantané. C'est un acte de pur dément, car la moindre erreur signifierait une mort certaine au sein de l'espace déchiré! »
+« Cet homme est fou! Complètement fou! Pour accélérer le transfert, il n'a même pas voulu attendre quelques minutes. Il a choisi la méthode extrêmement dangereuse d'infuser l'énergie d'origine dans le réseau pour rendre le transfert instantané. C'est un acte de pur dément, car la moindre erreur signifierait une mort certaine au sein de l'espace déchiré! »
 
 La vieille femme fut parcourue d'un frisson en repensant à ce qui s'était produit durant le transfert.
 
@@ -112,6 +112,6 @@ Ce n'est que lorsque Wang Lin fut définitivement parti que les esprits se déte
 
 « Nous l'avons enfin renvoyé. Oubliez les cristaux d'origine; même s'il avait voulu toute la Secte de la Musique Céleste, je la lui aurais donnée dans l'espoir qu'il parte plus vite… »
 
-Secte de rang 8, sur l'une des planètes appartenant à la Secte Éternelle. Le réseau de transfert qui s'y trouvait s'illumina soudainement d'une lumière intense.
+Dans la région de rang 8, sur l'une des planètes appartenant à la Secte Éternelle. Le réseau de transfert qui s'y trouvait s'illumina soudainement d'une lumière intense.
 
 « Je dois récupérer un trésor au sein de la Secte Éternelle! » Wang Lin sortit du réseau de transfert, arrivant ainsi à la Secte Éternelle, là même où il se trouvait dix ans auparavant!

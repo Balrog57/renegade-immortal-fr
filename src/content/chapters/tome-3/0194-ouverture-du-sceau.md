@@ -82,7 +82,7 @@ Wang Lin observait la scène. Il savait que l'homme aux cheveux roux ne s'en pre
 
 L'homme aux cheveux roux lança un regard glacial aux centaines de cultivateurs restants. Soudain, trois à cinq d'entre eux ouvrirent des failles et s'y engouffrèrent. L'homme aux cheveux roux ricana. Sans se soucier d'eux, il se tourna vers le dévoreur d'âmes et rugit: « Dévore! »
 
-Le dévoreur d'âmes, semblable à un nuage, étendit son corps illusoire pour former une gueule et fondit sur les fragments d'âme. Après en avoir dévoré plus de dix, il s'apprêta à se retirer. L'homme aux cheveux roux fronça les sourcils; il savait que si cela continuait, la Mer de Sang s'activerait pour tenter de le sceller à nouveau.
+Le dévoreur d'âmes, semblable à un nuage, étendit son corps illusoire pour former une gueule et fondit sur les fragments d'âme. Après en avoir dévoré plus de dix, il s'apprêta à se retirer. L'homme aux cheveux roux ne fronça pas les sourcils; il savait que si cela continuait, la Mer de Sang s'activerait pour tenter de le sceller à nouveau.
 
 Une expression malveillante étira ses traits. Il tendit la main, agrippa le dévoreur d'âmes qui tentait de fuir et ordonna: « Continue! »
 

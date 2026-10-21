@@ -44,7 +44,7 @@ Cette illusion était une tablette de pierre qui émettait une lueur dorée illu
 
 « Destruction de l'Âme par la Tablette Céleste! » cria le vieil homme alors que l'illusion s'élançait. Sa main droite forma un sceau et, d'un point de son doigt, la tablette de pierre s'apprêtait à écraser impitoyablement Wang Lin.
 
-L'expression de Wang Lin resta sereine. Il serra le poing et lança un coup avant de faire un pas en avant. Ce coup concentrait sa culture du stade intermédiaire de Scruteur du Nirvana ainsi que son pouvoir de Dieu Ancien. Sa culture de Scruteur du Nirvana intermédiaire lui permettait d'atteindre son apogée, comme il l'avait démontré dans le vide, sans pour autant se transformer en un Dieu Ancien de mille pieds!
+L'expression de Wang Lin resta sereine. Il fit un pas en avant, serra le poing et lança un coup. Ce coup concentrait sa culture du stade intermédiaire de Scruteur du Nirvana ainsi que son pouvoir de Dieu Ancien. Sa culture de Scruteur du Nirvana intermédiaire lui permettait d'atteindre son apogée, comme il l'avait démontré dans le vide, sans pour autant se transformer en un Dieu Ancien de plusieurs milliers de pieds!
 
 S'il adoptait la forme d'un Dieu Ancien, Wang Lin était certain de pouvoir affronter des cultivateurs du stade intermédiaire de Purificateur du Nirvana!
 

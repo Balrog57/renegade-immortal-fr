@@ -16,7 +16,7 @@ Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer 
 
 À moins d'une nécessité absolue, il n'invoquait pas les bêtes moustiques à la légère. Elles étaient son atout caché!
 
-La terre tremblait encore et l'onde de choc résonnait. Le sifflement du vent hurlait toujours aux oreilles des spectateurs. L'odeur du sang rappelait aux quelque 100 000 cultivateurs cette scène terrifiante.
+La terre tremblait encore et l'onde de choc résonnait. Le sifflement du vent hurlait toujours aux oreilles des spectateurs. L'odeur du sang rappelait aux dizaines de milliers de spectateurs cette scène terrifiante.
 
 Wang Lin avait détruit le corps du maître de la Secte de la Musique Céleste, tué le Grand Ancien de cette branche et son disciple principal. Tout cela s'était produit au sein même de la Secte Éternelle, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
 
@@ -28,7 +28,7 @@ L'attaque fulgurante de Wang Lin avait totalement stupéfié l'assistance.
 
 Lu Yanfei baissa la tête, affichant un calme apparent, mais une douce chaleur enveloppait son cœur.
 
-Mu Bingmei affichait une expression complexe, l'amertume dans son cœur s'intensifiant. Elle songeait au Système Stellaire de l'Alliance, à la destruction du Royaume Vide Brillant et à la puissance de Tuo Sen. Sa situation était semblable à celle de Lu Yanfei.
+Mu Bingmei affichait une expression complexe, l'amertume dans son cœur s'intensifiant. Elle songeait au Système Stellaire de l'Alliance, à la destruction du Royaume du Vide et à la puissance de Tuo Sen. Sa situation était semblable à celle de Lu Yanfei.
 
 Pourtant, Lu Yanfei pouvait compter sur sa présence derrière elle, tandis qu'elle... dans son impuissance, ne pouvait que rester silencieusement forte, seule, et tout endurer.
 
@@ -48,7 +48,7 @@ Sa démarche n'était pas rapide, mais chaque pas qu'il faisait faisait rater un
 
 Le Maître de la Secte Recherchant la Montagne était livide. Bien qu'il fût un cultivateur au stade de Briseur du Nirvana, il n'avait pas le courage d'affronter Wang Lin. En repensant au fait que cet homme était celui qui avait contraint sa secte à déplacer tout un continent, son cuir chevelu en fut engourdi; il n'osait même plus envisager la moindre résistance.
 
-« Dans la région de rang 7, la Secte Recherchant la Montagne n'est qu'une petite secte. Il ne serait pas sage pour un simple Ancien de s'opposer à un tel être! » Ses yeux brillèrent et il se tourna vers l'Ancien principal. Ce dernier possédait une culture profonde, étant au stade intermédiaire du Briseur du Nirvana.
+« Dans la région de rang 7, la Secte Recherchant la Montagne n'est qu'une petite secte. S'opposer à un tel être pour un simple Ancien ne serait pas sage! » Ses yeux brillèrent et il se tourna vers l'Ancien principal. Ce dernier possédait une culture profonde, étant au stade intermédiaire du Briseur du Nirvana.
 
 Même l'Ancien principal perdit presque la raison en réalisant que Wang Lin était l'individu terrifiant qui avait dévasté la région de rang 7. Il avait vu personnellement Wang Lin utiliser l'Empreinte de l'Esprit Guerrier et savait qu'il n'était pas de taille. Sentant le regard de son Maître de Secte, ils comprirent instantanément leur situation, mais hésitèrent.
 
@@ -82,7 +82,7 @@ Si Li Qianmei avait tué quelqu'un, cela aurait été toléré car elle bénéfi
 
 « Cher compagnon de culture, je vous prie de m'accorder une faveur et de ne pas attaquer les membres de la Secte Recherchant la Montagne. » Les paroles de Feng Hai étaient empreintes de gravité alors qu'il dégageait une aura glaciale pour charger vers Wang Lin.
 
-À cet instant précis, l'âme originelle brûlante de Zhao Long percuta la zone comme une météorite. L'expression de Wang Lin resta sereine tandis qu'une intention de tuer monstrueuse explosait de son corps.
+À cet instant précis, alors que le météore de cent pieds formé par l'âme originelle brûlante de Zhao Long arrivait, l'expression de Wang Lin resta sereine tandis qu'une intention de tuer monstrueuse explosait de son corps.
 
 Cette intention de tuer était si puissante qu'au moment même où elle apparut, elle fit changer la couleur du ciel. C'était comme si d'innombrables spectres pleuraient dans les cieux, enveloppant les environs d'un froid infini.
 

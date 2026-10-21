@@ -66,7 +66,7 @@ Le Royaume Céleste Antique s'était brisé, entraînant la division du Système
 
 Le cœur de Wang Lin chancela, et il demanda promptement: « Qu'est-ce que la Perle Défiant le Ciel? »
 
-« L'objet qui provoqua le grand bouleversement dans le Royaume Céleste Antique, ce trésor venu d'un système stellaire étranger, était la Perle Défiant le Ciel. Mais le véritable trésor était une boussole. Neuf trésors célestes étaient gravés sur cette boussole. Lorsque nous l'avons obtenue, il ne restait que trois trésors, et la Perle Défiant le Ciel en occupait le centre. La partie du Royaume Céleste Antique située dans le Royaume Intérieur obtint les deux autres. Je devais mener le Royaume Intérieur dans la guerre contre le Royaume Extérieur, c'est pourquoi l'Empereur Céleste m'avait confié cette perle...
+« L'objet qui provoqua le grand bouleversement dans le Royaume Céleste Antique, ce trésor venu d'un système stellaire étranger, était la Perle Défiant le Ciel. Mais le véritable trésor était une boussole. Neuf trésors célestes étaient gravés sur cette boussole. Lorsque nous l'avons obtenue, il ne restait que trois trésors, et la Perle Défiant le Ciel en occupait le centre. Après la scission, la partie du Royaume Céleste Antique située dans le Royaume Intérieur en obtint deux. Je devais mener le Royaume Intérieur dans la guerre contre le Royaume Extérieur, c'est pourquoi l'Empereur Céleste m'avait confié cette perle...
 
 « Cependant, je ne fus pas le premier maître de la Perle Défiant le Ciel. Au cours de mes innombrables années d'étude, j'ai découvert qu'il y eut deux autres possesseurs. Chacun d'eux était bien plus puissant que moi... Ils devaient être des cultivateurs d'un système stellaire étranger!
 

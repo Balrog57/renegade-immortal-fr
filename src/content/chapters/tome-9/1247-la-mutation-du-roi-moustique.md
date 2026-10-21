@@ -34,7 +34,7 @@ Dès son apparition, les bêtes environnantes poussèrent des rugissements assou
 
 Tandis que ces créatures hurlaient et libéraient cette puissance sauvage, Wang Lin fit un second pas pour rejoindre le dos de son roi moustique. Sa main droite fendit le vide; des éclairs noirs jaillirent, formant un gigantesque trident dans sa paume!
 
-Simultanément, le roi moustique de Wang Lin rugit une fois de plus, arborant une expression féroce. En poussant ce cri, il libéra la pression propre à un roi moustique. Son aura se propagea comme les vagues violentes de l'océan, semblant vouloir submerger toute la horde!
+Simultanément, le roi moustique de Wang Lin rugit une fois de plus, arborant une expression féroce. En poussant ce cri, il libéra la pression propre à un roi moustique. Sous cette pression, l'essaim qui chargeait tel un océan déchaîné pour les submerger s'arrêta net!
 
 Les moustiques rouges, bleus et blancs s'immobilisèrent. Une bataille entre rois moustiques était une chose à laquelle ils ne pouvaient prendre part; cela était gravé dans leurs âmes. Seuls les moustiques violets ou de rang supérieur étaient éligibles.
 
@@ -79,6 +79,8 @@ L'arme portait la puissance de l'Ancien Dieu et l'Étoile de la Loi. Au moment d
 Une mer de feu bleu s'étendit. La chaleur était telle que même les moustiques violets durent l'éviter. Plus incroyable encore, l'énergie originelle injectée par Wang Lin se transforma en sorts célestes de Bai Fan. À cet instant, cela ressemblait à l'apocalypse.
 
 Les bêtes environnantes hésitèrent un instant. Profitant de ce moment, Wang Lin saisit son roi moustique et le projeta en avant!
+
+Le roi moustique brilla d'un éclat or pâle et, propulsé par la force de Wang Lin, fonça droit devant. Tandis que le trident lui ouvrait la voie, il avança de manière irrésistible dans des rugissements incessants, sa pression de roi empêchant les bêtes environnantes de l'assaillir.
 
 Le trident traversa la nuée violette pour pénétrer dans la zone de la faille spatiale, vers les moustiques dorés. Soudain, une ondulation invisible se propagea devant l'arme qui percuta une force mystérieuse. Dans un fracas de tonnerre, d'innombrables runes anciennes apparurent.
 

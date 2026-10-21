@@ -72,7 +72,7 @@ Soudain, son corps s'élança pour continuer son ascension. À plus de cinq mill
 
 Wang Lin fixa le ciel un long moment. Il parvint finalement à percer le mystère: il distinguait de faibles ondulations de restrictions dans la zone, lesquelles semblaient dissimuler l'origine de la chute des neiges.
 
-S'il s'était agi d'une autre technique, Wang Lin aurait peut-être eu du mal à la briser, mais face à une restriction, il n'éprouvait aucune crainte. Sa main droite balaya ses yeux, faisant jaillir une lumière étrange. Il scruta l'éther pendant un long moment avant que ses mains ne s'activent. Après un quart d'heure, d'innombrables restrictions apparurent autour de lui.
+S'il s'était agi d'une autre technique, Wang Lin aurait peut-être eu du mal à la briser, mais face à une restriction, il n'éprouvait aucune crainte. Sa main droite balaya ses yeux, faisant jaillir une lumière étrange. Il scruta l'éther pendant un long moment avant que ses mains ne s'activent. Après un quart d'heure, d'innombrables restrictions d'ombre résiduelle jaillirent de ses mains.
 
 Des cercles illusoires se déposèrent dans les airs et une fumée blanche s'en échappa, comme si la glace fondait. Peu à peu, le ciel vide fut envahi par cette brume blanche. Une fois celle-ci dissipée, la vérité fut révélée.
 

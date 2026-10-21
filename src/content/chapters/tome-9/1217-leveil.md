@@ -22,7 +22,7 @@ Cette bataille avait profondément ébranlé la Secte des Cadavres et leur avait
 
 Ce fut un affrontement titanesque entre les deux systèmes stellaires. C'est au cours de cette guerre que Tuo Sen s'éveilla et brisa la formation entourant la planète Suzaku!
 
-Son apparition provoqua la stupeur à Luotian. Tuo Sen agissait selon ses humeurs. Peu après son réveil, certains cultivateurs de Luotian l'avaient provoqué. Il s'était alors précipité sur le champ de bataille, massacrant des dizaines de milliers de cultivateurs de Luotian!
+Son apparition provoqua la stupeur à Luotian. Tuo Sen agissait selon ses humeurs. Peu après son réveil, certains cultivateurs de Luotian l'avaient provoqué. Il s'était alors précipité sur le champ de bataille, massacrant plus de dix mille cultivateurs de Luotian!
 
 Une fois son carnage terminé, il partit en ne laissant qu'une seule phrase:
 
@@ -90,7 +90,7 @@ Chen Tianjun et la vieille femme en vert ressentaient également le passage du t
 
 Un cadavre, le corps de Wang Lin, reposait là, immobile, au sommet de la montagne enveloppée par cette force mystérieuse. Malgré les presque cent années écoulées, aucun signe de décomposition n'apparaissait sur le corps de Dieu Ancien. Il semblait identique à celui d'il y a un siècle, seulement recouvert de poussière.
 
-Dans l'espace spécial créé pour nourrir les Fruits aux Sept Couleurs, le fruit de la plante rouge avait grandi progressivement jusqu'à atteindre quelques dizaines de pieds. Le moment de sa pleine maturité approchait. Ce jour-là, un résidu de sens divin apparut à l'intérieur du fruit. Semblant absorber la puissance du fruit, il grandit jusqu'à devenir une perle.
+Dans l'espace spécial créé pour nourrir les Fleurs aux Sept Couleurs, le fruit de la plante rouge avait grandi progressivement jusqu'à atteindre quelques dizaines de pieds. Le moment de sa pleine maturité approchait. Ce jour-là, un résidu de sens divin apparut à l'intérieur du fruit. Semblant absorber la puissance du fruit, il grandit jusqu'à devenir une perle.
 
 Au moment où la perle apparut, Wang Lin s'éveilla lentement, comme s'il sortait d'un rêve...
 

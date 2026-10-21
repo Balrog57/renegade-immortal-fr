@@ -80,7 +80,7 @@ Il tremblait, car il avait compris la nature de ce sortilège!
 
 L'Omniscient vit immédiatement qu'il s'agissait de la loi d'origine, l'essence même de toutes les lois. Ce n'était pas une chose qu'un simple cultivateur pouvait maîtriser, et sa puissance était inconcevable!
 
-« Il a détruit trois de mes avatars. Wang Lin, ma plus grande erreur a été de t'accepter comme disciple et de te donner la chance de quitter la planète Suzaku! » L'Omniscient grinçait des dents. Il prit une profonde inspiration pour réprimer le choc dans son esprit et se força au calme.
+« Tu as détruit trois de mes avatars. Wang Lin, ma plus grande erreur a été de t'accepter comme disciple et de te donner la chance de quitter la planète Suzaku! » L'Omniscient grinçait des dents. Il prit une profonde inspiration pour réprimer le choc dans son esprit et se força au calme.
 
 Il n'était pas le seul. Situ Nan, Da Tou, Maître Fu Fengzi et tous les autres étaient stupéfaits. Maître Fu Fengzi était légèrement moins choqué car il avait déjà fait l'expérience de la Nuit Brisée par le passé. Son cuir chevelu lui semblait engourdi et une peur persistante s'installait dans son cœur.
 

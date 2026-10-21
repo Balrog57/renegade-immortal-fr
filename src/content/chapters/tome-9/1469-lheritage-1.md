@@ -46,7 +46,7 @@ Une aura de mort emplit la zone. Tous les cultivateurs ainsi alignés virent leu
 
 Le poing de Wang Lin s'arrêta dans les airs et se détendit lentement pour devenir une paume tandis qu'il retirait son bras. Puis, il fit un geste désinvolte de la main.
 
-« Sort Démoniaque, Montagne de Vent et de Feu! »
+« Sort Démoniaque, Montagne de Feux de Signal! »
 
 D'un revers de main, un feu puissant commença à brûler au-dessus des têtes des cultivateurs alignés. Ce feu était vert et une épaisse fumée commença à s'accumuler.
 

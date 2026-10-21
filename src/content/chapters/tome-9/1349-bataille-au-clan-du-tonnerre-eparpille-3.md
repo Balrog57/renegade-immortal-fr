@@ -110,7 +110,7 @@ Tandis que ce son assourdissant résonnait, Wang Lin trembla et fut repoussé de
 
 Cependant, l'Ancien en chef fut également projeté en arrière, ses vêtements en lambeaux. Ses yeux brillaient d'une intensité sauvage et des bruits de craquements émanaient de son corps.
 
-« Tu es digne de combattre ce vieil homme, mais devant moi, tu mourras sans aucun doute! Cela faisait longtemps que je n'avais pas utilisé une puissance dépassant le quatrième Fléau Céleste. Je n'ai pas besoin de la puissance du cinquième Fléau Céleste pour t'anéantir. Aujourd'hui, je vais te faire expérimenter personnellement la force du sommet de la grande perfection du quatrième Fléau Céleste! »
+« Tu es digne de combattre ce vieil homme, mais devant moi, tu mourras sans aucun doute! Cela faisait longtemps que je n'avais pas utilisé une puissance du quatrième Fléau Céleste ou plus. Je n'ai pas besoin de la puissance du cinquième Fléau Céleste pour t'anéantir. Aujourd'hui, je vais te faire expérimenter personnellement la force du sommet de la grande perfection du quatrième Fléau Céleste! »
 
 L'Ancien en chef leva sa main droite et déchira la marque du clan entre ses sourcils. C'était comme s'il brisait un sceau, et une culture incroyablement puissante jaillit de lui!
 

@@ -20,7 +20,7 @@ Alors que Wang Lin atteignait le bord de la faille et s'apprêtait à partir, il
 
 « Au sein du Clan du Tonnerre Dispersé, j'ai appris qu'il y a bien longtemps, un groupe de personnes mystérieuses était apparu. Ils portaient des vêtements étranges et possédaient des sorts et des trésors sans précédent... Lorsque j'ai absorbé le tonnerre éternel, j'ai perçu sa mémoire et vu des images vagues de ce groupe... »
 
-« Il y avait aussi le Fouet de l'Âme. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait trait pour trait à Na Duo! »
+« Il y avait aussi le Fouet Kunji. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait trait pour trait à Na Duo! »
 
 « D'après les nouvelles du Clan du Tonnerre Dispersé, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Astral Immortel! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
 

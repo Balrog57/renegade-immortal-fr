@@ -48,7 +48,7 @@ Durant cette quinzaine, il avait vu neuf veines de feu terrestre totalement dess
 
 Il hésita un instant avant de pousser un rugissement vers le ciel. Il allait prendre le risque. Tant qu'il n'aurait pas constaté le niveau de culture exact de l'autre partie, il refusait de battre en retraite!
 
-« J'ai déclaré au monde que j'étais au début du stade de la Tribulation du Vide, mais en vérité, je n'en suis qu'à ma septième Tribulation Arcane. Néanmoins, mon corps de bois de feu possède une force bien supérieure à celle des cultivateurs ordinaires. Mon corps physique est semblable à celui des gens de l'ancien pays. Je ne crois pas être incapable de l'affronter! Même si son niveau de culture est comparable au mien, son corps ne pourra pas être aussi puissant! » Du Qing semblait avoir retrouvé confiance dans ce rugissement. Il chargea encore plus vite, guidé par la grue de fumée.
+« J'ai déclaré au monde que j'étais au début du stade de la Tribulation du Vide, mais en vérité, je n'en suis qu'à ma septième Tribulation Arcane. Néanmoins, mon corps de bois de feu violet possède une force bien supérieure à celle des cultivateurs ordinaires. Mon corps physique est semblable à celui des gens de l'ancien pays. Je ne crois pas être incapable de l'affronter! Même si son niveau de culture est comparable au mien, son corps ne pourra pas être aussi puissant! » Du Qing semblait avoir retrouvé confiance dans ce rugissement. Il chargea encore plus vite, guidé par la grue de fumée.
 
 Après sept jours, l'Oiseau Vermillon sous Wang Lin était devenu encore plus gigantesque. En volant, il semblait couvrir le ciel tout entier. Au cours des six derniers jours, il avait absorbé trois âmes de dragon de feu terrestre supplémentaires!
 
@@ -88,7 +88,7 @@ Une veine enfantée était, par essence, le rejeton de la veine principale. Horm
 
 « Je me demande combien de veines enfantées parsèment le Continent du Taureau Céleste... Cependant, il n'y en a probablement pas beaucoup. Dévorer une branche enfantée équivaut à dévorer une multitude de sous-branches. Puisque j'en ai trouvé une, je n'ai aucune raison de la laisser filer! » L'Oiseau Vermillon sous Wang Lin poussa un cri et pivota dans les airs pour charger l'âme du dragon de feu qui approchait.
 
-L'âme du dragon était féroce; des quantités massives de flammes se répandirent, couvrant des centaines de milliers de pieds carrés dans le ciel, englobant Wang Lin et son Oiseau Vermillon.
+L'âme du dragon était féroce; des quantités massives de flammes se répandirent, couvrant des dizaines de milliers de kilomètres à la ronde, englobant Wang Lin et son Oiseau Vermillon.
 
 Les environs furent scellés par les flammes, et la fumée noire consuma tout l'air respirable. Simultanément, l'espace lui-même commença à se distordre, rendant tout flou.
 
@@ -100,7 +100,7 @@ Wang Lin laissa échapper un reniflement froid. Bien que cette branche enfantée
 
 C'est à ce moment précis qu'un rayon de lumière fendit la distance. Du Qing avait enfin rattrapé son retard!
 
-Il aperçut cette flamme nuageuse large de plusieurs centaines de pieds. Il entendit le rugissement émanant des flammes et, à cet instant, son corps trembla. Des fissures apparurent sur sa peau au visage juvénile et il se métamorphosa en un homme de bois violet!
+Il aperçut cette flamme nuageuse large de dizaines de milliers de kilomètres. Il entendit le rugissement émanant des flammes et, à cet instant, son corps trembla. Des fissures apparurent sur sa peau au visage juvénile et il se métamorphosa en un homme de bois violet!
 
 Au moment où il prit cette forme, le feu se propagea de son corps pour l'envelopper, mais sans endommager le bois.
 

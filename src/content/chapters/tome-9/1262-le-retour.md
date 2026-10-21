@@ -32,7 +32,7 @@ Les yeux du garçon brillèrent et il s'assit lentement en tailleur. Après un m
 
 « Arrêter le corps, arrêter l'âme, arrêter l'énergie spirituelle céleste, arrêter l'énergie originelle, arrêter les cieux et la terre, arrêter le flux de la rivière des étoiles, et arrêter l'espace et le temps. Après la mort de Maître, personne ne connaissait ce sort mieux que moi! »
 
-« Vous êtes actuellement à la Secte Éternelle, alors je vous laisserai vivre un peu plus longtemps. Une fois que j'aurai fini de raffiner ce Miroir Antique de Réincarnation à neuf faces et déployé la grande formation de réincarnation, que vous soyez réincarné ou caché dans la Perle Défiant le Ciel, vous ne pourrez pas échapper! » Le garçon aux cheveux blancs ouvrit les yeux, une lueur glaciale y brillant.
+« Vous êtes actuellement à la Secte Éternelle, alors je vous laisserai vivre un peu plus longtemps. Une fois que j'aurai fini de raffiner neuf Miroirs Antiques de Réincarnation et déployé la grande formation de réincarnation, que vous soyez réincarné ou caché dans la Perle Défiant le Ciel, vous ne pourrez pas échapper! » Le garçon aux cheveux blancs ouvrit les yeux, une lueur glaciale y brillant.
 
 Il faisait preuve d'une prudence extrême lors de ce voyage. Ce qui le rendait prudent n'était pas Wang Lin, mais son maître! Il ne s'avancerait pas sans avoir fait tous les préparatifs nécessaires.
 
@@ -102,7 +102,7 @@ Wang Lin hocha la tête, et le disciple se retira respectueusement pour s'envole
 
 Li Qianmei se tenait dans la cour. La lueur de la lune sur son corps lui donnait l'apparence d'une parure de soie argentée. Son beau visage était d'un calme exceptionnel sous la clarté lunaire.
 
-Li Qianmei leva sa main délicate en voyant Wang Lin flotter dans les airs et esquissa un sourire qui faisait battre le cœur.
+Li Qianmei leva la tête en voyant Wang Lin flotter dans les airs et esquissa un sourire qui faisait battre le cœur.
 
 « Tu es revenu... »
 

@@ -110,9 +110,9 @@ L'homme en bleu fixait Wang Lin, mais il n'agissait pas avec précipitation. Il 
 
 « Cet individu n'appartient pas à ce clan inférieur. Comment est-il entré? À en juger par son aura, ce n'est pas un être céleste... Qui est-il...? »
 
-Les yeux de l'homme s'illuminèrent, mais il ne chercha pas à provoquer Wang Lin. Au lieu de cela, sa main gauche pressa l'autel sous lui et la porte de celui-ci s'ouvrit.
+Les yeux de l'homme s'illuminèrent, mais il ne chercha pas à provoquer Wang Lin. Au lieu de cela, sa main gauche, dans le vide, pressa l'autel sous lui et la porte de celui-ci s'ouvrit.
 
-À l'ouverture de la porte, des volutes de brouillard noir jaillirent, se transformant en hideuses créatures de brume. La femme qui se trouvait dans le fourneau apparut également, mais elle ne franchit pas le seuil; elle se contenta de fixer froidement Wang Lin.
+À l'ouverture de la porte, des volutes de brouillard noir jaillirent, se transformant en hideuses créatures de brume. L'ombre de la femme qui se trouvait dans le fourneau apparut également, mais elle ne franchit pas le seuil; elle se contenta de fixer froidement Wang Lin.
 
 Dès l'apparition des bêtes de brume, les expressions des membres du Clan des Immortels Élus changèrent. Toutefois, la force de l'empreinte d'esclave les empêchait de se relever. C'était un instinct auquel ils ne pouvaient opposer aucune résistance.
 

@@ -36,7 +36,7 @@ Le temps passait rapidement. L'agitation de Wang Lin obligeait tous les cultivat
 
 Soudain, un éclair blanc jaillit: Wang Lin surgit comme un coup de tonnerre. Dans un fracas assourdissant, plus de la moitié des bêtes périrent. Après avoir absorbé leur force vitale, Wang Lin repartit. L'homme d'âge moyen fronça les sourcils et marmonna quelque chose, avant que ses yeux ne se rétrécissent de stupéfaction. Plusieurs personnes avaient compris le stratagème; après tout, les cultivateurs ici étaient tous des êtres rusés. Ils comprirent aussitôt la raison des agissements de Wang Lin.
 
-« Chaque fois qu'une bête est tuée avant de pouvoir s'autodétruire, une vague de force vitale pénètre dans son corps. Non seulement cela soigne ses blessures, mais c'est comme si l'on pratiquait la culture pendant plusieurs mois! »
+« Chaque fois qu'une bête est tuée avant de pouvoir s'autodétruire, une vague de force vitale pénètre dans son corps. Non seulement cela soigne ses blessures, mais c'est comme si l'on pratiquait la culture pendant plusieurs jours! »
 
 Cependant, le constat était amer: près de mille bêtes avaient déjà été éliminées par Wang Lin et 30 % s'étaient autodétruites. Les mille restantes formaient un groupe compact. Tel un éclair, Wang Lin chargea ce groupe avant quiconque. Derrière lui, à l'exception de la femme du Clan de l'Extermination des Sceaux qui n'osait pas quitter sa plateforme, et de la femme en blanc qui restait indifférente, tous les autres cultivateurs lancèrent leur assaut. Pour eux, ces bêtes étaient devenues des pilules précieuses qu'il fallait s'approprier avant Wang Lin!
 

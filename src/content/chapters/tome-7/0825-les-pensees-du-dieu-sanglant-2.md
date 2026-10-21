@@ -18,7 +18,7 @@ Une perle de la taille d'un poing flottait devant lui. L'appeler une perle étai
 
 C'est ce noyau qui avait absorbé toutes les attaques précédentes, permettant à Yao Changdong de ne rester dans un état pitoyable sans subir la moindre blessure réelle.
 
-« Tu es la deuxième personne à me forcer à utiliser le noyau céleste que l'Ancêtre m'a donné! » Yao Changdong grinça presque des dents. Son intention meurtrière envers Wang Lin ne découlait plus de l'Ordre Céleste de sa famille, mais de la rage pure qui bouillonnait dans son cœur.
+« Tu es la deuxième personne à me forcer à utiliser le noyau céleste que l'Ancêtre m'a donné! » Yao Changdong grinça presque des dents. Son intention meurtrière envers Wang Lin ne découlait plus uniquement de l'Ordre Céleste de sa famille, mais en grande partie de la rage pure qui bouillonnait dans son cœur.
 
 Il n'avait jamais été dans une situation aussi désavantageuse de toute sa vie. Depuis l'embuscade initiale, il n'avait eu aucune chance de riposter et avait été contraint à une défense passive. À cause de ce sort étrange, Yao Changdong s'était retrouvé dans une position périlleuse.
 

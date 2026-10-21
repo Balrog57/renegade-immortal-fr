@@ -26,7 +26,7 @@ Alors que l'image du second éveil de l'Omniscient s'effondrait, Wang Lin vit la
 
 Le système stellaire devint flou puis s'effondra; finalement, tout disparut. Puis une porte gigantesque apparut devant lui! Elle était si immense qu'elle donnait à Wang Lin l'illusion de n'être qu'une fourmi.
 
-Elle différait de la porte apparue à l'intérieur de la Perle Défiant le Ciel. Celle-ci ne dégageait aucune aura majestueuse; elle semblait s'être intégrée au monde lui-même.
+Elle différait de la porte apparue à l'intérieur de la Perle Défiant le Ciel. Cette porte-ci ne dégageait aucune aura majestueuse; elle semblait s'être intégrée au monde lui-même.
 
 Wang Lin ignorait ce qui se trouvait derrière cette porte, mais il entendit des grondements tonitruants provenir de l'autre côté. C'était comme si la porte avait été frappée par une force colossale venant de l'intérieur. Elle se mit soudainement à trembler.
 

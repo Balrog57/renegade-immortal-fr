@@ -34,7 +34,7 @@ L'homme d'âge mûr était Zhan Konglie. Il tenait lui aussi un fil ténu entre 
 
 À la mention du Maître Lu Fu, les yeux des cultivateurs s'emplirent de ferveur. Ils n'avaient appris l'existence de Maître Lu Fu que depuis quelques années seulement. À leurs yeux, il était l'être le plus puissant de Luotian. Tant que Maître Lu Fu existerait, Luotian perdurerait éternellement!
 
-Observant la foule autour de lui, Zhan Konglie poussa un soupir intérieur. Bien que son regard fût empreint de respect, il n'y avait aucune ferveur en lui. C'était comme si une force l'avait dépouillé de toute passion bien longtemps auparavant.
+Observant la foule autour de lui, Zhan Konglie poussa un soupir intérieur. Bien que son regard fût empreint de respect, il n'y avait aucune ferveur en lui. C'était comme si une seule personne l'avait dépouillé de toute passion bien longtemps auparavant.
 
 Il avait autrefois possédé ce même regard ardent que tous ces gens. Tant que cette personne l'aurait ordonné, il aurait tout fait pour accomplir sa volonté!
 

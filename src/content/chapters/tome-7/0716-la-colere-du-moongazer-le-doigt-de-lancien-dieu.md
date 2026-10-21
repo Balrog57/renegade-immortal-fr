@@ -92,7 +92,7 @@ Autrefois, lorsque le Serpent aux yeux de lune n'était pas encore éveillé, la
 
 Bien que cet endroit fût celui où le serpent excrétait, c'était aussi là qu'il absorbait les choses. Inconsciemment, il voulait absorber le fourneau, ce qui avait causé les cent ans de souffrance de Cupidité.
 
-Alors que le corps de Cupidité était figé, le Serpent aux yeux de lune chargea rapidement.
+Alors que le corps de Cupidité était figé, le Serpent aux yeux de lune l'engloutit immédiatement.
 
 Les yeux de Wang Lin brillèrent d'une lueur étrange. Il profita de ce changement pour creuser à nouveau la distance.
 

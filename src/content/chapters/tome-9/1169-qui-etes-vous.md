@@ -110,7 +110,7 @@ Ces mots provenaient de l'homme d'âge moyen.
 
 « Je peux raffiner mes propres pilules; elles sont inutiles. Soixante-dix jades célestes pour un cristal originel, c'est ma limite. » Le regard du vieil homme devint glacial en parlant. Puis, il ne prêta plus aucune attention à l'interlocuteur.
 
-Dans la Mer des Nuages, les cultivateurs pouvaient librement échanger des jades célestes et des cristaux originels selon un taux déterminé. En entendant cela, Wang Lin toucha inconsciemment son sac de rangement. Bien qu'il fût vide, Wang Lin ressentit une sensation étrange. Lui-même ignorait combien de jades célestes il possédait dans son espace de stockage...
+Dans la Mer des Nuages, les cultivateurs pouvaient librement échanger des jades célestes et des cristaux originels selon un taux déterminé. En entendant cela, Wang Lin toucha inconsciemment l'endroit où il portait autrefois son sac de rangement. N'y trouvant que le vide, Wang Lin ressentit une sensation étrange. Lui-même ignorait combien de jades célestes il possédait dans son espace de stockage...
 
 À cet instant précis, une voix pleine de surprise retentit au loin.
 

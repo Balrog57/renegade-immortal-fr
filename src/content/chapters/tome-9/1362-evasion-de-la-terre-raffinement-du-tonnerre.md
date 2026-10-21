@@ -128,7 +128,7 @@ Alors qu'il s'apprêtait à s'éloigner, un individu surgit de la distance aprè
 
 Wang Lin s'arrêta et se retourna, le regard froid.
 
-Son regard croisa celui du cultivateur. Ce dernier tremblait, les dents serrées, et s'exclama rapidement: « Maître, je... je suis Zhong Grand Rouge. "Zhong" comme dans "Petit Zhong". "Red" comme dans "Petit Rouge"... Je suis Zhong Grand Rouge, Maître! Un jour de maître est un maître pour la vie! Maître, ne m'abandonnez pas. Je suis prêt à vous servir le reste de mes jours sans jamais vous trahir! »
+Son regard croisa celui du cultivateur. Ce dernier tremblait, les dents serrées, et s'exclama rapidement: « Maître, je... je suis Zhong Grand Rouge. "Zhong" comme dans "Petit Zhong". "Rouge" comme dans "Petit Rouge"... Je suis Zhong Grand Rouge, Maître! Un jour de maître est un maître pour la vie! Maître, ne m'abandonnez pas. Je suis prêt à vous servir le reste de mes jours sans jamais vous trahir! »
 
 L'expression de Wang Lin resta glaciale lorsqu'il demanda lentement: « Tu veux me suivre? »
 

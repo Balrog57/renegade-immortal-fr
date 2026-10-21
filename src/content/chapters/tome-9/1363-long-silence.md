@@ -28,7 +28,7 @@ La demeure se situait au milieu de la rue, avec un grand arbre devant. Sous cet 
 
 Le crépuscule tomba et le ciel s'assombrit. L'heure du dîner avait sonné. Les familles étaient animées, discutant et riant aux éclats. Des enfants jouaient dans la rue, lançant de petits cailloux les uns vers les autres.
 
-Assis au seuil de sa maison, Wang Lin souriait en contemplant la scène. Lors de l'achat de la demeure, de nombreux voisins étaient venus à sa rencontre. Wang Lin se montra très aimable envers eux; la plupart comprirent qu'il n'était qu'un étudiant venu passer les examens. Ne pouvant s'offrir une auberge, il avait acheté cette maison pour étudier en vue des épreuves de l'année suivante.
+Assis au seuil de sa maison, Wang Lin souriait en contemplant la scène. Lors de l'achat de la demeure, de nombreux voisins étaient venus à sa rencontre. Wang Lin se montra très aimable envers eux; la plupart comprirent qu'il n'était qu'un étudiant venu passer les examens. Ne pouvant s'offrir une auberge, il avait loué cette maison pour étudier en vue des épreuves de l'année suivante.
 
 À mesure que le ciel s'obscurcissait, les travailleurs fatigués rentraient chez eux et le calme s'installa.
 

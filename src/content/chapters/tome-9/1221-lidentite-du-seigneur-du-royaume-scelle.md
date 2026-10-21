@@ -122,7 +122,7 @@ Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les s
 
 À cet instant, dans le Système Stellaire Antique, parmi les étoiles infinies, Tuo Sen fixait le ciel. Il serrait les dents, envahi par une humeur sombre. Sa colère était telle qu'il brûlait de détruire tout être vivant sur son passage.
 
-Il avait déployé des efforts colossaux pour briser cette formation. Finalement, au prix de l'effondrement d'une étoile et du sacrifice des cultivateurs du troisième pas scellés dans ses astres, il avait à peine réussi à franchir la formation de scellement pour dévorer Wang Lin. Pourtant, maintenant, malgré tous ses efforts, il ne parvenait pas à trouver l'aura de ce dernier.
+Il avait déployé des efforts colossaux pour briser cette formation. Finalement, au prix de l'effondrement d'une étoile et du sacrifice du cultivateur du troisième pas scellé dans son étoile, il avait à peine réussi à franchir la formation de scellement pour dévorer Wang Lin. Pourtant, maintenant, malgré tous ses efforts, il ne parvenait pas à trouver l'aura de ce dernier.
 
 « Il n'est ni dans le Royaume Scellé, ni dans le Royaume Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même? Mais c'est impossible avec son niveau de culture! » Il rugit vers les cieux, les yeux injectés de sang. Il perçut au loin un champ stellaire où semblaient vivre de nombreux membres du peuple antique. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
 

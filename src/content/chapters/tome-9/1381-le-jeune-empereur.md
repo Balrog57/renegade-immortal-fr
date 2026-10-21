@@ -24,7 +24,7 @@ Cette épée était d'une rapidité telle qu'il était impossible de la suivre �
 
 Le gravement blessé Maître Simo ne put esquiver alors que l'épée de sang lui transperçait la poitrine. Des bruits de craquements résonnèrent dans son corps, mais il ne mourut toujours pas!
 
-L'avatar de Maître Simo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Déchaîné, quarante millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
+L'avatar de Maître Simo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Déchaîné, dix millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
 
 Cependant, le blesser à ce point ferait de Wang Lin une légende dans les Royaumes Intérieur et Extérieur. Après tout, il n'avait accompli qu'une seule essence. S'il complétait sa deuxième, troisième, quatrième et cinquième essence, même s'il n'avait pas encore ouvert la Porte du Vide, il pourrait affronter un cultivateur de la troisième étape!
 
@@ -56,7 +56,7 @@ Le visage du jeune maître du Clan du Dragon Blindé était extrêmement disgrac
 
 Son père, le Patriarche du Dragon Blindé, affichait un visage sombre. Il interrompit son fils d'un ton lugubre:
 
-« Pourquoi paniquer? Le fait d'avoir pu blesser et forcer l'avatar de Maître Simo, un cultivateur du Cinquième Fléau Céleste, à battre en retraite prouve qu'il est très puissant. Ton père n'est certes pas son égal, mais je suis un Ancien du Conseil Déchu et j'ai été loyal envers le Grand Empereur, tandis qu'il n'est qu'un simple étranger. Le Grand Empereur n'a pas confirmé sa parole sur les cinq respirations, mais même si c'était le cas, s'il m'avait provoqué, le Grand Empereur l'aurait tout de même tué! Hmph, il n'osera pas me chercher des ennuis. À sa place, je partirais immédiatement pour trouver un endroit où guérir. »
+« Pourquoi paniquer? Le fait d'avoir pu blesser et forcer l'avatar de Maître Simo, un cultivateur du Cinquième Fléau Céleste, à battre en retraite prouve qu'il est très puissant. Ton père n'est certes pas son égal, mais je suis le neuvième Ancien du Conseil Déchu et j'ai été loyal envers le Grand Empereur, tandis qu'il n'est qu'un simple étranger. Le Grand Empereur n'a pas confirmé sa parole sur les cinq respirations, mais même si c'était le cas, s'il m'avait provoqué, le Grand Empereur l'aurait tout de même tué! Hmph, il n'osera pas me chercher des ennuis. À sa place, je partirais immédiatement pour trouver un endroit où guérir. »
 
 Wang Lin flottait dans les airs et poussa un profond soupir. Bien que son combat contre l'avatar de Maître Simo eût été bref, il avait été chargé de danger et il était blessé. Ce qui le rendait encore plus prudent était l'attitude du Grand Empereur.
 

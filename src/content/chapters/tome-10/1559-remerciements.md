@@ -46,11 +46,11 @@ Cette huitième épine se trouvait au niveau de la tête, au carrefour de la vie
 
 « Cette huitième épine n'est pas une simple épine, mais quelque chose placé là pour ouvrir sa réincarnation... » La silhouette aux sept couleurs semblait sourire en observant la main de Wang Lin se refermer lentement sur l'objet.
 
-La main de Wang Lin marqua un temps d'arrêt lorsqu'elle fut à un pouce de l'épine. Celle-ci était différente des sept autres. Bien qu'elles fussent toutes incrustées dans le corps de Qing Shui, la plupart des autres épines ne dépassaient que légèrement. En revanche, cette huitième épine était presque entièrement enfouie, avec seulement deux pouces à l'extérieur.
+La main de Wang Lin marqua un temps d'arrêt lorsqu'elle fut à un pouce de l'épine. Celle-ci était différente des sept autres. Bien qu'elles fussent toutes incrustées dans le corps de Qing Shui, la plupart des autres épines dépassaient encore de plus de la moitié. En revanche, cette huitième épine était presque entièrement enfouie, avec seulement deux pouces à l'extérieur.
 
 Deux pouces, c'était très peu!
 
-La main de Wang Lin ne pouvait s'arrêter, mais il ignorait ce qui arriverait à Qing Shui une fois l'épine retirée. Sa position était tout simplement trop périlleuse.
+La main de Wang Lin dut s'arrêter, car il ignorait ce qui arriverait à Qing Shui une fois l'épine retirée. Sa position était tout simplement trop périlleuse.
 
 Qing Shui leva lentement les yeux vers Wang Lin. Bien que son visage fût marqué par la souffrance, son regard restait clair. Il fixa Wang Lin un long moment, puis hocha la tête.
 

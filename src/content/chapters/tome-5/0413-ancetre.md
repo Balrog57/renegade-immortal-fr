@@ -22,7 +22,7 @@ En voyant cela, les cultivateurs de Zhao furent transportés par l'excitation.
 
 Ces runes circulèrent autour de lui tandis qu'il faisait un pas en avant.
 
-La sculpture en bois s'illumina une fois de plus. L'anneau de lumière s'étendit et entra en contact avec les runes entourant le membre du Clan des Immortels Délaissés. L'anneau trembla violemment, mais il ne put résister et finit par se dissiper.
+La sculpture en bois s'illumina une fois de plus. L'anneau de lumière s'étendit et entra en contact avec les runes entourant le membre du Clan des Immortels Délaissés. Les runes tremblèrent violemment, ne purent résister et se dissipèrent.
 
 En un seul pas, le membre du Clan des Immortels Délaissés atteignit le sommet du Mont Heng Yue. Il tendit la main, sur le point de saisir la sculpture.
 

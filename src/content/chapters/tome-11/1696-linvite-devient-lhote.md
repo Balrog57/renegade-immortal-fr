@@ -8,7 +8,7 @@ slug: linvite-devient-lhote
 ---
 Lorsque Fan Shanmeng entendit les paroles de Wang Lin, un éclat à peine perceptible traversa son regard. Elle esquissa un sourire, mais au moment même où elle allait parler, le navire trembla violemment.
 
-Ce choc vint de l'extérieur comme un vent impétueux. La secousse fit vibrer tout le vaisseau et un grondement sourd résonna à l'intérieur, propulsant le navire en arrière de plusieurs centaines de kilomètres.
+Ce choc vint de l'extérieur comme un vent impétueux. La secousse fit vibrer tout le vaisseau et un grondement sourd résonna à l'intérieur, propulsant le navire en arrière de plusieurs milliers de pieds.
 
 Ce changement soudain fit vaciller l'expression de Fan Shanmeng, qui tourna précipitamment le regard vers l'extérieur.
 

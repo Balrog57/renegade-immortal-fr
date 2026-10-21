@@ -24,7 +24,7 @@ C'est pourquoi il ne permettrait pas à cette bataille de se terminer prématur�
 
 Plus l'Ancien Démon Ta Jia serait puissant et plus il ressentirait le désespoir, plus Wang Lin en retirerait dans ce combat.
 
-À cet instant, après avoir brisé trois étoiles et alors que l'énergie démoniaque saturait son corps, celui de Ta Jia se rétracta de manière inattendue, ne mesurant bientôt plus que cent pieds. Cependant, à mesure qu'il rétrécissait, il devenait plus dense, presque corporel.
+À cet instant, après avoir brisé trois étoiles et alors que l'énergie démoniaque saturait son corps, celui de Ta Jia se rétracta de manière inattendue, ne mesurant bientôt plus que mille pieds. Cependant, à mesure qu'il rétrécissait, il devenait plus dense, presque corporel.
 
 « Moi, Ta Jia, j'ai dévoré l'Ancien Démon Bei Luo ainsi que trois anciens démons de mon propre clan! J'utilise ces démons raffinés comme catalyseur pour condenser ma colère, ma tristesse, mon envie et ma cupidité en un sortilège surpuissant de mon clan d'anciens démons! » Le corps de l'Ancien Ta Jia s'éleva, entouré d'une énergie démoniaque semblable à un vent hurlant balayant le monde.
 
@@ -34,7 +34,7 @@ Ces quatre émotions traversèrent l'éclair des yeux de l'Ancien Démon Ta Jia 
 
 Les quatre filaments fusionnèrent au bout de son doigt, formant une lumière noire terrifiante. Celle-ci ne fonça pas sur Wang Lin, mais se concentra à la pointe du doigt de Ta Jia! Dès l'apparition de cette lueur noire, ce fut comme si le monde allait se déchirer. La terre gronda et le désert invoqué par Wang Lin se tordit, comme sur le point de s'effondrer.
 
-Les yeux de Ta Jia devinrent totalement rouges; il fit un pas en avant et pointa sa main gauche vers le ciel en criant: « La fureur des cieux! Quiconque ose se rebeller contre les cieux subira leur courroux! Le Doigt des Quatre Désirs de mon clan absorbe cette fureur pour résister au Dao céleste! »
+Les yeux de Ta Jia devinrent totalement rouges; il fit un pas en avant et pointa sa main gauche vers le ciel en criant: « La fureur des cieux! Quiconque ose se rebeller contre les cieux subira leur courroux! Le Doigt des Neuf Désirs de mon clan absorbe cette fureur pour résister au Dao céleste! »
 
 À peine eut-il fini de parler qu'un grondement de tonnerre retentit et qu'un gaz rouge surgit dans le ciel, convergeant vers la lumière noire.
 
@@ -88,11 +88,11 @@ Les yeux de Wang Lin brillèrent alors qu'il avançait pour pénétrer les ondul
 
 Par ce simple geste, la loi des cieux descendit. Cette loi était invisible, mais elle figea le corps de Ta Jia comme s'il était emprisonné en plein vol!
 
-Wang Lin s'approcha et frappa doucement le front de Ta Jia de sa main droite. Un grand fracas retentit et une quantité massive d'énergie démoniaque fut expulsée du dos de l'ancien démon. Ce gaz noir monstrueux était constamment repoussé vers l'intérieur.
+Wang Lin s'approcha et frappa doucement le front de Ta Jia de sa main droite. Un grand fracas retentit et une quantité massive d'énergie démoniaque fut expulsée du dos de l'ancien démon. Ce gaz noir monstrueux refluait sans cesse, comme balayé avec fureur.
 
 Un cri misérable résonna tandis que le corps de Ta Jia était projeté en arrière. Cependant, la loi qui l'entravait ne s'était pas dissipée: il ne pouvait plus bouger, ni même utiliser son énergie démoniaque.
 
-« Étoile brisée! » Wang Lin poursuivit l'ancien démon de près, sa main droite pointant sans relâche sur tout le corps de ce dernier. Des quantités infinies d'énergie démoniaque furent expulsées du corps de l'ancien démon.
+« Brise tes étoiles! » Wang Lin poursuivit l'ancien démon de près, sa main droite pointant sans relâche sur tout le corps de ce dernier. Des quantités infinies d'énergie démoniaque furent expulsées du corps de l'ancien démon.
 
 « Toujours pas de bris d'étoile? » En un éclair, il pointa Ta Jia sept fois. À chaque coup, Ta Jia était projeté au loin, mais Wang Lin le rattrapait immédiatement par un nouveau doigt pointé.
 

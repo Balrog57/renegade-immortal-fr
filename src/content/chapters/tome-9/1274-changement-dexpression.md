@@ -28,7 +28,7 @@ Ce garçon avait une chevelure blanche, mais sa peau était claire et pure. En s
 
 Seules les batailles à mort entre cultivateurs du troisième niveau les poussaient à combattre dans leurs corps réels. Mais Shui Daozi était apparu inopinément sous sa forme véritable. Cela démontrait manifestement sa volonté de tuer Wang Lin, mais révélait aussi l'importance et la prudence qu'il accordait à cette affaire!
 
-Il craignait que Wang Lin ne soit réellement la réincarnation de son maître; il craignait que Wang Lin ne possède des trésors défiant le ciel!
+Il craignait que Wang Lin ne soit réellement la réincarnation de son maître; il craignait que Wang Lin ne possède le trésor Défiant le Ciel!
 
 Au moment où le garçon aux cheveux blancs sortit de la brume, une intention meurtrière éclata dans les yeux de Wang Lin. Il attendait ce moment: l'instant où l'ennemi révélerait son vrai corps!
 

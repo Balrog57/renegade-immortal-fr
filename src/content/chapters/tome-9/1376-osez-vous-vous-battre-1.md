@@ -10,7 +10,7 @@ Le Fléau Céleste de Troisième Niveau!
 
 Tant dans le Domaine Intérieur que dans le Domaine Extérieur, qu'il s'agisse d'un clan ou d'une secte, un cultivateur ayant atteint le troisième Fléau Céleste était une puissance redoutable que nul n'oserait provoquer. Tous jouissaient d'un statut très élevé et d'un immense pouvoir.
 
-Dans le Domaine Intérieur, si une secte de la région de rang 8 dans la Mer des Nuages possédait un cultivateur du troisième Fléau Céleste, elle atteindrait alors le sommet. Même dans les régions de rang 9, les cultivateurs de ce niveau étaient rares.
+Dans le Domaine Intérieur, si une secte de rang 8 de la Mer des Nuages possédait un cultivateur du troisième Fléau Céleste, elle atteindrait alors le sommet. Même dans les sectes de rang 9, les cultivateurs de ce niveau étaient rares.
 
 La puissance du Domaine Intérieur était bien inférieure à celle du Domaine Extérieur. Le vieil homme apparu devant Wang Lin était un cultivateur du troisième Fléau Céleste. Le Clan des Moineaux de Feu était l'un des clans les plus prestigieux du Système Stellaire Antique; ils avaient le pouvoir d'envoyer un tel expert pour diriger la branche du Clan des Moineaux de Feu dans les Terres Déchues.
 
@@ -78,7 +78,7 @@ En voyant les pilules, les yeux de la femme brillèrent et elle les rattrapa. Ap
 
 Wang Lin demanda lentement: « Est-ce suffisant pour les cristaux? »
 
-La femme prit une profonde inspiration, scruta de nouveau les cristaux, puis hocha la tête: « C'est suffisant! »
+La femme prit une profonde inspiration, scruta de nouveau les pilules, puis hocha la tête: « C'est suffisant! »
 
 À cet instant précis, le vieil homme du Clan des Moineaux de Feu intervint: « Compagnon de Culture Zhao, ce vieux pourrait-il examiner ces pilules? » Bien que son expression restât calme, son cœur était en plein tumulte. En voyant les pilules, il ressentit une aura qui ébranla ses fondations.
 
@@ -106,7 +106,7 @@ Il agita la main et les trois pierres blanches apparurent dans sa paume avant de
 
 « J'ai beaucoup de pilules. Je ne sais simplement pas ce que vous pouvez offrir en retour », répondit Wang Lin avec un sourire en fixant l'homme.
 
-Interrogé à son tour, le vieil homme fut surpris un instant avant de déclarer: « N'importe quelle planète possédant un Ancien Déchu peut vendre des marionnettes et des Cristaux de Mutation de Feu Déchaîné, mais mon Clan du Dragon Blindé possède trois trésors uniques! Vous ne pouvez obtenir ces trois trésors que chez nous! Le premier est constitué d'Écailles de Dragon. Un ensemble de 3 982 écailles, imprégnées du sang de mon clan, peut former de multiples couches de protection après l'activation d'un sort. Aucun trésor ordinaire ne peut les percer; elles peuvent même bloquer certains sorts! »
+Interrogé à son tour, l'homme fut surpris un instant avant de déclarer: « N'importe quelle planète possédant un Ancien Déchu peut vendre des marionnettes et des Cristaux de Mutation de Feu Déchaîné, mais mon Clan du Dragon Blindé possède trois trésors uniques! Vous ne pouvez obtenir ces trois trésors que chez nous! Le premier est constitué d'Écailles de Dragon. Un ensemble de 3 982 écailles, imprégnées du sang de mon clan, peut former de multiples couches de protection après l'activation d'un sort. Aucun trésor ordinaire ne peut les percer; elles peuvent même bloquer certains sorts! »
 
 Il poursuivit en regardant Wang Lin: « Il y a aussi le deuxième trésor: le Dragon d'Os Blanc. Ce dragon est issu du raffinage des squelettes de membres décédés du Clan du Dragon Blindé sur plusieurs générations. Ils sont rares, mais chaque Dragon d'Os Blanc possède une force capable de briser la terre. De plus, puisqu'ils sont déjà morts, ils vivront éternellement! »
 

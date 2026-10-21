@@ -78,7 +78,7 @@ Observant la lutte des trois âmes, Wang Lin enchaîna rapidement les sceaux en 
 
 En voyant ces anneaux, les trois âmes de bêtes se débattirent avec encore plus acharnement.
 
-Graduellement, les mouvements de Wang Lin s'accélérèrent et de nouveaux anneaux apparurent. Bientôt, plus de cent anneaux remplirent la pièce. D'un geste du doigt, il les fit tous voler vers l'un des chars.
+Graduellement, les mouvements de Wang Lin s'accélérèrent et de nouveaux anneaux apparurent. Bientôt, plus de cent anneaux remplirent la pièce. Il les fit tous voler vers le char du centre.
 
 « Scellement! »
 
@@ -116,6 +116,6 @@ Wang Lin songea: « Ces Chars de Guerre Divin sont vraiment extraordinaires. Ils
 
 « Je me demande seulement si l'activation du char affecte l'âme de la bête. En temps normal, aucune source d'énergie n'est infinie dans ce monde. L'âme de la bête risque d'être endommagée après un certain nombre d'utilisations, voire de disparaître totalement. Malheureusement, le Céleste des Trésors Célestes n'a laissé aucune information à ce sujet. » Wang Lin leva les yeux vers le ciel et s'enfonça dans une profonde réflexion.
 
-« Je pense que le Céleste des Trésors Célestes n'a pas eu assez de temps avant sa mort pour inscrire toutes les informations dans le métal; il n'a laissé que l'essentiel. Cela signifie que je vais devoir mener mes propres recherches pour mieux comprendre ces Chars de Guerre Divin. » Wang Lin réfléchit encore un moment, puis toucha son sac de rangement en affichant un léger sourire.
+« Je pense que le Céleste des Trésors Célestes n'a pas eu assez de temps avant sa mort pour inscrire toutes les informations dans le métal; il n'a laissé que l'essentiel. Cela signifie que je vais devoir mener mes propres recherches pour mieux comprendre ces Chars de Guerre Divin. » Wang Lin prit une profonde inspiration, puis toucha son sac de rangement en affichant un léger sourire.
 
 « La récolte de ce voyage dans le Royaume Céleste est excellente, mais le danger fut tout aussi grand. Si quelque chose s'était mal passé lors de l'effondrement de ce fragment, je serais sans doute mort à présent. Plus le risque est grand, plus la récompense est immense. Cette maxime est bien vraie! Par conséquent, je devrai réfléchir avec soin à l'invitation de Chi Hu. » Wang Lin flotta dans les airs, plongé dans ses pensées.

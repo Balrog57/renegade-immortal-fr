@@ -76,7 +76,7 @@ Wang Lin déploya son sens divin et fut stupéfait: l'endroit était une caverne
 
 Il réfléchit un instant avant de voler vers l'une des ouvertures, précisément celle empruntée par les deux hommes.
 
-En plein vol, il s'arrêta soudainement lorsqu'il perçut, grâce à son sens divin, que ses deux cibles s'étaient immobilisées à une centaine de pieds devant lui. Devant eux se dressait une statue de pierre haute de plusieurs dizaines de pieds. Cette statue représentait une immense créature aviaire.
+En plein vol, il s'arrêta soudainement lorsqu'il perçut, grâce à son sens divin, que ses deux cibles s'étaient immobilisées à environ trois cents mètres devant lui. Devant eux se dressait une statue de pierre haute de plusieurs dizaines de pieds. Cette statue représentait une immense créature aviaire.
 
 « Autrefois, l'Ancêtre a trouvé la bête céleste Qi Lin ici. Jeune frère cadet, protège-moi pendant que je rassemble l'énergie spirituelle céleste des environs. »
 

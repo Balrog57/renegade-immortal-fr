@@ -36,7 +36,7 @@ Quant aux sacs des trois hommes, Wang Lin les inspecta et y trouva quelques tré
 
 La puissance d'un corps de Gardien Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste de l'Empereur Céleste Qing Lin. Cependant, ces trésors avaient disparu depuis bien longtemps.
 
-Wang Lin ne pouvait donc que faire au mieux: il extrayait divers trésors pour s'en servir de matériaux afin de rendre le corps du Gardien Céleste de plus en plus puissant.
+Wang Lin ne pouvait donc que faire au mieux: il extrayait les matériaux contenus dans divers trésors afin de rendre le corps du Gardien Céleste de plus en plus puissant.
 
 Il y avait également deux morceaux de jade dans leurs sacs. D'après leurs souvenirs, ces jades servaient à contacter la famille Yao. On pouvait dire que la famille Yao avait déployé des forces considérables pour s'en prendre à lui.
 

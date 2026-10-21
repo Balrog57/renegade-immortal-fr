@@ -104,7 +104,7 @@ Le cadavre de feu se désintégra. Sa puissance ne toucha pas la planète Suzaku
 
 La flamme était si puissante que Ta Shan dut reculer. Même le garçon à la grosse tête pâlit en se retirant; il savait que si ce cadavre avait explosé devant lui, il n'aurait pu survivre!
 
-Il n'aurait jamais imaginé que Liu Qingyun oserait combattre dans une position aussi désavantageuse! C'était la première fois que le garçon à la grosse tête se forgeait une impression aussi profonde des cultivateurs de l'Alliance.
+Il n'aurait jamais imaginé que Liu Qingyun oserait combattre malgré un avantage aussi écrasant! C'était la première fois que le garçon à la grosse tête se forgeait une impression aussi profonde des cultivateurs de l'Alliance.
 
 Un rire démentier s'échappa de la gorge de Liu Qingyun, puis sa silhouette féroce fulgura alors qu'il chargeait droit vers le ciel. Avec son tempérament, il ne se résignait pas facilement; tout ce qu'il avait fait n'était qu'une mise en scène pour tromper ses adversaires. Si l'explosion du cadavre s'était propagée normalement, elle n'aurait même pas affecté la planète. Mais en concentrant toute cette puissance, bien qu'elle restât insuffisante pour détruire le monde, il était certain que personne de son niveau de culture ne pourrait y résister.
 

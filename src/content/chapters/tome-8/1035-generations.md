@@ -22,7 +22,7 @@ Au moment où Wang Lin vit ces trois ombres, ses pupilles se rétractèrent brus
 
 Le démon du vent se tenait devant les trois fantômes. Ses mains formèrent un sceau tandis qu'elle fixait Wang Lin et hurlait: « Peu importe que tu sois un dieu ancien! Tu deviendras l'un des principaux drapeaux du trésor sacré de mon clan des démons anciens! »
 
-Un éclair d'intention meurtrière traversa les yeux du démon du vent et sa main droite pointa vers l'avant. Les trois fantômes derrière elle s'élancèrent. Le dieu ancien à six étoiles fit un pas en avant et lança un coup de poing vers Wang Lin.
+Un éclair d'intention meurtrière traversa les yeux du démon du vent et sa main droite pointa vers l'avant. Les trois fantômes derrière elle hurlèrent au ciel. Le dieu ancien à six étoiles fit un pas en avant et lança un coup de poing vers Wang Lin.
 
 Les deux fantômes des démons démoniaques chargèrent Wang Lin depuis les flancs avec une aura sanguinaire, comme s'ils voulaient le dévorer.
 

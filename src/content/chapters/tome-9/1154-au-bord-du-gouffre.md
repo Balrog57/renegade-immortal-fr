@@ -74,7 +74,7 @@ Alors qu'ils fendaient le brouillard stellaire, le regard de Noble Argent se fit
 
 Sur le chemin parcouru, ce cultivateur aux cheveux blancs n'était pas le premier qu'il croisait. Cependant, l'endroit n'étant pas loin du continent sauvage, Noble Argent ne put s'empêcher d'être vigilant.
 
-Tout en avançant, son regard resta verrouillé sur l'homme aux cheveux blancs. Lui seul, mais aussi une dizaine de disciples de la Secte de la Fleur Claire, fixaient le cultivateur.
+Tout en avançant, son regard resta verrouillé sur l'homme aux cheveux blancs. Non seulement lui, mais aussi une dizaine de disciples de la Secte de la Fleur Claire fixaient le cultivateur.
 
 Ces regards étaient si pesants que le visage de Wang Lin devint pâle. Un choc visible traversa son expression alors qu'il contemplait avec stupeur ces dix rayons de lumière. Il s'immobilisa en plein vol, comme s'il avait oublié comment planer. Il savait que sa culture était singulière et que les étrangers ne pouvaient pas la percer immédiatement; cela risquait d'attirer des soupçons inutiles. C'est pourquoi il maintenait constamment son énergie originelle au stade intermédiaire de Scruteur du Nirvana.
 
@@ -96,7 +96,7 @@ C'était un message envoyé par la seconde vague de cultivateurs. Il ne contenai
 
 Shi Luoxing était mort!
 
-Le visage de Noble Argent devint extrêmement sombre et il broya impitoyablement le jade. Soudain, son regard se posa sur Wang Lin. Il ne soupçonnait pas directement ce dernier, mais maintenant que Shi Luoxing était mort sans qu'on sache qui l'avait tué, tous — qu'il s'agisse de la Secte des Cinq Poisons ou de n'importe quelle autre secte de rang 6 — devenaient suspects!
+Le visage de Noble Argent devint extrêmement sombre et il broya impitoyablement le jade. Soudain, son regard se posa sur Wang Lin. Il ne soupçonnait pas directement ce dernier, mais maintenant que Shi Luoxing était mort sans qu'on sache qui l'avait tué, que la Secte des Cinq Poisons ou une autre ait agi, tout cultivateur aux abords du continent sauvage devenait suspect!
 
 Cette affaire était d'une importance capitale, et Noble Argent préférait tuer mille innocents plutôt que de laisser un seul coupable s'échapper!
 
@@ -104,6 +104,6 @@ Cette affaire était d'une importance capitale, et Noble Argent préférait tuer
 
 Le visage de Wang Lin changea. Il se leva avec respect, tout en affichant la dose exacte de panique nécessaire: « Compagnons Cultivateurs, que signifie cela? »
 
-« Ne nous forcez pas à agir. Compagnon Cultivateur, suivez-nous, et vite! » Parmi les huit disciples, six étaient au stade Yang Corporel et deux au stade initial de Scruteur du Nirvana.
+« Ne nous forcez pas à agir. Compagnon Cultivateur, suivez-nous, et vite! » Parmi les huit disciples, six étaient au stade Yang Corporel et un au stade initial de Scruteur du Nirvana.
 
 S'ils avaient rencontré Wang Lin dans des circonstances normales, ils n'auraient jamais osé un tel acte, car sa culture était supérieure à la leur. Cependant, en présence de l'Ancien Noble Argent et face à une affaire aussi cruciale pour leur secte, ils étaient devenus tous d'une hostilité sans faille.

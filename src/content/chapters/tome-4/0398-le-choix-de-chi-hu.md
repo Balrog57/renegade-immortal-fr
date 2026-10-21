@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 398 - Chi Hus choice
 slug: le-choix-de-chi-hu
 ---
-La silhouette de Chi Hu se déplaça comme un éclair et arriva presque instantanément après avoir entendu ces mots. Il regarda les membres de son clan qui portaient chacun une marque légère et une marque profonde sur le front.
+La silhouette de Chi Hu se déplaça comme un éclair et arriva presque instantanément après avoir prononcé ces mots. Il regarda les membres de son clan qui portaient chacun une marque légère et une marque profonde sur le front.
 
 Chi Hu ne pouvait détecter que de très faibles fluctuations d'énergie spirituelle. Il était évident que leur culture avait déjà été scellée.
 

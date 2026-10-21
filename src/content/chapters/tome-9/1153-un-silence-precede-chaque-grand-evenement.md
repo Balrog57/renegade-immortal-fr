@@ -66,7 +66,7 @@ Ses yeux étaient empreints d'incrédulité face au fragment d'os qu'il tenait. 
 
 En particulier, une phrase de cette recette résonna avec force dans son esprit. Il serra fermement l'os dans sa main, une intention meurtrière monstrueuse embrasant son regard. À cet instant, quiconque aurait tenté de lui ravir ce fragment aurait subi la fureur déchaînée de Wang Lin.
 
-« Celui qui consomme cette pilule a 10 % de chances de transformer la Loi en Origine Source et d'atteindre ce que nous, cultivateurs, appelons la troisième étape! Il a 50 % de chances de surmonter le Fléau Céleste! Et il a 80 % de chances d'entrer dans le Royaume Shi! »
+« Celui qui consomme cette pilule a 10 % de chances de transformer la Loi en Origine Source et d'atteindre ce que nous, cultivateurs, appelons la troisième étape! Il a 50 % de chances de surmonter une tribulation du Fléau Céleste! Et il a 80 % de chances d'entrer dans le Royaume Shi! »
 
 Il fallut beaucoup de temps à Wang Lin pour retrouver son sang-froid. Il rangea promptement le jade et l'os dans son espace de stockage. Il n'avait pas le temps d'en analyser les détails, mais il était intimement convaincu que ces objets suffiraient à provoquer une véritable calamité dans le monde de la culture!
 

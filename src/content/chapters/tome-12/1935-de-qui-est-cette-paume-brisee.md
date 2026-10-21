@@ -103,9 +103,9 @@ Le mouvement soudain de Wang Lin inquiéta l'Exalté Empyréen, qui s'apprêtait
 
 La magnifique silhouette de l'Exalté Empyréen s'immobilisa, contemplant le dos de Wang Lin qui s'élevait. Pour une raison inconnue, cela lui rappela le moment où il avait bloqué la paume pour elle, quelques années plus tôt.
 
-Wang Lin atteignit instantanément la bordure du rideau de lumière, à moins de trois pieds de celui-ci. Lorsqu'il s'en approcha, la silhouette floue à l'extérieur se déplaça vers lui.
+Wang Lin atteignit instantanément la bordure du rideau de lumière, à moins de trois pouces de celui-ci. Lorsqu'il s'en approcha, la silhouette floue à l'extérieur se déplaça vers lui.
 
-À l'extérieur du rideau, l'entité floue s'arrêta également, à trois pieds de la barrière de lumière. Elle se trouvait donc à moins de six pieds de Wang Lin!
+À l'extérieur du rideau, l'entité floue s'arrêta également, à trois pouces de la barrière de lumière. Elle se trouvait donc à moins de six pouces de Wang Lin!
 
 C'était un visage sans peau, une masse sanglante et terrifiante. Pourtant, elle dégageait une majesté indicible. La silhouette globale restait floue; seule la main gauche paraissait solide, comme si elle était réelle, car elle possédait de la peau!
 
@@ -119,7 +119,7 @@ L'esprit de Wang Lin tourbillonna et il perdit connaissance. Dans son esprit, ce
 
 Tandis que le son résonnait, un battement de cœur semblable au tonnerre jaillit du corps de Wang Lin, résistant au bombardement de cette voix. Wang Lin se réveilla soudainement et entendit les appels anxieux de l'Exalté Empyréen Hai Zi. Un parfum l'effleura alors qu'elle s'approchait déjà de lui.
 
-« Je vais bien », dit lentement Wang Lin. Il n'était plus qu'à un pied du rideau de lumière. Un seul pas, et il franchirait la barrière.
+« Je vais bien », dit lentement Wang Lin. Il n'était plus qu'à un pouce du rideau de lumière. Un seul pas, et il franchirait la barrière.
 
 À l'instant où Wang Lin reprit connaissance, la silhouette floue poussa un rugissement et percuta le rideau de lumière. Le rideau de lumière vacilla violemment mais ne céda pas.
 

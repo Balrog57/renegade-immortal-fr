@@ -34,11 +34,11 @@ La montagne de nuages trembla et s'effondra. Les nuages furent repoussés, rév�
 
 Le corps de Wang Lin ressentait également un immense inconfort. Après avoir transféré l'attaque dans la formation, il était blessé. Il cracha une bouchée de sang, mais son regard resta ferme. Il observa froidement la formation et la rétribution divine s'affronter.
 
-Que ce soit la Formation du Royaume Scellé ou la rétribution divine, ces deux choses étaient détestées par Wang Lin. Il se souvenait encore de ce qu'il avait vu à l'intérieur du Royaume aux Sept Couleurs. À travers les âges, la Formation du Royaume Scellé avait été souillée par le sang de trop nombreux cultivateurs du Royaume Scellé. Même maintenant, Wang Lin pouvait encore entendre leurs rugissements d'injustice.
+Que ce soit la Formation du Royaume Scellé ou la rétribution divine, ces deux choses étaient détestées par Wang Lin. Il se souvenait encore de ce qu'il avait vu à l'intérieur du Royaume aux Sept Couleurs. À travers les âges, la Formation du Royaume Scellé avait été souillée par le sang de trop nombreux cultivateurs du Royaume Intérieur. Même maintenant, Wang Lin pouvait encore entendre leurs rugissements d'injustice.
 
 « Je refuse que cela soit! Je refuse que cela soit! Un jour viendra où une future génération de cultivateurs brisera cette formation et causera l'extinction de tous vous, les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 
-La première fois qu'il avait entendu cette voix, elle avait enflammé le sang de Wang Lin et éveillé sa fougue guerrière. Après tout, il était né dans le Royaume Scellé, et le Royaume Scellé était son foyer!
+La première fois qu'il avait entendu cette voix, elle avait enflammé le sang de Wang Lin et éveillé sa fougue guerrière. Après tout, il était né dans le Royaume Intérieur, et le Royaume Intérieur était son foyer!
 
 La montagne de nuages s'effondra et la rotation des quatre épées fut stoppée par la lance blanche. En raison de l'immense quantité de nuages repoussés, le pavillon de jade blanc, qui s'extrayait constamment d'une fissure vers un autre monde, fut exposé.
 

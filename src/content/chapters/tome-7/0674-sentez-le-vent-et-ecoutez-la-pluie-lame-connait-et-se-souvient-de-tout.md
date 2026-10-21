@@ -68,7 +68,7 @@ L'expression de l'ancêtre de la famille Ran devint sombre alors qu'il se tourna
 
 Le visage de Wang Lin resta impassible et il hocha la tête.
 
-« Nommé Xu! Qui êtes-vous exactement et pourquoi voulez-vous vous immiscer dans les affaires de ma famille Huan?! » Huan Dong se tourna soudainement vers Wang Lin en fulminant: « L'ancêtre de ma famille est déjà revenu; pensez-vous vraiment pouvoir lutter contre lui? Je vous laisse partir, et je promets de ne rien dire à ma dame; je ne vous impliquerai certainement pas dans cette affaire! »
+« Nommé Xu! Qui êtes-vous exactement et pourquoi voulez-vous vous immiscer dans les affaires de ma famille Huan?! » Huan Dong se tourna soudainement vers Wang Lin en fulminant: « L'ancêtre de ma famille est déjà revenu; pensez-vous vraiment pouvoir lutter contre lui? Laissez-moi partir, et je promets de ne rien dire à ma dame; je ne vous impliquerai certainement pas dans cette affaire! »
 
 « La demoiselle de la famille Huan? » Wang Lin regarda Huan Dong.
 

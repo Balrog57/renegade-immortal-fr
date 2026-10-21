@@ -110,7 +110,7 @@ Le corps de Li Qianmei trembla et des larmes coulèrent au coin de ses yeux. Ses
 
 Papillon Rouge observa la scène, surprise. Elle les regarda tous deux, plongée dans une réflexion silencieuse.
 
-Le Maître Dao Bleu Rêve soupira et conduisit sa fille vers la formation. En un instant, ils se retrouvèrent à moins de dix pieds de la barrière. La formation en roue bourdonna, signe qu'elle s'activait.
+Le Maître Dao Bleu Rêve soupira et conduisit sa fille vers la formation. En un instant, ils se retrouvèrent à moins de cent pieds de la barrière. La formation en roue bourdonna, signe qu'elle s'activait.
 
 Le regard de Wang Lin quitta Li Qianmei pour se tourner vers le Maître Dao Bleu Rêve. Ses yeux brillèrent intensément, mais cet éclat se dissipa rapidement.
 

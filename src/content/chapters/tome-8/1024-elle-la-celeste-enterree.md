@@ -48,7 +48,7 @@ Une immense quantité de flammes jaillit de son pied pour le repousser. Bien que
 
 L'Ancien Démon Bei Luo laissa échapper un rire et ignora totalement l'aspiration du vortex. Son corps vacilla et il apparut au loin.
 
-Son œil droit brilla, entouré d'une puissante force démoniaque. Il souffla devant lui, créant des ondulations dans l'air. Avant de s'engager dans ces rides spatiales, il se retourna pour observer ceux qui luttaient dans le vortex. Son regard croisa celui de Wang Lin et il sourit: « Jeune ami Wang Lin, puisque tu as permis à ce vieil homme d'entrer, je ne te traiterai pas mal. Je vais t'indiquer la voie de sortie. Ce lieu est le Bassin Funéraire Céleste de l'Empereur Céleste Qing Lin, jadis célèbre dans tout le Royaume Céleste. Le nombre de Célestes qui y ont péri est incalculable. Si tu es aspiré par mégarde, je crains que tu ne meures. Ta seule option est de te libérer le plus vite possible! »
+Son œil droit brilla, entouré d'une puissante force démoniaque. Il souffla devant lui, créant des ondulations dans l'air. Avant de s'engager dans ces rides spatiales, il se retourna pour observer ceux qui luttaient dans le vortex. Son regard croisa celui de Wang Lin et il sourit: « Jeune ami Wang Lin, puisque tu as permis à ce vieil homme d'entrer, je ne te dois rien. Je vais t'indiquer la voie de sortie. Ce lieu est le Bassin Funéraire Céleste de l'Empereur Céleste Qing Lin, jadis célèbre dans tout le Royaume Céleste. Le nombre de Célestes qui y ont péri est incalculable. Si tu es aspiré par mégarde, je crains que tu ne meures. Ta seule option est de te libérer le plus vite possible! »
 
 Les paroles de Bei Luo résonnèrent à travers le vortex. Wang Lin réfléchit en silence avant de frapper son sac de rangement; plus de dix grandes épées s'envolèrent, tournoyant autour de lui pour créer une force de contrepoids qui, alliée à son énergie originelle et aux flammes, luttait contre la succion.
 
@@ -94,9 +94,9 @@ En fixant la silhouette vague, une pointe d'hésitation passa dans les yeux de B
 
 Après avoir renoncé à l'idée de sauver qui que ce soit, le corps de Bei Luo vacilla et disparut lentement, utilisant sa propre méthode unique pour quitter les lieux.
 
-Au moment précis où la silhouette vague s'élança dans les airs, une aura maléfique enveloppa tout le monde. Situ Nan traça de nombreux sceaux et lança des sorts. Cependant, à cet instant, la silhouette vague leva sa main droite et fit un geste léger.
+Au moment précis où la silhouette vague s'élança dans les airs, une aura maléfique enveloppa tout le monde. Situ Nan traça de nombreux sceaux et lança des sorts, et sa silhouette s'envola. Cependant, à cet instant, la silhouette vague leva sa main droite et fit un geste léger.
 
-L'intention malveillante atteignit son paroxysme, et le vortex balaya tout dans une tempête meurtrière. Le corps de Ling Tianhou trembla et fut entraîné vers le bas.
+L'aura maléfique atteignit son paroxysme, et le vortex balaya tout dans une tempête meurtrière. Le corps de Ling Tianhou trembla et fut entraîné vers le bas.
 
 Et Situ Nan fut emporté avec lui!
 

@@ -42,7 +42,7 @@ Même les membres de la Secte Éternelle qui avaient suivi Li Qianmei regardère
 
 Lu Yingjie afficha un sourire plus large encore, porté par toute cette attention. Il fit quelques pas en avant pour rejoindre Li Qianmei qui venait de se poser.
 
-En entendant la voix de Lu Yingjie, le regard de Li Qianmei se fixa sur lui et elle fronça les sourcils. Alors que Lu Yingjie s'avançait, elle passa indifféremment devant lui.
+En entendant la voix de Lu Yingjie, le regard de Li Qianmei se fixa sur lui et elle fronça les sourcils. Alors que Lu Yingjie s'avançait, son regard froid le balaya.
 
 Elle avait combattu la marée de bêtes dans la faille pendant cent ans et revenait tout juste du champ de bataille sans aucun repos. Son corps était naturellement imprégné d'une intention meurtrière telle qu'un seul de ses regards fit frissonner le cœur de Lu Yingjie. Son visage se crispa instantanément, mais il retrouva vite son calme et joignit les mains en souriant: « Cent ans ont passé, mais Dame Li est toujours aussi vaillante et redoutable... »
 

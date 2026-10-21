@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 928 - Five Element Golden Corpse
 slug: le-cadavre-dor-des-cinq-elements
 ---
-« Puisque tu ne comprends pas, alors disparais dans le vide! » La femme en robe bleue abaissa sa main gauche, le regard complexe qui habitait ses yeux s'effaçant progressivement.
+« Puisque tu ne comprends pas, alors disparais dans le vide! » La femme en robe bleue de Shui Luo abaissa sa main gauche, le regard complexe qui habitait ses yeux s'effaçant progressivement.
 
 Les pupilles de Wang Lin se rétractèrent alors qu'il sentait une pression peser sur lui. Sous cette force, il constata que l'énergie originelle à l'intérieur de son corps était en réalité obstruée.
 

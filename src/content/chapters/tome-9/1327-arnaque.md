@@ -36,7 +36,7 @@ La femme en blanc ne daigna même pas jeter un regard à ces éclairs; elle fixa
 
 Alors qu'elle était sur le point de s'évanouir dans le néant, elle lança ces paroles glaciales: « Je vous laisserai partir pour le moment, mais vous mourrez à coup sûr la prochaine fois. Gardez votre divinité en sécurité… Il ne faudra pas attendre longtemps avant que nous nous revoyions! »
 
-Pourtant, ce à quoi elle répondit fut l'index droit de Wang Lin et une voix plus froide encore!
+Pourtant, ce qui lui répondit fut l'index droit de Wang Lin et une voix plus froide encore!
 
 « Immobilisation! »
 

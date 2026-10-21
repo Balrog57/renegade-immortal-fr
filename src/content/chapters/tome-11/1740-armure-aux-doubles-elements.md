@@ -46,15 +46,15 @@ Wang Lin recula de plusieurs pas. Alors que le fouet vert approchait, une lueur 
 
 Au moment où sa paume s'élançait, ses doigts se resserrèrent pour former un poing, puis il rétracta brutalement son mouvement!
 
-Impression Karmique!
+Empreinte Karmique!
 
 Grâce à ce mouvement de traction, une lueur verte fut extraite du fouet et aspirée dans la poigne de Wang Lin. Il serra sans pitié, et la lumière verte s'effondra sur elle-même!
 
 Des grondements tonitruants résonnèrent et le fouet marqua un temps d'arrêt. À cet instant précis, l'herbe de la planète se flétrit rapidement pour se transformer en une force de bois qui se rassembla à l'intérieur du fouet.
 
-En un instant, l'essence extraite par l'Impression Karmique de Wang Lin fut restaurée. Le fouet cingla l'air et fila vers Wang Lin!
+En un instant, l'essence extraite par l'Empreinte Karmique de Wang Lin fut restaurée. Le fouet cingla l'air et fila vers Wang Lin!
 
-Un bang fracassant retentit et le corps de Wang Lin trembla violemment. Le fouet n'avait pas touché sa peau, mais s'était arrêté à sept pieds de distance. Les ondulations créées par l'impact projetèrent une force puissante contre lui.
+Un bang fracassant retentit et le corps de Wang Lin trembla violemment. Le fouet n'avait pas touché sa peau, mais s'était arrêté à sept pouces de distance. Les ondulations créées par l'impact projetèrent une force puissante contre lui.
 
 Wang Lin recula de plusieurs pas en réprimant le sang qui montait à sa gorge. Le vieil homme laissa échapper un rire arrogant et frappa à nouveau, visant cette fois la tête de Wang Lin!
 
@@ -64,11 +64,11 @@ Wang Lin n'était pas surpris par le niveau de culture du vieil homme, mais êtr
 
 « Un fouet? J'en ai un aussi! » Soudain, l'esprit de Wang Lin s'illumina. Son esprit étant aussi rusé que celui d'un démon, il trouva immédiatement le meilleur moyen d'obtenir les réponses qu'il cherchait.
 
-La main droite de Wang Lin plongea vers le vide et son Fouet Spirituel apparut. Le fouet tourbillonna dans un crépitement sonore. La lumière dorée du Fouet Spirituel semblait entrer en compétition avec la lueur verte!
+La main droite de Wang Lin plongea vers le vide et son Fouet Kunji apparut. Le fouet tourbillonna dans un crépitement sonore. La lumière dorée du Fouet Kunji semblait entrer en compétition avec la lueur verte!
 
-À la vue du Fouet Spirituel, le vieil homme fut stupéfait, mais il se souvint rapidement de quelque chose et son expression devint sombre.
+À la vue du Fouet Kunji, le vieil homme fut stupéfait, mais il se souvint rapidement de quelque chose et son expression devint sombre.
 
-Tout cela se produisit en un éclair. Wang Lin, tenant fermement son Fouet Spirituel, avança. Il agita soudainement le bras et les deux fouets entrèrent en collision!
+Tout cela se produisit en un éclair. Wang Lin, tenant fermement son Fouet Kunji, avança. Il agita soudainement le bras et les deux fouets entrèrent en collision!
 
 De loin, ils ressemblaient à deux pythons géants. Leur choc provoqua un grondement de tonnerre. Les fouets étant souples, ils s'entrelacèrent dès le contact, comme s'ils fusionnaient, rendant toute séparation difficile.
 

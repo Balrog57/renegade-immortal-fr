@@ -108,7 +108,7 @@ Des renflements apparurent sur les tentacules sous l'effet de cette absorption r
 
 Il était évident que leur vitalité venait d'être brusquement arrachée, entraînant leur mort immédiate!
 
-Ce changement soudain assombrit le visage de Wang Lin. Sans hésiter, il regagna l'intérieur du fourneau et scella l'ouverture. Un gaz blanc l'enveloppa aussitôt.
+Ce changement soudain assombrit le visage de Wang Lin. Sans hésiter, il regagna l'intérieur du fourneau et fit des gestes de sceau. Une brume blanche l'enveloppa aussitôt.
 
 La zone subissant cette mutation colossale ne se limitait pas à l'espace de Wang Lin; tout le passage étroit était en plein chaos.
 

@@ -28,8 +28,6 @@ Wang Lin pouvait vaguement entendre les échos d'il y a mille ans.
 
 « Tie Zhu, tu dois bien étudier. L'année prochaine aura lieu le grand examen du comté. Cela déterminera si tu as un avenir ou non. Ne sois pas comme ton père, qui passera toute sa vie dans ce village. Hélas. »
 
-« Assez! Tu l'importunes avec ça tous les jours. Je suis convaincue que notre Tie Zhu réussira sans faute. »
-
 « Tie Zhu, ton quatrième oncle est un homme de bien. Au fil des ans, c'est grâce à son aide que les sculptures sur bois de ton père ont pu être vendues. Si tu as un bel avenir, n'oublie pas de remercier ton quatrième oncle. »
 
 Une aura de tristesse émana du corps de Wang Lin. Il pénétra dans la cour et dans la demeure qu'il avait quittée depuis des centaines d'années.

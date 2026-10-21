@@ -30,7 +30,7 @@ Il ne fallut pas longtemps avant que la formation entourant les centaines de cul
 
 Un instant plus tard, la formation gronda et Wang Lin ouvrit les yeux.
 
-Zhang Jingyun, l'air exalté, sourit: « Tout le monde, la formation est sur le point de s'ouvrir. Vite, sortez vos talismans. Nous resterons groupés à cinq pour ne pas nous disperser, et une fois entrés dans les 7 Millions de Mondes, nous pourrons ensemble devenir le Dao Céleste. Quelle joie! »
+Zhang Jingyun, l'air exalté, sourit: « Tout le monde, la formation est sur le point de s'ouvrir. Vite, sortez vos talismans. Nous cinq protégerons la transmission pour ne pas être dispersés, et une fois entrés dans les 7 Millions de Mondes, nous pourrons ensemble devenir le Dao Céleste. Quelle joie! »
 
 « Je crains que vous n'ayez besoin d'une seule expérience de ce sentiment pour en être accros. Je ne perdrai pas plus de temps, allons-y! » Voyant Wang Lin et les autres sortir leurs talismans, Zhang Jingyun et sa compagnie s'envolèrent immédiatement tout en encerclant le groupe de Wang Lin.
 
@@ -76,7 +76,7 @@ Ce qu'il avait vécu était identique à ce que subissait le vieillard, mais ave
 
 « Très bien, nous laisserons le frère Zhang agir! » Les autres rirent et acquiescèrent.
 
-Zhang Jingyun devint encore plus exalté alors qu'il avançait, enveloppé d'une lumière cristalline. Il s'éleva au-dessus des nuages pour apparaître sous les nuages de la rétribution divine!
+Zhang Jingyun devint encore plus exalté alors qu'il avançait, enveloppé d'une lumière cristalline. Il fit un pas hors des nuages pour apparaître sous les nuages de la rétribution divine!
 
 À cet instant, il était entouré d'énergie spirituelle céleste. Quiconque le voyait ressentirait l'envie de le vénérer. Il leva la main droite et pointa le vieillard en contrebas. Sa voix résonna comme le tonnerre:
 

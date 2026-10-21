@@ -38,7 +38,7 @@ Simultanément, quatre éclairs noirs convergèrent depuis le haut, le bas, la d
 
 Enfin, le tonnerre surgissant du dessous du fragment perça le fragment pour frapper à son tour Wang Lin.
 
-Les quatre rayons de tonnerre noir déferlèrent sauvagement à travers le corps de Wang Lin, entrant une fois de plus en collision avec le corps de sang et la puissance du vieil homme mystérieux.
+Les quatre rayons de tonnerre noir déferlèrent sauvagement à travers le corps de Wang Lin, entrant une fois de plus en collision avec la moitié du corps de sang et la puissance du vieil homme mystérieux.
 
 Le choc fut d'une intensité sans précédent, comme si une véritable tempête s'était déchaînée au sein même de son organisme. Les trois puissances libérèrent des quantités phénoménales d'énergie originelle.
 
@@ -74,7 +74,7 @@ Les nuages autour de lui semblèrent s'irriter, et la puissance céleste se mua 
 
 Wang Lin riait de plus belle tandis que son âme originelle jaillissait de son corps. Elle n'avait plus forme humaine, mais avait pris l'apparence d'un ancien dragon de tonnerre. Alors que les huit éclairs noirs tombaient, son âme originelle en forme de dragon les dévora.
 
-Il engloutit successivement ces huit éclairs avant de retourner dans son corps, pour ensuite les relâcher. Le corps de sang et la puissance du vieil homme explosèrent à nouveau, lui offrant en échange encore plus d'énergie originelle.
+Il engloutit successivement ces huit éclairs avant de retourner dans son corps, pour ensuite les relâcher. La moitié du corps de sang et la puissance du vieil homme explosèrent à nouveau, lui offrant en échange encore plus d'énergie originelle.
 
 Le niveau de culture de Wang Lin grimpa en flèche sous l'impact de cette énergie libérée. Sa culture au stade Yin Illusoire se stabilisa et commença déjà à pousser vers le sommet de ce même stade!
 

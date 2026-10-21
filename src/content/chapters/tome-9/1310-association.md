@@ -68,7 +68,7 @@ Lorsque le Seigneur du Royaume Scellé descendit, le premier problème qu'il dut
 
 Le Seigneur du Royaume Scellé possédait des sorts et une sagesse immenses. Grâce à son aide, tout progressait dans la bonne direction. En utilisant les quatre Royaumes Célestes, il empêcha la Formation du Royaume Scellé d'absorber les Flammes Joss.
 
-Cependant, tout cela fut anéanti. Le Royaume Extérieur ne permettrait pas une telle chose au sein du Royaume Intérieur. Avant la calamité, le Seigneur du Royaume Scellé fut attaqué par surprise par le Shui Daozi. Puis il fut gravement blessé par le Souverain, les autres maîtres du Royaume Extérieur et certains traîtres de l'Ancien Royaume Céleste. Il avait failli mourir! Bai Fan était devenu fou en pointant le ciel du doigt. L'esprit de Qing Lin fut déchiré par la fille du Souverain, avant qu'il ne soit traqué par l'ancien démon et l'ancien diable.
+Cependant, tout cela fut anéanti. Le Royaume Extérieur ne permettrait pas une telle chose au sein du Royaume Intérieur. Avant la calamité, le Seigneur du Royaume Scellé fut attaqué par surprise par le Shui Daozi. Puis il fut gravement blessé par le Souverain, les autres maîtres du Royaume Extérieur et certains traîtres de l'Ancien Royaume Céleste. Il avait failli mourir! Bai Fan était devenu fou en pointant le ciel du doigt. L'esprit de Qing Lin fut déchiré par la fille du Souverain, la concubine Fu, avant qu'il ne soit traqué par l'ancien démon et l'ancien diable.
 
 Les Royaumes Célestes des Nuages et de l'Éclair subirent un sort similaire!
 

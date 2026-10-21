@@ -64,7 +64,7 @@ Fort de son expérience dans la Mer des Démons, Wang Lin avait appris qu'outre 
 
 Ces échanges exigeaient souvent un niveau de culture minimum pour y accéder.
 
-Wang Lin observa la boutique un instant. Alors qu'il s'avançait vers elle, son expression changea: il vit un jeune homme accourir vers lui. Ce dernier était très beau, mais semblait terrifié par sa course effrénée, jetant sans cesse des regards derrière lui. Il était poursuivi par un homme d'âge moyen qui le traquait avec une expression malveillante. L'homme finit par le rattraper et tenta de s'en saisir. Dans sa fuite pour esquiver, le jeune homme percuta Wang Lin.
+Wang Lin observa la boutique un instant. Alors qu'il s'avançait vers elle, son expression changea: il vit un jeune homme accourir vers lui. Ce dernier était très beau, mais semblait terrifié par sa course effrénée, jetant sans cesse des regards derrière lui. Il était poursuivi par un homme d'âge moyen qui le traquait avec une expression malveillante. L'homme finit par le rattraper et tenta de s'en saisir. Dans sa fuite pour esquiver, le jeune homme faillit percuter Wang Lin.
 
 Le corps de Wang Lin se déplaça brusquement sur le côté pour l'éviter.
 
@@ -160,7 +160,7 @@ L'expression du chauve changea et il gémit intérieurement. Il ouvrit précipit
 
 Il tenta de dire rapidement: « Camarade cultivateur, c'est un malentendu... »
 
-Wang Lin l'interrompit par un renâclement froid. Il pointa son doigt vers lui et neuf dragons noirs, formés par le drapeau de restriction, chargèrent vers l'homme.
+Wang Lin l'interrompit par un renâclement froid. Il pointa son doigt vers le drapeau de restriction et neuf dragons noirs, formés par celui-ci, chargèrent vers l'homme.
 
 Simultanément, Wang Lin frappa son sac et le miroir de bronze apparut dans sa main. Il leva l'objet qui projeta des rayons de lumière verte.
 

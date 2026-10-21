@@ -122,7 +122,7 @@ Wang Lin détourna le regard et redoubla de prudence dans la brume, progressant 
 
 Très loin de lui, dans une autre terre scellée, une bataille sanglante faisait rage! Dans ce monde lugubre, deux silhouettes se livraient un combat dont les grondements résonnaient comme le tonnerre.
 
-En dessous d'eux, près de cent cultivateurs s'entretuaient. La jeune femme du Clan de l'Extermination des Sceaux était habitée par une intention meurtrière intense; plus de dix cadavres ou blessés jonchaient déjà le sol autour d'elle.
+En dessous d'eux, près de cent cultivateurs s'entretuaient. La jeune femme du Clan de l'Extermination des Sceaux était habitée par une intention meurtrière intense; près de dix cadavres ou blessés jonchaient déjà le sol autour d'elle.
 
 « Miao Yin, oses-tu voler l'esprit Dao de ce vieil homme? Mon corps originel partira massacrer la Mer du Son pour livrer un combat à mort au tien! »
 

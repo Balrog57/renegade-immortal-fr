@@ -82,7 +82,7 @@ Les deux doigts de sa main droite formaient la pointe d'une épée capable de pe
 
 Le ciel et la terre tremblèrent lors de la collision entre les dix millions de rayons d'énergie et l'empreinte de paume. Les rayons d'épée s'effondrèrent et l'empreinte vacilla un instant. C'est à ce moment que les deux doigts de Wang Lin, enveloppés de lumière rouge, transpercèrent le centre de l'empreinte!
 
-L'empreinte se brisa dans un fracas tonitruant, dispersant l'oppressante énergie originelle. L'expression de l'homme changea une fois de plus; il voulut s'enfuir, mais il était trop tard. Wang Lin avait traversé l'empreinte et s'était avancé. Ses deux doigts pointaient désormais le front de l'adversaire!
+L'empreinte se brisa dans un fracas tonitruant, dispersant l'oppressante énergie originelle. L'expression de l'homme changea une fois de plus; il voulut s'enfuir, mais il était trop tard. Wang Lin avait traversé l'empreinte et s'était avancé. Ses deux doigts frappèrent aussitôt le front de l'adversaire!
 
 L'individu trembla et cracha du sang. Il battit en retraite précipitamment pour quitter la faille spatiale!
 

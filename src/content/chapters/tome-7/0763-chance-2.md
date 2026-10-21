@@ -74,7 +74,7 @@ Une des sphères explosa dans un fracas assourdissant!
 
 Un gémissement misérable sembla résonner dans le vide, et les autres sphères commencèrent à se rassembler frénétiquement. L'âme originelle de l'Ancêtre Sanguin était sur le point de s'éveiller.
 
-Les yeux de Wang Lin devinrent injectés de sang. Il sentait que si ces sphères fusionnaient, il ne reverrait jamais l'occasion d'achever l'Ancêtre Sanguin! Sa main droite pointa vers le sang et il hurla: « Arrêtez! »
+Une intention meurtrière traversa les yeux de Wang Lin. Il sentait que si ces sphères fusionnaient, il ne reverrait jamais l'occasion d'achever l'Ancêtre Sanguin! Sa main droite pointa vers le sang et il hurla: « Arrêtez! »
 
 Le sort d'Arrêt apparut instantanément, mais l'âme originelle contenue dans le sang était trop puissante. En raison de son faible niveau de culture, Wang Lin ne parvint pas à stopper l'Ancêtre Sanguin.
 

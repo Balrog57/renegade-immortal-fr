@@ -20,7 +20,7 @@ Elle contenait également plusieurs veines sanguines; cette sculpture en bois é
 
 Les yeux du vieil homme aux cheveux blancs s'illuminèrent lorsqu'il jeta un coup d'œil à la sculpture. Il fut légèrement ému. Ce qui l'intéressait n'était pas l'objet en lui-même, mais la méthode utilisée pour sa fabrication.
 
-Le Pavillon de Raffinage des Trésors était célèbre pour son expertise dans le raffinage d'objets précieux. Ce vieil homme étant un maître en la matière, il fut capable de remarquer instantanément l'anomalie de la sculpture.
+Le Pavillon de Raffinage des Trésors était célèbre pour son expertise dans le raffinage d'objets précieux. Ce vieil homme étant un maître en la matière, il fut capable de remarquer instantanément le caractère extraordinaire de la sculpture.
 
 Qu'il s'agisse du faible domaine d'un cultivateur de la Formation de l'Âme ou des veines sanguines à l'intérieur, les deux étaient d'une complexité extrême. Cependant, les veines sanguines lui semblaient étrangement familières pour une raison quelconque.
 

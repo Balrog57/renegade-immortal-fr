@@ -22,7 +22,7 @@ Depuis son arrivée à la Secte de l'Origine, Wang Lin n'avait pas caché son ni
 
 L'énergie originelle d'un cultivateur du Purificateur du Nirvana est intégrée au monde, ce qui lui permet d'en absorber pour son usage personnel. Tant que l'énergie originelle à l'intérieur de son corps reste immobile, aucune fluctuation n'apparaît. Si cela avait été tout, Lu Yanfei aurait peut-être remarqué quelque chose.
 
-Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà entrevu la troisième étape dans la Perle Défiant le Ciel. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à la faveur de l'Empereur Céleste Qing Lin. Par conséquent, personne sur ce continent n'était capable de percer sa culture.
+Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà entrevu la troisième étape dans la Perle Défiant le Ciel. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à la faveur de l'Empereur Céleste Qing Shuang. Par conséquent, personne sur ce continent n'était capable de percer sa culture.
 
 Vêtu de blanc et tenant son parapluie, il quitta la cour pour commencer à arpenter la Secte de l'Origine. Il croisa d'autres cultivateurs, mais tous étaient pressés et ne se dérangèrent pas mutuellement.
 

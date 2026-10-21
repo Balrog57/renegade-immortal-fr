@@ -16,7 +16,7 @@ La sueur perlait sur son front. Lu Yuncong n'avait jamais rencontré une personn
 
 Il avait même la sensation que ce monde changerait selon la volonté de cet homme.
 
-« S'il s'assoit là, il est le Dao! » Une pensée étrange traversa l'esprit de Lu Yuncong.
+« Il est assis là, il est le Dao! » Une pensée étrange traversa l'esprit de Lu Yuncong.
 
 C'est à ce moment que les paroles de Li Qianmei retentirent. Sa voix était douce et mélodieuse; elle possédait une élégance qui apaisait instantanément les esprits. Lorsque le regard de Wang Lin passa de Lu Yuncong à Li Qianmei, Lu Yuncong poussa un soupir de soulagement. Il recula de plusieurs pas, l'expression sombre.
 
@@ -122,7 +122,7 @@ Li Qianmei s'inclina et dit doucement: « Dao Frère peut-il me dire son nom? »
 
 Li Qianmei cligna des yeux et esquissa un sourire. Son sourire de jeune fille était très séduisant, mais Lu Yuncong, plongé dans ses amères réflexions, ne le vit pas. Wang Lin le vit, mais resta indifférent.
 
-« Le Frère Lu a mal calculé. La plupart des pilules que possède Qianmei sont incomplètes et doivent être raffinées à nouveau au sein de la secte. La plus haute qualité que j'aie est seulement de rang 10; ce n'est pas une Pilule de Séparation de l'Âme, mais une pilule de guérison. Puisque le Frère Lu la demande, je vous la donnerai. » Après avoir parlé, sa main droite plongea dans le vide et une fente vers son espace de stockage apparut. Une pilule vola vers les mains de Wang Lin.
+« Le Frère Lu a mal calculé. La plupart des pilules que possède Qianmei sont incomplètes et doivent être raffinées à nouveau au sein de la secte. La plus haute qualité que j'aie est seulement de rang 10; ce n'est pas une Pilule de Séparation de l'Âme, mais une Pilule Ji-Cai pour soigner les blessures. Puisque le Frère Lu la demande, je vous la donnerai. » Après avoir parlé, sa main droite plongea dans le vide et une fente vers son espace de stockage apparut. Une pilule vola vers les mains de Wang Lin.
 
 Wang Lin fronça les sourcils en acceptant la pilule et la rangea après l'avoir examinée.
 

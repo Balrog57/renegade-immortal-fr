@@ -35,7 +35,7 @@ La femme en violet ouvrit la bouche comme pour parler, mais finit par garder le 
 
 Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la femme en violet vers lui et dit calmement: « Que veut dire Senior Sœur par là? »
 
-La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Si tu n'avais pas fui à l'époque, il est probable que tu aurais disparu mystérieusement au cours de ces cent dernières années! »
+La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Tu as fui à temps à l'époque. Si tu n'avais pas quitté la secte ces cent dernières années, tu aurais déjà disparu mystérieusement! »
 
 « Je présume que tu as déjà remarqué qu'au sein de la Secte du Destin Céleste, hormis Maître, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Yin Illusoire! »
 

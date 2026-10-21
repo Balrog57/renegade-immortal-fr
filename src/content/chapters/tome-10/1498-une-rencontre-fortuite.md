@@ -70,7 +70,7 @@ Par conséquent, il allait dissiper les tensions passées. Wang Lin l'avait parf
 
 Les vieux monstres ayant cultivé pendant des dizaines de milliers d'années étaient extrêmement rusés. S'ils n'étaient pas tous des démons, ils n'avaient rien d'enfantins.
 
-Maître Lu Fu sourit et agita la main. Une lumière dorée, haute de dix mille pieds, jaillit de sa manche, traçant un chemin. Des sons mélodieux résonnèrent également dans l'éther.
+Maître Lu Fu sourit et agita la main. Une lumière dorée, haute de cent mille pieds, jaillit de sa manche, traçant un chemin. Des sons mélodieux résonnèrent également dans l'éther.
 
 D'innombrables ombres de célestes dansaient autour du sentier doré, et tout le ciel étoilé en était enveloppé. Neuf dragons d'or planaient au-dessus, rugissant et dégageant une aura puissante.
 

@@ -78,7 +78,7 @@ Le temps passa. Le vieil homme à la robe verte ne partit pas; il s'assit et obs
 
 Trois jours plus tard, la fine couche de terre recouvrant le corps de Wang Lin n'avait pas bougé. Une pointe de surprise apparut dans les yeux du vieil homme.
 
-« Trois Perles de Terre Meng ne suffisent pas... Elles permettent seulement à l'essence terrestre en son corps d'atteindre un stade de petite complétude... » Le vieil homme fronça les sourcils et pressa sa main gauche entre ses propres sourcils. Par une méthode spéciale, il en extirpa trois grains de sable!
+« Trois Perles de Terre Meng ne suffisent pas... Elles permettent seulement à l'essence terrestre en son corps d'atteindre un stade de petite complétude... » Le vieil homme fronça les sourcils et pressa sa main gauche entre les sourcils de Wang Lin. Par une méthode spéciale, il en extirpa trois grains de sable!
 
 Ces trois grains étaient rouge sombre, comme s'ils étaient imprégnés de sang.
 

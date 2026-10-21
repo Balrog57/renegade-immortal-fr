@@ -46,7 +46,7 @@ Il l'était au plus haut point!
 
 L'expression du Maître du Dao Rêve Bleu resta neutre alors qu'il soutenait le regard de Wang Lin et disait doucement: « Les conditions sont très simples; il n'y en a que deux! Désormais, vous ne serez plus un homme du Royaume Intérieur, mais un membre de mon Système Stellaire Antique, le jeune maître du Clan de la Soie Bleue! Prenez le Fruit de l'Oubli du Cœur et jurez par une essence de laisser le Royaume Intérieur derrière vous!
 
-Votre corps, votre cœur, tout ce que vous êtes ne sera plus lié au Royaume Intérieur. Vous ne pourrez plus participer à la bataille entre les Royaumes Intérieur et Extérieur, et vous ne pourrez plus jamais aider le Royaume Intérieur! »
+Votre corps, votre cœur, tout ce que vous êtes ne sera plus lié au Royaume Intérieur. Vous n'aurez pas à participer à la bataille entre les Royaumes Intérieur et Extérieur, mais vous ne pourrez plus jamais aider le Royaume Intérieur! »
 
 Les paroles du Maître du Dao Rêve Bleu étaient comme des lames s'enfonçant dans le corps de Wang Lin, faisant trembler tout son être.
 
@@ -108,7 +108,7 @@ La montagne sur laquelle se tenait Wang Lin sembla basculer. La terre devint le 
 
 Sous ses pieds s'étendait un ciel baigné de lumière bleue. Les nuages et le soleil étaient inversés, et seul le Maître du Dao Rêve Bleu demeurait debout!
 
-« Ce sort s'appelle le Sceau d'Inversion Céleste! Qu'est-ce que l'inversion céleste? À mon sens, c'est retourner le ciel pour en faire la terre! La terre qui est devenue le ciel sera le sceau le plus puissant! » Le Maître du Dao Rêve Bleu agita sa main droite et la terre, transformée en ciel, s'abattit avec fracas vers les hauteurs!
+« Ce sort s'appelle le Sceau d'Inversion Céleste! Qu'est-ce que l'inversion céleste? À mon sens, c'est retourner le ciel pour en faire la terre! La terre qui est devenue le ciel sera le sceau le plus puissant! » Le Maître du Dao Rêve Bleu agita sa main droite et la terre, transformée en ciel, s'abattit avec fracas vers le ciel en contrebas!
 
 L'esprit de Wang Lin trembla face à ce spectacle, laissant paraître une incrédulité totale. Il n'aurait jamais imaginé qu'un tel sort puisse exister. Ce sort était d'une puissance extrême et, s'il était utilisé dans l'espace, il pourrait massacrer toute vie!
 

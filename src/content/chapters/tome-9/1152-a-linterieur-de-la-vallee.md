@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1152 - Inside the Valley
 slug: a-linterieur-de-la-vallee
 ---
-Cependant, cette vieille femme avait sous-estimé le vent noir de Wang Lin. Maintenant qu'il avait atteint le stade du Purificateur du Nirvana, la puissance des six grands sorts de Bai Fan commençait à se révéler, bien différente de ce qu'elle était au stade du Scruteur du Nirvana. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
+Cependant, cette vieille femme avait sous-estimé le sort céleste d'Appel du Vent de Wang Lin. Maintenant qu'il avait atteint le stade du Purificateur du Nirvana, la puissance des six grands sorts de Bai Fan commençait à se révéler, bien différente de ce qu'elle était au stade du Scruteur du Nirvana. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
 
 Lorsque les cinq dragons noirs entrèrent en collision avec le brouillard rouge craché par la vieille femme, un grondement tonitruant résonna. Les cinq dragons rugirent, déchirèrent rapidement le brouillard rouge et fusionnèrent en un seul.
 
@@ -20,7 +20,7 @@ Un vent glacial et puissant fit brusquement changer l'expression de la vieille f
 
 Une intention meurtrière brilla dans les yeux de Wang Lin alors qu'il flottait dans les airs. La première attaque qui l'atteignit fut le sceau formé par le regard de la statue. Il se déplaçait avec une célérité fulgurante, visant la poitrine de Wang Lin.
 
-Il n'y avait pas de temps pour esquiver, mais Wang Lin n'avait nullement l'intention de reculer. Le niveau de culture de cette vieille femme était légèrement supérieur au sien et ses sorts étaient bien plus puissants que ceux de Song Wude. Ses attaques étaient vicieuses, mais Wang Lin avait déjà tué son lot de cultivateurs du stade Purificateur du Nirvana!
+Il n'y avait pas de temps pour esquiver, mais Wang Lin n'avait nullement l'intention de reculer. Le niveau de culture de cette vieille femme était légèrement supérieur au sien et ses sorts étaient bien plus puissants que ceux de Song Wude. Ses attaques étaient vicieuses, mais Wang Lin avait déjà tué son lot de cultivateurs au stade intermédiaire du Purificateur du Nirvana!
 
 L'homme le plus téméraire l'emporte sur le chemin étroit! Au moment où le sceau de poison allait l'atteindre, Wang Lin leva la main droite et projeta une force vers l'avant. Il se trouvait soudainement à moins de sept pouces du sceau!
 
@@ -62,7 +62,7 @@ Il était courant pour Wang Lin de tuer, mais ce meurtre était absurde. Il ne l
 
 Le petit serpent qui combattait la femme d'argent trembla soudainement et faiblit dès que la vieille femme fut capturée. Bientôt, la femme d'argent s'empara du reptile.
 
-À cet instant, le singe noir avait déjà contourné le champ de bataille pour pénétrer dans la vallée entourée des huit crânes. L'armée de bêtes chargea dans la vallée.
+À cet instant, le singe noir avait déjà contourné le champ de bataille pour passer au-dessus de la vallée scellée par les huit crânes. L'armée de bêtes chargea dans la vallée.
 
 Les bêtes féroces étaient innombrables et, avec la disparition de la vieille femme, les huit crânes devinrent instables. La foudre qui les reliait tous s'effondra.
 

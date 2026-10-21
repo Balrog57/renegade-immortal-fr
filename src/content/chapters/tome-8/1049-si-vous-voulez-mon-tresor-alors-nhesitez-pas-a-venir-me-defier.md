@@ -104,4 +104,4 @@ Il existait de nombreux trésors Spirituels et Mystérieux; la plupart des objet
 
 Cependant, pour les cultivateurs de la deuxième étape, les trésors Célestes n'étaient pas assez puissants pour satisfaire leurs exigences. Pour les vieux monstres Briseurs du Nirvana, à moins que le trésor céleste ne soit de qualité exceptionnelle, il s'avérait souvent moins utile que des sorts célestes.
 
-À ce stade, ces vieux monstres cherchaient un rang de trésor supérieur. Délaissant les trésors Célestes couramment utilisés par les anciens artisans, ils traquaient des reliques remontant à des époques encore plus reculées. Les vestiges de ces temps antiques étaient des trésors de niveau Vide!
+À ce stade, ces vieux monstres cherchaient un rang de trésor supérieur. Délaissant les trésors Célestes couramment utilisés par les anciens affineurs de Qi, ils traquaient des reliques remontant à des époques encore plus reculées. Les vestiges de ces temps antiques étaient des trésors de niveau Vide!

@@ -90,7 +90,7 @@ Les sorts de Dao étaient très différents des sorts ordinaires. Qu'il s'agisse
 
 Comme le Sceau d'Inversion Céleste et le Bouclier de Lumière et d'Ombre, tout était visible!
 
-Les sorts de Dao étaient invisibles et impossibles à expliquer. Wang Lin avait été confronté à un sort de Dao pour la première fois dans le Royaume aux Sept Couleurs face au vieil homme, et il n'avait pu y résister du tout. Sans le Royaume Ji et la Perle Défiant le Ciel, il n'aurait eu aucune chance.
+Les sorts de Dao étaient invisibles et impossibles à expliquer. Wang Lin avait été confronté à un sort de Dao pour la première fois dans le Royaume aux Sept Couleurs avec la Dispersion du Dao du vieil homme, et il n'avait pu y résister du tout. Sans le Royaume Ji et la Perle Défiant le Ciel, il n'aurait eu aucune chance.
 
 La deuxième fois qu'il entra en contact avec un sort de Dao fut lorsqu'il pénétra pendant plusieurs années dans le domaine du Dao avec l'aide du Seigneur du Royaume Scellé. Il avait compris son propre sort de Dao, mais celui-ci était difficile à expliquer. Bien qu'incomplet, le sort de Dao de Wang Lin provoquait une étrange ondulation qui blessait l'ennemi sans que celui-ci ne s'en aperçoive. À l'extérieur du champ de bataille des fissures de la Secte Démon, il avait blessé les Anciens de la Secte Démon sans qu'ils s'en aperçoivent.
 

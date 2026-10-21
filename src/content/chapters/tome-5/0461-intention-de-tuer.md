@@ -14,7 +14,7 @@ Le regard de Qian Feng s'anima et il lança soudain: « Ceng Niu, que diriez-vou
 
 Une lueur de froideur passa dans les yeux de Wang Lin alors qu'il hochait la tête et répondait: « D'accord! »
 
-Si Qian Feng demandait l'aide de Wang Lin, c'était par nécessité. Il était clair que même avec Liu Mei à ses côtés, ils n'étaient pas certains de pouvoir repousser une telle attaque. S'ils échouaient, ils ne pourraient plus partir à la recherche du palais. Yun Quezi et le vieil homme étaient déjà en avance sur eux; s'ils traînaient, il serait peut-être trop tard.
+Si Qian Feng demandait l'aide de Wang Lin, c'était par nécessité. Il était clair que même avec Liu Mei à ses côtés, ils n'étaient pas certains de pouvoir repousser une telle attaque. S'ils échouaient, ils ne pourraient pas entrer dans le palais. Yun Quezi et le vieil homme étaient déjà en avance sur eux; s'ils traînaient, il serait peut-être trop tard.
 
 Avec Wang Lin à leurs côtés, les chances de succès des trois étaient désormais nettement accrues.
 
@@ -78,7 +78,7 @@ Les yeux de ce dernier s'illuminèrent et il laissa échapper un reniflement mé
 
 Tout cela faisait partie de son plan.
 
-Dès l'instant où l'attaque fut lancée et que Qian Feng commença à voler, Wang Lin calculait secrètement sa vitesse. Lorsque Qian Feng se trouva à trente-trois mètres de lui, Wang Lin laissa échapper un rire et frappa son sac de rangement. Une pagode en jaillit soudainement pour apparaître devant lui.
+Dès l'instant où l'attaque fut lancée et que Qian Feng commença à voler, Wang Lin calculait secrètement la position de Qian Feng. Lorsque Qian Feng se trouva à trente-trois mètres de lui, Wang Lin laissa échapper un rire et frappa son sac de rangement. Une pagode en jaillit soudainement pour apparaître devant lui.
 
 Le sens divin de Zhou Yi, au stade initial de l'Ascendance, émana de la pagode. L'énergie de l'épée fut contrainte de marquer un temps d'arrêt après avoir rencontré ce sens divin. Profitant de cette brève hésitation, Wang Lin rit, rappela la pagode et fonça vers la mer. Toutefois, il maintint intentionnellement une vitesse assez basse pour rester à environ trente-trois mètres de Qian Feng.
 

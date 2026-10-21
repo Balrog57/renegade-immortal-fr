@@ -44,7 +44,7 @@ Derrière lui, les flammes noires approchaient et la lumière rouge émanait de 
 
 L'Ancêtre Sanguin ouvrit les bras et sa culture de Purificateur du Nirvana, au stade intermédiaire, éclata sans retenue. Des vagues de lumière sanguine jaillirent de son corps pour bloquer les flammes noires qui dévoraient tout sur leur passage.
 
-Son corps fut instantanément enveloppé et les flammes commencèrent à le consumer. Une douleur intense, qu'il n'avait pas ressentie depuis des dizaines de milliers d'années, envahit ses membres. Cependant, l'Ancêtre Sanguin ne s'en souciait guère. Il concentra toute sa puissance pour protéger la zone de trente pieds devant lui, afin d'empêcher le sens divin de Yao Xixue de se dissiper.
+Son corps fut instantanément enveloppé et les flammes commencèrent à le consumer. Une douleur intense, qu'il n'avait pas ressentie depuis des dizaines de milliers d'années, envahit ses membres. Cependant, l'Ancêtre Sanguin ne s'en souciait guère. Il concentra toute sa puissance pour protéger la zone de trente pieds devant lui, afin d'assurer la dissipation du sens divin de Yao Xixue.
 
 Ces quelques respirations durèrent comme des dizaines de milliers d'années. Sous la protection de son père qui contenait l'effondrement, le processus de résurrection de Yao Xixue ne fut pas perturbé par la destruction de l'espace de stockage.
 
@@ -52,7 +52,7 @@ Une lumière rouge emplit la zone où Yao Xixue avait avalé sa Pilule d'Âme Sa
 
 Une fois apparue, elle leva les yeux vers le ciel, le regard empreint de chagrin et d'une intention meurtrière inoubliable.
 
-Après avoir vu le sens divin de sa propre fille s'échapper en toute sécurité, l'Ancêtre Sanguin afficha un sourire paternel et empreint de tendresse. Puis, son corps fut totalement englouti par les flammes noires.
+Après avoir vu le sens divin de sa propre fille se dissiper en toute sécurité, l'Ancêtre Sanguin afficha un sourire paternel et empreint de tendresse. Puis, son corps fut totalement englouti par les flammes noires.
 
 À cet instant, il sortit trois Pilules d'Âme Sanguine. Il ne les dévora pas, mais les écrasa toutes!
 

@@ -52,7 +52,7 @@ Le temps passa lentement et, en un clin d'œil, Wang Lin séjourna à l'extérie
 
 Deux lueurs d'épée volèrent rapidement vers le village. Lorsqu'ils se posèrent, leurs silhouettes apparurent. L'un d'eux portait une cape noire couvrant tout son corps, rendant son identité impossible à distinguer, mais il dégageait une odeur répugnante.
 
-Une voix empreinte de haine s'échappa de l'individu encapuchonné: « Zhang Kuang, les parents de Wang Lin vivent bien ici? »
+Une voix dépourvue de haine s'échappa de l'individu encapuchonné: « Zhang Kuang, les parents de Wang Lin vivent bien ici? »
 
 À ses côtés se tenait un jeune homme très beau, au regard perçant et aux traits masculins marqués, mais dont les yeux manquaient d'éclat, empreints d'une certaine avidité. Il murmura: « Senior frère, ce Wang Zhuo est vraiment méprisable. Je pensais qu'après s'être autant moqué de Wang Lin, il finirait par me dire où se trouvaient ses parents, mais il n'a pas ouvert la bouche. Heureusement, j'ai été assez malin pour vérifier les registres des disciples de la Secte Heng Yue et j'ai découvert qu'il venait de ce village, mais j'ignore quelle est sa maison. »
 

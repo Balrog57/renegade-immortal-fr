@@ -116,4 +116,4 @@ Tout cela parce qu'ils refusaient d'admettre la défaite de leur chef. Ils étai
 
 Le Grand Ancien était le pilier spirituel de tout le Clan du Tonnerre Dispersé!
 
-Wang Lin ricana. Tandis que le dragon avançait, il agita sa main droite et le Fouet de l'Âme apparut. Le fouet doré se déroula, révélant une âme originelle brisée. C'était l'âme du Grand Ancien du Clan du Tonnerre Dispersé!!!
+Wang Lin ricana. Tandis que le dragon avançait, il agita sa main droite et le Fouet Kunji apparut. Le fouet doré se déroula, révélant une âme originelle brisée. C'était l'âme du Grand Ancien du Clan du Tonnerre Dispersé!!!

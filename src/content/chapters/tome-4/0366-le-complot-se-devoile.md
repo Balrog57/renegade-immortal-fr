@@ -86,7 +86,7 @@ Wang Lin s'apprêtait à la poursuivre quand les quatre esprits s'élancèrent s
 
 Les yeux de Wang Lin s'illuminèrent. Il secoua l'étendard de restriction qu'il tenait et la lance se reforma. Il projeta la lance vers l'esprit de métal, qui était en tête. L'esprit accéléra pour percuter l'arme.
 
-Wang Lin abattit son épée céleste de la main droite, mais l'esprit de bois vint parer le coup tandis que les esprits d'eau et de métal convergeaient vers lui.
+Wang Lin abattit son épée céleste de la main droite, mais l'esprit de bois vint parer le coup tandis que les esprits d'eau et de terre convergeaient vers lui.
 
 Wang Lin eut un ricanement intérieur. Autrefois, avant d'atteindre la Formation de l'Âme, il lui avait fallu d'immenses efforts pour venir à bout de ces esprits élémentaires. Mais il se trouvait désormais au milieu du stade de la Formation de l'Âme et avait déjà planifié la manière de dérober ces esprits élémentaires à Papillon Rouge.
 
@@ -100,7 +100,7 @@ Une onde de choc invisible se propagea soudainement, ralentissant un instant les
 
 La vitesse de Wang Lin était fulgurante. Il saisit immédiatement l'esprit de métal et, d'un seul pas, maîtrisa l'esprit de bois. Puis, ignorant les deux autres esprits, il se lança à la poursuite de Papillon Rouge.
 
-Papillon Rouge était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Ceng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Il lui fallait d'abord épuiser tous les trésors de cet homme, puis, grâce à une réserve d'énergie spirituelle supérieure à la sienne, le tuer d'un seul coup!
+Papillon Rouge était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Ceng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Il lui fallait d'abord épuiser tous les trésors de cet homme, puis, grâce à une réserve d'énergie spirituelle supérieure à celle de Wang Lin, le tuer d'un seul coup!
 
 Ses yeux s'assombrirent et elle ordonna: « Esprit de métal, explose! »
 

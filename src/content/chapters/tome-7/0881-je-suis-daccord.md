@@ -14,7 +14,7 @@ Maître Yan Leizi regarda Wang Lin et dit calmement: « Xu Mu, expose ta requêt
 
 « La requête de Junior est de reformer la chair d'une Âme Naissante brisée, endormie et mourante, et de l'éveiller! » Tandis que Wang Lin parlait, sa voix ne trahit aucune émotion. Cependant, son cœur battait si fort qu'il semblait sur le point d'exploser dans sa poitrine.
 
-« Oh? » Les yeux de Maître Yan Leizi se plissèrent. Il réfléchit un instant avant de regarder le vieil homme Xiang et de dire: « Cette requête n'est pas difficile. Depuis les temps anciens, la famille Xiang possède un sort censé être très puissant. Il devrait pouvoir répondre à tes exigences. Qu'en dis-tu, Honorable Cultivateur Xiang? »
+« Oh? » Les yeux de Maître Yan Leizi se plissèrent. Il réfléchit un instant avant de regarder le vieil homme Xiang et de dire: « Cette requête n'est pas difficile. Depuis les temps anciens, la famille Xiang possède un sort nommé Jieshen, aux usages infinis. Il devrait pouvoir répondre à tes exigences. Qu'en dis-tu, Honorable Cultivateur Xiang? »
 
 Le vieil homme Xiang esquissa un léger sourire. Il admirait beaucoup Wang Lin. Il sourit et dit: « Xu Mu, je présume que l'Âme Naissante dont tu parles a vu son corps détruit et a subi de graves blessures, ce qui l'a plongée dans un sommeil profond. Cela ne devrait pas être difficile! Sors cette Âme Naissante et laisse ce vieil homme l'examiner d'abord! »
 

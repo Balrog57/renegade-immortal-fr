@@ -118,7 +118,7 @@ L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un d
 
 « C'est le Seigneur du Royaume Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en culture de porte close depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein!
 
-« Lorsque le Souverain pénétra autrefois dans le Royaume aux Sept Couleurs, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Antique inspire encore la crainte chaque fois qu'on y pense.
+« Lorsque le Souverain pénétra autrefois dans le Royaume Intérieur, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Antique inspire encore la crainte chaque fois qu'on y pense.
 
 « Le lieu où sont plantées les Fleurs aux Sept Couleurs a été scellé par le Souverain. Seul le double du gardien peut y entrer, mais personne ne peut y pénétrer avec son corps réel. Il prétend que c'est pour éviter de perturber l'intention du Dao et permettre la croissance ininterrompue des fleurs, mais quelle est la véritable raison?
 

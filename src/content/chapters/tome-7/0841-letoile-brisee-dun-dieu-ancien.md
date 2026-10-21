@@ -26,7 +26,7 @@ Un langage complexe, semblable à celui des humains, s'entremêlait à ce rugiss
 
 Le vieillard en robe rouge pointa le ciel et fusionna avec la formation octogonale. La formation resta suspendue au-dessus du Serpent aux yeux de lune et fit pleuvoir sur lui un tonnerre flamboyant. Simultanément, les éclairs rouges émanant des quatre jeunes restreignaient étroitement les mouvements de la créature.
 
-L'homme en robe noire se métamorphosa en un aigle géant de 330 mètres. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent aux yeux de lune, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire de Luotian!
+Gongsun, l'homme en robe noire, se métamorphosa en un aigle géant de 330 mètres. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent aux yeux de lune, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire de Luotian!
 
 L'ancêtre de la famille Shengong s'approcha du Serpent aux yeux de lune en un seul pas. En ouvrant les bras, des filaments de tonnerre parcoururent son corps avec frénésie. Le tonnerre jaillissait sous forme de dragons tonnerreux et, bien qu'ils ne fussent pas issus d'un ancien dragon de tonnerre, ils provenaient d'un esprit du tonnerre!
 

@@ -14,7 +14,7 @@ Ce qu'il devait faire maintenant était d'augmenter la distance au maximum afin 
 
 Derrière lui, la seconde âme originelle de Cupidité le poursuivait de près. Cette âme ressemblait à une petite silhouette faite de cristal, entourée d'éclairs noirs.
 
-La résistance venant du fond était brisée par ces sphères de foudre. Les yeux de l'entité brillaient tandis qu'elle fixait Wang Lin. Sa main droite forma un sceau, puis il frappa violemment sa paume vers le bas.
+La résistance venant du fond était brisée par ces sphères de foudre. Les yeux de l'entité brillaient tandis qu'elle fixait Wang Lin. Sa main droite forma un sceau, puis il frappa violemment le vide.
 
 Neuf des sphères de foudre qui l'entouraient s'alignèrent instantanément comme un chapelet de perles. Elles transpercèrent la résistance telle une flèche féroce et volèrent droit sur Wang Lin.
 
@@ -84,7 +84,7 @@ Si l'énergie de Ling Tianhou n'avait pas été présente, la seconde âme origi
 
 Une marque apparut progressivement entre les sourcils de la seconde âme originelle alors qu'il agitait son marteau tonnerre. Cette marque était profonde et scintillait lentement.
 
-Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résistance sans l'aide de Ling Tianhou. Il vola vers le haut en utilisant la force de poussée de l'Abîme des Marées pour s'élancer. Sa vitesse devint plusieurs fois supérieure à celle d'avant; il traversa le filet de foudre et chargea droit sur la seconde âme originelle!
+Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résistance sans l'aide de Ling Tianhou. Il vola vers le haut en utilisant la force de poussée de l'Abîme des Marées pour s'élancer. Sa vitesse devint bien des fois supérieure à celle d'avant; il traversa le filet de foudre et chargea droit sur la seconde âme originelle!
 
 La majeure partie de sa lumière sanguine s'était déjà dissipée, l'obligeant à écraser sans cesse des jades sanguins pour maintenir sa protection. Sans ce bouclier, il ferait face à une épreuve mortelle au sein de ce filet de foudre, même avec un million de sceaux de vie.
 
@@ -148,7 +148,7 @@ Le dragon vert ouvrit les yeux et poussa un véritable rugissement draconique!
 
 À cet instant, le ciel changea de couleur et les nuages s'amoncelèrent. Même la résistance de l'Abîme des Marées fut repoussée.
 
-Wang Lin esquissa un sourire amer. Sans hésiter, il utilisa la force de résistance pour se propulser vers le haut et s'éloigna au maximum de ce dragon vert!
+Wang Lin esquissa un sourire amer. Sans hésiter, il profita de la dissipation de la poussée pour fuir et s'éloigna au maximum de ce dragon vert!
 
 « Cupidité... Cupidité... Cet homme regorge vraiment de trésors, même sa seconde âme originelle est un dragon! Le fourneau que le Dieu Ancien Tu Si a raffiné autrefois est aussi tombé entre ses mains... Son niveau de culture est si élevé qu'on pourrait dire qu'il possède la chance des cieux! » Wang Lin souriait amèrement. Il ignorait que lorsque Cupidité n'avait que huit ans et n'avait même pas commencé sa culture, il avait trouvé un Sceau de Salomon vieux de cinq cents ans en jouant. Il l'avait ramené chez lui et l'avait fait rôtir avant de l'avaler. Non seulement l'énergie ne l'avait pas tué, mais elle avait posé les fondations de sa culture.
 

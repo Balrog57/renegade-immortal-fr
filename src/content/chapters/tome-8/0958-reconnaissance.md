@@ -84,7 +84,7 @@ Pour quiconque la voyait, cette scène semblait être un affrontement d'égal à
 
 Cependant, Wang Lin savait que Ling Tianhou n'avait utilisé aucun sortilège, s'étant contenté d'attaquer avec l'énergie pure de ses épées. Ce n'était pas par clémence, mais parce que même si Wang Lin était au stade initial du Scruteur du Nirvana, il ne représentait pas une menace suffisante pour que Ling Tianhou utilise des sorts!
 
-Une lueur étrange passa dans les yeux de Ling Tianhou, avant de disparaître. Il rit, ayant déjà oublié sa promesse de n'utiliser que trois attaques. Ses mains formèrent un sceau et il les agita; ses cheveux s'agitèrent sans vent, ses yeux s'illuminèrent et il cria: « Tu es digne que ce vieil homme utilise des sorts! Je ne connais que trois sortilèges: Sacrifice, Trou, Brise! Épée de sacrifice, première phase, forger l'épée avec le sang! »
+Une lueur étrange passa dans les yeux de Ling Tianhou, avant de disparaître. Il rit, ayant déjà oublié sa promesse de n'utiliser que trois attaques. Ses mains formèrent un sceau et il les agita; ses cheveux s'agitèrent sans vent, ses yeux s'illuminèrent et il cria: « Tu es digne que ce vieil homme utilise des sorts! Je ne connais que trois sortilèges: Clair, Percer, Brise! Épée Claire, première phase, forger l'épée avec le sang! »
 
 À ces mots, les cultivateurs environnants furent tous ébranlés. Le nom de Ling Tianhou était illustre; c'était un maître dont les sorts pouvaient ébranler les cieux. Chaque cultivateur savait que Ling Tianhou n'avait qu'un seul ennemi mortel: l'Omniscient!
 

@@ -113,3 +113,5 @@ Les blessures de Wang Lin étaient totalement guéries. Cette goutte de sang et 
 À cet instant, l'héritage de l'Ancien Dao de Wang Lin était accompli pour plus de la moitié. Il lui restait encore l'œil gauche et le cœur enfouis dans la Tombe Antique!
 
 Ou encore la main gauche.
+
+Wang Lin respira calmement, puis son regard effleura distraitement la glace sur le côté, là où se tenait Xuan Luo.

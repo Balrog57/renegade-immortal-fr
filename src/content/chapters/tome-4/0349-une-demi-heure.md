@@ -85,6 +85,6 @@ L'expression du vieil homme Hu s'assombrit. Alors qu'il s'apprêtait à répondr
 
 Au loin, plus de vingt rayons de lumière noire convergeaient vers eux. Six d'entre eux arboraient des visages gigantesques, les deux premiers étant particulièrement imposants. La lumière qu'ils dégageaient ressemblait à des flammes démoniaques en furie, tandis que des tatouages à six feuilles apparaissaient et disparaissaient sur leurs fronts.
 
-Arrivés à la limite de la restriction, ils prirent tous forme humaine. Les deux chamans à six feuilles en tête étaient les mêmes qui avaient poursuivi Wang Lin et le vieil homme Hu avant d'être détournés par la bête-tortue.
+Arrivés à la limite de la restriction, ils prirent tous forme humaine. Les deux chamans à six feuilles en tête étaient les mêmes qui avaient poursuivi Wang Lin et le vieil homme Hu avant d'être détournés par la bête Taotie.
 
 Une vieille femme parmi eux portait également plusieurs tatouages supplémentaires et des traces rouges sur son corps, signe qu'elle venait tout juste de les achever. Elle esquissa un sourire tandis que sa main flétrie s'avançait vers eux. La tempête noire, déjà affaiblie, vola en éclats; les seize spectres se dissipèrent et les seize drapeaux furent pulvérisés.

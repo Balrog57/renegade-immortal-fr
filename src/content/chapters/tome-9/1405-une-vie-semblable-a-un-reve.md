@@ -56,7 +56,7 @@ Alors que les dizaines de milliers de cultivateurs entourant la tortue géante r
 
 « Humph, cet homme a vraiment de la chance d'avoir attiré l'attention du premier Jeune Empereur. Cependant, cette épreuve est extrêmement difficile. Je suis certain qu'il échouera! »
 
-« Le Premier Ancien des Terres Déchues n'a même pas osé tenter de revendiquer le titre de Jeune Empereur bien qu'il soit au cinquième Fléau Céleste. Bien que cet homme ait obtenu les faveurs du Grand Empereur et du premier Jeune Empereur, il est hors de question qu'il réussisse. »
+« Le Premier Ancien de la Société Luosheng n'a même pas osé tenter de revendiquer le titre de Jeune Empereur bien qu'il soit au cinquième Fléau Céleste. Bien que cet homme ait obtenu les faveurs du Grand Empereur et du premier Jeune Empereur, il est hors de question qu'il réussisse. »
 
 Wang Lin arriva aux côtés du premier bâton d'encens sous le regard des dizaines de milliers de cultivateurs de l'arène et se posa sur la carapace de la tortue. Comparée au bâton d'encens, la silhouette de Wang Lin paraissait véritablement insignifiante.
 

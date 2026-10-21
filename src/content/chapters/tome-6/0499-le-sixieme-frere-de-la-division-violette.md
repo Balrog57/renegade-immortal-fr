@@ -78,7 +78,7 @@ Chen Tao regarda l'Omniscient avec respect et déclara avec détermination: « M
 
 L'Omniscient eut un léger sourire et répondit: « Actuellement, au sein de la Division Pourpre, toi et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
 
-Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
+Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plusieurs fois plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
 
 Une série de rugissements tonitruants retentit alors que le corps de Wang Lin était violemment repoussé en arrière. Il fit apparaître la hache du Clan du Démon Géant pour bloquer la force de l'impact. Simultanément, il mobilisa l'énergie spirituelle céleste métallique de son bras gauche, ce qui lui permit de se stabiliser après avoir reculé de plus d'une centaine de mètres. Il resta là, fixant Chen Tao d'un regard sombre.
 

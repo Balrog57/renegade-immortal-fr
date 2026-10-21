@@ -94,6 +94,6 @@ C'était le Sceau Céleste des 18 Enfers!
 
 Sans hésiter, la main droite de Wang Lin plongea dans le vide et une lumière cristalline apparut dans sa paume. Il projeta violemment cette lumière vers l'avant et, tandis qu'elle scintillait devant lui, il hurla: « Arsenal Magique! »
 
-À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent des 18 Sceaux Célestes de l'Enfer pour se précipiter vers les éclats de lumière. Ces derniers prirent une consistance presque tangible, dégageant des effluves d'énergie Yin.
+À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent du Sceau Céleste des 18 Enfers pour se précipiter vers les éclats de lumière. Ces derniers prirent une consistance presque tangible, dégageant des effluves d'énergie Yin.
 
 Le plus terrifiant fut de voir l'âme du Maître du Vide surgir de la 18e couche de l'enfer! Les yeux injectés de sang, il poussa un rugissement bestial et chargea l'être sans tête.

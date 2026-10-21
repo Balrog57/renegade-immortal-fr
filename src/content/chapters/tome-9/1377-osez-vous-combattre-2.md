@@ -70,7 +70,7 @@ Il sourit et agita sa main droite, libérant son aura de culture. Le tatouage de
 
 À cet instant, grâce au feu et au sortilège, les 10 000 pilules commençaient à fusionner peu à peu. La température des flammes ne cessait de croître.
 
-Une pilule dorée, de la taille d'un clou, apparut dans l'océan de feu! Finalement, Wang Lin tendit la main droite et toute la chaleur fut aspirée par la pilule.
+Une pilule dorée, de la taille d'un ongle, apparut dans l'océan de feu! Finalement, Wang Lin tendit la main droite et toute la chaleur fut aspirée par la pilule.
 
 Ce petit objet contenait une force destructrice capable de briser les cieux. Elle ne possédait plus quatre auras fusionnées, mais cinq!
 
@@ -94,11 +94,11 @@ Wang Lin agita la main droite et les Cristaux de Mutation de Feu Déchaîné qu'
 
 Wang Lin n'hésita pas à utiliser le sortilège de fusion. Un motif d'Oiseau Vermillon apparut vaguement dans son œil gauche, rendant les flammes encore plus ardentes!
 
-« Cinquième niveau de Fléau Céleste, et alors? Si vous venez avec votre avatar, je vous ferai périr ici même! Si vous venez avec votre corps originel en utilisant votre culture de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue! Même si personne ne m'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan des Moineaux de Feu, ils viendront naturellement à ma rencontre! »
+« Cinquième niveau de Fléau Céleste, et alors? Si vous venez avec votre avatar, je vous ferai périr ici même! Si vous venez avec votre corps originel en utilisant votre culture de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue! Même si personne ne l'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan des Moineaux de Feu, ils viendront naturellement à ma rencontre! »
 
 Wang Lin laissa échapper un reniflement froid et le feu devant lui se rétracta. Tous les Cristaux de Mutation avaient été raffinés en un unique cristal bleu foncé. Il contenait non seulement l'essence du feu, mais portait aussi l'ombre d'un Oiseau Vermillon!
 
-L'intention meurtrière dans ses yeux s'intensifia. Il leva la main droite vers le ciel et deux bêtes-cerfs apparurent. Dès leur manifestation, Wang Lin cria: « Il reste un sceau sur les épées brisées plantées dans le cadavre du cerf. Je veux voir si je peux le rompre maintenant que mon essence de tonnerre est complète! »
+L'intention meurtrière dans ses yeux s'intensifia. Il leva la main droite vers le ciel et deux bêtes-cerfs apparurent. Dès leur manifestation, Wang Lin cria: « Il reste un dernier sceau sur l'épée brisée plantée dans l'os de cerf. Je veux voir si je peux le rompre maintenant que mon essence de tonnerre est complète! »
 
 Tandis qu'il parlait, le tonnerre gronda dans son corps et se concentra dans son index. La foudre forma un filet, produisant des craquements frénétiques.
 

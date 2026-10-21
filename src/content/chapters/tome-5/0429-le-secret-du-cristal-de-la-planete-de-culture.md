@@ -117,7 +117,7 @@ Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna po
 
 « Frère Wang, cela fait bien des années que nous ne nous sommes vus. Vous souvenez-vous encore de moi? » L'homme corpulent s'arrêta à 33 mètres de lui et retira son chapeau.
 
-Du côté est du continent Suzaku, l'expression de l'ancêtre Ascendant de la Secte du Jade Céleste était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan des Immortels Délaissés avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
+Du côté est du continent Suzaku, l'expression de Chu Yunfei, ancêtre Ascendant de la Secte du Jade Céleste, était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan des Immortels Délaissés avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
 
 Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu une fois de plus. Durant leur affrontement, ses blessures s'étaient rouvertes, le contraignant à la fuite. Il se dirigeait vers la Secte du Jade Céleste, ayant décidé qu'il n'aiderait pas Zhu Quezi tant que ses blessures ne seraient pas guéries.
 

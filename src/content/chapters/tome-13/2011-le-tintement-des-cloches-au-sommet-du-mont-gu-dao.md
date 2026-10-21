@@ -20,7 +20,7 @@ Les gens ordinaires ne pouvaient y pénétrer, car cet endroit avait été scell
 
 Wang Lin médita pendant trois mois au sein de la Vallée des Restrictions.
 
-Il existait un autre lieu très mystérieux dans l'Ancien Dao: une nécropole souterraine. Aucun corps n'y était enterré, mais elle regorgeait de trésors abandonnés. Ils étaient inutiles et sans valeur, pourtant, à une époque inconnue, quelqu'un les avait enfouis ici comme une offrande.
+Il existait un autre lieu très mystérieux, sous le pays de Zang, dans l'Ancien Dao: une nécropole souterraine. Aucun corps n'y était enterré, mais elle regorgeait de trésors abandonnés. Ils étaient inutiles et sans valeur, pourtant, à une époque inconnue, quelqu'un les avait enfouis ici comme une offrande.
 
 En raison de la présence de ces trésors, la zone était enveloppée par le pouvoir des cinq éléments. Cette aura devint de plus en plus dense jusqu'à ce que l'aura des essences commence à se manifester.
 

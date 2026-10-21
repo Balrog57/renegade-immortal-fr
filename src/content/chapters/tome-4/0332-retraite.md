@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 332 - Seclusion
 slug: retraite
 ---
-Le front plissé, Wang Lin pointa le cadavre du doigt. Il créa une boule de feu à partir de rien et la projeta sur le corps. Une série de crépitements retentit, suivis par le sifflement strident des insectes qui se transformèrent en poussière avant de disparaître.
+Le front plissé, Wang Lin pointa le cadavre du doigt. Il créa une boule de feu et la projeta sur le corps. Une série de crépitements retentit, suivis par le sifflement strident des insectes qui se transformèrent en poussière avant de disparaître.
 
 Il ne restait au sol qu'un sac de rangement. Les yeux de Wang Lin s'illuminèrent lorsqu'il s'en saisit, mais son expression devint étrange après l'avoir inspecté. Le sac ne contenait aucun objet; il était rempli d'insectes.
 
@@ -82,7 +82,7 @@ Wang Lin réfléchit un instant avant de dire: « Même les pilules sont inutile
 
 Lu Fei soupira secrètement. Song Qing, à ses côtés, ajouta: « Maître de la secte, Wan Er a déjà pris énormément de pilules, mais... »
 
-Wang Lin leva la tête. Il avait déjà une intuition. Ses yeux, empreints de confusion, murmurèrent: « Continuez. »
+Wang Lin leva la tête. Il avait déjà une intuition. Les yeux empreints de confusion, il murmura: « Continuez. »
 
 Song Qing serra les dents et dit: « Seulement, Wan Er a vécu bien plus longtemps qu'une cultivatrice du stade de la Formation du Noyau ne le devrait. Même avec des techniques défiant le ciel pour changer le destin, elle ne pourrait échapper à la mort, à moins qu'elle ne parvienne à atteindre le stade de l'Âme Naissante. »
 

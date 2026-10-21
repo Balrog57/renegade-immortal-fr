@@ -112,7 +112,7 @@ Le vent léger soufflait, faisant flotter les longs cheveux et les vêtements de
 
 Le vieux Oiseau Vermillon laissa poindre une pointe d'anxiété. En observant la silhouette, son inquiétude grandit.
 
-« Pourquoi est-il si lent... Compte tenu de son niveau de culture, cet enfant aurait déjà dû allumer la première baguette. Je m'attendais à ce qu'il mette une demi-heure au plus pour l'allumer, puis qu'il ressorte en un souffle, le temps que l'encens se consume. Cela fait maintenant près d'une heure, soit la majeure partie d'une journée à l'intérieur. Se pourrait-il que, malgré des milliers d'années de culture, il refuse encore de tout percer à jour, et que son âme retourne vraiment vers sa patrie? »
+« Pourquoi est-il si lent... Compte tenu de son niveau de culture, cet enfant aurait déjà dû allumer la première baguette. Je m'attendais à ce qu'il mette une demi-heure au plus pour l'allumer, puis qu'il ressorte en un souffle, le temps que l'encens se consume. Cela fait maintenant près de deux heures, soit la majeure partie d'une journée à l'intérieur. Se pourrait-il que, malgré des milliers d'années de culture, il refuse encore de tout percer à jour, et que son âme retourne vraiment vers sa patrie? »
 
 Le Maître Simo laissa échapper un rictus méprisant en fixant la silhouette sous l'encens. Il pensa: « Ce n'est que la première baguette et ce petit bâtard montre déjà des signes de faiblesse. Il n'a aucune chance de réussir les épreuves. Une fois qu'il aura échoué, le premier Jeune Empereur perdra toute dignité devant ces cultivateurs... »
 

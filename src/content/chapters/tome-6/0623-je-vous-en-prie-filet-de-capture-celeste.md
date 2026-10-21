@@ -12,7 +12,7 @@ Toutes les créatures de nourriture céleste tremblèrent à l'apparition du qil
 
 Non seulement celles dans le ciel, mais même les cultivateurs au sol commencèrent à trembler, comme s'ils enduraient une douleur atroce. Des lignes vertes apparurent sur le front des cultivateurs et se resserrèrent en un point au milieu du front.
 
-Voyant que ces créatures célestes étaient sur le point de s'échapper, le qilin laissa échapper un gaz invisible par ses naseaux. Ce gaz se propagea comme un rugissement et contenait une force mystérieuse. Toutes les créatures environnantes tremblèrent et n'osèrent plus tenter de fuir.
+Voyant que ces créatures célestes étaient sur le point de s'échapper, le qilin laissa échapper un gaz invisible par ses naseaux. Il leva la tête et rugit; ce cri contenait une force mystérieuse. Toutes les créatures environnantes tremblèrent et n'osèrent plus tenter de fuir.
 
 Le qilin s'approcha des créatures célestes et les inhala toutes. Elles furent converties en une énergie extrêmement nutritive pour les bêtes célestes.
 

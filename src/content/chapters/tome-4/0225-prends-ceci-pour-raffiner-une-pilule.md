@@ -42,7 +42,7 @@ Dès que ces mots furent lâchés, les sourcils de tous les cultivateurs se rele
 
 Simultanément, les cultivateurs des sectes et familles voisines ressentirent un pincement de regret. Cet individu avait fait preuve d'une grande imprudence en choisissant ce lieu pour sa percée. Il semblait que le jour de son ascension serait aussi celui de sa mort. La réputation de la Secte Ciel Nuageux passait avant tout. Cet homme allait certainement mourir!
 
-L'expression du chef de la secte extérieure de la Secte Ciel Nuageux était extrêmement laide. Il força un sourire et dit: « Je veux voir qui a l'audace d'utiliser ma Montagne du Ciel Nuageux pour atteindre l'Âme Naissante. Son Âme Naissante m'appartient! »
+L'expression de Liu Fei, chef de la secte extérieure de la Secte Ciel Nuageux, était extrêmement laide. Il força un sourire et dit: « Je veux voir qui a l'audace d'utiliser ma Montagne du Ciel Nuageux pour atteindre l'Âme Naissante. Son Âme Naissante m'appartient! »
 
 Le visage de Liu Fei s'affaissa. D'un revers de manche, il disparut. Au même moment, tous les cultivateurs de l'Âme Naissante quittèrent la salle principale, adoptant une attitude de spectateurs. Il faut dire que pour la première secte du pays, un tel événement était rarissime.
 

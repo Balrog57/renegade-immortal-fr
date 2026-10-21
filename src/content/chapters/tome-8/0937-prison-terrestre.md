@@ -106,7 +106,7 @@ Peu importe la puissance de votre sort, vous ne pouviez échapper au concept de 
 
 En un instant, avec Qing Shui comme épicentre, tout fut enveloppé par une force de scellement invisible. Même l'inversion des cinq éléments se trouva piégée.
 
-Qing Shui se déplaça comme l'éclair et rejoignit le dragon doré. Sa main s'étira pour saisir l'âme originelle du vénérable Xuan Bao, nichée au cœur du dragon.
+Qing Shui se déplaça comme l'éclair et rejoignit le dragon doré. Sa main traversa directement le corps du dragon doré pour saisir l'âme originelle du vénérable Xuan Bao, nichée au cœur du dragon.
 
 D'un geste sec de la main, il brisa les innombrables tentacules qui entouraient le vénérable Xuan Bao, projetant des gerbes de sang vert partout.
 

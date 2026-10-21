@@ -18,7 +18,7 @@ La femme en pourpre serra les dents, le visage d'une pâleur extrême. Le voile 
 
 « Tu as du poison Gu dans le corps. Je veux voir jusqu'où tu pourras encore courir! »
 
-Un air d'amertume envahit le visage de la femme en pourpre. Le poison Gu en elle s'était déjà activé, l'écrasant de tout son poids tout au long de sa fuite. À l'origine, elle aurait pu s'en sortir, mais elle n'avait pas prévu que sa propre sœur la trahirait pour attirer l'ennemi sur ses traces.
+Un air d'amertume envahit le visage de la femme en pourpre. Le poison Gu en elle s'était déjà activé, l'écrasant de tout son poids tout au long de sa fuite. À l'origine, elle aurait pu s'en sortir, mais elle n'avait pas prévu que ses compagnes la trahiraient pour attirer l'ennemi sur ses traces.
 
 Elle était désormais comme une lampe sans huile. Incapable de contenir davantage le poison Gu, elle cracha une large bouchée de sang. Son visage devint livide et l'épée sous ses pieds vacilla légèrement.
 

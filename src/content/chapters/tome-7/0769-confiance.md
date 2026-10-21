@@ -100,11 +100,11 @@ Même l'Omniscient n'aurait pu imaginer que son disciple, issu d'une planète se
 
 À cet instant, sur un fragment devant Wang Lin, Li Yuan s'échappait, le visage livide. Son bras droit avait disparu et le sang suintait abondamment.
 
-De nombreuses blessures d'épée couvraient son corps, la plus choquante étant celle sur son abdomen. Même son âme originelle était blessée et montrait des signes d'effondrement. S'il n'avait pas bénéficié des sorts de sa famille, il serait déjà mort.
+De nombreuses blessures d'épée couvraient son corps, la plus choquante étant celle sur son abdomen. Même son âme originelle était blessée et montrait des signes d'effondrement. S'il n'avait pas fui grâce à la technique de sa famille pour briser les restrictions, il serait déjà mort.
 
 Une aura de mort emplissait le corps de Li Yuan. Il afficha un sourire amer et une expression de résignation. Il voulait contre-attaquer, mais l'adversaire possédait un miroir ancien capable de briser les restrictions. De plus, il avait aidé Wang Lin en utilisant sa restriction du cœur, laquelle ne s'était pas encore rétablie. À moins de créer une distance importante, il ne pourrait pas se cacher rapidement.
 
-« Seule une famille possédant des héritages du Royaume Céleste peut avoir un miroir ancien capable de briser les restrictions. Si ma famille Li était encore puissante, ces gens ne seraient que des clowns, mais maintenant... Hélas, Frère Xu, je ne pourrai pas tenir ma promesse de vous donner la restriction du cœur... Ce n'est pas mon souhait! »
+« Dans le Système Stellaire de Luotian, seules les familles possédant des héritages du Royaume Céleste peuvent avoir un miroir ancien capable de briser les restrictions. Si ma famille Li était encore puissante, ces gens ne seraient que des clowns, mais maintenant... Hélas, Frère Xu, je ne pourrai pas tenir ma promesse de vous donner la restriction du cœur... Ce n'est pas mon souhait! »
 
 « Cousin, cet homme possède vraiment beaucoup de trésors, et ils sont très puissants. J'aime énormément cette épée céleste. » Derrière Li Yuan, trois personnes le poursuivaient avec désinvolture.
 

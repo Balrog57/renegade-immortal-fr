@@ -8,7 +8,7 @@ slug: decouverte-inattendue
 ---
 Le vent hurla sur sa gauche et une ligne noire se précipita vers lui. Cette traînée sombre était composée de plus de dix mille bêtes moustiques, formant un spectacle saisissant.
 
-À l'avant trônait la féroce bête moustique d'environ cent pieds. Ses yeux brillaient d'excitation et, dès qu'elle aperçut Wang Lin, son corps se mit à trembler.
+À l'avant trônait la féroce bête moustique d'environ mille pieds. Ses yeux brillaient d'excitation et, dès qu'elle aperçut Wang Lin, son corps se mit à trembler.
 
 Un rugissement strident retentit alors que la bête moustique chargeait, percutant de plein fouet Wang Lin. Le vent généré par ses mouvements cinglait le visage de ce dernier comme autant de lames.
 
@@ -52,7 +52,7 @@ Wang Lin était déjà venu ici par le passé et il aperçut immédiatement l'é
 
 Sous le brouillard s'étendaient plusieurs continents, inchangés. Sur celui du centre se dressait autrefois une statue à forme humaine. Cependant, il n'en restait plus aucune trace aujourd'hui.
 
-Le cadavre d'une bête moustique haute de plusieurs milliers de pieds gisait sur l'un des continents. Ses yeux étaient ouverts, mais sans aucune lueur, et une aura de mort imprégnait son corps.
+Le cadavre d'une bête moustique haute de plusieurs dizaines de milliers de pieds gisait sur l'un des continents. Ses yeux étaient ouverts, mais sans aucune lueur, et une aura de mort imprégnait son corps.
 
 En voyant cela, les yeux de Wang Lin se plissèrent.
 
@@ -102,7 +102,7 @@ En un seul coup d'œil, il fut pétrifié. Ses yeux brillèrent d'une intensité
 
 L'intérieur de la faille était un monde lumineux peuplé de grands ovales incandescents. Ces formes étaient d'innombrables œufs de bêtes moustiques! Ils remplissaient tout l'espace, attendant leur éclosion. On pouvait en compter des millions au premier regard.
 
-Plus on s'enfonçait, plus les œufs étaient nombreux et imposants. Certains mesuraient cent pieds de diamètre, et les créatures à l'intérieur émettaient une lueur dorée. Elles avaient achevé leur formation et semblaient prêtes à éclore.
+Plus on s'enfonçait, plus les œufs étaient nombreux et imposants. Certains mesuraient mille pieds de diamètre, et les créatures à l'intérieur émettaient une lueur dorée. Elles avaient achevé leur formation et semblaient prêtes à éclore.
 
 Dès que la bête de Wang Lin entra, elle poussa un sifflement joyeux et se précipita vers une grappe d'œufs. Sa gueule immense plongea dans l'un d'eux pour en aspirer tout le contenu.
 

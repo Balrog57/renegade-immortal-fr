@@ -78,7 +78,7 @@ La lueur rouge de l'épée devint de plus en plus intense. Une sorte de jubilati
 
 Au fil du massacre, l'aura de l'épée de sang augmenta considérablement. Elle devint plus tranchante encore!
 
-Il y avait aussi ces dix mille bêtes moustiques qui furent stimulées par l'odeur du sang. Elles poussèrent des sifflements capables de briser la terre et, faisant fi de la mort, entamèrent un massacre aux côtés des bêtes féroces environnantes.
+Il y avait aussi ces dix mille bêtes moustiques qui furent stimulées par l'odeur du sang. Elles poussèrent des sifflements capables de briser la terre et, faisant fi de la mort, entamèrent un combat féroce contre les bêtes féroces environnantes.
 
 Au cœur de la faille, Wang Lin était encerclé par d'innombrables bêtes féroces. Cependant, avec l'appui des bêtes moustiques, de son épée de sang et de sa culture de stade intermédiaire du Briseur du Nirvana, il se fraya un chemin sanglant!
 

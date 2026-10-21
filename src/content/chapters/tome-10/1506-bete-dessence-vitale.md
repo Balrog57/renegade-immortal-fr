@@ -18,21 +18,21 @@ De loin, ce fouet semblait aussi immense que la Bête des Limbes elle-même. La 
 
 Dès l'apparition du fouet, Wang Lin agita la main et l'arme s'abattit sur la Bête des Limbes!
 
-Le Fouet de l'Âme!
+Le Fouet Kunji!
 
-Lorsque le Fouet de l'Âme frappa la Bête des Limbes, un fracas tonnerre retentit, suivi d'un rugissement étouffé émanant de son corps. Sa carrure trembla et son âme montra des signes de détachement de son enveloppe physique! Cependant, elle parvint à résister!
+Lorsque le Fouet Kunji frappa la Bête des Limbes, un fracas tonnerre retentit, suivi d'un rugissement étouffé émanant de son corps. Sa carrure trembla et son âme montra des signes de détachement de son enveloppe physique! Cependant, elle parvint à résister!
 
-Wang Lin ne s'arrêta pas là. Le Fouet de l'Âme semblait imprégné de la folie de Wang Lin, et il frappa huit fois de plus!
+Wang Lin ne s'arrêta pas là. Le Fouet Kunji semblait imprégné de la folie de Wang Lin, et il frappa huit fois de plus!
 
 En comptant le coup initial, cela faisait un total de neuf assauts. Des grondements de tonnerre résonnèrent et la Bête des Limbes ne put plus contenir la force des coups. La timidité qui caractérisait sa nature réapparut dans ses yeux et son âme émergea soudain de son corps!
 
 Cependant, cette âme n'était que la partie émergée de l'iceberg. Bien que la Bête des Limbes fût terrifiée, elle comprit qu'elle traversait une crise mortelle et lutta pour ramener son âme dans son corps!
 
-Comment Wang Lin pouvait-il la laisser réussir? D'un revers de main, des bruits de claquements résonnèrent à travers le domaine stellaire. Il était impossible de percevoir ne serait-ce que l'ombre du Fouet de l'Âme alors qu'il martelait la Bête des Limbes!
+Comment Wang Lin pouvait-il la laisser réussir? D'un revers de main, des bruits de claquements résonnèrent à travers le domaine stellaire. Il était impossible de percevoir ne serait-ce que l'ombre du Fouet Kunji alors qu'il martelait la Bête des Limbes!
 
 Le 19e coup, le 30e coup, le 50e coup... jusqu'au 99e!
 
-Lorsque le centième et dernier coup retomba, le Fouet de l'Âme brilla d'un éclat intense. Il commença à se désagréger, libérant une lumière dorée aussi éblouissante que le soleil!
+Lorsque le centième et dernier coup retomba, le Fouet Kunji brilla d'un éclat intense. Il commença à se désagréger, libérant une lumière dorée aussi éblouissante que le soleil!
 
 Enveloppée par cette lumière, la Bête des Limbes ne put plus lutter. Son âme fut arrachée à son corps et apparut au milieu des étoiles!
 

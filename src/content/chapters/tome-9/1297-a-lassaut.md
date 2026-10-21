@@ -52,7 +52,7 @@ En voyant Wang Lin, elle esquissa un sourire. Elle était satisfaite et pouvait 
 
 Elle était épuisée et glacée. Il semblait que ces dix années lui avaient tout pris, et à cet instant, tout ce poids refaisait surface pour la noyer.
 
-Le fouet était déjà là. Alors qu'un coup de tonnerre retentissait, le stylo doré dans la main de Li Qianmei s'effondra soudainement. Le fouet frappa son corps!
+Le fouet était déjà là. Alors qu'un coup de tonnerre retentissait, le stylo doré dans la main de Li Qianmei s'effondra soudainement. L'ombre du fouet s'abattit vers son corps!
 
 Cependant, alors que l'arme n'était plus qu'à sept pouces de Li Qianmei, un rugissement de dément hurla. Une main puissante surgit du vide juste à côté d'elle et saisit le fouet!
 
@@ -98,7 +98,7 @@ Le Temps Fluide apparut soudainement, ainsi qu'une immense porte de pierre domin
 
 Le sort Temps Fluide, émanant de sa main droite, continuait de drainer son énergie originelle tandis qu'il tenait Li Qianmei dans ses bras. Il scruta le monde sombre qui l'entourait et laissa éclater une intention meurtrière monstrueuse!
 
-À cet instant, un rugissement tonnerre jaillit du vide. Deux ombres géantes en forme de fouets apparurent et frappèrent impitoyablement Wang Lin!
+À cet instant, un rugissement tonnerre jaillit du vide. Deux ombres géantes en forme de fouets apparurent et s'abattirent férocement vers Wang Lin!
 
 Au loin, les hordes infinies de bêtes féroces poussèrent des cris assoiffés de sang et chargèrent vers lui! Plus loin encore, plusieurs bêtes titanesques, longues d'environ cent mille pieds, le fixaient d'un regard féroce.
 

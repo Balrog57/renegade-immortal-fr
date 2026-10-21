@@ -88,7 +88,7 @@ Les yeux de l'homme aux cheveux blancs brillèrent d'un éclat rouge et il souri
 
 Ce cultivateur afficha un regard déterminé avant que son corps n'explose brusquement, provoquant une puissante onde de choc. L'homme aux cheveux blancs laissa échapper un ricanement glacial et s'apprêtait à aspirer l'énergie quand une violente énergie d'épée chargée de tonnerre surgit du lointain. Cette attaque fulminante venait de Shengong Hu!
 
-« Entrelacement mortel! » Après le cri de Tang Yanfeng, les cultivateurs de son groupe utilisèrent toute leur force pour piéger l'homme aux cheveux blancs.
+« Piège mortel! » Après le cri de Tang Yanfeng, les cultivateurs de son groupe utilisèrent toute leur force pour piéger l'homme aux cheveux blancs.
 
 Au même moment, Zhan Konglie chargea, un fourneau en cuivre à la main, porté par une intention meurtrière impétueuse. Tang Yanfeng mit également de côté sa querelle personnelle avec Shengong Hu; d'un revers de manches, il fit apparaître un brouillard blanc et s'élança dans la mêlée.
 

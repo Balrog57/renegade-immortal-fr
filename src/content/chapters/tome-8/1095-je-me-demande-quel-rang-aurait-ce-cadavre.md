@@ -84,7 +84,7 @@ La sphère explosa soudainement, l'onde de choc venant heurter le rayon lumineux
 
 Cependant, dans son âme originelle, un fin fil rouge commença à se propager de sa poitrine à travers tout son corps. Un sourire qui n'en était pas un étira les lèvres de Lie Yunzi, mais ses yeux étaient emplis de terreur.
 
-« Du poison! C'est le poison de la Secte des Cadavres! » Luotian avait recueilli de nombreuses informations sur les méthodes d'attaque de la Secte des Cadavres. Lie Yunzi étant l'un des cultivateurs les plus puissants de Luotian, il reconnut instantanément la signature de ce poison!
+« Du poison! C'est le poison d'extase mortelle de la Secte des Cadavres! » Luotian avait recueilli de nombreuses informations sur les méthodes d'attaque de la Secte des Cadavres. Lie Yunzi étant l'un des cultivateurs les plus puissants de Luotian, il reconnut instantanément la signature de ce poison!
 
 Pris d'une terreur pure, Lie Yunzi s'enfuit comme un possédé.
 

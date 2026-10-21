@@ -94,6 +94,6 @@ L'ombre défaite se transforma en une multitude d'âmes tourmentées qui semblai
 
 « Sort Démoniaque, Montagne de Feux de Signal! »
 
-« Voie Démoniaque, Inversion de la Vie et de la Mort! »
+« Dao Démoniaque, Inversion de la Vie et de la Mort! »
 
-« Dieu, Démon, Diable... Dao Ancien, Sans Immortel! » Wang Lin fixa Liu Zhiyuan qui s'éloignait et lança un coup de poing!
+« Dieu, Démon, Diable, Ancien Dao Sans Céleste! » Wang Lin fixa Liu Zhiyuan qui s'éloignait et lança un coup de poing!

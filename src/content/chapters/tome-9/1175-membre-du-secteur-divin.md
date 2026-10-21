@@ -64,7 +64,7 @@ Au cours des jours suivants, les sectes de rang 6 vinrent tous lui rendre visite
 
 S'il s'agissait d'une imposture, ce n'était pas grave: ils ne perdraient au plus que quelques cadeaux. Mais s'il était réel, nouer une relation avec lui était le rêve de n'importe quelle secte.
 
-Ce jour-là, après avoir congédié les cultivateurs de la Secte du Sort Dao, le vieil homme décharné vêtu de noir, l'ancien propriétaire de la plume, vint le voir. Ce dernier ne mentionna aucunement les événements passés et paraissait calme. Au fond de lui, il craignait Wang Lin. Après tout, Wu Qing avait été tué avec une facilité déconcertante, et lui-même, au stade précoce du Briseur du Nirvana, se montrait donc très prudent.
+Ce jour-là, après avoir congédié les cultivateurs de la Secte Dao Fa, le vieil homme décharné vêtu de noir, l'ancien propriétaire de la plume, vint le voir. Ce dernier ne mentionna aucunement les événements passés et paraissait calme. Au fond de lui, il craignait Wang Lin. Après tout, Wu Qing avait été tué avec une facilité déconcertante, et lui-même, au stade précoce du Briseur du Nirvana, se montrait donc très prudent.
 
 Après les civilités d'usage, le vieil homme joignit les mains. « Camarade cultivateur Lu, je ne me suis pas encore présenté. Je m'appelle Du De. Je n'appartiens à aucune secte et je suis un simple cultivateur indépendant dans la région de rang 6. C'est un honneur de rencontrer le camarade cultivateur Lu ici, à Peng Lai. »
 

@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1582 - Dark Moon Clear Sky!"
 slug: lune-sombre-ciel-clair
 ---
-« Le quatrième est le foie. Foie, fonds et brise-toi! » L'index de la femme se replia pour toucher sa paume. Ses paroles étaient douces, mais empreintes d'une cruelle intention meurtrière!
+« Le troisième est le foie. Foie, fonds et brise-toi! » L'index de la femme se replia pour toucher sa paume. Ses paroles étaient douces, mais empreintes d'une cruelle intention meurtrière!
 
 Wang Lin recracha plusieurs bouffées de sang et fut projeté en arrière. Les poumons dans sa poitrine se flétrirent et disparurent à l'intérieur de son corps. Privé de ses poumons, il ne pouvait plus respirer. La douleur le fit pousser des gémissements étouffés.
 
@@ -90,7 +90,7 @@ Une douleur intense envahit son corps, lui donnant l'impression qu'il allait s'e
 
 La force de rejet à l'intérieur de son corps faisait rage, devenant presque insupportable, mais il réussit encore à la contenir de justesse.
 
-La femme ne se sentait pas mieux non plus. Du sang commença à couler du coin de sa bouche et elle fut repoussée de plusieurs centaines de pas. Son corps trembla et la lune sombre réapparut. De nouvelles fissures surgirent et la lune s'étendit jusqu'à son cou.
+La femme ne se sentait pas mieux non plus. Du sang commença à couler du coin de sa bouche et elle fut repoussée de plusieurs centaines de pieds. Son corps trembla et la lune sombre réapparut. De nouvelles fissures surgirent et la lune s'étendit jusqu'à son cou.
 
 À mesure qu'elle se propageait, le sort révélait toute sa cruauté. La douleur atroce fit pousser un gémissement étouffé à la femme. À cet instant, elle était totalement défigurée, semblable à un fantôme!
 

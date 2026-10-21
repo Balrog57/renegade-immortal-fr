@@ -44,7 +44,7 @@ Wang Lin était déjà désavantagé face à une seule flèche. Deux flèches si
 
 Les pupilles de Wang Lin se rétractèrent. Le feu dans son œil gauche tourbillonnait follement et le tonnerre dans son œil droit vacillait frénétiquement. Les essences de son corps éclatèrent soudainement. Il était trop tard pour réfléchir; il savait seulement que s'il ne détruisait pas cette flèche avant l'arrivée de la seconde, il mourrait. Une aura délirante surgit soudainement dans le Système Stellaire de la Mer des Nuages et se précipita. À mesure que l'aura approchait, l'ombre d'un homme d'âge moyen aux pieds nus apparut devant Wang Lin!
 
-Wang Lin connaissait cet homme. C'était la puissante bête féroce scellée par le dernier Seigneur du Royaume Scellé, Tai Aluo!
+Wang Lin connaissait cet homme. C'était la puissante bête féroce scellée par le Seigneur du Royaume Scellé, Tai Aluo!
 
 Pour une raison inconnue, il avait choisi de faire face à la seconde flèche, offrant ainsi un temps précieux à Wang Lin pour espérer survivre!
 

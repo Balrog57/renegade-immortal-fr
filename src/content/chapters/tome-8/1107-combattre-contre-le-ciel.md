@@ -88,13 +88,13 @@ Au moment où la montagne de flammes atteignit les 50 000 pieds, un grondement d
 
 Privé de la montagne de flammes, il n'y avait plus rien entre lui et les nuages. Wang Lin était habité par une immense frustration. Il ne manquait que 50 000 pieds... s'il pouvait franchir cette distance, il pourrait attaquer les nuages de la rétribution divine!
 
-Au moment où la pression s'abattait, une flamme dévorante apparut dans son œil gauche et un tonnerre monstrueux dans son œil droit. La foudre de sa main droite se propagea le long de son bras pour former une sphère d'éclairs grosse comme un poing au-dessus de sa paume.
+Au moment où la pression s'abattait, une flamme dévorante apparut dans son œil gauche et un tonnerre monstrueux dans son œil droit. La foudre de son œil droit se propagea le long de son bras pour former une sphère d'éclairs grosse comme un poing au-dessus de sa paume.
 
 Simultanément, la flamme de son œil gauche parcourut son bras gauche et une sphère de feu blanc apparut au-dessus de sa main!
 
 « Tonnerre des cieux, écoutez mon commandement en tant qu'ancien dragon de tonnerre et rassemblez-vous! » Wang Lin flotta dans les airs et rugit. Un gigantesque ancien dragon de tonnerre apparut derrière lui. Ses yeux étaient emplis d'une intention défiant le ciel et il poussa un cri! Toute la foudre se transforma soudainement pour converger vers sa main.
 
-La zone dans un rayon de 10 000 pieds autour de Wang Lin fut recouverte de tonnerre, tel un enfer électrique. Des éclairs infinis serpentaient dans l'air.
+La zone dans un rayon de plusieurs dizaines de milliers de km autour de Wang Lin fut recouverte de tonnerre, tel un enfer électrique. Des éclairs infinis serpentaient dans l'air.
 
 Ce qui était encore plus alarmant, c'est que lorsque Wang Lin utilisa sa main droite pour commander le tonnerre, d'innombrables éclairs provenant des nuages de la rétribution divine furent inexplicablement attirés vers sa paume.
 

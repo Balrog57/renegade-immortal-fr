@@ -20,7 +20,7 @@ Par conséquent, Wang Lin dissimula son aura et ralentit sa course. Simultanéme
 
 Face à l'immensité de la région de rang 8, Wang Lin n'était qu'un poisson dans l'océan. Il se dirigea progressivement vers le Royaume Céleste du Vent tout en veillant scrupuleusement à rester caché.
 
-Wang Lin vola ainsi durant plusieurs jours consécutifs. Cela faisait presque un mois qu'il avait entamé son périple dans la région de rang 5.
+Wang Lin vola ainsi durant plusieurs jours consécutifs. Cela faisait presque un mois qu'il avait entamé son périple depuis la région de rang 5. La brume de la région de rang 8 était dense et, avançant avec prudence, Wang Lin s'approcha ce jour-là, à l'insu de tous, de l'entrée délabrée du Royaume Céleste du Vent.
 
 Le Royaume Céleste du Vent avait été gravement endommagé autrefois, mais comme il était occupé par les Bêtes Moustiques, les ruines étaient restées largement intactes. Peu de cultivateurs s'y aventuraient, mais il s'en trouvait toujours quelques-uns; de temps à autre, des groupes tentaient d'y pénétrer pour capturer quelques bêtes moustiques solitaires sur la périphérie.
 

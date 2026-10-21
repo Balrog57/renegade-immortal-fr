@@ -92,7 +92,7 @@ Ce phénomène piqua la curiosité de Wang Lin. Il n'avait jamais vu une concept
 
 Un quart d'heure plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
 
-« Il y a trois restrictions à l'intérieur de cette perle. Les trois servent à recueillir la fumée, à la transformer en chaleur, puis à utiliser cette chaleur pour produire de la lumière. Sur ce point, le système stellaire de Luotian est bien supérieur. »
+« Il y a trois formations à l'intérieur de cette perle. Les trois servent à recueillir la fumée, à la transformer en chaleur, puis à utiliser cette chaleur pour produire de la lumière. Sur ce point, le système stellaire de Luotian est bien supérieur. »
 
 Une légère odeur de santal émanait de la perle, une senteur qui apaisait l'esprit.
 
@@ -114,6 +114,6 @@ Une fois les restrictions posées, Wang Lin réfléchit un instant, se remémora
 
 D'un mouvement de la main droite, le miroir de bronze descendit et le domaine du temps y pénétra.
 
-Puis Wang Lin se remémora à nouveau une autre sensation: le domaine des Mille Illusions Impitoyables de Liu Mei. D'innombrables visions traversèrent son esprit jusqu'à ce qu'elles se transforment en un rayon de lumière jaillissant de ses yeux et pénétrant l'épingle à cheveux.
+Puis Wang Lin médita à nouveau, cette fois sur le domaine des Mille Illusions Impitoyables de Liu Mei. D'innombrables visions traversèrent son esprit jusqu'à ce qu'elles se transforment en un rayon de lumière jaillissant de ses yeux et pénétrant l'épingle à cheveux.
 
 Quant à l'épée volante, Wang Lin n'y inséra aucun domaine, mais y plaça une empreinte de téléportation.

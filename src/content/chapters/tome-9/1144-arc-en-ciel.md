@@ -74,7 +74,7 @@ La bête spirituelle de mille pieds commença immédiatement à trembler. Très 
 
 Le visage du jeune homme pâlit, mais il hurla tout de même: « Toi... »
 
-Cependant, cette fois, avant qu'il ne puisse terminer sa phrase, le vieil homme lui asséna un coup et le projeta vers la bête spirituelle noire. Il agita ensuite ses manches et battit en retraite rapidement avec la créature.
+Cependant, cette fois, avant qu'il ne puisse terminer sa phrase, le vieil homme lui asséna un coup et le projeta vers la bête spirituelle noire. Il agita ensuite ses manches et fit reculer frénétiquement la créature.
 
 « Fuis vite!! Je te rejoindrai après avoir éliminé cet individu! » L'expression du vieil homme était devenue grave. Après avoir envoyé la bête s'échapper, il se précipita vers Wang Lin.
 

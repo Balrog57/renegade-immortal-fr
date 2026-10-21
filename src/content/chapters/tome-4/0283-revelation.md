@@ -14,11 +14,11 @@ Wang Lin esquissa un léger sourire et hocha la tête avant de s'asseoir en tail
 
 Depuis la destruction de l'Alliance des Quatre Sectes, les réserves de ce vin de fruits de Wang Lin avaient diminué; il en buvait donc beaucoup moins souvent désormais.
 
-Le colosse laissa échapper un rire, s'assit et déclara: « La culture du frère Da Niu est vraiment stupéfiante. Si je ne m'abuse, vous avez déjà atteint votre domaine, et les sommets célestes vous sont à portée. »
+Le colosse laissa échapper un rire, s'assit et déclara: « La culture du frère Da Niu est vraiment stupéfiante. Si je ne m'abuse, vous avez déjà atteint le domaine de l'Âme Verrouillée, et les sommets célestes vous sont à portée. »
 
 Le cœur de Wang Lin rata un battement. Il devint encore plus méfiant envers cet individu, mais en apparence, il se contenta de rire discrètement pour esquiver la question.
 
-À ce moment-là, l'un des hommes assis près du feu éclata d'un rire sonore: « De quoi parlez-vous tous les deux? Nous ne comprenons pas un traître mot de votre conversation. Obtenir un domaine? Êtes-vous devenus fous? »
+À ce moment-là, l'un des hommes assis près du feu éclata d'un rire sonore: « De quoi parlez-vous tous les deux? Nous ne comprenons pas un traître mot de votre conversation. Quel domaine de l'Âme Verrouillée, et les cieux à portée? Êtes-vous devenus fous? »
 
 Mo Zhi sourit doucement et dit: « Monsieur, votre usage du mot "fou" est excellent. Si l'on n'est pas fou, pourquoi chercherait-on à comprendre des choses telles que les lois des cieux? Si l'on n'est pas fou, pourquoi chercherait-on à devenir immortel? Il faut désirer quelque chose pour pouvoir l'obtenir. C'est là la vérité. »
 
@@ -48,7 +48,7 @@ Mo Zhi acquiesça. Il observa la pluie à l'extérieur et dit: « La nuit pluvie
 
 Wang Lin tourna la tête pour regarder hors du sanctuaire. Le bruit de la pluie tombante pénétrait lentement à l'intérieur, tandis que le tonnerre illuminait occasionnellement l'extérieur par intermittence.
 
-Le feu à l'intérieur du sanctuaire vacillait dans la nuit, faisant danser les ombres. C'était comme si l'on se trouvait à la frontière entre la vie et la mort. Ce scintillement de la lumière semblait également contenir des indices sur le domaine de la vie et de la mort.
+Le feu à l'intérieur du sanctuaire vacillait dans la nuit, faisant danser les ombres. C'était comme si l'on se trouvait à la frontière entre la vie et la mort. Ce scintillement de la lumière semblait également contenir des indices sur les lois célestes de la vie et de la mort.
 
 La lumière est la vie, l'obscurité est la mort; le vacillement de la flamme représente l'échange entre la vie et la mort.
 

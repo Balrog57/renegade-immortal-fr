@@ -18,7 +18,7 @@ La lumière fantomatique émanant de la tour brilla intensément tandis qu'un pu
 
 Ces fragments osseux fusionnèrent rapidement dans le ciel pour former un bras d'os noir.
 
-Le bras d'os noir vola lentement vers la tour et s'immobilisa sous le vortex.
+Le bras d'os noir vola lentement au-dessus de la tour et s'immobilisa sous le vortex.
 
 « Je n'ai pas rassemblé une puissance suffisante, je ne peux donc pas la gaspiller ainsi. De plus, son emplacement actuel est l'un des endroits où je ne souhaite point me rendre! » La lueur fantomatique de l'armure vacilla de nouveau et un bras de l'armure se détacha. Il dégagea une explosion de flammes démoniaques avant de s'élancer hors de la tour, visant droit sur le bras d'os.
 
@@ -30,7 +30,7 @@ Au moment où l'armure toucha le membre desséché, elle s'y attacha instantané
 
 Wang Lin était assis en position du lotus à l'intérieur de la grotte. Il expira un souffle fétide et se redressa. Il y avait passé dix ans; de nombreux craquements retentirent alors que son corps retrouvait sa souplesse.
 
-Alors qu'il dénouait ses membres, son expression changea soudainement et il leva les yeux vers le plafond de la grotte céleste. À cet instant, un vortex noir apparut silencieusement!
+Alors qu'il dénouait ses membres, son expression changea soudainement et il leva les yeux vers le ciel au-dessus de la grotte céleste. À cet instant, un vortex noir apparut silencieusement!
 
 « C'est... » Les yeux de Wang Lin se plissèrent. Il séjournait dans cette grotte depuis fort longtemps et n'avait jamais vu un tel vortex. La coïncidence était trop parfaite; il apparaissait précisément au moment où il atteignait le stade d'Ascendant!
 

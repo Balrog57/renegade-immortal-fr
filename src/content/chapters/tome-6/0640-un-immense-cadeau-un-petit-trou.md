@@ -70,7 +70,7 @@ De légers courants d'aspiration émanaient du trou géant. Bien qu'ils fussent 
 
 Debout sur le sentier au bord de la faille, une petite quantité de terre roula vers l'abîme et fut aspirée dans le gouffre profond.
 
-Wang Lin prit une profonde inspiration en contemplant l'abîme. Avec sa perspicacité habituelle, il devina presque immédiatement que la phase de marée se produisant à l'extérieur était causée par ce gouffre profond.
+Wang Lin prit une profonde inspiration en contemplant l'abîme. Avec sa perspicacité habituelle, il devina presque immédiatement que la phase de marée se produisant au-delà de la Mer de l'Est était causée par ce gouffre profond.
 
 Dans son esprit, il semblait voir l'éruption du gouffre créer une force d'aspiration inimaginable tous les 5 000 ans. Puis, via un canal mystérieux, cette force affectait le monde extérieur et aspirait d'innombrables choses dans ces terres.
 

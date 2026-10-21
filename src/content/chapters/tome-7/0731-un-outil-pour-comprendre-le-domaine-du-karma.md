@@ -58,7 +58,7 @@ Le temps passa, sans laisser de trace. Les saisons se succédèrent à plusieurs
 
 Wang Lin avait vécu sur cette planète Qing Ling pendant huit ans. Durant toute cette période, il n'avait jamais quitté la montagne. En réalité, hormis Zhang Xinhai, aucun autre cultivateur de la planète ne l'avait aperçu.
 
-Cependant, le nom du propriétaire de la planète Qing Ling, son ancêtre, pesait insensiblement de plus en plus lourd dans l'esprit des cultivateurs.
+Cependant, le nom du maître du Pic Heng Yun, l'ancêtre de la planète Qing Ling, pesait insensiblement de plus en plus lourd dans l'esprit des cultivateurs.
 
 En particulier, l'épais brouillard noir qui entourait la montagne avait glacé le cœur de nombreux pratiquants. Pourtant, certains cultivateurs faisaient preuve d'une stupidité crasse, tentant de défier la puissance de ce prétendu « maître » de la planète.
 
@@ -66,7 +66,7 @@ Tous furent instantanément dévorés par le brouillard noir dès qu'ils s'y pr�
 
 Quant aux mortels, ils étaient moins problématiques. En voyant ce brouillard noir, ils comprirent qu'il était empreint de danger et s'en détournèrent.
 
-Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. L'Étendard des Mille Millions d'Âmes contenait sa volonté: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région, à 5 000 kilomètres de la montagne.
+Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. L'Étendard des Mille Millions d'Âmes contenait son sens divin: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région, à 5 000 kilomètres de la montagne.
 
 Pendant ces trois années, Wang Lin se concentra sur l'affinage de ses trésors. La seule source de nuisance était Xu Liguo. Il avait réussi, d'une manière ou d'une autre, à briser le sceau que Wang Lin avait placé sur la sacoche de stockage. Bien qu'il ne puisse toujours pas en sortir, il n'arrêtait pas de clamer sans cesse.
 

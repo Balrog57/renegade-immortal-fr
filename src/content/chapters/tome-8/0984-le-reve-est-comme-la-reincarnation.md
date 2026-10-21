@@ -10,7 +10,7 @@ slug: le-reve-est-comme-la-reincarnation
 
 La femme, refusant de se laisser faire, s'apprêtait à résister quand Situ Nan la tira brusquement contre son torse. Il éclata de rire et s'élança directement vers la planète Tian Yun.
 
-« Petite fille, ne sois pas si pressée. Combien de fois t'ai-je déjà nourrie? Tu disais avoir de nombreuses sœurs au Palais Rose; allons voir si cet endroit est aussi magnifique que tu le prétends. »
+« Petite fille, ne sois pas si pressée. Combien de fois t'ai-je déjà nourrie? Tu disais avoir de nombreuses sœurs au Palais Rose; allons voir si tes sœurs sont aussi magnifiques que tu le prétends. »
 
 La femme sourit et regarda Situ Nan d'un regard séducteur: « Senior sera certainement satisfait. Ne nous oubliez pas, nous, les sœurs du Palais Rose. »
 
@@ -98,7 +98,7 @@ La scène qui suivit resta gravée dans sa mémoire: la silhouette rouge qui app
 
 Wang Lin murmura doucement: « Papillon Rouge, est-ce toi...? »
 
-Papillon Rouge fut la première personne que Wang Lin admira dans sa vie. Il était difficile d'oublier l'arrogance du génie du pays de Xue Yu, une femme pour laquelle le pays de Suzaku avait brisé ses propres règles. Ils l'avaient acceptée comme disciple et avaient élevé le rang de Xue Yu, lui permettant même de déclencher une guerre entre deux nations qui impliqua des mortels comme le couple Da Niu!
+Papillon Rouge fut la première personne que Wang Lin admira dans sa vie. Il était difficile d'oublier l'arrogance du génie du pays de Xue Yu, une femme pour laquelle Suzaku avait brisé ses propres règles. Ils l'avaient acceptée comme disciple et avaient élevé le rang de Xue Yu, lui permettant même de déclencher une guerre entre deux nations qui impliqua des mortels comme le couple Da Niu!
 
 À la suite de ses paroles, l'ombre rouge à l'intérieur de la couronne trembla. Cependant, elle ne répondit pas; elle disparut lentement, comme pour l'éviter.
 

@@ -38,7 +38,7 @@ Wang Lin demanda calmement: « Cet endroit est déjà effondré. Pourquoi ce com
 
 Le sixième frère cadet regarda autour de lui et, sans avancer, répondit: « Le compagnon cultivateur nous a suivis tout le long. Je suppose que vous avez également aperçu la nourriture pour bêtes célestes. »
 
-Wang Lin sourit légèrement en voyant comment le sixième frère cadet esquivait la question, et demanda: « Que voulez-vous dire par là? »
+Wang Lin sourit légèrement, esquiva la question et demanda: « Que voulez-vous dire par là? »
 
 Les yeux du sixième frère cadet s'illuminèrent d'une expression mystérieuse: « Ne vous inquiétez pas, compagnon cultivateur. Mon nom est Sun Lei. Je n'ai aucune crainte à vous l'avouer: je ne fais pas réellement partie de la Secte Da Luo. Je m'y suis simplement infiltré. »
 

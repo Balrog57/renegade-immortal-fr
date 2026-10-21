@@ -66,7 +66,7 @@ Des grondements tonitruants éclatèrent. L'Ancienne Tête apparut devant lui, a
 
 De loin, la scène était saisissante; le coup de Wang Lin fit trembler tout le ciel étoilé. Les innombrables cultivateurs du Royaume Extérieur reculèrent, terrifiés. Tandis qu'il frappait, une ombre haute de dix mille pieds s'élança vers la concubine impériale!
 
-Instantanément, ce coup illusoire percuta la concubine et entra en collision avec les ondulations de son Sortilège des Cinq Enterrements.
+Instantanément, ce coup illusoire percuta la concubine et entra en collision avec les ondulations de son Sortilège des Cinq Viscères.
 
 Un fracas assourdissant secoua le champ de bataille. Le coup illusoire se brisa, révélant la concubine impériale en pleine retraite, toussant du sang.
 

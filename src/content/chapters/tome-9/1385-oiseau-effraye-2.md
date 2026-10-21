@@ -34,7 +34,7 @@ Cupidité agita la main droite et une vague d'énergie originelle s'engouffra da
 
 « Si vous étiez membres du Clan du Scorpion Noir, il serait regrettable de vous tuer tous les deux, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Cupidité déchaîna une bourrasque monumentale qui balaya tous les membres du Clan du Scorpion Noir hors de la planète.
 
-Après cela, il agita à nouveau sa manche et s'adressa avec arrogance au Clan de l'Évasion Nuageuse: « Tous, accompagnez ce vieil homme et attendez le retour de cet esclave. Je vais vous montrer la puissance de mes trésors! »
+Après cela, il agita à nouveau sa manche et s'adressa avec arrogance au Clan de l'Évasion Nuageuse: « Tous, accompagnez ce vieil homme et attendez le maître de cet esclave. Je vais vous montrer la puissance de mes trésors! »
 
 « Être témoin de l'usage des trésors de ce vieil homme est une chance inouïe dans votre existence. Mes trésors sont si puissants que peu peuvent les égaler. Assister au combat où ce vieil homme terrassera un cultivateur du Fléau Céleste est un événement que vous n'oublierez jamais! »
 

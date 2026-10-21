@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 6 - Insults
 slug: insultes
 ---
-Tie Zhu resta silencieux tandis que Wang Zhuo, d'un ton moqueur, lançait: « J'ai déjà dit que ce gamin n'avait aucun talent. Tout ce qu'il a fait, c'est faire honte à notre famille. J'ai été accepté dès le premier test, alors je n'ai pas vu ses essais suivants, mais j'ai entendu dire qu'il avait échoué aux trois tests. Il aurait tout aussi bien fait de ne pas y aller. J'aurais préféré que ce soit le fils du quatrième oncle qui s'y présente. »
+Tie Zhu resta silencieux tandis que Wang Zhuo, d'un ton moqueur, lançait: « J'ai déjà dit que ce gamin n'avait aucun talent. Tout ce qu'il a fait, c'est faire honte à notre famille. J'ai été accepté dès le premier test, alors je n'ai pas vu ses essais suivants, mais j'ai entendu dire qu'il avait échoué aux trois tests. Il aurait tout aussi bien fait de ne pas y aller. Je parie que même le fils du quatrième oncle, Hu Zi, serait meilleur que lui. »
 
 Le quatrième oncle de Tie Zhu fronça les sourcils et répliqua: « Wang Zhuo, même si tu deviens un immortel, ne fais pas le fier devant moi. Que mon fils Hu Zi ait ou non l'étoffe, en quoi cela te regarde-t-il? Quel manque de respect envers tes aînés! »
 

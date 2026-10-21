@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1826 - Terrifying Avatar!"
 slug: avatar-terrifiant
 ---
-« Huitième Niveau du Dao Céleste, Dao du Feu Extrême! » C'était le sort puissant que l'Ancêtre Céleste avait utilisé pour sceller le Taureau Céleste. La partie du Sens Divin de Wang Lin restée dans son véritable corps d'essence venait tout juste de quitter l'illusion, mais il était encore en état de transe. Même une fois fusionné avec son corps originel, il restait sous l'emprise de cette torpeur, et la seule chose qui occupait son esprit était le sort du Dao du Feu Extrême utilisé par l'Ancêtre Céleste!
+« Dao des Huit Extrêmes, Dao du Feu Extrême! » C'était le sort puissant que l'Ancêtre Céleste avait utilisé pour sceller le Taureau Céleste. La partie du Sens Divin de Wang Lin restée dans son véritable corps d'essence venait tout juste de quitter l'illusion, mais il était encore en état de transe. Même une fois fusionné avec son corps originel, il restait sous l'emprise de cette torpeur, et la seule chose qui occupait son esprit était le sort du Dao du Feu Extrême utilisé par l'Ancêtre Céleste!
 
 Lorsque Wang Lin parla, l'ombre de son véritable corps d'essence apparut. De loin, on aurait dit que deux Wang Lin se tenaient là, l'un derrière l'autre. C'était une vision très étrange.
 
@@ -76,7 +76,7 @@ On pourrait même dire qu'ils étaient nés selon la même méthode. Bien qu'il 
 
 C'était son plus grand atout!
 
-Le Huitième Niveau du Dao Céleste de l'Ancêtre Céleste n'était pas une technique que Wang Lin pouvait maîtriser d'un simple regard à son niveau actuel. Seul un Grand Empyréen pourrait sans doute accomplir une telle prouesse.
+Le Dao des Huit Extrêmes de l'Ancêtre Céleste n'était pas une technique que Wang Lin pouvait maîtriser d'un simple regard à son niveau actuel. Seul un Grand Empyréen pourrait sans doute accomplir une telle prouesse.
 
 S'il pouvait l'utiliser, c'était grâce à son avatar. C'était lui qui avait compris le sort après que le corps original de Wang Lin l'ait observé, et cette compréhension avait été transmise au corps originel. Cela permettait à Wang Lin d'utiliser ce sort ultime qui avait jadis scellé le Taureau Céleste!
 

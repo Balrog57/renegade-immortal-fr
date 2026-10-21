@@ -44,7 +44,7 @@ Lorsqu'il rejoignit Mo Lihai, les yeux de ce dernier s'illuminèrent et il murmu
 
 Wang Lin esquissa un léger sourire mais resta silencieux.
 
-À cet instant précis, au plus profond du pavillon de l'Épée Impériale, l'Épée de l'Empereur était plantée dans le sol, au cœur de la formation, émettant des vagues de chants d'épées. Puisqu'elle se trouvait également dans la cité impériale au moment où Wang Lin avait attaqué, elle avait ressenti la même sensation, ce qui la rendait furieuse.
+À cet instant précis, au plus profond du pavillon des épées, l'Épée de l'Empereur était plantée dans le sol, au cœur de la formation, émettant des vagues de chants d'épées. Puisqu'elle se trouvait également dans la cité impériale au moment où Wang Lin avait attaqué, elle avait ressenti la même sensation, ce qui la rendait furieuse.
 
 Dans sa rage, elle s'élança hors du sol, prête à charger et à réduire cet individu en morceaux comme elle l'avait fait tant de fois contre la Prison Hong. Cependant, alors qu'elle s'envolait, elle commença à hésiter.
 

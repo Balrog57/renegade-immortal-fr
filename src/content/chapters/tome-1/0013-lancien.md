@@ -58,7 +58,7 @@ L'envie se lut sur tous les visages et les éloges commencèrent à pleuvoir.
 
 « N'est-ce pas? Même les Immortels se sont trompés : ils ont fini par regretter leur erreur et ont pris Wang Lin comme disciple. À l'avenir, notre famille Wang pourra compter sur ces trois enfants. »
 
-« C'est à cause de mes vieux yeux que je n'ai pas su voir les qualités de ce garçon, mais en le regardant maintenant, quelle partie de lui pourrait être comparée à Wang Zhuo ou Wang Hao? C'est clairement un dragon parmi les hommes! Bien, bien, bien! » s'exclama à haute voix le troisième oncle, le plus âgé de la famille Wang, en caressant sa barbe toute blanche, comme s'il avait oublié son visage venimeux du mois précédent.
+« C'est à cause de mes vieux yeux que je n'ai pas su voir les qualités de ce garçon, mais en le regardant maintenant, en quoi Wang Lin serait-il inférieur à Wang Zhuo ou Wang Hao? C'est clairement un dragon parmi les hommes! Bien, bien, bien! » s'exclama à haute voix le troisième oncle, le plus âgé de la famille Wang, en caressant sa barbe toute blanche, comme s'il avait oublié son visage venimeux du mois précédent.
 
 « Ce gamin, Wang Lin, a toujours été intelligent depuis son enfance. J'ai toujours dit qu'il serait certainement accepté par les immortels; la dernière fois n'était qu'un accident. Si même les immortels ont pu se tromper une fois, comment nous, simples mortels, ne pourrions-nous pas faire de même? Wang Lin, j'espère que tu ne m'en voudras pas, ton cinquième oncle te demande pardon. »
 

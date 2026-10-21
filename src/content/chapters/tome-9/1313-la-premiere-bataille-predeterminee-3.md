@@ -90,7 +90,7 @@ Plus de 10 000 membres du Clan de la Lune, sur les 100 000 que comptait la forma
 
 En un instant, ces plus de 10 000 membres décédés apparurent sous forme d'âmes dans le monde lunaire!
 
-« Utilisez le sang de mon clan pour élever l'esprit divin. Utilisez les âmes de mon clan pour briser l'esprit divin! » La voix antique était empreinte de folie. Les 10 000 âmes commencèrent à s'étendre pour former des lunes. Cela fit atteindre au clair de lune du monde son apogée.
+« Utilisez le sang de mon clan pour élever l'esprit divin. Utilisez les âmes de mon clan pour briser l'esprit divin! Grand Art Lunaire d'Extermination Divine!! » La voix antique était empreinte de folie. Les 10 000 âmes commencèrent à s'étendre pour former des lunes. Cela fit atteindre au clair de lune du monde son apogée.
 
 Ces 10 000 lunes grondèrent, et plus de la moitié fonça vers Tuo Sen, tandis que les autres visèrent Wang Lin!
 

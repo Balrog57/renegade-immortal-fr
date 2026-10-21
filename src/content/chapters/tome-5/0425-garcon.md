@@ -44,9 +44,9 @@ Le Situ Nan fraîchement réveillé affichait une image féroce, mais en réalit
 
 Il faut dire que le talent d'acteur de Situ Nan était prodigieux.
 
-Lorsque Situ Nan avait forcé Zhu Quezi à lui trancher les doigts, Wang Lin était extrêmement nerveux, mais Situ Nan n'était pas du tout inquiet et restait aussi arrogant qu'à son habitude.
+Lorsque Situ Nan avait forcé Zhu Quezi à se trancher les doigts, Wang Lin était extrêmement nerveux, mais Situ Nan n'était pas du tout inquiet et restait aussi arrogant qu'à son habitude.
 
-Par la suite, Wang Lin lui avait demandé pourquoi il avait exigé que Zhu Quezi laisse ces doigts derrière lui. Ne craignait-il pas les représailles de ce dernier?
+Par la suite, Wang Lin lui avait demandé pourquoi il avait forcé Zhu Quezi à se couper les doigts. Ne craignait-il pas les représailles de ce dernier?
 
 La réponse de Situ Nan fut: « Parce que je suis Situ Nan! »
 

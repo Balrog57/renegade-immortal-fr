@@ -60,7 +60,7 @@ Après 49 explosions, Maître Yan Leizi recula de plusieurs mètres, le visage l
 
 « Ce n'est certainement pas un sort céleste ordinaire! » Lorsque Maître Yan Leizi contrôlait le corps de Wang Lin, il ne l'avait jamais vu utiliser une telle technique. C'était la première fois qu'il en était témoin, et il en fut profondément choqué.
 
-« La rumeur prétend que lors de l'effondrement du Royaume Céleste, l'Empereur Céleste Bai Fan a connu une mort mystérieuse. En tant que disciple de Bai Fan, ne souhaites-tu pas découvrir la vérité et venger ton maître? » Maître Yan Leizi fronça les sourcils. À moins d'une nécessité absolue, il ne voulait pas affronter le Seigneur Céleste Qing Shui; cela s'éloignerait trop de son plan initial.
+« La rumeur prétend que lors de l'effondrement du Royaume Céleste du Tonnerre, l'Empereur Céleste Bai Fan a connu une mort mystérieuse. En tant que disciple de Bai Fan, ne souhaites-tu pas découvrir la vérité et venger ton maître? » Maître Yan Leizi fronça les sourcils. À moins d'une nécessité absolue, il ne voulait pas affronter le Seigneur Céleste Qing Shui; cela s'éloignerait trop de son plan initial.
 
 Les yeux de Qing Shui se remplirent d'intention meurtrière et il chargea. Simultanément, ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Son sceau changea instantanément alors qu'il pointait le ciel en criant: « Appel de la Pluie! »
 

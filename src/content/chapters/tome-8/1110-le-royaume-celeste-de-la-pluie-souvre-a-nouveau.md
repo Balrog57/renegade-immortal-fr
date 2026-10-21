@@ -110,7 +110,7 @@ Sur la formation située sur la planète principale de l'Oiseau Vermillon, tout 
 
 Wang Lin s'installa au centre de la formation sans perdre un instant. Ses yeux brillèrent et il cria: « Activez la formation! » Sur ce commandement, sa main droite plongea dans le vide et une fissure apparut. Un cristal débordant d'énergie spirituelle céleste en jaillit!
 
-Simultanément, les dizaines de milliers de membres de la secte ouvrirent les yeux, et leur énergie originelle fut injectée dans la formation. Celle-ci se mit immédiatement à scintiller sous leurs pieds.
+Simultanément, les dizaines de milliers de membres de la secte fermèrent les yeux, et leur énergie originelle fut injectée dans la formation. Celle-ci se mit immédiatement à scintiller sous leurs pieds.
 
 Dès que l'éclat atteignit une intensité critique, la lumière commença à se concentrer sous les 35 Anciens. Tous formèrent des sceaux et activèrent leur énergie avec ferveur. Toute l'énergie originelle des disciples fut divisée en 35 parts et fut dirigée droit vers le cristal situé devant Wang Lin, au centre de la formation.
 

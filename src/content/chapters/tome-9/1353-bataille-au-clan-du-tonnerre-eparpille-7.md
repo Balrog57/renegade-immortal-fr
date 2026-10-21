@@ -62,7 +62,7 @@ Le Grand Ancien fondit soudainement sur lui, la main tendue, déployant son cinq
 
 Voyant Wang Lin battre en retraite, le Grand Ancien sembla perdre la raison, le sentiment de danger dans son cœur devenant de plus en plus oppressant!
 
-« Je ne peux pas le laisser s'échapper! » Le Grand Ancien cracha du sang et se transforma en un éclair de tonnerre sanglant. La marque entre ses sourcils brilla et la foudre se concentra dans cet éclair écarlate qui frappa le réseau de Wang Lin.
+« Je ne peux pas le laisser s'échapper! » Le Grand Ancien cracha du sang qui se transforma en un éclair de tonnerre sanglant. La marque entre ses sourcils brilla et la foudre se concentra dans cet éclair écarlate qui frappa le réseau de Wang Lin.
 
 Le monde entier résonna de grondements tonitruants tandis que 60 000 des 70 000 couches du filet s'effondraient instantanément. Cependant, alors que le Grand Ancien allait charger, les 60 000 couches se régénérèrent aussitôt!
 

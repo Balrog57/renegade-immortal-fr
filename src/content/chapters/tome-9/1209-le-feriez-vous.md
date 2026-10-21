@@ -98,6 +98,6 @@ Le temple était plongé dans un silence absolu, d'une tranquillité terrifiante
 
 « N'as-tu pas peur que ce feu ardent ne brûle ton doigt? » Une seconde voix résonna dans le temple. Ces mots étaient d'une froideur glaciale.
 
-« Le feriez-vous?... » Le doigt s'étira vers la flamme, laissant la bougie le consumer...
+« Le ferait-il?... » Le doigt s'étira vers la flamme, laissant la bougie le consumer...
 
 Au même moment, au plus profond du Royaume aux Sept Couleurs, les pupilles du vieil homme se rétractèrent. Comme s'il avait reçu un ordre, il chargea vers la position de Wang Lin!

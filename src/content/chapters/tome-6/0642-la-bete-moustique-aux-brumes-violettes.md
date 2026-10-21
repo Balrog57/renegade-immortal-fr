@@ -77,7 +77,7 @@ Tandis qu'ils volaient dans la fissure vers le Pays des Démons de Feu, les yeux
 
 « Wang Lin, il y a un problème. J'utilisais le Sens Divin de mon épée pour sonder l'avant, et j'ai découvert une brume violette plus loin. Il semble que des cultivateurs soient piégés là-dedans, mais ce qui est étrange, c'est que le Sens Divin de mon épée ne peut pas percer cette brume violette. »
 
-« Des cultivateurs piégés? » En chemin, Wang Lin n'avait pas aperçu Murong Zhuo ni les deux femmes. Ses yeux se plissèrent; il se demanda s'il s'agissait d'eux trois.
+« Des cultivateurs piégés? » En chemin, Wang Lin n'avait pas aperçu Murong Zhuo ni les deux femmes Zhao et Xu. Ses yeux se plissèrent; il se demanda s'il s'agissait d'eux trois.
 
 Au moment où Wang Lin et Zhou Yi marquèrent une pause, un essaim dense de moustiques se déploya de l'autre côté de la brume violette. Leurs yeux rouge profond fixaient férocement la brume.
 

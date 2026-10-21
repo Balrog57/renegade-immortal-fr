@@ -22,7 +22,7 @@ Wang Lin leva la tête et, dès qu'il eut prononcé ces mots chargés de soif de
 
 Le corps du vieil homme tressaillit et du sang jaillit de l'arrière de son crâne alors que celui-ci se fracassait. Wang Lin ne s'arrêta pas là et porta six coups successifs!
 
-Les bruits de rupture furent assourdissants. Le bras du vieil homme s'effondra, ses jambes cédèrent et, en un clin d'œil, son corps se mua en une brume de sang.
+Les bruits de rupture furent assourdissants. Les bras du vieil homme s'effondrèrent, ses jambes cédèrent et, en un clin d'œil, son corps se mua en une brume de sang.
 
 Au sein de la brume, l'âme originelle du vieil homme poussa un cri et fut enveloppée d'une lueur aux sept couleurs alors qu'elle s'échappait au loin.
 
@@ -110,6 +110,6 @@ De cette position, les gémissements provenant de la grotte étaient encore plus
 
 « La chaleur a atteint la température requise... Seulement, ce feu ne convient pas pour planter le Dao... Car il n'a pas encore fait bouillir l'âme... » dit une voix ancienne émanant de derrière la bougie.
 
-« Un faux membre du Clan de l'Extermination Scellée est mort. Avez-vous des doutes sur les causes de son décès? » demanda une voix indifférente.
+« Un faux membre du Clan de l'Extermination Scellée est mort. N'avez-vous aucun doute sur les causes de son décès? » demanda une voix indifférente.
 
 « Pourquoi douterais-je... Je connaîtrai la réponse une fois que le Dao aura été planté. Ce sera bien plus intéressant... L'inconnu possède le goût le plus délicieux... L'attente est l'arrière-goût éternel. Alors, laissez le feu devenir fou... »

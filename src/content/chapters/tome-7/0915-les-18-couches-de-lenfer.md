@@ -16,7 +16,7 @@ Wang Lin avait également de grandes attentes envers ce sort. Il prit une profon
 
 L'actuel Wang Lin dégageait une immense quantité d'énergie originelle céleste. Il possédait l'aura d'un être céleste, comme s'il était un véritable immortel!
 
-Le jeune homme à la grosse tête observa attentivement la scène et soupira. Il s'était toujours demandé pourquoi ce Xu Mu possédait une énergie originelle céleste, alors qu'il se souvenait clairement que Xu Mu n'était jamais entré dans le bassin céleste.
+Le jeune homme à la grosse tête observa attentivement la scène et soupira. Il s'était toujours demandé pourquoi ce Wang Lin possédait une énergie originelle céleste, alors qu'il se souvenait clairement que Xu Mu n'était jamais entré dans le bassin céleste.
 
 Cependant, il n'osait pas exprimer son doute. En regardant Wang Lin imprégné d'énergie originelle céleste, il eut un sourire amer. Lui devait sacrifier son domaine pour obtenir cette énergie, tandis que Xu Mu possédait à la fois un domaine et une énergie originelle céleste.
 

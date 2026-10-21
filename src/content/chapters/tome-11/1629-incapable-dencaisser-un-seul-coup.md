@@ -20,7 +20,7 @@ Wang Lin ne craignait pas la rétribution divine. Il possédait le cœur d'un gr
 
 Lorsqu'il fut à moins de 100 000 pieds de la brèche, une lumière aveuglante en jaillit, se répandit alentour et illumina entièrement le brouillard obscur de cet espace étoilé.
 
-Tandis que l'éclat resplendissait, un objet flotta lentement hors de la faille. C'était un pinceau à queue de cheval d'apparence très ordinaire, ne mesurant que sept pouces de long. Il possédait un manche en bois violet et des poils blancs pour le pinceau. Les 3 000 poils symbolisaient les 3 000 Grands Daos.
+Tandis que l'éclat resplendissait, un objet flotta lentement hors de la faille. C'était un pinceau à queue de cheval d'apparence très ordinaire, ne mesurant que sept pieds de long. Il possédait un manche en bois violet et des poils blancs pour le pinceau. Les 3 000 poils symbolisaient les 3 000 Grands Daos.
 
 Cet objet s'échappa lentement de la faille et l'agita doucement vers Wang Lin. Les 3 000 poils bougèrent sans qu'aucun vent ne soit présent, puis se dispersèrent. Une ondulation invisible se propagea à partir du pinceau.
 

@@ -58,7 +58,7 @@ Wang Lin savait parfaitement à quel point l'Origine Source était cruciale pour
 
 La lumière rouge en éventail, qui ne couvrait d'abord que trente pieds, s'étendit considérablement et la tempête de sable s'effondra aussitôt. L'Origine Source jaillit de l'éclat rouge et fonça droit sur Maître du Vide.
 
-L'expression de Maître du Vide vacilla, mais l'avidité dans ses yeux devint plus ardente encore. Il voulut esquiver, mais il refusait de renoncer à une occasion, qui ne se présente qu'une fois en plusieurs dizaines de milliers d'années, de ressentir personnellement l'Origine Source.
+L'expression de Maître du Vide vacilla, mais l'avidité dans ses yeux devint plus ardente encore. Il aurait pu esquiver, mais il refusait de renoncer à une occasion, qui ne se présente qu'une fois en plusieurs dizaines de milliers d'années, de ressentir personnellement l'Origine Source.
 
 À cause de cette hésitation, la lumière rouge du troisième œil de Wang Lin encercla Maître du Vide. À cet instant, le corps de Maître du Vide sembla se détacher couche après couche, devenant semi-transparent.
 

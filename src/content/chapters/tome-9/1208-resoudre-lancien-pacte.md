@@ -82,7 +82,7 @@ Wang Lin ne le tua pas immédiatement; il lui fit subir la même souffrance que 
 
 Le corps du jeune homme trembla sous la tablette de pierre. Il lutta pour s'enfuir, mais en vain. Même son âme originelle ne pouvait s'échapper, car elle était scellée dans son propre corps.
 
-Wang Lin s'approcha lentement et pressa sa main droite sur le front du jeune homme. Son Sens Divin s'engouffra en lui pour fouiller son âme par la force. Après avoir extrait les souvenirs, le jeune homme fut sur le point de sombrer dans l'inconscience. Cependant, la douleur était si intense qu'il ne pouvait pas s'évanouir. Il ne pouvait ni se suicider, ni échapper à cette torture infinie qui le menait lentement vers la mort.
+Wang Lin s'approcha lentement et pressa sa main droite sur le front du jeune homme. Son Sens Divin s'engouffra en lui pour fouiller son âme par la force. Après avoir extrait les souvenirs, le jeune homme était déjà à l'article de la mort. Cependant, la douleur était si intense qu'il ne pouvait pas s'évanouir. Il ne pouvait ni se suicider, ni échapper à cette torture infinie qui le menait lentement vers la mort.
 
 Wang Lin retira sa main et poussa un soupir.
 

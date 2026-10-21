@@ -26,7 +26,7 @@ Wang Lin ne prononça pas un mot et fixa froidement Xu Fenghan du regard. D'un m
 
 Xu Fenghan avait perdu la bataille du Dao... Son visage devint livide et il cracha une bouchée de sang. Il recula immédiatement avec un rire amer tout en formant un sceau de la main. L'énergie d'origine à l'intérieur de son corps se rassembla instantanément au creux de ses paumes.
 
-« Il me reste encore un sort d'origine! Le Dieu Démon de l'Origine! » Le visage de Xu Fenghan devint féroce. Il détestait déjà cet ennemi, dont il ignorait même le nom, jusqu'à la moelle des os!
+« Il me reste encore un sort d'origine! Le Dieu Démon de la Transformation d'Origine! » Le visage de Xu Fenghan devint féroce. Il détestait déjà cet ennemi, dont il ignorait même le nom, jusqu'à la moelle des os!
 
 L'énergie d'origine se concentra dans ses mains, puis une flamme démoniaque noire jaillit soudainement entre ses paumes. Cette flamme était semblable à la lueur vacillante d'une bougie, comme si un démon dévorant les cœurs se débattait à l'intérieur de la braise.
 

@@ -72,7 +72,7 @@ Les mains de Wang Lin déchirèrent soudainement le sol, créant une faille giga
 
 Un grondement tonitruant retentit. La faille s'étendit instantanément jusqu'à atteindre une taille incommensurable et percuta la queue du scorpion. La queue trembla puis se brisa net. Simultanément, l'immense fracture balaya le corps du scorpion vert dans sa course vers la surface.
 
-La Prairie de l'Extrême Ciel trembla. Sur le flanc ouest, la terre éclata soudainement, révélant une crevasse monumentale de plus de 100 000 pieds de large!
+La Prairie de l'Extrême Ciel trembla. Sur le flanc ouest, la terre éclata soudainement, révélant une crevasse monumentale de plus de dix mille kilomètres de large!
 
 Alors que la fissure s'ouvrait, un jet de gaz vert jaillit dans un cri misérable avant de se dissiper.
 
@@ -106,7 +106,7 @@ C'était la troisième transformation de la Lance aux Sept Couleurs! La forme la
 
 La lance grise fondit sur un scorpion. La créature poussa un hurlement et cracha une immense quantité de gaz vert qui percuta l'arme de plein fouet.
 
-Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol et une tempête s'éleva vers la surface, provoquant l'effondrement d'une vaste zone de la Prairie de l'Extrême Ciel sous l'impact, projetant d'innombrables mottes de terre et d'herbe vers le ciel.
+Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol et une tempête s'éleva vers la surface, provoquant l'effondrement d'une zone de plus de mille kilomètres de diamètre dans la Prairie de l'Extrême Ciel sous l'impact, projetant d'innombrables mottes de terre et d'herbe vers le ciel.
 
 « Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de culture. Elle ne se base pas sur mon propre corps, mais sur l'aura du Taureau Céleste. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
 

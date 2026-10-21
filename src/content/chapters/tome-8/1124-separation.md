@@ -118,6 +118,6 @@ Comparé à son état pitoyable dans le Royaume Céleste de la Pluie, l'Empereur
 
 L'Empereur Divin du Dragon Azure esquissa un sourire, mais ce fut un sourire d'une froideur extrême.
 
-« Je ne les ai pas maltraités. Il y a une planète rocheuse en dehors des Quatre Sectes Divines, et tous les étrangers y ont été envoyés. »
+« Je ne les ai pas maltraités. Il y a la planète Shiyan en dehors des Quatre Sectes Divines, et tous les étrangers y ont été envoyés. »
 
 « Je peux renoncer à mon identité d'Empereur Divin de l'Oiseau Vermillon, je peux vous donner le Trésor Sacré, je peux partir et ne jamais revenir, mais je vais emporter une chose avec moi! » Wang Lin n'avait jamais eu l'intention de garder le Trésor Sacré. Il saisit le vide de la main droite, et une pierre blanche incandescente apparut, contenant une goutte de sang sacré.

@@ -88,7 +88,7 @@ Wang Lin marqua une pause et dit lentement: « J'ai des affaires importantes à 
 
 Au-delà du fait qu'il manquait réellement de temps, même s'il en avait eu, il n'aurait pas accepté si facilement. Après tout, il n'avait aucun lien avec elle, et si elle ne pouvait la briser avec sa propre culture, Wang Lin ne croyait pas pouvoir apporter une aide significative.
 
-De plus, le plus important était que ses paroles étaient très vagues et omettaient manifestement l'essentiel. Par conséquent, Wang Lin n'avait aucune raison de l'aider.
+De plus, le plus important était que ses paroles n'étaient pas véridiques et omettaient manifestement l'essentiel. Par conséquent, Wang Lin n'avait aucune raison de l'aider.
 
 Lorsque Yao Xixue décida de solliciter l'aide de Wang Lin, elle savait qu'il ne céderait pas aisément; elle ne renonça pas et déclara: « La culture du camarade Wang est au stade intermédiaire de la Transformation de l'Âme. Pour atteindre le stade avancé, la quantité de jade céleste nécessaire est immense, et si vous souhaitez atteindre le stade Ascendant, les quantités dont vous aurez besoin dépasseront votre imagination. Cela ne concerne que l'augmentation de votre niveau de culture; pour passer 500 ans ici, il faut avoir préparé une quantité considérable de jade céleste pour une consommation régulière. Par conséquent, je pense que le jade céleste est la chose la plus importante pour vous en ce moment. Je me demande si vous en avez assez? Si ce n'est pas le cas, je peux vous en fournir! »
 

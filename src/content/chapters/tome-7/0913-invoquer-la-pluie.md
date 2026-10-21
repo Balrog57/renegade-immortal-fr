@@ -20,7 +20,7 @@ Dans un rugissement de tonnerre, la branche vola vers Maître Yan Leizi qui l'at
 
 « Exact, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau Saint adjoint du Domaine de la Boucherie! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
 
-Après avoir inspecté la branche, il la renvoya à Wang Lin avec un sourire: « Bien, Xu Mu, tu peux cultiver ici en toute tranquillité. Dans un mois, les renforts arriveront et tu rejoindras l'armée pour envahir la région du Nord! »
+Après avoir inspecté la branche, il la renvoya à Wang Lin avec un sourire: « Bien, Xu Mu, tu peux cultiver ici en toute tranquillité. Dans un mois, les renforts de Luotian arriveront et tu rejoindras l'armée pour envahir la région du Nord! »
 
 Wang Lin inclina respectueusement la tête et joignit ses mains en signe d'acquiescement.
 
@@ -80,7 +80,7 @@ En contemplant son passé, Lei Ji fut saisi d'émotion. Il n'était pas aussi d�
 
 C'est précisément cette ruse qui avait poussé Lei Ji à accepter sans hésiter de devenir la monture de Wang Lin. Après l'avoir observé, il s'était dit que s'il suivait cet homme, il pourrait peut-être un jour retourner sur la Planète du Géant Démon pour accomplir sa vengeance!
 
-En particulier, lors de la bataille précédente, le rugissement de Wang Lin avait ébranlé son âme. À cet instant, tous ses stratagèmes s'étaient effondrés, et une volonté ancestrale, enfouie au plus profond de son être, l'avait fait succomber à ce cri. C'est à ce moment précis que sa décision de suivre Wang Lin était devenue inébranlable.
+En particulier, lors de la bataille précédente, le rugissement du Dieu Ancien de Wang Lin avait ébranlé son âme. À cet instant, tous ses stratagèmes s'étaient effondrés, et une volonté ancestrale, enfouie au plus profond de son être, l'avait fait succomber à ce cri. C'est à ce moment précis que sa décision de suivre Wang Lin était devenue inébranlable.
 
 « Je n'attirerai aucune attention en restant une simple monture. Tout reposera sur l'aptitude sanguine de mon Clan du Géant Démon! » En pensant ainsi, Lei Ji ferma les yeux pour poursuivre sa compréhension.
 

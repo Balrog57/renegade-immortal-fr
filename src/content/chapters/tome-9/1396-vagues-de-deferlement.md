@@ -114,7 +114,7 @@ Dans une autre partie du Système Stellaire Antique, une douce lumière bleue sc
 
 Li Qianmei le suivait silencieusement.
 
-Plus loin encore, dans un domaine stellaire presque désert, une bête de la taille d'une planète de culture se déplaçait lentement. Cette créature avait la forme d'une ellipse et d'innombrables tentacules longs de dizaines de milliers de pieds ondulaient sur tout son corps.
+Plus loin encore, dans un domaine stellaire presque désert, une bête de la taille d'une planète de culture se déplaçait lentement. Cette créature avait la forme d'une ellipse et d'innombrables tentacules longs de centaines de milliers de pieds ondulaient sur tout son corps.
 
 Le Serpent aux yeux de lune!
 

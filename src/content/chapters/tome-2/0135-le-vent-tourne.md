@@ -10,7 +10,7 @@ Wang Lin n'hésita pas à utiliser la Technique de l'Évasion Terrestre pour se 
 
 Il changea rapidement de direction. Rencontrer Lin Tao n'était plus son objectif; il se dirigea plutôt vers la frontière du pays en utilisant les informations issues des souvenirs de Ma Liang. Il ne pouvait plus rester à Huo Fen.
 
-Mais avant qu'il n'ait pu parcourir une grande distance, un immense Sens Divin le balaya. Cette onde de perception revint rapidement pour se concentrer sur lui. Choqué, il scruta le ciel. Ce qu'il vit, au-dessus des nuages, était un cercle de seize bêtes de feu géantes, au centre duquel flottait un anneau de feu.
+Mais avant qu'il n'ait pu parcourir une grande distance, un immense Sens Divin le balaya. Cette onde de perception revint rapidement pour se concentrer sur lui. Choqué, il scruta le ciel avec son Sens Divin. Ce qu'il vit, au-dessus des nuages, était un cercle de seize bêtes de feu géantes, au centre duquel flottait un anneau de feu.
 
 De fins fils rouges s'étendaient de l'anneau de feu et étaient reliés aux têtes des seize créatures.
 
@@ -44,7 +44,7 @@ Puis, une lumière d'encre noire jaillit de son sac de stockage et disparut. Ell
 
 Le choc de deux métaux s'entrechoquant retentit. Une blessure sanglante apparut sur la poitrine de la créature, qui fut projetée au loin. Elle poussa un rugissement, se redressa et continua sa poursuite.
 
-L'expression de Wang Lin restait calme, mais son visage s'assombrit. Non seulement les bêtes étaient immunisées contre son Sens Divin du Royaume Ji, mais leurs corps étaient d'une robustesse extrême. L'épée volante n'avait pu que blesser la bête, et de toute évidence, cela ne semblait être qu'une égratignure.
+L'expression de Wang Lin restait calme, mais ses yeux révélaient une lueur sombre. Non seulement les bêtes étaient immunisées contre son Sens Divin du Royaume Ji, mais leurs corps étaient d'une robustesse extrême. L'épée volante n'avait pu que blesser la bête, et de toute évidence, cela ne semblait être qu'une égratignure.
 
 Wang Lin refusait d'abandonner. Tout en volant, il continuait d'attaquer les bêtes. Grâce à sa capacité de téléportation, l'épée se déplaçait de manière erratique jusqu'à ce qu'elle s'enfonce entre les sourcils d'une bête de feu. L'arme s'enfonça profondément et la créature explosa, libérant des ondes de chaleur.
 

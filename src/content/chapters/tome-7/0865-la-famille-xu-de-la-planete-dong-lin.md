@@ -98,7 +98,7 @@ Il y avait aussi ce jeune homme extrêmement beau vêtu de bleu. Lorsqu'il enten
 
 « Viens avec moi, le Seigneur du Temple te convoque! » L'émissaire de bienvenue regarda Wang Lin et afficha un rare sourire bienveillant. Son corps vacilla et il s'envola vers l'horizon.
 
-Wang Lin prit un moment pour réfléchir. Sans accorder d'importance aux regards des cultivateurs environnants, il s'éleva dans les airs et marcha en tête.
+Wang Lin prit un moment pour réfléchir. Sans accorder d'importance aux regards des cultivateurs environnants, il s'éleva dans les airs et marcha derrière lui.
 
 Le vieil homme du Temple Céleste du Tonnerre ne volait pas très vite. À mesure qu'ils avançaient, les nuages devant eux se fendirent. Wang Lin suivit calmement, sans poser la moindre question en chemin.
 

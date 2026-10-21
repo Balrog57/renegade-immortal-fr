@@ -44,7 +44,7 @@ D'innombrables quantités de sable, provenant d'encore plus loin, semblaient con
 
 La progression du sable était trop rapide; il venait de tous côtés comme pour dévorer Wang Lin. Vu d'en haut, on aurait dit que des vagues de sable convergeaient pour l'engloutir.
 
-L'expression de Wang Lin changea et il cracha un objet. Les Sceaux Célestes des 18 Enfers s'envolèrent, se transformant en une petite montagne. Il cria alors: « Arsenal Magique! » en agitant sa main droite.
+L'expression de Wang Lin changea et il cracha un objet. Le Sceau Céleste des 18 Enfers s'envola, se transformant en une petite montagne. Il cria alors: « Arsenal Magique! » en agitant sa main droite.
 
 Un cri fantomatique résonna dans le ciel et des éclats de lumière remplirent le monde. D'innombrables âmes apparurent, y compris l'âme de l'Ancêtre Sanguin.
 

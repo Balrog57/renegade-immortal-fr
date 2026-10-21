@@ -100,11 +100,11 @@ Outre son sang, sa vitalité même était brusquement drainée. Face à cette cr
 
 Sur la Planète du Grand Empereur, Wang Lin, assis en tailleur dans le réseau de transfert, ferma les yeux. Son esprit pénétra dans le Monde du Vent et de la Pluie pour traquer l'âme de l'Omniscient. Il utilisa cette âme et divina rapidement l'avenir... À cet instant, ses yeux s'ouvrirent brusquement, révélant une lueur d'intention meurtrière!
 
-Quelqu'un était en train de se soigner dans la terre sacrée du Clan des Moineaux de Feu. Avant de venir sur la Planète du Grand Empereur, il n'en était pas certain, mais après avoir parlé au premier descendant de l'Oiseau Vermillon, il en avait la certitude: quelqu'un se trouvait à l'intérieur!
+Quelqu'un était en train de se soigner dans la terre sacrée du Clan des Moineaux de Feu. Avant de venir sur la Planète du Grand Empereur, il n'en était pas certain, mais après avoir parlé au premier Oiseau Vermillon, il en avait la certitude: quelqu'un se trouvait à l'intérieur!
 
 S'il avait renoncé à son plan à ce moment-là et laissé Liu Jinbiao et les autres revenir, cela n'aurait pas été impossible, mais une idée folle venait de germer dans le cœur de Wang Lin!
 
-Le premier descendant de l'Oiseau Vermillon avait mentionné que la personne se soignant là était probablement le traître, le troisième Oiseau Vermillon, et qu'il éprouvait une haine profonde pour cet individu. S'il n'avait pas été incapable de quitter le monde de Tian Fang, il aurait massacré son chemin jusqu'au traître!
+Le premier Oiseau Vermillon avait mentionné que la personne se soignant là était probablement le traître, le troisième Oiseau Vermillon, et qu'il éprouvait une haine profonde pour cet individu. S'il n'avait pas été incapable de quitter le monde de Tian Fang, il aurait massacré son chemin jusqu'au traître!
 
 Bien qu'il ne l'ait pas explicitement dit, il avait fait savoir à Wang Lin qu'il pourrait aider son plan et lui permettre d'entrer dans la terre sacrée du Clan des Moineaux de Feu. Il lui avait également offert une plume d'Oiseau Vermillon en présent.
 
@@ -114,7 +114,7 @@ Plus important encore, le traître, le troisième Oiseau Vermillon, possédait u
 
 Une certitude de 70 % suffisait pour décider d'entreprendre un acte capable de secouer les cieux! Alors, imaginez avec 90 %! Une fois cela accompli, il quitterait le Système Stellaire Antique pour retourner dans le Royaume Scellé!
 
-« Il a été blessé par le premier descendant de l'Oiseau Vermillon, puis par ce rugissement mystérieux dans le Royaume Intérieur. Finalement, il a été contraint de se retirer en culture isolée pour guérir pendant des dizaines de milliers d'années. Pourtant, il a secrètement orchestré les événements! Sa fille est entrée dans le Royaume Intérieur pour séduire Qing Lin, détruire la force des Flammes Joss des quatre grands royaumes immortels du Seigneur du Royaume Scellé, et a combiné les forces de plusieurs individus pour briser le corps du Seigneur du Royaume Scellé, le menant au bord de la mort. »
+« Il a été blessé par le premier Oiseau Vermillon, puis par ce rugissement mystérieux dans le Royaume Intérieur. Finalement, il a été contraint de se retirer en culture isolée pour guérir pendant des dizaines de milliers d'années. Pourtant, il a secrètement orchestré les événements! Sa fille est entrée dans le Royaume Intérieur pour séduire Qing Lin, détruire la force des Flammes Joss des quatre grands royaumes immortels du Seigneur du Royaume Scellé, et a combiné les forces de plusieurs individus pour briser le corps du Seigneur du Royaume Scellé, le menant au bord de la mort. »
 
 « Il a tout mis en œuvre pour tenter les personnes ayant attiré son attention dans le Royaume Intérieur, comme Sima Mo ou Qing Lin, et si je ne me trompe pas, la folie de Qing Shui doit aussi être liée à cet homme! Plus malveillant encore, il a voulu implanter le Dao... Tout cela est de sa main. Maintenant qu'il est gravement blessé, je dois saisir cette opportunité! » Une lueur de folie apparut dans les yeux de Wang Lin. Ce qu'il prévoyait de faire était déjà insensé en soi!
 

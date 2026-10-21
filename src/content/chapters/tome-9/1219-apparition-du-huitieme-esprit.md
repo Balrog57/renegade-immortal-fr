@@ -76,7 +76,7 @@ La deuxième étoile émit soudainement une énergie originelle encore plus puis
 
 La formation n'avait jamais été brisée depuis sa création. L'attaque de Tuo Sen portait une aura destructrice capable de dévaster le monde, et elle se rapprochait à une vitesse fulgurante.
 
-Les sept esprits continuèrent de tenter de l'entraver, et les grondements tonnerres étaient les seuls sons qui habitaient ce vide. Cependant, Tuo Sen avait puisé dans la puissance de sa deuxième étoile, de la Lance Tueuse de Dieux et de la lame en demi-lune pour converger vers la formation. À cet instant précis, une autre lumière apparut.
+Les sept esprits continuèrent de tenter de l'entraver, et les grondements tonnerres étaient les seuls sons qui habitaient ce vide. Cependant, Tuo Sen avait puisé dans la puissance de ses deux étoiles, de la Lance Tueuse de Dieux et de la lame en demi-lune pour converger vers la formation. À cet instant précis, une autre lumière apparut.
 
 En voyant cette lueur, même un être aussi puissant que Tuo Sen fut stupéfait, et il s'élança avec encore plus de rage.
 

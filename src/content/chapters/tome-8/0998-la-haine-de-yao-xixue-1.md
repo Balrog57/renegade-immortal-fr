@@ -72,7 +72,7 @@ Ce couple de cultivateurs était celui qui n'avait jamais quitté la grotte depu
 
 Hu Juan eut un petit rire et répondit doucement: « Cet esprit d'épée est très déterminé. Il a déjà atteint le huitième niveau de la Méthode de l'Esprit Impérissable que tu lui as transmise, et il est sur le point d'atteindre le neuvième. S'il n'y a pas d'imprévu, il devrait bientôt franchir cette étape. »
 
-Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « Est-ce ainsi? Alors je ne l'ai pas aidé en vain... » En parlant, son regard s'assombrit et il secoua la tête. « Mais je reste perplexe. Qing Shuang ne serait-elle pas morte? Sinon, comment a-t-elle pu forger l'Épée Céleste de la Pluie et faire de lui un esprit d'épée... Malheureusement, il refuse de parler, et comme je ne veux pas abîmer ce qui appartient à Qing Shuang, il serait délicat de fouiller dans ses souvenirs. »
+Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « Est-ce ainsi? Alors je ne l'ai pas aidé en vain... » En parlant, son regard s'assombrit et il secoua la tête. « Mais je reste perplexe. Qing Shuang ne serait-elle pas encore vivante? Sinon, comment a-t-elle pu forger l'Épée Céleste de la Pluie et faire de lui un esprit d'épée... Malheureusement, il refuse de parler, et comme je ne veux pas abîmer ce qui appartient à Qing Shuang, il serait délicat de fouiller dans ses souvenirs. »
 
 Hu Juan murmura doucement: « Peut-être que la petite sœur Qing Shuang est encore en vie... »
 

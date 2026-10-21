@@ -100,7 +100,7 @@ La gueule terrifiante de ce monstre semblait capable de transpercer une planète
 
 Dans sa lutte, un rugissement qui résonna dans tout le Royaume Céleste du Vent se propagea. À cet instant, le royaume entier trembla comme s'il allait s'effondrer à nouveau. Toutes les bêtes moustiques frémirent, comme en signe d'adoration!
 
-Même le roi des moustiques de Wang Lin luttait contre son instinct de fuite, mais il accompagnait Wang Lin depuis de nombreuses années. Wang Lin était un cultivateur défiant les cieux; ainsi, bien qu'il ne fût qu'un roi des moustiques, c'était une bête moustique hors du commun!
+Même le roi des moustiques de Wang Lin luttait contre son instinct de fuite, mais il accompagnait Wang Lin depuis de nombreuses années. Wang Lin était un cultivateur défiant les cieux; ainsi, même s'il n'était qu'une bête moustique, c'était une bête moustique défiant les cieux!
 
 Sous cette pression et ce rugissement qui ébranlait l'univers, la créature de Wang Lin brilla intensément. Elle se tourna soudainement vers le monstre colossal dans la faille et poussa un cri!
 

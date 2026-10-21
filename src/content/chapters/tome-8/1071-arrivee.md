@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1071 - Arrival
 slug: arrivee
 ---
-Le mirage du palais suspendu dans le ciel au-dessus de la Terre des Esprits Démoniaques se mua progressivement en une forme solide. C'était comme s'il avait été téléporté depuis la grotte de Qing Lin.
+Le mirage du palais suspendu dans le ciel au-dessus de la Terre des Esprits Démoniaques se mua progressivement en une forme solide. C'était comme s'il avait été téléporté depuis la grotte de Wang Lin.
 
 Au moment où la Concubine Impériale Fleur sortit du palais, l'édifice entier ainsi que les milliers de fleurs multicolores qui l'entouraient se rétractèrent pour ne devenir qu'une miniature de la taille d'une paume, qui se posa dans sa main au milieu des effluves floraux.
 
@@ -86,7 +86,7 @@ Bien qu'il fît nuit, l'éclat infini provenant de ces sphères illuminait total
 
 Ta Jia ricana et agita sa main droite. Les sphères de brouillard noir émettant la lumière stellaire devinrent encore plus aveuglantes, passant d'un état immatériel à une forme corporelle. Les rayons de lumière croisèrent le ciel. D'un geste de Ta Jia, l'éclat stellaire infini se rassembla pour fondre sur la Concubine Impériale Fleur.
 
-C'était comme si elle voulait l'ensevelir sous les astres!
+C'était comme s'il voulait l'ensevelir sous les astres!
 
 « Si mon mari utilisait ce sort céleste d'Enterrement des Étoiles, il pourrait extraire la puissance de tout ce système stellaire et déployer une technique capable de saturer l'intégralité du firmament. Qu'il affronte dix mille ou cent mille hommes, cela ne changerait rien. S'il n'avait qu'un seul adversaire face à lui, cet homme devrait alors supporter la puissance de tout un système stellaire! » Une pointe de dédain perçait dans sa voix tandis qu'elle contemplait la pluie d'étoiles déferlant du ciel. Elle forma un sceau de sa main droite et expulsa une bouffée de parfum qui se divisa en neuf orbes!
 

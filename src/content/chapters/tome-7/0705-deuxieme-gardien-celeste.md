@@ -130,7 +130,7 @@ Wang Lin cracha une bouffée d'âme originelle qui se mua en d'innombrables symb
 
 Le Daoïste du Tonnerre ouvrit soudainement les yeux et fixa Wang Lin. Après un long moment, il laissa échapper un ricanement intérieur froid et referma les yeux. Il permit au souffle d'âme originelle de Wang Lin de pénétrer librement dans son corps.
 
-À l'instant précis où ses yeux se fermèrent, le regard de Wang Lin s'illumina. Il frappa son sac de rangement et le Fouet des Âmes apparut dans sa main; il abattit alors violemment le fouet sur le Daoïste du Tonnerre.
+À l'instant précis où ses yeux se fermèrent, le regard de Wang Lin s'illumina. Il frappa son sac de rangement et le Fouet Kunji apparut dans sa main; il abattit alors violemment le fouet sur le Daoïste du Tonnerre.
 
 Le Daoïste ouvrit brusquement les yeux en criant: « Que faites-vous?! »
 

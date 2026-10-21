@@ -76,7 +76,7 @@ Lorsque le tonnerre grondant traversa le ciel, l'homme ouvrit les yeux et une qu
 
 Dans un bruit sourd, l'homme fut arraché à la glace et s'écrasa au sol.
 
-« Petit Situ, ce vieil homme a reçu l'ordre de l'Empereur Divin de libérer la toxine dans ton corps, tu dois donc écouter mes ordres. Sinon, ne me reproche pas de te donner une leçon! »
+« Petit Situ, ce vieil homme a reçu l'ordre de l'Empereur Divin d'éliminer la toxine de ton corps, tu dois donc écouter mes ordres. Sinon, ne me reproche pas de te donner une leçon! »
 
 Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divine du Oiseau Vermillon, il lui aurait été impossible de tenir deux ans.
 

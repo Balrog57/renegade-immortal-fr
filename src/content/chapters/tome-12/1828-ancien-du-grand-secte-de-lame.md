@@ -120,4 +120,4 @@ Lorsque Wang Lin avait utilisé ce sort contre le Vieux Fantôme Zhan, celui-ci 
 
 Le Très Respecté Taureau Vert fronça les sourcils et agita la main droite dans un soupir. Une force puissante enveloppa la zone, dissimulant l'aura du Dao Antique de Wang Lin pour que les autres ne puissent plus la percevoir.
 
-« Sort Démoniaque, Montagne de Vent et de Feu! » Tandis que Wang Lin se tenait là, ses cheveux blancs flottaient au vent, lui conférant une allure majestueuse. Il ouvrit la main pour former une paume et l'abattit d'un geste.
+« Sort Démoniaque, Montagne de Feux de Signal! » Tandis que Wang Lin se tenait là, ses cheveux blancs flottaient au vent, lui conférant une allure majestueuse. Il ouvrit la main pour former une paume et l'abattit d'un geste.

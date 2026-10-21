@@ -18,7 +18,7 @@ Il ne restait ni chair ni sang, seulement des os blancs!
 
 Une grande partie de sa robe noire fut déchirée, ne laissant qu’un lambeau enveloppant son corps. Il hurla et s'enfuit à toutes jambes. Le Souverain, le cultivateur le plus mystérieux du Système Stellaire Antique, celui-là même qui avait utilisé « Pêcher la lune dans le puits » contre Wang Lin, fuyait tel un chien errant!
 
-« La puissance d'un rugissement... la puissance d'un rugissement!! » Autrefois, il avait été contraint de reculer de milliards de kilomètres hors du Royaume Intérieur à cause d’un rugissement. Cette fois encore, il était forcé de battre en retraite par un rugissement!
+« La puissance d'un rugissement... la puissance d'un rugissement!! » Autrefois, il avait été contraint de reculer de centaines de millions de kilomètres hors du Royaume Intérieur à cause d’un rugissement. Cette fois encore, il était forcé de battre en retraite par un rugissement!
 
 Cependant, hormis lui, nul ne savait si ce rugissement provenait de la même personne ou non!
 
@@ -62,7 +62,7 @@ Les sept étoiles entre les sourcils de Wang Lin tournaient rapidement, et une �
 
 Un tel avatar serait difficile à trouver n'importe où ailleurs. Pourtant, il pouvait en trouver un dans cette tombe, et plus précisément dans ce palais!
 
-Il restait encore quelques corps pétrifiés appartenant aux trois membres du Clan de l'Ordre Antique. Parmi eux se trouvait un démon ancien de dix mille pieds de haut, qui conservait encore son expression féroce. Il était particulièrement frappant parmi les autres cadavres!
+Il restait encore quelques corps pétrifiés appartenant aux trois clans de l'Ordre Antique. Parmi eux se trouvait un démon ancien de dix mille pieds de haut, qui conservait encore son expression féroce. Il était particulièrement frappant parmi les autres cadavres!
 
 Wang Lin leva la main droite et fit un geste. Le corps du démon ancien vola vers lui et atterrit devant ses pieds. Il pressa alors sa main droite sur le corps.
 

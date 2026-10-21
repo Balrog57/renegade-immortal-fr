@@ -94,7 +94,7 @@ S'il reculait maintenant, il mourrait sans aucun doute dans le futur. Il valait 
 
 Cependant, à cet instant précis, un changement stupéfiant que personne n'aurait pu imaginer se produisit!!!
 
-Avant cette bataille, Wang Lin s'était fusionné avec l'Omniscient et avait utilisé une Perle Défiant le Ciel pour déchirer le brouillard et entrevoir un espoir de survie!
+Avant cette bataille, Wang Lin s'était fusionné avec l'Omniscient et la perle de Défieur, qui avait fini par s'effondrer, avait déchiré le brouillard pour lui révéler un espoir de survie!
 
 Cet espoir de survie était un jade appartenant à Liu Jinbiao!
 

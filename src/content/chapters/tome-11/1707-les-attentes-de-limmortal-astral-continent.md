@@ -22,7 +22,7 @@ Une fois l'œil droit détruit, une goutte de sang noir, chargée d'une énergie
 
 Son corps se mit à fondre rapidement. Ses bras et ses jambes furent les premiers touchés, puis son être entier fut enveloppé par une brume sanguine. Enfin, son corps disparut totalement pour ne devenir qu'une partie de ce brouillard.
 
-La brume s'agita et se condensa promptement. Après environ sept minutes, elle finit par former une goutte de sang de dieu ancien!
+La brume s'agita et se condensa promptement. Après la durée d'un demi-bâton d'encens, elle finit par former une goutte de sang de dieu ancien!
 
 À cet instant, sur l'autel, du point de vue de l'avatar de Wang Lin, son corps originel avait disparu sans laisser de trace. Il ne restait que trois gouttes de sang!
 

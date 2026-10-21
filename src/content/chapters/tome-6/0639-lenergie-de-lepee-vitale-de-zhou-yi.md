@@ -35,7 +35,7 @@ Wang Lin esquissa un profond sourire moqueur. Ce sourire n'était pas destiné �
 
 « Le cœur est mort... Au moment où Ting Er est partie, mon cœur est véritablement mort... » La tristesse sur le visage hébété de Zhou Yi s'intensifia.
 
-Durant les centaines d'années où il fut scellé par Ling Tianhou, il était resté dans un état de confusion constante. Il avait connaissance de l'invasion du démon antique, mais ne souhaitait pas l'arrêter. Cependant, la lumière dorée représentait son amour pour Ting Er, et il ne voulait pas s'en défaire.
+Durant les centaines d'années où il fut scellé par Ling Tianhou, il était resté dans un état de confusion constante. Il avait connaissance de l'invasion de l'âme résiduelle de l'ancien démon, mais ne souhaitait pas l'arrêter. Cependant, la lumière dorée représentait son amour pour Ting Er, et il ne voulait pas s'en défaire.
 
 Après avoir soupiré, Zhou Yi leva sa main droite, devenue totalement violette, et donna une chiquenaude vers l'avant. Un rayon de lumière dorée apparut soudainement, chargé d'une énergie d'épée extrêmement puissante. C'était la même énergie qui avait plongé Ling Tianhou dans un tel état pitoyable. C'était l'énergie vitale de l'Épée Céleste de la Pluie! Zhou Yi ne possédait que 99 rayons de cette énergie d'épée!
 

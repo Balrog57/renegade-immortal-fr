@@ -40,7 +40,7 @@ Ce n'était là qu'un détail. L'essentiel était que ces combats permettaient �
 
 Quant à savoir pourquoi il avait l'impression d'être encore au 3e niveau, même Situ Nan ne parvenait pas à expliquer ce phénomène. Wang Lin avait un jour évoqué les propos du Frère Zhang sur la nécessité de couper ses liens mortels, mais Situ Nan, avec un dédain manifeste, lui avait répondu que cela n'existait pas. Ce n'était qu'un discours de ces petits pays de culture, qui se leurrent eux-mêmes. La culture était un acte défiant le ciel, où tout obéit au cœur, sans tant de limites.
 
-Il avait affirmé que dans son propre pays, un cultivateur au stade de la Formation de l'Âme n'avait pu se détacher de ses liens familiaux et était resté vivre parmi les siens; pourtant, après plusieurs années, il avait tout de même atteint la Transformation de l'Âme.
+Il avait affirmé que dans son propre pays, un cultivateur au stade de la Formation de l'Âme n'avait pas voulu se détacher de ses liens familiaux et était resté vivre parmi les siens; pourtant, après plusieurs années, il avait tout de même atteint la Transformation de l'Âme.
 
 Avec le temps, on ne leur accordait plus guère d'importance. Après tout, la longévité d'un cultivateur surpassait de loin celle d'un homme ordinaire; pour le commun des mortels, il semblait donc que les cultivateurs n'avaient aucun attachement.
 

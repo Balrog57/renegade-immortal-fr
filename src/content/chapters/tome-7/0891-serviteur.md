@@ -46,7 +46,7 @@ Le pied droit de Wang Lin fit un pas, créant des ondulations dans l'air. Lorsqu
 
 Rétrécir la terre en un pouce!
 
-Au pas suivant, Wang Lin apparut aux côtés du garçon à la grosse tête. Ses deux doigts droits formèrent une épée et son idéal du Dao se fondit à son énergie et à sa main. D'un geste, les poissons yin et yang apparurent.
+Au pas suivant, Wang Lin apparut aux côtés du garçon à la grosse tête. Ses deux doigts droits formèrent une épée et son idéal du Dao se fondit à son énergie. D'un geste, les poissons yin et yang apparurent.
 
 Ses doigts étaient entourés de brumes noires et blanches lorsqu'il les pressa vers le bas. Les runes dorées s'écartèrent toutes sur le passage de son doigt, permettant à Wang Lin de frapper entre les sourcils du garçon!
 

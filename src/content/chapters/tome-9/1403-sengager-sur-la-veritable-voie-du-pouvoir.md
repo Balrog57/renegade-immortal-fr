@@ -92,7 +92,7 @@ Wang Lin observa attentivement cette Flamme Éthérée et fut secrètement stup�
 
 « Cette Flamme Éthérée... Elle ne dégage aucune chaleur, et pourtant, elle donne l'illusion que mon âme est en train de brûler! »
 
-Grâce à la puissance de culture du vieil Oiseau Vermillon, Wang Lin fut transporté instantanément au-dessus de l'arène de mille lieues de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
+Grâce à la puissance de culture du vieil Oiseau Vermillon, Wang Lin fut transporté instantanément au-dessus de l'arène de 500 kilomètres de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
 
 Des dizaines de milliers de cultivateurs entouraient l'arène pour observer le combat, et plusieurs zones restaient désertées, car nul n'osait s'en approcher.
 

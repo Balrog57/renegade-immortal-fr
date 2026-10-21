@@ -110,7 +110,7 @@ Le papillon réapparut une fois de plus et l'homme fut de nouveau projeté en ar
 
 Dans un ultime effort, l'homme aux robes bleues hurla: « Foudre, explose! » Un grondement sourd émana de son corps et sa main droite se brisa, libérant une force destructrice.
 
-En utilisant cette explosion, il parvint à reprendre temporairement le contrôle de son corps, mais son visage était d'une pâleur cadavérique. Il était terrifié, et cette peur occupait presque tout son être.
+En utilisant cette explosion, il parvint à reprendre temporairement le contrôle de son énergie céleste originelle, mais son visage était d'une pâleur cadavérique. Il était terrifié, et cette peur occupait presque tout son être.
 
 « Quel sortilège est-ce là!?! Quel genre de trésor est-ce là!?! » Il n'avait jamais vu un tel objet étrange de sa vie. Un simple battement d'ailes du papillon avait failli le faire s'effondrer.
 

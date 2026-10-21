@@ -24,7 +24,7 @@ Bien qu'elles fussent loin, la lumière rouge était d'une puissance capable de 
 
 L'expression de Wang Lin resta impassible, mais ses pupilles se rétractèrent. Il y avait plus de mille bêtes-moustiques rouges dans cette vague! Et ce n'était que la première. Wang Lin pouvait imaginer que bientôt, d'autres créatures apparaîtraient, et qu'il ne s'agirait pas seulement de moustiques rouges, mais de spécimens bien plus puissants.
 
-Un instant plus tard, la nuée de mille bêtes se rapprocha, mais au moment même où elles arrivaient, une bête-moustique s'élança vers l'avant. Une lumière dorée pâle brilla et une pression écrasante se propagea instantanément. Parmi les mille individus, on comptait près de cent moustiques rouge foncé et des dizaines de moustiques brun rougeâtre. Sous cette pression, tous tremblèrent.
+Un instant plus tard, la nuée de mille bêtes se rapprocha, mais au moment même où elles arrivaient, le roi des moustiques s'élança vers l'avant. Une lumière dorée pâle brilla et une pression écrasante se propagea instantanément. Parmi les mille individus, on comptait près de cent moustiques rouge foncé et des dizaines de moustiques brun rougeâtre. Sous cette pression, tous tremblèrent.
 
 Les moustiques rouges se rendirent immédiatement, tandis que les cent spécimens rouge foncé luttèrent un court instant avant de capituler. Seules les quelques dizaines de bêtes brun rougeâtre reculèrent brusquement, tentant de s'enfuir.
 
@@ -68,7 +68,7 @@ Il ne voyageait pas en groupe, mais seul. En plein vol, le roi des moustiques so
 
 À cet instant précis, le roi des moustiques poussa un rugissement et se transforma en un rayon de lumière dorée pâle qui fonça sur la bête bleue. Il la rattrapa instantanément et utilisa sa large bouche pour la frapper violemment.
 
-Le moustique bleu émit un sifflement misérable, mais n'osa pas esquiver le coup, et fut repoussé de plusieurs centaines de pieds avant de s'immobiliser. La résistance dans son regard faiblit sans toutefois disparaître. Il poussa soudain un rugissement violent, fit volte-face et s'enfuit au loin.
+Le moustique bleu émit un sifflement misérable, mais n'osa pas esquiver le coup, et fut repoussé de mille pieds avant de s'immobiliser. La résistance dans son regard faiblit sans toutefois disparaître. Il poussa soudain un rugissement violent, fit volte-face et s'enfuit au loin.
 
 Les yeux de Wang Lin brillèrent et le roi des moustiques sous lui émit une lueur dorée encore plus éclatante. Il poussa un rugissement d'une puissance accrue. Dès que ce cri résonna, les moustiques rouges environnants tremblèrent, leurs yeux emplis de peur et d'effroi.
 
@@ -120,7 +120,7 @@ Wang Lin contrôlait la bête et fonçait sans relâche. En chemin, il croisa tr
 
 « Pas étonnant que même Tu Si ait dû s'enfuir honteusement à l'époque. Bien que ces bêtes-moustiques ne soient pas fortes individuellement, leur nombre est tout simplement colossal! Et ce n'est que la région extérieure. Une fois que je serai plus profondément engagé... si une multitude de moustiques bleus et blancs apparaissent, je crains que même les cultivateurs du Fléau Céleste n'aient aucune chance de survivre! »
 
-Tandis qu'il volait sur le dos de la bête, Wang Lin observa les environs. Aucune aura de cultivateur ne se faisait sentir, confirmant que très peu d'entre eux pouvaient s'aventurer ici et y séjourner longtemps.
+Tandis qu'il volait avec le roi des moustiques, Wang Lin observa les environs. Aucune aura de cultivateur ne se faisait sentir, confirmant que très peu d'entre eux pouvaient s'aventurer ici et y séjourner longtemps.
 
 Cet endroit était le monde des moustiques!
 

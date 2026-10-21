@@ -32,7 +32,7 @@ Li Qianmei se mordit la lèvre inférieure jusqu'au sang... La détermination da
 
 « Je ne peux pas l'arrêter, mais je dois quand même y aller... Maître, laissez-moi partir, je dois partir! »
 
-« Je connais ton tempérament. C'est pourquoi, en apprenant cette nouvelle, je t'ai fait revenir. Il n'est plus nécessaire d'en discuter. Cultive ici en paix pendant trois mois, et après ces trois mois, tu pourras partir! » Le maître de Li Qianmei ferma les yeux, semblant avoir pris une décision finale.
+« Je connais ton tempérament. C'est pourquoi, en apprenant cette nouvelle, je t'ai fait revenir. Il n'est plus nécessaire d'en discuter. Cultive ici en paix pendant trois mois, et après ces trois mois, tu pourras partir! » Le maître de Li Qianmei rouvrit brusquement les yeux, semblant avoir pris une décision finale.
 
 Le visage de Li Qianmei se décomposa, perdant toute couleur sous une amertume profonde. Une douleur aiguë lui transperça le cœur, si violente qu'elle eut l'impression de se noyer.
 

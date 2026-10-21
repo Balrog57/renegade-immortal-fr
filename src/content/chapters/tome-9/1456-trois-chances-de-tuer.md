@@ -100,7 +100,7 @@ Après les avoir extraites, il les fusionna avec la plateforme de rang 4. Des gr
 
 De loin, cette plateforme de 50 000 pieds était immense et impressionnante!
 
-La plateforme de Miao Yin était déjà très proche du rang 4; en y ajoutant les quelque cent runes de Wang Lin, elle avait atteint le rang 5!
+La plateforme de Miao Yin était déjà très proche du rang 4; en y ajoutant les quelque cent runes de Wang Lin, c'est celle de ce dernier qui avait atteint le rang 5!
 
 Assis sur la plateforme, Wang Lin sentit cette entité semblable à un Sens Divin pénétrer son esprit. Ayant déjà vécu cela, il ne fut pas surpris. Après une observation attentive, deux nouvelles zones s'ouvrirent sur la carte mentale!
 

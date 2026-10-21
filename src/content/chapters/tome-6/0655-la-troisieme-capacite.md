@@ -106,7 +106,7 @@ La formation des Sept Étoiles ne tournait plus et les épées étaient plantée
 
 Le temps s'écoula, et trois autres années passèrent.
 
-La force de succion traversait Wang Lin sans interruption pour s'engouffrer vers le fond. Même ses vêtements et ses cheveux n'étaient plus attirés par l'aspiration comme ils l'avaient été trois ans auparavant.
+La force de succion traversait Wang Lin sans interruption pour jaillir vers le haut. Même ses vêtements et ses cheveux n'étaient plus attirés par l'aspiration comme ils l'avaient été trois ans auparavant.
 
 Non seulement son corps restait immobile, mais son esprit ne vacillait pas non plus. Durant ces six dernières années, alors qu'il ressentait la force d'aspiration traverser chaque fibre de son être, il entra progressivement dans un état mystérieux.
 

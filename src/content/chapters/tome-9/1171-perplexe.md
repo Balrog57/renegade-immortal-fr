@@ -80,7 +80,7 @@ Cependant, son expression ne changea pas et il ne montra aucun signe qu'il avait
 
 Au crépuscule du troisième jour, Wang Lin retourna à l'auberge et s'assit sur son lit. Il regarda les six fragments de jade représentant des cartes stellaires dans sa main et commença à réfléchir.
 
-Peu après, son expression changea légèrement et il leva les yeux vers le haut de la pièce.
+Peu après, son expression changea légèrement et il leva les yeux vers la porte.
 
 Un instant plus tard, on frappa à la porte.
 
@@ -122,7 +122,7 @@ Wang Lin acquiesça silencieusement.
 
 Ils progressèrent rapidement jusqu'au bout du passage. Devant eux se tenaient deux cultivateurs au niveau de culture honorable, séparés par une porte de pierre close.
 
-Ouyang Long regarda Wang Lin, réfléchit un instant et dit: « L'enchère d'aujourd'hui est organisée par mon oncle-maître, qui a invité quelques autres cultivateurs à participer. On peut considérer cela comme une petite vente privée. Si vous le souhaitez, vous pouvez également mettre quelque chose en vente. Mon oncle-maître entamera notre transaction une fois l'enchère terminée. »
+Ouyang Long regarda Wang Lin, réfléchit un instant et dit: « L'enchère d'aujourd'hui est organisée par mon oncle-maître, qui a invité quelques autres cultivateurs à participer. On peut considérer cela comme une petite vente privée. Si un objet vous intéresse, vous pouvez également faire une offre. Mon oncle-maître entamera notre transaction une fois l'enchère terminée. »
 
 « Cher cultivateur, je suis encore perplexe sur un point. J'espère que vous pourrez lever mon doute. »
 

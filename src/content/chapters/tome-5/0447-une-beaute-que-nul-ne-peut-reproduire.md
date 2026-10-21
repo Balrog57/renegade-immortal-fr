@@ -8,7 +8,7 @@ slug: une-beaute-que-nul-ne-peut-reproduire
 ---
 Les formes de vie composées de fragments d'âme étaient extrêmement difficiles à tuer; même si elles y parvenaient, les victimes n'étaient pas l'entité elle-même, mais les propriétaires des fragments d'âme de la planète Suzaku.
 
-Si Wang Lin avait utilisé l'énergie spirituelle céleste sans la moindre retenue, il aurait pu anéantir cette chose. Cependant, de nouveaux fragments d'âme seraient alors venus la reformer. D'une certaine manière, ces formes de vie étaient immortelles.
+Si Wang Lin avait utilisé l'énergie spirituelle céleste sans la moindre retenue, il aurait pu anéantir ces fragments d'âme. Cependant, de nouveaux fragments d'âme seraient alors venus la reformer. D'une certaine manière, ces formes de vie étaient immortelles.
 
 Toutefois, lorsque le Cristal de Planète de Culture se briserait, ces fragments d'âme s'effondreraient également.
 
@@ -22,7 +22,7 @@ Qian Feng était l'un d'eux.
 
 Il fut le premier à pénétrer dans le Tombeau de Suzaku et avait donc, de toute évidence, affronté ces formes de vie composées de fragments d'âme. Comme elles étaient impossibles à tuer, les cultivateurs comme les membres du Clan de l'Immortel Délaissé finirent par rencontrer des entités semblables à Murong Yun et se précipitèrent vers ce pic montagneux.
 
-Certains furent dupés par l'autel, mais Qian Feng n'était pas tombé dans le piège et s'était échappé. Il avait déployé force et patience avant de finalement trouver le véritable autel et de pénétrer dans la section intérieure du Tombeau de Suzaku.
+Certains furent dupés par l'autel, mais Qian Feng n'était pas tombé dans le piège et s'était échappé. Il avait déployé force et patience avant de finalement trouver la véritable entrée et de pénétrer dans la section intérieure du Tombeau de Suzaku.
 
 Bien que la section intérieure fût plus restreinte que la section extérieure, elle demeurait vaste. Les formes de vie y étaient bien plus nombreuses et certaines d'entre elles étaient extrêmement puissantes. Qian Feng ne pouvant les vaincre, il fut contraint de battre en retraite.
 

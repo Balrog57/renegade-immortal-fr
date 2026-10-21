@@ -46,7 +46,7 @@ Une masse de gaz noir s'accumula devant le visage pour former un immense tatouag
 
 Une silhouette émergea de la fumée. L'homme avait les cheveux blancs et le regard sombre; une blessure fraîche saignait sur son œil droit. Il toucha sa plaie, lécha son doigt, puis se lança à la poursuite de Wang Lin.
 
-Wang Lin fronça les sourcils. « Il n'est que blessé et n'est pas mort. Cela signifie qu'il doit être un sauvage à six feuilles, une puissance équivalente à un cultivateur de la Formation de l'Âme au stade avancé. »
+Wang Lin fronça les sourcils. « Il n'est que blessé et n'est pas mort. Cela signifie qu'il doit être un chaman à six feuilles, une puissance équivalente à un cultivateur de la Formation de l'Âme au stade avancé. »
 
 Devant lui, le vieil homme Hu était dans un état lamentable. Il avait dû s'arrêter pour échanger des coups avec la vieille femme surgie du visage. Tout en tentant de protéger Xu Luo, il devait lutter contre elle, mais comme il n'était qu'au stade intermédiaire de la Formation de l'Âme, il était constamment repoussé et exposé à de multiples dangers.
 

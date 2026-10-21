@@ -92,7 +92,7 @@ Alors que les Anciens étaient sous le choc, une voix antique résonna depuis le
 
 En entendant cette voix, les seize Anciens se tournèrent respectueusement vers la Secte: « Salutations, Grand Ancien! » Un rayon de lumière jaillit de la Secte Démon et prit la forme d'un homme d'âge moyen vêtu d'une robe de daoïste. Bien qu'il paraisse jeune, il dégageait une aura ancestrale, comme s'il avait existé depuis des éternités.
 
-L'homme regarda les nuages avec émotion et déclara lentement: « Il existe de nombreux types de rétributions divines: le tonnerre, l'âme, la puissance, et bien d'autres. Mais seule la Rétribution Infinie est la plus terrifiante. Elle est en constante mutation et, selon la rumeur, sa puissance égale celle du Ciel lui-même. Elle tue sans aucun doute! Je me demande quel cultivateur a pu déclencher une telle rétribution par mégarde! »
+L'homme regarda les nuages avec émotion et déclara lentement: « Il existe de nombreux types de rétributions divines: le tonnerre, l'âme, la puissance, et bien d'autres. Mais seule la Rétribution Infinie est la plus terrifiante. Elle est en constante mutation et, selon la rumeur, sa puissance égale celle du Ciel lui-même. Elle tue sans aucun doute! Je me demande quel cultivateur a pu déclencher une telle rétribution! »
 
 « Le Maître de la Secte disait autrefois que toutes les créatures vivantes devront un jour subir la Rétribution Infinie. Je ne m'attendais pas à la voir aujourd'hui! Activez la formation de secte et laissez tous les cultivateurs entrer dans la Secte Démon; sinon, ils seront tous anéantis par elle! » L'homme d'âge moyen fixa les nuages, son expression devenant de plus en plus grave.
 

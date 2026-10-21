@@ -110,7 +110,7 @@ Yao Xixue tourna la tête vers la porte de pierre. L'homme d'âge moyen affichai
 
 « Tu l'as cherché! » Les yeux de Wang Lin devinrent glacials. Ses mains formèrent des mudras, créant des restrictions qui tombèrent au sol pour former un cercle rituel. Au fil du temps, Wang Lin ajouta de plus en plus de barrières, et le cercle commença à émettre une lueur noire.
 
-Une fois terminé, il saisit Yao Xixue et la projeta dans le cercle. Sa main droite traça un sceau et il murmura: « Scelle! »
+Une fois terminé, il saisit Yao Xixue et la projeta dans le cercle. Sa main droite forma un mudra et il murmura: « Scelle! »
 
 D'un seul mot, le cercle se rétracta brusquement pour envelopper Yao Xixue. En un instant, elle fut enfermée dans une sphère de restriction!
 

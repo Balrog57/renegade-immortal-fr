@@ -22,7 +22,7 @@ Cette scène fit écarquiller les yeux de tous les spectateurs. Même les vieux 
 
 « Je connais cet homme, c'est Xu Mu! »
 
-« Ce trésor magique est trop redoutable; il est spécialisé dans l'attaque du sens divin. Le sens divin de Luo Su est imprévisible, mais il a trouvé son maître! »
+« Ce trésor magique est trop redoutable; il est spécialisé dans l'attaque du sens divin. Le sens divin de Luo Su est imprévisible, mais il a trouvé son égal! »
 
 « Le Maître Démon Xu Mu? Pas étonnant que cet homme ait osé défier Luo Su! »
 

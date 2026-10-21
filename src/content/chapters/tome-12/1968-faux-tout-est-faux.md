@@ -22,7 +22,7 @@ Jiu Di eut un sourire amer en regardant les deux fillettes. Il décida de les ig
 
 Les deux fillettes levèrent leurs mains de concert et formèrent un cercle avec leurs corps. Une lumière dorée émana de ce cercle, comme s'il était devenu un soleil d'or!
 
-L'éclat de ce soleil remplaça toute lumière dans le monde et enveloppa les quatre Grands Empyréens. Personne ne pouvait voir clairement à l'intérieur.
+L'éclat de ce soleil remplaça toute lumière dans le monde et enveloppa les trois Grands Empyréens. Personne ne pouvait voir clairement à l'intérieur.
 
 Des grondements retentirent au cœur de la lumière. Le Grand Empyréen Dao Yi fut le premier expulsé. Son visage était empreint de colère, mais il ne se retourna pas; il s'envola simplement au loin.
 

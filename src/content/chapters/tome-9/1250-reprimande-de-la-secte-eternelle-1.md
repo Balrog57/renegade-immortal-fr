@@ -30,13 +30,13 @@ Même l'expression de Mu Bingmei changea légèrement en entendant cela, et elle
 
 « La Secte de l'Origine? Quel est le rang de cette secte affiliée? » Wang Shanshan était stupéfaite. Elle n'avait jamais entendu parler de cette secte auparavant.
 
-« Ancien Feng, vous l'avez vu de vos propres yeux, expliquez donc cela à tout le monde », dit l'Ancien vêtu de blanc en regardant Feng Hai.
+« Ancien Feng, vous l'avez vu de vos propres yeux, expliquez donc cela à tout le monde », dit le vieil homme en blanc en regardant Feng Hai.
 
 L'expression de Feng Hai devint étrange alors qu'il se levait pour saluer Wang Shanshan et Mu Bingmei en joignant les mains. Il parcourut la salle du regard et vit de nombreux vieux cultivateurs l'observer. Il semblait que beaucoup ignoraient les détails et n'en avaient entendu que les rumeurs.
 
 À vrai dire, il n'était pas étonnant qu'ils soient perplexes. Li Qianmei était célèbre, et il était inattendu qu'elle soit proche d'une secte de rang 5. Et ce n'étaient pas de simples connaissances, puisqu'elle était prête à tuer un cultivateur d'une secte de rang 7 pour eux.
 
-Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte de l'Origine de rang 5. À ce moment-là, Lu Yingjie de la Secte de la Musique Céleste et Zhao Long, de la Secte Xun Luan, avaient des différends privés avec la Secte de l'Origine. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
+Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte de l'Origine de rang 5. À ce moment-là, Lu Yingjie de la Secte de la Musique Céleste et Zhao Long, de la Secte Recherchant la Montagne, avaient des différends privés avec la Secte de l'Origine. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
 
 « Tout cela semble lié à une personne nommée "Lu" au sein de la Secte de l'Origine! »
 
@@ -46,7 +46,7 @@ Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivemen
 
 « Il était obsédé par l'alchimie et est parti il y a de nombreuses années en quête d'herbes médicinales. On n'a plus eu de nouvelles de lui depuis lors. J'ignore comment il a rencontré la cultivatrice Li, mais elle semble l'admirer grandement... »
 
-« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte de l'Origine, prêt à offenser la Secte de la Musique Céleste et la Secte Xun Luan. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
+« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte de l'Origine, prêt à offenser la Secte de la Musique Céleste et la Secte Recherchant la Montagne. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
 
 « Lu Yuncong a affirmé que si Lu Zihao participait à la compétition, oubliez la première place parmi les sectes de rang 5; il pourrait être le numéro un parmi les sectes de rang 6 à lui seul. Il a également déclaré que Lu Zihao pourrait tuer Lu Yingjie aussi facilement qu'on écrase une fourmi! »
 

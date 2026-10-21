@@ -12,7 +12,7 @@ Rugissement!
 
 Le Dieu Ancien se trouvait à moins de mille pieds de Wang Lin. Bien que cette distance parût considérable, elle n'était qu'une portée de poing comparée au corps d'un Dieu Ancien qui mesurait dix mille pieds. Un grondement sourd retentit alors que le Dieu Ancien à 8 étoiles décocha son coup.
 
-Une tempête d'une puissance inouïe se propagea, soulevant les nuages. Une ombre gigantesque apparut alors devant le Dieu Ancien.
+Une tempête d'une puissance inouïe se propagea, soulevant les nuages. Une ombre gigantesque apparut alors derrière le Dieu Ancien.
 
 Cette ombre était également un Dieu Ancien, mais il était revêtu d'une armure. Une aura de massacre incessant émanait de cette silhouette et, sur son front, se trouvaient... neuf étoiles!
 

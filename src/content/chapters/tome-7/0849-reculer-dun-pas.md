@@ -86,7 +86,7 @@ Tout en parlant, il replaça la lampe dans la fissure. D'un mouvement de manches
 
 Accompagné de ce cri funèbre, tout ce que Wang Lin voyait se désintégra. Le hall ancestral disparut. La lampe à huile disparut. Le vieil homme disparut. La fissure disparut. Tout vola en éclats pour retourner au néant d'où cela venait!
 
-La seule chose subsistante était Yao Bingyun, assise par terre. Ses yeux étaient remplis de remords et de froideur…!
+La seule chose subsistante était Yao Bingyun, agenouillée par terre. Ses yeux étaient remplis de remords et de froideur…!
 
 « Quiconque pourra sauver ma petite sœur, moi, Yao Bingyun, deviendra votre servante pour les générations à venir. Même si cela signifie que je dois perdre toute conscience morale, tant que je peux sauver ma petite sœur, je… je suis prête!! Sans aucun regret!! » Sa voix lugubre résonna entre le ciel et la terre, révélant la détermination glaciale de Yao Bingyun, mais surtout son immense impuissance!
 

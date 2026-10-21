@@ -12,7 +12,7 @@ L'épaule de Wang Lin s'écarta pour esquiver sa main. Il répondit: « C'est un
 
 La main de Sun Youcai ne rencontra que le vide, mais son expression ne changea pas alors qu'il demandait: « Frère Ma, es-tu venu seul cette fois? » Il suivit Wang Lin avec nonchalance.
 
-Wang Lin ricana, mais son visage ne trahit aucune émotion lorsqu'il répondit: « C'est exact, je suis le seul à être venu cette fois. »
+Wang Lin ricana intérieurement, mais son visage ne trahit aucune émotion lorsqu'il répondit: « C'est exact, je suis le seul à être venu cette fois. »
 
 Sun Youcai eut un nouveau rire et murmura: « Je suppose que frère Ma a secrètement quitté la secte pour venir dans le Ravin échanger des trésors magiques et des talismans de jade. J'ai entendu dire que dans trois mois se tiendra la compétition des cinq palais du Sanctuaire du Dieu de la Guerre pour s'emparer de trésors. À ce moment-là, frère Ma pourra bien saisir sa chance et se faire un nom du jour au lendemain. »
 

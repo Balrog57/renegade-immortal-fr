@@ -60,7 +60,7 @@ Wang Lin et le jeune homme maléfique traversèrent le monde à toute allure. Pe
 
 Un sentiment de familiarité longtemps perdu envahit son cœur. Une fois maître de lui-même, Wang Lin fit jaillir sans hésitation l'énergie originelle de son corps par ses pores. Cette énergie forma un vortex qui explosa soudainement.
 
-Il profita de la puissance du collapsus du vortex pour battre en retraite rapidement. Au moment où il s'élançait, le jeune homme maléfique fit son apparition. Sa main fut frappée par l'explosion avant qu'il ne tente de saisir l'espace vide où se trouvait Wang Lin.
+Il profita de la puissance du collapsus du vortex pour battre en retraite rapidement. Au moment où il s'élançait, le jeune homme maléfique fit un pas. Sa main fut frappée par l'explosion avant qu'il ne tente de saisir l'espace vide où se trouvait Wang Lin.
 
 Après avoir jailli de l'explosion, Wang Lin s'envola au loin sans la moindre hésitation. Simultanément, il sortit son épée céleste et projeta huit Coups Célestes autour de lui.
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 2001 - Sea
 slug: la-mer
 ---
-Le Continent Astral Immortel comprenait les cinq grands continents du clan céleste ainsi que 72 continents mineurs, occupant ainsi plus de 50 % de sa superficie totale. Le reste, soit près de 50 %, était constitué des 36 pays du clan Ancien, tandis que les 10 % restants composaient l'océan infini qui séparait les clans Céleste et Ancien.
+Le Continent Astral Immortel comprenait les cinq grands continents du clan céleste ainsi que 72 continents mineurs, occupant ainsi plus de 50 % de sa superficie totale. Le reste, soit près de 50 %, était constitué à 40 % des 36 pays du clan Ancien, tandis que les 10 % restants composaient l'océan infini qui séparait les clans Céleste et Ancien.
 
 Cette mer était la plus vaste du Continent Astral Immortel. Elle était agitée par des vagues déchaînées et enveloppée d'un brouillard perpétuel. Il était impossible pour les mortels de la traverser, et même les cultivateurs n'ayant pas atteint un niveau de culture très élevé ne pouvaient espérer la franchir.
 

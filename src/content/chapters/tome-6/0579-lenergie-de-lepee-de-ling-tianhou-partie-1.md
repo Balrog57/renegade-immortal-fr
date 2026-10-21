@@ -22,7 +22,7 @@ Le jour du concours des généraux démons approchait à grands pas. Toute la Ci
 
 Wang Lin, assis au bord de la rivière, reposa sa cruche de vin, leva les yeux vers le ciel quelque peu sombre et murmura pour lui-même: « C’est un jeu! »
 
-« Un jeu aux yeux de l'Empereur Démon... De son point de vue, les étrangers s'entretuent dans le seul but d'aider les généraux démons à obtenir des positions plus élevées. C'est là le plus parfait des jeux... » Wang Lin prit une gorgée. Son regard était empreint d'une clarté absolue.
+« Un jeu aux yeux de l'Empereur Démon... De son point de vue, les étrangers s'entretuent pour un même objectif. C'est là le plus parfait des jeux... » Wang Lin prit une gorgée. Son regard était empreint d'une clarté absolue.
 
 Il réfléchit un instant avant de se lever et de s'éloigner lentement.
 

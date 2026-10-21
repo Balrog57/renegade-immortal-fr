@@ -50,7 +50,7 @@ Sous la pluie, le vieil homme en robe taoïste scruta lentement les habitations.
 
 Après un long moment, le vieil homme eut fini de scanner tout le côté ouest de la ville. N'ayant rien trouvé, il forma calmement un sceau, pointa ses doigts entre ses sourcils et poussa un rugissement.
 
-La lumière de sa marque tribale devint plus éclatante encore et, lorsque le vieil homme regarda à nouveau, la ville avait disparu. Le temps continua de remonter jusqu'à ce qu'un ancien champ de bataille apparaisse devant lui. Deux armées mortelles s'y affrontaient, teignant la terre d'un rouge sombre.
+La lumière de sa marque tribale devint plus éclatante encore et, lorsque le vieil homme regarda à nouveau, la ville avait disparu. Le temps continua de remonter jusqu'à ce qu'un ancien champ de bataille apparaisse devant lui. D'innombrables armées mortelles s'y affrontaient, teignant la terre d'un rouge sombre.
 
 Le vieil homme ferma soudainement les yeux. La lumière de sa marque tribale faiblit jusqu'à reprendre son éclat normal. Les sept cultivateurs autour de lui retirèrent également leurs marques, le visage légèrement pâle.
 

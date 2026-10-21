@@ -113,7 +113,7 @@ Les yeux de Du Tian s'illuminèrent et il cria: « Laisse derrière toi la quatr
 
 Zhu Quezi s'interrompit. Ses yeux trahissaient une lutte intérieure pour prendre une décision, puis il se retourna brusquement vers Wang Lin.
 
-Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu l'utilises pour combattre le Clan des Immortels Délaissés, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
+Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu veux cette quatrième âme pour combattre le Clan des Immortels Délaissés, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
 
 Du Tian paniqua et s'apprêta à parler quand Wang Lin tourna son regard vers lui. Lorsqu'il soutint le regard, il ne vit plus Wang Lin. Il n'y avait plus qu'une aura étrangère qui semblait dire: « Si tu parles, je te tue », et il sut que cet homme l'exécuterait sans la moindre hésitation.
 

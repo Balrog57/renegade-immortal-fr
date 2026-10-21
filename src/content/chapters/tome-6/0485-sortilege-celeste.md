@@ -48,7 +48,7 @@ L'Omniscient se tint silencieusement devant le Pavillon de la Forêt Violette et
 
 Les environs étaient plongés dans un silence total. Wang Lin restait là, aux côtés de l'Omniscient, sans un bruit. Il ignorait quelle était la personnalité de son nouveau maître et ne parvenait pas à percer ses pensées. Cependant, à en juger par l'expression de l'Omniscient, celui-ci ne semblait pas en colère.
 
-Après un long moment, l'Omniscient poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura indomptable émane de ce mot, capable de percer les cieux. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
+Après un long moment, l'Omniscient poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura indomptable émane de ce mot, prête à en jaillir. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
 
 Le cœur de Wang Lin tressaillit. Bien que son visage restât impassible, ses pensées s'emballèrent. Finalement, sa mémoire se fixa sur le Deuxième Frère, celui qui avait utilisé la technique interdite pour obtenir le corps d'un démon immortel. Il prit alors une décision et hocha la tête avec franchise: « Le disciple connaissait effectivement quelqu'un, mais nos chemins se sont séparés lors de notre voyage. »
 

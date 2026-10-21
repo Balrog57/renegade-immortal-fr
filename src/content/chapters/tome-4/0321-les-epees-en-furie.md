@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 321 - Swords gone mad
 slug: les-epees-en-furie
 ---
-« Malheureusement, je manque encore de matériaux et ne peux effectuer que des réparations mineures. Cette boussole stellaire était initialement incomplète et lui manque un type de métal. Sans ce métal, cette boussole n'a aucune capacité d'attaque. Rien d'étonnant qu'on l'appelle une boussole stellaire de second rang. »
+« Malheureusement, je manque encore de matériaux et ne peux effectuer que des réparations mineures. Cette boussole stellaire était initialement incomplète et lui manque du fer brise-étoiles. Sans ce métal, cette boussole n'a aucune capacité d'attaque. Rien d'étonnant qu'on l'appelle une boussole stellaire de second rang. »
 
 « De plus, le coin manquant nécessiterait un autre type de matériau, mais son utilisation actuelle devrait convenir pour l'instant. » Wang Lin soupira intérieurement.
 
@@ -81,7 +81,7 @@ Une femme d'âge mûr qui venait d'entrer dans le vortex pour atterrir sur un fr
 À ce moment précis, peu importe l'endroit où ils se trouvaient dans le Royaume Céleste ou leur niveau de culture, si un cultivateur brandissait une épée, celle-ci se brisait.
 
 L'épée se brise par honte!
-L'épée se brise pour nourrir l'âme!!
+L'épée se brise pour sacrifier l'âme!!
 L'épée se brise pour la furie de l'épée!!!
 
 L'épée céleste de pluie possédait une nouvelle âme, et cette âme était Zhou Yi. L'esprit de l'épée céleste de pluie était revenu. Dix mille épées brisées ensemble, dix mille épées résonnant à l'unisson, dix mille épées fusionnées en une seule!

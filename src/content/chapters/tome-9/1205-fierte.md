@@ -102,7 +102,7 @@ Wang Lin fit un pas en avant, marchant sur le vide. Il se retourna et fixa la ma
 
 « Désormais, votre clan est désormais privé, devant moi, du droit d'exercer le tonnerre! » L'œil droit de Wang Lin s'illumina et l'âme originelle du dragon de tonnerre ancien poussa un rugissement en s'enroulant autour de lui. Elle fusionna avec le tonnerre issu de son œil et chargea la marque de foudre sur la statue.
 
-Le dragon sur la marque entre les sourcils de la statue et la statue elle-même tremblèrent plus violemment encore. Au moment précis où le dragon toucha sa cible, les yeux de la statue s'illuminèrent et Wang Lin aperçut un système stellaire à l'intérieur.
+Dans un fracas, l'éclair frappa le totem entre les sourcils de la statue, qui trembla plus violemment encore. Au moment précis où le dragon toucha sa cible, les yeux de la statue s'illuminèrent et Wang Lin aperçut un système stellaire à l'intérieur.
 
 Une formation gigantesque couvrait de nombreux champs stellaires. À l'extérieur, d'innombrables êtres étranges, aux vêtements bizarres, observaient la scène. Il était évident que ce n'étaient pas des cultivateurs! Leurs visages exprimaient l'indifférence, le sarcasme et le dédain alors qu'ils scrutaient l'intérieur de la formation.
 

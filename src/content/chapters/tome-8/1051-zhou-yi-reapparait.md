@@ -84,7 +84,7 @@ Les sceaux ici étaient extrêmement complexes et visaient manifestement à emp�
 
 Il resta ainsi assis pendant trois jours. Au bout de ce délai, ses yeux devinrent lentement injectés de sang. Les innombrables variations des restrictions défilaient dans son esprit tandis qu'il cherchait la voie pour les briser.
 
-Le quatrième jour, Wang Lin leva la tête. Il se redressa et s'avança devant la salle d'alchimie. Il fit ensuite trois pas en avant, sans la moindre hésitation.
+Le quatrième jour, Wang Lin leva la tête. Il se redressa, fit sans hésiter un pas dans la restriction, puis avança de trois autres pas sans s'arrêter.
 
 Cependant, une hésitation marqua son cinquième pas. Selon ses calculs, le cinquième pas était l'étape la plus complexe pour trouver la solution exacte. Peu importe où il posait le pied, tout semblait erroné.
 

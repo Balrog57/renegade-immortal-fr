@@ -116,6 +116,6 @@ L'intention de tuer brilla dans les yeux de Wang Lin. Il leva sa main droite et 
 
 L'énergie originelle de Wang Lin s'engouffra dans l'épée de fer et brilla de mille feux. Cette énergie se transforma en une frappe d'épée si phénoménale qu'elle fit trembler les cieux!
 
-L'épée frappa, et le sang jaillit de toutes parts. Après un impact sourd, une ligne de sang apparut sur l'un des dix-huit cous. Les yeux de la tête de l'homme d'âge moyen exprimèrent l'incrédulité... avant qu'il ne s'effondre.
+L'épée frappa, et le sang jaillit de toutes parts. Après un impact sourd, une ligne de sang apparut sur l'un des dix-huit cous. Les yeux de la tête de l'homme d'âge moyen exprimèrent l'incrédulité... avant qu'elle ne se détache et tombe.
 
 Sans perdre un instant, Wang Lin rengaina son épée et s'élança pour s'échapper. Il utilisa l'Évasion par le Feu pour saisir la tête, puis réapparut à 10 000 pieds de là. Il s'éloigna rapidement sans jamais se retourner.

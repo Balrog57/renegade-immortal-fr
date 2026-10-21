@@ -21,7 +21,7 @@ Le Maître Yan Leizi n'avait pas posé trop de questions, mais lorsqu'ils évoqu
 
 Wang Lin ne s'attarda pas longtemps avec le Maître Yan Leizi. Il décida de partir en prétextant une affaire personnelle. Le Maître Yan Leizi réfléchit silencieusement un long moment et ne força pas Wang Lin à rester. Bien qu'il fût incapable de percer les mystères du corps divin ancien de Wang Lin malgré un niveau de culture bien supérieur, il pouvait ressentir une aura puissante émanant de lui qui le frappait de stupeur.
 
-Bien que cette aura fût redoutable aujourd'hui, avec le temps, elle croîtrait jusqu'à atteindre un degré absolument terrifiant.
+Bien que cette aura fût encore faible aujourd'hui, avec le temps, elle croîtrait jusqu'à atteindre un degré absolument terrifiant.
 
 Une fois de retour, le sceau qui entravait la culture de Qing Shui se dissipa rapidement. Après tout, son énergie d'origine céleste n'avait jamais disparu; elle était simplement supprimée par le sceau. Après avoir recouvré sa pleine puissance, Qing Shui ne resta pas auprès du Maître Yan Leizi. Il disparut parmi les étoiles, laissant son emplacement inconnu.
 

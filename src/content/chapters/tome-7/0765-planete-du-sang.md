@@ -81,7 +81,7 @@ Un fleuve de pierres sifflait à travers l'espace vers la Planète du Sang. Un g
 
 « Ancêtre Sanguin, même toi, tu peux connaître un tel jour! » Ces mêmes mots traversèrent presque simultanément l'esprit des quatre vieillards.
 
-Derrière eux, une multitude d'esclaves du sang s'étaient lancés dans l'espace, effrayés par le géant. Mais ils s'enfuyaient tous sans regarder derrière eux. Aucun ne resta pour défendre la Planète du Sang; au contraire, beaucoup affichaient des sourires moqueurs. Certains ne s'éloignèrent même pas tant que cela, restant à proximité de la planète pour assister personnellement à sa chute.
+Derrière eux, une multitude d'esclaves du sang s'étaient lancés dans l'espace, stupéfaits par le géant. Mais ils s'éloignaient tous, un rictus satisfait aux lèvres, sans regarder derrière eux. Aucun ne resta pour défendre la Planète du Sang; au contraire, beaucoup affichaient des sourires moqueurs. Certains ne s'éloignèrent même pas tant que cela, restant à proximité de la planète pour assister personnellement à sa chute.
 
 Grâce à sa sagesse, Wang Lin comprit immédiatement le comportement de ces esclaves. Il ne tenta pas de les arrêter et chargea la Planète du Sang avec son immense fleuve de pierres. Lorsqu'il fut tout près, il s'éleva au-dessus du courant rocheux. Chaque main saisit une pierre de 330 mètres de large qu'il projeta vers la planète.
 

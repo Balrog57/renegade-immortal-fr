@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 701 - Cultivation
 slug: culture
 ---
-Le regard du Daoïste du Tonnerre se posa sur le corps de Wang Ping. Une lueur d'intérêt dans les yeux, il dit lentement: « Il s'avère que tu n'es pas humain... »
+Le regard du Daoïste du Tonnerre se posa sur le corps de Wang Ping. Une lueur d'intérêt dans les yeux, il dit lentement: « Il s'avère que tu n'es pas seul... »
 
 Avant qu'il ne puisse achever sa phrase, le corps de Wang Ping trembla; à cet instant, l'ombre derrière lui bougea soudainement. Dès l'apparition de la marionnette de garde céleste, celle-ci lança un coup de poing.
 
 Ce coup provoqua un bang sonique. Le bruit faillit couvrir le rugissement du tonnerre alors qu'il chargeait droit sur le Daoïste du Tonnerre.
 
-Les yeux du Daoïste du Tonnerre se plissèrent. Il avait remarqué qu'une marionnette était habilement dissimulée dans l'ombre de Wang Ping, il n'était donc pas surpris. Sa main traça un sceau, la foudre jaillit de sa paume et il frappa la marionnette de plein fouet.
+Les yeux du Daoïste du Tonnerre se plissèrent. Il avait remarqué qu'une marionnette était habilement dissimulée dans l'ombre de Wang Ping, il n'était donc pas surpris. Ses mains traçèrent un sceau, la foudre jaillit de sa paume et il frappa la marionnette de plein fouet.
 
 La marionnette de garde céleste percuta directement l'éclair et le traversa. Elle semblait totalement indifférente à la foudre, et son coup de poing atteignit la main du Daoïste du Tonnerre.
 

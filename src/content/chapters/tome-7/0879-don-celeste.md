@@ -18,7 +18,7 @@ Une rune dorée brilla et l'une d'elles fusionna avec l'âme du cultivateur aux 
 
 Tout cela se produisit en un instant. Le cultivateur aux six doigts fut tué par Wang Lin presque au même moment où il tentait de le prendre par surprise.
 
-Le visage de Wang Lin était légèrement pâle. Le troisième œil entre ses sourcils se referma progressivement et la ligne rouge disparut lentement. Il se retourna ensuite et fixa Nangong Han, qui apparaissait à cent pieds de là.
+Le visage de Wang Lin était légèrement pâle. Le troisième œil entre ses sourcils se referma progressivement et se mua en une fine ligne rouge. Il se retourna ensuite et fixa Nangong Han, qui apparaissait à cent pieds de là.
 
 « Tu veux aussi te mesurer à moi? »
 
@@ -66,7 +66,7 @@ Maître Yan Leizi marqua une pause. Son regard balaya les cultivateurs devant lu
 
 Les yeux de Wang Lin se plissèrent. Il s'envola alors et joignit les mains. « Présent! »
 
-L'expression de Maître Yan Leizi se fit solennelle: « Après les épreuves du Ciel, de la Terre et de l'Humain, ainsi que celle de la ligne vers le ciel, Xu Mu, je te confère le titre de Céleste du Tonnerre! Tu dirigeras une armée de 3 000 cultivateurs en tant que première avant-garde du Système Stellaire de Luotian! »
+L'expression de Maître Yan Leizi se fit solennelle: « Après les épreuves du Ciel, de la Terre et de l'Humain, ainsi que celle de la ligne vers le ciel, Xu Mu, je te confère le titre de Vrai Céleste du Tonnerre! Tu dirigeras une armée de 3 000 cultivateurs en tant que première avant-garde du Système Stellaire de Luotian! »
 
 Tandis qu'il parlait, sa main droite plongea dans le vide et un pinceau céleste doré apparut. D'un geste assuré, il écrivit la première ligne sur le parchemin jaune:
 

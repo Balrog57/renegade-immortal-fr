@@ -34,7 +34,7 @@ Wang Lin continua de fuir. Fort heureusement, le champ de bataille était vaste 
 
 Tout en volant, il sortit rapidement une pilule et l'avala pour stabiliser son état physique, ignorant totalement le géant qui lui talonnait.
 
-L'expression de Papillon Rouge était glaciale. Elle détestait l'homme devant elle jusqu'à ses os. Si ce n'était pas pour le géant de glace, elle aurait été foudroyée par l'éclair rouge.
+L'expression de Papillon Rouge était glaciale. Elle détestait l'homme devant elle jusqu'à ses os. Si ce n'était pas pour le géant de glace, elle aurait péri ici.
 
 « Ce Ceng Niu possédait un trésor capable d'invoquer la foudre de la rétribution divine. Cependant, je ne crois pas qu'il en possède deux, sinon il les aurait utilisés simultanément. Même avec le Fouet de l'Âmes, le géant de glace ne pourra pas résister à deux assauts de la foudre de la rétribution divine », pensa Papillon Rouge, le regard sombre. Elle donna un ordre et le fouet apparut soudainement dans la main du géant.
 

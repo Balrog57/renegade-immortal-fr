@@ -72,7 +72,7 @@ Les yeux du vieillard se rétrécirent soudainement alors qu'il examinait l'obje
 
 Zhong Grand Rouge rit et joignit les mains: « Ce n'est rien, ce genre de pilule est inutile pour le Maître. Je vois que vous êtes au stade avancé de la Formation de l'Âme depuis longtemps, j'imagine que cette pilule vous sera utile. Acceptez-la simplement. »
 
-Le vieil homme prit une profonde inspiration et, abandonnant toute politesse, rangea rapidement les pilules. Il regarda Zhong Grand Rouge et murmura: « Petit Frère Zhong, le niveau de culture de ton maître... pourrait-il être... » L'homme hésita avant de poursuivre: « Pourrait-il être au stade Yin et Yang? »
+Le vieil homme prit une profonde inspiration et, abandonnant toute politesse, rangea rapidement la pilule. Il regarda Zhong Grand Rouge et murmura: « Petit Frère Zhong, le niveau de culture de ton maître... pourrait-il être... » L'homme hésita avant de poursuivre: « Pourrait-il être au stade Yin et Yang? »
 
 Zhong Grand Rouge s'attendait à ce qu'on l'interroge sur son maître. Son expression devint immédiatement respectueuse et il chuchota: « La culture de mon Maître est transcendante, même moi j'en ignore le niveau exact. Cependant, j'ai vu le Maître terrasser des cultivateurs du Scruteur du Nirvana d'un seul coup! »
 

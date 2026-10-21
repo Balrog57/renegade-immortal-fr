@@ -34,7 +34,7 @@ Au fil des millénaires, quiconque tentait de découvrir si le monde dans lequel
 
 Le seul moyen de le prouver était le suivant: si, en partant, toute votre culture disparaissait et que vous redeveniez un mortel, alors votre existence n'était qu'une Flamme Joss. En revanche, si votre culture restait inchangée après votre départ, alors tout était réel!
 
-Tandis que Wang Lin traversait la Rivière Invoquée, son Sens Divin revint de sa tête. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
+Tandis que Wang Lin traversait la Rivière Invoquée, son Sens Divin revint de la tête qu'il tenait. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
 
 D'un revers de main, il ajouta une nouvelle tête aux dizaines de milliers qui le suivaient. C'était la première tête de cultivateur de la troisième étape parmi les près de 10 000 cultivateurs du Royaume Extérieur, mais ce ne serait certainement pas la dernière.
 

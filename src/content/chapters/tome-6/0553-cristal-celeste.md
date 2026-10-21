@@ -96,7 +96,7 @@ L'ascension biannuelle du Démon Pourpre venait de s'achever.
 
 Wang Lin avait expérimenté les tableaux de transfert trop souvent pour être déstabilisé par l'inconfort. En pénétrant dans la lumière rouge sang, il comprit immédiatement qu'il s'agissait d'un transfert d'un point à un autre.
 
-Cela signifiait que quelqu'un avait placé un point de transmission à l'endroit désigné par Yao Xixue. Tant qu'on pouvait accéder à ce point, on pouvait atteindre ce lieu depuis n'importe où.
+Cela signifiait que quelqu'un avait placé un point de transmission à l'endroit désigné par Yao Xixue. Il suffisait d'activer ce point de transmission pour atteindre ce lieu depuis n'importe où.
 
 Cependant, il était évident qu'il fallait se trouver à l'intérieur de la Terre des Esprits Démoniaques pour que le transfert réussisse.
 

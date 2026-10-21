@@ -10,7 +10,7 @@ L'objectif de Wang Lin était de s'en débarrasser. Cet objet était tout simple
 
 Mais en un éclair, le cristal perça la bourrasque de vent et, en un clin d'œil, s'approcha de lui.
 
-Wang Lin serra les dents et tendit la main pour saisir le cristal afin de l'éjecter au loin. Cependant, lorsqu'il le toucha, il constata qu'il n'y avait aucun effet indésirable.
+Wang Lin serra les dents, recula rapidement et saisit le cristal à distance afin de l'éjecter au loin. Cependant, lorsqu'il le toucha, il constata qu'il n'y avait aucun effet indésirable.
 
 Surpris un instant, ses yeux s'illuminèrent et il reprit sa fuite sans aucune hésitation.
 
@@ -96,7 +96,7 @@ Pour extraire son fragment d'âme du Cristal de la Planète de Culture, il falla
 
 En surgissant des eaux, Wang Lin avait déjà repris le contrôle. Il savait désormais que Na Duo avait menti: cette chose n'avait aucun lien avec le Royaume Ji, et encore moins ne pouvait le faire évoluer.
 
-Sans aucun regret, il projeta le cristal en criant: « C'est le Cristal de la Planète de Culture! »
+Sans la moindre hésitation, il projeta le cristal en criant: « C'est le Cristal de la Planète de Culture! »
 
 Il ne le lança pas au hasard, mais précisément là où se trouvaient Liu Mei et Qian Feng.
 
@@ -106,7 +106,7 @@ Ses yeux brillèrent, mais il ne se précipita pas pour l'attraper. Il le regret
 
 Qian Feng serra les dents. Sans un mot, il frappa son sac de rangement et en sortit une poupée de bronze percée de nombreux orifices noirs d'où émanait une lueur sombre.
 
-Après avoir sorti ce trésor, la main de Qian Feng forma rapidement un sceau. Son visage devint soudainement rouge et il cracha une bouchée de sang qui s'écrasa sur la poupée.
+Après avoir sorti ce trésor, Qian Feng forma rapidement un sceau de ses deux mains. Son visage devint soudainement rouge et il cracha une bouchée de sang qui s'écrasa sur la poupée.
 
 La poupée de bronze absorba tout le sang. Elle commença alors à émettre une lueur rouge et noire, puis un halo violet apparut au-dessus de sa tête.
 
@@ -126,7 +126,7 @@ Le Zhu Quezi actuel n'était plus aussi vieux, mais il paraissait plus vibrant d
 
 Zhu Quezi pressa soudainement le cristal contre son front, et celui-ci fusionna avec son corps.
 
-L'expression d'Yun Quezi était lugubre. Il laissa échapper un reniflement méprisant et agita la main. Un à un, des glyphes apparurent, dégageant une aura terrifiante.
+L'expression d'Yun Quezi était lugubre. Il laissa échapper un reniflement méprisant et agita ses deux mains devant lui. Un à un, des glyphes apparurent, dégageant une aura terrifiante.
 
 Zhu Quezi éclata de rire, puis, dans un mouvement brusque, son corps émit une immense quantité de brume rouge. Cette brume se propagea violemment, enveloppant Yun Quezi ainsi que tout ce qui se trouvait dans un rayon de cinq kilomètres.
 
@@ -138,4 +138,4 @@ Zhu Quezi ne remarqua pas qu'en se propageant, la brume rouge avait permis au pe
 
 À l'extérieur du périmètre, les cinq autres personnes observaient la scène. Il s'agissait de Qian Feng, Liu Mei, Zhou Wutai, Zi Xin et, enfin, Wang Lin.
 
-Les yeux de Wang Lin étaient empreints d'une intention meurtrière. Sa main s'étira et le drapeau des âmes d'un milliard apparut dans sa paume. Il fixa Qian Feng et Liu Mei et déclara d'un ton lent: « Acceptez votre mort! »
+Les yeux de Wang Lin étaient empreints d'une intention meurtrière. Sa main droite saisit le vide et le drapeau des âmes d'un milliard apparut dans sa paume. Il fixa Qian Feng et Liu Mei et déclara d'un ton lent: « Acceptez votre mort! »

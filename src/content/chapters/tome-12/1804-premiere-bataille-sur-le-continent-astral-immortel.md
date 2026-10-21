@@ -8,7 +8,7 @@ slug: première-bataille-sur-le-continent-astral-immortel
 ---
 Suivant le regard du jeune homme, l'homme d'âge moyen aperçut la colonne de feu au fond de la grotte, et ses pupilles se rétractèrent soudainement.
 
-Il possédait déjà une essence et se trouvait au stade avancé du Vide Spirituel. Au sein de la Secte du Dragon Bleu, il dominait beaucoup de monde et n'était inférieur qu'à peu d'entre eux. Même sur l'ensemble du continent Taureau Céleste, il figurait parmi les plus puissants.
+Il possédait déjà une essence et se trouvait au stade avancé du Vide Spirituel. Au sein de la Secte du Dragon Bleu, il dominait beaucoup de monde et n'était inférieur qu'à une seule personne. Même sur l'ensemble du continent Taureau Céleste, il figurait parmi les plus puissants.
 
 À l'instant où il vit la colonne de feu, il distingua vaguement une silhouette enveloppée de flammes portant un cercueil sur le dos. L'homme d'âge moyen sentit une aura menaçante émaner de là, faisant trembler son cœur.
 

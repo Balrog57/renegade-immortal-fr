@@ -38,7 +38,7 @@ Alors que Wang Lin restait immobile, la déception de Shengong Hu s'accentua et 
 
 Ce contraste brutal éroda la profonde révérence qu'il portait à Wang Lin. Son cœur dao, jusque-là craintif, commença également à se rétablir lentement.
 
-« Bien que cent pas soient un gouffre infranchissable pour moi actuellement, une fois que ma culture aura atteint le début du stade du Scruteur du Nirvana, je serai capable de franchir ces cent pas sans peine. Cependant, en tant que Senior, comment peut-il n'être qu'aussi puissant... » L'expression de Shengong Hu devint sombre alors qu'il reprenait ses observations.
+« Bien que cent pas soient un gouffre infranchissable pour moi actuellement, une fois que ma culture aura atteint le début du stade du Scruteur du Nirvana, je serai capable de franchir ces cent pas sans peine. Cependant, en tant que Senior, comment peut-il n'être qu'aussi puissant... » Shengong Hu garda un visage impassible, le regard sombre, et reprit ses observations.
 
 Wang Lin contemplait le lac de tonnerre devant lui. À cet instant, il semblait avoir tout oublié. Tout ce qui l'entourait disparut; seul le lac de tonnerre subsistait.
 

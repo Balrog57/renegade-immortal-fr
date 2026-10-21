@@ -8,7 +8,7 @@ slug: haut-celeste
 ---
 Les yeux de Wang Lin s'illuminèrent. L'homme ne possédait aucune énergie spirituelle, il n'était donc même pas question d'énergie spirituelle céleste. Cependant, il était pourtant capable de voler, ce qui prouvait qu'il n'était manifestement pas un être ordinaire.
 
-Plus important encore, le tatouage sur le visage de l'homme était très familier à Wang Lin. En voyant l'individu battre en retraite, Wang Lin réfléchit un instant avant de se lancer à sa poursuite.
+Plus important encore, le tatouage sur le visage de l'homme était très familier à Wang Lin. En voyant l'individu battre en retraite, Wang Lin se lança à sa poursuite sans réfléchir.
 
 Alors que Wang Lin chargeait, la fissure derrière lui se referma complètement.
 

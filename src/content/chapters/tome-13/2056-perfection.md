@@ -50,7 +50,7 @@ Les discussions se multipliaient dans toute la ville, devenant le sujet de toute
 
 Car il ne restait plus que quatre mois avant d'atteindre le record d'un an, la plus longue première division de l'âme enregistrée chez les Anciens Shi!
 
-« Peut-il tenir un an? Il faut dire que le record absolu pour une première division est d'un an! Si cet homme-là n'était pas mort lors de la seconde division, il serait peut-être devenu un Grand Empyréen! »
+« Peut-il tenir un an? Il faut dire que le record des Anciens Shi pour une première division est d'un an! Si cet homme-là n'était pas mort lors de la seconde division, il serait peut-être devenu un Grand Empyréen! »
 
 « Huit mois... Cet homme est véritablement fou de supporter une telle douleur. »
 

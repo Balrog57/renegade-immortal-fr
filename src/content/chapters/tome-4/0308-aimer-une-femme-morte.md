@@ -62,7 +62,7 @@ Il prit une profonde inspiration, puis embrassa plusieurs fois le visage de la f
 
 « Ting Er, quand je t'ai vue pour la première fois, tu étais allongée ainsi. Rien n'a changé depuis. Ting Er, te souviens-tu? Lors de mon premier voyage dans le Royaume Céleste, je cherchais l'énergie spirituelle céleste, mais c'est toi que j'ai trouvée ici. Dès que je t'ai vue, j'ai su que tu serais ma femme, alors je suis resté auprès de toi pendant très longtemps... »
 
-Tout en parlant, il tendit la main vers celle de la femme. En frottant sa main, il ajouta: « Tu es si parfaite, tellement parfaite... Tu es à moi. Personne ne pourra te voler à moi. Ting Er, dis-moi, tu m'aimes aussi, n'est-ce pas? »
+Tout en parlant, il posa la main sur le corps de la femme. En la caressant, il ajouta: « Tu es si parfaite, tellement parfaite... Tu es à moi. Personne ne pourra te voler à moi. Ting Er, dis-moi, tu m'aimes aussi, n'est-ce pas? »
 
 « Comparée à l'énergie spirituelle céleste, tu es le véritable trésor! »
 

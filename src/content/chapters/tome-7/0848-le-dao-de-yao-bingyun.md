@@ -36,7 +36,7 @@ Wang Lin baissa la tête et regarda Yao Bingyun, qui ne s'était pas encore éve
 
 « Dévorer les domaines est une voie erronée. Pourtant, avant cela, cette idée résonnait déjà dans mon esprit. Si je n'avais pas eu cet éveil, j'aurais été plongé dans ce dilemme jusqu'à ce que mon propre Dao soit détruit! »
 
-Au moment où son doigt toucha le front de Yao Bingyun, les yeux de Wang Lin brillèrent d'une lumière mystérieuse. C'était comme s'il avait fusionné avec le monde.
+Au moment où ses deux doigts touchèrent le front de Yao Bingyun, les yeux de Wang Lin brillèrent d'une lumière mystérieuse. C'était comme s'il avait fusionné avec le monde.
 
 « La voie véritable n'est pas de dévorer, mais d'emprunter pour comprendre! Emprunter le Dao d'autrui pour confirmer le karma! C'est là la bonne façon de permettre au karma d'atteindre son accomplissement! »
 
@@ -114,6 +114,6 @@ De la même manière, tout cela était observé par Wang Lin. Il contemplait cet
 
 « Les deux deviendront les nouvelles âmes du trésor magique... »
 
-Yao Yun esquissa un sourire désespéré. Il éprouvait une affection toute particulière pour ces deux enfants, car leur mère était sa sœur aînée... La descendante de la famille Yao la plus talentueuse de toutes les générations à travers les âges!
+Yao Yun esquissa un sourire désespéré. Il éprouvait une affection toute particulière pour ces deux enfants, car leur mère était sa sœur aînée... La descendante de la famille Yao la plus talentueuse de la deuxième génération à travers les âges!
 
 « Grand Frère avait raison, le vieil Ancêtre est possédé par un démon. La famille Yao d'autrefois n'existe plus... Lorsque Grand Frère est parti avec une telle détermination, j'étais perplexe. Mais désormais, je comprends ses pensées... »

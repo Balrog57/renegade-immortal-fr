@@ -82,8 +82,6 @@ Il s'agissait d'un rocher colossal d'environ mille pieds de haut, dans lequel é
 
 « Éveillé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez le chemin de la culture... »
 
-« Éveillé, toute vie doit avancer éternellement pour résoudre l'ère moderne. Échappez à la volonté céleste et obtenez la voie de la vie. Attendez le chemin de la culture... »
-
 « Éveillé, verrouille le destin du ciel défunt, imprime la cour des ténèbres. Ceux des êtres qui n'atteignent pas le véritable Dao sombrent sans fin dans la mer d'amertume et perdent à jamais le véritable Dao. Attendez le chemin de la culture... »
 
 Ce passage sinistre résonnait à travers la brume, emplissant l'espace.

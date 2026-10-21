@@ -120,7 +120,7 @@ L'actuel Wang Ping n'avait plus rien d'un mortel. Le calme dans son regard étai
 
 Tout cela était l'héritage de son père, Wang Lin. Dix-neuf ans de vie ordinaire, huit ans de voyage et plus de trente ans en tant que souverain suprême parmi les mortels lui avaient forgé un cœur qui ne craint pas les cieux. Il ne craignait même pas le ciel, et encore moins ce cultivateur!
 
-Qing Yi fixa les yeux de Wang Ping. À cet instant, sa silhouette fut gravée à jamais dans son esprit, et la tendresse dans son regard s'intensifia. Elle dissipa sa culture sans hésiter et, derrière son mari, affronta calmement l'homme d'âge moyen.
+Qing Yi fixa le dos de Wang Ping. À cet instant, sa silhouette fut gravée à jamais dans son esprit, et la tendresse dans son regard s'intensifia. Elle dissipa sa culture sans hésiter et, derrière son mari, affronta calmement l'homme d'âge moyen.
 
 L'homme regarda Wang Ping avec un air significatif, ses yeux brillant d'une lumière étrange qui semblait vouloir percer l'âme de Wang Ping.
 

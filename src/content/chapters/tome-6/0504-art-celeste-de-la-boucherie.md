@@ -46,7 +46,7 @@ Wang Lin répondit calmement: « Pour choisir un sort interdit! »
 
 « Un sort interdit... » L'Omniscient aux robes grises afficha un air de dédain, puis il regarda Wang Lin et ajouta: « Il est très rare qu'il permette à qui que ce soit d'entrer ici. Je crains que ce ne soit pour moi! »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda: « Senior, qui êtes-vous? »
+Le regard de Wang Lin resta calme et il demanda prudemment: « Senior, qui êtes-vous? »
 
 L'Omniscient aux robes grises ne répondit pas à la question, mais examina attentivement Wang Lin avant de dire calmement: « Déploie ton domaine! »
 

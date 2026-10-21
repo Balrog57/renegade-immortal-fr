@@ -106,6 +106,6 @@ Tout en réfléchissant, l'expression de Wang Lin se fit sombre. Ces souvenirs a
 
 Wang Lin fronça les sourcils, le regard brillant.
 
-« De plus, j'ai appris du Clan du Tonnerre Dispersé que des années après la guerre, un groupe de mystérieux cultivateurs étrangers était apparu dans le Royaume Extérieur. Le Fouetteur d'Âmes était l'une de leurs armes... »
+« De plus, j'ai appris du Clan du Tonnerre Dispersé que des années après la guerre, un groupe de mystérieux cultivateurs étrangers était apparu dans le Royaume Extérieur. Le Fouet Kunji était l'une de leurs armes... »
 
 « Qui sont ces gens? » Wang Lin avait le sentiment diffus d'avoir levé un voile et de se rapprocher de la vérité sur ce qui s'était produit il y a des éons.

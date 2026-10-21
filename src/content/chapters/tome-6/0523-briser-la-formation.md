@@ -68,7 +68,7 @@ Dans l'esprit de Wang Lin, la déduction continuait de converger vers une soluti
 
 Le rire glacial d'Ouyang Hua retentit depuis l'intérieur de la vallée.
 
-« Étranger, que penses-tu de la formation de mon clan? Il n'est pas trop tard pour fuir. Tranche-toi un bras et une jambe, puis révèle ton âme d'origine pour que la formation l'absorbe trois fois, et alors je te laisserai partir! »
+« Étranger, que penses-tu de la formation de mon clan? Il n'est pas trop tard pour fuir. Tranche-toi un bras et une jambe, puis révèle ton âme d'origine pour que je l'absorbe trois fois, et alors je te laisserai partir! »
 
 Wang Lin leva la tête vers la vallée. Soudain, des ombres de symboles apparurent dans ses yeux, avant de s'y rassembler rapidement.
 

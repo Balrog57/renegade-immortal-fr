@@ -58,7 +58,7 @@ Zhou Gang ricana: « Tu vas immédiatement te couper les bras et les jambes, t'a
 
 Simultanément, les deux autres disciples frappèrent leurs cercueils. Deux autres momies en sortirent; les trois momies se placèrent en triangle et chargèrent Wang Lin.
 
-Le regard de Wang Lin devint glacial alors qu'un fracas retentissait dans l'océan doré de sa conscience. Un éclair rouge jaillit soudainement de ses yeux. Les corps des trois disciples de la Secte des Cadavres furent secoués; leurs yeux s'obscurcirent et ils moururent, leur âme ayant été instantanément détruite.
+Le regard de Wang Lin devint glacial alors qu'un fracas retentissait dans l'océan doré de sa conscience. Un éclair rouge jaillit soudainement de ses yeux. Les corps des trois disciples de la Secte des Cadavres furent secoués; leurs yeux s'obscurcirent et ils moururent, leur sens divin ayant été instantanément détruit.
 
 Puis, Wang Lin leva nonchalamment la tête pour observer les trois marionnettes cadavériques. Deux d'entre elles commencèrent immédiatement à pourrir, se transformant en tas d'ossements blancs.
 
@@ -68,7 +68,7 @@ Wang Lin ricana : « Fais un pas de plus et tu mourras! »
 
 Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia: « Camarade cultivateur, je vous en prie, ayez pitié! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Je présenterai mes excuses, et si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas impulsif! »
 
-Ce petit être était mort de peur. Il avait voulu fuir, mais il avait soudainement ressenti une force destructrice pénétrer son corps. Pressentant le danger, il s'était précipitamment extrait de l'enveloppe charnelle.
+Ce petit être était mort de peur. Il avait voulu fuir, mais il avait soudainement ressenti une force destructrice frapper son sens divin. Pressentant le danger, il s'était précipitamment extrait de l'enveloppe charnelle.
 
 Bien qu'il fût un cultivateur de l'Âme Naissante, il avait été gravement blessé lors d'un grand combat. Il avait réussi à sauver son Âme Naissante, mais ses blessures étaient telles que celle-ci était sur le point de se dissiper. Finalement, un ami très proche avait dépensé d'énormes ressources pour le mettre en contact avec la Secte des Cadavres et lui acheter un corps.
 

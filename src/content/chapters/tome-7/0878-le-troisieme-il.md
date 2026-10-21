@@ -40,7 +40,7 @@ Wang Lin fut surpris et son regard s'assombrit. Des centaines de pensées traver
 
 « Vous ne pouvez pas ouvrir le vôtre? » lança sombrement Wang Lin à l'adresse de Shengong Hu.
 
-Shengong Hu secoua la tête. Son sens divin pénétra dans son sac. Il frappa ensuite son sac, mais aucune réponse ne vint!
+Shengong Hu hocha la tête. Son sens divin pénétra dans son sac. Il frappa ensuite son sac, mais aucune réponse ne vint!
 
 Wang Lin resta silencieux, se retourna et s'élança dans les airs.
 

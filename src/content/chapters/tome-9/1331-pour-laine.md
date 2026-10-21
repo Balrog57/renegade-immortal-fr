@@ -48,7 +48,7 @@ Les trois cultivateurs de la Formation du Noyau ressentirent également que quel
 
 Ce regard fit rater un battement au cœur de Qiu Dehai. Sans hésiter, il agita la main pour projeter les trois cultivateurs de la Formation du Noyau vers Wang Lin afin de s'en servir de bouclier. Il recula précipitamment, trempé de sueur froide, alors qu'il s'apprêtait à se téléporter.
 
-Le Clan du Tonnerre Dispersé n'autorisait pas ses membres à s'entretuer, mais il était permis de gaspiller leur culture ou de les tuer indirectement. Ce vieil homme le savait parfaitement et l'avait déjà fait maintes fois. À cet instant, terrifié, sa seule pensée était la fuite.
+Le Clan du Tonnerre Dispersé n'autorisait pas ses membres à s'entretuer, mais il était permis de détruire leur culture ou de les tuer indirectement. Ce vieil homme le savait parfaitement et l'avait déjà fait maintes fois. À cet instant, terrifié, sa seule pensée était la fuite.
 
 Wang Lin ignora ce cultivateur de l'Âme Naissante en pleine téléportation et agita sa main droite. Les trois cultivateurs de la Formation du Noyau poussèrent des cris déchirants alors que les marques entre leurs sourcils s'effondraient, libérant une multitude de trésors. Wang Lin les ramassa tous avant de s'élever dans les airs.
 

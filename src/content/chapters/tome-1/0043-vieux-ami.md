@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 43 - Old Friend
 slug: vieux-ami
 ---
-Le mille-pattes devant lui mesurait environ 330 mètres de long. Le poison qu'il contenait devait avoir atteint un niveau inimaginable. Wang Lin n'était pas étranger aux mille-pattes; beaucoup d'enfants en capturaient pour jouer dans les fentes des rochers, et d'autres les utilisaient pour nourrir leurs poulets.
+Le mille-pattes devant lui mesurait environ 100 mètres de long. Le poison qu'il contenait devait avoir atteint un niveau inimaginable. Wang Lin n'était pas étranger aux mille-pattes; beaucoup d'enfants en capturaient pour jouer dans les fentes des rochers, et d'autres les utilisaient pour nourrir leurs poulets.
 
 Parfois, ils se faisaient accidentellement mordre; la zone rougissait et enflait, mais il suffisait de laver la plaie avec beaucoup d'eau, de rester au lit quelques jours, et tout rentrait dans l'ordre.
 
@@ -18,7 +18,7 @@ Bien que la maladie de son père ait été guérie, elle avait laissé des racin
 
 Jusqu'à aujourd'hui, Wang Lin se souvenait encore de ce qui s'était passé alors.
 
-En contemplant ce mille-pattes de 330 mètres, Wang Lin se caressa le menton. Si le venin des petits spécimens pouvait soulager la maladie de son père, alors celui de cette créature pourrait peut-être en extirper les racines une fois pour toutes.
+En contemplant ce mille-pattes de 100 mètres, Wang Lin se caressa le menton. Si le venin des petits spécimens pouvait soulager la maladie de son père, alors celui de cette créature pourrait peut-être en extirper les racines une fois pour toutes.
 
 Mais le mille-pattes devant lui était tout simplement trop colossal, et Wang Lin n'était qu'une minuscule créature face à lui. Il craignait de ne point parvenir à en extraire le poison et de finir par se blesser.
 

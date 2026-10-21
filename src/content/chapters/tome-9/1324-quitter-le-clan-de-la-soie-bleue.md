@@ -20,11 +20,11 @@ La rumeur disait que les cultivateurs mystérieux apparus soudainement semblaien
 
 Le caractère « dévorer » du nom du clan avait été inspiré par ces gens, qui avaient aussi transmis au Clan de la Lune un sort étrange et insondable qui leur permettait d'absorber le pouvoir des dieux anciens!
 
-Wang Lin commença à réfléchir. Il avait fouillé la mémoire du vieil homme et avait obtenu ce sort, mais il n'était pas complet. Ce sort s'appelait le « Sort de l'Esprit Noble ». Tout le monde ne pouvait pas le cultiver, car il nécessitait ce qu'on appelait des « graines d'esprit »!
+Wang Lin commença à réfléchir. Il avait fouillé la mémoire du vieil homme et avait obtenu ce sort, mais il n'était pas complet. Ce sort s'appelait le « Sort de l'Esprit Azur des Nuages ». Tout le monde ne pouvait pas le cultiver, car il nécessitait ce qu'on appelait des « graines d'esprit »!
 
 Les mystérieux individus avaient laissé certaines graines d'esprit dans les corps des membres du Clan de la Lune. Elles agissaient comme des parasites qui croissaient à l'intérieur des membres du clan.
 
-Le Clan de la Lune utilisait ce Sort de l'Esprit Noble pour dévorer les dieux anciens morts durant la guerre, s'en servant ainsi pour ériger son clan au rang de l'un des grands clans du Système Stellaire Antique.
+Le Clan de la Lune utilisait ce Sort de l'Esprit Azur des Nuages pour dévorer les dieux anciens morts durant la guerre, s'en servant ainsi pour ériger son clan au rang de l'un des grands clans du Système Stellaire Antique.
 
 Tout en méditant, l'expression de Wang Lin devint sombre. Plus il apprenait, plus il trouvait la situation étrange. C'était comme si un voile recouvrait le monde; s'il ne parvenait pas à lever ce voile, il ne pourrait jamais tout voir.
 
@@ -78,7 +78,7 @@ Au même moment, la femme se rapprocha en traversant le vortex. En un éclair, e
 
 Wang Lin ne chercha pas à lutter et laissa la main le saisir. Il fixa la silhouette floue de la femme devant lui et demanda: « Qui diable êtes-vous? »
 
-La femme en blanc regarda Wang Lin et parla pour la première fois: « La Concubine Bleue, Lou Lan... » Sa voix était très mélodieuse et dégageait un charme étrange.
+La femme en blanc regarda Wang Lin et parla pour la première fois: « La Concubine Lan, Lou Lan... » Sa voix était très mélodieuse et dégageait un charme étrange.
 
 « L'une des huit Concubines Impériales Antiques! » Les yeux de Wang Lin se rétrécirent.
 

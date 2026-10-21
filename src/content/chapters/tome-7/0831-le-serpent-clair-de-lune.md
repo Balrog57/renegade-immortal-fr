@@ -76,6 +76,6 @@ Les doigts de Wang Lin se posèrent directement dans le dos de Yao Yunhai.
 
 Lorsque Yao Yunhai s'en rendit compte, il était déjà trop tard. Il décida de sacrifier son corps pour tenter de s'échapper avec son âme originelle. Mais Wang Lin l'avait anticipé. À cet instant, sa main droite fut chargée d'énergie originelle et il tendit le bras.
 
-Au moment où Yao Yunhai allait résister, le Fouet du Karma s'abattit, arrachant un gémissement de douleur à la victime. Sans perdre un instant, Wang Lin asséna un coup de pied dans le corps de Yao Yunhai, y injectant une masse colossale d'énergie originelle.
+Au moment où Yao Yunhai allait résister, le Fouet Kunji s'abattit, arrachant un gémissement de douleur à la victime. Sans perdre un instant, Wang Lin asséna un coup de pied dans le corps de Yao Yunhai, y injectant une masse colossale d'énergie originelle.
 
 Le corps de Yao Yunhai explosa en une masse de chair et de sang, créant une onde de choc d'énergie originelle qui repoussa légèrement le Serpent aux yeux de lune. Wang Lin profita de cette force pour disparaître.

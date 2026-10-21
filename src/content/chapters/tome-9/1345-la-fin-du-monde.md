@@ -46,7 +46,7 @@ Le jeune homme murmura doucement: « Je me suis enfui jusqu'ici, au bout des 7 M
 
 « Je vais tuer les êtres célestes, je vais subvertir le Clan du Tonnerre Dispersé et arracher mon peuple de cet endroit! Cependant, même après des dizaines de milliers d'années, malgré la puissance que j'ai accumulée, je ne peux toujours pas vaincre le Grand Ancien, qui est au stade du cinquième Fléau Céleste... »
 
-« Je peux tout tenter, rassembler tous les cultivateurs que je contrôle, et même utiliser la formation de vie et de mort que j'ai mise en place il y a des dizaines de milliers d'années, mais je ne peux que le blesser gravement! Pas le tuer! Et cela sans parler du reste des Anciens du Clan... »
+« Je peux tout tenter, rassembler tous les cultivateurs que je contrôle, et même utiliser la grande formation de vie que j'ai mise en place il y a des dizaines de milliers d'années, mais je ne peux que le blesser gravement! Pas le tuer! Et cela sans parler du reste des Anciens du Clan... »
 
 « Ma culture a atteint ses limites. Je ne peux pas atteindre le niveau requis pour supporter la calamité de vie et de mort du cinquième Fléau Céleste! J'ai besoin de votre aide! » Le jeune homme regarda Wang Lin, les yeux suppliants.
 

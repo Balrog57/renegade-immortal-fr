@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1352 - Battle at the Scatter Thunder Clan ! (6)"
 slug: bataille-au-clan-du-tonnerre-eparpille-6
 ---
-À l'instant même où le Fouet de l'Âme apparut, les yeux du Grand Ancien s'écarquillèrent en fixant l'arme. Un éclair de choc traversa son regard.
+À l'instant même où le Fouet Kunji apparut, les yeux du Grand Ancien s'écarquillèrent en fixant l'arme. Un éclair de choc traversa son regard.
 
 « C'est... C'est... Non, l'aura est différente, il ne fait que lui ressembler... »
 
-Le Fouet de l'Âme s'étira sur cent mille pieds, et des bruits de craquements résonnèrent alors que les huit anciens dragons de tonnerre étaient tous frappés par le fouet. Ils poussèrent des rugissements de douleur et s'apprêtaient à charger de nouveau quand Wang Lin saisit le fouet et commença à frapper avec frénésie!
+Le Fouet Kunji s'étira sur cent mille pieds, et des bruits de craquements résonnèrent alors que les huit anciens dragons de tonnerre étaient tous frappés par le fouet. Ils poussèrent des rugissements de douleur et s'apprêtaient à charger de nouveau quand Wang Lin saisit le fouet et commença à frapper avec frénésie!
 
-Le Fouet de l'Âme provenait de la planète Suzaku et se spécialisait dans la destruction de l'âme originelle, et n'avait jamais failli jusqu'ici! Quel que soit votre niveau de culture, tant que vous étiez sous forme d'âme, vous ne pourriez que désespérer face à ce fouet!
+Le Fouet Kunji provenait de la planète Suzaku et se spécialisait dans la destruction de l'âme originelle, et n'avait jamais failli jusqu'ici! Quel que soit votre niveau de culture, tant que vous étiez sous forme d'âme, vous ne pourriez que désespérer face à ce fouet!
 
 Il était impossible d'y échapper!
 
@@ -22,7 +22,7 @@ Même le fantôme céleste ne pouvait s'en défaire; il se retrouvait figé, tre
 
 Au fur et à mesure qu'ils reculaient, les zones touchées par le fouet semblaient brûler et montraient des signes de fusion!
 
-Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa culture dans le Fouet de l'Âme. Le fouet émit une lueur spectrale, tandis qu'une faible lumière dorée s'échappait de la partie brisée de l'arme!
+Wang Lin était animé d'une ardeur soudaine et, sans réfléchir, injecta sa culture dans le Fouet Kunji. Le fouet émit une lueur spectrale, tandis qu'une faible lumière dorée s'échappait de la partie brisée de l'arme!
 
 En voyant cette lumière dorée, l'expression du Grand Ancien changea radicalement. Une trace de peur apparut dans ses yeux!
 
@@ -30,17 +30,17 @@ En voyant cette lumière dorée, l'expression du Grand Ancien changea radicaleme
 
 « Je veux voir ce que peut faire cette imitation de fouet! Anciens dragons de tonnerre, dévorez pour moi!! » Le Grand Ancien fixa le fouet et, ses mains formant un sceau, il cracha à nouveau son sang. Ce sang se répandit sur les huit anciens dragons de tonnerre qui poussèrent des rugissements violents. Ils ne reculèrent plus, mais chargèrent en avant!
 
-Wang Lin fit un pas en avant et mania rapidement le Fouet de l'Âme. Une bataille haletante s'engagea entre lui et les anciens dragons de tonnerre. La lueur spectrale du fouet faiblissait, progressivement remplacée par la lumière dorée émanant des parties brisées.
+Wang Lin fit un pas en avant et mania rapidement le Fouet Kunji. Une bataille haletante s'engagea entre lui et les anciens dragons de tonnerre. La lueur spectrale du fouet faiblissait, progressivement remplacée par la lumière dorée émanant des parties brisées.
 
 Un instant plus tard, les huit anciens dragons de tonnerre semblèrent perdre la raison; ils abandonnèrent Wang Lin pour charger directement le fouet!
 
-Le Grand Ancien, arborant une expression hideuse, fixa le Fouet de l'Âme et hurla: « Anciens dragons de tonnerre, explosez, explosez, explosez! »
+Le Grand Ancien, arborant une expression hideuse, fixa le Fouet Kunji et hurla: « Anciens dragons de tonnerre, explosez, explosez, explosez! »
 
-Alors que le Grand Ancien rugissait, les huit anciens dragons de tonnerre tremblèrent, et le corps de l'un d'eux commença à gronder. Le fracas de ce tonnerre était indescriptible, et des éclairs se dispersèrent de son corps, formant un orage dévastateur!
+Alors que le Grand Ancien rugissait, les huit anciens dragons de tonnerre tremblèrent, et l'un d'eux explosa follement dans un rugissement. Le fracas de ce tonnerre était indescriptible, et des éclairs se dispersèrent de son corps, formant un orage dévastateur!
 
 Ce ne fut pas l'explosion d'un seul dragon, mais en un laps de temps très court, les huit anciens dragons de tonnerre explosèrent. Les huit tempêtes se propagèrent, assez puissantes pour anéantir toute vie au sein d'un domaine stellaire!
 
-Les tempêtes chargèrent directement Wang Lin. Face à ce danger imminent, le Fouet de l'Âme dans la main de Wang Lin fouetta avec acharnement, mais l'orage était trop puissant. Pour la première fois, le Fouet de l'Âme n'était pas suffisant!
+Les tempêtes chargèrent directement Wang Lin. Face à ce danger imminent, le Fouet Kunji dans la main de Wang Lin fouetta avec acharnement, mais l'orage était trop puissant. Pour la première fois, le Fouet Kunji n'était pas suffisant!
 
 D'innombrables fissures apparurent sur le fouet et, dans un bruit de craquement, l'extrémité s'effondra!
 
@@ -54,13 +54,13 @@ Wang Lin luttait au cœur de l'orage formé par les huit anciens dragons de tonn
 
 Ses yeux étaient injectés de sang et il laissa échapper un soupir. À ce niveau de culture, il n'était pas assez fort pour affronter un cultivateur du Cinquième Fléau Céleste. Il s'apprêtait à activer le talisman pour rejoindre les 7 Millions de Mondes quand une onde de choc envahit son regard!
 
-Un rayon aveuglant de lumière dorée jaillit du Fouet de l'Âme brisé et, en un instant, une lumière dorée encore plus vaste se propagea. Cette clarté contenait une aura indescriptible, et même les anciens dragons de tonnerre au sein de l'orage semblèrent s'immobiliser!
+Un rayon aveuglant de lumière dorée jaillit du Fouet Kunji brisé et, en un instant, une lumière dorée encore plus vaste se propagea. Cette clarté contenait une aura indescriptible, et même les anciens dragons de tonnerre au sein de l'orage semblèrent s'immobiliser!
 
 Le monde lui-même parut s'arrêter, comme si quelqu'un avait lancé un sort de Stase!
 
 Tout son sembla disparaître de ce monde; le grondement du tonnerre s'éteignit. Tout, hormis la lumière dorée et l'aura du fouet, parut s'évanouir!
 
-À l'intérieur de cette lumière, le Fouet de l'Âme de cent mille pieds se rétracta tout en continuant de s'effondrer silencieusement. À mesure que les couches tombaient, la lumière dorée qui en émanait devenait de plus en plus dense!
+À l'intérieur de cette lumière, le Fouet Kunji de cent mille pieds se rétracta tout en continuant de s'effondrer silencieusement. À mesure que les couches tombaient, la lumière dorée qui en émanait devenait de plus en plus dense!
 
 En un instant, le fouet de cent mille pieds se contracta jusqu'à ne mesurer plus que cent pieds. La dernière lanière de cuir fut arrachée, puis un changement prodigieux s'opéra sur l'arme!
 
@@ -68,7 +68,7 @@ En un instant, le fouet de cent mille pieds se contracta jusqu'à ne mesurer plu
 
 C'était comme si quelqu'un avait extrait la lumière du monde par un sort puissant pour la condenser en ce fil doré de cent pieds! Une pression indescriptible émanait de ce fil!
 
-Wang Lin tenait cette ligne dorée. À cet instant, son esprit trembla et il eut l'illusion de tenir des dizaines de milliers, voire des centaines de millions d'âmes dans sa main! Ces âmes et cette lumière avaient été fusionnées par un sort étrange pour former le Fouet de l'Âme, spécialisé dans la destruction des âmes!
+Wang Lin tenait cette ligne dorée. À cet instant, son esprit trembla et il eut l'illusion de tenir des dizaines de milliers, voire des centaines de millions d'âmes dans sa main! Ces âmes et cette lumière avaient été fusionnées par un sort étrange pour former le Fouet Kunji, spécialisé dans la destruction des âmes!
 
 Un sentiment d'illumination apparut vaguement dans l'esprit de Wang Lin. Il saisit ce fil doré de cent pieds et l'agita doucement. Le fil se tortilla comme un serpent et fouetta l'orage formé par les anciens dragons de tonnerre!
 

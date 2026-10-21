@@ -32,7 +32,7 @@ Une fois l'obstacle levé, la vieille femme pénétra dans la vallée et vit la 
 
 En observant la statue de pierre dans laquelle Wang Lin s'était transformé, la vieille femme afficha un regard empreint d'une profonde émotion. Après un long moment, elle poussa un soupir.
 
-« Li Qianmei, tu as tant sacrifié pour cet homme! Cette vieille femme t'avait promis qu'elle te livrerait ton sang d'âme, et j'ai tenu ma promesse! » La vieille femme agita sa manche et une fente spatiale de stockage apparut. Une sphère de sang de la taille d'un poing s'en échappa.
+« Li Qianmei, tu as tant sacrifié pour cet homme! Cette vieille femme t'avait promis d'apporter le sang d'âme à ta place, et j'ai tenu ma promesse! » La vieille femme agita sa manche et une fente spatiale de stockage apparut. Une sphère de sang de la taille d'un poing s'en échappa.
 
 Cette sphère ne ressemblait pas à du sang véritable, mais plutôt à une âme condensée. Dès qu'elle fut apparue, la vieille femme fit un geste de la main pour l'introduire dans la statue de Wang Lin.
 
@@ -70,7 +70,7 @@ Wang Lin la regarda et répondit lentement: « Je suis resté dans le coma penda
 
 La vieille femme ricana. Après un long silence, elle reprit: « Tu veux savoir? Très bien, je vais tout te dire! Connais-tu une femme nommée Li Qianmei? Pas besoin de répondre, tu la connais forcément!
 
-« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon pour abandonner ce dernier? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
+« Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon et à l'estime que celle-ci lui portait? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
 
 « La Secte Démon ne voulait évidemment pas de cela, et même sa propre Secte Brise-Ciel n'était pas satisfaite. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
 

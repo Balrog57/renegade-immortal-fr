@@ -72,7 +72,7 @@ Simultanément, une voix arrogante émana du jade et résonna dans la salle.
 
 « Tout ce que le Senior a dit est exact. Qui êtes-vous, Senior? » Les trois étaient sous le choc. Chaque détail prononcé par cette voix était d'une précision chirurgicale; certains faits étaient même des souvenirs qu'ils avaient oubliés, et pourtant cet inconnu les connaissait parfaitement. De plus, l'aura du Briseur du Nirvana les terrassait au point qu'ils eurent l'impression que leur âme se dispersait.
 
-« Le nom de ce vieil homme est Liu Jinbiao! Nom Dao: Maître du Tigre d'Or! »
+« Le nom de ce vieil homme est Liu Jinbiao! Nom Dao: Jin Biaozi! »
 
 Leurs visages devinrent graves. Bien qu'ils n'eussent jamais entendu ce nom, le simple fragment de jade portait l'aura d'un cultivateur Briseur du Nirvana. Le fait qu'il connaisse leur vie entière imposait un respect immense.
 

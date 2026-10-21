@@ -10,7 +10,7 @@ slug: ideaux-demoniaques
 
 La puissance de cette foi dépassait tout ce que Wang Lin pouvait imaginer. Tandis que son corps résistait à la force du quatrième effondrement, son âme subissait les effets de la foi contenue dans ce même effondrement.
 
-« Les dix effondrements constituent normalement la limite, mais cette technique évolue en réalité vers un onzième. La raison pour laquelle le général de l'aile gauche a utilisé cette technique sur moi est de me vaincre par elle, d'absorber ma foi et ainsi d'accroître sa puissance. »
+« Les dix effondrements constituent normalement la limite, mais cette technique évolue en réalité vers un onzième. La raison pour laquelle le général de l'aile gauche a utilisé cette technique sur moi est de me vaincre par elle, d'absorber ma foi et ainsi d'accroître la puissance de cette technique. »
 
 « La raison pour laquelle l'Intention de Combat des Dix Effondrements est si puissante réside dans la foi qu'elle renferme. Plus il tue et terrasse d'ennemis avec elle, plus elle devient redoutable! »
 

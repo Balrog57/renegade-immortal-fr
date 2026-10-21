@@ -12,7 +12,7 @@ Le regard de Wang Lin était calme. Le Daoïste du Tonnerre était gravement ble
 
 La première condition pour raffiner une marionnette était que la personne raffinée soit consentante!
 
-Wang Lin dit calmement: « Je n'ai pas manqué à ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû prier ton âme originelle de sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre de s'emparer immédiatement du Daoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
+Wang Lin dit calmement: « Je n'ai pas manqué à ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû prier ton âme originelle de sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre d'encercler immédiatement l'âme originelle du Daoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
 
 Sans accorder un regard à l'âme originelle du Daoïste du Tonnerre, Wang Lin saisit cette âme et la plaça devant lui. Après avoir récupéré le sac de rangement, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps du Daoïste du Tonnerre.
 

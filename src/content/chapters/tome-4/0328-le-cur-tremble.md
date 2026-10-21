@@ -96,7 +96,7 @@ Li Muwan plaqua sa main droite sur sa bouche. Ce n'est qu'après avoir toussé u
 
 « Maître! » Liu Fei et Song Qing s'exclamèrent de concert, les yeux noyés de tristesse. Bien que leurs essences de sang fussent entre les mains de Li Muwan, elle ne les avait jamais utilisées contre eux. Au contraire, elle les avait toujours traités comme ses aînés. Aucun d'eux n'était insensible, et le moindre ressentiment qu'ils avaient pu éprouver envers elle s'était évanoui depuis longtemps.
 
-« Maître, la pilule d'extension de vie d'Ouyang Zi fait l'objet de recherches depuis plusieurs années. S'il réussit, vous pourrez vivre plus longtemps! »
+« Maître, la pilule d'extension de vie d'Ouyang Zi fait l'objet de recherches depuis plusieurs années. S'il réussit, votre corps pourra se rétablir. »
 
 Li Muwan secoua la tête: « C'est impossible. Même si cela pouvait aider, cela ne ferait que prolonger ma vie de quelques années. Je sens mon corps vieillir depuis dix ans. Peut-être que dans peu de temps, mes cheveux seront tous blancs... De plus, ce désastre est une calamité dont la Secte du Ciel Nuageux ne pourra s'échapper... »
 

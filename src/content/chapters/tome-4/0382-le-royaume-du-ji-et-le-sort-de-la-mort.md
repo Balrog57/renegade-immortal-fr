@@ -82,7 +82,7 @@ L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune h
 
 Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il était certain de pouvoir un jour former son Âme Naissante. De plus, le drapeau de l'âme de la Secte de l'Affinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume Ji.
 
-En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot: « meurs », et seuls quelques rares cultivateurs de la Formation de l'Âme pourraient espérer s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
+En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot: « meurs », et même les cultivateurs de la Formation de l'Âme avaient très peu de chances de s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 
 « Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. D'après mes longues recherches, ce sort provient du monde antique de la culture, lorsque les anciens, n'ayant pas réussi à percer le secret du Royaume Ji, tentaient de l'imiter. Porté à son apogée, ce sort permettrait peut-être d'acquérir un fragment de la puissance du Royaume Ji. »
 

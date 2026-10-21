@@ -104,7 +104,7 @@ L'épée de cristal libéra instantanément un chant d'épée qui ébranla les c
 
 Les trésors Pseudo Vide du Nirvana étaient extrêmement rares dans les quatre grands systèmes stellaires; c'étaient des artefacts d'une puissance phénoménale! À cet instant, l'épée s'élança avec la force de fendre les cieux et percuta l'index.
 
-Un grondement tonitruant retentit. Ce fracas sembla presque faible comparé au rugissement de Wang Lin, mais il permit à l'épée de cristal de libérer une attaque encore plus dévastatrice.
+Un grondement tonitruant retentit. Sous ce fracas, le cri étouffé de Wang Lin semblait presque dérisoire, mais il permit à l'épée de cristal de libérer une attaque encore plus dévastatrice.
 
 « Épée, brise-toi! »
 

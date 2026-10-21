@@ -48,7 +48,7 @@ Non loin de lui, il vit une femme en blanc!
 
 La femme en blanc flottait parmi les étoiles telle un fantôme. Il n'émanait d'elle aucun signe de vie ou d'existence; même le Sens Divin ne pouvait la déceler! Ses longs cheveux noirs cascadaient sur son épaule, et une lumière l'enveloppait, rendant son apparence impossible à distinguer!
 
-C'était comme si une force mystérieuse l'entourait pour que tout regard soit transpercé par cette femme!
+C'était comme si une force mystérieuse l'entourait, faisant que tout regard posé sur elle la traversait!
 
 L'esprit de Wang Lin se concentra alors qu'il fixait droit devant lui.
 

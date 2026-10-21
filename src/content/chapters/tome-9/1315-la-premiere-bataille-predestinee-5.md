@@ -108,7 +108,7 @@ Des bruits de craquements continuèrent de résonner alors que le corps de Wang 
 
 Pourtant, juste avant son départ, bien que ses yeux soient injectés de sang et empreints d'épuisement, une lueur de froideur y subsistait. D'une simple pensée, un fouet apparut autour de lui!
 
-Le Fouet de l'Âme!
+Le Fouet Kunji!
 
 Dès son apparition, le fouet s'étira à une longueur infinie et enroula l'âme originelle fuyante du vieil homme aux cheveux blancs. D'un coup sec, l'âme fut ramenée en arrière, puis Wang Lin disparut du domaine stellaire du Clan de la Lune, emportant avec lui le gigantesque doigt d'Ancien Dieu!
 

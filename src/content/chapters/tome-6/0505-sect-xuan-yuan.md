@@ -54,7 +54,7 @@ Bien que son attitude fût empreinte d'un profond respect, son cœur battait la 
 
 Parmi elles, la plus persistante affirmait que le Fondateur avait accepté un nouveau disciple: le septième de la Division Pourpre, Wang Lin!
 
-Dès son entrée dans la Division Pourpre, ce Wang Lin l'avait totalement bouleversée. Après avoir brutalement tué le deuxième frère de la Division Pourpre, il s'était même lancé dans la lutte pour le titre de véritable disciple.
+Dès son entrée dans la Division Pourpre, ce Wang Lin l'avait totalement bouleversée. Après avoir brutalement tué le deuxième frère de la Division Pourpre, il s'était même lancé dans la lutte pour le titre de l'un des Sept Disciples du Destin Céleste.
 
 Cet homme avait utilisé sa culture au stade intermédiaire de la Transformation de l'Âme pour combattre la quatrième sœur de la Division Pourpre, qui se trouvait au stade avancé de la Transformation de l'Âme, et il l'avait vaincue.
 

@@ -40,7 +40,7 @@ Cependant, après avoir absorbé, dans le Royaume aux Sept Couleurs, la puissanc
 
 Le Clan du Tonnerre Dispersé n'avait personne pour garder le périmètre, car le tonnerre éternel constituait la meilleure des protections! Wang Lin avança lentement. Son arrivée ne suscita aucune attention de la part du clan!
 
-Wang Lin parcourut lentement cinquante kilomètres en environ quinze minutes. À chaque pas, les poils de son corps tremblaient et des traces de tonnerre pénétraient ses pores.
+Wang Lin parcourut lentement cinquante kilomètres en environ quinze minutes. À chaque pas, les poils de son corps tremblaient et des traces de tonnerre émanaient de son corps, enveloppant ses pores.
 
 Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Dispersé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait le tonnerre éternel!
 

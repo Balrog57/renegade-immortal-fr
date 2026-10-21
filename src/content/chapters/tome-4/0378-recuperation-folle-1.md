@@ -10,7 +10,7 @@ Pays de Xue Yu, à l'intérieur du Sanctuaire divin de la Neige et de la Glace.
 
 Li Yuanfeng était actuellement assis en position de lotus, en pleine culture. Autour de lui se trouvaient cinq grands blocs de glace. Chacun d’eux émettait une lumière aux cinq couleurs ainsi que des éclats d'énergie spirituelle céleste qu'il pouvait absorber.
 
-Un morceau de jade céleste de la taille d'un ongle se trouvait à l'intérieur de chaque bloc. Grâce à une formation inscrite dans la glace, l'énergie spirituelle céleste subissait une transformation mystérieuse.
+Un morceau de jade céleste de la taille d'un pouce se trouvait à l'intérieur de chaque bloc. Grâce à une formation inscrite dans la glace, l'énergie spirituelle céleste subissait une transformation mystérieuse.
 
 L'apparence de Li Yuanfeng n'était pas catastrophique, mais son expression était terne et son visage d'une pâleur extrême.
 
@@ -70,7 +70,7 @@ Cette grotte n'avait rien de spécial et n'était pas la plus basse. De loin, il
 
 Pendant sa culture, il avait utilisé l'œil de veine spirituelle pseudo pour localiser le véritable œil de la veine spirituelle. En y regardant de plus près, il put déterminer immédiatement que la grotte 743 était la plus proche du véritable œil.
 
-« Il y a quelqu'un à l'intérieur. » Wang Lin vit que la porte de la grotte était scellée. Après une courte réflexion, il élabora un plan.
+« Il y a quelqu'un à l'intérieur. » Wang Lin vit que la pierre Tianhe devant la grotte était tombée. Après une courte réflexion, il élabora un plan.
 
 Alors qu'il s'apprêtait à retourner dans sa propre grotte, l'homme d'âge mûr sortit de son habitation. Ses yeux s'illuminèrent et il se tourna vers Wang Lin.
 
@@ -94,7 +94,7 @@ Une lueur de malveillance passa dans les yeux de l'homme d'âge mûr, mais il la
 
 Wang Lin esquissa un léger sourire: « Bien sûr... Mais l'énergie spirituelle dans ma grotte n'est pas suffisante. Je me demandais s'il était possible d'en changer? »
 
-L'homme d'âge mûr fut surpris et se sentit un peu embarrassé. « Les grottes portant un numéro inférieur à 700 nécessitent la permission d'un Ancien. Cependant, je peux t'aider à en faire la demande une fois. »
+L'homme d'âge mûr fut surpris et se sentit un peu embarrassé. « Les grottes portant un numéro inférieur ou égal à 700 nécessitent la permission d'un Ancien. Cependant, je peux t'aider à en faire la demande une fois. »
 
 Wang Lin secoua la tête: « Ne vous donnez pas tant de mal; je veux seulement la grotte 743. »
 

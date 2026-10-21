@@ -33,7 +33,7 @@ Les yeux de Wang Lin retrouvèrent leur limpidité. Il regarda l'individu et dit
 
 La voix de Wang Lin resta calme. « En effet, je n'aurais jamais imaginé. »
 
-Hu Pao hurla avec fureur: « Quand tu m'as abandonné, moi et Treize, sais-tu combien nous avons souffert? Surtout moi, dont tous les os ont été broyés et les méridiens brisés par ce commandant!
+Hu Pao hurla avec fureur: « Quand tu m'as abandonné, moi et Treize, sais-tu combien nous avons souffert? Surtout moi, dont tous les méridiens ont été broyés et les os brisés par ce commandant!
 
 « J'ai subi la torture et l'humiliation dans la prison obscure. Où étais-tu alors?
 

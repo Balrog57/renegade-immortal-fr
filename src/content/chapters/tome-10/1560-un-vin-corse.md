@@ -52,7 +52,7 @@ Une respiration saccadée s'échappa des lèvres de Qing Shui, et il fallut un l
 
 Le visage de Wang Lin était pâle; après avoir rejeté l'épine, il ferma également les yeux pour se mettre en culture. En retirant la neuvième épine, il avait ressenti une douleur similaire, comme si sa propre moelle lui avait été arrachée. Bien que moins intense que celle de Qing Shui, elle n'en demeurait pas moins fulgurante.
 
-Après une demi-heure, Wang Lin ouvrit les yeux.
+Après une heure, Wang Lin ouvrit les yeux.
 
 Il dit doucement: « Senior Frère, la dernière... »
 

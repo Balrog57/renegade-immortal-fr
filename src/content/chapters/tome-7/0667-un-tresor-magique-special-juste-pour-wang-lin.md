@@ -131,4 +131,4 @@ Après avoir quitté la partie nord de la ville, Wang Lin se dirigea tranquillem
 
 Mais ce n'était pas le point le plus important. Il ressentait une assurance et une intention meurtrière terrifiante émaner de Wang Lin. Une telle aura ne pouvait provenir que d'une personne ayant tué des adversaires de même niveau, et pas une seule fois! C'était la seule façon d'acquérir une telle confiance en soi.
 
-Ce Sun Xi était l'un des trois cultivateurs Ascendants de la planète Ran Yun. Il était l'ancêtre de la famille Sun, un cultivateur Ascendant au stade initial. Après avoir terminé sa culture au fond des mers, il s'était précipité vers cette ville.
+Ce Sun Xi était l'un des trois cultivateurs Ascendants de la planète Ran Yun. Il était l'ancêtre de la famille Sun, un cultivateur Ascendant au stade initial. Après avoir terminé sa culture au fond des mers, il s'était précipité vers la ville de Ranyun.

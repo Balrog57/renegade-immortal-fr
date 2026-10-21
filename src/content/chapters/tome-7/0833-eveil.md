@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 833 - Awakening
 slug: eveil
 ---
-Bien que ce son ne fût pas assourdissant, il recelait une puissance capable de percuter l'âme originelle. Les cultivateurs situés à l'extérieur de la planète ne le ressentirent qu'imparfaitement, mais ceux qui se trouvaient sur la planète en subirent toute la force.
+Bien que ce son ne fût pas assourdissant, il recelait une puissance capable de percuter l'âme originelle. Les cultivateurs situés à l'extérieur de la planète ne le ressentirent qu'imparfaitement, mais ceux qui se trouvaient à l'intérieur de la planète en subirent toute la force.
 
 Parmi ces cultivateurs figuraient des membres de la famille Yao ainsi que des individus issus d'autres lignées de culture. À cet instant, leurs corps tremblèrent et une terreur née au plus profond de leurs âmes se propagea comme une traînée de poudre.
 
@@ -80,4 +80,4 @@ Le corps de certains cultivateurs explosa sous la puissance du rugissement. Mêm
 
 La fureur du Serpent aux yeux de lune ne s'était pas dissipée, elle ne faisait que commencer alors qu'il avançait. Pour le serpent, il ne faisait que progresser, mais pour les cultivateurs, c'était une bête féroce titanesque qui chargeait vers eux.
 
-Les pupilles de tous les cultivateurs à l'intérieur se rétractèrent soudainement...
+Les pupilles de tous les cultivateurs devant lui se rétractèrent soudainement...

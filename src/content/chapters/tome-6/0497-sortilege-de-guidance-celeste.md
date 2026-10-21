@@ -104,9 +104,9 @@ En réalité, il savait au fond de lui que les autres disciples de la Division J
 
 S'ils devaient lutter, il n'aurait aucune confiance en sa victoire, d'autant plus que la Division Jaune comptait le frère aîné Yundao Zi.
 
-Kunpeng Zi suivait le Maître depuis plus de deux mille ans, mais lorsqu'il avait rejoint la secte, le frère aîné était déjà là. Il ignorait exactement depuis combien de temps ce dernier suivait l'Omniscient.
+Kunpeng Zi suivait le Maître depuis plus de deux ans, mais lorsqu'il avait rejoint la secte, le frère aîné était déjà là. Il ignorait exactement depuis combien de temps ce dernier suivait l'Omniscient.
 
-Cependant, bien que ce frère aîné fût un peu arrogant et ne parlât à personne, il n'avait manifesté aucun intérêt pour le poste de véritable disciple; il n'avait même pas tenté de s'y disputer la place.
+Cependant, bien que ce frère aîné fût un peu solitaire et ne parlât à personne, il n'avait manifesté aucun intérêt pour le poste de véritable disciple; il n'avait même pas tenté de s'y disputer la place.
 
 Wang Lin observait silencieusement la scène. Son regard se portait davantage sur Yundao Zi que sur les autres.
 

@@ -112,7 +112,7 @@ Les 76e, 77e, 78e... jusqu'au 84e coup!
 
 Rien devant lui ne pouvait l'arrêter!
 
-Une rare lueur de sérieux apparut dans les yeux du Shui Daozi. Pour la première fois, il sentit que l'expérience de cet homme n'était pas ordinaire!
+Une rare lueur de sérieux apparut dans les yeux du Shui Daozi. Pour la première fois, il sentit à quel point l'homme devant lui était extraordinaire!
 
 Tandis que Wang Lin parlait, le vide effondré autour de lui se transforma en mer, puis une porte de pierre gigantesque apparut. Une aura désolée se propagea et enveloppa Wang Lin!
 

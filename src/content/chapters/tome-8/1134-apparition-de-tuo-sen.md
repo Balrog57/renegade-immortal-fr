@@ -64,7 +64,7 @@ Les cheveux rouges de cet individu ondulaient sans vent et ses yeux étaient d'u
 
 « Tuo Sen! » L'expression de Wang Lin était complexe. Leurs destins étaient entrelacés. Si Wang Lin n'était pas apparu, Tuo Sen aurait obtenu tous ses souvenirs et se serait échappé depuis longtemps. Il aurait pu régner sur les étoiles avec le corps de Tu Si!
 
-Après tout, il était aussi Tu Si! Même si Tuo Sen était né en tant que démon intérieur lorsque Tu Si avait échoué à cultiver un sortilège, qu'il soit un démon ou non, Tuo Sen était un véritable Dieu Ancien, un véritable Dieu Ancien Royal!
+Après tout, il était aussi Tu Si! Même si Tuo Sen était né en tant que démon intérieur lorsque Tu Si avait échoué à cultiver la Technique Divine de Division de l'Encre Fluide, qu'il soit un démon ou non, Tuo Sen était un véritable Dieu Ancien, un véritable Dieu Ancien Royal!
 
 Contrairement à Tuo Sen, le corps de Dieu Ancien de Wang Lin avait été formé par la tactique du Dieu Ancien. Bien qu'il ait pu atteindre le stade des 5 étoiles grâce à une série de circonstances favorables, lorsque son corps originel avait affronté les Trois Épreuves et les Sept Calamités, Wang Lin avait su que son corps de Dieu Ancien n'était pas parfait!
 

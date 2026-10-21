@@ -56,7 +56,7 @@ Tous étaient nerveux, mais leur intention meurtrière, loin de faiblir, se cond
 
 Le temps s'écoula et l'aube approcha. Les soldats étaient restés de garde presque toute la nuit. Si ce n'avaient été les éclats de rire provenant de l'intérieur, ils auraient déjà foncé dans la tente. Cependant, ces rires ne faisaient qu'accroître leur confusion.
 
-« Intéressant. Monsieur Wang a parcouru tant de lieux... Ce vieil homme a entendu parler de la Montagne Se, mais elle est bien trop lointaine. En tant que mortel, je ne peux m'y rendre. » Le vieux général posa une cruche vide et en saisit une autre.
+« Intéressant. Monsieur Wang a parcouru tant de lieux... Ce vieil homme a entendu parler des montagnes et des mers, mais ils sont bien trop lointains. En tant que mortel, je ne peux m'y rendre. » Le vieux général posa une cruche vide et en saisit une autre.
 
 « Si vous le vouliez, vous le pourriez », répondit Wang Lin en buvant son vin épicé, un sourire aux lèvres en contemplant son vieil ami.
 

@@ -58,7 +58,7 @@ Wang Lin eut le sentiment d'avoir découvert un secret capable de faire trembler
 
 Les pupilles de Wang Lin se rétractèrent et il leva soudain la tête. Son regard perça les murs de la salle pour embrasser le monde, d'un air extrêmement sombre.
 
-« Se pourrait-il que le Système Stellaire Antique soit une existence mystérieuse dotée d'une culture inimaginable, et qu'il ait créé ce lieu comme un enclos d'élevage? Par exemple, lors de mon combat contre le Shui Daozi, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de culture, et pour ces disciples, le Shui Daozi était Dieu! »
+« Se pourrait-il que le Système Stellaire Antique ne soit qu'un enclos d'élevage créé par une mystérieuse existence dotée d'une culture inimaginable? Par exemple, lors de mon combat contre le Shui Daozi, il y avait un monde qu'il avait créé contenant deux milliards de disciples. Il y avait aussi des planètes de culture, et pour ces disciples, le Shui Daozi était Dieu! »
 
 Plus il spéculait, plus son cœur se glaçait. Mais son regard ne parvenait pas à percer les cieux ni le brouillard entourant la vérité.
 

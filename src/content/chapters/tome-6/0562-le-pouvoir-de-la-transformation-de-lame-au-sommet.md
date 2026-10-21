@@ -90,11 +90,11 @@ En reculant, sa propre pression faiblit. En réaction, celle de Wang Lin monta e
 
 À cet instant précis, sa culture au sommet du stade avancé de la Transformation de l'Âme se révéla avec fracas!
 
-Alors qu'il reculait, le colosse serra les poings et lança un coup de poing qui provoqua un grondement assourdissant, propageant des ondes de choc vers l'avant. Simultanément, l'énergie spirituelle démoniaque de son corps jaillit pour former une tortue noire d'environ 330 mètres de large!
+Alors qu'il reculait, le colosse serra les poings et les frappa l'un contre l'autre dans un grondement assourdissant, propageant des ondes sonores vers l'avant. Simultanément, l'énergie spirituelle démoniaque de son corps jaillit pour former une tortue noire d'environ 330 mètres de large!
 
 Cette tortue noire était couverte d'innombrables pointes sur son dos et sa queue. Lorsque celle-ci balaya l'air, elle sembla pouvoir briser l'espace lui-même, laissant apparaître des lignes noires dans le vide.
 
-Wang Lin fendit l'air à une vitesse fulgurante pour atteindre sa cible. Il leva son pouce vers le ciel pour utiliser le Doigt de la Mort. Maintenant que sa culture avait atteint le sommet du stade avancé de la Transformation de l'Âme, la puissance de ce sort était décuplée!
+Wang Lin fendit l'air à une vitesse fulgurante pour atteindre sa cible. Il leva son pouce vers le ciel pour utiliser le Doigt de la Mort. Maintenant que sa culture avait atteint le sommet du stade avancé de la Transformation de l'Âme, la puissance de ce sort avait augmenté de plusieurs fois!
 
 Si les soldats démons ne s'étaient pas déjà écartés, leur chair et leur énergie spirituelle auraient été instantanément absorbées par le Doigt de la Mort. Même en ayant reculé, une partie de leur essence fut tout de même aspirée par la technique.
 

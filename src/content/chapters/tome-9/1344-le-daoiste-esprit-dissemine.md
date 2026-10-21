@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1344 - Daoist Scattered Spirit
 slug: le-daoiste-esprit-dissemine
 ---
-Le jeune homme chauve esquissa un sourire, mais au plus profond de ses yeux brillait un regard solennel. Une pointe d'horreur traversa son regard lorsqu'il fixa Wang Lin. Il avait suivi ce dernier et avait été le témoin direct de tout ce qu'il avait accompli. Il avait vu Wang Lin utiliser ce cultivateur comme appât et massacrer plus de cent personnes en seulement trente minutes!
+Le jeune homme chauve esquissa un sourire, mais au plus profond de ses yeux brillait un regard solennel. Une pointe d'horreur traversa son regard lorsqu'il fixa Wang Lin. Il avait suivi ce dernier et avait été le témoin direct de tout ce qu'il avait accompli. Il avait vu Wang Lin utiliser ce cultivateur comme appât et massacrer plus de cent personnes en seulement une heure!
 
 Ce qui le bouleversait le plus, c'est que ce puissant cultivateur du Briseur du Nirvana n'avait même pas pu encaisser un seul coup!
 

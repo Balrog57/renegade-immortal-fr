@@ -62,7 +62,7 @@ Les anciens en pourpre revinrent également en hâte. Délaissant leur statut, i
 
 « Vite, nous devons quitter ce maudit système stellaire de l'Alliance! Comment le système de l'Alliance peut-il abriter quelqu'un capable de... capable d'absorber la rétribution divine?! »
 
-Le nuage de la rétribution divine se rassembla de nouveau et une pression écrasante s'abattit. À cet instant, un éclair violet d'une épaisseur de cent pieds descendit. Il était si puissant que, dès sa sortie, il déchira l'espace pour pénétrer le vide. Cependant, il jaillit du vide à seulement trois pouces de Wang Lin et frappa violemment entre ses sourcils.
+Le nuage de la rétribution divine se rassembla de nouveau et une pression écrasante s'abattit. À cet instant, un éclair violet d'une épaisseur de cent pieds descendit. Il était si puissant que, dès sa sortie, il déchira l'espace pour pénétrer le vide. Cependant, il jaillit du vide à seulement trois pouces de Wang Lin et fonça droit entre ses sourcils.
 
 Wang Lin poussa un rugissement et ne recula pas d'un pouce. Au contraire, il ouvrit les bras et saisit l'éclair violet de cent pieds de large.
 

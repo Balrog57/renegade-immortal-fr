@@ -34,7 +34,7 @@ Assis sur la tête du Dragon des Neuf Abîmes, Wang Lin observait les environs e
 
 Après avoir progressé durant une durée indéterminée, le silence fut rompu par des rugissements lointains.
 
-Comme ces hurlements provenaient de très loin, ils ressemblaient au souffle d'un être vivant. Cependant, il ne s'agissait pas d'un seul souffle, mais de plusieurs...
+Comme ces hurlements provenaient de très loin, ils ressemblaient au souffle d'un être vivant. Cependant, il ne s'agissait pas d'un seul souffle, mais d'innombrables...
 
 Cette sensation étrange aurait rendu n'importe quel cultivateur de la Mer des Nuages extrêmement vigilant lors d'une première incursion. Mais cela n'affectait nullement Wang Lin.
 

@@ -38,13 +38,13 @@ Bien que cela puisse sembler long, tout s'était produit en un instant.
 
 Lorsque Treize vit que Wang Lin était revenu à la normale, il poussa un grand soupir de soulagement. Dans son cœur, tant que Wang Lin était là, rien n'était impossible. Il se précipita derrière Wang Lin et lança un regard glacial aux soldats démons.
 
-La nervosité quitta également Hu Pao. D'un geste de la main, il retira les fragments d'âme et se tint aux côtés de Wang Lin.
+La nervosité quitta également Hu Pao. D'un geste de la main, il rangea son drapeau d'âme et se tint aux côtés de Wang Lin.
 
 Les six soldats démons, qui venaient de perdre leur énergie spirituelle, étaient extrêmement affaiblis. Ils affichaient tous des expressions d'incrédulité avant de fixer Wang Lin avec des yeux emplis de terreur.
 
 L'homme au visage sombre se leva et demanda d'un ton grave: « Qui êtes-vous, monsieur?! »
 
-Wang Lin ramassa le troisième pot qui n'avait pas été ouvert. Sans même accorder un regard à son interlocuteur, il commença à sortir du restaurant. Treize déposa quelques pierres démoniaques sur la table avant de suivre Wang Lin.
+Wang Lin ramassa le pot qui n'avait pas été ouvert. Sans même accorder un regard à son interlocuteur, il commença à sortir du restaurant. Treize déposa quelques pierres démoniaques sur la table avant de suivre Wang Lin.
 
 Quant à Hu Pao, il eut un ricanement méprisant en observant les soldats démons dans le restaurant, puis suivit Wang Lin.
 

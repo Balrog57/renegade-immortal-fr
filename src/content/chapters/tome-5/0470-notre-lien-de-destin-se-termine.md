@@ -18,7 +18,7 @@ Sa silhouette, légèrement voûtée, portait les marques du temps. La fumée du
 
 La femme posa l'éventail et essuya ses mains sur son tablier. Elle quitta précipitamment la cuisine pour rejoindre la pièce d'où provenait la voix.
 
-Après avoir ouvert la porte, elle vit un vieil homme assis sur le lit. Ses yeux étaient enfoncés dans leurs orbites et de profondes rides couvraient son visage.
+Après avoir ouvert la porte, elle vit un vieil homme allongé sur le lit. Ses yeux étaient enfoncés dans leurs orbites et de profondes rides couvraient son visage.
 
 L'homme n'était plus que peau et os, et ses yeux étaient dépourvus de toute lueur.
 

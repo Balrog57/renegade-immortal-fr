@@ -84,7 +84,7 @@ Dès l'apparition du serpent, Wang Lin retira immédiatement son aura. C'était 
 
 Wang Lin s'était préparé à cette éventualité. L'objectif du Serpent aux yeux de lune était imprévisible: il y avait autant de chances qu'il poursuive Yao Bingyun que qu'il chargeât contre lui.
 
-Le serpent qui venait de surgir tordit son corps et ses poils se hérissèrent. Sa vitesse était prodigieuse, et ce qui amusa amèrement Wang Lin, c'est que la créature ne daigna même pas regarder Yao Bingyun avant de foncer sur lui.
+Le serpent qui venait de surgir tordit son corps et ses poils se hérissèrent. Sa vitesse était prodigieuse, et ce qui laissa un goût amer à Wang Lin, c'est que la créature ne daigna même pas regarder Yao Bingyun avant de foncer sur lui.
 
 La main de Yao Bingyun avait déjà formé un sceau, mais face à cette vision, elle s'interrompit. Elle se mit plutôt à poursuivre le Serpent aux yeux de lune qui traquait Wang Lin.
 

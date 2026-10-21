@@ -10,9 +10,9 @@ slug: lidentite-et-lorigine-de-la-statue-2
 
 « Un jour, alors que je me déplaçais entre deux rochers, j'ai rencontré une multitude de fissures spatiales. Avec mon niveau de culture, j'en serais sans aucun doute mort; je n'ai pu que battre en retraite et pénétrer dans les profondeurs de cet endroit.
 
-« Lorsque j'ai atteint la lisière du Royaume Intérieur, des rugissements lugubres ont retenti de toutes parts. Cela fit trembler mon corps, un tremblement qui émanait de mon âme même.
+« Lorsque j'ai atteint la lisière des profondeurs, des rugissements lugubres ont retenti de toutes parts. Cela fit trembler mon corps, un tremblement qui émanait de mon âme même.
 
-« Je n'osais plus bouger imprudemment. Ce ne fut que quelques années plus tard que j'eus le courage de reprendre ma route. Je voulais partir et retourner vers la bordure extérieure. J'avais le pressentiment que les terres intérieures n'étaient pas un lieu accessible pour moi, et que j'y mourrais!
+« Je n'osais plus bouger imprudemment. Ce ne fut que quelques années plus tard que j'eus le courage de reprendre ma route. Je voulais partir et retourner vers la bordure extérieure. J'avais le pressentiment que ces profondeurs n'étaient pas un lieu accessible pour moi, et que j'y mourrais!
 
 « Cependant, juste au moment où je m'apprêtais à partir, je fus frappé par une tempête et gravement blessé avant de perdre connaissance. À mon réveil, je me trouvais aux abords d'une vaste forêt desséchée.
 

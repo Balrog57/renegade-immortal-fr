@@ -80,7 +80,7 @@ L'expression de Wang Lin resta imperturbable tandis qu'il saisissait la lueur fa
 
 Le talisman était la clé pour entrer dans les 7 Millions de Mondes; lui seul permettait d'y pénétrer. Quant à l'éclair, il attira l'attention de Wang Lin.
 
-Bien que cet éclair semblât réel, il ne pouvait pas le toucher physiquement. Il paraissait former une sorte de formation en soi. D'un balayage de son Sens Divin, Wang Lin découvrit qu'il contenait l'équivalent de la puissance d'un lac de tonnerre de cent mille pieds de large!
+Bien que cet éclair semblât réel, il ne pouvait pas le toucher physiquement. Il paraissait former une sorte de formation en soi. D'un balayage de son Sens Divin, Wang Lin découvrit qu'il contenait l'équivalent de la puissance d'un lac de tonnerre de cinquante mille kilomètres de large!
 
 Ce qui choqua encore plus Wang Lin était l'indescriptible volonté émanant de ce coup de foudre. Cette volonté portait une faible obsession pour la vie. C'était comme s'il ne tenait pas un éclair, mais une étincelle de vie réelle!
 
@@ -114,7 +114,7 @@ Wang Lin répondit avec un sourire: « Yu Fei! »
 
 L'homme ajouta quelques mots, pensant avoir percé à jour Wang Lin, puis reprit: « Compagnon Yu, ce n'est pas ici qu'il faut discuter, et la formation menant aux 7 Millions de Mondes est sur le point de s'ouvrir. Que diriez-vous d'y aller? »
 
-Après l'accord de Wang Lin, l'homme le guida à travers la foule. Un autre cultivateur, témoin de la scène, secoua discrètement la tête.
+Après l'accord de Wang Lin, l'homme le guida à travers la foule. De nombreux cultivateurs, témoins de la scène, secouèrent discrètement la tête.
 
 « Encore une victime... Quiconque se laisse emmener par ce Zhang Jingyun ne perdra pas seulement son Tonnerre Spirituel, sa vie elle-même n'est pas garantie... »
 

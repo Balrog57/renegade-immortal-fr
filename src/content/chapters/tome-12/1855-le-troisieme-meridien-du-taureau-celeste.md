@@ -82,7 +82,7 @@ Le groupe resta silencieux tout au long du trajet. Après sept jours, Lu Wenran 
 
 Une montagne se dressait en contrebas. Selon les indications du jade, Lu Wenran pénétra dans une vallée nichée au cœur des monts, et le groupe de Wang Lin le suivit.
 
-Un instant plus tard, une onde de pression jaillit de la vallée, accompagnée d'un grondement monstrueux. Une lumière éblouissante éclata, persistant durant une demi-heure avant de se dissiper.
+Un instant plus tard, une onde de pression jaillit de la vallée, accompagnée d'un grondement monstrueux. Une lumière éblouissante éclata, persistant durant une heure avant de se dissiper.
 
 La vallée était vide. À la Prairie du Ciel Extrême, située à plusieurs mois de voyage, l'espace se distordit et les nuages tourbillonnèrent. Dans un éclat de lumière aveuglant, le groupe des quatre apparut un à un.
 

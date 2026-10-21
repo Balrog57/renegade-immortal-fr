@@ -50,7 +50,7 @@ Celui qui avait ricané était l'homme en pourpre.
 
 Il se tourna vers la femme à ses côtés et rit: « Ce garçon idiot est intéressant. C'est sa première fois à Ville des Vastes Eaux et il se met déjà à divaguer, parlant de s'être habitué aux montagnes et aux rivières, de retraite et d'engagement dans le monde, comme s'il découvrait le monde pour la première fois. Quelles fadaises. »
 
-Il ne parlait pas fort, mais ses paroles étaient destinées à atteindre les oreilles de Wang Ping. Ce dernier fronça les sourcils, mais ne dit mot.
+Il ne baissa pas la voix, et ses paroles parvinrent aux oreilles de Wang Ping sans en perdre un mot. Ce dernier fronça les sourcils, mais ne dit mot.
 
 Wang Lin, lui, saisit la cruche et prit une gorgée. Son regard sembla balayer machinalement les trois individus de la table voisine.
 

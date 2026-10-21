@@ -88,7 +88,7 @@ Sans que Wang Lin ait besoin de donner l'ordre, Maître Fu Fengzi s'élança, le
 
 Les trois frères Chen chargèrent également, chacun s'occupant d'un soldat. Da Tou ricana puis s'élança à son tour. Son corps maigre devint encore plus svelte tandis que toute sa chair se concentrait sur sa tête. Bientôt, celle-ci devint presque deux fois plus volumineuse qu'auparavant et les veines de son visage boursouflèrent. Un instant plus tard, l'une de ses veines jaillit pour envelopper un soldat, l'entraînant sur le côté.
 
-La grotte plongea dans le chaos alors que le Cadavre d'Argent continuait d'absorber la brume blanche. Simultanément, Maître Fu Fengzi et ses compagnons affrontaient les soldats au sol. Ces guerriers étaient insensibles à la douleur et possédaient des corps extrêmement robustes. Chaque attaque dégageait des éclats de lumière dorée et chaque coup portait la puissance d'un sortilège.
+La grotte plongea dans le chaos alors que, dans la brume blanche, le Cadavre d'Argent continuait d'absorber. Simultanément, Maître Fu Fengzi et ses compagnons affrontaient les soldats au sol. Ces guerriers étaient insensibles à la douleur et possédaient des corps extrêmement robustes. Chaque attaque dégageait des éclats de lumière dorée et chaque coup portait la puissance d'un sortilège.
 
 Presque chaque soldat céleste n'était pas moins puissant qu'un cultivateur Yang Corporel au sommet de sa forme. Avec leurs corps terrifiants, ils pouvaient tenir tête à des cultivateurs du Scruteur du Nirvana!
 

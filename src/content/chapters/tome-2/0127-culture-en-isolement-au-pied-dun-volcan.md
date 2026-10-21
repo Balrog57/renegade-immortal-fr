@@ -72,7 +72,7 @@ S'il connaissait le fer raffiné, c'était grâce aux échanges secrets entre le
 
 Il rangea le sac et décida qu'une fois sa culture terminée, il ferait de grands efforts pour trouver des tablettes de jade recensant les matériaux.
 
-Wang Lin lança le fer raffiné en l'air; l'épée volante s'anima immédiatement et s'y planta. Un éclat de lumière verte perça le centre du métal. Le vert se propagea progressivement jusqu'à ce qu'un faisceau de Qi d'épée soit projeté.
+Wang Lin lança le fer raffiné en l'air; de la main droite, il désigna l'ombre de l'épée volante, qui s'y engouffra aussitôt. Un éclat de lumière verte perça le centre du métal. Le vert se propagea progressivement jusqu'à ce qu'un faisceau de Qi d'épée soit projeté.
 
 Wang Lin fronça les sourcils et eut un sourire amer en regardant le morceau de fer grand comme une paume. Il se sentait frustré: ne sachant pas raffiner les objets, il ne pouvait fabriquer d'ébauche d'épée, et cela était tout ce qu'il pouvait faire pour l'instant.
 
@@ -92,7 +92,7 @@ L'Âme Naissante de Situ Nan était toujours là, mais elle avait rétréci jusq
 
 L'Âme Naissante était très terne, semblait léthargique et ses yeux étaient clos. À ses côtés flottaient deux faibles lueurs.
 
-Wang Lin versa deux larmes, s'agenouilla devant ces deux lueurs et se prosterna à plusieurs reprises. Puis, il s'assit, sortit les quatre seaux, but une grande gorgée d'eau et commença à cultiver.
+Wang Lin versa des larmes, s'agenouilla devant ces deux lueurs et se prosterna à plusieurs reprises. Puis, il s'assit, sortit les quatre seaux, but une grande gorgée d'eau et commença à cultiver.
 
 Le corps de Wang Lin ne possédait plus aucune trace de culture; il allait donc devoir tout recommencer depuis le stade de la Condensation de Qi. Cependant, que ce soit dans le corps de Wang Lin ou celui de Ma Liang, les deux avaient déjà expérimenté cette étape. Grâce à cela, Wang Lin récupérait sa culture avec facilité.
 

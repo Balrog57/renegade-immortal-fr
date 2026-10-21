@@ -26,7 +26,7 @@ Cependant, que ce soient les blessures ou le sort du Maître du Dao Rêve Bleu, 
 
 « Cet homme n'est pas très âgé, mais il possède déjà un esprit aussi impitoyable. Il doit être très célèbre dans le Système Stellaire Antique, pourtant je n'ai jamais entendu parler du nom de "Wang Lin" auparavant!
 
-« Que cache-t-il donc exactement?! »
+« Qui est-il donc exactement?! »
 
 L'expression de l'Ancien en chef du Clan du Tonnerre Dispersé était féroce alors qu'il se retirait de l'impact, et son intention meurtrière envers Wang Lin décupla. Il laissa échapper un rugissement en levant la main pour lacérer l'espace environnant!
 
@@ -110,6 +110,6 @@ Un vortex apparut entre les sourcils de Wang Lin, et son âme originelle s'éten
 
 Son cri déchira les cieux. En se propageant, il força les huit dragons environnants à marquer une pause un instant!
 
-« Fouet de l'Âme!! » À cet instant, une lueur jaillit autour de Wang Lin. Le fouet mystérieux qui l'accompagnait depuis d'innombrables années apparut soudainement!
+« Fouet Kunji!! » À cet instant, une lueur jaillit autour de Wang Lin. Le fouet mystérieux qui l'accompagnait depuis d'innombrables années apparut soudainement!
 
-Depuis que le Fouet de l'Âme s'était fusionné avec le Dao de Wang Lin, il pouvait changer de taille à volonté. Long d'environ cent mille pieds, il enveloppa Wang Lin et se projeta comme un fouet vers les huit dragons du tonnerre antiques!
+Depuis que le Fouet Kunji s'était fusionné avec le Dao de Wang Lin, il pouvait changer de taille à volonté. Long d'environ cent mille pieds, il enveloppa Wang Lin et se projeta comme un fouet vers les huit dragons du tonnerre antiques!

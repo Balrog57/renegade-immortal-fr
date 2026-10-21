@@ -66,7 +66,7 @@ Le crâne tourna brusquement le regard vers le Qilin. Tous deux se fixèrent san
 
 Ce crâne était le fantôme céleste!
 
-Les yeux de Wang Lin brillèrent en observant le fantôme céleste. Il leva la main et s'en saisit immédiatement. Le fantôme céleste était une créature féroce; si Wang Lin ne l'avait pas capturé alors qu'il était affaibli, la tâche n'aurait pas été aisée.
+Les yeux de Wang Lin brillèrent en observant le fantôme céleste. Il leva la main et s'en saisit immédiatement. Le fantôme céleste était une créature féroce; si Wang Lin ne l'avait pas capturé alors qu'il était affaibli, il aurait été redoutable une fois à son apogée.
 
 Le fantôme céleste poussa un rugissement dans la main de Wang Lin. Il ouvrit la gueule, tentant de dévorer son maître. Le regard de Wang Lin se glaça et il laissa échapper un reniflement méprisant tout en activant l'empreinte à l'intérieur du fantôme céleste. Cela provoqua presque la dissipation immédiate de la créature.
 

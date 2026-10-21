@@ -54,7 +54,7 @@ Cette nouvelle faillit provoquer l'effondrement de la tempête. Un seigneur cél
 
 Un seigneur céleste était encore en vie! L'ensemble du Système Stellaire Luotian atteignit un point d'ébullition. Toutes les familles qui n'étaient initialement pas intéressées changèrent d'avis et mobilisèrent leurs élites pour tenter de rafler une place!
 
-Simultanément, le Temple Céleste du Tonnerre annonça que, selon les deux familles de culture, les 36 Gardiens Célestes pourraient formuler une requête, et que le Temple ainsi que les deux familles feraient leur possible pour l'exaucer!
+Simultanément, les deux familles de culture annoncèrent que les 36 Gardiens Célestes pourraient formuler une requête, et que le Temple ainsi que les deux familles feraient leur possible pour l'exaucer!
 
 La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire Luotian, permettant au Temple Céleste du Tonnerre de rassembler toute la puissance du système.
 

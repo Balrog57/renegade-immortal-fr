@@ -8,7 +8,7 @@ slug: je-suis-desolee
 ---
 Lorsque Wang Lin regarda l'homme d'âge moyen, il ne put constater qu'une seule chose: cet homme était un cultivateur du niveau Briseur du Nirvana. Sans mot dire, la main droite de Wang Lin plongea dans le vide, saisit une pierre de jade et la lança.
 
-L'expression de l'homme resta calme alors qu'il la réceptionnait et déployait son sens divin. Cependant, il fut surpris. En raison de son niveau de culture, il ne parvint pas à percevoir le contenu de cette pierre de jade.
+L'expression de l'homme resta calme alors qu'il la réceptionnait et déployait son sens divin. Cependant, il fut surpris. Même avec son niveau de culture, il ne parvint pas à percevoir le contenu de cette pierre de jade.
 
 Il put néanmoins constater que le matériau dont elle était faite n'était pas ordinaire. Elle contenait une trace de chaleur ardente du ciel et de la terre. Compte tenu de l'identité de Wang Lin, cette pierre de jade n'avait rien de banal!
 
@@ -28,7 +28,7 @@ L'homme d'âge moyen la regarda et dit calmement: « Nous remercions l'Empereur 
 
 Wang Lin répondit avec calme: « Ce n'est qu'un accident. »
 
-L'homme fixa Wang Lin avec un sourire. « Cette affaire est d'une importance capitale. Je vais demander à l'Empereur Divin de bien vouloir rester quelques jours dans le Royaume du Vide Brillant. Attendez que je vous remette la pierre de jade... »
+L'homme fixa Wang Lin avec un sourire. « Cette affaire est d'une importance capitale. Je vais demander à l'Empereur Divin de bien vouloir rester quelques jours dans le Royaume du Vide Brillant, le temps que je transmette la pierre de jade... »
 
 Avant qu'il ne puisse achever sa phrase, une voix féminine et glaciale résonna.
 

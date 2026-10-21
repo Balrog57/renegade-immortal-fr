@@ -52,7 +52,7 @@ Un fracas tonitruant retentit et le corps de la marionnette trembla. Wang Lin se
 
 Les yeux de Wang Lin pétillèrent et son expression devint solennelle tandis qu'il méditait.
 
-« Cette marionnette est intéressante... » La main droite de Wang Lin s'avança et la marionnette vola vers lui, s'arrêtant à seulement sept centimètres de sa paume. Cela permit à Wang Lin d'appuyer facilement sa main contre le torse de l'automate.
+« Cette marionnette est intéressante... » La main droite de Wang Lin s'avança et la marionnette vola vers lui, s'arrêtant à trois pieds devant lui. Cela permit à Wang Lin d'appuyer facilement sa main contre le torse de l'automate.
 
 Son Sens Divin jaillit une nouvelle fois à travers sa main droite. Il était sur le point de s'étendre à nouveau dans la marionnette quand le corps de Wang Lin trembla et qu'il laissa échapper un son de surprise.
 

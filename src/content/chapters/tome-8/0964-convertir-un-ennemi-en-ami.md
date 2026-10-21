@@ -28,7 +28,7 @@ Réaliser plusieurs tâches simultanément était trop facile pour des cultivate
 
 Des clameurs retentirent dans la Cité aux Yeux Fantômes alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de culture variés, levèrent les yeux vers le ciel.
 
-L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux n'avaient pas libéré son sens divin, cela ne serait pas arrivé.
+L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux avaient libéré son sens divin, cela ne serait pas arrivé.
 
 Trois rayons de lumière jaillirent de la ville et se téléportèrent soudain devant Wang Lin. Ces rayons se révélèrent être les trois frères Chen!
 

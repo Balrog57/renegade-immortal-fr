@@ -58,9 +58,9 @@ Contemplant cette moitié d'os, les étoiles du dieu ancien de Wang Lin apparure
 
 « Tuo Sen a utilisé un sort extrêmement puissant pour permettre à ses étoiles de dévorer le doigt. Il peut même dévorer des cultivateurs de la troisième étape pour renforcer ses étoiles... Cependant, il y a une volonté dans cette aura antique, il lui serait donc certainement difficile de la dévorer... Mais cela ne signifie pas que je n'ai aucun moyen de l'absorber... » Les yeux de Wang Lin brillèrent alors qu'il leva sa main droite et plongea à nouveau dans son espace de stockage.
 
-Dans un éclat de lumière, le Fouet de l'Âme apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, pour venir se placer devant Wang Lin.
+Dans un éclat de lumière, le Fouet Kunji apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, pour venir se placer devant Wang Lin.
 
-Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sourcils brillait faiblement, résistant au Fouet de l'Âme.
+Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sourcils brillait faiblement, résistant au Fouet Kunji.
 
 « Puisque le Clan de la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
@@ -70,11 +70,11 @@ Cependant, cet homme s'était évidemment montré incapable de résister aux att
 
 Même son âme originelle était lourdement endommagée, ce qui offrit à Wang Lin l'occasion de le capturer.
 
-Pourtant, ce vieillard était d'une puissance inouïe, et son âme originelle s'était matérialisée tel un corps véritable. Sans l'effet fatal du Fouet de l'Âme sur les âmes originelles, Wang Lin n'aurait pu le sceller.
+Pourtant, ce vieillard était d'une puissance inouïe, et son âme originelle s'était matérialisée tel un corps véritable. Sans l'effet fatal du Fouet Kunji sur les âmes originelles, Wang Lin n'aurait pu le sceller.
 
-Fixant l'âme originelle du vieil homme, Wang Lin forma un sceau de ses mains et pointa du doigt. Le Fouet de l'Âme émit immédiatement une lueur d'or sombre et se rétracta. L'âme originelle du vieillard trembla et son visage se crispa de douleur. Il ouvrit les yeux et lança un regard glacial à Wang Lin.
+Fixant l'âme originelle du vieil homme, Wang Lin forma un sceau de ses mains et pointa du doigt. Le Fouet Kunji émit immédiatement une lueur d'or sombre et se rétracta. L'âme originelle du vieillard trembla et son visage se crispa de douleur. Il ouvrit les yeux et lança un regard glacial à Wang Lin.
 
-« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan de la Lune en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet de l'Âme, tout était scellé.
+« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan de la Lune en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet Kunji, tout était scellé.
 
 Wang Lin resta silencieux et agita la main droite. Dans un éclat de lumière sanglante, l'Épée de Sang apparut. Sans la moindre pitié, il poignarda l'âme originelle du vieillard avec l'épée.
 
@@ -88,7 +88,7 @@ D'immenses quantités d'essence d'âme originelle furent libérées, et Wang Lin
 
 Wang Lin ne répondit pas. Son expression restait indifférente alors qu'il maniait l'Épée de Sang contre l'âme originelle du vieillard. Les cris de ce dernier s'estompèrent peu à peu. Devinant vaguement les intentions de Wang Lin, il commença à paniquer.
 
-Wang Lin n'avait pas l'intention de le tuer, mais de continuer à l'affaiblir. Avec le Fouet de l'Âme, il ne pouvait même pas se régénérer. Il ne pouvait que contempler avec effroi la fuite de son essence d'âme originelle, incapable même de recourir à l'autodestruction.
+Wang Lin n'avait pas l'intention de le tuer, mais de continuer à l'affaiblir. Avec le Fouet Kunji, il ne pouvait même pas se régénérer. Il ne pouvait que contempler avec effroi la fuite de son essence d'âme originelle, incapable même de recourir à l'autodestruction.
 
 Après plusieurs heures, le vieillard était affaibli jusqu'à ses derniers retranchements. Toute l'énergie originelle de son corps s'était écoulée et des blessures couvraient son âme originelle. L'Épée de Sang exerçait également une force d'aspiration qui lui volait une part de sa vitalité à chaque entaille. Ce n'était pas seulement douloureux; il était en train de mourir.
 

@@ -74,7 +74,7 @@ Wang Lin resta impassible et fronça les sourcils: « Comment pourrais-je le sav
 
 Wang Lin répondit calmement: « J'ignore si un accident a eu lieu dehors, mais lorsque je suis entré dans la faille, rien ne s'est passé. »
 
-Le vieil homme nommé Pang fixa Wang Lin et déclara d'une voix lente: « Camarade cultivateur Lu, j'ai remarqué que le camarade Nuage-Âme n'était pas loin de vous. Il est inconcevable que vous soyez entré sans qu'il ne disparaisse en même temps! »
+Le vieil homme nommé Pang fixa Wang Lin et déclara d'une voix lente: « Camarade cultivateur Lu, j'ai remarqué que le camarade Nuage-Âme n'était pas loin de vous. Il est inconcevable que vous soyez entré et que lui ait disparu! »
 
 Le visage de Maître Pin Cendré s'assombrit tandis qu'il dévisageait Wang Lin. La colère bouillonnait déjà dans son cœur.
 

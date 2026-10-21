@@ -22,7 +22,7 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Ce qui était ridicule, c'est que bien que l'Alliance de Culture ait subi de lourdes pertes, elle ignorait la cause de cette guerre. Elle pensait toujours qu'il s'agissait d'une lutte pour la domination du Système Stellaire du Vide Brillant! »
 
-« Ce qu'elle ignorait, c'est qu'il ne s'agissait pas d'une bataille pour devenir le souverain du Système Stellaire du Vide Brillant. Ils avaient utilisé une méthode inconnue pour pousser l'Empereur Divin Tortue Noire à nous trahir, puis ils avaient découvert le secret de mes Quatre Sectes Divines! »
+« Ce qu'elle ignorait, c'est qu'il ne s'agissait pas d'une bataille pour devenir le souverain du Système Stellaire du Vide Brillant. Le Royaume du Vide Brillant avait poussé par un moyen inconnu l'Empereur Divin Tortue Noire à nous trahir, puis il avait découvert le secret de mes Quatre Sectes Divines! »
 
 « Cependant, le Royaume du Vide Brillant ne connaissait que l'existence du secret; il ignorait l'emplacement de cette planète de culture. Le Système Stellaire du Vide Brillant était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Empereurs Divins, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
 

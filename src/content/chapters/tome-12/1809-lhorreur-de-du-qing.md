@@ -16,7 +16,7 @@ Une fois cela accompli, Wang Lin sortit de la grotte et se tint dans les airs. L
 
 Inhalant l'aura du Continent Astral Immortel, Wang Lin s'élança rapidement vers l'horizon.
 
-Il était d'une rapidité extrême, disparaissant au loin tel un rayon de lumière. Sa vitesse surpassait celle de ses précédents déplacements; à cet instant, il volait à pleine puissance, parcourant plus de 100 000 kilomètres en un éclair.
+Il était d'une rapidité extrême, disparaissant au loin tel un rayon de lumière. Sa vitesse surpassait celle de ses précédents déplacements; à cet instant, il volait à pleine puissance, parcourant plus de 10 000 kilomètres en un éclair.
 
 Trois jours après le départ de Wang Lin, des traînées lumineuses apparurent au-dessus de cette chaîne de montagnes. L'une d'elles appartenait à l'ancêtre de la Secte du Dragon Bleu, Du Qing. Il observa la montagne avec une mine sombre, puis abattit sa main sur le sommet.
 

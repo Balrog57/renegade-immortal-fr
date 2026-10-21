@@ -76,7 +76,7 @@ Après avoir appris que Zhou Yi avait brûlé son âme pour atteindre le stade d
 
 Une âme résiduelle s'était formée en Qing Shuang en raison des milliers d'années d'obsession de Zhou Yi, et elle s'était éveillée. Elle avait ressuscité Zhou Yi, qui était au bord de la mort, pour faire de lui le nouvel Esprit d'Épée Céleste de la Pluie. Après avoir entendu ce récit par la bouche de Zhou Yi, Wang Wei et Hu Juan restèrent silencieux pour réfléchir.
 
-Après un long moment, Wang Wei soupira et joignit les mains devant Zhou Yi. « Je me souviendrai de la bonté du Frère Zhou envers Qing Shuang. Si j'ai fait quoi que ce soit pour l'offenser, je vous prie de ne pas m'en tenir rigueur. »
+Après un long moment, Wang Wei soupira et joignit les mains devant Zhou Yi. « Frère Zhou, je vous remercie d'abord au nom de Qing Shuang. Si j'ai fait quoi que ce soit pour vous offenser, je vous prie de ne pas m'en tenir rigueur. »
 
 Le visage de Hu Juan était empreint de douleur lorsqu'elle regarda Zhou Yi et dit: « Nous n'oublierons pas la grâce du Frère Zhou. »
 
@@ -108,7 +108,7 @@ Wang Lin eut un sursaut et sourit amèrement. « C'est donc bien vous. Je pensai
 
 Wang Wei secoua la tête en riant. « Ma culture des restrictions est plus faible que la sienne, sinon je n'aurais pas perdu notre pari à votre sujet à l'époque. »
 
-Wang Lin tapa sur sa sacoche de rangement et s'apprêta à sortir la pagode céleste. Cependant, à cet instant, l'expression de Wang Lin changea et il regarda soudainement au loin.
+Wang Lin tapa sur sa sacoche de rangement et s'apprêta à sortir la pagode céleste. Cependant, à cet instant, l'expression de Wang Wei changea et il regarda soudainement au loin.
 
 Un rire strident résonna à travers le sixième étage à ce moment précis.
 

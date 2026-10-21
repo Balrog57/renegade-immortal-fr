@@ -72,7 +72,7 @@ Son épée s'élança dans les airs et frappa violemment vers le bas. Le sixièm
 
 Soudain, deux rayons d'énergie d'épée fusionnèrent comme deux dragons entrelacés, détruisant toutes les nourritures qui chargeaient vers eux. L'impact percuta le trou dans le mur, ouvrant une brèche d'une dizaine de mètres. Cette puissance provoqua l'effondrement de nombreuses parties de ce Temple des Bêtes Célestes déjà instable.
 
-De nouveaux filaments sortirent de la brèche. À l'intérieur de la grotte, le squelette noir était extrêmement frappant.
+De nouveaux filaments sortirent de la brèche. Parmi eux, une ligne noire était extrêmement frappante.
 
 « Fuyons! » Le troisième frère aîné ordonna immédiatement en faisant demi-tour, et le sixième frère cadet le suivit précipitamment, le cuir chevelu lui lançant des picotements.
 

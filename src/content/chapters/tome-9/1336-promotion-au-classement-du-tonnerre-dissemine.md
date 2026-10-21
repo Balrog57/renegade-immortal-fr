@@ -20,7 +20,7 @@ Ce brouillard était terrifiant pour les autres, mais pour Wang Lin, il n'y avai
 
 « D'une simple pensée, ce brouillard de tonnerre peut se contracter pour former une cage. Les possibilités sont infinies! C'est véritablement merveilleux! » Tout en traversant le passage, il commença à observer la brume avec une attention accrue.
 
-« Le Clan du Tonnerre Dispersé ne s'attendait à aucun intrus, et comme le brouillard de tonnerre est actif, cela revient à exposer son cœur aux yeux de tous... Puisqu'ils sont si accueillants, je ne serai pas poli! » Les yeux de Wang Lin s'illuminèrent; son Sens Divin se propagea dans la brume pour commencer son étude.
+« Le Clan du Tonnerre Dispersé ne s'attendait à aucun intrus, et comme une brèche est ouverte dans ce brouillard, cela revient à exposer son cœur aux yeux de tous... Puisqu'ils sont si accueillants, je ne serai pas poli! » Les yeux de Wang Lin s'illuminèrent; son Sens Divin se propagea dans la brume pour commencer son étude.
 
 Son Sens Divin était si puissant qu'il supprima totalement le brouillard de tonnerre, empêchant celui-ci de lui résister pendant qu'il l'analysait. Si le brouillard n'avait pas été ainsi ouvert, Wang Lin aurait dû être bien plus prudent, et il lui aurait fallu un certain temps pour percer le secret de ce sort.
 

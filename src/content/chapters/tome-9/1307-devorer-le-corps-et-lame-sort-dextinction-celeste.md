@@ -66,7 +66,7 @@ Ce qui apparut devant lui fut un espace étranger: le Système Stellaire Antique
 
 Ces cultivateurs étaient des gens du Système Stellaire Antique!
 
-Cependant, au moment où il surgit, la hache géante de l'Ancien Dieu, entravée par les fils verts, se libéra. Elle s'abattit impitoyablement sur Wang Lin!
+Cependant, au moment où il surgit, la hache géante de l'Ancien Dieu, sous l'entrave des fils verts, trembla violemment, pointa de loin vers Wang Lin et fendit l'air!
 
 Avec ce coup, un rayon d'énergie de hache capable de fendre le ciel fonça vers Wang Lin et le frappa instantanément!
 
@@ -118,7 +118,7 @@ Comment cela pouvait-il être un sort céleste? C'était manifestement une techn
 
 C'était la première fois que Wang Lin l'utilisait; son corps se dessécha rapidement jusqu'à ne devenir qu'un squelette. Une aura frénétique émana de lui, et même la cicatrice sur sa poitrine bougea de manière inattendue pour empêcher le sang de continuer à couler.
 
-Au moment où les cultivateurs du Royaume Extérieur arrivèrent, un rire démoniaque retentit. Wang Lin fit un pas en avant et se transforma en un brouillard noir avant de charger la masse des cultivateurs. Un cri assourdissant, empreint d'une peur indescriptible, déchira l'air!
+Au moment où les cultivateurs du Royaume Extérieur arrivèrent, un rire démoniaque retentit. Wang Lin fit un pas en avant et se transforma en un brouillard noir qui enveloppa directement le cultivateur situé tout à l'avant. Un cri assourdissant, empreint d'une peur indescriptible, déchira l'air!
 
 Les expressions de tous les cultivateurs environnants changèrent à cet instant!
 

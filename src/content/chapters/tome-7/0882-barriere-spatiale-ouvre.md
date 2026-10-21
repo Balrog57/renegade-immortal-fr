@@ -68,7 +68,7 @@ Boum!
 
 Le Temple Céleste du Tonnerre tout entier trembla, le ciel changea de couleur et les nuages furent balayés. Tous les cultivateurs du Système Stellaire de Luotian virent, par les pierres de transmission sonore, une scène grandiose qu'ils n'oublieraient jamais de leur vie!
 
-Le vortex dans le ciel trembla soudainement et une petite fissure fut déchirée de force. Dès son apparition, la brèche se propagea rapidement pour atteindre, en un instant, plus de cent pieds de large. C'était une cicatrice qui faisait frémir les cœurs.
+Le vortex dans le ciel trembla soudainement et une petite fissure fut déchirée de force. Dès son apparition, la brèche se propagea rapidement pour atteindre, en un instant, plus de cent pieds de long. C'était une cicatrice qui faisait frémir les cœurs.
 
 Des tourbillons noirs s'agitaient sur les bords de la faille et de grandes bouffées de froid en jaillissaient. Sous leur mouvement, la faille se refermait à une vitesse extrême.
 

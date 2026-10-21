@@ -17,7 +17,7 @@ Derrière eux, une douzaine de bêtes moustiques les suivaient. Bien que légèr
 Le jeune homme dont la poitrine était percé s'écria:
 — Tais-toi! Ce roi moustique a certainement été élevé par quelqu'un. Seul un puissant cultivateur de l'Alliance serait capable d'apprivoiser ces bêtes géantes qui ravagent la Mer des Nuages. Nous devons rejoindre les Anciens au plus vite; sinon, si ce cultivateur nous découvre, les conséquences seront inimaginables!
 
-— Tout se passait pourtant si bien... murmurait le troisième. Je ne pensais pas que le roi moustique commencerait soudainement à se débattre après notre sortie de l'est de l'Alliance. Cela a provoqué la rébellion de toute la meute. Si nous n'avions pas utilisé deux encens d'âme de moustique, je crains que nous n'ayons pas pu les détourner et que nous n'ayons pas été dévorés... Hélas, le roi s'est échappé.
+— Tout se passait pourtant si bien... murmurait le troisième. Je ne pensais pas que le roi moustique commencerait soudainement à se débattre après notre sortie de l'est de l'Alliance. Cela a provoqué la rébellion de toute la meute. Si nous n'avions pas utilisé deux encens d'âme de moustique, je crains que nous n'ayons pas pu les détourner et que nous ayons fini dévorés... Hélas, le roi s'est échappé.
 
 Cependant, ajouta le dernier jeune homme en jaune, les yeux brillants d'avidité face aux créatures, dix-neuf bêtes géantes suffisent à nous assurer de grands bénéfices. Même au sein de la Secte de la Porte Céleste, notre statut sera aussitôt tout autre!
 

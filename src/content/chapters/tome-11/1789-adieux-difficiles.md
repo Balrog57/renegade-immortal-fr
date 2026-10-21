@@ -12,7 +12,7 @@ En un éclair, dix jours passèrent.
 
 Au cours de ces dix jours, Wang Lin retrouva Fan Shanlu. Elle était la première concubine du Souverain Céleste et possédait le lignage du Continent Astral Immortel. Elle pouvait ainsi franchir la porte pour retourner chez elle.
 
-Fan Shanlu partit, laissant derrière elle le grand navire. Wang Lin avait déjà perfectionné la voile principale et pouvait désormais la contrôler à sa guise. Il la rangea dans son espace de stockage.
+Fan Shanlu partit, laissant derrière elle le grand navire. Wang Lin avait déjà perfectionné la Voile Fantôme principale et pouvait désormais la contrôler à sa guise. Il la rangea dans son espace de stockage.
 
 Durant ces dix jours, Wang Lin trouva également une planète de culture. Utilisant sa puissante culture, il repéra un corps qui venait de rendre l'âme, puis il le transforma. Il y insuffla l'âme d'un personnage secondaire pour former une âme originelle.
 

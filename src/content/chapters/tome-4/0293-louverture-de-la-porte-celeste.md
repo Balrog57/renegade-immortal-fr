@@ -42,7 +42,7 @@ Sur ce, son corps flotta dans les airs. Sa main gigantesque descendit vers le ba
 
 Dans la partie nord-ouest de Suzaku, au siège de la Secte des Cadavres, un vieil homme aux cheveux blancs s'éleva vers le ciel. Il poussa un soupir et dit: « Quelle tâche ardue... Comment pourrait-on obtenir facilement le cadavre d'un être céleste? Mon corps va encore devoir se mettre au travail... »
 
-Au centre de Suzaku se trouvait une contrée entourée par la mer. Ce continent entier appartenait au seul pays de culture de rang 6 de la planète, Suzaku. En ce moment même, sur un immense autel d'une circonférence d'environ trente-trois kilomètres au cœur du pays, une femme semblable à une fée des neiges était assise. Elle leva les yeux vers le ciel.
+Au centre de Suzaku se trouvait une contrée entourée par la mer. Ce continent entier appartenait au seul pays de culture de rang 6 de la planète, Suzaku. En ce moment même, sur un immense autel d'une circonférence d'environ trente-trois kilomètres au cœur du pays, une femme vêtue de blanc, semblable à une fée des neiges, leva les yeux vers le ciel.
 
 Sept vieillards l'accompagnaient.
 
@@ -52,7 +52,7 @@ Sept vieillards l'accompagnaient.
 
 Il tenait désormais un objet supplémentaire dans sa main: le Chaudron de Pluie.
 
-Dès l'instant où le Chaudron de Pluie apparut, il se mit à briller intensément, puis fondit pour se transformer en un mince filet d'énergie spirituelle céleste, emportant Wang Lin vers l'illusion.
+Dès l'instant où le Chaudron de Pluie apparut, il se mit à briller intensément, puis fondit pour se transformer en un mince filet d'énergie spirituelle céleste, emportant Wang Lin vers le néant.
 
 Le royaume céleste était brisé et les anciens Célestes étaient morts. L'intégralité du royaume céleste avait été fragmentée lors de la catastrophe survenue il y a fort longtemps.
 

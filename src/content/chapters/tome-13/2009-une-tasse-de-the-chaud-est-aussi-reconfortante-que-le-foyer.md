@@ -84,7 +84,7 @@ Wang Lin dit calmement: « Merci, Maître. »
 
 Xuan Luo sourit et s'apprêtait à poursuivre son discours, mais il fronça soudainement les sourcils en levant les yeux vers le ciel. Wang Lin remarqua également ce changement et scruta la voûte céleste. Quant aux neuf subordonnés, ils ne ressentirent que les secousses dans l'atmosphère et levèrent les yeux.
 
-Un instant plus tard, de vastes ondulations apparurent dans le ciel et s'étendirent. Une lumière pourpre vacilla, laissant place à une épaisse brume violette. Puis un rugissement retentit et deux mains gigantesques émergèrent de la brume. Un homme colossal, haut de plusieurs centaines de pieds, en sortit.
+Un instant plus tard, de vastes ondulations apparurent dans le ciel et s'étendirent. Une lumière pourpre vacilla, laissant place à une épaisse brume violette. Puis un rugissement retentit et un bras gigantesque émergea de la brume. Un homme colossal, haut de plusieurs centaines de pieds, en sortit.
 
 Derrière lui suivit un ancien démon de taille titanesque. Peu après, près de cent personnes émergèrent de la brume pourpre. Aucun d'entre eux n'avait une culture faible. Si peu possédaient la puissance d'un Exalté Empyréen, presque tous étaient comparables à des Exaltés Dorés. On y trouvait des dieux anciens, des démons anciens et des diables anciens.
 

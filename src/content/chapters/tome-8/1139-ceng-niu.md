@@ -12,7 +12,7 @@ Wang Lin avait le sentiment que tout était étrange depuis son entrée dans la 
 
 Il était venu ici pour échapper à Tuo Sen, mais avec la puissance de ce dernier, celui-ci pourrait aisément briser la barrière entre les deux systèmes stellaires. Il semblait que le moment venu, il n'aurait plus aucun endroit où se cacher.
 
-« Plutôt que de fuir sans cesse, je dois établir une assise dans la Mer des Nuages dès que possible. Une fois que mon corps original aura surmonté les Trois Épreuves et les Sept Calamités, je réfléchirai alors à un chemin pour l'avenir... » Wang Lin baissa les yeux vers sa taille et au-delà; une pointe d'inquiétude perçait dans son regard.
+« Plutôt que de fuir sans cesse, je dois établir une assise dans la Mer des Nuages dès que possible. Une fois que mon corps original aura surmonté les Trois Épreuves et les Sept Calamités, je réfléchirai alors à un chemin pour l'avenir... » Wang Lin baissa les yeux vers ses jambes sous sa taille; une pointe d'inquiétude perçait dans son regard.
 
 « Le plus important est de me fondre dans la Mer des Nuages en adoptant l'identité d'un cultivateur de cette région... » Wang Lin leva les yeux vers la pluie tombante. Tout comme la neige de l'Alliance qui se mêlait à l'averse, il devait lui aussi opérer cette fusion.
 
@@ -20,13 +20,13 @@ Au fil de sa progression, son corps rétrécit graduellement et ses cheveux devi
 
 La saison des pluies sur le continent de Mo Luo durait plusieurs mois. Ce n'est que lorsque la terre serait totalement saturée d'humidité, que les os des gens commenceraient à souffrir et que l'odeur de rouille imprégnerait l'air, que la pluie s'arrêterait enfin.
 
-Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une culture en méditation fermée durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent sortaient sous l'averse pour se diriger vers la zone septentrionale.
+Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une culture en méditation fermée durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent, la Secte de l'Origine, sortaient sous l'averse pour se diriger vers la zone septentrionale.
 
 Des rayons de lumière emplissaient le ciel, semblant tracer un chemin à travers la pluie. Pour quiconque regardait depuis le sol, la scène ressemblait à une pluie de météores.
 
 Quant aux mortels, ils restaient pour la plupart près de leur foyer, profitant de la chaleur de leur demeure. Ils jetaient parfois un regard par la fenêtre; c'était une existence monotone, mais chaleureuse.
 
-Le Village de l'Eau du Nord portait bien son nom. Situé dans la partie nord du continent de Mo Luo, il se trouvait à moins de 500 kilomètres de la jungle. Les habitants survivaient principalement grâce à l'agriculture, bien que des équipes de chasseurs s'activent aux abords de la jungle.
+Le Village de l'Eau du Nord portait bien son nom. Situé dans la partie nord du continent de Mo Luo, il se trouvait à moins de 500 kilomètres de la jungle de Bingu. Les habitants survivaient principalement grâce à l'agriculture, bien que des équipes de chasseurs s'activent aux abords de la jungle.
 
 La saison des pluies était aussi celle où apparaissaient les crapauds d'eau. Pour les mortels du continent de Mo Luo, c'était un mets d'une saveur exquise; dans les grandes cités, leur prix était souvent élevé, mais la demande dépassait toujours l'offre.
 

@@ -88,7 +88,7 @@ Le regard de Luo Su était glacial lorsqu'il tendit sa main droite et que la mai
 
 Un éclair de froideur traversa les yeux de Luo Su, puis le géant doré se précipita vers Xu Ting. Ce dernier pivota et renonça à foncer vers Luo Su; au lieu de cela, il rejoignit le géant doré en un seul pas et frappa de sa lance!
 
-Le géant doré lança aussitôt son poing droit. Cependant, juste au moment où la lance noire allait entrer en collision avec le coup, elle se tordit soudainement. Ce qui était auparavant la pointe de la lance se mua instantanément en un étrange serpent noir au corps gracile. Après avoir ouvert la gueule, il atteignit une centaine de mètres de long. Cette scène, d'une étrangeté absolue, rendit les cultivateurs environnants extrêmement sérieux.
+Le géant doré lança aussitôt son poing droit. Cependant, juste au moment où la lance noire allait entrer en collision avec le coup, elle se tordit soudainement. La pointe de la lance se dissipa, et la lance entière se mua instantanément en un étrange serpent noir au corps gracile. Après avoir ouvert la gueule, il atteignit une centaine de mètres de long. Cette scène, d'une étrangeté absolue, rendit les cultivateurs environnants extrêmement sérieux.
 
 La gueule du serpent s'ouvrit et dévora directement le géant doré. En voyant cela, les pupilles de Wang Lin se rétractèrent.
 

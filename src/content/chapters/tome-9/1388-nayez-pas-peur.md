@@ -10,7 +10,7 @@ slug: nayez-pas-peur
 
 Il avait déjà fait cela auparavant... Depuis son arrivée dans le Système Stellaire Antique, chaque fois qu'il repensait à ce qui s'était passé, son cœur lui faisait une douleur atroce. Il avait juré de ne plus jamais sacrifier un trésor pour créer une diversion lors d'une fuite. À ses yeux, perdre un trésor était pire que la mort.
 
-Par exemple, le fourneau divin antique et le dragon de tonnerre ancien... S'il avait su que le fourneau avait sauvé Wang Lin à maintes reprises, s'il avait su que c'était le dragon de tonnerre qui avait permis à Wang Lin de devenir un cultivateur du tonnerre, de se faire un nom dans tout Luotian et de donner naissance à l'essence du tonnerre...
+Par exemple, le fourneau et le dragon de tonnerre ancien... S'il avait su que le fourneau avait sauvé Wang Lin à maintes reprises, s'il avait su que c'était le dragon de tonnerre qui avait permis à Wang Lin de devenir un cultivateur du tonnerre, de se faire un nom dans tout Luotian et de donner naissance à l'essence du tonnerre...
 
 S'il avait su tout cela, il en aurait certainement recraché du sang, mourant presque de chagrin!
 

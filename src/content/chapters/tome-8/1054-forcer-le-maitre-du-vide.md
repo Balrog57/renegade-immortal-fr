@@ -88,7 +88,7 @@ Elle retint brusquement son geste. Évitant instinctivement le regard de Wang Li
 
 Le visage du Maître du Vide devint livide. Si la situation s'était arrêtée là, ce n'aurait pas été si grave, mais ce qui le plongea dans l'angoisse fut de voir Wang Wei se lever à son tour. Ce dernier chargea et mena une attaque en tenaille avec Bei Luo, encerclant totalement le Maître du Vide.
 
-Voyant que Wang Wei allait frapper, le Maître du Vide poussa un cri désespéré: « Si vous, cultivateurs, ne prenez pas part à cette affaire, je renoncerai à tout prendre dans cette Grotte de l'Empereur Céleste et je vous aiderai à briser tous les sceaux de ce lieu! »
+Voyant que Wang Wei allait frapper, le Maître du Vide poussa un cri désespéré: « Si vous, cultivateurs, ne prenez pas part à cette affaire, je ne prendrai rien dans cette Grotte de l'Empereur Céleste et je vous aiderai à briser tous les sceaux de ce lieu! »
 
 Les yeux de Wang Wei se plissèrent, tout comme ceux de Bei Luo qui marquaient un temps d'arrêt.
 

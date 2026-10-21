@@ -80,7 +80,7 @@ Cependant, après avoir aperçu Maître Simo, Wang Lin changea d'avis. Puisque l
 
 « Celui qui me chasse n'a pas attaqué par prudence. Il est venu ici pour trouver un prétexte pour m'éliminer... Puisqu'il a des réserves, c'est une chance pour moi... Et puisqu'il ne montre qu'une culture de cinquième niveau du Fléau Céleste, cela signifie soit qu'il refuse de révéler sa véritable puissance de cultivateur du troisième pas, soit qu'il n'est ici que sous forme d'avatar... »
 
-« Si ce n'est vraiment qu'un avatar qui me poursuit, alors je laisserai cet avatar périr pour servir d'exemple! Bien que ce ne soit qu'une projection, je dois me préparer. Après tout, un ennemi du cinquième niveau du Fléau Céleste n'est pas une proie facile, et bien que mon essence de tonnerre soit complète, la prudence reste de mise! »
+« Si ce n'est vraiment qu'un avatar qui me poursuit, alors je ferai périr cet avatar pour servir d'exemple! Bien que ce ne soit qu'une projection, je dois me préparer. Après tout, un ennemi du cinquième niveau du Fléau Céleste n'est pas une proie facile, et bien que mon essence de tonnerre soit complète, la prudence reste de mise! »
 
 L'expression de Wang Lin se glaça. Une fois les indications reçues, il saisit l'ancien et accéléra. Ils devinrent un rayon de lumière fendant les airs vers la ville.
 

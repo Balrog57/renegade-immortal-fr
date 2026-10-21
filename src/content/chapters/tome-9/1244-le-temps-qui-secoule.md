@@ -94,7 +94,7 @@ Les bêtes moustiques, qui semblaient avoir disparu durant les dix jours de leur
 
 Pourtant, ce qui était étrange, c'est que par le passé, dès qu'une bête moustique apparaissait, elle rugissait et se lançait à leur poursuite. Mais ces bêtes ne les regardaient même pas; elles continuaient de tournoyer autour de la porte de pierre.
 
-Cette scène insolite les empêcha de battre en retraite. Tous étaient sur le qui-vive, prêts à s'enfuir au moindre signe de danger.
+Cette scène insolite fit marquer un temps d'arrêt à leur retraite. Tous étaient sur le qui-vive, prêts à s'enfuir au moindre signe de danger.
 
 « Ces moustiques encerclent... » haleta l'un d'eux en apercevant que la porte de pierre était entourée par le nuage rouge.
 

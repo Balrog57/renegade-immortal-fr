@@ -38,7 +38,7 @@ Après son rugissement, le Démon Dispersé laissa échapper un rire sinistre. I
 
 L'expression de Wang Lin resta calme lorsqu'il répondit: « Une fois cette bataille terminée, je te rendrai ta liberté! »
 
-« Bien! » Le Démon Dispersé éclata de rire, puis son corps se mua en brume pour envelopper Wang Lin. Son énergie démoniaque se transforma en d'innombrables filaments qui s'insinuèrent par les sept orifices de Wang Lin.
+« Bien! » Le Démon Dispersé éclata de rire, puis son corps se mua en brume pour envelopper Wang Lin. Son énergie démoniaque se divisa en sept filaments qui s'insinuèrent par les sept orifices de Wang Lin.
 
 En un instant, une puissante aura démoniaque se propagea autour de lui. Simultanément, il frappa son sac de rangement et l'armure démoniaque s'en échappa. Elle enveloppa immédiatement Wang Lin, formant cette redoutable armure recouvrant tout son corps.
 

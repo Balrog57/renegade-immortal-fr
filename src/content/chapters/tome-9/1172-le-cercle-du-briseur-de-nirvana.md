@@ -16,7 +16,7 @@ Un instant plus tard, la porte de pierre trembla et des ondulations se propagèr
 
 Wang Lin réfléchit un instant et choisit de ne pas masquer son apparence. Puisqu'il avait osé venir, il n'avait pas peur de causer des troubles. Il franchit les ondulations et disparut à son tour.
 
-Sa vision se troubla. Lorsqu'elle redevint claire, ses yeux se plissèrent. En observant les environs, il constata qu'il se trouvait dans une pièce d'environ cent pieds de large. Le sol était fait d'une matière inconnue et transparente qui permettait de voir deux bêtes féroces s'affronter sur une plate-forme de pierre en contrebas.
+Sa vision se troubla. Lorsqu'elle redevint claire, ses yeux se plissèrent. En observant les environs, il constata qu'il se trouvait dans une pièce d'environ plusieurs centaines de pieds de large. Le sol était fait d'une matière inconnue et transparente qui permettait de voir deux bêtes féroces s'affronter sur une plate-forme de pierre en contrebas.
 
 Quelques sièges étaient dispersés dans la salle, dont un placé au centre. Sept cultivateurs étaient assis dans leurs fauteuils, et aucun d'eux ne cachait son visage. À l'entrée de Wang Lin, tous leurs regards convergèrent vers lui.
 
@@ -36,7 +36,7 @@ Une belle femme était assise à ses côtés. Elle portait une magnifique robe f
 
 Non loin de là siégeait un vieil homme. Son apparence était très singulière; son visage, couvert de cicatrices, paraissait terrifiant au premier abord. Il arborait une expression sombre tout en faisant tourner machinalement une bague sur son index droit.
 
-Outre ces trois individus, les deux autres observaient également le calme Wang Lin.
+Outre ces trois individus, Wang Lin observa également les deux autres sans rien laisser paraître.
 
 Un peu plus à gauche siégeait un vieil homme vêtu de noir. C'était un homme maigre aux mains semblables à des serres d'aigle. Il tenait dans sa main gauche deux sphères de la taille du poing d'un nourrisson. Ces sphères tournaient constamment l'une autour de l'autre, produisant parfois un bruit lors de leurs collisions.
 

@@ -100,6 +100,6 @@ L'odeur du sang attira l'attention: les rugissements au loin se multiplièrent e
 
 L'expression de Wang Lin resta sereine tandis qu'il pénétrait dans la ruine. Il l'explora avec son sens divin et repartit après n'avoir trouvé aucune herbe.
 
-Sa silhouette glissait à travers le brouillard comme s'il fusionnait avec la brume, dégageant une intention de tuer redoutable. Il semblait émaner de lui une aura plus féroce que celle de n'importe quelle bête sauvage, et les dix moustiques criaient en tournant au-dessus de sa tête.
+Sa silhouette glissait à travers le brouillard comme s'il fusionnait avec la brume, dégageant une intention de tuer redoutable. Il semblait émaner de lui une aura plus féroce que celle de n'importe quelle bête sauvage, et les plus de dix moustiques criaient en tournant au-dessus de sa tête.
 
 Face à cette aura terrifiante, même les rugissements lointains s'affaiblirent progressivement jusqu'à disparaître totalement. Le sol cessa de trembler et le vent tomba.

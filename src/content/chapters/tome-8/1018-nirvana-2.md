@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 1018 - Nirvana (2)
 slug: nirvana-2
 ---
-Après avoir clamé « Voler le mérite des cieux », bien que l'énergie originelle qu'il avait invoquée de l'extérieur fût bloquée, sa propre énergie originelle se mêla à son pouvoir de Dieu Ancien et s'échappa par ses mains.
+Après avoir clamé « Voler le mérite des cieux », bien que la puissance des cieux et de la terre fût bloquée à l'extérieur, sa propre énergie originelle se mêla à son pouvoir de Dieu Ancien et s'échappa par ses mains.
 
 À l'instant même où son énergie originelle s'échappa, une ligne blanche apparut au sein du sceau formé par les mains de Wang Lin!
 

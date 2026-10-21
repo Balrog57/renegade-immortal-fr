@@ -124,7 +124,7 @@ Les sacs de rangement étaient eux aussi considérés comme des trésors!
 
 À cet instant, les sacs de tout le monde s'envolèrent. Au cours du processus, ils s'ouvrirent d'eux-mêmes et les objets qu'ils contenaient en furent expulsés!
 
-Il en fut de même pour le sac de Wang Lin. Son expression changea tandis qu'il tendait la main droite pour tenter de le saisir. Pourtant, une force mystérieuse entourait son sac; au moment où il le toucha, il sentit une chaleur brûlante pénétrer son corps. S'il ne lâchait pas prise, son âme originelle serait instantanément détruite!
+Il en fut de même pour le sac de Wang Lin. Son expression changea tandis qu'il tendait la main droite et le saisissait. Pourtant, une force mystérieuse entourait son sac; au moment où il le toucha, il sentit une chaleur brûlante pénétrer son corps. S'il ne lâchait pas prise, son âme originelle serait instantanément détruite!
 
 De nombreux cultivateurs alentour tentèrent également de saisir leurs sacs. Mais après un instant, ils furent contraints de les lâcher avec amertume, regardant leurs sacs s'envoler.
 

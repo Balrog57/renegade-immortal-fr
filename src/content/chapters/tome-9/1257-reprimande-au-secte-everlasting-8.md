@@ -20,7 +20,7 @@ Mu Bingmei observait la scène, stupéfaite. Elle pensait être celle qui compre
 
 « Cent ans... Je n'aurais jamais imaginé qu'il deviendrait aussi puissant! » Le regard de Mu Bingmei se posa sur Wang Lin et, à cet instant, il lui sembla devenu un étranger. Ses cheveux blancs et sa robe immaculée ne faisaient qu'accentuer l'amertume dans son cœur.
 
-Personne ici ne connaissait le passé de Wang Lin comme elle; elle en connaissait même la moitié de l'existence, grâce aux scènes que le clone de Wang Lin avait vues sur Suzaku. Le petit cultivateur dont la famille avait été massacrée et qui avait été contraint de fuir le pays de Zhao. Le cultivateur qui avait fait couler des rivières de sang dans le pays de Zhao.
+Personne ici ne connaissait le passé de Wang Lin comme elle; elle en connaissait même la moitié de l'existence, grâce aux scènes que son clone avait vues sur Suzaku. Le petit cultivateur dont la famille avait été massacrée et qui avait été contraint de fuir le pays de Zhao. Le cultivateur qui avait fait couler des rivières de sang dans le pays de Zhao.
 
 C'était cet homme qui était devenu progressivement célèbre sur la planète Suzaku et dans le Royaume de la Pluie, jusqu'à devenir presque le prochain Zhu Quezi, le souverain de la planète. Désormais, il était assez puissant pour faire trembler les étoiles d'un simple pas!
 
@@ -36,7 +36,7 @@ Ces sorts ne s'apprenaient pas, ils se comprenaient par la seule grâce de la fo
 
 Le silence perdura après le départ de Du Lin et Yin Yue, comme si personne n'osait rompre cette éternité de mutisme.
 
-Les anciens de la Secte Éternelle regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa culture ou de ses sorts. Qu'il s'agisse du Doigt du Destin Céleste, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
+Les anciens de la Secte Éternelle regardaient tous Wang Lin avec respect. Ils ne parvenaient pas à percer les mystères de sa culture ou de ses sorts. Qu'il s'agisse de son doigt pointé vers le ciel, du feu céleste ou du plus saisissant des sorts, l'extraction de l'âme planétaire, tout était stupéfiant. Les anciens ne pouvaient qu'être saisis d'admiration devant lui.
 
 Ils ignoraient de quels sorts Wang Lin disposait, mais ils pressentaient que ce qu'il venait de montrer n'était pas sa limite. Trop de secrets et de surprises fracassantes sommeillaient encore en lui.
 

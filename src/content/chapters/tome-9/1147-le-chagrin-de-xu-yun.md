@@ -94,7 +94,7 @@ Pourtant, en cet instant, l'âme de la bête tremblait de terreur et rugissait s
 
 D'un geste de la main droite, Wang Lin força l'âme de la bête à pousser un cri misérable avant de la fusionner avec la pilule. Rapidement, un parfum médicinal commença à se répandre dans la pièce.
 
-Soudain, Wang Lin fronça les sourcils et plongea sa main droite dans la boule de feu pour saisir la pilule. Une grande partie de l'âme de la bête fut immédiatement extraite.
+Soudain, Wang Lin fronça les sourcils et plongea sa main droite dans la boule de feu pour saisir la pilule. L'âme de la bête, déjà fusionnée à plus de la moitié, en fut immédiatement extraite.
 
 Dès que la main de Wang Lin quitta la sphère, la pilule inachevée trembla et s'effondra sur elle-même. Une force destructrice commença alors à se propager.
 

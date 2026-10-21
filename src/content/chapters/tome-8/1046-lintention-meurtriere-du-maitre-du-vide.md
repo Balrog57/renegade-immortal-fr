@@ -114,6 +114,6 @@ Alors que le bouclier était enfoncé, une ondulation pénétra son corps. Elle 
 
 Tout cela se produisit si vite que même la belle femme fut stupéfaite et les pupilles de l'homme en noir se contractèrent.
 
-Voyant le corps de Wang Lin être impitoyablement projeté, le Maître du Vide fut surpris. Bien que cette attaque n'ait pas été empreinte de sa pleine puissance, elle aurait aisément pu terrasser un cultivateur Scruteur du Nirvana!
+Voyant le corps de Wang Lin être impitoyablement projeté, le Maître du Vide fut surpris. Bien que cette attaque n'ait pas été portée de toute sa puissance, elle aurait aisément pu terrasser un cultivateur Scruteur du Nirvana!
 
 Il songea qu'avec un tel coup, l'éventuel Empereur Divin de l'Oiseau Vermillon mourrait à coup sûr, et l'Oiseau Vermillon avec lui.

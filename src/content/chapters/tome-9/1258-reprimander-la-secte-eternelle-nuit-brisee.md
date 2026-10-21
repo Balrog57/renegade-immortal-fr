@@ -42,7 +42,7 @@ Le filet de loi descendit rapidement, enveloppant tout sur son passage. On avait
 
 La lumière dorée émanant du corps de Wang Lin devint de plus en plus éclatante. La terre semblait se transformer en océan, et lui était le soleil qui s'élevait progressivement!
 
-Le premier sort que Wang Lin avait créé: Nuit Brisée! Nuit Brisée contenait la loi originelle. Il l'avait comprise en observant la mer alors qu'il était encore au stade de Purificateur du Nirvana. Cependant, Nuit Brisée était si puissante que l'énergie originelle requise dépassait ses limites de l'époque.
+Le premier sort que Wang Lin avait créé: Nuit Brisée! Nuit Brisée contenait la loi originelle. Il l'avait comprise en observant la mer alors qu'il était encore au stade de Scruteur du Nirvana. Cependant, Nuit Brisée était si puissante que l'énergie originelle requise dépassait ses limites de l'époque.
 
 Il ne pouvait l'utiliser qu'à un instant précis sans épuiser son énergie originelle.
 
@@ -92,7 +92,7 @@ Lorsque plus de la moitié du soleil avait émergé de l'horizon, une voix grave
 
 À l'instant où ces deux mots furent prononcés, une silhouette floue apparut au cœur du soleil. Cette silhouette était celle de Wang Lin!
 
-Les cultivateurs dont l'esprit s'était mêlé aux ténèbres ressentirent une douleur atroce dans leurs âmes originelles. C'était comme si leurs corps étaient déchirés par l'obscurité elle-même!
+Les cultivateurs dont l'esprit s'était mêlé aux ténèbres ressentirent une douleur atroce dans leurs âmes originelles. C'était comme si tout leur être était déchiré par ce soleil en même temps que la nuit!
 
 L'expression du vieil homme aux cheveux blancs, également fusionné avec les ténèbres, changea radicalement et il se retira précipitamment. Simultanément, ses mains formèrent des sceaux et son halo rouge clignota frénétiquement pour résister à la puissance de Nuit Brisée.
 

@@ -32,7 +32,7 @@ Tout en contemplant la beauté du jardin, Wang Lin se mit à réfléchir.
 
 « L'Art du Massacre Céleste... J'ai pu l'étudier un peu durant le voyage. C'est une technique véritablement exquise. Utiliser des sceaux de force vitale pour protéger son corps peut effectivement créer une défense redoutable. »
 
-« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance? Cependant, il ignore quelle nature de pouvoir la perle possède pour que l'Alliance de Culture se la soit disputée autrefois. »
+« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance? Cependant, Wang Lin ignore quelle nature de pouvoir la perle possède pour que l'Alliance de Culture se la soit disputée autrefois. »
 
 « Je me demande comment vont les choses sur la planète Suzaku... » Wang Lin leva la tête vers le vide. Son regard sembla parcourir une distance incommensurable pour se poser, au loin, sur la planète Suzaku.
 

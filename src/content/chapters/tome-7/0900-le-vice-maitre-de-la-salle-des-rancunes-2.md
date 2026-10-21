@@ -20,7 +20,7 @@ Wang Lin avait clairement percé la ruse de Liu Qingyun. Ayant grandi dans le Sy
 
 Lorsque Liu Qingyun avait sorti le cadavre de feu, Wang Lin avait déjà pressenti une anomalie et avait activé le fourneau de l'Ancien Dieu. Au moment où le cadavre de feu s'était effondré, il avait pu tout éviter avec aisance grâce au fourneau.
 
-Wang Lin avait ses raisons pour laisser cette opportunité à Liu Qingyun. Il savait qu'en tant que Vice-Maître de la Secte des Cadavres, Liu Qingyun devait posséder des moyens de survie.
+Wang Lin avait ses raisons pour laisser cette opportunité à Liu Qingyun. Il savait qu'en tant que Vice-Maître de la Salle du Ressentiment de la Secte des Cadavres, Liu Qingyun devait posséder des moyens de survie.
 
 Si Wang Lin s'était contenté d'attaquer, il aurait été difficile de tuer cet homme sans subir de blessures au plus fort du combat. Ainsi, Wang Lin avait simplement attendu que Liu Qingyun utilise son atout pour pouvoir l'esquiver facilement. Le moment où Liu Qingyun déploierait sa force ultime serait aussi le moment de sa mort!
 

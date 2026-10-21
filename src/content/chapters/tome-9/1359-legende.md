@@ -8,9 +8,9 @@ slug: legende
 ---
 L'âme originelle du Grand Ancien était en train de mourir. Blessée auparavant par l'énergie de l'épée, elle avait subi l'onde de choc provoquée par le tonnerre éternel et l'épée de sept pieds. L'impact avait causé l'effondrement d'une grande partie de son âme originelle; il n'avait désormais plus aucune chance de survie.
 
-Il ne restait qu'une âme originelle brisée, dont la majeure partie des souvenirs s'était évanouie. Tandis qu'il sombrait dans l'inconscience, le Fouet de l'Âme de Wang Lin l'enveloppa et le tira vers lui.
+Il ne restait qu'une âme originelle brisée, dont la majeure partie des souvenirs s'était évanouie. Tandis qu'il sombrait dans l'inconscience, le Fouet Kunji de Wang Lin l'enveloppa et le tira vers lui.
 
-Une fois transformé en lumière dorée, le Fouet de l'Âme pouvait s'allonger ou se rétracter selon la volonté de Wang Lin. L'âme originelle du Grand Ancien, autrefois tout-puissante, fut ainsi capturée par lui.
+Une fois transformé en lumière dorée, le Fouet Kunji pouvait s'allonger ou se rétracter selon la volonté de Wang Lin. L'âme originelle du Grand Ancien, autrefois tout-puissante, fut ainsi capturée par lui.
 
 Comment Wang Lin aurait-il pu laisser s'échapper l'âme originelle d'un cultivateur du Cinquième Fléau Céleste qui n'était qu'à un pas du troisième stade? Le simple fait de le tuer pour en faire une âme capable de « semer des haricots pour faire surgir des soldats » était déjà une puissance extrême, sans parler de la compréhension du tonnerre contenue dans l'âme originelle du Grand Ancien.
 

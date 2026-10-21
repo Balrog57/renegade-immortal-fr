@@ -74,7 +74,7 @@ Le continent fonçait vers le nord! C'était un mouvement manifeste; on ne pouva
 
 Tandis que la rune brillait, le continent accélérait encore. Malgré les grondements continus, il s'éloigna totalement de sa position initiale.
 
-Une fissure aux sept couleurs apparut au centre du continent sauvage! Elle n'était pas très large, ne mesurant que cinq pieds de large, mais l'éclat septicolore la rendait extrêmement visible dans le vide spatial!
+Une fissure aux sept couleurs apparut là où se trouvait auparavant le centre du continent sauvage! Elle n'était pas très large, ne mesurant que cinq pieds de large, mais l'éclat septicolore la rendait extrêmement visible dans le vide spatial!
 
 « C'est donc ça! » haleta le garçon en fixant la faille, surexcité. Ses traits étaient déjà déformés par l'émotion, et sous l'effet de cette excitation, son visage devint proprement terrifiant.
 

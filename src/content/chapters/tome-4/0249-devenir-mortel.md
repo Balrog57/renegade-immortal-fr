@@ -74,7 +74,7 @@ Une heure plus tard, la file de calèches apparut derrière Wang Lin. Près d'un
 
 Lu Xing se tenait près d'une des calèches, discutant avec quelqu'un à l'intérieur. La route n'étant pas large, Wang Lin se posta sur le bas-côté dès qu'il aperçut l'attelage.
 
-Alors que la calèche passait, quatre cavaliers apparurent devant lui pour lui barrer la route. Lu Xing tourna les yeux vers Wang Lin, l'éclat de la curiosité brillant dans son regard. Il rapprocha son cheval de celui de Wang Lin, joignit les mains et demanda: « Jeune frère, aurais-tu des remèdes contre le mal du Vent Maléfique? »
+Alors que la calèche passait, quatre cavaliers apparurent devant lui pour lui barrer la route. Lu Xing tourna les yeux vers Wang Lin, l'éclat de la curiosité brillant dans son regard. Il fit reculer son cheval de quelques pas pour se placer devant Wang Lin, joignit les mains et demanda: « Jeune frère, aurais-tu des remèdes contre le mal du Vent Maléfique? »
 
 Wang Lin comprit qu'on le prenait pour un médecin. Avec son tempérament habituel, il n'aurait pas pris la peine de s'en préoccuper, mais il eut soudain une illumination. Pour atteindre le stade de la Formation de l'Âme, il devait comprendre les cieux; peut-être était-ce là une occasion de s'immerger dans le monde mortel.
 

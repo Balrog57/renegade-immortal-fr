@@ -136,6 +136,6 @@ Cependant, ce n'était pas le moment de s'apaiser. Après l'apparition des quatr
 
 L'âme du scorpion poussa un cri. Elle ressentit l'aura de l'épée céleste de l'Ancêtre Céleste! Son âme trembla sous ce regard.
 
-Le temps pressait. Wang Lin n'hésita pas et leva la main droite. Une douleur vive le traversa alors qu'une lame Yin de neuf pouces jaillissait de sa paume droite. Une lame surgit de la paume droite de chacun des corps véritables d'essence, et toutes tranchèrent simultanément vers l'âme du scorpion!
+Le temps pressait. Wang Lin n'hésita pas et leva la main droite. Une douleur vive le traversa alors qu'une lame Yin de neuf pieds jaillissait de sa paume droite. Une lame surgit de la paume droite de chacun des corps véritables d'essence, et toutes tranchèrent simultanément vers l'âme du scorpion!
 
 Alors que le vieil homme aux robes vertes assistait à ce spectacle, il cracha une bouchée de sang. Les yeux écarquillés, il mourut de rage! Il s'était mis en colère jusqu'à en mourir!

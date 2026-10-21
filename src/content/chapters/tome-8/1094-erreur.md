@@ -96,7 +96,7 @@ Les veines de Lie Yunzi gonflèrent tandis qu'il réprimait sa rage. En voyant l
 
 Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Luotian! Je me souviens très bien de votre réponse. Je me demande dans quelles affaires du Temple Céleste du Tonnerre de Luotian je me trouve impliqué. »
 
-« Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte des Cadavres et Mo Zhi n'avaient pas été là, il aurait tout déversé. Même s'il risquait de mourir, Luotian se vengerait pour lui.
+« Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte des Cadavres et Mo Zhi n'avaient pas été là, il aurait combattu jusqu'à la mort. Même s'il risquait de mourir, Luotian se vengerait pour lui.
 
 Cependant, l'autre partie avait pris l'ascendant. Avec les témoins présents, même Luotian ne voudrait pas déclencher une guerre contre l'Alliance et les Quatre Sectes Divines pour une requête aussi absurde.
 

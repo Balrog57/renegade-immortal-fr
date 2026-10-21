@@ -62,7 +62,7 @@ Enveloppé d'un manteau de tonnerre qui lui donnait l'apparence d'un nuage orage
 
 En tant que cultivateur Scruteur du Nirvana, il possédait sa propre fierté. Les 7 Millions de Mondes étaient une terre sans loi, un lieu prisé des puissants. Qu'il s'agisse d'échanges secrets ou de règlements de comptes, les Anciens du clan ne s'en souciaient guère. C'était là que seule la force faisait foi!
 
-Le tunnel n'étant pas très long, le Maître Zhou Tian atteignit rapidement la sortie. L'arrogance se lisait sur son visage tandis qu'il pensait: « Je devrai rester sur mes gardes lors de la transaction avec le Maître Hao Kun. Son niveau de culture est légèrement supérieur au mien; si j'entame un combat, je ne pourrai pas l'égaler! »
+Le tunnel n'étant pas très long, le Maître Zhou Tian atteignit rapidement la sortie. L'arrogance se lisait sur son visage tandis qu'il pensait: « Je devrai rester sur mes gardes lors de la transaction avec le Maître Hao Kun. Son niveau de culture est légèrement supérieur au mien; s'il cherche à me dépouiller, je ne ferai pas le poids! »
 
 « Cependant, j'ai demandé à quelques proches de m'accompagner afin que le Maître Hao Kun soit plus prudent... » Tout en méditant, il accélérait sa marche. Ses pensées étaient accaparées par l'échange à venir, et quant à Wang Lin, il n'était pour lui qu'une fourmi insignifiante. Il lui suffirait d'attendre un instant sur la place des 7 Millions de Mondes pour exécuter ce Yu Fei dès son apparition.
 

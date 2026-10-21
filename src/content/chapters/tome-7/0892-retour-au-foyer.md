@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 892 - Returning Home
 slug: retour-au-foyer
 ---
-Il était évident que l'Empereur Céleste Qing Lin avait conçu le sort de garde céleste après avoir créé ces sceaux. Les gardes célestes imitaient les dieux anciens, tandis que ces sceaux servaient à contrôler leurs serviteurs.
+Il était évident que l'Empereur Céleste Qing Lin avait conçu le sort de garde céleste après avoir créé ces sceaux. Les gardes célestes imitaient les dieux anciens, tandis que ces sceaux servaient à contrôler strictement des serviteurs.
 
 Une distinction existait entre les deux. Les gardes célestes se concentraient sur le corps physique et la magie n'était qu'accessoire. Une fois raffinés, ils ne trahiraient jamais leur maître, à moins que celui-ci ne les libère.
 

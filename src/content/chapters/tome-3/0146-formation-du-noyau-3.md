@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 146 - Core Formation (3)
 slug: formation-du-noyau-3
 ---
-Avant d'entrer, Wang Lin sortit une cape noire pour se couvrir la tête. Une fois à l'intérieur, il inspecta le premier étage et constata qu'il était principalement rempli d'épées volantes. Toutes ces épées étaient de haute qualité et scellées dans des coffrets ornés de talismans sur les côtés afin d'empêcher le qi des épées de s'échapper.
+Avant d'entrer, Wang Lin sortit une cape noire pour se couvrir la tête. Une fois à l'intérieur, il inspecta le premier étage et constata qu'il était principalement rempli d'épées volantes. La plupart de ces épées étaient de haute qualité et scellées dans des coffrets ornés de talismans sur les côtés afin d'empêcher le qi des épées de s'échapper.
 
 En plus de toutes ces épées, un pilier de cristal trônait au centre de la pièce, avec trois épées volantes flottant au milieu, leurs pointes dirigées vers le bas. Ces trois épées palpitaient d'une lueur changeante; parfois, elles brillaient intensément.
 

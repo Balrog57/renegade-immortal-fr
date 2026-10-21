@@ -20,7 +20,7 @@ Après un long moment, une expression d'intérêt apparut sur le visage de Wang 
 
 Pour parler franchement, une trace du sens divin de Li Shan résidait dans les bombes, ce qui lui permettait de les faire détoner à volonté.
 
-Wang Lin n'avait jamais su que le sens divin pouvait être utilisé de la sorte. Après l'avoir soigneusement imité un moment, il superposa sans peine son propre sens divin sur celui présent dans les bombes. Il ne chercha pas à détruire celui de Li Shan, mais s'en enveloppa; s'il le souhaitait, il pourrait le briser à tout instant.
+Wang Lin n'avait jamais su que le sens divin pouvait être utilisé de la sorte. Après l'avoir soigneusement imité un moment, il superposa sans peine son propre sens divin sur celui présent dans les bombes. Il ne chercha pas à détruire celui de Li Shan, mais l'enveloppa; s'il le souhaitait, il pourrait le briser à tout instant.
 
 Cette utilisation du sens divin sur une bombe puante inspira Wang Lin. Après une courte réflexion, il sortit la perle mystérieuse.
 

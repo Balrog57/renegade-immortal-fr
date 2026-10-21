@@ -72,7 +72,7 @@ Wang Lin répondit sobrement: « Je t'accompagnerai. »
 
 La cloche fut vendue et l'Ancien présenta le deuxième article: une pilule. Li Qianmei esquissa un sourire gracieux. Elle se tourna vers Wang Lin, ses yeux brillants, et demanda doucement: « Comment m'accompagneras-tu? Est-ce que tu me raccompagneras simplement de Peng Lai... »
 
-« D'accord », acquiesça Wang Lin d'un signe de tête, sans toujours détourner le regard d'elle.
+« D'accord », acquiesça Wang Lin d'un signe de tête, sans accorder le moindre regard à Li Qianmei.
 
 Li Qianmei observa le profil de Wang Lin. Après une courte réflexion, elle reprit: « Ou m'emmèneras-tu dans la région de rang 9? »
 

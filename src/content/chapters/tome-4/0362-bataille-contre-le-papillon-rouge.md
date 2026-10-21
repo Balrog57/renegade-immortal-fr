@@ -78,7 +78,7 @@ Bien que les deux combattants ne fussent qu'au stade de la Formation de l'Âme, 
 
 Le Papillon Rouge était le génie de Xue Yu et, à Suzaku, passait pour la plus douée de tous. Elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans et comptait parmi les candidates les plus susceptibles d'atteindre le stade Ascendant.
 
-Ceng Niu, d'origine inconnue, avait réussi à obtenir un chaudron de pluie. Puis, il lui avait arraché un bras au Papillon Rouge, devenant instantanément célèbre.
+Ceng Niu, d'origine inconnue, avait réussi à obtenir un chaudron de pluie et à entrer dans le Royaume Céleste. Puis, il lui avait arraché un bras au Papillon Rouge, devenant instantanément célèbre.
 
 Si cela avait été tout, l'événement n'aurait pas suscité autant d'intérêt, mais ce Ceng Niu n'était qu'au début du stade de la Formation de l'Âme lorsqu'il était entré dans le Royaume Céleste. Il avait réussi à lutter contre une cultivatrice au stade avancé de la Formation de l'Âme et lui avait même pris un bras. Par conséquent, il était devenu une légende.
 

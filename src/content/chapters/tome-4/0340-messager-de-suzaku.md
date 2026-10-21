@@ -18,7 +18,7 @@ Trois jours plus tard, lui et son corps original ouvrirent les yeux simultanéme
 
 Wang Lin se leva. Au même moment, son corps original s'envola silencieusement vers l'immense crevasse créée durant la bataille. Il atterrit au fond du gouffre et sombra. Tandis qu'il s'enfonçait, la terre environnante l'emporta avec lui. Bientôt, le trou fut comblé, comme s'il n'avait jamais existé.
 
-À des milliers de kilomètres sous la surface, le corps original était assis en pleine culture. Les deux étoiles violettes sur son front tournaient rapidement. Une faible lumière violette émanait de son corps, formant une petite sphère lumineuse à ses côtés.
+À des milliers de kilomètres sous la surface, le corps original était assis en pleine culture. Les deux étoiles violettes sur son front tournaient lentement. Une faible lumière violette émanait de son corps, formant une petite sphère lumineuse à ses côtés.
 
 La blessure infligée au corps original était bien plus lourde que celle de Wang Lin. Surtout lors de cette ultime attaque, où le corps original avait encaissé 70 % des dégâts. Cependant, compte tenu de la puissance de son essence physique, ce n'était pas mortel, bien qu'une culture fermée fût également nécessaire.
 

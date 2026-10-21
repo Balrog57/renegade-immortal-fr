@@ -24,7 +24,7 @@ Tout cela n'était dû qu'à une seule phrase prononcée par Tuo Sen lorsqu'ils 
 
 « Je veux que cette Terre de l'Ancien Dieu soit imprégnée du parfum du sang! »
 
-Aucun de ces anciens cultivateurs n'était faible, mais ils portaient tous les sceaux de Tuo Sen en eux, ce qui les empêchait de déployer leur pleine puissance. Après tout, Tuo Sen avait placé de nombreux sceaux qu'il fallait transférer à ces cultivateurs. Souvent, plusieurs individus étaient nécessaires pour contenir un seul sceau, et peu pouvaient supporter une telle charge seuls.
+Aucun de ces anciens cultivateurs n'était faible, mais ils portaient tous les sceaux de Tuo Sen en eux, ce qui les empêchait de déployer leur pleine puissance. Après tout, il y avait autrefois d'innombrables sceaux dans le corps de Tuo Sen à transférer. Souvent, plusieurs individus étaient nécessaires pour contenir un seul sceau, et peu pouvaient supporter une telle charge seuls.
 
 Cependant, depuis plus de mille ans, la force des sceaux du monde de la mer de sang s'était constamment affaiblie. Tuo Sen se libérant de plus en plus vite, les sceaux sur son propre corps perdaient de leur force. Par extension, ceux qu'il avait placés sur les anciens cultivateurs s'atténuèrent également. En conséquence, ils étaient bien plus puissants que la première fois que Wang Lin était venu ici.
 

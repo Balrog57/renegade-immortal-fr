@@ -36,7 +36,7 @@ Et ce messager était un dieu ancestral!
 
 Tout ce que Wang Lin voyait aujourd'hui dépassait son imagination. Il commença à douter de la véritable nature des lois célestes.
 
-Après avoir été tiré, l'Émissaire des Cieux ouvrit les yeux pour la première fois, révélant une expression qui n'était plus de la froide indifférence, mais de la confusion.
+Après avoir été tiré, l'Émissaire des Cieux laissa voir pour la première fois, dans ses yeux, une expression qui n'était plus de la froide indifférence, mais de la confusion.
 
 Il fixa la silhouette du dieu ancestral avant d'entrouvrir la bouche comme s'il voulait parler, puis finit par la refermer. Son corps bougea et sa main gigantesque fendit l'air pour frapper le dieu ancestral formé par le domaine de Wang Lin.
 
@@ -100,7 +100,7 @@ Au moment où Li Muwan s'éveilla, elle cessa de dévorer l'âme de Zhou Ru et u
 
 Privé de l'âme de Zhou Ru, le corps fut envahi par une aura de mort. Dès que l'Âme Naissante de Li Muwan s'éveilla, elle fut exposée aux lois célestes, ce qui provoqua son lent effondrement.
 
-Wang Lin accourut près du corps de Zhou Ru et pointa son front. À cet instant, l'Âme Naissante de Li Muwan s'échappa lentement du corps de la petite.
+Wang Lin accourut près du corps de Zhou Ru et pointa le front de Zhou Ru. À cet instant, l'Âme Naissante de Li Muwan s'échappa lentement du corps de la petite.
 
 Elle ouvrit les yeux, regarda Wang Lin, et afficha ce même regard doux qu'il y a 19 ans.
 

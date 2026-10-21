@@ -10,7 +10,7 @@ slug: signal-de-fumee
 
 Des années de prudence lui avaient donné l'habitude de tout remettre en question. Les mystères étaient trop nombreux ici; le moindre manque de vigilance pourrait le plonger dans une crise inimaginable.
 
-Tout en réprimant son envie immédiate de s'emparer de la veine métallique, Wang Lin en fit le tour avec prudence. La confusion dans son esprit ne cessait de croître.
+Tout en réprimant son envie immédiate de s'emparer de la veine métallique, Wang Lin suivit calmement la veine. La confusion dans son esprit ne cessait de croître.
 
 À ses yeux, cette veine était un peu trop régulière. Son épaisseur restait presque identique du début à la fin.
 
@@ -54,9 +54,9 @@ Wang Lin réfléchit un instant en contemplant la veine métallique avec regret,
 
 De loin, tout en chevauchant la boussole stellaire, Wang Lin regarda une dernière fois la planète Yun Xia. Son regard était empreint d'une détermination sans faille.
 
-« Je dois obtenir l'os de ce Serpent aux yeux de lune! Je peux raffiner le médicament pour l'engourdir. Cependant, il m'en faudra une quantité colossale pour plonger un être aussi immense dans un état d'illusion. »
+« Je dois obtenir l'os de ce Serpent aux yeux de lune! Je peux extraire du Fruit de l'Ascension Céleste le médicament pour l'endormir. Cependant, il m'en faudra une quantité colossale pour plonger un être aussi immense dans un état d'illusion. »
 
-Si n'importe qui d'autre avait conçu cette méthode et obtenu une grande quantité de ce remède, il n'aurait pas pu forcer le Serpent aux yeux de lune à l'absorber. Un Serpent aux yeux de lune lié à un Ancien Dieu n'absorberait rien d'autre que du sang d'Ancien Dieu, à moins que l'on n'utilise la tactique de l'Ancien Dieu pour lui donner des ordres.
+Si n'importe qui d'autre avait conçu cette méthode et obtenu une grande quantité de ce remède, il n'aurait pas pu forcer le Serpent aux yeux de lune à l'absorber. Un Serpent aux yeux de lune lié à un Ancien Dieu n'absorberait rien d'autre que du sang d'Ancien Dieu, à moins que l'on n'utilise la tactique de l'Ancien Dieu pour le guider.
 
 Et seul Wang Lin possédait cette tactique.
 
@@ -108,13 +108,13 @@ Des ondes de fluctuations frappèrent l'atmosphère tandis qu'une pression quasi
 
 Son expression était aussi calme que l'eau alors qu'elle se rapprochait lentement.
 
-L'ancêtre de la famille Ran dit: « Frère Sun, frère Zhao, nous avons passé la majeure partie de nos vies à combattre. Maintenant que notre avenir est scellé, pourquoi ne pas donner tout ce qu'il nous reste? Même si nous mourons, nous mourrons sans regrets! » Bien que sa voix fût basse, elle vibrait d'une intention de combat. En levant les yeux vers le ciel, ses pupilles brûlaient d'un éclat ardent.
+L'ancêtre de la famille Ran dit: « Frère Sun, frère Zhao, nous avons passé la majeure partie de nos vies à combattre. Maintenant que nos dernières volontés sont réglées, pourquoi ne pas donner tout ce qu'il nous reste? Même si nous mourons, nous mourrons sans regrets! » Bien que sa voix fût basse, elle vibrait d'une intention de combat. En levant les yeux vers le ciel, ses pupilles brûlaient d'un éclat ardent.
 
 « Frère Ran est un héros. Puisque tu brûles ton âme, laisse-moi t'accompagner! » Xiaoyao Sanren laissa échapper un rire, et une flamme ardente apparut également dans ses yeux.
 
 Sun Xi afficha un regard décisif et sourit: « Tant pis. Cultiver toute une vie signifie oser défier les cieux et réprimander les généraux célestes. Comment pourrais-je reculer maintenant? »
 
-Une intention de combat monstrueuse jaillit d'eux trois, comme si des flammes gigantesques venaient de s'embraser sur la planète Ran Yun. Une simple flamme peut produire un signal de fumée pour avertir de l'arrivée d'un ennemi; bien que les cultivateurs brûlant leur âme ne puissent créer un véritable signal, ils pouvaient générer une intention de combat cent, voire mille fois plus puissante qu'une telle fumée.
+Une intention de combat monstrueuse jaillit d'eux trois, comme si des flammes gigantesques venaient de s'embraser sur la planète Ran Yun. Une simple flamme peut produire un signal de fumée pour avertir de l'arrivée d'un ennemi; bien que les cultivateurs brûlant leur âme ne puissent créer un véritable signal, ils pouvaient générer une intention de combat dix, cent, voire mille fois plus puissante qu'une telle fumée.
 
 Cette puissance colossale atteignit son apogée lorsque la silhouette magnifique de Liu Mei apparut.
 

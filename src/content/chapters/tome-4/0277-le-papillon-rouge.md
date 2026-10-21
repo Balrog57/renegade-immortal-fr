@@ -34,7 +34,7 @@ Parmi ces huit individus, sept étaient vêtus de la même manière. Il y avait 
 
 Le dernier était un homme d'âge moyen vêtu d'une robe noire. Son visage était d'un jaune pâle, lui donnant une apparence très maladive.
 
-Il hocha la tête avec nonchalance après avoir entendu la femme parler, puis fit un pas en avant pour se placer immédiatement entre le dragon azur et la créature serpentine. Il regarda le dragon azur et sourit: « Je n'ai pas le droit de tuer ce dragon, mais je peux en extraire la lignée. »
+Il hocha la tête avec nonchalance après avoir entendu la femme parler, puis utilisa la Technique de la Contraction du Sol pour se placer immédiatement entre le dragon azur et la créature serpentine. Il regarda le dragon azur et sourit: « Je n'ai pas le droit de tuer ce dragon, mais je peux en extraire la lignée. »
 
 Sur ces mots, il leva la main droite et la pointa légèrement, provoquant un spasme dans le corps de Zhou Wutai qui cracha une bouffée de sang. Ce dernier sentit alors la présence d'une force colossale. Cette puissance projeta son corps au loin comme une météorite.
 

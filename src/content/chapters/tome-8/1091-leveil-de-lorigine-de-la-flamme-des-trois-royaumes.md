@@ -51,7 +51,7 @@ Ce rugissement traversa les étoiles et imposa immédiatement le silence. Tous l
 
 Certains anciens de la Secte Divine de l'Oiseau Vermillon étaient présents. Leur tâche consistait à aider Wang Lin à assumer sereinement son rôle de Divin Empereur; ils ne toléreraient aucun signe de rébellion.
 
-C'était un arrêt de mort envoyé par le vieux Divin Empereur!
+C'était un ordre impératif donné par le vieux Divin Empereur!
 
 Le front de Ren Tao était couvert de sueur et les yeux de tous étaient rivés sur lui, ce qui fit trembler son esprit. Cependant, il n'avait pas le temps de s'en inquiéter. Il fixa Wang Lin et rugit: « Wang Lin, oses-tu accepter mon défi?! Si tu refuses, alors tu n'es pas digne de devenir le Divin Empereur! »
 

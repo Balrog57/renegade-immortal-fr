@@ -130,4 +130,4 @@ Le regard de Wang Lin restait de glace alors qu'il levait la main vers le ciel. 
 
 « Je vais te donner la dernière illusion que tu désires, et ce sera une illusion que tu n'oublieras jamais de toute ta vie! »
 
-La voix de Wang Lin était glaciale lorsqu'il abaissa sa main droite d'un geste vers Liu Mei.
+La voix de Wang Lin était glaciale lorsqu'il abaissa sa main droite d'un geste.

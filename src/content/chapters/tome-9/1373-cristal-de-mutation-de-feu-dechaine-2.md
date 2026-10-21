@@ -14,7 +14,7 @@ Le vieil homme sentit immédiatement l'énergie originelle jaillir avec une fure
 
 Des bruits de craquements résonnèrent en lui et une douleur intense envahit son corps, comme si tous ses os étaient sur le point de s'effondrer. Le sentiment de la mort imminente l'assaillit, et le vieil homme n'osa plus reculer. Il avait la certitude que s'il tentait de fuir, il mourrait sans aucun doute. À cet instant, sans hésiter, il frappa sa marque de clan, qui commença à s'agiter étrangement.
 
-Instantanément, le scorpion à quatre queues jaillit et flotta dans les airs. Il grandit jusqu'à atteindre mille pieds de long, puis agita sa queue en poussant un rugissement.
+Instantanément, le scorpion à quatre queues jaillit et flotta dans les airs. Il grandit jusqu'à atteindre mille pieds de long, puis agita ses quatre queues en poussant un rugissement.
 
 Ce scorpion de mille pieds était extrêmement féroce; dès son apparition, il laissa échapper un sifflement en chargeant Wang Lin. Le vieil homme, toujours incertain, tendit la main vers le vide tout en serrant les dents. Une lueur jaillit et plus d'une centaine de marionnettes surgirent!
 

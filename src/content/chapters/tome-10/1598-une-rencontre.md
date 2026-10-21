@@ -12,7 +12,7 @@ Son sens divin se déploya une dernière fois à l'instant de son trépas, embra
 
 À cet instant, le sens divin de Nian Tian trembla comme jamais auparavant. Il fut stupéfait de découvrir que cet homme était l'érudit qu'il avait interrogé des siècles plus tôt!
 
-Emporté par la confusion et une conjecture inimaginable, son sens divin se dissipa. Son Âme Naissante devint une âme du grand drapeau des âmes...
+Emporté par la confusion et une conjecture inimaginable, son sens divin se dissipa. Son Âme Naissante devint une âme du grand drapeau des cent mille âmes...
 
 Wang Lin fut ramené à la ville de Zhao et se tint près de l'arbre, à l'extérieur de la zone d'examen. Grande Fortune dormait encore là. Tout ce qui s'était produit semblait n'être qu'un rêve.
 

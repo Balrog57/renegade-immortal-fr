@@ -111,3 +111,5 @@ Il était le Seigneur du Royaume Scellé, mais à cet instant, il n'était qu'un
 En contrebas s'étendait le pays de Zhao, et le vieil homme ainsi que ses trois disciples venaient d'y pénétrer.
 
 « C'est ici que le Seigneur du Royaume Scellé a grandi... » La voix du vieil homme résonna doucement dans l'air.
+
+Il ne restait que quelques jours avant la fin du mois, et la bataille décisive approchait. Nous avions mis quinze jours à les rattraper, puis quinze autres à creuser l'écart, mais la situation était désormais critique. Dans une telle crise, comment pourrions-nous abandonner!

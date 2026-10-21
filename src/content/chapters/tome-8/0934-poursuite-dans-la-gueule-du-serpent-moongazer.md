@@ -44,9 +44,9 @@ Lorsque les fragments célestes de Maître Yan Leizi atteignirent leur cible, le
 
 Ce bouleversement fit s'étendre davantage l'espace déchiré. Plus de dix mille kilomètres d'espace étaient désormais transformés en une zone de destruction pure!
 
-D'innombrables cultivateurs furent aspirés à l'intérieur. Le fourneau du dieu ancien apparut autour de Wang Lin, changeant constamment de position. Cependant, ses yeux restaient fixés sur le Serpent aux yeux de lune, guettant la moindre opportunité!
+D'innombrables cultivateurs furent aspirés à l'intérieur. Le grand chaudron apparut autour de Wang Lin, changeant constamment de position. Cependant, ses yeux restaient fixés sur le Serpent aux yeux de lune, guettant la moindre opportunité!
 
-À cet instant, le lotus tournait autour de la femme en robe bleue, qui semblait parfaitement indemne. Le cadavre doré à ses côtés allait tout aussi bien et affichait une expression froide.
+À cet instant, le lotus tournait autour de la femme en robe bleue de Shui Luo, qui semblait parfaitement indemne. Le cadavre doré à ses côtés allait tout aussi bien et affichait une expression froide.
 
 En contemplant le chaos qui se jouait devant elle, elle poussa un soupir. Elle regarda Wang Lin, un regard complexe traversant ses yeux, et murmura: « Je ne sais pas si le Seigneur me reconnaîtra lors de notre prochaine rencontre... »
 

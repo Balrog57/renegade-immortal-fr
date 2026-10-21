@@ -118,4 +118,4 @@ Le visage de Wang Lin était pâle. Blessé par la Grande Porte du Vide et contr
 
 « Même l'achèvement de mon essence de tonnerre ne suffit pas à ouvrir cette barrière vers le troisième niveau, ni la Grande Porte du Vide... » La silhouette de Wang Lin réapparut et il fit immédiatement un autre pas.
 
-« Cependant, si une essence de tonnerre n'est pas suffisante, j'en utiliserai deux complètes pour l'écraser. Si deux ne suffisent pas, je ne crois pas que cinq essences complètes soient incapables d'ouvrir la Grande Porte du Vide! À ce moment-là, j'atteindrai instantanément le troisième niveau et je serai considéré comme une puissance de ce stade! » Les yeux de Wang Lin étaient froids et déterminés lorsqu'il disparut à nouveau.
+« Cependant, si une seule essence n'est pas suffisante, j'en utiliserai deux complètes pour l'écraser. Si deux ne suffisent pas, je ne crois pas que cinq essences complètes soient incapables d'ouvrir la Grande Porte du Vide! À ce moment-là, j'atteindrai instantanément le troisième niveau et je serai considéré comme une puissance de ce stade! » Les yeux de Wang Lin étaient froids et déterminés lorsqu'il disparut à nouveau.

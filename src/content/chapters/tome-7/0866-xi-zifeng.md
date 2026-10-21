@@ -104,7 +104,7 @@ Wang Lin, suspendu dans les airs, observait avec calme la grande majorité des c
 
 Lorsque les 325 réseaux de transfert furent tous déployés, tous les participants se révélèrent. Maître Yan Leizi, imperturbable, déclara lentement: « Cette compétition est divisée en trois épreuves, six voies et une seule ligne vers le ciel! Les trois épreuves du Ciel, de la Terre et de l'Humain testeront la culture de chacun! Les six voies mystérieuses, par la réincarnation, tempéreront l'intention du Dao! »
 
-« Les trois épreuves et les six voies permettront de sélectionner les 108 titres célestes. Ensuite, ils s'affronteront dans une bataille à mort sur la ligne unique vers les cieux. Les 36 combattants ayant obtenu le plus de victimes recevront les titres célestes! Ils auront aussi l'occasion de laisser leur nom sur la Pierre de l'Investiture Céleste! »
+« Les trois épreuves et les six voies permettront de sélectionner les 108 titres célestes. Ensuite, ils s'affronteront dans une bataille à mort sur la ligne unique vers les cieux. Les 36 combattants ayant obtenu le plus de victimes recevront le titre de Tian Gang! Ils auront aussi l'occasion de laisser leur nom sur la Pierre de l'Investiture Céleste! »
 
 Ses paroles provoquèrent une onde de choc immense dans la région. Même les occupants des tapis de prière furent stupéfaits, leurs regards convergeant tous vers Maître Yan Leizi.
 

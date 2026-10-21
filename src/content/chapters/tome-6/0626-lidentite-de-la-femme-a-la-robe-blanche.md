@@ -7,15 +7,15 @@ en: Chapter 626 - Identity of the White-Robed Female Corpse
 slug: lidentite-de-la-femme-a-la-robe-blanche
 ---
 
-« Le pinceau céleste est un trésor imprégné de la puissance du Grand Yin. Mon père a collecté douze étoiles et les a transformés en douze symboles empreints de la puissance primordiale, que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
+« Le pinceau céleste est un trésor imprégné de la puissance du Grand Yin. J'ai collecté douze étoiles et les ai transformées en douze symboles empreints de la puissance primordiale, que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
 
 « Le Filet de Capture Céleste... Bien que ce trésor soit assez ordinaire, l'âme qui l'habite semble avoir acquis une certaine intelligence. Il est très intéressant, je pense donc qu'il vous plaira.
 
-« Quant au troisième trésor, il est préférable de l'utiliser avec votre Épée Céleste de la Pluie. Ce trésor s'appelle le Fourreau Spirituel. Placer l'épée céleste à l'intérieur permet de renforcer l'esprit de l'arme. Mon père a utilisé le Métal Céleste d'Origine provenant du Bassin de Purification Céleste pour le fabriquer.
+« Quant au troisième trésor, il est préférable de l'utiliser avec votre Épée Céleste de la Pluie. Ce trésor s'appelle le Fourreau Spirituel. Placer l'épée céleste à l'intérieur permet de renforcer l'esprit de l'arme. J'ai utilisé le Métal Céleste d'Origine provenant du Bassin de Purification Céleste pour le fabriquer.
 
-« En ce qui concerne le sort céleste, bien qu'il s'agisse d'un sort de basse qualité au pouvoir ordinaire, il est très fascinant. Ce sort se nomme le Sort d'Arrêt. Mon père l'a découvert par accident sur une mystérieuse planète antique. Malheureusement, il était incomplet, mais mon père a réussi à le restaurer après l'avoir étudié.
+« En ce qui concerne le sort céleste, bien qu'il s'agisse d'un sort de basse qualité au pouvoir ordinaire, il est très fascinant. Ce sort se nomme le Sort d'Arrêt. Je l'ai découvert par accident sur une mystérieuse planète antique. Malheureusement, il était incomplet, mais j'ai réussi à le restaurer après l'avoir étudié.
 
-« Mon père pressent qu'il ne s'agit que d'une partie d'un vaste sort combiné. Hélas, ce que j'ai trouvé étant incomplet, je n'ai pu restaurer l'intégralité de la technique. »
+« Je pressens qu'il ne s'agit que d'une partie d'un vaste sort combiné. Hélas, ce que j'ai trouvé étant incomplet, je n'ai pu restaurer l'intégralité de la technique. »
 
 L'excitation sur le visage de Wang Lin s'apaisa progressivement. Le jade était divisé en trois parties. La première contenait une description détaillée et des instructions pour trois trésors célestes ainsi que pour le sort céleste.
 
@@ -23,11 +23,11 @@ Il n'y avait aucune restriction sur cette première partie, qui pouvait être co
 
 La deuxième partie détaillait la méthode pour créer des gardiens célestes. C'était ainsi que le vieil homme chétif avait pu en apprendre davantage en apercevant quelques fragments de cette section.
 
-Une remarque était également gravée dans le jade: « Mon père a placé une restriction de lignée sur ce jade. Sans votre propre sang, il est impossible de briser son sceau. »
+Une remarque était également gravée dans le jade: « J'ai placé une restriction de lignée sur ce jade. Sans votre propre sang, il est impossible de briser son sceau. »
 
 Cependant, ce jade existait depuis bien trop longtemps; assez longtemps pour que, même avec la puissante culture de son propriétaire, le passage des âges ne puisse être totalement compensé. La restriction de la première section avait disparu, et celle de la deuxième s'était considérablement affaiblie. Seule la restriction de la dernière partie était restée parfaitement intacte.
 
-« Parmi les trois trésors célestes, je n'en vois que deux. Le Fourreau Spirituel est absent... Ces objets furent offerts à une femme nommée Qing Shuang. Si son nom est Qing, alors son père est... »
+« Parmi les trois trésors célestes, je n'en vois que deux. Le Fourreau Spirituel est absent... Ces objets furent offerts à une femme nommée Qing Shuang. Si son nom est Qing Shuang, alors son père est... »
 
 Les yeux de Wang Lin s'illuminèrent et il murmura: « L'Empereur Céleste Qing Lin! »
 

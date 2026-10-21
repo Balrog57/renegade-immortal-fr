@@ -24,7 +24,7 @@ Cela confirma les doutes qui avaient assailli Wang Lin lorsqu'il avait vu les cu
 
 Pour être plus précis, lorsque Wang Lin avait tendu un piège au Souverain Céleste aux Sept Couleurs, la disparition du Poisson-Œil l'avait profondément choqué. Il avait soigneusement cherché la raison et l'avait trouvée dans l'âme de l'avatar.
 
-Dans la deuxième fleur, Wang Lin avait vaguement pressenti quelque chose. Puis, dans le Tombeau Ancien, il avait confirmé ses spéculations. En se retirant derrière Xuan Luo pour le laisser agir, il avait eu la certitude que ce qu'il savait était vrai.
+Dans la deuxième fleur, à la Secte Dong Lin, Wang Lin avait vaguement pressenti quelque chose. Puis, dans le Tombeau Ancien, il avait confirmé ses spéculations. En se retirant derrière Xuan Luo pour le laisser agir, il avait eu la certitude que ce qu'il savait était vrai.
 
 « La raison pour laquelle tu peux détecter ma position avec une telle précision doit être liée au Poisson-Œil... J'ai négligé le lien entre les Poissons-Œils mâles et femelles. » Xuan Luo secoua la tête. Il avait effectivement été imprudent sur ce point.
 

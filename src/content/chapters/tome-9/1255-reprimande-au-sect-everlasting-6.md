@@ -44,7 +44,7 @@ L'expression de Wang Lin resta neutre, imperturbable. La clé pour atteindre son
 
 S'il s'éternisait et que ses blessures refoulées s'aggravaient, cela n'en vaudrait pas la peine.
 
-Au moment où les neuf tigres atteignirent leur cible, Wang Lin fit un pas et son domaine changea. L'espace autour de lui commença à se distordre, rendant toute distinction entre le vrai et le faux impossible. Simultanément, Wang Lin agita la main et un feu bleu apparut, formant un vortex.
+Au moment où les neuf tigres chargèrent en rugissant, Wang Lin fit un pas et son domaine changea. L'espace autour de lui commença à se distordre, rendant toute distinction entre le vrai et le faux impossible. Simultanément, Wang Lin agita la main et un feu bleu apparut, formant un vortex.
 
 « Activez! » rugit Wang Lin. Le vortex de feu autour de lui commença à tourner en sens inverse et à se propager, entrant immédiatement en collision avec les neuf tigres en approche.
 

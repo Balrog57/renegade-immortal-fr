@@ -64,9 +64,9 @@ Wang Lin esquissa un sourire énigmatique tout en alternant son regard entre Xu 
 
 « Il serait peut-être préférable que Xu Liguo collecte des cristaux de tonnerre pour moi au sein du Clan du Tonnerre Dispersé... » Wang Lin prit sa décision, puis hocha légèrement la tête et dit lentement: « Si tu accomplis cela avec succès, nous pourrons en discuter. »
 
-Sur ces mots, Wang Lin envoya un message mental à Xu Liguo lui signifiant son ordre. En l'entendant, le corps de ce dernier se mit à trembler. Il tremblait d'excitation et, une fois Wang Lin achevé, il leva les yeux avec enthousiasme en riant:
+Sur ces mots, Wang Lin envoya un message mental à Xu Liguo lui signifiant son ordre. En l'entendant, le corps de ce dernier se mit à trembler. Il tremblait d'excitation et, une fois les ordres de Wang Lin terminés, il leva les yeux avec enthousiasme en riant:
 
-« Personne n'est meilleur que votre Grand-pè... Erreur, Petit Xu! Maître, soyez tranquille, quelques milliards de cristaux de tonnerre, laissez cela à moi! »
+« Personne n'est meilleur que votre Grand-pè... Erreur, Petit Xu! Maître, soyez tranquille, plusieurs milliards de cristaux de tonnerre, laissez cela à moi! »
 
 Le mauvais pressentiment de Grand Rouge s'intensifia. Il fit rapidement quelques pas en avant, fixa Wang Lin avec respect et dit: « Aîné, le junior n'a pas fini de parler. Le junior possède encore un trésor pouvant être échangé contre 10 000 cristaux de tonnerre! Seul un être tel que l'Aîné peut posséder une telle merveille! » Après avoir parlé, il frappa à nouveau sa marque et, dans un éclair, une épée volante jaillit, dégageant une aura glaciale.
 

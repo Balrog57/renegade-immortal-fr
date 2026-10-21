@@ -94,7 +94,7 @@ Grâce à sa culture au sommet du stade Scruteur du Nirvana, Wang Lin pouvait pe
 
 Face à cette crise, Wang Lin n'avait pas le luxe de la réflexion. Volant à pleine vitesse, il se déplaçait comme une ombre et croisa instantanément la trajectoire de plusieurs cadavres.
 
-Sur son passage, la main droite de Wang Lin forma un index tranchant comme une épée et pointa avec précision le milieu du front de ces cadavres.
+Sur son passage, la main droite de Wang Lin forma deux doigts tranchants comme une épée et pointa avec précision le milieu du front de ces cadavres.
 
 Des bruits de tonnerre éclatèrent alors que les cadavres s'enflammaient, devenant de véritables boules de feu. Les lignes rouges entre leurs sourcils s'éteignirent lentement.
 

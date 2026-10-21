@@ -108,7 +108,7 @@ Wang Lin fronça les sourcils: « Quel est le lien entre toi et les personnes do
 
 Le cœur de Wang Lin tressaillit. Sa voix n'était plus neutre; elle tremblait légèrement lorsqu'il demanda: « Quel est le nom de ton ancêtre? »
 
-La jeune femme hésita un instant avant de répondre: « Le nom de mon ancêtre est Tian Tu... » Elle sentait que cet homme était singulier.
+La jeune femme hésita un instant avant de répondre: « Le nom de mon ancêtre est Wang Tian Tu... » Elle sentait que cet homme était singulier.
 
 En entendant ce nom, le corps de Wang Lin fut secoué par une émotion soudaine. Il murmura: « Quatrième oncle... » En parlant de la famille Wang, outre ses propres parents, l'oncle quatrième était celui qu'il chérissait le plus. Apprendre des nouvelles de lui le plongeait dans une excitation contenue.
 
@@ -166,7 +166,7 @@ Il déploya son sens divin et couvrit aisément tout le pays de Zhao. Il localis
 
 Wang Lin s'arrêta à cinq mille kilomètres de la ville des Teng. Il planta un drapeau de formation dans le sol et, d'un geste, fit disparaître l'objet.
 
-Puis, il survola la cité des Teng pour y placer seize drapeaux de formation. Il fixa la ville avec des yeux emplis de soif de sang, esquissa un sourire cruel et murmura: « À partir d'aujourd'hui, on peut entrer dans la ville des Teng, mais on ne peut plus en sortir. Teng Huayuan, ma vengeance ne fait que commencer. »
+Puis, il contourna la cité des Teng dans un rayon de cinq mille kilomètres pour y planter seize drapeaux de formation. Il fixa la ville avec des yeux emplis de soif de sang, esquissa un sourire cruel et murmura: « À partir d'aujourd'hui, on peut entrer dans la ville des Teng, mais on ne peut plus en sortir. Teng Huayuan, ma vengeance ne fait que commencer. »
 
 Ses yeux étaient glacials tandis qu'il formait rapidement des sceaux. Il s'éleva dans les airs et, dans un rugissement, frappa les points d'impulsion de son propre corps. Rapidement, une brume verte émana de lui pour l'envelopper. Derrière lui, une silhouette ressemblant à un ancien dieu démon apparut.
 
@@ -294,7 +294,7 @@ Wang Lin ne ralentit pas tandis que la bête s'éloignait de la Secte Tian Dao. 
 
 Ce n'est que lorsque Wang Lin disparut à l'horizon qu'ils purent enfin reprendre leur souffle. L'un d'eux chuchota: « La famille Teng est finie... »
 
-Un autre murmura: « Pas seulement la famille Teng, tout le pays de Zhao va sombrer dans le chaos. » Puis, il prit une profonde inspiration et s'adressa aux anciens de la Secte Tian Dao qui l'observaient: « Donnez l'ordre de rappeler tous les disciples en entraînement extérieur. Rompez toute relation commerciale avec la famille Teng. Tout disciple en extérieur ayant formé un partenariat de culture avec une femme des Teng doit être expulsé de la secte. À partir d'aujourd'hui, nous n'aurons plus aucun lien avec eux. »
+Un autre murmura: « Pas seulement la famille Teng, tout le pays de Zhao va sombrer dans le chaos. » Puis, il prit une profonde inspiration et s'adressa au chef de la Secte Tian Dao qui l'observait: « Donnez l'ordre de rappeler tous les disciples en entraînement extérieur. Rompez toute relation commerciale avec la famille Teng. Tout disciple en extérieur ayant formé un partenariat de culture avec une femme des Teng doit être expulsé de la secte. À partir d'aujourd'hui, nous n'aurons plus aucun lien avec eux. »
 
 Après avoir massacré sept membres de la famille Teng, les yeux de Wang Lin restaient glacials. Il faut un cœur d'acier pour anéantir une lignée entière. Le moindre instant de faiblesse empêcherait l'action décisive nécessaire pour mener ce massacre à bien. Après tout, exterminer un clan n'était pas à la portée de n'importe qui.
 

@@ -66,7 +66,7 @@ Ling Dong et Zhou Jin arrivèrent également sous les ordres de Wang Lin. Six cu
 
 « Wang Lin, tu veux ma mort, mais tu as entraîné toute la Mer des Nuages dans ta chute. Même si tu survis d'une manière ou d'une autre, je veux voir si ton cœur de Dao restera sans faille! Je veux voir comment tu pourras rester dans le Royaume Intérieur!! Tu es le pécheur éternel du Royaume Intérieur!! »
 
-Des dizaines de cultivateurs de la Souillure Céleste de la Secte Démon apparurent. Leurs visages étaient pâles alors qu'ils s'apprêtaient à engager toute leur force!
+Des dizaines de cultivateurs de la Tribulation Céleste de la Secte Démon apparurent. Leurs visages étaient pâles alors qu'ils s'apprêtaient à engager toute leur force!
 
 Au sein même de la Secte Divine, les Anciens qui étaient du côté du Shui Daozi se précipitèrent pour tenter désespérément d'empêcher l'explosion de la tempête dorée!
 

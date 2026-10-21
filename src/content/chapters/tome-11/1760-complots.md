@@ -40,7 +40,7 @@ En forçant le passage entre les mondes, avec le Daoïste aux Sept Couleurs à s
 
 Wang Lin comprenait la nature des trois cents mondes détruits. S'ils subsistaient depuis si longtemps, c'était grâce à la fleur jaune. Ces mondes absorbaient les nutriments de la fleur pour pouvoir atteindre l'éternité.
 
-Cette fleur était un trésor que le Souverain Céleste aux Sept Couleurs avait obtenu sur le Continent Astral Immortel. Bien qu'elle n'eût aucun pouvoir offensif, elle recelait une force vitale prodigieuse. L'utiliser pour la guérison permettait de réduire de moitié le temps nécessaire.
+Cette fleur était un trésor que le Souverain Céleste aux Sept Couleurs avait obtenu dans le Royaume Céleste. Bien qu'elle n'eût aucun pouvoir offensif, elle recelait une force vitale prodigieuse. L'utiliser pour la guérison permettait de réduire de moitié le temps nécessaire.
 
 Si Lian Daofei n'était pas apparu si soudainement, le Souverain Céleste aux Sept Couleurs ne se serait pas retrouvé dans un état aussi pitoyable.
 
@@ -76,7 +76,7 @@ Suivant sa trace, la poursuite du Daoïste aux Sept Couleurs emprunta un itinér
 
 Le temps s'écoulait lentement. En un instant, la durée d'un bâton d'encens s'écoula. Après avoir répété l'opération près de cent fois, Wang Lin sortit du vortex pour entrer dans un système stellaire. C'était la première fois qu'il ne s'engouffrait pas immédiatement dans un autre monde.
 
-Il se déplaça très rapidement, vola à plus de cent mille pieds, puis se recroquevilla. Une lumière brilla et commença à se distordre. Un instant plus tard, une illusion enveloppa Wang Lin. Il avait disparu, remplacé par une planète d'apparence ordinaire.
+Il se déplaça très rapidement, vola à plus de cinq mille kilomètres, puis se recroquevilla. Une lumière brilla et commença à se distordre. Un instant plus tard, une illusion enveloppa Wang Lin. Il avait disparu, remplacé par une planète d'apparence ordinaire.
 
 Au moment même où il se transformait en planète, une lumière aux sept couleurs envahit le vortex dont il venait de sortir. Le Daoïste aux Sept Couleurs n'hésita pas et replongea immédiatement dans le vortex.
 

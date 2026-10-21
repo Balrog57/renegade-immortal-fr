@@ -28,7 +28,7 @@ L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que l
 
 Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indifférente semblait observer tout le monde. Cependant, sa position indiquait clairement qu'il prendrait le parti de l'Omniscient et de Maître du Vide.
 
-Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons fin à cette affaire aujourd'hui. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
+Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons cette affaire de côté pour l'instant. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
 
 Hormis l'homme en noir, tous avaient clairement choisi un camp. Le regard de Wang Lin jeta un éclair et il joignit les mains devant Wang Wei: « Mon affaire ne compte pas. Je laisserai le Senior décider de la suite. »
 
@@ -36,7 +36,7 @@ Bien que Wang Wei n'eût pas apprécié l'attaque soudaine de Wang Lin, il acqui
 
 Après la déclaration de Wang Wei, l'Omniscient et son groupe sourirent en hochant la tête. Hu Juan se leva et s'approcha de la tablette de pierre. Elle posa sa main semblable à du jade sur la tablette et exerça une légère pression. Une lumière pourpre jaillit de l'artefact, accompagné de grondements sourds comme si la pierre elle-même tremblait.
 
-En un instant, d'immenses fissures apparurent dans le sol avant qu'il ne s'effondre brusquement, révélant un ciel étoilé. Tous furent aspirés et disparurent. Quant à Zhou Yi, Wang Wei l'entraîna vers la matrice de transfert qui ressemblait à ce même firmament étoilé.
+En un instant, d'immenses fissures apparurent dans le sol avant qu'il ne s'effondre brusquement, révélant un ciel étoilé. Tous s'y précipitèrent et disparurent. Quant à Zhou Yi, Wang Wei l'entraîna vers la matrice de transfert qui ressemblait à ce même firmament étoilé.
 
 Le septième étage de la Grotte de l'Empereur Céleste était radicalement différent des six premiers. Il n'y avait aucun pavillon; l'endroit était recouvert d'une mer de flammes, comme s'il s'agissait d'un monde à part entière!
 
@@ -70,7 +70,7 @@ Le visage de Wang Lin resta impassible. En voyant la jeune fille en rose marquer
 
 En la voyant partir, les yeux de Wang Lin brillèrent d'une lueur étrange. Bien que ce lieu fût différent de la carte, il aperçut, au fil de sa progression, des vestiges de jade céleste dans les fissures. Il était évident qu'il y a des éons, cet endroit était le septième niveau de la Grotte de l'Empereur Céleste, mais qu'un événement inimaginable l'avait transformé en une ruine embrasée.
 
-Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Divin. Après un long moment, il rouvrit les paupières, plus confiant que jamais dans ses spéculations. Ce volcan n'était pas apparu de lui-même; il avait été déplacé ici par quelqu'un. Plus il s'approchait, plus les preuves étayaient cette théorie. Il remarqua clairement que les roches entourant le volcan étaient totalement distinctes du reste du sol.
+Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Divin. Après un long moment, il rouvrit les paupières, plus confiant que jamais dans ses spéculations. Ce volcan n'était pas apparu de lui-même; il avait été déplacé ici par quelqu'un. Plus il s'approchait, plus les preuves étayaient cette théorie. Il remarqua clairement que la roche du volcan était totalement distincte du reste du sol.
 
 « Je suppose que tout le monde a remarqué l'étrangeté de ce volcan. » Sans se précipiter à l'intérieur, Wang Lin s'assit en tailleur au pied de la montagne. Ses yeux s'illuminèrent alors qu'il observait la lave coulant des crevasses. La chaleur extrême ne lui causait aucun inconfort; au contraire, elle l'apaisait. Même l'énergie d'origine en lui devenait plus active.
 

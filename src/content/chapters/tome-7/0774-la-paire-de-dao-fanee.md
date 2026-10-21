@@ -34,7 +34,7 @@ Il examina attentivement les neuf os de bêtes. Il les avait déjà vérifiés a
 
 À l'époque, il soupçonnait que ce trésor d'os de bête nécessitait un mode d'activation spécial. Après avoir replacé les os avec les épées, il remarqua immédiatement la différence.
 
-Après une courte réflexion, le sens divin de Wang Lin se déploya et pénétra dans les huit petits os de bêtes. Dès que son sens divin les toucha, les huit os tremblèrent instantanément et une force d'aspiration en jaillit. Le sens divin de Wang Lin ressentit immédiatement cette attraction.
+Après une courte réflexion, le sens divin de Wang Lin se déploya et pénétra dans les huit petits os de bêtes. Dès que son sens divin les toucha, les huit os tremblèrent instantanément et une force d'aspiration en jaillit. L'âme originelle de Wang Lin ressentit immédiatement cette attraction.
 
 Ses yeux s'illuminèrent et son énergie originelle se déversa dans son sens divin. Sous l'effet de l'aspiration, son âme originelle se divisa en huit parties qui pénétrèrent les huit os.
 
@@ -56,7 +56,7 @@ Cette lumière bleue contenait également son âme originelle. Celle-ci subit un
 
 L'épée trembla et libéra une rafale d'hymnes d'épée. L'âme originelle de Wang Lin fusionna à nouveau en une seule entité, et il sentit immédiatement une puissante énergie d'épée charger vers lui.
 
-Les yeux de Wang Lin se plissèrent et l'énergie originelle dans son corps se propagea comme une tempête, dissipant toute l'énergie d'épée. Cependant, l'instant d'après, une nouvelle vague d'énergie apparut, comme si elle était inépuisable.
+Les yeux de Wang Lin se plissèrent et l'énergie originelle dans son âme originelle se propagea comme une tempête, dissipant toute l'énergie d'épée. Cependant, l'instant d'après, une nouvelle vague d'énergie apparut, comme si elle était inépuisable.
 
 « Quelque chose ne va pas. C'est une matrice de restriction! » Les yeux de Wang Lin commencèrent à déduire la restriction tandis qu'il restait assis. Il créa un bouclier d'énergie originelle pour bloquer l'énergie d'épée et l'ignora totalement.
 

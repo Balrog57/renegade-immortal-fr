@@ -134,4 +134,4 @@ Dans la terre sainte du Clan du Dragon Blindé, l'expression du Neuvième Ancien
 
 L'expression de Maître Simo changea elle aussi brusquement, la panique envahissant son visage.
 
-La voix provenant du vide résonna une dernière fois: « Un. »
+La voix provenant du vide déclara lentement: « Un. »

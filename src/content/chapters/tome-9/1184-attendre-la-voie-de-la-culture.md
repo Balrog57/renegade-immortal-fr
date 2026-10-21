@@ -16,7 +16,7 @@ Il ne pouvait oublier que c’était à cause de cette entité que la moitié de
 
 Aux yeux de Wang Lin, une silhouette apparut derrière tout le monde.
 
-Cette personne portait du gris, mais la partie inférieure de son corps, sous les vêtements, était transparente, laissant entrevoir la chair et le sang. Elle n'avait pas de cheveux et ses yeux étaient dépourvus de vie alors qu'elle avançait lentement.
+Cette personne portait du gris, mais son corps sous les vêtements était semi-transparent, laissant entrevoir la chair et le sang. Elle n'avait pas de cheveux et ses yeux étaient dépourvus de vie alors qu'elle avançait lentement.
 
 Sa marche n'était pas rapide, et il lui fallut un long moment pour arriver aux côtés du cadavre du dragon. Elle ne sembla rien faire, pourtant le dragon se décomposa instantanément en une mare de sang. Ce qui était étrange, c’est que cette mare de sang fut absorbée par le corps de l'individu.
 
@@ -104,9 +104,9 @@ Maître Pin Cendré reprit: « Compagnon cultivateur Lu, je peux vous emmener da
 
 « Récoltons d'abord les cristaux d'origine », dit Wang Lin en regardant Maître Pin Cendré.
 
-« Très bien! » Maître Pin Cendré ne discuta pas et observa les environs. Au lieu de poursuivre dans le passage étroit, il changea de direction. Tous trois s'élancèrent au loin.
+« Très bien! » Maître Pin Cendré ne discuta pas et observa les environs. Au lieu de poursuivre dans le passage étroit, il changea de direction et emmena les trois autres au loin.
 
-Maître Pin Cendré connaissait parfaitement les lieux. Après une heure, ils arrivèrent dans un autre endroit saturé de brouillard: un abîme enveloppé de brume.
+Maître Pin Cendré connaissait parfaitement les lieux. Après deux heures, ils arrivèrent dans un autre endroit saturé de brouillard: un abîme enveloppé de brume.
 
 En pénétrant dans cette zone, Maître Pin Cendré se montra extrêmement prudent et avança avec lenteur. Lorsqu'il fut à mille pieds de la brume, il s'arrêta. Sa main droite s'étendit et une quantité massive de jades célestes s'en échappa pour tournoyer autour de lui. Puis, en refermant sa main, tous les jades se transformèrent en poussière.
 

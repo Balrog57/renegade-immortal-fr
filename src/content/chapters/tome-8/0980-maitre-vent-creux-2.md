@@ -8,7 +8,7 @@ slug: maitre-vent-creux-2
 ---
 Au moment où le vieil homme sortit le bouclier, les yeux de Wang Lin s'illuminèrent. Il pouvait sentir une faible aura d'ancien dieu émanant du petit bouclier!
 
-« Un trésor d'ancien dieu! » Voyant l'homme s'échapper, la Lance Tueuse de Dieux, malgré ses attaques répétées, devint peu à peu translucide avant de se dissiper. Un éclair de froideur passa dans les yeux de Wang Lin alors qu'il faisait un pas, provoquant des ondulations sous ses pieds. C'était la première fois que Wang Lin utilisait la Distorsion Spatiale sous l'influence de la planète Tian Yun!
+« Un trésor d'ancien dieu! » Voyant l'homme s'échapper, la Lance Tueuse de Dieux, sous ses attaques répétées, devint peu à peu translucide avant de se dissiper. Un éclair de froideur passa dans les yeux de Wang Lin alors qu'il faisait un pas, provoquant des ondulations sous ses pieds. C'était la première fois que Wang Lin utilisait la Distorsion Spatiale sous l'influence de la planète Tian Yun!
 
 Il fusionna soudainement avec le monde et disparut.
 

@@ -118,6 +118,6 @@ La femme saisit promptement la cruche et remplit la coupe.
 
 À cet instant, les sept hommes en robes noires sur le navire levèrent la tête simultanément. Leurs yeux s'illuminèrent et ils s'élancèrent tous ensemble en sept rayons de lumière.
 
-« Un individu approche, vous avez trois secondes pour vous écarter. Tout offenseur sera tué! »
+« Un individu approche, vous avez trois respirations pour vous écarter. Tout offenseur sera tué! »
 
 Une lueur froide apparut dans les yeux de Wang Lin. Bien qu'immergé dans son énergie originelle, son Sens Divin était déployé. Peu après que le vieil homme à la stature montagneuse l'eut repéré, Wang Lin l'avait également repéré.

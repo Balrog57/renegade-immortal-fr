@@ -84,7 +84,7 @@ Tout en réfléchissant, Wang Lin s'assit en position de lotus et prit une profo
 
 « Bien que le bouclier de lumière azur ait été brisé en deux, il n'a pas disparu. Le coup salvateur d'un Dieu Ancien à 8 étoiles est stocké à l'intérieur. Bien que j'ignore sa puissance, elle ne peut être faible! » Tandis qu'il réfléchissait, son œil droit brilla d'une lueur bleue. L'ombre vague du bouclier de lumière azur apparut.
 
-Cependant, ce bouclier était scindé en deux et fusionnait rapidement avec l'œil de Wang Lin. Même s'il ne s'était pas fusionné, le sort du Dieu Ancien à 8 étoiles stocké à l'intérieur pouvait encore être utilisé. La condition était que… l'énergie du Dieu Ancien soit suffisante!
+Cependant, ce bouclier était scindé en deux et se ressoudait rapidement dans l'œil de Wang Lin. Même s'il ne s'était pas fusionné, le sort du Dieu Ancien à 8 étoiles stocké à l'intérieur pouvait encore être utilisé. La condition était que… l'énergie du Dieu Ancien soit suffisante!
 
 Wang Lin avait déjà envisagé une méthode pour obtenir la puissance d'un Dieu Ancien: diviser son avatar et son corps original, afin de laisser ce dernier s'installer quelque part pour absorber progressivement l'énergie du Dieu Ancien avec le bouclier de lumière azur.
 

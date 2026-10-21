@@ -10,11 +10,11 @@ L'Ancien Ouyang lança un regard méprisant à Wang Lin. Il déclara: « Tu n'es
 
 Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa technique d'attraction de toutes ses forces et tendit brutalement la main pour saisir.
 
-Le visage de l'Ancien Ouyang changea instantanément. « Junior, oses-tu! » Sur ces mots, il agita sa manche et une épée volante à l'aspect antique apparut. Dès qu'elle fut libérée, le vent commença à tourbillonner, formant une lame gigantesque dans les airs qui s'abattit avec puissance.
+Le visage de l'Ancien Ouyang changea instantanément. « Junior, oses-tu! » Sur ces mots, il agita sa manche et une épée volante à l'aspect antique apparut. Dès qu'elle fut libérée, elle grandit face au vent, devenant une lame gigantesque dans les airs qui s'abattit avec puissance.
 
 À l'instant où l'épée apparut, une pointe d'intention meurtrière brilla dans les yeux de l'Ancien Ouyang. Ce disciple était devenu bien trop puissant et représenterait, à l'avenir, une menace pour sa Secte Xuan Dao. Il voulait saisir cette occasion pour détruire sa culture.
 
-Le visage de Huang Long s'assombrit. Réalisant les intentions d'Ouyang, il sortit immédiatement son épée. Wang Lin laissa échapper un rire; sa technique d'attraction atteignit son paroxysme et la main invisible qu'il avait créée devint tangible.
+Le visage de Huang Long s'assombrit. Réalisant les intentions d'Ouyang, il sortit immédiatement son épée Zi Yue. Wang Lin laissa échapper un rire; sa technique d'attraction atteignit son paroxysme et la main invisible qu'il avait créée devint tangible.
 
 Deux mains gigantesques émettant une lumière blanche apparurent. Des tourbillons de lumière s'enroulèrent autour d'elles, dispersant les nuages environnants.
 
@@ -30,7 +30,7 @@ Tout cela se produisit en un éclair. Huang Long poussa un rugissement de colèr
 
 Profitant de cet instant, Wang Lin se précipita vers le mille-pattes de mille pieds. Sa technique d'attraction maintenant la créature, celle-ci ne pouvait s'échapper malgré ses efforts désespérés. Wang Lin posa sa main droite sur la tête du mille-pattes et déchaîna son énergie spirituelle. La créature poussa un hurlement de douleur et recracha un liquide noir.
 
-L'action ne dura que quelques secondes, si brèves que personne n'eut le temps de réagir. Les anciens des deux sectes se firent face, de chaque côté du mille-pattes, prêts au combat. Lorsque Dao Xu vit le mille-pattes cracher son poison, craignant que Wang Lin n'ait rien pour le recueillir, il agita sa manche et lança une fiole de jade blanc en criant: « Neveu-disciple Wang Lin, utilise ceci pour contenir le poison! »
+L'action ne dura que quelques secondes, si brèves que personne n'eut le temps de réagir. Les anciens des deux sectes se battaient déjà, de chaque côté du mille-pattes. Lorsque Dao Xu vit le mille-pattes cracher son poison, craignant que Wang Lin n'ait rien pour le recueillir, il agita sa manche et lança une fiole de jade blanc en criant: « Neveu-disciple Wang Lin, utilise ceci pour contenir le poison! »
 
 Aussitôt, il saisit son épée volante et engagea le combat contre l'Ancien de la Secte Xuan Dao qui avait lancé les feux spectraux.
 

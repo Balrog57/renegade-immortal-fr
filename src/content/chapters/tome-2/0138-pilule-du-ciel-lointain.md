@@ -8,7 +8,7 @@ slug: pilule-du-ciel-lointain
 ---
 Un vieil homme extrêmement maigre sortit de la section de la Secte Luo He. Il portait une robe noire et son visage était profondément ridé. Ses yeux étaient ternes et il semblait sans aucune énergie. Il releva légèrement les paupières et déclara d'une voix rauque: « Celui qui tuera le plus d'ennemis chaque mois recevra une Pilule du Ciel Lointain. »
 
-Dès que la Pilule du Ciel Lointain fut mentionnée, Wang Lin remarqua que tous les cultivateurs environnants devinrent tendus, leur respiration se faisant saccadée.
+Dès que la Pilule du Ciel Lointain fut mentionnée, Wang Lin remarqua que presque tous les cultivateurs environnants devinrent tendus, leur respiration se faisant saccadée.
 
 Il existait quelques informations sur cette pilule dans la mémoire de Ma Liang. Il n'y avait pas plus de trente exemplaires de ces pilules à Huo Fen; elles pouvaient être considérées comme l'une des ressources les plus prestigieuses de la région, car elles augmentaient les chances de réussir la Formation du Noyau. Si un cultivateur au stade de la Formation du Noyau en consommait une, il atteindrait directement le stade stable lors de sa prochaine percée. Plusieurs de ses ingrédients principaux avaient depuis longtemps disparu; les trente pilules restantes étaient précieusement conservées depuis plusieurs milliers d'années.
 

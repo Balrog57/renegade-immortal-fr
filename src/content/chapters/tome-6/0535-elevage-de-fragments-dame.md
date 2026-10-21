@@ -33,7 +33,7 @@ La longue file atteignit rapidement l'intérieur de la vallée. Aussitôt, toute
 
 La tête de chaque étranger fut enfoncée dans un seau pour les forcer à boire une partie de ce breuvage verdâtre. Après l'ingestion, des expressions de confusion totale apparurent sur leurs visages. Des villageois les emmenèrent alors pour leur chuchoter quelques mots à l'oreille.
 
-Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris. Les souvenirs de Lou Yun lui avaient appris que l'ancêtre de celui-ci affirmait que le seul moyen pour ces petites tribus d'accroître leurs effectifs était de forcer les captifs à boire une soupe d'effacement de mémoire. L'effet de ce breuvage consistait à faire oublier tout passé, avant qu'on ne lui murmure son nouveau nom et sa situation actuelle au sein de la tribu. À son réveil, l'individu devenait un nouveau membre du clan.
+Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris. Les souvenirs de Lou Yun lui avaient appris que l'ancêtre de celui-ci affirmait que le seul moyen pour ces petites tribus d'accroître leurs effectifs était de forcer les captifs à boire une soupe de Séparation des Démons. L'effet de ce breuvage consistait à faire oublier tout passé, avant qu'on ne lui murmure son nouveau nom et sa situation actuelle au sein de la tribu. À son réveil, l'individu devenait un nouveau membre du clan.
 
 Aux yeux de Wang Lin, cette soupe n'avait rien d'extraordinaire; elle était bien inférieure à un sort d'enchantement. Si une personne possédant une culture en buvait, cela n'aurait pratiquement aucun effet.
 

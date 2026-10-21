@@ -8,7 +8,7 @@ slug: changement-choquant
 ---
 Wang Lin s'approcha lentement de l'endroit où il se trouvait. Il remarqua immédiatement le retour de Petit Blanc et vit le fruit qu'il transportait.
 
-« Quel bon tigre démoniaque, te sacrifiant ainsi pour ton maître! » Wang Lin regarda Petit Blanc.
+« Quel bon tigre démoniaque, protégeant si bien ton maître! » Wang Lin regarda Petit Blanc.
 
 La peur apparut dans les yeux de Petit Blanc, mais il resta pourtant devant Zhou Ru en grognant. Grâce à son niveau de culture, il avait compris depuis plusieurs années qu'une Âme Naissante vivait dans le corps de Zhou Ru, source même de la terreur qui l'avait autrefois saisi.
 
@@ -36,7 +36,7 @@ La brume se mua en une plante très étrange, d'un noir absolu, aux feuilles imm
 
 À cet instant précis, un immense filet doré apparut dans le ciel. Sur ce filet, les illusions de cinq épées volantes étincelaient.
 
-Dès son apparition, le filet doré recouvrit la plante. Après une série de grondements sourds, elle parvint à la supprimer de force.
+Dès son apparition, le filet doré recouvrit la plante. Après une série de grondements sourds, il parvint à la plaquer de force.
 
 « Mon clan s'est caché pendant des dizaines de milliers d'années, mais aujourd'hui, personne n'empêchera mon clan de reprendre la planète Fu Wen! » tonna une voix antique émanant des profondeurs du Cimetière des Immortels, tandis qu'un vieil homme à l'apparence très ancienne sortait du gouffre.
 
@@ -82,7 +82,7 @@ Un son qui fit vibrer la planète entière retentit alors que le filet doré ét
 
 La plante gigantesque qui était contenue par le filet s'élança immédiatement, tel un pilier soutenant les cieux.
 
-Simultanément, les innombrables tatouages entourant la zone se brisèrent et disparurent.
+Simultanément, les innombrables tatouages entourant la zone se dispersèrent et disparurent.
 
 Le corps du vieil homme fusionna lentement avec la plante géante avant de disparaître.
 
@@ -136,7 +136,7 @@ Cependant, la vitesse de croissance de l'Âme Naissante de Li Muwan avait ralent
 
 Wang Lin savait que cela était dû au fait que Li Muwan avait recouvré une partie de sa conscience. Elle ne voulait pas sacrifier un enfant pour permettre sa propre renaissance.
 
-C'était son choix, et il n'appartenait pas à Wang Lin de décider. Il utilisa son énergie spirituelle pour contrer ce phénomène, permettant à son Âme Naissante de continuer à croître au sein de Zhou Ru.
+C'était son choix, mais ce n'était pas le choix de Wang Lin. Il utilisa son énergie spirituelle pour contrer ce phénomène, permettant à son Âme Naissante de continuer à croître au sein de Zhou Ru.
 
 « Wan Er, je sais que tu ne veux pas dévorer cet enfant. Crois-moi, je ferai les choses correctement et je ne lui ferai aucun mal. Une fois que tu seras éveillée, nous pourrons la renvoyer à ses parents. Ce que je désire, c'est ton Âme Naissante, pas le corps de cet enfant... »
 

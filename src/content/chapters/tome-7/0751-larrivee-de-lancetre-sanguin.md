@@ -84,7 +84,7 @@ Le retrait de Wang Lin força Li Yuan à tourner brusquement la tête vers lui. 
 
 Ce ressentiment et cette lumière agissaient comme des nutriments, donnant à la statue la force de se libérer. Cependant, un sceau empêchait la statue de se libérer, et ce sceau tendait à la faire s'effondrer avec elle.
 
-Wang Lin recula encore plus vite, parcourant trois cents mètres en un instant. Le regard de Li Yuan devint glacial et sa culture explosa avec une rage folle. Bien qu'il fût encore au sommet du stade avancé de l'Ascendant, une aura terrifiante émanait de lui.
+Wang Lin recula encore plus vite, parcourant trois cent trente mètres en un instant. Le regard de Li Yuan devint glacial et sa culture explosa avec une rage folle. Bien qu'il fût encore au sommet du stade avancé de l'Ascendant, une aura terrifiante émanait de lui.
 
 Sa charge fut semblable à une téléportation, lui permettant de rattraper directement Wang Lin, alors il hurla: « Confrère cultivateur Xu, pourquoi fuyez-vous ainsi!? »
 

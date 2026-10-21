@@ -12,7 +12,7 @@ Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant
 
 Il traversait ses propres difficultés; il devait agir ainsi pour la sécurité de Li Qianmei!
 
-Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue à la Secte Divine avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante de la Secte Divine: le Grand Ancien, le Shui Daozi!
+Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue à la Secte Divine avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante de la Secte Divine: le Grand Ancien, Shui Daozi!
 
 Dès son entrée à la Secte Divine, elle avait été placée dans une salle de culture isolée. La Secte Divine fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir!
 

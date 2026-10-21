@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 719 - Heaven Defying Bead Absorption and Greeds Treasure
 slug: absorption-de-la-perle-defiant-le-ciel-et-tresor-de-lavarice
 ---
-Un corps nu déchira une ouverture depuis l'intérieur du cocon et en sortit lentement. Un tonnerre impétueux jaillit de la brèche. Ce tonnerre ne provenait pas du cocon, mais du corps lui-même.
+Un corps nu déchira une ouverture depuis l'intérieur du cocon et en sortit lentement. Un tonnerre impétueux jaillit de la brèche. Ce tonnerre ne provenait pas de son âme originelle, mais du corps lui-même.
 
 C'était Wang Lin!
 

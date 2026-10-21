@@ -10,7 +10,7 @@ La main géante marqua une pause, cessa de se dissiper et réapparut dans le vid
 
 Cependant, juste au moment où il allait percer la main une fois de plus, celle-ci se retourna soudainement et saisit le trident. Un bruit sourd retentit, suivi de craquements stridents provenant de l'arme. Une lumière argentée s'échappa du trident et fut aussitôt absorbée par la main géante.
 
-Cela ne dura qu'un instant avant que la main ne relâche sa prise. Elle ne se soucia plus du trident et fonça droit sur l'Omniscient. Ce dernier était sur le point de battre en retraite lorsque la main géante s'abattit sur le vide!
+Cela ne dura qu'un instant avant que la main ne relâche sa prise. Elle ne se soucia plus du trident et fonça droit sur l'Omniscient. Ce dernier était sur le point de battre en retraite lorsque la main géante se referma sur l'Omniscient!
 
 Sous cette emprise, le corps de l'Omniscient trembla comme si une main invisible l'avait saisi.
 

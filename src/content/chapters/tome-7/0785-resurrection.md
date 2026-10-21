@@ -20,7 +20,7 @@ Il y a une demi-lune, lorsque Wang Lin était sorti, Li Yuan était apparu immé
 
 « Frère Li, j'ai terminé mes affaires dans le Royaume Céleste. Le mieux est de partir rapidement! » Wang Lin toucha son sac et en sortit un fourneau de tonnerre. Ayant tué tant de personnes, il lui était facile d'en récupérer un.
 
-Li Yuan, qui ne s'attendait pas à partir si tôt, demanda: « Mon frère n'est-il pas intéressé par les fluctuations d'énergie spirituelle céleste du fragment? »
+Li Yuan, qui ne s'attendait pas à partir si tôt, demanda: « Mon frère ne veut-il pas aller voir le fragment où se produisent les fluctuations d'énergie spirituelle céleste? »
 
 Wang Lin secoua la tête. Il scruta le vide et dit: « Je n'y vais pas! » Le souvenir du vortex aux cinq couleurs dans le passage fit naître un mauvais pressentiment dans son cœur.
 

@@ -112,7 +112,7 @@ Seul le jeune au motif de croissant lunaire réprima le choc en voyant le dos de
 
 Les trois chargèrent Wang Lin simultanément, portés par une puissante intention meurtrière. Ils formèrent tous des sceaux et frappèrent impitoyablement leur front avec la paume de leur main.
 
-Trois craquements retentirent et leurs corps subirent des transformations choquantes. Le jeune au motif d'éclair grandit pour atteindre des centaines de pieds de large, couvert d'éclairs.
+Trois craquements retentirent et leurs corps subirent des transformations choquantes. Le jeune au motif d'éclair grandit pour atteindre des centaines de pieds de haut, couvert d'éclairs.
 
 Le jeune au motif de feu se vit soudainement pousser une paire d'ailes enflammées et une corne unique apparut sur son front. Des flammes enveloppèrent tout son corps. Son expression trahissait la douleur, mais restait féroce.
 

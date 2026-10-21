@@ -32,7 +32,7 @@ Le visage de Wang Lin s'assombrit. Il ouvrit immédiatement la porte de la grott
 
 Il vit la ligne rouge flotter dans les airs, traversant la brume au-dessus de la Mer des Démons. Après avoir réfléchi un instant, il pointa son front et fit sortir le second démon.
 
-Une fois apparu, sur ordre de Wang Lin, le démon devint invisible. À travers les yeux de Wang Lin, on pouvait voir sa silhouette s'élancer dans la brume.
+Une fois apparu, sans attendre les ordres de Wang Lin, le démon devint invisible. À travers les yeux de Wang Lin, on pouvait voir sa silhouette s'élancer dans la brume.
 
 Le visage de Wang Lin restait sombre. Il observa les environs et vit de nombreuses personnes circuler dans la ville de Qi Lin, mais aucune d'elles ne remarquait l'existence de cette ligne rouge.
 
@@ -274,7 +274,7 @@ Simultanément, un autre mur de chaînes se forma derrière le tigre noir. Les d
 
 Le tigre continua de rugir à l'intérieur, sans aucun effet apparent.
 
-Le visage de l'homme d'âge moyen changea pour la première fois. Il devint sérieux et demanda: « De quel disciple es-tu? »
+Le visage de l'homme d'âge moyen changea pour la première fois. Il devint sérieux et demanda: « De qui es-tu le disciple? »
 
 À ses yeux, un tel trésor ne pouvait appartenir qu'à quelqu'un doté de puissants antécédents; un simple cultivateur de la Formation du Noyau ne pouvait posséder une telle chose. Une pointe d'avidité s'insinua dans son cœur.
 
@@ -298,7 +298,7 @@ L'homme d'âge moyen regarda mélancoliquement la direction de la fuite. Il voul
 
 Cela étouffa son envie de le traquer. Et il y avait ce sac marqué « Lan », signe indéniable d'un lien avec l'Empereur Antique. La plupart des gens ignoreraient ce détail, mais lui l'avait vu par accident lors d'une visite de l'Empereur au Palais Enchanté du Roi Poison.
 
-Bien que l'Empereur Antique fût disparu depuis deux cents ans, sa réputation et la sienne demeuraient; il renonça donc totalement à poursuivre Wang Lin.
+Bien que l'Empereur Antique fût disparu depuis deux cents ans, sa réputation demeurait et ses disciples étaient nombreux; il renonça donc totalement à poursuivre Wang Lin.
 
 Une fois loin, Wang Lin rangea le drapeau. Ce combat avait consommé énormément d'énergie spirituelle et son noyau avait encore rétréci. Selon ses calculs, il devait impérativement absorber plus de puissance spirituelle, sous peine de mourir.
 

@@ -124,7 +124,7 @@ Le Seigneur Démon des Six Désirs jeta un regard glacial au jeune homme et dema
 
 Le visage de l'Empereur Antique restait sombre; observant les restrictions du démon, il ne dit mot.
 
-Le Seigneur Démon des Six Désirs ricana intérieurement, mais son expression resta imperturbable. Il rit: « Frère Empereur Antique, nous ne sommes que deux ici. Avec notre puissance, si nous devions nous battre, cela déclencherait inévitablement de bien plus grandes restrictions. »
+Le Seigneur Démon des Six Désirs ricana intérieurement, mais son expression resta imperturbable. Il rit: « Frère Empereur Antique, nous ne sommes que deux ici. Avec notre puissance, si nous devions nous battre, cela déclencherait inévitablement de bien plus grandes restrictions. Pour le passé, je m'excuse, mais frère Gu sait qu'en tant que démons, nos méthodes sont plus extrêmes. »
 
 L'Empereur Antique garda le silence avant de dire: « D'abord, lève les restrictions et laisse-moi passer. »
 
@@ -132,7 +132,7 @@ Le Seigneur Démon des Six Désirs hésita un instant en voyant les quatre drape
 
 L'Empereur Antique jeta un coup d'œil rapide au tourbillon et ricana: « Cette restriction de tunnel ne semble pas complète. Si je déclenche les pièges environnants, le passage se refermera-t-il définitivement? »
 
-Le visage du Seigneur Démon des Six Désirs ne trahit aucune émotion. Il hocha la tête en souriant et d'un geste de la main, il scinda les restrictions en deux. Puisqu'il les avait lui-même brisées, il était naturellement capable de les rétablir.
+Le visage du Seigneur Démon des Six Désirs ne trahit aucune émotion. Il hocha la tête en souriant et d'un geste de la main, il scinda les restrictions en deux. Puisqu'il l'avait déjà brisée, il pouvait naturellement la lever de nouveau d'un geste aisé.
 
 L'Empereur Antique avança sans mot dire, ses yeux ne quittant jamais le démon. Après avoir parcouru plus de la moitié du chemin, l'Empereur Antique fit un mouvement brusque. Les quatre drapeaux blancs créèrent un tunnel et il s'y engouffra rapidement.
 
@@ -220,7 +220,7 @@ L'Empereur Antique, voyant également la lueur noire, devint extrêmement méfia
 
 Les deux lancèrent leur assaut presque simultanément vers le sommet.
 
-Le Seigneur Démon des Six Désirs était très rapide grâce aux cinq pierres formant un écran protecteur. Toutefois, quelques attaques réussirent à percer la barrière et l'atteignirent, le laissant dans un état lamentable après avoir parcouru plusieurs centaines de mètres.
+Le Seigneur Démon des Six Désirs était très rapide grâce aux cinq pierres formant un écran protecteur. Toutefois, quelques attaques réussirent à percer la barrière et l'atteignirent, le laissant dans un état lamentable après avoir parcouru plusieurs dizaines de mètres.
 
 L'Empereur Antique vivait une situation similaire, mais chaque fois qu'une attaque frappait ses drapeaux, son visage se décomposait davantage.
 

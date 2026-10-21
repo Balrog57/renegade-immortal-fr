@@ -16,7 +16,7 @@ Une statue humaine de pierre trônait sur ce continent rouge sombre. À cet inst
 
 Une étrange aura se propagea lentement de cet être, mais, curieusement, elle n'attira pas l'attention des bêtes-moustiques. C'était comme si cette statue de pierre n'existait pas à leurs yeux.
 
-« Comment ce Shui Daozi a-t-il pu tuer un pion pour lequel j'ai déployé tant d'efforts? » Les yeux de l'homme de pierre brillèrent et il laissa échapper un reniflement glacial.
+« Comment ce Shui Daozi pourrait-il tuer ainsi un pion pour lequel j'ai déployé tant d'efforts ? » Les yeux de l'homme de pierre brillèrent et il laissa échapper un reniflement glacial.
 
 « Cependant, en empruntant son pouvoir, je pourrai voir si cet enfant est véritablement la réincarnation de ce vieux Seigneur du Royaume Scellé, ou si la Perle Défiant le Ciel est réellement entre ses mains! »
 

@@ -30,7 +30,7 @@ Il fronça légèrement les sourcils, puis s'élança dans les airs pour pénét
 
 Sous l'influence du Sens Divin de Wang Lin, les actes des deux jeunes filles étaient parfaitement visibles. L'une d'elles, haletante, murmura: « Sœur Tong, ce Cheng Xian... ah! » Au même instant, l'autre femme bougea, touchant un point sensible.
 
-Après un long moment, une voix langoureuse et tendre s'éleva de derrière le paravent: « Ling Er, es-tu encore préoccupée par ce Cheng Xian? Certes, je l'ai trompé, mais c'était uniquement parce qu'il te manquait des noyaux pour ta recette de pilule. Je n'avais d'yeux que pour son singe spirituel. »
+Après un long moment, une voix langoureuse et tendre s'éleva de derrière le paravent: « Ling Er, es-tu encore préoccupée par ce Cheng Xian? Certes, je l'ai trompé, mais c'était uniquement parce qu'il te manquait des noyaux pour ta recette de pilule. Je n'avais jeté mon dévolu que sur son singe spirituel. »
 
 « Mais... et qu'en est-il de Lu Song? » La jeune fille appelée Ling Er était Cheng Ling.
 

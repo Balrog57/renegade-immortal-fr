@@ -56,7 +56,7 @@ Ce jade était cristallin; le soleil, la lune et les étoiles s'y dessinaient et
 
 Même en l'examinant de près, on ne ressentait rien d'anormal. Ce n'était qu'en le regardant que l'on éprouvait ce sentiment de choc!
 
-«... Après quinze minutes, si vous n'envoyez pas les cristaux d'origine, tous les membres de votre Secte de l'Origine seront instantanément anéantis! » Le vieil homme était assis là comme s'il se parlait à lui-même. Ces paroles furent absorbées par le jade et transmises à la Secte de l'Origine, située à des dizaines de milliers de kilomètres de là!
+«... Après quinze minutes, si vous n'envoyez pas les cristaux d'origine, tous les membres de votre Secte de l'Origine seront instantanément anéantis! » Le vieil homme était assis là comme s'il se parlait à lui-même. Ces paroles furent absorbées par le jade et transmises à la Secte de l'Origine, située à des centaines de milliers de kilomètres de là!
 
 « Cependant, ce vieil homme sait que votre Secte de l'Origine ne possède rien de précieux. Peu importe, vous n'avez qu'à sortir tous vos sacs et les objets de vos espaces de stockage, et ce vieil homme fera comme si de rien n'était. Non seulement cela dissipera le danger, mais j'enverrai également une lettre au maître de la Secte Éternelle... Ce vieil homme fait rarement preuve d'une telle compassion, alors réfléchissez bien! » En parlant, le vieil homme secoua la tête. Il maîtrisait parfaitement le ton de ses paroles.
 

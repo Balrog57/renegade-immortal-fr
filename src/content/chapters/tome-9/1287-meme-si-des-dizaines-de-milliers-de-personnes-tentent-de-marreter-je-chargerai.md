@@ -98,7 +98,7 @@ Il sentait que l'homme devant lui n'était pas un simple cultivateur, mais une b
 
 L'ouverture de la formation de transfert allait prendre du temps. À cet instant, tous les anciens s'assirent pour accélérer le processus, car le dieu de la boucherie les observait froidement d'en haut.
 
-Wang Lin n'avait pas le temps d'attendre. Même si le maître de la Secte de l'Âme Marine l'ouvrait personnellement, cela prendrait une demi-heure. Il ne pouvait attendre aussi longtemps.
+Wang Lin n'avait pas le temps d'attendre. Même si le maître de la Secte de l'Âme Marine l'ouvrait personnellement, cela prendrait une heure. Il ne pouvait attendre aussi longtemps.
 
 Alors que la formation s'activait lentement, Wang Lin fit un pas en avant et pressa sa main droite vers le sol!
 

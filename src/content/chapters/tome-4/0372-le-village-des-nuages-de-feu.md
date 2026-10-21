@@ -38,7 +38,7 @@ Un cri retentit de l'avant: « Quatrième Ma, que fais-tu?! »
 
 L'homme balafré chargea, souleva Wang Lin et sourit: « Patron, regardez! »
 
-Wang Lin avait les yeux clos. Il bouillonnait de rage; que quelques simples arts martiaux du monde mortel puissent l'humilier ainsi était insupportable.
+Wang Lin avait les yeux clos. Il bouillonnait de rage; que quelques simples pratiquants des arts martiaux du monde mortel puissent l'humilier ainsi était insupportable.
 
 Un homme colossal siégeait sur le cheval de tête. Il observa Wang Lin et hocha la tête: « Très bien, emmenez-le. »
 

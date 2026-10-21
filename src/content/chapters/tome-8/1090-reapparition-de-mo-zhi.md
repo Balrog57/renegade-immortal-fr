@@ -96,7 +96,7 @@ Ses cheveux étaient déjà blancs et il arborait déjà une armure cramoisie. A
 
 Wang Lin ressentit clairement un sentiment d'ancienneté émanant de cette cape, comme si elle existait depuis l'éternité.
 
-« La deuxième chose est l'insigne des générations d'Empereurs Divins de l'Oiseau Vermillon! Le Jeton Saint de l'Oiseau Vermillon! » Le vieil Empereur Divin agita la main et le second rayon de lumière vola vers Wang Lin.
+« La deuxième chose est l'insigne des générations d'Empereurs Divins de l'Oiseau Vermillon! Le Saint-Esprit de l'Oiseau Vermillon! » Le vieil Empereur Divin agita la main et le second rayon de lumière vola vers Wang Lin.
 
 Wang Lin le saisit, et la lumière se transforma en un jeton en forme de flamme. Il n'avait que la taille de sa paume, mais en le tenant, Wang Lin pouvait ressentir la puissante énergie de feu qu'il contenait ainsi qu'une aura ancestrale.
 

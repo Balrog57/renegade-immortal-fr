@@ -68,7 +68,7 @@ Après avoir saisi la rune, Miao Yin se détendit et lança la pilule qu'il tena
 
 Grande Désolation agita sa manche pour récupérer la pilule. Il sourit, jeta un regard à Wang Lin, puis s'envola au loin. Au moment même où il pénétrait dans une faille spatiale, Wang Lin jaillit soudainement dans les airs.
 
-Dès son envol, le tatouage de tonnerre, rongé de flammes, apparut devant lui et il chargea le Maître Dao Miao Yin. Ce dernier laissa échapper un reniflement froid, le regard empreint de cruauté. La première règle face à un cultivateur du Feu Éthéré est de verrouiller ses émotions.
+Dès son envol, le tatouage de tonnerre, rongé de flammes, apparut devant lui et il chargea le Maître Dao Miao Yin. Ce dernier laissa échapper un reniflement froid, le regard empreint de cruauté. Face à ce cultivateur du Feu Éthéré, il verrouilla d'abord toutes ses émotions.
 
 Sa main droite traça un sceau et il agita brusquement le bras. Des Flammes Joss apparurent, accompagnées de l'illusion d'une femme magnifique. Celle-ci, brandissant une épée de jade, frappa Wang Lin.
 

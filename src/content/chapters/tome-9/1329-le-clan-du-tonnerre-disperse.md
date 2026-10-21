@@ -40,7 +40,7 @@ Au cours des 200 années qui suivirent cet incident, sa culture resta stagnante.
 
 Il était récemment tombé sous la domination d'un cultivateur de l'Âme Naissante, et ce cultivateur était précisément celui qui lui avait volé sa grotte des années auparavant. À l'intérieur de cette grotte se trouvait un Arbre aux Fruits de Tonnerre, laissé par les parents de Yu Fei.
 
-Le cultivateur de l'Âme Naissante avait permis à Yu Fei de faire pousser ces fruits. Les Fruits de Tonnerre pouvaient rendre la marque du clan encore plus puissante et augmenter leur longévité.
+Le cultivateur de l'Âme Naissante avait forcé Yu Fei à faire pousser ces fruits pour lui. Les Fruits de Tonnerre pouvaient rendre la marque du clan encore plus puissante et augmenter leur longévité.
 
 Cependant, pour que le fruit mûrisse, un cultivateur au moins au stade de la Formation du Noyau devait le nourrir avec la puissance du tonnerre.
 
@@ -64,7 +64,7 @@ Cependant, la marque de Wang Lin avait été forgée par sa propre volonté et p
 
 « Je dois étudier le Fruit de Tonnerre... Quant au Clan du Tonnerre Dispersé, le niveau de Yu Fei est trop bas pour qu'il en sache beaucoup. Peut-être que ce cultivateur de l'Âme Naissante en saura davantage. » Wang Lin réfléchit tout en se dirigeant vers l'emplacement de la grotte mémorisée.
 
-Cette zone de culture était immense. Wang Lin ne se téléporta pas, mais survola le sol. Son sens divin se déploya discrètement pour observer les environs.
+Cette planète de culture était immense. Wang Lin ne se téléporta pas, mais survola le sol. Son sens divin se déploya discrètement pour observer les environs.
 
 Peu après, trois rayons de lumière apparurent devant lui. Il y avait un homme et deux femmes. L'homme, vêtu de blanc, était très beau, et les deux femmes qui l'accompagnaient étaient d'une grande beauté.
 
@@ -104,7 +104,7 @@ Le visage des deux femmes était d'une pâleur mortelle, et leur niveau de cultu
 
 Quant au jeune homme en blanc, son noyau vola en éclats. Il regarda l'endroit où Wang Lin avait disparu avec terreur et choc.
 
-« Toi... Toi... »
+« Il... Il... »
 
 Les trois restèrent là, incapables de prononcer un mot, pétrifiés par la peur qui persistait dans leurs cœurs. Ils n'osaient même plus nourrir de pensée de ressentiment. Ils éprouvaient plutôt le sentiment d'avoir survécu à une catastrophe.
 

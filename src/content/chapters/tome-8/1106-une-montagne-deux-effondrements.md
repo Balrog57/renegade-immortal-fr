@@ -80,9 +80,9 @@ Des vagues d'énergie originelle jaillirent de son âme, formant une force viole
 
 « Arrête! » La voix de Wang Lin était glaciale, et au moment où il parla, l'âme originelle du vieil homme marqua un temps d'arrêt.
 
-Le niveau de culture du vieil homme étant supérieur à celui de Wang Lin, ce dernier activa son énergie originelle de feu pour compenser le rebond du sort « Arrête ». D'un geste de la main droite et d'une simple pensée, le Fouet du Karma apparut tel un dragon et s'élança vers l'Ancien. Un claquement sec retentit, et l'aura destructrice émanant de l'âme originelle fut pulvérisée par le Fouet du Karma.
+Le niveau de culture du vieil homme étant supérieur à celui de Wang Lin, ce dernier activa son énergie originelle de feu pour compenser le rebond du sort « Arrête ». D'un geste de la main droite et d'une simple pensée, le Fouet Kunji apparut tel un dragon et s'élança vers l'Ancien. Un claquement sec retentit, et l'aura destructrice émanant de l'âme originelle fut pulvérisée par le Fouet Kunji.
 
-Alors que l'écho du claquement résonnait, l'âme originelle de l'Ancien laissa échapper des cris de douleur. La folie qui habitait ses yeux s'était évanouie, remplacée par une terreur pure. Au moment où il tentait de reculer, le Fouet du Karma le tira violemment vers Wang Lin.
+Alors que l'écho du claquement résonnait, l'âme originelle de l'Ancien laissa échapper des cris de douleur. La folie qui habitait ses yeux s'était évanouie, remplacée par une terreur pure. Au moment où il tentait de reculer, le Fouet Kunji le tira violemment vers Wang Lin.
 
 Wang Lin saisit l'âme originelle et la projeta dans la faille menant à son espace de stockage. On aurait dit que l'âme était dévorée par le vide.
 

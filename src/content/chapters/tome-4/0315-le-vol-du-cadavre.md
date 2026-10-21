@@ -38,7 +38,7 @@ Le corps de Chi Hu fut projeté en arrière de plusieurs dizaines de mètres tan
 
 Soudain, le ciel s'obscurcit, puis une aura mystérieuse émana de certaines failles spatiales pour se rassembler devant Chi Hu. En un clin d'œil, une sphère gigantesque se forma devant lui, dégageant une pression écrasante.
 
-Les yeux de Wang Lin s'illuminèrent en observant la scène. La méthode consistant à inciter le pouvoir céleste à se mouvoir était manifestement plus puissante et complexe que celle de simplement l'emprunter.
+Les yeux de Wang Lin s'illuminèrent en observant la scène. La méthode consistant à inciter le pouvoir céleste à se mouvoir était manifestement plus ingénieuse que celle de simplement l'emprunter.
 
 Le regard du beau jeune homme s'anima. La figure illusoire se transforma en fumée et pénétra complètement en Papillon Rouge. Celle-ci laissa échapper des gémissements de douleur et de résistance alors que son corps commençait à trembler.
 

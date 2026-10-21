@@ -83,7 +83,7 @@ Une fois la statue redevenue immobile, une ouverture se forma dans le pavillon �
 
 L'expression de Wang Lin resta imperturbable alors qu'il franchissait l'ouverture. En pénétrant au premier étage du Pavillon des Écritures de l'Âme, il en découvrit le secret.
 
-C'était une salle de plusieurs dizaines de milliers de pieds de large où flottaient d'innombrables petits êtres de sept pouces. Leurs yeux étaient clos et ils demeuraient immobiles, mais chacun dégageait une puissance de culture impressionnante.
+C'était une salle de plusieurs dizaines de milliers de pieds de large où flottaient d'innombrables petits êtres de sept pieds. Leurs yeux étaient clos et ils demeuraient immobiles, mais chacun dégageait une puissance de culture impressionnante.
 
 Le regard de Wang Lin balaya ces milliers de silhouettes. Il y avait des hommes et des femmes, jeunes et vieux, mais sans exception, il ne s'agissait que de corps d'âme. Chaque âme contenait un type de sort spécifique.
 

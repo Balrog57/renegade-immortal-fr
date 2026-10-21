@@ -36,7 +36,7 @@ La plante mystérieuse réapparut. La perle défiant le ciel brilla d'une lueur 
 
 Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Enfin, toutes les plantes tatouées ont été expulsées. Ce sort du Clan des Immortels Délaissés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
 
-Il saisit la perle défiant le ciel pour l'examiner. Neuf feuilles s'étaient pleinement formées et la dixième était partiellement achevée.
+Il saisit la perle défiant le ciel pour l'examiner. Neuf feuilles s'étaient déployées, et la dernière s'était partiellement ouverte.
 
 Une trace de satisfaction apparut dans les yeux de Wang Lin. La perle toucha alors son front et disparut.
 

@@ -7,7 +7,7 @@ en: Chapter 369 - The Reason
 slug: la-raison
 ---
 
-Chi Hu arriva rapidement devant Wang Lin et lui décocha un coup de pied qui le projeta très loin. Ce coup ne fit pas seulement du mal à Wang Lin; il lui injecta même une nouvelle vague d'énergie spirituelle.
+Chi Hu arriva rapidement devant Wang Lin et lui décocha un coup de pied qui le projeta très loin. Ce coup ne contenait aucune attaque; il lui injecta même une nouvelle vague d'énergie spirituelle.
 
 « Frère Ceng, échappez-vous vers le sud-est! » La voix anxieuse de Chi Hu parvint aux oreilles de Wang Lin.
 
@@ -47,7 +47,7 @@ Il leva sa main droite et pressa son pouce. Une force puissante jaillit de son d
 
 Ce domaine exhalait un parfum, celui du thé. C'était l'idée de consacrer tous ses efforts à l'appréciation du thé, pour y comprendre la vie et faire du thé le compagnon de toute une vie.
 
-Le domaine de la Vie et de la Mort de Wang Lin apparut instantanément, mais face au domaine pleinement accompli d'un cultivateur en stade de Transformation de l'Âme, il ne pouvait rivaliser. Il cracha davantage de sang et son âme originelle fut de nouveau endommagée.
+Le domaine de la Vie et de la Mort de Wang Lin apparut instantanément, mais face au domaine pleinement accompli d'un cultivateur en stade de Transformation de l'Âme, il ne pouvait rivaliser. Il cracha une gorgée de sang et son âme originelle fut de nouveau endommagée.
 
 Le corps de Wang Lin tomba du ciel.
 

@@ -70,7 +70,7 @@ Dans le Royaume du Vide Brillant, au sein du Royaume Céleste de la Pluie, Qing 
 
 Également dans le Vide Brillant, au sein de la Secte des Cadavres, Maître Nan Yunzi se concentrait sur la fabrication d'un ensemble de drapeaux de formation pour la prochaine grande guerre. Alors qu'il travaillait, il leva brusquement les yeux. Son expression changea lorsqu'il perçut l'aura du sceau, puis il s'élança sans hésiter.
 
-Les cultivateurs du troisième niveau de la Rivière Invoquée ressentirent également cette aura et s'activèrent tous avec anxiété.
+Les puissants cultivateurs de la Rivière Invoquée ressentirent également cette aura et s'activèrent tous avec anxiété.
 
 À Luotian, un individu vêtu de vert marchait silencieusement parmi les étoiles. Il scrutait l'horizon d'un air sombre, comme en quête de quelque chose qu'il ne trouvait pas.
 

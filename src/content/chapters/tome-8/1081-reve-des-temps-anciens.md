@@ -100,7 +100,7 @@ Tout ce qu'ils connaissaient s'était évanoui; ils avaient été projetés au c
 
 Pourtant, certains refusèrent d'y croire, pensant qu'il ne s'agissait que d'une illusion. Bien que choqué, un être céleste de l'Alliance observa la scène avec dédain. Soudain, une ombre plana au-dessus de lui et le pied d'un dieu ancien s'abattit impitoyablement.
 
-Il n'eut même pas le temps d'esquiver. En un clin d'œil, le pied droit percuta la terre, qui trembla plus violemment encore. Lorsque le pied se releva, l'être céleste avait disparu, ne laissant derrière lui qu'une traînée de sang et de chair. Son âme originelle s'était également effondrée!
+Il ne tenta même pas d'esquiver. En un clin d'œil, le pied droit percuta la terre, qui trembla plus violemment encore. Lorsque le pied se releva, l'être céleste avait disparu, ne laissant derrière lui qu'une traînée de sang et de chair. Son âme originelle s'était également effondrée!
 
 Cette scène coupa le souffle à l'assistance. À cet instant, un oiseau géant de 10 000 pieds de long laissa échapper un cri féroce et survola les lieux.
 

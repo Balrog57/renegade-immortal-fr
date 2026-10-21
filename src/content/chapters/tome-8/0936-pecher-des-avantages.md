@@ -44,7 +44,7 @@ Après avoir jeté un coup d'œil, l'expression de Wang Lin devint sérieuse. L'
 
 « Il semble que le sceau ne supprime pas seulement l'énergie originelle, mais aussi l'énergie spirituelle! Tout ce qui peut être absorbé par les cultivateurs sera scellé! Cependant, j'ai le corps d'un Ancien Dieu, cela n'a donc aucune importance pour moi! » Les yeux de Wang Lin brillèrent de froideur alors qu'il suivait la trace de l'os du Serpent aux yeux de lune.
 
-« Puisque cet endroit a un tel effet sur les cultivateurs, il en sera de même pour les autres. Ainsi, plus nous resterons ici, plus mon avantage sera grand! » Wang Lin resta collé à l'os et se dirigea droit vers l'endroit où il avait trouvé l'enfant Ancien Dieu.
+« Puisque cet endroit a un tel effet sur les cultivateurs, il en sera de même pour les autres. Ainsi, plus nous resterons ici, plus mon avantage sera grand! » Wang Lin resta collé à l'os et se dirigea droit vers l'endroit où il avait senti la présence de l'enfant Ancien Dieu.
 
 Alors qu'il avançait, un grondement sourd et des tremblements violents survinrent devant lui. Dès que les secousses commencèrent, Wang Lin sentit son équilibre devenir instable, comme si le Serpent aux yeux de lune était en mouvement.
 

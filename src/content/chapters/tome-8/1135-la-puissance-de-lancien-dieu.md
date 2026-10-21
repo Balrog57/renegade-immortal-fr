@@ -30,7 +30,7 @@ Les cultivateurs au stade du Briseur du Nirvana avaient également pénétré le
 
 Le regard de l'Ancien Dieu qui se redressait devint glacial, et la deuxième étoile s'illumina. Si l'on avait regardé de plus près, on aurait pu percevoir quelque chose d'unique au cœur de cette étoile...
 
-Il observa les cultivateurs flottant devant lui et leva la main pour les chasser, comme un mortel tenterait de chasser des mouches. Sa main avait la taille de planètes de culture, et lorsqu'il la déplaça, le vent généré transportait une puissance invincible.
+Il observa les cultivateurs flottant devant lui et leva la main pour les chasser, comme un mortel tenterait de chasser des mouches. Son bras avait la taille d'une planète de culture, et lorsqu'il le déplaça, le vent généré transportait une puissance invincible.
 
 C'était comme si la distance n'avait aucune existence pour l'Ancien Dieu. Il ne lui fallut qu'un instant pour lever son bras droit et l'agiter. Pourtant, pour tous les cultivateurs, cette main occupa soudainement tout leur champ de vision.
 

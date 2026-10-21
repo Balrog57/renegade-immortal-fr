@@ -20,7 +20,7 @@ Alors que Luo Chen riait, il se retira soudainement du Sceau Tueur de Dieux. Une
 
 Après le bombardement, Wang Lin se retira également. La Lance Tueuse de Dieux qu'il tenait était désormais presque transparente. Bien qu'il paraisse calme en apparence, il était profondément choqué. Quelques instants plus tôt, Wang Lin avait clairement senti la Perle Défiant le Ciel — fusionnée avec son âme originelle et restée dormante durant une longue période — trembler brusquement.
 
-C'était un événement extrêmement rare. Lorsque la Perle Défiant le Ciel trembla, une parcelle de pouvoir mystérieux s'en échappa pour pénétrer dans le corps de Wang Lin. Cela fit briller ses yeux d'un bleu intense pendant un instant.
+C'était un événement extrêmement rare. Lorsque la Perle Défiant le Ciel trembla, une parcelle de pouvoir mystérieux s'en échappa pour pénétrer dans le corps de Wang Lin. Cela fit briller ses yeux d'un bleu à peine perceptible pendant un instant.
 
 Profitant de ce moment de retraite, le regard de Wang Lin balaya les environs. À cet instant, ce fut comme si des centaines de milliers de grondements explosaient dans son esprit. Il vit la lueur fantomatique sous le filet, une vision que même Qing Shui n'avait pu percevoir!
 

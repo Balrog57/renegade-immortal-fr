@@ -15,7 +15,7 @@ Cela faisait longtemps que Wang Lin n'avait pas ressenti la sensation de dévore
 
 Xu Liguo et le second démon suivaient Wang Lin, alarmés et terrifiés à chaque instant. Ils n'osaient même pas laisser échapper un souffle en voyant des ancêtres, bien plus puissants qu'eux, se faire dévorer sans pouvoir offrir la moindre résistance. Ils se sentaient d'une impuissance totale.
 
-Bien que l'âme immense de Wang Lin ait été compressée autrefois pour obtenir une infime parcelle de Sens Divin du Royaume Ji, sa capacité à dévorer les âmes était restée intacte; par conséquent, il était devenu un maître des âmes.
+Bien que le vaste Sens Divin de Wang Lin ait été compressé autrefois pour obtenir une infime parcelle de Sens Divin du Royaume Ji, sa capacité à dévorer les âmes était restée intacte; par conséquent, il était devenu un maître des âmes.
 
 Tout en marchant, Wang Lin déployait son Sens Divin dans toutes les directions. Puisque ce royaume ressemblait au Nirvana et contenait des âmes errantes, il devait nécessairement contenir des dévoreurs d'âmes. Wang Lin ne savait pas si les dévoreurs d'âmes pouvaient se dévorer entre eux. À moins que ce ne soit l'ultime recours, ils n'attaquaient généralement pas leurs semblables, préférant résoudre leurs problèmes de manière symbiotique.
 
@@ -105,6 +105,6 @@ La troisième épreuve de la Terre des Dieux Anciens était, en réalité, un pi
 
 Si Wang Lin se sentait si à l'aise, c'était grâce à son expérience et aux rencontres singulières vécues sur le champ de bataille étranger. Grâce à cela, il agissait comme le maître des lieux. Si son corps n'avait pas été détruit par Teng Huayuan, si Situ Nan n'avait pas plongé son Âme Naissante dans un sommeil profond pour protéger l'âme de Wang Lin, s'il n'était pas entré accidentellement dans la fissure du champ de bataille étranger, et s'il n'avait pas commencé à dévorer les âmes jusqu'à devenir un dévoreur d'âmes... si l'un de ces événements avait été absent, Wang Lin n'aurait jamais atteint ce statut de roi.
 
-Pour les âmes errantes que tous redoutaient, Wang Lin n'était que de la nourriture. Mais sans cette nourriture, aux yeux de l'Empereur Antique, il n'était qu'un junior de la Formation du Noyau. Si les circonstances n'avaient pas limité les pouvoirs de chacun, ils n'auraient eu qu'à lever un doigt pour l'anéantir.
+Les âmes errantes que tous redoutaient n'étaient que de la nourriture aux yeux de Wang Lin. Mais sans cette nourriture, aux yeux de l'Empereur Antique, il n'était qu'un junior de la Formation du Noyau. Si les circonstances n'avaient pas limité les pouvoirs de chacun, ils n'auraient eu qu'à lever un doigt pour l'anéantir.
 
 Mais dans ce monde, l'imprévisible règne: une fourmi peut tuer un éléphant sous certaines conditions, et même la paille la plus légère peut finir par écraser un chameau. Certaines choses n'ont aucune explication logique. On ne peut que constater que les choses changent et que rien n'est éternel. Tout comme le mystérieux Bossu Meng, censé être mort lors de la première épreuve, qui surgit soudain du tourbillon de la troisième; ou comme la véritable cause de la mort de l'Ancien Dieu Tu Si, pourtant si puissant, tout cela restait inexplicable. À partir de la troisième épreuve de la Terre des Dieux Anciens, les choses devenaient de plus en plus confuses et étranges.

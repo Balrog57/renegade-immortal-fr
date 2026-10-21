@@ -28,7 +28,7 @@ C'était un squelette!
 
 « Utiliser trois pierres spirituelles de qualité supérieure pour sceller ce squelette... quel homme riche! » Wang Lin comprit immédiatement que cette formation servait au scellement.
 
-Seul l'index droit du squelette était profondément enfoncé dans le sol.
+L'index droit du squelette était profondément enfoncé dans le sol.
 
 Après avoir réfléchi un instant, Wang Lin ne voulut pas agir avec imprudence. Au lieu de cela, il remonta à la surface, prêt à partir.
 

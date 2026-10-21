@@ -46,7 +46,7 @@ Dès que l'adversaire chargea, la bête moustique de Wang Lin recula aussitôt. 
 
 Une bourrasque, soudainement transformée en tempête, s'abattit sur Song Luohai. Elle percuta le sortilège de l'homme et provoqua un fracas assourdissant.
 
-Le visage de Song Luohai devint livide et il cracha un flot de sang. Son corps trembla et il fut projeté en arrière de plusieurs dizaines de pieds, le visage déformé par la terreur. Ce vent n'était pas seulement puissant; il était chargé d'une intention du Dao et d'une loi si profondes qu'elles avaient perturbé son esprit et failli faire s'effondrer son propre domaine!
+Le visage de Song Luohai devint livide et il cracha un flot de sang. Son corps trembla et il fut projeté en arrière de plusieurs dizaines de pieds, le visage déformé par la terreur. Ce vent n'était pas très puissant, mais il était chargé d'une intention du Dao et d'une loi si profondes qu'elles avaient perturbé son esprit et failli faire s'effondrer son propre domaine!
 
 Cependant, la scène suivante lui fit perdre tout sens de la réalité! Il vit l'âme d'origine de Wang Lin le pointer du doigt! Au même instant, le roi moustique poussa un sifflement strident.
 

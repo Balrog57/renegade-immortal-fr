@@ -68,7 +68,7 @@ Xu Liguo poussa quelques rugissements: « Je suis enfin sorti, haha... »
 
 À cet instant, le crapaud tonnerre et la bête moustique, qui s'observaient mutuellement, se tournèrent vers lui. Xu Liguo se tut brusquement en les voyant.
 
-La main droite de Wang Lin s'abattit sur Xu Liguo. Ce dernier poussa un cri alors que Wang Lin le lançait contre l'épée céleste.
+La main droite de Wang Lin s'abattit sur Xu Liguo. Ce dernier poussa un cri alors que Wang Lin le jetait dans l'épée céleste.
 
 L'épée trembla soudainement et son éclat doré s'estompa.
 

@@ -127,7 +127,7 @@ Wang Lin resta silencieux un moment. Il ramassa les vêtements et les pilules, p
 
 À l'intérieur se trouvaient trois pilules d'un jaune éclatant, de la taille d'un litchi. Wang Lin en prit une. Après l'avoir observée, il ne la consomma pas, mais sortit une petite bête de son sac de rangement. Dès qu'elle apparut, elle battit des ailes dans un sifflement.
 
-D'un geste du doigt, Wang Lin fit entrer la pilule dans la bouche de la créature. Ses yeux devinrent sérieux tandis qu'il l'observait. Après un long moment, non seulement la bête n'eut aucune réaction négative, mais elle parut plus vigoureuse; même sa tête sembla avoir légèrement grandi.
+D'un geste du doigt, Wang Lin fit entrer la pilule dans la bouche de la créature. Ses yeux devinrent sérieux tandis qu'il l'observait. Après un long moment, non seulement la bête n'eut aucune réaction négative, mais elle parut plus vigoureuse; même sa taille sembla avoir augmenté d'un cran.
 
 Wang Lin l'observa encore un instant, puis d'un revers de main, il renvoya la petite bête dans son sac. Il comptait l'observer pendant quelques jours; si aucun signe négatif n'apparaissait, il consommerait les pilules.
 

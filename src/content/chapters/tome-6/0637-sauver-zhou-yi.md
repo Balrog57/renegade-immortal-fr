@@ -106,7 +106,7 @@ Une série de sons étouffés émana de l'entrée de l'Abîme des Marées, dans 
 
 La puissante ondulation continua de se propager le long des parois de l'Abîme des Marées jusqu'au fond. Le fond de l'abîme était parsemé de couloirs. Dès que les sons pénétrèrent dans cette zone, ils s'y répercutèrent sans fin.
 
-Les couloirs au fond de l'Abîme des Marées formaient un carré avec un trou noir au centre, menant vers l'inconnu.
+Les couloirs au fond de l'Abîme des Marées formaient un cercle en forme de « 回 » avec un trou noir au centre, menant vers l'inconnu.
 
 Une épée massive était à moitié enfoncée dans le sol d'un couloir. Au moment où l'onde sonore atteignit l'épée, celle-ci se desserra légèrement.
 

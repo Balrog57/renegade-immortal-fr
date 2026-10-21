@@ -54,7 +54,7 @@ Wang Lin restait totalement concentré sur le côté, les yeux brillant d'une lu
 
 Une telle opportunité ne se présenterait plus jamais: voir quelqu'un utiliser le même sort de façon consécutive était une rareté absolue, même entre un maître et son disciple.
 
-Après une demi-heure, le fou avait lancé des dizaines d'Empreintes de l'Esprit Guerrier consécutives, creusant légèrement la marque au sol. Cependant, elle restait bien loin du gouffre créé par Wang Lin.
+Après une heure, le fou avait lancé des dizaines d'Empreintes de l'Esprit Guerrier consécutives, creusant légèrement la marque au sol. Cependant, elle restait bien loin du gouffre créé par Wang Lin.
 
 Le fou était à bout de souffle et épuisé par l'effort. Il songeait à abandonner, mais lorsqu'il jeta un regard furtif vers Wang Lin, il vit le mépris et la moquerie sur le visage de ce dernier.
 
@@ -62,11 +62,11 @@ Cela le rendit furieux!
 
 « Bon sang, ce roi refuse d'y croire! » rugit-il, oubliant sa fatigue pour bombarder à nouveau le sol de ses empreintes!
 
-Une heure, deux heures, trois heures... Chaque fois qu'il était sur le point de renoncer, il croisait le regard dédaigneux de Wang Lin. Il ne pouvait supporter cette expression!
+Deux heures, quatre heures, six heures... Chaque fois qu'il était sur le point de renoncer, il croisait le regard dédaigneux de Wang Lin. Il ne pouvait supporter cette expression!
 
 Les yeux de Wang Lin étaient injectés de sang. Il observait méticuleusement chaque mouvement tout en agitant sa main droite devant lui, utilisant sa compréhension prodigieuse pour décrypter le sortilège.
 
-Après six heures, le fou avait lancé des centaines d'Empreintes de l'Esprit Guerrier. Couvert de sueur, la langue pendante, il semblait incapable de reprendre son souffle assez vite.
+Après douze heures, le fou avait lancé des centaines d'Empreintes de l'Esprit Guerrier. Couvert de sueur, la langue pendante, il semblait incapable de reprendre son souffle assez vite.
 
 « Damnation, je suis trop fatigué. Ce vieil homme arrête les frais! Si je ne peux pas gagner, tant pis, ce roi va dormir », marmonna-t-il. Mais juste au moment où il allait abandonner, il regarda Wang Lin et fut frappé de stupeur.
 
@@ -78,7 +78,7 @@ Ce simple choc suffit à ranimer l'excitation du fou. Il poussa un rugissement e
 
 Les yeux de Wang Lin s'illuminèrent; il comprenait le sort de plus en plus vite. Au fil du temps, l'empreinte devenait de plus en plus nette dans son esprit, gravée profondément dans sa conscience. La technique devenait de plus en plus profonde.
 
-Quatre heures, cinq heures... Jusqu'à ce que, sept heures plus tard, le fou aux yeux rouges pousse un ultime rugissement et lance une dernière Empreinte de l'Esprit Guerrier. La terre trembla. Après sept heures d'effort, la marque était enfin presque aussi profonde que celle de Wang Lin.
+Huit heures, dix heures... Jusqu'à ce que, quatorze heures plus tard, le fou aux yeux rouges pousse un ultime rugissement et lance une dernière Empreinte de l'Esprit Guerrier. La terre trembla. Après quatorze heures d'effort, la marque était enfin presque aussi profonde que celle de Wang Lin.
 
 Épuisé, le fou commença à ramper sur le sol, mais il tourna toujours son regard vers Wang Lin pour hurler d'une voix rauque: « Alors? Qu'en dis-tu? Le sort de ce roi n'est-il pas le plus puissant?! »
 

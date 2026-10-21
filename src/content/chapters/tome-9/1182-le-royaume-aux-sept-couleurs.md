@@ -54,11 +54,11 @@ Les yeux de Duanmu s'illuminèrent et il fixa Maître Pin Cendré d'un regard tr
 Maître Pin Cendré sourit sans répondre.
 « Si ce n'était pour ce qui se trouve dans la brume, près du squelette, vous n'auriez pas été aussi aimable de m'inviter », rétorqua Duanmu en désignant le brouillard.
 
-« C'est exact. Le Dao de la réincarnation du compagnon Duanmu nous sera fort utile pour la suite du voyage. Nous vous aiderons à obtenir cette pilule, et en échange, vous nous ouvrirez la voie », admit franchement Maître Pin Cendré avec calme.
+« C'est exact. Le sort de Réincarnation de la Grande Liberté du compagnon Duanmu nous sera fort utile pour la suite du voyage. Nous vous aiderons à obtenir cette pilule, et en échange, vous nous ouvrirez la voie », admit franchement Maître Pin Cendré avec calme.
 
 « D'accord! » Le jeune homme réfléchit un instant en observant la pilule dans les restes du squelette, puis son visage se fit sévère.
 
-Maître Pin Cendré reprit d'une voix grave: « Il s'agit d'un dragon de rang 12, l'équivalent d'un cultivateur Briseur du Nirvana au sommet. Mais une bête féroce reste une bête féroce. Si nous coopérons étroitement et que nous aidons le compagnon Duanmu avec son sort de réincarnation, ce n'est pas impossible! »
+Maître Pin Cendré reprit d'une voix grave: « Il s'agit d'un dragon de rang 12, l'équivalent d'un cultivateur Briseur du Nirvana au sommet. Mais une bête féroce reste une bête féroce. Si nous coopérons étroitement, avec l'aide du sort de réincarnation du compagnon Duanmu, ce n'est pas impossible! »
 
 Chen Tianjun se lécha les lèvres: « Je veux l'âme de ce dragon! »
 La vieille femme en vert ajouta: « Le corps du dragon me revient! »

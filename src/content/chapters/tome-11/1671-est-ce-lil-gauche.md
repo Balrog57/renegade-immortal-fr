@@ -80,8 +80,8 @@ Dès que les couvercles brisèrent, de longs cheveux noirs se déployèrent hors
 
 Les dizaines de milliers d'autres cultivateurs du Royaume Extérieur firent de même, offrant leur propre sang essentiel aux cercueils. Une fois le sang absorbé, un grondement tonitruant secoua le système stellaire et les neuf cercueils explosèrent l'un après l'autre.
 
-L'aura des anciens dieux, des anciens démons et des anciens diables surgit, fusionnant pour former la puissance des Anciens! Cette aura appartenait aux Anciens... elle appartenait à Ye Mo!!
+L'aura des anciens dieux, des anciens démons et des anciens diables surgit, fusionnant pour former la puissance de l'Ancien Dao! Cette aura appartenait à l'Ancien Dao... elle appartenait à Ye Mo!!
 
-Les yeux de Wang Lin devinrent extrêmement graves alors qu'il se tenait au cœur de la formation, fixant les neuf cercueils. Il ne s'attendait pas à ce que le Royaume Extérieur possède une puissance ancienne aussi pure!
+Les yeux de Wang Lin devinrent extrêmement graves alors qu'il se tenait au cœur de la formation, fixant les neuf cercueils. Il ne s'attendait pas à ce que le Royaume Extérieur possède une puissance de l'Ancien Dao aussi pure!
 
 « Ce n'est pas l'œil gauche! Si c'était l'œil gauche, l'aura serait encore plus puissante. Mais si ce n'est pas lui, alors ceci... Qu'est-ce que c'est?! »

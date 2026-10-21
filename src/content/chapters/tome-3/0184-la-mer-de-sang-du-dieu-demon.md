@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 184 - The Blood Sea of the Demon God
 slug: la-mer-de-sang-du-dieu-demon
 ---
-Dans l'espace fracturé relié à la troisième épreuve de la Terre des Anciens Dieux, dans le coin sud-ouest, une minuscule lumière blanche apparut soudainement. La lueur s'intensifia et s'élargit jusqu'à former une déchirure ovale dans l'espace.
+Dans la troisième épreuve de la Terre des Anciens Dieux, au sein de cet espace fracturé relié au Nirvana, dans le coin sud-ouest, une minuscule lumière blanche apparut soudainement. La lueur s'intensifia et s'élargit jusqu'à former une déchirure ovale dans l'espace.
 
 De cette brèche surgit une main aux ongles longs et couverte d'épines osseuses. Cette main paraissait glaciale, dotée d'ongles extrêmement pointus et peints en noir. Elle était couverte de pustules, dont chacune laissait jaillir une épine osseuse.
 
@@ -30,7 +30,7 @@ Peu après, l'âme errante sous son contrôle utilisa une technique spéciale po
 
 « Ceci... ceci est... Bossu Meng! » Wang Lin fut surpris. Bien que Bossu Meng ait énormément changé, Wang Lin pouvait toujours reconnaître que ce démon était bel et bien lui.
 
-Wang Lin rétracta son Sens Divin pour éviter toute attaque par ce biais et envoya un message à l'Empereur Antique via son Sens Divin.
+Wang Lin rétracta son Sens Divin, arrêta l'attaque des âmes errantes et transmit un message à l'Empereur Antique.
 
 « Cède le trésor de l'héritage... »
 
@@ -104,13 +104,13 @@ Sur ce sol ensanglanté siégeaient de nombreux cultivateurs qui ressemblaient t
 
 Dans cette terre de sang, de nombreux piliers de pierre s'élevaient, et un cultivateur trônait au sommet de chacun d'eux. En regardant au loin, on distinguait de nombreux piliers de tailles diverses, mais le plus imposant semblait s'élancer vers les cieux. Au sommet de ce pilier siégeait un cultivateur aux cheveux roux. Bien que son visage fût difficilement discernable, une aura d'arrogance et de fierté émanait de lui.
 
-Lorsque l'Empereur Antique fut projeté là, son Âme Naissante n'ayant pas été totalement dévorée par les âmes errantes, son corps commença immédiatement à se régénérer. Lorsqu'il ouvrit les yeux, son visage changea instantanément.
+Lorsque l'Empereur Antique fut projeté là, son Âme Naissante n'ayant pas été totalement dévorée par les âmes errantes, elle reprit immédiatement le contrôle de son corps. Lorsqu'il ouvrit les yeux, son visage changea instantanément.
 
-« Seigneur Démon du Feu Rouge... Fou du Sud Invincible... Magicien Démon Céleste... vous... vous n'êtes pas tous morts? » Le visage de l'Empereur Antique pâlit alors que son regard se fixait sur les quelques démons qui, mille ans plus tôt, étaient entrés dans la Terre des Anciens Dieux avec lui.
+« Seigneur Démon du Feu Rouge... Fou du Sud Wu Bai... Magicien Démon Céleste... vous... vous n'êtes pas tous morts? » Le visage de l'Empereur Antique pâlit alors que son regard se fixait sur les quelques démons qui, mille ans plus tôt, étaient entrés dans la Terre des Anciens Dieux avec lui.
 
 Le Seigneur Démon du Feu Rouge avait été tué lors de la deuxième épreuve. L'Empereur Antique avait vu personnellement son corps être détruit par l'éclair violet. L'Âme Naissante du Seigneur Démon du Feu Rouge n'avait même pas eu le temps de s'échapper.
 
-Il y avait aussi le Fou du Sud Invincible, submergé par des dizaines de milliers de ces étranges créatures, mort en moins de temps qu'il n'en faut pour que la moitié d'un bâton d'encens brûle.
+Il y avait aussi le Fou du Sud Wu Bai, submergé par des dizaines de milliers de ces étranges créatures, mort en moins de temps qu'il n'en faut pour que la moitié d'un bâton d'encens brûle.
 
 Quant au Magicien Démon Céleste, le maître du Seigneur Démon des Six Désirs, l'Empereur Antique l'avait suivi de près il y a mille ans. Il avait vu personnellement ce dernier créer un tunnel grâce au trésor de l'héritage pour s'échapper, avant d'être attaqué par un Sens Divin très inhabituel et de mourir instantanément.
 
@@ -150,7 +150,7 @@ S'il avait abandonné son corps physique pour voyager uniquement sous forme d'â
 
 Alors qu'il n'avait parcouru que la moitié du chemin, Wang Lin s'arrêta brusquement. Il tourna la tête vers Duanmu et Wang Qingyue. Son visage devint livide en témoignant d'une scène d'horreur à travers les âmes errantes.
 
-Duanmu et Wang Qingyue ne firent pas long feu sous l'assaut de Bossu Meng. Ce dernier ouvrit une faille d'où surgit une main démoniaque gigantesque qui empoigna les deux hommes sans qu'ils puissent opposer la moindre résistance. La tête du démon était hérissée d'épines osseuses, et une aura maléfique s'en dégageait, faisant trembler de peur quiconque la croisait.
+Duanmu et Wang Qingyue ne firent pas long feu sous l'assaut de Bossu Meng. Ce dernier ouvrit une faille d'où surgit une main démoniaque gigantesque qui empoigna les deux hommes sans qu'ils puissent opposer la moindre résistance. Cette main démoniaque était hérissée d'épines osseuses, et une aura maléfique s'en dégageait, faisant trembler de peur quiconque la croisait.
 
 L'incertitude se lut sur le visage de Wang Lin. Il récupéra les démons Xu Liguo et le second, puis avala une grande gorgée de liquide énergétique spirituel pour utiliser toute son énergie spirituelle afin de fuir rapidement.
 

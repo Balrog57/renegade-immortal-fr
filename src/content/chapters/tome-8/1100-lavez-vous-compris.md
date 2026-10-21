@@ -32,7 +32,7 @@ Le corps de Maître Yi Chen trembla, ses yeux brillant d'excitation face à Wang
 
 « C'est ma promesse! » Wang Lin posa la cruche au sol et regarda au loin. Comme s'il se remémorait quelque chose, il dit lentement: « La vie et la mort imprègnent l'existence. Une fois que vous les aurez comprises, vous les transcenderez... Vos deux frères ont encore vous pour leur rendre hommage, cela suffit. Nous, cultivateurs, ne maîtrisons plus notre propre vie ni notre propre mort. Dans l'immensité du champ d'étoiles, des cultivateurs meurent chaque jour. Combien de personnes se souviennent d'eux, et combien peuvent leur rendre hommage? »
 
-« Après avoir emprunté cette route anormale, nous devons percer les mystères de la vie et de la mort. Nous devons comprendre notre propre fin, ainsi que celle des autres... Lorsque j'ai ramené les cendres d'un vieil ami dans sa ville natale, j'ai entendu la comptine d'un enfant. »
+« Après avoir emprunté cette voie sans retour, nous devons percer les mystères de la vie et de la mort. Nous devons comprendre notre propre fin, ainsi que celle des autres... Lorsque j'ai ramené les cendres d'un vieil ami dans sa ville natale, j'ai entendu la comptine d'un enfant. »
 
 « "L'arbre à fleurs blanches fleurit au printemps. La fille ne sera pas prise par une famille de taoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à fleurs blanches fleurit au printemps et les enfants ne devraient pas fréquenter les taoïstes. Si l'on m'interroge sur mon âge, je n'ai aucune affinité avec le Dao. Le chien aboie, le chat griffe, effrayant le taoïste jusqu'à sa demeure..." »
 

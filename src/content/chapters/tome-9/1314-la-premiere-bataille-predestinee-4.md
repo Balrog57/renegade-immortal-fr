@@ -122,7 +122,7 @@ Au moment où l'os du doigt ancien s'abattit, la Formation de Scellement Divin s
 
 Des grondements de tonnerre résonnèrent. Tuo Sen cracha du sang et fut projeté au loin!
 
-Des craquements sinistres retentirent dans le corps de Wang Lin alors que tous ses os se brisaient, le projetant dans des directions différentes. Le doigt géant, quant à lui, ne subit aucun dommage en atterrissant.
+Des craquements sinistres retentirent dans le corps de Wang Lin alors que tous ses os se brisaient, le projetant dans une direction différente. Le doigt géant, quant à lui, ne subit aucun dommage en atterrissant.
 
 Au moment où il fut projeté, Wang Lin n'hésita pas et utilisa son sort d'engloutissement. Un brouillard noir enveloppa son corps. Profitant de l'impact puissant, il se précipita vers la masse de cultivateurs, et le brouillard noir se dispersa. Des cris de douleur résonnèrent alors qu'il commençait à absorber les énergies frénétiquement.
 

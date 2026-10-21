@@ -48,7 +48,7 @@ Toutefois, débarrassé de l'obstruction de la terre, il fut bien plus facile po
 
 Dès l'apparition de la porte lumineuse suivante, le corps de Wang Lin vacilla et il franchit le seuil à sa vitesse maximale, suivi de près par la garde céleste et la Bête du Tonnerre.
 
-À peine sorti, il ne marqua aucune pause; il s'avança dans le vide et prit une grande inspiration.
+À peine sorti, il ne marqua aucune pause; il s'avança dans le vide et expira profondément.
 
 « Quel est le but de cet individu? S'il voulait me tuer, ce sort l'aurait permis sans difficulté. S'il voulait me piéger, il lui suffisait de faire disparaître ces portes. Mais ceci... pourquoi? » Wang Lin baissa la tête pour examiner le sol. La ligne formant la prison était toujours là.
 

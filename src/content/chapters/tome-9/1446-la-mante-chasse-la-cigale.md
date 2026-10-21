@@ -58,7 +58,7 @@ La tempête rouge agissait comme une marée dont l'aura destructrice déchirait 
 
 Après un long moment, le brouillard commença à bouillonner et se retira lentement pour revenir sur la plateforme située sur le dos de l'Ancien Dieu. Le ciel était devenu rouge sombre et les failles spatiales avaient totalement disparu, scellant l'entrée du lieu. Les rugissements s'estompèrent progressivement, laissant place à un silence absolu.
 
-Le temps passa lentement. Une demi-heure plus tard, une silhouette sortit péniblement de la brume. C'était le savant d'âge moyen que tout le monde croyait mort. Un sourire sinistre, empreint de fierté, étira le coin de sa bouche.
+Le temps passa lentement. Une heure plus tard, une silhouette sortit péniblement de la brume. C'était le savant d'âge moyen que tout le monde croyait mort. Un sourire sinistre, empreint de fierté, étira le coin de sa bouche.
 
 « Peu importe qu'il soit l'Estimé Ling Dong! Personne ne peut s'emparer des trésors que j'ai convoités! Une simple ruse a suffi pour forcer tout le monde à partir. Désormais, l'esprit Dao m'appartient! »
 

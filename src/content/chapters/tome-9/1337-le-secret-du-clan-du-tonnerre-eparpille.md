@@ -74,15 +74,15 @@ L'ancêtre n'avait pas créé ce monde seul, mais avait reçu l'aide de mystéri
 
 Ce nom impliquait qu'il y avait 7 millions de mondes à l'intérieur! D'innombrables créatures y vivaient et toutes cultivaient! Elles croyaient en l'existence d'un Royaume Céleste, ou du moins quelqu'un les en avait convaincues depuis des éons. Mais leur seul véritable Royaume Céleste était le Clan du Tonnerre Dispersé!
 
-Chaque vie au sein des 7 Millions de Mondes n'était qu'une fourmi pour le Clan du Tonnerre Dispersé. Pour une raison inconnue, ils ne permettaient pas aux cultivateurs de haut niveau de s'y épanouir. Dès qu'un cultivateur atteignait le sommet de la Formation de l'Âme, la rétribution divine surgissait pour le détruire!
+Chaque vie au sein des 7 Millions de Mondes n'était qu'une fourmi pour le Clan du Tonnerre Dispersé. Pour une raison inconnue, ils ne permettaient pas aux cultivateurs de haut niveau de s'y épanouir. Dès qu'un cultivateur atteignait le sommet de la Formation de l'Âme, le Dao Céleste apparaissait et abattait le tonnerre pour le détruire!
 
 Cependant, certains cultivateurs des 7 Millions de Mondes faisaient naître une force étrange en raison de leur talent ou d'une particularité corporelle. Cette force se transformait lors de l'impact de la rétribution divine, formant l'un des six types de tonnerre répertoriés par le Clan du Tonnerre Dispersé... le Tonnerre Spirituel!
 
 Quiconque parvenait à engendrer ce Tonnerre Spirituel dans les 7 Millions de Mondes traversait la rétribution divine pour entrer dans le Royaume Céleste. D'innombrables légendes se répandaient alors à travers les mondes, et l'admiration pour leur succès se transmettait de génération en génération!
 
-Pourtant, la vérité était que ces cultivateurs étaient détruits et devenaient eux-mêmes le Tonnerre Spirituel du Clan du Tonnerre Dispersé! Les êtres célestes qui infligeaient la rétribution divine n'étaient autres que des membres du Clan du Tonnerre Dispersé!
+Pourtant, la vérité était que ces cultivateurs étaient détruits et devenaient eux-mêmes le Tonnerre Spirituel du Clan du Tonnerre Dispersé! Et ce Dao Céleste, cet immortel faisant descendre la rétribution divine, n'était autre qu'un membre du Clan du Tonnerre Dispersé!
 
-La rétribution divine subie par les 7 Millions de Mondes n'était rien d'autre qu'une mission confiée par le Clan au Temple du Cristal de Tonnerre!
+Pour ces 7 Millions de Mondes, le Dao Céleste et la rétribution divine n'étaient rien d'autre qu'une mission confiée par le Clan dans les différents Temples du Cristal de Tonnerre!
 
 Il fallut un long moment à Wang Lin pour sortir de sa stupéfaction. Il fixa le jade brillant et médita en silence.
 

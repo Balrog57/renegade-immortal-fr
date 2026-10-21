@@ -14,7 +14,7 @@ La mer de flammes s'étendit sur 98 royaumes, concentrant la puissance de ces de
 
 Un bruit assourdissant résonna dans chaque recoin de la bouteille et une vague de chaleur intense inonda le monde! La puissance de cette mer de flammes était déjà supérieure au « Brûle les Cieux » de Ming Hai! Wang Lin n'avait atteint cet effet qu'en ayant absorbé un excès de feu qu'il devait impérativement relâcher. Le feu avait transité par son corps, qui lui avait servi de relais pour évacuer l'excédent, et il lui serait impossible de manifester une telle puissance à nouveau.
 
-À moins que quelqu'un ne crée une autre mer de flammes inextinguible pour que Wang Lin l'absorbe jusqu'à sa limite, avant de la relâcher intégralement.
+À moins qu'il n'existe une autre mer de flammes inextinguible, permettant à Wang Lin d'absorber assez longtemps pour atteindre son apogée avant de relâcher à nouveau.
 
 La lueur rouge sur le corps de Wang Lin s'estompa peu à peu, mais le tatouage de l'Oiseau Vermillon resta d'un écarlate vif. Cela lui conférait une aura indescriptible.
 
@@ -34,7 +34,7 @@ Après tout, la différence entre chaque petite étape au sein de la seconde ét
 
 L'Ancêtre Sanguin était resté au stade intermédiaire du Purificateur du Nirvana pendant une longue période sans parvenir à atteindre le stade avancé. Cela prouvait la difficulté de la tâche!
 
-En vérité, à moins d'une fortune exceptionnelle, il était très difficile pour les cultivateurs d'atteindre le stade avancé et le sommet de celui-ci. Outre l'élargissement de son propre domaine, il fallait apprendre à contrôler les lois du monde.
+En vérité, à moins d'une fortune exceptionnelle, il était très difficile pour les cultivateurs d'atteindre le stade avancé et le sommet de celui-ci. Outre la compréhension de son propre domaine, il fallait apprendre à contrôler les lois du monde.
 
 Le stade avancé du Purificateur du Nirvana exige la fusion de la loi et du domaine. Cette maîtrise atteint son apogée au sommet du stade avancé, jusqu'à ce que l'on entre dans le rêve de la plupart des cultivateurs: le Briseur du Nirvana... le plus haut niveau de culture connu!
 

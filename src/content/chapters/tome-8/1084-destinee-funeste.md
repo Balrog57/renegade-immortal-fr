@@ -116,7 +116,7 @@ Sur ces mots, les disciples de la Secte des Quatre Divinités se dispersèrent p
 « Je m'en chargerai! »
 « Mon bienfaiteur, Zhou Yi, a besoin de Qing Lin pour ressusciter! »
 « Je vous donnerai le corps de Qing Lin! Si vous avez besoin de l'aide de la Secte des Quatre Divinités, nous vous apporterons tout notre soutien! »
-« Dans la Terre des Esprits Démoniaques, j'ai un disciple direct... »
+« Dans la Terre des Esprits Démoniaques, j'ai une branche de disciples directs... »
 « J'enverrai quelqu'un pour les escorter jusqu'à la Secte de l'Oiseau Vermillon! »
 
 « Ces célestes de l'Alliance veulent ma mort. Je veux leurs âmes originelles! » Une lueur de froideur passa dans les yeux de Wang Lin. Il n'avait jamais fait preuve de clémence envers ceux qui cherchaient à lui nuire; il s'était toujours comporté comme un démon face à eux!

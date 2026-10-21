@@ -110,7 +110,7 @@ Wang Lin leva la tête. À cent pas de là, au sommet de la montagne, se dressai
 
 Mais dans un grand fracas, le pied droit de Wang Lin s'enfonça de trente-trois centimètres dans le sol, créant une assise solide.
 
-À cet instant précis, une aura glaciale inimaginable jaillit du sol. Cette froideur était plusieurs fois plus intense que tout ce qu'il avait connu jusqu'alors. L'aura pénétra son corps par son pied et se précipita vers sa poitrine à travers ses veines.
+À cet instant précis, une aura glaciale inimaginable jaillit du sol. Cette froideur était plusieurs fois plus intense que tout ce qu'il avait connu jusqu'alors. L'aura pénétra son corps par son pied et se précipita vers sa poitrine à travers ses méridiens.
 
 Mais alors que l'aura glaciale traversait le corps de Wang Lin, un sens divin émana soudainement de son âme originelle. Lorsque ce sens divin balaya son corps, l'aura glaciale s'apaisa étrangement et recula par son pied droit pour retourner dans la montagne.
 

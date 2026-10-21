@@ -86,7 +86,7 @@ Le vortex passa par-dessus chacun d'eux et s'écrasa au sol. Un grondement tonit
 
 Depuis sa position, Wang Lin pouvait tout voir clairement!
 
-« Ceci... Ceci est... » Le sang continuait de couler du coin de sa bouche, et il n'y avait aucune joie dans cette évasion. En fixant la terre, ses yeux trahissaient l'incrédulité et la peur.
+« Ceci... Ceci est... » Du sang coulait de la bouche de Maître Nuage-Âme, et il n'y avait aucune joie dans cette évasion. En fixant la terre, ses yeux trahissaient l'incrédulité et la peur.
 
 La vieille femme à ses côtés était gravement blessée et semblait abattue, mais son regard reflétait la même terreur.
 

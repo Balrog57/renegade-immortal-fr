@@ -98,7 +98,7 @@ Des grondements tonitruants retentirent et Xu Liguo s'effondra une fois de plus.
 
 « Maître, sauvez-moi. Si vous ne me sauvez pas, je vais mourir!! » Xu Liguo était terrifié. S'il n'avait pas provoqué la femme au point de ne plus pouvoir faire marche arrière, il se serait depuis longtemps rendu.
 
-« C'est vrai, tu as encore un Maître. Je veux voir quel est le cran de ton Maître pour me provoquer, et qui il est au sein de ton clan. Il devra être enterré avec toi! » L'homme d'âge moyen afficha un sourire serein.
+« C'est vrai, tu as encore un Maître. Je veux voir quel est le cran de ton Maître pour me provoquer, et qui il est au sein du clan. Il devra être enterré avec toi! » L'homme d'âge moyen afficha un sourire serein.
 
 Cependant, à cet instant précis, une voix glaciale émergea lentement du monde. Cette voix ressemblait à des milliers de lames tranchantes et dégageait un froid puissant!
 

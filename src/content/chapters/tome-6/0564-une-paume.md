@@ -20,7 +20,7 @@ Au même moment, le gaz de massacre formé par l'Art du Massacre Céleste s'éle
 
 « Quel sort puissant! » Une voix grave résonna devant lui. Une fois la poussière retombée, la silhouette massive du général démon apparut.
 
-Après avoir parlé, son corps vacilla alors qu'il luttait contre sa propre reculée. L'énergie spirituelle démoniaque en lui s'agita frénétiquement pour l'empêcher d'être projeté plus loin. Ses yeux brillaient comme des éclairs lorsqu'il fit un pas en avant, parcourant 9,9 mètres en un instant. Puis, sa paume s'abattit sur le sol. Ce geste créa une rafale de vent telle que la zone de cinq kilomètres environ sembla se transformer en océan.
+Après avoir parlé, son corps vacilla alors qu'il luttait contre sa propre reculée. L'énergie spirituelle démoniaque en lui s'agita frénétiquement pour l'empêcher d'être projeté plus loin. Ses yeux brillaient comme des éclairs lorsqu'il fit un pas en avant, parcourant 9,9 mètres en un instant. Puis, sa paume frappa l'air devant lui. Ce geste créa une rafale de vent telle que la zone de cinq kilomètres environ sembla se transformer en océan.
 
 La mer entière poussa un rugissement sous l'impact de la paume du général démon et chargea vers Wang Lin avec une fureur folle.
 

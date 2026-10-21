@@ -40,7 +40,7 @@ Au même moment, le feu entourant la créature devint incontrôlable et se jeta 
 
 Le mille-pattes n'eut même pas le temps d'émettre un sifflement misérable qu'il fut consumé par les flammes. De plus, le feu qui le dévorait n'était plus rouge, mais révélait des nuances bleutées.
 
-À l'instant où cette boule de feu apparut, deux autres mille-pattes chargèrent Wang Lin. Les yeux de ce dernier s'illuminèrent. À l'origine, il ne voulait pas se soucier de ces bêtes, mais elles semblaient refuser de céder, à moins d'être anéanties. Une lueur de froideur passa dans son regard tandis que Wang Lin décidait de passer à l'offensive. L'étoile formée par la loi apparut entre ses sourcils et un feu bleu émana de lui avant d'être projeté dans la brume sur sa gauche.
+À l'instant où cette boule de feu apparut, deux autres mille-pattes chargèrent Wang Lin. Les yeux de ce dernier s'illuminèrent. À l'origine, il ne voulait pas se soucier de ces bêtes, mais elles semblaient refuser de céder, à moins d'être anéanties. Une lueur de froideur passa dans son regard tandis que Wang Lin décidait de passer à l'offensive. L'étoile formée par la loi apparut entre ses sourcils, un feu bleu enveloppa son corps et il s'élança dans la brume sur sa gauche.
 
 Un instant plus tard, un bruit fracassant retentit dans la brume, suivi par l'écho d'une flamme bleue monstrueuse. Au moment où le cri misérable se fit entendre, il disparut aussitôt, et une chaleur infinie se propagea à travers la brume.
 

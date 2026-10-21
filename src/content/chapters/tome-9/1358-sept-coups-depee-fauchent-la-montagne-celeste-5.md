@@ -10,7 +10,7 @@ Lorsque le Grand Ancien vit cela, il perdit toute contenance. Il recula plus vio
 
 Si les habitants du Système Stellaire Antique avaient vu le Grand Ancien du Clan du Tonnerre Dispersé — un homme qui ne s'inclinait que rarement devant les cultivateurs du troisième niveau — agir ainsi, ils en seraient restés incrédules!
 
-Alors qu'il tenait l'épée de sept pieds, Wang Lin sentait distinctement que le sixième coup était bien plus puissant que le cinquième. Il y respirait également des traces d'une rancœur monstrueuse!
+Alors qu'il tenait l'épée de sept pieds, Wang Lin sentait distinctement que le sixième coup était bien plus puissant que les cinq précédents. Il y respirait également des traces d'une rancœur monstrueuse!
 
 Cette rancœur était si intense que même Wang Lin en fut stupéfait. Il avait déjà rassemblé de la rancœur par le passé, mais cela n'était rien comparé à ce qu'il ressentait ici!
 
@@ -106,4 +106,4 @@ Simultanément, l'épée de sept pieds se brisa en une multitude de fragments. L
 
 « Membres restants du clan, le Royaume Céleste est ouvert. Le monde est détruit, nous partons donc vers l'extérieur! » Le Daoïste Esprit Dispersé était transporté par une excitation monstrueuse. D'un revers de manche, il emmena toutes les vies restantes des 7 Millions de Mondes à travers la brèche laissée par le départ du tonnerre éternel!
 
-Les yeux de Wang Lin s'illuminèrent et le Fouet de l'Âme apparut soudainement. Il fonça droit sur l'âme originelle du Grand Ancien, agonisant, pour lui interdire toute résistance!
+Les yeux de Wang Lin s'illuminèrent et le Fouet Kunji apparut soudainement. Il fonça droit sur l'âme originelle du Grand Ancien, agonisant, pour lui interdire toute résistance!

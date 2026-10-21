@@ -64,7 +64,7 @@ Ces sept individus étaient les sept Grands Empyréens du Continent Astral Immor
 
 Ils se connaissaient tous, mais bien qu'appartenant à deux camps différents, ils ne souhaitaient pas combattre. Au lieu de cela, ils déployèrent tous leur Sens Divin pour observer la zone et réfléchir en silence.
 
-Ji Du et les autres ne franchirent pas le mur de mer et ne firent aucun pas vers le clan Ancien, mais cela n'entravait en rien leur Sens Divin.
+Jiu Di et les autres ne franchirent pas le mur de mer et ne firent aucun pas vers le clan Ancien, mais cela n'entravait en rien leur Sens Divin.
 
 Xuan Luo ferma les yeux. Lorsque son Sens Divin se déploya, son corps trembla. Cette bataille avait dû être cataclysmique. Bien qu'elle fût terminée, les altérations des lois subsistaient encore.
 
@@ -80,7 +80,7 @@ De l'autre côté du mur de mer, les quatre Grands Empyréens du clan Céleste r
 
 « Ce ne devrait pas être lui... » songea Dao Yi.
 
-« Il a combattu Gu Dao et laissé derrière lui un champ de bataille aussi terrifiant. Si j'avais été témoin de cet affrontement, cela aurait grandement favorisé ma culture... » soupira également Ji Du. Il doutait de l'identité de l'adversaire de Gu Dao. Était-ce vraiment... Wang Lin?
+« Il a combattu Gu Dao et laissé derrière lui un champ de bataille aussi terrifiant. Si j'avais été témoin de cet affrontement, cela aurait grandement favorisé ma culture... » soupira également Jiu Di. Il doutait de l'identité de l'adversaire de Gu Dao. Était-ce vraiment... Wang Lin?
 
 Wu Feng observa le champ de bataille avec une expression complexe. Les lois du monde ici s'étaient effondrées et étaient plongées dans un chaos total. Il était impossible d'y voir clair ou d'en tirer la moindre leçon.
 
@@ -90,7 +90,7 @@ Quant au Grand Empyréen Gémeaux, les deux fillettes s'étaient depuis longtemp
 
 Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
-Alors qu'ils étaient tous plongés dans leurs pensées, Ji Du prit soudain la parole: « Trois compagnons cultivateurs du clan Ancien, ce vieil homme a une suggestion. »
+Alors qu'ils étaient tous plongés dans leurs pensées, Jiu Di prit soudain la parole: « Trois compagnons cultivateurs du clan Ancien, ce vieil homme a une suggestion. »
 
 Après ses paroles, Song Tian et les autres lui jetèrent des regards froids.
 
@@ -102,19 +102,19 @@ Après ses paroles, Song Tian et les autres lui jetèrent des regards froids.
 
 « Ce vieil homme possède un sort, et je suis convaincu qu'en unissant nos forces, nous pourrons temporairement inverser le temps. Ainsi, nos Sens Divins pourront pénétrer dans le passé et nous pourrons assister personnellement à la bataille!
 
-« Je me demande ce que vous trois en pensez? » demanda lentement Ji Du.
+« Je me demande ce que vous trois en pensez? » demanda lentement Jiu Di.
 
-Ji Du ajouta: « Ce vieil homme souhaite simplement voir cette scène, sans autre intention. Je peux prêter un serment de foi! » Wu Feng, à ses côtés, réfléchit un instant avant de dire à son tour:
+Jiu Di ajouta: « Ce vieil homme souhaite simplement voir cette scène, sans autre intention. Je peux prêter un serment de foi! » Wu Feng, à ses côtés, réfléchit un instant avant de dire à son tour:
 
 « Moi aussi, je peux faire un serment! »
 
-Dao Yi hésita un moment en regardant Ji Du et Wu Feng avant de hocher la tête. Quant à Gémeaux, elle réfléchit brièvement et accepta.
+Dao Yi hésita un moment en regardant Jiu Di et Wu Feng avant de hocher la tête. Quant à Gémeaux, elle réfléchit brièvement et accepta.
 
 Le groupe de Song Tian se regarda et, après réflexion, acquiesça également. À leur niveau de culture, leurs paroles étaient crédibles.
 
-Les trois possédaient aussi leurs propres méthodes; ils n'avaient donc pas peur que Ji Du les trompe.
+Les trois possédaient aussi leurs propres méthodes; ils n'avaient donc pas peur que Jiu Di les trompe.
 
-Après la moitié d'un bâton d'encens, les sept étaient prêts. Ji Du sortit un jade et le montra aux six autres. Ils formèrent tous des sceaux et entamèrent l'incantation.
+Après la moitié d'un bâton d'encens, les sept étaient prêts. Jiu Di sortit un jade et le montra aux six autres. Ils formèrent tous des sceaux et entamèrent l'incantation.
 
 Sept rayons de lumière jaillirent et enveloppèrent le champ de bataille. Un instant plus tard, un grondement de tonnerre retentit et les sept portèrent leur attention sur la scène.
 
@@ -136,4 +136,4 @@ L'être le plus puissant du Continent Astral Immortel n'était plus Gu Dao, mais
 
 Le cœur de Dao Yi trembla. Il était un Grand Empyréen, et pourtant, il ressentait la peur. La force de Wang Lin lui inspirait l'incrédulité, mais par-dessus tout, elle lui inspirait la terreur.
 
-« Était-ce lui... » Dans l'esprit de Ji Du, le souvenir de ce regard qui semblait être descendu du ciel il y a cent ans, lorsque les esprits venus d'au-delà du ciel des 72 continents imploraient tous vers les cieux, refit surface.
+« Était-ce lui... » Dans l'esprit de Jiu Di, le souvenir de ce regard qui semblait être descendu du ciel il y a cent ans, lorsque les esprits venus d'au-delà du ciel des 72 continents imploraient tous vers les cieux, refit surface.

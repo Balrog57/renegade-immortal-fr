@@ -34,7 +34,7 @@ Le Sens Divin de Wang Lin balaya les deux sergents, et il leur envoya un message
 
 Wang Lin déclara calmement: « Je sors. Vous me montrez le chemin. »
 
-Surpris, les deux hommes hochèrent rapidement la tête. Wang Lin s'avança de quelques pas et fut immédiatement suivi, bien que l'un d'eux hésitât un instant avant de demander respectueusement: « Général Wang, devons-nous préparer une monture? »
+Surpris, les deux hommes hochèrent rapidement la tête. Wang Lin propulsa son corps en avant sur plusieurs mètres et fut immédiatement suivi, bien que l'un d'eux hésitât un instant avant de demander respectueusement: « Général Wang, devons-nous préparer une monture? »
 
 « Pas besoin! » En un éclair, Wang Lin contourna la fausse montagne et quitta la cour.
 

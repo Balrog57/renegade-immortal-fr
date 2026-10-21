@@ -126,7 +126,7 @@ Les huit rois de la Secte des Cadavres réussirent enfin à s'échapper, mais la
 
 Les trois restants sortirent des cercueils en hâte pour obtenir de nouveaux corps et tenter de fuir. Mais la force frappa à nouveau, faisant s'effondrer leurs nouveaux corps.
 
-Ce cycle se répéta. Cette distance de moins de dix mille pieds était pour eux une véritable apocalypse. Ils laissaient derrière eux une traînée de brume sanglante à chaque nouvelle mort.
+Ce cycle se répéta. Cette distance de moins de dix mille pieds était pour eux une véritable apocalypse ; dans un jet de brume de sang, un autre trouva la mort.
 
 Les deux derniers rois de la Secte des Cadavres étaient sur le point de voir leur âme se disperser. Voyant la force se refermer sur eux, ils sombrèrent dans le désespoir. À cet instant, un vortex noir apparut soudainement près d'eux et deux bras s'étendirent pour les saisir et les aspirer à l'intérieur.
 

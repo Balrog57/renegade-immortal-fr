@@ -54,7 +54,7 @@ Cette épée de fer, si différente des trésors traditionnels, déconcertait Wa
 
 Wang Lin s'était déjà préparé à ce qu'elle absorbe son énergie originelle. Bien qu'une quantité massive de cette énergie quittât son corps, il ne paniqua pas et resta calme.
 
-Au moment où Maître du Vide chargea, Wang Lin leva une fois de plus l'épée de fer et prit une profonde inspiration. L'énergie originelle jaillit de lui alors que l'épée se couvrait à nouveau d'une lumière argentée, et il asséna un coup tranchant.
+Au moment où la main géante du Maître du Vide fondit sur lui, Wang Lin leva une fois de plus l'épée de fer et prit une profonde inspiration. L'énergie originelle jaillit de lui alors que l'épée se couvrait à nouveau d'une lumière argentée, et il asséna un coup tranchant.
 
 La lumière était éblouissante lorsque la main droite du Maître du Vide fut projetée violemment en arrière, son expression devenant extrêmement sombre. Il était désormais anxieux: être coincé dans l'Origine Source signifiait subir des attaques constantes de sa part, même si elles n'étaient pas dévastatrices. En comparaison, cette quantité d'Origine Source ne représentait même pas un dix-millième de son énergie originelle, et pourtant, il lui fallait la majeure partie de ses ressources pour résister à ce faible flux.
 

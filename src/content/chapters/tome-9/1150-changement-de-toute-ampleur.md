@@ -12,7 +12,7 @@ Pour les régions de rang 1 à 4, la région de rang 5 représentait une existen
 
 À cet instant précis, au cœur de la région de rang 5, un sifflement déchira le silence du brouillard. Un rayon de lumière fendit la brume, transportant une bête spirituelle à l'allure draconique sur laquelle se tenait un cultivateur empreint de dignité.
 
-Le brouillard se mit à tourbillonner avec une intensité accrue, et les bêtes environnantes s'éparpillèrent, terrifiées. Plusieurs autres rayons de lumière passèrent en revue le paysage.
+Le brouillard se mit à tourbillonner avec une intensité accrue, et les bêtes environnantes s'éparpillèrent, terrifiées. Plusieurs autres rayons de lumière passèrent en sifflant.
 
 Ce n'était pas un cas isolé. En l'espace de quelques courtes minutes, plusieurs dizaines de traînées lumineuses percèrent la brume pour traverser rapidement la région de rang 5.
 
@@ -112,4 +112,4 @@ Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercept
 
 — Compagnon cultivateur Shi, même si votre Secte de la Fleur Claire envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région de rang 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
 
-— Le jade de la Secte Céleste Brise-Ciel de la région de rang 8 et la recette légendaire d'une pilule du Nirvana Vide!
+— Le jade de la Secte Brise-Ciel de la région de rang 8 et la recette légendaire d'une pilule du Nirvana Vide!

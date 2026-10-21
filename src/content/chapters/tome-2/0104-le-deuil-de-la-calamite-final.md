@@ -34,7 +34,7 @@ Le corps de Wang Hao fut secoué par une force intérieure qui semblait vouloir 
 
 Teng Huayuan se retourna avec un ricanement méprisant. D'un revers de main, il réduisit la maison en poussière sans un bruit, révélant un homme et une femme dont les visages étaient pétrifiés par la terreur.
 
-Cet homme et cette femme étaient le troisième oncle et la tante de Wang Lin, qui étaient également les parents de Wang Hao.
+Cet homme et cette femme étaient le troisième oncle et la troisième tante de Wang Lin, qui étaient également les parents de Wang Hao.
 
 La main droite de Teng Huayuan s'étira, et le père de Wang Hao fut soulevé dans les airs, ses deux mains agrippées à sa gorge. Son visage devint instantanément pourpre et il ouvrit la bouche dans une expression d'agonie pure.
 
@@ -114,7 +114,7 @@ Quinze minutes plus tard, Teng Huayuan sortit de la maison. D'un geste de sa mai
 
 Teng Huayuan ricana sinistrement et pointa l'image du doigt.
 
-Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il dirigeait ses trois poursuivants vers le lieu de rassemblement de la Secte des Cadavres. Soudain, une douleur sans précédent lui frappa la poitrine, comme si un souffle lui était arraché; il poussa un gémissement, trébucha, tomba à demi à genoux et cracha un jet de sang.
+Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il fuyait, ses trois poursuivants sur les talons, vers le lieu de rassemblement de la Secte des Cadavres. Soudain, une douleur sans précédent lui frappa la poitrine, comme si un souffle lui était arraché; il poussa un gémissement, trébucha, tomba à demi à genoux et cracha un jet de sang.
 
 La douleur! Une douleur inimaginable! Une douleur indescriptible!
 

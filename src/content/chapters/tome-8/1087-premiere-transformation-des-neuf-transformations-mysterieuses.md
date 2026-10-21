@@ -96,7 +96,7 @@ Pourtant, au moment où il ferma les yeux, la main droite de Wang Lin s'immobili
 
 « Huitième tatouage de feu, ouvre-toi! » Wang Lin parvint à hurler dans un effort surhumain!
 
-Le huitième tatouage sur sa main droite commença à brûler et s'éleva dans les airs. C'était comme une fleur de feu s'épanouissant au milieu de ce champ stellaire incandescent. Le corps de Wang Lin fut projeté en l'air et, dans un rugissement qui fit trembler la terre, la fleur flamboyante fonça vers lui. Elle pénétra son corps avec frénésie, semblant aspirer tout le feu du système stellaire.
+Le huitième tatouage sur son bras droit commença à brûler et s'éleva dans les airs. C'était comme une fleur de feu s'épanouissant au milieu de ce champ stellaire incandescent. Le corps de Wang Lin fut projeté en l'air et, dans un rugissement qui fit trembler la terre, la fleur flamboyante fonça vers lui. Elle pénétra son corps avec frénésie, semblant aspirer tout le feu du système stellaire.
 
 À cet instant, le champ stellaire où résidait la Secte Divine de l'Oiseau Vermillon commença à bouillonner! Toutes les créatures de ce domaine furent ébranlées et levèrent les yeux...
 

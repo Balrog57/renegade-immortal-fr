@@ -48,7 +48,7 @@ La brume stellaire au loin se mit à tourbillonner, et Li Qianmei, aux cheveux b
 
 Wang Lin s'arrêta pour réfléchir. Il se tourna vers Maître Pin Cendré et dit lentement: « Camarade cultivateur Pin Cendré, allez-y d'abord. Je vous rattraperai un peu plus tard. »
 
-Maître Pin Cendré sourit et tendit un jade à Wang Lin. Puis il rit et ajouta: « Le camarade cultivateur Lu peut se rendre à l'endroit indiqué sur la carte. Quelques vieux amis m'y attendront. »
+Maître Pin Cendré sourit et tendit un jade à Wang Lin. Puis il rit et ajouta: « Le camarade cultivateur Lu peut se rendre à l'endroit indiqué sur la carte. Ce vieil homme et quelques vieux amis vous y attendront. »
 
 Sur ce, il regarda Li Qianmei, joignit les mains et disparut dans la brume. Il ne craignait pas que Wang Lin ne vienne pas le rejoindre.
 
@@ -90,7 +90,7 @@ La lumière atterrit dans la main de Wang Lin, se dissipant pour révéler un pi
 
 Wang Lin fit un mouvement de la main et commença à tracer une rune avec le pinceau. Sa main ne faiblit pas, traçant trait après trait jusqu'à ce que la rune, d'une complexité extrême, soit achevée.
 
-« Ce pinceau est un trésor céleste; utilisé avec cette rune, il vous permettra de manifester une puissance phénoménale malgré votre niveau de culture! » Wang Lin lâcha le pinceau. Une lueur dorée enveloppa l'objet alors qu'il flottait dans le vide.
+« Ce pinceau est un trésor céleste; utilisé avec cette rune, il vous permettra de manifester une puissance phénoménale avec votre niveau de culture! » Wang Lin lâcha le pinceau. Une lueur dorée enveloppa l'objet alors qu'il flottait dans le vide.
 
 Sans plus regarder Li Qianmei, Wang Lin se détourna et s'élança vers l'horizon.
 

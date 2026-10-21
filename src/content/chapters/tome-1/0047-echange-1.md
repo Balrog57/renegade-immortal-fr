@@ -62,7 +62,7 @@ Wang Lin se tenait derrière Sun Dazhu, sur le dos son épée volante étincelan
 
 Sun Dazhu était très satisfait de l'apparence de son disciple. Depuis que Wang Lin avait atteint le troisième niveau, chaque fois qu'il le regardait, il éprouvait moins d'agacement qu'auparavant. Bien qu'il ne l'aimât pas encore, il commençait au moins à le considérer comme son propre disciple.
 
-Bien sûr, tout cela dépendait de la capacité de Wang Lin à franchir le troisième niveau. Si, après huit ou dix ans, Wang Lin stagnait toujours à ce stade, alors Sun Dazhu finirait probablement par le détester à nouveau.
+Bien sûr, tout cela dépendait de la capacité de Wang Lin à rester au troisième niveau. Si, après huit ou dix ans, Wang Lin stagnait toujours à ce stade, alors Sun Dazhu finirait probablement par le détester à nouveau.
 
 Durant ces trois jours, Wang Lin n'avait presque pas quitté sa demeure. Il avait passé la majeure partie de son temps dans l'espace de rêve, discutant avec Situ Nan.
 

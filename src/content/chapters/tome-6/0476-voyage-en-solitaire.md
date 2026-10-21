@@ -12,7 +12,7 @@ La boutique du clan Shang possédait effectivement de l'encre de neige, mais son
 
 Un tel prix dépassait les attentes de Wang Lin. Il n'avait pas imaginé que l'encre de neige compte parmi les matériaux de premier ordre du monde de la culture.
 
-Les anciens dieux pouvaient voyager d'une planète à l'autre pour en chercher sans difficulté. Mais pour les cultivateurs, l'encre de neige était d'une rareté absolue. D'après ce qu'il avait entendu dire de cette femme, l'encre de neige était excellente pour nourrir l'âme. Si l'on en possédait quelques gouttes lors de la possession d'un corps, la vitesse de cette possession serait multipliée par plusieurs.
+Les anciens dieux pouvaient voyager d'une planète à l'autre pour en chercher sans difficulté. Mais pour les cultivateurs, l'encre de neige était d'une rareté absolue. D'après ce qu'il avait entendu dire de cette femme, l'encre de neige était excellente pour nourrir l'âme. Si l'on en possédait quelques gouttes lors de la possession d'un corps, la vitesse de fusion de l'âme originelle serait multipliée par plusieurs.
 
 De même, si l'on en gardait un peu dans la bouche lorsque son âme originelle quittait son corps, cela pourrait empêcher la destruction de celle-ci, même en cas de blessure grave, permettant ainsi de pouvoir, au moins, retourner dans son corps.
 
@@ -62,7 +62,7 @@ Après avoir lancé la bouteille, Situ Nan commença à inspecter son butin. En 
 
 « Haha, pas mal. La récolte de cette fois est plusieurs fois supérieure aux précédentes. »
 
-Lorsque Wang Lin prit le sac et l'examina avec son sens divin, ses yeux s'illuminèrent. Il prit secrètement une décision en son cœur: « Ce genre de pillage n'est pas si mal. Si l'occasion se présente à l'avenir, je devrai moi aussi voler de la sorte. »
+Lorsque Wang Lin prit la bouteille et l'examina avec son sens divin, une lueur de réflexion passa dans ses yeux. Il prit secrètement une décision en son cœur: « Ce genre de pillage n'est pas si mal. Si l'occasion se présente à l'avenir, je devrai moi aussi voler de la sorte. »
 
 L'espace n'était pas totalement sombre; parfois, de nombreuses lumières et objets colorés flottaient dans le néant. Cette beauté pouvait faire trembler le cœur de n'importe qui d'un seul regard.
 

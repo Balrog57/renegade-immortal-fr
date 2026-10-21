@@ -136,4 +136,4 @@ Le jeune homme en jaune fronça les sourcils: « 18 000 cristaux d'origine! »
 
 « 3... 30 000 cristaux d'origine! » La sueur perla sur le front d'Ouyang Long.
 
-« Tu n'es qu'un membre de la Secte du Jade Précieux de rang 5; d'où sors-tu autant de cristaux d'origine?! » Le jeune homme en jaune se leva et foudroya Ouyang Long du regard. Une intention meurtrière brilla dans ses yeux, avant qu'il ne reconnaisse l'identité de son adversaire.
+« Tu n'es qu'un membre de la Secte du Jade Précieux de rang 5; d'où sors-tu autant de cristaux d'origine?! » Le jeune homme en jaune se leva et foudroya Ouyang Long du regard. Une intention meurtrière brilla dans ses yeux, ayant reconnu l'identité d'Ouyang Long.

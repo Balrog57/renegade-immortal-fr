@@ -14,7 +14,7 @@ C'était comme si... la statue céleste pleurait deux traînées de sang...
 
 « Me serais-je trompé... » Li Yuan fixa la statue de pierre en marmonnant, ses yeux empreints de confusion.
 
-Le regard de Wang Lin était glacial. Ce Li Yuan n'était pas dangereux en soi. Avec une culture au sommet du stade avancé de l'Ascendant, Wang Lin pourrait facilement l'emporter. Cependant, une aura puissante émanait de l'intérieur du corps de Li Yuan, et la source de cette puissance était l'empreinte d'esclave!
+Le regard de Wang Lin était glacial. Ce Li Yuan n'était pas dangereux en soi. Il n'était qu'un cultivateur au sommet du stade avancé de l'Ascendant, que Wang Lin pourrait facilement vaincre. Cependant, une aura puissante émanait de l'intérieur du corps de Li Yuan, et la source de cette puissance était l'empreinte d'esclave!
 
 C'était à cause de cette aura que cet homme dégageait toujours un air mystérieux.
 

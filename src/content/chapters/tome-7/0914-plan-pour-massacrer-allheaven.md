@@ -126,4 +126,4 @@ Regardant son propre corps, le cultivateur aux six doigts esquissa un sourire si
 
 Derrière lui, les cultivateurs Luotian sortirent un à un, arborant tous des sourires étranges.
 
-« Le plan du Palais Xuan pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Saint Démon Noir et le Saint de l'Origine du Dao Céleste ont été dépêchés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »
+« Le plan « Massacre de Luotian » du Palais Di Xuan commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Saint Démon Noir et le Saint de l'Origine du Dao Céleste ont été dépêchés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »

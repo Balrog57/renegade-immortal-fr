@@ -20,7 +20,7 @@ Désormais dépourvu du sceau du Gardien Céleste, Ta Shan fut envahi par une au
 
 Un tatouage complexe se forma progressivement sous ses doigts, gravé profondément entre les sourcils de Ta Shan.
 
-« Au nom de l'Ancêtre Sainte de votre clan du Tatouage, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela et les yeux de Ta Shan s'illuminèrent. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
+« Au nom de l'Ancêtre Sainte de votre clan du Tatouage, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela d'une lueur sombre. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
 
 Tandis qu'elle gravait ce nouveau tatouage sur Ta Shan, elle plongea sans retenue dans ses souvenirs. Elle vit comment le clan de Ta Shan avait vécu à l'intérieur de la Bête des Limbes, sacrifié aux Célestiels. Elle vit comment ces derniers les avaient marqués d'une empreinte d'esclave. Elle vit l'apparition de Wang Lin, qui les avait extirpés de la Bête des Limbes pour leur trouver un nouveau foyer.
 

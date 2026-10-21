@@ -16,7 +16,7 @@ Cette femme était Zi Xia, de la Rivière Invoquée, la septième concubine! Con
 
 Cette femme n'était pas faible. Avant que Wang Lin ne maîtrise l'essence de la restriction, ce combat aurait été ardu; mais avec l'Arc Li Guang en main, elle le redoutait fortement. Cependant, maintenant qu'il possédait l'essence de la restriction, que sa lignée du Dao Antique était plus puissante et qu'il disposait du bras droit de Ye Mo ainsi que de la loi qu'il avait établie, la situation était totalement inversée. Même sans l'Arc Li Guang, il avait le pouvoir de tuer cette septième concubine!
 
-« Le Senior Qing Lin a dit autrefois que le Cercueil d'Évitement du Ciel lui appartenait... Cette femme est une concubine impériale céleste, elle doit donc connaître certains secrets de cet endroit... » Les yeux de Wang Lin s'illuminèrent et il agita sa main droite. L'épée de sang s'élança, et d'un pas, il disparut.
+« Le Senior Qing Lin a dit autrefois que le Cercueil d'Évitement du Ciel avait appartenu à cette femme... Cette femme est une concubine impériale céleste, elle doit donc connaître certains secrets de cet endroit... » Les yeux de Wang Lin s'illuminèrent et il agita sa main droite. L'épée de sang s'élança, et d'un pas, il disparut.
 
 L'épée de sang était anormale; loin d'être silencieuse, elle émit un hurlement aigu et perçant qui déchira l'air. En un instant, elle franchit dix mille li et fonça vers la silhouette qui se dessinait progressivement dans le vortex en pleine dissipation.
 

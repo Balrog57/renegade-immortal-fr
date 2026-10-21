@@ -32,7 +32,7 @@ Pourtant, malgré ces morts, certains refusèrent d'y croire et tentèrent de s'
 
 À cet instant précis, sept ou huit cultivateurs étaient éparpillés dans le vide, chacun activant sa propre technique. Au loin, ils voyaient un groupe d'épées célestes foncer vers eux.
 
-Parmi ces hommes, certains possédaient des techniques puissantes. Cependant, dès que les épées arrivèrent, cinq explosions retentirent et cinq d'entre eux furent instantanément tués, les lames leur transperçant le cœur. Les survivants réussirent à contenir trois des épées célestes qui étaient restées à la traîne.
+Parmi ces hommes, certains possédaient des techniques puissantes. Cependant, dès que les épées arrivèrent, plusieurs explosions retentirent et cinq d'entre eux furent instantanément tués, les lames leur transperçant le cœur. Les survivants réussirent à contenir trois des épées célestes qui étaient restées à la traîne.
 
 Le front de ces hommes était couvert de sueur froide alors que les trois épées captives libéraient une énergie tranchante déchaînée et luttaient avec frénésie.
 

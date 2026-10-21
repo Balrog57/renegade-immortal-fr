@@ -86,7 +86,7 @@ Il n'y avait aucune raison pour cette bataille entre les Royaumes Intérieur et 
 
 Ce bain de sang frénétique se poursuivit à l'extérieur de la Formation du Royaume Scellé. La formation était le seul témoin de ce carnage. Vaguement, il y a d'innombrables dizaines de milliers d'années, un immortel du Royaume Intérieur avait voulu s'élancer hors de la formation, mais avait été tué par l'esprit de la formation sous le regard froid et indifférent du Royaume Extérieur; son rugissement d'avant la mort résonnait en silence dans le ciel et la terre, des deux côtés de la formation.
 
-« Un jour viendra où une future génération de cultivateurs brisera cette formation et provoquera votre extinction, étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
+
 
 Le sang ne formait pas une rivière, mais le spectacle était encore plus terrifiant qu'un fleuve de sang!
 

@@ -110,7 +110,7 @@ La première fois, lorsqu'il avait atteint le stade de la Formation du Noyau; la
 
 Wang Lin soupira et, d'un geste de la main, fit apparaître le parchemin. Quant à savoir précisément de qui il l'avait reçu, sa mémoire lui faisait défaut.
 
-Il lança le parchemin en l'air, tandis que son âme originelle en émergeait pour commencer à le raffiner.
+Il lança le parchemin en l'air, tandis que son âme originelle sortait de son corps pour commencer à le raffiner.
 
 C'était une habitude acquise ces dernières années: chaque fois qu'il raffinait le parchemin, il tissait un lien plus étroit avec lui.
 

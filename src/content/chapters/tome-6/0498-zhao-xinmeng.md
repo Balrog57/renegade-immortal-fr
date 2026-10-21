@@ -40,7 +40,7 @@ Wang Lin fixa les étoiles. Sur la planète Tian Yun, il semblait que les tréso
 
 Les étoiles orbitant autour de Zhao Xinmeng commencèrent à converger vers son doigt tandis que son index droit fendait le vide. En un clin d'œil, tout son bras droit fut enveloppé d'une épaisse lumière violette.
 
-Même le reste de son corps fut recouvert d'une couche de lueur pourpre, lui conférant une aura mystérieuse.
+Même son visage fut baigné d'une lueur pourpre, lui conférant une aura mystérieuse.
 
 « Septième frère, je sais que tu ignores quel est mon Dao, alors je vais te le révéler aujourd'hui! Mon Dao est l'Ombre Démoniaque. Dès lors que j'ai vu un sort une fois et que ses exigences ne dépassent pas mon niveau de culture, je peux l'imiter, bien qu'il ne soit pas déployé à pleine puissance! Ce sort est celui que j'ai créé en imitant ton Doigt Démoniaque. Je l'appelle la Main Démoniaque Violette! »
 
@@ -58,7 +58,7 @@ Le regard de Wang Lin était empreint de gravité lorsqu'il tonna: « Doigt Dém
 
 La flamme violette sur son doigt s'élança et percuta la Main Démoniaque Violette de Zhao Xinmeng.
 
-Lorsque les étoiles violettes fusionnèrent totalement avec la lumière pourpre, une série de craquements et de détonations retentit. Un changement mystérieux s'opérait en leur sein.
+Lorsque les étoiles violettes fusionnèrent totalement avec la lumière pourpre, une série de craquements et de détonations retentit. Un changement mystérieux s'opérait en leur sein. Ce changement ne dura que quelques instants avant de s'effondrer, libérant un anneau de lumière pourpre qui se dispersa en une vague de magie démoniaque.
 
 L'énergie démoniaque émanant de la lumière était plusieurs fois plus intense que celle du Doigt Démoniaque de Wang Lin. C'était manifestement le résultat d'une mutation mystérieuse provoquée par la collision des deux sorts.
 

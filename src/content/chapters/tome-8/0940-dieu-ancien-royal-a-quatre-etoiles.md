@@ -36,7 +36,7 @@ Voyant le corps colossal de mille pieds de Wang Lin fondre sur lui, le dragon do
 
 À peine eut-il parlé que l'un des talismans au-dessus de lui s'embrasa. Une flamme verte, chargée d'un poison redoutable, jaillit vers Wang Lin.
 
-L'expression de Wang Lin changea. À cet instant, il n'était plus un simple cultivateur, mais un Ancien Dieu ayant reçu la transmission du pouvoir et celle de la connaissance. Un Ancien Dieu royal à quatre étoiles!
+L'expression de Wang Lin resta froide. À cet instant, il n'était plus un simple cultivateur, mais un Ancien Dieu ayant reçu la transmission du pouvoir et celle de la connaissance. Un Ancien Dieu royal à quatre étoiles!
 
 Bien que le pouvoir de l'avatar de Wang Lin fût totalement scellé, l'obligeant à n'utiliser que la puissance de son corps d'Ancien Dieu, un Ancien Dieu à quatre étoiles était amplement suffisant pour terrasser ce dragon doré!
 

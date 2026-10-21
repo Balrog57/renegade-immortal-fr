@@ -22,7 +22,7 @@ Leurs esprits tremblaient, car leur pilier spirituel s'était totalement effondr
 
 Tout cela se produisit en un instant. Wang Lin se montrait totalement impitoyable envers les cultivateurs du Royaume Extérieur. Lorsqu'il avait annoncé la capture du Grand Ancien, il savait qu'en raison de leur foi, les membres du clan ne le croiraient pas immédiatement, mais il pouvait utiliser cela pour planter une graine!
 
-Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet de l'Âme. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un fouet invisible, un coup impitoyable dans les cœurs du Clan du Tonnerre Dispersé!
+Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet Kunji. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un fouet invisible, un coup impitoyable dans les cœurs du Clan du Tonnerre Dispersé!
 
 Cela provoquerait l'explosion soudaine de la graine qu'il avait semée. Exactement comme Wang Lin l'avait prévu, tout le Clan du Tonnerre Dispersé sombra dans le chaos!
 

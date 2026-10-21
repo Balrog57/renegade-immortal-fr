@@ -74,7 +74,7 @@ Ce qui terrifiait le plus Yun Fei, c'était que Wang Lin ait avalé le noyau dor
 
 Elle n'avait jamais rien vu de tel. À cet instant, la pression exercée par Wang Lin était bien plus écrasante que celle de Qian Kun.
 
-Le regard de Wang Lin se posa sur Yun Fei, faisant frissonner son corps instantanément. Elle n'osa pas soutenir son regard. Il dit calmement: « Je t'ai aidée à tuer Qian Kun, comment comptes-tu me remercier? »
+Le regard de Wang Lin se posa sur Yun Fei, faisant frissonner son corps instantanément. Elle n'osa pas soutenir son regard. Il dit calmement: « J'ai tué Qian Kun pour toi, comment comptes-tu me remercier? »
 
 Tremblante, Yun Fei leva la tête et s'efforça de reprendre contenance. Elle esquissa un sourire forcé, mais sa voix ne put s'empêcher de vaciller: « Se... Senior, cette junior ne connaît pas Qian Kun. »
 

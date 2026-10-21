@@ -132,4 +132,4 @@ Le corps de cet esprit de bête, chargé d'une force destructrice, percuta Chi M
 
 Cette âme ressemblait trait pour trait à Chi Mu.
 
-Des fissures apparurent sur le front de Chi Mu et s'étendirent lentement à tout son corps. Puis, il se mua en poussière et disparut à jamais.
+Des fissures apparurent lentement sur le front de Chi Mu et enveloppèrent aussitôt tout son corps. Puis, il se mua en poussière et disparut à jamais.

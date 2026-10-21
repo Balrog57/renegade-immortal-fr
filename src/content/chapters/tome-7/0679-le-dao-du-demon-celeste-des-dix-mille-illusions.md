@@ -24,7 +24,7 @@ Wang Lin regarda Liu Mei et dit calmement: « Vous avez déjà tué les autres. 
 
 Il était venu ici pour comprendre pourquoi Liu Mei se trouvait dans la partie sud de la planète. En déployant son sens divin, il avait immédiatement repéré le clone de Sun Xi. Après réflexion, il comprit ce qui s'était passé.
 
-Puisque les trois lui avaient menti au sujet des clones, il n'avait plus aucune raison de se mettre en danger pour eux. Tant qu'il donnerait le meilleur de lui-même, cela suffirait.
+Puisque les trois lui avaient menti au sujet des clones, il n'avait plus aucune raison de se mettre en danger pour eux. Il suffisait qu'il fasse un petit effort.
 
 De plus, ce qui troublait le cœur de Wang Lin était que la culture de cette Liu Mei avait déjà atteint le sommet du dernier stade d'Ascendant. Ce niveau de culture fit imperceptiblement rétrécir les pupilles de Wang Lin.
 
@@ -78,13 +78,13 @@ Papillon Rouge fixa Wang Lin et dit calmement: « Notre querelle doit également
 
 « Quel genre de sort est-ce là?! » Les pupilles de Wang Lin se rétractèrent imperceptiblement. La Liu Mei qu'il voyait venait de se transformer en Papillon Rouge. Grâce à son sens divin, il confirma qu'il s'agissait de la véritable Papillon Rouge, sans aucune trace de l'aura de Liu Mei.
 
-Face aux pétales, la main droite de Wang Lin forma un sceau et, d'une pensée, la Formation d'Épées aux Sept Étoiles se referma. Les sept épées formèrent un cercle et tournèrent à une vitesse fulgurante, créant un puissant vent d'épées qui broya les pétales de fleurs.
+Face aux pétales, la main droite de Wang Lin forma un sceau et, d'une pensée, la Formation d'Épées aux Sept Étoiles s'approcha aussitôt. Les sept épées formèrent un cercle et tournèrent à une vitesse fulgurante, créant un puissant vent d'épées qui broya les pétales de fleurs.
 
 L'arrogance dans les yeux de Papillon Rouge s'intensifia; elle fit claquer ses doigts et le pistil de la fleur s'envola. Sa main gauche pointa l'air à plusieurs reprises, et le pistil se combina soudainement pour former une rune. Elle pressa sa main, projetant immédiatement la rune qui s'étendit jusqu'à atteindre environ 330 mètres de large, s'abattant sur Wang Lin telle une montagne gigantesque.
 
 Le regard de Wang Lin devint glacial. Il leva la main et pointa le ciel. Un éclair déchira les cieux et une longue rivière des enfers apparut soudainement pour broyer la rune. Cette rivière était imprégnée d'une soif de sang. Sous le contrôle de Wang Lin, elle se mouvait comme un dragon rugissant et encercla immédiatement Papillon Rouge, s'apprêtant à l'engloutir tout entière.
 
-Les yeux de Papillon Rouge brillèrent intensément et elle dit calmement: « Intention Dao! Vous possédez donc votre propre Dao! »
+Les yeux de Papillon Rouge brillèrent intensément et elle dit calmement: « Intention Dao! Vous possédez donc une Intention Dao! »
 
 Wang Lin laissa échapper un grognement froid. Tandis que la rivière des enfers s'agitait, le ciel s'obscurcit. Des éclairs jaillissaient de l'intérieur de la rivière, la rendant plus puissante encore.
 

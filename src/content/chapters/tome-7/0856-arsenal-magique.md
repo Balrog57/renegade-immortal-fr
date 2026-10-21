@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 856 - Magical Arsenal
 slug: arsenal-magique
 ---
-« Le Rugissement de la Grue, les Plantes se Transforment en Armes... Tu ne possèdes même pas ta propre origine céleste et tu oses prétendre que tu as créé ces sorts célestes? » Les yeux de Qing Shui étaient empreints de mépris. Il daigna à peine accorder un regard aux innombrables plumes recouvrant un rayon de 500 kilomètres. D'un seul pas, il atteignit Wang Lin et observa les sept éclairs de tonnerre qui descendaient!
+« Le Rugissement de la Grue, les Plantes se Transforment en Armes... Tu ne possèdes même pas ta propre origine céleste et tu oses prétendre que tu as créé ces sorts célestes? » Les yeux de Qing Shui étaient empreints de mépris. Il daigna à peine accorder un regard aux innombrables plumes recouvrant un rayon de 500 kilomètres. D'un seul pas, il se plaça devant Wang Lin et observa les sept éclairs de tonnerre qui descendaient!
 
 À cet instant, le premier éclair vira au rouge et fondit du ciel avec une rapidité extrême.
 

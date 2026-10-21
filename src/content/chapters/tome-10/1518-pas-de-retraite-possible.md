@@ -46,7 +46,7 @@ C'était pour le bien commun!
 
 Le feu de la guerre était déjà à sa porte, et s'il ne pensait qu'à ses propres gains et pertes, alors il ne méritait pas d'être appelé un homme! Ni un cultivateur!
 
-Son essence de massacre augmentait follement tandis que diverses émotions traversaient l'esprit de Wang Lin. Tuer des centaines de millions de personnes pour soi-même ne méritait pas le nom de massacre; ce n'était que de la boucherie!
+Son essence de massacre augmentait follement tandis que diverses émotions traversaient l'esprit de Wang Lin. Tuer cent millions de personnes pour soi-même ne méritait pas le nom de massacre; ce n'était que de la boucherie!
 
 Le véritable massacre consistait à tuer avec une raison. Résister farouchement pour un idéal, ou pour les gens et les choses que l'on veut protéger!
 

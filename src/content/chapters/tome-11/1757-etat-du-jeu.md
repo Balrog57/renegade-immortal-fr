@@ -94,7 +94,7 @@ Il se reconcentra sur le général issu de son sens divin; une nouvelle lance ap
 
 Mais comment Wang Lin pouvait-il le laisser agir ainsi? Il savait que le temps pressait et qu'il devait conclure ce combat au plus vite. Voyant le général en armure blanche battre en retraite, Wang Lin poussa un rugissement et frappa le sol de sa lame. Utilisant la force du choc pour bondir, il s'élança, foulant la tête des soldats pour poursuivre le général en armure blanche!
 
-Chaque pas qu'il faisait transformait la victime en gaz noir qui venait l'envelopper. Après avoir parcouru une centaine de pas, la brume noire se condensa et un hennissement retentit. Un destrier noir prit forme et Wang Lin s'y mit en selle, avançant tel une tempête. Rien ne survivait sur son passage alors qu'il chargeait!
+Chaque pas qu'il faisait transformait la victime en gaz noir qui venait l'envelopper. Après avoir parcouru mille pieds, la brume noire se condensa et un hennissement retentit. Un destrier noir prit forme et Wang Lin s'y mit en selle, avançant tel une tempête. Rien ne survivait sur son passage alors qu'il chargeait!
 
 Il fonça droit sur le général en armure blanche!
 

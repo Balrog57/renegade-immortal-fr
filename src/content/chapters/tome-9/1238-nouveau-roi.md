@@ -74,7 +74,7 @@ C'était comme si le roi moustique tentait de se régénérer par cette méthode
 
 Plus loin encore, les ondulations à l'horizon se distordirent davantage alors qu'un océan rouge infini convergeait rapidement vers le lieu du combat.
 
-Soudain, la lumière bleue sur la bête moustique de Wang Lin scintilla et enveloppa toute la zone. Mais l'instant d'après, cette lueur bleue s'effondra pour laisser place à une lumière dorée, devenant l'unique éclat d'or dans un rayon de 5 000 kilomètres!
+Soudain, la lumière bleue sur la bête moustique de Wang Lin scintilla et enveloppa toute la zone. Mais l'instant d'après, cette lueur bleue s'effondra pour laisser place à une lumière dorée, devenant l'unique éclat d'or dans un rayon de dizaines de milliers de kilomètres!
 
 La bête moustique baignée dans cette lumière dorée s'affirmait comme le véritable souverain et poussa un rugissement tonitruant! C'était le cri du monarque, le rugissement d'un roi moustique!
 

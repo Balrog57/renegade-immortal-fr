@@ -104,7 +104,7 @@ Wang Lin secoua la tête en silence. Il rangea le Voile Fantôme et s'éloigna.
 
 « Il reste encore beaucoup à faire, et il me faudra du temps pour étudier l'illusion sur cette voile... Cependant, il est temps de quitter cet endroit. » Les cheveux blancs de Wang Lin flottèrent alors qu'il quittait progressivement les lieux.
 
-Le voyage de Wang Lin fut fructueux. Ses corps du Dao Ancien avaient atteint huit étoiles, il avait atteint le stade avancé du Vide Spirituel, il avait obtenu le Voile Fantôme pour commander le navire, et il avait même noué une alliance avec Fan Shanlu.
+Le voyage de Wang Lin fut fructueux. Ses corps du Dao Ancien avaient atteint huit étoiles, il avait atteint le stade avancé du Vide Spirituel, il avait obtenu le Voile Fantôme pour commander le Navire Démon des Âmes, et il avait même noué une alliance avec Fan Shanlu.
 
 Plus important encore, il avait entrevu, chez le Daoïste aux Sept Couleurs, une méthode pour rechercher la troisième âme.
 

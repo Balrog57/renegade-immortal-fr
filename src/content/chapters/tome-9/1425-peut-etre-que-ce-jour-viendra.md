@@ -106,7 +106,7 @@ L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'
 
 La silhouette de Maître Simo apparut.
 
-Wang Lin n'avait pas délibérément laissé quoi que ce soit dans les souvenirs de Maître Simo, mais il y avait glissé quelques pensées... Il avait renoncé à l'affiner.
+Grâce au Dao du Rêve, Wang Lin n'avait pas délibérément laissé quoi que ce soit dans les souvenirs de Maître Simo, mais il y avait glissé quelques pensées... Il avait renoncé à l'affiner.
 
 Ce raffinage aurait sans doute échoué, car Maître Simo possédait encore de nombreux trésors. Poursuivre cette bataille n'aurait eu aucun sens.
 

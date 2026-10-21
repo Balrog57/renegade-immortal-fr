@@ -24,7 +24,7 @@ Les rugissements furieux des trois clans de l'Ordre Ancien engendrèrent une tem
 
 L'Ancien Démon Bei Luo fit un pas en avant et hurla: « Dieu Ancestral, oses-tu affronter ce démon ancestral avec moi?! »
 
-La main droite de Wang Lin s'étira vers le vide devant lui, déchirant l'espace pour créer une immense brèche. Des éclairs violets jaillirent de la faille, et il en tira la Lance Tueuse de Dieux longue de mille pieds. Saisissant l'arme, il cria: « Pourquoi n'oserais-je pas?! »
+La main droite de Wang Lin s'étira vers le vide devant lui, déchirant l'espace pour créer une immense brèche. Des éclairs violets jaillirent de la faille, et il en tira la Lance Tueuse de Dieux longue de plusieurs milliers de pieds. Saisissant l'arme, il cria: « Pourquoi n'oserais-je pas?! »
 
 L'Ancien Démon Bei Luo rit tandis que sa main droite plongeait également dans le vide. Un immense drapeau apparut instantanément, semblant couvrir le monde entier, et vola droit vers le démon ancestral.
 
@@ -84,7 +84,7 @@ En un clin d'œil, tout le magma du septième étage disparut, laissant place à
 
 Simultanément, dans l'espace infini où se trouvait la poussière abritant la Terre des Esprits Démoniaques, un incendie ravageait l'horizon. Un Oiseau Vermillon géant, poussant des cris stridents, s'approchait lentement.
 
-Cet Oiseau Vermillon était doté d'une intelligence. Contre toute attente, il ne se dirigeait pas vers l'entrée de la Mer des Esprits Démoniaques de l'Est, mais vers la véritable localisation de la Terre des Esprits Démoniaques!
+Cet Oiseau Vermillon était doté d'une intelligence. Contre toute attente, il ne se dirigeait pas vers l'entrée de la Mer de l'Est de l'étoile Tianyun, mais vers la véritable localisation de la Terre des Esprits Démoniaques!
 
 Une multitude de cultivateurs suivaient cet Oiseau Vermillon, parmi lesquels se trouvaient six Anciens. Ces derniers portaient tous des robes rouges et dégageaient chacun une aura puissante. Tous étaient des cultivateurs au stade du Briseur du Nirvana!
 

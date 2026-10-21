@@ -44,7 +44,7 @@ Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé. Assi
 
 Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques conjointes de plusieurs pays de culture et les contre-attaques des cultivateurs démoniaques, le conflit était arrivé à une impasse.
 
-L'objectif de Wang Lin était la terre de l'Ancien Dieu. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
+L'objectif de Wang Lin était la terre de l'Ancien Dieu située dans les Étoiles Brisées du Chaos, au sein de la Mer des Démons. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
 
 Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait achever le drapeau de restriction sans déclencher la rétribution divine qui aurait détruit l'objet. En outre, le lieu regorgeait de bêtes spirituelles et même de bêtes désolées; Wang Lin souhaitait en capturer une.
 

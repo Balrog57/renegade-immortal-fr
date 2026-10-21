@@ -40,7 +40,7 @@ Chaque fois que le sens divin d'un trésor s'évanouissait, il ressentait une do
 
 Le corps de Teng Neuf trembla. Ses yeux devinrent rouges et, dans un rugissement, il chargea contre la foudre rouge. Au moment où son corps toucha les éclairs, il ne mourut pas instantanément, mais sa silhouette parut soudainement très affaiblie.
 
-Comment Wang Lin aurait-il pu renoncer à tuer un si bon candidat pour devenir un démon? Il esquissa un sourire en songeant au plaisir qu'il prendrait à transformer les membres de la famille Teng en démons.
+Comment Wang Lin aurait-il pu se résoudre à tuer un si bon candidat pour devenir un démon? Il esquissa un sourire en songeant au plaisir qu'il prendrait à transformer les membres de la famille Teng en démons.
 
 Alors que la foudre rouge se refermait rapidement, l'esprit de Teng Neuf s'effondra sous le poids du désespoir.
 

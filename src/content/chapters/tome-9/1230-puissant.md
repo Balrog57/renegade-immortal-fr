@@ -102,6 +102,6 @@ Il volait derrière l'empreinte de la paume alors qu'il fendait les étoiles. Un
 
 Le continent fut scindé en deux!
 
-Avec une telle puissance, qui dans la région de rang 7 oserait encore résister? Tous ceux qui virent la paume approcher s'enfuirent promptement. Certains furent terrifiés par l'idée que leurs sectes se trouvent sur sa trajectoire; ils dépêchèrent des cultivateurs pour déplacer leur continent à des dizaines de milliers de kilomètres afin de lui libérer le passage!
+Avec une telle puissance, qui dans la région de rang 7 oserait encore résister? Tous ceux qui virent la paume approcher s'enfuirent promptement. Certains furent terrifiés par l'idée que leurs sectes se trouvent sur sa trajectoire; ils dépêchèrent des cultivateurs pour déplacer leur continent à des dizaines de milliers de pieds afin de lui libérer le passage!
 
 Pendant près de dix jours, Wang Lin utilisa l'Empreinte de l'Esprit Guerrier pour ouvrir la voie, et il se rapprocha progressivement de la région de rang 8!

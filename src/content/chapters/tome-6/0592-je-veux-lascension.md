@@ -20,7 +20,7 @@ La solitude de sept cents ans de culture...
 
 Ces cent années de vie commune, dans l'illusion de la Secte du Destin Céleste...
 
-La mélancolie de déambuler dans les rues de la Cité du Démon Céleste...
+La mélancolie de déambuler dans les rues de la Terre des Esprits Démoniaques...
 
 Tout cela s'interrompit brusquement lorsqu'il entendit la musique de la cithare s'élever depuis le bateau!
 
@@ -148,7 +148,7 @@ Quand Wang Lin ouvrit les yeux, toutes les impuretés de son organisme avaient �
 
 « Moi, Wang Lin, j'ai cultivé pendant sept cents ans. Mon domaine est parfaitement fusionné avec mon corps. Je comprends enfin pourquoi je n'ai pas encore atteint le stade d'Ascendant. L'Ascension... Bien que mon domaine soit fusionné avec mon être, mon cœur Dao n'est pas complet. En fin de compte... au plus profond de moi, il subsiste une trace de tristesse, une blessure, une cicatrice scellée... »
 
-« Quand Li Muwan est morte, mon domaine a atteint un nouveau niveau et a pénétré dans mon corps... Mais Wan Er est devenue une pensée scellée dans mon cœur... »
+« Quand Li Muwan est morte, mon domaine a atteint un nouveau niveau et a pénétré dans mon corps... Mais Wan Er est devenue une obsession dans mon cœur... »
 
 « C'est pourquoi je ressens cette mélancolie en écoutant la musique de cette femme, cette empathie... Si j'avais écouté sa cithare pendant cent ans jusqu'à ce qu'elle meure, alors au moment de son trépas, j'aurais atteint l'illumination. La tristesse dans mon cœur se serait dissipée avec sa musique... Ne laissant qu'une empreinte qui se fondrait avec mon âme... »
 

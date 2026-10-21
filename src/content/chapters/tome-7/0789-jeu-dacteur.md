@@ -18,7 +18,7 @@ Ce verrouillage était invisible à l'œil nu, mais son sens divin percevait des
 
 Même la téléportation était impossible; il était totalement pris au piège.
 
-L'homme aux cheveux blancs eut un rictus et sa main droite prit la forme d'une griffe qui se déplaça avec la rapidité de l'éclair. Il apparut soudainement derrière Wang Lin et tendit la main vers son cœur.
+L'homme aux cheveux blancs eut un rictus et sa main droite prit la forme d'une griffe qui se déplaça avec la rapidité de l'éclair. Il apparut soudainement derrière Wang Lin et tendit la main vers son dos, à hauteur du cœur.
 
 Cinq déchirures spatiales sifflèrent dans le vide en direction de Wang Lin.
 
@@ -142,6 +142,6 @@ L'apparence de cet homme ressemblait à celle du vieil homme aux cheveux blancs,
 
 « Que racontes-tu encore? Ce n'est qu'un être céleste. Même si tu étais un Seigneur Céleste, qu'est-ce que cela changerait? De plus, ton niveau de culture actuel n'est que celui de Roi Céleste! » Wang Lin regarda son propre corps prononcer ces mots d'un ton désuet. Pourtant, il avait le vague sentiment que ces paroles manquaient singulièrement de confiance.
 
-Alors qu'il parlait, son corps avança et sa main droite pressa vers le bas. Le vide entier fut mis en mouvement et une brume blanche commença à s'accumuler rapidement. Bientôt, elle se mua en une sphère blanche de la taille d'un poing qui chargea l'homme d'âge moyen.
+Alors qu'il parlait, son corps avança et sa main droite frappa vers l'avant. Le vide entier fut mis en mouvement et une brume blanche commença à s'accumuler rapidement. Bientôt, elle se mua en une sphère blanche de la taille d'un poing qui chargea l'homme d'âge moyen.
 
 « Être capable de rassembler la force des cieux et de la terre... Qui es-tu donc?! » L'homme d'âge moyen devint sérieux et sa lance traça un arc. D'innombrables lueurs rouges apparurent de nulle part et se concentrèrent sur cette trajectoire. L'arc se condensa et fut projeté vers la sphère de lumière.

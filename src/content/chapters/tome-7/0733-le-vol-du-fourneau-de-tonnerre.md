@@ -136,7 +136,7 @@ En voyant cela, l'expression du vieil homme changea radicalement. Horrifié, il 
 
 Le regard de Wang Lin resta calme alors que sa main droite projetait le brouillard, qui fonça vers le vieil homme avec une pression dévastatrice. Simultanément, Wang Lin chargea dans la foulée du nuage. Il leva sa main droite et un éclair se rassembla au creux de sa paume. Un rugissement tonitruant retentit parmi les étoiles et, en un éclair, la foudre prit une forme concrète dans sa main.
 
-À cet instant, Wang Lin ressemblait à une divinité contrôlant la foudre. Tenant l'éclair, il avança vers le vieil homme d'un pas glacial.
+À cet instant, Wang Lin ressemblait à une divinité contrôlant la foudre. Tenant l'éclair, le regard glacial, il avança vers le vieil homme.
 
 Le vieil homme, paniqué, recula une fois de plus. Ses deux mains formèrent un sceau qu'il pointa entre ses sourcils. La zone entre ses arcades commença à bouger étrangement et une fente s'ouvrit, comme si un troisième œil apparaissait!
 

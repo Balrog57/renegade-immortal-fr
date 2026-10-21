@@ -88,13 +88,13 @@ Il pouvait provoquer n'importe quelle famille du Système Stellaire de Luotian, 
 
 À l'origine, compte tenu de son niveau de culture et de sa force mentale, il n'aurait pas cru aussi fermement que Wang Lin appartenait au Temple Céleste du Tonnerre. En fin de compte, ce qui lui avait donné cette certitude, c'était la Bête du Tonnerre!
 
-Seul le Temple Céleste du Tonnerre possédait des Bêtes du Tonnerre; c'était une loi quasi immuable! De même, une Bête du Tonnerre était le symbole d'un messager du Temple Céleste du Tonnerre!
+Dans le Système Stellaire de Luotian, seul le Temple Céleste du Tonnerre possédait des Bêtes du Tonnerre; c'était une loi quasi immuable! De même, une Bête du Tonnerre était le symbole d'un messager du Temple Céleste du Tonnerre!
 
 Qian Kuizi cultivait depuis dix mille ans, mais il n'avait jamais entendu parler d'un individu n'appartenant pas au Temple Céleste du Tonnerre qui possédait une telle bête. La Bête du Tonnerre était un attribut exclusif aux membres de ce temple. Cela était devenu une vérité absolue dans son esprit.
 
 L'expression de Wang Lin ne changea pas. Il fixa Qian Kuizi et demanda calmement: « Un malentendu? »
 
-Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa culture, même en découvrant que cet enfant venait du Temple Céleste du Tonnerre, il n'aurait pas parlé ainsi. Normalement, il ne tenait ce langage que face à quelqu'un de son propre rang.
+Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa culture, même en découvrant que cet enfant venait du Temple Céleste du Tonnerre, il n'aurait pas parlé ainsi. Il ne tenait ce langage que face à un messager du Temple Céleste du Tonnerre ayant atteint la deuxième étape.
 
 Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un bien du Temple Céleste du Tonnerre. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Yin Illusoire pour le protéger.
 
