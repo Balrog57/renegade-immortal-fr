@@ -18,7 +18,7 @@ Le cri de l'Oiseau Vermillon était assourdissant. À son apparition, Wang Lin r
 
 C'était comme si l'Oiseau Vermillon de Wang Lin ressentait une peur instinctive face à ce cri!
 
-L'Oiseau Vermillon aux sept couleurs derrière le vieil homme leva la tête et poussa un cri. La peur se lisait dans ses yeux, et il n'osait point s'envoler!
+L'Oiseau Vermillon aux sept couleurs derrière l'homme d'âge mûr leva la tête et poussa un cri. La peur se lisait dans ses yeux, et il n'osait point s'envoler!
 
 Cette scène fut si soudaine que les pupilles de l'homme d'âge mûr se rétractèrent.
 

@@ -56,7 +56,7 @@ Plus stupéfiant encore, à cet instant précis, un point rouge éclatant apparu
 
 Seuls quelques cultivateurs activèrent de force leur énergie originelle pour empêcher ce point rouge d'apparaître!
 
-Ce point sanguin était la loi du vieil homme aux cheveux blancs. À cet instant, sa culture explosa avec frénésie. Tout en bouleversant le monde, elle affecta également les cultivateurs environnants!
+Ce point sanguin était la loi du vieil homme aux cheveux blancs. À cet instant, sa culture explosa avec frénésie. Tout en bouleversant le monde, elle affecta également près de cent mille cultivateurs environnants!
 
 Le vieil homme poussa un rugissement et chargea Wang Lin. Cependant, lorsqu'il ne fut plus qu'à mille pieds, les yeux de Wang Lin s'ouvrirent comme s'il s'était réveillé d'un sommeil millénaire. Son regard se posa sur le vieil homme.
 
@@ -96,7 +96,7 @@ Alors que le vieil homme aux cheveux blancs rugissait, un craquement se fit ente
 
 En reculant, tous les points rouges sur les cultivateurs environnants scintillèrent et volèrent vers le vieil homme. Cependant, le visage de ce dernier était livide alors qu'il se retirait en fixant Wang Lin avec choc et effroi!
 
-« Quel genre de sort est-ce là?! » Il n'avait jamais vu un sort aussi bizarre de toute sa vie. Cela dépassait son imagination. S'il ne s'était pas libéré au moment critique, empêchant le temps de remonter de dix mille ans, il n'osait imaginer les conséquences!
+« Quel genre de sort est-ce là?! » Il n'avait jamais vu un sort aussi bizarre de toute sa vie. Cela dépassait son imagination. S'il ne s'était pas libéré au moment critique, si le temps avait remonté de dix mille ans, il n'osait imaginer les conséquences!
 
 Pour la première fois, il sentit que Wang Lin était d'une profondeur extrême. Il n'avait plus aucune intention de donner une leçon à Wang Lin; il ne ressentait qu'une terreur infinie!
 

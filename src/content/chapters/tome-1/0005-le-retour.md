@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 5 - The Return
 slug: le-retour
 ---
-En fin de compte, aucun des onze jeunes n'avait réussi l'épreuve. Seule une jeune fille avait également pénétré jusqu'à 6,6 mètres, sans aller plus loin.
+En fin de compte, aucun des onze jeunes n'avait réussi l'épreuve. Hormis Wang Lin, une jeune fille avait également pénétré jusqu'à 6,6 mètres, mais le résultat fut le même.
 
 Ce jour-là, tous les jeunes ayant échoué au test furent renvoyés au pied de la montagne. Les disciples de la Secte Heng Yue les raccompagnèrent chez eux un par un. Celui qui raccompagna Wang Lin était le même jeune homme, du nom de Zhang, qui les avait amenés jusqu'ici. Wang Zhuo et Wang Hao se tenaient à ses côtés.
 

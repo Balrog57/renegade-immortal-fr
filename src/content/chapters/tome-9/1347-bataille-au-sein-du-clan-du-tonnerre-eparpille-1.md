@@ -124,6 +124,6 @@ Le fracas du tonnerre submergea tout. Cependant, à ce moment précis, un rugiss
 
 Cette voix ne provenait pas du temple, mais des profondeurs mêmes du tonnerre éternel. C'était l'Ancien en chef du Clan du Tonnerre Dispersé, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
 
-Un visage de mille pieds apparut au sein du tonnerre éternel. Ce visage était semblable à un soleil, illuminant tout le ciel étoilé!
+Un visage de mille pieds apparut au sein du tonnerre éternel. La marque de clan entre ses sourcils brillait comme un soleil, illuminant tout le ciel étoilé!
 
 Les yeux de Wang Lin brillèrent et il déclara lentement: « Je suis Wang Lin. Aujourd'hui, je suis venu pour m'emparer du tonnerre éternel et détruire votre Clan du Tonnerre Dispersé! »

@@ -116,7 +116,7 @@ Six respirations!
 
 Sept respirations!
 
-Les yeux du bel homme se rétrécirent, révélant une lueur étrange.
+Les yeux du Maître du Dao Miao Yin, semblable à un jeune homme élégant, se rétrécirent, révélant une lueur étrange.
 
 Au moment même où le bâton d'encens atteignait sept respirations, une vague d'exclamations éclata. Ce n'était pas un seul homme, mais des milliers de voix. Bientôt, le son devint assourdissant!
 

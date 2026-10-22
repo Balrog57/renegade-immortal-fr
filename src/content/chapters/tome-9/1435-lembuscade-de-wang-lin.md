@@ -108,7 +108,7 @@ C'était la première fois qu'elle vivait une telle expérience!
 
 « C'est l'emplacement de la Tombe de l'Ordre Ancien!! Pourquoi a-t-il choisi de s'enfuir là-bas?! »
 
-L'homme du clan de l'Estimé Loup Céleste déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... La zone s'étendant de la faille jusqu'à la Tombe de l'Ordre Ancien était plongée dans un brouillard dense. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
+L'homme du clan de l'Estimé Loup Céleste déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... À l'extérieur de la faille de la Tombe de l'Ordre Ancien, un épais brouillard se déployait. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
 
 Ce brouillard s'étendait sur 100 000 kilomètres, et en périphérie se trouvaient de nombreux cultivateurs du Système Stellaire Antique.
 

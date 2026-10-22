@@ -82,7 +82,7 @@ Un feu monstrueux emplit rapidement ces fractures, donnant au ciel un aspect d'u
 
 À cet instant, une autre tête de dragon surgit du tourbillon. Cette fois, c'était un dragon orange qui rugit en s'élançant contre les montagnes montant des profondeurs. Ce dragon de plusieurs dizaines de milliers de pieds de long fit s'embraser les sommets sur son passage.
 
-Peu après, les rugissements se succédèrent pour le troisième, le quatrième, le cinquième... jusqu'à ce que neuf dragons de feu soient apparus!
+Peu après, les rugissements se succédèrent pour le troisième, le quatrième, le cinquième... jusqu'au neuvième dragon de feu noir, qui apparurent en même temps!
 
 Ces sept dragons jaillirent, dissipant la tempête de flammes! Wang Lin se tenait là, imperturbable. En comptant les deux premiers, neuf dragons de feu étaient désormais enroulés autour de lui. Entre ces créatures et le feu aux neuf couleurs tourbillonnant dans son œil gauche, la scène était saisissante. Une aura puissante explosa du corps de Wang Lin.
 
@@ -102,7 +102,7 @@ Puis un vide indistinct l'enveloppa. Le tombeau sans fin et son corps furent dra
 
 Au cœur de ce trouble résidait une aura antique qui se mua en l'aura de la réincarnation. Il se rapprocha de Wang Lin, et en un instant, il ne fut plus qu'à cent pieds de lui. Lorsqu'il prononça les deux derniers mots, « Brise-Ciel », il n'était plus qu'à trente pieds du jeune homme. Il leva sa main droite et frappa avec une force implacable!
 
-« Neuf Extinctions du Brise-Ciel, Neuf Pas pour Éteindre le Ciel! » Le monde trembla. Au moment où la paume de Maître Simo descendit, toutes les illusions derrière lui s'effondrèrent en d'innombrables fragments. Ces débris se transformèrent en rivières de puissance qui affluèrent dans la paume droite du maître, laquelle se referma violemment!
+« Neuf Extinctions du Brise-Ciel, Neuf Pas pour Éteindre le Ciel! » Le monde trembla. Au moment où la paume de Maître Simo descendit, toutes les illusions derrière lui s'effondrèrent en d'innombrables fragments. Ces débris se transformèrent en rivières de puissance qui affluèrent dans la paume droite du maître tandis qu'elle s'abattait!
 
 Tout cela fut fulgurant. Les yeux de Wang Lin brillèrent; sa main droite prit la forme d'une épée et pointa soudainement vers l'avant. Les neuf dragons autour de lui poussèrent des rugissements avant de fusionner avec son doigt, qu'il tendit vers Maître Simo!
 

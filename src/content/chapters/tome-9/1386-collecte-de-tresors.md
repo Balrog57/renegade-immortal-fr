@@ -46,7 +46,7 @@ Tout cela se passa en un instant. Une fois son évasion entamée, il retrouva so
 
 Cependant, à cet instant précis, son expression changea radicalement. Son corps trembla et ses pupilles se rétractèrent.
 
-« Le Sens Divin sur les 99 épées a été effacé par la force!! Bon sang, quel est le niveau de culture de Wang Lin pour être capable d'effacer mon Sens Divin ainsi?! » Cupidité marqua une pause, l'expression aussi sombre que l'eau. Il se remémora à nouveau ses cauchemars passés.
+« Le Sens Divin sur les 99 épées Fu Jing a été effacé par la force!! Bon sang, quel est le niveau de culture de Wang Lin pour être capable d'effacer mon Sens Divin ainsi?! » Cupidité marqua une pause, l'expression aussi sombre que l'eau. Il se remémora à nouveau ses cauchemars passés.
 
 Des pensées fulgurèrent dans ses yeux et il chargea vers Wang Lin... Cependant, il ne fit que trois pas avant de s'arrêter, le visage livide, saisi par le choc.
 
@@ -80,7 +80,7 @@ Sur la planète du Clan des Scorpions Noirs, la main géante de Wang Lin balaya 
 
 « Les trésors que Cupidité possédait sont bien plus puissants qu'auparavant. Ces 99 épées seules sont bien plus fortes que celles du Royaume de la Boucherie! De plus, ces neuf tablettes sont faites d'os et dégagent une aura puissante!
 
-« Plus important encore, la lance de brume possède l'aura d'un ancien démon. Son aura est extrêmement antique. Elle existe probablement depuis des dizaines de milliers d'années, voire... bien plus!
+« Plus important encore, la lance de brume possède l'aura d'un ancien diable. Son aura est extrêmement antique. Elle existe probablement depuis des dizaines de milliers d'années, voire... bien plus!
 
 « Quant au fourneau, cet objet n'est pas simple du tout. La méthode utilisée par Cupidité pour y imprégner son Sens Divin est totalement erronée, tout comme pour le fourneau de l'Ancien Dieu; il n'en contrôlait que les fonctions superficielles. Cet objet a un lien étroit avec les anciens démons! Bien qu'il ne possède pas d'énergie démoniaque, je sens vaguement qu'il est lié aux anciens démons! » Les yeux de Wang Lin s'illuminèrent tandis qu'il dirigeait la main géante vers l'arbre immobile.
 

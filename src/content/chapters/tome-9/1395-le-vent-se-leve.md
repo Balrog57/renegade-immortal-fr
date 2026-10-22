@@ -50,7 +50,7 @@ Leurs flammes se prosternèrent vaguement en direction de cette planète abandon
 
 Ce phénomène étrange stupéfia tous les cultivateurs du feu! En particulier, les membres du Clan des Moineaux de Feu ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine culture quand le feu en son sein apparut soudainement pour se transformer en un moineau de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien!
 
-Cet événement attira l'attention des cultivateurs du feu des Terres Déchues. L'Ancien du Clan des Moineaux de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle de la pilule!
+Cet événement attira la plus grande attention du Clan des Moineaux de Feu des Terres Déchues. L'Ancien du Clan des Moineaux de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle de la pilule!
 
 Par ailleurs, durant ces jours, un événement qui ébranla tout le clan se produisit au sein du Clan des Moineaux de Feu!
 

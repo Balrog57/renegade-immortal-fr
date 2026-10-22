@@ -22,7 +22,7 @@ Sur ses trois vies, elle en avait déjà utilisé deux!
 
 Pourtant, ce n'était pas là la source de son effroi. Ce qu'elle craignait, c'est que même si elle ressuscitait, elle se trouvait toujours dans le brouillard, et qu'il s'agissait de sa dernière vie!!
 
-Ce brouillard tuait sans laisser de trace. Si elle devait renaître à l'intérieur du brouillard, le résultat serait... sa mort définitive!!
+Ce brouillard tuait sans laisser de trace. Même ressuscitée, si la brume la frappait à nouveau, le résultat serait... sa mort définitive!!
 
 Le visage de la jeune fille pâlit instantanément et elle recula précipitamment lors de sa résurrection, cherchant à fuir le brouillard. Cependant, comment pouvait-elle égaler la vitesse de la brume?
 

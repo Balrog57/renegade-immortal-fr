@@ -130,4 +130,4 @@ Au moment où ses mots résonnèrent, l'esprit de Wang Lin trembla et une aura p
 
 Il n'y avait qu'une seule personne dans cette image!
 
-« Ce vieil homme est Liu Jinbiao, nom de Dao: Maître Jin Biao! »
+« Ce vieil homme est Liu Jinbiao, nom de Dao: Jin Biaozi! »

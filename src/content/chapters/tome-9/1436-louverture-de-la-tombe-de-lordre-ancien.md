@@ -50,9 +50,9 @@ L'avatar du Maître Dao Miao Yin, ce magnifique jeune homme, battait en retraite
 
 L'expression du Maître Dao Miao Yin était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume de la Flamme Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
 
-Il était encerclé par ces âmes; de prime abord, on voyait qu'il s'agissait de magnifiques hommes et femmes. Ils étaient plus de 10 milliards! Dès qu'il effleura le brouillard, les 10 milliards d'âmes de Flamme Joss autour de lui poussèrent des cris de détresse.
+Il était encerclé par ces âmes; de prime abord, on voyait qu'il s'agissait de magnifiques hommes et femmes. Ils étaient plus de 10 milliards!
 
-« Chargez! » Le visage du Maître Dao Miao Yin se crispa. Il cessa sa retraite pour charger en avant.
+« Chargez! » Le visage du Maître Dao Miao Yin se crispa. Il cessa sa retraite et chargea dans la brume. Dès qu'il la toucha, les 10 milliards d'âmes de Flamme Joss poussèrent des cris de détresse.
 
 Une puissance inimaginable émanait de l'intérieur du brouillard; une force à laquelle nul ne pouvait résister. Alors que cette puissance s'abattait sur le Maître Dao Miao Yin, 40 % des âmes de Flamme Joss furent anéanties!
 

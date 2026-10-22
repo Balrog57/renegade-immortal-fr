@@ -60,7 +60,7 @@ Après un long moment, le brouillard commença à bouillonner et se retira lente
 
 Le temps passa lentement. Une heure plus tard, une silhouette sortit péniblement de la brume. C'était le savant d'âge moyen que tout le monde croyait mort. Un sourire sinistre, empreint de fierté, étira le coin de sa bouche.
 
-« Peu importe qu'il soit l'Estimé Ling Dong! Personne ne peut s'emparer des trésors que j'ai convoités! Une simple ruse a suffi pour forcer tout le monde à partir. Désormais, l'esprit Dao m'appartient! »
+« Peu importe qu'il soit l'Estimé Ling Dong! Personne ne peut s'emparer des trésors que moi, Xiao Jing, ai convoités! Une simple ruse a suffi pour forcer tout le monde à partir. Désormais, l'esprit Dao m'appartient! »
 
 Alors qu'il riait comme un possédé, sa morgue s'accentua. Il regarda la brume avec avidité, lécha ses lèvres et agita la main. Neuf morceaux de jade apparurent dans sa paume.
 
@@ -68,7 +68,7 @@ Alors qu'il riait comme un possédé, sa morgue s'accentua. Il regarda la brume 
 
 Le savant agita sa main droite et les neuf jades émirent une lueur spectrale. Ils formèrent un cercle et furent projetés vers la brume rouge. Les rugissements devinrent plus violents, mais ils s'étouffèrent soudain sous l'effet de la lumière fantomatique des jades. L'homme entra dans le cercle formé par les pierres, puis sa main déchira une ouverture dans les restrictions désormais inertes. Ses yeux brillaient de cupidité alors qu'il s'apprêtait à franchir la faille qu'il venait d'ouvrir.
 
-Cependant, à cet instant précis, un cri de détresse retentit dans le monde: « Impossible... il reste une restriction active... j'aurais dû toutes les arrêter... » Le savant recula précipitamment. Son visage était ensanglanté et son corps se décomposait à vue d'œil. En un clin d'œil, après seulement trente pieds de retraite, il ne fut plus qu'un cadavre putréfié.
+Cependant, à cet instant précis, un cri de détresse retentit dans le monde: « Impossible... il reste une restriction active... j'avais pourtant arrêté toutes les restrictions... » Le savant recula précipitamment. Son visage était ensanglanté et son corps se décomposait à vue d'œil. En un clin d'œil, après seulement trente pieds de retraite, il ne fut plus qu'un cadavre putréfié.
 
 Le temps s'écoula et les vingt secondes passèrent en un instant. La lumière spectrale des jades se dissipa rapidement et la brume rouge montra de nouveau des signes d'activité. Bientôt, elle redevint pleinement active.
 

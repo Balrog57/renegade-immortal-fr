@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1348 - Battle at the Scatter Thunder Clan! (2)"
 slug: bataille-au-clan-du-tonnerre-eparpille-2
 ---
-À cet instant, l'âme originelle de Wang Lin quitta son corps, tandis que celui de Yu Fei flottait lentement pour s'éloigner. Ce qui apparut devant le Clan du Tonnerre Dispersé était l'âme originelle de Wang Lin, imprégnée de foudre. Il ressemblait à un éclair de tonnerre tombé des cieux.
+À cet instant, l'âme originelle de Wang Lin quitta le corps de Yu Fei, et ce dernier flottait lentement pour s'éloigner. Ce qui apparut devant le Clan du Tonnerre Dispersé était l'âme originelle de Wang Lin, imprégnée de foudre. Il ressemblait à un éclair de tonnerre tombé des cieux.
 
 Ses paroles étaient calmes; tandis qu'il parlait, le lac de tonnerre entourant les seize planètes du Clan du Tonnerre Dispersé rugissait avec une intensité accrue, comme s'il lui répondait!
 
@@ -102,7 +102,7 @@ Wang Lin resta silencieux et se déplaça comme un possédé, rejoignant instant
 
 Le lac était monstrueux, et à mesure que Wang Lin approchait, les rugissements devenaient plus intenses encore!
 
-Au même moment, au plus profond du lac de tonnerre infini, une sphère de foudre de dix mille pieds de large s'agita. Le corps originel de Wang Lin ouvrit les yeux, révélant un regard glacial!
+Au même moment, au plus profond du lac de tonnerre infini, au sein d'une sphère de foudre de dix mille pieds de large, le corps originel de Wang Lin ouvrit les yeux, révélant un regard glacial!
 
 « Vieux bâtard, tu es enfin arrivé! »
 

@@ -90,7 +90,7 @@ Tout cela se produisit en un éclair. Alors que Li Qianmei et Mu Bingmei s'élan
 
 « Nul besoin que vous interveniez. » Alors qu'il avançait, il agita la main et une énergie à la fois puissante et douce enveloppa Li Qianmei et Mu Bingmei, les forçant à s'arrêter.
 
-« Un cultivateur du Fléau Céleste... j'en ai déjà affronté un par le passé! » À cet instant, une lumière dorée jaillit du corps de Wang Lin. Elle était semblable à un soleil, douce mais dotée du pouvoir de déchirer la nuit. Dès qu'elle se propagea, le tonnerre qui s'était écarté revint s'assembler et la pluie qui s'était arrêtée retomba. C'était comme si le monde reprenait enfin son cours.
+« Un cultivateur du premier Fléau Céleste... j'en ai déjà affronté un par le passé! » À cet instant, une lumière dorée jaillit du corps de Wang Lin. Elle était semblable à un soleil, douce mais dotée du pouvoir de déchirer la nuit. Dès qu'elle se propagea, le tonnerre qui s'était écarté revint s'assembler et la pluie qui s'était arrêtée retomba. C'était comme si le monde reprenait enfin son cours.
 
 Un léger cri de surprise s'échappa du vieil homme en blanc. Au moment où il se redressa, la pluie se transforma en une vapeur blanche qui s'élança vers les cieux.
 

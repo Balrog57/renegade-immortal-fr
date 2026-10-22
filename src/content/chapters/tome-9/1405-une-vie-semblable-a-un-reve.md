@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1405 - Dream like life
 slug: une-vie-semblable-a-un-reve
 ---
-« Allumez l'Encens Bleu! » L'ancien Oiseau Vermillon agita la main. Son air désinvolte de tout à l'heure s'était évanoui, laissant place à une gravité solennelle. À cet instant, une puissance immense émana de son corps, empreinte d'une aura tyrannique.
+« Que s'élève l'Encens Bleu! » L'ancien Oiseau Vermillon agita la main. Son air désinvolte de tout à l'heure s'était évanoui, laissant place à une gravité solennelle. À cet instant, une puissance immense émana de son corps, empreinte d'une aura tyrannique.
 
 C'était comme si sa parole faisait loi!
 
@@ -22,7 +22,7 @@ L'expression de l'ancien Oiseau Vermillon était très grave lorsqu'il fixa Wang
 
 « Chaque épreuve comporte ses dangers. Celle du Jeune Empereur des Terres Déchues ne fait pas exception. Si vous ne parvenez pas à l'allumer, il n'y aura aucune conséquence; mais si vous l'allumez et que vous ne parvenez pas à en sortir, votre âme brûlera jusqu'à la mort avec lui! En ma présence, vous ne mourrez pas réellement, mais vous me décevriez.
 
-Depuis les temps anciens, seuls deux êtres ont réussi. Ce vieil homme fut le premier, et avant vous, il y en eut un autre! Cette personne était dotée d'un talent prodigieux. Il ne lui fallut que cinq respirations pour le premier encens, neuf pour le deuxième, et quatorze pour le troisième. Même ce vieil homme est inférieur à lui.
+Depuis les temps anciens, seuls deux êtres ont réussi. Ce vieil homme fut le premier, et avant vous, il y en eut un autre! Cette personne était dotée d'un talent prodigieux. Le premier encens dura cinq respirations, le deuxième neuf, et le troisième fut ralenti jusqu'à quatorze respirations. Même ce vieil homme est inférieur à lui.
 
 Osez-vous tenter l'aventure? Répondez-moi! » Les yeux du vieil homme brillaient comme des torches lorsqu'il dévisagea Wang Lin.
 

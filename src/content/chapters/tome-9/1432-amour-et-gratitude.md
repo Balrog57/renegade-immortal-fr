@@ -58,7 +58,7 @@ Cependant, certaines choses étaient encore plus importantes que sa propre exist
 
 « À partir de maintenant, je te confie la Secte de l'Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de l'Affinement de l'Âme, Dun Tian, avait remis à Wang Lin le trésor suprême de sa secte, la bannière des âmes, avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
 
-« Moi, Wang Lin, je ne m'agenouillerai jamais devant les cieux, sauf par respect pour Situ! »
+« Moi, Wang Lin, je ne m'agenouillerai jamais devant le ciel ni la terre, je ne respecte que Situ! »
 
 Zhou Yi avait été épris d'amour toute sa vie; rien ne pouvait effacer son obsession millénaire. Il avait offert à Wang Lin une fortune qui lui avait permis d'échapper à la mort! Zhou Yi était obsédé par Qing Shuang. Si Wang Lin choisissait de suivre le Souverain, une bataille tragique éclaterait inévitablement entre eux!
 

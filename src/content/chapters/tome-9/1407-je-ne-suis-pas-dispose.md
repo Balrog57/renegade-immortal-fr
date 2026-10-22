@@ -102,7 +102,7 @@ Cette pression était d'un choc extrême et, en se propageant, elle couvrit tout
 
 « Wang Lin! Pourquoi n'allumes-tu pas rapidement l'encens humain? Qu'attends-tu?! » Ces paroles formèrent une tempête qui résonna à travers les mondes!
 
-Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon craignait que l'âme de Wang Lin ne soit piégée et qu'il ne puisse s'en extraire. Dédaignant les règles de l'épreuve, il pressa sa main contre le premier bâton d'encens. Son âme se précipita dans celle de Wang Lin en poussant un rugissement.
+Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon craignait que l'âme de Wang Lin ne soit piégée et qu'il ne puisse s'en extraire. Dédaignant les règles de l'épreuve, il pressa sa main contre le premier bâton d'encens et son rugissement s'engouffra dans l'âme de Wang Lin.
 
 « Il n'est pas difficile d'allumer l'encens humain. Il suffit d'enflammer le feu au sein de mon âme et de consumer ce monde illusoire jusqu'à ce qu'il ne reste rien, et l'encens sera allumé! »
 
@@ -114,7 +114,7 @@ Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon craignait que l'âm
 
 « Pourtant, brûler mes sentiments de mortel comme prix est une chose que je ne peux faire! » Wang Lin leva les yeux vers le ciel.
 
-C'était la terre de son âme. Bien que le vieux Oiseau Vermillon fût puissant, ce terrain d'épreuve créé par un trésor mystérieux était imprégné d'une puissance telle qu'il ne pourrait y rester longtemps!
+C'était la terre de son âme. Bien que le vieux Oiseau Vermillon fût puissant, ce terrain d'épreuve créé par le premier Oiseau Vermillon avec un trésor mystérieux était imprégné d'une puissance telle qu'il ne pourrait y rester longtemps!
 
 « Toi... ce n'est qu'une illusion, ce n'est pas réel. Ce vieil homme est aussi venu ici autrefois. Tu n'as qu'à détruire cela et allumer l'encens pour partir. Pourquoi dois-tu être si obstiné? » La voix du vieux Oiseau Vermillon était anxieuse; le vortex commença à s'effondrer tandis que sa voix se dissipait.
 

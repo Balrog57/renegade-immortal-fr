@@ -98,7 +98,7 @@ C'était une dévoration et une absorption simultanées. Bien que Tuo Sen fût p
 
 L'expression de Wang Lin changea brusquement. Il fixa Mu Bingmei et demanda: « Savez-vous quand il est venu dans la Mer des Nuages? »
 
-Mu Bingmei réfléchit un instant et répondit doucement: « Je ne connais pas l'heure exacte. J'étais en culture fermée pour restaurer mon corps, mais cela n'a probablement pas duré plus de cent ans. »
+Mu Bingmei réfléchit un instant et répondit doucement: « Je ne connais pas l'heure exacte. J'étais en culture fermée pour restaurer mon corps, mais cela ne remonte certainement pas à plus de cent ans. »
 
 « Cent ans! » Les yeux de Wang Lin brillèrent et il commença à méditer.
 

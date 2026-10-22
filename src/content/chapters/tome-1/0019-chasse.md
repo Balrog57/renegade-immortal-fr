@@ -32,7 +32,7 @@ La nuit passa. Wang Lin soupira. Il ne ressentait toujours pas cette sensation d
 
 « Bois ceci! »
 
-Wang Lin fut stupéfait. Il l'examina avec prudence et, avant de boire, demanda: « Maître, qu'est-ce que c'est? »
+Wang Lin fut stupéfait. Il l'examina avec prudence et, sans prendre le bol, demanda: « Maître, qu'est-ce que c'est? »
 
 En voyant l'expression de Wang Lin, Sun Dazhu s'emporta. Il cria: « Crois-tu vraiment que je veuille te nuire? Si ce n'était pas pour t'aider à atteindre le premier niveau de la Condensation de Qi, penses-tu vraiment que je passerais toute la nuit à gaspiller des herbes précieuses pour préparer ce remède? »
 

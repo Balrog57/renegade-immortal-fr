@@ -98,7 +98,7 @@ Au moment où il atterrit, le pilier de brume s'élança vers le ciel le long du
 
 Wang Lin n'était pas le seul à être avisé. Alors qu'il cherchait refuge sur la plateforme pour esquiver la colonne, de nombreux cultivateurs se précipitèrent vers les plateformes les plus proches.
 
-Cependant, il n'y avait que 99 plateformes sans protection, les autres étant toujours protégées. Comme il y avait des centaines de plateformes en tout, il était inévitable que plusieurs personnes tentent d'en occuper une seule.
+Cependant, il n'y avait que 99 plateformes sans protection, les autres étant toujours protégées. Avec plusieurs centaines de cultivateurs présents, il était inévitable que plusieurs personnes tentent d'en occuper une seule.
 
 Wang Lin vit clairement deux individus atteindre une plateforme et, alors qu'ils pensaient être en sécurité, une colonne de brouillard de 10 000 pieds de large jaillit. La brume engloutit la plateforme entière, la tête de démon antique et les deux cultivateurs. Ils disparurent sans laisser de trace... Cette force détruirait n'importe quel cultivateur, et même un cultivateur du troisième pas mourrait face à une telle puissance!
 

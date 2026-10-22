@@ -44,7 +44,7 @@ Même si elle lui avait promis des bénéfices immenses en échange de son aide,
 
 Plus il songeait à ses actes passés dans le Système Stellaire Antique, plus il avait l'impression de ne plus être lui-même, comme si une force puissante s'était infiltrée en son corps pour contrôler silencieusement ses pensées... Choqué par ce pressentiment, il devint encore plus prudent et ignora totalement l'érudit.
 
-Voyant ce jeune homme étrange partir après avoir parlé, l'érudit fronça les sourcils. Bien que la Tombe de l'Ordre Ancien ne fût qu'à mille pieds de là, même avec sa puissante culture et ses trésors, il ne pouvait progresser davantage. Il était bloqué.
+Voyant ce jeune homme étrange accélérer dès qu'il lui eut adressé la parole, l'érudit fronça les sourcils. Bien que la Tombe de l'Ordre Ancien ne fût qu'à mille pieds de là, même avec sa puissante culture et ses trésors, il ne pouvait progresser davantage. Il était bloqué.
 
 Observant le brouillard s'agiter avec une violence accrue, l'érudit soupira.
 
@@ -78,7 +78,7 @@ C'était Tuo Sen!
 
 « Est-ce là la toujours froide Troisième Sœur Aînée? Serait-il possible que même avec ta culture, tu ne puisses entrer dans la Tombe de l'Ordre Ancien? » Une voix séduisante émana lentement du front de Tuo Sen.
 
-L'érudit ricana et se retira loin sur le côté. Une voix glissa doucement vers lui:
+L'érudit ricana, recula pour s'éloigner dans une autre direction, et sa voix résonna au loin :
 
 « Sale renarde, il est difficile de changer ta nature. Je pouvais sentir ton aura dégoûtante de très loin. »
 
@@ -86,7 +86,7 @@ L'érudit ricana et se retira loin sur le côté. Une voix glissa doucement vers
 
 Un éclair de froideur passa dans les yeux de l'érudit en robe blanche, qui s'éloigna dans un reniflement méprisant.
 
-Dès que Wang Lin pénétra dans la faille de la Tombe de l'Ordre Ancien, il ressentit une force de téléportation. Avant même de pouvoir discerner ses environs, il fut projeté en arrière de plusieurs dizaines de pieds tandis qu'une lumière jaillissait pour former un bouclier autour de lui.
+Dès que Wang Lin pénétra dans la faille de la Tombe de l'Ordre Ancien, il ressentit une force de téléportation. Avant même de pouvoir discerner ses environs, il esquiva en diagonale sur plusieurs toises, ses mains formant des sceaux pour déployer un bouclier autour de lui.
 
 C'était sa prudence. Après tout, c'était la Tombe de l'Ordre Ancien, et de nombreux cultivateurs y étaient entrés avant lui; il devait être vigilant.
 

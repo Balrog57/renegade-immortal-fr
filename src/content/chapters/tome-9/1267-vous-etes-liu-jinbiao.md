@@ -18,11 +18,11 @@ Ce changement soudain provoqua un tollé parmi les disciples. Même les expressi
 
 Il ne s'agissait pas d'un simple cultivateur du stade Briseur du Nirvana, mais d'un être au sommet de ce stade. Un simple jade était capable de produire un tel effet retentissant: le ciel changea de couleur, les nuages tourbillonnèrent, et l'on percevait même de subtils signes de lois!
 
-« Ce vieil homme est Liu Jinbiao, son nom de Dao est: Maître Jin Biao! »
+« Ce vieil homme est Liu Jinbiao, son nom de Dao est: Jin Biaozi! »
 
 La voix majestueuse émana du jade et enveloppa toute la Secte de l'Origine. Même le continent de Mo Luo trembla sous la puissance de cette voix.
 
-Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Son regard eut un éclat et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biao est venu dans ma Secte de l'Origine! »
+Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Son regard eut un éclat et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biaozi est venu dans ma Secte de l'Origine! »
 
 « Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Cette personne voulait acheter la vie de toute votre Secte de l'Origine! »
 

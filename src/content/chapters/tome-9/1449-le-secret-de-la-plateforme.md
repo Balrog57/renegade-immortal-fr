@@ -46,7 +46,7 @@ Les runes se posèrent et fusionnèrent rapidement avec la structure. Dès que l
 
 Une poussière infinie surgit de toutes parts pour se fondre dans la plateforme. Celle-ci sembla croître d'un cycle complet. La poussière paraissait percer le vide pour fusionner sans fin avec la structure.
 
-La plateforme grandissait progressivement: 23 000 pieds, 25 000 pieds, 28 000 pieds... jusqu'à atteindre 30 000 pieds avant de cesser de trembler. Sa couleur n'était plus rouge sombre, mais violette. D'un coup d'œil, elle ressemblait à un petit continent. Ce qui stupéfia Wang Lin n'était pas l'expansion de la plateforme, mais le fait qu'elle semblait avoir acquis la vie. À l'instant où elle atteignit 30 000 pieds, une aura pénétra Wang Lin par ses pieds. Des souvenirs affluèrent dans son esprit et, avant qu'il ne puisse réagir, ils devinrent une partie de lui.
+La plateforme grandissait progressivement: 23 000 pieds, 25 000 pieds, 28 000 pieds... jusqu'à atteindre 30 000 pieds avant de cesser de trembler. Sa couleur n'était plus rouge sombre, mais violette. D'un coup d'œil, elle ressemblait à un petit continent. Ce qui stupéfia Wang Lin n'était pas l'expansion de la plateforme, mais le fait qu'à l'instant où elle atteignit 30 000 pieds, une aura pénétra Wang Lin par ses pieds. Des souvenirs affluèrent dans son esprit et, avant qu'il ne puisse réagir, ils devinrent une partie de lui.
 
 Wang Lin ferma les yeux et une carte apparut immédiatement devant lui. Cette carte était immense, mais la majeure partie était recouverte d'un brouillard noir. Seules trois zones n'étaient pas enveloppées par cette obscurité, représentant 30 % de la surface totale.
 
@@ -62,7 +62,7 @@ Le tonnerre et le feu s'entrechoquaient à l'intérieur du four pendant le proce
 
 Avec un ricanement, Wang Lin s'assit devant le Fourneau Impérial. Ses mains formèrent des sceaux et des restrictions pénétrèrent dans le four pour frapper la brume rouge.
 
-Hormis la Restriction de l'Âme Ancienne, Wang Lin maîtrisait parfaitement le reste. Tandis qu'il affaiblissait les restrictions à l'intérieur de la brume, celle-ci se dissipait couche après couche. Après trente minutes, il ne restait plus que 1 000 pieds de brume rouge, révélant la plateforme transportée par l'Ancien Dieu. Wang Lin agita la main et les trois jades laissés par le savant d'âge moyen jaillirent. Ils pénétrèrent dans le Fourneau Impérial et s'enfoncèrent dans la brume, la forçant à l'immobiliser.
+Hormis la Restriction de l'Âme Ancienne, Wang Lin maîtrisait parfaitement le reste. Tandis qu'il affaiblissait les restrictions à l'intérieur de la brume, celle-ci se dissipait couche après couche. Après une heure, il ne restait plus que 1 000 pieds de brume rouge, révélant la plateforme transportée par l'Ancien Dieu. Wang Lin agita la main et les trois jades laissés par le savant d'âge moyen jaillirent. Ils pénétrèrent dans le Fourneau Impérial et s'enfoncèrent dans la brume, la forçant à l'immobiliser.
 
 Les yeux de Wang Lin brillèrent et il se leva brusquement. Sa main droite pressa le Fourneau Impérial tandis que sa puissance d'Ancien Dieu s'y déversait. D'innombrables âmes jaillirent pour former une paire de mains gigantesques. Ces mains chargèrent dans la brume et la déchirèrent sans pitié, révélant enfin ce qui se cachait à l'intérieur. Avant que Wang Lin ne puisse l'observer, un rugissement assourdissant retentit. L'esprit Dao de feu de rang 4 semblait avoir détecté sa présence et chargea en sa direction.
 

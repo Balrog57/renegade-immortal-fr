@@ -112,7 +112,7 @@ Des cris déchirants éclatèrent et se propagèrent avec une fureur folle. Puis
 
 Tous les cultivateurs ayant atteint un certain niveau furent pris au piège par la brume. Leurs corps entiers furent transformés en sang, puis absorbés.
 
-La brume rouge se propagea rapidement vers les autres planètes. Normalement, les cris des mortels ne dépassent pas l'atmosphère d'une planète, mais là, tant de voix s'unirent qu'elles résonnèrent à travers les étoiles!
+La brume rouge se propagea rapidement vers les autres planètes. Normalement, ces cris déchirants ne pouvaient pas se propager dans l'espace, mais là, tant de voix s'unirent qu'elles résonnèrent à travers les étoiles!
 
 Ces six planètes étaient une nouvelle branche du clan du Loup Céleste, peuplée uniquement de cultivateurs et dépourvue de mortels. Sous le passage de la brume rouge, la majeure partie d'entre eux fut exterminée!
 

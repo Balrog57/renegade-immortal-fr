@@ -40,7 +40,7 @@ Soudain, un éclair blanc jaillit: Wang Lin surgit comme un coup de tonnerre. Da
 
 Cependant, le constat était amer: près de mille bêtes avaient déjà été éliminées par Wang Lin et 30 % s'étaient autodétruites. Les mille restantes formaient un groupe compact. Tel un éclair, Wang Lin chargea ce groupe avant quiconque. Derrière lui, à l'exception de la femme du Clan de l'Extermination des Sceaux qui n'osait pas quitter sa plateforme, et de la femme en blanc qui restait indifférente, tous les autres cultivateurs lancèrent leur assaut. Pour eux, ces bêtes étaient devenues des pilules précieuses qu'il fallait s'approprier avant Wang Lin!
 
-« Camarade en robe blanche, puisque nous sommes venus ensemble, nous ne pouvons vous laisser affronter ces mille bêtes seul. Rejoignez-nous! »
+« Camarade en robe blanche, puisque nous sommes venus ensemble, nous ne pouvons vous laisser affronter ces mille bêtes seul. Faisons cela ensemble! »
 « Camarade, ne soyez pas si pressé. Il y a près de mille bêtes; si elles s'autodétruisent toutes, la puissance sera dévastatrice. Soyons prudents! »
 « Camarade en robe blanche, peu m'importent les autres, laissez-moi juste trois cents de ces bêtes! »
 

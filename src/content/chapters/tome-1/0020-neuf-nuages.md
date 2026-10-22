@@ -57,7 +57,7 @@ Avant d'arriver, une voix familière lui parvint de loin.
 Wang Lin fronça les sourcils et s'arrêta. Il ricana intérieurement et poursuivit son chemin.
 
 Puis, une voix féminine cristalline répondit:
-— Frère apprenti Wang, ma famille est une lignée de médecins. Cette fleur est une plante très commune appelée Asuka. J'en vois souvent lorsque je monte à la montagne. C'est la première fois que j'entends parler d'un serpent pour la garder. Si c'était vrai, les montagnes de notre Secte Heng Yue seraient infestées de serpents. Sœur apprentie Zhou, ne le croyez pas.
+— Frère apprenti Wang, ma famille est une lignée de médecins. Cette fleur est une plante très commune appelée mingrixiang. J'en vois souvent lorsque je monte à la montagne. C'est la première fois que j'entends parler d'un serpent pour la garder. Si c'était vrai, les montagnes de notre Secte Heng Yue seraient infestées de serpents. Sœur apprentie Zhou, ne le croyez pas.
 
 À cet instant, Wang Lin pénétra dans la cour de la maison des pilules. Quatre autres personnes s'y trouvaient, deux hommes et deux femmes, tous vêtus de rouge.
 

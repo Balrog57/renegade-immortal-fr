@@ -88,7 +88,7 @@ Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir no
 
 Une seule feuille pour couvrir le ciel!
 
-La Feuille Ancienne traversa instantanément le Maître Simo et se matérialisa au-delà de son Royaume de Flamme Joss. Elle recouvrit la faille!
+La Feuille Ancienne dépassa en un éclair Maître Simo et se matérialisa au-delà de son Royaume de Flamme Joss. Elle recouvrit la faille!
 
 « Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume de la Flamme Joss du Maître Simo, elle libéra une force de scellement colossale!
 

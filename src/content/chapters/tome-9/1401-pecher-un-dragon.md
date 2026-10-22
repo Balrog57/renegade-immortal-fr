@@ -8,7 +8,7 @@ slug: pecher-un-dragon
 ---
 Wang Lin saisit le pichet de vin. Sans même y regarder à deux fois, il en prit une immense gorgée.
 
-En avalant le breuvage, une sensation épicée déferla sur lui, brûlant de son abdomen jusqu'à sa gorge. C'était comme s'il avait englouti un dragon de feu. Des perles de sueur apparurent sur son front avant de se transformer instantanément en une vapeur blanche.
+En avalant le breuvage, une sensation épicée déferla sur lui, brûlant de sa gorge jusqu'à son abdomen. C'était comme s'il avait englouti un dragon de feu. Des perles de sueur apparurent sur son front avant de se transformer instantanément en une vapeur blanche.
 
 La sensation de brûlure ne s'estompa pas; au contraire, elle s'intensifia, envahissant tout son être. Wang Lin eut l'impression que son corps était en proie aux flammes et que la puissance du feu allait jaillir de sa propre chair.
 
@@ -88,7 +88,7 @@ C'était la différence entre un jeune oiseau et son ancêtre primordial!
 
 La main gauche du vieil homme s'abattit brusquement; au moment de l'impact, le gigantesque Oiseau Vermillon bougea pour fusionner avec sa main. En un instant, l'oiseau devint un avec le bras de l'homme. De loin, on ne distinguait plus la main du vieil homme, mais seulement le bec acéré de l'Oiseau Vermillon!
 
-En un clin d'œil, ce bec perça une protubérance sur le crâne du dragon, projetant un jet de sang salvateur.
+En un clin d'œil, ce bec perça une protubérance sur le crâne du dragon, projetant un jet de sang brûlant.
 
 « Pourquoi es-tu si stupéfait? Vite, saisis le pichet! Crois-tu que ce vieux corps puisse tenir ainsi très longtemps?! » Le vieil homme leva les yeux et son rugissement résonna comme le tonnerre dans les oreilles de Wang Lin.
 

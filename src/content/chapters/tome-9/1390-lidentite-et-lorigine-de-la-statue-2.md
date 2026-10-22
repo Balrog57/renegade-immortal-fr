@@ -54,7 +54,7 @@ Lorsqu'il réapparut, il se trouvait sur une planète de culture. Dès son retou
 
 Cupidité n'hésita pas à entrer, mais dès qu'il le fit, son corps frémit. Une odeur fétide s'échappa de la fissure et lui frappa le visage. L'odeur était si pestilentielle qu'il faillit s'évanouir.
 
-« Pourquoi ça pue autant... » jura Cupidité, alors que son corps tremblait soudainement. Il resta figé un instant avant de se pincer le nez. Après avoir reniflé attentivement à nouveau, l'incrédulité envahit son regard.
+« Pourquoi ça pue autant... » jura Cupidité, alors que son corps tremblait soudainement. Il resta figé un instant avant de porter son bras à son nez. Après l'avoir reniflé attentivement, l'incrédulité envahit son regard.
 
 « L'odeur de mon corps a disparu! Même mon odorat est retrouvé. Je ne pouvais pas sentir cette puanteur dans la grotte auparavant! »
 

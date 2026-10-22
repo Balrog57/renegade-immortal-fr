@@ -98,7 +98,7 @@ Des grondements tonitruants résonnèrent dans le ciel, se transformant en une f
 
 « Le premier bâton d'encens est allumé!! »
 
-« Voyons combien de temps il pourra tenir!! » Les cultivateurs attendaient depuis de longs jours et commençaient à perdre patience. S'ils n'avaient pas craint le Jeune Empereur, ils seraient déjà partis. Cependant, à cet instant précis, tous les regards se tournèrent vers la fumée noire qui s'élevait.
+« Voyons combien de temps il pourra tenir!! » Les cultivateurs attendaient depuis de longs jours et commençaient à perdre patience. S'ils n'avaient pas craint de partir, ils se seraient déjà dispersés. Cependant, à cet instant précis, tous les regards se tournèrent vers la fumée noire qui s'élevait.
 
 Au début, la fumée ressemblait à des rubans de soie, mais elle prit rapidement l'ampleur d'un signal de détresse. La température élevée commença à se propager et le Bâton d'Encens Humain brûla avec éclat!
 

@@ -90,7 +90,7 @@ La lumière sanglante brilla intensément, comme si une mer de sang s'était dé
 
 L'empreinte de la paume se désintégra soudainement, mais le gaz vert ne disparut pas. Il se condensa en une sphère et tenta de retourner dans la faille céleste.
 
-Wang Lin ouvrit brusquement les yeux. Un goût salé envahit sa bouche alors que du sang lui remontait dans la gorge, mais il parvint à contenir le flux. Son expression devint glaciale tandis qu'il s'élançait dans les airs, l'épée de sang en main. Alors que la sphère de gaz vert dérivait vers la faille, Wang Lin tendit la main avec férocité!
+Wang Lin leva brusquement la tête. Un goût salé envahit sa bouche alors que du sang lui remontait dans la gorge, mais il parvint à contenir le flux. Son expression devint glaciale tandis qu'il s'élançait dans les airs, l'épée de sang en main. Alors que la sphère de gaz vert dérivait vers la faille, Wang Lin tendit la main avec férocité!
 
 « Redescends! »
 
