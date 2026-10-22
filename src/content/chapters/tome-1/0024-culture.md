@@ -30,7 +30,7 @@ Wang Lin était très troublé par l'uniforme rouge de disciple qu'il portait. I
 
 Le temps passa rapidement. Après cinquante heures, une sensation de déchirement le tira de sa torpeur et le réveilla.
 
-Une question demeurait pourtant dans son esprit: pourquoi ne pouvait-il rester dans le rêve que cinq heures? C'est avec cette interrogation en tête qu'il remplit une gourde d'eau de source et la chargea sur son épaule, prêt à replonger dans le rêve.
+Une question demeurait pourtant dans son esprit: pourquoi ne pouvait-il tenir que cinq heures à chaque fois? C'est avec cette interrogation en tête qu'il remplit une gourde d'eau de source et la chargea sur son épaule, prêt à replonger dans le rêve.
 
 Mais cette fois, peu importait l'intensité de son regard sur la perle, il ne ressentit pas la somnolence habituelle. Wang Lin fut saisi par l'effroi. Après une longue réflexion, il maîtrisa sa peur et s'assit pour cultiver.
 

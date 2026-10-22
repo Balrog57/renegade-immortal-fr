@@ -26,7 +26,7 @@ Après de longues heures de pratique, Wang Lin commença à regagner son domicil
 
 Zhang Hu était furieux. Il cria: « C'est impossible! Tu m'accuses à tort. N'est-ce pas parce qu'il y a quelques jours, j'ai vu Zhao Fugui te donner un talisman immortel pour que tu puisses lui choisir des tâches plus faciles? Et alors? Parmi les disciples honoraires, qui ne sait comment tu agis? Quant à essayer de me chasser de la secte Heng Yue, tu as vraiment merdé, espèce de saloperie. Je n'en ferai plus une miette. Je vais aller en parler aux Anciens! »
 
-« Zhang Hu, c'est toi qui m'as forcé à agir ainsi. Si tu veux accuser quelqu'un, ne blâme que ta propre malchance d'avoir vu ce que tu n'aurais pas dû voir. Zhang Hu, reste ici. Si les Anciens l'apprennent, je ferai exterminer toute ta famille! »
+« Zhang Hu, c'est toi qui m'as forcé à agir ainsi. Si tu veux accuser quelqu'un, ne blâme que ta propre malchance d'avoir vu ce que tu n'aurais pas dû voir. Aujourd'hui, tu vas y rester ! Si les Anciens l'apprennent, je ferai exterminer toute ta famille! »
 
 La voix glaciale du disciple Liu jaillit de la pièce et Zhang Hu laissa échapper un cri. Surpris par ce hurlement, Wang Lin enfonça la porte d'un coup de pied.
 

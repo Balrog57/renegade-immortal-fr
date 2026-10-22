@@ -66,6 +66,6 @@ Une voix froide retentit de l'autre côté de la porte: « Frère cadet Wang, so
 
 La voix lui était familière. Wang Lin se leva et ouvrit la porte pour découvrir un jeune homme d'environ vingt-sept ou vingt-huit ans, vêtu de noir, qui se tenait là, dégageant une aura glaciale.
 
-« Les vêtements noirs! » Le cœur de Wang Lin se serra. Il reconnut l'homme qui l'avait amené, lui, Wang Zhuo et Wang Hao à la Secte Heng Yue, et celui qui avait conduit son père pour le retrouver au fond du précipice.
+« Les vêtements noirs! » Le cœur de Wang Lin se serra. Il reconnut le jeune homme nommé Zhang qui l'avait amené, lui, Wang Zhuo et Wang Hao à la Secte Heng Yue, et celui qui avait conduit son père pour le retrouver au fond du précipice.
 
 Pourtant, Wang Lin se souvenait qu'il portait des vêtements blancs à l'époque. Désormais, après seulement quelques mois, il était passé au noir! Il se remémora soudainement le jour des tests au pied de la montagne. Le troisième Grand Frère Apprenti, qui avait pris Wang Hao comme assistant, avait alors déclaré que cet individu avait atteint un moment critique dans sa culture et que le chef de la secte, craignant de perturber celle-ci, l'avait chargé de faire passer les tests à sa place.
