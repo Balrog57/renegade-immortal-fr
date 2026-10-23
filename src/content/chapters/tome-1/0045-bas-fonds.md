@@ -46,7 +46,7 @@ Li Shan chuchota: « Normalement, vous n'obtenez que trois gratuites pour six ac
 
 Une fois la première transaction et le test effectués, d'autres disciples de la secte intérieure s'approchèrent pour en acheter. À chaque vente terminée, Li Shan ajoutait quelques précautions: « Cet article n'est pas garanti à tous les coups », ou encore « Si cela ne fonctionne pas, entraînez-vous encore quelques fois ». Il ajoutait que si des questions se posaient, ils pouvaient revenir le voir pour qu'il leur enseigne la technique de lancer.
 
-En disant cela, Li Shan riait intérieurement: « Vous allez essayer plusieurs fois et échouer, puis vous en essaierez une autre qui réussira après un ou deux lancers. Je ne serai là que quelques jours; le temps que vous soupçonniez ma supercherie, je serai déjà loin! »
+En disant cela, Li Shan riait intérieurement: « Vous allez essayer plusieurs fois et échouer, puis vous viendrez me voir et, sous mes conseils, vous réussirez une ou deux fois. Je ne serai là que quelques jours; le temps que vous soupçonniez ma supercherie, je serai déjà loin! »
 
 Cependant, quelques disciples restaient prudents et n'achetaient rien.
 

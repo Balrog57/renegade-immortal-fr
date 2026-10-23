@@ -78,7 +78,7 @@ Tous les disciples de la Secte Xuan Dao se mirent à le railler bruyamment.
 
 « Frère martial, ils ont déjà abandonné. Ils ont envoyé ce pion pour servir de chair à canon. Il est vraiment pitoyable. Sois clément et laisse-le descendre avec un peu de dignité. »
 
-L'Ancien Ouyang regarda les deux anciens avec dédain. Il rit et dit: « Je découvre enfin la véritable nature de Huang Long et de la Secte Heng Yue! »
+L'Ancien Ouyang et les deux anciens à ses côtés échangèrent un regard dédaigneux. Il rit et dit: « Je découvre enfin la véritable nature de Huang Long et de la Secte Heng Yue! »
 
 Le visage de Huang Long s'assombrit. Sans un mot, il agita ses manches et s'en alla. Il n'avait aucune confiance en Wang Lin; il ne l'avait envoyé que pour servir de pâture afin de clore le dernier duel. Par cet acte, il avait déjà accepté la défaite.
 
