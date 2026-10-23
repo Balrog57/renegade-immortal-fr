@@ -28,7 +28,7 @@ Wang Lin murmura: « Ainsi en est-il! »
 
 À ce moment-là, des bruits de craquement provinrent du lointain. À son retour, Ta Shan tenait dans chaque main une âme originelle et un sac.
 
-Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement les deux grands événements survenus depuis près de six mois.
+Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement les deux grands événements survenus depuis plus de six mois.
 
 Naturellement, il ne laisserait pas partir les âmes originelles de ceux qui l'avaient offensé. Il les jeta dans le drapeau d'âmes afin qu'elles servent de nourriture pour la technique « Invoque le Vent ».
 

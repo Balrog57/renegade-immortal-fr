@@ -94,7 +94,7 @@ La cinquième rune fut ensuite dévorée par l'âme du dragon de tonnerre antiqu
 
 Le regard de Wang Lin devint glacial et son corps se contracta. Le tonnerre emplit son âme alors qu'il générait sans relâche des décharges pour submerger la rune.
 
-Des éclairs de tonnerre bombardèrent la rune au cœur de son âme originelle. Il fallut deux heures avant que cette force mystérieuse ne fusionne totalement avec lui.
+Des éclairs de tonnerre bombardèrent la rune au cœur de son âme originelle. Il fallut quatre heures avant que cette force mystérieuse ne fusionne totalement avec lui.
 
 L'âme originelle de Wang Lin étant quelque peu affaiblie, il réintégra son corps pour entamer sa récupération.
 
