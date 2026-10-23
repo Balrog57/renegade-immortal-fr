@@ -88,7 +88,7 @@ Yang Sen et Feng Luan échangèrent un regard avant de fixer la fleur de prunier
 
 Le vieil homme fronça les sourcils, impatient. D'un revers de main, il repoussa les trois individus. Un vent puissant les projeta à plus d'un millier de kilomètres; même les Âmes Naissantes en leur sein semblèrent sur le point d'être expulsées de leurs corps.
 
-Une fois stabilisés, les visages des trois compères devinrent sombres et Yang Sen demanda: « Quel est votre niveau de culture? »
+Une fois stabilisés, les visages des trois compères devinrent sombres et Yang Sen demanda: « Quel est son niveau de culture? »
 
 Le vieil homme au visage rouge répondit amèrement: « Au moins au stade avancé de l'Âme Naissante... »
 
