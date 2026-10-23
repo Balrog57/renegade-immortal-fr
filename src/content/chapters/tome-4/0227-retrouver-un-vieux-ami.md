@@ -8,7 +8,7 @@ slug: retrouver-un-vieux-ami
 ---
 Wang Lin vola à une vitesse fulgurante. En un rien de temps, il atteignit à nouveau l'ancien réseau de transfert. Il avait entouré les lieux de restrictions avant son départ. Après avoir vérifié que rien n'avait été altéré, il activa rapidement une restriction.
 
-Le paysage devant lui devint soudainement flou. Des ondulations apparurent, comme une pierre jetée dans une eau calme. Bientôt, l'ancienne restriction se manifesta.
+Le paysage devant lui devint soudainement flou. Des ondulations apparurent, comme une pierre jetée dans une eau calme. Bientôt, l'ancien réseau de transfert apparut.
 
 Le corps de Wang Lin disparut pour réapparaître à l'intérieur du réseau de transfert. Il sortit quelques matériaux de son sac de rangement et les posa sur le réseau de transfert pour rétablir les parties qu'il avait démontées autrefois.
 

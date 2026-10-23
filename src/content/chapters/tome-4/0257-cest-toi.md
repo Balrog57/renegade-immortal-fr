@@ -70,7 +70,7 @@ Le serveur sourit: « Ne dites pas de bêtises. Le tenancier a déjà précisé 
 
 Wang Lin s'assit. Bientôt, le serveur apporta plusieurs plats et un petit brasero surmonté d'une marmite d'eau bouillante. Wang Lin y plaça la cruche de vin pour commencer à la réchauffer.
 
-De temps à autre, il se versait une coupe. Il restait là, observant les clients entrer dans l'auberge. Peu à peu, la salle se remplit. Après environ trente minutes, des artistes apparurent depuis l'arrière-boutique et les clients commencèrent à acclamer.
+De temps à autre, il se versait une coupe. Il restait là, observant les clients entrer dans l'auberge. Peu à peu, la salle se remplit. Après environ une heure, des artistes apparurent depuis l'arrière-boutique et les clients commencèrent à acclamer.
 
 Parmi les interprètes, une femme particulièrement jolie attira tous les regards. La plupart des clients étaient venus pour elle.
 

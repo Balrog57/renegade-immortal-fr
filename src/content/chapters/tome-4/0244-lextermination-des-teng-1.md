@@ -60,7 +60,7 @@ Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de
 
 Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: il ne savait s'il devait s'en réjouir ou se sentir impuissant.
 
-Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait à la mystérieuse momie du temple de bataille du pays de Huo Fen.
+Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait à la mystérieuse momie du Temple du Dieu de la Guerre du pays de Huo Fen.
 
 L'autre contenait plus d'une dizaine de trésors magiques appartenant aux anciens cultivateurs de la terre des Dieux Anciens. Cependant, ils étaient trop puissants. Wang Lin avait tenté tout ce qu'il pouvait, mais il n'était parvenu qu'à prendre le contrôle du miroir de bronze.
 

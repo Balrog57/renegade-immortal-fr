@@ -48,7 +48,7 @@ Alors que la sculpture tombait, elle fut rattrapée par une main invisible géan
 
 En particulier le cultivateur qui venait d'être blessé par la pression spirituelle; son visage était livide et son front perlé de sueur.
 
-À leurs yeux, l'apparence de Wang Lin était trop singulière. Avant d'entrer dans la boutique, ils avaient utilisé leur énergie spirituelle pour scruter l'intérieur. Bien qu'une personne ait été présente à l'arrière, elle n'était qu'un simple mortel.
+À leurs yeux, l'apparence de Wang Lin était trop singulière. Avant d'entrer dans la boutique, ils avaient utilisé leur sens divin pour scruter l'intérieur. Bien qu'une personne ait été présente à l'arrière, elle n'était qu'un simple mortel.
 
 Pourtant, ce mortel venait d'apparaître silencieusement devant eux. C'était comme si la foudre venait de les frapper, les plongeant dans la terreur.
 

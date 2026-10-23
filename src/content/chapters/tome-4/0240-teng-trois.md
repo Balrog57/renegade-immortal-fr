@@ -80,7 +80,7 @@ Il n'utilisait jamais cette épée lors de ses combats.
 
 L'adoration qu'il vouait à cette arme n'était en rien inférieure à celle qu'il portait à Teng Xiu Xiu, car lors de sa forge, sa femme y avait laissé une goutte de son sang.
 
-C'est à cause de cette goutte de sang mortel que la puissance de l'épée s'en trouvait considérablement affaiblie. Mais Teng Trois s'en moquait; tant que cette épée subsistait, sa femme était présente. Si l'épée se brisait, sa femme mourrait.
+C'est à cause de cette goutte de sang mortel que la puissance de l'épée s'en trouvait considérablement affaiblie. Mais Teng Trois s'en moquait; tant que cette épée subsistait, il vivait. Si l'épée se brisait, il mourrait.
 
 À cet instant, le cœur de Teng Trois fut consumé par un désir ardent de combattre, car il savait qu'il allait mourir aujourd'hui.
 

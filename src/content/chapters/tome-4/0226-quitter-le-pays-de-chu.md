@@ -146,7 +146,7 @@ Au cours des vingt derniers jours, après que son avatar eut consommé la pilule
 
 Cependant, lorsque son avatar fusionna avec son corps principal, un problème survint.
 
-Tout avait commencé comme prévu. L'avatar fusionna avec le corps principal pour l'aider à franchir le seuil de l'Âme Naissante.
+Rien ne se passa comme prévu : la culture de l'avatar ne put entraîner le corps principal à franchir le seuil de l'Âme Naissante.
 
 Pourtant, il avait sous-estimé la difficulté de briser le goulot d'étranglement du Royaume Ji. Combien de génies avaient été piégés par les limites du Royaume Ji, incapables de progresser?
 

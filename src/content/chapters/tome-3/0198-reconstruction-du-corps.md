@@ -158,7 +158,7 @@ Il se souvenait parfaitement qu'il y avait huit étoiles sur le front de l'Ancie
 
 Mais les étoiles sur le front de Tu Si étaient rouges, tandis que celle sur son propre front n'était qu'un contour pâle. En réalité, si l'on ne regardait pas avec attention, elle était presque invisible.
 
-Bien qu'il ignorât comment obtenir les autres étoiles, Wang Lin était convaincu qu'une fois tous les cristaux absorbés, il en comprendrait le secret.
+Bien qu'il ignorât encore à quoi servait cette étoile, Wang Lin était convaincu qu'une fois tous les cristaux absorbés, il en comprendrait le secret.
 
 Même s'il en savait peu sur cette étoile, après avoir absorbé plus de 50 cristaux, Wang Lin comprit pourquoi son corps s'était reformé.
 

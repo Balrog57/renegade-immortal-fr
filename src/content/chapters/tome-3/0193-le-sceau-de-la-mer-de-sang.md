@@ -124,7 +124,7 @@ L'homme constitué par l'Âme Errante trembla. Il hésita, puis, avec détermina
 
 Dès l'apparition de la sphère, son corps s'effondra pour reprendre sa forme d'Âme Errante, incapable de maintenir son apparence humaine. Après un long moment, il finit par se condenser à nouveau sous forme humaine, mais son corps demeurait semi-transparent.
 
-Sans un mot, son Sens Divin du Royaume Ji jaillit rapidement pour envelopper la sphère lumineuse. Celle-ci contenait l'énergie d'âme de l'immense Âme Errante, que Wang Lin put absorber sans la moindre entrave. Après une demi-heure, il l'avait totalement assimilée.
+Sans un mot, son Sens Divin du Royaume Ji jaillit rapidement pour envelopper la sphère lumineuse. Celle-ci contenait l'énergie d'âme de l'immense Âme Errante, que Wang Lin put absorber sans la moindre entrave. En seulement le temps d'un demi-bâton d'encens, il l'avait totalement assimilée.
 
 Wang Lin sentit nettement son Sens Divin croître de plusieurs fois.
 

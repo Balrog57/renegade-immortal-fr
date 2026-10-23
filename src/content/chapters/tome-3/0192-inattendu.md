@@ -24,7 +24,7 @@ Dou Mu se retourna. Son regard fixe et imperturbable était rivé sur Wang Lin.
 
 Wang Lin recula de quelques pas, ses pupilles se contractant légèrement. Il plaça sa main droite près de son sac de rangement tout en fixant l'individu devant lui. La situation s'écartait beaucoup de ses calculs.
 
-L'un des neuf cultivateurs déclara: « Dou Mu, nous ne pourrons pas maintenir cela longtemps, trois heures tout au plus. Vite, explique-nous tout. »
+L'un des neuf cultivateurs déclara: « Dou Mu, nous ne pourrons pas maintenir cela longtemps, le temps de trois bâtons d'encens tout au plus. Vite, explique-nous tout. »
 
 Un éclat vif jaillit des yeux de Dou Mu alors qu'il fixait Wang Lin. Il dit: « Petit gars, tu avais réussi à disparaître. Pourquoi réapparais-tu ainsi? »
 

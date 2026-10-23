@@ -20,7 +20,7 @@ Wang Lin resta au cœur de la tornade et fonça vers le vortex de la seconde ép
 
 La créature royale, au cœur de la tornade souveraine, balaya les environs de ses yeux glacés, et son regard se posa enfin sur la tornade de Wang Lin. Elle afficha une expression perplexe, mais très vite elle lâcha un cri strident, et toutes les tornades alentour se lancèrent à la poursuite de Wang Lin.
 
-Quant à la tornade royale, elle arborait une étrange expression sur son visage tandis qu'elle transportait Bossu Meng et disparaissait lentement dans la direction opposée.
+Quant à la créature royale, elle arborait une étrange expression sur son visage tandis qu'elle transportait Bossu Meng et disparaissait lentement dans la direction opposée.
 
 La différence entre les tornades était considérable; elle dépendait du nombre de petites créatures qu'elles contenaient. Plus leur nombre était élevé, plus la tornade allait vite. En conséquence, les tourbillons formèrent une ligne en poursuivant Wang Lin. La tornade que contrôlait Wang Lin possédait un nombre décent de petites créatures, sa vitesse n'était donc pas lente non plus.
 

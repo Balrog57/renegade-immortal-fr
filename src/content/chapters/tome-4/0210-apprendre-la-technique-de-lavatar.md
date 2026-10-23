@@ -119,7 +119,7 @@ Le temps s'écoula, et une année passa. Durant cette période, hormis la collec
 
 En un an, Wang Lin avait réussi à réprimer totalement cette ligne rouge, mais il ne relâchait pas sa vigilance. Bien que minuscule, elle contenait le pouvoir d'une rétribution divine; une manipulation erronée aurait pu détruire son corps. Bien que celui-ci eût déjà subi une reconstruction, il refusait de s'en servir comme cobaye.
 
-En parallèle, Wang Lin consacrait son temps à l'étude de la technique de l'avatar. C'était là son moyen de contourner son incapacité à franchir le stade de l'Âme Naissante. Il se remémorait avec précision la grotte du temple du Dieu de la Guerre pour en extraire les secrets de cette technique d'incarnation.
+En parallèle, Wang Lin consacrait son temps à l'étude de la technique de l'avatar. C'était là son moyen de contourner son incapacité à franchir le stade de l'Âme Naissante. Il se remémorait avec précision la technique du Chemin Divin, gravée de mémoire par l'Ancêtre Chen Chong au temple du Dieu de la Guerre.
 
 Cette technique consistait à créer un second corps réel, un double. L'idée était d'utiliser l'avatar pour accélérer la vitesse de culture, puis, au moment de franchir le stade de l'Âme Naissante, de fusionner les deux corps pour maximiser les chances de réussite. Cependant, cette technique étant incomplète, l'avatar présentait un défaut fatal: il ne possédait aucune culture lors de sa création et sa durée de vie n'atteignait pas trente ans.
 
@@ -131,4 +131,4 @@ Mais un autre problème crucial subsistait: les pilules! Ce problème serait ré
 
 L'expression de Wang Lin restait sereine. Devant lui reposaient trois fioles blanches remplies du liquide recueilli auprès de la perle défiant le ciel durant l'année écoulée. Ce liquide constituerait le premier présent offert à son avatar.
 
-Après une réflexion, ses yeux brillèrent d'une détermination sans faille. Ses mains formèrent un sceau et il entama les étapes de la technique pour créer son incarnation. Cette technique n'était pas difficile pour qui en comprenait tous les détails, car elle ne dépendait ni du talent ni de la puissance brute. Autrement, Chen Chong, qui possédait le pire talent du temple du Dieu de la Guerre, n'aurait pu être le seul, avec le créateur, à percer le secret de cette technique d'avatar.
+Après une réflexion, ses yeux brillèrent d'une détermination sans faille. Ses mains formèrent un sceau et il entama les étapes de la technique pour créer son incarnation. Cette technique n'était pas difficile pour qui en comprenait tous les détails, car elle ne dépendait ni du talent ni de la puissance brute. Autrement, Chen Chong, qui possédait le pire talent du temple du Dieu de la Guerre, n'aurait pu être le seul, après son maître, à percer le secret de cette technique du Chemin Divin.

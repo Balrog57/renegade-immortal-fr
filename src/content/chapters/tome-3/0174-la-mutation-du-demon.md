@@ -48,7 +48,7 @@ Après un soupir, Wang Lin abandonna ces pensées irréalistes et reprit sa marc
 
 Une demi-lune plus tard, grâce à sa grande prudence, il contourna un groupe de tornades noires qui l'avait stupéfié dès qu'il l'avait perçu par son Sens Divin.
 
-Le groupe de tornades était extrêmement dense. Le nombre de petites créatures qu'il contenait devait dépasser plusieurs centaines de millions. Wang Lin en eut la chair de poule. Cela le rendit encore plus prudent; il passa un mois entier à contourner ce groupe de tourbillons.
+Le groupe de tornades était extrêmement dense. Le nombre de petites créatures qu'il contenait devait dépasser plusieurs centaines de millions. Wang Lin en eut la chair de poule. Cela le rendit encore plus prudent; au bout d'une demi-lune, il finit par contourner ce groupe de tourbillons.
 
 La plupart des tornades de cette terre avaient été attirées par Bossu Meng, ainsi, bien qu'il y eût quelques frayeurs en chemin, il n'y eut pas de véritable danger. Wang Lin se trouvait alors à l'intérieur d'une tour noire et, se retournant pour regarder derrière lui, il vit que Bossu Meng se trouvait là-bas!
 

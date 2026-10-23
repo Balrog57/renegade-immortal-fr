@@ -24,7 +24,7 @@ De plus, chaque année, la famille Teng leur offrait des cadeaux tels que des ma
 
 On pouvait dire que la Vallée de Wu Feng était devenue une secte privée appartenant à la famille Teng.
 
-À ses débuts, certains s'y opposaient. Les membres de la Vallée de Wu Feng s'étaient opposés et avaient fait part de leurs inquiétudes, mais après des centaines d'années, plus personne ne manifestait d'opposition, et même les disciples de la vallée croyaient désormais faire partie de la famille Teng.
+À ses débuts, certains s'y opposaient. Les membres de la Vallée de Wu Feng s'étaient opposés et avaient fait part de leurs inquiétudes, mais après des centaines d'années, plus personne ne manifestait d'opposition, et même les disciples de la vallée acceptaient désormais la prise de contrôle de la famille Teng.
 
 Après tout, des siècles peuvent tout changer, et la plupart des disciples actuels de la Vallée de Wu Feng appartenaient à une nouvelle génération acceptée au cours de la dernière centaine d'années.
 

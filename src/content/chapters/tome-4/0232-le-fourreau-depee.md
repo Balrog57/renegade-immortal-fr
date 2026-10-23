@@ -57,7 +57,7 @@ On trouvait en son sein de nombreuses pièces, grandes et petites, et chaque pi�
 
 À l'époque, Huo Fen s'était établie dans le pays de Xuan Wu, qui l'avait finalement attaquée avec plusieurs autres nations voisines. Les quatre grandes sectes avaient été chassées du pays, et c'est aussi à ce moment que Li Muwan fut contrainte de quitter son foyer.
 
-Sous ce volcan se trouvait un édifice complet: le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de la retraite. Le temple renfermait les restes d'innombrables ancêtres du culte et de nombreuses techniques sacrées.
+Sous ce volcan se trouvait un édifice complet: le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de la retraite. Le temple renfermait les restes d'innombrables ancêtres du culte et la paroi rocheuse du Chemin Divin.
 
 À cet instant, parmi les multiples salles de cristal, l'une d'elles se mit à briller. Immédiatement, une main desséchée s'éleva et un corps décharné sortit de la pièce. Une fois dehors, il pressa le sol de sa main droite. Soudain, une énergie verte convergea depuis tout le temple pour pénétrer son corps. Lentement, ses muscles et sa peau commencèrent à se régénérer.
 

@@ -10,7 +10,7 @@ Wang Lin saisit l'or sur la table et le jeta négligemment dans un petit panier 
 
 Quant aux sculptures du magasin, hormis celles de ses parents et de ses proches, il ne s'en souciait absolument pas. À ses yeux, ces objets n'étaient que des outils. Des outils destinés à l'aider à apaiser son cœur et à comprendre les lois célestes.
 
-Il était convaincu que le jour où il parviendrait à sculpter la statue d'un cultivateur du niveau de Formation de l'Âme ou d'une bête spirituelle, sa culture connaîtrait une percée.
+Il était convaincu que le jour où il parviendrait à sculpter la statue d'un cultivateur ou d'une bête au niveau de la Formation de l'Âme, sa culture connaîtrait une percée.
 
 Da Niu quitta la boutique, l'esprit ailleurs. En marchant, il ne cessait de marmonner pour lui-même, mais nul ne savait ce qui occupait ses pensées.
 

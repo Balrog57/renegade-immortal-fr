@@ -32,7 +32,7 @@ La culture de Zhou Wutai n'était qu'un cran en dessous de celle de Wang Lin; il
 
 Bien qu'il sût que tout cela n'était qu'une illusion, le sentiment était d'un réalisme absolu. Une sensation écrasante envahit son corps. Lorsqu'il retrouva ses esprits, la main droite de Zhou Wutai pressait déjà son front. Accompagné d'une décharge d'énergie spirituelle, l'homme en noir cracha du sang et s'effondra, mort.
 
-Quant à son Âme Naissante, elle était entre les mains de Zhou Wutai. Il la broya sous les yeux de Wang Lin. Par ce geste, il signifiait à Wang Lin qu'il n'était pas responsable de ce carnage. C'était aussi une manière de lui assurer que personne ne serait au courant et qu'il n'aurait pas à tuer d'autres personnes.
+Quant à son Âme Naissante, elle était entre les mains de Zhou Wutai. Il la broya sous les yeux de Wang Lin. Par ce geste, il signifiait à Wang Lin qu'il n'était pas responsable de ce carnage. C'était aussi une manière de lui assurer que personne ne le saurait, sans quoi il n'aurait pas lui-même éliminé ce témoin.
 
 La rapidité et la netteté avec lesquelles Wang Lin avait éliminé les trois hommes avaient laissé l'orgueilleux Zhou Wutai totalement stupéfait. S'ils n'avaient été qu'un, il aurait pu les tuer aisément. S'ils avaient été deux, il aurait tout juste pu l'emporter.
 

@@ -58,7 +58,7 @@ Wang Lin saisit les trois pierres de sa main droite. Alors qu'il avançait, des 
 
 Il fit trois pas et son corps disparut des lieux.
 
-Ces trois pierres étaient les composants essentiels à la fabrication du drapeau de restriction. Au sein d'une brèche dans les méridiens de l'Ancien Dieu, d'innombrables restrictions avaient été disposées en anneau, dégageant une aura périlleuse. Une silhouette aux cheveux blancs et aux yeux empreints des vicissitudes de la vie apparut soudainement à l'extérieur de ce cercle.
+Ces trois pierres étaient les composants essentiels à la fabrication du drapeau de restriction, les pierres d'encre! Au sein d'une brèche dans les méridiens de l'Ancien Dieu, d'innombrables restrictions avaient été disposées en anneau, dégageant une aura périlleuse. Une silhouette aux cheveux blancs et aux yeux empreints des vicissitudes de la vie apparut soudainement à l'extérieur de ce cercle.
 
 Une fois apparu, il fixa l'anneau de restrictions. Après l'avoir observé un instant et constaté qu'aucun changement n'avait eu lieu, il s'avança. Ces restrictions semblaient avoir perdu leur pouvoir, car aucune ne s'activa. À chaque pas, les barrières à proximité se dissipaient. En marchant vers le centre du cercle, toutes les restrictions sur son passage s'effacèrent.
 

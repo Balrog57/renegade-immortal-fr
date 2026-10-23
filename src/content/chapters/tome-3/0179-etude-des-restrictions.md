@@ -62,7 +62,7 @@ Après avoir enregistré la première restriction sur le jade, il étudia attent
 
 Le temps passa lentement. Dix jours plus tard, alors que Wang Lin observait la zone, sa main droite saisit soudainement l'herbe. Celle-ci se mit alors à bouger. Cependant, Wang Lin semblait s'y attendre et suivit le mouvement de l'herbe.
 
-Sa main droite se déplaça vers la gauche, puis vers la droite, tandis que son autre main se joignait au mouvement. À première vue, il semblait bouger sans aucun motif, mais à y regarder de plus près, il évoluait en parfaite synchronisation avec l'herbe.
+Sa main droite se déplaça vers la gauche, puis vers la droite, et des mouvements d'avant en arrière s'y ajoutèrent. À première vue, il semblait bouger sans aucun motif, mais à y regarder de plus près, il évoluait en parfaite synchronisation avec l'herbe.
 
 En quelques respirations seulement, la vitesse de sa main droite dépassa une certaine limite, comme si elle s'était soudain démultipliée en d'innombrables copies, et commença à créer des images rémanentes. La plupart du temps, dès qu'une image apparaissait, la précédente avait déjà disparu.
 

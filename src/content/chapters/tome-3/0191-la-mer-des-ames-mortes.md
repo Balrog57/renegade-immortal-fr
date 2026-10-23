@@ -138,7 +138,7 @@ Il utilisa immédiatement la technique de Vol d'Énergie Spirituelle du premier 
 
 L'énergie spirituelle tourbillonna dans son noyau, se changeant en autant de petits ouragans en spirale qui parcoururent rapidement ses méridiens.
 
-En l'espace de deux heures, toute l'énergie contenue dans la pilule avait disparu.
+En l'espace de deux bâtons d'encens, toute l'énergie contenue dans la pilule avait disparu.
 
 Sans la technique de Vol d'Énergie Spirituelle, il lui aurait fallu au moins des mois, voire des années de respiration pour digérer cette pilule, et il n'en aurait absorbé que 70 à 80 % au mieux, le reste étant dépensé en pure perte.
 
@@ -172,7 +172,7 @@ Ses réserves de pilules s'amenuisaient et son énergie spirituelle liquide éta
 
 Mais pour l'instant, il manquait de certitude.
 
-Après un moment de réflexion, Wang Lin leva la main, un regard froid dans les yeux. Il ne restait plus qu'une voie. S'il refusait d'être piégé ici, condamné à fuir éternellement les cultivateurs démoniaques, il n'avait qu'un choix.
+Après un moment de réflexion, Wang Lin leva la tête, un regard froid dans les yeux. Il ne restait plus qu'une voie. S'il refusait d'être piégé ici, condamné à fuir éternellement les cultivateurs démoniaques, il n'avait qu'un choix.
 
 Sa main droite déchira le vide, créant une faille dans laquelle il s'engouffra. Il ressortit de là pour quitter la Mer de Connaissance et réapparaître quelque part entre le Point Ancestral et la Mer de Qi.
 

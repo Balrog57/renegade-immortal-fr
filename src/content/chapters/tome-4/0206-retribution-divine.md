@@ -256,7 +256,7 @@ Après un long moment, il baissa la tête pour examiner le bambou, mais sa main 
 
 La lumière bloquant Xu Liguo, ce dernier ne pouvait s'approcher davantage. Il fit de son mieux, mais n'embrassa que les quelques mots « Ancienne Restriction » gravés sur le bambou.
 
-Trois heures plus tard, Qiu Siping fronça les sourcils. Il referma le rouleau d'un air interrogatif. Après l'avoir rangé, il chercha encore un moment et saisit deux morceaux de jade gris avant de quitter la pièce.
+Le temps de trois bâtons d'encens plus tard, Qiu Siping fronça les sourcils. Il referma le rouleau d'un air interrogatif. Après l'avoir rangé, il chercha encore un moment et saisit deux morceaux de jade gris avant de quitter la pièce.
 
 Dans la salle de pierre voisine, il s'assit en tailleur, plaça un morceau de jade gris sur son front et commença à méditer.
 

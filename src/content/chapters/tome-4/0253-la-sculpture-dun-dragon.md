@@ -69,7 +69,7 @@ Wang Lin réfléchit un instant, leva les yeux vers le garçon et dit:
 — La sculpture exige de la compréhension. Si tu veux apprendre, tu devras m'observer pendant soixante ans. Après soixante ans, tu pourras sculpter par toi-même.
 
 Da Niu tira la langue et répliqua:
-— Soixante ans... Pourtant, j'ai vu le charpentier dans la partie sud de la ville. Il n'a que quarante et quelques années et ses sculptures sont déjà très bonnes.
+— Soixante ans... Pourtant, j'ai vu le charpentier Zhou dans la partie sud de la ville. Il n'a que quarante et quelques années et ses sculptures sont déjà très bonnes.
 
 Wang Lin but une gorgée de vin et répondit simplement:
 — Je suis différent de lui.

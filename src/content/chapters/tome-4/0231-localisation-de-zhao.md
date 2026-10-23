@@ -176,7 +176,7 @@ Le vieillard posa sa tasse et eut un sourire discret: « Confrère Wang, mon nom
 
 Wang Lin fut stupéfait en fixant l'homme.
 
-Voyant son expression, le vieillard demanda: « Le confrère Wang m'aurait-il déjà entendu parler de lui? »
+Voyant son expression, le vieillard demanda: « Le confrère Wang aurait-il déjà entendu parler de moi? »
 
 Wang Lin secoua la tête et répondit calmement: « Non, c'est simplement que vous portez le même nom qu'un ami, j'en ai été déconcerté un instant. »
 

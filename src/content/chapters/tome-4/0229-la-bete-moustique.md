@@ -24,7 +24,7 @@ Bientôt, les deux antagonistes se rejoignirent. Des nuages de poussière grise 
 
 Wang Lin, resté à distance, observait attentivement cet affrontement. La poussière grise semblait être une technique propre à la bête, et son proboscis constituait son arme principale.
 
-Après avoir réfléchi un instant, Wang Lin fit glisser sa main sur le miroir de bronze, ce qui ralentit soudainement la bête simulacre. La bête moustique en saisit la copie et la transperça sans pitié avec son proboscis, avant de commencer à la vider de son essence. Le double poussa un ultime rugissement avant de se transformer en une lueur verte pour retourner dans le miroir.
+Après avoir réfléchi un instant, Wang Lin fit glisser sa main sur le miroir de bronze, ce qui ralentit soudainement la bête simulacre. La bête moustique en saisit la copie et la transperça sans pitié avec son proboscis, avant de commencer à la vider de son essence. Le double poussa un ultime rugissement avant de se transformer en une lueur verte et de se dissiper complètement.
 
 L'animal fut déconcerté, mais poussa rapidement quelques cris de rage. La moustique fixa Wang Lin, sa bouche redevenant rouge. Cependant, elle n'osa pas l'attaquer. Après un court instant, elle fit demi-tour pour s'enfuir.
 

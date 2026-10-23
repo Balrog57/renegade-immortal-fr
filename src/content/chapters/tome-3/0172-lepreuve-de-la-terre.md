@@ -130,7 +130,7 @@ Bien qu'il fût un cultivateur de la Formation de l'Âme doté de poisons, il é
 
 Les tornades noires étaient omniprésentes dans ce désert infini. Sans parler de dix fois plus, cent, mille ou même dix mille fois plus de créatures était tout à fait possible. À cette pensée, le cœur de Bossu Meng se glaça.
 
-Bien qu'aucune créature ne fût puissante individuellement, si elles étaient un milliard ou dix milliards, leurs attaques sonores combinées pourraient broyer sur-le-champ le sens divin d'un cultivateur de la Formation de l'Âme comme lui et même réduire son corps en miettes.
+Bien qu'aucune créature ne fût puissante individuellement, si elles dépassaient cent millions ou un milliard, leurs attaques sonores combinées pourraient broyer sur-le-champ le sens divin d'un cultivateur de la Formation de l'Âme comme lui et même réduire son corps en miettes.
 
 Plus Wang Lin progressait, plus il était perplexe. Il avait parcouru plus de mille kilomètres sans rencontrer d'autre danger que quelques grandes tornades. Seule la résistance souterraine s'intensifiait, le forçant à ralentir. Plus de la moitié de son énergie spirituelle servait désormais uniquement à contrer cette pression.
 

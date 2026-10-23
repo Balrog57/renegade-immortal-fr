@@ -8,7 +8,7 @@ slug: yun-fei
 ---
 Dans la Mer des Démons, parmi les Étoiles Brisées du Chaos.
 
-C'était un anneau formé de nombreuses planètes dévastées et gigantesques. Une force mystérieuse régnait en ce lieu. Que l'on veuille entrer ou sortir, il fallait affronter plusieurs copies possédant le même niveau de culture que soi. Seule la victoire permettait de franchir cet anneau mystérieux. Cet endroit était également extrêmement dangereux, ce qui explique pourquoi peu de gens s'y aventuraient.
+C'était un vaste anneau formé d'innombrables roches brisées. Une force mystérieuse régnait en ce lieu. Que l'on veuille entrer ou sortir, il fallait affronter plusieurs copies possédant le même niveau de culture que soi. Seule la victoire permettait de franchir cet anneau mystérieux. Cet endroit était également extrêmement dangereux, ce qui explique pourquoi peu de gens s'y aventuraient.
 
 Deux épées de lumière fonçaient vers ce lieu, l'une suivant l'autre. L'épée de tête était nettement moins éclatante. À l'intérieur de la lumière se trouvait une jeune femme aux lèvres serrées et au visage pâle. Elle portait des vêtements rouge et vert; sa taille était fine et elle était d'une grande beauté.
 

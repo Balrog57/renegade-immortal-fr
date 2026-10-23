@@ -52,7 +52,7 @@ Dans un craquement sinistre, les yeux de Teng Neuf faillirent sortir de leurs or
 
 Un rayon de lumière rouge jaillit du front de Teng Neuf. Il tenta de s'échapper, mais fut promptement capturé par Wang Lin et jeté dans le drapeau des âmes.
 
-Wang Lin laissa tomber le corps de Teng Neuf sans ménagement et contempla le drapeau des âmes avec satisfaction. Il fallait admettre que Wang Lin rêvait d'une armée de démons, telle qu'il l'avait connue sur le champ de bataille étranger. Avec une telle armée, il aurait la puissance de fonder sa propre secte et ne craindrait personne, même des êtres ayant un niveau de culture supérieur au sien.
+Wang Lin laissa tomber le corps de Teng Neuf sans ménagement et contempla le drapeau des âmes avec satisfaction. Il fallait admettre que Wang Lin rêvait d'une armée de démons, telle qu'il l'avait connue sur le champ de bataille étranger. Avec une telle armée, il pourrait s'établir solidement dans le monde de la cultivation et ne craindrait personne, même des êtres ayant un niveau de culture supérieur au sien.
 
 Le problème était que les âmes capables d'être transformées en démons étaient bien trop rares. En quatre cents ans, outre Teng Neuf, il n'en avait trouvé que trois.
 
@@ -70,7 +70,7 @@ Cependant, les choses allaient changer. Si l'âme contenue dans le drapeau deven
 
 Grâce à son sens divin, il sentait que, hormis une personne située à la frontière de Zhao, tous s'étaient mis en mouvement. Ils voulaient clairement retourner à la Ville de la Famille Teng.
 
-Si Wang Lin les avait rencontrés avant Teng Neuf, il les aurait laissés rentrer pour les massacrer sur place. Mais après avoir découvert le potentiel de ce dernier, comment laisserait-il d'autres candidats aussi parfaits s'échapper? Bien que la bête moustique fût rapide, elle ne l'était pas assez pour Wang Lin. Il sortit une pilule, l'avala, sauta de sa monture et chargea vers sa prochaine cible.
+Si Wang Lin les avait rencontrés avant Teng Neuf, il les aurait laissés rentrer pour les massacrer sur place. Mais après avoir découvert le potentiel de ce dernier, comment laisserait-il d'autres candidats aussi parfaits s'échapper? Bien que la bête moustique fût rapide, elle ne l'était pas assez pour Wang Lin. Il sortit un flacon de pilules, l'avala d'un coup, sauta de sa monture et chargea vers sa prochaine cible.
 
 Teng Huit volait tranquillement dans les airs. Son regard était calme et il ne ressentait aucune tension. En réalité, il n'avait guère envie de retourner à la Ville de la Famille Teng, mais les meurtres des derniers jours avaient plongé toute la lignée dans la panique.
 
@@ -90,7 +90,7 @@ Hormis ces deux individus, il ne redoutait personne d'autre. Au contraire, il es
 
 Il était la cinquième personne à porter le nom de Teng Huit. Cela signifiait que, depuis longtemps, tous ceux qui l'avaient défié avaient été fauchés par lui.
 
-Alors qu'il volait, le regard de Teng Huit devint plus grave tandis que le ciel s'obscurcissait et que des nuages sombres s'amoncelaient. Juste au moment où il s'apprêtait à accélérer, il fut stupéfait par l'apparition soudaine d'un jeune homme vêtu de blanc devant lui.
+Alors qu'il volait, le regard de Teng Huit devint plus grave tandis que le ciel s'obscurcissait et que des nuages sombres s'amoncelaient. Juste au moment où il s'apprêtait à accélérer, il fut stupéfait par l'apparition soudaine d'un homme aux cheveux blancs devant lui.
 
 Le cœur de Teng Huit manqua un battement. Il faut dire que son sens divin était déployé en permanence, et pourtant il n'avait absolument pas remarqué ce jeune homme. Cela ne pouvait signifier qu'une chose: le sens divin de cet inconnu surpassait largement le sien.
 

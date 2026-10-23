@@ -120,6 +120,6 @@ Il venait d'achever la statue du vieil homme en cyan imprégnée de son domaine.
 
 Car ce Dao Céleste de la vie et de la mort n'était pas une chose qu'un simple cultivateur au stade de la Formation de l'Âme pouvait appréhender.
 
-À cet instant, une carte stellaire résidait dans l'esprit de Wang Lin, laissée par le vieux cultivateur, l'Omniscient. Au sein de cette carte se trouvait une planète bien plus vaste que Suzaku: c'était la planète de l'Omniscient.
+À cet instant, une carte stellaire résidait dans l'esprit de Wang Lin, laissée par le vieux cultivateur, l'Omniscient. Au sein de cette carte se trouvait une planète bien plus vaste que Suzaku: c'était le lieu de résidence de l'Omniscient, la planète Tian Yun.
 
 Il était toutefois impossible pour l'actuel Wang Lin d'y parvenir. Il soupira, réajusta son état d'esprit et retourna à sa vie de mortel. Mais dans son esprit, le sentiment d'avoir touché au Dao de la vie et de la mort était une chose qu'il n'oublierait jamais...

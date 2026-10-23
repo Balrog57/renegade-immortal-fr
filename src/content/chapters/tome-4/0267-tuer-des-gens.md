@@ -104,7 +104,7 @@ Une pointe de dérision apparut dans les yeux de Wang Lin. Il ne daigna même pa
 
 À cet instant, la neige s'écarta encore davantage, n'osant plus approcher. Simultanément, Wang Lin avança avec une douceur mortelle. Il atteignit rapidement l'homme au parapluie. Sa main droite saisit déjà la gorge de l'individu et, d'une pression ferme, lui brisa le cou.
 
-Wang Lin soupira doucement. « J'ai tué d'innombrables cultivateurs de l'Âme Naissante. Tu n'es pas le premier. » Sa main droite plongea soudainement dans l'abdomen de l'homme et en extirpa une Âme Naissante terrifiée. L'âme s'apprêtait à s'échapper quand, soudain, elle poussa un cri.
+Wang Lin soupira doucement. « J'ai tué d'innombrables cultivateurs de l'Âme Naissante. Tu n'es pas le deuxième. » Sa main droite plongea soudainement dans l'abdomen de l'homme et en extirpa une Âme Naissante terrifiée. L'âme s'apprêtait à implorer sa grâce quand, soudain, elle poussa un cri.
 
 Elle hurla parce que Wang Lin la dévora tout entière.
 

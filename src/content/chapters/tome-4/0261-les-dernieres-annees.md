@@ -28,7 +28,7 @@ Ce jour-là, Wang Lin contempla la sculpture du vieil homme. Il poussa un soupir
 
 La douce lumière du soleil baigna son corps alors qu'il s'asseyait sur une chaise en bois pour observer les passants. L'atelier de ferronnerie de l'autre côté de la rue s'était agrandi plusieurs fois au cours de ces neuf dernières années.
 
-Peu après, un garçon de quatre ans passa la tête hors de l'atelier. En voyant Wang Lin, il afficha un large sourire et courut vers lui, une cruche de vin à la main. Après avoir remis le vin à Wang Lin, il demanda: « Grand-père Wang, je vous ai volé ce vin en cachette. Où sont les bonbons? »
+Peu après, un garçon de quatre ans passa la tête hors de l'atelier. En voyant Wang Lin, il afficha un large sourire et courut vers lui, une cruche de vin à la main. Après avoir remis le vin à Wang Lin, il demanda: « Grand-père Wang, j'ai volé ce vin pour vous en cachette. Où sont les bonbons? »
 
 Wang Lin esquissa un sourire. Il frotta la tête du garçon et sortit une pilule de la taille d'un ongle. Il la lança au petit et prit une gorgée de la cruche.
 

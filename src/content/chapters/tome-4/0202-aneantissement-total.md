@@ -100,7 +100,7 @@ Wang Lin réfléchit un instant. Il tendit la main avec désinvolture et le corp
 
 Simultanément, son poignet droit pivota et ses doigts se rejoignirent. D'un geste, une image rémanente de restriction apparut et vint frapper le front de Yun Fei.
 
-« Cette restriction s'activera une fois tous les trois jours. À chaque activation, le sang de votre corps refluera. Votre culture sombrera dans le chaos et un feu des cinq éléments s'allumera dans votre cœur. Si je ne l'éteins pas dans la minute qui suit, votre corps entier se transformera en une mare de sang. »
+« Cette restriction s'activera une fois tous les trois jours. À chaque activation, le sang de votre corps refluera. Votre culture sombrera dans le chaos et un feu des cinq éléments s'allumera dans votre cœur. Si je ne la lève pas dans le quart d'heure, votre corps entier se transformera en une mare de sang. »
 
 Le visage de Yun Fei devint livide, mais elle parvint à se calmer après quelques respirations profondes. Elle savait que sa vie était sauve pour l'instant.
 

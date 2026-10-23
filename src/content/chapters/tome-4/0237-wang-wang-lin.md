@@ -34,7 +34,7 @@ Sur ce lit reposait un corps qui ressemblait à une montagne de graisse. L'homme
 
 « Tu connais ce vieil homme? » L'homme gras observa les innombrables corps derrière Wang Lin et fronça les sourcils. Il demanda: « Camarade cultivateur, ces mortels t'ont-ils importuné au point que tu aies dû tous les massacrer? » À ses yeux, Wang Lin était son semblable, n'étant qu'au début du stade de l'Âme Naissante; il ne le considérait donc pas comme une menace.
 
-Ji Mo avait semé la terreur dans le pays de Zhao pendant plusieurs années. Depuis qu'il avait atteint le stade de l'Âme Naissante, hormis quelques cultivateurs au stade avancé, il ne pensait que peu d'autres être une menace pour lui. Cela était dû en grande partie aux arts sombres secrets qu'il pratiquait. Cette méthode de culture était dédiée à la création de marionnettes; ainsi, bien qu'il ne fût qu'au début du stade de l'Âme Naissante, il possédait plusieurs marionnettes façonnées à partir des restes d'anciens cultivateurs.
+Ji Mo avait semé la terreur dans le pays de Zhao pendant plusieurs années. Depuis qu'il avait atteint le stade de l'Âme Naissante, hormis quelques cultivateurs au stade avancé, il ne pensait que peu d'autres être une menace pour lui. Cela était dû en grande partie à l'Art de la Lumière Sombre qu'il pratiquait. Cette méthode de culture était dédiée à la création de marionnettes; ainsi, bien qu'il ne fût qu'au début du stade de l'Âme Naissante, il possédait plusieurs marionnettes façonnées à partir des restes d'anciens cultivateurs.
 
 En réalité, Ji Mo étudiait cela depuis longtemps et cherchait sans cesse des sujets comme des zombies pour les raffiner.
 
