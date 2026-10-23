@@ -96,7 +96,7 @@ Son corps commença à bouger de manière singulière. Sa silhouette, autrefois 
 
 Cependant, une aura terrifiante se mit à converger alors que son corps s'étiolait. Puis, un rayon de lumière vive jaillit de l'espace entre ses sourcils.
 
-« Rassemble la poussière dispersée! » Le corps du vieil homme continua de s'amincir jusqu'à n'être plus qu'une peau sur des os; il ressemblait désormais à un squelette. La lumière entre ses sourcils brilla intensément et fonça vers Wang Lin.
+« Poussière Flottante de Tuluo! » Le corps du vieil homme continua de s'amincir jusqu'à n'être plus qu'une peau sur des os; il ressemblait désormais à un squelette. La lumière entre ses sourcils brilla intensément et fonça vers Wang Lin.
 
 Au moment où cette puissance lumineuse se propagea, les yeux de Wang Lin devinrent froids. Bien qu'il ignorât la nature exacte de cet éclat, il y décela une pointe de danger.
 

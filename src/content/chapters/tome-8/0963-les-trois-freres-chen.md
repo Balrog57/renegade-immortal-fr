@@ -86,7 +86,7 @@ L'individu face à lui ne leur témoignait manifestement aucun respect. À quoi 
 
 « De plus, si nous ne punissons pas sévèrement cet individu, nous n'aurons aucun moment de paix avant le début des enchères. Pour effrayer ceux qui oseraient observer avec leur sens divin, nous devons faire preuve de fermeté. »
 
-« Je vous donne trois secondes pour réfléchir! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana! Même si cet homme venait réellement de la Secte du Destin Céleste, ils ne croyaient pas que l'Omniscient s'abaisserait à leur chercher des ennuis. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
+« Je vous donne trois respirations pour réfléchir! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana! Même si cet homme venait réellement de la Secte du Destin Céleste, ils ne croyaient pas que l'Omniscient s'abaisserait à leur chercher des ennuis. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
 
 S'il s'était agi d'un membre de la Secte de l'Épée Da Luo, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
 
