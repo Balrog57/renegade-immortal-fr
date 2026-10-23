@@ -20,7 +20,7 @@ Deux autres piliers de jade se brisèrent et deux autres anciens s'effondrèrent
 
 Sur les huit piliers blancs, il n'en restait plus que quatre. Hormis les deux anciens de la Formation du Noyau, les visages des deux anciens de l'Établissement des Fondations étaient livides et leurs corps tremblaient; ils avaient manifestement atteint leurs limites.
 
-Huang Long avait déjà rassemblé tous les disciples internes. Leurs visages étaient empreints de choc et de terreur. Wang Lin était parmi eux. Wang Hao figurait également parmi eux. Son teint restait pâle, mais il allait bien mieux qu'auparavant. En voyant Wang Lin, il s'approcha aussitôt de lui et, hébété, contempla la scène dans le ciel sans pouvoir dire un mot.
+Huang Long avait déjà rassemblé tous les disciples internes. Leurs visages étaient empreints de choc et de terreur. Wang Hao figurait également parmi eux. Son teint restait pâle, mais il allait bien mieux qu'auparavant. En voyant Wang Lin, il s'approcha aussitôt de lui et, hébété, contempla la scène dans le ciel sans pouvoir dire un mot.
 
 Le visage de Pu Nanzi était sombre alors qu'il planait dans les airs. La puissance de cette formation défensive dépassait ses attentes. Il savait que la formation n'était pas à son plein potentiel; si un cultivateur de l'Âme Naissante en avait le contrôle, elle serait bien plus redoutable.
 

@@ -20,7 +20,7 @@ Il resta plongé dans la mélancolie pendant un long moment. Il avait également
 
 Pourtant, à présent, il était sûr à 100 % que cet homme était Wang Lin. Cette certitude ne reposait sur aucune logique; elle était purement intuitive.
 
-« Ce Wang Lin a déjà atteint un niveau de culture aussi élevé! Heureusement que je ne lui ai rien fait à l'époque. Hélas, le secret de cette eau spirituelle devra rester enfoui dans mon cœur. Peu importe que Wang Lin soit réellement cet homme ou non, car le monde de la culture est trop cruel. Sans parler des compagnons d'une même secte, même les frères se tueraient entre eux. Avec la puissance de culture de Wang Lin, je serais incapable de riposter! » Zhang Kuang décida de ne plus jamais chercher à provoquer Wang Lin.
+« Ce Wang Lin a déjà atteint un niveau de culture aussi élevé! Heureusement que je ne lui ai rien fait à l'époque. Hélas, le secret de cette eau spirituelle devra rester enfoui dans mon cœur. Peu importe que Wang Lin soit réellement cet homme ou non, je ne dois rien lui laisser paraître, car le monde de la culture est trop cruel. Sans parler des compagnons d'une même secte, même les frères se tueraient entre eux. Avec la puissance de culture de Wang Lin, je serais incapable de riposter! » Zhang Kuang décida de ne plus jamais chercher à provoquer Wang Lin.
 
 Il se remémora aussi involontairement l'épisode dans les montagnes arrières, lorsqu'il pensait que Wang Lin n'était même pas au premier niveau et qu'il l'avait transporté un bout de chemin. Il se demanda ce que Wang Lin avait réellement pensé de lui à ce moment-là.
 

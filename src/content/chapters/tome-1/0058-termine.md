@@ -46,7 +46,7 @@ Le visage de Wang Lin trahissait un certain regret. Le poison de ce mille-pattes
 
 L'Ancien Ouyang affichait un visage sombre. Il s'apprêtait à parler lorsqu'il scruta attentivement la fiole. Fronçant les sourcils, il demanda: « J'ai entendu dire qu'il y a 500 ans, plusieurs cultivateurs de l'Âme Naissante de la Secte Heng Yue avaient créé un terrain de culture dont l'énergie spirituelle était plusieurs fois supérieure à celle de l'extérieur. Ce liquide provient-il de là? »
 
-Dès que la fiole fut sortie, une puissante aura d'énergie spirituelle s'en échappa. Huang Long jeta un regard à la fiole de jade, puis se frotta la barbe en disant: « Quel gamin... Il ose proposer une simple bouteille d'eau de rivière. »
+Dès que la fiole fut sortie, une puissante aura d'énergie spirituelle s'en échappa. Huang Long jeta un regard à la fiole de jade, puis se frotta la barbe en souriant: « Ce gamin... Il a quand même rapporté une fiole d'eau de rivière en sortant. »
 
 L'Ancien Ouyang grogna. Il pesa la fiole dans sa main avant de déclarer: « Ami Huang Long, votre Secte Heng Yue possède un disciple exceptionnel. Adieu! »
 
@@ -62,7 +62,7 @@ Une fois la Secte Xuan Dao partie, le silence retomba sur le Pic des Pins. Le re
 
 Les disciples intérieurs, un à un, se réjouirent et fixèrent Wang Lin. Désormais, plus personne n'osait le traiter de déchet.
 
-Le cœur de Wang Zhuo était en plein chaos. Il dit à Dao Xu: « Maître, le disciple souhaite entrer dans le passage de la vie et de la mort. Je ne me soucierai plus d'aucune autre affaire. »
+Le cœur de Wang Zhuo était en plein chaos. Il dit à Dao Xu: « Maître, le disciple souhaite entrer en retraite de vie ou de mort. Je ne me soucierai plus d'aucune autre affaire. »
 
 Dao Xu soupira. Wang Zhuo était son disciple préféré, et il n'ignorait rien des tensions entre lui et Wang Lin. Après avoir réfléchi, il hocha la tête: « Très bien. Profite de cette occasion pour te tenir à l'écart de Wang Lin également. »
 
