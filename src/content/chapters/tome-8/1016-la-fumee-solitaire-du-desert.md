@@ -40,7 +40,7 @@ Wang Lin fit un pas vers la tour!
 
 La tour noire ne semblait pas loin, mais elle se trouvait tout de même à une certaine distance dans ce désert de sable noir. Cependant, cela n'était rien pour Wang Lin, qui combla rapidement l'espace.
 
-Pourtant, au moment où il s'avança, le sol devant la tour noire trembla. D'innombrables grains de sable noir s'assemblèrent pour former, à quelques dizaines de pieds de Wang Lin, des dizaines de silhouettes de sable!
+Pourtant, au moment où il s'avança, le sol devant la tour noire trembla. D'innombrables grains de sable noir s'assemblèrent pour former, à quelques centaines de pieds de Wang Lin, des dizaines de silhouettes de sable!
 
 Ils portaient tous des vêtements d'une époque très ancienne et étaient imprégnés d'énergie démoniaque. Cette énergie fusionna dans l'air pour former une étrange silhouette.
 

@@ -14,7 +14,7 @@ Après avoir longuement réfléchi, Wang Lin réprima les sentiments complexes q
 
 « Tout dans ce monde contient une loi. Le ciel, la terre, les cinq éléments, tout possède sa propre loi. Si l'on veut toutes les comprendre, il faudrait bien trop de temps. La puissance d'un être est limitée; il est donc impossible de tout saisir. » Les yeux de Wang Lin s'illuminèrent tandis qu'il méditait.
 
-« Ainsi, le Purificateur du Nirvana, et même ces anciens monstres Briseurs du Nirvana, possèdent souvent une loi dans laquelle ils excellent. Par exemple, Maître Yan Lei excelle dans la loi du feu… »
+« Ainsi, le Purificateur du Nirvana, et même ces anciens monstres Briseurs du Nirvana, possèdent souvent une loi dans laquelle ils excellent. Par exemple, Maître Yan Leizi excelle dans la loi du feu… »
 
 Pendant que Wang Lin réfléchissait, un éclair jaillit de son œil droit. Le tonnerre retentit de son œil droit et forma une sphère de foudre lumineuse.
 
