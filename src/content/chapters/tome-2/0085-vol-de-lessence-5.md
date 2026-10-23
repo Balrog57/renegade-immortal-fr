@@ -54,7 +54,7 @@ Une lueur froide traversa les yeux de Wang Lin. Il cracha une importante quantit
 
 La terreur du petit être s'intensifia: « Mon arrière-grand-père sait déjà que je suis en danger, il arrive d'un instant à l'autre! Toi... »
 
-Avant qu'il ne puisse finir sa phrase, Wang Lin agita la main. Le fil enveloppa le petit être et l'extirpa de force.
+Avant qu'il ne puisse finir sa phrase, Wang Lin agita la main. Le fil enveloppa le petit être et le tira violemment vers l'extérieur.
 
 Le petit être se débattit en criant: « Arrière-grand-père, sauve-moi! » La lumière jaune se mit aussitôt à briller violemment, comme pour tenir tête à Wang Lin.
 
@@ -64,7 +64,7 @@ Cette fois, malgré l'éclat de la lumière jaune, le petit être ne put plus r�
 
 Wang Lin fut surpris, mais Situ Nan intervint rapidement: « Ne t'en fais pas, il s'agit d'un avatar illusionnaire d'un cultivateur de l'Âme Naissante. C'est différent d'un avatar physique car il ne peut ni attaquer, ni te voir, ni même connaître ton emplacement exact. Il ne permet que d'entendre ses paroles. De plus, si cet avatar est si flou, c'est que cette personne se trouve très loin. Quant à sa présence ici, il semble qu'il porte un attachement profond pour Teng Li, car il a laissé cette parcelle de sens divin auprès de lui. »
 
-Sans répondre, Wang Lin pointa le petit être du doigt. Ce dernier s'immobilisa immédiatement, lutta, puis se rétracta jusqu'à devenir une sphère émettant une lumière violette.
+Sans répondre, Wang Lin pointa le petit être du doigt. Ce dernier cessa immédiatement de se débattre, puis se rétracta jusqu'à devenir une sphère émettant une lumière violette.
 
 L'avatar illusionnaire sembla réaliser que l'âme de Teng Li était en train d'être raffinée. Il lança d'une voix pleine de rancœur et d'un ton sombre: « Quiconque tue un membre de ma famille Teng sera maudit, tu es un homme mort! Moi, Teng Huayuan, je te retrouverai un jour... » Sur ces mots, la lumière jaune se dissipa lentement.
 

@@ -12,7 +12,7 @@ Les yeux de Zhou Peng se plissèrent. Il saisit Zhang Kuang par le cou et hurla:
 
 Zhang Kuang n'osa pas riposter. Son visage devint pourpre sous l'intensité de l'intention de meurtre qui émanait du regard de Zhou Peng. Il serra les dents et déclara: « Frère aîné, si tu ne me crois pas, utilise la technique de recherche d'âme. Ce que je dis est absolument vrai. Je n'ai rien révélé à quiconque. »
 
-Les yeux de Zhou Peng s'illuminèrent. Il laissa échapper un reniflement méprisant: « Je te croirai pour l'instant. Va, capture les parents de Wang Lin et tue-les. Je raffinerai leurs âmes pour en faire une bannière spirituelle. Elle nous permettra de traquer Wang Lin. Ensuite, en utilisant les âmes de ses propres parents pour l'attirer, tant qu'il n'aura pas atteint le stade de l'Établissement des Fondations, nous pourrons capturer son âme. »
+Les yeux de Zhou Peng s'illuminèrent. Il laissa échapper un reniflement méprisant: « Je te croirai pour l'instant. Va, capture les parents de Wang Lin et tue-les. Je raffinerai leurs âmes pour en faire une bannière de retour des âmes. Elle nous permettra de traquer Wang Lin. Ensuite, en utilisant les âmes de ses propres parents pour l'attirer, tant qu'il n'aura pas atteint le stade de l'Établissement des Fondations, nous pourrons capturer son âme. »
 
 Le corps de Zhang Kuang frissonna. Il n'avait jamais entendu parler d'une technique aussi vile et hésita un instant.
 

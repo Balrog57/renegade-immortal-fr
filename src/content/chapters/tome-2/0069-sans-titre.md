@@ -56,13 +56,13 @@ Wang Lin fut stupéfait. Il hésita un instant avant de lâcher: « Extraire ses
 
 Situ Nan rit intérieurement: « C'est une étape indispensable pour créer des marionnettes. Si tu n'en es pas capable, je ne pourrai pas t'aider. » Il pensa aussitôt: « Gamin, tu n'as jamais vu le sang, comment deviendras-tu un être sanguinaire? Cette technique n'est pas si complexe, mais c'est une excellente occasion de t'ouvrir les yeux. Petit, tu finiras par devenir un membre de ma Secte Démoniaque, c'est inéluctable! »
 
-Tout en pensant cela, Situ Nan s'exclama brusquement: « Je libère la glace! Tu as une demi-heure, alors ne perds pas de temps. Pense à ce qu'il avait l'intention de faire à tes parents! »
+Tout en pensant cela, Situ Nan s'exclama brusquement: « Je libère la glace! Tu n'as qu'un demi-quart d'heure, alors ne perds pas de temps. Pense à ce qu'il avait l'intention de faire à tes parents! »
 
 Aussitôt, la glace entourant Zhou Peng fondit rapidement pour se transformer en lumière bleue, laquelle retourna dans la Perle Défiant le Ciel.
 
 Wang Lin hésita un instant. Il comprit que s'il ne réglait pas ce problème maintenant, d'autres surgiraient à l'avenir. Il serra les dents et passa la main droite sur la poitrine de Zhou Peng, la fendant en deux. Étrangement, aucun sang ne s'en écoula.
 
-Tout en réprimant ses nausées, Wang Lin suivit les instructions de Situ Nan. Il formait divers sceaux avec ses mains tandis que son Sens Divin se concentrait sur la tâche. Cette demi-heure lui parut durer une année entière. Lorsque Situ Nan annonça fièrement que c'était terminé, Wang Lin ne put s'empêcher de se précipiter hors du creux d'arbre pour vomir.
+Tout en réprimant ses nausées, Wang Lin suivit les instructions de Situ Nan. Il formait divers sceaux avec ses mains tandis que son Sens Divin se concentrait sur la tâche. Ce court demi-quart d'heure lui parut durer une année entière. Lorsque Situ Nan annonça fièrement que c'était terminé, Wang Lin ne put s'empêcher de se précipiter hors du creux d'arbre pour vomir.
 
 Situ Nan rit: « Bien. La première étape est franchie. Maintenant vient la seconde, la plus cruciale. Tu dois envelopper son corps de ton Sens Divin et le raffiner pendant trois jours et trois nuits. Une fois cela fait, la marionnette sera considérée comme achevée. Tu devras pratiquer certaines techniques durant ces trois jours. Je te les expliquerai une à une, alors écoute attentivement. »
 

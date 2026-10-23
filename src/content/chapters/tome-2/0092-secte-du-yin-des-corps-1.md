@@ -14,7 +14,7 @@ Son regard se fit sérieux alors qu'il crachait quelques mots dans sa langue ét
 
 Wang Lin savait que les neuf talismans portés par l'homme bleu étaient très singuliers. Même après avoir été gravement blessé par une arme spirituelle, l'homme bleu avait pu se remettre totalement avec un seul talisman. Depuis lors, Wang Lin était devenu très curieux de ces objets.
 
-À présent, l'étranger arracha un autre talisman jaune et sa force doubla instantanément.
+À présent que l'autre avait de nouveau arraché un talisman, sa force avait doublé instantanément.
 
 Sans un mot, Wang Lin agita les deux mains. Son énergie spirituelle circula dans tout son corps et son aura changea elle aussi brusquement.
 

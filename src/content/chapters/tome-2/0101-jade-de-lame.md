@@ -28,7 +28,7 @@ Ye Zizai resta longuement en silence pour réfléchir. Après un moment, il sort
 
 « Que tous les disciples au stade de l'Établissement des Fondations des grottes 77 à 99 se rassemblent immédiatement dans la grotte 36. » Après avoir parlé, il marqua une pause et jeta un regard vers le recoin où Adai était scellé depuis quelques jours. Puis, prenant une décision, il sortit un autre jade, le plaça un instant sur son front avant de le lancer.
 
-Mu Rong était en pleine culture lorsque ses yeux s'ouvrirent brusquement: un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna: « Heureusement que j'ai atteint le début du stade de l'Établissement des Fondations il y a trois ans pour passer de la grotte 87 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
+Mu Rong était en pleine culture lorsque ses yeux s'ouvrirent brusquement: un jade venait de jaillir de son sac de rangement. Son expression changea légèrement et il le ramassa, l'esprit troublé. Après un long silence, il soupira et marmonna: « Heureusement que j'ai dépassé le début du stade de l'Établissement des Fondations il y a trois ans pour passer de la grotte 87 à la 72, sinon ma vie serait en grand danger aujourd'hui. »
 
 Soudain, une fumée verte apparut devant lui, prenant la forme d'un morceau de jade.
 

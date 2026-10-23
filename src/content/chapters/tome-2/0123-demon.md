@@ -24,7 +24,7 @@ Wang Lin agita la main. Après avoir capturé le sang, son regard se posa sur le
 
 En voyant Wang Lin accepter la goutte de sang, Lin Tao poussa un long soupir de soulagement. Sa vie était sauve. Il était très intelligent et fut sans doute le premier à comprendre que quelque chose n'allait pas: il avait réalisé que Ma Liang était déjà mort et qu'un autre l'avait possédé, mais il n'avait pas osé le mentionner aux deux autres.
 
-Lin Tao savait aussi que suivre Wang Lin était son unique chance de survie. Même si Wang Lin ne le tuait pas et se contentait de le chasser, il mourrait à coup sûr; ce fut donc une décision qu'il n'eut même pas à peser. Lorsque Wang Lin avait ordonné à l'âme errante de le poursuivre, il avait compris que Wang Lin avait percé son secret, c'est pourquoi il n'avait pas tenté de jouer l'idiot. Cela n'aurait fait qu'accélérer sa perte.
+Lin Tao savait aussi que suivre Wang Lin était son unique chance de survie. Même si Wang Lin ne le tuait pas et se contentait de le chasser, il mourrait à coup sûr; ce fut donc une décision qu'il n'eut même pas à peser. Lorsque Wang Lin avait ordonné à l'âme errante de le tuer, il avait compris que Wang Lin avait percé son secret, c'est pourquoi il n'avait pas tenté de jouer l'idiot. Cela n'aurait fait qu'accélérer sa perte.
 
 C'est là que l'intelligence de Lin Tao brilla: il devint l'esclave de Wang Lin sans la moindre hésitation, allant jusqu'à offrir une goutte de sang d'essence de son âme.
 

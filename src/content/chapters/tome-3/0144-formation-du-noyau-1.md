@@ -94,7 +94,7 @@ Alors qu'il observait, son cœur tressaillit et il se retourna. Li Muwan venait 
 
 Ces derniers jours, l'état d'esprit de Li Muwan avait évolué. Au début, elle restait sur ses gardes, craignant une attaque soudaine de Wang Lin, car les pratiquants du sort de la mort récoltaient souvent l'énergie Yin des femmes.
 
-Mais elle réalisa vite que ce Wang Lin passait presque tout son temps en entraînement à huis clos. Elle qui pensait autrefois que son frère était un cultivateur assidu, elle trouvait désormais que Wang Lin l'était véritablement.
+Mais elle réalisa vite que ce Wang Lin passait presque tout son temps en entraînement à huis clos. Elle qui pensait autrefois que son frère Li Qiqing était un cultivateur assidu, elle trouvait désormais que Wang Lin l'était véritablement.
 
 À ses yeux, Wang Lin était déjà au sommet du stade de l'Établissement des Fondations et n'était qu'à un pas de la Formation du Noyau. Pourtant, comment atteindre ce stade si facilement? Dans ses souvenirs, le cultivateur de Huo Fen ayant formé son noyau le plus vite en plusieurs milliers d'années avait atteint le sommet de l'Établissement des Fondations à 17 ans, mais il lui avait fallu 30 années pour atteindre la Formation du Noyau. Cette personne était l'ancêtre de Huo Fen, le premier à avoir atteint le stade de l'Âme Naissante et celui qui avait élevé Huo Fen d'un pays de culture de rang 2 à un rang 3.
 
@@ -168,7 +168,7 @@ Encore six mois passèrent. Les cristaux de glace s'étaient étendus à ses bra
 
 Six mois de plus s'écoulèrent. Tout son corps, hormis sa tête, était devenu un cristal de glace et son cœur avait cessé de battre. Il s'était enfoncé à 3 672 mètres.
 
-Deux années supplémentaires passèrent. À la moitié de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état des Sources Jaunes requis par la Méthode d'Ascension des Enfers.
+Deux années s'étaient ainsi écoulées. Au milieu de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état des Sources Jaunes requis par la Méthode d'Ascension des Enfers.
 
 Son corps était descendu à 7 979 mètres, émergeant dans un espace bleu foncé. Son environnement était jonché d'ossements de bêtes. Pour une raison inconnue, toute la chair de ces créatures avait disparu, ne laissant derrière elle que cette mer de cadavres.
 

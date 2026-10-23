@@ -10,7 +10,7 @@ Les déchirures spatiales sur le champ de bataille étranger résultent des inno
 
 De l'autre côté des déchirures spatiales s'étend une mer d'étoiles sans limites, un lieu saturé d'énergies violentes et peuplé d'innombrables créatures mystérieuses.
 
-Il n'est pas vrai que personne n'ait jamais réussi à sortir des déchirures. Cependant, les cultivateurs de la Transformation de l'Âme ont été téléportés presque instantanément après leur entrée, avant même que la force d'aspiration n'atteigne sa puissance maximale.
+Il n'est pas vrai que personne n'ait jamais réussi à sortir des déchirures. Cependant, les cultivateurs de la Transformation de l'Âme se téléportaient presque instantanément dehors après leur entrée, avant même que la force d'aspiration n'atteigne sa puissance maximale.
 
 L'aspect le plus terrifiant des déchirures spatiales sur ce champ de bataille est cette force d'aspiration. Même les cultivateurs de la Transformation de l'Âme éprouvent des difficultés face à elle. L'aspiration est si puissante qu'elle peut jusqu'à arracher l'énergie spirituelle; ne songez donc même pas à vous en échapper.
 

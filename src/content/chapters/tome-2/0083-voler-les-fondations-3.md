@@ -28,7 +28,7 @@ Sous l'énorme puissance de ce lingot, la majorité des lianes fut détruite et 
 
 En y repensant, son front se couvrait de sueur froide. Quant à Wang Lin, il le détestait désormais viscéralement.
 
-Surtout parce que Wang Lin ne l'attaquait jamais de front, préférant toujours les coups bas. À cause de cette étrange épée volante, Teng Li était contraint de la maintenir en vol constant autour de lui pour se protéger.
+Surtout parce que Wang Lin ne l'attaquait jamais de front, préférant toujours les coups bas. À cause de cette étrange épée volante, Teng Li était contraint de maintenir sa propre épée en vol constant autour de lui pour se protéger.
 
 Il inspecta attentivement la rivière. Après avoir hésité un instant, il but un peu d'eau, car la poursuite de ces cinq ou six derniers jours l'avait laissé épuisé et assoiffé.
 

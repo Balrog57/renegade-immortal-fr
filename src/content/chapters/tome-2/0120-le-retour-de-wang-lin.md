@@ -34,7 +34,7 @@ Ce processus se poursuivit tandis que le sens divin de Wang Lin devenait de plus
 
 Au cours de ces trois années, le champ de bataille étranger était tombé dans un état de frénésie. Depuis que Xu Hao et Ge Yang avaient récupéré ce premier fragment, des morceaux de sens divin apparaissaient quotidiennement, rendant fous tous ceux qui s'occupaient du nettoyage du champ de bataille.
 
-Il était inconcevable qu'une telle quantité de sens divin puisse apparaître ainsi. Si les pays de culture supérieurs l'avaient appris, cet événement aurait immédiatement attiré leur attention. Pourtant, durant ces trois ans, personne n'avait été envoyé pour inspecter le champ de bataille étranger.
+Il était inconcevable qu'une telle quantité de sens divin puisse apparaître ainsi. En temps normal, cet événement aurait certainement attiré l'attention des pays de culture supérieurs. Pourtant, durant ces trois ans, personne n'avait été envoyé pour inspecter le champ de bataille étranger.
 
 Le lieu était entré dans une phase d'instabilité. Pour une raison inconnue, ceux qui étaient à l'intérieur ne pouvaient plus sortir, et ceux de l'extérieur ne pouvaient plus entrer.
 

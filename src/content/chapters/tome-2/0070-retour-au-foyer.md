@@ -10,7 +10,7 @@ Trois jours plus tard, Wang Lin sortit du creux d'arbre, couvert de sueur. Zhou 
 
 « Zhou Peng, retourne à la Secte Xuan Dao. Suis mes instructions et élimine en secret tous ceux qui chercheront à me nuire. Ensuite, protège mes parents. » La voix de Wang Lin était glaciale, empreinte d'une soif de sang.
 
-Zhou Peng hocha respectueusement la tête et se mit en route vers la Secte Xuan Dao.
+Zhou Peng hocha respectueusement la tête et se mit en route vers le Pic Heng Yue.
 
 Wang Lin regarda Zhou Peng. Après un long silence, il demanda: « Senior Situ, cette technique de marionnette n'exigeait pas réellement la première étape, n'est-ce pas? »
 

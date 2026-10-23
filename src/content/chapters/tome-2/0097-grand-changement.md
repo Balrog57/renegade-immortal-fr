@@ -52,7 +52,7 @@ Quant à Wang Lin, il se déplaçait rapidement avec Mu Rong à travers les cave
 
 Après un long moment, Mu Rong s'arrêta devant une grotte. Il lança un regard envieux à Wang Lin et dit: « Ancêtre, voici la grotte que le Premier Ancêtre a préparée pour vous. C'est l'un des meilleurs lieux de culture de la Secte des Cadavres. »
 
-Après quelques échanges avec Wang Lin, ce dernier entra dans la pièce. La grotte ne représentait qu'un cinquième de la taille de celle où se trouvait Mu Rong. Une épaisse couche de givre recouvrait le sol et émettait une lueur bleue, conférant à la pièce une atmosphère très étrange.
+Après quelques échanges avec Mu Rong, Wang Lin entra dans la pièce. La grotte ne représentait qu'un cinquième de la taille de celle où se trouvait Mu Rong. Une épaisse couche de givre recouvrait le sol et émettait une lueur bleue, conférant à la pièce une atmosphère très étrange.
 
 D'innombrables petits trous perçaient les parois, laissant s'échapper des filaments d'énergie Yin.
 

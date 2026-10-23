@@ -58,7 +58,7 @@ Wang Lin éprouvait une immense amertume. Il ne comprenait toujours pas ce qui s
 
 Quant à Zhang Hu, Wang Lin ne pouvait qu'espérer le meilleur, lui-même étant en grand danger.
 
-Après avoir quitté la ville de la famille Teng, Wang Lin continua sa course vers le sud tandis que les disciples le talonnaient. Soudain, une lumière arc-en-ciel jaillit de la cité. La lueur dépassa tous les disciples de la famille Teng et frappa Wang Lin.
+Après avoir quitté la ville de la famille Teng, Wang Lin continua sa course vers le sud tandis que les disciples le talonnaient. Soudain, une lumière arc-en-ciel jaillit de la cité. La lueur dépassa tous les disciples de la famille Teng et s'abattit d'un coup d'épée vers Wang Lin.
 
 Une épée volante gigantesque, presque matérialisée, apparut, chargée d'une intention meurtrière intense, et s'abattit du ciel. À cet instant, le ciel et la terre changèrent de couleur : d'innombrables sphères de foudre violettes se rassemblèrent dans le ciel et tombèrent avec l'épée.
 

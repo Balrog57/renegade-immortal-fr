@@ -44,11 +44,11 @@ En conséquence, ses progrès furent fulgurants. Il ne lui fallut qu'un mois pou
 
 Ce dernier noyau froid prendrait plus de temps à confectionner. Après tout, il n'en avait formé que deux lors de sa précédente tentative. Cependant, comme il se trouvait au sommet du stade avancé de l'Établissement des Fondations, cela ne lui prendrait pas des années de culture pour s'achever.
 
-Wang Lin était certain de pouvoir former son troisième noyau froid d'ici trois mois. Par conséquent, il n'était nullement pressé. En plus de sa culture et de la collecte du liquide spirituel, il trouvait chaque jour le temps de nourrir quelques démons.
+Wang Lin était certain de pouvoir former son troisième noyau froid d'ici trois mois. Par conséquent, il n'était nullement pressé. En plus de sa culture et de la collecte du liquide spirituel, il trouvait chaque jour le temps de nourrir le démon.
 
-Wang Lin avait tenté l'expérience à plusieurs reprises, mais ne parvenait pas à imprimer son sens divin sur le démon; il devait donc contourner le problème en les nourrissant progressivement.
+Wang Lin avait tenté l'expérience à plusieurs reprises, mais ne parvenait pas à imprimer son sens divin sur le démon; il devait donc contourner le problème en le nourrissant progressivement.
 
-À ce propos, ces démons étaient d'une grande utilité pour lui. Il retirait lentement des âmes du drapeau des âmes pour les offrir au démon, après y avoir imprimé un fragment de son sens divin. Toutes les âmes contenues dans ce drapeau appartenaient à des cultivateurs de la Mer des Démons, et la majorité d'entre eux étaient des disciples de la Secte de la Lutte contre le Mal. Selon Sang Muya, presque toutes ces âmes appartenaient à des individus qui s'étaient battus pour attirer l'attention de leur maître; une fois tués par lui, il avait scellé leurs âmes à l'intérieur.
+À ce propos, ce démon était d'une grande utilité pour lui. Il retirait lentement des âmes du drapeau des âmes pour les offrir au démon, après y avoir imprimé un fragment de son sens divin. Toutes les âmes contenues dans ce drapeau appartenaient à des cultivateurs de la Mer des Démons, et la majorité d'entre eux étaient des disciples de la Secte de la Lutte contre le Mal. Selon Sang Muya, presque toutes ces âmes appartenaient à des individus qui s'étaient battus pour attirer l'attention de leur maître; une fois tués par lui, il avait scellé leurs âmes à l'intérieur.
 
 Le temps passa et, au moment où le démon finit par dévorer la plupart des âmes du drapeau, un fragment du sens divin de Wang Lin se développa en son sein. Le démon lui-même ne réalisa pas que ce fragment s'était développé en lui, car il était trop occupé à réfléchir à des moyens de s'échapper.
 

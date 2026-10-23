@@ -30,7 +30,7 @@ Une fois la parole donnée par l'Ancêtre Song, six cultivateurs de l'Âme Naiss
 
 Les six poussèrent un cri synchronisé et six fleurs de lotus surgirent de leurs sceaux de mains pour se poser aussitôt à l'angle plein est du bassin. Le bassin entier trembla avec fracas tandis qu'une brume rouge s'élevait.
 
-Aussitôt, la Secte Luo He, la Secte des Cadavres et la Secte des Démons Maléfiques projetèrent leurs lotus respectifs vers les points plein sud, plein ouest et plein nord.
+Aussitôt, la Secte Luo He, la Secte des Démons Maléfiques et la Secte des Cadavres projetèrent leurs lotus respectifs vers les points plein sud, plein ouest et plein nord.
 
 Les grondements s'intensifièrent alors qu'une brume rouge toujours plus abondante s'élevait du bassin. Elle se rassembla en plein ciel, prenant diverses formes avant de se transformer en un anneau de brume évidé.
 

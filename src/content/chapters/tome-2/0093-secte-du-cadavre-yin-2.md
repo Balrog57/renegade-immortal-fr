@@ -8,7 +8,7 @@ slug: secte-du-cadavre-yin-2
 ---
 Le visage de l'homme étrange changea soudainement. Sans la moindre hésitation, il arracha d'un coup les neuf talismans de son corps et, dans un jaillissement de gaz de neuf couleurs, il s'éleva rapidement du sol et bondit vers Wang Lin. Sans se soucier de rien, il déchira le cercle de lumière rouge, saisit Wang Lin dans ses bras et redescendit à toute vitesse.
 
-Wang Lin se réveilla à l'instant même où l'homme arriva. Voyant la frayeur dans ses yeux et remarquant en même temps l'anomalie dans le ciel, il se laissa entraîner hors de la statue sans un mot.
+Wang Lin se réveilla à l'instant même où l'homme arriva. Voyant la frayeur dans ses yeux et remarquant en même temps l'anomalie dans le ciel, il se laissa entraîner en bas de la statue sans un mot.
 
 Dès que les deux eurent atterri, l'homme étrange traça un sceau et posa sa main sur la statue. Un tourbillon noir apparut sur la paroi extérieure de la statue, et l'homme entraîna Wang Lin à l'intérieur.
 

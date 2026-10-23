@@ -10,11 +10,11 @@ Il y avait un total de sept jetons. Wang Lin en avait obtenu deux de la part de 
 
 En faisant abstraction de celui appartenant à la Secte des Cadavres, il en restait encore un.
 
-Wang Lin réfléchit un moment. Il avait déjà localisé tous les secteurs de la Vallée Jue Ming, mais il n'avait toujours pas trouvé le dernier jeton. Bien sûr, cela n'excluait pas que quelqu'un puisse en avoir caché un quelque part. Il ne s'encombrerait pas à le chercher; après tout, avec cinq des sept jetons en sa possession, sa place sur le champ de bataille étranger était déjà assurée.
+Wang Lin réfléchit un moment. Il avait déjà cherché auprès de toutes les sectes de la Vallée Jue Ming, mais il n'avait toujours pas trouvé le dernier jeton. Bien sûr, cela n'excluait pas que quelqu'un puisse en avoir caché un quelque part. Il ne s'encombrerait pas à le chercher; après tout, avec cinq des sept jetons en sa possession, sa place sur le champ de bataille étranger était déjà assurée.
 
 Une fois ses pensées sur le jeton apaisées, il commença à songer à la bataille qui se déroulerait dans deux mois.
 
-Il songea d'abord à ses grains de riz cyan. Il avait déjà récupéré celui qu'il avait utilisé précédemment et en possédait à nouveau trois au total. L'un était un grain simple, tandis que les deux autres étaient des grains surchargés, issus de la fusion de deux grains normaux.
+Il songea d'abord à ses grains de riz cyan. Après avoir reconstitué celui consommé précédemment, il en possédait à nouveau trois au total. L'un était un grain simple, tandis que les deux autres étaient des grains surchargés, issus de la fusion de deux grains normaux.
 
 Après avoir soigneusement rangé les trois grains, Wang Lin réfléchit encore un instant avant de fouiller dans ses sacs de rangement. Ayant tué de nombreux individus récemment, il lui restait encore une grande quantité d'objets à examiner.
 

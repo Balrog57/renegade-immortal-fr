@@ -104,7 +104,7 @@ La douleur physique n'était rien comparée à la déchirure de son cœur. Wang 
 
 Teng Huayuan esquissa un sourire machiavélique: « Très bien, finissons-en avec ce jeu. Je sais que tu comptes utiliser le tunnel vers le champ de bataille étranger pour t'échapper. Je m'en doutais depuis longtemps, alors abandonne cette idée. »
 
-D'un geste, il fit voler le sac de rangement dans sa main. Il l'écrasa violemment, détruisant tout son contenu y compris les jetons de qualification.
+D'un geste, il fit voler le sac de rangement de Wang Lin dans sa main. Il l'écrasa violemment, détruisant tout son contenu y compris les jetons de qualification.
 
 Au même instant, les 30 000 âmes chargèrent Wang Lin et commencèrent à dévorer sa chair et son énergie spirituelle. D'innombrables visages humains apparurent sous sa peau.
 

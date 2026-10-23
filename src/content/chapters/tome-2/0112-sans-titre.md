@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 112 - Inside the Pearl's Space
 slug: dans-lespace-de-la-perle
 ---
-Une fois qu'il aura atteint le stade intermédiaire de l'Établissement des Fondations, il pourra utiliser plusieurs techniques puissantes, telle que celle de la Secte des Cadavres qui lui permettra d'invoquer des fantômes pour combattre à ses côtés.
+Une fois qu'il aura atteint le stade intermédiaire de l'Établissement des Fondations, il pourra utiliser plusieurs techniques puissantes, notamment la Technique du Fantôme d'Âme de la Secte des Cadavres permettant d'invoquer des fantômes pour combattre.
 
 Afin d'arracher l'étendard d'âme de Teng Huayuan lors de leur affrontement, Wang Lin se creusait la tête et était résolu à déployer tous les moyens à sa disposition.
 
@@ -54,7 +54,7 @@ Il devait devenir si puissant que chacun le craindrait. Ce n'est qu'à ce prix q
 
 Il prit une profonde inspiration, ferma les yeux et projeta son Sens Divin dans l'espace du rêve. Peu après, ses mains formèrent un sceau. Il tendit ensuite la main droite pour saisir le vide. Tous les corps de lumière convergèrent pour former une porte.
 
-C'était une fonction que Situ Nan avait découverte après que la perle défiant le ciel eut achevé son Élément Eau: utiliser la lumière environnante pour créer une formation permettant à Wang Lin de circuler librement entre l'espace du rêve et l'extérieur.
+C'était une fonction que Situ Nan avait découverte après que la perle défiant le ciel eut achevé son Élément Eau: utiliser la lumière environnante pour créer une formation permettant à Wang Lin de circuler librement au sein de l'espace du rêve.
 
 Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la perle défiant le ciel, mais le paysage avait changé. Devant lui flottait un géant d'environ neuf mètres de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
 

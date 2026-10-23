@@ -66,7 +66,7 @@ Mais il était réticent à l'idée de repartir maintenant. De sa position, il p
 
 De plus, le plus étrange dans cette quatorzième vallée était l'absence totale de cadavres. Le sol entier était recouvert d'un givre bleu scintillant d'un aspect très mystérieux.
 
-De loin, Wang Lin comprit que la quatorzième vallée n'était pas le centre de la Vallée des Cadavres, mais seulement un point médian. Il secoua la tête et décida de rebrousser chemin.
+De loin, Wang Lin comprit que la quatorzième vallée n'était pas la fin de la Vallée des Cadavres, mais seulement un point médian. Il secoua la tête et décida de rebrousser chemin.
 
 Alors qu'il s'apprêtait à partir, un rugissement retentit au loin et un dragon gigantesque, long de plus de 3,3 kilomètres, émergea du brouillard.
 

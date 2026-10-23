@@ -58,7 +58,7 @@ Les visages des cultivateurs dans la matrice changèrent radicalement en contemp
 
 Yang Xiong soupira intérieurement. Il s'approcha et expulsa le corps momifié de la matrice de transfert d'un coup de pied.
 
-Wang Lin fronça les sourcils. Il déploya avec précaution un fragment de son Sens Divin vers la matrice. Dès qu'il s'en approcha, une ligne noire perça son Sens Divin avec la rapidité de l'éclair.
+Wang Lin fronça les sourcils. Il déploya avec précaution un fragment de son Sens Divin vers la matrice. Au contact de la barrière lumineuse, une ligne noire apparut sur le côté et fonça comme l'éclair.
 
 Le Sens Divin de Wang Lin se rétracta brusquement pour esquiver l'attaque. La ligne noire changea soudainement de trajectoire et fonça sur le fragment de Sens Divin.
 

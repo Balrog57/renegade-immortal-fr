@@ -60,7 +60,7 @@ Wang Lin sentait clairement que son Sens Divin du Royaume Ji grandissait au sein
 
 Si ce jour venait, alors même les lois du monde ne seraient plus rien à ses yeux. Il pourrait entrer et sortir du monde de la décomposition à sa guise.
 
-Wang Lin réfléchit un instant en contemplant les deux lueurs devant lui. D'un geste de la main, il fit apparaître deux sacs de rangement. Tous les trésors magiques contenus dans les trois sacs qu'il avait obtenus servaient à bloquer les lois du monde.
+Wang Lin réfléchit un instant en contemplant les deux lueurs devant lui. D'un geste de la main, il fit apparaître deux sacs de rangement. Tous les trésors magiques contenus dans les trois sacs qu'il avait obtenus avaient déjà tous été utilisés pour résister aux lois du monde.
 
 Quant aux matériaux, il les avait triés en trois lots lors de la création des formations de carapace de tortue. Par la pensée, il fit sortir d'un sac de rangement un morceau de métal noir de la taille de sa paume.
 

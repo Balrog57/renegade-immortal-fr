@@ -84,7 +84,7 @@ Le regard de Wang Lin devint glacial et il dit à voix basse: « Ouvre! »
 
 À l'instant même, une fumée violette jaillit de la formation et emprisonna le cultivateur de la Formation du Noyau. De loin, l'épaisse brume aurait empêché quiconque de comprendre la situation.
 
-Wang Lin s'assit en tailleur et, avec un ricanement, lança le trésor que Yang Sen lui avait offert. Soudain, un anneau d'énergie émana de l'objet pour entourer Wang Lin. Le poinçon frappa cet anneau, mais ne produisit qu'une légère ondulation sans le moindre signe de fissure.
+Wang Lin s'assit en tailleur et, avec un ricanement, lança le trésor que Zhou Jin lui avait offert. Soudain, un anneau d'énergie émana de l'objet pour entourer Wang Lin. Le poinçon frappa cet anneau, mais ne produisit qu'une légère ondulation sans le moindre signe de fissure.
 
 Wang Lin ne jeta pas un regard au poinçon, fixa la fumée violette et sortit son épée volante de son sac de rangement. Il passa la main droite sur la lame et l'ombre rouge du démon en jaillit aussitôt. Le démon fixa la brume violette avec excitation; il brûlait de dévorer l'être à l'intérieur, mais hésitait.
 
@@ -164,19 +164,19 @@ Debout devant le bâtiment, Wang Lin annonça d'une voix forte: « Le disciple s
 
 « Entre », répondit la voix douce de Feng Luan depuis l'intérieur.
 
-Wang Lin entra sans mot dire et vit Feng Luan assise sur un banc de pierre. À ses côtés se trouvait Yang Sen qui, après avoir incliné la tête à Wang Lin, reporta son regard vers l'extérieur en fronçant les sourcils.
+Wang Lin entra sans mot dire et vit Feng Luan assise sur un banc de pierre. À ses côtés se trouvait Zhou Jin qui, après avoir incliné la tête à Wang Lin, reporta son regard vers l'extérieur en fronçant les sourcils.
 
 L'expression de Feng Luan semblait empreinte de fatigue lorsqu'elle demanda: « Qu'y a-t-il? »
 
 Wang Lin ne répondit pas et se contenta de lancer le jade. Feng Luan fut surprise. Elle prit le jade sans le consulter et observa d'abord attentivement Wang Lin, puis y introduisit sans hâte son Sens Divin; son expression devint aussitôt étrange.
 
-Yang Sen prit le jade des mains de Feng Luan et le scanna de son propre Sens Divin. Son visage s'illumina d'un sourire: « Pas mal. Tu as tué 61 cultivateurs de l'Établissement des Fondations et un de la Formation du Noyau. Si tu continues ainsi, tu auras une chance d'obtenir la Pilule du Ciel Lointain. Mais je suis curieux... Tu n'étais qu'au stade intermédiaire de l'Établissement des Fondations auparavant. Comment as-tu atteint si vite le stade de pseudo-Formation du Noyau? Et même ainsi, tuer un expert de la Formation du Noyau aurait dû être presque impossible. Comment as-tu fait? » Sa voix devint plus grave à la fin de sa tirade.
+Zhou Jin prit le jade des mains de Feng Luan et le scanna de son propre Sens Divin. Son visage s'illumina d'un sourire: « Pas mal. Tu as tué 61 cultivateurs de l'Établissement des Fondations et un de la Formation du Noyau. Si tu continues ainsi, tu auras une chance d'obtenir la Pilule du Ciel Lointain. Mais je suis curieux... Tu n'étais qu'au stade intermédiaire de l'Établissement des Fondations auparavant. Comment as-tu atteint si vite le stade de pseudo-Formation du Noyau? Et même ainsi, tuer un expert de la Formation du Noyau aurait dû être presque impossible. Comment as-tu fait? » Sa voix devint plus grave à la fin de sa tirade.
 
 Wang Lin avait anticipé ces questions. Calme, il répondit simplement: « Ce cultivateur de la Formation du Noyau avait été encerclé et attaqué par d'autres, puis s'était enfui grièvement blessé. Quand je l'ai rattrapé, il était déjà à l'agonie; je me suis emparé de son noyau et l'ai avalé grâce à la Grande Technique de Dévoration de la Secte des Démons Maléfiques, ce qui a fait passer mon niveau de culture du milieu de l'Établissement des Fondations à la pseudo-Formation du Noyau. »
 
-« Une technique de dévoration... » Les yeux de Yang Sen sondèrent Wang Lin. Il perçut des traces d'énergie spirituelle de noyau en lui, ce qui rendit l'histoire crédible à ses yeux, et il resta silencieux.
+« Une technique de dévoration... » Les yeux de Zhou Jin sondèrent Wang Lin. Il perçut des traces d'énergie spirituelle de noyau en lui, ce qui rendit l'histoire crédible à ses yeux, et il resta silencieux.
 
-Feng Luan lança un regard significatif à Wang Lin avant de lui rendre le jade. « Voici la deuxième partie de la carte. Je compterai ce cultivateur de la Formation du Noyau pour dix disciples de l'Établissement des Fondations. Si tu parviens à en abattre 150, reviens me voir pour la troisième partie. »
+Feng Luan lança un regard significatif à Wang Lin, sortit un feuillet de jade de son sac de rangement et le lui lança: « Voici la deuxième partie de la carte. Je compterai ce cultivateur de la Formation du Noyau pour dix disciples de l'Établissement des Fondations. Si tu parviens à en abattre 150, reviens me voir pour la troisième partie. »
 
 Wang Lin acquiesça. En vérifiant le jade avec son Sens Divin, il confirma qu'il s'agissait bien de la carte. En combinant les deux fragments, il aurait une vision claire des environs de Huo Fen.
 
@@ -184,8 +184,8 @@ Huo Fen bordait la Mer des Démons. Selon la carte, il n'y avait pas de Zhao sur
 
 Il y avait aussi une description détaillée de la Mer des Démons, mais Wang Lin n'y prêta pas attention en retirant son Sens Divin.
 
-Yang Sen regarda Wang Lin avec une certaine faveur: « Les cultivateurs de Xuan Wu se sont unis; une grande bataille aura lieu ces prochains jours. Si tu veux accumuler des mérites militaires, c'est ta meilleure chance. »
+Zhou Jin regarda Wang Lin avec une certaine faveur: « Les cultivateurs de Xuan Wu se sont unis; une grande bataille aura lieu ces prochains jours. Si tu veux accumuler des mérites militaires, c'est ta meilleure chance. »
 
-Wang Lin allait répondre lorsqu'un cri retentit soudainement à l'extérieur. Yang Sen et Feng Luan disparurent instantanément pour s'élancer vers le bruit.
+Wang Lin allait répondre lorsqu'un cri retentit soudainement à l'extérieur. Zhou Jin et Feng Luan disparurent instantanément pour s'élancer vers le bruit.
 
 Wang Lin sortit rapidement et vit une Âme Naissante couverte de blessures, laissant échapper des traînées d'énergie spirituelle. L'Âme Naissante s'écria: « Chers compagnons... la formation de scellement du pays a été brisée... les bêtes de feu arrivent... »

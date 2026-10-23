@@ -48,7 +48,7 @@ Sa robe de coton était déjà trempée au niveau du torse et du dos.
 
 Le garde se retourna et vit la jeune fille. Un sourire éclaira son visage tandis qu'il saisissait le bol. Il le vida d'un trait. Une sensation de fraîcheur envahit aussitôt son corps et il soupira: « Les maîtres savent vraiment comment profiter de la vie. Cette soupe glacée est délicieuse. Petite sœur, tu n'as pas croisé le jeune maître Hao en sortant, n'est-ce pas? »
 
-La jeune fille prit le ventilateur pour aider son frère tout en souriant: « Ne t'inquiète pas, grand frère. Le jeune maître ne m'a pas vue. J'ai profité de l'instant où il avait le dos tourné. De toute façon, le jeune maître Hao est quelqu'un de très bien; même s'il m'avait vue, cela n'aurait posé aucun problème. »
+La jeune fille prit l'éventail pour aider son frère tout en souriant: « Ne t'inquiète pas, grand frère. Le jeune maître ne m'a pas vue. J'ai profité de l'instant où il avait le dos tourné. De toute façon, le jeune maître Hao est quelqu'un de très bien; même s'il m'avait vue, cela n'aurait posé aucun problème. »
 
 Le garde savourait la brise que lui procurait sa sœur. Il acquiesça: « C'est vrai. Le jeune maître Hao est un immortel, il ne se soucierait guère de nous. Petite sœur, tu devrais te mettre davantage en avant. Si tu captes l'attention du jeune maître Hao et que tu deviens sa concubine, ton frère se contentera d'un poste d'intendant. »
 
