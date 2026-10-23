@@ -84,7 +84,7 @@ Durant ce court laps de temps d'un demi-mois, un bain de sang avait éclaté dan
 
 C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est que l'Alliance de Culture ne bougeait pas. Ils ne semblaient nullement inquiets, comme s'ils se contentaient d'observer la scène depuis la lisière.
 
-Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même le Maître Flamespark et ses compagnons étaient rongés par le doute.
+Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même Yan Leizi et ses compagnons étaient rongés par le doute.
 
 Si la même chose s'était produite dans le Système Stellaire Luotian, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
 
