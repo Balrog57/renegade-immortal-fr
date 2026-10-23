@@ -72,7 +72,7 @@ Les quatre gourdes se mirent soudain à pivoter devant lui pour faire face à Wa
 
 À peine eut-il parlé que les quatre gourdes tremblèrent, libérant une brume blanc laiteux. Cette brume prit la forme de quatre femmes magnifiques qui s'élancèrent vers Wang Lin.
 
-Les deux autres cultivateurs aux côtés du vieil homme utilisèrent leurs propres sorts et trésors. L'un d'eux se frappa le front, faisant jaillir du sommet de son crâne un noyau noir. Le noyau tournoyait en dégageant une aura sinistre tandis que le cultivateur hurlait: « Eau des Dix Mille Seigneurs! »
+Les deux autres cultivateurs aux côtés du vieil homme utilisèrent leurs propres sorts et trésors. L'un d'eux se frappa le front, faisant jaillir du sommet de son crâne un noyau noir. Le noyau tournoyait en dégageant une aura sinistre tandis que le cultivateur hurlait: « Eau des Dix Mille Jun! »
 
 Le noyau vacilla et se transforma instantanément en une eau noire qui s'étendit. En un instant, il recouvrit la moitié du ciel, telle une mer rugissante déferlant sur Wang Lin.
 

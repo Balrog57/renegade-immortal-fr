@@ -27,7 +27,7 @@ Une fois de retour, le sceau qui entravait la culture de Qing Shui se dissipa ra
 
 En apparence, lors de leur départ, il semblait qu'ils n'avaient eu aucun contact, mais Wang Lin savait que Qing Shui viendrait le retrouver. Après tout, ce dernier n'avait pas encore exploré les souvenirs de l'Illustre Xuan Bao.
 
-En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit une profonde émotion. Qu'il s'agisse de la vie de Lou Chen, des vagues à l'extérieur du sceau ou des secrets du Royaume Céleste, tout cela restait gravé dans son esprit. Ce qui l'avait le plus choqué, c'était la perle défiant le ciel!
+En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit une profonde émotion. Qu'il s'agisse de la vie de Luo Chen, des vagues à l'extérieur du sceau ou des secrets du Royaume Céleste, tout cela restait gravé dans son esprit. Ce qui l'avait le plus choqué, c'était la perle défiant le ciel!
 
 Wang Lin n'aurait jamais imaginé que la perle défiant le ciel déclencherait inopinément une guerre monumentale entre les quatre Royaumes Célestes!
 
