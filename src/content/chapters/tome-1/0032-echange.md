@@ -34,7 +34,7 @@ Wang Lin scruta Wang Hao avec son Sens Divin et perçut comme une barrière de b
 
 Les deux hommes progressèrent rapidement. Après quelques virages, ils débouchèrent sur une vaste étendue. L'espace était immense. Des dizaines de personnes s'y tenaient debout, enveloppées d'un brouillard noir semblable au leur, dans un silence pesant. Wang Lin et Wang Hao trouvèrent un espace vide et s'y immobilisèrent.
 
-Peu après, constatant que personne d'autre n'arrivait, un individu s'avança. Il toussa une fois, puis déclara d'une voix enrouée: « Le temps est venu. C'est encore moi qui préside l'échange. Les règles restent les mêmes, je commence. » Après avoir parlé, il sortit une petite épée argentée et ajouta: « Cette épée volante n'appartient pas à la secte. Je l'ai obtenue par hasard et sa puissance est honorable. Je n'en demande que 500 talismans. »
+Peu après, constatant que personne d'autre n'arrivait, un individu s'avança. Il toussa une fois, puis déclara d'une voix enrouée: « Le temps est venu. C'est encore moi qui préside l'échange. Les règles restent les mêmes, je commence. » Après avoir parlé, il sortit une petite épée argentée et ajouta: « Cette épée volante ne provient pas de la Maison de l'Esprit de l'Épée de la secte. Je l'ai obtenue par hasard et sa puissance est honorable. Je n'en demande que 500 talismans. »
 
 Une rumeur parcourut l'assemblée au sujet de l'épée, puis quelqu'un s'avança et, sans un mot, remit 500 talismans pour conclure la transaction.
 

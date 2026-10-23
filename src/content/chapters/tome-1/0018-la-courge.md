@@ -46,7 +46,7 @@ Sun Dazhu pensa: « Tu as gardé les yeux fermés en méditation toute la matin�
 
 Wang Lin acquiesça. En entrant dans sa chambre, il remarqua une table dressée avec quatre plats de viande et de légumes, ainsi qu'une soupe qui aurait mis n'importe qui en appétit. Sans chercher à savoir qui avait apporté ce repas, il mangea rapidement, finit même la soupe, puis s'allongea sur son lit pour une courte sieste.
 
-Le corps de Sun Dazhu apparut tel un spectre. Son visage s'assombrit alors qu'il pensait: « Ce vieux respecte les règles de la secte, je n'empoisonnerai donc pas ta nourriture; mais je peux y mêler des substances qui entraveront ton absorption d'énergie spirituelle. Avec tes capacités médiocres et mes drogues, tu ne dépasseras jamais le troisième niveau de la Condensation de Qi. Tu resteras à jamais sous mon contrôle. »
+Le corps de Sun Dazhu apparut tel un spectre. Son visage s'assombrit alors qu'il pensait: « Bien que les règles et la peur d'être découvert m'empêchent de t'empoisonner, je peux y mêler des substances qui entraveront ton absorption d'énergie spirituelle. Avec tes capacités médiocres et mes drogues, tu ne dépasseras jamais le troisième niveau de la Condensation de Qi. Tu resteras à jamais sous mon contrôle. »
 
 Deux heures plus tard, Wang Lin se réveilla. Il ajusta ses vêtements et retourna vers la source pour reprendre sa culture. Il cultiva jusqu'à la tombée de la nuit avant de se lever et, sans dire un mot, de s'enfoncer dans la forêt dense de la montagne.
 

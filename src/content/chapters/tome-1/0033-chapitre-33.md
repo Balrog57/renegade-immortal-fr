@@ -10,7 +10,7 @@ Wang Lin n'avait aucun intérêt pour cette Pilule de Bonne Fortune. Voyant que 
 
 Alors qu'il était perdu dans ses pensées, il entendit Wang Hao s'exclamer: « 230 Pilules de Rassemblement de Qi! C'est ma limite. Au-delà, je n'échange plus rien! »
 
-Un silence s'abattit rapidement sur la scène. 230 Pilules de Rassemblement de Qi représentaient déjà un prix extrêmement haut; peu de gens pouvaient s'aligner. Mais la Pilule de Bonne Fortune était si rare que peu de cultivateurs étaient prêts à s'en séparer.
+Un silence s'abattit rapidement sur la scène. 230 Pilules de Rassemblement de Qi représentaient déjà un prix extrêmement haut; peu de gens pouvaient s'aligner. Mais la Pilule de Bonne Fortune était si rare que beaucoup refusaient d'abandonner.
 
 Le vendeur de la pilule eut un sourire narquois et déclara avec arrogance: « Tu espères obtenir ma Pilule de Bonne Fortune pour seulement 230 Pilules de Rassemblement de Qi? Tu rêves! Si le prix n'atteint pas les 2000 pilules, je n'échange pas! »
 

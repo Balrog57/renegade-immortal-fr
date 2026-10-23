@@ -48,13 +48,13 @@ Wang Lin poussa un soupir intérieur. Il semblait qu'un entraînement à l'exté
 
 De retour à la maison des corvées, Wang Lin réfléchit un moment. Puisqu'il ne pouvait pas s'entraîner hors de la secte, autant profiter de cet entraînement intensif pour cultiver sérieusement.
 
-Le lendemain, la compétition commença dans une ambiance très animée. Wang Lin n'y participa pas; il utilisa ce temps pour cultiver et consolider ses fondations au sein de la deuxième couche.
+Le lendemain, la compétition commença dans une ambiance très animée. Wang Lin hésita un instant mais n'alla pas y assister; il utilisa ce temps pour cultiver et consolider ses fondations au sein de la deuxième couche.
 
 Au cours des jours suivants, les rumeurs parmi les disciples honoraires apprirent à Wang Lin que, parmi les disciples internes, le frère aîné Zhang avait remporté la première place, mais uniquement parce qu'aucun disciple de rang violet n'avait participé. Quant à Wang Zhuo, sans surprise, il devint le roi des nouveaux disciples. Il était devenu encore plus arrogant, ne considérant plus les disciples de son âge comme ses égaux.
 
 Une semaine plus tard, au matin, une cloche retentit dans toute la secte. Elle sonna cinq fois, signal indiquant que tous les disciples internes devaient se rassembler promptement devant la salle principale.
 
-Wang Lin ne pouvait entendre la cloche depuis l'espace de rêve. Ce n'est que lorsque Sun Dazhu, furieux, fracassa la porte de la maison des corvées pour le réveiller qu'il en prit connaissance. Il rangea rapidement sa perle et ouvrit la porte de sa salle d'entraînement secrète, pour se retrouver face au visage de rage de Sun Dazhu qui hurlait: « Wang Lin, es-tu sourd? N'as-tu pas entendu la cloche? Disciple indigne! Tous les disciples internes participant à l'entraînement intensif sont déjà là, sauf toi! Tu me fais perdre la face devant mes frères apprentis! Toi... tu me rends fou! »
+Wang Lin ne pouvait entendre la cloche depuis l'espace de rêve. Ce n'est que lorsque Sun Dazhu, furieux, fracassa la porte de la maison des corvées pour le réveiller qu'il en prit connaissance. Il rangea rapidement sa perle, dissimula sa culture et ouvrit la porte de sa salle d'entraînement secrète, pour se retrouver face au visage de rage de Sun Dazhu qui hurlait: « Wang Lin, es-tu sourd? N'as-tu pas entendu la cloche? Disciple indigne! Tous les disciples internes participant à l'entraînement intensif sont déjà là, sauf toi! Tu me fais perdre la face devant mes frères apprentis! Toi... tu me rends fou! »
 
 Wang Lin haussa un sourcil et resta silencieux.
 
