@@ -76,7 +76,7 @@ L'ombre derrière lui vacilla et Ta Shan en sortit. Ta Shan était gravement ble
 
 Après un moment de réflexion, Wang Lin frappa de nouveau son sac de rangement et Yao Bingyun, qu'il avait scellée, apparut devant lui.
 
-Le Fouet de l'Âme s'enroulait autour de son âme originelle et le Drapeau des Âmes enveloppait son corps. Des centaines de milliers de runes dorées la scellaient également. En contemplant Yao Bingyun ainsi prisonnière, les yeux de Wang Lin brillèrent et sa main droite traça un sceau. Les runes dorées autour d'elle s'élevèrent une à une, baignant la grotte de leur éclat.
+Le Fouet Kunji s'enroulait autour de son âme originelle et le Drapeau des Âmes enveloppait son corps. Des centaines de milliers de runes dorées la scellaient également. En contemplant Yao Bingyun ainsi prisonnière, les yeux de Wang Lin brillèrent et sa main droite traça un sceau. Les runes dorées autour d'elle s'élevèrent une à une, baignant la grotte de leur éclat.
 
 Sous les symboles runiques se trouvait le drapeau de l'âme. La main droite de Wang Lin s'étira et le brouillard noir qui entourait le corps de Yao Bingyun se dissipa, exposant totalement son corps.
 

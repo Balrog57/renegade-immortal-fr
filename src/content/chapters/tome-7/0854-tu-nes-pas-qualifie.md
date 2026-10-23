@@ -114,7 +114,7 @@ Le corps du Dieu de Sang trembla tandis qu'il se retirait précipitamment. Il fi
 
 Le Dieu de Sang ignorait que Qing Shui éprouvait une immense culpabilité envers son maître. Ce sentiment était profond, mais il n'aurait plus jamais l'occasion de s'en acquitter.
 
-Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son combat contre Maître Flamespark, une émotion complexe envers Wang Lin s'était développée en lui.
+Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son combat contre Yan Leizi, une émotion complexe envers Wang Lin s'était développée en lui.
 
 « Même s'il a tort, c'est à moi de le discipliner pour le compte du Maître. Tu n'es pas qualifié! » Alors que le Seigneur Céleste Qing Shui parlait froidement, les six dragons noirs rugirent soudainement.
 

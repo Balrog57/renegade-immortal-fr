@@ -48,7 +48,7 @@ Sa petite sœur se retrouva alors devant elle. Le démon l'engloutit et se retir
 
 Les vêtements de l'aînée furent déchirés par la poigne désespérée de sa cadette…
 
-« Grande sœur… Grande sœur… Sauve-moi… Sauve… » Ses lamentations déchirantes résonnaient dans le hall ancestral. Mais alors que le démon la dévorait, il s'arrêta soudainement.
+« Grande sœur… Grande sœur… Sauve-moi… Sauve… » Ses lamentations déchirantes résonnaient dans le hall ancestral. Mais alors que le démon la dévorait, sa voix s'interrompit soudainement.
 
 La grande sœur s'effondra au sol, les larmes coulant sur son visage. Elle se mordit la lèvre inférieure jusqu'au sang, les yeux emplis de remords. Elle se redressa et se précipita vers le démon.
 

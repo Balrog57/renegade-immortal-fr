@@ -43,7 +43,7 @@ Les yeux de Wang Lin se rétrécirent, mais à cet instant précis, des bruits d
 
 S'élançant avec une vélocité incroyable, le Serpent aux yeux de lune engloutit directement Wang Lin, avant de plonger rapidement sous terre pour disparaître. Tous les autres Serpents aux yeux de lune s'élancèrent à sa suite dans le lointain.
 
-Ce Serpent aux yeux de lune était gris et ses yeux brillaient de cruauté. Il était d'une rapidité fulgurante, particulièrement à l'intérieur du corps de sa mère. En une quinzaine de minutes, ils atteignirent un lieu mystérieux.
+Ce Serpent aux yeux de lune était gris et ses yeux brillaient de cruauté. Il était d'une rapidité fulgurante, particulièrement à l'intérieur du corps de sa mère. En sept minutes, ils atteignirent un lieu mystérieux.
 
 Il n'y avait aucun sol ici, seulement un immense vortex. À chaque cycle complet, celui-ci libérait des rafales d'énergie glaciale dans les environs. Si Wang Lin pouvait voir le vortex, il reconnaîtrait qu'il s'agissait de l'endroit où se trouvait la tête du Serpent aux yeux de lune! C'était aussi là que résidait l'Essence Lunaire!
 

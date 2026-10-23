@@ -52,7 +52,7 @@ Des bruits de craquements retentirent rapidement alors que la glace autour de Ya
 
 La main droite de Wang Lin ne s'arrêta pas; il continua de former des sceaux qui s'abattirent sur le corps de Yao Bingyun. Un à un, les restrictions se posèrent sur elle et sur son âme originelle.
 
-Tout en plaçant ces restrictions, la main gauche de Wang Lin pointa vers le ciel et le Fouet de l'Âme apparut. Il fonça dans le corps de Yao Bingyun pour verrouiller son âme originelle.
+Tout en plaçant ces restrictions, la main gauche de Wang Lin pointa vers le ciel et le Fouet Kunji apparut. Il fonça dans le corps de Yao Bingyun pour verrouiller son âme originelle.
 
 Wang Lin n'étant pas encore tranquille, il frappa son sac de stockage, faisant apparaître le Drapeau des Âmes. Ce drapeau de 33 mètres s'enroula étroitement autour de Yao Bingyun.
 
