@@ -64,7 +64,7 @@ Dès l'apparition de cette lueur, l'énergie originelle dans le corps de Wang Li
 
 Les yeux de Wang Lin s'illuminèrent; il agita la main droite, et son énergie originelle finit par se stabiliser. Cependant, cet instant précis avait déjà consommé plus de 10 % de ses réserves d'énergie originelle.
 
-« Comme auparavant, toute mon énergie originelle est épuisée lorsque j'utilise le sort... Il me sera impossible de déployer la Nuit Brisée avec la quantité d'énergie que je possède! Pourtant, je n'ai pas consommé d'énergie originelle et j'ai pu manifester la puissance terrifiante de la Nuit Brisée il y a un instant... » Wang Lin fronça les sourcils.
+« Comme auparavant, dès que j'utilise le sort, mon énergie originelle se précipite hors de moi... Il me sera impossible de déployer la Nuit Brisée avec la quantité d'énergie que je possède! Pourtant, je n'ai pas consommé d'énergie originelle et j'ai pu manifester la puissance terrifiante de la Nuit Brisée il y a un instant... » Wang Lin fronça les sourcils.
 
 « Se pourrait-il que... » Soudain, Wang Lin leva la tête, le regard brillant. Il semblait avoir compris quelque chose.
 
