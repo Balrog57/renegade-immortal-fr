@@ -16,11 +16,11 @@ Wang Lin pouvait deviner, à travers les souvenirs du cultivateur de Formation d
 
 Le frère aîné pouvait tout juste être considéré comme un génie. Il lui avait fallu moins de cent ans pour atteindre le sommet du stade d'Établissement des Fondations, et il ne lui restait plus qu'une étape avant la Formation du Noyau.
 
-Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affection tenait surtout à l'apparence physique du disciple. Il projetait de marier son frère aîné à la disciple d'un autre cultivateur de fin de stade de Formation du Noyau afin de sceller une alliance par ce mariage et leur cultivation conjointe.
+Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affection tenait surtout à l'apparence physique du disciple. Il projetait de marier ce disciple aîné à la disciple d'un autre cultivateur de fin de stade de Formation du Noyau afin de sceller une alliance par ce mariage et leur cultivation conjointe.
 
 Après avoir parcouru cet aperçu de ses souvenirs, Wang Lin n'y prêta plus attention. L'épée approcha et s'arrêta devant la tour de glace. Le frère aîné s'agenouilla au sol et déclara d'une voix claire: « Ce disciple salue le Maître. Par chance, j'ai réussi à localiser la cachette des vestiges de l'Alliance des Quatre Sectes! »
 
-L'expression de Wang Lin resta calme, mais son cœur eut un tressaillement. Il se souvenait avoir vu dans les souvenirs du cultivateur de Formation du Noyau que ce dernier avait envoyé son frère aîné enquêter, parce qu'un mortel avait signalé la présence d'un individu ne semblant pas appartenir à Xue Yu.
+L'expression de Wang Lin resta calme, mais son cœur eut un tressaillement. Il se souvenait avoir vu dans les souvenirs du cultivateur de Formation du Noyau que ce dernier avait envoyé son disciple aîné enquêter, parce qu'un mortel avait signalé la présence d'un individu ne semblant pas appartenir à Xue Yu.
 
 C'est ainsi que le cultivateur de Formation du Noyau avait chargé son disciple aîné de vérifier l'information.
 

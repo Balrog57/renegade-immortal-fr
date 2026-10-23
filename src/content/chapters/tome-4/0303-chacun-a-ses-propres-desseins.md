@@ -56,7 +56,7 @@ Mais à cet instant précis, un rugissement strident retentit et une ligne noire
 
 Après avoir expulsé deux boules de foudre, le crapaud de tonnerre était épuisé et semblait affaibli. Voyant la nourriture noire pour bêtes célestes, Wang Lin n'hésita pas: il récupéra promptement son piège et s'enfuit. En courant, il pointa son front, libérant une multitude d'âmes errantes.
 
-Quant à Sun Lei, il marqua un instant d'hésitation avant de pousser un soupir et d'abandonner l'idée d'entrer dans la grotte, voyant les nourritures pour bêtes se lancer à la poursuite de Wang Lin. Après tout, le danger était trop grand; le moindre faux pas signifiait la mort.
+Quant à Sun Lei, il marqua un instant d'hésitation avant de pousser un soupir et d'abandonner l'idée d'attendre que les nourritures poursuivent Wang Lin pour entrer dans la grotte. Après tout, le danger était trop grand; le moindre faux pas signifiait la mort.
 
 Ainsi, suivant l'exemple de Wang Lin, il recula également et s'échappa rapidement dans une autre direction.
 

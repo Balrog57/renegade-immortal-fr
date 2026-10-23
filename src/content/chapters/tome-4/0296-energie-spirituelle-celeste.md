@@ -7,7 +7,7 @@ en: Chapter 296 - Celestial Spiritual Energy
 slug: energie-spirituelle-celeste
 ---
 
-Alors que la tablette de pierre était extraite du sol, la zone située en dessous de la surface apparut. Les murs de la cavité souterraine étaient d'une couleur différente de ceux de la surface. Ils semblaient avoir été imprégnés d'eau, bien qu'aucun signe d'humidité ne fût visible à proximité.
+Alors que la tablette de pierre était extraite du sol, la zone située en dessous de la surface apparut. La couleur de la partie inférieure de la stèle était différente, semblant avoir été imprégnée d'eau, bien qu'aucun signe d'humidité ne fût visible à proximité.
 
 Les yeux de Wang Lin s'illuminèrent. Logiquement, cet endroit était abandonné depuis des éons; et bien que les fragments du Royaume Céleste soient nombreux, chaque fois que la Porte Céleste s'ouvrait, des cultivateurs y pénétraient.
 

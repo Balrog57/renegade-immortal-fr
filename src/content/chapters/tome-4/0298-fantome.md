@@ -58,7 +58,7 @@ Quant à cette épée, elle s'était brisée à l'instant même où elle avait f
 
 À cet instant, au milieu de ce vent impétueux, une formation apparut dans le ciel. Elle formait un rideau de lumière qui bloquait le vent, mais le rideau tremblait violemment, comme s'il pouvait se briser à tout moment.
 
-La silhouette de Wang Lin apparut au sein de la formation. Il jeta un regard autour de lui et fronça les sourcils. Ce fragment était radicalement différent du précédent. Si celui-ci pouvait être considéré comme relativement intact, celui-ci était totalement dévasté.
+La silhouette de Wang Lin apparut au sein de la formation. Il jeta un regard autour de lui et fronça les sourcils. Ce fragment était radicalement différent du précédent. Si le précédent pouvait être considéré comme relativement intact, celui-ci était totalement dévasté.
 
 Logiquement, il n'y avait aucune raison pour que la Secte Da Luo place une formation ici. Wang Lin réfléchit un instant. Voyant le rideau de lumière vaciller dangereusement, il s'élança rapidement hors de la formation.
 
@@ -74,7 +74,7 @@ Le cœur de Wang Lin fut saisi en voyant ces formes sombres, pourtant son sens d
 
 Les femmes portaient de magnifiques robes aux couleurs de l'arc-en-ciel, et derrière elles marchait un groupe de jeunes garçons portant des plateaux chargés de fruits célestes et de vins délicieux.
 
-Des voix parlaient et riaient alors qu'ils avançaient vers Wang Lin.
+Ces personnes parlaient et riaient alors qu'elles avançaient vers Wang Lin.
 
 Wang Lin fronça encore plus les sourcils. Il voyait ces gens discuter, mais n'entendait aucun son de leur part. L'environnement restait saturé par le hurlement du vent, rien d'autre.
 

@@ -72,7 +72,7 @@ Soudain, la ligne dorée tressaillit et pénétra dans la tête de la bête mous
 
 La créature poussa quelques gémissements misérables avant de s'effondrer au sol en se débattant, mais ses yeux rayonnaient de joie.
 
-Wang Lin observa la bête avec stupéfaction. Après trois heures, les convulsions cessèrent. Des bruits de craquements émanèrent de son corps tandis qu'elle grandissait.
+Wang Lin observa la bête avec stupéfaction. Après environ le temps de trois bâtons d'encens, les convulsions cessèrent. Des bruits de craquements émanèrent de son corps tandis qu'elle grandissait.
 
 La bête moustique mesurait désormais près de cent mètres de long, semblable à une petite colline. Sa trompe était devenue encore plus longue, lui donnant un aspect plus effrayant.
 
@@ -90,7 +90,7 @@ Grâce à son domaine de la Vie et de la Mort, il parvenait à faire paraître s
 
 Une fois l'anneau franchi, il ne s'arrêta pas et se dirigea rapidement vers l'entrée des terres de l'Ancien Dieu.
 
-Il n'eut pas longtemps à attendre avant d'atteindre l'entrée. Juste avant qu'il n'y pénètre, la bête moustique sortit en volant. Elle tourna autour de Wang Lin quelques fois avant de rugir vers l'entrée, le regardant d'un air suppliant.
+Il n'eut pas longtemps à attendre avant d'atteindre l'entrée. Juste avant qu'il n'y pénètre, la bête moustique sortit en volant. Elle tourna autour de Wang Lin quelques fois avant de rugir vers le lointain, le regardant d'un air suppliant.
 
 Le sens divin de Wang Lin s'étendit et repéra au loin, dans les airs, une petite faille spatiale de la taille d'un poing. Une ligne dorée en émergea, dégageant une lumière éclatante.
 
