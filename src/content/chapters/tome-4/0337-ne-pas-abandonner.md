@@ -94,7 +94,7 @@ Le domaine de l'oubli l'avait véritablement terrifié.
 
 Une autre occasion, dans un pays de culture de rang 5, impliqua un cultivateur de la Formation de l'Âme au stade avancé. Bien que son domaine fût assez conventionnel, il était sur le point d'atteindre le sommet de ce stade et son domaine changeait constamment selon sa volonté.
 
-Avec le recul, Wang Lin estima que la puissance de cet homme était légèrement inférieure à celle de Papillon Rouge. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
+Avec le recul, Wang Lin estima que même Papillon Rouge était légèrement inférieure à cet homme. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
 
 Au cours de ces sept mois, Wang Lin réalisa que parmi les cultivateurs de la Formation de l'Âme, Papillon Rouge n'était pas la plus puissante. Bien que ces individus n'aient pas encore atteint le stade de la Transformation de l'Âme, ils étaient redoutables.
 

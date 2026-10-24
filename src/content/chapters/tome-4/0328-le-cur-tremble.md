@@ -64,7 +64,7 @@ Song Qing marqua une longue pause avant d'esquisser un sourire amer. « Ce culti
 
 Liu Fei répondit amèrement: « Même l'émissaire a été mis en fuite par les techniques de cet individu. Le destin de notre Secte du Ciel Nuageux est déjà scellé. »
 
-« Parmi les quatre Grands Anciens au stade avancé de l'Âme Naissante, l'Ancien Liu Chang est mort il y a trente ans lorsqu'il n'a pu atteindre la Formation de l'Âme, et maintenant, nul ne sait si l'Ancien Gong Sun vivra ou mourra... »
+« Parmi les quatre Grands Anciens au stade avancé de l'Âme Naissante, l'Ancien Liu est mort il y a trente ans lorsqu'il n'a pu atteindre la Formation de l'Âme, et maintenant, nul ne sait si l'Ancien Gong Sun vivra ou mourra... »
 
 À cet instant précis, la musique s'interrompit, et la voix douce de Li Muwan s'éleva de la cour.
 

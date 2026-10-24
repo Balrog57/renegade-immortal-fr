@@ -50,7 +50,7 @@ L'un d'eux répondit promptement: « Dans la cellule du nord. »
 
 Le garde se précipita vers une clôture métallique et la souleva en souriant: « Patron... »
 
-Avant qu'il n'ait pu achever sa phrase, sa tête se détacha brusquement de son corps et il s'effondra au sol. La clôture tomba à son tour. Un bruit de chute dans l'eau retentit derrière la grille, puis un jeune homme au visage couvert de cicatrices en émergea, flottant.
+Avant qu'il n'ait pu achever sa phrase, son corps trembla soudain et il bascula la tête la première. Un bruit de chute dans l'eau retentit derrière la grille, puis un jeune homme au visage couvert de cicatrices en émergea, flottant.
 
 Le regard de ce jeune homme était empreint de froideur et de rage.
 

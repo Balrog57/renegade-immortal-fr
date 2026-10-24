@@ -66,7 +66,7 @@ L'homme à ses côtés laissa transparaître une pointe de respect dans son rega
 
 La belle femme murmura doucement: « Je me demande quel lien unit ce Ceng Niu à Chu... »
 
-À l'instant même où elle prononça ces mots, le vieil homme Hu réfléchit un instant et ordonna: « Annulez l'ordre d'envoyer quelqu'un à la Secte du Nuage Céleste. »
+À l'instant même où elle prononça ces mots, le vieil homme Hu réfléchit un instant et ordonna: « Annulez l'ordre d'envoyer quelqu'un à la Secte du Ciel Nuageux. »
 
 Xu Luo fut surpris, mais acquiesça aussitôt.
 

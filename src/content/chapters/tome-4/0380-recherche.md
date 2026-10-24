@@ -26,7 +26,7 @@ La majorité des disciples de la secte extérieure furent surpris, mais certains
 
 Il s'installa sur une grosse branche d'arbre et se mit à cultiver.
 
-Après l'arrivée du vieil homme, celui-ci scruta attentivement chacun des disciples de la secte extérieure.
+Après avoir envoyé le jade, le vieil homme scruta attentivement chacun des disciples de la secte extérieure.
 
 Plus tôt, lorsqu'il était entré dans la montagne avec ses compagnons de secte, ils avaient été terrifiés en réalisant que toute la veine spirituelle avait été épuisée. Lorsqu'ils s'étaient enfoncés dans la veine pour atteindre les gisements, les minerais s'étaient transformés en poussière au moindre contact. Cela se produisait lorsque l'énergie spirituelle était extraite trop brutalement.
 

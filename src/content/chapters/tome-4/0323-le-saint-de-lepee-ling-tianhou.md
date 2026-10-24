@@ -16,7 +16,7 @@ Une fois arrivé, Wang Lin rangea sa boussole. Il se mit à flotter dans les air
 
 Les deux dragons dorés rugissaient avec frénésie, et toutes les épées célestes provenant des quatre coins du royaume céleste chargeaient vers eux. Progressivement, à mesure que de nouvelles lames arrivaient, elles s'entremêlaient pour former un troisième dragon doré.
 
-Les trois dragons encerclaient la femme en robe blanche. Son regard glacial balayait occasionnellement les environs.
+Les trois dragons encerclaient la femme en robe blanche. Leurs immenses yeux de dragon balayaient occasionnellement les environs d'une lueur glaciale.
 
 D'autres vagues d'épées célestes convergeaient vers ce point. Il ne fallut pas longtemps pour que plus de cent cultivateurs s'assemblent dans ce fragment; il s'agissait des plus rapides, ceux qui avaient réussi à suivre la course des épées célestes.
 

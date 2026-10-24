@@ -46,7 +46,7 @@ Le groupe de dix-huit cavaliers galopa alors dans la nuit.
 
 Ils s'arrêtèrent à un embranchement, à un kilomètre et demi de là. Chacun d'eux couvrit rapidement la gueule de sa monture d'une muselière de coton, se dispersa sur les côtés de la route et se dissimula. Leurs mouvements étaient empreints d'une grande habileté; il était évident qu'ils pratiquaient ce genre de forfait régulièrement.
 
-En un clin d'œil, il ne restait plus que l'homme balafré et Wang Lin. Ce dernier le maintenait fermement.
+En un clin d'œil, il ne restait plus que l'homme balafré et Wang Lin. L'homme balafré le maintenait fermement.
 
 « Petit Six, prends le cheval de ton frère. » À peine eut-il fini de parler qu'un jeune homme svelte apparut pour emporter la monture.
 

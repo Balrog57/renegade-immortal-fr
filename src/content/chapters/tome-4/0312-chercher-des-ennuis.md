@@ -112,7 +112,7 @@ Le visage de Papillon Rouge était marqué par l'amertume. Les pétales pouvaien
 
 En plein vol, Wang Lin s'arrêta soudainement et regarda derrière lui. Après un instant, il vit la boussole approcher. En voyant Wang Lin flotter ainsi, Chi Hu ne put s'empêcher de laisser échapper un sourire amer. À cet instant, l'utilité de Wang Lin avait crû indéfiniment, surpassant largement celle de Papillon Rouge.
 
-Wang Lin prit une profonde inspiration. La boussole s'arrêta près de lui et il dit: « Frère Ceng, entrez, nous pourrons discuter ensuite. »
+Chi Hu prit une profonde inspiration. La boussole s'arrêta près de Wang Lin et il dit: « Frère Ceng, entrez, nous pourrons discuter ensuite. »
 
 Sans hésiter, Wang Lin s'assit à l'extrémité est de la boussole. L'engin avait désormais un coin manquant; seuls les coins est, ouest et nord subsistaient.
 

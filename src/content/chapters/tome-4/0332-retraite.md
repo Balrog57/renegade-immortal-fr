@@ -46,7 +46,7 @@ Dans la nuit du troisième jour, elle ouvrit les yeux. En voyant Wang Lin devant
 
 Li Muwan murmura: « Grand frère Wang... »
 
-Wang Lin soupira intérieurement et sourit. « Ce n'est rien de grave. Je ne fais que transférer de l'énergie spirituelle dans ton corps. Une fois que tu iras mieux, je t'aiderai à atteindre le stade de l'Âme Naissante! »
+Wang Lin soupira intérieurement et sourit. « Ce n'est rien de grave. Je soignerai ton corps chaque jour. Une fois que tu iras mieux, je t'aiderai à atteindre le stade de l'Âme Naissante! »
 
 Li Muwan sourit, un sourire empreint de bonheur. Elle secoua la tête et demanda: « Vas-tu encore partir? »
 

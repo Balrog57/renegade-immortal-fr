@@ -22,7 +22,7 @@ Song Qing fut saisi de stupeur. Il observa la silhouette, à la fois étrange à
 
 « C'est lui... »
 
-À cet instant, les deux autres anciens chefs au stade avancé de l'Âme Naissante ressentirent également la brise glaciale. Ils furent surpris, puis aperçurent cette silhouette.
+À cet instant, les deux seuls Grands Anciens au stade avancé de l'Âme Naissante ressentirent également la brise glaciale. Ils furent surpris, puis aperçurent cette silhouette.
 
 « C'est lui... »
 
@@ -48,7 +48,7 @@ Toute la Secte Ciel Nuageux entra en ébullition à l'instant où Zhan Bai prono
 
 « Ceng Niu! » Song Qing sentit son esprit vaciller.
 
-Les yeux des deux anciens chefs au stade avancé de l'Âme Naissante brillèrent d'un éclat inédit.
+Les yeux des deux Grands Anciens au stade avancé de l'Âme Naissante brillèrent d'un éclat inédit.
 
 Le regard de Wang Lin devint glacial. Cette froideur n'était apparue que lorsqu'il massacrait la famille Teng. Cela signifiait que la colère de Wang Lin avait atteint son paroxysme et qu'il s'apprêtait à tuer.
 

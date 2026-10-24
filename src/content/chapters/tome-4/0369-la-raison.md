@@ -19,7 +19,7 @@ Chi Hu s'interposa pour bloquer son ancêtre. Le regard clair, il cria: « Ancê
 
 L'ancêtre du Clan des Démons Géants laissa échapper un rire furieux. Il s'apprêtait à contourner Chi Hu.
 
-Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément. Il fit un pas vers son ancêtre et s'écria: « Cette boussole stellaire ne nous sert à rien! Et alors si je la donne à quelqu'un d'autre? Vous avez déjà pris son épée volante! N'est-ce pas suffisant?! »
+Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément. Il fit un pas vers son ancêtre et s'écria: « Cette boussole stellaire ne nous sert à rien! Et alors si je l'ai donnée à Ceng Niu? Vous avez déjà pris son épée volante! N'est-ce pas suffisant?! »
 
 L'ancêtre se retourna brusquement pour fixer Chi Hu. Il tendit la main et Chi Hu sentit immédiatement une force puissante l'immobiliser totalement.
 
@@ -33,7 +33,7 @@ Chi Hu serra les poings en regardant vers la direction où Wang Lin s'était éc
 
 « Moi, Chi Hu, suis un homme d'honneur! Ceng Niu me considère comme un ami, je ne peux donc pas agir de façon aussi impitoyable. »
 
-Wang Lin avait récupéré une partie de son énergie spirituelle grâce à l'aide de Chi Hu et l'utilisait pour fuir.
+Wang Lin avait récupéré une partie de son énergie spirituelle grâce à l'aide de Chi Hu et l'utilisait pour fuir. Il grava profondément dans son cœur cette aide de Chi Hu!
 
 Tout en volant, Wang Lin posa un doigt entre ses sourcils pour essayer et soupira intérieurement. Il ignorait quelle formation les ennemis avaient déployée; il savait seulement qu'il ne pouvait ni déchirer l'espace ni se téléporter, et il sentait même que quelque chose l'empêchait d'entrer dans la perle défiant le ciel. Pour l'instant, il lui faudrait un certain temps avant de pouvoir y pénétrer.
 
@@ -117,7 +117,7 @@ Il fut alors transporté par la joie, mais à cause de l'influence de Suzaku, il
 
 Cependant, il avait bien tué l'autre personne au courant de cette affaire: un messager d'un pays de culture de rang 4, en poste dans le pays de Zhao. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
 
-Un jour, Li Yuanfeng de Xue Yu était venu lui demander de mettre en place une formation pour aider à tuer Wang Lin. Il avait immédiatement accepté, en exigeant de récupérer la boussole stellaire.
+Un jour, Li Yuanfeng de Xue Yu était venu lui demander de mettre en place une formation pour aider à tuer Ceng Niu. Il avait immédiatement accepté, en exigeant de récupérer la boussole stellaire.
 
 Ainsi, même si Suzaku enquêtait, c'est Xue Yu qui subirait les répercussions, lui permettant de s'emparer secrètement de la perle défiant le ciel. Et même si Wang Lin mourait, tant qu'il aurait le cadavre, il pourrait utiliser une technique secrète pour localiser l'objet.
 

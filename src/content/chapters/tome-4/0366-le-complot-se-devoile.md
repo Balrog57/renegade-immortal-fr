@@ -48,17 +48,17 @@ Mais elle semblait avoir atteint une forme d'illumination et n'éprouvait plus l
 
 D'innombrables fissures apparurent sur le géant alors qu'il s'écrasait au sol. Toute la glace fondit, révélant un fouet d'un blanc pur.
 
-Papillon Rouge fit un geste de la main et le Fouet de l'Âmes vola vers elle.
+Papillon Rouge fit un geste de la main et le Fouet Kunji vola vers elle.
 
-Comment Wang Lin pouvait-il la laisser réussir? C'était un trésor qu'il devait s'approprier. La lance se transforma en une lueur noire qui enroula le Fouet de l'Âmes.
+Comment Wang Lin pouvait-il la laisser réussir? C'était un trésor qu'il devait s'approprier. La lance se transforma en une lueur noire qui enroula le Fouet Kunji.
 
 L'expression de Papillon Rouge changea et elle cria: « Oses-tu?! »
 
-« Pourquoi n'oserais-je pas! » rit Wang Lin tout en tirant le Fouet de l'Âmes vers lui. Il abattit son épée céleste sur Papillon Rouge pour l'empêcher de lutter pour le récupérer.
+« Pourquoi n'oserais-je pas! » rit Wang Lin tout en tirant le Fouet Kunji vers lui. Il abattit son épée céleste sur Papillon Rouge pour l'empêcher de lutter pour le récupérer.
 
 Le visage de Papillon Rouge était sombre. Après une brève hésitation, elle lâcha prise, recula pour esquiver l'énergie de l'épée et lança un ricanement méprisant à Wang Lin.
 
-« Ceng Niu, ce Fouet de l'Âmes porte un sceau posé par la Secte du Jade Céleste. Même si tu le voles, tu seras incapable de l'utiliser! »
+« Ceng Niu, ce Fouet Kunji porte un sceau posé par la Secte du Jade Céleste. Même si tu le voles, tu seras incapable de l'utiliser! »
 
 Alors qu'elle parlait, la ligne noire sur le front de Papillon Rouge s'estompa lentement jusqu'à disparaître sans laisser de trace.
 
@@ -72,9 +72,9 @@ Hormis l'esprit de terre, tous les autres esprits élémentaires étaient apparu
 
 C'était le trésor ultime de Papillon Rouge. C'était sa racine même, la source de son talent.
 
-Wang Lin scruta le Fouet de l'Âmes avec son sens divin. Ce qu'il vit lui glaça le sang. Un sceau puissant pesait sur l'objet, empêchant son sens divin de le pénétrer.
+Wang Lin scruta le Fouet Kunji avec son sens divin. Ce qu'il vit lui glaça le sang. Un sceau puissant pesait sur l'objet, empêchant son sens divin de le pénétrer.
 
-Wang Lin eut un ricanement méprisant. Il rangea le Fouet de l'Âmes dans son sac et fixa les quatre esprits élémentaires.
+Wang Lin eut un ricanement méprisant. Il rangea le Fouet Kunji dans son sac et fixa les quatre esprits élémentaires.
 
 Dans la bataille d'aujourd'hui, Wang Lin avait été lourdement blessé. Outre ses multiples blessures physiques, son âme originelle était endommagée. Ce fut un combat particulièrement éprouvant.
 
@@ -142,9 +142,9 @@ Puis, pointant le ciel, il fit en sorte que l'esprit qui avait explosé se refor
 
 Le teint de Papillon Rouge revint et elle dit respectueusement: « Merci, Ancien. »
 
-Le regard de Gong Sunpo envers elle n'était pas bienveillant. Il tendit la main droite vers Wang Lin et ordonna: « Remets-moi le Fouet de l'Âmes! »
+Le regard de Gong Sunpo envers elle n'était pas bienveillant. Il tendit la main droite vers Wang Lin et ordonna: « Remets-moi le Fouet Kunji! »
 
-Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gong Sunpo perdait patience, il poussa un soupir intérieur. Dans le monde de la culture, seule la force importait. Il sortit le Fouet de l'Âmes et le lui remit avec amertume.
+Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gong Sunpo perdait patience, il poussa un soupir intérieur. Dans le monde de la culture, seule la force importait. Il sortit le Fouet Kunji et le lui remit avec amertume.
 
 Une fois le fouet saisi par Gong Sunpo, celui-ci pointa l'air de sa main droite, faisant apparaître une porte de lumière.
 

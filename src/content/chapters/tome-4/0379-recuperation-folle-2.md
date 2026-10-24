@@ -28,7 +28,7 @@ Un sourire moqueur apparut dans les yeux de Wang Lin. Il frappa son sac de range
 
 L'énergie spirituelle s'effondra instantanément.
 
-« Tu cherches la mort! » ricana l'homme d'âge moyen en crachant une épée de dix centimètres de long. Il saisit l'arme et chargea vers le gaz de restriction. Dans son esprit, ce junior au stade avancé de l'Établissement des Fondations ne pourrait pas résister à la puissance de cette épée volante, affinée par son propre noyau doré.
+« Tu cherches la mort! » ricana l'homme d'âge moyen en crachant une épée de dix centimètres de long. D'un éclair, celle-ci fonça vers le gaz de restriction. Dans son esprit, ce junior au stade avancé de l'Établissement des Fondations ne pourrait pas résister à la puissance de cette épée volante, affinée par son propre noyau doré.
 
 Mais son sourire se figea. Au moment où l'épée volante toucha le gaz de restriction, un craquement retentit. L'épée se brisa net en deux.
 
@@ -116,7 +116,7 @@ La pression sur le corps de Wang Lin devint colossale.
 
 Sous cette force titanesque, les fragments de son âme originelle se condensaient lentement, tels les éclats d'un miroir brisé que l'on recollait avec précision.
 
-Simultanément, une quantité inimaginable d'énergie spirituelle s'engouffra dans son corps. Même les entraves de son domaine et de son sceau furent balayées.
+Simultanément, une quantité inimaginable d'énergie spirituelle s'engouffra dans son corps. Même les entraves du domaine du thé et du sceau furent balayées.
 
 La culture de Wang Lin commença à remonter à une vitesse fulgurante.
 

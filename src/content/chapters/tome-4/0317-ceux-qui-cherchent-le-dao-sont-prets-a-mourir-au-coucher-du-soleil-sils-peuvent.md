@@ -102,7 +102,7 @@ Ce qui s'étendait devant eux était un groupe de palais d'une majesté infinie.
 
 Chi Hu prit une profonde inspiration: « Le palais central est-il fait de jade céleste? »
 
-Le sens divin de Wang Lin était bien plus puissant que celui de Chi Hu. Après avoir balayé la zone, il fut lui aussi ébranlé; cependant, il découvrit que le palais central n'était pas constitué de pur jade céleste, mais d'un mélange de pierres spirituelles.
+Le sens divin de Wang Lin était bien plus puissant que celui de Chi Hu. Après avoir balayé la zone, il fut lui aussi ébranlé; cependant, il découvrit que le palais central n'était pas entièrement fait de jade céleste, mais à moitié de jade céleste et à moitié de pierres spirituelles.
 
 Néanmoins, cela témoignait de l'immense puissance du propriétaire de ces lieux.
 

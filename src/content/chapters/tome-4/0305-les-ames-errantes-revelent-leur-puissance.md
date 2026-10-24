@@ -68,7 +68,7 @@ Les yeux de Wang Lin brillèrent d'une lueur particulière. Sous son commandemen
 
 Wang Lin le regarda et répondit calmement: « Un fragment du royaume céleste s'est effondré. »
 
-L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, nul ne peut prétendre avoir survécu à l'effondrement d'un fragment du royaume céleste. Je vous admire sincèrement! Je suis Chi Hu, du Clan des Démons Géants. Quel est votre nom? »
+L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, quiconque peut réchapper d'un tel effondrement n'est pas un être ordinaire. Je vous admire sincèrement! Je suis Chi Hu, du Clan des Démons Géants. Quel est votre nom? »
 
 Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Ceng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas avalé imprudemment le cristal d'énergie céleste, il serait déjà mort.
 

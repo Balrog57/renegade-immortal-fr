@@ -96,7 +96,7 @@ En pensant à Tuo Sen, Wang Lin ne put s'empêcher de songer à l'Omniscient.
 
 « Le vieillard de la Secte de l'Épée Da Luo est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que l'Omniscient. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Omniscient m'a remarqué là-bas. »
 
-« Le bilan de ce voyage au Royaume Céleste est excellent. Seule la pagode contenant le corps féminin sera difficile à obtenir. Puisque j'ai déjà accepté la requête du senior Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par le senior Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
+« Le bilan de ce voyage au Royaume Céleste est excellent. Seulement, la présence d'un cadavre de femme dans la pagode de jade céleste est un peu embarrassante. Puisque j'ai déjà accepté la requête du senior Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par le senior Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
 
 « L'Épée Céleste de la Pluie... Une fois rentré à Chu, je devrai voir si je peux l'extraire. »
 

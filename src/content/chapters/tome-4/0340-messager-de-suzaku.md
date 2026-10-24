@@ -35,13 +35,13 @@ Les jours de neige, les flocons descendaient lentement, recouvrant tout d'un man
 
 Que ce soit de jour ou de nuit, sous la pluie ou la neige, le corps de Wang Lin restait immobile. Il ressemblait à un vieux moine en pleine quiétude; aucune trace de vitalité n'émanait de lui.
 
-Six mois après la bataille, le printemps revint. Dans la maison du vieux Zhou, au village d'Apricot, un bébé naquit. Elle s'appelait Zhou Ru.
+Six mois après la bataille, le printemps revint. Dans la maison du vieux Zhou, au village des Fleurs d'Abricot, un bébé naquit. Elle s'appelait Zhou Ru.
 
 Cette petite fille poussa des cris comme tous les nouveau-nés, mais personne ne savait que ce cri différait de celui d'un enfant ordinaire.
 
-Le corps de la fillette était très faible. Heureusement, le vieux Zhou était respecté au village d'Apricot et possédait un commerce, ce qui lui permettait de vivre mieux que la plupart des gens.
+Le corps de la fillette était très faible. Heureusement, le vieux Zhou était respecté au village des Fleurs d'Abricot et possédait un commerce, ce qui lui permettait de vivre mieux que la plupart des gens.
 
-Une grotte se trouvait dans la montagne à cinquante kilomètres du village d'Apricot. Tie Yan s'y cultivait depuis plus de six mois. Six mois auparavant, Tie Yan et Lu Fei avaient reçu le message de Wang Lin ordonnant à l'un d'eux de venir garder Li Muwan jusqu'à sa sortie de retraite.
+Une grotte se trouvait dans la montagne à cinquante kilomètres du village des Fleurs d'Abricot. Tie Yan s'y cultivait depuis plus de six mois. Six mois auparavant, Tie Yan et Lu Fei avaient reçu le message de Wang Lin ordonnant à l'un d'eux de venir garder Li Muwan jusqu'à sa sortie de retraite.
 
 Après en avoir discuté, Tie Yan était venu. Son Sens Divin restait verrouillé sur le village à chaque instant tandis qu'il assurait une garde silencieuse.
 
