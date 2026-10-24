@@ -81,7 +81,7 @@ Le visage de Wang Lin était livide, mais ses yeux ne trahissaient aucune paniqu
 
 Le doigt de l'ancien dieu s'abattit sur la seconde garde céleste. Celle-ci trembla et commença à se désagréger rapidement.
 
-Une fois la seconde garde brisée, le doigt de l'ancien dieu s'arrêta à sept pouces du corps de Wang Lin. Une sensation de dislocation totale parcourut Wang Lin comme une folie. Cette confrontation avec la mort lui ôtait presque le souffle.
+Une fois la seconde garde brisée, le doigt de l'ancien dieu s'arrêta à sept pieds du corps de Wang Lin. Une sensation de dislocation totale parcourut Wang Lin comme une folie. Cette confrontation avec la mort lui ôtait presque le souffle.
 
 Wang Lin poussa un rugissement de rage et leva la tête. Un rayon de l'énergie d'épée de Ling Tianhou jaillit soudainement pour percuter le doigt.
 

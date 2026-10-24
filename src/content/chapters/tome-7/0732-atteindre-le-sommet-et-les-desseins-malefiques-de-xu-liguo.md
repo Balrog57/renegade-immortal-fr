@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 732 - Reaching the Peak and Xu Liguos Evil Interests
 slug: atteindre-le-sommet-et-les-desseins-malefiques-de-xu-liguo
 ---
-Le cercle formé par le Fouet des Âmes se relâcha, puis se transforma en un rayon de lumière avant de disparaître.
+Le cercle formé par le Fouet du Karma se relâcha, puis se transforma en un rayon de lumière avant de disparaître.
 
 Une fois fondu dans le domaine, il n'avait plus de forme physique. Comme le domaine, il se confondait avec le vide : invisible, mais que l'on pouvait ressentir.
 

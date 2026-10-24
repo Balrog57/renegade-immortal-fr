@@ -26,11 +26,11 @@ Quant à la couronne fusionnée avec la rose bleue du Papillon Rouge, Wang Lin l
 
 Ces trois trésors étaient des acquisitions récentes. Tout en les raffinant, Wang Lin prit le temps de les combiner avec les visions obtenues sur le chemin vers la troisième étape. Il sortit alors de son sac un trésor magique d'apparence ordinaire.
 
-C'était le Fouet des Âmes!
+C'était le Fouet du Karma!
 
 Ce fouet l'avait suivi pendant longtemps; sa puissance présentait des avantages et des inconvénients évidents. Auparavant, Wang Lin ne lui accordait que peu d'importance, mais désormais, il s'y intéressait de près.
 
-Wang Lin observa le Fouet des Âmes dans sa main et murmura: « Parmi tous mes trésors, en termes de tranchant, il ne peut égaler l'épée céleste ou la lame Demi-Lune. En termes de défense, il n'égale ni l'Étendard des Mille Millions d'Âmes, ni l'Écran des Montagnes et des Rivières. En termes de capacités, il ne vaut pas la Montagne Céleste ou le Char de Guerre Divin. Pourtant, c'est le seul trésor qui contient l'aura de la troisième étape que j'ai aperçue. Cet objet est véritablement étrange! »
+Wang Lin observa le Fouet du Karma dans sa main et murmura: « Parmi tous mes trésors, en termes de tranchant, il ne peut égaler l'épée céleste ou la lame Demi-Lune. En termes de défense, il n'égale ni l'Étendard des Mille Millions d'Âmes, ni l'Écran des Montagnes et des Rivières. En termes de capacités, il ne vaut pas la Montagne Céleste ou le Char de Guerre Divin. Pourtant, c'est le seul trésor qui contient l'aura de la troisième étape que j'ai aperçue. Cet objet est véritablement étrange! »
 
 Ce fouet semblait tout à fait ordinaire, mais le fantôme céleste avait failli se disperser corps et âme en le voyant, comme s'il le reconnaissait.
 
@@ -40,15 +40,15 @@ Son domaine avait progressivement évolué du domaine de la vie et de la mort ve
 
 « Ma compréhension actuelle du domaine du karma est insuffisante pour créer une entité réelle, comme le rouleau illusoire de la vie, de la mort et de la réincarnation. Cependant, après avoir entrevu le chemin vers la troisième étape, je peux me permettre un léger raccourci... »
 
-Alors que sa main droite caressait le Fouet des Âmes, son regard s'illumina de plus en plus.
+Alors que sa main droite caressait le Fouet du Karma, son regard s'illumina de plus en plus.
 
 Il conçut un moyen d'utiliser la puissance d'un domaine du karma matérialisé avant même de pouvoir réellement le manifester. C'était pour s'assurer d'être parfaitement préparé pour son voyage vers le Royaume Céleste du Tonnerre.
 
-« Utiliser le Fouet des Âmes pour remplacer la condensation du domaine du karma devrait fonctionner! » Après réflexion, Wang Lin prit sa décision. Si cela avait été un autre, il aurait hésité par crainte, incapable de trancher, ne sachant pas si ce choix était correct ou s'il interférerait avec l'existence de son domaine.
+« Utiliser le Fouet du Karma pour remplacer la condensation du domaine du karma devrait fonctionner! » Après réflexion, Wang Lin prit sa décision. Si cela avait été un autre, il aurait hésité par crainte, incapable de trancher, ne sachant pas si ce choix était correct ou s'il interférerait avec l'existence de son domaine.
 
 Mais Wang Lin était différent; il avait clairement entrevu le chemin à suivre. Il savait que cela n'affecterait son domaine qu'au plus légèrement, sans conséquence majeure.
 
-Après avoir mûri sa réflexion, les yeux de Wang Lin s'animèrent et il saisit le Fouet des Âmes, qu'il fit claquer dans un bruit net et clair qui semblait ébranler l'esprit.
+Après avoir mûri sa réflexion, les yeux de Wang Lin s'animèrent et il saisit le Fouet du Karma, qu'il fit claquer dans un bruit net et clair qui semblait ébranler l'esprit.
 
 « Je ferai de toi l'instrument de mon domaine! » Une lueur étrange émana du regard de Wang Lin alors qu'il posait le fouet sur ses genoux. Il ferma les yeux et commença à le raffiner avec soin.
 
@@ -70,7 +70,7 @@ Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres i
 
 Pendant ces trois années, Wang Lin se concentra sur l'affinage de ses trésors. La seule source de nuisance était Xu Liguo. Il avait réussi, d'une manière ou d'une autre, à briser le sceau que Wang Lin avait placé sur la sacoche de stockage. Bien qu'il ne puisse toujours pas en sortir, il n'arrêtait pas de clamer sans cesse.
 
-Ce jour-là, le Fouet des Âmes, posé sur les genoux de Wang Lin, était imprégné d'une partie du domaine du karma. Cela le rendait plus facile à contrôler que par le seul sens divin. Parallèlement, grâce à la fusion de cette phase du domaine karmique, le Fouet des Âmes était devenu encore plus puissant.
+Ce jour-là, le Fouet du Karma, posé sur les genoux de Wang Lin, était imprégné d'une partie du domaine du karma. Cela le rendait plus facile à contrôler que par le seul sens divin. Parallèlement, grâce à la fusion de cette phase du domaine karmique, le Fouet du Karma était devenu encore plus puissant.
 
 C'est alors que cette voix discordante réapparut.
 
@@ -92,7 +92,7 @@ Cette épée ressemblait trait pour trait à l'épée céleste. En chargeant, el
 
 Il fonça droit sur Wang Lin comme s'il pouvait déchirer le vide, se rapprochant en un instant!
 
-Les yeux de Wang Lin restèrent de marbre. Alors que Xu Liguo s'approchait, Wang Lin ne bougea pas, mais le Fouet des Âmes sur ses genoux s'éleva dans les airs. Une aura mystérieuse se propagea, englobant instantanément une zone de mille pieds.
+Les yeux de Wang Lin restèrent de marbre. Alors que Xu Liguo s'approchait, Wang Lin ne bougea pas, mais le Fouet du Karma sur ses genoux s'éleva dans les airs. Une aura mystérieuse se propagea, englobant instantanément une zone de mille pieds.
 
 Cette aura dégageait une force inimaginable, donnant l'impression que cet espace de mille pieds était séparé du monde extérieur, empreint d'une majesté si puissante qu'elle pouvait terrasser n'importe qui.
 
@@ -100,9 +100,9 @@ Xu Liguo fut le premier à en ressentir l'effet. Il s'exclama et la grande épé
 
 À cet instant, la voix de Wang Lin résonna lentement:
 
-« Il est difficile pour les choses de ce monde d'échapper au karma. Il n'existe point de lieu sans cause karmique, et l'effet karmique est partout... » Le Fouet des Âmes scintilla et provoqua un grondement, comme s'il venait d'ouvrir les portes du destin.
+« Il est difficile pour les choses de ce monde d'échapper au karma. Il n'existe point de lieu sans cause karmique, et l'effet karmique est partout... » Le Fouet du Karma scintilla et provoqua un grondement, comme s'il venait d'ouvrir les portes du destin.
 
-Le Fouet des Âmes se connecta d'une extrémité à l'autre, formant un cercle parfait. L'épée massive de Xu Liguo fut aspirée involontairement dans ce cercle avant de se désintégrer rapidement.
+Le Fouet du Karma se connecta d'une extrémité à l'autre, formant un cercle parfait. L'épée massive de Xu Liguo fut aspirée involontairement dans ce cercle avant de se désintégrer rapidement.
 
 « L'effet karmique est la source de toute cause karmique! » La voix de Wang Lin retentit de nouveau.
 
