@@ -12,7 +12,7 @@ Cependant, ils ignorent que la vie et la mort ne sont qu'une seule manifestation
 
 Nul ne peut échapper à la cause karmique d'hier ni à l'effet karmique d'aujourd'hui.
 
-Tout comme Liu Mei, qui était actuellement assise en tailleur dans un pavillon de la famille Huan sur la planète Mille Illusions. Tout en effleurant son sac de rangement, elle contemplait l'environnement inconnu, et son cœur se sentait plus serein.
+Tout comme Liu Mei, qui était actuellement assise en tailleur dans un pavillon de la famille Huan sur la planète Qianhuan. Tout en effleurant son sac de rangement, elle contemplait l'environnement inconnu, et son cœur se sentait plus serein.
 
 C'était comme si elle ne ressentirait jamais la solitude tant qu'elle posséderait cet objet dans son sac de rangement.
 
@@ -24,11 +24,11 @@ Après avoir ressenti ces fluctuations, Liu Mei se mordit le bout du doigt. Elle
 
 Liu Mei soupira. « Le trésor que j'avais préparé pour lui est désormais inutile... »
 
-Un événement majeur se déroulait sur la planète Mille Illusions. Un ancêtre, parti il y a des milliers d'années, était revenu. Il avait également ramené un disciple au talent prodigieux, et dans trois mois, un rituel de lignée aurait lieu pour ce disciple afin de faire d'elle une disciple directe de la famille Huan.
+Un événement majeur se déroulait sur la planète Qianhuan. Un ancêtre, parti il y a des milliers d'années, était revenu. Il avait également ramené un disciple au talent prodigieux, et dans trois mois, un rituel de lignée aurait lieu pour ce disciple afin de faire d'elle une disciple directe de la famille Huan.
 
 La nouvelle se répandit comme une traînée de poudre jusqu'à ce que chaque planète liée à Mille Illusions en soit informée.
 
-La planète Ran Yun était une planète subordonnée à la planète Mille Illusions.
+La planète Ran Yun était une planète subordonnée à la planète Qianhuan.
 
 Après le départ de Sun Tai, Wang Lin cultiva tranquillement dans sa pièce. Il y avait plus de cinquante mille morceaux de jade céleste dans le sac que Sun Tai avait laissé derrière lui. C'était là la limite de ce que Sun Tai avait pu obtenir.
 

@@ -38,7 +38,7 @@ Ils recommencèrent à boire et à discuter au sommet jusqu'à l'aube. Après av
 
 Wang Lin fut surpris et se frotta machinalement le nez. Il ne comprenait pas vraiment ce que Situ Nan voulait dire.
 
-« Ne sois pas idiot. Si tu me dis que ta raison de venir sur la planète Esprit d'Eau n'est pas pour ces deux filles, je ne te croirai pas! » Situ Nan afficha un sourire qui n'en était pas un.
+« Ne sois pas idiot. Si tu me dis que ta raison de venir sur la planète Shuiling n'est pas pour ces deux filles, je ne te croirai pas! » Situ Nan afficha un sourire qui n'en était pas un.
 
 « À l'origine, je voulais emmener ces deux filles pour en faire tes concubines, mais je ne pensais pas que tu serais encore plus rapide que moi. Tu y es déjà allé. Bien que l'avantage de la proximité ne soit pas une mauvaise chose, je dois quand même te gronder. Tu n'es plus un jeune homme et pourtant tu joues encore au jeu de la poursuite. Si c'était moi, je les aurais prises directement.
 

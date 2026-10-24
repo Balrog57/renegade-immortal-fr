@@ -8,7 +8,7 @@ slug: bouteille-de-tresor
 ---
 Les portes du palais s'ouvrirent de l'intérieur. Wang Lin sourit en regardant la timide Ling Er et eut un rire léger. « Pourquoi venir si tôt? »
 
-Lorsqu'elle vit Wang Lin sortir, elle poussa un soupir de soulagement, puis se tapota la poitrine et dit rapidement: « Senior, le lever du soleil sur la planète Esprit d'Eau est magnifique. Ling Er aimerait savoir si Senior souhaiterait le contempler. » En parlant, son petit visage devint rouge. Bien que Wang Lin fût un Senior, de son point de vue, il ne semblait pas beaucoup plus âgé qu'elle. Une invitation aussi explicite fit battre son cœur encore plus vite.
+Lorsqu'elle vit Wang Lin sortir, elle poussa un soupir de soulagement, puis se tapota la poitrine et dit rapidement: « Senior, le lever du soleil sur la planète Shuiling est magnifique. Ling Er aimerait savoir si Senior souhaiterait le contempler. » En parlant, son petit visage devint rouge. Bien que Wang Lin fût un Senior, de son point de vue, il ne semblait pas beaucoup plus âgé qu'elle. Une invitation aussi explicite fit battre son cœur encore plus vite.
 
 En entendant ces mots, le sourire de Wang Lin disparut et il fronça les sourcils.
 

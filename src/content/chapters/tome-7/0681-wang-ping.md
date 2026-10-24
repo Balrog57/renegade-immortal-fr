@@ -12,7 +12,7 @@ Elle poursuivit l'ancêtre de la famille Huan.
 
 Le vortex s'effondra instantanément sous l'assaut de l'énergie de l'épée, tandis que l'ancêtre de la famille Huan laissait échapper un gémissement étouffé.
 
-À cet instant précis, au sein du domaine de la famille Huan sur la lointaine planète Mille Illusions, l'ancêtre de la famille Huan était assis dans une pièce face à un immense vortex. Ce dernier sembla se solidifier avant de se briser fragment par fragment.
+À cet instant précis, au sein du domaine de la famille Huan sur la lointaine planète Qianhuan, l'ancêtre de la famille Huan était assis dans une pièce face à un immense vortex. Ce dernier sembla se solidifier avant de se briser fragment par fragment.
 
 Au moment où il vola en éclats, une lumière blanche enveloppa Liu Mei pour la ramener à travers le vortex. Une fois entrée dans la pièce, la lumière projeta Liu Mei sur le côté, n'ayant nul temps pour s'occuper d'elle; une trace d'anxiété émanait de l'éclat alors qu'il se précipitait avec hâte vers le corps de l'ancêtre de la famille Huan.
 
@@ -54,7 +54,7 @@ Après l'effondrement de la chambre secrète, l'énergie de l'épée se précipi
 
 L'énergie de l'épée gagna en puissance, atteignant presque son apogée. Au moment où elle se manifesta, le monde entier sembla s'immobiliser!
 
-Cette suspension donna l'impression que le temps s'était totalement arrêté. Les nuages changèrent et le vent parut remonter le cours de son mouvement. Cela créa une scène rare où les nuages ressemblaient à une marée descendante. Tous les puissants cultivateurs de la planète Mille Illusions ressentirent cette énergie, et le ciel s'obscurcit soudainement!
+Cette suspension donna l'impression que le temps s'était totalement arrêté. Les nuages changèrent et le vent parut remonter le cours de son mouvement. Cela créa une scène rare où les nuages ressemblaient à une marée descendante. Tous les puissants cultivateurs de la planète Qianhuan ressentirent cette énergie, et le ciel s'obscurcit soudainement!
 
 Dès l'apparition de l'énergie de l'épée, les cieux et la terre furent envahis par elle. Le domaine émanant de cet éclair était d'une arrogance absolue. C'était comme si chaque sortilège au monde devait s'effacer devant lui, incapable de rivaliser avec son élan!
 
@@ -68,7 +68,7 @@ Le visage de l'ancêtre de la famille Huan se voila d'ombre alors qu'il projetai
 
 La lumière blanche brilla intensément sur son doigt alors que son intention Dao augmentait de façon effrénée. L'ancêtre de la famille Huan mobilisa toute l'énergie originelle de son corps pour la concentrer au bout de son doigt, puis, dans un grand cri, il pointa impitoyablement vers l'avant.
 
-Le jaillissement de lumière blanche percuta l'énergie de l'épée de Ling Tianhou. Une explosion assourdissante se propagea sur toute la planète Mille Illusions. La lumière blanche se dissipa, laissant passer l'énergie de l'épée qui, telle un éclair, s'engouffra dans le corps de l'ancêtre de la famille Huan par son doigt.
+Le jaillissement de lumière blanche percuta l'énergie de l'épée de Ling Tianhou. Une explosion assourdissante se propagea sur toute la planète Qianhuan. La lumière blanche se dissipa, laissant passer l'énergie de l'épée qui, telle un éclair, s'engouffra dans le corps de l'ancêtre de la famille Huan par son doigt.
 
 Le corps de l'ancêtre trembla et son visage devint instantanément livide. L'horreur dans ses yeux s'intensifia, et il repensa alors aux paroles du junior:
 

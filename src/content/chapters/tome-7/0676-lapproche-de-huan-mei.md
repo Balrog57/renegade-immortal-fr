@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 676 - Huan Mei Approaches
 slug: lapproche-de-huan-mei
 ---
-La partie sud de la planète Mille Illusions appartenait à la famille Huan. Un bassin profond, nommé le Bassin Lunaire des Illusions, s'y trouvait, et c’est ici que le rituel du lignage allait se dérouler.
+La partie sud de la planète Qianhuan appartenait à la famille Huan. Un bassin profond, nommé le Bassin Lunaire des Illusions, s'y trouvait, et c’est ici que le rituel du lignage allait se dérouler.
 
 L'eau du bassin avait déjà été retirée par l'ancêtre de la famille Huan, ne laissant derrière lui qu'une profonde fosse dans le sol. Ce dernier flottait actuellement au-dessus du bassin, l'expression empreinte d'une grande gravité.
 

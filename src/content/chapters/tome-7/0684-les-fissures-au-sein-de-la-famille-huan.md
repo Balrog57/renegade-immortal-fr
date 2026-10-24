@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 684 - The Huan Family Fractures
 slug: les-fissures-au-sein-de-la-famille-huan
 ---
-« Le Temple Céleste du Tonnerre! » Ce n'était pas la première fois que Wang Lin entendait ce nom. Il observa attentivement la Bête du Tonnerre avant de s'aventurer sur la planète Mille Illusions.
+« Le Temple Céleste du Tonnerre! » Ce n'était pas la première fois que Wang Lin entendait ce nom. Il observa attentivement la Bête du Tonnerre avant de s'aventurer sur la planète Qianhuan.
 
-Après avoir rangé la boussole stellaire, il perça l'atmosphère de la planète Mille Illusions. Ce qui apparut devant Wang Lin était une vaste étendue terrestre. Il déploya son sens divin et se concentra sur le sud, puis chargea vers cette direction telle une météorite.
+Après avoir rangé la boussole stellaire, il perça l'atmosphère de la planète Qianhuan. Ce qui apparut devant Wang Lin était une vaste étendue terrestre. Il déploya son sens divin et se concentra sur le sud, puis chargea vers cette direction telle une météorite.
 
 À l'intérieur du fief ancestral de la famille Huan, dans la partie sud de la planète, l'ancêtre de la famille, Huan Wuqing, avait les mains derrière le dos. Il regardait le ciel d'un air sombre. À ses côtés se trouvaient les descendants directs de la lignée; ils étaient alignés en deux rangées et restaient parfaitement silencieux.
 

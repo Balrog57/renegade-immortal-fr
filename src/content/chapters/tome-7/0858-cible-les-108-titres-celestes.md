@@ -28,9 +28,9 @@ C'était la famille Li, détentrice de restrictions héritées des temps anciens
 
 Plus aucune trace de la gloire des Li ne subsistait. Les souvenirs étaient enfouis et ne brillaient plus. À mesure que la famille Li dépérissait, même le souvenir qu'en gardaient les hommes s'estompait; c'était comme si elle n'avait jamais existé.
 
-La planète Annihilation était devenue inhabitée; aucun cultivateur ne s'y rendait. Sans les innombrables restrictions laissées par la famille Li, ils n'auraient même pas pu conserver le contrôle de la planète.
+La planète Pomie était devenue inhabitée; aucun cultivateur ne s'y rendait. Sans les innombrables restrictions laissées par la famille Li, ils n'auraient même pas pu conserver le contrôle de la planète.
 
-À l'intérieur du domaine familial des Li sur la planète Annihilation, Li Yuan se tenait là, le regard perdu dans le lointain.
+À l'intérieur du domaine familial des Li sur la planète Pomie, Li Yuan se tenait là, le regard perdu dans le lointain.
 
 « Frère Xu... Ce n'est pas que je ne veuille pas vous aider face à la traque de la famille Yao, c'est que je ne peux rien faire! » Le visage de Li Yuan était empreint d'amertume. Il aurait voulu aider, mais avec son niveau de culture, non seulement il ne serait d'aucun secours, mais il deviendrait un fardeau. Il éprouvait une immense gratitude envers Xu Mu pour ce qui s'était passé dans le Royaume Céleste du Tonnerre, particulièrement pour le fait que Xu Mu l'ait laissé partir tout en restant sur place.
 
@@ -92,7 +92,7 @@ La boussole dans la main de Wang Lin s'enfonça dans sa paume. Elle traversa son
 
 Li Yuan sourit faiblement et secoua la tête. « Nul besoin d'en être ainsi, Frère Xu. Vous êtes le bienfaiteur de ma famille Li, il est donc naturel que je fasse cela! Que comptez-vous faire ensuite, Frère Xu? »
 
-Wang Lin réfléchit. Il y a plusieurs jours, en arrivant sur la planète Annihilation et en rencontrant Li Yuan, il avait appris beaucoup de choses, dont son titre de Maître Démon.
+Wang Lin réfléchit. Il y a plusieurs jours, en arrivant sur la planète Pomie et en rencontrant Li Yuan, il avait appris beaucoup de choses, dont son titre de Maître Démon.
 
 En pensant aux paroles de Li Yuan — selon lesquelles la bataille des 108 Célestes du Temple Céleste du Tonnerre utiliserait les quatre domaines comme arène — le cœur de Wang Lin fut rempli de détermination.
 

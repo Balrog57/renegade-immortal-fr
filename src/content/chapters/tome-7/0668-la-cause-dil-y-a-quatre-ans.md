@@ -82,7 +82,7 @@ Sun Xi fit mine de ne pas remarquer le regard de Wang Lin et poursuivit: « Cela
 
 L'expression de Wang Lin resta imperturbable alors qu'il fixait le deuxième étage, feignant de ne pas écouter.
 
-Sun Xi ne s'en offusqua pas et ajouta: « Le problème, c'est que ces pilules étaient un peu compromettantes. Nous avons trouvé un jeton de la famille Huan de la planète Mille Illusions dans le sac du cultivateur tué par l'Ancêtre de la famille Ran... »
+Sun Xi ne s'en offusqua pas et ajouta: « Le problème, c'est que ces pilules étaient un peu compromettantes. Nous avons trouvé un jeton de la famille Huan de la planète Qianhuan dans le sac du cultivateur tué par l'Ancêtre de la famille Ran... »
 
 Wang Lin tourna la tête vers Sun Xi et dit d'un ton neutre: « Cher compagnon cultivateur Sun, je n'apprécie guère les récits. »
 
@@ -110,7 +110,7 @@ L'enchère au deuxième étage avait commencé. Diverses armes magiques, matéri
 
 Sun Xi posa sa tasse et murmura pour lui-même: « Malheureusement, il y a quatre ans, cet homme n'a pas eu le temps de révéler son identité avant que nous ne l'attaquions par surprise pour le tuer. Si nous avions su qu'il appartenait à la famille Huan, nous n'aurions jamais osé l'attaquer. »
 
-« La famille Huan de la planète Mille Illusions est extrêmement impitoyable. Si l'un de leurs membres est tué, tous ceux qui sont impliqués sont exterminés avec leur clan. Même si l'on obtient un objet appartenant à un membre de leur famille lors d'une enchère, on s'expose à leur fureur. »
+« La famille Huan de la planète Qianhuan est extrêmement impitoyable. Si l'un de leurs membres est tué, tous ceux qui sont impliqués sont exterminés avec leur clan. Même si l'on obtient un objet appartenant à un membre de leur famille lors d'une enchère, on s'expose à leur fureur. »
 
 « Ce que la famille Huan exige, c'est une soumission absolue. Même si les objets du sac d'un membre de la famille Huan étaient posés devant vous, vous n'oseriez pas les prendre et préféreriez les rendre volontairement. Sinon, vous ne pouvez qu'espérer qu'ils ne vous trouvent pas, mais vous ne ferez qu'osciller entre la vie et la mort... Malheureusement, j'ai encore peur de consommer la pilule que je possède... »
 

@@ -108,13 +108,13 @@ Alors qu'il progressait, une étincelle de soif de combat brillait dans ses yeux
 
 « Je suis passé par ici sans m'en rendre compte... » Wang Lin ressentit une pointe de mélancolie. Deux planètes se dressaient devant lui.
 
-La Planète des Mille Illusions, la planète Ran Yun!
+La Planète Qianhuan, la planète Ran Yun!
 
 Il y a plus de mille ans, lorsque Wang Lin était arrivé à Luotian via la faille du Pays des Esprits Démoniaques, il avait atterri sur la planète Ran Yun... C'est là qu'il avait accompagné Wang Ping durant toute une vie... Il avait marché aux côtés de Wang Ping, parcourant les montagnes, traversant les rivières et conquérant les mers sur une barque solitaire!
 
 Il avait offert à Wang Ping un cœur capable de supporter le poids du monde. Il lui avait donné une vie de gloire, de richesse et la position suprême du pouvoir... Cependant, ce que Wang Lin n'avait pu lui offrir, c'était un corps complet... Le souvenir de ce siècle de liens entre père et fils remonta dans le cœur de Wang Lin en voyant Ran Yun. Une douleur autrefois estompée ressurgit avec cette émotion.
 
-Le regard de Wang Lin se posa sur la Planète des Mille Illusions... Son passé avec la famille Hua lui revint en mémoire, ainsi que Liu Mei, qui lui inspirait des sentiments si complexes... Un soupir résonna parmi les étoiles. Il détourna les yeux de la Planète des Mille Illusions pour fixer la planète Ran Yun... Elle n'avait guère changé; c'était comme si mille ans n'étaient qu'un éclair pour une telle planète. Bien que l'astre fût là, les êtres qui l'habitaient avaient disparu... La plupart de ses anciens amis ne pouvaient plus être retrouvés.
+Le regard de Wang Lin se posa sur la Planète Qianhuan... Son passé avec la famille Hua lui revint en mémoire, ainsi que Liu Mei, qui lui inspirait des sentiments si complexes... Un soupir résonna parmi les étoiles. Il détourna les yeux de la Planète Qianhuan pour fixer la planète Ran Yun... Elle n'avait guère changé; c'était comme si mille ans n'étaient qu'un éclair pour une telle planète. Bien que l'astre fût là, les êtres qui l'habitaient avaient disparu... La plupart de ses anciens amis ne pouvaient plus être retrouvés.
 
 Une partie de la planète Ran Yun était plongée dans l'automne. Une fraîcheur mordante balayait le monde et les feuilles mortes volaient dans la nuit solitaire sous la clarté lunaire...
 

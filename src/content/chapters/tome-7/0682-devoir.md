@@ -38,7 +38,7 @@ Wang Lin réfléchit un instant et dit lentement: « Puisque j'ai reçu les jade
 
 Un regard de gratitude apparut sur le visage de Sun Xi: « Frère Xu, je vous remercie en leur nom. » Puis il hésita un instant et ajouta: « Cependant, la famille Huan... »
 
-Wang Lin leva la tête vers le ciel. Son regard semblait pouvoir percer les étoiles pour atteindre la planète Mille Illusions. Il déclara fermement: « La famille Huan n'existera plus! »
+Wang Lin leva la tête vers le ciel. Son regard semblait pouvoir percer les étoiles pour atteindre la planète Qianhuan. Il déclara fermement: « La famille Huan n'existera plus! »
 
 Il ne faisait pas preuve d'arrogance ou de présomption; une idée folle venait de germer dans son esprit. Quiconque oserait l'empêcher de tuer Liu Mei devait mourir.
 
@@ -80,21 +80,21 @@ Durant ces trois jours, Wang Lin avait continué d'utiliser la Rivière des Enfe
 
 Une fois ses paroles achevées, Wang Lin leva les yeux vers le ciel et dit doucement: « Je vous confie les affaires d'ici. Réglez la situation des descendants des trois familles et attendez mon retour. » Wang Lin fit un pas en avant et s'élança vers les cieux.
 
-L'atmosphère ne put l'arrêter. Telle une météorite, il traversa l'espace et perça la formation de scellement planétaire. La boussole stellaire se transforma en un rayon de lumière argentée qui le guida vers la planète Mille Illusions. La planète était clairement marquée sur le jade que Sun Xi lui avait remis.
+L'atmosphère ne put l'arrêter. Telle une météorite, il traversa l'espace et perça la formation de scellement planétaire. La boussole stellaire se transforma en un rayon de lumière argentée qui le guida vers la planète Qianhuan. La planète était clairement marquée sur le jade que Sun Xi lui avait remis.
 
-Le sillage de lumière argentée fendit les étoiles, porté par une intention meurtrière colossale, verrouillant sa trajectoire sur la planète Mille Illusions.
+Le sillage de lumière argentée fendit les étoiles, porté par une intention meurtrière colossale, verrouillant sa trajectoire sur la planète Qianhuan.
 
 Wang Lin s'assit en position du lotus au sein de ce rayon de lumière. Pendant que Sun Xi cultivait, Wang Lin avait mis son plan fou en œuvre. Son regard était d'une froideur extrême alors qu'il scrutait l'horizon.
 
-« La famille Huan réside sur la planète Mille Illusions depuis de nombreuses années. Son pouvoir est extrêmement complexe et profondément ancré. Cependant, je ne pense pas qu'il y ait beaucoup de cultivateurs au deuxième stade dans cette famille. Je crains qu'il n'y en ait qu'un seul pour le moment. Après tout, les cultivateurs du second stade sont d'une rareté absolue. Si cet ancêtre Huan est déterminé à protéger Liu Mei, il recevra certainement de l'aide. La famille Huan n'est qu'une des puissances de cette planète. »
+« La famille Huan réside sur la planète Qianhuan depuis de nombreuses années. Son pouvoir est extrêmement complexe et profondément ancré. Cependant, je ne pense pas qu'il y ait beaucoup de cultivateurs au deuxième stade dans cette famille. Je crains qu'il n'y en ait qu'un seul pour le moment. Après tout, les cultivateurs du second stade sont d'une rareté absolue. Si cet ancêtre Huan est déterminé à protéger Liu Mei, il recevra certainement de l'aide. La famille Huan n'est qu'une des puissances de cette planète. »
 
-Sur la planète Mille Illusions, l'ancêtre de la famille Huan avait déjà ordonné à tous les membres directs de se rassembler dans la partie sud de la planète, interdisant tout départ. De plus, il avait déployé la formation de protection de la famille Huan, couvrant le sud du monde d'un écran de lumière protecteur.
+Sur la planète Qianhuan, l'ancêtre de la famille Huan avait déjà ordonné à tous les membres directs de se rassembler dans la partie sud de la planète, interdisant tout départ. De plus, il avait déployé la formation de protection de la famille Huan, couvrant le sud du monde d'un écran de lumière protecteur.
 
 Toutefois, les membres de la famille étaient trop nombreux pour être tous rappelés en si peu de temps. L'ancêtre, inquiet, avait envoyé une légion de cultivateurs seniors pour ramener les troupes au siège familial.
 
-Il existait trois grandes familles de culture sur la planète Mille Illusions: Qian, Huan et Xu. Parmi elles, la famille Qian était la plus puissante, suivie par la famille Huan, la famille Xu arrivant en troisième position.
+Il existait trois grandes familles de culture sur la planète Qianhuan: Qian, Huan et Xu. Parmi elles, la famille Qian était la plus puissante, suivie par la famille Huan, la famille Xu arrivant en troisième position.
 
-La famille Qian comptait trois cultivateurs au second stade. Grâce à cette puissance immense, ils étaient les suzerains de la planète Mille Illusions, contrôlant les régions nord et est. Quant à la famille Huan, elle ne comptait que deux cultivateurs au second stade. L'un d'eux était mort il y a des millénaires lors de l'ouverture du Royaume Céleste du Tonnerre; l'autre était l'ancêtre actuel.
+La famille Qian comptait trois cultivateurs au second stade. Grâce à cette puissance immense, ils étaient les suzerains de la planète Qianhuan, contrôlant les régions nord et est. Quant à la famille Huan, elle ne comptait que deux cultivateurs au second stade. L'un d'eux était mort il y a des millénaires lors de l'ouverture du Royaume Céleste du Tonnerre; l'autre était l'ancêtre actuel.
 
 En termes de force pure, la famille Huan n'était plus assez puissante pour occuper la deuxième place. Cependant, sa lignée remontait à un être céleste du Royaume Céleste du Tonnerre. La rumeur voulait qu'avant l'effondrement de ce royaume, cet être céleste ait laissé un trésor d'héritage et un jade de protection familiale au siège de la famille. Ce jade contenait un sortilège divin, permettant à la lignée Huan de maintenir son rang malgré les longues absences de ses ancêtres.
 

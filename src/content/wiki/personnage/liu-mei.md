@@ -22,7 +22,7 @@ sections: ["{\"heading\":\"Background\",\"body\":\"La Sainte du Vide Brillante, 
 - **Âge:** 1 000+
 - **Genre:** Femme
 - **Espèce:** Humaine
-- **Lignée:** Planète Mille Illusions de l'Allheaven, Lignée de la Famille Huan
+- **Lignée:** Planète Qianhuan de l'Allheaven, Lignée de la Famille Huan
 - **Niveau de cultivation:** Transformation de l'Âme (milieu, début), Yin Illusoire
 - **Vrai corps:** Mu Bingmei
 - **Fils:** Wang Ping

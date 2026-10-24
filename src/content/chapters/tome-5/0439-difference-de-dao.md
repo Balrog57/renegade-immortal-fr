@@ -14,7 +14,7 @@ Ce garçon était Situ Nan. Après avoir possédé ce corps, il avait réduit so
 
 Situ Nan roula des yeux et dit: « Tu es trop ennuyeux. Tout ce que tu fais, c'est cultiver, cultiver. Mais quel est l'intérêt de la culture?! Sais-tu pourquoi ce vieux a commencé à cultiver? »
 
-« Laisse-moi te dire, ce vieux cultive pour posséder toutes les beautés du monde, pour dérober tous les trésors du monde et pour me débarrasser de quiconque ne me plaît pas! C'est la raison pour laquelle j'ai commencé la culture sur la planète des Quatre Saints. Sinon, avec l'ennui que représente la culture, qui s'y mettrait? »
+« Laisse-moi te dire, ce vieux cultive pour posséder toutes les beautés du monde, pour dérober tous les trésors du monde et pour me débarrasser de quiconque ne me plaît pas! C'est la raison pour laquelle j'ai commencé la culture sur la planète Sisheng. Sinon, avec l'ennui que représente la culture, qui s'y mettrait? »
 
 « Quand j'ai atteint le stade de l'Établissement des Fondations, j'ai décidé d'abandonner la culture et je me suis secrètement enfui dans un petit pays où il n'y avait presque aucun cultivateur. Je suis devenu prince là-bas; je faisais la fête chaque nuit et des femmes étaient à mon service chaque nuit. C'était ça, la vraie vie. Quiconque ne me plaisait pas était tué d'un simple sort. Dix ans, je suis resté là pendant dix ans. » Situ Nan commença à se remémorer le passé. Il regrettait clairement cette époque.
 
@@ -40,7 +40,7 @@ Wang Lin trouva le chemin de culture de Situ Nan intéressant, alors il demanda:
 
 « Ce qui s'est passé après, c'est que je me suis vengé. Je suis allé dans la secte de ce cultivateur de la Formation de l'Âme de niveau intermédiaire et je l'ai tué avant de retourner profiter de la vie. Malheureusement, cela n'a pas duré longtemps car Ye Wuyou m'a retrouvé et m'a demandé de l'accompagner dans le Royaume Céleste. Nous y sommes allés et avons amassé beaucoup de jades célestes, puis j'ai atteint le stade de la Transformation de l'Âme après être retourné en culture en vase clos. »
 
-« À l'origine, je voulais trouver un pays de culture et continuer à vivre comme un roi, car à ce moment-là, peu de gens pouvaient encore me déranger. Ce vieux ne voulait plus cultiver parce que c'était trop ennuyeux et je voulais passer le reste de ma vie à m'amuser. Mais ce vieux scélérat de Ye Wuyou a dit que si je voulais jouer, je devais jouer en dehors de la planète des Quatre Saints. Nous allions créer un pays de culture de rang 6 où je pourrais jouer comme bon me semblait. Je n'étais pas très lucide à ce moment-là, alors je suis tombé dans le piège de ce vieux voleur. »
+« À l'origine, je voulais trouver un pays de culture et continuer à vivre comme un roi, car à ce moment-là, peu de gens pouvaient encore me déranger. Ce vieux ne voulait plus cultiver parce que c'était trop ennuyeux et je voulais passer le reste de ma vie à m'amuser. Mais ce vieux scélérat de Ye Wuyou a dit que si je voulais jouer, je devais jouer en dehors de la planète Sisheng. Nous allions créer un pays de culture de rang 6 où je pourrais jouer comme bon me semblait. Je n'étais pas très lucide à ce moment-là, alors je suis tombé dans le piège de ce vieux voleur. »
 
 « Maudit soit-il! Pour ce rêve, ce vieux a cultivé sans fin et l'a suivi partout. Finalement, il est devenu le chef de toutes les sectes du pays de Suzaku et nous avons élevé ensemble un pays de culture de rang 4 pour en faire un pays de rang 6. Lui comme moi avons réussi à atteindre le stade Ascendant et cette planète de merde nous a été donnée par l'Alliance de la Culture. »
 
@@ -74,7 +74,7 @@ Puis, il avait utilisé une immense force de volonté pour élever un pays de cu
 
 Devenir un pays de culture de rang 6 et recevoir une planète de la part de l'Alliance de la Culture. Tout cela, c'était grâce à Ye Wuyou!
 
-Sans lui, le pays de Suzaku ne serait resté qu'un insignifiant pays de rang 4 sur la planète des Quatre Saints. Peut-être aurait-il déjà été détruit.
+Sans lui, le pays de Suzaku ne serait resté qu'un insignifiant pays de rang 4 sur la planète Sisheng. Peut-être aurait-il déjà été détruit.
 
 À cet instant, Situ Nan vit la même expression sur le visage de Wang Lin. Son cœur fut envahi d'émotions complexes avant qu'il ne laisse échapper un soupir et ne dise:
 

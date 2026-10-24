@@ -34,7 +34,7 @@ Parmi les crépitements de la foudre, l'onde émise par la tablette de jade fut 
 
 « J'ai effacé le sortilège de message qui était laissé sur la tablette de jade. » Wang Lin étudia attentivement les informations enregistrées dans le jade. Après un long moment, il retira son sens divin, ses yeux brillant de plus en plus intensément!
 
-« C'est bel et bien le Domaine de l'Illusion Impitoyable! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète des Mille Illusions! » Cette tablette de jade contenait la méthode de culture des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
+« C'est bel et bien le Domaine de l'Illusion Impitoyable! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète Qianhuan! » Cette tablette de jade contenait la méthode de culture des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
 
 Le seul moyen de briser ces restrictions était le lignage.
 

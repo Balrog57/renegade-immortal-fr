@@ -30,7 +30,7 @@ Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les 
 
 Le sens divin s'accumula comme un tourbillon avant de reculer dans un éclat de rire.
 
-« L'humeur de ce vieil homme est plutôt bonne, je vais donc vous accorder une chance. Remettez-moi la femme à la racine spirituelle de l'eau et cette petite fille nommée Zhao Xue. Je ne considère absolument pas deux cultivateurs Purificateur du Nirvana à moitié morts comme une menace. » Cette voix rauque tonna sur la planète Esprit d'Eau comme un éclair de tonnerre, atteignant rapidement chaque recoin du monde.
+« L'humeur de ce vieil homme est plutôt bonne, je vais donc vous accorder une chance. Remettez-moi la femme à la racine spirituelle de l'eau et cette petite fille nommée Zhao Xue. Je ne considère absolument pas deux cultivateurs Purificateur du Nirvana à moitié morts comme une menace. » Cette voix rauque tonna sur la planète Shuiling comme un éclair de tonnerre, atteignant rapidement chaque recoin du monde.
 
 Cette voix était imprégnée d'un sortilège doublé de la puissance de culture Purificateur du Nirvana de Situ Nan. Sa simple écoute força les trois frères Chen à cracher du sang et à battre en retraite une fois de plus.
 
@@ -40,17 +40,17 @@ Simultanément, le Maître Yi Xing et le Maître Yi Long sortirent précipitamme
 
 Les trois levèrent leurs jetons presque au même instant. L'un d'eux se brisa pour se transformer en une ondulation noire qui se propagea avec célérité, enveloppant la planète entière en un clin d'œil.
 
-Dès que le premier jeton vola en éclats, les deux autres suivirent. Deux nouvelles ondes se déployèrent sur toute l'étendue du monde. À cet instant, trois couches d'ondes noires protégeaient étroitement la planète Esprit d'Eau!
+Dès que le premier jeton vola en éclats, les deux autres suivirent. Deux nouvelles ondes se déployèrent sur toute l'étendue du monde. À cet instant, trois couches d'ondes noires protégeaient étroitement la planète Shuiling!
 
-Le visage de Maître Yi Chen était pâle. Il n'avait aucune certitude que ces trois couches puissent résister à l'ennemi, mais il ne céda pas à la panique. Il ricana intérieurement: « Avec le Frère Wang ici, je veux voir comment tu comptes malmener la planète Esprit d'Eau! »
+Le visage de Maître Yi Chen était pâle. Il n'avait aucune certitude que ces trois couches puissent résister à l'ennemi, mais il ne céda pas à la panique. Il ricana intérieurement: « Avec le Frère Wang ici, je veux voir comment tu comptes malmener la planète Shuiling! »
 
 « Oh? » En voyant les trois couches de lumière, une lueur froide traversa les yeux de Situ Nan. En balayant la planète de son sens divin, il repéra deux cultivateurs au stade précoce de Purificateur du Nirvana.
 
-Ces deux derniers étaient gravement blessés, mais même s'ils l'avaient été moins, cela n'aurait pas importé pour Situ Nan. Il rit et disparut de son grand lit pour réapparaître à l'extérieur de la planète Esprit d'Eau.
+Ces deux derniers étaient gravement blessés, mais même s'ils l'avaient été moins, cela n'aurait pas importé pour Situ Nan. Il rit et disparut de son grand lit pour réapparaître à l'extérieur de la planète Shuiling.
 
 « Résister, c'est bien. Plus vous résistez, plus je m'excite. Bon sang, cette fois, ce sont des concubines et des fours de culture que je vais chercher pour mon frère, pas pour moi! Je suis du côté de la justice! »
 
-Les yeux de Situ Nan brillèrent d'une lueur étrange alors qu'il fondait sur la planète Esprit d'Eau. Soudain, il pointa son index droit vers l'avant!
+Les yeux de Situ Nan brillèrent d'une lueur étrange alors qu'il fondait sur la planète Shuiling. Soudain, il pointa son index droit vers l'avant!
 
 « Annihilation! »
 
@@ -58,7 +58,7 @@ Un vortex apparut au bout du doigt de Situ Nan, et des sons d'explosion résonn�
 
 « Lors de ma dernière retraite, j'ai affiné le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers. De plus, j'ai perfectionné trois autres techniques de doigt. Je peux briser cette simple formation de protection planétaire en quelques respirations à peine! » Les yeux de Situ Nan s'illuminèrent alors qu'il pointait impitoyablement vers l'avant.
 
-Le vortex fonça vers la formation entourant la planète Esprit d'Eau. Il la rejoignit instantanément et percuta la première couche.
+Le vortex fonça vers la formation entourant la planète Shuiling. Il la rejoignit instantanément et percuta la première couche.
 
 Un fracas assourdissant retentit lors de la collision entre le vortex et la lumière noire. L'onde de choc se propagea violemment, repoussant tout sur son passage. Situ Nan ne fut pas affecté, mais toutes les cultivatrices derrière lui durent reculer.
 
@@ -94,9 +94,9 @@ Le vortex ne s'arrêta pas et percuta directement la dernière couche d'ondes no
 
 Au contact de cette ultime barrière, celle-ci s'effondra. Les trois couches de la formation de protection planétaire venaient d'être anéanties ainsi!
 
-Le vortex chargea la planète Esprit d'Eau. Tout en laissant échapper un rire arrogant, Situ Nan hurla: « Ce vieil homme est ici pour trouver une concubine à mon frère. Je détruirai quiconque osera se mettre en travers de mon chemin! »
+Le vortex chargea la planète Shuiling. Tout en laissant échapper un rire arrogant, Situ Nan hurla: « Ce vieil homme est ici pour trouver une concubine à mon frère. Je détruirai quiconque osera se mettre en travers de mon chemin! »
 
-Dès que Situ Nan et son vortex apparurent au-dessus de la planète Esprit d'Eau, les trois frères Chen crachèrent du sang une fois de plus. La formation de protection étant liée à leur propre essence, ils furent contraints de reculer.
+Dès que Situ Nan et son vortex apparurent au-dessus de la planète Shuiling, les trois frères Chen crachèrent du sang une fois de plus. La formation de protection étant liée à leur propre essence, ils furent contraints de reculer.
 
 Derrière Situ Nan, les cultivatrices du Palais Rose suivirent rapidement, remplissant le ciel. Le parfum qu'elles dégageaient était suffisant pour enivrer les esprits. L'homme d'âge mûr vêtu de bleu arriva également, le visage exalté. Il fixa les trois frères Chen d'un regard haineux et pensa: « Même vous trois vieux débris pouvez connaître une telle journée! »
 

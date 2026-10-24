@@ -70,7 +70,7 @@ Ce trésor l'avait accompagné durant une très longue période, mais en fin de 
 
 Ce symbole était extrêmement complexe, et chaque trait dégageait une aura ancienne. Sous le regard attentif de Wang Lin, ce symbole prit progressivement forme.
 
-L'aura ancienne devint extrêmement dense à cet instant. L'aura que le démon dispersé dégageait lorsqu'il avait pris possession du corps de Wang Lin pour extraire l'âme de la planète Mille Illusions ne pouvait en aucun cas lui être comparée.
+L'aura ancienne devint extrêmement dense à cet instant. L'aura que le démon dispersé dégageait lorsqu'il avait pris possession du corps de Wang Lin pour extraire l'âme de la planète Qianhuan ne pouvait en aucun cas lui être comparée.
 
 À mesure que l'aura ancienne se propageait, la planète entière en fut affectée. Toute la vitalité de la planète fut progressivement réprimée et des fissures apparurent partout, la terre se réduisant peu à peu en poussière.
 

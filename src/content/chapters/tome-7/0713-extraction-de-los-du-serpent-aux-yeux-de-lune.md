@@ -110,7 +110,7 @@ La puissance mystérieuse du Fruit d'Ascension Céleste semblait former un océa
 
 Le sol trembla violemment et une aura d'excitation intense émana de la terre. Tous les tentacules semblèrent perdre leur agressivité et commencèrent à onduler lentement, comme s'ils étaient ivres.
 
-Si la culture de Wang Lin avait été insuffisante ou s'il n'avait pas vécu l'expérience du Démon Dispersé contrôlant son corps pour extraire l'âme de la Planète des Mille Illusions, il n'aurait ressenti que le tremblement de terre et non ce sentiment d'exaltation émanant de l'âme du Serpent aux yeux de lune.
+Si la culture de Wang Lin avait été insuffisante ou s'il n'avait pas vécu l'expérience du Démon Dispersé contrôlant son corps pour extraire l'âme de la Planète Qianhuan, il n'aurait ressenti que le tremblement de terre et non ce sentiment d'exaltation émanant de l'âme du Serpent aux yeux de lune.
 
 Les yeux de Wang Lin s'illuminèrent. Sans hésiter, il déploya ses bras et toucha les deux côtés de la fissure osseuse. C'était comme s'il les unissait à son propre corps.
 

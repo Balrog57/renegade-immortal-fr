@@ -100,7 +100,7 @@ Du Tian leva les yeux vers le ciel et déclara calmement: « Les circonstances o
 
 Wang Lin réfléchissait en silence.
 
-« Devenir un pays de culture de rang 6 était le rêve de notre ancêtre fondateur, et le rêve de chaque génération de la Secte de l'Affinement de l'Âme. Bien avant qu'un seul cultivateur ne foule la planète Suzaku, à l'époque où le pays Suzaku n'était qu'un pays de culture de rang 5 sur la planète des Quatre Saints, les six sectes travaillèrent de concert. Par une lutte acharnée, nous avons atteint le rang 6 et nous sommes affranchis de la planète des Quatre Saints. C'est alors que l'Alliance de Culture nous a octroyé la planète Suzaku. »
+« Devenir un pays de culture de rang 6 était le rêve de notre ancêtre fondateur, et le rêve de chaque génération de la Secte de l'Affinement de l'Âme. Bien avant qu'un seul cultivateur ne foule la planète Suzaku, à l'époque où le pays Suzaku n'était qu'un pays de culture de rang 5 sur la planète Sisheng, les six sectes travaillèrent de concert. Par une lutte acharnée, nous avons atteint le rang 6 et nous sommes affranchis de la planète Sisheng. C'est alors que l'Alliance de Culture nous a octroyé la planète Suzaku. »
 
 « À cette époque, ma Secte de l'Affinement de l'Âme comptait trois cultivateurs Ascendants. Les cinq autres sectes en possédaient également plusieurs. Le pays Suzaku était si puissant, mais notre arrivée ici ne fut pas sans heurts. Une autre race occupait déjà les lieux, utilisant le pouvoir des tatouages, et elle était extrêmement puissante. »
 

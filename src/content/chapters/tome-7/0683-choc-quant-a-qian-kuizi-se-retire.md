@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 683 - Shocking Qian Kuizi Into Retreat
 slug: choc-quant-a-qian-kuizi-se-retire
 ---
-Qian Kuizi était l'un des trois ancêtres de la famille Qian. Il avait cultivé pendant plus de dix mille ans et avait été l'ami de l'ancêtre de la famille Huan dans leur jeunesse; leur relation était donc étroite. Il s'élança sur un rayon de lumière pour quitter la planète Mille Illusions. Assis parmi les étoiles, il contemplait froidement le lointain, dans l'attente.
+Qian Kuizi était l'un des trois ancêtres de la famille Qian. Il avait cultivé pendant plus de dix mille ans et avait été l'ami de l'ancêtre de la famille Huan dans leur jeunesse; leur relation était donc étroite. Il s'élança sur un rayon de lumière pour quitter la planète Qianhuan. Assis parmi les étoiles, il contemplait froidement le lointain, dans l'attente.
 
 Il ne représentait pas la famille Qian lors de ce voyage, mais aidait l'ancêtre de la famille Huan à titre personnel. Cependant, il n'agissait pas gratuitement, car il avait la convoitise de l'un des trésors de la famille Huan.
 
@@ -16,7 +16,7 @@ Il ne représentait pas la famille Qian lors de ce voyage, mais aidait l'ancêtr
 
 Une fois sa décision prise, Qian Kuizi ferma les yeux et resta immobile parmi les étoiles.
 
-Quelques jours plus tard, un rayon de lumière argentée fonça vers la planète tel une météorite. Debout sur cette lueur argentée, Wang Lin fixait froidement la lointaine planète Mille Illusions qui émettait divers éclats brillants.
+Quelques jours plus tard, un rayon de lumière argentée fonça vers la planète tel une météorite. Debout sur cette lueur argentée, Wang Lin fixait froidement la lointaine planète Qianhuan qui émettait divers éclats brillants.
 
 Il était venu avec une intention meurtrière, et quiconque oserait se mettre en travers de son chemin deviendrait son ennemi!
 
@@ -104,7 +104,7 @@ Après une courte hésitation, Qian Kuizi eut un sourire forcé. « Jeune ami, j
 
 Qian Kuizi fut surpris: « Votre Temple Céleste du Tonnerre manque encore de jades célestes? Soit, je te les donnerai! » Il sourit amèrement intérieurement, pensant que c'était là le prix de sa cupidité. On ne provoquait pas les gens du Temple Céleste du Tonnerre. Même en ignorant le fait que chacun d'eux possédait un sortilège de protection vitale, s'il tuait cet individu, il n'y aurait plus une seule place dans tout le Système Stellaire de Luotian pour que sa famille Qian puisse exister!
 
-« Si ce garçon veut des jades célestes, je parie qu'il en veut une quantité astronomique. Il n'a pas précisé le nombre, il compte donc sur moi pour décider... » Qian Kuizi serra les dents et sortit un sac de rangement. Le cœur lourd, il lança le sac à Wang Lin, le salua brièvement, puis fit volte-face pour s'envoler vers la planète Mille Illusions.
+« Si ce garçon veut des jades célestes, je parie qu'il en veut une quantité astronomique. Il n'a pas précisé le nombre, il compte donc sur moi pour décider... » Qian Kuizi serra les dents et sortit un sac de rangement. Le cœur lourd, il lança le sac à Wang Lin, le salua brièvement, puis fit volte-face pour s'envoler vers la planète Qianhuan.
 
 Son expression était extrêmement sombre lorsqu'il pénétra sur la planète. Dès son arrivée, il déploya son Sens Divin pour envelopper tout le territoire de la famille Huan et envoya un message divin sinistre:
 

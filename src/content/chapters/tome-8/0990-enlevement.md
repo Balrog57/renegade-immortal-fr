@@ -46,7 +46,7 @@ La femme morte s'effondra, se retrouvant à moitié assise sur le sol. Wang Lin 
 
 Wang Lin ferma les yeux, ses mains continuant de tracer des restrictions qui pénétraient le corps de la femme morte.
 
-Le temps passa lentement. Les jours et les nuits se succédèrent, et plus d'un demi-mois s'écoula. Wang Lin avait passé trois mois sur la planète Esprit d'Eau. Durant cette période, hormis ses moments de méditation au sommet, il s'était consacré au raffinage de la femme morte.
+Le temps passa lentement. Les jours et les nuits se succédèrent, et plus d'un demi-mois s'écoula. Wang Lin avait passé trois mois sur la planète Shuiling. Durant cette période, hormis ses moments de méditation au sommet, il s'était consacré au raffinage de la femme morte.
 
 Le processus de raffinage était extrêmement complexe et exigeait toute sa concentration. En conséquence, Wang Lin ne sortit jamais, se contentant de former des sceaux à intervalles réguliers.
 
@@ -54,7 +54,7 @@ Le processus de raffinage était extrêmement complexe et exigeait toute sa conc
 
 Son expression était désormais paisible, le ressentiment passé ayant disparu. Si quelqu'un l'avait vue ainsi, il lui aurait été difficile d'imaginer sa véritable identité. Peu importe le regard porté sur elle, elle n'était qu'une magnifique cultivatrice.
 
-Pendant que Wang Lin séjournait sur la planète Esprit d'Eau, un événement d'une importance non négligeable se produisait sur la planète Tian Yun. Un puissant cultivateur nommé Situ Nan s'était fait un nom sur la planète Tian Yun et était devenu le Seigneur du Palais Rose.
+Pendant que Wang Lin séjournait sur la planète Shuiling, un événement d'une importance non négligeable se produisait sur la planète Tian Yun. Un puissant cultivateur nommé Situ Nan s'était fait un nom sur la planète Tian Yun et était devenu le Seigneur du Palais Rose.
 
 Cependant, sa réputation n'était guère exemplaire.
 
@@ -66,11 +66,11 @@ Toutefois, cet homme était jugé digne de confiance car toutes les disciples en
 
 Ainsi, de plus en plus de femmes rejoignaient le Palais Rose, et l'on pouvait dire que le nom de Situ Nan s'était répandu sur toute la planète Tian Yun.
 
-Il avait appris par des sources anonymes que les trois frères Chen possédaient deux disciples d'une beauté époustouflante. L'une possédait une racine spirituelle aquatique et l'autre était d'une froideur glaciale. Cela fit frémir le cœur de Situ Nan qui, après avoir mûrement réfléchi, entreprit de mener un grand groupe de cultivatrices vers la planète Esprit d'Eau, guidé par un subalterne.
+Il avait appris par des sources anonymes que les trois frères Chen possédaient deux disciples d'une beauté époustouflante. L'une possédait une racine spirituelle aquatique et l'autre était d'une froideur glaciale. Cela fit frémir le cœur de Situ Nan qui, après avoir mûrement réfléchi, entreprit de mener un grand groupe de cultivatrices vers la planète Shuiling, guidé par un subalterne.
 
 Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un immense lit de jade blanc de plusieurs dizaines de mètres de long. Situ Nan y était allongé, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
 
-Plusieurs centaines de femmes entouraient ce lit alors qu'elles progressaient vers la planète Esprit d'Eau.
+Plusieurs centaines de femmes entouraient ce lit alors qu'elles progressaient vers la planète Shuiling.
 
 Un homme d'âge moyen, vêtu de bleu, se tenait devant Situ Nan. Beau mais au regard malveillant, il flattait son maître: « Senior Situ, je vous garantis que ces deux cultivatrices sont de qualité supérieure. Zhao Xue est une beauté sans égale, et celle nommée Ling Er possède une racine spirituelle aquatique, ce qui fera d'elle un excellent réceptacle de culture! »
 
@@ -80,7 +80,7 @@ Les yeux de l'homme s'illuminèrent de joie. Il exprima ses remerciements avec u
 
 L'homme d'âge moyen ricana intérieurement: « Zhao Xue, peu importe ton arrogance, je veux voir si tu obéiras ou non en présence de Senior Situ! Et Ling Er ne pourra pas non plus s'échapper! »
 
-Situ Nan observa l'homme. Bien qu'il paraisse joyeux, il devinait exactement ses pensées. Avec sa ruse habituelle, il comprit immédiatement qu'une rancune liait cet homme aux deux femmes de la planète Esprit d'Eau.
+Situ Nan observa l'homme. Bien qu'il paraisse joyeux, il devinait exactement ses pensées. Avec sa ruse habituelle, il comprit immédiatement qu'une rancune liait cet homme aux deux femmes de la planète Shuiling.
 
 Cependant, cela importait peu à Situ Nan.
 
@@ -104,8 +104,8 @@ Par conséquent, Wang Lin ne s'éloignerait pas et réapparaîtrait sous peu.
 
 Sans aucune inquiétude, Situ Nan décida de s'amuser un peu pour dissiper le stress accumulé sur la planète Feng Luan.
 
-Ce jour-là, guidé par l'homme en bleu, Situ Nan, entouré de centaines de femmes, aperçut la planète Esprit d'Eau au loin!
+Ce jour-là, guidé par l'homme en bleu, Situ Nan, entouré de centaines de femmes, aperçut la planète Shuiling au loin!
 
-« Hehe, je suis vraiment loyal de venir jusqu'ici pour choisir des concubines au petit Lin. Je me demande quelle expression il fera quand il s'en rendra compte! » En contemplant la planète Esprit d'Eau, Situ Nan éclata de rire.
+« Hehe, je suis vraiment loyal de venir jusqu'ici pour choisir des concubines au petit Lin. Je me demande quelle expression il fera quand il s'en rendra compte! » En contemplant la planète Shuiling, Situ Nan éclata de rire.
 
 Ce rire soudain fut interprété par l'homme d'âge moyen et toutes les cultivatrices environnantes comme un ricanement érotique.

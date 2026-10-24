@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 710 - Attachment
 slug: attachement
 ---
-Les cinq planètes majeures du domaine nordique du Système Stellaire de Luotian possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Après avoir obtenu les Fruits d'Ascension Céleste de la famille Huan sur la planète Mille Illusions, Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
+Les cinq planètes majeures du domaine nordique du Système Stellaire de Luotian possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Après avoir obtenu les Fruits d'Ascension Céleste de la famille Huan sur la planète Qianhuan, Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
 
-Les cultivateurs du second niveau de la famille Qian étaient entrés en retraite de culture depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Mille Illusions, Qian Kuizi le remarqua instantanément.
+Les cultivateurs du second niveau de la famille Qian étaient entrés en retraite de culture depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Qianhuan, Qian Kuizi le remarqua instantanément.
 
 En voyant arriver Wang Lin sur la Bête du Tonnerre, il fut convaincu que les propos de l'ancêtre de la famille Huan étaient absurdes. Cet homme était, sans l'ombre d'un doute, un messager du Temple Céleste du Tonnerre.
 
@@ -20,7 +20,7 @@ En songeant aux puissants trésors et sorts que cet individu avait démontrés s
 
 Tandis que Qian Kuizi tergiversait, Wang Lin se dirigea vers la cité de la famille Qian sur la Bête du Tonnerre.
 
-La ville de la famille Qian était immense, plusieurs fois plus vaste que celle de la famille Huan. Après tout, la famille Qian était la première puissance de la planète Mille Illusions.
+La ville de la famille Qian était immense, plusieurs fois plus vaste que celle de la famille Huan. Après tout, la famille Qian était la première puissance de la planète Qianhuan.
 
 Qian Kuizi et quelques cultivateurs de la famille sortirent rapidement pour accueillir Wang Lin.
 
@@ -90,9 +90,9 @@ Wang Lin les scruta de son sens divin avant d'acquiescer. La quantité de fruits
 
 Qian Kuizi regarda l'éclair s'éloigner avec regret. S'il avait été plus décisif et avait obtenu ce soutien...
 
-Wang Lin n'avait récolté qu'un cinquième des Fruits d'Ascension Céleste dont il avait besoin; le chemin était encore long. Au cours des cent dernières années, la planète Mille Illusions avait beaucoup changé. La famille Xu, elle, avait mystérieusement migré.
+Wang Lin n'avait récolté qu'un cinquième des Fruits d'Ascension Céleste dont il avait besoin; le chemin était encore long. Au cours des cent dernières années, la planète Qianhuan avait beaucoup changé. La famille Xu, elle, avait mystérieusement migré.
 
-Après avoir quitté la planète Mille Illusions, Wang Lin parcourut le domaine nordique durant les mois suivants, empruntant l'identité d'un messager du Temple Céleste du Tonnerre. Peu importe la taille de la planète de culture, il s'y présentait.
+Après avoir quitté la planète Qianhuan, Wang Lin parcourut le domaine nordique durant les mois suivants, empruntant l'identité d'un messager du Temple Céleste du Tonnerre. Peu importe la taille de la planète de culture, il s'y présentait.
 
 Une rumeur selon laquelle un messager du Temple Céleste du Tonnerre réclamait des Fruits d'Ascension Céleste se répandit rapidement. Cependant, Wang Lin l'étouffa promptement en utilisant son statut officiel; la rumeur ne circula que parmi les familles de cultivateurs.
 

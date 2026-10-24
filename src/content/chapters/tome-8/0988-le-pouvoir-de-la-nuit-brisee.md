@@ -38,7 +38,7 @@ Cette boule d'énergie jaillit comme un éclair vers le soleil flamboyant!
 
 La sphère d'énergie était extrêmement rapide et fonça droit sur le soleil. À mesure qu'elle approchait, une force colossale jaillit du disque solaire et percuta sans pitié la boule d'énergie originelle.
 
-Un grondement de tonnerre résonna à travers le monde. Ce fracas se propagea même dans l'espace entourant la planète Esprit d'Eau, faisant apparaître de vastes fissures sur sa surface.
+Un grondement de tonnerre résonna à travers le monde. Ce fracas se propagea même dans l'espace entourant la planète Shuiling, faisant apparaître de vastes fissures sur sa surface.
 
 La sphère d'énergie s'effondra!
 

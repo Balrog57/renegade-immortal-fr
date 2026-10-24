@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 860 - I Want First Place
 slug: je-veux-la-première-place
 ---
-Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 50000 kilomètres de la planète Terre Flamme. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la Déformation Spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui!
+Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 50000 kilomètres de la planète Diyan. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la Déformation Spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui!
 
 À chacun de ses pas, son cœur s'apaisait et son regard devenait d'une tranquillité terrifiante. Une intention de combat croissait en lui à chaque foulée alors qu'il progressait avec détermination, de plus en plus tranchante et tendue droit vers l'avant!
 
@@ -38,9 +38,9 @@ Il y avait aussi l'accord conclu avec Qing Shui. Wang Lin ne se permettrait jama
 
 Porté par cette conviction inébranlable et cette intention de combat invincible, l'énergie originelle de Wang Lin circulait avec frénésie. La tempête derrière lui s'amplifia et les poissons yin et yang tournèrent encore plus vite!
 
-Cette puissante intention de combat se propagea sauvagement, résonnant dans un rayon de 10 000 kilomètres autour de la planète Terre Flamme! Wang Lin avançait pas après pas, sa vitesse augmentant de façon exponentielle. Il devint plusieurs fois plus rapide que le tonnerre, qu'une météorite, et même qu'un rayon de lumière!
+Cette puissante intention de combat se propagea sauvagement, résonnant dans un rayon de 10 000 kilomètres autour de la planète Diyan! Wang Lin avançait pas après pas, sa vitesse augmentant de façon exponentielle. Il devint plusieurs fois plus rapide que le tonnerre, qu'une météorite, et même qu'un rayon de lumière!
 
-À cette allure, Wang Lin chargea directement dans une zone située à 15 000 kilomètres de la planète Terre Flamme!
+À cette allure, Wang Lin chargea directement dans une zone située à 15 000 kilomètres de la planète Diyan!
 
 À cet instant, les deux cultivateurs qui se livraient bataille sous la barrière lumineuse de la planète pâlirent immédiatement, envahis par la terreur; ils en oublièrent même de s'entretuer. Ils tournèrent la tête vers la source de cette effroi!
 

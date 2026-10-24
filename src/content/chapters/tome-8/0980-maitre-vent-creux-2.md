@@ -82,7 +82,7 @@ Chen Feng hocha la tête et ne perdit plus de temps en paroles avant de s'asseoi
 
 Tout au long du voyage, ils restèrent silencieux. Bientôt, une planète bleue apparut devant eux. Cette planète était magnifique et dégageait une riche aura d'énergie spirituelle.
 
-« C'est la planète Esprit de l'Eau, elle appartient aux trois frères Chen. On dit que la planète a été nommée d'après une jeune fille de la descendance du Maître Yi Chen », dit Chen Feng en ouvrant les yeux. Une trace d'intention malveillante brillait dans son regard.
+« C'est la planète Shuiling, elle appartient aux trois frères Chen. On dit que la planète a été nommée d'après une jeune fille de la descendance du Maître Yi Chen », dit Chen Feng en ouvrant les yeux. Une trace d'intention malveillante brillait dans son regard.
 
 Il avait été très attiré par cette femme au corps d'esprit de l'eau. S'il n'avait pas craint la personne qui protégeait les trois frères Chen, il l'aurait déjà prise pour en faire son fourneau de culture.
 
@@ -114,7 +114,7 @@ Bien que Chen Feng soit devenu beaucoup plus svelte, les trois le reconnurent im
 
 Pendant un instant, les trois ne purent s'empêcher de réfléchir en silence.
 
-Chen Feng eut un sourire malicieux et dit: « Frères Chen, que diriez-vous de céder la planète Esprit de l'Eau à ce vieil homme! »
+Chen Feng eut un sourire malicieux et dit: « Frères Chen, que diriez-vous de céder la planète Shuiling à ce vieil homme! »
 
 Les expressions des frères Chen changèrent et ils s'apprêtèrent à parler quand Wang Lin trancha calmement: « Trop bruyant! »
 
@@ -132,6 +132,6 @@ Le Maître Yi Chen joignit les mains et dit: « Camarade cultivateur Wang, j'ign
 
 Il ignorait que ses paroles furent comme des dizaines de milliers d'éclairs explosant simultanément dans les oreilles des frères Chen. Les trois restèrent bouche bée, le choc illuminant leurs yeux!
 
-Le Maître Yi Chen s'exclama rapidement sans hésitation: « Frère Wang Lin, ne partez pas si vite. La planète Esprit de l'Eau est immense. Si le frère Wang n'y voit aucun inconvénient, vous pouvez y cultiver! »
+Le Maître Yi Chen s'exclama rapidement sans hésitation: « Frère Wang Lin, ne partez pas si vite. La planète Shuiling est immense. Si le frère Wang n'y voit aucun inconvénient, vous pouvez y cultiver! »
 
 « Cet homme a un membre du Clan des Démons Géants comme monture, est un cultivateur Purificateur du Nirvana et a fait du célèbre Maître Fu Fengzi son serviteur. Il y a aussi ce cultivateur à la tête étrange qui est au stade Scruteur du Nirvana, et sa marionnette n'est manifestement pas faible. Je dois absolument me lier d'amitié avec une telle personne! »

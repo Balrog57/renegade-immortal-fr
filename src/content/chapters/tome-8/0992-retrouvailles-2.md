@@ -106,6 +106,6 @@ Des montagnes apparurent autour de lui; il y en avait des centaines, voire des m
 
 Alors qu'il pointait le doigt, ces âmes de montagne dégageaient des auras ancestrales qui se rassemblèrent promptement! Elles se condensèrent en une force colossale qui fonça vers Wang Lin.
 
-Ce doigt était la technique la plus puissante, née de la fusion de toutes les âmes de montagne de la planète Esprit d'Eau!
+Ce doigt était la technique la plus puissante, née de la fusion de toutes les âmes de montagne de la planète Shuiling!
 
 La puissance de ce Doigt du Tremblement de Montagne fit briller une lueur mystérieuse dans les yeux de Wang Lin. Il serra le poing et le ciel gronda, comme si Wang Lin tenait la voûte céleste entre ses mains.

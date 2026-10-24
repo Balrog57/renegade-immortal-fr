@@ -40,7 +40,7 @@ Le Dieu Ancien leva son index et pointa vers le bas. Une vague déferlante de pu
 
 Soudain, Ling Er fut prise d'un vertige et s'effondra, perdant connaissance.
 
-L'illusion se dissipa. Le ciel était toujours celui de la planète Esprit d'Eau et le sommet demeurait enveloppé de brume. On entendait par intermittence le fracas des vagues. Rien n'avait changé, si ce n'est que Ling Er s'était évanouie, tout comme dans l'illusion.
+L'illusion se dissipa. Le ciel était toujours celui de la planète Shuiling et le sommet demeurait enveloppé de brume. On entendait par intermittence le fracas des vagues. Rien n'avait changé, si ce n'est que Ling Er s'était évanouie, tout comme dans l'illusion.
 
 Wang Lin se tenait non loin de là, le regard empreint de confusion.
 

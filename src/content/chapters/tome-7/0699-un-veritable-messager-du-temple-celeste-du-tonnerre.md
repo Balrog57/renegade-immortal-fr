@@ -122,7 +122,7 @@ L'éclair fonçait à une vitesse prodigieuse vers le domaine nord du Système S
 
 Son objectif était limpide: la planète Ran Yun, dans le domaine nord!
 
-Soixante-dix ans auparavant, un bouleversement avait eu lieu sur la planète Mille Illusions. L'ancêtre de la famille Huan, qui se trouvait au deuxième stade, était mort, et l'on soupçonnait qu'un messager du Temple Céleste du Tonnerre était derrière ce fait. Cette rumeur s'était propagée, attirant l'attention du Temple Céleste du Tonnerre.
+Soixante-dix ans auparavant, un bouleversement avait eu lieu sur la planète Qianhuan. L'ancêtre de la famille Huan, qui se trouvait au deuxième stade, était mort, et l'on soupçonnait qu'un messager du Temple Céleste du Tonnerre était derrière ce fait. Cette rumeur s'était propagée, attirant l'attention du Temple Céleste du Tonnerre.
 
 D'après les investigations, il semblait que le messager suspect n'avait pas quitté la planète Ran Yun; il avait donc été envoyé ici pour vérifier.
 

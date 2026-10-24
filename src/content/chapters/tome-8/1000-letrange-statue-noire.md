@@ -23,7 +23,7 @@ Par ailleurs, Wang Lin prit une décision majeure. Après avoir mis en place de 
 
 Le Pavillon des Trésors était scellé à l'intérieur même du corps de Wang Lin. Il pouvait y accéder d'une simple pensée, il n'était donc pas nécessaire de le sortir. Depuis qu'il l'avait obtenu, il ne l'avait sorti qu'une seule fois!
 
-C'était juste avant de venir ici. Il avait installé une quantité massive de restrictions sur la planète Esprit d'Eau avant de l'ouvrir! Tout cela pour offrir une fortune à Situ Nan!
+C'était juste avant de venir ici. Il avait installé une quantité massive de restrictions sur la planète Shuiling avant de l'ouvrir! Tout cela pour offrir une fortune à Situ Nan!
 
 En ce jour, Wang Lin se souvenait encore de l'expression stupéfaite de Situ Nan lorsqu'il avait réalisé ce qu'était le Pavillon des Trésors et ce qu'il représentait dans le Royaume Céleste. Un tel visage était extrêmement rare chez Situ Nan!
 

@@ -68,7 +68,7 @@ La main droite de la figure céleste traça un sceau et pointa vers l'avant. L'�
 
 La figure céleste retira sa main et ouvrit les bras. Chacune de ses mains portait un sceau différent. Mille Illusions frémit soudain, et une énergie spirituelle infinie convergeait vers lui depuis toute la planète. Par une méthode mystérieuse, cette énergie fut transformée en énergie spirituelle céleste.
 
-Cette énergie était si dense qu'elle semblait devenir solide, se condensant frénétiquement au-dessus de la main droite de l'entité céleste. En un clin d'œil, une faille apparut soudainement dans le cycle de l'énergie spirituelle de la planète Mille Illusions!
+Cette énergie était si dense qu'elle semblait devenir solide, se condensant frénétiquement au-dessus de la main droite de l'entité céleste. En un clin d'œil, une faille apparut soudainement dans le cycle de l'énergie spirituelle de la planète Qianhuan!
 
 À cet instant précis, Mille Illusions fut privée de toute énergie spirituelle!
 

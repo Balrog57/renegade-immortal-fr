@@ -40,7 +40,7 @@ Cependant, il savait que la troisième étape était encore bien trop lointaine;
 
 Personne ne pouvait répondre à cette question.
 
-La Bête du Tonnerre emmena Wang Lin vers la planète Mille Illusions. La planète Ran Yun était le lieu où ses souvenirs étaient scellés, et Wang Lin ne souhaitait plus y retourner.
+La Bête du Tonnerre emmena Wang Lin vers la planète Qianhuan. La planète Ran Yun était le lieu où ses souvenirs étaient scellés, et Wang Lin ne souhaitait plus y retourner.
 
 « Il est temps d'explorer ce Serpent aux yeux de lune sur la planète Yun Xia. J'ai besoin d'une grande quantité de Fruits d'Ascension Céleste, la famille Huan est donc le meilleur choix! » Wang Lin chevaucha la Bête du Tonnerre en avant. Bien que sa progression fût plus lente que celle de la boussole stellaire, elle restait très rapide.
 
@@ -50,15 +50,15 @@ La Bête du Tonnerre emmena Wang Lin vers la planète Mille Illusions. La planè
 
 « À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Culture était arrivé avec une Zibeline Marquée d'Étoiles. Cette créature est extrêmement sensible à l'aura d'un Dieu Ancien. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
 
-La Bête du Tonnerre poussa un rugissement en traversant l'espace. Une demi-lune plus tard, la planète Mille Illusions apparut aux yeux de Wang Lin. Son regard restait calme tandis que la Bête du Tonnerre fonçait vers la planète.
+La Bête du Tonnerre poussa un rugissement en traversant l'espace. Une demi-lune plus tard, la planète Qianhuan apparut aux yeux de Wang Lin. Son regard restait calme tandis que la Bête du Tonnerre fonçait vers la planète.
 
-À l'instant où il s'approcha, d'innombrables nuages de tonnerre apparurent et le grondement des foudres résonna dans le ciel. Ce phénomène attira immédiatement l'attention des cultivateurs de la planète Mille Illusions.
+À l'instant où il s'approcha, d'innombrables nuages de tonnerre apparurent et le grondement des foudres résonna dans le ciel. Ce phénomène attira immédiatement l'attention des cultivateurs de la planète Qianhuan.
 
 La Bête du Tonnerre se rapprocha et traversa directement la couche de vents violents et pénétra l'atmosphère. Alors qu'elle planait dans les airs, elle leva la tête et poussa un rugissement. Ce cri semblait contenir tout le tonnerre du monde.
 
 Le grondement fit s'agiter tous les nuages de tonnerre créés par l'arrivée de la Bête. Des éclairs descendirent du ciel, provoquant une série d'explosions.
 
-Tout comme lors de l'arrivée du Daoïste du Tonnerre sur la planète Ran Yun, chaque cultivateur de la planète Mille Illusions trembla. Leurs corps et leurs âmes furent secoués par la puissance de la foudre.
+Tout comme lors de l'arrivée du Daoïste du Tonnerre sur la planète Ran Yun, chaque cultivateur de la planète Qianhuan trembla. Leurs corps et leurs âmes furent secoués par la puissance de la foudre.
 
 Après avoir libéré le troisième sceau, la force et l'héritage acquis par la Bête du Tonnerre la rendaient non moins puissante qu'un cultivateur de l'Yin Illusoire!
 

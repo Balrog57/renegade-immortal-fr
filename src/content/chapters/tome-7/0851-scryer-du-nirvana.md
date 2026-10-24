@@ -18,7 +18,7 @@ D'un pas, Wang Lin s'éclipsa pour fusionner avec le monde. Lorsqu'il réapparut
 
 « D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur! Si quiconque ose se mettre sur mon chemin, j'activerai la rétribution divine et emprunterai leur pouvoir pour m'aider à la surmonter! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la rétribution divine à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
 
-À cet instant, il fusionna avec le monde et fonça vers le Domaine Sud. La famille Li se trouvait dans le Domaine Sud, sur la planète Annihilation.
+À cet instant, il fusionna avec le monde et fonça vers le Domaine Sud. La famille Li se trouvait dans le Domaine Sud, sur la planète Pomie.
 
 Wang Lin, fusionné avec le monde, se déplaçait à une vitesse incroyable en suivant la carte que lui avait donnée Li Yuan. Cependant, avec son niveau de culture, il ne pouvait maintenir cette fusion très longtemps. Chaque fois qu'il réapparaissait, il devait se reposer un moment.
 

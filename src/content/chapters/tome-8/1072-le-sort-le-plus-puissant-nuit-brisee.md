@@ -58,7 +58,7 @@ Derrière ces débris, un cri de l'Oiseau Vermillon, faisant trembler les cieux,
 
 Cependant, face à la crise qui le frappait, Wang Lin n'eut pas le temps de lever les yeux. Mais en reculant, il sentit une loi familière apparaître autour de lui.
 
-Cette loi était celle qu'il avait comprise en observant le lever du soleil pendant plusieurs mois depuis le sommet de la montagne de la planète Esprit d'Eau. C'était aussi la puissance de son premier sort créé par lui-même: Nuit Brisée!
+Cette loi était celle qu'il avait comprise en observant le lever du soleil pendant plusieurs mois depuis le sommet de la montagne de la planète Shuiling. C'était aussi la puissance de son premier sort créé par lui-même: Nuit Brisée!
 
 Le soleil de la mer fait naître la Nuit Brisée!
 

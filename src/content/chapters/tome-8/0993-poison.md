@@ -10,7 +10,7 @@ Tenant fermement son poing droit, Wang Lin avança et lança un coup de poing ve
 
 Un fracas assourdissant retentit entre les mondes. Une illusion du bras d'un dieu ancien apparut devant Wang Lin, comme si ce coup de poing était celui d'une divinité primordiale!
 
-Boum, boum, boum! Ce son tellurique remplaça tous les autres bruits sur la planète Esprit de l'Eau et résonna dans les oreilles de chacun.
+Boum, boum, boum! Ce son tellurique remplaça tous les autres bruits sur la planète Shuiling et résonna dans les oreilles de chacun.
 
 Le Doigt du Tremblement de Montagne de Situ Nan, qui avait rassemblé toutes les âmes des montagnes de la planète, entra en collision avec le poing de Wang Lin. Une onde de choc dévastatrice se propagea, provoquant d'énormes vagues sur l'océan!
 

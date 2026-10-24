@@ -16,7 +16,7 @@ Ils utilisaient cette compétition pour porter l'intention de bataille de tout l
 
 D'innombrables familles de cultivateurs des quatre domaines enverraient leurs représentants dans les arènes désignées. Ensuite, sous la direction d'un Messager du Temple Céleste du Tonnerre agissant comme juge, 108 personnes seraient choisies dans chaque domaine pour être envoyées au Temple Céleste du Tonnerre pour la compétition finale!
 
-Domaine Sud, l'une des trois planètes principales: la Planète Terre Flamme. L'espace situé dans un rayon de 500 kilomètres autour de la planète était enveloppé d'une lumière éclatante.
+Domaine Sud, l'une des trois planètes principales: la Planète Diyan. L'espace situé dans un rayon de 500 kilomètres autour de la planète était enveloppé d'une lumière éclatante.
 
 À 500 kilomètres de là se trouvait une zone grouillante d'innombrables cultivateurs. Le champ de bataille du Domaine Sud se trouvait ici!
 
@@ -88,17 +88,17 @@ Un rire jaillit de l'assaillant qui cessa immédiatement sa poursuite.
 
 Une ombre apparut au milieu de l'arène; c'était l'un des messagers en robe verte du Temple Céleste du Tonnerre. Il surgit dans un éclair de tonnerre, balaya la zone d'un regard et déclara calmement: « Li Ye est vainqueur! »
 
-Alors que le combat se déroulait aux abords de la Planète Terre Flamme, la silhouette de Wang Lin apparut dans le vide, à des centaines de milliers de kilomètres de là.
+Alors que le combat se déroulait aux abords de la Planète Diyan, la silhouette de Wang Lin apparut dans le vide, à des centaines de milliers de kilomètres de là.
 
 Ses yeux étaient froids alors qu'il scrutait l'horizon.
 
-« Li Yuan a dit que la compétition du Domaine Sud devait se tenir près de la Planète Terre Flamme! Chaque participant doit posséder un jeton de qualification du Domaine Sud pour prendre part aux épreuves! Sans jeton, l'entrée est interdite, et une fois la compétition lancée, toute la zone dans un rayon de 50000 kilomètres sera scellée! En cas de retard, nul ne pourra entrer! » Wang Lin laissa échapper un ricanement froid et fit un pas en avant. Des ondulations se formèrent sous ses pieds et, après une seconde enjambée, il disparut.
+« Li Yuan a dit que la compétition du Domaine Sud devait se tenir près de la Planète Diyan! Chaque participant doit posséder un jeton de qualification du Domaine Sud pour prendre part aux épreuves! Sans jeton, l'entrée est interdite, et une fois la compétition lancée, toute la zone dans un rayon de 50000 kilomètres sera scellée! En cas de retard, nul ne pourra entrer! » Wang Lin laissa échapper un ricanement froid et fit un pas en avant. Des ondulations se formèrent sous ses pieds et, après une seconde enjambée, il disparut.
 
-Dans un rayon de 50 000 kilomètres autour de la Planète Terre Flamme, des cultivateurs étaient postés à intervalles de 500 kilomètres. Ils formaient des cercles concentriques entourant la planète pour empêcher toute intrusion extérieure.
+Dans un rayon de 50 000 kilomètres autour de la Planète Diyan, des cultivateurs étaient postés à intervalles de 500 kilomètres. Ils formaient des cercles concentriques entourant la planète pour empêcher toute intrusion extérieure.
 
 Des filaments d'énergie spirituelle émanaient d'eux, formant un réseau étroitement interconnecté. Au moindre changement de position d'un individu, les autres en seraient immédiatement informés.
 
-Meng Lin était actuellement assis parmi les étoiles, le cœur bouillonnant de colère. Membre de la famille Meng de la Planète Terre Flamme, il souhaitait profiter de cette occasion pour observer les sorts célestes lors de la compétition. Cependant, on l'avait envoyé en patrouille si loin d'ici, ce qui l'irritait profondément.
+Meng Lin était actuellement assis parmi les étoiles, le cœur bouillonnant de colère. Membre de la famille Meng de la Planète Diyan, il souhaitait profiter de cette occasion pour observer les sorts célestes lors de la compétition. Cependant, on l'avait envoyé en patrouille si loin d'ici, ce qui l'irritait profondément.
 
 En pensant à la façon dont ses pairs se réjouiraient de son malheur lorsqu'ils apprendraient qu'il avait été assigné à cette garde, il devint de plus en plus morose, incapable de retrouver le calme nécessaire à sa culture.
 

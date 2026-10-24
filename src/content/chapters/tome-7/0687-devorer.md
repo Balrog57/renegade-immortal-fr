@@ -10,7 +10,7 @@ Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction
 
 La scène de l'époque l'avait profondément marqué. Un tel sort était extrêmement puissant; ce n'était pas une technique que des cultivateurs ordinaires pouvaient contrôler ou maîtriser.
 
-Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il constatait que l'ampleur de ce sort, qui condensait une griffe démoniaque pour extirper l'âme de la planète Mille Illusions, surpassait celle de Tan Lang de mille, voire dix mille fois.
+Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il constatait que l'ampleur de ce sort, qui condensait une griffe démoniaque pour extirper l'âme de la planète Qianhuan, surpassait celle de Tan Lang de mille, voire dix mille fois.
 
 Tout dans ce monde, jusqu'au moindre brin d'herbe, possède la vie, et cela signifie qu'ils possèdent une âme. Ces âmes sont insaisissables et invisibles, mais elles peuvent être clairement ressenties.
 
@@ -26,13 +26,13 @@ Cette aura ne contenait qu'un sentiment d'inclusion. Au fil des âges, elle avai
 
 Le démon dispersé, contrôlant le corps de Wang Lin, tendit sa main droite. Cette aura commença à converger dans sa paume avec une frénésie telle qu'en un clin d'œil, elle se mua en une brume grise. L'aura antique continua de fusionner avec cette brume et de se comprimer. Des détonations semblables à des coups de tonnerre jaillirent de la brume grise.
 
-C'était peut-être une illusion, mais à cet instant, Wang Lin eut l'impression que la planète Mille Illusions perdait soudainement sa vitalité. L'herbe se flétrissait, les rivières s'évaporaient et les sommets se fissuraient...
+C'était peut-être une illusion, mais à cet instant, Wang Lin eut l'impression que la planète Qianhuan perdait soudainement sa vitalité. L'herbe se flétrissait, les rivières s'évaporaient et les sommets se fissuraient...
 
-Tenant la brume grise en main, le démon dispersé laissa échapper un rire avant de charger la figure céleste. Il se déplaçait comme l'éclair, fonçant sur l'entité avec l'âme de la planète Mille Illusions.
+Tenant la brume grise en main, le démon dispersé laissa échapper un rire avant de charger la figure céleste. Il se déplaçait comme l'éclair, fonçant sur l'entité avec l'âme de la planète Qianhuan.
 
 Wang Lin sentait que son corps avait fusionné avec l'âme de la planète. Cette attaque ne reposait pas sur sa propre force, mais sur la puissance de la planète tout entière.
 
-La figure céleste fit également un pas en avant, portée par toute l'énergie spirituelle céleste transformée à partir des réserves de la planète Mille Illusions. Elle agita la main et chargea directement le démon dispersé.
+La figure céleste fit également un pas en avant, portée par toute l'énergie spirituelle céleste transformée à partir des réserves de la planète Qianhuan. Elle agita la main et chargea directement le démon dispersé.
 
 Deux sorts inimaginables se rapprochèrent jusqu'à leur collision finale.
 
@@ -50,7 +50,7 @@ Cependant, au moment de sa destruction, un rayon de lumière blanche jaillit du 
 
 Le visage de l'ancêtre de la famille Huan était livide. La famille avait transmis cet héritage: si le jade se brisait, il subsisterait un ultime sort défensif. Toutefois, ce sort était très faible. Sa seule utilité consistait à gagner un peu de temps en cas de crise pour s'enfuir, se rendre, se suicider ou laisser ses dernières volontés.
 
-La main droite du démon dispersé trembla, puis l'âme de la planète Mille Illusions disparut. L'aura antique fusionna de nouveau avec la terre avant de s'évanouir progressivement.
+La main droite du démon dispersé trembla, puis l'âme de la planète Qianhuan disparut. L'aura antique fusionna de nouveau avec la terre avant de s'évanouir progressivement.
 
 Le plus grand bénéficiaire de cette bataille était Wang Lin. Un combat impliquant de tels sorts était une expérience qu'un cultivateur de son niveau ne pourrait jamais espérer vivre; cela dépassait totalement son entendement.
 
