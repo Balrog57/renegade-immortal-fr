@@ -67,7 +67,7 @@ Hu Pao fixa Wang Lin et laissa échapper un rire sinistre. « Tu es donc digne d
 
 Wang Lin secoua légèrement la tête en observant attentivement Hu Pao: « Pour parvenir à un tel niveau de culture en une dizaine d'années, je dois admettre que même la plus bénie des filles du ciel ne pourrait égaler ton exploit.
 
-« Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Papillon Rouge par certains aspects, il est impossible d'atteindre un tel degré en une dizaine d'années. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi! Tu as dû cultiver une méthode qui stimule ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
+« Au début, j'étais perplexe. Bien que ton talent soit excellent, dépassant même celui de Hongdie par certains aspects, il est impossible d'atteindre un tel degré en une dizaine d'années. Il devrait aussi être impossible pour toi de contenir et de contrôler autant de fragments d'âmes, mais je comprends maintenant pourquoi! Tu as dû cultiver une méthode qui stimule ton potentiel et ta vie. Tu atteindras rapidement ton apogée, mais pour une période très brève. Ce sommet sera éphémère, et je crains qu'il ne dure même pas une journée... »
 
 « Tais-toi! » L'expression de Hu Pao devint féroce alors qu'il pointait le ciel. Une partie du nuage noir se détacha soudainement, se transformant en un million d'âmes. Hu Pao désigna Wang Lin et les fragments d'âme se précipitèrent vers lui.
 

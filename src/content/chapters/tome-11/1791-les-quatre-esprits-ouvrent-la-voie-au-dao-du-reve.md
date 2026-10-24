@@ -106,8 +106,8 @@ Zhou Yi acquiesça amèrement et joignit les mains vers Wang Lin. Il marcha vers
 
 Le quatrième à partir fut Qing Shui. Il s'approcha de Wang Lin et lui adressa un sourire.
 
-« Junior Frère, je t'attendrai sur le Continent Astral Immortel. Si tu trouves ma fille la première, prends soin d'elle pour moi. » Qing Shui sourit en regardant Papillon Rouge; son amour paternel était manifeste.
+« Junior Frère, je t'attendrai sur le Continent Astral Immortel. Si tu trouves ma fille la première, prends soin d'elle pour moi. » Qing Shui sourit en regardant Hongdie; son amour paternel était manifeste.
 
-Les yeux de Papillon Rouge devinrent rouges et les larmes coulèrent. Elle fit quelques pas vers la porte, comme pour dire quelque chose, mais elle se mordit la lèvre inférieure et resta silencieuse.
+Les yeux de Hongdie devinrent rouges et les larmes coulèrent. Elle fit quelques pas vers la porte, comme pour dire quelque chose, mais elle se mordit la lèvre inférieure et resta silencieuse.
 
 Elle regarda Qing Shui s'avancer vers la porte et disparaître à son tour. Les larmes ne cessaient de couler alors qu'elle se transformait en un rayon de lumière rouge, s'élançant vers la porte tel un papillon.

@@ -18,7 +18,7 @@ Wang Lin cultivait, les yeux fermés, assis sur la bête moustique. Après un lo
 
 « Mes blessures physiques vont bien, mais celles de mon âme sont problématiques. De plus, je ressens un sentiment de danger ici à Suzaku. Ce pressentiment est certainement fondé. »
 
-« Les blessures de Papillon Rouge étaient similaires aux miennes, mais elle semble avoir compris quelque chose et percera certainement après sa culture en isolation. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant notre prochaine rencontre, je crains de ne pas pouvoir me défendre contre elle. »
+« Les blessures de Hongdie étaient similaires aux miennes, mais elle semble avoir compris quelque chose et percera certainement après sa culture en isolation. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant notre prochaine rencontre, je crains de ne pas pouvoir me défendre contre elle. »
 
 Wang Lin était plongé dans ses pensées lorsque son expression changea soudainement. La moustique cessa de voler et regarda autour d'elle avec confusion.
 
@@ -40,7 +40,7 @@ Wang Lin stabilisa son corps en plein vol. Il regarda autour de lui et son visag
 
 Un homme d'âge moyen se tenait devant lui, entouré de tables, de chaises et d'un service à thé.
 
-L'homme d'âge moyen était assis sur une chaise; il saisit une tasse, en prit une gorgée et dit: « Jeune Ceng Niu, je suis Li Yuanfeng, le maître de secte de Xue Yu. Je suis venu ici pour prendre ta vie pour Papillon Rouge! »
+L'homme d'âge moyen était assis sur une chaise; il saisit une tasse, en prit une gorgée et dit: « Jeune Ceng Niu, je suis Li Yuanfeng, le maître de secte de Xue Yu. Je suis venu ici pour prendre ta vie pour Hongdie! »
 
 « Vieux monstre de la Transformation de l'Âme! » Il fut capable d'identifier le niveau de culture de l'homme d'un seul regard. Son expression s'obscurcit davantage. Sans la moindre hésitation, il tenta de déchirer une faille spatiale pour s'échapper avec la boussole stellaire.
 
@@ -84,7 +84,7 @@ Ce dernier afficha un sourire moqueur. Il intercepta l'énergie de l'épée de s
 
 « Qu'est-ce que c'est que ça? » L'homme fut quelque peu surpris; sa main droite était devenue légèrement engourdie.
 
-Wang Lin soupira à nouveau. Depuis la chute de son niveau de culture, son énergie spirituelle était chaotique. Son âme originelle était également endommagée, ce qui l'empêchait de déployer la puissance qu'il avait utilisée lors de son combat contre Papillon Rouge.
+Wang Lin soupira à nouveau. Depuis la chute de son niveau de culture, son énergie spirituelle était chaotique. Son âme originelle était également endommagée, ce qui l'empêchait de déployer la puissance qu'il avait utilisée lors de son combat contre Hongdie.
 
 Wang Lin serra les dents et fit volte-face pour tenter une nouvelle fuite.
 

@@ -16,11 +16,11 @@ Bang!
 
 Des fissures apparurent immédiatement sur le pétale, mais celui-ci ne se brisa pas. D'innombrables filaments s'en échappèrent, couvrant le ciel alors que l'objet fonçait sur Wang Lin.
 
-Le regard de Papillon Rouge devint plus glacial encore tandis qu'elle arrachait un autre pétale. Elle le lança en avant et forma un sceau de la main gauche durant sa course. Puis, elle pointa du doigt le pétale qui grandit instantanément pour devenir gigantesque, tout en continuant sa trajectoire vers Wang Lin.
+Le regard de Hongdie devint plus glacial encore tandis qu'elle arrachait un autre pétale. Elle le lança en avant et forma un sceau de la main gauche durant sa course. Puis, elle pointa du doigt le pétale qui grandit instantanément pour devenir gigantesque, tout en continuant sa trajectoire vers Wang Lin.
 
-Papillon Rouge ne s'arrêta pas là et arracha un nouveau pétale. Elle se mordit la langue et cracha une bouffée de sang. Le sang tomba sur le pétale, y faisant apparaître des motifs de sang. En un éclair, il se mua en neuf longues épées rouges d'où jaillissaient des éclats d'épée, et les neuf épées s'élancèrent frénétiquement vers Wang Lin.
+Hongdie ne s'arrêta pas là et arracha un nouveau pétale. Elle se mordit la langue et cracha une bouffée de sang. Le sang tomba sur le pétale, y faisant apparaître des motifs de sang. En un éclair, il se mua en neuf longues épées rouges d'où jaillissaient des éclats d'épée, et les neuf épées s'élancèrent frénétiquement vers Wang Lin.
 
-« Trois pétales! Ceng Niu, je veux voir si tu es capable de survivre à cela! » Papillon Rouge frappa le géant de glace sur lequel elle se tenait. Le colosse poussa un rugissement et asséna un coup de poing juste derrière les épées volantes.
+« Trois pétales! Ceng Niu, je veux voir si tu es capable de survivre à cela! » Hongdie frappa le géant de glace sur lequel elle se tenait. Le colosse poussa un rugissement et asséna un coup de poing juste derrière les épées volantes.
 
 À chaque pas du géant, une crevasse béante s'ouvrait dans le sol. D'innombrables arbres s'écroulèrent et les vibrations provoquèrent de multiples fractures dans la terre.
 
@@ -36,51 +36,51 @@ Le sceau noir vacilla avant d'être enveloppé par le pétale, se transformant e
 
 Les neuf épées rouges marquèrent un temps d'arrêt sous l'effet de l'onde, avant de poursuivre leur course vers Wang Lin.
 
-Profitant de cette brève hésitation, les deux cloches se brisèrent et leurs fragments formèrent une armure autour de lui. Il poussa un rugissement et se téléporta à nouveau, chargeant cette fois directement vers Papillon Rouge.
+Profitant de cette brève hésitation, les deux cloches se brisèrent et leurs fragments formèrent une armure autour de lui. Il poussa un rugissement et se téléporta à nouveau, chargeant cette fois directement vers Hongdie.
 
 Cependant, au moment même où il réapparut, le poing du géant de glace surgit devant lui. Ce coup était bien plus rapide que le précédent et percuta le corps de Wang Lin en un éclair.
 
 Le corps de Wang Lin fut projeté violemment. Les neuf épées le transpercèrent frénétiquement alors qu'il volait dans les airs, avant que le pétale géant ne l'enveloppe, ne laissant aucune fente.
 
-Une intention meurtrière envahit les yeux de Papillon Rouge qui hurla: « Ceng Niu, accepte ta mort! »
+Une intention meurtrière envahit les yeux de Hongdie qui hurla: « Ceng Niu, accepte ta mort! »
 
 Sa main gauche traça un sceau et pointa le pétale. Bientôt, des bruits d'explosions retentirent de l'intérieur de la fleur.
 
-Pourtant, à cet instant précis, un rayon d'énergie noire s'échappa du pétale. L'expression de Papillon Rouge changea radicalement lorsqu'un immense rayon d'énergie d'épée noire, dont la puissance semblait capable de dévaster le monde, jaillit de l'intérieur.
+Pourtant, à cet instant précis, un rayon d'énergie noire s'échappa du pétale. L'expression de Hongdie changea radicalement lorsqu'un immense rayon d'énergie d'épée noire, dont la puissance semblait capable de dévaster le monde, jaillit de l'intérieur.
 
 Le pétale fut fendu en deux et Wang Lin en sortit lentement.
 
-Le ruban qui retenait ses cheveux s'était rompu. Sa chevelure flottait dans les airs sans qu'aucun vent ne soufflât, et son regard était empreint d'une froideur intense. Il fixait Papillon Rouge comme s'il contemplait un cadavre.
+Le ruban qui retenait ses cheveux s'était rompu. Sa chevelure flottait dans les airs sans qu'aucun vent ne soufflât, et son regard était empreint d'une froideur intense. Il fixait Hongdie comme s'il contemplait un cadavre.
 
 Son armure de cloches était fissurée en de nombreux endroits et, derrière lui, les neuf épées rouges s'étaient toutes brisées.
 
-D'une voix basse, Wang Lin déclara lentement: « Papillon Rouge, la bataille ne fait que commencer. Ce qui vient de se passer n'était qu'un simple échauffement! »
+D'une voix basse, Wang Lin déclara lentement: « Hongdie, la bataille ne fait que commencer. Ce qui vient de se passer n'était qu'un simple échauffement! »
 
-Papillon Rouge fixa Wang Lin et pointa la rose dont il ne restait que six pétales. Elle s'apprêtait à lancer un sort.
+Hongdie fixa Wang Lin et pointa la rose dont il ne restait que six pétales. Elle s'apprêtait à lancer un sort.
 
-« Papillon Rouge, regarde ceci. » Wang Lin afficha un sourire inquiétant en sortant une pierre semblable à un cocon, gravée de nombreux symboles du Dao.
+« Hongdie, regarde ceci. » Wang Lin afficha un sourire inquiétant en sortant une pierre semblable à un cocon, gravée de nombreux symboles du Dao.
 
 De sa main droite, il frappa la pierre, et les symboles se mirent à briller.
 
-Le visage de Papillon Rouge pâlit tandis qu'une légère fumée noire émergeait de son front. Elle s'écria: « Ceng Niu, qu'est-ce que c'est que ça!?! »
+Le visage de Hongdie pâlit tandis qu'une légère fumée noire émergeait de son front. Elle s'écria: « Ceng Niu, qu'est-ce que c'est que ça!?! »
 
 « Ce n'est qu'un bras! » L'expression de Wang Lin resta imperturbable alors qu'il frappait la pierre. Des éclats de roche tombèrent, révélant un bras sombre et desséché.
 
-Tenant le membre dans sa main, il esquissa un sourire sinistre. « Papillon Rouge, ce bras ne te semble-t-il pas familier? »
+Tenant le membre dans sa main, il esquissa un sourire sinistre. « Hongdie, ce bras ne te semble-t-il pas familier? »
 
-Le corps de Papillon Rouge trembla tandis qu'elle fixait l'objet. Elle se tourna soudainement vers Wang Lin, la froideur de son regard atteignant son paroxysme.
+Le corps de Hongdie trembla tandis qu'elle fixait l'objet. Elle se tourna soudainement vers Wang Lin, la froideur de son regard atteignant son paroxysme.
 
 « Ceng Niu, espèce de scélérat! »
 
 Les yeux de Wang Lin brillèrent et il éclata d'un rire sonore. Puis, son regard s'assombrit brusquement: « Un scélérat? Dans le royaume céleste, il n'y avait aucune haine entre nous. Je ne t'avais jamais importunée. Pourtant, tu as tenté de me tuer à maintes reprises. Même maintenant, j'ignore toujours pourquoi tu voulais ma mort. Il n'y aurait donc que toi qui aies le droit de me tuer, et moi je ne pourrais pas résister? »
 
-Le visage de Papillon Rouge était sombre. Sans aucune hésitation, elle pointa la rose et les six pétales restants se dispersèrent.
+Le visage de Hongdie était sombre. Sans aucune hésitation, elle pointa la rose et les six pétales restants se dispersèrent.
 
 Wang Lin laissa échapper un reniflement méprisant. D'un geste vif, il frappa son sac de rangement et un drapeau noir apparut dans sa main. C'était ce drapeau qui n'attendait qu'une seule restriction de plus pour invoquer la foudre de la rétribution divine.
 
 Sa main gauche s'agita devant lui. Une restriction apparut et il l'appliqua sur le drapeau. La restriction trembla et une lumière aveuglante jaillit de l'étendard.
 
-L'expression de Papillon Rouge changea. Ses mains formèrent rapidement des sceaux tandis qu'elle entonnait un sort extrêmement complexe. Les six pétales s'envolèrent promptement pour se transformer en six femmes vêtues de rouge.
+L'expression de Hongdie changea. Ses mains formèrent rapidement des sceaux tandis qu'elle entonnait un sort extrêmement complexe. Les six pétales s'envolèrent promptement pour se transformer en six femmes vêtues de rouge.
 
 Cependant, une force puissante se dégageait du drapeau de restriction, repoussant tout sur son passage. Wang Lin se laissa porter par cette poussée et laissa le drapeau flotter dans les airs.
 
@@ -92,15 +92,15 @@ Tous ceux qui observaient le combat à l'extérieur furent frappés de stupeur. 
 
 « La Rétribution Divine! » Les yeux de Gong Sunpo s'illuminèrent.
 
-« Six retournent en un! » Papillon Rouge changea d'expression et pressa rapidement des sceaux. Les six femmes en rouge fusionnèrent avec elle, faisant apparaître derrière elle six magnifiques silhouettes rouges.
+« Six retournent en un! » Hongdie changea d'expression et pressa rapidement des sceaux. Les six femmes en rouge fusionnèrent avec elle, faisant apparaître derrière elle six magnifiques silhouettes rouges.
 
-Les nuages rouges saturaient le ciel. Wang Lin ricana et pointa le drapeau de restriction. Ce dernier se transforma instantanément en flux de gaz de restriction qui s'élancèrent vers Papillon Rouge.
+Les nuages rouges saturaient le ciel. Wang Lin ricana et pointa le drapeau de restriction. Ce dernier se transforma instantanément en flux de gaz de restriction qui s'élancèrent vers Hongdie.
 
 À ce moment précis, dans un fracas assourdissant, tous les nuages rouges convergèrent pour laisser descendre un éclair rouge. Sa cible était précisément l'endroit où se trouvaient les restrictions.
 
-Papillon Rouge recula promptement, mais Wang Lin la surveillait de près. Dès qu'elle bougea, il agita l'épée céleste et un rayon d'énergie d'épée jaillit vers elle.
+Hongdie recula promptement, mais Wang Lin la surveillait de près. Dès qu'elle bougea, il agita l'épée céleste et un rayon d'énergie d'épée jaillit vers elle.
 
-Toutefois, cette énergie n'était pas destinée à Papillon Rouge; elle percuta l'éclair rouge en pleine descente.
+Toutefois, cette énergie n'était pas destinée à Hongdie; elle percuta l'éclair rouge en pleine descente.
 
 Bang!
 
@@ -108,25 +108,25 @@ Dans une explosion retentissante, l'énergie de l'épée s'effondra. L'éclair r
 
 Profitant de cette hésitation, Wang Lin hurla: « Drapeau de restriction, disperse-toi! »
 
-Le drapeau trembla violemment alors qu'une quantité massive de gaz de restriction s'en dégageait. Le processus continua jusqu'à ce que le drapeau tombe en poussière et disparaisse. Cependant, le gaz libéré atteignit Papillon Rouge presque instantanément et l'enveloppa. Une grande partie du gaz avait également pénétré le corps du géant de glace. Bien que ce gaz ne fût pas létal, il servait de balise pour la foudre de la rétribution divine.
+Le drapeau trembla violemment alors qu'une quantité massive de gaz de restriction s'en dégageait. Le processus continua jusqu'à ce que le drapeau tombe en poussière et disparaisse. Cependant, le gaz libéré atteignit Hongdie presque instantanément et l'enveloppa. Une grande partie du gaz avait également pénétré le corps du géant de glace. Bien que ce gaz ne fût pas létal, il servait de balise pour la foudre de la rétribution divine.
 
 Le géant frappa violemment le sol. À chaque coup, une partie du gaz se dissipait, mais la quantité était telle qu'il continuait de saturer le corps du colosse.
 
-Papillon Rouge s'apprêtait à se téléporter quand son visage se décomposa.
+Hongdie s'apprêtait à se téléporter quand son visage se décomposa.
 
-« Au moment où la rétribution divine frappe, tous les déplacements instantanés sont scellés! Papillon Rouge, accepte ta mort! » Les yeux de Wang Lin brillèrent d'un éclat sinistre.
+« Au moment où la rétribution divine frappe, tous les déplacements instantanés sont scellés! Hongdie, accepte ta mort! » Les yeux de Wang Lin brillèrent d'un éclat sinistre.
 
-L'éclair rouge frappa enfin. Dès que le gaz de restriction toucha la foudre, il se dissipa. L'éclair s'abattit sur Papillon Rouge, qui était prise au piège dans cet environnement saturé.
+L'éclair rouge frappa enfin. Dès que le gaz de restriction toucha la foudre, il se dissipa. L'éclair s'abattit sur Hongdie, qui était prise au piège dans cet environnement saturé.
 
 Bien que l'explication fût complexe, tout cela se produisit en un clin d'œil.
 
-Le visage de Papillon Rouge devint livide et elle serra les dents. À l'instant où l'éclair rouge atteignit sa cible, les six silhouettes derrière elle s'élancèrent.
+Le visage de Hongdie devint livide et elle serra les dents. À l'instant où l'éclair rouge atteignit sa cible, les six silhouettes derrière elle s'élancèrent.
 
 « Explosez! »
 
 L'une des figures rouges explosa au contact de la foudre, mais cela fut insuffisant pour stopper la rétribution divine.
 
-La voix de Papillon Rouge se brisa dans un cri: « Explosez! Explosez! »
+La voix de Hongdie se brisa dans un cri: « Explosez! Explosez! »
 
 Bang! Bang! Bang!
 
@@ -134,7 +134,7 @@ La foudre de la rétribution les transperça comme s'ils n'étaient que du papie
 
 Cependant, la puissance de l'éclair rouge diminua légèrement suite à cette série d'explosions.
 
-Sans un mot, Papillon Rouge se fondit dans le géant de glace. Au moment où elle disparut en son sein, l'éclair rouge frappa le colosse.
+Sans un mot, Hongdie se fondit dans le géant de glace. Au moment où elle disparut en son sein, l'éclair rouge frappa le colosse.
 
 Le géant leva soudainement la tête et poussa un rugissement de douleur alors que de multiples fissures apparaissaient sur son corps. Une ligne rouge circulait à l'intérieur du géant; elle ne l'attaquait pas directement, mais se dirigeait vers les résidus de gaz de restriction dans son organisme.
 
@@ -142,7 +142,7 @@ De plus, une image fantomatique de fouet se mit à luire. À chaque éclat de ce
 
 « Quel dommage! » Les yeux de Wang Lin s'illuminèrent et il abattit l'épée céleste sur le géant. Il poussa un rugissement en dirigeant un puissant rayon d'énergie d'épée vers le colosse de glace.
 
-Le géant ouvrit la bouche pour hurler, mais c'est la voix de Papillon Rouge qui s'en échappa: « Fouet Kunji! »
+Le géant ouvrit la bouche pour hurler, mais c'est la voix de Hongdie qui s'en échappa: « Fouet Kunji! »
 
 À cet instant précis, le fouet à l'intérieur du géant brilla intensément, jaillit de la poitrine du colosse et frappa Wang Lin.
 

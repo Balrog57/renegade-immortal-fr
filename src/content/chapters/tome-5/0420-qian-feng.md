@@ -86,19 +86,19 @@ Wang Lin répondit calmement: « Ce n'est rien! » Son regard s'attarda sur la f
 
 Du Tian esquissa un sourire malicieux en regardant Qian Feng, avant de parcourir distraitement la forêt du regard et de disparaître à son tour vers la Secte.
 
-La colère revint dans les yeux de Qian Feng. Il serra les poings, fixant l'endroit où Wang Lin avait disparu, et cria: « Papillon Rouge, sors! »
+La colère revint dans les yeux de Qian Feng. Il serra les poings, fixant l'endroit où Wang Lin avait disparu, et cria: « Hongdie, sors! »
 
 Une femme vêtue d'une robe rouge apparut. Elle était d'une beauté et d'une grâce infinies, mais ses yeux étaient empreints de confusion et de perte, comme ceux d'une marionnette sans âme.
 
-Lorsque Papillon Rouge fut aux côtés de Qian Feng, celui-ci se retourna brusquement et pointa son doigt sur le front de la jeune femme. Son visage devint instantanément livide alors que sa force vitale était rapidement drainée.
+Lorsque Hongdie fut aux côtés de Qian Feng, celui-ci se retourna brusquement et pointa son doigt sur le front de la jeune femme. Son visage devint instantanément livide alors que sa force vitale était rapidement drainée.
 
 Qian Feng eut une réaction inverse: son visage s'empourpra. Toutes les blessures subies précédemment guérirent promptement et, en un clin d'œil, il fut totalement rétabli.
 
 Il retira sa main et observa la plaie sur son doigt, d'où continuait de suinter le sang.
 
-« Lèche-la pour la nettoyer! » Qian Feng tendit son doigt vers Papillon Rouge. Celle-ci ouvrit sa petite bouche, prit le doigt de Qian Feng et le lécha doucement de sa langue...
+« Lèche-la pour la nettoyer! » Qian Feng tendit son doigt vers Hongdie. Celle-ci ouvrit sa petite bouche, prit le doigt de Qian Feng et le lécha doucement de sa langue...
 
-Qian Feng ne daigna même pas regarder Papillon Rouge; il continuait de fixer l'endroit où Wang Lin avait disparu en marmonnant: « Wang Lin, tu oses me blesser? Tu es mort! Le Maître est vieux et confus; sinon, pourquoi aurait-il envoyé ma jeune sœur apprentie pour s'emparer de ton cœur de Dao? Ton domaine m'appartient, et celui de la petite sœur m'appartient aussi. Même le domaine du Maître, si je trouve un moyen, je le dévorerai également... »
+Qian Feng ne daigna même pas regarder Hongdie; il continuait de fixer l'endroit où Wang Lin avait disparu en marmonnant: « Wang Lin, tu oses me blesser? Tu es mort! Le Maître est vieux et confus; sinon, pourquoi aurait-il envoyé ma jeune sœur apprentie pour s'emparer de ton cœur de Dao? Ton domaine m'appartient, et celui de la petite sœur m'appartient aussi. Même le domaine du Maître, si je trouve un moyen, je le dévorerai également... »
 
 « L'étendard d'âme de ce Ceng Niu est trop puissant. Ce vieux Du Tian a perdu la tête aussi, mais au lieu de le donner au pays de Suzaku, il le donne à Ceng Niu! Cependant, l'étendard a déjà attiré l'attention du Maître, et il est déterminé à s'en saisir. Je veux voir combien de temps tu pourras encore tenir! »
 

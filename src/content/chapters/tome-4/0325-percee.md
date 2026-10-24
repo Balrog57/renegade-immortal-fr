@@ -142,7 +142,7 @@ Bang!
 
 La tête du vieil homme explosa dans un fracas de sang et de chair. Son corps s'effondra sur place.
 
-« Ma culture est au stade initial de la Formation de l'Âme, mais il y a un instant, mon domaine atteignait le stade intermédiaire. Maintenant que mon domaine de la vie et de la mort a atteint son second niveau, j'oserais même défier Papillon Rouge, au stade avancé de la Formation de l'Âme. Quant à vous... » Les yeux de Wang Lin brillaient d'une lumière mystérieuse tandis qu'il balayait la foule du regard.
+« Ma culture est au stade initial de la Formation de l'Âme, mais il y a un instant, mon domaine atteignait le stade intermédiaire. Maintenant que mon domaine de la vie et de la mort a atteint son second niveau, j'oserais même défier Hongdie, au stade avancé de la Formation de l'Âme. Quant à vous... » Les yeux de Wang Lin brillaient d'une lumière mystérieuse tandis qu'il balayait la foule du regard.
 
 Ce seul coup d'œil plongea chacun dans la réflexion, mais leur avidité ne faiblit pas d'un iota.
 

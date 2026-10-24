@@ -6,13 +6,13 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 458 - All gathered
 slug: tous-reunis
 ---
-Wang Lin regarda silencieusement le corps de Papillon Rouge se disperser. Une fois que cela fut terminé, il poussa un soupir, atterrit au sol et agita la main droite. La hache revint vers lui et fut rangée dans son sac de rangement.
+Wang Lin regarda silencieusement le corps de Hongdie se disperser. Une fois que cela fut terminé, il poussa un soupir, atterrit au sol et agita la main droite. La hache revint vers lui et fut rangée dans son sac de rangement.
 
 Puis, il tendit la main et saisit le Fouet Kunji qui flottait dans les airs. Après l'avoir examiné attentivement, il le remit également dans son sac de rangement.
 
 Une trace de sens divin de niveau Ascendant subsistait sur le Fouet Kunji, que Wang Lin ne pouvait pas retirer pour le moment. Mais tant qu'il le tenait entre ses mains, il était confiant que, une fois tout cela terminé, il pourrait utiliser le drapeau des mille millions d'âmes pour former une âme Ascendante capable de briser ce sens divin et s'approprier véritablement le Fouet Kunji.
 
-Après avoir fait cela, Wang Lin regarda une dernière fois l'endroit où Papillon Rouge avait disparu et secoua la tête. Puis, son corps se transforma en une fine fumée et disparut, se dirigeant vers la montagne spirituelle au loin.
+Après avoir fait cela, Wang Lin regarda une dernière fois l'endroit où Hongdie avait disparu et secoua la tête. Puis, son corps se transforma en une fine fumée et disparut, se dirigeant vers la montagne spirituelle au loin.
 
 À cet instant, le nuage rouge traversait rapidement la montagne spirituelle pour arriver directement au sommet. Une fois sur place, le nuage rouge se transforma en une tornade et descendit sur le pic de la montagne. Yun Quezi sortit de la tornade rouge tandis que Zhou Wutai le suivait respectueusement.
 

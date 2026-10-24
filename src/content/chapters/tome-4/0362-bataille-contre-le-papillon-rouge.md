@@ -1,9 +1,9 @@
 ---
 n: 362
-title: Bataille contre le Papillon Rouge
+title: Bataille contre Hongdie
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 362 - Battle with Papillon Rouge
+en: Chapter 362 - Battle with Hongdie
 slug: bataille-contre-le-papillon-rouge
 ---
 Wang Lin dit: « Entrez! »
@@ -34,7 +34,7 @@ De plus, à de nombreux endroits se trouvaient de puissantes restrictions que Wa
 
 Il y avait quelque chose de sinistre dans cet endroit.
 
-Wang Lin médita un moment, puis renonça à ses réflexions. Il se concentra sur sa culture afin de rester dans les meilleures conditions possibles pour l'affrontement contre le Papillon Rouge.
+Wang Lin médita un moment, puis renonça à ses réflexions. Il se concentra sur sa culture afin de rester dans les meilleures conditions possibles pour l'affrontement contre Hongdie.
 
 Dix jours passèrent sans aucune distraction. Ce jour-là, alors qu'il était en pleine culture, il ouvrit soudainement les yeux et vit un homme d'âge mûr assis face à lui. L'homme versa une tasse de thé et regarda Wang Lin.
 
@@ -64,7 +64,7 @@ Il observa l'obscurité au-delà de la fenêtre et son regard s'illumina.
 
 L'homme d'âge mûr devait être au moins au stade de la Transformation de l'Âme. Il était probablement le maître de Neige Blanche.
 
-Le message laissé par cet homme était limpide. S'il perdait la bataille contre le Papillon Rouge, la seule issue qui lui resterait serait la mort.
+Le message laissé par cet homme était limpide. S'il perdait la bataille contre Hongdie, la seule issue qui lui resterait serait la mort.
 
 Wang Lin prit une profonde inspiration, ferma les yeux et reprit sa culture.
 
@@ -72,21 +72,21 @@ Quelques jours plus tard, le jour du grand combat arriva.
 
 L'atmosphère était très animée autour du grand autel de Suzaku. Tous les cultivateurs présents attendaient avec impatience cet affrontement majeur.
 
-Suzaku avait annoncé ce duel entre Wang Lin et le Papillon Rouge dix ans auparavant. Cette bataille avait captivé l'attention de nombreux cultivateurs.
+Suzaku avait annoncé ce duel entre Wang Lin et Hongdie dix ans auparavant. Cette bataille avait captivé l'attention de nombreux cultivateurs.
 
 Bien que les deux combattants ne fussent qu'au stade de la Formation de l'Âme, il existait un abîme entre leurs statuts sociaux.
 
-Le Papillon Rouge était le génie de Xue Yu et, à Suzaku, passait pour la plus douée de tous. Elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans et comptait parmi les candidates les plus susceptibles d'atteindre le stade Ascendant.
+Hongdie était le génie de Xue Yu et, à Suzaku, passait pour la plus douée de tous. Elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans et comptait parmi les candidates les plus susceptibles d'atteindre le stade Ascendant.
 
-Ceng Niu, d'origine inconnue, avait réussi à obtenir un chaudron de pluie et à entrer dans le Royaume Céleste. Puis, il lui avait arraché un bras au Papillon Rouge, devenant instantanément célèbre.
+Ceng Niu, d'origine inconnue, avait réussi à obtenir un chaudron de pluie et à entrer dans le Royaume Céleste. Puis, il lui avait arraché un bras à Hongdie, devenant instantanément célèbre.
 
 Si cela avait été tout, l'événement n'aurait pas suscité autant d'intérêt, mais ce Ceng Niu n'était qu'au début du stade de la Formation de l'Âme lorsqu'il était entré dans le Royaume Céleste. Il avait réussi à lutter contre une cultivatrice au stade avancé de la Formation de l'Âme et lui avait même pris un bras. Par conséquent, il était devenu une légende.
 
 Désormais, c'était leur second combat, et l'attention de tous était rivée sur eux.
 
-Le Papillon Rouge se tenait du côté droit de l'autel. Elle portait une robe de cour bleue, ornée d'une fleur pourpre sombre brodée sur l'ourlet. Sa tenue était sobre et élégante. Ses cheveux descendaient comme une cascade, retenus par un simple ruban.
+Hongdie se tenait du côté droit de l'autel. Elle portait une robe de cour bleue, ornée d'une fleur pourpre sombre brodée sur l'ourlet. Sa tenue était sobre et élégante. Ses cheveux descendaient comme une cascade, retenus par un simple ruban.
 
-Cependant, la brise légère qui faisait flotter sa manche vide entachait l'image presque picturale du Papillon Rouge.
+Cependant, la brise légère qui faisait flotter sa manche vide entachait l'image presque picturale de Hongdie.
 
 Sa beauté, à l'instar de son talent, était empreinte d'arrogance et de cruauté.
 
@@ -100,13 +100,13 @@ Il s'agissait de quatre vieillards aux cheveux blancs.
 
 À cet instant, une grue blanche apparut au loin. Un jeune homme vêtu de blanc se tenait droit sur son dos, les cheveux attachés par un ruban violet. Bien qu'il ait l'air ordinaire, il dégageait une allure difficile à décrire.
 
-À ses côtés se tenait une femme vêtue de pourpre. Sa beauté n'était en rien inférieure à celle du Papillon Rouge.
+À ses côtés se tenait une femme vêtue de pourpre. Sa beauté n'était en rien inférieure à celle de Hongdie.
 
 La grue atteignit l'autel et poussa un cri. Le jeune homme en blanc sauta et atterrit sur l'autel.
 
 C'était Wang Lin!
 
-Le Papillon Rouge baissa les yeux vers sa manche vide avant de lever la tête. Son regard devint glacial, trahissant une haine profonde. En tant que fille choisie par le ciel, elle n'avait jamais connu la défaite jusqu'à sa rencontre avec Wang Lin.
+Hongdie baissa les yeux vers sa manche vide avant de lever la tête. Son regard devint glacial, trahissant une haine profonde. En tant que fille choisie par le ciel, elle n'avait jamais connu la défaite jusqu'à sa rencontre avec Wang Lin.
 
 Non seulement Wang Lin était le premier à l'avoir vaincue, mais il lui avait même arraché un bras. Si Wang Lin l'avait battue lors d'un combat direct, bien qu'elle l'aurait détesté, sa haine n'aurait pas été aussi viscérale.
 
@@ -114,15 +114,15 @@ Mais ce jour-là, Wang Lin avait frappé alors qu'elle était au plus bas, tenta
 
 Ce n'est qu'en le tuant qu'elle pourrait restaurer son cœur dao.
 
-L'expression de Wang Lin resta imperturbable alors qu'il fixait calmement le Papillon Rouge.
+L'expression de Wang Lin resta imperturbable alors qu'il fixait calmement Hongdie.
 
-L'un des vieillards assis sur les quatre sièges intérieurs regarda froidement Wang Lin et le Papillon Rouge et déclara: « Je suis l'Ancien du Mont Suzaku, Gong Sunpo, et je serai le juge de ce combat. »
+L'un des vieillards assis sur les quatre sièges intérieurs regarda froidement Wang Lin et Hongdie et déclara: « Je suis l'Ancien du Mont Suzaku, Gong Sunpo, et je serai le juge de ce combat. »
 
 Sa main droite traça un sceau, puis pointa vers l'avant. Une porte de lumière apparut soudainement sur l'autel devant eux.
 
 « Entrez. C'est là que se déroulera votre bataille. » Le vieillard ferma les yeux et ne parla plus.
 
-Sans un mot, le Papillon Rouge franchit la porte de lumière et disparut.
+Sans un mot, Hongdie franchit la porte de lumière et disparut.
 
 Le regard de Wang Lin resta serein tandis qu'il observait attentivement la porte avant d'y pénétrer à son tour.
 
@@ -144,11 +144,11 @@ Cette statue de glace mesurait plus de 33 mètres de haut et avait une forme hum
 
 Le regard de Wang Lin s'aiguisa et il recula.
 
-Un éclat de lumière rouge apparut au sommet de la sculpture de glace, et le Papillon Rouge en émergea. Ses yeux étaient froids alors qu'elle fixait Wang Lin et exhala un éclat brillant qui se mua en une rose de glace flottant devant elle.
+Un éclat de lumière rouge apparut au sommet de la sculpture de glace, et Hongdie en émergea. Ses yeux étaient froids alors qu'elle fixait Wang Lin et exhala un éclat brillant qui se mua en une rose de glace flottant devant elle.
 
 Elle avait résolu de ne pas s'engager dans un long combat contre Ceng Niu. Elle utiliserait la méthode la plus rapide pour l'éliminer.
 
-Alors que le géant de glace lançait son coup, le Papillon Rouge arracha un pétale de rose et le projeta en avant. Le pétale oscillait comme un navire sur une mer déchaînée.
+Alors que le géant de glace lançait son coup, Hongdie arracha un pétale de rose et le projeta en avant. Le pétale oscillait comme un navire sur une mer déchaînée.
 
 Wang Lin laissa échapper un reniflement méprisant. Il agita sa main droite et le drapeau de restriction apparut dans sa paume. Un gaz de restriction s'en échappa sous la forme de dragons féroces qui s'entrelacèrent pour fusionner en un gigantesque poing noir, venant percuter celui du géant de glace.
 
@@ -160,4 +160,4 @@ Le choc colossal fit reculer le géant de glace d'un pas. Des fissures apparuren
 
 La main de Wang Lin trembla. Le poing formé par la restriction se brisa et, lorsque les vibrations atteignirent le drapeau de restriction, celui-ci se fissura à son tour.
 
-« Voici un trésor que mon pays de Xue Yu a affiné pendant cinq cents ans: le Dieu de Glace! Ceng Niu, tu vas mourir sans aucun doute! » Les yeux du Papillon Rouge devinrent encore plus glacials tandis qu'elle bougeait la main, et le pétale de rose flottant commença soudainement à se métamorphoser.
+« Voici un trésor que mon pays de Xue Yu a affiné pendant cinq cents ans: le Dieu de Glace! Ceng Niu, tu vas mourir sans aucun doute! » Les yeux de Hongdie devinrent encore plus glacials tandis qu'elle bougeait la main, et le pétale de rose flottant commença soudainement à se métamorphoser.

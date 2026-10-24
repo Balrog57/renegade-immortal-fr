@@ -12,7 +12,7 @@ Plutôt que de compter l'un sur l'autre, ne serait-il pas préférable de s'oubl
 
 Deux types d'émotions représentaient deux attitudes divergentes face à la vie, ainsi que deux choix différents. Tout au long de son existence, Wang Lin avait rencontré de nombreuses femmes plus belles, plus talentueuses et supérieures à Li Muwan à tous égards.
 
-Qu'il s'agisse de Papillon Rouge, Xi Zifeng, Liu Mei, Mu Bingmei, Lu Yanfei, ou de simples rencontres éphémères.
+Qu'il s'agisse de Hongdie, Xi Zifeng, Liu Mei, Mu Bingmei, Lu Yanfei, ou de simples rencontres éphémères.
 
 Toutes ces femmes étaient passées, mais au final, seules Li Muwan et Liu Mei avaient pénétré dans son cœur. Wang Lin n'était pas un être doué pour les sentiments. Les bouleversements survenus tôt dans sa vie l'avaient transformé en un démon meurtrier, et ses deux mains étaient maculées de sang. Même ceux qui se proclamaient démons ne pouvaient être comparés à lui.
 

@@ -12,7 +12,7 @@ Un morceau de jade flottait dans les airs, dégageant une douce lueur.
 
 Wang Lin agita sa main droite et saisit le jade. En l'examinant, il y découvrit une carte menant au Mont Suzaku.
 
-Il réfléchit un moment, puis s'assit en position de lotus. Il avait subi de graves blessures lors de son combat contre Papillon Rouge et sa culture était instable. Même en consommant des pilules, celles-ci ne l'aideraient que très peu et il ne pourrait pas se rétablir rapidement. S'il voulait une guérison complète, il lui faudrait entrer en culture de méditation prolongée.
+Il réfléchit un moment, puis s'assit en position de lotus. Il avait subi de graves blessures lors de son combat contre Hongdie et sa culture était instable. Même en consommant des pilules, celles-ci ne l'aideraient que très peu et il ne pourrait pas se rétablir rapidement. S'il voulait une guérison complète, il lui faudrait entrer en culture de méditation prolongée.
 
 Après un long moment, le ciel s'assombrit et Wang Lin se leva. Il frappa son sac de rangement et la bête moustique apparut. Il s'assit sur la créature, lui envoya un message spirituel et poursuivit sa culture.
 
@@ -46,7 +46,7 @@ L'homme siégeait au-dessus du bassin de flammes et la femme au-dessus du bassin
 
 L'homme n'était pas particulièrement beau, mais il dégageait une aura légèrement maléfique. Cependant, cette aura n'était pas répulsive; au contraire, elle inspirait aux gens une étrange sensation d'intimité.
 
-La femme n'était en rien moins belle que Papillon Rouge; elle pouvait être considérée comme un trésor national. De plus, comparée à Papillon Rouge, cette jeune fille possédait un charme plus envoûtant, ce qui la rendait encore plus séduisante.
+La femme n'était en rien moins belle que Hongdie; elle pouvait être considérée comme un trésor national. De plus, comparée à Hongdie, cette jeune fille possédait un charme plus envoûtant, ce qui la rendait encore plus séduisante.
 
 Si Wang Lin avait été présent, il aurait senti que cette femme lui était familière.
 
@@ -56,39 +56,39 @@ Après un long silence, le vieil homme prononça lentement: « Qian Feng! »
 
 L'homme assis dans le bassin de flammes ouvrit les yeux. L'aura maléfique qui l'entourait s'intensifia. Il resta calme en voyant le vieillard et dit: « Qian Feng salue l'Ancêtre. »
 
-« Papillon Rouge est dans la chambre secrète. Va dévorer sa force spirituelle et son domaine! » La voix du vieil homme était empreinte d'une immense antiquité.
+« Hongdie est dans la chambre secrète. Va dévorer sa force spirituelle et son domaine! » La voix du vieil homme était empreinte d'une immense antiquité.
 
-Les yeux de l'homme brillèrent et il demanda: « Papillon Rouge? Mais elle est la fille céleste de Xue Yu... » En prononçant ces mots, il se lécha les lèvres avec un visage empreint de dédain.
+Les yeux de l'homme brillèrent et il demanda: « Hongdie? Mais elle est la fille céleste de Xue Yu... » En prononçant ces mots, il se lécha les lèvres avec un visage empreint de dédain.
 
 Le vieil homme répondit lentement: « Son domaine impitoyable a fait une percée lors de son combat contre Ceng Niu; il est sur le point d'atteindre sa première complétion, bien qu'elle ne s'en soit pas encore rendu compte. Une fois que tu l'auras dévorée, tu posséderas le domaine impitoyable! Par conséquent, tes chances d'atteindre le stade Ascendant augmenteront davantage. J'ai cherché cette fille pendant de longues années avant de la trouver, puis je l'ai élevée jusqu'à aujourd'hui. »
 
 L'homme se leva. En faisant ce mouvement, une brume blanche s'échappa de son corps. Ses yeux affichèrent un regard malveillant tandis qu'il murmurait: « Ceng Niu... Je me demande s'il peut encaisser un seul coup utilisant seulement 10 % de ma culture avec son niveau actuel! »
 
-Le vieil homme soupira. « C'est un peu regrettable pour Papillon Rouge. Cette fille... Ah, je vieillis et je ne peux plus supporter certaines choses... Laisse tomber, vas-y. »
+Le vieil homme soupira. « C'est un peu regrettable pour Hongdie. Cette fille... Ah, je vieillis et je ne peux plus supporter certaines choses... Laisse tomber, vas-y. »
 
 L'homme esquissa un léger sourire: « Ancêtre, vous dites toujours que c'est regrettable, mais le titre de Suzaku ne sera pas transmis à un étranger. Ce sera soit moi, soit ma jeune sœur apprentie! »
 
 Sur ces mots, son corps s'estompa lentement jusqu'à disparaître.
 
-Dans une chambre, Papillon Rouge cultivait les yeux clos pour se rétablir. Elle ouvrit soudainement les yeux et murmura: « Ceng Niu, la prochaine fois, je te tuerai! »
+Dans une chambre, Hongdie cultivait les yeux clos pour se rétablir. Elle ouvrit soudainement les yeux et murmura: « Ceng Niu, la prochaine fois, je te tuerai! »
 
 Une voix douce résonna soudainement dans la pièce. « Je vais exaucer ton vœu. »
 
-« Qui est là? » Les yeux de Papillon Rouge devinrent instantanément graves.
+« Qui est là? » Les yeux de Hongdie devinrent instantanément graves.
 
-Le jeune homme au regard maléfique surgit du vide et dit à Papillon Rouge: « Je suis Qian Feng. » Puis, il pointa simplement son doigt vers elle.
+Le jeune homme au regard maléfique surgit du vide et dit à Hongdie: « Je suis Qian Feng. » Puis, il pointa simplement son doigt vers elle.
 
-Le visage de Papillon Rouge se décomposa. Elle forma un sceau avec sa main et une lumière rouge commença à émaner de son corps.
+Le visage de Hongdie se décomposa. Elle forma un sceau avec sa main et une lumière rouge commença à émaner de son corps.
 
-Le jeune homme secoua la tête avec un sourire moqueur. Son doigt brisa la lumière rouge et vint se poser entre les sourcils de Papillon Rouge.
+Le jeune homme secoua la tête avec un sourire moqueur. Son doigt brisa la lumière rouge et vint se poser entre les sourcils de Hongdie.
 
 Le corps de la jeune femme trembla. Elle voulut lutter, mais ce doigt pesait comme une montagne, la rendant incapable de toute résistance.
 
-« Que me fais-tu?! » Papillon Rouge s'efforça de garder son calme.
+« Que me fais-tu?! » Hongdie s'efforça de garder son calme.
 
-Les yeux de Qian Feng étaient d'une noirceur maléfique lorsqu'il murmura à l'oreille de Papillon Rouge: « Je veux ton domaine et tes quatre esprits élémentaires! »
+Les yeux de Qian Feng étaient d'une noirceur maléfique lorsqu'il murmura à l'oreille de Hongdie: « Je veux ton domaine et tes quatre esprits élémentaires! »
 
-Le maître de Papillon Rouge avait prédit qu'elle traverserait une calamité. Cependant, il s'était trompé de cible. Ce n'était pas Wang Lin, mais ce Qian Feng!
+Le maître de Hongdie avait prédit qu'elle traverserait une calamité. Cependant, il s'était trompé de cible. Ce n'était pas Wang Lin, mais ce Qian Feng!
 
 Dans la grotte, le vieil homme soupira de nouveau.
 
@@ -136,19 +136,19 @@ C'était Liu Mei. Comparée à la première fois où Wang Lin l'avait rencontré
 
 « Marquer son cœur dao ne sera pas difficile... Cependant, est-ce vraiment la bonne voie... » Un air de confusion passa sur le visage de Liu Mei.
 
-À cet instant, le jeune homme au regard maléfique nommé Qian Feng arriva en flottant depuis le lointain, suivi de quelqu'un. Il s'agissait de Papillon Rouge.
+À cet instant, le jeune homme au regard maléfique nommé Qian Feng arriva en flottant depuis le lointain, suivi de quelqu'un. Il s'agissait de Hongdie.
 
-Cependant, les yeux de Papillon Rouge étaient comme des trous noirs; elle ne présentait aucun signe de vie. Elle n'était plus qu'une marionnette.
+Cependant, les yeux de Hongdie étaient comme des trous noirs; elle ne présentait aucun signe de vie. Elle n'était plus qu'une marionnette.
 
-Liu Mei regarda calmement Papillon Rouge sans prononcer un mot.
+Liu Mei regarda calmement Hongdie sans prononcer un mot.
 
 Qian Feng s'arrêta à 10 mètres de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Jeune sœur apprentie, t'en vas-tu déjà? »
 
-Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-elle Papillon Rouge? »
+Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-elHongdie? »
 
-Qian Feng éclata de rire. « Papillon Rouge est déjà morte. Elle n'est plus que mon fourneau de concubine. Appelons-la simplement "Sans-Cœur". »
+Qian Feng éclata de rire. « Hongdie est déjà morte. Elle n'est plus que mon fourneau de concubine. Appelons-la simplement "Sans-Cœur". »
 
-Liu Mei observa attentivement Papillon Rouge, une lueur de compassion passa dans ses yeux, puis elle soupira et s'éloigna de l'entrée de la grotte. Elle savait que Papillon Rouge avait déjà perdu son domaine et son énergie vitale pour devenir l'automate de Qian Feng.
+Liu Mei observa attentivement Hongdie, une lueur de compassion passa dans ses yeux, puis elle soupira et s'éloigna de l'entrée de la grotte. Elle savait que Hongdie avait déjà perdu son domaine et son énergie vitale pour devenir l'automate de Qian Feng.
 
 Le fait qu'une beauté légendaire de cette génération ait subi un tel sort plongea Liu Mei dans la mélancolie. C'était la troisième personne dévorée par Qian Feng jusqu'à présent. À chaque fois qu'il dévorait quelqu'un, son niveau de culture augmentait.
 
@@ -156,4 +156,4 @@ L'Ancêtre était prêt à tout pour former le prochain Suzaku.
 
 Qian Feng fixa le dos de Liu Mei d'un regard malveillant et murmura: « Jeune sœur apprentie, un jour, tu deviendras ma concubine. Qu'en penses-tu, Sans-Cœur? »
 
-Papillon Rouge resta immobile derrière lui. Il n'y avait plus aucune lueur dans ses yeux. Elle n'était plus qu'une dépouille.
+Hongdie resta immobile derrière lui. Il n'y avait plus aucune lueur dans ses yeux. Elle n'était plus qu'une dépouille.

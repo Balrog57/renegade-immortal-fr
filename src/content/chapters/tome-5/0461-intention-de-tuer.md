@@ -20,7 +20,7 @@ Avec Wang Lin à leurs côtés, les chances de succès des trois étaient désor
 
 Qian Feng ne sous-estimait pas Wang Lin simplement parce qu'il était au stade initial de la Transformation de l'Âme. En réalité, au fond de lui, il considérait que Wang Lin était un adversaire digne de ce nom. Il savait également que le drapeau des âmes d'un milliard que possédait Wang Lin pouvait l'anéantir, et il le redoutait profondément.
 
-C'est pour cette raison qu'il avait utilisé Papillon Rouge pour retarder Wang Lin: afin de pouvoir s'emparer du Cristal de la Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
+C'est pour cette raison qu'il avait utilisé Hongdie pour retarder Wang Lin: afin de pouvoir s'emparer du Cristal de la Planète de Culture sans avoir à l'affronter. Cependant, après être arrivé à la montagne spirituelle, il réalisa que plusieurs obstacles se dressaient encore avant d'atteindre le cristal.
 
 Il ne voyait plus Wang Lin comme un faible, contrairement à leur première rencontre; désormais, il le considérait comme son égal, même si, au fond de son cœur, un soupçon d'orgueil subsistait, profondément enfoui.
 

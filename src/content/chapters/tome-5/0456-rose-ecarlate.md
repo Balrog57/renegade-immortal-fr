@@ -6,31 +6,31 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 456 - Rose Red
 slug: rose-ecarlate
 ---
-Si Papillon Rouge était là, alors Qian Feng ne devait pas être loin non plus. Les yeux de Wang Lin s'illuminèrent et son sens divin se déploya. Qian Feng se trouvait au stade intermédiaire de la Transformation de l'Âme; si celui-ci cherchait à se dissimuler, il serait difficile pour Wang Lin de le débusquer.
+Si Hongdie était là, alors Qian Feng ne devait pas être loin non plus. Les yeux de Wang Lin s'illuminèrent et son sens divin se déploya. Qian Feng se trouvait au stade intermédiaire de la Transformation de l'Âme; si celui-ci cherchait à se dissimuler, il serait difficile pour Wang Lin de le débusquer.
 
-Le regard de Wang Lin demeura calme alors qu'il joignit les mains en signe de salut vers Papillon Rouge et lança d'une voix forte: « Cela fait longtemps, chercheuse de voie Papillon Rouge. »
+Le regard de Wang Lin demeura calme alors qu'il joignit les mains en signe de salut vers Hongdie et lança d'une voix forte: « Cela fait longtemps, chercheuse de voie Hongdie. »
 
 La silhouette rouge sur le sommet non loin de là semblait empreinte d'un profond vide. Elle jeta un regard intense à Wang Lin, puis, en un clin d'œil, disparut du sommet pour réapparaître à trois cent trente mètres de lui.
 
-Lorsqu'elle fut à sa hauteur, l'image de ses yeux creux et évidés s'imprima dans l'esprit de Wang Lin. Son expression devint très sombre. Il avait entendu ce qui était arrivé à Papillon Rouge et avait même perçu sa présence lors de son combat contre Qian Feng aux confins du continent Suzaku.
+Lorsqu'elle fut à sa hauteur, l'image de ses yeux creux et évidés s'imprima dans l'esprit de Wang Lin. Son expression devint très sombre. Il avait entendu ce qui était arrivé à Hongdie et avait même perçu sa présence lors de son combat contre Qian Feng aux confins du continent Suzaku.
 
 Mais c'était la première fois qu'il la rencontrait véritablement après leur affrontement.
 
-Dans les yeux de Papillon Rouge, Wang Lin ne voyait qu'un silence de mort.
+Dans les yeux de Hongdie, Wang Lin ne voyait qu'un silence de mort.
 
-L'actuelle Papillon Rouge était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
+L'actuelHongdie était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
 
-La Papillon Rouge d'autrefois était le génie de Xue Yu, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs différends, creusés peu à peu, les avaient finalement menés à leur bataille décisive.
+La Hongdie d'autrefois était le génie de Xue Yu, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs différends, creusés peu à peu, les avaient finalement menés à leur bataille décisive.
 
 Malgré cela, dans le cœur de Wang Lin, il lui vouait toujours un respect certain. Ce respect était celui que l'on accorde à un adversaire de valeur.
 
 En voyant son ancienne rivale réduite à cet état, Wang Lin ne put s'empêcher de soupirer. L'adage « si les choses restent les mêmes, les hommes, eux, changent » n'était pas dénué de vérité.
 
-Comparant celle qu'elle était à ce qu'elle était devenue, Wang Lin aurait préféré retrouver la Papillon Rouge orgueilleuse d'autrefois. Ce n'est qu'en affrontant une Papillon Rouge telle qu'autrefois qu'il pourrait progresser vers les sommets de la culture.
+Comparant celle qu'elle était à ce qu'elle était devenue, Wang Lin aurait préféré retrouver Hongdie orgueilleuse d'autrefois. Ce n'est qu'en affrontant une Hongdie telle qu'autrefois qu'il pourrait progresser vers les sommets de la culture.
 
-Wang Lin poussa un soupir et enfouit son regret au plus profond de son cœur. Il regarda Papillon Rouge et dit calmement: « Qian Feng, sors de ta cachette! »
+Wang Lin poussa un soupir et enfouit son regret au plus profond de son cœur. Il regarda Hongdie et dit calmement: « Qian Feng, sors de ta cachette! »
 
-Papillon Rouge restait là, le regard perdu dans le ciel, les yeux dénués d'émotion.
+Hongdie restait là, le regard perdu dans le ciel, les yeux dénués d'émotion.
 
 La voix de Qian Feng surgit du vide: « Ceng Niu, je n'ai pas le temps de m'occuper de toi aujourd'hui. Puisque tu as trouvé cet endroit, nous nous retrouverons à la montagne spirituelle. »
 
@@ -38,27 +38,27 @@ Wang Lin se retourna brusquement vers une montagne au loin. Une silhouette noire
 
 Le regard de Wang Lin se glaça. Il laissa échapper un reniflement glacial et s'apprêta à foncer vers la montagne spirituelle.
 
-« Papillon Rouge, ne voulais-tu pas combattre Ceng Niu à nouveau? Je te donne cette chance aujourd'hui. Tue-le! » La voix de Qian Feng résonna au loin avant qu'il ne disparaisse.
+« Hongdie, ne voulais-tu pas combattre Ceng Niu à nouveau? Je te donne cette chance aujourd'hui. Tue-le! » La voix de Qian Feng résonna au loin avant qu'il ne disparaisse.
 
 « Ceng Niu, c'est une belle occasion de rattraper ton vieil ami, alors prends ton temps. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai régler mes comptes avec toi. »
 
-Le vide dans les yeux de Papillon Rouge s'évanouit, remplacé par une soif de combat. Elle se précipita devant Wang Lin pour lui barrer la route et dégaina une longue épée rouge.
+Le vide dans les yeux de Hongdie s'évanouit, remplacé par une soif de combat. Elle se précipita devant Wang Lin pour lui barrer la route et dégaina une longue épée rouge.
 
 Simultanément, une aura puissante émana d'elle. Cette puissance n'était pas inférieure à celle de Wang Lin et était imprégnée d'énergie spirituelle céleste. Bien que son niveau de culture ne soit pas encore celui de la Transformation de l'Âme, elle s'en approchait dangereusement.
 
-« Ceng Niu! » lança Papillon Rouge d'une voix glaciale, tandis que son regard tranchant se fixait sur Wang Lin.
+« Ceng Niu! » lança Hongdie d'une voix glaciale, tandis que son regard tranchant se fixait sur Wang Lin.
 
 Wang Lin fronça légèrement les sourcils. Il n'était pas pressé de trouver Qian Feng et ne s'attendait pas à voir la montagne spirituelle ici. Si l'endroit se trouvait réellement à l'intérieur du Cristal de la Planète de Culture, la montagne spirituelle ne devrait pas exister.
 
 Cependant, maintenant qu'elle était sous ses yeux, la situation était étrange; mais puisque Qian Feng voulait aller l'explorer, il n'avait qu'à le laisser faire.
 
-Les yeux de Papillon Rouge s'illuminèrent et elle fit tournoyer son épée rouge. La lame quitta sa main pour foncer vers la tête de Wang Lin tel un éclair.
+Les yeux de Hongdie s'illuminèrent et elle fit tournoyer son épée rouge. La lame quitta sa main pour foncer vers la tête de Wang Lin tel un éclair.
 
 Wang Lin recula d'un pas, sa main droite effleurant son sac de rangement, et le drapeau de restriction apparut dans sa paume. Il secoua l'étendard, libérant d'innombrables restrictions qui formèrent des boucliers devant lui.
 
 L'épée rouge percuta les couches de protection, provoquant une série de grondements tonitruants qui firent vibrer toute la zone.
 
-Une immense quantité de terre et de sable fut projetée en l'air. Au milieu du chaos, un éclair rouge fendit la poussière: Papillon Rouge chargeait à nouveau. Un fragment de glace rouge était désormais serré dans sa main, dégageant une aura glaciale qui enveloppa instantanément les environs.
+Une immense quantité de terre et de sable fut projetée en l'air. Au milieu du chaos, un éclair rouge fendit la poussière: Hongdie chargeait à nouveau. Un fragment de glace rouge était désormais serré dans sa main, dégageant une aura glaciale qui enveloppa instantanément les environs.
 
 Alors qu'elle s'approchait, son intention de combat vacilla un instant, laissant poindre une profonde tristesse. Ses lèvres tremblèrent.
 
@@ -68,19 +68,19 @@ Un murmure ténu s'échappa de sa bouche, mais la mélancolie qui habitait ses y
 
 Sa puissance atteignit son apogée alors qu'elle se ruait sur Wang Lin.
 
-Le cœur de Wang Lin tressaillit. En entendant la voix de Papillon Rouge, son regard vers elle devint complexe.
+Le cœur de Wang Lin tressaillit. En entendant la voix de Hongdie, son regard vers elle devint complexe.
 
 Elle n'avait pas totalement perdu la raison; une étincelle d'humanité subsistait, très bien dissimulée.
 
-Papillon Rouge était fière; sa dignité coulait dans ses veines, faisait partie de son essence même. Toute sa vie, elle avait été une rose orgueilleuse.
+Hongdie était fière; sa dignité coulait dans ses veines, faisait partie de son essence même. Toute sa vie, elle avait été une rose orgueilleuse.
 
 Cette parcelle de conscience qu'elle gardait si précieusement préférait mourir plutôt que de vivre une vie de chien.
 
-Wang Lin prit une profonde inspiration et fit face à Papillon Rouge. Sa main droite s'avança, et des filaments de gaz de restriction commencèrent à briller en se concentrant dans sa paume.
+Wang Lin prit une profonde inspiration et fit face à Hongdie. Sa main droite s'avança, et des filaments de gaz de restriction commencèrent à briller en se concentrant dans sa paume.
 
 Une lance noire d'une dizaine de mètres se matérialisa dans sa main.
 
-Tenant la lance d'une seule main, les yeux de Wang Lin brillèrent comme des éclairs; il fixa Papillon Rouge, son corps se changea en un trait d'ombre et il projeta une estocade.
+Tenant la lance d'une seule main, les yeux de Wang Lin brillèrent comme des éclairs; il fixa Hongdie, son corps se changea en un trait d'ombre et il projeta une estocade.
 
 Le sifflement produit par le mouvement de la lance ressemblait aux hurlements de centaines de fantômes. Ce son, issu de la pointe de l'arme, résonna dans tout le secteur, à plusieurs kilomètres à la ronde.
 
@@ -90,7 +90,7 @@ Cette armure la recouvrait entièrement et dégageait un froid mortel. La lumiè
 
 Le Fouet Kunji! Ce fouet avait été confié par Qian Feng pour affronter Wang Lin.
 
-Les yeux de Papillon Rouge brillèrent d'une lueur mystérieuse alors qu'elle fit claquer le fouet, provoquant une série de détonations là où l'arme passait. Le fouet se mouvait comme un dragon et fondit sur Wang Lin avec la rapidité de la foudre.
+Les yeux de Hongdie brillèrent d'une lueur mystérieuse alors qu'elle fit claquer le fouet, provoquant une série de détonations là où l'arme passait. Le fouet se mouvait comme un dragon et fondit sur Wang Lin avec la rapidité de la foudre.
 
 Les yeux de Wang Lin s'illuminèrent tandis que sa lance s'élançait en réponse. Il recula tout en formant un sceau manuel et en murmurant une incantation. Une rafale de vent chargée d'énergie spirituelle céleste jaillit de la pointe de sa lance.
 
@@ -98,7 +98,7 @@ Le Fouet Kunji et la lance entrèrent en collision!
 
 Boum!
 
-L'onde de choc résultant de l'impact fut si violente qu'on aurait dit que le ciel et la terre allaient s'effondrer. Wang Lin, droit comme un pin, ne bougea pas. La rafale de vent projeta toute la force du choc vers Papillon Rouge.
+L'onde de choc résultant de l'impact fut si violente qu'on aurait dit que le ciel et la terre allaient s'effondrer. Wang Lin, droit comme un pin, ne bougea pas. La rafale de vent projeta toute la force du choc vers Hongdie.
 
 Tout cela se joua en un éclair. Au moment où le Fouet Kunji percuta la lance, il fut expulsé de la main de la jeune femme. Il fendit l'onde de choc comme un éclair noir pour charger sur Wang Lin.
 
@@ -106,19 +106,19 @@ Dans un fracas, Wang Lin recula brusquement de plus de trois cents mètres. Ses 
 
 Ce fouet lui avait appartenu autrefois, mais il avait finalement dû le rendre. Maintenant qu'il le revoyait, il ne comptait pas le laisser repartir!
 
-Quant à Papillon Rouge, poussée par la rafale qui projetait l'onde de choc vers elle, elle fut contrainte au recul. Une immense aura glaciale s'échappa de son armure rouge et s'étira vers l'avant. Des craquements se firent entendre alors que diverses sculptures de glace se formaient dans l'air devant elle.
+Quant à Hongdie, poussée par la rafale qui projetait l'onde de choc vers elle, elle fut contrainte au recul. Une immense aura glaciale s'échappa de son armure rouge et s'étira vers l'avant. Des craquements se firent entendre alors que diverses sculptures de glace se formaient dans l'air devant elle.
 
 Cette aura froide figea l'onde de choc, transformant un phénomène intangible en une masse tangible!
 
 Le regard de Wang Lin se fit glacial tandis qu'il fixait l'armure.
 
-Papillon Rouge leva la main et pointa les sculptures de glace. Une série de craquements retentit alors que des fissures apparaissaient sur la couche externe des formations glacées. Les fêlures s'étendirent avec frénésie. En un clin d'œil, les surfaces lisses disparurent et, dans un fracas assourdissant, elles volèrent en éclats.
+Hongdie leva la main et pointa les sculptures de glace. Une série de craquements retentit alors que des fissures apparaissaient sur la couche externe des formations glacées. Les fêlures s'étendirent avec frénésie. En un clin d'œil, les surfaces lisses disparurent et, dans un fracas assourdissant, elles volèrent en éclats.
 
-« Tue... moi... » Papillon Rouge affichait une expression de lutte intense; son visage était marqué par la douleur.
+« Tue... moi... » Hongdie affichait une expression de lutte intense; son visage était marqué par la douleur.
 
 À cet instant, le Fouet Kunji tournait autour de son corps tel un dragon tandis que son armure libérait des vagues de froid absolu.
 
-Wang Lin regarda Papillon Rouge et hocha silencieusement la tête. Il toucha son sac de rangement et une hache gigantesque apparut dans sa main. Le ciel s'obscurcit dès l'apparition de l'arme, et toute la lumière ambiante sembla converger vers le tranchant de la hache.
+Wang Lin regarda Hongdie et hocha silencieusement la tête. Il toucha son sac de rangement et une hache gigantesque apparut dans sa main. Le ciel s'obscurcit dès l'apparition de l'arme, et toute la lumière ambiante sembla converger vers le tranchant de la hache.
 
 Des éclairs violets passèrent de l'arme au corps de Wang Lin, faisant crépiter son être sous une série de décharges électriques.
 
@@ -126,10 +126,10 @@ Des éclairs violets passèrent de l'arme au corps de Wang Lin, faisant crépite
 
 Cette hache avait été invoquée par l'ancêtre du Clan des Démons Géants avant sa mort; c'était l'arme du fondateur de ce clan qui était resté piégé sous la Secte des Cadavres à Zhao. Après l'avoir obtenue, Wang Lin avait initialement prévu de la confier à son corps original. Cependant, maintenant que l'épée céleste, privée de son esprit d'épée, ne pouvait libérer toute sa puissance et qu'il ne souhaitait pas utiliser le drapeau de l'âme, c'était l'arme idéale pour déployer toute sa force.
 
-Papillon Rouge fixa Wang Lin et ouvrit la bouche. Une lumière rouge s'en échappa, prenant la forme d'une rose de cristal écarlate qui se mit à flotter devant elle.
+Hongdie fixa Wang Lin et ouvrit la bouche. Une lumière rouge s'en échappa, prenant la forme d'une rose de cristal écarlate qui se mit à flotter devant elle.
 
-Soudain, la fleur s'ouvrit. Tandis qu'elle épanouissait, une fumée rouge s'en dégagea et une silhouette identique à Papillon Rouge apparut au sein des volutes.
+Soudain, la fleur s'ouvrit. Tandis qu'elle épanouissait, une fumée rouge s'en dégagea et une silhouette identique à Hongdie apparut au sein des volutes.
 
-Cette figure dégageait un sentiment de fierté impérieuse; elle était exactement la même que la Papillon Rouge dont Wang Lin se souvenait.
+Cette figure dégageait un sentiment de fierté impérieuse; elle était exactement la même que Hongdie dont Wang Lin se souvenait.
 
-« Ceng Niu, agis maintenant! » La Papillon Rouge émanant de la fumée rouge, empreinte de dignité, lança un regard vers Wang Lin.
+« Ceng Niu, agis maintenant! » La Hongdie émanant de la fumée rouge, empreinte de dignité, lança un regard vers Wang Lin.

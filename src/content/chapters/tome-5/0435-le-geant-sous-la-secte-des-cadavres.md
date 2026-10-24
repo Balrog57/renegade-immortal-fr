@@ -71,7 +71,7 @@ Ces trois mois de trêve étaient une période propice au rétablissement. Toute
 
 À cinq mille kilomètres de là, un nuage noir recouvrait la zone: c'était là que se trouvait l'armée d'assaut occidentale du Clan des Immortels Délaissés.
 
-Au centre du camp des cultivateurs se dressait une hutte très luxueuse. Qian Feng était assis en tailleur devant, Papillon Rouge debout derrière lui. Ses yeux ternes laissaient voir une certaine confusion mêlée à un combat intérieur profondément dissimulé.
+Au centre du camp des cultivateurs se dressait une hutte très luxueuse. Qian Feng était assis en tailleur devant, Hongdie debout derrière lui. Ses yeux ternes laissaient voir une certaine confusion mêlée à un combat intérieur profondément dissimulé.
 
 Le regard de Qian Feng était aussi tranchant que l'éclair alors qu'il fixait le nuage noir au loin. Son expression était d'une grande noirceur.
 

@@ -34,7 +34,7 @@ Lorsque leurs yeux se croisèrent, l'esprit de Wang Lin sembla vaciller. Cela su
 
 L'expression de Wang Lin changea tandis qu'il fixait la femme, et son rythme cardiaque s'accéléra. Cette femme lui procurait un sentiment de familiarité, mais celui-ci restait voilé par un rideau de brume. Wang Lin ne parvenait pas à identifier la source de cette sensation!
 
-« Wan Er... Li Qianmei... Zhou Ru... Papillon Rouge... » En plongeant son regard dans les yeux de la femme, une liste de visages défilait dans l'esprit de Wang Lin. Pourtant, il ne trouvait aucune origine à cette familiarité.
+« Wan Er... Li Qianmei... Zhou Ru... Hongdie... » En plongeant son regard dans les yeux de la femme, une liste de visages défilait dans l'esprit de Wang Lin. Pourtant, il ne trouvait aucune origine à cette familiarité.
 
 « Elle ne ressemble à aucune d'entre elles... » fit remarquer Wang Lin en l'examinant de plus près. Il constata qu'elle lui était très étrangère et bien différente de ce qu'il avait espéré.
 

@@ -20,7 +20,7 @@ Vêtu d'une longue chemise blanche, il se tenait à l'extérieur du bassin de la
 
 « Si tu choisis de devenir l'Empereur Céleste, alors tu seras le véritable Empereur Céleste qui n'est plus en sommeil! »
 
-« De plus, Situ, Qing Shui, Treize, Da Tou, Papillon Rouge... Vous êtes tous sur le Continent Astral Immortel, et puisque aucun de vous ne se trouve dans le Clan Ancien, vous devez tous vous être réincarnés sur les terres du clan céleste. Cette fois, je vous trouverai sans faute! »
+« De plus, Situ, Qing Shui, Treize, Da Tou, Hongdie... Vous êtes tous sur le Continent Astral Immortel, et puisque aucun de vous ne se trouve dans le Clan Ancien, vous devez tous vous être réincarnés sur les terres du clan céleste. Cette fois, je vous trouverai sans faute! »
 
 « Et il y a aussi... Li Qianmei... » L'expression de Wang Lin devint complexe. Dans un soupir, il s'élança avec une vélocité bien supérieure à celle d'autrefois, volant à cent fois la vitesse qu'il avait employée pour parcourir cette distance la première fois.
 

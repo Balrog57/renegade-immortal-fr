@@ -22,7 +22,7 @@ La réalité était très proche de ce que Wang Lin avait pressenti. Bien qu'il 
 
 Seuls les quatre cultivateurs Ascendants de Suzaku ne sentiraient pas leur cœur se serrer en utilisant une pierre de jade céleste pour un transfert.
 
-Tout en volant, Wang Lin toucha le piège à bêtes sur son poignet droit. Lors de son second combat contre Papillon Rouge, la grenouille tonitruante avait subi une blessure si grave qu'elle avait frôlé la mort. Bien qu'elle fût toujours prisonnière du piège, elle n'absorbait plus de l'énergie spirituelle tous les quelques jours, mais seulement tous les quelques mois.
+Tout en volant, Wang Lin toucha le piège à bêtes sur son poignet droit. Lors de son second combat contre Hongdie, la grenouille tonitruante avait subi une blessure si grave qu'elle avait frôlé la mort. Bien qu'elle fût toujours prisonnière du piège, elle n'absorbait plus de l'énergie spirituelle tous les quelques jours, mais seulement tous les quelques mois.
 
 Wang Lin savait que sans son aide constante pour injecter de l'énergie dans le dispositif, la grenouille tonitruante serait déjà morte.
 
@@ -108,7 +108,7 @@ Liu Fei ajouta: « Ceng Niu! Hélas, si cet homme n'existait pas, le Clan des D�
 
 Song Qing lança avec ironie: « Si seulement Ceng Niu pouvait venir dans mon pays, ce désastre serait résolu. » Il ne disait cela que pour se moquer de lui-même; il n'envisageait même pas une chance infime que cela arrive.
 
-Liu Fei eut un sourire amer. « Ceng Niu est un aîné capable d'arracher un bras à Papillon Rouge. Je crains qu'il n'ait même jamais entendu parler de Chu. »
+Liu Fei eut un sourire amer. « Ceng Niu est un aîné capable d'arracher un bras à Hongdie. Je crains qu'il n'ait même jamais entendu parler de Chu. »
 
 Li Muwan murmura: « Vous pouvez partir et transmettre mes dernières volontés aux deux Grands Anciens en méditation de porte close. Une fois que je vous aurai rendu vos essences de sang, fuyez cet endroit... »
 

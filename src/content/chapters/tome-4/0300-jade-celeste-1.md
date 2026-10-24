@@ -8,9 +8,9 @@ slug: jade-celeste-1
 ---
 Après avoir projeté sa paume, toute l'énergie spirituelle contenue dans le corps de Wang Lin disparut. En raison du piège à bêtes, il était habitué à cette situation; il prit donc rapidement quelques pilules. Avant même que celles-ci ne soient totalement dissoutes, il sortit le jade, ouvrit la formation et choisit un fragment au hasard.
 
-Lorsque Papillon Rouge leva la tête, Wang Lin avait déjà disparu. Un éclat de froideur passa dans son regard.
+Lorsque Hongdie leva la tête, Wang Lin avait déjà disparu. Un éclat de froideur passa dans son regard.
 
-« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, ses techniques de Dao sont extraordinaires, il est audacieux et méticuleux, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être un disciple d'élite formé à grands frais par un pays de culture de rang 5 de la planète Suzaku... » Les yeux de Papillon Rouge s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
+« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, ses techniques de Dao sont extraordinaires, il est audacieux et méticuleux, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être un disciple d'élite formé à grands frais par un pays de culture de rang 5 de la planète Suzaku... » Les yeux de Hongdie s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
 
 Wang Lin n'examina pas soigneusement le fragment vers lequel il se dirigeait cette fois; il en choisit un au hasard. À son arrivée, il ne put s'empêcher d'être stupéfait. Ce fragment ressemblait à un monde de feu où la lave recouvrait le sol. Par intermittence, des bulles bouillonnantes éclataient, dégageant une odeur âcre.
 

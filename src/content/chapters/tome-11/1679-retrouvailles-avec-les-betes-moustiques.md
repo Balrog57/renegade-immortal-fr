@@ -24,7 +24,7 @@ Telle était la personnalité de Li Qianmei.
 
 Aucune parole ne pouvait être échangée entre eux deux. Après un long moment, Mu Bingmei ouvrit la bouche pour rompre le silence, mais Wang Lin avait fermé les yeux pour cultiver et comprendre « Déchirer les Cieux ».
 
-Les mots de Mu Bingmei se dissipèrent dans sa bouche et elle ne dit rien. Sa personnalité n'était pas celle de Li Qianmei; elle était différente de Xi Zifeng et même de Papillon Rouge.
+Les mots de Mu Bingmei se dissipèrent dans sa bouche et elle ne dit rien. Sa personnalité n'était pas celle de Li Qianmei; elle était différente de Xi Zifeng et même de Hongdie.
 
 Elle était elle-même, Mu Bingmei.
 

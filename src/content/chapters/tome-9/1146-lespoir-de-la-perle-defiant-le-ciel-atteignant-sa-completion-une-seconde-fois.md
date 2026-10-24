@@ -74,7 +74,7 @@ Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il 
 
 Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte de l'Origine, il lui fallait une identité pour n'éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
 
-Wang Lin avait rencontré d'innombrables personnes au cours de sa vie, mais peu de femmes étaient aussi intelligentes. Différente de l'humeur changeante de Liu Mei, différente de l'arrogance de Papillon Rouge, différente de la douceur de Li Muwan. C'était là de la perspicacité, une perspicacité qui ne se dévoile pas à la légère!
+Wang Lin avait rencontré d'innombrables personnes au cours de sa vie, mais peu de femmes étaient aussi intelligentes. Différente de l'humeur changeante de Liu Mei, différente de l'arrogance de Hongdie, différente de la douceur de Li Muwan. C'était là de la perspicacité, une perspicacité qui ne se dévoile pas à la légère!
 
 Après réflexion, Wang Lin esquissa un sourire et murmura: « Lu Zihao… Cette identité me permettra de prendre racine dans le Système Stellaire de la Mer des Nuages! »
 

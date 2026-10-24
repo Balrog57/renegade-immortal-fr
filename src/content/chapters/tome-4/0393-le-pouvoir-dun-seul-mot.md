@@ -8,7 +8,7 @@ slug: le-pouvoir-dun-seul-mot
 ---
 Le regard de Wang Lin devint glacial. Il pointa du doigt son front et la perle défiant le ciel apparut.
 
-Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal de la taille d'un poing, scintillant d'une lueur verte. C'était la moitié de l'esprit de bois que Wang Lin avait dérobée sous le nez de l'Ancien du mont Suzaku pendant son combat contre Papillon Rouge.
+Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal de la taille d'un poing, scintillant d'une lueur verte. C'était la moitié de l'esprit de bois que Wang Lin avait dérobée sous le nez de l'Ancien du mont Suzaku pendant son combat contre Hongdie.
 
 « Métal, bois, eau, feu et terre; la perle défiant le ciel ne manque plus que du métal et de la moitié de l'élément bois. Selon ce que Situ Nan a dit, une fois que les cinq éléments seront complets, elle pourra reconnaître un maître et déployer sa puissance. Ce jour arrivera bientôt. » Wang Lin approcha le cristal d'élément bois vers la perle.
 
@@ -44,11 +44,11 @@ Plusieurs énormes blocs de glace l'entouraient, chacun émettant une énergie s
 
 Cette méthode de guérison ne suffisait pourtant toujours pas à Li Yuanfeng.
 
-Au cours des deux dernières années, il avait envoyé des gens au mont Suzaku pour obtenir du jade céleste auprès de Papillon Rouge, mais ils étaient systématiquement arrêtés à l'extérieur.
+Au cours des deux dernières années, il avait envoyé des gens au mont Suzaku pour obtenir du jade céleste auprès de Hongdie, mais ils étaient systématiquement arrêtés à l'extérieur.
 
-Li Yuanfeng était très perplexe. Avec le temps, la suspicion s'installa et il ne put s'empêcher de nourrir de la rancœur envers Papillon Rouge.
+Li Yuanfeng était très perplexe. Avec le temps, la suspicion s'installa et il ne put s'empêcher de nourrir de la rancœur envers Hongdie.
 
-Après tout, il avait été blessé en tentant de tuer Ceng Niu, et tout cela pour Papillon Rouge.
+Après tout, il avait été blessé en tentant de tuer Ceng Niu, et tout cela pour Hongdie.
 
 Il avait passé ces deux années à tenter de soigner ses blessures. Selon ses calculs, il lui faudrait encore une année pour s'en remettre complètement.
 

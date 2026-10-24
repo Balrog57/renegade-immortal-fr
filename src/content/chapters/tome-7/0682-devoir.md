@@ -50,7 +50,7 @@ Sun Xi réfléchit en silence et eut un sourire amer: « Lorsque j'ai atteint le
 
 En pensant à l'épreuve de la vie ou de la mort pour atteindre le stade Ascendant, Wang Lin soupira: « Je ne peux pas vous aider à atteindre le stade Ascendant. Au mieux, puisque votre compréhension demeure, je peux vous aider à atteindre le stade de la Transformation de l'Âme. Cependant, cela nécessitera une pilule de culture de rang huit, et votre culture s'arrêtera alors définitivement, sans aucune possibilité de progression. »
 
-Autrefois sur la planète Suzaku, Papillon Rouge avait attiré l'attention du pays de Suzaku, ce qui permit au pays de Xue Yu d'être promu au rang de pays de culture de cinquième niveau. Le maître de secte avait été directement élevé de la Formation de l'Âme à la Transformation de l'Âme par une méthode similaire, mais il n'avait plus jamais progressé de sa vie.
+Autrefois sur la planète Suzaku, Hongdie avait attiré l'attention du pays de Suzaku, ce qui permit au pays de Xue Yu d'être promu au rang de pays de culture de cinquième niveau. Le maître de secte avait été directement élevé de la Formation de l'Âme à la Transformation de l'Âme par une méthode similaire, mais il n'avait plus jamais progressé de sa vie.
 
 À cet instant, Wang Lin possédait une pilule de rang huit. Sous son contrôle, il pourrait faire en sorte que Sun Xi supporte les effets du remède.
 

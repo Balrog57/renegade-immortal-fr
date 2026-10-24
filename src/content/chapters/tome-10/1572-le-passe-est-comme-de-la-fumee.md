@@ -117,4 +117,4 @@ Il baissa la tête.
 
 Wang Lin resta muet. Il but le vin de la famille Ceng avec Zhou Wutai jusqu'à ce que la lune disparaisse, et que l'aube blanchisse le ciel.
 
-— Wang Lin, Papillon Rouge n'est peut-être pas morte! lança Zhou Wutai, l'âme ivre, au moment où le soleil commençait à poindre.
+— Wang Lin, Hongdie n'est peut-être pas morte! lança Zhou Wutai, l'âme ivre, au moment où le soleil commençait à poindre.

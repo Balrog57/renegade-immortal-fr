@@ -74,7 +74,7 @@ Il rétracta lentement son sens divin jusqu'à ce qu'il soit de nouveau contenu 
 
 Wang Lin avait découvert trop de choses lors de ce retour sur la planète Suzaku. Ces révélations étaient accablantes et rendaient sa planète natale plus étrangère que jamais.
 
-« Le Papillon Rouge n'est pas mort... »
+« Hongdie n'est pas mort... »
 « Le 19e niveau du Clan du Tatouage scellait la flèche de Li Guang... »
 « Le Champ de Bataille Extérieur d'autrefois n'était qu'une zone restreinte, et il existe un monde bien plus vaste au-delà. Il s'avère que tout cela fait partie de la porte... »
 
@@ -112,7 +112,7 @@ Le pied droit de Wang Lin, qui venait de se lever, s'immobilisa soudainement et 
 
 « Quelque chose ne va pas!! » Les trois images vues précédemment lui traversèrent l'esprit: l'oiseau qui mourait, la poussière qui ne dérivait pas et les cailloux qui ne bougeaient pas!
 
-Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans la Tombe Antique ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité que Papillon Rouge avait provoquée; c'était une épreuve que Wang Lin devait affronter!
+Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans la Tombe Antique ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité que Hongdie avait provoquée; c'était une épreuve que Wang Lin devait affronter!
 
 Ce n'est qu'en survivant à cette calamité qu'il serait digne de continuer à vivre! Telle fut l'illumination qui le frappa au moment même où il vit les nuages noirs tourbillonner au loin!
 

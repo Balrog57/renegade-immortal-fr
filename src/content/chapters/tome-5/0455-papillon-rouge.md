@@ -1,9 +1,9 @@
 ---
 n: 455
-title: Papillon Rouge
+title: Hongdie
 book: 5
 bookTitle: Cultivation Planet Crystal
-en: Chapter 455 - Papillon Rouge
+en: Chapter 455 - Hongdie
 slug: papillon-rouge
 ---
 Les yeux de Wang Lin s'illuminèrent. Tout en reculant, il leva l'épée céleste pour intercepter l'attaque.
@@ -122,4 +122,4 @@ Après avoir rangé l'épée céleste, il regarda la montagne arc-en-ciel au loi
 
 Elle se tenait là, tel un papillon rouge voulant s'envoler avec le vent, mais contrainte de rester dans la poussière du monde.
 
-« Papillon Rouge! »
+« Hongdie! »

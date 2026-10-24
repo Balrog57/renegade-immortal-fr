@@ -22,11 +22,11 @@ Wang Lin avait déjà utilisé son pouvoir de dévoreur d'âmes pour s'approprie
 
 À l'origine, avec son niveau de culture, ce cultivateur n'aurait pas eu le droit de posséder une tour de glace; mais son oncle jouissant d'une certaine influence à Xue Yu, cette petite ville et la tour lui avaient été assignées.
 
-À travers les souvenirs de cet homme, Wang Lin apprit que le génie de Xue Yu se nommait Papillon Rouge et qu'elle était partie avec un cultivateur de Suzaku il y a quelques années.
+À travers les souvenirs de cet homme, Wang Lin apprit que le génie de Xue Yu se nommait Hongdie et qu'elle était partie avec un cultivateur de Suzaku il y a quelques années.
 
 En même temps que les sept Grands Anciens partis, treize autres cultivateurs, plus âgés encore que ces derniers, s'étaient également éclipsés. Ils s'étaient rendus à Suzaku pour subir la cérémonie d'investiture.
 
-La requête de Papillon Rouge pour rejoindre Suzaku consistait à faire de Xue Yu un pays de culture de rang 5 et à leur offrir un nouveau foyer. La seconde demande avait été satisfaite; il ne restait désormais que la première.
+La requête de Hongdie pour rejoindre Suzaku consistait à faire de Xue Yu un pays de culture de rang 5 et à leur offrir un nouveau foyer. La seconde demande avait été satisfaite; il ne restait désormais que la première.
 
 Tous les cultivateurs de Xue Yu en étaient vaguement informés, mais grâce à l'oncle du cultivateur, cet homme en savait bien plus que la normale.
 
@@ -40,9 +40,9 @@ Il n'y avait aucun moyen d'en changer l'issue. Ils ne disposeraient que de cent 
 
 Par conséquent, c'était aussi une chance pour ceux dont la durée de vie touchait à sa fin. Après tout, comme il ne leur restait plus beaucoup de temps à vivre, cela valait le coup de tenter le tout pour le tout.
 
-Si l'un des treize réussissait, Suzaku accorderait à Xue Yu les privilèges d'un pays de culture de rang 5 pendant un siècle. Durant ces cent ans, l'un des sept Grands Anciens ayant suivi Papillon Rouge atteindrait la Transformation de l'Âme, consolidant ainsi leur statut de nation de rang 5.
+Si l'un des treize réussissait, Suzaku accorderait à Xue Yu les privilèges d'un pays de culture de rang 5 pendant un siècle. Durant ces cent ans, l'un des sept Grands Anciens ayant suivi Hongdie atteindrait la Transformation de l'Âme, consolidant ainsi leur statut de nation de rang 5.
 
-C'était une promesse que Suzaku avait faite à Papillon Rouge, et la condition de son ralliement.
+C'était une promesse que Suzaku avait faite à Hongdie, et la condition de son ralliement.
 
 Les cinq pays de culture de rang 4 environnants avaient tous accepté leur sort et se tenaient prêts à devenir les États vassaux de Xue Yu.
 
@@ -58,7 +58,7 @@ Ce genre de choses était très rare entre maîtres et disciples dans les autres
 
 Mais dans cet étrange pays, c'était une pratique très courante. Selon les souvenirs du cultivateur, de nombreux autres membres de Xue Yu entretenaient des relations avec leurs disciples.
 
-Ces comportements étaient devenus si banaux que personne ne méprisait ceux qui s'y adonnaient. Ce cultivateur avait même remarqué un jour, avec malveillance, que si le maître de Papillon Rouge n'avait pas été une femme, Papillon Rouge aurait sans doute elle aussi servi son maître.
+Ces comportements étaient devenus si banaux que personne ne méprisait ceux qui s'y adonnaient. Ce cultivateur avait même remarqué un jour, avec malveillance, que si le maître de Hongdie n'avait pas été une femme, Hongdie aurait sans doute elle aussi servi son maître.
 
 Wang Lin ne put qu'esquisser un sourire amer face à ce constat. Cela ne faisait qu'aggraver l'opinion qu'il avait de Xue Yu.
 

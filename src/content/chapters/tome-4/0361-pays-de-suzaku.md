@@ -42,9 +42,9 @@ D'innombrables familles de culture dépendaient de ces trois sectes; elles s'app
 
 Soudain, un rayon de lumière tomba du ciel sur un autel à Suzaku, provoquant l'émanation d'ondes d'énergie spirituelle.
 
-Papillon Rouge était assise sur une feuille de lotus dans les montagnes arrières de la Secte du Jade Céleste. Elle ouvrit brusquement les yeux et fixa le rayon qui venait de descendre des cieux.
+Hongdie était assise sur une feuille de lotus dans les montagnes arrières de la Secte du Jade Céleste. Elle ouvrit brusquement les yeux et fixa le rayon qui venait de descendre des cieux.
 
-Le regard de Papillon Rouge devint glacial et elle murmura: « Il est venu... »
+Le regard de Hongdie devint glacial et elle murmura: « Il est venu... »
 
 Wang Lin apparut lentement sur l'autel, suivi par Feng Yushan. Ce dernier poussa un soupir de soulagement. Puisque Ceng Niu était là, il pouvait enfin aller rapporter la nouvelle au Mont Suzaku.
 
@@ -66,7 +66,7 @@ Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mai
 
 L'expression de Wang Lin resta impassible. Il la regarda et demanda: « La Secte du Chemin de l'Immortel? »
 
-Neige Blanche acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Papillon Rouge. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte du Chemin de l'Immortel est chargée de votre accueil. »
+Neige Blanche acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Hongdie. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte du Chemin de l'Immortel est chargée de votre accueil. »
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
@@ -80,7 +80,7 @@ Feng Yushan regarda la grue avec envie avant de quitter l'autel pour s'envoler v
 
 Neige Blanche jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Ceng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Ceng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
 
-Après un long silence, Neige Blanche demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Papillon Rouge? »
+Après un long silence, Neige Blanche demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Hongdie? »
 
 Wang Lin détourna son regard de la vue sur Suzaku et secoua la tête: « Aucune certitude! »
 
@@ -94,7 +94,7 @@ Il réfléchit un instant et demanda: « Chère cultivatrice Neige Blanche, quel
 
 La voix de Neige Blanche était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
 
-« La sœur cadette Papillon Rouge est une disciple de la Secte du Jade Céleste. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
+« La sœur cadette Hongdie est une disciple de la Secte du Jade Céleste. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
 
 Le regard de Wang Lin resta calme et il garda le silence.
 
@@ -114,9 +114,9 @@ Neige Blanche murmura: « C'est là que se situe la Secte du Jade Céleste. À c
 
 Le regard de Wang Lin devint glacial alors qu'il fixait la silhouette rouge, mais il resta muet. La figure écarlate disparut lentement tandis que la grue s'éloignait.
 
-Papillon Rouge se tenait aux abords de la Secte du Jade Céleste et regarda Wang Lin disparaître lentement. Ses yeux devinrent encore plus froids alors qu'un vent soudain faisait flotter sa manche vide.
+Hongdie se tenait aux abords de la Secte du Jade Céleste et regarda Wang Lin disparaître lentement. Ses yeux devinrent encore plus froids alors qu'un vent soudain faisait flotter sa manche vide.
 
-« Il est bien venu! » Papillon Rouge se retourna et disparut à nouveau dans l'enceinte de la secte.
+« Il est bien venu! » Hongdie se retourna et disparut à nouveau dans l'enceinte de la secte.
 
 Perché sur la grue, Wang Lin lança un regard froid à Neige Blanche. Cette femme avait délibérément choisi cet itinéraire; elle devait avoir ses propres desseins.
 

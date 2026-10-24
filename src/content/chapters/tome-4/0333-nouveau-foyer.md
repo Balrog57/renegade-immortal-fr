@@ -74,9 +74,9 @@ Les yeux de Li Muwan s'illuminèrent. Dans son état actuel, elle était d'une b
 
 Wang Lin raconta en détail à Li Muwan ce qui lui était arrivé au cours des cent dernières années. Cela fit écarquiller les yeux de la jeune femme.
 
-Elle dit avec inquiétude: « Si cette Papillon Rouge découvre que tu es Ceng Niu, elle viendra certainement te chercher. »
+Elle dit avec inquiétude: « Si cette Hongdie découvre que tu es Ceng Niu, elle viendra certainement te chercher. »
 
-Le regard de Wang Lin se fit intense. Il répondit calmement: « Quant à Papillon Rouge, avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la repousser à nouveau le moment venu! »
+Le regard de Wang Lin se fit intense. Il répondit calmement: « Quant à Hongdie, avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la repousser à nouveau le moment venu! »
 
 Li Muwan le regarda et dit soudainement: « Te souviens-tu encore de la grotte dans la Mer des Démons? Wang Lin, je veux y retourner... Je veux aussi voir Huo Fen. »
 

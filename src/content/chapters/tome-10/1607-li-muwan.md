@@ -52,7 +52,7 @@ Si les ailes du papillon étaient trempées par la pluie, il ne pourrait plus vo
 
 En contemplant le papillon sous la feuille, les yeux de Wang Lin s'illuminèrent d'une lueur d'illumination. Il fixa l'insecte longuement.
 
-« Appelons-la Papillon Rouge... Le papillon dans la pluie, à la lumière rouge vive et délicate, qui mènera une vie fière et éclatante. »
+« Appelons-Hongdie... Le papillon dans la pluie, à la lumière rouge vive et délicate, qui mènera une vie fière et éclatante. »
 
 Les paroles de Wang Lin étaient douces et empreintes d'un sentiment inexplicable alors qu'il regardait l'enfant. La petite fille sembla comprendre ses mots et rit de plus belle.
 

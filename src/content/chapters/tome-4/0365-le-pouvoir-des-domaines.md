@@ -32,9 +32,9 @@ Les coups de fouet incessants rendirent la bête spirituelle furieuse, mais elle
 
 Le corps du géant trembla sous l'impact et de multiples fissures apparurent. Des fragments de glace se détachèrent et le géant rétrécit encore une fois; il ne mesurait plus que 6,6 mètres de haut, et la glace autour de son épaule droite commença à fondre.
 
-La bête spirituelle s'apprêtait à se retourner pour une nouvelle attaque quand Papillon Rouge ouvrit les yeux. La malédiction fut refoulée, ne laissant qu'une unique ligne noire sur son front.
+La bête spirituelle s'apprêtait à se retourner pour une nouvelle attaque quand Hongdie ouvrit les yeux. La malédiction fut refoulée, ne laissant qu'une unique ligne noire sur son front.
 
-D'une voix pressante et empreinte d'obscurité, Papillon Rouge ordonna: « Fouet Kunji! Révèle ta véritable forme! »
+D'une voix pressante et empreinte d'obscurité, Hongdie ordonna: « Fouet Kunji! Révèle ta véritable forme! »
 
 Cette fois, un fouet d'un blanc pur apparut dans la main gauche du géant de glace. Ce fouet n'était plus une illusion comme auparavant, mais une arme solide qui fouetta la bête spirituelle avec frénésie.
 
@@ -50,7 +50,7 @@ Poursuite!
 
 Le regard de Wang Lin devint glacial; il leva son épée et la traqua!
 
-Le visage de Papillon Rouge était sombre. La bataille d'aujourd'hui était bien plus éprouvante que celle qu'ils avaient menée dans le Royaume Céleste. Elle n'aurait jamais imaginé que ce Ceng Niu aurait acquis une telle puissance en seulement quelques décennies.
+Le visage de Hongdie était sombre. La bataille d'aujourd'hui était bien plus éprouvante que celle qu'ils avaient menée dans le Royaume Céleste. Elle n'aurait jamais imaginé que ce Ceng Niu aurait acquis une telle puissance en seulement quelques décennies.
 
 En repensant au Royaume Céleste, lorsqu'elle avait déployé toute sa force pour l'éliminer, Ceng Niu ne pouvait que fuir, incapable de lui opposer la moindre résistance. Plus tard, elle n'avait été contrainte que parce qu'il possédait un trésor capable de faire s'effondrer le Royaume Céleste. Elle n'avait jamais considéré Wang Lin comme un adversaire de taille.
 
@@ -78,21 +78,21 @@ Elle n'avait vécu une telle fuite que deux fois dans sa vie: la première fois 
 
 Être forcée de fuir ainsi deux fois par le même homme était une insulte suprême. Elle en éprouvait une honte profonde qui ne faisait qu'attiser sa haine.
 
-Wang Lin la poursuivait de près, l'expression sombre. Observant la silhouette qui se téléportait sans cesse devant lui, il lança: « Papillon Rouge, où est passée ta fierté? La fille céleste de Suzaku doit-elle fuir devant moi, un simple cultivateur au milieu de la Formation de l'Âme? »
+Wang Lin la poursuivait de près, l'expression sombre. Observant la silhouette qui se téléportait sans cesse devant lui, il lança: « Hongdie, où est passée ta fierté? La fille céleste de Suzaku doit-elle fuir devant moi, un simple cultivateur au milieu de la Formation de l'Âme? »
 
-« Ceng Niu!! Si je ne te tue pas, je ne m'appelle pas Papillon Rouge! Technique de l'avatar! » Bien que Wang Lin la provoquât, son orgueil l'obligeait à lutter.
+« Ceng Niu!! Si je ne te tue pas, je ne m'appelle pas Hongdie! Technique de l'avatar! » Bien que Wang Lin la provoquât, son orgueil l'obligeait à lutter.
 
 Un changement soudain survint.
 
-Elle poussa un cri et une rose apparut devant le géant de glace. Il n'y avait point de pétales, seulement deux étamines. Sans hésiter, l'âme originelle de Papillon Rouge s'échappa et se divisa en deux; une moitié pénétra les étamines.
+Elle poussa un cri et une rose apparut devant le géant de glace. Il n'y avait point de pétales, seulement deux étamines. Sans hésiter, l'âme originelle de Hongdie s'échappa et se divisa en deux; une moitié pénétra les étamines.
 
 Les deux étamines fusionnèrent pour former une silhouette magnifique, enveloppée d'une brume rouge. La figure prit rapidement corps et révéla son apparence.
 
-Un avatar ressemblant trait pour trait à Papillon Rouge apparut, avec la seule différence qu'il possédait tous ses membres.
+Un avatar ressemblant trait pour trait à Hongdie apparut, avec la seule différence qu'il possédait tous ses membres.
 
-L'avatar de Papillon Rouge ouvrit les yeux, d'un calme olympien. Si la véritable Papillon Rouge était froide et impitoyable, cet avatar ne manifestait aucune émotion et restait d'une sérénité absolue.
+L'avatar de Hongdie ouvrit les yeux, d'un calme olympien. Si la véritabHongdie était froide et impitoyable, cet avatar ne manifestait aucune émotion et restait d'une sérénité absolue.
 
-Depuis le géant, la véritable Papillon Rouge lança: « Ceng Niu, je me fiche de renoncer à mon ascension vers le stade de la Transformation de l'Âme pour te tuer! »
+Depuis le géant, la véritabHongdie lança: « Ceng Niu, je me fiche de renoncer à mon ascension vers le stade de la Transformation de l'Âme pour te tuer! »
 
 Cet avatar était une entité qu'elle avait cultivée pour faciliter son passage vers la Transformation de l'Âme. À moins d'une nécessité absolue, elle ne l'aurait jamais invoqué.
 
@@ -100,15 +100,15 @@ Mais aujourd'hui, pour achever Wang Lin, le prix n'avait plus d'importance!
 
 Bien que cet avatar contînt une partie de son âme originelle, il ne possédait aucune énergie spirituelle. Il renfermait la compréhension du Dao céleste qu'elle avait acquise de toute sa vie : son domaine impitoyable s'y accumulait à un rythme démultiplié.
 
-Papillon Rouge et son avatar déclarèrent de concert: « Domaine impitoyable! »
+Hongdie et son avatar déclarèrent de concert: « Domaine impitoyable! »
 
 L'avatar s'élança rapidement, émettant une lumière multicolore.
 
-D'une voix suave et séduisante, l'avatar de Papillon Rouge déclara: « Attirer toutes les émotions du monde mortel pour ensuite, par l'épée de la sagesse, tout trancher. Voici le domaine impitoyable! »
+D'une voix suave et séduisante, l'avatar de Hongdie déclara: « Attirer toutes les émotions du monde mortel pour ensuite, par l'épée de la sagesse, tout trancher. Voici le domaine impitoyable! »
 
 « Émotions, venez à moi... »
 
-La couleur du ciel changea brusquement et une puissance mystérieuse recouvrit la terre et les cieux. Des orbes de lumière aux sept couleurs se condensèrent soudainement autour de l'avatar de Papillon Rouge et flottèrent vers Wang Lin.
+La couleur du ciel changea brusquement et une puissance mystérieuse recouvrit la terre et les cieux. Des orbes de lumière aux sept couleurs se condensèrent soudainement autour de l'avatar de Hongdie et flottèrent vers Wang Lin.
 
 « Amour filial! »
 
@@ -128,7 +128,7 @@ Le ciel fut soudainement déchiré par une main gigantesque, ouvrant une faille 
 
 On y voyait des montagnes imposantes et des rivières impétueuses. Bien qu'ils semblassent immobiles, ils étaient en réalité animés de mouvement. Sous l'éclat du parchemin de la vie et de la mort, l'âme originelle de Wang Lin brillait. Une expression complexe traversa son visage alors qu'il contemplait les figures devant lui.
 
-L'avatar de Papillon Rouge tonna: « Épée de la sagesse! »
+L'avatar de Hongdie tonna: « Épée de la sagesse! »
 
 Une immense ombre d'épée aux sept couleurs apparut devant elle.
 
@@ -136,13 +136,13 @@ Une immense ombre d'épée aux sept couleurs apparut devant elle.
 
 Les parents de Wang Lin furent fauchés par l'épée, suivis peu après par Li Muwan. Da Niu et son fils furent abattus d'une paume par Teng Huayuan, qui disparut lui-même après un coup de lame.
 
-« Impitoyable! » L'avatar de Papillon Rouge semblait épuisé. Elle leva la main droite et pointa alors Wang Lin du doigt.
+« Impitoyable! » L'avatar de Hongdie semblait épuisé. Elle leva la main droite et pointa alors Wang Lin du doigt.
 
 L'âme originelle de Wang Lin vacilla et ses yeux s'assombrirent. Sa main droite se leva, désignant le parchemin de la vie et de la mort suspendu dans les cieux.
 
 Wang Lin murmura doucement: « Même une personne impitoyable ne peut échapper au cycle de la réincarnation... Comment les émotions du monde pourraient-elles être si aisément tranchées ou rejetées? Bien que l'épée de la sagesse soit longue, elle ne peut trancher le cycle de la réincarnation! »
 
-Un gaz noir et blanc fusionna pour engendrer la brume grise du cycle de la réincarnation. Cette brume s'échappa soudainement du parchemin sous la forme d'un doigt gigantesque et s'abattit sur l'avatar de Papillon Rouge.
+Un gaz noir et blanc fusionna pour engendrer la brume grise du cycle de la réincarnation. Cette brume s'échappa soudainement du parchemin sous la forme d'un doigt gigantesque et s'abattit sur l'avatar de Hongdie.
 
 Le corps de l'avatar trembla. Elle secoua la tête, esquissa un sourire amer et dit: « Si j'avais pu atteindre le stade de la Transformation de l'Âme, même le cycle de la réincarnation contiendrait nécessairement de l'impitoyabilité. Si le cycle de la réincarnation des cieux n'était pas impitoyable, alors il ne s'agirait plus du cycle de la réincarnation des cieux... Quel dommage... »
 

@@ -12,7 +12,7 @@ Un soupçon de parfum qui enchanterait les cœurs.
 
 Dès l'apparition du cadavre féminin, même le Grand Ancien de la Secte des Cadavres ne put s'empêcher de jeter un second regard. Ses paroles moqueuses s'éteignirent; il ne restait plus en lui que l'émerveillement.
 
-Papillon Rouge était belle, mais comparée à ce cadavre, elle n'en était guère à la hauteur.
+Hongdie était belle, mais comparée à ce cadavre, elle n'en était guère à la hauteur.
 
 Wang Lin n'en eut qu'un aperçu furtif, et son cœur ne put s'empêcher de tressaillir. Le cadavre semblait dégager une attraction si puissante qu'il éprouva l'envie de le dérober. Mais sa volonté était d'une fermeté absolue; dès que cette pensée surgit, il l'écrasa aussitôt. Néanmoins, il était couvert de sueur froide.
 
@@ -20,7 +20,7 @@ Wang Lin n'en eut qu'un aperçu furtif, et son cœur ne put s'empêcher de tress
 
 Il prit une profonde inspiration. En regardant autour de lui, il vit que Chi Hu ne cultivait plus, mais marchait, hébété, vers le cadavre. Cependant, après une dizaine de mètres, il commença à lutter pour reprendre ses esprits, révélant un visage terrifié.
 
-Même Papillon Rouge afficha une expression de confusion, mais elle restait une femme et son regard s'éclaircit rapidement. Les yeux de Wang Lin étincelèrent et se verrouillèrent sur Papillon Rouge.
+Même Hongdie afficha une expression de confusion, mais elle restait une femme et son regard s'éclaircit rapidement. Les yeux de Wang Lin étincelèrent et se verrouillèrent sur Hongdie.
 
 Le vieil homme de la Secte des Cadavres détourna les yeux. « Cette fille a dû être un personnage important du Royaume Céleste lorsqu'elle était vivante. Même moi, j'ai été fasciné par elle. »
 
@@ -66,7 +66,7 @@ Mais cela rendait l'attaque plus terrifiante encore. S'il s'était agi d'une tec
 
 Kaka! Kaka!
 
-De nombreuses failles spatiales déchirèrent le ciel et le sol s'effondra. Les fragments commençaient à s'écrouler. Chi Hu afficha une expression amère et, sans un mot, bondit vers l'entrée. Papillon Rouge le suivit de près.
+De nombreuses failles spatiales déchirèrent le ciel et le sol s'effondra. Les fragments commençaient à s'écrouler. Chi Hu afficha une expression amère et, sans un mot, bondit vers l'entrée. Hongdie le suivit de près.
 
 Le visage du vieil homme changea radicalement. À cet instant, il pointa son front et sa troisième âme en sortit. Le jeune homme apparut pour faire barrage à Zhou Yi. Cependant, dès l'apparition de cette troisième âme, elle entra en collision avec le corps de Zhou Yi et fut pulvérisée.
 
@@ -78,19 +78,19 @@ Zhou Yi rattrapa le cadavre. Ses yeux, noyés d'émotion, laissèrent échapper 
 
 « Ting Er, personne ne pourra t'emmener, personne... »
 
-L'effondrement des environs s'accéléra à mesure que les failles spatiales se multipliaient dans le ciel. Wang Lin, qui surveillait Papillon Rouge depuis longtemps, vit une lueur briller dans ses yeux. « C'est le moment! »
+L'effondrement des environs s'accéléra à mesure que les failles spatiales se multipliaient dans le ciel. Wang Lin, qui surveillait Hongdie depuis longtemps, vit une lueur briller dans ses yeux. « C'est le moment! »
 
-Le corps de Wang Lin fonça vers Papillon Rouge comme un éclair. Chi Hu vit la scène et ouvrit la bouche, mais resta muet. S'échapper vivant était sa priorité absolue.
+Le corps de Wang Lin fonça vers Hongdie comme un éclair. Chi Hu vit la scène et ouvrit la bouche, mais resta muet. S'échapper vivant était sa priorité absolue.
 
-Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Papillon Rouge. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme, et sa culture ne cessait de décliner. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
+Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Hongdie. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme, et sa culture ne cessait de décliner. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
 
-« Haha, Papillon Rouge, de telles menaces ne sont pas dignes d'une fille bénie du ciel. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
+« Haha, Hongdie, de telles menaces ne sont pas dignes d'une fille bénie du ciel. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
 
 « Condense! »
 
 Après ce cri, tout le gaz se rassembla pour former la lance que Wang Lin tenait en main alors qu'il avançait vers elle.
 
-« Papillon Rouge, ne voulais-tu donc pas encore te mesurer à moi?! » Wang Lin, à cet instant, ressemblait à un dieu céleste en s'élançant avec sa lance.
+« Hongdie, ne voulais-tu donc pas encore te mesurer à moi?! » Wang Lin, à cet instant, ressemblait à un dieu céleste en s'élançant avec sa lance.
 
 *Rip!*
 
@@ -98,9 +98,9 @@ Une immense faille spatiale fut déchirée par la puissance de l'arme.
 
 *Whoosh!*
 
-Wang Lin franchit les 99 mètres d'un bond, pointant sa lance de restriction vers la tête de Papillon Rouge.
+Wang Lin franchit les 99 mètres d'un bond, pointant sa lance de restriction vers la tête de Hongdie.
 
-« Ceng Niu, tu es devenu fou?! Cet endroit s'effondre! Si tu ne t'échappes pas maintenant, tu ne sortiras jamais d'ici! » L'expression de Papillon Rouge se décomposa. Elle sortit précipitamment une épée volante blanche pour parer l'attaque.
+« Ceng Niu, tu es devenu fou?! Cet endroit s'effondre! Si tu ne t'échappes pas maintenant, tu ne sortiras jamais d'ici! » L'expression de Hongdie se décomposa. Elle sortit précipitamment une épée volante blanche pour parer l'attaque.
 
 Ne pouvant ni esquiver ni se téléporter, elle fut contrainte de bloquer. Derrière elle, une faille; à côté, une autre; elle était encerclée par le vide. Si elle restait piégée ni boussole stellaire ni volonté de brûler son âme originelle, seule la mort lui serait offerte.
 
@@ -108,11 +108,11 @@ Bang!
 
 L'épée volante blanche vola en éclats et ses fragments se dispersèrent dans toutes les directions, disparaissant pour la plupart dans les failles spatiales. La lance de Wang Lin rétrécit également, mais elle en devint plus féroce.
 
-« Ma vie ou ma mort ne te regardent pas. Il ne sera pas trop tard pour partir une fois que je t'aurai tuée! » Wang Lin rit, mais son corps trembla lorsque le domaine impitoyable de Papillon Rouge l'atteignit soudainement.
+« Ma vie ou ma mort ne te regardent pas. Il ne sera pas trop tard pour partir une fois que je t'aurai tuée! » Wang Lin rit, mais son corps trembla lorsque le domaine impitoyable de Hongdie l'atteignit soudainement.
 
-Ce domaine était d'une puissance redoutable. Wang Lin ne put l'arrêter, mais il parvint à y résister quelques respirations. S'il réussissait à la tuer dans ce laps de temps, le domaine s'effondrerait. Il devait éliminer Papillon Rouge; cette femme avait tenté de le tuer à plusieurs reprises et constituerait une menace constante à l'avenir.
+Ce domaine était d'une puissance redoutable. Wang Lin ne put l'arrêter, mais il parvint à y résister quelques respirations. S'il réussissait à la tuer dans ce laps de temps, le domaine s'effondrerait. Il devait éliminer Hongdie; cette femme avait tenté de le tuer à plusieurs reprises et constituerait une menace constante à l'avenir.
 
-Papillon Rouge serra les dents. Alors que la lance approchait, elle leva la main et utilisa son bracelet de jade blanc pour la stopper.
+Hongdie serra les dents. Alors que la lance approchait, elle leva la main et utilisa son bracelet de jade blanc pour la stopper.
 
 *Ding!*
 
@@ -126,14 +126,14 @@ Malgré l'assaut du domaine, son corps ne faiblit pas. Il retourna sa main droit
 
 Les neuf sculptures se muèrent soudainement en neuf marionnettes parcourues de veines sanguines palpitantes. Une vague issue d'un domaine temporel s'abattit sur la zone.
 
-Papillon Rouge fut projetée en arrière après avoir utilisé son bracelet pour parer la lance, et cracha une bouchée de sang. L'effondrement des environs s'accéléra encore; le vide commençait déjà à dévorer des pans entiers de la réalité.
+Hongdie fut projetée en arrière après avoir utilisé son bracelet pour parer la lance, et cracha une bouchée de sang. L'effondrement des environs s'accéléra encore; le vide commençait déjà à dévorer des pans entiers de la réalité.
 
-« Ceng Niu!!! Je suis une disciple centrale de Suzaku! Si tu me tues, ta mort sera terrible! » Papillon Rouge était terrifiée. Cette fois, elle l'était véritablement.
+« Ceng Niu!!! Je suis une disciple centrale de Suzaku! Si tu me tues, ta mort sera terrible! » Hongdie était terrifiée. Cette fois, elle l'était véritablement.
 
 Alors qu'elle reculait, le domaine temporel se propagea depuis les neuf sculptures de bois. Elle hurla: « Domaine temporel! »
 
 Ce domaine appartenait à Qing Song, de l'Alliance des Quatre Sectes. Étant au stade intermédiaire de la Formation de l'Âme, son domaine possédait déjà une capacité d'attaque intrinsèque.
 
-Les deux doigts de Wang Lin tranchèrent l'air comme un couteau acéré prêt à graver. Sous l'effet du domaine temporel, le corps de Papillon Rouge ne put s'empêcher de ralentir. Avant ses blessures, ce domaine n'aurait même pas mérité son attention, mais dans son état il était devenu une chaîne qui liait sa vie. Ses yeux étaient remplis de haine lorsqu'elle leva la main droite et entama une étrange incantation.
+Les deux doigts de Wang Lin tranchèrent l'air comme un couteau acéré prêt à graver. Sous l'effet du domaine temporel, le corps de Hongdie ne put s'empêcher de ralentir. Avant ses blessures, ce domaine n'aurait même pas mérité son attention, mais dans son état il était devenu une chaîne qui liait sa vie. Ses yeux étaient remplis de haine lorsqu'elle leva la main droite et entama une étrange incantation.
 
 Soudain, le bracelet de jade blanc projeta une lumière éblouissante. Sous cet éclat, le domaine temporel s'effondra instantanément et Wang Lin ressentit des vagues de douleur fulgurantes dans son doigt. Cette sensation était identique à celle qu'il avait éprouvée en touchant l'épée céleste.

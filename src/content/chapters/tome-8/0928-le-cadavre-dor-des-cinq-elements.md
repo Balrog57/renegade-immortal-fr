@@ -90,7 +90,7 @@ Le dernier cadavre raffiné ne pouvait même plus être qualifié de cadavre. C'
 
 Il n'avait aucune chaîne autour de lui; seuls cinq talismans jaunes flottaient autour de sa tête. Des éclairs jaillissaient, créant une connexion étroite entre les talismans.
 
-L'aura des cinq éléments émanait de son corps. Dès que Wang Lin vit cet homme, il pensa immédiatement aux cinq éléments et à la première fois qu'il avait rencontré Papillon Rouge!
+L'aura des cinq éléments émanait de son corps. Dès que Wang Lin vit cet homme, il pensa immédiatement aux cinq éléments et à la première fois qu'il avait rencontré Hongdie!
 
 « Corps spirituel des cinq éléments! » Wang Lin recula encore plus vite. Il savait qu'avec son niveau de culture, il ne pourrait jouer qu'un rôle mineur dans une bataille de cette ampleur entre deux systèmes stellaires. C'est pourquoi, dès le départ, sa priorité était la préservation de sa propre vie.
 

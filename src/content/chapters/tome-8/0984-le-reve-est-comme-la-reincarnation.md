@@ -86,19 +86,19 @@ La ligne dorée entourait l'ombre rouge comme si elle en avait peur, suivant fid
 
 En contemplant la couronne, l'ombre rouge du passé réapparut progressivement dans ses pupilles.
 
-« Papillon Rouge... »
+« Hongdie... »
 
-Avant de mourir, Papillon Rouge avait demandé à Wang Lin de voyager jusqu'à sa terre natale. Là, il y avait trouvé une rose bleue dont l'arrogance égalait celle de Papillon Rouge.
+Avant de mourir, Hongdie avait demandé à Wang Lin de voyager jusqu'à sa terre natale. Là, il y avait trouvé une rose bleue dont l'arrogance égalait celle de Hongdie.
 
 Puis, après que Wang Lin eut obtenu la couronne, les deux avaient fusionné. Au début, il ignorait la fonction de cet objet et sentait simplement qu'une chose avait changé à l'intérieur, sans pouvoir en identifier la nature.
 
 Ce n'est que lorsque le dragon doré du vide utilisa son sort le plus puissant pour prendre la forme d'une couronne que Wang Lin comprit enfin et put sortir la véritable parure.
 
-La scène qui suivit resta gravée dans sa mémoire: la silhouette rouge qui apparut ressemblait tant à Papillon Rouge, possédant la même aura de détachement.
+La scène qui suivit resta gravée dans sa mémoire: la silhouette rouge qui apparut ressemblait tant à Hongdie, possédant la même aura de détachement.
 
-Wang Lin murmura doucement: « Papillon Rouge, est-ce toi...? »
+Wang Lin murmura doucement: « Hongdie, est-ce toi...? »
 
-Papillon Rouge fut la première personne que Wang Lin admira dans sa vie. Il était difficile d'oublier l'arrogance du génie du pays de Xue Yu, une femme pour laquelle Suzaku avait brisé ses propres règles. Ils l'avaient acceptée comme disciple et avaient élevé le rang de Xue Yu, lui permettant même de déclencher une guerre entre deux nations qui impliqua des mortels comme le couple Da Niu!
+Hongdie fut la première personne que Wang Lin admira dans sa vie. Il était difficile d'oublier l'arrogance du génie du pays de Xue Yu, une femme pour laquelle Suzaku avait brisé ses propres règles. Ils l'avaient acceptée comme disciple et avaient élevé le rang de Xue Yu, lui permettant même de déclencher une guerre entre deux nations qui impliqua des mortels comme le couple Da Niu!
 
 À la suite de ses paroles, l'ombre rouge à l'intérieur de la couronne trembla. Cependant, elle ne répondit pas; elle disparut lentement, comme pour l'éviter.
 

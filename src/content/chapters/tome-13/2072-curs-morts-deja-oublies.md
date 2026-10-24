@@ -12,9 +12,9 @@ Le papillon qui voltigeait autour de Qing Hong vint se poser dans sa main, et el
 
 Elle se retourna et aperçut un étranger vêtu de blanc, abrité sous un parapluie en papier huilé.
 
-« Papillon Rouge... Ce nom est magnifique. » Qing Hong regarda le jeune homme aux cheveux blancs et sourit. Ce sourire était semblable à une rose solitaire en pleine floraison.
+« Hongdie... Ce nom est magnifique. » Qing Hong regarda le jeune homme aux cheveux blancs et sourit. Ce sourire était semblable à une rose solitaire en pleine floraison.
 
-« Si vous le souhaitez, vous pouvez devenir Papillon Rouge. » Wang Lin contemplait la femme sublime. Les événements survenus autrefois sur la planète Suzaku défilèrent devant ses yeux.
+« Si vous le souhaitez, vous pouvez devenir Hongdie. » Wang Lin contemplait la femme sublime. Les événements survenus autrefois sur la planète Suzaku défilèrent devant ses yeux.
 
 La femme esquissa un léger sourire sans toutefois parler. Elle fixa Wang Lin, et leurs regards se croisèrent sous la pluie, s'attardant longuement l'un sur l'autre.
 
@@ -30,7 +30,7 @@ La femme tourna les yeux vers la pluie et murmura: « Si même l'Ascendant Empyr
 
 « La réincarnation... Je me suis toujours demandé si j'avais eu une vie antérieure. Sinon, pourquoi aimerais-je le rouge ou les papillons? Je m'interrogeais aussi sur l'origine de mes préférences. Rien ne surgit du néant; si cela ne vient pas de cette vie, c'est qu'il vient de la précédente. »
 
-« J'étais appelée "Papillon Rouge" dans ma vie antérieure, n'est-ce pas? » La femme ne tourna pas la tête, sa voix demeurant calme. « Pourtant, dans les rêves de ma vie antérieure, il y avait une autre vie avant elle... Dans cette vie-là, je vous ai aussi vu. »
+« J'étais appelée "Hongdie" dans ma vie antérieure, n'est-ce pas? » La femme ne tourna pas la tête, sa voix demeurant calme. « Pourtant, dans les rêves de ma vie antérieure, il y avait une autre vie avant elle... Dans cette vie-là, je vous ai aussi vu. »
 
 Wang Lin fut frappé de stupeur.
 
@@ -46,9 +46,9 @@ Les yeux de Wang Lin étaient empreints de confusion alors qu'il interrogeait la
 
 L'expression de Qing Hong devint complexe lorsqu'elle chuchota: « Oublier le passé pour ne chérir que le présent. Si je persiste à m'accrocher, de réincarnation en réincarnation, cela ne m'apportera que douleur et confusion. »
 
-« Je comprends. » Wang Lin laissa échapper un soupir. Il savait que Papillon Rouge se souvenait de quelque chose, mais ses paroles sur cette vie précédant la vie antérieure firent trembler le cœur de Wang Lin. Il repensa au Dao des rêves sur la planète Suzaku, où, sous un rideau de pluie semblable, une femme était apparue devant lui, tenant un nouveau-né.
+« Je comprends. » Wang Lin laissa échapper un soupir. Il savait que Hongdie se souvenait de quelque chose, mais ses paroles sur cette vie précédant la vie antérieure firent trembler le cœur de Wang Lin. Il repensa au Dao des rêves sur la planète Suzaku, où, sous un rideau de pluie semblable, une femme était apparue devant lui, tenant un nouveau-né.
 
-Un papillon rouge se trouvait alors dans la pluie, s'abritant sous une feuille. Lorsque la femme lui demanda de donner un nom à l'enfant, il avait murmuré ces mots: « Papillon Rouge ».
+Un papillon rouge se trouvait alors dans la pluie, s'abritant sous une feuille. Lorsque la femme lui demanda de donner un nom à l'enfant, il avait murmuré ces mots: « Hongdie ».
 
 Wang Lin resta pensif, puis fit volte-face pour s'éloigner.
 
@@ -114,4 +114,4 @@ Wang Lin contemplait la famille du forgeron. Il percevait le bonheur et la plén
 
 Wang Lin éprouva une pointe d'envie en l'observant, puis, après un long moment, il s'éloigna.
 
-« Comme Papillon Rouge, son choix est d'oublier... oublier le passé, oublier sa vie antérieure pour s'immerger dans son existence présente, traversant ce cycle sans cesse, tout en chérissant chaque instant. Leurs choix sont les bons... et le mien l'est aussi! » murmura Wang Lin pour lui-même.
+« Comme Hongdie, son choix est d'oublier... oublier le passé, oublier sa vie antérieure pour s'immerger dans son existence présente, traversant ce cycle sans cesse, tout en chérissant chaque instant. Leurs choix sont les bons... et le mien l'est aussi! » murmura Wang Lin pour lui-même.

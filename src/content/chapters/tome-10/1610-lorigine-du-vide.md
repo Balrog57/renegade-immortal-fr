@@ -74,7 +74,7 @@ Enfin, même Zhu Quezi brisa le vide pour arriver. Il demeura longuement silenci
 
 « Le lien entre moi et la Secte de l'Affinement de l'Âme est également une affaire de destin karmique. »
 
-« Qu'il s'agisse de Papillon Rouge ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde de rêve, il en va de même. Destin, destin, destin... »
+« Qu'il s'agisse de Hongdie ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde de rêve, il en va de même. Destin, destin, destin... »
 
 « Ce destin est une force externe. Par son interférence, il crée une cause karmique qui, en se combinant, forme un effet karmique. Tel un homme et une femme engendrant un enfant: l'homme et la femme sont la cause, le destin les réunit, et l'enfant qui naît d'eux est l'effet. » Wang Lin sourit et soupira doucement.
 

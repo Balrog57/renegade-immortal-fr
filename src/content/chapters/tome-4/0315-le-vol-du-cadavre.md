@@ -12,7 +12,7 @@ De nombreuses veines bleues saillaient et ondulaient sur son corps, lui donnant 
 
 Derrière lui se dressait une silhouette illusoire. Cette figure devint progressivement solide, révélant être Zhou Yi. Quant au corps original de ce dernier, il était assis en position du lotus, les yeux clos.
 
-En regardant Papillon Rouge, on constata que son visage était déjà recouvert d'une teinte noir-pourpre, rendant ses traits invisibles à l'exception de ses yeux rouges. Le ruban de ses cheveux s'était rompu et sa chevelure flottait dans les airs sans qu'aucun vent ne soufflât.
+En regardant Hongdie, on constata que son visage était déjà recouvert d'une teinte noir-pourpre, rendant ses traits invisibles à l'exception de ses yeux rouges. Le ruban de ses cheveux s'était rompu et sa chevelure flottait dans les airs sans qu'aucun vent ne soufflât.
 
 Des traces d'une odeur de mort émanaient de son corps et se propageaient dans les environs. Une silhouette illusoire se tenait également derrière elle. Cette figure n'était pas celle du vieil homme, mais celle d'un beau jeune homme qui, pourtant, possédait les mêmes traits que le vieillard.
 
@@ -22,7 +22,7 @@ Bien que le jeune homme fût entouré de brume noire, on pouvait encore distingu
 
 Chi Hu poussa un rugissement et son corps se mit soudainement en mouvement. Malgré sa stature imposante, il se déplaçait avec une rapidité inattendue, chargeant tel un éclair. Il serra les poings, créant un immense tourbillon suivi d'une puissante force d'aspiration.
 
-Le beau jeune homme derrière Papillon Rouge fit rapidement bouger ses mains, et celles de Papillon Rouge suivirent le mouvement. Une aura de mort se rassembla promptement devant elle, prenant la forme d'un long arc.
+Le beau jeune homme derrière Hongdie fit rapidement bouger ses mains, et celles de Hongdie suivirent le mouvement. Une aura de mort se rassembla promptement devant elle, prenant la forme d'un long arc.
 
 Au moment où Chi Hu chargeait vers elle dans un rugissement, l'éclat fantomatique de ses yeux brilla soudainement lorsqu'elle tira la corde de l'arc.
 
@@ -32,7 +32,7 @@ Dès qu'elle lâcha prise, un rayon d'aura de mort se mua en flèche et percuta 
 
 Bang!
 
-La terre trembla, sans toutefois s'effondrer. Il était manifeste que les attaques de Papillon Rouge et de Chi Hu n'étaient encore qu'au stade avancé de la Formation de l'Âme. Cependant, les lois célestes contenues dans ces assauts dépassaient de loin ce qu'un cultivateur de la Formation de l'Âme pouvait normalement manifester.
+La terre trembla, sans toutefois s'effondrer. Il était manifeste que les attaques de Hongdie et de Chi Hu n'étaient encore qu'au stade avancé de la Formation de l'Âme. Cependant, les lois célestes contenues dans ces assauts dépassaient de loin ce qu'un cultivateur de la Formation de l'Âme pouvait normalement manifester.
 
 Le corps de Chi Hu fut projeté en arrière de plusieurs dizaines de mètres tandis qu'il crachait des bouffées de sang. L'image illusoire derrière lui fronça immédiatement les sourcils et forma un sceau. Chi Hu bougea de concert avec elle alors qu'elle entamait une incantation mystérieuse.
 
@@ -40,21 +40,21 @@ Soudain, le ciel s'obscurcit, puis une aura mystérieuse émana de certaines fai
 
 Les yeux de Wang Lin s'illuminèrent en observant la scène. La méthode consistant à inciter le pouvoir céleste à se mouvoir était manifestement plus ingénieuse que celle de simplement l'emprunter.
 
-Le regard du beau jeune homme s'anima. La figure illusoire se transforma en fumée et pénétra complètement en Papillon Rouge. Celle-ci laissa échapper des gémissements de douleur et de résistance alors que son corps commençait à trembler.
+Le regard du beau jeune homme s'anima. La figure illusoire se transforma en fumée et pénétra complètement en Hongdie. Celle-ci laissa échapper des gémissements de douleur et de résistance alors que son corps commençait à trembler.
 
 Mais bientôt, quatre corps spirituels de couleurs différentes apparurent devant elle.
 
-De la bouche de Papillon Rouge sortit une voix masculine: « Oh? Pourquoi manque-t-il un esprit terrestre? »
+De la bouche de Hongdie sortit une voix masculine: « Oh? Pourquoi manque-t-il un esprit terrestre? »
 
 En voyant ces quatre corps spirituels surgir soudainement, les yeux de Wang Lin s'illuminèrent et il commença à réfléchir.
 
-Alors que les quatre corps spirituels venaient d'apparaître devant Papillon Rouge, Chi Hu poussa un rugissement et afficha une expression de douleur tandis que la hache sur son front clignotait frénétiquement. Elle s'agita de plus en plus vite jusqu'à quitter son corps pour se poser sur la sphère devant lui.
+Alors que les quatre corps spirituels venaient d'apparaître devant Hongdie, Chi Hu poussa un rugissement et afficha une expression de douleur tandis que la hache sur son front clignotait frénétiquement. Elle s'agita de plus en plus vite jusqu'à quitter son corps pour se poser sur la sphère devant lui.
 
-Soudain, la sphère trembla et commença à bouger d'une manière étrange, avant de prendre la forme d'une hache fend-cieux. Chaque pore du corps de Chi Hu cracha du sang, le faisant ressembler à un être de sang alors qu'il chargeait vers Papillon Rouge, son élan pareil à un arc-en-ciel.
+Soudain, la sphère trembla et commença à bouger d'une manière étrange, avant de prendre la forme d'une hache fend-cieux. Chaque pore du corps de Chi Hu cracha du sang, le faisant ressembler à un être de sang alors qu'il chargeait vers Hongdie, son élan pareil à un arc-en-ciel.
 
 L'illusion derrière Chi Hu déclara lentement: « Mon domaine est la Folie! Parce que je suis devenu fou par amour, j'ai atteint l'apogée de la démence. Cette folie peut ébranler le ciel et la terre. Chi Hu, je vais utiliser ton corps pour manifester mon domaine qui n'a pas été montré depuis plus de mille ans. Même si tu meurs, tu pourras mourir en paix! »
 
-Un étrange domaine enveloppait désormais le corps de Chi Hu. La douleur avait disparu de son visage, laissant place à une expression de démence capable de terrifier quiconque. Ses yeux étaient empreints d'une détermination farouche. Il ne regardait plus Papillon Rouge, mais la hache dans sa main, et sa résolution ne fit que s'intensifier.
+Un étrange domaine enveloppait désormais le corps de Chi Hu. La douleur avait disparu de son visage, laissant place à une expression de démence capable de terrifier quiconque. Ses yeux étaient empreints d'une détermination farouche. Il ne regardait plus Hongdie, mais la hache dans sa main, et sa résolution ne fit que s'intensifier.
 
 Cette folie n'avait pas besoin d'être dirigée vers une personne; elle pouvait l'être vers un objet. Pour Chi Hu, c'était sa hache! Son cœur de Dao, à cet instant, était cette hache même! Tant que la hache ne se briserait pas, sa volonté de combat ne s'éteindrait pas.
 
@@ -62,13 +62,13 @@ Cette détermination se mua en une puissante aura de combat! Chi Hu se tenait l�
 
 « Le domaine de la Folie contient la persistance, une forme d'obsession dévorante. Le domaine de Zhou Yi est véritablement étrange! Bien que Chi Hu ne soit qu'au stade de la Formation de l'Âme, cette aura de combat engendrée par cette obsession semble capable de terrasser des êtres célestes! » Wang Lin afficha un visage choqué en comprenant le véritable sens du domaine de la Folie.
 
-L'éclat fantomatique dans les yeux de Papillon Rouge brilla plus intensément encore lorsqu'elle pressa son front, faisant apparaître sa rose; mais celle-ci n'était plus rouge, elle était désormais noire. Sans hésiter, elle arracha les deux stigmates et les pétales restants, puis les jeta sur les quatre éléments spirituels, créant un puissant tourbillon.
+L'éclat fantomatique dans les yeux de Hongdie brilla plus intensément encore lorsqu'elle pressa son front, faisant apparaître sa rose; mais celle-ci n'était plus rouge, elle était désormais noire. Sans hésiter, elle arracha les deux stigmates et les pétales restants, puis les jeta sur les quatre éléments spirituels, créant un puissant tourbillon.
 
-Simultanément, une nuée de fumée verte s'échappa du front de Papillon Rouge. Dès son apparition, la fumée se mua en le beau jeune homme qui, d'un mouvement fluide, pénétra dans le tourbillon. Ce dernier cessa instantanément de tourner et, après une série de grondements, fusionna avec le jeune homme.
+Simultanément, une nuée de fumée verte s'échappa du front de Hongdie. Dès son apparition, la fumée se mua en le beau jeune homme qui, d'un mouvement fluide, pénétra dans le tourbillon. Ce dernier cessa instantanément de tourner et, après une série de grondements, fusionna avec le jeune homme.
 
 Des mouvements étranges survinrent alors que le tourbillon se transformait en une créature à une seule corne, à l'allure maléfique. La créature esquissa un sourire et rugit en silence.
 
-Le corps de Papillon Rouge frissonna. Après le départ du jeune homme, la fumée noire disparut de son corps. Elle recula de quelques pas, le visage d'une pâleur terrifiante alors qu'elle reprenait conscience.
+Le corps de Hongdie frissonna. Après le départ du jeune homme, la fumée noire disparut de son corps. Elle recula de quelques pas, le visage d'une pâleur terrifiante alors qu'elle reprenait conscience.
 
 Alors que Chi Hu arrivait, il abattit sa hache comme une météorite. La créature leva l'une de ses griffes pour parer l'assaut.
 
@@ -92,7 +92,7 @@ Wang Lin observa la scène, le souffle coupé.
 
 « Quel est mon cœur de Dao? »
 
-Papillon Rouge et Chi Hu retrouvèrent leurs sens. L'illusion de Zhou Yi retourna également dans son corps et redescendit lentement, mais à cet instant précis, une griffe noire surgit soudainement dans les airs pour se ruer sur lui.
+Hongdie et Chi Hu retrouvèrent leurs sens. L'illusion de Zhou Yi retourna également dans son corps et redescendit lentement, mais à cet instant précis, une griffe noire surgit soudainement dans les airs pour se ruer sur lui.
 
 La griffe était extrêmement proche du corps de Zhou Yi. L'expression sur le visage de son âme originelle changea instantanément; il poussa un rugissement et se précipita vers son corps. Il réussit à y pénétrer au moment où la griffe frappait, tentant de s'écarter légèrement, mais il fut tout de même touché.
 
@@ -112,7 +112,7 @@ L'âme originelle suivait comme l'éclair, mais à cet instant, le vieil homme s
 
 Alors qu'il riait, la griffe derrière lui se mua en un jeune homme. Ses traits ressemblaient à ceux du vieillard et il tenait la pagode dans sa main.
 
-Wang Lin observa la scène et prit une grande inspiration. Son regard se tourna soudainement vers la faible Papillon Rouge. Les yeux de Zhou Yi brillaient d'une lueur démente tandis qu'il fixait le vieil homme tel une bête prête à dévorer sa proie.
+Wang Lin observa la scène et prit une grande inspiration. Son regard se tourna soudainement vers la faibHongdie. Les yeux de Zhou Yi brillaient d'une lueur démente tandis qu'il fixait le vieil homme tel une bête prête à dévorer sa proie.
 
 « Rends-moi Ting Er!!! »
 

@@ -56,7 +56,7 @@ Les deux personnes s'approchèrent rapidement, saisirent les tasses et burent. C
 
 Le cœur de l'homme d'âge moyen se serra en voyant la vieille femme gaspiller ce thé précieux, et il répondit: « Ce Ceng Niu n'est qu'un moins que rien. Si le Mont Suzaku n'avait pas envoyé un message ordonnant de ne pas s'en prendre à lui, quelqu'un l'aurait déjà tué. »
 
-La vieille femme leva la tête et répliqua: « Mais il a osé arracher un bras à Papillon Rouge! Rappelez-vous, Papillon Rouge est l'espoir de Xue Yu. Maître de secte, vous n'avez atteint le stade de la Transformation de l'Âme que grâce à elle! »
+La vieille femme leva la tête et répliqua: « Mais il a osé arracher un bras à Hongdie! Rappelez-vous, Hongdie est l'espoir de Xue Yu. Maître de secte, vous n'avez atteint le stade de la Transformation de l'Âme que grâce à elle! »
 
 Quant au vieil homme, il baissa la tête et but son thé en silence.
 
@@ -68,11 +68,11 @@ L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Ceng Niu
 
 La vieille femme fut stupéfaite: « Il semble que le Maître de secte ait enquêté sur cet homme. »
 
-L'homme d'âge moyen hocha la tête: « Comment pourrais-je ignorer quelqu'un que le Mont Suzaku a remarqué et qui a proposé un combat contre Papillon Rouge? Le titre de Suzaku doit appartenir à Papillon Rouge. Comment pourrais-je laisser un autre le lui ravir? J'ai envoyé Liao Fan sonder le terrain avec mes trésors, ce qui m'a permis d'apprendre quelques informations. »
+L'homme d'âge moyen hocha la tête: « Comment pourrais-je ignorer quelqu'un que le Mont Suzaku a remarqué et qui a proposé un combat contre Hongdie? Le titre de Suzaku doit appartenir à Hongdie. Comment pourrais-je laisser un autre le lui ravir? J'ai envoyé Liao Fan sonder le terrain avec mes trésors, ce qui m'a permis d'apprendre quelques informations. »
 
 La vieille femme inclina respectueusement la tête et ne dit plus rien.
 
-L'homme d'âge moyen prit une autre gorgée et poursuivit lentement: « Ce n'est pas encore le moment de l'exécuter. Nous devrons attendre la fin de son combat contre Papillon Rouge. À ce moment-là, qu'il gagne ou qu'il perde, j'agirai personnellement pour le tuer. Cet homme est aussi très doué pour la fuite. J'ai reçu des nouvelles de mes alliés du Clan des Démons Géants selon lesquelles leur boussole stellaire pourrait également être en sa possession. Avec ce compas, une fois qu'il aura ouvert une faille spatiale pour entrer dans le vide, personne, si ce n'est un cultivateur au stade avancé de la Transformation de l'Âme, ne pourra le rattraper. »
+L'homme d'âge moyen prit une autre gorgée et poursuivit lentement: « Ce n'est pas encore le moment de l'exécuter. Nous devrons attendre la fin de son combat contre Hongdie. À ce moment-là, qu'il gagne ou qu'il perde, j'agirai personnellement pour le tuer. Cet homme est aussi très doué pour la fuite. J'ai reçu des nouvelles de mes alliés du Clan des Démons Géants selon lesquelles leur boussole stellaire pourrait également être en sa possession. Avec ce compas, une fois qu'il aura ouvert une faille spatiale pour entrer dans le vide, personne, si ce n'est un cultivateur au stade avancé de la Transformation de l'Âme, ne pourra le rattraper. »
 
 La vieille femme fronça les sourcils et demanda: « Que voulez-vous dire par là, Maître de secte? »
 
@@ -86,9 +86,9 @@ L'homme d'âge moyen esquissa un léger sourire et demanda: « Connais-tu son do
 
 « Oh? » Le vieil homme leva les yeux.
 
-« D'après Papillon Rouge, le domaine de cet homme est la vie et la mort; le cycle de la réincarnation. Quelqu'un capable de comprendre un tel domaine ne peut être sous-estimé, même s'il n'est qu'au stade de la Formation de l'Âme. » Les yeux de l'homme d'âge moyen trahirent une pointe d'émotion.
+« D'après Hongdie, le domaine de cet homme est la vie et la mort; le cycle de la réincarnation. Quelqu'un capable de comprendre un tel domaine ne peut être sous-estimé, même s'il n'est qu'au stade de la Formation de l'Âme. » Les yeux de l'homme d'âge moyen trahirent une pointe d'émotion.
 
-La vieille femme se mit à réfléchir et poussa un soupir. La raison pour laquelle elle voulait tuer Ceng Niu était que, lorsque Papillon Rouge était jeune, elle avait tiré un présage pour celle-ci. Dans son futur, Papillon Rouge devait faire face à une calamité!
+La vieille femme se mit à réfléchir et poussa un soupir. La raison pour laquelle elle voulait tuer Ceng Niu était que, lorsque Hongdie était jeune, elle avait tiré un présage pour celle-ci. Dans son futur, Hongdie devait faire face à une calamité!
 
 Elle craignait que cette calamité ne soit Ceng Niu!
 
@@ -108,7 +108,7 @@ Wang Lin savait qu'il avait atteint un goulot d'étranglement. S'il ne réussiss
 
 Le nombre de challengers avait considérablement diminué au cours de ces cinq ans, mais la renommée de Ceng Niu n'avait fait que croître. Il était devenu un sujet de conversation récurrent parmi les nombreux cultivateurs.
 
-Aujourd'hui marquait le jour du rendez-vous décennal avec Suzaku pour le combat contre Papillon Rouge.
+Aujourd'hui marquait le jour du rendez-vous décennal avec Suzaku pour le combat contre Hongdie.
 
 Il y a six mois, un messager de Suzaku était arrivé et avait installé une matrice de transfert à l'extérieur de la vallée. Cette matrice ne pouvait être utilisée qu'une seule fois, mais elle permettait de traverser la planète jusqu'au pays de Suzaku.
 
@@ -118,15 +118,15 @@ Durant ces dix jours, Wang Lin s'était demandé s'il devait ou non participer �
 
 Suzaku ne l'avait toujours pas tenu pour responsable des événements passés. Wang Lin sentait qu'il y avait là un piège. Il soupçonnait fort que Suzaku cherchait peut-être à l'accepter comme disciple central.
 
-Tout comme Papillon Rouge l'avait été autrefois.
+Tout comme Hongdie l'avait été autrefois.
 
 C'était là l'enjeu de ce combat. Non seulement les vieux monstres de Suzaku assisteraient à la scène, mais toute la planète en serait informée.
 
-Après tout, Papillon Rouge était trop célèbre. L'Alliance des Quatre Sectes avait été détruite et Xue Yu avait été contrainte d'être élevée au rang 5 pour elle. Un tel événement ne s'était jamais produit dans l'histoire de Suzaku.
+Après tout, Hongdie était trop célèbre. L'Alliance des Quatre Sectes avait été détruite et Xue Yu avait été contrainte d'être élevée au rang 5 pour elle. Un tel événement ne s'était jamais produit dans l'histoire de Suzaku.
 
-Par conséquent, la plupart des cultivateurs connaissaient le nom de Papillon Rouge.
+Par conséquent, la plupart des cultivateurs connaissaient le nom de Hongdie.
 
-L'apparition soudaine de Ceng Niu, en piétinant Papillon Rouge, l'avait rendu encore plus célèbre.
+L'apparition soudaine de Ceng Niu, en piétinant Hongdie, l'avait rendu encore plus célèbre.
 
 Désormais, l'affrontement entre les deux était devenu le centre d'attention de toute la planète. Celui qui l'emporterait recevrait une immense fortune.
 
@@ -134,6 +134,6 @@ C'était un fait connu de presque tous. Comment Wang Lin aurait-il pu ne pas com
 
 Il savait que ces vieux maîtres de Suzaku voulaient voir lequel des deux triompherait.
 
-S'il avait été au stade de la Transformation de l'Âme ou au stade avancé de la Formation de l'Âme lorsqu'il avait arraché un bras à Papillon Rouge, il aurait certainement été tué. Mais comme il se trouvait au stade initial de la Formation de l'Âme, il avait attiré l'attention d'une grande figure, ce qui lui avait valu ces années de répit.
+S'il avait été au stade de la Transformation de l'Âme ou au stade avancé de la Formation de l'Âme lorsqu'il avait arraché un bras à Hongdie, il aurait certainement été tué. Mais comme il se trouvait au stade initial de la Formation de l'Âme, il avait attiré l'attention d'une grande figure, ce qui lui avait valu ces années de répit.
 
 Les yeux de Wang Lin s'illuminèrent et il prit sa décision.

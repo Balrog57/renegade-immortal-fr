@@ -76,23 +76,23 @@ Wang Lin rit et hocha la tête. Il activa le chaudron de retour et un vortex se 
 
 Chi Hu frappa également son sac de rangement pour en sortir son chaudron de retour. Il l'activa et entra dans le vortex, tout comme Wang Lin.
 
-Beaucoup de choses s'étaient produites ces derniers mois, mais la nouvelle qui avait choqué tous les pays de culture de rang 4 ou supérieur fut que la disciple centrale de Suzaku, Papillon Rouge, avait perdu un bras!
+Beaucoup de choses s'étaient produites ces derniers mois, mais la nouvelle qui avait choqué tous les pays de culture de rang 4 ou supérieur fut que la disciple centrale de Suzaku, Hongdie, avait perdu un bras!
 
 Avec la destruction de l'Alliance des Quatre Sectes et l'ascension de Xue Yu au rang de pays de culture de niveau 5, sa renommée avait explosé sur la planète. Les rumeurs à son sujet étaient incessantes, évoquant notamment comment elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans, ou encore comment elle avait été acceptée comme disciple centrale de Suzaku. Ces faits alimentaient encore les discussions parmi les cultivateurs.
 
-Peu de gens savaient que, deux ans plus tôt, Papillon Rouge avait obtenu un Chaudron de Pluie et était entrée dans le Royaume Céleste. Cependant, il y a cinq mois, tous les pays de culture de rang 5 s'étaient réunis à l'autel de Suzaku pour la conférence centennale.
+Peu de gens savaient que, deux ans plus tôt, Hongdie avait obtenu un Chaudron de Pluie et était entrée dans le Royaume Céleste. Cependant, il y a cinq mois, tous les pays de culture de rang 5 s'étaient réunis à l'autel de Suzaku pour la conférence centennale.
 
-La conférence était à moitié terminée lorsqu'un vortex s'ouvrit soudainement dans le ciel et que Papillon Rouge en tomba. Elle avait perdu un bras et ne prononça qu'une seule chose avant de perdre connaissance:
+La conférence était à moitié terminée lorsqu'un vortex s'ouvrit soudainement dans le ciel et que Hongdie en tomba. Elle avait perdu un bras et ne prononça qu'une seule chose avant de perdre connaissance:
 
 « Ceng Niu! »
 
-C'était le nom que Papillon Rouge avait craché entre ses dents avant de sombrer dans l'inconscience.
+C'était le nom que Hongdie avait craché entre ses dents avant de sombrer dans l'inconscience.
 
-Tous les messagers des pays de culture de rang 5 furent stupéfaits. Rapidement, la nouvelle de la perte du bras de Papillon Rouge et du nom de Ceng Niu qu'elle avait crié se répandit comme une traînée de poudre. Le nom de Ceng Niu devint soudainement plus célèbre que celui de Papillon Rouge elle-même; il devint l'étoile la plus brillante de la planète.
+Tous les messagers des pays de culture de rang 5 furent stupéfaits. Rapidement, la nouvelle de la perte du bras de Hongdie et du nom de Ceng Niu qu'elle avait crié se répandit comme une traînée de poudre. Le nom de Ceng Niu devint soudainement plus célèbre que celui de Hongdie elle-même; il devint l'étoile la plus brillante de la planète.
 
 Tout le monde cherchait à savoir de quelle planète ce Ceng Niu pouvait bien venir.
 
-À un certain moment, Papillon Rouge se réveilla et révéla l'identité de son agresseur: « Ce Ceng Niu est de Suzaku, il appartient à la famille Ceng! » Dès que cette information fut révélée, toute la planète fut sous le choc.
+À un certain moment, Hongdie se réveilla et révéla l'identité de son agresseur: « Ce Ceng Niu est de Suzaku, il appartient à la famille Ceng! » Dès que cette information fut révélée, toute la planète fut sous le choc.
 
 La première réaction fut celle des ancêtres de la famille Ceng qui consultèrent leurs registres familiaux. Ils y trouvèrent effectivement un certain Ceng Niu. Cependant, ce membre de la famille n'avait pas encore trente ans et n'était qu'au stade de l'Établissement des Fondations. L'ancêtre prit le jeune homme et les registres avec lui à Suzaku pour prouver leur innocence.
 
@@ -102,13 +102,13 @@ L'individu nommé Ceng Niu devint le jeune prodige numéro un de Suzaku. Bien qu
 
 L'affaire refit surface brusquement lorsque le jeune maître du Clan des Démons Géants revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
 
-Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire: « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Papillon Rouge, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Papillon Rouge qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe! »
+Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire: « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Hongdie, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Hongdie qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe! »
 
 Après avoir déclaré cela, Chi Hu entra immédiatement en culture de méditation et refusa de recevoir quiconque. Cette déclaration fut divulguée et se propagea comme une traînée de poudre, faisant ressurgir le nom de Ceng Niu partout, plus célèbre que jamais.
 
-Par la suite, une fois rétablie, Papillon Rouge envoya un message à travers Suzaku: « Ceng Niu, notre combat n'est pas terminé! Je t'attends! »
+Par la suite, une fois rétablie, Hongdie envoya un message à travers Suzaku: « Ceng Niu, notre combat n'est pas terminé! Je t'attends! »
 
-« Ceng Niu, qui es-tu au juste?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Papillon Rouge, mais aussi l'esprit de tous. Qui était réellement ce Ceng Niu? Bien que Papillon Rouge ait enregistré une image, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
+« Ceng Niu, qui es-tu au juste?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Hongdie, mais aussi l'esprit de tous. Qui était réellement ce Ceng Niu? Bien que Hongdie ait enregistré une image, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
 
 Dans une petite secte d'un pays de culture de rang 4, un homme d'âge mûr marmonna pour lui-même: « Ceng Niu... c'est le nom de mon père. Il s'appelait Ceng Daniu... »
 
@@ -120,8 +120,8 @@ La jeune fille rit: « Maître, voyager sous cette pluie consomme beaucoup d'én
 
 Le vieil homme sourit: « C'est vrai. Si tu restes aussi diligente, tu pourras atteindre le stade de la Formation du Noyau d'ici dix ans! »
 
-La jeune fille demanda soudainement: « Maître, à quel niveau de culture pensez-vous que Ceng Niu ait atteint pour pouvoir arracher un bras à Papillon Rouge? Pourrait-il avoir atteint le légendaire stade de la Transformation de l'Âme? »
+La jeune fille demanda soudainement: « Maître, à quel niveau de culture pensez-vous que Ceng Niu ait atteint pour pouvoir arracher un bras à Hongdie? Pourrait-il avoir atteint le légendaire stade de la Transformation de l'Âme? »
 
-« Ceng Niu... est un aîné bien au-dessus de nous. Comment quelqu'un comme moi pourrait-il le juger? Cependant, je suppose que cet homme est un cultivateur au stade avancé de la Formation de l'Âme plutôt qu'en Transformation de l'Âme; sinon, Papillon Rouge n'aurait pas seulement perdu un bras, elle serait morte. »
+« Ceng Niu... est un aîné bien au-dessus de nous. Comment quelqu'un comme moi pourrait-il le juger? Cependant, je suppose que cet homme est un cultivateur au stade avancé de la Formation de l'Âme plutôt qu'en Transformation de l'Âme; sinon, Hongdie n'aurait pas seulement perdu un bras, elle serait morte. »
 
 Un rugissement tonnerre retentit à leurs oreilles juste au moment où le vieil homme terminait sa phrase. Soudain, la foudre redoubla d'intensité dans le ciel et, au cœur des éclairs, un vortex gigantesque apparut.

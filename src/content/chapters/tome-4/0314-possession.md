@@ -6,17 +6,17 @@ bookTitle: Clean Sweep
 en: Chapter 314 - Possession
 slug: possession
 ---
-L'homme d'âge moyen esquissa un léger sourire. Son regard balaya Papillon Rouge avant de se poser sur Wang Lin. « Ce petit gars a été très réactif. Il semble que tu m'aies déjà repéré en venant ici. »
+L'homme d'âge moyen esquissa un léger sourire. Son regard balaya Hongdie avant de se poser sur Wang Lin. « Ce petit gars a été très réactif. Il semble que tu m'aies déjà repéré en venant ici. »
 
 Wang Lin garda une expression calme et dit respectueusement: « Junior n'avait qu'un pressentiment, mais n'en était pas sûr. »
 
-Dès que Chi Hu et Papillon Rouge entendirent ces mots, leurs expressions devinrent étranges.
+Dès que Chi Hu et Hongdie entendirent ces mots, leurs expressions devinrent étranges.
 
 L'homme d'âge moyen déclara: « Le cercueil de jade qui se trouvait ici, je l'ai déjà emporté. Vous trois devriez partir. »
 
 Chi Hu sourit amèrement et hocha rapidement la tête.
 
-Les yeux de Papillon Rouge s'illuminèrent en regardant le bassin d'eau, mais elle resta silencieuse.
+Les yeux de Hongdie s'illuminèrent en regardant le bassin d'eau, mais elle resta silencieuse.
 
 L'homme d'âge moyen afficha un sourire ténu et ajouta: « Il existe une troisième couche. Si vous n'avez pas peur de la mort, vous pouvez tenter votre chance. L'entrée se trouve dans ce bassin. »
 
@@ -36,7 +36,7 @@ Le bassin d'eau explosa et l'eau s'écarta, révélant le tunnel en dessous. L'h
 
 Les yeux du vieil homme brillèrent et il le suivit sans tarder.
 
-Papillon Rouge serra les dents. Ses pertes étaient immenses cette fois et elle était très réticente à l'idée de repartir sans rien avoir gagné. Même s'il fallait affronter un repaire de dragons et de tigres, elle devait au moins essayer. Forte de cette résolution, elle se précipita dans le tunnel.
+Hongdie serra les dents. Ses pertes étaient immenses cette fois et elle était très réticente à l'idée de repartir sans rien avoir gagné. Même s'il fallait affronter un repaire de dragons et de tigres, elle devait au moins essayer. Forte de cette résolution, elle se précipita dans le tunnel.
 
 Chi Hu regarda Wang Lin avec un sourire amer. « Frère Ceng, comptez-vous entrer ou allez-vous partir? »
 
@@ -54,7 +54,7 @@ Le tunnel n'était pas très profond et, comme ils se déplaçaient à grande vi
 
 L'endroit était recouvert de cristaux blancs, acérés comme des lames, qui libéraient une puissante énergie spirituelle céleste, flottant partout autour d'eux.
 
-Au loin, Papillon Rouge collectait l'énergie spirituelle céleste à l'aide d'une gourde.
+Au loin, Hongdie collectait l'énergie spirituelle céleste à l'aide d'une gourde.
 
 Chi Hu afficha également un air de joie en sortant rapidement un sac en tissu vert. Il secoua le sac et une grande quantité d'énergie spirituelle céleste y fut aspirée.
 
@@ -100,15 +100,15 @@ D'immenses quantités d'énergie spirituelle céleste disparurent dans ces faill
 
 Zhou Yi déclara, le visage sombre: « Secte des Cadavres! Tu dois être le Grand Ancien de la Secte des Cadavres. Si nous entrons en combat, ce fragment s'effondrera. Si un seul fragment s'effondrait, nous pourrions nous échapper grâce à notre culture. Cependant, sache ceci: il y a six fragments qui se chevauchent ici. Si l'un d'eux s'effondre, tous s'effondreront. À ce moment-là, même un être ayant atteint le stade Ascendant ne pourra pas s'échapper! »
 
-L'expression du vieil homme changea. Ses yeux brillèrent et il disparut du cercueil pour réapparaître instantanément derrière Papillon Rouge.
+L'expression du vieil homme changea. Ses yeux brillèrent et il disparut du cercueil pour réapparaître instantanément derrière Hongdie.
 
-Papillon Rouge tourna brusquement la tête. Le vieil homme lui adressa un sourire empreint de ténèbres.
+Hongdie tourna brusquement la tête. Le vieil homme lui adressa un sourire empreint de ténèbres.
 
 « Petite fille, je vais t'emprunter ton corps pour un moment. »
 
 Soudain, plusieurs filaments de fumée noire s'échappèrent de ses sept orifices et s'insinuèrent dans ceux de la jeune femme comme de petits serpents.
 
-Pour la première fois, Papillon Rouge paniqua. Sachant que lutter était vain, elle leva précipitamment sa main droite pour révéler un bracelet de jade. Sa voix, stridente, cria: « Aîné, connaissez-vous cet objet? »
+Pour la première fois, Hongdie paniqua. Sachant que lutter était vain, elle leva précipitamment sa main droite pour révéler un bracelet de jade. Sa voix, stridente, cria: « Aîné, connaissez-vous cet objet? »
 
 Les yeux du vieil homme devinrent sérieux. « Le symbole des disciples centraux de Suzaku: le Bracelet de la Paix Ouverte. »
 
@@ -136,11 +136,11 @@ Chi Hu hésita encore avant d'abandonner toute résistance. Ses yeux brillèrent
 
 L'expression de Wang Lin resta sereine. Il lança un regard glacial au vieil homme avant de se retourner pour partir. Il ne voulait pas s'impliquer dans ce chaos. Puisqu'on lui avait dit de partir, il s'exécutait.
 
-Papillon Rouge afficha un regard désespéré et s'écria soudainement: « Ai... Aîné, tuez-le! Si vous le tuez, je cesserai de résister et vous soutiendrai pleinement! Mais vous devez me promettre d'assurer ma sécurité! »
+Hongdie afficha un regard désespéré et s'écria soudainement: « Ai... Aîné, tuez-le! Si vous le tuez, je cesserai de résister et vous soutiendrai pleinement! Mais vous devez me promettre d'assurer ma sécurité! »
 
 Le vieil homme fut surpris. Il leva la tête, les yeux brillants, comme s'il s'apprêtait à tendre la main vers Wang Lin.
 
-Wang Lin, imperturbable, sortit son drapeau de restriction brisé et ricana: « Papillon Rouge, si tu souhaites que cet endroit s'effondre, essaie donc! »
+Wang Lin, imperturbable, sortit son drapeau de restriction brisé et ricana: « Hongdie, si tu souhaites que cet endroit s'effondre, essaie donc! »
 
 « Un drapeau de restriction! » Les yeux du vieil homme s'illuminèrent en fixant le petit drapeau dans la main de Wang Lin. Il prit une profonde inspiration.
 

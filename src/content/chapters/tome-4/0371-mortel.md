@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 371 - Mortal
 slug: mortel
 ---
-Après l'affrontement entre Wang Lin et Papillon Rouge, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus et retenus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
+Après l'affrontement entre Wang Lin et Hongdie, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus et retenus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
 
 Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Guerre Divin, ces objets devinrent soudainement les sujets de conversation les plus brûlants parmi les cultivateurs.
 
 L'individu nommé Ceng Niu fut désormais considéré comme l'être le plus puissant de toute la planète Suzaku en dessous du stade de la Transformation de l'Âme.
 
-Simultanément, le Mont Suzaku diffusa un message indiquant que Papillon Rouge entrait en culture de méditation pendant plus d'un siècle pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Papillon Rouge avait gagné une compréhension lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
+Simultanément, le Mont Suzaku diffusa un message indiquant que Hongdie entrait en culture de méditation pendant plus d'un siècle pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Hongdie avait gagné une compréhension lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
 
 Cependant, au fil du temps, les gens découvrirent que Ceng Niu avait disparu.
 

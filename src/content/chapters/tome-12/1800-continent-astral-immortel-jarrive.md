@@ -80,7 +80,7 @@ Il aspirait à faire de l'illusion des Cinq Fleurs et Huit Portes une réalité.
 
 « Il y a encore de vieux amis sur le Continent Astral Immortel... J'ignore qui a réussi sa réincarnation... Hehe, je me demande si Situ Nan est devenu un prince. Je ne sais pas si Liu Jinbiao poursuivra son chemin de tromperie. Et il y a ce démon, Xu Liguo. Je me demande quel destin l'attend sur le Continent Astral Immortel. »
 
-« Il y a aussi Qing Shui, Papillon Rouge... Et Li Qianmei... » Wang Lin avait ses souvenirs et le Roi Moustique pour l'accompagner dans ce vide; il n'était donc pas seul.
+« Il y a aussi Qing Shui, Hongdie... Et Li Qianmei... » Wang Lin avait ses souvenirs et le Roi Moustique pour l'accompagner dans ce vide; il n'était donc pas seul.
 
 Un an, deux ans, trois ans...
 

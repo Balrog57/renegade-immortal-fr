@@ -90,7 +90,7 @@ Wang Lin songea. En soignant le corps de Wan Er, il avait remarqué une aura mor
 
 « Vous pouvez disposer. » Il se retourna pour regagner la tour. Avant d'entrer, il s'arrêta brusquement: « Aucune rumeur sur le nom de Ceng Niu ne doit sortir de la secte. Trouvez un moyen de gérer les disciples. »
 
-Ils acquiescèrent tous rapidement. Une fois Wang Lin entré, les yeux du Grand Ancien Lu Fei brillèrent. Il fixa l'assemblée d'un regard glacial et déclara d'un ton grave: « Écoutez bien. Si l'identité du Maître de la secte est révélée, le Papillon Rouge de Suzaku viendra sans aucun doute. Nous ne devons faire aucune négligence. »
+Ils acquiescèrent tous rapidement. Une fois Wang Lin entré, les yeux du Grand Ancien Lu Fei brillèrent. Il fixa l'assemblée d'un regard glacial et déclara d'un ton grave: « Écoutez bien. Si l'identité du Maître de la secte est révélée, Hongdie de Suzaku viendra sans aucun doute. Nous ne devons faire aucune négligence. »
 
 L'autre Grand Ancien, Tie Yan, eut un sourire en coin. Il comprit immédiatement les pensées de Lu Fei, car elles étaient les siennes. Il ajouta rapidement: « C'est exact. Pour les disciples de rang inférieur, allez-y personnellement et effacez leurs souvenirs! De plus, si l'un d'entre vous laisse fuiter la moindre information, n'oubliez pas que vos racines sont à Chu. Ne me reprochez pas ma cruauté! »
 

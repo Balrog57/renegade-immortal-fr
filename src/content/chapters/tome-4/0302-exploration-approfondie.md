@@ -106,7 +106,7 @@ Sun Lei serra les dents et dit: « Compagnon cultivateur, je ne peux pas vous do
 
 Sur ces mots, il sortit avec douleur un morceau de bois blanc et le montra à Wang Lin avant de le ranger.
 
-Wang Lin réfléchit. Bien qu'il aurait pu tuer cet homme pour obtenir la gourde de purification, cela lui coûterait une grande partie de ses propres trésors. Or, ils se trouvaient dans le Royaume Céleste. L'endroit était périlleux et Papillon Rouge rôdait. S'il épuisait trop de ressources maintenant, il serait en difficulté lorsqu'il affronterait des cultivateurs puissants ou Papillon Rouge.
+Wang Lin réfléchit. Bien qu'il aurait pu tuer cet homme pour obtenir la gourde de purification, cela lui coûterait une grande partie de ses propres trésors. Or, ils se trouvaient dans le Royaume Céleste. L'endroit était périlleux et Hongdie rôdait. S'il épuisait trop de ressources maintenant, il serait en difficulté lorsqu'il affronterait des cultivateurs puissants ou Hongdie.
 
 Après réflexion, Wang Lin acquiesça: « Très bien, donnez-moi ce bois purificateur et je vous aiderai une fois. Cependant, que vous obteniez l'épée céleste ou non dépendra de votre propre chance. Même si vous échouez à obtenir l'épée, le bois purificateur restera mien. »
 

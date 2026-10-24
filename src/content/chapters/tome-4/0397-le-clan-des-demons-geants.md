@@ -86,7 +86,7 @@ Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha
 
 À l'instant même où ces deux mots furent prononcés, un silence de mort tomba sur les environs. Les yeux de presque tous les membres du Clan des Démons Géants s'emplirent de terreur.
 
-« Ceng Niu... c'est lui qui a vaincu Papillon Rouge! »
+« Ceng Niu... c'est lui qui a vaincu Hongdie! »
 
 « C'est le Ceng Niu qui a tué Li Yuanfeng, qui a fait tomber le pays de Xue Yu du rang 5 au rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yu! »
 

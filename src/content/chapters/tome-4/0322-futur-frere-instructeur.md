@@ -72,7 +72,7 @@ Les yeux de Chi Hu brillèrent et il murmura: « Stade avancé de la Formation d
 
 Wang Lin resta calme et dit: « C'est au frère Chi Hu de décider si nous devons fuir ou combattre. » Wang Lin n'utilisait pas la vitesse maximale de la boussole. S'il l'activait pleinement, il pourrait facilement semer un cultivateur au stade avancé de la Formation de l'Âme.
 
-Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Ceng, alors qu'il n'était qu'au début de la Formation de l'Âme, a osé combattre Papillon Rouge. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
+Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Ceng, alors qu'il n'était qu'au début de la Formation de l'Âme, a osé combattre Hongdie. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
 
 Le visage de l'homme d'âge moyen resta sombre, empreint d'un certain dédain. Loin de s'arrêter, il accéléra encore et lança: « Ainsi, ce sont des membres du Clan des Démons Géants. Dégagez! »
 
@@ -86,7 +86,7 @@ Un gaz gris se mua en une flèche qui fonça vers Chi Hu. Dès l'apparition de c
 
 « Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant d'une dizaine de mètres de haut. La hache sur son front scintillait frénétiquement.
 
-Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide; bien qu'elle eût été brisée lorsque Zhou Yi, qui le possédait, combattit Papillon Rouge, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
+Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide; bien qu'elle eût été brisée lorsque Zhou Yi, qui le possédait, combattit Hongdie, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
 
 Dès que la hache apparut, Chi Hu la saisit d'une main et, tel un dieu démon, fit un pas en avant et l'abattit sur le gaz gris.
 
@@ -122,7 +122,7 @@ Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une perso
 
 Chi Hu commença à réfléchir. Il se remémora ses propres émotions lorsqu'il avait vu la pierre apparaître et hocha la tête.
 
-Wang Lin pensa intérieurement: *La culture de cet homme est un peu plus élevée que celle de Papillon Rouge, surtout son domaine de mort. Même Papillon Rouge devrait déployer d'énormes efforts pour le contenir. Je me demande simplement si mon corps original serait capable de supporter une telle attaque. Je me demande également quelle quantité d'énergie spirituelle supplémentaire mon corps originel nécessite pour franchir la troisième transformation. Une fois revenu à Suzaku, je me demande si sa culture progressera plus vite grâce à ces jades célestes.*
+Wang Lin pensa intérieurement: *La culture de cet homme est un peu plus élevée que celle de Hongdie, surtout son domaine de mort. Même Hongdie devrait déployer d'énormes efforts pour le contenir. Je me demande simplement si mon corps original serait capable de supporter une telle attaque. Je me demande également quelle quantité d'énergie spirituelle supplémentaire mon corps originel nécessite pour franchir la troisième transformation. Une fois revenu à Suzaku, je me demande si sa culture progressera plus vite grâce à ces jades célestes.*
 
 La boussole stellaire était extrêmement rapide. Elle fit demi-tour et reprit la poursuite des épées célestes. Au loin, un fragment de royaume céleste apparut enfin.
 

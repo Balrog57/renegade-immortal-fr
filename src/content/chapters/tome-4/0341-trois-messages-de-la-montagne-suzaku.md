@@ -48,11 +48,11 @@ Le jeune homme tenta plusieurs fois de progresser, mais ne parvint pas à péné
 
 « Ceng Niu! » Les yeux du vieil homme Hu devinrent graves. Il était sous le choc. Son regard se posa instinctivement sur le corps momifié au pied de la pagode. Rien n'était étonnant à ce qu'il soit si bouleversé. Le nom de Ceng Niu était devenu légendaire dans la Mer des Démons, et les récits à son sujet semblaient ne jamais finir.
 
-Une rumeur disait qu'il avait été secrètement entraîné par Suzaku et qu'il serait l'héritier du titre de Suzaku. Autrement, comment expliquer que Suzaku n'ait pas réagi avec son habituelle arrogance après qu'il eut arraché un bras à Papillon Rouge?
+Une rumeur disait qu'il avait été secrètement entraîné par Suzaku et qu'il serait l'héritier du titre de Suzaku. Autrement, comment expliquer que Suzaku n'ait pas réagi avec son habituelle arrogance après qu'il eut arraché un bras à Hongdie?
 
-Une autre rumeur affirmait qu'il était le disciple d'une puissance occulte et que son talent surpassait de loin celui de Papillon Rouge. On disait également qu'au sein de cette force secrète résidaient de nombreux cultivateurs bien plus puissants que Ceng Niu, raison pour laquelle Suzaku n'osait pas s'en prendre à lui.
+Une autre rumeur affirmait qu'il était le disciple d'une puissance occulte et que son talent surpassait de loin celui de Hongdie. On disait également qu'au sein de cette force secrète résidaient de nombreux cultivateurs bien plus puissants que Ceng Niu, raison pour laquelle Suzaku n'osait pas s'en prendre à lui.
 
-De plus, des rumeurs plus insensées encore prétendaient que Ceng Niu ne pratiquait la culture que depuis moins de soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Papillon Rouge elle-même.
+De plus, des rumeurs plus insensées encore prétendaient que Ceng Niu ne pratiquait la culture que depuis moins de soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Hongdie elle-même.
 
 Les histoires et les légendes de ce genre étaient légion.
 
@@ -70,7 +70,7 @@ La belle femme murmura doucement: « Je me demande quel lien unit ce Ceng Niu à
 
 Xu Luo fut surpris, mais acquiesça aussitôt.
 
-Le jeune homme attendit un moment. Ne recevant aucune réponse, il fronça les sourcils et dit: « Cher cultivateur Ceng, je ne suis pas ici pour votre affront à Papillon Rouge, mais pour lui remettre sa lettre de défi. J'espère que vous accepterez de sortir à ma rencontre. »
+Le jeune homme attendit un moment. Ne recevant aucune réponse, il fronça les sourcils et dit: « Cher cultivateur Ceng, je ne suis pas ici pour votre affront à Hongdie, mais pour lui remettre sa lettre de défi. J'espère que vous accepterez de sortir à ma rencontre. »
 
 À ces mots, les six individus affichèrent des expressions diverses. Les yeux du vieil homme Hu s'illuminèrent tandis qu'il fixait la vallée.
 
@@ -90,19 +90,19 @@ Feng Yushan répondit précipitamment: « Dans trois mois, sur l'Autel du Ciel d
 
 « Comment saviez-vous que j'étais ici? » Bien que la voix de Wang Lin fût sereine, elle laissait filtrer une pointe d'intention meurtrière.
 
-Feng Yushan répondit sans hésiter: « Je l'ignore réellement. Ce message provient du mont Suzaku. Si cela n'avait pas été eux, le maître de Papillon Rouge serait déjà venu vous chercher. Votre localisation leur a également été transmise par leurs soins. »
+Feng Yushan répondit sans hésiter: « Je l'ignore réellement. Ce message provient du mont Suzaku. Si cela n'avait pas été eux, le maître de Hongdie serait déjà venu vous chercher. Votre localisation leur a également été transmise par leurs soins. »
 
 À cet instant, l'expression du vieil homme Hu devint étrange. Il avait l'impression que cette voix lui était familière. Il se retourna vers Qiu Siping et vit que celui-ci était stupéfait; il semblait qu'il eût déjà deviné la même chose.
 
 Après un silence, la voix de Wang Lin résonna de nouveau dans la vallée: « Je n'ai pas le temps. »
 
-La main invisible qui entravait Feng Yushan disparut, lui rendant sa liberté. Son dos était trempé de sueur froide; il comprenait enfin l'étendue de la terreur que représentait Ceng Niu. Il avait d'abord cru que Ceng Niu n'avait pu arracher le bras de la sœur apprentie Papillon Rouge qu'en utilisant des ruses.
+La main invisible qui entravait Feng Yushan disparut, lui rendant sa liberté. Son dos était trempé de sueur froide; il comprenait enfin l'étendue de la terreur que représentait Ceng Niu. Il avait d'abord cru que Ceng Niu n'avait pu arracher le bras de la sœur apprentie Hongdie qu'en utilisant des ruses.
 
 Désormais, il n'en pensait plus rien.
 
-La réponse de Wang Lin le plaçait dans une position délicate. Après réflexion, il joignit les mains et dit respectueusement: « Cher cultivateur Ceng, c'est sur ordre du mont Suzaku que vous devez affronter Papillon Rouge. Ils envoient rarement des messages. Au cours des cent dernières années, ils n'en ont envoyé que trois. La première pour recruter Papillon Rouge comme disciple central. La seconde pour empêcher quiconque de vous poursuivre. La troisième, c'est celle-ci: ils révèlent votre position et ordonnent le combat contre Papillon Rouge. Je suis convaincu que vous obtiendrez de grands bénéfices en cas de victoire. Après tout, sur les trois messages, deux concernaient votre personne! »
+La réponse de Wang Lin le plaçait dans une position délicate. Après réflexion, il joignit les mains et dit respectueusement: « Cher cultivateur Ceng, c'est sur ordre du mont Suzaku que vous devez affronter Hongdie. Ils envoient rarement des messages. Au cours des cent dernières années, ils n'en ont envoyé que trois. La première pour recruter Hongdie comme disciple central. La seconde pour empêcher quiconque de vous poursuivre. La troisième, c'est celle-ci: ils révèlent votre position et ordonnent le combat contre Hongdie. Je suis convaincu que vous obtiendrez de grands bénéfices en cas de victoire. Après tout, sur les trois messages, deux concernaient votre personne! »
 
-La voix de Wang Lin s'éleva de la vallée: « Dites à Papillon Rouge que si elle veut combattre, ce ne sera que dans dix ans! »
+La voix de Wang Lin s'éleva de la vallée: « Dites à Hongdie que si elle veut combattre, ce ne sera que dans dix ans! »
 
 Feng Yushan réfléchit un instant, esquissa un sourire amer et joignit les mains. Il fit volte-face et disparut dans un rayon de lumière.
 

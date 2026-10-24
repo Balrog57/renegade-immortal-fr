@@ -68,7 +68,7 @@ Yun Quezi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan p
 
 « Cependant, ce qui est fascinant, c'est qu'alors que j'étais à l'Alliance des Quatre Sectes, j'ai rencontré un cultivateur nommé Wang Lin. Son talent était ordinaire et il n'avait rien de spécial, et pourtant, il a été capable de comprendre le Domaine de la Vie et de la Mort. Sur un coup de tête, je l'ai fait devenir mon quatrième candidat. »
 
-« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a tranché un bras à Papillon Rouge. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhu Quezi. Du Tian, de la Secte de l'Affinement de l'Âme, l'a lui aussi considéré comme son disciple direct et lui a transmis l'Étendard de l'Âme au Milliard d'Âmes. »
+« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a tranché un bras à Hongdie. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhu Quezi. Du Tian, de la Secte de l'Affinement de l'Âme, l'a lui aussi considéré comme son disciple direct et lui a transmis l'Étendard de l'Âme au Milliard d'Âmes. »
 
 « Cet homme possède également trop de secrets; parfois, même moi, je ne parviens pas à le percer. Ainsi, finalement, je l'ai désigné comme exécutant de mon plan Suzaku! »
 
@@ -100,7 +100,7 @@ Wang Lin resta pensif. Il tint sa coupe sans dire un mot.
 
 « Frère Wang, n'es-tu pas curieux de savoir pourquoi je ne suis pas mort? Je me souviens encore du moment où tu m'as pris le Chaudron de Pluie. » Zhou Wutai regarda Wang Lin avec un sourire qui en était peu un.
 
-Wang Lin répondit calmement: « Plutôt que de laisser Papillon Rouge l'obtenir trop facilement, je l'ai pris. Cependant, même si je ne l'avais pas fait, je pense que frère Zhou avait d'autres plans de toute façon. »
+Wang Lin répondit calmement: « Plutôt que de laisser Hongdie l'obtenir trop facilement, je l'ai pris. Cependant, même si je ne l'avais pas fait, je pense que frère Zhou avait d'autres plans de toute façon. »
 
 Zhou Wutai rit. Il se versa une autre coupe et dit: « Ne parlons plus du passé. La renommée du frère Wang sur la planète Suzaku a été immense ces dernières années. Pour cela, je te porte un toast! »
 

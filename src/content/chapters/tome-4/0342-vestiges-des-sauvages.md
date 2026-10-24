@@ -14,7 +14,7 @@ Le vieil homme Hu prit sa tasse et en but une gorgée. La saveur le surprit: « 
 
 Wang Lin sourit. « Ce thé ne provient pas de Suzaku, mais d'une autre planète de culture. Je l'ai obtenu par accident lors de mon voyage dans le Royaume Céleste il y a de nombreuses années. »
 
-Le vieil homme Hu prit une profonde inspiration. Il fixa Wang Lin avec une pointe d'hésitation dans les yeux avant de dire: « La rumeur prétend que lorsque frère Wang s'est rendu au Royaume Céleste, vous avez pris un bras à Papillon Rouge. Frère Wang a-t-il pu obtenir de l'énergie spirituelle céleste? »
+Le vieil homme Hu prit une profonde inspiration. Il fixa Wang Lin avec une pointe d'hésitation dans les yeux avant de dire: « La rumeur prétend que lorsque frère Wang s'est rendu au Royaume Céleste, vous avez pris un bras à Hongdie. Frère Wang a-t-il pu obtenir de l'énergie spirituelle céleste? »
 
 Sa façon de désigner Wang Lin avait inconsciemment changé.
 
@@ -118,11 +118,11 @@ Après avoir rangé les sculptures de bois, Wang Lin fouilla dans son sac et en 
 
 Ce bras était resté en excellent état. Une fine couche de glace le recouvrait encore, dégageant une aura glaciale.
 
-« Suzaku n'est pas intervenue pour aider Papillon Rouge, mais a plutôt envoyé cette lettre de défi. C'est en effet étrange. » Wang Lin réfléchit longuement, sans parvenir à en trouver la raison.
+« Suzaku n'est pas intervenue pour aider Hongdie, mais a plutôt envoyé cette lettre de défi. C'est en effet étrange. » Wang Lin réfléchit longuement, sans parvenir à en trouver la raison.
 
-« Il semble qu'un combat contre Papillon Rouge soit inévitable, mais tant qu'elle n'aura pas atteint le stade de la Transformation de l'Âme, j'aurai une chance de vaincre. Ce bras amputé va maintenant servir », ricana Wang Lin. Il tendit la main et une chaise en pierre vola vers lui pour se poser devant lui.
+« Il semble qu'un combat contre Hongdie soit inévitable, mais tant qu'elle n'aura pas atteint le stade de la Transformation de l'Âme, j'aurai une chance de vaincre. Ce bras amputé va maintenant servir », ricana Wang Lin. Il tendit la main et une chaise en pierre vola vers lui pour se poser devant lui.
 
-La chaise semblait prête à fondre, mais elle se métamorphosa en un bassin. Wang Lin y déposa le bras de Papillon Rouge, forma un sceau, et une lumière noire apparut sur sa main.
+La chaise semblait prête à fondre, mais elle se métamorphosa en un bassin. Wang Lin y déposa le bras de Hongdie, forma un sceau, et une lumière noire apparut sur sa main.
 
 Wang Lin pointa le bras, et la lumière noire y pénétra.
 

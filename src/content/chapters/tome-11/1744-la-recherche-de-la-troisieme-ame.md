@@ -98,15 +98,15 @@ Wang Lin, lui aussi, cherchait la troisième âme!
 
 Assis sur sa montagne, Wang Lin déployait son sens divin sur l'ensemble du Royaume Céleste. Il finit par trouver Qing Shui dans un pavillon de bois, au creux d'une vallée du nord-ouest du Royaume Céleste.
 
-Papillon Rouge se trouvait également là avec lui. Le père et la fille vivaient en paix.
+Hongdie se trouvait également là avec lui. Le père et la fille vivaient en paix.
 
-À cet instant, Qing Shui souriait à Papillon Rouge, lui prodiguant des conseils pour surmonter certaines difficultés dans sa culture. Elle était déjà très douée et apprenait rapidement.
+À cet instant, Qing Shui souriait à Hongdie, lui prodiguant des conseils pour surmonter certaines difficultés dans sa culture. Elle était déjà très douée et apprenait rapidement.
 
 « Celui qui suit la voie accorde de l'importance à l'intention et au cœur. Tout n'est que cœur... Et... » Les yeux de Qing Shui se figèrent soudainement et il leva les yeux vers le ciel. Une émotion complexe traversa son regard, puis, un instant plus tard, il se leva.
 
 « Papillon, continue ton entraînement seule. Ton père a une affaire urgente à régler. » Sur ces mots, Qing Shui fit un pas et se changea en une ombre qui disparut de la pièce.
 
-Papillon Rouge fixa l'endroit où son père s'était volatilisé, laissant paraître une trace d'inquiétude. Après avoir réfléchi un instant, elle soupira, ferma les yeux et reprit calmement sa culture.
+Hongdie fixa l'endroit où son père s'était volatilisé, laissant paraître une trace d'inquiétude. Après avoir réfléchi un instant, elle soupira, ferma les yeux et reprit calmement sa culture.
 
 Des ondulations résonnèrent sur la montagne où se trouvait Wang Lin, tandis que Qing Shui en sortait.
 

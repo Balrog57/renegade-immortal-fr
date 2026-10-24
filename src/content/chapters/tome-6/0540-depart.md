@@ -106,7 +106,7 @@ Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe d'ef
 
 Wang Lin voyait en lui un génie. Bien que le sort d'affinement de l'âme fût facile à apprendre, atteindre le stade de la Formation du Noyau en seulement quatre ans dépassait toutes les espérances de Wang Lin. L'une des raisons majeures était son bagage initial de deux étoiles d'énergie spirituelle démoniaque, couplé à la richesse de cette énergie dans ces terres, mais c'était la première fois que Wang Lin croisait un talent tel que celui de Hu Pao!
 
-S'il atteignait le stade de la Formation de l'Âme en cent ans, il rattraperait Papillon Rouge en termes de talent! En réalité, il serait même supérieur à ce dernier!
+S'il atteignait le stade de la Formation de l'Âme en cent ans, il rattraperait Hongdie en termes de talent! En réalité, il serait même supérieur à ce dernier!
 
 Wang Lin accordant une immense importance au talent, il décida de le garder auprès de lui pour mieux le contrôler plutôt que de le laisser dans la tribu.
 

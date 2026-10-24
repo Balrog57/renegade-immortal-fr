@@ -28,7 +28,7 @@ Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose
 
 « C'est... Shengong Hu? Il est devenu le maître d'une secte! » Wang Lin fut quelque peu stupéfait.
 
-« Serait-elle Papillon Rouge... Cette marque ne peut pas se tromper... »
+« Serait-elHongdie... Cette marque ne peut pas se tromper... »
 
 « Qing Lin... Lui aussi a choisi de ne pas cultiver et s'est réincarné plusieurs fois comme un simple mortel... »
 

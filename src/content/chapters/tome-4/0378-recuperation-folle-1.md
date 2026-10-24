@@ -28,7 +28,7 @@ Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade
 
 « Je ne sais pas si Ceng Niu est mort ou non. Même s'il est toujours en vie, mon domaine de thé n'est pas une chose que l'on peut briser aisément. » Li Yuanfeng ricana, le regard glacial.
 
-« Cette junior, Papillon Rouge, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
+« Cette junior, Hongdie, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
 
 À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples extérieurs de la Secte de l'Affinement de l'Âme, Wang Lin s'éveilla de sa culture.
 
@@ -60,7 +60,7 @@ Wang Lin fronça les sourcils. « Cette fille me semble familière... Pourtant, 
 
 La Liu Mei de la Secte Xuan Dao n'était qu'un avatar créé par la technique des Mille Clones; elle différait donc naturellement du corps véritable et, avec les bouleversements de cinq cents ans, l'apparence de cette femme n'était plus celle de la personne que Wang Lin avait vue autrefois.
 
-Wang Lin réfléchit un instant puis cessa de se soucier de cette jeune femme. Bien qu'elle fût la plus belle femme qu'il ait jamais vue de sa vie, plus belle encore que Papillon Rouge et une beauté à laquelle même Li Muwan ne pouvait être comparée, elle ne parvint pas à captiver son attention.
+Wang Lin réfléchit un instant puis cessa de se soucier de cette jeune femme. Bien qu'elle fût la plus belle femme qu'il ait jamais vue de sa vie, plus belle encore que Hongdie et une beauté à laquelle même Li Muwan ne pouvait être comparée, elle ne parvint pas à captiver son attention.
 
 Il sauta de la montagne et l'examina tout en descendant en flottant. Puis, son regard se fixa sur l'une des grottes de la paroi.
 

@@ -74,7 +74,7 @@ Wang Lin fixa calmement l'Omniscient.
 
 « La réincarnation est juste là. Une fois que vous l'avez pleinement comprise, vous pouvez la manipuler à votre guise. Si vous ne la comprenez pas, vous l'appelez "vie antérieure". C'est un cercle qui est éternellement présent. On peut le voir, on peut le ressentir.
 
-« Comme les paroles de Mo Zhi, comme les souvenirs de Papillon Rouge, ou comme lorsque vous avez reconnu l'avatar de massacre sur la montagne désertée du Dao Antique.
+« Comme les paroles de Mo Zhi, comme les souvenirs de Hongdie, ou comme lorsque vous avez reconnu l'avatar de massacre sur la montagne désertée du Dao Antique.
 
 « L'Ancêtre Ancien et l'Ancêtre Céleste n'ont pas su percer le mystère de la réincarnation. Ils pensaient que tout était faux et sont morts en cherchant le Dao... Voilà ce qu'est la réincarnation...
 

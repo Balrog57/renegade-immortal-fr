@@ -26,7 +26,7 @@ La blessure à sa taille se referma rapidement pour finir par disparaître. Cepe
 
 Sans dire un mot, Wang Lin fit volte-face et s'enfuit. Ce fouet était bien trop dangereux. Si son âme originelle venait à être expulsée de nouveau et que son corps était détruit, il aurait perdu, même en cas de victoire.
 
-Le visage de Papillon Rouge apparut sur le front du géant de glace et elle hurla, les dents serrées: « Ceng Niu, je veux voir ce que tu as encore dans le ventre! »
+Le visage de Hongdie apparut sur le front du géant de glace et elle hurla, les dents serrées: « Ceng Niu, je veux voir ce que tu as encore dans le ventre! »
 
 Le géant de glace, désormais plus petit, s'avéra bien plus agile qu'auparavant. Il se redressa en faisant trembler la terre et se lança à la poursuite de Wang Lin.
 
@@ -34,11 +34,11 @@ Wang Lin continua de fuir. Fort heureusement, le champ de bataille était vaste 
 
 Tout en volant, il sortit rapidement une pilule et l'avala pour stabiliser son état physique, ignorant totalement le géant qui lui talonnait.
 
-L'expression de Papillon Rouge était glaciale. Elle détestait l'homme devant elle jusqu'à ses os. Si ce n'était pas pour le géant de glace, elle aurait péri ici.
+L'expression de Hongdie était glaciale. Elle détestait l'homme devant elle jusqu'à ses os. Si ce n'était pas pour le géant de glace, elle aurait péri ici.
 
-« Ce Ceng Niu possédait un trésor capable d'invoquer la foudre de la rétribution divine. Cependant, je ne crois pas qu'il en possède deux, sinon il les aurait utilisés simultanément. Même avec le Fouet Kunji, le géant de glace ne pourra pas résister à deux assauts de la foudre de la rétribution divine », pensa Papillon Rouge, le regard sombre. Elle donna un ordre et le fouet apparut soudainement dans la main du géant.
+« Ce Ceng Niu possédait un trésor capable d'invoquer la foudre de la rétribution divine. Cependant, je ne crois pas qu'il en possède deux, sinon il les aurait utilisés simultanément. Même avec le Fouet Kunji, le géant de glace ne pourra pas résister à deux assauts de la foudre de la rétribution divine », pensa Hongdie, le regard sombre. Elle donna un ordre et le fouet apparut soudainement dans la main du géant.
 
-Papillon Rouge cria: « Ceng Niu, accepte ta mort! »
+Hongdie cria: « Ceng Niu, accepte ta mort! »
 
 Le géant abattit le fouet. Celui-ci fendit l'air plus vite que l'éclair en direction de Wang Lin.
 
@@ -48,31 +48,31 @@ Il réapparut à 50 kilomètres de là et cracha un flot de sang. En se télépo
 
 « Quel incroyable trésor! » Wang Lin prit une profonde inspiration et poursuivit sa fuite. Il sortit une grande quantité de pilules et les dévora pour restaurer autant d'énergie spirituelle que possible.
 
-Le regard de Papillon Rouge restait impavide tandis qu'elle commandait au géant de glace de poursuivre Wang Lin dans une traque effrénée.
+Le regard de Hongdie restait impavide tandis qu'elle commandait au géant de glace de poursuivre Wang Lin dans une traque effrénée.
 
-Tout en le poursuivant, Papillon Rouge l'insulta: « Ceng Niu, tu fuis maintenant comme un chien errant! Où est passée ton aura dominante d'autrefois? »
+Tout en le poursuivant, Hongdie l'insulta: « Ceng Niu, tu fuis maintenant comme un chien errant! Où est passée ton aura dominante d'autrefois? »
 
-Wang Lin laissa échapper un rire et rétorqua: « Papillon Rouge, tu n'as pas encore résolu la malédiction de ce bras. Tu ne fais que la supprimer avec ton énergie spirituelle. C'est la véritable raison pour laquelle tu as utilisé ton trésor le plus puissant dès le début. »
+Wang Lin laissa échapper un rire et rétorqua: « Hongdie, tu n'as pas encore résolu la malédiction de ce bras. Tu ne fais que la supprimer avec ton énergie spirituelle. C'est la véritable raison pour laquelle tu as utilisé ton trésor le plus puissant dès le début. »
 
-L'expression de Papillon Rouge s'assombrit et elle laissa échapper un reniflement méprisant. Chaque fois qu'ils se rencontraient, elle n'avait jamais réussi à l'emporter dans une joute verbale, alors elle se tut. Elle se contenta de commander au géant et de fouetter l'air devant eux à plusieurs reprises.
+L'expression de Hongdie s'assombrit et elle laissa échapper un reniflement méprisant. Chaque fois qu'ils se rencontraient, elle n'avait jamais réussi à l'emporter dans une joute verbale, alors elle se tut. Elle se contenta de commander au géant et de fouetter l'air devant eux à plusieurs reprises.
 
-Après un moment, Wang Lin retrouva une partie de son énergie spirituelle. Ses yeux s'illuminèrent lorsqu'il sortit un objet: c'était le bras de Papillon Rouge. Il entama une incantation, sa main gauche traçant des sceaux tout en pointant le membre. Le bras se mit à luire d'une lueur démoniaque tandis que divers symboles y apparaissaient.
+Après un moment, Wang Lin retrouva une partie de son énergie spirituelle. Ses yeux s'illuminèrent lorsqu'il sortit un objet: c'était le bras de Hongdie. Il entama une incantation, sa main gauche traçant des sceaux tout en pointant le membre. Le bras se mit à luire d'une lueur démoniaque tandis que divers symboles y apparaissaient.
 
 Wang Lin frappa le bras de la main gauche et hurla: « Explose! »
 
-Une ligne noire apparut instantanément sur le front de Papillon Rouge. Son corps trembla et son visage pâlit. Elle s'écria: « Ceng Niu, si je ne te tue pas, alors je ne m'appelle plus Papillon Rouge! »
+Une ligne noire apparut instantanément sur le front de Hongdie. Son corps trembla et son visage pâlit. Elle s'écria: « Ceng Niu, si je ne te tue pas, alors je ne m'appelle plus Hongdie! »
 
 Wang Lin ricana et cria: « Contiens-le! Je veux voir combien de temps tu pourras le contenir! Explose! Explose! Explose! »
 
-La ligne noire sur le front de Papillon Rouge commença soudainement à se propager, recouvrant bientôt son visage magnifique.
+La ligne noire sur le front de Hongdie commença soudainement à se propager, recouvrant bientôt son visage magnifique.
 
-« Tu... » Papillon Rouge cracha une bouchée de sang noir. Elle craignait effectivement la malédiction de son bras, c'est pourquoi elle voulait clore ce combat au plus vite. Malheureusement, les choses échappèrent à son contrôle.
+« Tu... » Hongdie cracha une bouchée de sang noir. Elle craignait effectivement la malédiction de son bras, c'est pourquoi elle voulait clore ce combat au plus vite. Malheureusement, les choses échappèrent à son contrôle.
 
 Les yeux de Wang Lin brillèrent et il hurla une nouvelle fois: « Explose! »
 
 Le bras qu'il tenait explosa instantanément. N'ayant plus de sang en lui, il se changea en un nuage de poussière noire qui se propagea dans toutes les directions.
 
-L'explosion du bras activa toutes les malédictions enfouies dans le corps de Papillon Rouge. Elle cracha une nouvelle fois du sang noir et une aura ténébreuse envahit son visage.
+L'explosion du bras activa toutes les malédictions enfouies dans le corps de Hongdie. Elle cracha une nouvelle fois du sang noir et une aura ténébreuse envahit son visage.
 
 Wang Lin s'arrêta net. Il cessa de courir et profita de cet instant pour déployer son anneau de domptage des bêtes; avec un fracas retentissant, le char de guerre apparut.
 
@@ -86,13 +86,13 @@ L'énergie de l'épée provoqua un bang sonique en fendant l'air pour percuter l
 
 *Bang!*
 
-Le géant de glace tituba et recula de plusieurs pas, une entaille d'épée sur la poitrine. Les yeux de Papillon Rouge étaient clos; elle concentrait toute sa volonté à réprimer la malédiction.
+Le géant de glace tituba et recula de plusieurs pas, une entaille d'épée sur la poitrine. Les yeux de Hongdie étaient clos; elle concentrait toute sa volonté à réprimer la malédiction.
 
 Les yeux de Wang Lin s'illuminèrent. Il s'élança et frappa à nouveau.
 
 *Bang!*
 
-Après l'impact, le géant recula encore davantage. Papillon Rouge lutta pour ouvrir les yeux et fixa Wang Lin avec une férocité sauvage avant de murmurer une incantation. Les yeux du géant de glace projetèrent alors une lueur démoniaque: Papillon Rouge avait renoncé au contrôle du géant pour consacrer toute sa puissance à la maîtrise de la malédiction.
+Après l'impact, le géant recula encore davantage. Hongdie lutta pour ouvrir les yeux et fixa Wang Lin avec une férocité sauvage avant de murmurer une incantation. Les yeux du géant de glace projetèrent alors une lueur démoniaque: Hongdie avait renoncé au contrôle du géant pour consacrer toute sa puissance à la maîtrise de la malédiction.
 
 Le corps du colosse s'anima. Il abattit son poing, et l'image du fouet apparut instantanément.
 
@@ -106,7 +106,7 @@ Au moment où le poing percuta Wang Lin, l'épée passa près du bras droit et s
 
 L'épée céleste différait grandement de la simple énergie d'épée. Elle retomba à 330 mètres de là, s'enfonçant profondément dans le sol.
 
-Le sang jaillit de tout le corps de Wang Lin et nombre de ses os furent brisés. Pourtant, il éclata de rire: « Papillon Rouge, j'ai pris l'un de tes bras, et maintenant je prends l'un des bras de cet inutile géant de glace. Vous voilà assortis! »
+Le sang jaillit de tout le corps de Wang Lin et nombre de ses os furent brisés. Pourtant, il éclata de rire: « Hongdie, j'ai pris l'un de tes bras, et maintenant je prends l'un des bras de cet inutile géant de glace. Vous voilà assortis! »
 
 D'un geste de la main, il fit apparaître le bras droit du géant. Une lueur bleue jaillit et la glace s'effrita du membre jusqu'à ce qu'il ne réduise qu'à la moitié de sa taille.
 

@@ -100,9 +100,9 @@ Wang Lin sentit l'énergie céleste qui l'entourait le rapprocher des cinq autre
 
 La distance qui les séparait n'était pas grande, mais elle ne pouvait être qualifiée de faible pour autant.
 
-Wang Lin identifia immédiatement que la seule femme parmi les cinq était le génie de Xue Yu, celle qui avait réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans: Papillon Rouge.
+Wang Lin identifia immédiatement que la seule femme parmi les cinq était le génie de Xue Yu, celle qui avait réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans: Hongdie.
 
-Son expression était sereine tandis que son regard balayait calmement le groupe. Il avait prévu la présence de Papillon Rouge; elle, en revanche, n'avait jamais vu sa véritable apparence auparavant.
+Son expression était sereine tandis que son regard balayait calmement le groupe. Il avait prévu la présence de Hongdie; elle, en revanche, n'avait jamais vu sa véritable apparence auparavant.
 
 Quant aux quatre autres, l'un d'eux dégageait une puissance impressionnante. Torse nu, il révélait des muscles saillants; il ne ressemblait guère à un cultivateur, mais plutôt à un guerrier mortel.
 

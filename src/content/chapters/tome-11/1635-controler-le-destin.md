@@ -98,7 +98,7 @@ Il trouva Maître Nan Yunzi, Maître Hong Shan, Wang Zhuo, le vieil Empereur Div
 
 Il trouva encore plus de monde. Il trouva son propre enfant, Wang Ping, et Zhou Ru. Il prit leurs destins afin qu'ils ne soient plus asservis par les cieux, leur permettant de s'échapper des cieux comme il l'avait fait.
 
-Il trouva également Papillon Rouge, Mu Bingmei, Xizi Feng; il retrouva tous ces visages de femmes rencontrées au fil de sa vie, celles qu'il avait fini par oublier.
+Il trouva également Hongdie, Mu Bingmei, Xizi Feng; il retrouva tous ces visages de femmes rencontrées au fil de sa vie, celles qu'il avait fini par oublier.
 
 Il y avait aussi Li Qianmei.
 

@@ -32,7 +32,7 @@ Une couche de lumière enveloppait son corps, lui conférant un aspect sacré. E
 
 Bien qu'elle fût endormie et ne s'éveillât jamais, on pouvait encore ressentir sa douceur et sa bonté.
 
-Son visage était délicat. Même si elle n'était pas aussi saisissante que Liu Mei ou aussi éclatante que Papillon Rouge, que valaient ces femmes dans le cœur de Wang Lin?
+Son visage était délicat. Même si elle n'était pas aussi saisissante que Liu Mei ou aussi éclatante que Hongdie, que valaient ces femmes dans le cœur de Wang Lin?
 
 Autrefois, dans ses bras, Li Muwan était passée de sa jeunesse aux cheveux blancs, et les champs de mûriers s'étaient changés en mers d'azur.
 

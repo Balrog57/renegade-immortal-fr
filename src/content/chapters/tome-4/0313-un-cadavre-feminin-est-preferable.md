@@ -14,15 +14,15 @@ Puis, il baissa la tête et se mit à calculer silencieusement. Son sens divin s
 
 Wang Lin fronça les sourcils en observant les environs et demanda soudain: « Puisque cet endroit est une zone de chevauchement de fragments, de quelle couche s'agit-il, frère Chi Hu? »
 
-Papillon Rouge n'avait pas parlé depuis plusieurs jours. Elle laissa échapper un grognement et répliqua: « Question inutile. Bien sûr que c'est la deuxième couche! Il est déjà fort rare que deux couches de fragments se chevauchent dans le Royaume Céleste! »
+Hongdie n'avait pas parlé depuis plusieurs jours. Elle laissa échapper un grognement et répliqua: « Question inutile. Bien sûr que c'est la deuxième couche! Il est déjà fort rare que deux couches de fragments se chevauchent dans le Royaume Céleste! »
 
 Le regard de Wang Lin devint intense alors qu'il lâchait froidement: « Ignorante! »
 
-Être traitée d'ignorante une fois de plus fit s'emparer l'intention meurtrière des yeux de Papillon Rouge, qui fixa Wang Lin avec hostilité.
+Être traitée d'ignorante une fois de plus fit s'emparer l'intention meurtrière des yeux de Hongdie, qui fixa Wang Lin avec hostilité.
 
 Chi Hu esquissa un sourire amer, leva rapidement la tête et dit: « Frère Ceng, il s'agit bien de la deuxième couche, mais mon ancêtre Xi Zu avait spéculé qu'il pourrait y avoir une troisième couche en dessous. »
 
-Papillon Rouge fut stupéfaite. Ses yeux vacillèrent et elle resta silencieuse.
+Hongdie fut stupéfaite. Ses yeux vacillèrent et elle resta silencieuse.
 
 L'expression de Wang Lin demeura imperturbable. Il avait toujours ce pressentiment que quelque chose n'allait pas. Depuis un certain temps, il sentait que quelqu'un les suivait. Cela n'avait rien à voir avec sa culture, mais plutôt avec cet instinct de survie qu'il avait développé au fil de ses années de combats mortels.
 
@@ -34,7 +34,7 @@ Bientôt, les trois s'arrêtèrent quelque part dans le nord-est.
 
 Wang Lin baissa les yeux. Les fosses environnantes formaient effectivement le dessin d'une fleur de prunier.
 
-Chi Hu sauta dans la fosse. Papillon Rouge jeta un regard à Wang Lin avant de s'y engouffrer à son tour.
+Chi Hu sauta dans la fosse. Hongdie jeta un regard à Wang Lin avant de s'y engouffrer à son tour.
 
 Wang Lin déploya son sens divin et ne put détecter le fond de cette fosse. Après avoir réfléchi un instant, il sauta à son tour.
 
@@ -72,7 +72,7 @@ Après un long moment, la résistance devint encore plus forte. Wang Lin prit un
 
 Il calcula mentalement qu'ils avaient déjà descendu plus de trente-trois kilomètres sans que le fond n'apparaisse. Lorsqu'il déployait son sens divin vers le bas, une force mystérieuse l'empêchait de voir au-delà de trois kilomètres.
 
-Wang Lin jeta un coup d'œil à Papillon Rouge. Le corps de la femme dégageait une lueur bleue et son visage restait impassible. Quant à Chi Hu, la marque de hache sur son front clignotait rapidement. À chaque éclat, la force environnante diminuait légèrement. C'était un phénomène très mystérieux.
+Wang Lin jeta un coup d'œil à Hongdie. Le corps de la femme dégageait une lueur bleue et son visage restait impassible. Quant à Chi Hu, la marque de hache sur son front clignotait rapidement. À chaque éclat, la force environnante diminuait légèrement. C'était un phénomène très mystérieux.
 
 Le temps passa lentement. Après une durée indéterminée, Chi Hu, qui menait la marche, cria de joie: « Nous y sommes! »
 
@@ -90,37 +90,37 @@ Hormis l'absence totale de trésors, l'endroit était identique au lieu indiqué
 
 Chi Hu fixait la scène devant lui, stupéfait, l'esprit totalement vide. Il avait déployé tant d'efforts; même sa boussole avait été sacrifiée pour arriver ici, mais il n'aurait jamais imaginé que...
 
-Papillon Rouge ricana. Elle dit, avec une pointe de colère: « Chi Hu, est-ce là l'endroit dont tu parlais? C'est ici que j'ai gaspillé un stigmate de fleur pour entrer? Si tu ne me donnes pas d'explication valable aujourd'hui, je ne te le pardonnerai pas! »
+Hongdie ricana. Elle dit, avec une pointe de colère: « Chi Hu, est-ce là l'endroit dont tu parlais? C'est ici que j'ai gaspillé un stigmate de fleur pour entrer? Si tu ne me donnes pas d'explication valable aujourd'hui, je ne te le pardonnerai pas! »
 
-Wang Lin observa les environs avec une expression singulière et ne put s'empêcher de sourire amèrement. Il n'était pas aussi en colère que Papillon Rouge. Après tout, il n'avait rien perdu lors de ce voyage et avait même trouvé la Pierre Pourpre Dorée. En fin de compte, il était gagnant.
+Wang Lin observa les environs avec une expression singulière et ne put s'empêcher de sourire amèrement. Il n'était pas aussi en colère que Hongdie. Après tout, il n'avait rien perdu lors de ce voyage et avait même trouvé la Pierre Pourpre Dorée. En fin de compte, il était gagnant.
 
-Pensant cela, il avança pour fouiller soigneusement la zone. Papillon Rouge, les yeux brûlants de rage, commença elle aussi à chercher, espérant débusquer un trésor.
+Pensant cela, il avança pour fouiller soigneusement la zone. Hongdie, les yeux brûlants de rage, commença elle aussi à chercher, espérant débusquer un trésor.
 
 Chi Hu, toujours hébété, marmonna: « Comment est-ce possible... impossible... se pourrait-il que quelqu'un d'autre ait découvert cet endroit après que Xi Zu eut découvert cet endroit et ait emporté tous les trésors? Oui, c'est forcément ça! »
 
-Il secoua la tête avec amertume. Se tournant vers Wang Lin et Papillon Rouge, il joignit les mains et dit: « Vous deux, cette fois, j'ai été imprudent. Je ne m'attendais pas à ce que cela se termine ainsi... »
+Il secoua la tête avec amertume. Se tournant vers Wang Lin et Hongdie, il joignit les mains et dit: « Vous deux, cette fois, j'ai été imprudent. Je ne m'attendais pas à ce que cela se termine ainsi... »
 
-Papillon Rouge était sur le point de perdre patience. Elle fixa Chi Hu et lui lança froidement: « Crois-tu qu'un simple aveu d'imprudence suffira à compenser mon stigmate perdu? Chi Hu, je pense que tu savais déjà que cet endroit était ainsi et que tu as délibérément profité de ma puissance en chemin. Tu dois avoir un autre objectif. Si tu ne l'expliques pas clairement, ne me reproche pas de faire fi des relations entre nos clans. »
+Hongdie était sur le point de perdre patience. Elle fixa Chi Hu et lui lança froidement: « Crois-tu qu'un simple aveu d'imprudence suffira à compenser mon stigmate perdu? Chi Hu, je pense que tu savais déjà que cet endroit était ainsi et que tu as délibérément profité de ma puissance en chemin. Tu dois avoir un autre objectif. Si tu ne l'expliques pas clairement, ne me reproche pas de faire fi des relations entre nos clans. »
 
 Wang Lin fouilla calmement partout sans rien trouver. Finalement, son regard se posa sur la mare d'eau. En y regardant de plus près, il constata que son eau était d'un noir profond et qu'il ne pouvait en voir le fond.
 
-En entendant les paroles de Papillon Rouge, le visage de Chi Hu devint immédiatement livide, mais il maîtrisa son tempérament et dit d'un ton grave: « Papillon Rouge, une fois de retour à Suzaku, je te donnerai une explication complète. Cependant, prétendre que j'ai un autre objectif est totalement faux. Je suis le jeune maître du Clan des Démons Géants. Bien que je ne puisse pas t'égaler, je suis un homme de parole. »
+En entendant les paroles de Hongdie, le visage de Chi Hu devint immédiatement livide, mais il maîtrisa son tempérament et dit d'un ton grave: « Hongdie, une fois de retour à Suzaku, je te donnerai une explication complète. Cependant, prétendre que j'ai un autre objectif est totalement faux. Je suis le jeune maître du Clan des Démons Géants. Bien que je ne puisse pas t'égaler, je suis un homme de parole. »
 
-Papillon Rouge ricana et s'apprêtait à répliquer quand Wang Lin intervint soudainement: « Chi Hu, tu as dit plus tôt que cet endroit possédait une troisième couche? »
+Hongdie ricana et s'apprêtait à répliquer quand Wang Lin intervint soudainement: « Chi Hu, tu as dit plus tôt que cet endroit possédait une troisième couche? »
 
 Chi Hu fut surpris. Ses yeux s'illuminèrent et il répondit: « Le frère Ceng Niu a raison. Mon ancêtre Xi Zu avait mentionné l'existence possible d'une troisième couche. »
 
-Papillon Rouge le moqua froidement: « Xi Zu? Ton Xi Zu disait aussi qu'il y avait des trésors dans la deuxième couche! »
+Hongdie le moqua froidement: « Xi Zu? Ton Xi Zu disait aussi qu'il y avait des trésors dans la deuxième couche! »
 
-Chi Hu lança un regard sombre à Papillon Rouge. Après un long moment, il prit une profonde inspiration, s'avança vers Wang Lin et observa la mare d'eau.
+Chi Hu lança un regard sombre à Hongdie. Après un long moment, il prit une profonde inspiration, s'avança vers Wang Lin et observa la mare d'eau.
 
 Wang Lin dit lentement: « S'il existe une troisième couche, ceci doit en être l'entrée. »
 
-Papillon Rouge laissa échapper un léger renâcle. Elle se déplaça discrètement près de la mare et plongea son regard dans l'eau.
+Hongdie laissa échapper un léger renâcle. Elle se déplaça discrètement près de la mare et plongea son regard dans l'eau.
 
 À cet instant précis, quelqu'un descendit du tunnel supérieur. En un seul pas, il apparut comme une ombre, flottant dans les airs juste au-dessus de la mare devant eux.
 
-Une force puissante les enveloppa instantanément. Le visage de Chi Hu devint livide et il cracha une bouffée de sang avant d'être projeté en arrière par l'onde de choc. Quant à Papillon Rouge, elle laissa échapper un petit cri délicat tout en reculant brusquement, les yeux écarquillés par la surprise.
+Une force puissante les enveloppa instantanément. Le visage de Chi Hu devint livide et il cracha une bouffée de sang avant d'être projeté en arrière par l'onde de choc. Quant à Hongdie, elle laissa échapper un petit cri délicat tout en reculant brusquement, les yeux écarquillés par la surprise.
 
 Wang Lin, qui était déjà sur ses gardes car il sentait une présence les suivre, recula rapidement dès l'apparition de l'inconnu. Bien que la pression l'affectât, il ne fut pas blessé; seul son visage devint rouge et il fut repoussé d'une dizaine de mètres.
 
@@ -130,7 +130,7 @@ Chi Hu s'écria: « Zhou Yi, de la Secte des Cinq Éléments! »
 
 L'homme d'âge moyen esquissa un sourire et demanda: « Petit gars du Clan des Démons Géants, tu me connais? »
 
-En entendant le nom de « Zhou Yi », l'expression de Papillon Rouge changea brusquement, tandis qu'elle tentait de masquer son dégoût.
+En entendant le nom de « Zhou Yi », l'expression de Hongdie changea brusquement, tandis qu'elle tentait de masquer son dégoût.
 
 Chi Hu s'inclina rapidement et respectueusement: « Le junior Chi Hu, du Clan des Démons Géants, salue l'Aîné. Ce junior connaît le nom de l'Aîné depuis sa tendre enfance. » Étant né jeune maître du Clan des Démons Géants, il avait été au centre de toutes les attentions dès son plus jeune âge. Il avait étudié les portraits de tous les cultivateurs au stade de la Transformation de l'Âme et au-delà. Dès qu'il eut aperçu la gourde rouge, il reconnut immédiatement l'individu.
 

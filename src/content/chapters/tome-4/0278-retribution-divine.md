@@ -40,11 +40,11 @@ Ce fut le spectacle auquel la vieille femme fut confrontée dès qu'elle retrouv
 
 Elle ne reconnut pas immédiatement la nature de ce phénomène, mais dès qu'elle aperçut les nuages rouges, une terreur profonde l'envahit, et elle n'hésita pas à se réfugier dans la tour de glace.
 
-À cet instant, Papillon Rouge, vêtue de blanc, observa les nuages rouges, à plus de 10 000 kilomètres de là, avec un regard curieux.
+À cet instant, Hongdie, vêtue de blanc, observa les nuages rouges, à plus de 10 000 kilomètres de là, avec un regard curieux.
 
 L'homme d'âge moyen à l'apparence maladive derrière elle fut soudain saisi de surprise et de vigilance. Son air souffreteux disparut totalement alors qu'il fixait les nuages rouges.
 
-Sans dire un mot, il abandonna purement et simplement sa mission de protection envers Papillon Rouge pour se diriger vers les nuages.
+Sans dire un mot, il abandonna purement et simplement sa mission de protection envers Hongdie pour se diriger vers les nuages.
 
 Le visage de Wang Lin était pâle et sa main droite tremblait tandis qu'il regardait la vieille femme s'échapper dans la tour de glace. Ses yeux s'illuminèrent alors qu'il dirigeait les nuages rouges vers la tour.
 
@@ -90,17 +90,17 @@ Après avoir réfléchi un instant, il joignit les mains et cria: « Compagnon c
 
 Face au silence prolongé, l'homme soupira. Il tendit la main pour saisir le vide. Un cri retentit alors qu'un bras gigantesque ruisselant de sang bleu volait vers lui. Le bras atterrit dans sa main avant de tomber en poussière.
 
-La créature serpent n'avait plus qu'un seul bras. L'expression de Papillon Rouge était calme, mais une trace de colère sous-jacente y perçait.
+La créature serpent n'avait plus qu'un seul bras. L'expression de Hongdie était calme, mais une trace de colère sous-jacente y perçait.
 
-L'homme d'âge moyen laissa échapper un froid renâclement et dit lentement: « Si ce n'était pas pour cette maudite bête qui a gâché mon affaire, j'aurais pu parfaire ma technique aujourd'hui. Je suis déjà très généreux de ne prendre qu'un seul bras. Papillon Rouge, souviens-toi bien de cela. »
+L'homme d'âge moyen laissa échapper un froid renâclement et dit lentement: « Si ce n'était pas pour cette maudite bête qui a gâché mon affaire, j'aurais pu parfaire ma technique aujourd'hui. Je suis déjà très généreux de ne prendre qu'un seul bras. Hongdie, souviens-toi bien de cela. »
 
-Papillon Rouge ne répondit rien. Les sept individus derrière elle n'osèrent que bouillir de rage en silence.
+Hongdie ne répondit rien. Les sept individus derrière elle n'osèrent que bouillir de rage en silence.
 
-L'homme se déplaça. Lorsqu'il réapparut, il était derrière Papillon Rouge, arborant à nouveau son air de malade.
+L'homme se déplaça. Lorsqu'il réapparut, il était derrière Hongdie, arborant à nouveau son air de malade.
 
 La plupart des cultivateurs de l'Alliance des Quatre Sectes périrent dans l'année suivant la bataille. Seuls quelques-uns eurent la chance de rester cachés dans le nouveau Xue Yu.
 
-Le temps passa lentement. Après avoir vécu là pendant un an, Papillon Rouge suivit l'homme d'âge moyen vers Suzaku.
+Le temps passa lentement. Après avoir vécu là pendant un an, Hongdie suivit l'homme d'âge moyen vers Suzaku.
 
 Quant au Chaudron de Pluie, malgré les recherches acharnées des cultivateurs de Xue Yu, il resta introuvable. Ils étaient convaincus qu'il était entre les mains des survivants de l'Alliance des Quatre Sectes.
 

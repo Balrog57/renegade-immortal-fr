@@ -106,7 +106,7 @@ Même en utilisant ses trésors, il n'était pas certain de pouvoir l'emporter. 
 
 De plus, il se trouvait dans la ville du général démon. Son but était de sauver Treize, et s'il était blessé, toute chance de sauvetage s'envolerait. En réalisant qu'il ne pouvait pas gagner par la force brute, une idée lui vint: une ruse!
 
-Flottant les yeux clos, il se remémora l'empreinte de main géante qu'il avait vue dans le Royaume Céleste. À l'époque, il y avait passé un temps infini pour tenter de la comprendre, avant de l'utiliser contre Papillon Rouge. Cependant, cette paume n'avait été que forme, sans puissance réelle derrière elle.
+Flottant les yeux clos, il se remémora l'empreinte de main géante qu'il avait vue dans le Royaume Céleste. À l'époque, il y avait passé un temps infini pour tenter de la comprendre, avant de l'utiliser contre Hongdie. Cependant, cette paume n'avait été que forme, sans puissance réelle derrière elle.
 
 Mais ce sort-ci était difficile à percer à jour. Dès son apparition, sa pression atteignait déjà un degré inimaginable.
 

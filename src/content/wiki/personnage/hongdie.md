@@ -1,6 +1,6 @@
 ---
 name: Hongdie
-title: Papillon Rouge
+title: Hongdie
 type: personnage
 image: /renegade-immortal-fr/wiki/images/Hongdie.webp
 categories: ["Personnages", "Femme", "Humain", "Vivant", "Xue Yue", "Planète Suzaku", "Cultivation Alliance", "Système Stellaire Alliance", "Royaume Scellé", "Monde de la Grotte de Wang Lin", "Scruteur du Nirvana"]

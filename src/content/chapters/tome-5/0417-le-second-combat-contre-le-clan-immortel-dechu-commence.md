@@ -86,7 +86,7 @@ Cette bataille avait duré trois ans avant que le Clan Immortel Déchu ne se ret
 
 Au cours de ce conflit, deux figures s'étaient élevées au-dessus de toutes les autres: Liu Mei et Qian Feng.
 
-Liu Mei, par sa beauté sans pareille, avait captivé tous les jeunes cultivateurs masculins. Son niveau de culture était également très élevé; elle se trouvait au stade intermédiaire de la Transformation de l'Âme, ce qui la rendait encore plus remarquable. Dès son apparition, elle avait éclipsé la renommée de Papillon Rouge pour devenir la nouvelle favorite des cieux. Plus personne ne semblait s'intéresser à Papillon Rouge.
+Liu Mei, par sa beauté sans pareille, avait captivé tous les jeunes cultivateurs masculins. Son niveau de culture était également très élevé; elle se trouvait au stade intermédiaire de la Transformation de l'Âme, ce qui la rendait encore plus remarquable. Dès son apparition, elle avait éclipsé la renommée de Hongdie pour devenir la nouvelle favorite des cieux. Plus personne ne semblait s'intéresser à Hongdie.
 
 Ce qui alimentait davantage les conversations était le fait qu'elle soit la disciple personnelle du Suzaku actuel et une candidate au titre de prochain Suzaku. Dès son apparition, elle avait capturé plusieurs chamans à sept feuilles, et même un chaman à huit feuilles, aussi puissant qu'un cultivateur au stade avancé de la Transformation de l'Âme. Sa renommée était devenue fulgurante.
 

@@ -12,7 +12,7 @@ Wang Lin se sentait oppressé après l'apparition de Liu Mei. Le pays Suzaku ét
 
 Plus son niveau de culture augmentait, plus il devenait conscient de ce sentiment. Bien que son séjour à Suzaku fût court, cette sensation de danger s'était gravée dans son cœur.
 
-Que ce soit dans la grotte céleste où tous les serviteurs étaient muets, ou lors de son combat contre Papillon Rouge, il ressentait cette pression immense qui lui ôtait jusqu'au souffle.
+Que ce soit dans la grotte céleste où tous les serviteurs étaient muets, ou lors de son combat contre Hongdie, il ressentait cette pression immense qui lui ôtait jusqu'au souffle.
 
 C'était comme si le ciel était voilé par un immense nuage noir; à moins d'avoir le pouvoir de percer cette obscurité, il n'y avait aucun moyen de résister.
 

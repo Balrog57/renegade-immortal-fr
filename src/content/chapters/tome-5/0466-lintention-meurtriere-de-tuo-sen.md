@@ -92,7 +92,7 @@ Le corps de Wang Lin se mit à trembler. Il sentait une présence nouvelle en lu
 
 À l'inverse, Qian Feng, dont le regard s'était éteint, mourut avant même de pouvoir exploser. Quatre rayons de lumière jaillirent de son front avant de disparaître.
 
-Ces quatre rayons étaient les esprits élémentaires que Qian Feng avait dévorés chez Papillon Rouge.
+Ces quatre rayons étaient les esprits élémentaires que Qian Feng avait dévorés chez Hongdie.
 
 Le regard de Wang Lin devint glacial. D'un geste de la main, il captura l'un des esprits élémentaires tandis que les trois autres se dissipaient.
 

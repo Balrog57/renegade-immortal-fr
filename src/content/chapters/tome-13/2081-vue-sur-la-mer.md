@@ -84,7 +84,7 @@ Le Maître Hong Shan volait dans le ciel quand une traînée de lumière d'épé
 
 Le Maître Hong Shan le poursuivait, l'air sombre. À cet instant, l'amas de lumière pénétra son corps et le fit regarder vers le Continent du Taureau Céleste. Son expression austère s'adoucit, mais il accéléra sa course.
 
-Qing Lin, Zhou Ru, Papillon Rouge, Zhou Yi, et presque tous les habitants du monde des grottes reçurent l'éclat de lumière et ressentirent l'existence de la Secte des Sept Dao. Même s'ils étaient encore mortels, les souvenirs de la secte s'éveilleraient lentement en eux dans le futur.
+Qing Lin, Zhou Ru, Hongdie, Zhou Yi, et presque tous les habitants du monde des grottes reçurent l'éclat de lumière et ressentirent l'existence de la Secte des Sept Dao. Même s'ils étaient encore mortels, les souvenirs de la secte s'éveilleraient lentement en eux dans le futur.
 
 Wang Lin jeta un dernier regard à la Secte des Sept Dao avant d'y établir une formation puissante. Cette formation était comparable à celle qu'il avait installée dans le monde des grottes. Même s'il ne parvenait pas à sortir du Royaume Divin Immémorial, il pourrait garantir la sécurité du monde des grottes et protéger l'existence de la Secte des Sept Dao.
 

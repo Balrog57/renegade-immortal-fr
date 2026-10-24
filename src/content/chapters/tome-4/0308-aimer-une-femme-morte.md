@@ -116,22 +116,22 @@ Un air glacial enveloppa les environs et même de la neige commença à tomber a
 
 Les yeux de Chi Hu s'illuminèrent et il pensa: « C'est elle! »
 
-Il laissa échapper un rire et joignit les mains en signe de respect. « Je vous attendais depuis longtemps, estimée cultivatrice Papillon Rouge! »
+Il laissa échapper un rire et joignit les mains en signe de respect. « Je vous attendais depuis longtemps, estimée cultivatrice Hongdie! »
 
-Cette femme était le génie de Xue Yu, Papillon Rouge!
+Cette femme était le génie de Xue Yu, Hongdie!
 
 Elle lança un regard glacial à Chi Hu alors qu'elle sortait de la formation et déclara: « Si vos paroles sont mensongères, je ne laisserai pas les choses se terminer aussi facilement! »
 
-Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Papillon Rouge. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan Démon Géant, Xi Zu. Il n'aurait aucune raison de mentir. »
+Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Hongdie. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan Démon Géant, Xi Zu. Il n'aurait aucune raison de mentir. »
 
-« Xi Zu... » Le visage de Papillon Rouge se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Démon Géant et Xue Yu.
+« Xi Zu... » Le visage de Hongdie se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Démon Géant et Xue Yu.
 
 Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan Démon Géant était l'allié de Xue Yu.
 
-« Puisque Xi Zu lui-même l'a constaté, je vous crois et je me joindrai à vous pour ce voyage. Je ne convoite aucun trésor autre que ce cercueil de jade céleste. Il doit être à moi! » La voix de Papillon Rouge était empreinte d'une détermination absolue.
+« Puisque Xi Zu lui-même l'a constaté, je vous crois et je me joindrai à vous pour ce voyage. Je ne convoite aucun trésor autre que ce cercueil de jade céleste. Il doit être à moi! » La voix de Hongdie était empreinte d'une détermination absolue.
 
-Chi Hu fronça les sourcils, pensant intérieurement que cette Papillon Rouge était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Ceng Niu si le butin était partagé entre eux deux.
+Chi Hu fronça les sourcils, pensant intérieurement que cette Hongdie était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Ceng Niu si le butin était partagé entre eux deux.
 
-Chi Hu réfléchit un instant avant de dire lentement: « Estimée cultivatrice Papillon Rouge, cette affaire ne se décide pas aussi aisément. Après tout, en plus de nous deux, une troisième personne va se joindre à notre expédition. »
+Chi Hu réfléchit un instant avant de dire lentement: « Estimée cultivatrice Hongdie, cette affaire ne se décide pas aussi aisément. Après tout, en plus de nous deux, une troisième personne va se joindre à notre expédition. »
 
-Papillon Rouge demanda calmement: « Oh? Qui est-ce? »
+Hongdie demanda calmement: « Oh? Qui est-ce? »

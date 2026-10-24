@@ -90,14 +90,14 @@ L'expression de Wang Lin resta sereine. Il ne dit rien, attendant que Liu Mei te
 — Je ne te mentirai pas; tu sais déjà que je viens du pays de Suzaku, mais tu ignores que mon maître n'est pas un homme ordinaire : il est la première personne de la planète Suzaku, Zhu Quezi!
 
 Les yeux de Wang Lin s'illuminèrent. Tout devint soudainement clair dans son esprit et il demanda:
-— Qu'est-il arrivé à Papillon Rouge après sa bataille contre moi?
+— Qu'est-il arrivé à Hongdie après sa bataille contre moi?
 En écoutant Liu Mei, il fit le lien et en tira une conclusion terrifiante.
 
 Liu Mei laissa paraître un soupçon d'admiration. Elle regarda Wang Lin et dit:
-— Papillon Rouge... a été tuée par mon frère aîné.
+— Hongdie... a été tuée par mon frère aîné.
 
 Wang Lin prit une inspiration glacée. Après avoir confirmé ses soupçons, il déclara:
-— Il semble que ma bataille contre Papillon Rouge n'était qu'un simple combat de bêtes aux yeux de certaines personnes.
+— Il semble que ma bataille contre Hongdie n'était qu'un simple combat de bêtes aux yeux de certaines personnes.
 
 Liu Mei se mordit la lèvre et murmura:
 — Frère Wang, tu devrais partir. Le plus tôt sera le mieux. Elle lui lança un regard chargé de sens, soupira, puis partit.

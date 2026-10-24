@@ -100,7 +100,7 @@ Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence 
 
 « Je suis moi... » Il n'y avait aucune confusion dans le regard de Wang Lin; ses yeux étaient d'une clarté absolue.
 
-« Que ce soit Mo Zhi ou Papillon Rouge, même le maître de Mo Zhi et l'Omniscient... Ils pensent tous que ce monde, le monde des grottes, le Continent Astral Immortel, n'ont été formés que par un unique cycle de réincarnation de mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
+« Que ce soit Mo Zhi ou Hongdie, même le maître de Mo Zhi et l'Omniscient... Ils pensent tous que ce monde, le monde des grottes, le Continent Astral Immortel, n'ont été formés que par un unique cycle de réincarnation de mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
 
 « Cependant, est-ce vraiment ainsi? » Wang Lin esquissa un léger sourire. Il se leva, leva les yeux vers le ciel, et son regard brilla d'un éclat intense.
 

@@ -78,7 +78,7 @@ Ils s'assirent devant la porte et Wang Lin sortit du vin pour partager un verre 
 
 Ils oublièrent le passage du temps. Ils buvaient tout en évoquant leurs expériences respectives. Ils souriaient, mais versaient aussi des larmes. Ce duo de frères disciples du monde des grottes se retrouvait enfin sur le Continent Astral Immortel.
 
-Lorsque Wang Lin aborda la question de Papillon Rouge, Qing Shui fut saisi de stupeur. Il but une grande gorgée de vin avec amertume.
+Lorsque Wang Lin aborda la question de Hongdie, Qing Shui fut saisi de stupeur. Il but une grande gorgée de vin avec amertume.
 
 « Les affaires du passé, si elles doivent être oubliées, alors qu'elles le soient. Depuis que nous sommes arrivés sur le Continent Astral Immortel, chacun est libre de ses choix. Pourtant, mon choix est de ne pas oublier! »
 

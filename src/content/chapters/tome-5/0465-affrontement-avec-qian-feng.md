@@ -102,7 +102,7 @@ Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milli
 
 Les yeux de Qian Feng furent envahis par la terreur, et il hurla immédiatement: « Ceng Niu, il n'y a pas de haine profonde entre nous! Pourquoi chercher à me tuer?! »
 
-Le regard de Wang Lin fut aussi tranchant que l'éclair alors qu'il fixait Qian Feng et répondit lentement, mot après mot: « Je te tue parce que j'ai promis à Papillon Rouge de le faire! »
+Le regard de Wang Lin fut aussi tranchant que l'éclair alors qu'il fixait Qian Feng et répondit lentement, mot après mot: « Je te tue parce que j'ai promis à Hongdie de le faire! »
 
 Qian Feng se mit à rire comme un fou: « Ceng Niu, si tu n'avais pas ce drapeau des âmes d'un milliard, je pourrais t'éliminer facilement! Tu m'as poussé à bout! Si je meurs, je détruirai ton précieux drapeau! »
 

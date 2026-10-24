@@ -44,7 +44,7 @@ Qing Lin, Qing Shui, Situ Nan, Maître Nan Yunzi et les autres flottaient là; e
 
 De nombreuses autres personnes familières à Wang Lin le remarquèrent également. En apercevant cette silhouette blanche, leurs visages s'illuminèrent de sourires.
 
-Wang Lin regarda ces visages connus et ces sourires chaleureux, et il sourit à son tour. Il vit Papillon Rouge aux côtés de Qing Shui; il était évident que le père et la fille avaient appris à se connaître.
+Wang Lin regarda ces visages connus et ces sourires chaleureux, et il sourit à son tour. Il vit Hongdie aux côtés de Qing Shui; il était évident que le père et la fille avaient appris à se connaître.
 
 Il vit Qing Shuang derrière Qing Lin, et au loin, un homme à l'air mélancolique. Ce dernier regardait silencieusement Qing Shuang. Son expression était complexe et triste, mais surtout, empreinte de satisfaction.
 

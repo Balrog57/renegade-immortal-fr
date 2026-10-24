@@ -96,7 +96,7 @@ Il n'était pas seul. Une femme l'accompagnait, d'une beauté incomparable. Ses 
 
 Ses longs cheveux, longs d'environ un mètre, étaient coiffés en trois mèches: l'une relevée par une épingle en jade blanc en forme de deux papillons, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
 
-Cette femme n'était en rien moins belle que Papillon Rouge; on pourrait sans exagération la qualifier de beauté nationale. Outre son apparence, elle dégageait un charme si envoûtant qu'il en devenait magnétique.
+Cette femme n'était en rien moins belle que Hongdie; on pourrait sans exagération la qualifier de beauté nationale. Outre son apparence, elle dégageait un charme si envoûtant qu'il en devenait magnétique.
 
 Elle suivait le vieil homme sans utiliser sa propre vitesse, se laissant porter par lui. Autrement, bien qu'elle eût atteint le stade d'Ascendant, elle n'aurait pu maintenir un tel rythme.
 

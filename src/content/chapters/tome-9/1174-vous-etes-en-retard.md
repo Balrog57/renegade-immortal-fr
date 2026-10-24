@@ -112,7 +112,7 @@ Un grondement tonnerre retentit et tous les trésors de Wu Qing explosèrent, ta
 
 « Wu Qing, je ne te raccompagne pas! » Wang Lin ferma les yeux et leva une nouvelle fois sa main droite. L'immense empreinte de la paume du Royaume Céleste de la Pluie apparut dans son esprit. L'empreinte grandit jusqu'à occulter tout le reste!
 
-Il avait d'abord appréhendé cette technique dans le Royaume Céleste de la Pluie. Il l'avait utilisée sans véritable compréhension, forçant le génie Papillon Rouge à battre en retraite!
+Il avait d'abord appréhendé cette technique dans le Royaume Céleste de la Pluie. Il l'avait utilisée sans véritable compréhension, forçant le génie Hongdie à battre en retraite!
 
 Dans la Terre des Esprits Démoniaques, il en avait saisi à nouveau la technique et révélé son potentiel, stupéfiant le Général Démon Mo Lihai!
 

@@ -96,7 +96,7 @@ Alors que Wang Lin se tenait au sommet du Qilin, celui-ci hésita un instant mai
 
 Wang Lin lui jeta un regard et hurla: « Dégagez!!! »
 
-Une aura monstrueuse émana de Wang Lin. Cette puissance était bien trop écrasante pour la femme. Après tout, Wang Lin avait retrouvé sa culture au stade de la Formation de l'Âme; il ne lui manquait que son domaine. Ayant vaincu Papillon Rouge et acquis une grande renommée sur la planète Suzaku, sa force de culture et ses connaissances surpassaient largement celles des cultivateurs ordinaires. Cette femme n'était qu'au début du stade de la Formation de l'Âme; il aurait pu la tuer sans peine à son apogée, ce ne serait pas un exploit pour lui, ayant déjà éliminé plusieurs de ses semblables.
+Une aura monstrueuse émana de Wang Lin. Cette puissance était bien trop écrasante pour la femme. Après tout, Wang Lin avait retrouvé sa culture au stade de la Formation de l'Âme; il ne lui manquait que son domaine. Ayant vaincu Hongdie et acquis une grande renommée sur la planète Suzaku, sa force de culture et ses connaissances surpassaient largement celles des cultivateurs ordinaires. Cette femme n'était qu'au début du stade de la Formation de l'Âme; il aurait pu la tuer sans peine à son apogée, ce ne serait pas un exploit pour lui, ayant déjà éliminé plusieurs de ses semblables.
 
 Il y avait un abîme entre celui qui avait déjà tué des adversaires de même niveau et celui qui ne l'avait jamais fait.
 

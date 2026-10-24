@@ -26,53 +26,53 @@ Leur faible lueur était magnifique dans ce ciel étoilé. Accompagnés par les 
 
 Après un long moment, la femme en rose regarda Wang Lin avec une expression complexe et murmura: « De nombreuses années se sont écoulées depuis notre séparation... Toi... sais-tu qui je suis...? »
 
-Wang Lin ne la regarda pas. Il fixa le Royaume Intérieur et dit calmement: « Papillon Rouge. »
+Wang Lin ne la regarda pas. Il fixa le Royaume Intérieur et dit calmement: « Hongdie. »
 
 « Ainsi, tu le savais déjà. » La femme en rose ferma les yeux.
 
 « C'est Zhou Wutai qui me l'a rappelé. Il a trouvé une formation à Xue Yu qui contenait une mèche de tes cheveux. Il semble que tu aies échappé à ce désastre en utilisant cette formation. » Cette vision apparut dans l'esprit de Wang Lin.
 
-Cette femme en rose était bien Papillon Rouge!
+Cette femme en rose était bien Hongdie!
 
 Cependant, la femme fière d'autrefois avait beaucoup changé. Sa superbe avait été profondément enfouie. De l'extérieur, on ne pouvait plus deviner à quel point elle rayonnait autrefois, telle un papillon éblouissant.
 
-« Te souviens-tu de ce qui s'est passé dans le Royaume Céleste de la Pluie... À cette époque, nous nous sommes affrontés... » Papillon Rouge sourit en se remémorant le passé et parla à Wang Lin comme à un ami.
+« Te souviens-tu de ce qui s'est passé dans le Royaume Céleste de la Pluie... À cette époque, nous nous sommes affrontés... » Hongdie sourit en se remémorant le passé et parla à Wang Lin comme à un ami.
 
 « Il y a eu une période où je te détestais, Wang Lin. Tu m'as coupé un bras dans le Royaume Céleste de la Pluie... »
 
 Wang Lin esquissa un sourire amer et se frotta inconsciemment le nez. Il ne dit rien.
 
-« Je n'aurais jamais imaginé que nous parlerions ainsi après deux mille ans... » En voyant Wang Lin se frotter le nez, Papillon Rouge porta la main à sa bouche pour étouffer un rire. Ses yeux se plissèrent en croissants de lune, lui conférant une beauté saisissante.
+« Je n'aurais jamais imaginé que nous parlerions ainsi après deux mille ans... » En voyant Wang Lin se frotter le nez, Hongdie porta la main à sa bouche pour étouffer un rire. Ses yeux se plissèrent en croissants de lune, lui conférant une beauté saisissante.
 
 « À l'époque, tu voulais me tuer, et je ne t'avais même pas provoqué. » Wang Lin secoua la tête et rit à son tour.
 
-« Bien que la petite sœur Xi Zi soit partie, elle a laissé du vin ici. » Papillon Rouge regarda Wang Lin tout en saisissant la cruche de vin pour la lui tendre.
+« Bien que la petite sœur Xi Zi soit partie, elle a laissé du vin ici. » Hongdie regarda Wang Lin tout en saisissant la cruche de vin pour la lui tendre.
 
 Wang Lin accepta la cruche et en prit une gorgée.
 
-« Et aussi, sur la planète Suzaku, pendant notre combat, tu m'as volé mon Fouet de l'Âme... » rit Papillon Rouge.
+« Et aussi, sur la planète Suzaku, pendant notre combat, tu m'as volé mon Fouet de l'Âme... » rit Hongdie.
 
 « Tout cela appartient au passé désormais, mais tu t'en souviens encore. » Wang Lin sourit amèrement, ne sachant que dire.
 
-« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée du cycle des réincarnations dans le Tombeau de Suzaku. » Évoquant le passé, Papillon Rouge laissa échapper un soupir.
+« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée du cycle des réincarnations dans le Tombeau de Suzaku. » Évoquant le passé, Hongdie laissa échapper un soupir.
 
-« Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yu pour trouver la rose bleue, et je l'ai trouvée. » Parmi les femmes rencontrées dans ses premiers temps, Papillon Rouge était celle qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
+« Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yu pour trouver la rose bleue, et je l'ai trouvée. » Parmi les femmes rencontrées dans ses premiers temps, Hongdie était celle qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
 
 Sa silhouette semblable à un papillon rouge, cette femme si fière, était difficile à oublier. Elle avait atteint le stade de la Formation de l'Âme en seulement cent ans; elle était une femme bénie!
 
-« À l'époque, je ne pensais pas que tu atteindrais ce niveau aujourd'hui... Tout cela ressemble à un rêve, j'ai cette sensation d'irréalité. » Papillon Rouge secoua la tête.
+« À l'époque, je ne pensais pas que tu atteindrais ce niveau aujourd'hui... Tout cela ressemble à un rêve, j'ai cette sensation d'irréalité. » Hongdie secoua la tête.
 
-Le temps passa lentement. En un clin d'œil, trois jours s'écoulèrent. Wang Lin ne se soignait pas, mais échangeait des souvenirs avec Papillon Rouge. Ils se remémoraient peu à peu ce que cela signifiait d'être de simples cultivateurs faibles.
+Le temps passa lentement. En un clin d'œil, trois jours s'écoulèrent. Wang Lin ne se soignait pas, mais échangeait des souvenirs avec Hongdie. Ils se remémoraient peu à peu ce que cela signifiait d'être de simples cultivateurs faibles.
 
 Cette sensation était chaleureuse, très réconfortante.
 
-« Plus tard, lors de la bataille entre Luotian et l'Alliance, je t'ai vu... Mais tu ne m'as plus reconnue. » Papillon Rouge regarda Wang Lin. Elle l'avait vu sur la planète Suzaku et avait observé sa lumière devenir toujours plus éclatante. Cette lumière s'était propagée lentement jusqu'à envelopper les Royaumes Intérieur et Extérieur.
+« Plus tard, lors de la bataille entre Luotian et l'Alliance, je t'ai vu... Mais tu ne m'as plus reconnue. » Hongdie regarda Wang Lin. Elle l'avait vu sur la planète Suzaku et avait observé sa lumière devenir toujours plus éclatante. Cette lumière s'était propagée lentement jusqu'à envelopper les Royaumes Intérieur et Extérieur.
 
-Papillon Rouge éprouvait également de l'admiration pour Wang Lin. Il n'y avait personne qu'elle ait jamais admiré dans sa vie, si ce n'est lui. Pourtant, leurs sentiments n'étaient pas de l'amour, mais une connexion inexplicable dont elle ignorait la nature.
+Hongdie éprouvait également de l'admiration pour Wang Lin. Il n'y avait personne qu'elle ait jamais admiré dans sa vie, si ce n'est lui. Pourtant, leurs sentiments n'étaient pas de l'amour, mais une connexion inexplicable dont elle ignorait la nature.
 
 Peut-être était-ce comme le vin: avec le temps, un sentiment familier s'était développé.
 
-Leur conversation finit par s'apaiser après quelques jours. Wang Lin commença à cultiver pour guérir, tandis que Papillon Rouge restait assise en silence, contemplant les étoiles. La confusion, la complexité et l'éclat dans ses yeux étaient palpables.
+Leur conversation finit par s'apaiser après quelques jours. Wang Lin commença à cultiver pour guérir, tandis que Hongdie restait assise en silence, contemplant les étoiles. La confusion, la complexité et l'éclat dans ses yeux étaient palpables.
 
 Un mois, deux mois... Sans qu'on s'en aperçoive, le neuvième mois de la deuxième année passa.
 
@@ -90,7 +90,7 @@ Li Qianmei était devenue bien plus mince.
 
 Son expression était terne et elle n'avait plus l'allure d'autrefois. Lorsqu'elle croisa le regard de Wang Lin, elle lui adressa un visage empreint d'amertume.
 
-Dans ce monde, hormis Li Muwan, Wang Lin se souvenait de Liu Mei grâce à Wang Ping, et de Papillon Rouge en raison de leur karma. Li Qianmei, elle, représentait une rencontre magnifique et inoubliable.
+Dans ce monde, hormis Li Muwan, Wang Lin se souvenait de Liu Mei grâce à Wang Ping, et de Hongdie en raison de leur karma. Li Qianmei, elle, représentait une rencontre magnifique et inoubliable.
 
 Ils s'étaient connus à travers trois questions et une poursuite sans regret qui les avait fait se rencontrer encore et encore. Ce que Li Qianmei avait dit autrefois resterait gravé à jamais dans le cœur de Wang Lin:
 
@@ -108,7 +108,7 @@ Wang Lin regarda Li Qianmei et, après un long silence, dit: « Tu as maigri... 
 
 Le corps de Li Qianmei trembla et des larmes coulèrent au coin de ses yeux. Ses souvenirs étaient revenus depuis longtemps. En entendant ces mots de Wang Lin, elle ne put plus contenir son émotion et éclata en sanglots.
 
-Papillon Rouge observa la scène, surprise. Elle les regarda tous deux, plongée dans une réflexion silencieuse.
+Hongdie observa la scène, surprise. Elle les regarda tous deux, plongée dans une réflexion silencieuse.
 
 Le Maître Dao Bleu Rêve soupira et conduisit sa fille vers la formation. En un instant, ils se retrouvèrent à moins de cent pieds de la barrière. La formation en roue bourdonna, signe qu'elle s'activait.
 

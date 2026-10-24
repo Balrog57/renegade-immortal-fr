@@ -1,9 +1,9 @@
 ---
 n: 299
-title: Combat contre Papillon Rouge
+title: Combat contre Hongdie
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 299 - Battling Papillon Rouge
+en: Chapter 299 - Battling Hongdie
 slug: combat-contre-papillon-rouge
 ---
 Puis, l'illusion changea. Cette fois, de nombreux êtres célestes s'élancèrent dans les airs, le visage empreint de rage.
@@ -14,37 +14,37 @@ Absorbé par cette scène, Wang Lin fut soudainement frappé de stupeur. Dès l'
 
 Après une série de grondements, le Crapaud du Tonnerre fut repoussé de plusieurs centaines de mètres. L'expression de Wang Lin devint sombre; il se posa sur la tête du Crapaud du Tonnerre pour faire face à la femme qui se cachait derrière l'éclat argenté.
 
-Wang Lin prononça lentement: « Papillon Rouge! »
+Wang Lin prononça lentement: « Hongdie! »
 
 Alors qu'il était immergé dans l'illusion, cette femme était apparue soudainement pour l'attaquer sans un mot. Si le sens divin de Wang Lin n'avait pas déjà atteint le stade avancé de la Formation de l'Âme, il aurait cru que cette lumière argentée faisait partie de l'illusion et il aurait été tué sur le coup.
 
-Le regard de Papillon Rouge était glacial lorsqu'elle fixa Wang Lin: « Tu me connais donc bel et bien. Parle, qui es-tu? »
+Le regard de Hongdie était glacial lorsqu'elle fixa Wang Lin: « Tu me connais donc bel et bien. Parle, qui es-tu? »
 
 Wang Lin resta calme et répondit: « Qui ne connaît pas la fille chérie des cieux du pays de Xue Yu? »
 
-Papillon Rouge rétorqua froidement: « Tu refuses de répondre? Alors tu n'as qu'à rester ici pour l'éternité! » Sur ces mots, elle leva sa main droite et un rayon de lumière argentée apparut au creux de sa paume. Elle fixa Wang Lin d'un regard glacial.
+Hongdie rétorqua froidement: « Tu refuses de répondre? Alors tu n'as qu'à rester ici pour l'éternité! » Sur ces mots, elle leva sa main droite et un rayon de lumière argentée apparut au creux de sa paume. Elle fixa Wang Lin d'un regard glacial.
 
-Wang Lin éclata de rire. Ses yeux brillèrent: « J'ai entendu dire que Papillon Rouge avait réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans. Bien que cent ans ne soient pas longs, c'est une vie entière pour les mortels. Je me demande... tes parents sont-ils encore en vie? »
+Wang Lin éclata de rire. Ses yeux brillèrent: « J'ai entendu dire que Hongdie avait réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans. Bien que cent ans ne soient pas longs, c'est une vie entière pour les mortels. Je me demande... tes parents sont-ils encore en vie? »
 
-Papillon Rouge fronça les sourcils. Elle agita la lumière argentée dans sa main et, soudainement, le ciel fut couvert de mille éclats d'argent qui se mirent à pleuvoir sur Wang Lin.
+Hongdie fronça les sourcils. Elle agita la lumière argentée dans sa main et, soudainement, le ciel fut couvert de mille éclats d'argent qui se mirent à pleuvoir sur Wang Lin.
 
 Wang Lin frappa le Crapaud du Tonnerre, dont l'abdomen se gonfla avant de cracher une boule de foudre. La sphère électrique flotta dans les airs, puis Wang Lin hurla: « Explose! »
 
 Soudain, la boule de foudre détonna, et ses éclairs interceptèrent les milliers d'éclats argentés. Cela permit à Wang Lin de battre en retraite rapidement. Quant au Crapaud du Tonnerre, après avoir expulsé la foudre, il recula promptement avec son maître.
 
-Tout en fuyant, Wang Lin cria: « Papillon Rouge, tes parents ont-ils d'autres enfants? Si ce n'est pas le cas, personne n'accompagnera leur dernier départ. Parmi les manquements à la piété filiale, voilà le premier! »
+Tout en fuyant, Wang Lin cria: « Hongdie, tes parents ont-ils d'autres enfants? Si ce n'est pas le cas, personne n'accompagnera leur dernier départ. Parmi les manquements à la piété filiale, voilà le premier! »
 
-Papillon Rouge fronça à nouveau les sourcils. Elle fixa froidement Wang Lin et se lança à sa poursuite. Elle leva la main droite et une épée volante apparut soudainement au-dessus de sa tête, s'élançant après lui à une vitesse plusieurs fois supérieure à celle de son propre vol.
+Hongdie fronça à nouveau les sourcils. Elle fixa froidement Wang Lin et se lança à sa poursuite. Elle leva la main droite et une épée volante apparut soudainement au-dessus de sa tête, s'élançant après lui à une vitesse plusieurs fois supérieure à celle de son propre vol.
 
 L'épée portait en elle une force de domaine, empreinte d'insensibilité. Sur son passage, d'innombrables flocons de neige apparaissaient vaguement et tombaient tout autour.
 
 Les yeux de Wang Lin s'illuminèrent. Il frappa son sac de rangement, faisant apparaître le drapeau de restriction. Un brouillard noir enveloppa soudainement la zone, prenant la forme de dragons qui chargèrent l'épée volante.
 
-Wang Lin ne chercha plus à fuir; il disparut au sein du brouillard noir. Lorsqu'il réapparut, il se trouvait à plusieurs dizaines de mètres derrière Papillon Rouge. Sa main traça un sceau, l'énergie spirituelle de son corps s'agita et un tourbillon noir et blanc se forma.
+Wang Lin ne chercha plus à fuir; il disparut au sein du brouillard noir. Lorsqu'il réapparut, il se trouvait à plusieurs dizaines de mètres derrière Hongdie. Sa main traça un sceau, l'énergie spirituelle de son corps s'agita et un tourbillon noir et blanc se forma.
 
 À cet instant, le domaine de la vie et de la mort s'étendit depuis ce tourbillon.
 
-Papillon Rouge fronça les sourcils et tonna: « Tu cherches la mort! » Elle leva la main droite pour saisir l'air. Soudain, cinq rayons d'énergie glaciale jaillirent de ses doigts, formant cinq montagnes enneigées qui s'abattirent sur Wang Lin.
+Hongdie fronça les sourcils et tonna: « Tu cherches la mort! » Elle leva la main droite pour saisir l'air. Soudain, cinq rayons d'énergie glaciale jaillirent de ses doigts, formant cinq montagnes enneigées qui s'abattirent sur Wang Lin.
 
 « Cette neige naît dans le ciel et meurt sur la terre! » Les yeux de Wang Lin demeurèrent sereins alors que le tourbillon noir et blanc s'activait. Bien que l'ennemie fût une cultivatrice au stade avancé de la Formation de l'Âme, puisqu'elle voulait le tuer, il se devait de lui offrir un combat digne de ce nom.
 
@@ -52,25 +52,25 @@ Le tourbillon de la vie et de la mort s'agrandit brusquement. Les cinq montagnes
 
 Lors de la collision, un fragment du domaine sans émotion pénétra dans le corps de Wang Lin, le faisant cracher une gorgée de sang. Ce sang se changea instantanément en glace dès qu'il quitta son corps.
 
-Wang Lin sentit un froid absolu l'envelopper. Ses souvenirs de sa famille et de ses êtres chers commençaient à s'effacer. Pourtant, son cœur ne paniqua pas. Il savait que si tous ces souvenirs disparaissaient, il deviendrait un tueur sans émotions, faisant de cet état une graine dans son esprit que Papillon Rouge pourrait utiliser pour contrôler sa vie et sa mort.
+Wang Lin sentit un froid absolu l'envelopper. Ses souvenirs de sa famille et de ses êtres chers commençaient à s'effacer. Pourtant, son cœur ne paniqua pas. Il savait que si tous ces souvenirs disparaissaient, il deviendrait un tueur sans émotions, faisant de cet état une graine dans son esprit que Hongdie pourrait utiliser pour contrôler sa vie et sa mort.
 
 Le domaine de la vie et de la mort s'activa en lui. Les scènes de sa vie de mortel, la vie et la mort des parents de Da Niu, et ses diverses expériences passées se solidifièrent dans son cœur.
 
 Profitant de cet instant de lucidité, Wang Lin hurla:
 
-« Cent ans! Une vie entière! L'amour de ses parents est une chose que les cieux ne peuvent effacer. Papillon Rouge, même si tes parents sont entrés dans le cycle de la réincarnation, ils n'ont cessé de te regarder, derrière toi! Oses-tu te retourner pour les voir? »
+« Cent ans! Une vie entière! L'amour de ses parents est une chose que les cieux ne peuvent effacer. Hongdie, même si tes parents sont entrés dans le cycle de la réincarnation, ils n'ont cessé de te regarder, derrière toi! Oses-tu te retourner pour les voir? »
 
-Bien que l'expression de Papillon Rouge soit restée de marbre, Wang Lin sentit que le domaine sans émotion dans son corps s'était légèrement affaibli. Le domaine de la vie et de la mort circula rapidement dans ses veines tandis qu'il disparaissait. Lorsqu'il réapparut, il était sur le dos du Crapaud du Tonnerre et s'éloigna aussitôt.
+Bien que l'expression de Hongdie soit restée de marbre, Wang Lin sentit que le domaine sans émotion dans son corps s'était légèrement affaibli. Le domaine de la vie et de la mort circula rapidement dans ses veines tandis qu'il disparaissait. Lorsqu'il réapparut, il était sur le dos du Crapaud du Tonnerre et s'éloigna aussitôt.
 
-Wang Lin agita le drapeau de restriction, et cent dragons de fumée noire chargèrent Papillon Rouge.
+Wang Lin agita le drapeau de restriction, et cent dragons de fumée noire chargèrent Hongdie.
 
 Il utilisa quelques respirations pour expulser le domaine sans émotion hors de son corps afin qu'il ne puisse plus l'atteindre. Son visage était sombre; ce qui venait de se passer était extrêmement périlleux. S'il avait échoué, il serait devenu une partie du cycle, perdant tout droit à rivaliser avec les cieux.
 
-« Le domaine d'un cultivateur au stade avancé de la Formation de l'Âme est véritablement redoutable! » Wang Lin prit une profonde inspiration. En vérité, dès que Papillon Rouge l'avait attaqué par surprise, la bataille était déjà engagée.
+« Le domaine d'un cultivateur au stade avancé de la Formation de l'Âme est véritablement redoutable! » Wang Lin prit une profonde inspiration. En vérité, dès que Hongdie l'avait attaqué par surprise, la bataille était déjà engagée.
 
 Wang Lin connaissait la Tactique du Cœur de Glace. La clé consistait à expulser toutes les émotions, puis à les broyer et à les raffiner jusqu'à atteindre un état d'insensibilité totale.
 
-C'était là le cœur Dao de Papillon Rouge!
+C'était là le cœur Dao de Hongdie!
 
 Depuis qu'il avait découvert cette tactique, Wang Lin s'était demandé comment elle avait pu atteindre le stade avancé de la Formation de l'Âme en seulement cent ans. D'un côté, cela témoignait de sa puissance, mais de l'autre, c'était aussi l'une de ses plus grandes faiblesses.
 
@@ -82,17 +82,17 @@ Mais le cœur Dao de cette femme était ferme et ne semblait pas affecté par se
 
 Bien qu'il n'ait pas parlé longuement et que l'effet fût subtil, il avait planté une graine dans son cœur. Si elle ne parvenait pas à l'extirper, elle n'atteindrait jamais le stade de la Transformation de l'Âme.
 
-Wang Lin prit une grande inspiration. Il savait qu'avec le talent de Papillon Rouge, cette graine ne durerait pas longtemps. Cependant, s'il continuait à toucher ce point faible et à prouver que son domaine de la vie et de la mort était la véritable voie alors que celui de sa rivale était imparfait, elle ne serait plus une menace.
+Wang Lin prit une grande inspiration. Il savait qu'avec le talent de Hongdie, cette graine ne durerait pas longtemps. Cependant, s'il continuait à toucher ce point faible et à prouver que son domaine de la vie et de la mort était la véritable voie alors que celui de sa rivale était imparfait, elle ne serait plus une menace.
 
-Papillon Rouge ne se souciait guère des dragons qui chargeaient vers elle. Dès qu'ils furent proches, son âme originelle émergea et elle fit un geste de la main. Une onde de lumière bleue se répandit, transformant instantanément tous les dragons en glace.
+Hongdie ne se souciait guère des dragons qui chargeaient vers elle. Dès qu'ils furent proches, son âme originelle émergea et elle fit un geste de la main. Une onde de lumière bleue se répandit, transformant instantanément tous les dragons en glace.
 
 Elle fixa la direction de la fuite de Wang Lin, le regard plus glacial encore. Elle avait compris ses intentions. En temps normal, cela n'aurait pas posé de problème, mais le domaine de Wang Lin était singulier: il avait réussi à capturer un fragment de la vie et de la mort issu du cycle de la réincarnation.
 
 Au moment où les montagnes enneigées avaient frappé son tourbillon, elle avait clairement ressenti le domaine de la vie et de la mort pénétrer son corps, faisant resurgir un souvenir d'enfance. Bien qu'elle ait pu dissiper cette image aussitôt, les paroles de Wang Lin résonnaient encore: « Même s'ils sont entrés dans le cycle de la réincarnation, tes parents te regardent encore! »
 
-À cet instant, les pensées de Papillon Rouge furent devenues chaotiques. Bien qu'il ne lui ait fallu qu'un instant pour reprendre ses esprits, elle avait manqué l'occasion de l'achever.
+À cet instant, les pensées de Hongdie furent devenues chaotiques. Bien qu'il ne lui ait fallu qu'un instant pour reprendre ses esprits, elle avait manqué l'occasion de l'achever.
 
-« Un simple cultivateur au stade initial de la Formation de l'Âme, et pourtant c'est tout de même intéressant: il sait comment briser mon cœur Dao... Cet homme ne peut pas rester en vie. » Le regard de Papillon Rouge redevint normal et elle se mit à poursuivre Wang Lin.
+« Un simple cultivateur au stade initial de la Formation de l'Âme, et pourtant c'est tout de même intéressant: il sait comment briser mon cœur Dao... Cet homme ne peut pas rester en vie. » Le regard de Hongdie redevint normal et elle se mit à poursuivre Wang Lin.
 
 Tout en fuyant, Wang Lin rangea le Crapaud du Tonnerre d'un geste de la main. Toutefois, la vitesse d'un cultivateur au stade avancé de la Formation de l'Âme surpassait de loin celle d'un stade initial. Bientôt, il sentit des éclats d'énergie glaciale approcher de ses talons.
 
@@ -104,14 +104,14 @@ Pourtant, en courant, l'image de cette empreinte devenait de plus en plus nette 
 
 L'illusion de cette empreinte fusionna rapidement avec celle du palais. Sous l'effet de cet état d'esprit étrange, le corps de Wang Lin s'éleva soudainement vers les cieux.
 
-Papillon Rouge ricana en le poursuivant: « Que tu coures devant ou vers le haut, tu ne t'échapperas pas si facilement. »
+Hongdie ricana en le poursuivant: « Que tu coures devant ou vers le haut, tu ne t'échapperas pas si facilement. »
 
 Wang Lin monta dans le ciel et s'arrêta brusquement. Il regarda le sol comme s'il venait de réaliser quelque chose, puis pressa la paume de sa main vers le bas.
 
 Soudain, le ciel s'obscurcit. Divers flux d'énergie convergèrent sous lui pour former une paume gigantesque juste en dessous de lui.
 
-Cette paume s'abattit violemment sur Papillon Rouge.
+Cette paume s'abattit violemment sur Hongdie.
 
-Pour la première fois, l'expression de Papillon Rouge changea. Elle voulut esquiver, mais la main était immense et frappait avec une rapidité fulgurante. Elle passa à travers le corps de Papillon Rouge pour s'écraser sur le sol, soulevant une onde de choc qui se répandit au loin.
+Pour la première fois, l'expression de Hongdie changea. Elle voulut esquiver, mais la main était immense et frappait avec une rapidité fulgurante. Elle passa à travers le corps de Hongdie pour s'écraser sur le sol, soulevant une onde de choc qui se répandit au loin.
 
 Sous le choc, elle vérifia rapidement son corps et constata qu'elle n'avait rien. Elle ignorait que cette paume de Wang Lin n'avait aucune puissance réelle; il ne faisait qu'essayer de comprendre la nature de l'empreinte.

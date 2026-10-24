@@ -96,7 +96,7 @@ Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un
 
 « Tie Yan est là! » Le vieil homme joignit les mains et se tint respectueusement. Son cœur débordait d'admiration pour Wang Lin. Sur la planète Suzaku, le nom de ce dernier était une légende.
 
-Wang Lin, également connu sous le nom de Ceng Niu, avait tranché le bras de Papillon Rouge, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite, décliné le titre de Suzaku et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
+Wang Lin, également connu sous le nom de Ceng Niu, avait tranché le bras de Hongdie, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite, décliné le titre de Suzaku et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
 
 Tous ces récits s'étaient propagés parmi les cultivateurs de la planète Suzaku; presque personne n'ignorait ses exploits.
 

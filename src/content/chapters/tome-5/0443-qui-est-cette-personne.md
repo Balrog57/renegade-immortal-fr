@@ -68,7 +68,7 @@ Un petit singe aux yeux rouges était assis à ses côtés. L'animal se grattait
 
 Au moment où Wang Lin s'assit, l'homme d'âge moyen ouvrit les yeux. Son regard fut calme lorsqu'il fixa Wang Lin et prononça: « Ceng Niu! »
 
-À cet instant, les quinze autres cultivateurs de la Transformation de l'Âme furent frappés de stupeur et reportèrent leurs yeux sur Wang Lin. Le nom de Ceng Niu était célèbre sur la planète Suzaku; presque chaque cultivateur du monde connaissait ce nom. Si sa bataille contre le Papillon Rouge n'avait pas attiré l'attention des experts de la Transformation de l'Âme, alors la mort de Li Yuanfeng et celle de l'ancêtre du Clan des Démons Géants l'avaient indubitablement fait connaître.
+À cet instant, les quinze autres cultivateurs de la Transformation de l'Âme furent frappés de stupeur et reportèrent leurs yeux sur Wang Lin. Le nom de Ceng Niu était célèbre sur la planète Suzaku; presque chaque cultivateur du monde connaissait ce nom. Si sa bataille contre Hongdie n'avait pas attiré l'attention des experts de la Transformation de l'Âme, alors la mort de Li Yuanfeng et celle de l'ancêtre du Clan des Démons Géants l'avaient indubitablement fait connaître.
 
 L'expression de Wang Lin resta imperturbable. Il regarda l'homme d'âge moyen et demanda: « Nous sommes-nous déjà rencontrés? »
 

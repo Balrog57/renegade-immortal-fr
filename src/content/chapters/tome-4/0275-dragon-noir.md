@@ -36,9 +36,9 @@ Parmi eux se trouvaient quatre vieux cultivateurs particulièrement frappants, d
 
 Les quatre levèrent la tête pour contempler les tours de glace en descente. L'un d'eux se redressa soudainement, son corps chétif reprenant brusquement du volume. Des craquements résonnèrent dans sa carcasse tandis que ses os s'élargissaient; les rides de sa peau s'effacèrent et ses muscles se développèrent.
 
-En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'âge moyen d'une grande dignité. Il fixa la femme en blanc d'un regard sérieux et déclara: « Je suis Zhou Yun, de la Secte de l'Âme Noire. Puis-je me permettre de vous demander si vous êtes Papillon Rouge, de Xue Yu? »
+En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'âge moyen d'une grande dignité. Il fixa la femme en blanc d'un regard sérieux et déclara: « Je suis Zhou Yun, de la Secte de l'Âme Noire. Puis-je me permettre de vous demander si vous êtes Hongdie, de Xue Yu? »
 
-Papillon Rouge, le génie de Xue Yu que Suzaku cherchait à recruter, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
+Hongdie, le génie de Xue Yu que Suzaku cherchait à recruter, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
 
 Les yeux de la femme eurent un bref éclat et elle répondit: « Ainsi, il s'agit de Zhou Yun, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
 
@@ -46,7 +46,7 @@ Le sourcil de Zhou Yun se fronça. Cette femme n'avait pas répondu à sa questi
 
 Ce geste n'était pas seulement le signal du début des hostilités, mais aussi l'ordre donné aux membres de l'Alliance des Quatre Sectes d'entamer la seconde phase de leur plan.
 
-Zhou Yun ne pouvait plus attendre. Peu importait que cette femme soit Papillon Rouge ou non, il devait tenter le coup.
+Zhou Yun ne pouvait plus attendre. Peu importait que cette femme soit Hongdie ou non, il devait tenter le coup.
 
 Les cultivateurs de la Formation de l'Âme qui l'entouraient s'élancèrent tous vers les cieux.
 

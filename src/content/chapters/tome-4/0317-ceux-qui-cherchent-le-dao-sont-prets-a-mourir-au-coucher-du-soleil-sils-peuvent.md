@@ -6,25 +6,25 @@ bookTitle: Clean Sweep
 en: Chapter 317 -Those who seek Dao are willing to die at sunset if they could gain the right path in the morning
 slug: ceux-qui-cherchent-le-dao-sont-prêts-a-mourir-au-coucher-du-soleil-sils-peuvent
 ---
-Le bracelet libéra une immense quantité de lumière blanche qui se concentra pour former un trou noir derrière Papillon Rouge.
+Le bracelet libéra une immense quantité de lumière blanche qui se concentra pour former un trou noir derrière Hongdie.
 
 Ce vortex révéla un lieu semblable à un autel, situé à Suzaku.
 
-« Ceng Niu, je me souviendrai de toi! Oui, c'est bien toi!! C'est toi qui m'as forcée à sacrifier un niveau de culture pour utiliser ce bracelet. Je ne l'oublierai pas! On se reverra sur la planète Suzaku! » La haine dans la voix de Papillon Rouge était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
+« Ceng Niu, je me souviendrai de toi! Oui, c'est bien toi!! C'est toi qui m'as forcée à sacrifier un niveau de culture pour utiliser ce bracelet. Je ne l'oublierai pas! On se reverra sur la planète Suzaku! » La haine dans la voix de Hongdie était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
 
 Le Bracelet de Paix Ouverte, outre ses capacités ordinaires, possédait une fonction supplémentaire: ouvrir un portail depuis le Royaume Céleste vers Suzaku afin de permettre à l'utilisateur de rentrer en toute sécurité.
 
-Ce bracelet avait été initialement obtenu par Suzaku dans le royaume céleste; il n'était donc pas surprenant qu'il possède une telle faculté. C'était aussi pour cette raison que Papillon Rouge ne craignait véritablement rien. Cependant, le prix à payer était exorbitant: une fois de retour à Suzaku, son niveau de culture ne serait plus celui du stade avancé de la Formation de l'Âme, mais celui du stade intermédiaire!
+Ce bracelet avait été initialement obtenu par Suzaku dans le royaume céleste; il n'était donc pas surprenant qu'il possède une telle faculté. C'était aussi pour cette raison que Hongdie ne craignait véritablement rien. Cependant, le prix à payer était exorbitant: une fois de retour à Suzaku, son niveau de culture ne serait plus celui du stade avancé de la Formation de l'Âme, mais celui du stade intermédiaire!
 
 Wang Lin commençait à perdre le contrôle du domaine impitoyable qui bouillonnait en lui.
 
-En voyant Papillon Rouge sur le point de s'échapper, il fut envahi par une immense frustration. Sans ce bracelet, elle serait certainement morte aujourd'hui. Une fois qu'elle serait revenue à Suzaku, il lui serait extrêmement difficile de trouver une nouvelle opportunité aussi favorable pour l'éliminer.
+En voyant Hongdie sur le point de s'échapper, il fut envahi par une immense frustration. Sans ce bracelet, elle serait certainement morte aujourd'hui. Une fois qu'elle serait revenue à Suzaku, il lui serait extrêmement difficile de trouver une nouvelle opportunité aussi favorable pour l'éliminer.
 
-Wang Lin hurla: « Papillon Rouge, regarde ce que c'est! »
+Wang Lin hurla: « Hongdie, regarde ce que c'est! »
 
 Il leva sa main droite. Soudain, un éventail ne portant que deux plumes apparut dans sa paume.
 
-Les yeux de Papillon Rouge se fixèrent instantanément sur l'éventail, empreints de choc. Ses pas s'immobilisèrent inconsciemment un court instant.
+Les yeux de Hongdie se fixèrent instantanément sur l'éventail, empreints de choc. Ses pas s'immobilisèrent inconsciemment un court instant.
 
 « L'éventail de la sœur aînée! »
 
@@ -36,23 +36,23 @@ Dès que l'ombre apparut, l'âme originelle de Wang Lin tonna: « Explose! »
 
 Boom!
 
-L'ombre explosa, projetant une force destructrice vers Papillon Rouge.
+L'ombre explosa, projetant une force destructrice vers Hongdie.
 
 Le visage de la femme changea à nouveau et elle tenta de reculer précipitamment. Elle se trouvait désormais dans le trou noir, mais à cet instant précis, l'âme originelle de Wang Lin surgit.
 
 « Reste là! »
 
-La main droite de Wang Lin s'étira et s'abattit violemment sur Papillon Rouge.
+La main droite de Wang Lin s'étira et s'abattit violemment sur Hongdie.
 
-Alors que Papillon Rouge allait tenter de résister, l'onde de choc de l'explosion de l'ombre la frappa, lui arrachant un gémissement de douleur et une nouvelle bouffée de sang. C'est à cet instant que la main de Wang Lin l'atteignit.
+Alors que Hongdie allait tenter de résister, l'onde de choc de l'explosion de l'ombre la frappa, lui arrachant un gémissement de douleur et une nouvelle bouffée de sang. C'est à cet instant que la main de Wang Lin l'atteignit.
 
 Wang Lin engageait tout ce qu'il possédait. Il ne se souciait nullement du risque de blesser son âme originelle en la laissant se détacher de son corps. Cette attaque était empreinte d'une once d'intention meurtrière!
 
-Papillon Rouge leva la main droite pour parer l'assaut. Un rayon de lumière blanche émana de son corps; cette lumière était extrêmement périlleuse pour les âmes originelles. Wang Lin sentit son âme originelle s'affaiblir à une vitesse fulgurante.
+Hongdie leva la main droite pour parer l'assaut. Un rayon de lumière blanche émana de son corps; cette lumière était extrêmement périlleuse pour les âmes originelles. Wang Lin sentit son âme originelle s'affaiblir à une vitesse fulgurante.
 
 *Déchirement!*
 
-Wang Lin frappa avec acharnement et, dans un éclair rouge, le bras droit de Papillon Rouge fut arraché. Wang Lin vit la femme, privée de son bras droit, sombrer dans le trou les yeux clos. Le vortex se replia alors rapidement sur lui-même avant de se refermer totalement.
+Wang Lin frappa avec acharnement et, dans un éclair rouge, le bras droit de Hongdie fut arraché. Wang Lin vit la femme, privée de son bras droit, sombrer dans le trou les yeux clos. Le vortex se replia alors rapidement sur lui-même avant de se refermer totalement.
 
 Wang Lin poussa un soupir secret. Son âme originelle saisit l'autre plume et regagna promptement son corps. Une fois le trou noir refermé, il retrouva sa forme physique.
 
@@ -64,7 +64,7 @@ Il avait utilisé toutes ses ressources. Il avait même choisi l'instant où ell
 
 « Ma culture est encore insuffisante. Si j'avais été au stade intermédiaire de la Formation de l'Âme, l'issue de ce combat aurait été différente », soupira-t-il une nouvelle fois.
 
-Le combat contre Papillon Rouge n'avait pas duré longtemps; il n'avait duré que quelques respirations.
+Le combat contre Hongdie n'avait pas duré longtemps; il n'avait duré que quelques respirations.
 
 « Fou! C'est un véritable fou! » L'ancien de la Secte des Cadavres, qui venait de projeter le cadavre, maudit la scène tout en volant vers l'entrée. Cependant, à ce moment précis, un grondement retentit et l'entrée s'effondra.
 

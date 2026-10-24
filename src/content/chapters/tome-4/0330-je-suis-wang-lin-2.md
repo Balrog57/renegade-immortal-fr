@@ -8,11 +8,11 @@ slug: je-suis-wang-lin-2
 ---
 Aux yeux de Zhan Bai, son voyage vers le Royaume Céleste n'était qu'une source de déshonneur. Ceng Niu n'était qu'un inconnu qui avait osé l'ignorer. Si ce Ceng Niu l'avait aidé, ils auraient facilement tué la personne qui le poursuivait.
 
-« Je ne pensais pas que Ceng Niu puisse arracher un bras à Papillon Rouge. Désormais, cet homme est célèbre dans tout Suzaku. Humph, cette renommée aurait dû être la mienne. Attends un peu, Ceng Niu, un jour nous nous affronterons! »
+« Je ne pensais pas que Ceng Niu puisse arracher un bras à Hongdie. Désormais, cet homme est célèbre dans tout Suzaku. Humph, cette renommée aurait dû être la mienne. Attends un peu, Ceng Niu, un jour nous nous affronterons! »
 
 Zhan Bai ricana, puis fronça bientôt les sourcils en marmonnant: « La grenouille tonitruante de Ceng Niu est l'ennemie naturelle de mes insectes, ce sera donc un peu difficile. » Ses yeux s'illuminèrent et il prit une décision. Cette fois, il devait s'enfoncer plus profondément dans la Vallée Désolée des Neuf Fantômes pour obtenir le Roi des Insectes. Avec le Roi des Insectes, même la grenouille tonitruante perdrait de son efficacité.
 
-« Il est plus prudent de ne pas provoquer Ceng Niu avant cela. Si cet homme a pu arracher un bras à Papillon Rouge, alors son niveau de culture ne doit pas être réellement celui d'un début de stade de Formation de l'Âme comme il le laisse paraître. Cependant, Suzaku est vaste. Même si je veux m'en prendre à lui, il sera difficile de le localiser. » Zhan Bai renifla. En un clin d'œil, il arriva devant la Secte du Ciel Nuageux.
+« Il est plus prudent de ne pas provoquer Ceng Niu avant cela. Si cet homme a pu arracher un bras à Hongdie, alors son niveau de culture ne doit pas être réellement celui d'un début de stade de Formation de l'Âme comme il le laisse paraître. Cependant, Suzaku est vaste. Même si je veux m'en prendre à lui, il sera difficile de le localiser. » Zhan Bai renifla. En un clin d'œil, il arriva devant la Secte du Ciel Nuageux.
 
 La Secte du Ciel Nuageux était entourée de nuages blancs. Ces nuages n'étaient pas naturels, mais constituaient une formation de protection de la secte. Non seulement cette formation protégeait la secte, mais elle avait également la capacité de masquer les fluctuations d'énergie spirituelle provenant de l'intérieur.
 

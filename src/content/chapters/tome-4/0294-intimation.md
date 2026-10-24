@@ -50,11 +50,11 @@ Tandis qu'il parlait, l'empreinte de hache sur son front brilla rapidement.
 
 L'individu regarda l'homme du Clan des Démons Géants avec effroi en murmurant: « Le Clan des Démons Géants... » Son corps s'éloigna lentement de la plateforme.
 
-L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Yu, Papillon Rouge. L'homme du Clan des Démons Géants l'observa avec intérêt.
+L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Yu, Hongdie. L'homme du Clan des Démons Géants l'observa avec intérêt.
 
-Cette personne atterrit sur la plateforme de Papillon Rouge, la regarda, joignit les mains en signe de respect, puis repartit.
+Cette personne atterrit sur la plateforme de Hongdie, la regarda, joignit les mains en signe de respect, puis repartit.
 
-Il avait remarqué que cette Papillon Rouge se trouvait au stade avancé de la Formation de l'Âme. Ce n'était pas un adversaire qu'il pouvait provoquer. Il flotta donc dans les airs, son regard balayant la foule. Il renonça d'emblée à l'homme aux cheveux blancs et, quant à l'homme d'âge moyen, il passa son chemin car la plateforme était déjà occupée.
+Il avait remarqué que cette Hongdie se trouvait au stade avancé de la Formation de l'Âme. Ce n'était pas un adversaire qu'il pouvait provoquer. Il flotta donc dans les airs, son regard balayant la foule. Il renonça d'emblée à l'homme aux cheveux blancs et, quant à l'homme d'âge moyen, il passa son chemin car la plateforme était déjà occupée.
 
 Finalement, il choisit les deux plateformes où se trouvaient Wang Lin et le jeune homme dont le regard était empreint de soif de sang. Il renonça au second, car celui-ci ne semblait pas être du genre à céder facilement; cela aurait pu déclencher un combat majeur, ce qu'il voulait éviter.
 
@@ -62,7 +62,7 @@ Quant à Wang Lin, il ressemblait à un érudit fragile, une proie facile. Les y
 
 À cet instant, même l'homme d'âge moyen qui buvait leva la tête pour observer la scène. L'homme du Clan des Démons Géants fit de même, l'intérêt brillant dans ses yeux.
 
-Papillon Rouge avait l'impression de connaître ce visage d'érudit, mais elle ne parvenait pas à s'en souvenir. Elle scruta également l'inconnu pour tenter de déceler la nature de ses techniques. Le jeune homme assoiffé de sang et le vieil homme aux cheveux blancs regardèrent aussi; après tout, Wang Lin venait du Suzaku, tout comme eux.
+Hongdie avait l'impression de connaître ce visage d'érudit, mais elle ne parvenait pas à s'en souvenir. Elle scruta également l'inconnu pour tenter de déceler la nature de ses techniques. Le jeune homme assoiffé de sang et le vieil homme aux cheveux blancs regardèrent aussi; après tout, Wang Lin venait du Suzaku, tout comme eux.
 
 L'individu se tint sur la plateforme de Wang Lin et dit froidement: « Cher compagnon de culture, veuillez quitter cette plateforme pour en trouver une autre. » Bien que sa voix fût glaciale, ses échecs successifs avaient considérablement entamé son arrogance.
 

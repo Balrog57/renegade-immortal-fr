@@ -40,7 +40,7 @@ Cette lumière se transforma rapidement en un géant de glace de trente-trois m�
 
 Le géant poussa un rugissement qui se propagea instantanément aux quatre vents.
 
-Les yeux de Wang Lin devinrent sérieux. Ce géant de glace ressemblait presque exactement à celui que Papillon Rouge avait utilisé, mais en plus petit.
+Les yeux de Wang Lin devinrent sérieux. Ce géant de glace ressemblait presque exactement à celui que Hongdie avait utilisé, mais en plus petit.
 
 Il fit un pas en avant dans un rugissement et chargea vers Wang Lin.
 

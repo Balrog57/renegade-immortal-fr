@@ -70,25 +70,25 @@ D'un geste neutre, Liu Mei pointa le centre de ses sourcils avec sa main de jade
 
 Cette femme était empreinte d'arrogance, ses yeux étaient féroces et elle était d'une grande beauté. Une paire d'yeux de phénix fixa Wang Lin avec une intention meurtrière.
 
-« Papillon Rouge! » Les yeux de Wang Lin projetèrent une explosion de lumière dorée.
+« Hongdie! » Les yeux de Wang Lin projetèrent une explosion de lumière dorée.
 
-Cette femme était bien Papillon Rouge!
+Cette femme était bien Hongdie!
 
-Papillon Rouge fixa Wang Lin et dit calmement: « Notre querelle doit également être réglée! » Sur ce, elle frappa son sac de rangement et une rose rouge apparut. Elle la lança en avant, et tous les pétales se dispersèrent, flottant vers Wang Lin avec une force mystérieuse.
+Hongdie fixa Wang Lin et dit calmement: « Notre querelle doit également être réglée! » Sur ce, elle frappa son sac de rangement et une rose rouge apparut. Elle la lança en avant, et tous les pétales se dispersèrent, flottant vers Wang Lin avec une force mystérieuse.
 
-« Quel genre de sort est-ce là?! » Les pupilles de Wang Lin se rétractèrent imperceptiblement. La Liu Mei qu'il voyait venait de se transformer en Papillon Rouge. Grâce à son sens divin, il confirma qu'il s'agissait de la véritable Papillon Rouge, sans aucune trace de l'aura de Liu Mei.
+« Quel genre de sort est-ce là?! » Les pupilles de Wang Lin se rétractèrent imperceptiblement. La Liu Mei qu'il voyait venait de se transformer en Hongdie. Grâce à son sens divin, il confirma qu'il s'agissait de la véritabHongdie, sans aucune trace de l'aura de Liu Mei.
 
 Face aux pétales, la main droite de Wang Lin forma un sceau et, d'une pensée, la Formation d'Épées aux Sept Étoiles s'approcha aussitôt. Les sept épées formèrent un cercle et tournèrent à une vitesse fulgurante, créant un puissant vent d'épées qui broya les pétales de fleurs.
 
-L'arrogance dans les yeux de Papillon Rouge s'intensifia; elle fit claquer ses doigts et le pistil de la fleur s'envola. Sa main gauche pointa l'air à plusieurs reprises, et le pistil se combina soudainement pour former une rune. Elle pressa sa main, projetant immédiatement la rune qui s'étendit jusqu'à atteindre environ 330 mètres de large, s'abattant sur Wang Lin telle une montagne gigantesque.
+L'arrogance dans les yeux de Hongdie s'intensifia; elle fit claquer ses doigts et le pistil de la fleur s'envola. Sa main gauche pointa l'air à plusieurs reprises, et le pistil se combina soudainement pour former une rune. Elle pressa sa main, projetant immédiatement la rune qui s'étendit jusqu'à atteindre environ 330 mètres de large, s'abattant sur Wang Lin telle une montagne gigantesque.
 
-Le regard de Wang Lin devint glacial. Il leva la main et pointa le ciel. Un éclair déchira les cieux et une longue rivière des enfers apparut soudainement pour broyer la rune. Cette rivière était imprégnée d'une soif de sang. Sous le contrôle de Wang Lin, elle se mouvait comme un dragon rugissant et encercla immédiatement Papillon Rouge, s'apprêtant à l'engloutir tout entière.
+Le regard de Wang Lin devint glacial. Il leva la main et pointa le ciel. Un éclair déchira les cieux et une longue rivière des enfers apparut soudainement pour broyer la rune. Cette rivière était imprégnée d'une soif de sang. Sous le contrôle de Wang Lin, elle se mouvait comme un dragon rugissant et encercla immédiatement Hongdie, s'apprêtant à l'engloutir tout entière.
 
-Les yeux de Papillon Rouge brillèrent intensément et elle dit calmement: « Intention Dao! Vous possédez donc une Intention Dao! »
+Les yeux de Hongdie brillèrent intensément et elle dit calmement: « Intention Dao! Vous possédez donc une Intention Dao! »
 
 Wang Lin laissa échapper un grognement froid. Tandis que la rivière des enfers s'agitait, le ciel s'obscurcit. Des éclairs jaillissaient de l'intérieur de la rivière, la rendant plus puissante encore.
 
-Papillon Rouge sentit une menace imminente et pointa à nouveau entre ses sourcils. Cette fois, une lumière jaune enveloppa son corps et, lorsqu'elle disparut, elle révéla une petite silhouette frêle.
+Hongdie sentit une menace imminente et pointa à nouveau entre ses sourcils. Cette fois, une lumière jaune enveloppa son corps et, lorsqu'elle disparut, elle révéla une petite silhouette frêle.
 
 « Oncle... »
 
@@ -118,7 +118,7 @@ Le cœur de Wang Lin trembla. Sa main vacilla, puis la rivière des enfers s'eff
 
 « Un faux... Wang Lin, grâce à mon Dao du Démon Céleste des Dix Mille Illusions, ils sont tous les deux à la fois faux et réels! » La voix de Liu Mei était illusoire, émanant de toutes les directions.
 
-Zhou Ru et Papillon Rouge apparurent du vide. Au même moment, le père de Wang Lin surgit et le regarda avec douceur.
+Zhou Ru et Hongdie apparurent du vide. Au même moment, le père de Wang Lin surgit et le regarda avec douceur.
 
 « Wang Lin, te souviens-tu encore de moi... » Wang Zhuo sortit du néant; il n'était plus un vieillard, mais un jeune homme plein de vigueur.
 

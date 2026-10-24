@@ -136,12 +136,12 @@ Il prit une profonde inspiration et disparut.
 
 « Quel casse-tête... Parmi les quatre que j'ai choisis, cette Zi Xin est la plus problématique. Pourquoi a-t-elle dû s'immiscer dans les affaires de Ceng Niu pour finir aspirée dans une faille spatiale?! Si ce n'était pas parce qu'elle est destinée à être la faille dans le Cœur Dao de Qian Feng, ce vieil homme ne perdrait pas son temps à vouloir la sauver! »
 
-« Qian Feng... Qian Feng... ah, ce garçon est l'individu le plus talentueux que ce vieil homme ait rencontré de toute sa vie. Même le talent de Papillon Rouge est inférieur au sien. »
+« Qian Feng... Qian Feng... ah, ce garçon est l'individu le plus talentueux que ce vieil homme ait rencontré de toute sa vie. Même le talent de Hongdie est inférieur au sien. »
 
 « La nouvelle du combat entre Ceng Niu et Li Yuanfeng a parcouru toute la planète Suzaku. Forcer un pays de rang 5 à devenir un pays de rang 3 est un événement majeur. Presque chaque cultivateur de la planète en est informé. »
 
 À cet instant, dans la zone interdite de l'arrière-montagne du Mont Suzaku, au pays de Suzaku, Qian Feng broya le jade de transmission sonore qu'il tenait en main. Ses yeux brillèrent et, après un silence, il murmura: « Ceng Niu... tuer Li Yuanfeng n'est rien. Ce n'était qu'un déchet qui avait atteint la Transformation de l'Âme par la force. Si tu parviens à terrasser l'ancêtre du Clan des Démons Géants, alors seulement, tu seras à peine digne d'être mon adversaire... »
 
-Derrière lui, Papillon Rouge se tenait silencieusement, le regard vide de toute vie.
+Derrière lui, Hongdie se tenait silencieusement, le regard vide de toute vie.
 
 Qian Feng se retourna et la fixa avec un sourire malicieux. « Sans-Cœur, veux-tu affronter Ceng Niu à nouveau? C'était le vœu le plus cher de ton âme avant qu'elle ne disparaisse. »

@@ -120,7 +120,7 @@ Peu après, Liu Mei baissa la tête et dit d'une voix feutrée: « Je crains que
 
 Liu Mei esquissa un sourire ténu: « Rien qu'avec cela, le senior apprenti Wang a pu déduire que je venais de Suzaku. Êtes-vous si sûr... Je pense que vous me testez simplement. Senior apprenti Wang, je ne vous mentirai pas; je suis bel et bien une disciple de Suzaku. »
 
-Wang Lin secoua la tête, affichant un sourire moqueur: « Est-ce vraiment moi qui vous teste... J'ai vu un bracelet semblable au vôtre sur la main de Papillon Rouge... »
+Wang Lin secoua la tête, affichant un sourire moqueur: « Est-ce vraiment moi qui vous teste... J'ai vu un bracelet semblable au vôtre sur la main de Hongdie... »
 
 Sur ces mots, le corps de Wang Lin s'éleva doucement dans les airs.
 

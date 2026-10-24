@@ -10,27 +10,27 @@ La main de Wang Lin, qui tenait son verre de vin, se figea aux paroles de Zhou W
 
 Cette âme d'une fierté extrême apparut devant ses yeux. Cette âme rouge, empreinte de dignité et de solitude, avait brillé avec éclat sur la planète Suzaku.
 
-La vie de Papillon Rouge fut très brève, mais l'éclat de son existence était une chose que même un homme comme Wang Lin trouvait difficile à oublier.
+La vie de Hongdie fut très brève, mais l'éclat de son existence était une chose que même un homme comme Wang Lin trouvait difficile à oublier.
 
-Cette femme qui préférait mourir plutôt que de se soumettre. Cette femme d'une froideur extrême qui avait contraint tous les jeunes de la planète Suzaku à s'incliner sans oser lever la tête. Papillon Rouge, tout comme son nom l'indiquait, était un papillon formé par la lumière la plus rouge et la plus vive des cieux!
+Cette femme qui préférait mourir plutôt que de se soumettre. Cette femme d'une froideur extrême qui avait contraint tous les jeunes de la planète Suzaku à s'incliner sans oser lever la tête. Hongdie, tout comme son nom l'indiquait, était un papillon formé par la lumière la plus rouge et la plus vive des cieux!
 
 Ce papillon était d'une beauté sublime et restait gravé dans la mémoire de d'innombrables personnes!
 
 Wang Lin se remémora le passé en reposant lentement son verre avant de regarder Zhou Wutai.
 
-Zhou Wutai leva les yeux vers Wang Lin et dit d'une voix lente: « Papillon Rouge appartenait au pays de Xue Yu… Le pays de Xue Yu a disparu au fil des âges, ce qui est lié à ton sceau… Les cultivateurs du pays de Xue Yu qui subsistent sont désormais dispersés parmi les neuf grandes sectes. »
+Zhou Wutai leva les yeux vers Wang Lin et dit d'une voix lente: « Hongdie appartenait au pays de Xue Yu… Le pays de Xue Yu a disparu au fil des âges, ce qui est lié à ton sceau… Les cultivateurs du pays de Xue Yu qui subsistent sont désormais dispersés parmi les neuf grandes sectes. »
 
 « Cependant, après la dissolution du pays de Xue Yu, j'ai découvert une zone déserte là-bas… » L'expression de Zhou Wutai devint sérieuse et il prit une gorgée de vin.
 
-« Te souviens-tu encore du maître de Papillon Rouge? Son maître avait autrefois prédit que Papillon Rouge ferait face à une calamité de vie ou de mort. Si elle parvenait à y survivre, son corps des cinq éléments serait complet… »
+« Te souviens-tu encore du maître de Hongdie? Son maître avait autrefois prédit que Hongdie ferait face à une calamité de vie ou de mort. Si elle parvenait à y survivre, son corps des cinq éléments serait complet… »
 
 Wang Lin hocha la tête.
 
-Zhou Wutai reprit calmement: « L'endroit que j'ai trouvé a été scellé par le maître de Papillon Rouge avant sa mort! Le niveau de culture de ce maître n'était pas élevé, c'est pourquoi une chose m'a déconcerté… Comment a-t-elle pu mettre en place une formation aussi complexe? Dans cette formation se trouve une mèche de cheveux de Papillon Rouge. »
+Zhou Wutai reprit calmement: « L'endroit que j'ai trouvé a été scellé par le maître de Hongdie avant sa mort! Le niveau de culture de ce maître n'était pas élevé, c'est pourquoi une chose m'a déconcerté… Comment a-t-elle pu mettre en place une formation aussi complexe? Dans cette formation se trouve une mèche de cheveux de Hongdie. »
 
 « Quelle formation? » Wang Lin sentit une étrange sensation et ses yeux se plissèrent.
 
-« Je ne connais pas grand-chose aux formations, je n'ai donc pas pu en percer les mystères. Sachant qu'il existe un lien entre toi et Papillon Rouge, j'ai préservé la formation. Maintenant que tu es ici, tu comprendras en la voyant. » Zhou Wutai se leva et regarda Wang Lin.
+« Je ne connais pas grand-chose aux formations, je n'ai donc pas pu en percer les mystères. Sachant qu'il existe un lien entre toi et Hongdie, j'ai préservé la formation. Maintenant que tu es ici, tu comprendras en la voyant. » Zhou Wutai se leva et regarda Wang Lin.
 
 Wang Lin tourna son regard vers la tombe de ses parents. Son dessein en revenant était de leur rendre hommage. Il prit une profonde inspiration sans pour autant réveiller le fou endormi, puis s'élança vers le ciel aux côtés de Zhou Wutai.
 
@@ -44,7 +44,7 @@ Cette formation mesurait une centaine de pieds de large et occupait toute la pi�
 
 Une mèche de cheveux était figée au centre de la formation. Celle-ci semblait inactive depuis de nombreuses années et ne montrait aucun signe de fonctionnement.
 
-« Voici la formation », dit Zhou Wutai en l'observant, son visage trahissant la perplexité qu'il avait ressentie par le passé. « Je ne crois pas que le maître de Papillon Rouge ait pu placer une telle formation avec son niveau de culture. »
+« Voici la formation », dit Zhou Wutai en l'observant, son visage trahissant la perplexité qu'il avait ressentie par le passé. « Je ne crois pas que le maître de Hongdie ait pu placer une telle formation avec son niveau de culture. »
 
 Wang Lin entra dans la formation et baissa la tête pour l'examiner attentivement. Elle était extrêmement complexe et regorgeait de restrictions. Comme Zhou Wutai l'avait affirmé, ce n'était pas l'œuvre d'un cultivateur du premier pas.
 
@@ -56,21 +56,21 @@ Une lueur de déduction brilla dans les yeux de Wang Lin et, un instant plus tar
 
 Wang Lin réfléchit un instant, puis dit calmement: « C'est une matrice de transfert par division d'âme! »
 
-« Elle a dû être placée par un cultivateur au sommet du stade de Purificateur du Nirvana ou plus haut… Ce n'est pas quelque chose que le maître de Papillon Rouge aurait pu accomplir, à moins qu'elle n'ait caché son véritable niveau de culture… Cependant, si c'était le cas, ce qui est arrivé à Papillon Rouge par la suite resterait inexplicable. »
+« Elle a dû être placée par un cultivateur au sommet du stade de Purificateur du Nirvana ou plus haut… Ce n'est pas quelque chose que le maître de Hongdie aurait pu accomplir, à moins qu'elle n'ait caché son véritable niveau de culture… Cependant, si c'était le cas, ce qui est arrivé à Hongdie par la suite resterait inexplicable. »
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il poursuivait son analyse: « Le rôle de cette matrice est de séparer une partie de l'âme en utilisant cette mèche de cheveux pour ensuite la transférer ailleurs. J'ignore où elle a été envoyée… Mais ce cheveu contient bien l'aura de Papillon Rouge. Peut-être que Papillon Rouge n'est pas réellement morte! »
+Les yeux de Wang Lin s'illuminèrent alors qu'il poursuivait son analyse: « Le rôle de cette matrice est de séparer une partie de l'âme en utilisant cette mèche de cheveux pour ensuite la transférer ailleurs. J'ignore où elle a été envoyée… Mais ce cheveu contient bien l'aura de Hongdie. Peut-être que Hongdie n'est pas réellement morte! »
 
 Cette révélation le surprit; il ne s'attendait pas à découvrir un tel secret sur la planète Suzaku.
 
-« À l'époque, le maître de Papillon Rouge avait prédit qu'elle affronterait une crise mortelle. Elle savait probablement que cette épreuve était très difficile à éviter et a trouvé, d'une manière ou d'une autre, cette matrice. Avant que Papillon Rouge ne soit confrontée à sa calamité, elle a pris une partie de son âme pour l'envoyer ailleurs… Elle voulait utiliser ce procédé pour offrir une chance de survie à Papillon Rouge... »
+« À l'époque, le maître de Hongdie avait prédit qu'elle affronterait une crise mortelle. Elle savait probablement que cette épreuve était très difficile à éviter et a trouvé, d'une manière ou d'une autre, cette matrice. Avant que Hongdie ne soit confrontée à sa calamité, elle a pris une partie de son âme pour l'envoyer ailleurs… Elle voulait utiliser ce procédé pour offrir une chance de survie à Hongdie... »
 
-« Ainsi, même si Papillon Rouge est morte, grâce à cette parcelle d'âme, elle peut renaître et échapper à ce désastre! » Wang Lin se redressa et regarda Zhou Wutai.
+« Ainsi, même si Hongdie est morte, grâce à cette parcelle d'âme, elle peut renaître et échapper à ce désastre! » Wang Lin se redressa et regarda Zhou Wutai.
 
 Zhou Wutai se mit à son tour à méditer. Après un long silence, il dit: « Après avoir trouvé la formation, j'ai consulté les archives des anciens seigneurs de la planète Suzaku. J'y ai découvert un secret: les cultivateurs du pays de Xue Yu étaient des étrangers, tout comme le clan des Démons Géants. »
 
 Wang Lin resta silencieux et quitta la pièce. Il se tint au sommet de la statue de Suzaku, son regard semblant transpercer le monde pour plonger dans l'immensité de l'espace.
 
-« Peu importe la vérité, le fait que Papillon Rouge soit en vie est une bonne chose… Peut-être qu'en cet instant, elle se trouve ailleurs, contemplant la planète Suzaku… Je me demande si elle possède encore des souvenirs de ce lieu, si elle se souvient du passé… » La voix de Wang Lin était légère lorsqu'elle parvint aux oreilles de Zhou Wutai.
+« Peu importe la vérité, le fait que Hongdie soit en vie est une bonne chose… Peut-être qu'en cet instant, elle se trouve ailleurs, contemplant la planète Suzaku… Je me demande si elle possède encore des souvenirs de ce lieu, si elle se souvient du passé… » La voix de Wang Lin était légère lorsqu'elle parvint aux oreilles de Zhou Wutai.
 
 « Je suis également heureux qu'elle ne soit pas morte… Il ne reste plus beaucoup d'amis, j'espère pouvoir la revoir de mon vivant. » Zhou Wutai sourit avant de pousser un soupir et de hocher la tête. La haine du passé s'était dissipée depuis longtemps sous le passage du temps.
 

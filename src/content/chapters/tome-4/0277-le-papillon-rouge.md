@@ -1,28 +1,28 @@
 ---
 n: 277
-title: Le Papillon Rouge
+title: Hongdie
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 277 - Papillon Rouge
+en: Chapter 277 - Hongdie
 slug: le-papillon-rouge
 ---
 Son maître lui avait autrefois dit que ses Cinq Esprits Élémentaires étaient apparus à sa naissance, alors que le ciel présentait des signes étranges, pour la protéger éternellement.
 
-Les Cinq Esprits Élémentaires n'étaient pas au stade avancé de la Formation de l'Âme lors de leur formation. Ils avaient grandi aux côtés du Papillon Rouge. Chaque fois qu'elle réalisait une percée, les Cinq Esprits Élémentaires en faisaient autant.
+Les Cinq Esprits Élémentaires n'étaient pas au stade avancé de la Formation de l'Âme lors de leur formation. Ils avaient grandi aux côtés de Hongdie. Chaque fois qu'elle réalisait une percée, les Cinq Esprits Élémentaires en faisaient autant.
 
-Plus le Papillon Rouge était puissante, plus les Cinq Esprits Élémentaires étaient forts.
+Plus Hongdie était puissante, plus les Cinq Esprits Élémentaires étaient forts.
 
-Quant à l'origine de ces esprits, nul ne le savait. En fin de compte, le maître du Papillon Rouge avait sacrifié sa propre culture pour obtenir un indice: le Papillon Rouge possédait un faux Corps des Cinq Esprits Élémentaires. Au cours de sa vie, elle ne ferait face qu'à une seule épreuve. Une fois celle-ci franchie, elle obtiendrait le véritable Corps des Cinq Esprits Élémentaires et ne rencontrerait plus jamais aucun goulot d'étranglement.
+Quant à l'origine de ces esprits, nul ne le savait. En fin de compte, le maître de Hongdie avait sacrifié sa propre culture pour obtenir un indice: Hongdie possédait un faux Corps des Cinq Esprits Élémentaires. Au cours de sa vie, elle ne ferait face qu'à une seule épreuve. Une fois celle-ci franchie, elle obtiendrait le véritable Corps des Cinq Esprits Élémentaires et ne rencontrerait plus jamais aucun goulot d'étranglement.
 
 Cependant, bien que son maître ait payé le prix de sa culture, elle n'avait tout de même pas pu prédire la nature de cette épreuve.
 
 Après un certain temps, cette question fut mise de côté, mais quelques rares personnes gardaient au fond du cœur l'attente de cette épreuve.
 
-Juste avant cette guerre, le maître du Papillon Rouge eut soudainement une vision. En saisissant cette chance, elle put discerner un indice sur son épreuve.
+Juste avant cette guerre, le maître de Hongdie eut soudainement une vision. En saisissant cette chance, elle put discerner un indice sur son épreuve.
 
-C'est pourquoi, avant le conflit, elle avait demandé au Papillon Rouge de remettre ses Cinq Esprits Élémentaires à sa sœur apprentie aînée, afin que celle-ci puisse mener Xue Yu dans la bataille contre l'Alliance des Quatre Sectes.
+C'est pourquoi, avant le conflit, elle avait demandé à Hongdie de remettre ses Cinq Esprits Élémentaires à sa sœur apprentie aînée, afin que celle-ci puisse mener Xue Yu dans la bataille contre l'Alliance des Quatre Sectes.
 
-En vérité, tout s'était déroulé selon les plans de son maître. En utilisant sa sœur comme substitut, le Papillon Rouge avait brisé cette épreuve: il s'agissait de répondre à la tribulation, non de l'éviter.
+En vérité, tout s'était déroulé selon les plans de son maître. En utilisant sa sœur comme substitut, Hongdie avait brisé cette épreuve: il s'agissait de répondre à la tribulation, non de l'éviter.
 
 Par conséquent, dès que sa sœur mourrait, l'épreuve prendrait fin et son chemin futur serait exempt d'obstacles. C'est la raison pour laquelle elle était sortie de la faille.
 
@@ -30,7 +30,7 @@ Mais à cet instant précis, en découvrant que l'un des Cinq Esprits Élémenta
 
 Huit personnes se tenaient derrière elle.
 
-Parmi ces huit individus, sept étaient vêtus de la même manière. Il y avait des hommes et des femmes parmi eux, tous très âgés, car ils étaient les sept Grands Anciens de Xue Yu. Même après l'entrée du Papillon Rouge à Suzaku, ces sept continueraient de la suivre pour agir comme ses gardes du corps.
+Parmi ces huit individus, sept étaient vêtus de la même manière. Il y avait des hommes et des femmes parmi eux, tous très âgés, car ils étaient les sept Grands Anciens de Xue Yu. Même après l'entrée de Hongdie à Suzaku, ces sept continueraient de la suivre pour agir comme ses gardes du corps.
 
 Le dernier était un homme d'âge moyen vêtu d'une robe noire. Son visage était d'un jaune pâle, lui donnant une apparence très maladive.
 

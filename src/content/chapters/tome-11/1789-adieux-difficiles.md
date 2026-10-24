@@ -52,13 +52,13 @@ Wang Lin regarda calmement Situ Nan. Leurs regards se croisèrent et, après un 
 
 « Si je ne suis pas mort, je viendrai certainement te chercher. »
 
-Qing Shui fut la deuxième personne à trouver Wang Lin, accompagné de Papillon Rouge. Le père et la fille arrivèrent ensemble, émergeant du vide pour atterrir aux côtés de Wang Lin.
+Qing Shui fut la deuxième personne à trouver Wang Lin, accompagné de Hongdie. Le père et la fille arrivèrent ensemble, émergeant du vide pour atterrir aux côtés de Wang Lin.
 
-Qing Shui ne dit mot. Il resta là un long moment, plongé dans le silence. À ses côtés, Papillon Rouge le regardait les yeux légèrement rougis. Il semblait qu'un événement dont Wang Lin ignorait tout s'était produit au moment de leur décision.
+Qing Shui ne dit mot. Il resta là un long moment, plongé dans le silence. À ses côtés, Hongdie le regardait les yeux légèrement rougis. Il semblait qu'un événement dont Wang Lin ignorait tout s'était produit au moment de leur décision.
 
-« Han Yan, il doit exister un moyen pour que tu retournes sur le Continent Astral Immortel! Alors notre famille pourra enfin être réunie... » Le regard de Qing Shui se posa sur Papillon Rouge avec une tendresse paternelle.
+« Han Yan, il doit exister un moyen pour que tu retournes sur le Continent Astral Immortel! Alors notre famille pourra enfin être réunie... » Le regard de Qing Shui se posa sur Hongdie avec une tendresse paternelle.
 
-Outre Situ, Qing Shui et Papillon Rouge, la quatrième personne à arriver fut Treize!
+Outre Situ, Qing Shui et Hongdie, la quatrième personne à arriver fut Treize!
 
 Les pensées de Treize étaient d'une simplicité absolue. En tant que disciple de Wang Lin, il devait le suivre, que ce soit à travers les lames et le feu, ou même par la réincarnation. Dans son cœur, celui qui était son maître dans une vie le resterait, même après la renaissance!
 

@@ -126,7 +126,7 @@ Tenant l'objet de la main droite, Wang Lin le scruta avec son sens divin et ne t
 
 Cependant, les cinq perles qui la décoraient attirèrent son attention. Wang Lin comprit immédiatement que ces cinq perles contenaient le pouvoir des cinq éléments!
 
-Ces cinq éléments étaient similaires au corps spirituel des cinq éléments de Papillon Rouge de la planète Suzaku, mais dotés d'une spiritualité bien plus grande. En contemplant la couronne, Wang Lin réfléchit un instant avant de la poser sur sa tête, tout comme Cupidité l'avait fait.
+Ces cinq éléments étaient similaires au corps spirituel des cinq éléments de Hongdie de la planète Suzaku, mais dotés d'une spiritualité bien plus grande. En contemplant la couronne, Wang Lin réfléchit un instant avant de la poser sur sa tête, tout comme Cupidité l'avait fait.
 
 À cet instant, une force mystérieuse émana immédiatement du sommet de la tête de Wang Lin. Après avoir parcouru son corps, elle retourna dans la couronne et resta inactive.
 
@@ -134,4 +134,4 @@ Les yeux de Wang Lin prirent une teinte étrange. Il retira la couronne et l'exa
 
 « Cette puissance n'était pas très forte. En traversant mon corps, on aurait dit qu'elle cherchait quelque chose. N'ayant rien trouvé, elle est finalement retournée dans la couronne... Que cherchait-elle? »
 
-« Perles des cinq éléments... Cherchant... » Wang Lin fut saisi de stupeur. Ses yeux brillèrent et il murmura doucement: « Faux corps spirituel des cinq éléments... Papillon Rouge... »
+« Perles des cinq éléments... Cherchant... » Wang Lin fut saisi de stupeur. Ses yeux brillèrent et il murmura doucement: « Faux corps spirituel des cinq éléments... Hongdie... »

@@ -140,4 +140,4 @@ Zhou Ru essuya ses larmes et dit au tigre: « Petit Blanc, fais le poirier! »
 
 Le tigre laissa échapper un grognement mélancolique.
 
-Un mois avant la bataille entre Wang Lin et Papillon Rouge, un événement majeur survint au sein du Clan des Démons Géants. L'un de ses ancêtres absorba suffisamment de jade céleste rapporté par Chi Hu pour atteindre le stade de la Transformation de l'Âme, devenant ainsi le premier membre du clan des Démons Géants à atteindre ce niveau de culture.
+Un mois avant la bataille entre Wang Lin et Hongdie, un événement majeur survint au sein du Clan des Démons Géants. L'un de ses ancêtres absorba suffisamment de jade céleste rapporté par Chi Hu pour atteindre le stade de la Transformation de l'Âme, devenant ainsi le premier membre du clan des Démons Géants à atteindre ce niveau de culture.

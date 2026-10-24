@@ -9,35 +9,35 @@ slug: pays-de-suzaku
 
 Après avoir terminé tout cela, d'un geste de la main droite, Wang Lin fit se contracter le bassin en un récipient. Son bras était désormais scellé à l'intérieur.
 
-À cet instant précis, dans un lieu de Suzaku qui semblait issu d'une peinture, Papillon Rouge cultivait, assise en tailleur et les yeux clos, sur une feuille de lotus au-dessus d'un étang.
+À cet instant précis, dans un lieu de Suzaku qui semblait issu d'une peinture, Hongdie cultivait, assise en tailleur et les yeux clos, sur une feuille de lotus au-dessus d'un étang.
 
 La zone était entourée d'eaux claires et bleues et d'une verdure luxuriante. Des bêtes spirituelles rôdaient même à proximité. Dans l'eau, quelques carpes aux moustaches très longues glissaient; leurs yeux brillaient d'une étincelle de vie, signe qu'elles avaient manifestement acquis une certaine intelligence.
 
-Papillon Rouge portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus à une dizaine de mètres face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Papillon Rouge avec tendresse et dit: « Jeune sœur de discipline Papillon Rouge, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
+Hongdie portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus à une dizaine de mètres face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Hongdie avec tendresse et dit: « Jeune sœur de discipline Hongdie, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
 
-Papillon Rouge ouvrit les yeux et répondit froidement: « Chaque fois que je contemple ma manche vide, mon envie de tuer Ceng Niu grandit! Tant que je ne l'aurai pas tué, mon bras restera manquant. Grand frère de discipline, n'essaie pas de me faire changer d'avis. »
+Hongdie ouvrit les yeux et répondit froidement: « Chaque fois que je contemple ma manche vide, mon envie de tuer Ceng Niu grandit! Tant que je ne l'aurai pas tué, mon bras restera manquant. Grand frère de discipline, n'essaie pas de me faire changer d'avis. »
 
 « Ceng Niu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen.
 
-« Ceng Niu voulait détruire mon Dao de cœur; cependant, grâce à la haine de mon bras perdu, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Le Mont Suzaku veut qu'il m'affronte, cela unifiera ma volonté! » Papillon Rouge leva la tête et regarda au loin.
+« Ceng Niu voulait détruire mon Dao de cœur; cependant, grâce à la haine de mon bras perdu, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Le Mont Suzaku veut qu'il m'affronte, cela unifiera ma volonté! » Hongdie leva la tête et regarda au loin.
 
 « Hmph, si ce n'était pour le Mont Suzaku, je serais déjà sorti pour capturer Ceng Niu afin que tu puisses l'exécuter, jeune sœur de discipline. » Les yeux de l'homme d'âge moyen étincelaient.
 
-Papillon Rouge s'apprêtait à parler quand son expression changea soudainement. Une ligne noire striée de rouge apparut sur son front et se propagea rapidement. Elle pressa précipitamment sa main gauche contre son front. Son visage changeait constamment de couleur tandis qu'elle luttait. Après un long moment, la ligne noire recula, laissant sur son visage une expression de haine profonde.
+Hongdie s'apprêtait à parler quand son expression changea soudainement. Une ligne noire striée de rouge apparut sur son front et se propagea rapidement. Elle pressa précipitamment sa main gauche contre son front. Son visage changeait constamment de couleur tandis qu'elle luttait. Après un long moment, la ligne noire recula, laissant sur son visage une expression de haine profonde.
 
 « Ceng Niu essaie de me blesser en raffinant mon bras perdu. »
 
-La main gauche de Papillon Rouge forma de multiples sceaux qu'elle envoya vers son front. Après un long combat, elle parvint péniblement à se redresser avant de se rasseoir, le visage sombre.
+La main gauche de Hongdie forma de multiples sceaux qu'elle envoya vers son front. Après un long combat, elle parvint péniblement à se redresser avant de se rasseoir, le visage sombre.
 
 « Je vais tuer Ceng Niu, même si cela va à l'encontre des ordres du Mont Suzaku. Au pire, ils me puniront en m'imposant une culture en ermitage pendant cent ans. » Le cœur de l'homme d'âge moyen se serra alors qu'il se détournait pour partir.
 
-Papillon Rouge murmura: « Grand frère de discipline, si quelqu'un doit tuer Ceng Niu, ce sera moi. Le Mont Suzaku a envoyé deux messages concernant lui. Si tu le tues, la punition ne se limitera pas à cent ans de culture en ermitage. »
+Hongdie murmura: « Grand frère de discipline, si quelqu'un doit tuer Ceng Niu, ce sera moi. Le Mont Suzaku a envoyé deux messages concernant lui. Si tu le tues, la punition ne se limitera pas à cent ans de culture en ermitage. »
 
 L'expression de l'homme devint maussade et il se rassea. Cependant, il sortit un morceau de jade, y enregistra quelques informations, puis le lança.
 
 « Je n'irai pas moi-même. J'enverrai des cultivateurs issus de pays de culture de rang inférieur. De cette façon, le Mont Suzaku ne pourra rien me reprocher non plus. »
 
-Papillon Rouge ne répondit pas. Elle ferma les yeux pour concentrer son attention sur le scellement de la ligne noire qui l'avait envahie.
+Hongdie ne répondit pas. Elle ferma les yeux pour concentrer son attention sur le scellement de la ligne noire qui l'avait envahie.
 
 À l'est de Suzaku se trouvait une montagne en forme d'oiseau, connue sous le nom de Mont Suzaku. Le Mont Suzaku était la terre sacrée de Suzaku; toute décision concernant le pays de Suzaku devait recevoir leur approbation.
 

@@ -122,4 +122,4 @@ Le tonnerre gronda et la pluie s'abattit sur la terre, formant un rideau de gout
 
 Vêtue d'une robe rouge qui la faisait ressembler à un papillon écarlate vue de loin, elle se tenait là face au papillon, semblant prête à suivre le vent et la pluie vers des contrées inconnues, sans que personne ne s'en soucie.
 
-« Papillon Rouge... » Une voix douce s'éleva derrière la femme.
+« Hongdie... » Une voix douce s'éleva derrière la femme.

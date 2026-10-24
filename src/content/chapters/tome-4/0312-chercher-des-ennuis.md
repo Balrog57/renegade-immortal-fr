@@ -28,11 +28,11 @@ La boussole continuait de tournoyer et, en un clin d'œil, s'envola au loin.
 
 Le visage de Chi Hu devint pourpre. Du sang s'échappait du coin de ses lèvres et ses yeux étaient injectés de sang. Il poussa un rugissement et, après un long moment, parvint enfin à stabiliser la boussole. Son corps semblait sur le point de s'effondrer. Sa respiration était saccadée alors qu'il sortait des pilules de son sac de rangement pour les avaler.
 
-Papillon Rouge paraissait également très débraillée; ses yeux trahissaient un choc rare.
+Hongdie paraissait également très débraillée; ses yeux trahissaient un choc rare.
 
 Après un temps indéterminé, Chi Hu prit une profonde inspiration et envoya un message: « Merci, frère Ceng, pour l'avertissement. Sans vous, nous serions tous morts aujourd'hui. »
 
-Papillon Rouge demanda: « Quel genre de bête était-ce? »
+Hongdie demanda: « Quel genre de bête était-ce? »
 
 « Je ne sais pas non plus ce que c'est, mais une chose capable de vivre dans le vide du Royaume Céleste n'est pas de notre ressort. Elle ne nous a fait qu'effleurer et cela a suffi à nous terrasser. C'est terrifiant », répondit Chi Hu, la peur encore palpable dans sa voix.
 
@@ -50,27 +50,27 @@ Wang Lin ne partagea pas ces informations.
 
 Chi Hu déclara: « Le frère Ceng est véritablement érudit, je suis impressionné. »
 
-Papillon Rouge renifla et dit d'une voix glaciale: « Qui sait si c'est vrai ou faux? Ne nous invente pas des noms au hasard. »
+Hongdie renifla et dit d'une voix glaciale: « Qui sait si c'est vrai ou faux? Ne nous invente pas des noms au hasard. »
 
 Wang Lin répondit calmement: « Ignorance! »
 
-« Toi! » Les yeux de Papillon Rouge s'illuminèrent de colère.
+« Toi! » Les yeux de Hongdie s'illuminèrent de colère.
 
 Chi Hu se sentait mal à la tête. Alors qu'il allait prendre la parole, Wang Lin l'interrompit: « Cette créature garde normalement ses tentacules rétractés et ne les déploie ainsi que lorsqu'elle cherche de la nourriture. Frère Chi Hu, volez rapidement vers le nord. Lorsque la créature chasse, elle dégage une aura rouge. C'est un phénomène auquel nous ne pouvons résister. »
 
-Chi Hu fut stupéfait. S'ils continuaient vers le nord, ils seraient totalement perdus. Il hésita. En vérité, il doutait aussi des paroles de Wang Lin, mais il n'allait pas les contester comme l'avait fait Papillon Rouge.
+Chi Hu fut stupéfait. S'ils continuaient vers le nord, ils seraient totalement perdus. Il hésita. En vérité, il doutait aussi des paroles de Wang Lin, mais il n'allait pas les contester comme l'avait fait Hongdie.
 
 Wang Lin soupira intérieurement. Il se leva et sauta de la boussole. Le drapeau de restriction enveloppa son corps alors qu'il s'élançait prestement vers le nord.
 
 « Frère Ceng! » Chi Hu fut sous le choc.
 
-Papillon Rouge ajouta froidement: « Qu'il parte, cela m'est égal. Je ne crois pas qu'il ait vraiment reconnu cette créature. »
+Hongdie ajouta froidement: « Qu'il parte, cela m'est égal. Je ne crois pas qu'il ait vraiment reconnu cette créature. »
 
 Chi Hu fronça les sourcils. La survie étant la priorité, il serra les dents et déploya son sens divin vers le sud. Peu après, son expression changea lorsqu'il vit une vague d'aura rouge se propager vers eux.
 
 Pris de panique, Chi Hu dirigea la boussole pour fuir vers le nord.
 
-Papillon Rouge fut également frappée par la stupeur. Après avoir déployé son sens divin, son visage devint extrêmement livide.
+Hongdie fut également frappée par la stupeur. Après avoir déployé son sens divin, son visage devint extrêmement livide.
 
 Une fois la boussole quittée, Wang Lin fonça vers le nord. Bien qu'il ignorât la puissance exacte de cette aura rouge, elle avait laissé une empreinte indélébile dans la mémoire du Dieu Ancien Tu Si. C'est pourquoi il n'avait pas hésité à abandonner le groupe pour s'enfuir seul.
 
@@ -80,27 +80,27 @@ Crac!
 
 Dès qu'un coin de la boussole fut touché par l'aura rouge, il disparut comme s'il avait été dévoré.
 
-La boussole trembla violemment. Chi Hu cracha une bouchée de sang et le visage de Papillon Rouge devint anormalement écarlate.
+La boussole trembla violemment. Chi Hu cracha une bouchée de sang et le visage de Hongdie devint anormalement écarlate.
 
-Chi Hu hurla: « Papillon Rouge, agis! Je dois concentrer toute mon attention sur le contrôle de la boussole, je ne peux utiliser aucun sort pour résister! » Son front se couvrit de sueur froide: il regrettait de ne pas avoir écouté les conseils de Ceng Niu. Avec la vitesse de l'engin, pareille catastrophe ne leur serait jamais arrivée.
+Chi Hu hurla: « Hongdie, agis! Je dois concentrer toute mon attention sur le contrôle de la boussole, je ne peux utiliser aucun sort pour résister! » Son front se couvrit de sueur froide: il regrettait de ne pas avoir écouté les conseils de Ceng Niu. Avec la vitesse de l'engin, pareille catastrophe ne leur serait jamais arrivée.
 
-Sans un mot, Papillon Rouge pressa son front et la rose réapparut. Elle arracha rapidement deux pétales et les projeta contre l'aura rouge.
+Sans un mot, Hongdie pressa son front et la rose réapparut. Elle arracha rapidement deux pétales et les projeta contre l'aura rouge.
 
 Bang! Bang!
 
-Deux explosions assourdissantes se produisirent, repoussant la vague rouge. Papillon Rouge sentit un goût sucré lui monter dans la gorge alors qu'elle crachait une importante quantité de sang.
+Deux explosions assourdissantes se produisirent, repoussant la vague rouge. Hongdie sentit un goût sucré lui monter dans la gorge alors qu'elle crachait une importante quantité de sang.
 
 Grâce à la puissance de l'explosion, Chi Hu parvint à diriger la boussole hors de l'aura, mais ils n'étaient pas encore hors de danger. L'ouverture créée par le pétale de rose ressemblait désormais à une gueule béante s'apprêtant à engloutir la boussole.
 
 Bang!
 
-L'ouverture se referma et la boussole trembla violemment, tandis que de nouvelles fissures apparaissaient sur sa surface. Chi Hu sentit ses forces l'abandonner et le visage de Papillon Rouge devint livide.
+L'ouverture se referma et la boussole trembla violemment, tandis que de nouvelles fissures apparaissaient sur sa surface. Chi Hu sentit ses forces l'abandonner et le visage de Hongdie devint livide.
 
 Bang!
 
 L'aura tenta une nouvelle fois d'engloutir la boussole. Cette fois, elle n'en fut séparée que d'un cheveu.
 
-Papillon Rouge serra les dents. Elle arracha un stigmate de la fleur et le lança vers l'aura rouge.
+Hongdie serra les dents. Elle arracha un stigmate de la fleur et le lança vers l'aura rouge.
 
 Bang! Bang! Bang!
 
@@ -108,9 +108,9 @@ Les explosions intenses furent perçues même par Wang Lin, au loin. Il esquissa
 
 La gueule créée par l'aura fut finalement expulsée, permettant à la boussole de s'extraire de l'aura rouge. Dès qu'elle fut libérée, elle fonça vers le nord telle une étoile filante.
 
-Le visage de Papillon Rouge était marqué par l'amertume. Les pétales pouvaient être renouvelés, mais il ne restait que trois stigmates et il était très difficile de les récupérer.
+Le visage de Hongdie était marqué par l'amertume. Les pétales pouvaient être renouvelés, mais il ne restait que trois stigmates et il était très difficile de les récupérer.
 
-En plein vol, Wang Lin s'arrêta soudainement et regarda derrière lui. Après un instant, il vit la boussole approcher. En voyant Wang Lin flotter ainsi, Chi Hu ne put s'empêcher de laisser échapper un sourire amer. À cet instant, l'utilité de Wang Lin avait crû indéfiniment, surpassant largement celle de Papillon Rouge.
+En plein vol, Wang Lin s'arrêta soudainement et regarda derrière lui. Après un instant, il vit la boussole approcher. En voyant Wang Lin flotter ainsi, Chi Hu ne put s'empêcher de laisser échapper un sourire amer. À cet instant, l'utilité de Wang Lin avait crû indéfiniment, surpassant largement celle de Hongdie.
 
 Chi Hu prit une profonde inspiration. La boussole s'arrêta près de Wang Lin et il dit: « Frère Ceng, entrez, nous pourrons discuter ensuite. »
 
@@ -118,13 +118,13 @@ Sans hésiter, Wang Lin s'assit à l'extrémité est de la boussole. L'engin ava
 
 Chi Hu, mal à l'aise, dit: « Frère Ceng, je reconnais mes torts. Y a-t-il d'autres menaces après cette aura rouge? Comment choisirons-nous notre direction après cela? »
 
-Papillon Rouge garda le silence, le visage fermé.
+Hongdie garda le silence, le visage fermé.
 
 Wang Lin répondit calmement: « Puisque nous avons échappé à l'aura, il n'y aura pas de problème pour l'instant. Le frère Chi Hu doit suivre la carte et tenter de reprendre sa route. »
 
 Chi Hu hocha amèrement la tête. Il pensait secrètement qu'ils devaient se dépêcher: avec la boussole dans cet état, elle ne tiendrait pas longtemps.
 
-Quelques jours plus tard, Chi Hu repéra un point sur la carte et la boussole suivit rapidement le tracé vers leur destination. En chemin, Papillon Rouge resta muette et laissa Wang Lin guider le voyage. Chi Hu ne questionna plus Wang Lin et se soumit à ses instructions.
+Quelques jours plus tard, Chi Hu repéra un point sur la carte et la boussole suivit rapidement le tracé vers leur destination. En chemin, Hongdie resta muette et laissa Wang Lin guider le voyage. Chi Hu ne questionna plus Wang Lin et se soumit à ses instructions.
 
 De nombreuses créatures habitaient le vide. Au fil de leur progression, l'horizon de Wang Lin s'élargissait. Il observait de nombreuses créatures étranges issues des souvenirs de Tu Si. Sous la direction de Wang Lin, la boussole traversa les zones sans encombre, ne subissant que quelques frayeurs sans réel danger.
 

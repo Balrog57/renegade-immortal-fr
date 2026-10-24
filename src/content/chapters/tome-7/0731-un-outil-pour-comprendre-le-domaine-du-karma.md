@@ -22,7 +22,7 @@ Il affinait l'Écran des Montagnes et des Rivières logé dans son âme originel
 
 De plus, il y avait la Montagne Céleste. En raison d'une fissure, l'extraction d'âmes était devenue instable. Wang Lin utilisait l'énergie de son âme originelle pour la raffiner et la réparer lentement.
 
-Quant à la couronne fusionnée avec la rose bleue du Papillon Rouge, Wang Lin l'avait étudiée longuement sans parvenir à en percer les secrets.
+Quant à la couronne fusionnée avec la rose bleue de Hongdie, Wang Lin l'avait étudiée longuement sans parvenir à en percer les secrets.
 
 Ces trois trésors étaient des acquisitions récentes. Tout en les raffinant, Wang Lin prit le temps de les combiner avec les visions obtenues sur le chemin vers la troisième étape. Il sortit alors de son sac un trésor magique d'apparence ordinaire.
 

@@ -15,7 +15,7 @@ Le paon poussa un cri; un cri si cristallin qu'il aurait pu ébranler les cieux.
 
 Wang Lin ressentit cette froideur au cœur de la vallée; c'était l'impitoyabilité, une indifférence naturelle. À ce moment précis, le paon n'était qu'une illusion; celle qui contemplait réellement le dragon était Liu Mei.
 
-Ses yeux étaient indifférents, impitoyables et glacials. Bien qu'elle ressemblât à Papillon Rouge, cette dernière tranchait ses émotions, ce qui différait radicalement de l'absence totale d'émotions.
+Ses yeux étaient indifférents, impitoyables et glacials. Bien qu'elle ressemblât à Hongdie, cette dernière tranchait ses émotions, ce qui différait radicalement de l'absence totale d'émotions.
 
 Seul celui qui possède des émotions peut s'en affranchir.
 

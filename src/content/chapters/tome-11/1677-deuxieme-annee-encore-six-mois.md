@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1677 - Second Year, Another Six Months
 slug: deuxieme-annee-encore-six-mois
 ---
-Wang Lin regarda le Maître Dao Bleu Rêve. Il prit ensuite la cruche de vin que Papillon Rouge lui avait tendue et en but une gorgée avant de fermer les yeux.
+Wang Lin regarda le Maître Dao Bleu Rêve. Il prit ensuite la cruche de vin que Hongdie lui avait tendue et en but une gorgée avant de fermer les yeux.
 
 Le Maître Dao Bleu Rêve n'était pas pressé. Il restait assis là, observant le Royaume Extérieur, attendant la réponse de Wang Lin. Li Qianmei resta silencieuse pendant un long moment avant de s'asseoir lentement. Sa position était très claire: elle se tenait plus près de Wang Lin, comme si elle se méfiait de son propre père.
 
@@ -14,61 +14,61 @@ Comment le Maître Dao Bleu Rêve aurait-il pu ne pas remarquer l'attitude de sa
 
 Le temps passa. En un clin d'œil, les trois derniers mois de la deuxième année s'écoulèrent. Cette deuxième année fut très calme; aucun combat n'eut lieu.
 
-Le dernier jour de la deuxième année, Papillon Rouge se leva et regarda Wang Lin. Cette année avait passé très vite pour elle.
+Le dernier jour de la deuxième année, Hongdie se leva et regarda Wang Lin. Cette année avait passé très vite pour elle.
 
 Wang Lin sembla remarquer qu'elle s'apprêtait à partir et ouvrit les yeux.
 
 Il demanda calmement: « Tu vas partir? »
 
-Papillon Rouge sourit, hocha la tête et répondit: « J'ai déjà pris une année de ton temps. Ma grande sœur Mu m'attend toujours. »
+Hongdie sourit, hocha la tête et répondit: « J'ai déjà pris une année de ton temps. Ma grande sœur Mu m'attend toujours. »
 
-« Prends soin de toi. » Wang Lin regarda Papillon Rouge; il ne percevait plus aucune trace de sa fierté passée.
+« Prends soin de toi. » Wang Lin regarda Hongdie; il ne percevait plus aucune trace de sa fierté passée.
 
-Papillon Rouge sourit et lança un regard profond à Wang Lin. Elle se tourna pour partir, puis s'arrêta soudainement et se retourna vers lui. Une hésitation perçait dans ses yeux.
+Hongdie sourit et lança un regard profond à Wang Lin. Elle se tourna pour partir, puis s'arrêta soudainement et se retourna vers lui. Une hésitation perçait dans ses yeux.
 
 « Ma maîtresse a dit que, dans sa jeunesse, elle avait rencontré un grand érudit nommé "Wang". À l'origine, je n'avais aucune chance de survivre, mais ce grand érudit a laissé une formation pour ma maîtresse... »
 
-« Et il m'a donné le nom de "Papillon Rouge"... »
+« Et il m'a donné le nom de "Hongdie"... »
 
 En entendant cela, les yeux de Wang Lin s'illuminèrent. Son corps se tendit et un regard d'incrédulité et de choc envahit son visage.
 
 « Qu'as-tu dit? »
 
-Papillon Rouge vit le changement dans l'expression de Wang Lin. Elle réfléchit un instant, puis répéta ce qu'elle venait de dire.
+Hongdie vit le changement dans l'expression de Wang Lin. Elle réfléchit un instant, puis répéta ce qu'elle venait de dire.
 
-Après avoir entendu les paroles de Papillon Rouge, Wang Lin resta silencieux un long moment. À cet instant, une vague monstrueuse se déchaîna dans son cœur. Il ne comprenait pas. Tout cela était censé être un rêve qu'il avait créé en utilisant le Dao de la tromperie. Tout aurait dû être faux, afin de lui offrir un cycle parfait.
+Après avoir entendu les paroles de Hongdie, Wang Lin resta silencieux un long moment. À cet instant, une vague monstrueuse se déchaîna dans son cœur. Il ne comprenait pas. Tout cela était censé être un rêve qu'il avait créé en utilisant le Dao de la tromperie. Tout aurait dû être faux, afin de lui offrir un cycle parfait.
 
-Pourtant, les paroles de Papillon Rouge brisèrent cette certitude. Cela rendit soudainement Wang Lin incapable de distinguer le vrai du faux.
+Pourtant, les paroles de Hongdie brisèrent cette certitude. Cela rendit soudainement Wang Lin incapable de distinguer le vrai du faux.
 
 « Comment est-ce possible... Qu'est-ce qui est réel, qu'est-ce qui est faux... Pourquoi en est-il ainsi... » Wang Lin pensait avoir compris les essences, mais à cet instant, il était plongé dans la confusion.
 
 Avait-il vraiment compris...?
 
-Papillon Rouge se détourna et partit. Cependant, après quelques pas, elle s'arrêta et, avec hésitation, se retourna pour poser une dernière question.
+Hongdie se détourna et partit. Cependant, après quelques pas, elle s'arrêta et, avec hésitation, se retourna pour poser une dernière question.
 
 « Qing Shui, ton frère aîné... Le comprends-tu vraiment...? »
 
-Wang Lin s'extirpa avec peine de son choc. Il regarda Papillon Rouge et dit lentement: « Que veux-tu demander? »
+Wang Lin s'extirpa avec peine de son choc. Il regarda Hongdie et dit lentement: « Que veux-tu demander? »
 
-« Lui... A-t-il une famille? » Papillon Rouge mordilla sa lèvre inférieure. Après un long silence, elle sembla avoir pris une décision.
+« Lui... A-t-il une famille? » Hongdie mordilla sa lèvre inférieure. Après un long silence, elle sembla avoir pris une décision.
 
-Wang Lin fronça les sourcils et observa attentivement Papillon Rouge. Il se remémora ce qui s'était passé à Luotian, lorsque Qing Shui se tenait devant elle. Wang Lin avait vu de loin qu'il bloquait une attaque pour la protéger.
+Wang Lin fronça les sourcils et observa attentivement Hongdie. Il se remémora ce qui s'était passé à Luotian, lorsque Qing Shui se tenait devant elle. Wang Lin avait vu de loin qu'il bloquait une attaque pour la protéger.
 
 « Mon frère aîné a mené une vie amère... Son clan a péri durant son enfance. Après cela, il est entré dans le Royaume Céleste et sa femme est morte... Il avait aussi une fille qui est entrée de nouveau et de nouveau dans le cycle de la réincarnation. Elle a probablement tout oublié du passé... S'il lui reste vraiment un parent, ce serait cette fille... » parla doucement Wang Lin.
 
-Le corps de Papillon Rouge trembla et elle ferma les yeux.
+Le corps de Hongdie trembla et elle ferma les yeux.
 
 Après un long moment, elle les rouvrit, le regard troublé.
 
-« La fille possède une marque de naissance rouge sur l'épaule gauche. Cette marque suivra la réincarnation sans jamais se dissiper... » Wang Lin lança un regard significatif à Papillon Rouge.
+« La fille possède une marque de naissance rouge sur l'épaule gauche. Cette marque suivra la réincarnation sans jamais se dissiper... » Wang Lin lança un regard significatif à Hongdie.
 
-Papillon Rouge tituba de quelques pas en arrière et son visage devint instantanément livide.
+Hongdie tituba de quelques pas en arrière et son visage devint instantanément livide.
 
 « Merci... »
 
 Lorsqu'elle prononça ces deux mots, elle ne s'entendit même pas les dire. Elle se transforma en un rayon de lumière rouge et fonça vers Luotian. Sa vitesse atteignait la limite autorisée par son niveau de culture. Elle retournait à Luotian pour retrouver Qing Shui!
 
-Papillon Rouge était partie!
+Hongdie était partie!
 
 Le dernier jour de la deuxième année, Mu Bingmei arriva aux côtés de Wang Lin. Elle ne dit mot et s'assit simplement, calme. Elle fit un signe de tête à Li Qianmei avant de fermer les yeux.
 

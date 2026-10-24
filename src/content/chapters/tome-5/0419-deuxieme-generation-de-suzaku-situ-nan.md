@@ -124,6 +124,6 @@ Le jeune homme tourna son regard vers Wang Lin, resté hors de l'écran protecte
 
 « Qui es-tu? » Wang Lin fronça les sourcils.
 
-« Compagnon de culture Ceng Niu, bien que ce soit notre première rencontre, je sais beaucoup de choses sur vous. Ma concubine, Papillon Rouge, ne cesse de penser à vous. » Le jeune homme afficha un sourire sardonique.
+« Compagnon de culture Ceng Niu, bien que ce soit notre première rencontre, je sais beaucoup de choses sur vous. Ma concubine, Hongdie, ne cesse de penser à vous. » Le jeune homme afficha un sourire sardonique.
 
 « Qian Feng! » Les yeux de Wang Lin s'illuminèrent.

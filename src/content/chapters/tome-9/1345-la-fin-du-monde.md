@@ -8,7 +8,7 @@ slug: la-fin-du-monde
 ---
 L'esprit de Wang Lin était en état de choc. En l'écoutant, il ne pouvait s'empêcher d'éprouver de l'admiration. Le talent de cet homme surpassait celui de n'importe quel cultivateur que Wang Lin ait jamais rencontré!
 
-Qu'il s'agisse de Papillon Rouge, de Li Qianmei ou de Situ Nan, aucun n'était aussi talentueux que lui! Et aucun n'avait possédé sa détermination à briser toutes les barrières pour découvrir la vérité!
+Qu'il s'agisse de Hongdie, de Li Qianmei ou de Situ Nan, aucun n'était aussi talentueux que lui! Et aucun n'avait possédé sa détermination à briser toutes les barrières pour découvrir la vérité!
 
 « J'ai franchi la cage et j'ai vu le monde extérieur pour la première fois... C'était le ciel étoilé, et c'était magnifique, si beau... Mes spéculations étaient devenues réalité... J'ai vu des cultivateurs comme moi, mais ils étaient très faibles... Le plus faible n'était qu'au stade de la Formation de l'Âme... »
 

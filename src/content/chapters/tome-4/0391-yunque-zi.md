@@ -18,11 +18,11 @@ Des vagues de fraîcheur envahirent son corps comme une brise printanière, lui 
 
 Peu de temps après, Wang Lin sentit l'énergie spirituelle dans son corps atteindre son apogée. Bien que son domaine fût encore au stade intermédiaire de la Formation de l'Âme, son énergie spirituelle avait franchi le stade avancé.
 
-Pour Wang Lin, son domaine avait toujours été d'une puissance redoutable. Avec un domaine de Formation de l'Âme au stade intermédiaire, il était capable de lutter contre le domaine de stade avancé du Papillon Rouge. À mesure que son énergie spirituelle croissait, sa force de combat augmentait également.
+Pour Wang Lin, son domaine avait toujours été d'une puissance redoutable. Avec un domaine de Formation de l'Âme au stade intermédiaire, il était capable de lutter contre le domaine de stade avancé de Hongdie. À mesure que son énergie spirituelle croissait, sa force de combat augmentait également.
 
-Si le Wang Lin d'aujourd'hui devait rencontrer à nouveau le Papillon Rouge, la bataille serait infiniment plus aisée qu'auparavant.
+Si le Wang Lin d'aujourd'hui devait rencontrer à nouveau Hongdie, la bataille serait infiniment plus aisée qu'auparavant.
 
-Le Papillon Rouge n'était plus une menace à ses yeux!
+Hongdie n'était plus une menace à ses yeux!
 
 Les yeux de Wang Lin s'illuminèrent. Il observa les âmes environnantes et commença à réfléchir.
 

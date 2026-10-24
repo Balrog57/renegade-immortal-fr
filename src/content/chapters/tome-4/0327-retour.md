@@ -28,7 +28,7 @@ Ce jeune homme en blanc n'était autre que Wang Lin!
 
 « Planète Suzaku, je suis de retour! » murmura Wang Lin pour lui-même. Il tourna ensuite son regard vers l'homme et la jeune femme, comme s'ils l'avaient attendu pour l'accueillir. Un sourire éthéré étira ses lèvres tandis qu'il demandait: « Camarade cultivateur, des événements majeurs ont-ils eu lieu à Suzaku récemment? »
 
-Wang Lin avait calculé que le retour de Papillon Rouge, qui avait perdu un bras, provoquerait inévitablement des remous à Suzaku.
+Wang Lin avait calculé que le retour de Hongdie, qui avait perdu un bras, provoquerait inévitablement des remous à Suzaku.
 
 L'homme âgé se tint devant la jeune fille. Très prudent, il répondit respectueusement: « Senior, bien des choses se sont produites à Suzaku ces derniers temps. Je me demande de quel événement le senior parle? »
 
@@ -38,7 +38,7 @@ Avant que l'homme ne puisse prendre la parole, la jeune fille derrière lui s'ex
 
 « Ceng Niu? » Wang Lin fut surpris. Il se frotta le nez et comprit instantanément de quoi il s'agissait.
 
-Ignorant le regard réprobateur de son maître, la jeune fille poursuivit avec empressement: « C'est exact! La chose la plus marquante à Suzaku actuellement est Ceng Niu. Papillon Rouge a perdu un bras à cause de lui! »
+Ignorant le regard réprobateur de son maître, la jeune fille poursuivit avec empressement: « C'est exact! La chose la plus marquante à Suzaku actuellement est Ceng Niu. Hongdie a perdu un bras à cause de lui! »
 
 Wang Lin réfléchit un instant avant d'esquisser un sourire discret. Il s'y attendait, et l'annonce ne le choqua guère. Au lieu de cela, il demanda nonchalamment: « À quoi ressemble ce Ceng Niu? Est-il recherché par Suzaku? »
 

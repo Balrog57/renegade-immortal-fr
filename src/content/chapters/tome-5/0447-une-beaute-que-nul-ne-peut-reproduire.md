@@ -42,9 +42,9 @@ Cela faisait près de quinze jours que Qian Feng était assis devant cette grott
 
 Il prit une profonde inspiration, ses yeux s'illuminèrent alors qu'il fixait la grotte devant lui. Il calcula silencieusement le temps écoulé avant de sortir soudainement une calebasse noire.
 
-Sa main droite traça un sceau, puis il pointa la calebasse: « Papillon Rouge, sors! »
+Sa main droite traça un sceau, puis il pointa la calebasse: « Hongdie, sors! »
 
-Un rayon de lumière dorée jaillit de la calebasse et le Papillon Rouge apparut devant lui. Vêtue d'une robe rouge, elle était toujours aussi belle qu'autrefois, mais son regard restait dénué de toute vie.
+Un rayon de lumière dorée jaillit de la calebasse et Hongdie apparut devant lui. Vêtue d'une robe rouge, elle était toujours aussi belle qu'autrefois, mais son regard restait dénué de toute vie.
 
 À présent, la froideur et l'arrogance d'antan avaient disparu; il ne restait plus qu'une tristesse déchirante et une profonde indifférence.
 
@@ -52,13 +52,13 @@ Cette calebasse était un trésor familial que l'on disait légué par un ancêt
 
 Qian Feng déclara: « Le temps est écoulé, il devrait avoir récupéré ses forces. Va l'attirer dehors. »
 
-Sans dire un mot, le Papillon Rouge s'avança lentement dans la grotte.
+Sans dire un mot, Hongdie s'avança lentement dans la grotte.
 
 Qian Feng prit une grande inspiration, forma un sceau et activa l'énergie spirituelle céleste qui coulait en lui. Cette énergie se concentra lentement sur son doigt jusqu'à former une petite sphère de lumière cristalline.
 
 Le visage de Qian Feng était livide tandis qu'il scrutait les profondeurs de la cavité.
 
-Peu après, un rugissement retentit de l'intérieur et le sol commença à trembler. Le Papillon Rouge surgit de la grotte pour se placer aux côtés de Qian Feng.
+Peu après, un rugissement retentit de l'intérieur et le sol commença à trembler. Hongdie surgit de la grotte pour se placer aux côtés de Qian Feng.
 
 Simultanément, une silhouette imposante émergea des ténèbres. C'était un géant de plus de 33 mètres de haut dont le corps dégageait une fumée noire. Chaque pas qu'il faisait faisait vaciller la terre.
 
