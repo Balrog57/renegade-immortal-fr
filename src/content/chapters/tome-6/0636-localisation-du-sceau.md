@@ -62,7 +62,7 @@ Wang Lin saisit l'épée céleste de la main droite et fit un pas en avant. Il p
 
 « CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme des Marées. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula de 3,3 centimètres sous la puissance de l'énergie d'épée de Wang Lin.
 
-Ses yeux s'illuminèrent et il réutilisa son énergie. La falaise fut rapidement rabotée. Après quinze minutes, une petite ouverture apparut, d'où émanait une aura très ténue. Cette aura n'appartenait pas à Zhou Yi, mais elle exhalait une tyrannie extrême.
+Ses yeux s'illuminèrent et il réutilisa son énergie. La falaise fut rapidement rabotée. Après sept minutes, une petite ouverture apparut, d'où émanait une aura très ténue. Cette aura n'appartenait pas à Zhou Yi, mais elle exhalait une tyrannie extrême.
 
 La main droite de Wang Lin traça un sceau et pointa l'ouverture. L'épée céleste s'élança vers la brèche, suivie de près par sa lame en croissant. Des pans entiers de roche s'effondrèrent. En un clin d'œil, une fissure cachée à 9,9 mètres dans la paroi apparut devant lui.
 

@@ -120,4 +120,4 @@ Toutefois, dans cet espace étroit, il fut très difficile pour lui d'esquiver c
 
 À cet instant précis, un bourdonnement strident s'échappa de l'arbre. Puis, l'arbre ancien s'effondra en une multitude d'insectes de la taille d'un doigt qui se précipitèrent hors de là comme un nuage dense.
 
-Comment pouvait-il s'agir d'un arbre ancien? Ce n'était manifestement qu'une illusion formée par l'immense essaim d'insectes qui s'était rassemblé en ce lieu.
+Comment pouvait-il s'agir d'un dieu ancien? Ce n'était manifestement qu'une illusion formée par l'immense essaim d'insectes qui s'était rassemblé en ce lieu.
