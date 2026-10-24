@@ -6,17 +6,17 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1181 - Master Cloud Soul is Lost
 slug: la-perte-de-maitre-cloud-soul
 ---
-Wang Lin avait son propre plan en pénétrant dans cette faille aux sept couleurs, et un conflit avec Maître Pin Cendré était inévitable. Wang Lin pouvait faire face à un cultivateur du stade intermédiaire du Briseur du Nirvana; même contre deux d'entre eux, il s'en sortirait tant que le second n'entretenait pas de liens étroits avec Maître Pin Cendré!
+Wang Lin avait son propre plan en pénétrant dans cette faille aux sept couleurs, et un conflit avec Cang Songzi était inévitable. Wang Lin pouvait faire face à un cultivateur du stade intermédiaire du Briseur du Nirvana; même contre deux d'entre eux, il s'en sortirait tant que le second n'entretenait pas de liens étroits avec Cang Songzi!
 
-Wang Lin avait secrètement observé le garçon nommé Duanmu. C'était un être impitoyable, et sa relation avec Maître Pin Cendré n'était dictée que par leurs intérêts mutuels.
+Wang Lin avait secrètement observé le garçon nommé Duanmu. C'était un être impitoyable, et sa relation avec Cang Songzi n'était dictée que par leurs intérêts mutuels.
 
-Quant à Chen Tianjun, il n'entretenait pas de liens privilégiés avec Maître Pin Cendré. Il devait avoir ses propres desseins.
+Quant à Chen Tianjun, il n'entretenait pas de liens privilégiés avec Cang Songzi. Il devait avoir ses propres desseins.
 
-Les seuls qui jouissaient d'une relation étroite avec Maître Pin Cendré étaient deux personnes: le vieil homme nommé Pang, et l'autre, Maître Nuage-Âme!
+Les seuls qui jouissaient d'une relation étroite avec Cang Songzi étaient deux personnes: le vieil homme nommé Pang, et l'autre, Maître Nuage-Âme!
 
-Selon l'analyse de Wang Lin, c'était grâce à Maître Nuage-Âme que Maître Pin Cendré avait pu inviter tout le monde avec autant de sérénité. Après tout, avec leur coopération et le soutien du vieil homme Pang, cette équipe était devenue invincible parmi eux!
+Selon l'analyse de Wang Lin, c'était grâce à Maître Nuage-Âme que Cang Songzi avait pu inviter tout le monde avec autant de sérénité. Après tout, avec leur coopération et le soutien du vieil homme Pang, cette équipe était devenue invincible parmi eux!
 
-Par conséquent, détruire Maître Nuage-Âme reviendrait à trancher l'un des bras de Maître Pin Cendré! Maître Nuage-Âme avait des intentions malveillantes et l'observait depuis tout ce temps. Wang Lin décida de frapper le premier pour ne pas leur laisser la chance de s'allier!
+Par conséquent, détruire Maître Nuage-Âme reviendrait à trancher l'un des bras de Cang Songzi! Maître Nuage-Âme avait des intentions malveillantes et l'observait depuis tout ce temps. Wang Lin décida de frapper le premier pour ne pas leur laisser la chance de s'allier!
 
 Le moment était idéal pour l'attaque!
 
@@ -66,17 +66,17 @@ Chen Tianjun, de la Secte de la Bête de Bataille, manifesta une vive excitation
 
 Seule la vieille femme en vert fronça légèrement les sourcils; nul ne savait à quoi elle pensait.
 
-L'expression de Maître Pin Cendré était exaltée, mais son regard devint aussitôt grave. Il tourna les yeux vers Wang Lin et demanda: « Camarade cultivateur Lu, où est passé Maître Nuage-Âme? »
+L'expression de Cang Songzi était exaltée, mais son regard devint aussitôt grave. Il tourna les yeux vers Wang Lin et demanda: « Camarade cultivateur Lu, où est passé Maître Nuage-Âme? »
 
 Wang Lin resta impassible et fronça les sourcils: « Comment pourrais-je le savoir? »
 
-« Maître Nuage-Âme était derrière vous, et vous étiez les derniers à entrer. Un accident s'est-il produit à l'extérieur? » Maître Pin Cendré marqua un temps d'arrêt. La joie de son retour s'était évanouie avec la disparition de Maître Nuage-Âme, laissant place à un sombre pressentiment.
+« Maître Nuage-Âme était derrière vous, et vous étiez les derniers à entrer. Un accident s'est-il produit à l'extérieur? » Cang Songzi marqua un temps d'arrêt. La joie de son retour s'était évanouie avec la disparition de Maître Nuage-Âme, laissant place à un sombre pressentiment.
 
 Wang Lin répondit calmement: « J'ignore si un accident a eu lieu dehors, mais lorsque je suis entré dans la faille, rien ne s'est passé. »
 
 Le vieil homme nommé Pang fixa Wang Lin et déclara d'une voix lente: « Camarade cultivateur Lu, j'ai remarqué que le camarade Nuage-Âme n'était pas loin de vous. Il est inconcevable que vous soyez entré et que lui ait disparu! »
 
-Le visage de Maître Pin Cendré s'assombrit tandis qu'il dévisageait Wang Lin. La colère bouillonnait déjà dans son cœur.
+Le visage de Cang Songzi s'assombrit tandis qu'il dévisageait Wang Lin. La colère bouillonnait déjà dans son cœur.
 
 Les paroles des trois hommes attirèrent l'attention des autres cultivateurs. Le garçon nommé Duanmu sourit et lança: « Intéressant. On peut donc perdre quelqu'un simplement en franchissant une faille! »
 
@@ -86,23 +86,23 @@ Chen Tianjun fronça les sourcils. Il fit abstraction de la scène pour contempl
 
 « Le camarade cultivateur Pang devrait peser ses mots. À tenir des propos aussi inconsidérés, vous pourriez attirer un malheur funeste! » ricana Wang Lin en lançant un regard sévère au vieil homme.
 
-Le vieil homme nommé Pang tressaillit. En repensant à la mort de Wu Qing, il regretta amèrement ses paroles. Il reporta ensuite son attention sur Maître Pin Cendré.
+Le vieil homme nommé Pang tressaillit. En repensant à la mort de Wu Qing, il regretta amèrement ses paroles. Il reporta ensuite son attention sur Cang Songzi.
 
-« Camarade cultivateur Lu, je demande des explications! » lança Maître Pin Cendré en fixant Wang Lin. Il savait que Maître Nuage-Âme surveillait ce jeune homme vêtu de blanc; désormais qu'il manquait à l'appel, ce dernier était le suspect numéro un!
+« Camarade cultivateur Lu, je demande des explications! » lança Cang Songzi en fixant Wang Lin. Il savait que Maître Nuage-Âme surveillait ce jeune homme vêtu de blanc; désormais qu'il manquait à l'appel, ce dernier était le suspect numéro un!
 
-« Quelle plaisanterie! » Wang Lin éclata d'un rire de colère. Il regarda Maître Pin Cendré avec indifférence et ricana: « Maître Nuage-Âme est au stade intermédiaire du Briseur du Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
+« Quelle plaisanterie! » Wang Lin éclata d'un rire de colère. Il regarda Cang Songzi avec indifférence et ricana: « Maître Nuage-Âme est au stade intermédiaire du Briseur du Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
 
 « Maître Nuage-Âme a des jambes et un cerveau; pourquoi viendrait-il me rendre compte de ses déplacements? Ridicule! Si vous cherchez un prétexte pour combattre, alors je vous accompagnerai jusqu'au bout! » Une lueur glaciale traversa les yeux de Wang Lin, sa voix était tranchante comme une lame.
 
-Le garçon nommé Duanmu observa Wang Lin avant de s'adresser à Maître Pin Cendré d'un ton vif: « Intéressant. Cependant, Maître Pin Cendré, les paroles du camarade Lu sont très logiques. Maître Nuage-Âme a des jambes et un cerveau; peut-être ne souhaitait-il pas entrer, ou préférait-il ne pas nous accompagner et a choisi une autre voie. »
+Le garçon nommé Duanmu observa Wang Lin avant de s'adresser à Cang Songzi d'un ton vif: « Intéressant. Cependant, Cang Songzi, les paroles du camarade Lu sont très logiques. Maître Nuage-Âme a des jambes et un cerveau; peut-être ne souhaitait-il pas entrer, ou préférait-il ne pas nous accompagner et a choisi une autre voie. »
 
-Maître Pin Cendré fronça intensément les sourcils. Le doute l'habitait également. Avec le niveau de culture de Maître Nuage-Âme, à moins que ce dénommé Lu ne cache une puissance bien supérieure, il était impossible qu'il ait pu éliminer Maître Nuage-Âme en si peu de temps!
+Cang Songzi fronça intensément les sourcils. Le doute l'habitait également. Avec le niveau de culture de Maître Nuage-Âme, à moins que ce dénommé Lu ne cache une puissance bien supérieure, il était impossible qu'il ait pu éliminer Maître Nuage-Âme en si peu de temps!
 
 Son regard balaya Wang Lin. Il refusait de croire que Maître Nuage-Âme avait péri, d'autant plus que ce dernier, tout comme lui, connaissait parfaitement cet endroit. Ils étaient tous deux déjà venus deux fois...
 
 « Serait-il possible... que Maître Nuage-Âme ait trouvé une autre méthode d'entrée et utilisé un moyen spécial pour se téléporter ailleurs? Bien que cela soit envisageable, il est aussi possible que ce cultivateur Lu l'ait combattu, provoquant sa téléportation forcée. Mais si tel était le cas, comment ce dénommé Lu a-t-il pu se téléporter ici en toute sécurité... »
 
-L'incertitude pesait sur le cœur de Maître Pin Cendré, mais il dut la réprimer. Il regarda Wang Lin et joignit les mains: « J'ai été imprudent dans mes propos. J'espère que le camarade cultivateur Lu ne m'en tiendra pas rigueur. »
+L'incertitude pesait sur le cœur de Cang Songzi, mais il dut la réprimer. Il regarda Wang Lin et joignit les mains: « J'ai été imprudent dans mes propos. J'espère que le camarade cultivateur Lu ne m'en tiendra pas rigueur. »
 
 Wang Lin laissa échapper un reniflement méprisant. Il joignit ses mains en retour, mais resta muet.
 

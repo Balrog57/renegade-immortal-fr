@@ -44,11 +44,11 @@ Le jeune homme au motif d'éclair hésita un instant, puis murmura: « Et si nou
 
 Le jeune homme au motif d'éclair réfléchit silencieusement. Un instant plus tard, il afficha un regard féroce et n'hésita plus. Il chercha des traces de tonnerre et s'élança. Les deux autres suivirent, et ils disparurent dans la brume.
 
-Wang Lin se déplaçait comme l'éclair à travers la brume et arriva rapidement là où il avait combattu Maître Pin Cendré pour la bouteille. Il regarda la Restriction Temporelle devant lui et ses yeux s'illuminèrent. Si cette restriction n'avait pas été brisée, ou si elle l'avait été bien plus tôt, il aurait été très difficile pour Wang Lin de l'ouvrir sans sacrifier de précieux trésors.
+Wang Lin se déplaçait comme l'éclair à travers la brume et arriva rapidement là où il avait combattu Cang Songzi pour la bouteille. Il regarda la Restriction Temporelle devant lui et ses yeux s'illuminèrent. Si cette restriction n'avait pas été brisée, ou si elle l'avait été bien plus tôt, il aurait été très difficile pour Wang Lin de l'ouvrir sans sacrifier de précieux trésors.
 
 Cependant, cette restriction avait été brisée il y a seulement quelques mois, et bien que Wang Lin ait été dans un état d'hébétude lorsque son esprit l'avait parcourue, il se souvenait encore d'une fissure invisible sur la barrière.
 
-Cette fissure était l'ouverture que Maître Pin Cendré et la vieille femme en vert avaient créée.
+Cette fissure était l'ouverture que Cang Songzi et la vieille femme en vert avaient créée.
 
 « Je n'ai qu'à rouvrir cette fissure! Ce ne devrait pas être difficile! » La main de Wang Lin forma des sceaux et d'innombrables Restrictions d'Annihilation s'envolèrent. Elles se posèrent sur la Restriction Temporelle et l'écran de lumière commença à onduler.
 
@@ -74,7 +74,7 @@ Quant à la porte de pierre marquée du motif d'éclair, Wang Lin se contenta de
 
 Il atteignit bientôt le sommet de la montagne et balaya son trident. Un grondement tonitruant retentit et une fissure spatiale apparut rapidement devant lui.
 
-Il connaissait l'emplacement exact grâce aux souvenirs de Maître Pin Cendré et parce que son esprit avait parcouru cet endroit lorsqu'il avait étendu son Sens Divin.
+Il connaissait l'emplacement exact grâce aux souvenirs de Cang Songzi et parce que son esprit avait parcouru cet endroit lorsqu'il avait étendu son Sens Divin.
 
 La fissure s'ouvrit et Wang Lin entra directement à l'intérieur! Peu après son entrée, les trois jeunes du Royaume Extérieur apparurent devant la barrière. Ils se regardèrent, serrèrent les dents, puis pénétrèrent dans la faille ouverte par Wang Lin pour se diriger vers la montagne.
 

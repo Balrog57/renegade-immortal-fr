@@ -18,11 +18,11 @@ Tout en réfléchissant, Wang Lin se remémora tout ce qui s'était passé dans 
 
 Tout ce que Wang Lin avait vécu dans le Royaume aux Sept Couleurs défilait un par un dans son esprit. Le squelette de Zhan Xingye, la grotte de Sima Mo, le troisième réveil de l'Oiseau Vermillon, l'absorption de la foudre du Royaume Extérieur, les Perdus, les Éclairés, ce parchemin taoïste dont il ignorait s'il était réel ou non, le fait qu'il eût presque découvert le secret de l'Omniscient, la vision des Imitations des Perles Défiant le Ciel, et l'apprentissage de l'existence des Défiants.
 
-Il avait combattu Maître Pin Cendré et avait obtenu le clou aux sept couleurs. Il avait combattu le vieil homme aux cheveux blancs et avait dévoré le fruit taoïste. La Perle Défiant le Ciel s'était activée, blessant gravement le gardien des fleurs. Plus important encore, son niveau de culture avait augmenté et la bête moustique avait subi une métamorphose!
+Il avait combattu Cang Songzi et avait obtenu le clou aux sept couleurs. Il avait combattu le vieil homme aux cheveux blancs et avait dévoré le fruit taoïste. La Perle Défiant le Ciel s'était activée, blessant gravement le gardien des fleurs. Plus important encore, son niveau de culture avait augmenté et la bête moustique avait subi une métamorphose!
 
 Il avait obtenu la Restriction Temporelle ainsi que les deux épées plantées dans les restes du cerf mystérieux. Tout cela exaltait Wang Lin. Cent ans s'étaient écoulés rapidement, et le changement produit par cette période était aussi vaste que le ciel et la terre!
 
-« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Maître Pin Cendré, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître du Dao Rêve Bleu, l'épée de cristal, la hache de guerre et même mon Fourneau du Dieu Antique se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
+« Les choses changent souvent, et il y a toujours des gains et des pertes... Lors de la bataille contre Cang Songzi, l'épée de fer qui m'accompagnait depuis de nombreuses années s'est brisée. Lors du combat contre le Maître du Dao Rêve Bleu, l'épée de cristal, la hache de guerre et même mon Fourneau du Dieu Antique se sont brisés... Plus important encore, ma sixième étoile, encore floue, a volé en éclats. »
 
 Wang Lin poussa un soupir et murmura: « Heureusement, l'étoile faite de loi est toujours là... Bien que la sixième étoile soit brisée, tant que mon corps subit le second essai, elle pourra être restaurée, ou par une autre opportunité. Après tout, j'ai déjà atteint ce niveau auparavant; la récupérer sera bien plus facile que de gravir à nouveau les échelons. »
 

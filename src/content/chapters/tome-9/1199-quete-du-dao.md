@@ -6,27 +6,27 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1199 - Seeking Dao
 slug: quete-du-dao
 ---
-Au moment où les trois individus arrivèrent dans le Royaume aux Sept Couleurs, la brume multicolore qui entourait Maître Pin Cendré, assis en tailleur sur la tête d'une statue, se referma lentement jusqu'à envelopper totalement son âme originelle.
+Au moment où les trois individus arrivèrent dans le Royaume aux Sept Couleurs, la brume multicolore qui entourait Cang Songzi, assis en tailleur sur la tête d'une statue, se referma lentement jusqu'à envelopper totalement son âme originelle.
 
 Des filaments d'éclairs blancs jaillirent de la statue et pénétrèrent la brume aux sept couleurs pour fusionner avec son âme originelle.
 
-Le corps de Maître Pin Cendré commença inopinément à se recondenser jusqu’à redevenir corporel. Son corps dégageait des éclairs de plus en plus fréquents, et une légère marque électrique apparut entre ses sourcils.
+Le corps de Cang Songzi commença inopinément à se recondenser jusqu’à redevenir corporel. Son corps dégageait des éclairs de plus en plus fréquents, et une légère marque électrique apparut entre ses sourcils.
 
 Il ouvrit soudainement les yeux, révélant un éclat sombre et lugubre.
 
 « C'est lui qui a forcé ce vieil homme à agir ainsi. Si je ne me venge pas, je ne suis plus humain! » Il bondit en avant, se transformant en un éclair fulgurant. Il perça la brume et s'élança vers les montagnes.
 
-« Ce cultivateur nommé Lu a été blessé par mon clou aux sept couleurs; même s'il n'est pas mort, il est à l'agonie. J'ignore simplement où il se cache... Cependant, peu importe. Si je le veux, je peux le découvrir sans peine! » Maître Pin Cendré ricana et tendit la main droite vers le vide. Une faille s'ouvrit dans son espace de stockage et une perle en jaillit.
+« Ce cultivateur nommé Lu a été blessé par mon clou aux sept couleurs; même s'il n'est pas mort, il est à l'agonie. J'ignore simplement où il se cache... Cependant, peu importe. Si je le veux, je peux le découvrir sans peine! » Cang Songzi ricana et tendit la main droite vers le vide. Une faille s'ouvrit dans son espace de stockage et une perle en jaillit.
 
-« Invoque, Défieur! » Maître Pin Cendré mordit l'extrémité de sa langue et cracha du sang sur la perle. Celle-ci commença à absorber la lumière aux sept couleurs avant de s'effondrer. Au moment de son effondrement, une aura puissante surgit et une ombre floue se manifesta dans le monde.
+« Invoque, Défieur! » Cang Songzi mordit l'extrémité de sa langue et cracha du sang sur la perle. Celle-ci commença à absorber la lumière aux sept couleurs avant de s'effondrer. Au moment de son effondrement, une aura puissante surgit et une ombre floue se manifesta dans le monde.
 
 Il était impossible de distinguer l'apparence de cet être, mais ses yeux étaient d'une clarté telle qu'ils semblaient pouvoir percer les cieux. Rien n'échappait à son regard; si vous le croisiez, vous vous sentiriez nu, comme si tous vos secrets étaient exposés.
 
-Maître Pin Cendré interrogea la silhouette floue: « Où est-il? »
+Cang Songzi interrogea la silhouette floue: « Où est-il? »
 
-La silhouette ferma les yeux et, après un long moment, les rouvrit pour fixer Maître Pin Cendré. Ce dernier trembla, une seule image s'imposant de force à son esprit. En voyant cette image, il fronça les sourcils!
+La silhouette ferma les yeux et, après un long moment, les rouvrit pour fixer Cang Songzi. Ce dernier trembla, une seule image s'imposant de force à son esprit. En voyant cette image, il fronça les sourcils!
 
-« La grotte de Sima Mo! Il a réussi à briser les restrictions de la grotte alors qu'il était gravement blessé? » Un éclat de froideur passa dans les yeux de Maître Pin Cendré et il s'élança.
+« La grotte de Sima Mo! Il a réussi à briser les restrictions de la grotte alors qu'il était gravement blessé? » Un éclat de froideur passa dans les yeux de Cang Songzi et il s'élança.
 
 Dans la vallée où se trouvait la grotte de Sima Mo, Wang Lin n'avait pas consacré toute son énergie à l'alchimie. Il avait également nettoyé la première grotte. Après avoir disposé un grand nombre de restrictions et agrandi la cavité, il libéra la bête moustique.
 
@@ -84,13 +84,13 @@ Soudain, une voix vague apparut dans son esprit. Cette voix semblait murmurer et
 
 « Les êtres qui n'obtiennent pas le vrai Dao sombrent toujours dans la mer d'amertume et perdent à jamais le vrai Dao... » Cette phrase continuait de résonner en lui. Progressivement, les intentions du Dao se répandirent jusqu'à couvrir 100 000 pieds, puis un million de pieds. Finalement, elles enveloppèrent près de la moitié du Royaume aux Sept Couleurs.
 
-Maître Pin Cendré se trouvait à 10 000 pieds de la grotte de Sima Mo. Son visage était extrêmement pâle tandis qu'il fixait l'horizon, restant pourtant immobile. Il était arrivé là il y a deux jours, mais avant même d'avoir pu faire un pas de plus, il avait ressenti ces intentions du Dao chaotiques et infinies.
+Cang Songzi se trouvait à 10 000 pieds de la grotte de Sima Mo. Son visage était extrêmement pâle tandis qu'il fixait l'horizon, restant pourtant immobile. Il était arrivé là il y a deux jours, mais avant même d'avoir pu faire un pas de plus, il avait ressenti ces intentions du Dao chaotiques et infinies.
 
 Ces intentions étaient comme un vortex gigantesque capable d'absorber tous les domaines pour les soumettre à la confirmation de Wang Lin par une méthode spéciale.
 
 Le domaine de la vérité et du faux était la seconde évolution de son Dao. Ce qu'il recherchait avait déjà surpassé ceux de son niveau de culture, et même ceux de rangs supérieurs.
 
-Le visage de Maître Pin Cendré, livide, s'affaissa alors qu'il s'asseyait par terre pour stabiliser son esprit. Il luttait sans relâche contre les intentions du Dao chaotiques et la succion du vortex invisible. Il ne remarqua pas les Perdus chauves qui s'approchaient lentement de lui.
+Le visage de Cang Songzi, livide, s'affaissa alors qu'il s'asseyait par terre pour stabiliser son esprit. Il luttait sans relâche contre les intentions du Dao chaotiques et la succion du vortex invisible. Il ne remarqua pas les Perdus chauves qui s'approchaient lentement de lui.
 
 Ils avançaient d'un pas nonchalant, mais chaque mouvement s'apparentait à une distorsion spatiale. Bientôt, ils arrivèrent, mais ne s'avancèrent pas davantage; ils restèrent là, comme s'ils cherchaient eux aussi le Dao.
 

@@ -1,6 +1,6 @@
 ---
 n: 1193
-title: "Une Bataille Sanglante Contre le Maître Pin Cendré!"
+title: "Une Bataille Sanglante Contre Cang Songzi!"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1193 - A Bloody Battle Against Master Ashen Pine!"
@@ -16,7 +16,7 @@ Bien que le niveau de culture de Wang Lin fût inférieur à celui de l'Omniscie
 
 Les trois dragons étaient des dragons dévoreurs. La Restriction de la Vie et de la Mort fut dévorée et devint un sort du trident. La restriction s'élança et fusionna avec les dragons noirs alors qu'ils se précipitaient vers l'épée cristalline Pseudo-Vide du Nirvana.
 
-Cette épée cristalline était l'un des trésors les plus puissants du Maître Pin Cendré. S'il l'avait sortie, c'était pour tuer rapidement Wang Lin. En fendant le ciel, elle semblait capable de trancher le monde en deux.
+Cette épée cristalline était l'un des trésors les plus puissants de Cang Songzi. S'il l'avait sortie, c'était pour tuer rapidement Wang Lin. En fendant le ciel, elle semblait capable de trancher le monde en deux.
 
 Les dragons noirs se rapprochèrent immédiatement de l'épée cristalline. Un grondement tonitruant résonna alors que les trois dragons ouvrirent leurs gueules et dévorèrent l'épée.
 
@@ -24,7 +24,7 @@ Simultanément, les corps des trois dragons noirs tremblèrent. Un rugissement s
 
 Une faible lueur cristalline apparut sur le corps du trident, puis une empreinte de l'épée cristalline s'y dessina lentement.
 
-L'expression du Maître Pin Cendré changea, mais il se précipita aussitôt en avant. Sa main droite forma un sceau et pointa vers l'avant. Un éclat de lumière apparut devant lui et se mua instantanément en une énergie d'épée infinie qui emplissait le ciel et fonçait sur Wang Lin.
+L'expression de Cang Songzi changea, mais il se précipita aussitôt en avant. Sa main droite forma un sceau et pointa vers l'avant. Un éclat de lumière apparut devant lui et se mua instantanément en une énergie d'épée infinie qui emplissait le ciel et fonçait sur Wang Lin.
 
 Peu après, sa main droite plongea dans son sac de rangement et en sortit trois perles. Il les lança en criant: « Invoque, Défieur! »
 
@@ -44,13 +44,13 @@ Une entité semblable à une Âme Naissante se trouvait dans cette lueur sanglan
 
 Cette Âme Naissante poussa un cri féroce et chargea Wang Lin dans une lueur rouge sang, arborant une férocité indicible sur son visage.
 
-Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel du Maître Pin Cendré fondit sur lui. Étant au stade intermédiaire du Briseur du Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
+Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel de Cang Songzi fondit sur lui. Étant au stade intermédiaire du Briseur du Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
 
 L'expression de Wang Lin resta calme, ses yeux brûlant d'intention de combat. Il saisit le trident et le projeta vers la boussole dans le ciel. De son point de vue, c'était l'objet le plus dangereux!
 
 Peu après, sa main droite forma un sceau et pointa vers l'avant. Le ciel aux sept couleurs fut envahi par un vent noir rugissant. De nombreux dragons noirs se formèrent, mais ils ne se dispersèrent pas; au contraire, ils foncèrent tous vers la silhouette floue aux sept couleurs dans le ciel.
 
-Après avoir invoqué le Vent, Wang Lin fit venir la Pluie. Il agita ses manches et des milliers de gouttes de pluie cristalline apparurent dans un rayon de plusieurs dizaines de milliers de pieds. Elles foncèrent rapidement contre l'incommensurable énergie d'épée projetée par le Maître Pin Cendré, tandis qu'une partie d'entre elles, transformée en cristaux de glace, enveloppait le géant de pierre.
+Après avoir invoqué le Vent, Wang Lin fit venir la Pluie. Il agita ses manches et des milliers de gouttes de pluie cristalline apparurent dans un rayon de plusieurs dizaines de milliers de pieds. Elles foncèrent rapidement contre l'incommensurable énergie d'épée projetée par Cang Songzi, tandis qu'une partie d'entre elles, transformée en cristaux de glace, enveloppait le géant de pierre.
 
 Des bruits de craquements résonnèrent alors que Wang Lin avançait, le poing serré. Il lança un coup vers l'énergie d'épée aux sept couleurs qui approchait.
 
@@ -62,7 +62,7 @@ Maître du Vide, l'Omniscient et Wu Qing apparurent tous et chargèrent la féro
 
 En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 
-Cette scène fit pousser un cri de stupeur chez le Maître Pin Cendré. Il pensait avoir surestimé Wang Lin, mais il n'imaginait pas que celui-ci n'avait pas encore sorti beaucoup de trésors: les seules techniques déployées suffisaient déjà à terrifier des cultivateurs ordinaires.
+Cette scène fit pousser un cri de stupeur chez Cang Songzi. Il pensait avoir surestimé Wang Lin, mais il n'imaginait pas que celui-ci n'avait pas encore sorti beaucoup de trésors: les seules techniques déployées suffisaient déjà à terrifier des cultivateurs ordinaires.
 
 Un fracas tonitruant résonna dans ce monde aux sept couleurs. Le trident fonça sur la boussole céleste, mais à seulement sept pouces de sa cible, il fut stoppé par un écran d'éclairs aux sept couleurs.
 
@@ -80,36 +80,36 @@ Ces éclairs infinis se condensèrent pour former une lance éthérée. C'était
 
 Wang Lin ne s'arrêta pas là. Il chargea et sa main droite pressa impitoyablement vers le bas. Sa paume immense descendit du ciel tandis que deux doigts de sa main gauche pressaient rapidement le dos de sa main droite.
 
-L'énergie d'origine jaillit du monde aux sept couleurs pour s'engouffrer dans sa main droite. Une immense empreinte illusoire apparut devant sa main et s'abattit sur le Maître Pin Cendré.
+L'énergie d'origine jaillit du monde aux sept couleurs pour s'engouffrer dans sa main droite. Une immense empreinte illusoire apparut devant sa main et s'abattit sur Cang Songzi.
 
-Les yeux du Maître Pin Cendré devinrent injectés de sang, révélant une pointe de folie. Il se mordit la langue et cracha un flot de sang. Il agita sa main droite avec une expression féroce. Immédiatement, sept Âmes Naissantes apparurent en poussant des cris lugubres. En un clin d'œil, une marque d'éclair se matérialisa devant lui.
+Les yeux de Cang Songzi devinrent injectés de sang, révélant une pointe de folie. Il se mordit la langue et cracha un flot de sang. Il agita sa main droite avec une expression féroce. Immédiatement, sept Âmes Naissantes apparurent en poussant des cris lugubres. En un clin d'œil, une marque d'éclair se matérialisa devant lui.
 
 À l'instant où la marque apparut, le monde entier s'obscurcit, comme si toute la lumière de l'univers avait été absorbée par elle.
 
-« Par l'essence de sang de cent vies changée en Âmes Naissantes, j'invoque l'esprit de la septième formation du Royaume Scellé! » rugit le Maître Pin Cendré alors que la marque d'éclair fulgurait. À cet instant précis, la paume de Wang Lin s'abattit sur la marque.
+« Par l'essence de sang de cent vies changée en Âmes Naissantes, j'invoque l'esprit de la septième formation du Royaume Scellé! » rugit Cang Songzi alors que la marque d'éclair fulgurait. À cet instant précis, la paume de Wang Lin s'abattit sur la marque.
 
 Un grondement tonitruant retentit et la paume se brisa. Au moment de sa destruction, un rayon d'éclair jaillit vers Wang Lin. Il fut si rapide que Wang Lin ne put l'esquiver; il frappa de plein fouet sa poitrine.
 
 Le corps de Wang Lin trembla et il fut repoussé de plusieurs pas. Pour la première fois, du sang d'ancien dieu coula du coin de sa bouche, mais son regard resta farouche.
 
-Sa main droite plongea dans le vide et une épée de fer apparut. Elle tourna autour de sa paume comme pour verrouiller une cible avant de foncer sur le Maître Pin Cendré.
+Sa main droite plongea dans le vide et une épée de fer apparut. Elle tourna autour de sa paume comme pour verrouiller une cible avant de foncer sur Cang Songzi.
 
-Le Maître Pin Cendré agita la main vers son espace de stockage et un clou aux sept couleurs apparut! C'était exactement le même que celui qui avait transpercé le squelette portant l'écriture du Dao gravée sur ses os!
+Cang Songzi agita la main vers son espace de stockage et un clou aux sept couleurs apparut! C'était exactement le même que celui qui avait transpercé le squelette portant l'écriture du Dao gravée sur ses os!
 
-« Va mourir sous les coups de ce vieillard! » Le Maître Pin Cendré lança le clou aux sept couleurs contre l'épée de fer. Ce clou portait une pression inimaginable, surpassant même les trésors du Pseudo-Vide du Nirvana!
+« Va mourir sous les coups de ce vieillard! » Cang Songzi lança le clou aux sept couleurs contre l'épée de fer. Ce clou portait une pression inimaginable, surpassant même les trésors du Pseudo-Vide du Nirvana!
 
 En un instant, le clou percuta l'épée. Des craquements déchirants retentirent: l'épée de fer se fendit et se brisa en deux!
 
 Le clou aux sept couleurs pulvérisa l'épée et s'enfonça directement dans l'épaule droite de Wang Lin!
 
-Une douleur atroce parcourut le corps de Wang Lin, le faisant trembler. Simultanément, bien que l'épée fût brisée, sa pointe avait pénétré la poitrine du Maître Pin Cendré avant de se planter dans le sol.
+Une douleur atroce parcourut le corps de Wang Lin, le faisant trembler. Simultanément, bien que l'épée fût brisée, sa pointe avait pénétré la poitrine de Cang Songzi avant de se planter dans le sol.
 
-Le Maître Pin Cendré cracha du sang. Gravement blessé, il fit volte-face et s'enfuit vers les montagnes muraille! Le corps de Wang Lin trembla violemment; le clou aux sept couleurs semblait capable de clouer son âme d'origine. Ses yeux devinrent confus et son corps commença à rétrécir rapidement, comme s'il allait redevenir un humain ordinaire.
+Cang Songzi cracha du sang. Gravement blessé, il fit volte-face et s'enfuit vers les montagnes muraille! Le corps de Wang Lin trembla violemment; le clou aux sept couleurs semblait capable de clouer son âme d'origine. Ses yeux devinrent confus et son corps commença à rétrécir rapidement, comme s'il allait redevenir un humain ordinaire.
 
-Il serra les dents en fixant le Maître Pin Cendré qui s'échappait en crachant sans cesse du sang. L'Empreinte de l'Esprit Guerrier apparut dans son esprit et il poussa violemment sa paume en avant!
+Il serra les dents en fixant Cang Songzi qui s'échappait en crachant sans cesse du sang. L'Empreinte de l'Esprit Guerrier apparut dans son esprit et il poussa violemment sa paume en avant!
 
-L'Empreinte surgit, faisant frémir le monde. Lorsqu'elle atteignit le Maître Pin Cendré, celui-ci utilisa un sort inconnu qui fit que son corps se désintégra en une brume aux sept couleurs. Il parvint à échapper à la mort alors que cette brume enveloppait son âme d'origine et disparaissait de l'autre côté de la montagne.
+L'Empreinte surgit, faisant frémir le monde. Lorsqu'elle atteignit Cang Songzi, celui-ci utilisa un sort inconnu qui fit que son corps se désintégra en une brume aux sept couleurs. Il parvint à échapper à la mort alors que cette brume enveloppait son âme d'origine et disparaissait de l'autre côté de la montagne.
 
-Wang Lin cracha du sang et son corps retrouva sa forme normale. Il récupéra tous ses trésors et ne prit même pas la peine de regarder la vieille femme piégée dans la restriction avant de partir précipitamment. Son visage était pâle et une quantité massive de sang coulait de son épaule. Sa bataille contre le Maître Pin Cendré s'était conclue par des blessures graves pour l'un comme pour l'autre!
+Wang Lin cracha du sang et son corps retrouva sa forme normale. Il récupéra tous ses trésors et ne prit même pas la peine de regarder la vieille femme piégée dans la restriction avant de partir précipitamment. Son visage était pâle et une quantité massive de sang coulait de son épaule. Sa bataille contre Cang Songzi s'était conclue par des blessures graves pour l'un comme pour l'autre!
 
 La boussole géante dans le ciel bougea lentement et se mit à poursuivre Wang Lin.

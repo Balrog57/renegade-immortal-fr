@@ -98,7 +98,7 @@ Il devait agir vite, car les trois autres doigts convergeaient également. Il po
 
 Il avait traversé d'innombrables crises au cours de sa vie, mais l'adversaire qui provoquait celle-ci était le plus puissant qu'il ait jamais affronté.
 
-Alors que l'index se rapprochait, la main gauche de Wang Lin plongea dans le vide et le trésor Pseudo Vide du Nirvana de Maître Pin Cendré — l'épée de cristal — apparut. Il cracha du sang sur la lame pour en extraire tout le potentiel, puis la projeta vers l'index.
+Alors que l'index se rapprochait, la main gauche de Wang Lin plongea dans le vide et le trésor Pseudo Vide du Nirvana de Cang Songzi — l'épée de cristal — apparut. Il cracha du sang sur la lame pour en extraire tout le potentiel, puis la projeta vers l'index.
 
 L'épée de cristal libéra instantanément un chant d'épée qui ébranla les cieux et une énergie monstrueuse. Enveloppée de cette puissance tranchante, elle fonça sur l'index.
 
@@ -112,4 +112,4 @@ Un grondement tonitruant retentit. Sous ce fracas, le cri étouffé de Wang Lin 
 
 Il n'eut pas le temps de déplorer la perte de son arme; d'un geste de la main gauche vers son espace de stockage, un autre trésor vola hors de celui-ci. La même aura Pseudo Vide du Nirvana se propagea.
 
-Il restait un dernier trésor Pseudo Vide du Nirvana dans l'espace de Maître Pin Cendré: une hache de bataille bleue. Cette hache, affinée par une méthode inconnue, était couverte d'innombrables sceaux.
+Il restait un dernier trésor Pseudo Vide du Nirvana dans l'espace de Cang Songzi: une hache de bataille bleue. Cette hache, affinée par une méthode inconnue, était couverte d'innombrables sceaux.

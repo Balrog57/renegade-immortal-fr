@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1202 - Planting Dao
 slug: planter-le-dao
 ---
-L'éclair qui jaillissait devant le Maître Pin Cendré était semblable à celui de leur premier combat. Il portait en lui une puissance monstrueuse et percuta l'énergie originelle en un instant.
+L'éclair qui jaillissait devant Cang Songzi était semblable à celui de leur premier combat. Il portait en lui une puissance monstrueuse et percuta l'énergie originelle en un instant.
 
 Des grondements tonitruants résonnèrent dans les environs. L'énergie originelle infinie se dissipa, tandis que l'éclair transperçait l'espace pour atteindre Wang Lin. Les yeux de ce dernier s'illuminèrent et il lança un coup de poing impitoyable.
 
@@ -16,7 +16,7 @@ Des bruits de craquements éclatèrent lorsque le coup percuta immédiatement la
 
 Le monde changea de couleur! La marque d'éclair trembla puis s'effondra soudainement, mais la puissance électrique qu'elle contenait se mua en d'innombrables éclairs qui tombèrent sur Wang Lin.
 
-Les yeux du Maître Pin Cendré étaient empreints de férocité. Dès l'instant de son attaque, il avait utilisé son sort le plus puissant. Il haïssait tant Wang Lin qu'il espérait que ce dernier meure sur-le-champ.
+Les yeux de Cang Songzi étaient empreints de férocité. Dès l'instant de son attaque, il avait utilisé son sort le plus puissant. Il haïssait tant Wang Lin qu'il espérait que ce dernier meure sur-le-champ.
 
 « Tonnerre et éclairs... » Wang Lin afficha un regard de mépris. Un éclair jaillit de son œil droit et un vortex apparut entre ses sourcils. Son âme originelle du Dragon Ancien du Tonnerre s'élança et poussa un rugissement face aux innombrables éclairs qui saturaient le ciel!
 
@@ -30,31 +30,31 @@ Wang Lin était tel un céleste du tonnerre au sein de ce lac!
 
 Il inspira, et le tonnerre sans fin se condensa rapidement dans son œil droit.
 
-Cette scène fit pâlir le Maître Pin Cendré, qui restait totalement stupéfait.
+Cette scène fit pâlir Cang Songzi, qui restait totalement stupéfait.
 
 Non loin de là, le front de Chen Tianjun était couvert de sueur. Son visage était livide et ses yeux étaient remplis de choc.
 
-Wang Lin ne s'arrêta pas. Après avoir absorbé la foudre, une faible marque d'éclair apparut dans ses yeux. Elle jaillit de son regard, identique à l'attaque précédente du Maître Pin Cendré, et vola directement vers lui.
+Wang Lin ne s'arrêta pas. Après avoir absorbé la foudre, une faible marque d'éclair apparut dans ses yeux. Elle jaillit de son regard, identique à l'attaque précédente de Cang Songzi, et vola directement vers lui.
 
-Le Maître Pin Cendré recula précipitamment en formant un sceau de ses mains. Ses sept âmes naissantes émettaient alors une lumière rouge sang intense, entourant le Maître Pin Cendré pour tenter de bloquer l'éclair!
+Cang Songzi recula précipitamment en formant un sceau de ses mains. Ses sept âmes naissantes émettaient alors une lumière rouge sang intense, entourant Cang Songzi pour tenter de bloquer l'éclair!
 
-Les yeux de Wang Lin brillèrent. Bien qu'il n'ait pas encore véritablement franchi le stade intermédiaire du Purificateur du Nirvana, la percée de son domaine avait rendu ses sorts bien plus puissants. Il était également bien différent de la première fois où il avait combattu le Maître Pin Cendré.
+Les yeux de Wang Lin brillèrent. Bien qu'il n'ait pas encore véritablement franchi le stade intermédiaire du Purificateur du Nirvana, la percée de son domaine avait rendu ses sorts bien plus puissants. Il était également bien différent de la première fois où il avait combattu Cang Songzi.
 
 Au moment où l'éclair fut projeté, Wang Lin tendit la main et son espace de stockage apparut. Une lumière aux sept couleurs s'en échappa, révélant le clou aux sept couleurs. Wang Lin s'en saisit et le lança!
 
-La lumière se mua en un rayon multicolore qui siffla vers le Maître Pin Cendré à une vitesse extrême.
+La lumière se mua en un rayon multicolore qui siffla vers Cang Songzi à une vitesse extrême.
 
-Le Maître Pin Cendré fut entouré d'une lueur sanglante alors que l'éclair arrivait. La lumière rouge sembla bouillir dans un vacarme de craquements, s'effondrant et se dissipant continuellement.
+Cang Songzi fut entouré d'une lueur sanglante alors que l'éclair arrivait. La lumière rouge sembla bouillir dans un vacarme de craquements, s'effondrant et se dissipant continuellement.
 
-Alors qu'il continuait de reculer, le Maître Pin Cendré ouvrit son espace de stockage de sa main droite pour en sortir un trésor magique. Cependant, à cet instant précis, il ressentit un puissant sentiment de danger. Un rayon de lumière aux sept couleurs se rapprocha instantanément de lui, perçant la lueur rouge qui s'effritait.
+Alors qu'il continuait de reculer, Cang Songzi ouvrit son espace de stockage de sa main droite pour en sortir un trésor magique. Cependant, à cet instant précis, il ressentit un puissant sentiment de danger. Un rayon de lumière aux sept couleurs se rapprocha instantanément de lui, perçant la lueur rouge qui s'effritait.
 
-Le visage du Maître Pin Cendré devint instantanément livide. La lumière aux sept couleurs était trop rapide. Le sang jaillit de sa poitrine lorsque le rayon le transperça, et son corps éclata en un nuage de brume aux sept couleurs. Son âme originelle tenta de s'échapper, mais il laissa échapper un gémissement misérable: un clou aux sept couleurs venait de percer la poitrine de son âme originelle.
+Le visage de Cang Songzi devint instantanément livide. La lumière aux sept couleurs était trop rapide. Le sang jaillit de sa poitrine lorsque le rayon le transperça, et son corps éclata en un nuage de brume aux sept couleurs. Son âme originelle tenta de s'échapper, mais il laissa échapper un gémissement misérable: un clou aux sept couleurs venait de percer la poitrine de son âme originelle.
 
-Une lueur de panique traversa l'âme originelle du Maître Pin Cendré, bientôt remplacée par la folie. Wang Lin apparut immédiatement derrière lui et posa sa main droite sur sa tête. Il profitait du moment où l'âme originelle était gravement blessée et sur le point de sombrer dans la démence pour procéder à une fouille d'âme.
+Une lueur de panique traversa l'âme originelle de Cang Songzi, bientôt remplacée par la folie. Wang Lin apparut immédiatement derrière lui et posa sa main droite sur sa tête. Il profitait du moment où l'âme originelle était gravement blessée et sur le point de sombrer dans la démence pour procéder à une fouille d'âme.
 
-Wang Lin obtint rapidement les souvenirs de l'âme originelle du Maître Pin Cendré. L'âme trembla tandis que la folie s'intensifiait. Après un instant, cette démence atteignit son paroxysme et il poussa un rugissement. Des lignes rouge sang se propagèrent de sa poitrine sur tout son corps.
+Wang Lin obtint rapidement les souvenirs de l'âme originelle de Cang Songzi. L'âme trembla tandis que la folie s'intensifiait. Après un instant, cette démence atteignit son paroxysme et il poussa un rugissement. Des lignes rouge sang se propagèrent de sa poitrine sur tout son corps.
 
-Wang Lin retira sa main et ignora le Maître Pin Cendré. Il passa en revue l'espace de stockage de ce dernier et s'empara de tout. À cet instant, le Maître Pin Cendré perdit la raison.
+Wang Lin retira sa main et ignora Cang Songzi. Il passa en revue l'espace de stockage de ce dernier et s'empara de tout. À cet instant, Cang Songzi perdit la raison.
 
 Il se prit la tête entre les mains, ses yeux affichant un regard de bête sauvage. Puis, il pointa le ciel et son corps trembla. Un rugissement sortit de sa bouche avant que son enveloppe ne dépérisse rapidement. En un instant, il se dissipa pour devenir une perle de sang.
 
@@ -72,9 +72,9 @@ Puis, une lumière aux sept couleurs se rassembla dans la main de Wang Lin et le
 
 Cette scène étrange troubla l'esprit de Wang Lin, mais il ne laissa paraître aucun signe d'étonnement. Il rangea le clou aux sept couleurs et son regard se posa sur Chen Tianjun.
 
-Chen Tianjun venait d'assister au massacre du Maître Pin Cendré par Wang Lin. Lorsque celui-ci tourna les yeux vers lui, son visage devint livide. Instinctivement, il recula de quelques pas et joignit les mains en signe de respect devant Wang Lin.
+Chen Tianjun venait d'assister au massacre de Cang Songzi par Wang Lin. Lorsque celui-ci tourna les yeux vers lui, son visage devint livide. Instinctivement, il recula de quelques pas et joignit les mains en signe de respect devant Wang Lin.
 
-« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire! Le Maître Pin Cendré était un être malfaisant pour nous avoir entraînés ici. Que le compagnon de culture Lu l'ait tué est aussi son destin. Il le méritait; le compagnon Lu a bien agi! »
+« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire! Cang Songzi était un être malfaisant pour nous avoir entraînés ici. Que le compagnon de culture Lu l'ait tué est aussi son destin. Il le méritait; le compagnon Lu a bien agi! »
 
 Wang Lin s'approcha de Chen Tianjun et lui rendit un léger salut.
 
@@ -90,7 +90,7 @@ Wang Lin n'avait aucun différend avec ce Chen Tianjun et ne souhaitait pas se b
 
 « Qu'est-ce donc? » demanda Wang Lin en le regardant.
 
-« Lorsque le compagnon Lu a fouillé l'âme du Maître Pin Cendré... avez-vous... avez-vous trouvé une méthode pour partir? » Chen Tianjun le regardait avec une pointe d'appréhension.
+« Lorsque le compagnon Lu a fouillé l'âme de Cang Songzi... avez-vous... avez-vous trouvé une méthode pour partir? » Chen Tianjun le regardait avec une pointe d'appréhension.
 
 Wang Lin réfléchit silencieusement un instant, puis acquiesça.
 
@@ -106,13 +106,13 @@ Wang Lin fut tenté. Après avoir pesé le pour et le contre, il hocha la tête 
 
 « Une fois que vous aurez fini de rassembler les cristaux d'origine, envoyez-moi un message. » Sur ce, Wang Lin ne regarda plus Chen Tianjun et s'éloigna.
 
-Alors qu'il voyait Wang Lin disparaître à l'horizon, Chen Tianjun poussa un soupir de soulagement. Il ne mentait pas; il voulait ardemment quitter cet endroit. À l'origine, il pensait n'avoir aucune chance, mais après avoir vu la mort du Maître Pin Cendré, il savait que son salut reposait désormais entre les mains de Wang Lin.
+Alors qu'il voyait Wang Lin disparaître à l'horizon, Chen Tianjun poussa un soupir de soulagement. Il ne mentait pas; il voulait ardemment quitter cet endroit. À l'origine, il pensait n'avoir aucune chance, mais après avoir vu la mort de Cang Songzi, il savait que son salut reposait désormais entre les mains de Wang Lin.
 
 « Récolter ces cristaux sera très dangereux, je dois me préparer. » Chen Tianjun prit une profonde inspiration et serra le jade contre lui comme s'il s'agissait de son unique espoir de liberté. Il retourna dans sa grotte.
 
 Wang Lin regagna la grotte située dans la vallée et sortit une grande quantité de cristaux d'origine. Il disposa de nombreuses formations autour de lui et commença à absorber l'énergie originelle. Celle-ci affluait de toutes parts, et il cultiva pour progresser vers le stade intermédiaire du Purificateur du Nirvana.
 
-« Bien que cet endroit soit périlleux, c'est le lieu idéal pour la culture. D'après les souvenirs du Maître Pin Cendré, il y avait cette statue de pierre qu'il utilisait pour reformer son corps. Peut-être pourrai-je en absorber une partie de la puissance. Il y a aussi ces trois individus du royaume extérieur; ils possèdent une force et des informations sur ce royaume dont j'ai besoin. »
+« Bien que cet endroit soit périlleux, c'est le lieu idéal pour la culture. D'après les souvenirs de Cang Songzi, il y avait cette statue de pierre qu'il utilisait pour reformer son corps. Peut-être pourrai-je en absorber une partie de la puissance. Il y a aussi ces trois individus du royaume extérieur; ils possèdent une force et des informations sur ce royaume dont j'ai besoin. »
 
 « Il y a également cette vieille femme en vert avec sa Restriction de la Vie et de la Mort, ainsi que la Restriction Temporelle de Sima Mo... »
 
@@ -124,9 +124,9 @@ Les habitants du royaume extérieur, eux, appelaient cet endroit le Système Ste
 
 Dans une zone interdite du Système Stellaire Primordial se trouvait un palais mystérieux. Aucun signe de vie n'y subsistait, et plusieurs lumières aux sept couleurs flottaient dans l'enceinte. À l'intérieur de chaque lumière reposait un morceau de jade sur lequel un nom était gravé...
 
-Qing Shui, Omniscient, Maître Zhong Xuan, Shui Daozi, Sima Mo, Maître Pin Cendré...
+Qing Shui, Omniscient, Maître Zhong Xuan, Shui Daozi, Sima Mo, Cang Songzi...
 
-À cet instant, le jade portant le nom du Maître Pin Cendré se brisa en d'innombrables fragments et un soupir résonna dans le palais. Dès l'apparition de ce soupir, le temps commença à refluer et les éclats de jade se reformèrent pour redevenir un bloc intact, comme si rien ne s'était passé.
+À cet instant, le jade portant le nom de Cang Songzi se brisa en d'innombrables fragments et un soupir résonna dans le palais. Dès l'apparition de ce soupir, le temps commença à refluer et les éclats de jade se reformèrent pour redevenir un bloc intact, comme si rien ne s'était passé.
 
 Cependant, le nom gravé sur le jade ainsi restauré était devenu: « Wang Lin... »
 

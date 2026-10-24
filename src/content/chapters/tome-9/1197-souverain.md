@@ -90,10 +90,10 @@ Dès que la grotte fut ouverte, une odeur de temps et de décomposition s'en éc
 
 Chaque perle était gravée d'une rune ténue qui scintillait. Cependant, elles émettaient une lueur grise si diffuse qu'il était facile de les manquer si l'on n'y prenait garde.
 
-En voyant ces perles, le cœur de Wang Lin trembla. Il reconnut immédiatement ce que Maître Pin Cendré avait utilisé pour invoquer les sorts des Défieurs!
+En voyant ces perles, le cœur de Wang Lin trembla. Il reconnut immédiatement ce que Cang Songzi avait utilisé pour invoquer les sorts des Défieurs!
 
 « Les révélations du jade sont vraies! » Les yeux de Wang Lin s'illuminèrent alors qu'il tendait la main droite pour saisir l'une des perles. Son sens divin se déploya pour l'examiner méticuleusement. L'expression de Wang Lin changea radicalement, comme si d'innombrables éclairs venaient de frapper son esprit!
 
-Lorsque Maître Pin Cendré avait sorti les perles, il s'était déplacé avec une telle rapidité que Wang Lin n'avait pu les observer de près sans se distraire du combat. Il n'avait fait qu'un bref coup d'œil, mais à présent, il pouvait les analyser clairement.
+Lorsque Cang Songzi avait sorti les perles, il s'était déplacé avec une telle rapidité que Wang Lin n'avait pu les observer de près sans se distraire du combat. Il n'avait fait qu'un bref coup d'œil, mais à présent, il pouvait les analyser clairement.
 
 « Perle Défiant le Ciel… »

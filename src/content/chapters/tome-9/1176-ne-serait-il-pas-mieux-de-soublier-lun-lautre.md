@@ -48,7 +48,7 @@ Wang Lin regarda l'Ancien avec un sourire qui n'en était guère un et lui adres
 
 « Cet Ancien est un homme intéressant », pensa Wang Lin en suivant du regard le départ de l'homme.
 
-Une fois l'Ancien parti, d'autres cultivateurs vinrent parler à Wang Lin, parmi lesquels le lettré en blanc et la belle femme rencontrée lors de la réunion privée du Maître Pin Cendré. Les trois n'étaient pas étrangers les uns aux autres. Après quelques échanges, la place se mit à trembler et un silence s'installa. Le sol secoua plus violemment encore et des fissures apparurent tout autour de la place. Soudain, seize immenses tablettes de pierre jaillirent dans les airs!
+Une fois l'Ancien parti, d'autres cultivateurs vinrent parler à Wang Lin, parmi lesquels le lettré en blanc et la belle femme rencontrée lors de la réunion privée de Cang Songzi. Les trois n'étaient pas étrangers les uns aux autres. Après quelques échanges, la place se mit à trembler et un silence s'installa. Le sol secoua plus violemment encore et des fissures apparurent tout autour de la place. Soudain, seize immenses tablettes de pierre jaillirent dans les airs!
 
 Ces seize tablettes surgirent de la terre et s'immobilisèrent à mille pieds d'altitude, entourées d'une lueur émanant de leur surface. Simultanément, le sol continua de vibrer et plus de quarante tablettes plus petites s'envolèrent à huit cents pieds de hauteur. Le spectacle ne s'arrêta pas là: une centaine d'autres tablettes apparurent pour se stabiliser à cinq cents pieds, formant ainsi une gigantesque formation!
 

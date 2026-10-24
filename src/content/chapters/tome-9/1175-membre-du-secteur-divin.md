@@ -46,7 +46,7 @@ Wang Lin ne volait pas à une vitesse excessive tandis qu'il traversait le ciel 
 
 Cette paume gigantesque était frappante. Dans la Mer des Nuages, presque tout le monde savait que cette attaque si reconnaissable était le sort suprême de la Secte Divine: l'Empreinte de l'Esprit Guerrier! Même ceux qui étaient sceptiques ne nourrissaient plus aucun doute après avoir vu la puissance de cette technique.
 
-Parmi les cultivateurs des sectes de rang 6, leurs Anciens sortirent tous pour saluer Wang Lin. Maître Pin Cendré le regarda de loin avec un sourire pour masquer son choc. Il semblait vouloir engager la conversation.
+Parmi les cultivateurs des sectes de rang 6, leurs Anciens sortirent tous pour saluer Wang Lin. Cang Songzi le regarda de loin avec un sourire pour masquer son choc. Il semblait vouloir engager la conversation.
 
 L'expression de Wang Lin était sereine, mais il ricana intérieurement. Il joignit les mains en guise de politesse alors qu'il traversait la foule pour regagner son auberge. Dans le monde de la culture, la force commande le respect. Wang Lin avait prouvé qu'il pouvait aisément terrasser un expert au stade précoce du Briseur du Nirvana et qu'il maîtrisait l'Empreinte de l'Esprit Guerrier. Désormais, personne dans la région de rang 5 n'oserait le provoquer. Même la Secte du Jade Précieux n'osait le blâmer pour la destruction de la moitié de la ville.
 
@@ -60,7 +60,7 @@ Au moment où l'Oiseau Vermillon pénétra son œil, une mer de flammes envelopp
 
 « Après avoir tué Wu Qing et utilisé le nom de la Secte Divine, il ne devrait plus y avoir personne sur Peng Lai qui ose s'en prendre à moi. » Les yeux de Wang Lin s'illuminèrent. « Il est donc temps de passer au pillage. »
 
-Au cours des jours suivants, les sectes de rang 6 vinrent tous lui rendre visite, tout comme les vieux monstres de l'entourage de Maître Pin Cendré. Wang Lin les reçut tous avec calme. Aucun des visiteurs ne venait les mains vides et tous se montraient extrêmement respectueux. Bien qu'ils doutassent encore de l'identité de Wang Lin, il était impossible de la vérifier. Seuls les membres de la Secte Divine pouvaient confirmer s'il était authentique ou non!
+Au cours des jours suivants, les sectes de rang 6 vinrent tous lui rendre visite, tout comme les vieux monstres de l'entourage de Cang Songzi. Wang Lin les reçut tous avec calme. Aucun des visiteurs ne venait les mains vides et tous se montraient extrêmement respectueux. Bien qu'ils doutassent encore de l'identité de Wang Lin, il était impossible de la vérifier. Seuls les membres de la Secte Divine pouvaient confirmer s'il était authentique ou non!
 
 S'il s'agissait d'une imposture, ce n'était pas grave: ils ne perdraient au plus que quelques cadeaux. Mais s'il était réel, nouer une relation avec lui était le rêve de n'importe quelle secte.
 
@@ -82,28 +82,28 @@ Wang Lin regarda l'homme en noir et demanda lentement: « Je me demande où le c
 
 Wang Lin prit la pierre et l'examina avec son sens divin. Il joignit ensuite les mains au vieil homme. Ils discutèrent encore un peu avant que ce dernier ne reparte.
 
-Au cours des deux jours restants, Wang Lin avait subtilement fait circuler la nouvelle selon laquelle il cherchait à acquérir des cartes stellaires. Rapidement, les gens commencèrent à en proposer, et en seulement deux jours, presque toutes les cartes de la ville avaient été rassemblées. Une fois vérifiées avec soin, ces cartes finirent entre les mains de Maître Pin Cendré. Ce dernier se rendit à l'auberge où logeait Wang Lin et, après avoir échangé quelques mots, sortit un sac rempli de parchemins.
+Au cours des deux jours restants, Wang Lin avait subtilement fait circuler la nouvelle selon laquelle il cherchait à acquérir des cartes stellaires. Rapidement, les gens commencèrent à en proposer, et en seulement deux jours, presque toutes les cartes de la ville avaient été rassemblées. Une fois vérifiées avec soin, ces cartes finirent entre les mains de Cang Songzi. Ce dernier se rendit à l'auberge où logeait Wang Lin et, après avoir échangé quelques mots, sortit un sac rempli de parchemins.
 
 « J'ai entendu dire que le camarade cultivateur Lu s'intéressait aux cartes stellaires, j'ai donc chargé des gens d'en collecter. Cependant, il y a trop de fausses informations, je ne saurais dire lesquelles sont exactes. Le camarade cultivateur devra les examiner avec attention. »
 
-Après avoir pris le sac, Wang Lin sourit et joignit les mains. « Merci, camarade cultivateur Pin Cendré. Cela m'évite bien des tracas. »
+Après avoir pris le sac, Wang Lin sourit et joignit les mains. « Merci, camarade cultivateur Cang Songzi. Cela m'évite bien des tracas. »
 
-Après un moment de discussion, Maître Pin Cendré regarda Wang Lin et demanda soudainement: « Je me demande si le camarade cultivateur Lu aura des affaires urgentes à régler après la vente aux enchères de demain? »
+Après un moment de discussion, Cang Songzi regarda Wang Lin et demanda soudainement: « Je me demande si le camarade cultivateur Lu aura des affaires urgentes à régler après la vente aux enchères de demain? »
 
-Wang Lin le regarda et secoua la tête. « Camarade Pin Cendré, allez droit au but. »
+Wang Lin le regarda et secoua la tête. « Camarade Cang Songzi, allez droit au but. »
 
-Maître Pin Cendré réfléchit et dit: « Je connais un lieu secret qui pourrait contenir quelque chose qui vous intéresse. » En parlant, il fixa Wang Lin. Ne constatant aucun changement dans l'expression de ce dernier, il sortit une pierre de jade et la lui tendit.
+Cang Songzi réfléchit et dit: « Je connais un lieu secret qui pourrait contenir quelque chose qui vous intéresse. » En parlant, il fixa Wang Lin. Ne constatant aucun changement dans l'expression de ce dernier, il sortit une pierre de jade et la lui tendit.
 
-Wang Lin accepta le jade. Il ne l'examina pas, mais regarda Maître Pin Cendré avec un sourire qui n'en était pas un.
+Wang Lin accepta le jade. Il ne l'examina pas, mais regarda Cang Songzi avec un sourire qui n'en était pas un.
 
-Maître Pin Cendré toussa sèchement: « Pour faire court, je vois que le camarade cultivateur Lu échange de nombreux cristaux d'origine. Si vous m'aidez à pénétrer dans ce lieu, je vous offrirai 10 000 cristaux d'origine en récompense! »
+Cang Songzi toussa sèchement: « Pour faire court, je vois que le camarade cultivateur Lu échange de nombreux cristaux d'origine. Si vous m'aidez à pénétrer dans ce lieu, je vous offrirai 10 000 cristaux d'origine en récompense! »
 
-Wang Lin balaya calmement la pierre de jade avec son sens divin et ferma les yeux. La pièce resta silencieuse. Maître Pin Cendré ne montra aucune impatience et attendit la réponse.
+Wang Lin balaya calmement la pierre de jade avec son sens divin et ferma les yeux. La pièce resta silencieuse. Cang Songzi ne montra aucune impatience et attendit la réponse.
 
 Après un instant, Wang Lin ouvrit les yeux et déclara froidement: « Je veux 20 000 cristaux d'origine, et 10 000 d'avance! »
 
-Maître Pin Cendré hésita un instant avant de hocher la tête avec un sourire. « Très bien. Obtenir l'aide d'un membre de la Secte Divine pour 20 000 cristaux d'origine est une excellente affaire! Une fois les enchères de demain terminées, je vous livrerai les cristaux et nous partirons! »
+Cang Songzi hésita un instant avant de hocher la tête avec un sourire. « Très bien. Obtenir l'aide d'un membre de la Secte Divine pour 20 000 cristaux d'origine est une excellente affaire! Une fois les enchères de demain terminées, je vous livrerai les cristaux et nous partirons! »
 
-Maître Pin Cendré joignit les mains et quitta la chambre. Une fois dehors, son sourire disparut et il laissa échapper un ricanement intérieur.
+Cang Songzi joignit les mains et quitta la chambre. Une fois dehors, son sourire disparut et il laissa échapper un ricanement intérieur.
 
-« Comment les membres de la Secte Divine pourraient-ils manquer de cristaux d'origine? L'identité de cet homme est extrêmement suspecte. Que son identité soit réelle ou non, peu importe, tant qu'il se comporte comme prévu. Dès que j'aurai pénétré dans ce lieu, mon niveau de culture progressera, et alors... » Maître Pin Cendré prit une profonde inspiration pour réprimer l'excitation qui le brûlait. Il préparait ce coup depuis près de 1 000 ans!
+« Comment les membres de la Secte Divine pourraient-ils manquer de cristaux d'origine? L'identité de cet homme est extrêmement suspecte. Que son identité soit réelle ou non, peu importe, tant qu'il se comporte comme prévu. Dès que j'aurai pénétré dans ce lieu, mon niveau de culture progressera, et alors... » Cang Songzi prit une profonde inspiration pour réprimer l'excitation qui le brûlait. Il préparait ce coup depuis près de 1 000 ans!

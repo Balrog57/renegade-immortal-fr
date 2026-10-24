@@ -78,7 +78,7 @@ Il poussa ses mains en avant et un sifflement s'échappa de la sphère, comme un
 
 L'assaut ne s'arrêta pas là. Des rayons de lumière aux sept couleurs se rejoignirent pour former une épée monumentale. Elle oscilla violemment, comme prête à trancher l'océan de flammes en deux.
 
-Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques des Défis. Entre les mains du vieil homme, leur puissance surpassait de loin celle que le Maître Pin Cendré avait pu invoquer.
+Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques des Défis. Entre les mains du vieil homme, leur puissance surpassait de loin celle que Cang Songzi avait pu invoquer.
 
 Dès qu'elle apparut, l'épée aux sept couleurs fondit sur sa cible. Elle se transforma en un torrent d'énergie tranchante qui chargea l'Oiseau Vermillon Bleu au cœur des flammes!
 

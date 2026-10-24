@@ -26,9 +26,9 @@ Après avoir longuement réfléchi, Wang Lin agita ses manches et collecta les d
 
 Son regard parcourut la première grotte. N'ayant rien trouvé d'autre, il en sortit.
 
-Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Maître Pin Cendré. Le sort que Maître Pin Cendré avait utilisé pour invoquer l'esprit de la septième formation du Royaume Scellé était très similaire au sort que les étrangers utilisaient.
+Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Cang Songzi. Le sort que Cang Songzi avait utilisé pour invoquer l'esprit de la septième formation du Royaume Scellé était très similaire au sort que les étrangers utilisaient.
 
-« Quelle est l'identité de ce Maître Pin Cendré? » Wang Lin s'éloigna de la grotte et leva les yeux vers le ciel aux sept couleurs. Il se souvenait qu'au sein du vide, là où il avait rencontré pour la première fois les gens du royaume extérieur, il y avait également une lumière aux sept couleurs provenant de ce dernier...
+« Quelle est l'identité de ce Cang Songzi? » Wang Lin s'éloigna de la grotte et leva les yeux vers le ciel aux sept couleurs. Il se souvenait qu'au sein du vide, là où il avait rencontré pour la première fois les gens du royaume extérieur, il y avait également une lumière aux sept couleurs provenant de ce dernier...
 
 Plus il entrait en contact avec cet endroit et plus il le comprenait, plus il se sentait confus.
 
@@ -98,7 +98,7 @@ Sortant une pilule de rang 11, Wang Lin la plaça à l'intérieur du fourneau. S
 
 Le double raffinage était une méthode d'alchimie que tous les cultivateurs de la Mer des Nuages devaient maîtriser. Il s'agissait de raffiner une pilule de niveau supérieur afin d'en diviser la puissance. Cette technique dépendait étroitement du fourneau: plus celui-ci était performant, moins l'efficacité était perdue.
 
-Pendant que Wang Lin raffinait la pilule, au plus profond du Royaume aux Sept Couleurs, bien au-delà de l'endroit où se trouvait Maître Pin Cendré, s'étendait un lieu enveloppé d'un brouillard rendant toute vision impossible.
+Pendant que Wang Lin raffinait la pilule, au plus profond du Royaume aux Sept Couleurs, bien au-delà de l'endroit où se trouvait Cang Songzi, s'étendait un lieu enveloppé d'un brouillard rendant toute vision impossible.
 
 Un autel y était niché, drapé de brume. À cet instant, une lumière vive jaillit de l'autel, perçant le brouillard environnant et le repoussant pour révéler une zone vide.
 

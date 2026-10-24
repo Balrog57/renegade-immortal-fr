@@ -100,7 +100,7 @@ Les trois silhouettes progressèrent rapidement sous la conduite de Wang Lin, qu
 
 Quatre rayons de lumière traversèrent le ciel pour atteindre la lisière du Royaume aux Sept Couleurs. Ils arrivèrent à l'emplacement de l'autel, mais celui-ci s'était effondré.
 
-Wang Lin forma un sceau et la méthode de sortie, tirée des souvenirs de Maître Pin Cendré, lui revint en mémoire. Ses mains bougèrent avec une célérité croissante, traçant des runes dans le vide. Une lumière douce émana alors qu'une fissure cachée semblait lentement s'ouvrir.
+Wang Lin forma un sceau et la méthode de sortie, tirée des souvenirs de Cang Songzi, lui revint en mémoire. Ses mains bougèrent avec une célérité croissante, traçant des runes dans le vide. Une lumière douce émana alors qu'une fissure cachée semblait lentement s'ouvrir.
 
 Cependant, à cet instant même, l'expression de Wang Lin changea. Ses mains se figèrent et il leva la tête vers le ciel ténébreux. Un vortex gigantesque venait d'apparaître de nulle part, semblant provoquer l'effondrement du firmament, les fragments du ciel étant aspirés par le tourbillon.
 
