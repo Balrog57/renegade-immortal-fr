@@ -28,7 +28,7 @@ Ces 50 survivants cessèrent de s'entretuer et se séparèrent pour trouver leur
 
 Une durée indéterminée s'écoula encore.
 
-Un nouveau massacre débuta. Lorsqu'il prit fin cette fois-ci, Wang Lin poussa un rugissement. Il ne restait que moins de 20 personnes dans le ciel. La brume de sang autour de Wang Lin atteignait désormais deux cent trente mètres de large, et celle de tous les autres s'étendait également sur plusieurs dizaines de pieds.
+Un nouveau massacre débuta. Lorsqu'il prit fin cette fois-ci, Wang Lin poussa un rugissement. Il ne restait que moins de 20 personnes dans le ciel. La brume de sang autour de Wang Lin atteignait désormais deux cent trente mètres de large, et celle de tous les autres s'étendait également sur plusieurs centaines de pieds.
 
 Les jours défilaient dans ce monde écarlate. Bien que Wang Lin retrouvât périodiquement sa lucidité, lui-même ignorait combien de temps s'était écoulé. Si ce n'avait été pour les cinq filaments d'énergie de massacre qui s'étaient transformés en sceaux de force vitale recouvrant son corps, Wang Lin était convaincu qu'il serait déjà mort de nombreuses fois!
 

@@ -56,7 +56,7 @@ Pourtant, même ainsi, le voile d'énergie spirituelle démoniaque protégeant M
 
 Wang Lin dit d'une voix lente: « Si j'en avais eu plusieurs milliers, pourriez-vous toujours les bloquer si aisément...? »
 
-Le regard de Mo Lihai s'anima. Ce n'était pas la première fois qu'il faisait face à cette énergie de massacre, mais elle était bien plus puissante que lors des deux précédentes rencontres. Il déclara avec détermination: « Un mois est trop long pour moi, mais sept jours ne posent aucun problème. La Prison Hong compte des dizaines de milliers de criminels; sept jours devraient vous suffire pour votre culture! Attendez-moi, je vous obtiendrai une lettre d'entrée dans trois jours! »
+Le regard de Mo Lihai s'anima. Ce n'était pas la première fois qu'il faisait face à cette énergie de massacre, mais elle était bien plus puissante que lors des deux précédentes rencontres. Il déclara avec détermination: « Un mois est trop long pour moi, mais sept jours ne posent aucun problème. La Prison Hong compte plus de dix mille criminels; sept jours devraient vous suffire pour votre culture! Attendez-moi, je vous obtiendrai une lettre d'entrée dans trois jours! »
 
 Wang Lin hocha la tête et quitta la pièce.
 
