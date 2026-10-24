@@ -16,7 +16,7 @@ Peu après, chaque cultivateur de Xue Yu choisit l'une des quatre sectes et enga
 
 Des vagues de froid émanaient de la neige et de la glace qui jonchaient le sol. Si les cultivateurs de l'Alliance des Quatre Sectes ressentaient un frisson en touchant la neige, pour les cultivateurs de Xue Yu, elle constituait l'arme ultime. Cette énergie glaciale permettait même aux membres de Xue Yu de récupérer, dans une certaine mesure, leur énergie spirituelle.
 
-Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats provenant de trésors magiques. Les sites de la Secte de l'Encre, de la Secte du Nuage Blanc, de la Secte du Bois Vert et de la Secte de l'Âme Noire devinrent les théâtres des combats finaux.
+Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats provenant de trésors magiques. Les sites de la Secte de l'Encre, de la Secte Bai Yun, de la Secte du Bois Vert et de la Secte de l'Âme Noire devinrent les théâtres des combats finaux.
 
 Certains mortels ayant eu la chance de survivre se terrèrent dans leurs maisons. Ignorant tout de ce qui se tramait, ils n'avaient jamais vu autant de cultivateurs de toute leur vie.
 
@@ -38,7 +38,7 @@ Une fois la grande formation céleste brisée, une tempête de neige encore plus
 
 La femme vêtue de blanc n'était pas la seule à avoir apporté un puissant trésor magique. D'autres cultivateurs de Xue Yu, également préparés avec des trésors redoutables, apparurent.
 
-Lors du combat contre la Secte du Nuage Blanc, une vieille femme aux cheveux blancs agita ses manches en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de 330 mètres s'éleva dans les airs.
+Lors du combat contre la Secte Bai Yun, une vieille femme aux cheveux blancs agita ses manches en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de 330 mètres s'éleva dans les airs.
 
 Sous l'effet de ce vent puissant, la neige scintilla et se mua en glace. Peu après, les yeux de la vieille femme s'illuminèrent et elle frappa son front. Son Âme Naissante quitta son corps pour pénétrer dans un gigantesque bloc de glace.
 
@@ -112,6 +112,6 @@ Les yeux de Wang Lin s'illuminèrent et son corps recula. Sa main traça un scea
 
 Il profita de cet instant pour se téléporter à plus de 1000 kilomètres de là. Sa distance de téléportation était bien plus grande qu'auparavant.
 
-Le mur d'eau ne bloqua le feu qu'un court instant avant de se dissiper en une brume blanche. La flamme tourna une fois autour de la zone avant de foncer vers la Secte du Nuage Blanc.
+Le mur d'eau ne bloqua le feu qu'un court instant avant de se dissiper en une brume blanche. La flamme tourna une fois autour de la zone avant de foncer vers la Secte Bai Yun.
 
 Wang Lin n'était pas disposé à se dévoiler pour l'instant; il n'éteignit donc pas le feu et se contenta de s'enfuir. Tant que les cultivateurs de la Formation de l'Âme des deux camps ne seraient pas passés à l'action, Wang Lin ne bougerait pas.

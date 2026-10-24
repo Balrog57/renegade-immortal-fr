@@ -62,9 +62,9 @@ Les yeux de Tan Lang brillaient de joie. Durant ces centaines d'années, il avai
 
 « Je ne prendrai pas tes trésors sans raison, tu peux partir... » Tan Lang se remémora les paroles de Wang Lin avant son départ, et une expression complexe se dessina sur son visage.
 
-Après avoir laissé Tan Lang filer, Wang Lin fit volte-face pour retourner vers le Clan des Scorpions Noirs. Tan Lang, malgré la barrière entre le Royaume Intérieur et le Royaume Extérieur, était arrivé avant lui dans le Système Stellaire Antique et lui avait remis tous ces trésors. Après avoir obtenu les richesses durement acquises de Tan Lang, sans compter la joie de retrouver une connaissance en terre étrangère, comment Wang Lin aurait-il pu vouloir le tuer?
+Après avoir laissé Tan Lang filer, Wang Lin fit volte-face pour retourner vers le Clan du Scorpion Noir. Tan Lang, malgré la barrière entre le Royaume Intérieur et le Royaume Extérieur, était arrivé avant lui dans le Système Stellaire Antique et lui avait remis tous ces trésors. Après avoir obtenu les richesses durement acquises de Tan Lang, sans compter la joie de retrouver une connaissance en terre étrangère, comment Wang Lin aurait-il pu vouloir le tuer?
 
-« Ce Tan Lang est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan des Scorpions Noirs.
+« Ce Tan Lang est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan du Scorpion Noir.
 
 Les quelque 1 000 cultivateurs du Clan de l'Évasion Nuageuse n'avaient pas osé partir et attendaient toujours là. Zhong Grand Rouge était devenu plus enjoué et avait choisi quelques cultivateurs de haut niveau pour le soigner. Allongé, il continuait de laisser échapper des reniflements méprisants.
 
@@ -72,7 +72,7 @@ Chaque fois qu'il émettait un tel bruit, les cultivateurs environnants tremblai
 
 Ils regardaient Zhong Grand Rouge avec respect. Ce n'était pas lui qu'ils craignaient, mais le Maître qui se trouvait derrière lui! L'expression de leur patriarche après avoir vu le jeton de jade leur avait fait comprendre qu'ils avaient provoqué une entité qu'ils ne devaient pas et qu'une calamité approchait.
 
-Les membres du Clan des Scorpions Noirs qui s'étaient dispersés furent respectueusement reconduits les uns après les autres. Des pilules furent distribuées pour les aider à récupérer. Même le vieil homme nommé Zhang fut ramené.
+Les membres du Clan du Scorpion Noir qui s'étaient dispersés furent respectueusement reconduits les uns après les autres. Des pilules furent distribuées pour les aider à récupérer. Même le vieil homme nommé Zhang fut ramené.
 
 Deux cultivatrices du Clan de l'Évasion Nuageuse massaient les épaules de Zhong Grand Rouge. Se sentant très à son aise, il déclara avec arrogance: « Je vous l'avais bien dit! Ce vieux vous l'avait clairement annoncé, mais personne ne m'a cru! À quoi servent vos yeux?! »
 

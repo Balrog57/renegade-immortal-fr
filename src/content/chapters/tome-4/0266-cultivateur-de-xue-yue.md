@@ -22,7 +22,7 @@ Wang Lin observa Zhou Wutai. Comparé à dix ans auparavant, quelques rides supp
 
 Après tout, le Domaine de la Vie et de la Mort que Wang Lin avait expérimenté lui avait conféré une compréhension bien plus profonde.
 
-Une fois que le cultivateur aux grandes oreilles eut fini de boire, ses yeux se fixèrent sur les trois sculptures en bois posées sur l'étagère. Elles représentaient les trois membres de la Secte Nuage Blanc. Lorsque Zhou Wutai était venu il y a dix ans, il n'y en avait que deux; désormais, une troisième figurait parmi elles.
+Une fois que le cultivateur aux grandes oreilles eut fini de boire, ses yeux se fixèrent sur les trois sculptures en bois posées sur l'étagère. Elles représentaient les trois membres de la Secte Bai Yun. Lorsque Zhou Wutai était venu il y a dix ans, il n'y en avait que deux; désormais, une troisième figurait parmi elles.
 
 En fixant cette sculpture supplémentaire, une pointe de surprise apparut sur son visage. Il agita la main et l'objet vola vers lui. Après l'avoir examiné avec soin, il le reposa, puis regarda Wang Lin d'un air complexe.
 

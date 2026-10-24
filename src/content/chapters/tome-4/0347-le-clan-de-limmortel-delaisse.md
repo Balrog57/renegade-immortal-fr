@@ -1,6 +1,6 @@
 ---
 n: 347
-title: "Le Clan de l'Immortel Délaissé"
+title: "Le Clan des Immortels Délaissés"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 347 - Forsaken Immortal Clan

@@ -18,7 +18,7 @@ Le troisième sort de Wang Lin fut compris après qu'il eut été gravement bles
 
 À l'intérieur du Royaume du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier, issu de la Terre des Esprits Démoniaques, était le sort qui avait gravement blessé Tian Yunzi et plus encore le Démon Ancien, le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 
-Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme du Clan de l'Extermination Scellée dans le Royaume aux Sept Couleurs!
+Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme du Clan de l'Extermination des Sceaux dans le Royaume aux Sept Couleurs!
 
 Ces deux sorts étaient extrêmement puissants et s'étaient profondément gravés dans la mémoire de Wang Lin!
 

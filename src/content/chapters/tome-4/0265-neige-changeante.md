@@ -12,15 +12,15 @@ La mère de Da Niu était morte de chagrin il y a sept ans. À présent, Da Niu 
 
 Cette scène était presque identique à celle de l'arrivée de Wang Lin, seule la génération avait changé.
 
-Mais cette routine ne dura pas. Il y a trois ans, le fils de Da Niu, nommé Xiao Niu, attira l'attention d'un cultivateur errant de la Secte Nuage Blanc qui l'emmena comme disciple. Cette année-là, le voyageur lui donna également un nom: Wen Zhuo.
+Mais cette routine ne dura pas. Il y a trois ans, le fils de Da Niu, nommé Xiao Niu, attira l'attention d'un cultivateur errant de la Secte Bai Yun qui l'emmena comme disciple. Cette année-là, le voyageur lui donna également un nom: Wen Zhuo.
 
 Da Niu était extrêmement fier que son propre fils allait devenir un immortel. Il l'annonçait à quiconque croisait son chemin, et bientôt, tout le monde dans la rue était au courant.
 
-Wang Lin n'était nullement surpris par le départ de Wen Zhuo auprès du cultivateur de la Secte Nuage Blanc. Il avait remarqué dès le plus jeune âge que Xiao Niu possédait un corps propice à la culture et que son talent surpassait déjà plusieurs fois celui de Wang Lin lorsqu'il avait commencé.
+Wang Lin n'était nullement surpris par le départ de Wen Zhuo auprès du cultivateur de la Secte Bai Yun. Il avait remarqué dès le plus jeune âge que Xiao Niu possédait un corps propice à la culture et que son talent surpassait déjà plusieurs fois celui de Wang Lin lorsqu'il avait commencé.
 
 Si Wang Lin l'avait aidé, c'était parce que la seule connexion qu'il entretenait dans toute la capitale était avec la famille de Da Niu. Par conséquent, il avait offert à Xiao Niu de nombreuses pilules pour transformer son corps, afin de solder le karma de cette vie, et le résultat était là.
 
-Le talent de Xiao Niu était devenu si exceptionnel qu'il n'était pas étonnant qu'il ait capté l'attention du cultivateur de la Secte Nuage Blanc. Bien que ce dernier ne fût qu'au stade de la Formation du Noyau, Wang Lin avait observé qu'il était un homme bienveillant, très différent de son propre maître, Sun Dazhu.
+Le talent de Xiao Niu était devenu si exceptionnel qu'il n'était pas étonnant qu'il ait capté l'attention du cultivateur de la Secte Bai Yun. Bien que ce dernier ne fût qu'au stade de la Formation du Noyau, Wang Lin avait observé qu'il était un homme bienveillant, très différent de son propre maître, Sun Dazhu.
 
 Ainsi, Wang Lin n'intervint pas et laissa les choses suivre leur cours naturel. Il avait déjà fait tout ce qu'il pouvait. Quant à ce que deviendrait Wen Zhuo dans le futur, cela ne le concernait plus.
 
@@ -64,7 +64,7 @@ Peu après, en plus de la neige, d'innombrables fragments de jade jaillirent des
 
 L'un de ces fragments vola vers Wang Lin. D'un revers de main, il le rattrapa, même si l'objet avait déjà dépassé sa position.
 
-Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte de l'Encre d'Eau, la Secte Nuage Blanc, la Secte du Bois Vert et la Secte de l'Âme Noire — ouvrent grand leurs portes et appellent tous les cultivateurs errants, démoniaques et ascètes à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
+Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte de l'Encre d'Eau, la Secte Bai Yun, la Secte du Bois Vert et la Secte de l'Âme Noire — ouvrent grand leurs portes et appellent tous les cultivateurs errants, démoniaques et ascètes à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
 
 Wang Lin réfléchit un instant avant de broyer le jade dans sa paume. Il disparut de sa boutique et, lorsqu'il réapparut, il planait déjà dans le ciel au-dessus de la capitale.
 

@@ -70,7 +70,7 @@ Murong Yun l'étudia de nouveau. Après avoir confirmé qu'il était réellement
 
 Wang Lin réfléchit un instant et répondit: « À vous entendre, vous semblez très confiant quant à la récupération de votre fragment d'âme. » Tandis qu'il parlait, ses yeux s'illuminèrent sans que personne ne s'en aperçoive.
 
-Murong Yun rit et dit: « Cher compagnon Qing, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans le Tombeau de Suzaku. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan de l'Immortel Délaissé sont entrés dans la section intérieure. Si mon niveau de culture n'était pas plus élevé, j'y serais déjà. »
+Murong Yun rit et dit: « Cher compagnon Qing, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans le Tombeau de Suzaku. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan des Immortels Délaissés sont entrés dans la section intérieure. Si mon niveau de culture n'était pas plus élevé, j'y serais déjà. »
 
 « Oh? » Wang Lin eut un léger sourire. « Comment Qian Feng et les autres sont-ils entrés? »
 

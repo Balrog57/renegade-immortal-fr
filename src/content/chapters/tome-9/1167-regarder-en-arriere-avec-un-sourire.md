@@ -86,13 +86,13 @@ Ils s'étaient perdus dans leurs débats, mais cela rendait la vie des gens à l
 
 Il ne comprenait pas pourquoi ils n'étaient pas revenus après un si long moment, malgré la présence du Maître de Secte et de Li Qianmei.
 
-Après plusieurs heures supplémentaires, l'anxiété du vieil homme s'intensifia. Il avait un mauvais pressentiment. Serrant les dents, il ne s'obstina plus: il prit le contrôle de la bête-tigre et se dirigea vers le continent de Mo Luo, accompagné de plus de trente disciples centraux de la Secte Dao Pourpre!
+Après plusieurs heures supplémentaires, l'anxiété du vieil homme s'intensifia. Il avait un mauvais pressentiment. Serrant les dents, il ne s'obstina plus: il prit le contrôle de la bête-tigre et se dirigea vers le continent de Mo Luo, accompagné de plus de trente disciples centraux de la Secte du Dao Pourpre!
 
 Cependant, alors qu'ils approchaient et s'apprêtaient à franchir la barrière protectrice, une voix impérieuse retentit.
 
 « Reculez! Sans mon ordre, vous n'avez pas le droit de poser le pied sur le continent de Mo Luo! » Cette voix appartenait à Lu Yuncong. Le vieil homme, surpris, fit rapidement reculer le tigre, bien que son cœur fût toujours perplexe.
 
-Dans la cour, la lumière du matin enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Lu Yuncong comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte Dao Pourpre débarquait, cela ne changerait rien.
+Dans la cour, la lumière du matin enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Lu Yuncong comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte du Dao Pourpre débarquait, cela ne changerait rien.
 
 Wang Lin regarda Li Qianmei et dit calmement: « Pour la troisième question, je ne peux dire que le Dao est semblable à une pensée. »
 
@@ -106,7 +106,7 @@ Le regard de Wang Lin resta serein et il secoua la tête.
 
 « Vous... » Lu Yuncong prit une profonde inspiration et eut un sourire amer.
 
-Il soupira de nouveau: « Daoïste Lu, cette Bannière Céleste Yin n'appartient pas à la Secte Dao Pourpre. Elle a été envoyée par la secte principale pour y être nourrie. Elle doit être restituée après cent ans. Si vous refusez de la rendre, je ne m'obstinerai pas, mais une fois le délai de cent ans passé, si la secte principale vient réclamer son dû, ne me blâmez pas de leur avoir dit la vérité. »
+Il soupira de nouveau: « Daoïste Lu, cette Bannière Céleste Yin n'appartient pas à la Secte du Dao Pourpre. Elle a été envoyée par la secte principale pour y être nourrie. Elle doit être restituée après cent ans. Si vous refusez de la rendre, je ne m'obstinerai pas, mais une fois le délai de cent ans passé, si la secte principale vient réclamer son dû, ne me blâmez pas de leur avoir dit la vérité. »
 
 « La Bannière Céleste Yin appartient à la secte principale? » L'expression de Wang Lin demeura neutre, mais diverses pensées traversèrent son esprit.
 

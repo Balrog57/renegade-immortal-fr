@@ -12,7 +12,7 @@ Le paysage devant lui devint soudainement flou. Des ondulations apparurent, comm
 
 Le corps de Wang Lin disparut pour réapparaître à l'intérieur du réseau de transfert. Il sortit quelques matériaux de son sac de rangement et les posa sur le réseau de transfert pour rétablir les parties qu'il avait démontées autrefois.
 
-Peu après, il jeta un regard vers la direction de la Secte Ciel Nuageux. Le visage empreint de détermination, il sortit une pierre spirituelle de haute qualité en forme de losange, prit une profonde inspiration et la plaça lentement dans le réseau de transfert.
+Peu après, il jeta un regard vers la direction de la Secte du Ciel Nuageux. Le visage empreint de détermination, il sortit une pierre spirituelle de haute qualité en forme de losange, prit une profonde inspiration et la plaça lentement dans le réseau de transfert.
 
 Soudain, l'autel s'anima et des rayons de lumière en jaillirent. Des vagues d'énergie spirituelle émanèrent de la pierre jusqu'à ce que celle-ci soit réduite en poussière.
 

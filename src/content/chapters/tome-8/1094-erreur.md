@@ -48,9 +48,9 @@ Déjà sous le choc, Lie Yunzi cracha une bouchée de sang lorsque cette pressio
 
 « Vous... »
 
-« Lie Yunzi, êtes-vous venu ici au nom de Luotian pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant à la Secte Divine Oiseau Vermillon réclamer l'Empereur Divin? C'est proprement absurde! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
+« Lie Yunzi, êtes-vous venu ici au nom de Luotian pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant à la Secte Divine de l'Oiseau Vermillon réclamer l'Empereur Divin? C'est proprement absurde! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
 
-« Cette affaire revient à envoyer quelqu'un à Luotian pour exiger le Maître Yan Leizi du Temple Céleste du Tonnerre. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divine Oiseau Vermillon. Demain, votre Luotian en paiera le prix! »
+« Cette affaire revient à envoyer quelqu'un à Luotian pour exiger le Maître Yan Leizi du Temple Céleste du Tonnerre. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divine de l'Oiseau Vermillon. Demain, votre Luotian en paiera le prix! »
 
 « Ce n'est pas une accusation fabriquée de ma part. Le compagnon cultivateur Mo Zhi, du pays de Chu Yun, peut en être témoin! » Wang Lin ne laissa aucune chance à Lie Yunzi; il lança son assaut comme un coup de tonnerre!
 
@@ -62,7 +62,7 @@ Les yeux de la belle femme de la Secte des Cadavres s'illuminèrent et elle sour
 
 Lie Yunzi n'eut pas le temps de reprendre son souffle avant d'entendre les paroles de Mo Zhi et de la femme de la Secte des Cadavres. Il cracha davantage de sang, puis redressa brusquement la tête pour fixer Wang Lin.
 
-Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait les moindres détails de ses empreintes digitales, n'accordant aucune attention à Lie Yunzi. Ils se trouvaient dans la Secte Divine Oiseau Vermillon; Lie Yunzi ne pouvait donc pas échapper à son emprise.
+Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait les moindres détails de ses empreintes digitales, n'accordant aucune attention à Lie Yunzi. Ils se trouvaient dans la Secte Divine de l'Oiseau Vermillon; Lie Yunzi ne pouvait donc pas échapper à son emprise.
 
 Si cet homme n'avait pas formulé une requête aussi insensée, Wang Lin n'en serait pas arrivé là. Mais désormais, il devait donner une leçon à Lie Yunzi. Et non seulement lui, mais même les quatre anciens derrière lui le fixaient d'un regard glacial.
 
@@ -86,7 +86,7 @@ Wang Lin n'osait même pas décliner l'invitation. Lie Yunzi en était parfaitem
 
 Si ce n'était pas pour Qing Shui, Wang Lin serait déjà devenu son pantin. Mais aujourd'hui, il devait subir l'humiliation de s'incliner devant lui et de devoir justifier ses propos. Comment pouvait-il supporter cela?
 
-Pourtant, s'il ne le supportait pas, il mourrait sans aucun doute dans la Secte Divine Oiseau Vermillon!
+Pourtant, s'il ne le supportait pas, il mourrait sans aucun doute dans la Secte Divine de l'Oiseau Vermillon!
 
 Insulter l'Empereur Divin... Ces quatre mots suffisaient à lui interdire toute sortie des Quatre Sectes Divines...
 

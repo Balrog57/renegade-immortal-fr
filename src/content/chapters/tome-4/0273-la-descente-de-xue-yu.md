@@ -72,7 +72,7 @@ En regardant de près ces géants, on pouvait apercevoir un cultivateur logé da
 
 Ces barbares antiques sortirent des piliers un à un et chargèrent les troupes de Xue Yu. Ils étaient légion, et chaque pas qu'ils faisaient semblait faire trembler la terre et le ciel.
 
-Tandis que ces barbares s'élançaient, un rugissement de colère retentit depuis la Secte du Nuage Blanc, à l'est.
+Tandis que ces barbares s'élançaient, un rugissement de colère retentit depuis la Secte Bai Yun, à l'est.
 
 Un immense rocher noir flottait dans les airs. Sur ce bloc était retenu un vieil homme par neuf chaînes. Son visage était jaunâtre et son corps d'une maigreur extrême. Il exhalait une aura de mort et n'était couvert que par quelques lambeaux de tissu.
 

@@ -55,7 +55,7 @@ Pourtant, ce mortel venait d'apparaître silencieusement devant eux. C'était co
 Ajouté à la présence des trésors magiques, même pour des sots, il était devenu évident que l'homme face à eux était un senior avec lequel il ne fallait pas chercher querelle.
 
 Ils se regardèrent et s'inclinèrent respectueusement: 
-— Salutations, Senior. Ces juniors sont des disciples de la Secte du Nuage Blanc. Nous avons été impolis et espérons que le Senior nous pardonnera.
+— Salutations, Senior. Ces juniors sont des disciples de la Secte Bai Yun. Nous avons été impolis et espérons que le Senior nous pardonnera.
 
 Wang Lin demanda simplement: 
 — Avez-vous 4 500 pièces d'or?

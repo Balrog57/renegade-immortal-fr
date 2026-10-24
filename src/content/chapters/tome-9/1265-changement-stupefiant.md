@@ -42,13 +42,13 @@ Le Royaume du Vide Brillant avait été détruit, et elle seule en subsistait. D
 
 Sa conversation avec Wang Lin avait dénoué les attaches mortelles de son cœur. Elle enfouit ce souvenir au plus profond de son âme et le scella.
 
-Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Éternelle pour regagner la Secte Briseur de Ciel!
+Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Éternelle pour regagner la Secte Brise-Ciel!
 
 On aurait dit que la tempête approchait.
 
-Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Briseur de Ciel lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
+Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Brise-Ciel lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
 
-Elle n'eut que le temps de dire adieu, avec sa sérénité habituelle, avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Briseur de Ciel.
+Elle n'eut que le temps de dire adieu, avec sa sérénité habituelle, avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Brise-Ciel.
 
 Son cœur était troublé. Elle ignorait pourquoi son maître avait envoyé une telle requête empreinte d'anxiété. Dans ses souvenirs, son maître avait toujours été calme; il n'avait jamais agi ainsi. Elle ne savait pas pourquoi, mais elle pressentait que le malheur approchait.
 
@@ -94,7 +94,7 @@ Choqué, Wang Lin retira son Sens Divin. Il rendit le jade à la Secte Éternell
 
 Les membres de la Secte Éternelle étaient tous partagés par des sentiments complexes. Beaucoup étaient furieux, mais impuissants, contraints à l'acceptation.
 
-« Li Qianmei a répondu à la convocation de la Secte Briseur de Ciel et est partie précipitamment... Mu Bingmei et Wang Shanshan ont été rappelées sans en connaître la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
+« Li Qianmei a répondu à la convocation de la Secte Brise-Ciel et est partie précipitamment... Mu Bingmei et Wang Shanshan ont été rappelées sans en connaître la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
 
 « Se pourrait-il qu'un événement majeur se prépare dans la Mer des Nuages? » Wang Lin fronça les sourcils, profondément perplexe.
 
@@ -106,7 +106,7 @@ Wang Lin avait le vague pressentiment que le malheur approchait. Cette sensation
 
 Cette fois, il ne fusionnait pas avec Tian Yunzi pour combattre un ennemi, mais pour emprunter sa puissance afin de forcer la prédiction de l'inconnu!
 
-Au même moment, dans la Secte Briseur de Ciel de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
+Au même moment, dans la Secte Brise-Ciel de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
 
 Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert; elle était devenue une formation de scellement! Son maître était sorti de sa culture en ermitage de près de dix mille ans et était assis en tailleur à l'extérieur de la formation. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément!
 

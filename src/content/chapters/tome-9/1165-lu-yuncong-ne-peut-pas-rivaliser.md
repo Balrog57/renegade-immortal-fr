@@ -50,7 +50,7 @@ En chemin, Lu Yuncong et Li Qianmei discutèrent tranquillement, échangeant leu
 
 Le vieil homme restait à quelques pas derrière. Son regard se posait occasionnellement sur eux. On lisait une certaine étrangeté dans ses yeux, mais aussi une pointe de joie.
 
-« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors notre Secte Dao Pourpre pourra se faire connaître dans toute la Mer des Nuages! »
+« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors notre Secte du Dao Pourpre pourra se faire connaître dans toute la Mer des Nuages! »
 
 Depuis qu'elle avait quitté la Secte Brise-Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
@@ -74,7 +74,7 @@ Li Qianmei dit doucement: « Tout cela n'est que spéculation de Frère Lu. Peut
 
 Le tigre s'arrêta lentement et flotta dans l'espace, fixant froidement l'horizon.
 
-Lu Yuncong regarda l'Ancien à ses côtés et dit calmement: « La Secte Dao Pourpre et la Secte de l'Origine partagent la même secte principale. Il n'est pas nécessaire de créer trop de confusion. J'irai seul, attendez ici tous ensemble. »
+Lu Yuncong regarda l'Ancien à ses côtés et dit calmement: « La Secte du Dao Pourpre et la Secte de l'Origine partagent la même secte principale. Il n'est pas nécessaire de créer trop de confusion. J'irai seul, attendez ici tous ensemble. »
 
 Le vieil homme acquiesça.
 

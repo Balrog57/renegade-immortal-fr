@@ -74,7 +74,7 @@ L'épée volante que Sun Zhenwei avait offerte à Wang Lin n'avait toujours donn
 
 Cependant, il ne restait qu'un peu plus d'un mois avant la cérémonie du couple de culture. Chaque fois que des gens de diverses sectes venaient le féliciter, il devait les recevoir, ce qui l'empêchait de se consacrer pleinement à ses soupçons.
 
-Les quelques ancêtres de la Secte Ciel Nuageux, au stade avancé de l'Âme Naissante, savaient que Li Muwan n'appréciait guère l'idée de cette cérémonie; ils ne s'interrogeaient donc pas sur sa présence prolongée à la bibliothèque. Ils avaient même grand ouvert pour elle la bibliothèque intérieure, rarement accessible, afin de réparer un peu la fissure creusée entre eux par la cérémonie.
+Les quelques ancêtres de la Secte du Ciel Nuageux, au stade avancé de l'Âme Naissante, savaient que Li Muwan n'appréciait guère l'idée de cette cérémonie; ils ne s'interrogeaient donc pas sur sa présence prolongée à la bibliothèque. Ils avaient même grand ouvert pour elle la bibliothèque intérieure, rarement accessible, afin de réparer un peu la fissure creusée entre eux par la cérémonie.
 
 À vingt jours de la cérémonie, Li Muwan trouva enfin une autre méthode, dotée d'un taux de réussite plus élevé.
 
@@ -92,7 +92,7 @@ Sans cette lucidité, il lui aurait été presque impossible de survivre en tant
 
 Cette prudence n'était pas sans lien avec Wang Lin. On pouvait dire qu'une partie de sa vigilance était une habitude acquise peu à peu durant les années passées avec lui dans la Mer des Démons. Cette prudence lui avait sauvé la vie à maintes reprises après leur séparation.
 
-Elle savait que dans la Secte Ciel Nuageux, certains, notamment Sun Zhenwei, cherchaient à découvrir l'objet de ses recherches.
+Elle savait que dans la Secte du Ciel Nuageux, certains, notamment Sun Zhenwei, cherchaient à découvrir l'objet de ses recherches.
 
 Sa prudence jouait donc un rôle crucial. Même si quelqu'un venait l'espionner, il lui serait extrêmement difficile de débusquer sa véritable quête.
 
@@ -204,4 +204,4 @@ Lorsque Wang Lin réapparut, il vit Li Muwan.
 
 Devant lui se trouvait une petite chambre. Bien que l'espace fût restreint, l'élément le plus frappant était le fourneau à pilules. Sur celui-ci étaient moulés sept dragons noirs qui crachaient une fumée violette s'élevant lentement pour se condenser en une sphère pourpre.
 
-Au cœur de cette sphère se trouvait un petit fourneau surmonté d'un papier jaune. Les yeux de Li Muwan étaient rivés sur l'objet, le visage tendu. Lorsqu'elle vit Wang Lin, elle murmura: « Juste au-dessus de nous se trouve la place du grand hall de la Secte Ciel Nuageux. Pour briser ce sceau, nous devrons emprunter la puissance des sept Fours à Pilules « Vol de Ciel ». »
+Au cœur de cette sphère se trouvait un petit fourneau surmonté d'un papier jaune. Les yeux de Li Muwan étaient rivés sur l'objet, le visage tendu. Lorsqu'elle vit Wang Lin, elle murmura: « Juste au-dessus de nous se trouve la place du grand hall de la Secte du Ciel Nuageux. Pour briser ce sceau, nous devrons emprunter la puissance des sept Fours à Pilules « Vol de Ciel ». »

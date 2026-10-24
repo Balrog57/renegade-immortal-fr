@@ -46,7 +46,7 @@ Lanmeng Daozun avait aidé Wang Lin à créer cela. C'était parfait, sans la mo
 
 « Arsenal Magique! » Wang Lin ouvrit la bouche et cracha le Sceau Céleste. Un rugissement tonitruant résonna tandis que Wang Lin agitait ses manches. Dans un éclat de lumière, d'innombrables âmes de combat apparurent.
 
-Des vagues de hurlements lugubres résonnèrent dans le ciel. Ces âmes guerrières dégageaient toutes une aura féroce. Beaucoup appartenaient au Système Stellaire Antique. Outre les centaines de cultivateurs à l'extérieur de la Formation de Scellement, il y avait un grand nombre de membres du Clan de la Lune et tous les autres que Wang Lin avait dévorés en chemin!
+Des vagues de hurlements lugubres résonnèrent dans le ciel. Ces âmes guerrières dégageaient toutes une aura féroce. Beaucoup appartenaient au Système Stellaire Antique. Outre les centaines de cultivateurs à l'extérieur de la Formation de Scellement, il y avait un grand nombre de membres du Clan Dévorant la Lune et tous les autres que Wang Lin avait dévorés en chemin!
 
 Les cultivateurs du Système Stellaire Antique portaient tous une marque clignotant entre leurs sourcils. Qu'ils apparaissent ainsi sous forme d'âmes de combat offrait une scène terrifiante à quiconque la contemplait!
 

@@ -98,7 +98,7 @@ Ils attendaient... Ils attendaient que le Souverain vienne personnellement cherc
 
 Cependant, entre-temps, un immense bouleversement survint. La fille du Souverain fut scellée par Qing Lin dans la Terre des Esprits Démoniaques. Le Clan du Tatouage fut massacré par les quatre Royaumes Célestes et laissé en ruines.
 
-Une partie des membres du clan fut prise comme esclave par les êtres célestes et devint le Clan Immortel Élu...
+Une partie des membres du clan fut prise comme esclave par les êtres célestes et devint le Clan des Immortels Élus...
 
 Un groupe d'entre eux partit pour la planète Suzaku où ils survécurent. Cette porte était entre leurs mains et fut enterrée ici. La vérité s'était peu à peu estompée, remplacée par une légende racontant que la 19e couche scellait une partie de l'âme de leur ancêtre.
 

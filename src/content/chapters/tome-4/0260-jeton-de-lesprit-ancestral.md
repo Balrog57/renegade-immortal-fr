@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 260 - Ancestral Spirit Token
 slug: jeton-de-lesprit-ancestral
 ---
-La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit: « Bien que le niveau de culture du Senior soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à ma Secte Nuage Blanc! »
+La personne que le vieil homme désignait était une femme âgée. Ses yeux étaient légèrement voilés alors qu'elle fixait le vieil homme et dit: « Bien que le niveau de culture du Senior soit immense, cela ne signifie pas pour autant que vous puissiez donner des ordres à ma Secte Bai Yun! »
 
 Le vieil homme marmonna quelques mots. Il sortit impatiemment un sac de rangement usé et sale. Après avoir fouillé longuement dans le sac, il en tira finalement un jeton de bois noir. Des traces de graisse et des feuilles de légumes s'y accrochaient encore lorsqu'il le jeta négligemment dans la main de la vieille femme.
 
 Dès que celle-ci vit le jeton, son expression changea et elle s'exclama: « Le Jeton de l'Esprit Ancestral! »
 
-L'homme d'âge moyen tendit immédiatement la main pour saisir le jeton. Il forma quelques sceaux et les appliqua sur l'objet. Soudain, le jeton émit une lumière arc-en-ciel persistante. L'homme d'âge moyen esquissa un sourire amer et dit respectueusement au vieil homme: « Puisque le Senior possède le Jeton de l'Esprit Ancestral, nous devons obéir. Mais êtes-vous certain de vouloir utiliser ce jeton pour demander aux cultivateurs de la Formation de l'Âme de la Secte Nuage Blanc d'aider votre disciple à expérimenter des domaines? »
+L'homme d'âge moyen tendit immédiatement la main pour saisir le jeton. Il forma quelques sceaux et les appliqua sur l'objet. Soudain, le jeton émit une lumière arc-en-ciel persistante. L'homme d'âge moyen esquissa un sourire amer et dit respectueusement au vieil homme: « Puisque le Senior possède le Jeton de l'Esprit Ancestral, nous devons obéir. Mais êtes-vous certain de vouloir utiliser ce jeton pour demander aux cultivateurs de la Formation de l'Âme de la Secte Bai Yun d'aider votre disciple à expérimenter des domaines? »
 
 Le vieil homme sourit avec fierté à Wang Lin et renifla avec mépris vers l'homme d'âge moyen. Il tonna: « Bien sûr! Maintenant, cessez vos bêtises. Toi, sors! » Sur ce, il désigna la vieille femme.
 
@@ -38,7 +38,7 @@ Le regard du vieil homme balaya le groupe et se posa sur un homme âgé vêtu de
 
 L'homme en cyan leva la tête. Sans même regarder Wang Lin, il répondit: « Il ne pourra pas résister à mon domaine. »
 
-Le vieil homme arqua un sourcil. Il agita la main et lança: « Balivernes! Avec moi ici, même si le vieux Bai Yun de votre Secte Nuage Blanc, venait en personne, je serais capable de le tenir en respect. » Sur ce, il lança un regard malicieux vers les profondeurs de la Secte Nuage Blanc.
+Le vieil homme arqua un sourcil. Il agita la main et lança: « Balivernes! Avec moi ici, même si le vieux Bai Yun de votre Secte Bai Yun, venait en personne, je serais capable de le tenir en respect. » Sur ce, il lança un regard malicieux vers les profondeurs de la Secte Bai Yun.
 
 L'homme en cyan ne répondit plus et se tapota le front. Soudain, une ouverture noire apparut sur son front et une épée volante de la taille d'une paume en jaillit. L'épée se mua en un éclair et fendit l'air vers Wang Lin.
 
@@ -76,7 +76,7 @@ Wang Lin hésita un instant. Voyant que le vieil homme s'apprêtait à s'en alle
 
 Le vieil homme se retourna vers lui avec un sourire empreint de fierté: « Ce vieux truc n'est rien. J'en ai plein ici. » Il sortit alors divers jetons en disant: « Celui-ci est celui de la Secte de l'Évasion Céleste, celui-là celui de la Secte de la Brume Spirituelle, celui-ci appartient au Clan des Démons Géants d'un pays de culture de rang 4, et celui-là à un pays de rang 5... »
 
-Wang Lin restait bouche bée tandis qu'il présentait chaque jeton. Le visage du vieil homme rayonnait de fierté, comme s'il manipulait ses jouets préférés. Finalement, il agita la main et sortit un jeton vierge: « En plus de ceux-là, je peux fabriquer un jeton pour n'importe quelle secte. Hehe, j'ai vendu d'innombrables jetons au fil des ans. Tu peux aller vérifier ma réputation si tu le souhaites, elle est excellente. Que dirais-tu du jeton du chef de la Secte Nuage Blanc? »
+Wang Lin restait bouche bée tandis qu'il présentait chaque jeton. Le visage du vieil homme rayonnait de fierté, comme s'il manipulait ses jouets préférés. Finalement, il agita la main et sortit un jeton vierge: « En plus de ceux-là, je peux fabriquer un jeton pour n'importe quelle secte. Hehe, j'ai vendu d'innombrables jetons au fil des ans. Tu peux aller vérifier ma réputation si tu le souhaites, elle est excellente. Que dirais-tu du jeton du chef de la Secte Bai Yun? »
 
 Wang Lin réfléchit un moment. Il regarda une dernière fois le vieil homme, puis se détourna et partit.
 

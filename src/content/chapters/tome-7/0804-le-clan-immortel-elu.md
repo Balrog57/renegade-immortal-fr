@@ -1,6 +1,6 @@
 ---
 n: 804
-title: Le Clan Immortel Élu
+title: Le Clan des Immortels Élus
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 804 - The Chosen Immortal Clan

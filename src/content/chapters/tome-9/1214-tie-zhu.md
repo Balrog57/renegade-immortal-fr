@@ -14,7 +14,7 @@ Cependant, le Dao était différent. Il était très rare que quelqu'un maîtris
 
 Une bataille de domaines était une confrontation entre les domaines respectifs et une lutte de l'esprit. En revanche, un sort Dao était un pouvoir sublime spécialisé dans la destruction de l'âme!
 
-Chacun acquiert une compréhension différente au sein du Royaume du Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan de l'Extermination Scellée, il eut le privilège d'entrer brièvement dans le Royaume du Dao. Là, il comprit une vérité sur les origines d'un être.
+Chacun acquiert une compréhension différente au sein du Royaume du Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan de l'Extermination des Sceaux, il eut le privilège d'entrer brièvement dans le Royaume du Dao. Là, il comprit une vérité sur les origines d'un être.
 
 Quelle était l'origine d'une personne? À ses yeux, c'étaient les souvenirs de l'âme. Il croyait que la vie entière d'un individu n'était en réalité qu'une succession de souvenirs. Si ces souvenirs n'étaient pas éteints, alors même si cette personne mourait, elle pourrait vivre indéfiniment...
 

@@ -86,7 +86,7 @@ En revanche, Treize et Hu Pao qui le suivaient étaient imprégnés d'énergie s
 
 Alors que Wang Lin se rapprochait, l'un des soldats en armure noire s'avança. Il pointa sa lance vers Wang Lin et dit froidement: « Reculez! »
 
-« Impudence! » Sans attendre que Wang Lin ne parle, Treize fit un pas en avant et envoya un coup de poing. Dans son esprit, quiconque osait manquer de respect à Wang Lin était son ennemi. Il ne se retint absolument pas sur ce coup; la technique de raffinement du corps du Clan du Démon Géant rendait sa chair aussi dure que le métal. Ce poing fut comme une épée volante brisant le mur du son. Même l'espace autour de son poing sembla se courber en fonçant vers le soldat démon.
+« Impudence! » Sans attendre que Wang Lin ne parle, Treize fit un pas en avant et envoya un coup de poing. Dans son esprit, quiconque osait manquer de respect à Wang Lin était son ennemi. Il ne se retint absolument pas sur ce coup; la technique de raffinement du corps du Clan des Démons Géants rendait sa chair aussi dure que le métal. Ce poing fut comme une épée volante brisant le mur du son. Même l'espace autour de son poing sembla se courber en fonçant vers le soldat démon.
 
 L'expression du soldat changea radicalement. À ses yeux, le coup de Treize arrivait comme une météorite et contenait une puissance mystérieuse. Il voulut esquiver, mais sentit quelque chose l'immobiliser. Il eut l'impression d'être sous l'eau, ses mouvements devenant d'une lenteur exaspérante.
 

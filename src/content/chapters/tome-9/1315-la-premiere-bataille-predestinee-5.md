@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1315 - The First Predestined Battle (5)
 slug: la-première-bataille-predestinee-5
 ---
-Après avoir quitté la formation, Wang Lin savait que Tuo Sen ne le laisserait pas filer. Bien qu'il fût gravement blessé à cet instant, il serra les dents et se mit à dévorer avec frénésie. Tous les membres du Clan de la Lune n'étaient pas puissants; la plupart des cent mille individus ne résistèrent même pas une seule attaque.
+Après avoir quitté la formation, Wang Lin savait que Tuo Sen ne le laisserait pas filer. Bien qu'il fût gravement blessé à cet instant, il serra les dents et se mit à dévorer avec frénésie. Tous les membres du Clan Dévorant la Lune n'étaient pas puissants; la plupart des cent mille individus ne résistèrent même pas une seule attaque.
 
 Wang Lin hurla en se déplaçant pour dévorer d'innombrables personnes. Ses blessures guérissaient à un rythme stupéfiant. Tous les os de son corps se régénérèrent et ses plaies se refermèrent rapidement.
 
-Le domaine stellaire du Clan de la Lune tout entier était plongé dans le chaos! Tous ces vieillards du Clan de la Lune assis sur les planètes de culture crachèrent du sang lors de l'effondrement de la formation de scellement divin, mais ils retrouvèrent aussitôt leur concentration. Leurs yeux commencèrent à luire d'un rouge éclatant; une partie d'entre eux se dirigea vers le brouillard noir formé par Wang Lin, tandis que les autres chargèrent vers Tuo Sen sous la conduite du vieil homme aux cheveux blancs!
+Le domaine stellaire du Clan Dévorant la Lune tout entier était plongé dans le chaos! Tous ces vieillards du Clan Dévorant la Lune assis sur les planètes de culture crachèrent du sang lors de l'effondrement de la formation de scellement divin, mais ils retrouvèrent aussitôt leur concentration. Leurs yeux commencèrent à luire d'un rouge éclatant; une partie d'entre eux se dirigea vers le brouillard noir formé par Wang Lin, tandis que les autres chargèrent vers Tuo Sen sous la conduite du vieil homme aux cheveux blancs!
 
 Le vieil homme aux cheveux blancs poussa un rugissement et agita sa main droite. Son corps commença à s'étendre et le croissant de lune entre ses sourcils se mit à pivoter. Sa stature atteignit des milliers de pieds, presque égale à celle d'un Ancien Dieu!
 
-C'était un sort que leur Clan de la Lune avait conçu après d'innombrables années de recherche, dans l'espoir de devenir eux-mêmes des Anciens Dieux! En ayant absorbé la puissance des Anciens Dieux, ils pouvaient simuler une telle entité dans une certaine mesure!
+C'était un sort que leur Clan Dévorant la Lune avait conçu après d'innombrables années de recherche, dans l'espoir de devenir eux-mêmes des Anciens Dieux! En ayant absorbé la puissance des Anciens Dieux, ils pouvaient simuler une telle entité dans une certaine mesure!
 
 Il n'était pas le seul à se transformer en un géant de plusieurs milliers de pieds; ils étaient neuf au total! Une fois transformés en géants, ces neuf individus obtinrent une puissance terrifiante, et des grondements tonitruants résonnèrent alors qu'ils affrontaient Tuo Sen!
 
@@ -22,13 +22,13 @@ Cependant, ils n'étaient absolument pas de taille face à Tuo Sen. Sous les rug
 
 Lorsque ces vieillards s'approchaient de Wang Lin, celui-ci fusionnait avec le monde pour disparaître. Puis, il réapparaissait ailleurs et recommençait à dévorer comme un possédé.
 
-Des cris lugubres résonnèrent dans le vide et, en un instant, plus de trente mille membres du Clan de la Lune furent dévorés par Wang Lin. La majeure partie de ses blessures guérissait instantanément. Cette fois, sans attendre que les vieillards du Clan de la Lune ne chargent, Wang Lin se jeta sur eux!
+Des cris lugubres résonnèrent dans le vide et, en un instant, plus de trente mille membres du Clan Dévorant la Lune furent dévorés par Wang Lin. La majeure partie de ses blessures guérissait instantanément. Cette fois, sans attendre que les vieillards du Clan Dévorant la Lune ne chargent, Wang Lin se jeta sur eux!
 
 Tuo Sen poussa un rugissement.
 
 « Brise-toi pour moi! » Dans un fracas assourdissant, l'un des vieillards qui imitait un Ancien Dieu explosa sous le coup de poing de Tuo Sen. Cependant, avant que son corps ne puisse se dissiper, un brouillard noir enveloppa immédiatement l'homme. Wang Lin suivait déjà la bataille de près; il entoura le vieillard avant sa mort et commença à le dévorer!
 
-Le Clan de la Lune était en plein désarroi. Ses membres battirent en retraite rapidement, les visages empreints de choc et d'horreur. C'était la première fois que beaucoup d'entre eux voyaient un Ancien Dieu vivant, et la première fois qu'ils mesuraient sa puissance véritable!
+Le Clan Dévorant la Lune était en plein désarroi. Ses membres battirent en retraite rapidement, les visages empreints de choc et d'horreur. C'était la première fois que beaucoup d'entre eux voyaient un Ancien Dieu vivant, et la première fois qu'ils mesuraient sa puissance véritable!
 
 Bien que ce fût la première fois que Tuo Sen et Wang Lin coopéraient, ils se comprenaient parfaitement. Mais cette entente vola en éclats lorsque le regard de Tuo Sen devint glacial et que sa main droite s'abattit vers Wang Lin après avoir pulvérisé ce vieillard!
 
@@ -54,15 +54,15 @@ Le coup balaya la main et l'index de Tuo Sen fut tranché! Depuis le début du c
 
 Chaque doigt est relié au cœur : les yeux de Tuo Sen furent envahis par une intention meurtrière monstrueuse. À cet instant, il ne pensait même plus à dévorer. Son seul désir était de tuer, tuer, tuer, tuer! Tuer ce membre de son propre clan!
 
-Cependant, alors que Wang Lin et Tuo Sen s'affrontaient, les vieillards du Clan de la Lune blessés par Tuo Sen se retirèrent immédiatement. Le plus haut gradé était le vieil homme aux cheveux blancs. Il avait une expression féroce et du sang coulait du coin de sa bouche. Il avait compris que Wang Lin ne faisait pas le poids face à Tuo Sen. Une fois qu'un vainqueur serait désigné entre les deux Anciens Dieux, leur Clan de la Lune serait condamné!
+Cependant, alors que Wang Lin et Tuo Sen s'affrontaient, les vieillards du Clan Dévorant la Lune blessés par Tuo Sen se retirèrent immédiatement. Le plus haut gradé était le vieil homme aux cheveux blancs. Il avait une expression féroce et du sang coulait du coin de sa bouche. Il avait compris que Wang Lin ne faisait pas le poids face à Tuo Sen. Une fois qu'un vainqueur serait désigné entre les deux Anciens Dieux, leur Clan Dévorant la Lune serait condamné!
 
 Ainsi, il n'hésita pas à aider Wang Lin. C'était aussi une opportunité pour son clan!
 
-« Membres du clan, brisez vos Esprits Lunaires et offrez-les en sacrifice pour le Clan de la Lune! »
+« Membres du clan, brisez vos Esprits Lunaires et offrez-les en sacrifice pour le Clan Dévorant la Lune! »
 
 Les quelques hommes à ses côtés eurent le visage empreint de tristesse, mais sans la moindre hésitation, ils formèrent des sceaux et se frappèrent entre les sourcils. Leurs corps s'effondrèrent d'un coup, et les croissants de lune qui marquaient leurs fronts s'envolèrent pour se fondre ensemble dans le corps du vieil homme aux cheveux blancs.
 
-Le corps du vieil homme commença aussitôt à gonfler; il pointa impitoyablement vers le bas et cria d'une voix rauque: « Invoquez à nouveau le trésor du Clan de la Lune: l'Os Fragmentaire d'Ancien Dieu! »
+Le corps du vieil homme commença aussitôt à gonfler; il pointa impitoyablement vers le bas et cria d'une voix rauque: « Invoquez à nouveau le trésor du Clan Dévorant la Lune: l'Os Fragmentaire d'Ancien Dieu! »
 
 Au moment où ses paroles résonnèrent, la lumière lunaire autour de son corps devint monstrueuse. Le doigt de l'Ancien Dieu, planté profondément dans le sol, s'éleva soudainement et chargea vers Tuo Sen!
 
@@ -94,9 +94,9 @@ Cependant, Tuo Sen était trop gravement blessé et continuait de cracher du san
 
 Le corps de Tuo Sen trembla et son expression changea radicalement. Contre toute attente, il abandonna l'idée de poursuivre Wang Lin et s'enfuit précipitamment en crachant du sang!
 
-L'onde de choc provenant du doigt brisé balaya les environs. Le vieil homme aux cheveux blancs du Clan de la Lune fut frappé par le souffle. Des bruits de craquements retentirent dans son corps, le faisant cracher du sang avant que son corps charnel ne s'effondre. Son âme originelle affaiblie s'échappa pour tenter de survivre.
+L'onde de choc provenant du doigt brisé balaya les environs. Le vieil homme aux cheveux blancs du Clan Dévorant la Lune fut frappé par le souffle. Des bruits de craquements retentirent dans son corps, le faisant cracher du sang avant que son corps charnel ne s'effondre. Son âme originelle affaiblie s'échappa pour tenter de survivre.
 
-Les membres du Clan de la Lune qui n'avaient pas réussi à fuir furent balayés par cette onde de choc. Ils explosèrent comme si une main gigantesque les avait écrasés. D'innombrables vies furent fauchées!
+Les membres du Clan Dévorant la Lune qui n'avaient pas réussi à fuir furent balayés par cette onde de choc. Ils explosèrent comme si une main gigantesque les avait écrasés. D'innombrables vies furent fauchées!
 
 Quant à Wang Lin, il cracha également du sang car il était trop proche du doigt. Bien que la majorité de l'onde ait été dirigée vers Tuo Sen, une part importante s'était abattue sur lui.
 
@@ -110,6 +110,6 @@ Pourtant, juste avant son départ, bien que ses yeux soient injectés de sang et
 
 Le Fouet Kunji!
 
-Dès son apparition, le fouet s'étira à une longueur infinie et enroula l'âme originelle fuyante du vieil homme aux cheveux blancs. D'un coup sec, l'âme fut ramenée en arrière, puis Wang Lin disparut du domaine stellaire du Clan de la Lune, emportant avec lui le gigantesque doigt d'Ancien Dieu!
+Dès son apparition, le fouet s'étira à une longueur infinie et enroula l'âme originelle fuyante du vieil homme aux cheveux blancs. D'un coup sec, l'âme fut ramenée en arrière, puis Wang Lin disparut du domaine stellaire du Clan Dévorant la Lune, emportant avec lui le gigantesque doigt d'Ancien Dieu!
 
 Ce fut un voyage des plus fructueux!

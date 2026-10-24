@@ -36,7 +36,7 @@ Mais à cet instant précis, son sac de rangement émit une lumière jaune. Quel
 
 Le parchemin mystérieux que Wang Lin avait obtenu par accident des centaines d'années auparavant — celui qu'il avait étudié pendant longtemps et dont il ignorait encore l'usage jusqu'à ce jour — jaillit brusquement.
 
-Les yeux de Wang Lin devinrent graves. Lors de sa première apparition, il avait ému le vieillard bossu du Clan de l'Immortel Délaissé. Ce parchemin devait posséder une origine illustre.
+Les yeux de Wang Lin devinrent graves. Lors de sa première apparition, il avait ému le vieillard bossu du Clan des Immortels Délaissés. Ce parchemin devait posséder une origine illustre.
 
 Il regarda alors le parchemin s'envoler et s'ouvrir lentement. Le parchemin était d'un noir absolu et des vagues de hurlements en émanaient.
 

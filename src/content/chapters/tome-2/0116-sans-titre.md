@@ -58,7 +58,7 @@ Lin Yi se frotta le menton en observant le drapeau et secoua la tête: « Ce dra
 
 En entendant cela, Pu Nanzi acquiesça: « Ce que dit le seigneur messager est exact. Lorsque j'étais sur le champ de bataille étranger, j'ai vu un drapeau d'âmes possédant plus de dix millions d'âmes. Sa puissance était véritablement terrifiante. »
 
-Lin Yi eut un petit rire et secoua la tête: « Ce n'est là qu'un drapeau d'âmes partiellement achevé provenant d'un pays de culture de rang 4. La Secte du Raffinement des Âmes, dans le pays de rang 5 de Pi Lu, possède un drapeau d'âmes comme trésor de secte. On raconte que le nombre d'âmes à l'intérieur de ce drapeau dépasse le milliard et qu'il a fallu plusieurs milliers d'années pour le fabriquer. »
+Lin Yi eut un petit rire et secoua la tête: « Ce n'est là qu'un drapeau d'âmes partiellement achevé provenant d'un pays de culture de rang 4. La Secte de l'Affinement de l'Âme, dans le pays de rang 5 de Pi Lu, possède un drapeau d'âmes comme trésor de secte. On raconte que le nombre d'âmes à l'intérieur de ce drapeau dépasse le milliard et qu'il a fallu plusieurs milliers d'années pour le fabriquer. »
 
 Teng Huayuan agita son drapeau et les 30 000 âmes volèrent vers le dragon géant. En un clin d'œil, les âmes entourèrent la créature et pénétrèrent en elle, mais un phénomène étrange se produisit alors.
 

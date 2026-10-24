@@ -20,13 +20,13 @@ Il n'en était pas certain, et il n'osait même pas y songer, bien que tous les 
 
 L'esprit de Tuo Sen trembla et les six étoiles cessèrent de tourner. Un rare signe d'hésitation et de choc apparut dans ses yeux.
 
-Alors que son esprit sombrait dans le chaos et que cette hésitation qui ne devait pas exister s'était manifestée, un changement prodigieux survint dans le domaine du Clan de la Lune!
+Alors que son esprit sombrait dans le chaos et que cette hésitation qui ne devait pas exister s'était manifestée, un changement prodigieux survint dans le domaine du Clan Dévorant la Lune!
 
-Des hurlements jaillirent du clair de lune effondré et une aura puissante déferla de toutes les directions telle une tempête. Ce tumulte résonna dans tout le domaine du Clan de la Lune!
+Des hurlements jaillirent du clair de lune effondré et une aura puissante déferla de toutes les directions telle une tempête. Ce tumulte résonna dans tout le domaine du Clan Dévorant la Lune!
 
 « Formation de Scellement Divin, ouvrez-vous!! » Une voix antique, empreinte de folie, d'excitation et d'une peur cachée, retentit à travers le domaine stellaire!
 
-À l'écho de sa voix, des ombres apparurent dans le silence du domaine du Clan de la Lune! Des hommes et des femmes, tous arborant une marque en croissant de lune entre les sourcils!
+À l'écho de sa voix, des ombres apparurent dans le silence du domaine du Clan Dévorant la Lune! Des hommes et des femmes, tous arborant une marque en croissant de lune entre les sourcils!
 
 Ils étaient d'un nombre prodigieux, pas moins de 100 000, occupant désormais tout l'espace environnant. Chacun d'eux occupait une position calculée d'innombrables fois pour constituer cette Formation de Scellement Divin!
 
@@ -38,27 +38,27 @@ Le vide n'existait plus! Il fut remplacé par la lumière lunaire. Le monde avai
 
 Un croissant de lune gigantesque apparut dans le ciel. Une lueur lunaire sans fin s'en dégagea et enveloppa toute chose!
 
-Un vieil homme du Clan de la Lune siégeait sur chacune des centaines de planètes de culture du domaine stellaire. Chacun d'eux déployait sa pleine puissance pour permettre à la lumière lunaire d'atteindre son apogée!
+Un vieil homme du Clan Dévorant la Lune siégeait sur chacune des centaines de planètes de culture du domaine stellaire. Chacun d'eux déployait sa pleine puissance pour permettre à la lumière lunaire d'atteindre son apogée!
 
-Pour le Clan de la Lune, les anciens dieux morts ne valaient pas un ancien dieu vivant, et a fortiori un ancien dieu royal vivant. Cela représentait une tentation fulgurante!
+Pour le Clan Dévorant la Lune, les anciens dieux morts ne valaient pas un ancien dieu vivant, et a fortiori un ancien dieu royal vivant. Cela représentait une tentation fulgurante!
 
-S'ils pouvaient sceller un ancien dieu royal vivant pour en faire leur esclave, l'idée seule suffisait à faire trembler l'âme originelle de n'importe quel membre du Clan de la Lune d'excitation et à provoquer un rugissement.
+S'ils pouvaient sceller un ancien dieu royal vivant pour en faire leur esclave, l'idée seule suffisait à faire trembler l'âme originelle de n'importe quel membre du Clan Dévorant la Lune d'excitation et à provoquer un rugissement.
 
-Une fois qu'ils auraient réussi, le Clan de la Lune pourrait renaître de ses cendres!
+Une fois qu'ils auraient réussi, le Clan Dévorant la Lune pourrait renaître de ses cendres!
 
-Pour attendre ce jour, le Clan de la Lune s'était préparé depuis d'innombrables dizaines de milliers d'années, afin qu'un jour, il puisse sceller un ancien dieu vivant!
+Pour attendre ce jour, le Clan Dévorant la Lune s'était préparé depuis d'innombrables dizaines de milliers d'années, afin qu'un jour, il puisse sceller un ancien dieu vivant!
 
 Lorsque Tuo Sen était arrivé des années auparavant, bien qu'ils aient ressenti de la peur, ils étaient aussi empreints d'excitation. Ils avaient activé la formation laissée par leur ancêtre et attendu l'arrivée de Tuo Sen.
 
-À l'origine, selon leurs connaissances, en tant qu'ancien dieu, Tuo Sen chercherait certainement le Clan de la Lune. Cependant, ils avaient attendu plus de dix ans sans que Tuo Sen ne vienne!
+À l'origine, selon leurs connaissances, en tant qu'ancien dieu, Tuo Sen chercherait certainement le Clan Dévorant la Lune. Cependant, ils avaient attendu plus de dix ans sans que Tuo Sen ne vienne!
 
-Tandis que le Clan de la Lune continuait d'attendre, Tuo Sen finit par arriver, attiré par Wang Lin!
+Tandis que le Clan Dévorant la Lune continuait d'attendre, Tuo Sen finit par arriver, attiré par Wang Lin!
 
-Ce qui exalta tout le Clan de la Lune, c'est qu'il n'y avait pas un seul ancien dieu royal, mais deux!!
+Ce qui exalta tout le Clan Dévorant la Lune, c'est qu'il n'y avait pas un seul ancien dieu royal, mais deux!!
 
-La formation fut activée et le monde fut recouvert de lumière lunaire. Ce monde de lune était un espace créé par l'ancêtre du Clan de la Lune pour sceller les anciens dieux. Une fois piégé à l'intérieur, il était extrêmement difficile de s'en échapper!
+La formation fut activée et le monde fut recouvert de lumière lunaire. Ce monde de lune était un espace créé par l'ancêtre du Clan Dévorant la Lune pour sceller les anciens dieux. Une fois piégé à l'intérieur, il était extrêmement difficile de s'en échapper!
 
-Tuo Sen était encore sous le choc provoqué par Wang Lin lorsque le Clan de la Lune apparut soudainement et activa la formation. La lumière lunaire enveloppa le monde, ce qui irrita Tuo Sen. Ses six étoiles ne dévorèrent pas Wang Lin comme prévu; elles retournèrent vers lui, puis son bras droit frappa violemment les environs.
+Tuo Sen était encore sous le choc provoqué par Wang Lin lorsque le Clan Dévorant la Lune apparut soudainement et activa la formation. La lumière lunaire enveloppa le monde, ce qui irrita Tuo Sen. Ses six étoiles ne dévorèrent pas Wang Lin comme prévu; elles retournèrent vers lui, puis son bras droit frappa violemment les environs.
 
 Des grondements tonitruants retentirent. La lumière lunaire se mouvait comme de la soie et, au lieu de s'effondrer, elle se tordit. L'infinie clarté lunaire commença à enrouler Tuo Sen et Wang Lin. C'était d'une rapidité fulgurante et, en un clin d'œil, ils semblèrent être enveloppés par une couche de soie!
 
@@ -70,7 +70,7 @@ Cependant, tandis qu'il rugissait, la lumière lunaire se tordit pour former dav
 
 Ces fils de soie étaient extrêmement résistants; alors que Tuo Sen se débattait, bien qu'une grande partie s'effondrât, ils en formaient encore plus!
 
-« Invoquer le trésor du Clan de la Lune, l'Éventail d'Extinction Divine! » La voix antique retentit. La lumière lunaire de ce monde commença à se rassembler pour former un éventail de mille pieds. Dès qu'il apparut, il s'agita avec acharnement!
+« Invoquer le trésor du Clan Dévorant la Lune, l'Éventail d'Extinction Divine! » La voix antique retentit. La lumière lunaire de ce monde commença à se rassembler pour former un éventail de mille pieds. Dès qu'il apparut, il s'agita avec acharnement!
 
 Des grondements tonitruants éclatèrent et une tempête monstrueuse, chargée d'une lumière lunaire infinie, fonça sur Tuo Sen. Celui-ci rugit en brisant une grande quantité de soie et lança un coup de poing vers la tempête approchante.
 
@@ -86,7 +86,7 @@ Tuo Sen subissait le même sort. Alors qu'il rugissait, son poing percuta la tem
 
 Dans sa rage, Tuo Sen sembla perdre la raison, déchaînant une destruction massive dans ce monde de lumière lunaire. Pourtant, plus il détruisait, plus la soie se reformait. En un clin d'œil, le monde devint flou, totalement enveloppé par les fils de soie.
 
-Plus de 10 000 membres du Clan de la Lune, sur les 100 000 que comptait la formation, crachèrent du sang et virent leurs corps exploser, incapables de supporter le contrecoup de la formation. Ils moururent instantanément, mais les marques en croissant de lune entre leurs sourcils s'envolèrent pour se fixer sur la formation!
+Plus de 10 000 membres du Clan Dévorant la Lune, sur les 100 000 que comptait la formation, crachèrent du sang et virent leurs corps exploser, incapables de supporter le contrecoup de la formation. Ils moururent instantanément, mais les marques en croissant de lune entre leurs sourcils s'envolèrent pour se fixer sur la formation!
 
 En un instant, ces plus de 10 000 membres décédés apparurent sous forme d'âmes dans le monde lunaire!
 
@@ -94,22 +94,22 @@ En un instant, ces plus de 10 000 membres décédés apparurent sous forme d'âm
 
 Ces 10 000 lunes grondèrent, et plus de la moitié fonça vers Tuo Sen, tandis que les autres visèrent Wang Lin!
 
-« Invoquer le trésor du Clan de la Lune, les Ailes de la Lune Sanguine!! Sacrifice de sang! » La voix antique résonna une fois de plus. Cette fois, des milliers de membres du Clan de la Lune apparurent dans le monde lunaire. Ils tenaient des bêtes féroces entre leurs mains, lesquelles se débattaient en rugissant.
+« Invoquer le trésor du Clan Dévorant la Lune, les Ailes de la Lune Sanguine!! Sacrifice de sang! » La voix antique résonna une fois de plus. Cette fois, des milliers de membres du Clan Dévorant la Lune apparurent dans le monde lunaire. Ils tenaient des bêtes féroces entre leurs mains, lesquelles se débattaient en rugissant.
 
-Alors que la voix antique retentissait, ces membres du Clan de la Lune affichèrent tous des expressions féroces et abattirent les bêtes. Des torrents de sang et de chair éclatèrent, mais ils furent immédiatement absorbés par la formation.
+Alors que la voix antique retentissait, ces membres du Clan Dévorant la Lune affichèrent tous des expressions féroces et abattirent les bêtes. Des torrents de sang et de chair éclatèrent, mais ils furent immédiatement absorbés par la formation.
 
 Ces milliers de cultivateurs n'étaient que la première vague. Après eux, plusieurs autres vagues apparurent pour sacrifier d'autres bêtes féroces. Même le monde lunaire était désormais saturé d'une lueur sanglante!
 
 Alors que cette lumière rouge continuait de se condenser, deux ailes couleur de sang apparurent et chargèrent vers Wang Lin et Tuo Sen!
 
-« Invoquer le trésor du Clan de la Lune, les Neuf Os de l'Ancien Dieu! » La voix antique était très nette cette fois. Un vieil homme vêtu de noir apparut dans le vide, à l'extérieur de la formation. Son expression était empreinte d'une cupidité démente.
+« Invoquer le trésor du Clan Dévorant la Lune, les Neuf Os de l'Ancien Dieu! » La voix antique était très nette cette fois. Un vieil homme vêtu de noir apparut dans le vide, à l'extérieur de la formation. Son expression était empreinte d'une cupidité démente.
 
 Après que le vieil homme eut parlé, une immense fissure spatiale se forma devant lui et neuf crânes géants d'anciens dieux en sortirent!
 
 Ces neuf crânes dégageaient une aura dense d'ancien dieu et étaient couverts de sceaux lunaires enveloppés de clarté. Dès leur apparition, ils plongèrent dans la formation et chargèrent Wang Lin et Tuo Sen!
 
-« Invoquer le trésor du Clan de la Lune, le Liquide de Décomposition Divine! » Les cheveux blancs du vieil homme bougèrent étrangement. Alors qu'il prononçait ces mots, il mordit le bout de sa langue et cracha un sang noir.
+« Invoquer le trésor du Clan Dévorant la Lune, le Liquide de Décomposition Divine! » Les cheveux blancs du vieil homme bougèrent étrangement. Alors qu'il prononçait ces mots, il mordit le bout de sa langue et cracha un sang noir.
 
-Les cultivateurs du Clan de la Lune sur les centaines de planètes formant la formation mordirent également leur langue et crachèrent un sang noir exhalant une odeur puissante!
+Les cultivateurs du Clan Dévorant la Lune sur les centaines de planètes formant la formation mordirent également leur langue et crachèrent un sang noir exhalant une odeur puissante!
 
 Ce sang semblait doué d'une forme d'intelligence; il se rassembla pour former une mer de sang noir à la puissante puanteur, avant de se précipiter dans la formation!

@@ -46,7 +46,7 @@ Du point de vue de Wang Lin, il fallait parfois mater Xu Liguo; sinon, ce dernie
 
 Avant que Xu Liguo ne soit raffiné en démon, il nourrissait beaucoup de ressentiment, et sa personnalité s'était intensifiée après sa transformation. Comme doté d'un os rebelle de naissance, la seule façon de le dompter était d'être toujours plus fort que lui.
 
-Lorsque Xu Liguo était dans la Bête des Limbes, l'ancien du Clan Immortel Élu le croyait quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
+Lorsque Xu Liguo était dans la Bête des Limbes, l'ancien du Clan des Immortels Élus le croyait quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
 
 Des pensées rebelles apparaissaient parfois dans le cœur de Xu Liguo. Wang Lin en était parfaitement conscient.
 

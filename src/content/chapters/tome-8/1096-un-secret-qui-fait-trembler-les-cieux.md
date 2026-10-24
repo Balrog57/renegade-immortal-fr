@@ -56,13 +56,13 @@ Les informations contenues dans ces quatre jades suffiraient à ébranler l'Alli
 
 Après le départ de Mo Zhi, d'autres vinrent féliciter Wang Lin, mais il ne les reçut pas en personne. Le temps passa et le jour de la cérémonie d'investiture arriva enfin.
 
-Ce jour-là, toute la Secte Divine Oiseau Vermillon était en émoi. Les anciens et les membres des trois autres sectes étaient également présents pour assister au couronnement du nouvel Empereur Divin. Bien que cette cérémonie fût fastidieuse, elle relevait de la tradition et dura toute une journée. Une fois les trois autres sectes parties, la Secte Divine Oiseau Vermillon retrouva peu à peu son calme.
+Ce jour-là, toute la Secte Divine de l'Oiseau Vermillon était en émoi. Les anciens et les membres des trois autres sectes étaient également présents pour assister au couronnement du nouvel Empereur Divin. Bien que cette cérémonie fût fastidieuse, elle relevait de la tradition et dura toute une journée. Une fois les trois autres sectes parties, la Secte Divine de l'Oiseau Vermillon retrouva peu à peu son calme.
 
 De nombreux membres se concentrèrent sur leur culture. Quant aux anciens, tous étaient conscients du plan visant à sauver l'Empereur Divin Dragon Azure; ils s'étaient tous retirés en méditation pour maintenir leur condition au sommet de sa puissance. Après tout, sauver l'Empereur Divin Dragon Azure était une affaire d'une importance capitale!
 
-À cet instant, la silhouette de Wang Lin apparut à la lisière du champ d'étoiles ardent de la Secte Divine Oiseau Vermillon. Une âme originelle flottait devant lui. Cette âme avait l'apparence d'un homme d'âge mûr qui regardait Wang Lin avec des yeux empreints de bienveillance et de satisfaction.
+À cet instant, la silhouette de Wang Lin apparut à la lisière du champ d'étoiles ardent de la Secte Divine de l'Oiseau Vermillon. Une âme originelle flottait devant lui. Cette âme avait l'apparence d'un homme d'âge mûr qui regardait Wang Lin avec des yeux empreints de bienveillance et de satisfaction.
 
-« Tu es très doué. Durant mes dernières années, tu n'as pas été le membre du clan le plus talentueux que j'aie vu, mais tu es celui dont je suis le plus satisfait. Je me sens serein en te laissant la Secte Divine Oiseau Vermillon. »
+« Tu es très doué. Durant mes dernières années, tu n'as pas été le membre du clan le plus talentueux que j'aie vu, mais tu es celui dont je suis le plus satisfait. Je me sens serein en te laissant la Secte Divine de l'Oiseau Vermillon. »
 
 Wang Lin réfléchit silencieusement.
 
@@ -70,9 +70,9 @@ Wang Lin réfléchit silencieusement.
 
 « Pour l'instant, 90 % de mon âme originelle est séparée de moi. Je vais aller absorber tous les avatars que j'ai dispersés. J'ai laissé 10 % de mon âme originelle dans mon corps physique. Une fois le cristal obtenu, j'utiliserai une méthode secrète de transfert d'âme pour l'envoyer vers mon corps. Après avoir reçu le cristal, si tu peux sauver l'Empereur Divin Dragon Azure, fais-le. Sinon, assure d'abord ta propre sécurité. » L'homme parlait comme s'il organisait ses derniers préparatifs pour sa mort.
 
-« Grâce à la pierre de feu blanc qui se trouve sur mon corps, celui-ci ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta culture. Souviens-t'en bien! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon âme. Utilise les Neuf Transformations Mystérieuses pour faire exploser mon corps. Peut-être cela permettra-t-il à toi ou à la Secte Divine Oiseau Vermillon de surmonter une crise. »
+« Grâce à la pierre de feu blanc qui se trouve sur mon corps, celui-ci ne se décomposera pas pendant 3 000 ans. Tous les cent ans, tu devras cultiver près de moi pour absorber l'énergie d'origine du feu stockée en mon sein. Cela sera d'un grand secours pour ta culture. Souviens-t'en bien! Cependant, en cas de situation de vie ou de mort, ne te soucie pas de mon âme. Utilise les Neuf Transformations Mystérieuses pour faire exploser mon corps. Peut-être cela permettra-t-il à toi ou à la Secte Divine de l'Oiseau Vermillon de surmonter une crise. »
 
-L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointaines de la Secte Divine Oiseau Vermillon. La mélancolie et la réticence marquaient son visage.
+L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointaines de la Secte Divine de l'Oiseau Vermillon. La mélancolie et la réticence marquaient son visage.
 
 « Wang Lin, je dois partir... Je chercherai aussi des nouvelles de ton Senior Frère Qing Shui... » L'homme posa sa main droite sur la tête de Wang Lin avec tendresse: « J'espère que tu ne me jugeras pas mal pour t'avoir laissé une situation aussi difficile entre les mains... »
 
@@ -80,7 +80,7 @@ Il lança un dernier regard profond à Wang Lin avant de se détourner. Il march
 
 « Mon nom est Lu Yun, et je suis né dans l'ancien monde des raffineurs de Qi. Dès mon enfance, je fus apprenti apothicaire auprès d'un Empereur Divin. Je suis reconnaissant envers l'Empereur Divin de la quatrième génération de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 372 ans, j'ai accompli mes premiers succès en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte...
 
-À l'âge de 2 945 ans, je devins un ancien de la Secte Divine Oiseau Vermillon.
+À l'âge de 2 945 ans, je devins un ancien de la Secte Divine de l'Oiseau Vermillon.
 À l'âge de 4 760 ans, je devins l'un des anciens principaux et franchis mon premier Fléau Céleste.
 À l'âge de 6 215 ans, on me remit la Marque de l'Oiseau Vermillon et j'atteignis mon premier éveil. Je surpassai tous les autres éveillés pour devenir le premier d'entre eux.
 À l'âge de 7 912 ans, avec l'aide du quatrième Empereur Divin, je terminai mon second éveil. Dès lors, je fus choisi pour être le prochain Empereur Divin, le jeune seigneur de la Secte!
@@ -91,7 +91,7 @@ C'est alors que j'appris un secret qui fait trembler les cieux sur nos Quatre Se
 
 En même temps, je découvris que les premiers Empereurs et membres des Quatre Sectes provenaient d'une petite planète de culture, à l'époque où le Royaume Céleste Antique existait encore, avant que les quatre royaumes célestes ne soient séparés. Cette planète est la racine de nos quatre sectes, mais aussi la route du retour...
 
-Cette planète est toujours sous le contrôle de ma Secte Divine Oiseau Vermillon, et les trois autres sectes n'y ont jamais objecté, car peu de gens en étaient informés. Afin de prévenir tout incident futur, cela fut devenu le secret le plus profond au sein des Quatre Sectes depuis la première génération d'Empereurs. Même l'Empereur Céleste Qing Lin l'ignorait.
+Cette planète est toujours sous le contrôle de ma Secte Divine de l'Oiseau Vermillon, et les trois autres sectes n'y ont jamais objecté, car peu de gens en étaient informés. Afin de prévenir tout incident futur, cela fut devenu le secret le plus profond au sein des Quatre Sectes depuis la première génération d'Empereurs. Même l'Empereur Céleste Qing Lin l'ignorait.
 
 Après que les quatre Empereurs Divins eurent pris le contrôle du Système Stellaire du Vide Brillant, ils créèrent de nombreuses planètes similaires. En multipliant ces mondes pour égarer les esprits, presque personne ne put identifier la planète originelle. De plus, la première génération d'Empereurs utilisa diverses méthodes pour la dissimuler, garantissant qu'elle ne soit jamais véritablement découverte.
 

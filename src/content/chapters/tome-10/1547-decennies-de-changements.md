@@ -6,11 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1547 - Decades of Changes
 slug: decennies-de-changements
 ---
-Sous cette pression étouffante, le cultivateur du Clan de l'Hirondelle de Feu pâlit instantanément et recula précipitamment. Il ignorait s'il pourrait s'échapper, mais une seule pensée obsédait son esprit: fuir, fuir, fuir!
+Sous cette pression étouffante, le cultivateur du Clan des Moineaux de Feu pâlit instantanément et recula précipitamment. Il ignorait s'il pourrait s'échapper, mais une seule pensée obsédait son esprit: fuir, fuir, fuir!
 
-Cependant, oubliez-le; même si l'ancêtre du Clan de l'Hirondelle de Feu renaissait, il serait incapable de lui opposer la moindre résistance. La lumière dorée émanant des yeux de Wang Lin balaya la zone, provoquant l'effondrement de toutes les failles spatiales environnantes.
+Cependant, oubliez-le; même si l'ancêtre du Clan des Moineaux de Feu renaissait, il serait incapable de lui opposer la moindre résistance. La lumière dorée émanant des yeux de Wang Lin balaya la zone, provoquant l'effondrement de toutes les failles spatiales environnantes.
 
-Quant au cultivateur du Clan de l'Hirondelle de Feu, il n'eut le temps de faire que la moitié d'un pas en arrière avant que la lumière dorée ne l'enveloppe. Il poussa un cri déchirant et son âme originelle s'effondra sans aucune résistance.
+Quant au cultivateur du Clan des Moineaux de Feu, il n'eut le temps de faire que la moitié d'un pas en arrière avant que la lumière dorée ne l'enveloppe. Il poussa un cri déchirant et son âme originelle s'effondra sans aucune résistance.
 
 Le grand oiseau de feu noir qu'il avait invoqué pour dévorer Maître Yan Leizi était imprégné de terreur. Ayant acquis une certaine intelligence, il commença à paniquer. Cependant, il fut lui aussi enveloppé par la lumière dorée et rayé de l'existence!
 

@@ -14,11 +14,11 @@ L'Empereur Divin Dragon Azure réfléchit silencieusement un instant. La froideu
 
 « L'ancien Empereur Divin Oiseau Vermillon a consacré sa vie aux Quatre Sectes Divines. Maintenant qu'il est mort, il mérite la délivrance. Je vais l'emmener avec moi. » Le regard de Wang Lin affichait une détermination inébranlable alors qu'il agita sa main droite, faisant voler la pierre blanche vers l'Empereur Divin Dragon Azure.
 
-L'Empereur Divin Dragon Azure examina attentivement la pierre. Il poussa un soupir et ne dit plus un mot. Il se détourna ensuite pour partir, suivi par les sept anciens. L'un des anciens de la Secte Divine Oiseau Vermillon se tourna vers Wang Lin; il ouvrit la bouche comme s'il voulait dire quelque chose, mais le regard de l'Empereur Divin Dragon Azure le figea, contraignant le vieil homme à soupirer et à se taire.
+L'Empereur Divin Dragon Azure examina attentivement la pierre. Il poussa un soupir et ne dit plus un mot. Il se détourna ensuite pour partir, suivi par les sept anciens. L'un des anciens de la Secte Divine de l'Oiseau Vermillon se tourna vers Wang Lin; il ouvrit la bouche comme s'il voulait dire quelque chose, mais le regard de l'Empereur Divin Dragon Azure le figea, contraignant le vieil homme à soupirer et à se taire.
 
 Wang Lin partit avec l'ancien Empereur Divin, dont le corps s'était transformé en pierre. Il quitta les Quatre Sectes Divines et retrouva Da Tou et sa compagnie qui l'attendaient.
 
-Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression de l'ancien de la Secte Divine Oiseau Vermillon avait intrigué Wang Lin. Il sentait vaguement qu'il y avait quelque chose qu'il ignorait.
+Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression de l'ancien de la Secte Divine de l'Oiseau Vermillon avait intrigué Wang Lin. Il sentait vaguement qu'il y avait quelque chose qu'il ignorait.
 
 C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également légué le manteau des Empereurs Divins de toutes les générations et le jeton formé par l'Esprit Oiseau Vermillon.
 

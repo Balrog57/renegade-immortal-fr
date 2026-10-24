@@ -64,13 +64,13 @@ En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressiveme
 
 Cependant, à cet instant précis, un changement fracassant se produisit dans le Système Stellaire de la Mer des Nuages!
 
-À l'extérieur de la Formation de Scellement du Royaume, plusieurs rayons d'énergie d'épée fulgurants foncèrent vers le domaine stellaire occupé par les membres restants du Clan de la Lune! Avant que l'énergie de l'épée ne les atteigne, un grondement tonitruant résonna, entendu par toutes les branches du Clan de la Lune.
+À l'extérieur de la Formation de Scellement du Royaume, plusieurs rayons d'énergie d'épée fulgurants foncèrent vers le domaine stellaire occupé par les membres restants du Clan Dévorant la Lune! Avant que l'énergie de l'épée ne les atteigne, un grondement tonitruant résonna, entendu par toutes les branches du Clan Dévorant la Lune.
 
 Lorsqu'ils levèrent la tête, l'énergie de l'épée explosa, enveloppant toute la zone. Une voix antique résonna à travers le monde:
 
-« Le Conseil Souverain convoque tous les membres du Clan de la Lune, en y engageant toutes leurs forces, pour se rassembler dans la partie orientale de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque tous les membres du Clan Dévorant la Lune, en y engageant toutes leurs forces, pour se rassembler dans la partie orientale de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
-Tous les cultivateurs du Clan de la Lune furent ébranlés. Après un instant de silence, un rugissement parcourut tout le clan. Ils avaient attendu ce jour depuis bien trop longtemps!
+Tous les cultivateurs du Clan Dévorant la Lune furent ébranlés. Après un instant de silence, un rugissement parcourut tout le clan. Ils avaient attendu ce jour depuis bien trop longtemps!
 
 Système Stellaire Antique, Clan de l'Âme Céleste. À cet instant, un rayon d'énergie d'épée similaire arriva et la voix antique résonna:
 
@@ -112,7 +112,7 @@ Ces messages résonnèrent dans tout le Système Stellaire Antique, stimulant un
 
 Pillez tout ce que vous désirez, tout ce dont vous avez besoin, et prenez toutes les cultivatrices que vous convoitez pour en faire vos fours de culture! Pillez! Pillez! Pillez!
 
-« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Par des moyens vils, il a massacré le Clan du Tonnerre Dispersé, détruit une branche du Clan de la Lune et tué d'innombrables cultivateurs du Royaume Extérieur! »
+« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Par des moyens vils, il a massacré le Clan du Tonnerre Dispersé, détruit une branche du Clan Dévorant la Lune et tué d'innombrables cultivateurs du Royaume Extérieur! »
 
 « Lorsque le classement du Système Stellaire Antique sera ouvert, la liste des cibles à abattre du Royaume Extérieur le sera aussi, et cet homme en occupe provisoirement la tête. Quiconque tuera Wang Lin recevra le crédit pour avoir éliminé dix mille cultivateurs! »
 

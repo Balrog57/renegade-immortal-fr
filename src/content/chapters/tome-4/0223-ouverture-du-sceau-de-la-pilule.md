@@ -7,29 +7,29 @@ en: Chapter 223 - Opening the Pill Seal
 slug: ouverture-du-sceau-de-la-pilule
 ---
 
-L'origine des sept Fours à Pilules « Vol de Ciel » de la Secte Ciel Nuageux était très mystérieuse. La rumeur prétendait que le fondateur de la secte en avait créé neuf, scellés sous la montagne de la Secte Ciel Nuageux, dans l'attente de disciples capables de les invoquer.
+L'origine des sept Fours à Pilules « Vol de Ciel » de la Secte du Ciel Nuageux était très mystérieuse. La rumeur prétendait que le fondateur de la secte en avait créé neuf, scellés sous la montagne de la Secte du Ciel Nuageux, dans l'attente de disciples capables de les invoquer.
 
 Mais peu importait la puissance du fondateur, elle ne pouvait dépasser le stade de la Formation de l'Âme, car le pays de Chu n'avait jamais été qu'un pays de rang 3; des fours forgés par un tel homme, même dotés d'une certaine force, ne pouvaient donc être extraordinaires.
 
 Pourtant, la puissance des Fours à Pilules « Vol de Ciel » était déroutante, et le terme de « vol de ciel » n'était pas tout à fait inexact.
 
-Selon les anciens registres de la Secte Ciel Nuageux, ces neuf fours étaient tous des contrefaçons. Le fondateur avait jadis contemplé l'original et en avait mémorisé la conception pour ensuite forger les fours à partir de ses souvenirs. La raison pour laquelle il y en avait neuf était que son niveau de culture n'était pas assez élevé pour créer un seul four capable de contenir tout ce dont il se souvenait; il dut donc en fabriquer neuf pour tout englober.
+Selon les anciens registres de la Secte du Ciel Nuageux, ces neuf fours étaient tous des contrefaçons. Le fondateur avait jadis contemplé l'original et en avait mémorisé la conception pour ensuite forger les fours à partir de ses souvenirs. La raison pour laquelle il y en avait neuf était que son niveau de culture n'était pas assez élevé pour créer un seul four capable de contenir tout ce dont il se souvenait; il dut donc en fabriquer neuf pour tout englober.
 
 Ainsi furent créés les neuf Fours à Pilules « Vol de Ciel ».
 
-Il existait un autre aspect mystérieux concernant ces objets: ils ne pouvaient quitter la chaîne de montagnes de la Secte Ciel Nuageux. Dès qu'ils franchissaient les limites de la montagne, ils se transformaient en simple ferraille. Ce phénomène avait incité certains pays de culture de rang supérieur à mener des investigations, mais sans succès. En conséquence, ils abandonnèrent l'idée de se les approprier et choisirent plutôt de soutenir la Secte Ciel Nuageux.
+Il existait un autre aspect mystérieux concernant ces objets: ils ne pouvaient quitter la chaîne de montagnes de la Secte du Ciel Nuageux. Dès qu'ils franchissaient les limites de la montagne, ils se transformaient en simple ferraille. Ce phénomène avait incité certains pays de culture de rang supérieur à mener des investigations, mais sans succès. En conséquence, ils abandonnèrent l'idée de se les approprier et choisirent plutôt de soutenir la Secte du Ciel Nuageux.
 
-Grâce à cela, la Secte Ciel Nuageux put se développer rapidement pour devenir la première secte du pays de Chu.
+Grâce à cela, la Secte du Ciel Nuageux put se développer rapidement pour devenir la première secte du pays de Chu.
 
 Li Muwan affichait une expression grave tandis qu'elle contemplait les vapeurs émanant des sept dragons gravés sur le four. Elle murmura: « Pour ouvrir le sceau de la pilule, il faut réunir le bon moment et le bon lieu. Cette nuit, à l'heure yin et au quart yin, la grande salle de la secte raffine des pilules; nous devons profiter de ce raffinage pour dérober un peu de puissance spirituelle aux sept Fours à Pilules "Vol de Ciel". »
 
-L'expression de Wang Lin était calme. Debout aux côtés de Li Muwan, il observait le fourneau et demanda d'une voix basse: « Chaque mois, à l'heure yin et au quart yin, la Secte Ciel Nuageux raffine-t-elle des pilules? »
+L'expression de Wang Lin était calme. Debout aux côtés de Li Muwan, il observait le fourneau et demanda d'une voix basse: « Chaque mois, à l'heure yin et au quart yin, la Secte du Ciel Nuageux raffine-t-elle des pilules? »
 
-Li Muwan hocha doucement la tête et répondit d'une voix douce: « Oui. Les Fours à Pilules "Vol de Ciel" ne peuvent donner leur plein effet qu'à l'heure yin et au quart yin, une fois par mois. Seuls les Anciens de la Secte Ciel Nuageux ont le privilège de s'en servir. Certaines pilules rares nécessitent impérativement ces fours pour leur fabrication. »
+Li Muwan hocha doucement la tête et répondit d'une voix douce: « Oui. Les Fours à Pilules "Vol de Ciel" ne peuvent donner leur plein effet qu'à l'heure yin et au quart yin, une fois par mois. Seuls les Anciens de la Secte du Ciel Nuageux ont le privilège de s'en servir. Certaines pilules rares nécessitent impérativement ces fours pour leur fabrication. »
 
 Wang Lin acquiesça légèrement. Il désigna le fourneau orné des sept têtes de dragon et demanda: « Est-ce aussi un Four à Pilules "Vol de Ciel"? »
 
-Un sourire fier apparut sur les lèvres de Li Muwan, qui ajouta avec charme: « Ce four n'est pas un Four à Pilules "Vol de Ciel", mais son effet est sensiblement le même. Il a été secrètement fabriqué par Wan Er après avoir étudié ces fours pendant toutes ces années. C'était mon atout secret contre la Secte Ciel Nuageux s'ils décidaient un jour de me forcer à faire certaines choses. S'ils le faisaient, Wan Er utiliserait ce four pour interférer avec les sept autres lors d'un raffinage et les transformer en poussière. Cela libérerait toute l'énergie spirituelle contenue dans les fours, obligeant tous les cultivateurs de l'Âme Naissante à s'épuiser à tenter de les réparer plutôt qu'à me poursuivre. Après tout, ces fours représentent tout pour eux. »
+Un sourire fier apparut sur les lèvres de Li Muwan, qui ajouta avec charme: « Ce four n'est pas un Four à Pilules "Vol de Ciel", mais son effet est sensiblement le même. Il a été secrètement fabriqué par Wan Er après avoir étudié ces fours pendant toutes ces années. C'était mon atout secret contre la Secte du Ciel Nuageux s'ils décidaient un jour de me forcer à faire certaines choses. S'ils le faisaient, Wan Er utiliserait ce four pour interférer avec les sept autres lors d'un raffinage et les transformer en poussière. Cela libérerait toute l'énergie spirituelle contenue dans les fours, obligeant tous les cultivateurs de l'Âme Naissante à s'épuiser à tenter de les réparer plutôt qu'à me poursuivre. Après tout, ces fours représentent tout pour eux. »
 
 Wang Lin esquissa un sourire. Il hocha la tête et resta silencieux, fixant le fourneau. Après un long moment, il demanda soudainement: « Tu viens de dire que les sept Fours à Pilules "Vol de Ciel" se trouvent au-dessus d'ici. Contiennent-ils mille ans d'énergie spirituelle? »
 
@@ -45,11 +45,11 @@ Wang Lin se retourna et lui adressa un sourire: « Oui. Si je cultivais dans ce 
 
 L'expression de Li Muwan devint étrange. Juste au moment où elle allait parler, la quantité de fumée noire émanant des têtes de dragon augmenta brusquement. Une masse de vapeur s'éleva, formant un nuage sombre au-dessus du fourneau. À l'intérieur de ce nuage se trouvait le fourneau portant le sceau de la pilule. L'objet rougeoyait et le sceau se mit à onduler lentement de haut en bas, comme poussé par un vent invisible.
 
-À cet instant précis, sur le sol, au-dessus de cette chambre, les Anciens de la Secte Ciel Nuageux scrutaient le ciel, calculant l'heure exacte. Ces hommes étaient tous des maîtres alchimistes de la secte, dont l'un des trois alchimistes de rang 5, Ouyang Zi.
+À cet instant précis, sur le sol, au-dessus de cette chambre, les Anciens de la Secte du Ciel Nuageux scrutaient le ciel, calculant l'heure exacte. Ces hommes étaient tous des maîtres alchimistes de la secte, dont l'un des trois alchimistes de rang 5, Ouyang Zi.
 
 Ouyang Zi était initialement le premier disciple de l'ancien chef de la secte intérieure et aurait dû diriger celle-ci, mais il avait volontairement renoncé au pouvoir pour consacrer toute son attention à l'alchimie. Sa passion pour cet art avait atteint un degré inimaginable; il ne se souciait ni de la culture, ni du pouvoir. On pouvait dire qu'il n'avait d'autre but que l'alchimie. Son ambition ultime était de raffiner la légendaire pilule divine de rang 9.
 
-Mais cet objectif était hors de portée. Même les pays de rang 6 ne pouvaient produire que des pilules de rang 6, et les rares génies qui apparaissaient ne pouvaient atteindre que le rang 7. C'est précisément à cause de cette difficulté que la Secte Ciel Nuageux était protégée par le Clan des Démons Géants, puissant clan d'un pays de rang 4. Il faut dire que les pilules de rang 5 représentaient déjà la limite absolue pour un tel pays. Tout cela démontrait l'importance vitale de la secte pour le Clan des Démons Géants.
+Mais cet objectif était hors de portée. Même les pays de rang 6 ne pouvaient produire que des pilules de rang 6, et les rares génies qui apparaissaient ne pouvaient atteindre que le rang 7. C'est précisément à cause de cette difficulté que la Secte du Ciel Nuageux était protégée par le Clan des Démons Géants, puissant clan d'un pays de rang 4. Il faut dire que les pilules de rang 5 représentaient déjà la limite absolue pour un tel pays. Tout cela démontrait l'importance vitale de la secte pour le Clan des Démons Géants.
 
 Ouyang Zi, alchimiste de rang 5, avait atteint le début du stade de l'Âme Naissante. S'il n'avait pas été aussi absorbé par son art, il aurait déjà atteint le stade avancé et serait devenu l'un des ancêtres de la secte. Bien qu'il ne fût qu'au début de l'Âme Naissante, son statut était bien supérieur à celui de Li Muwan, qui n'était qu'une étrangère.
 
@@ -65,7 +65,7 @@ Trois personnes sortirent du hall principal. L'une d'elles était le chef de la 
 
 Les deux individus derrière lui étaient grands et fins, mais dégageaient tous deux une aura puissante. Il était évident que leur niveau de culture était très élevé. Ouyang Zi fronça les sourcils et lança froidement: « Fichez le camp! »
 
-Le visage du chef de secte resta impassible, mais celui des deux invités changea. Ils affichèrent un air moqueur, mais sans rien tenter, ils se retirèrent. Le chef de la secte intérieure de la Secte Ciel Nuageux les avait déjà prévenus, mais ils avaient insisté pour venir. Après un soupir, il les accompagna pour engager la conversation. À ses yeux, ces deux-là étaient là pour acheter des pilules et leur offre était très attractive; il se devait donc de les ménager un peu.
+Le visage du chef de secte resta impassible, mais celui des deux invités changea. Ils affichèrent un air moqueur, mais sans rien tenter, ils se retirèrent. Le chef de la secte intérieure de la Secte du Ciel Nuageux les avait déjà prévenus, mais ils avaient insisté pour venir. Après un soupir, il les accompagna pour engager la conversation. À ses yeux, ces deux-là étaient là pour acheter des pilules et leur offre était très attractive; il se devait donc de les ménager un peu.
 
 Une fois les trois hommes partis, Ouyang Zi reprit ses calculs. Après une dizaine de respirations, ses yeux s'illuminèrent. Ses mains formèrent des sceaux tandis qu'il s'élançait dans les airs pour projeter sept rayons de lumière sur les sept fours. Sa grande robe flottait au vent, lui donnant une allure majestueuse. Les six alchimistes le contemplaient avec admiration.
 
@@ -97,7 +97,7 @@ Li Muwan répondit dans un murmure respectueux: « C'est la méthode propre à O
 
 Au-dessus du sol, Ouyang Zi s'exclama: « Deuxième sacrifice: Pilule Luo Lin de rang 4! » Un autre alchimiste déposa une pilule bleue dans son fourneau, déclenchant un pilier de lumière bleue.
 
-Ouyang Zi accéléra la cadence en ajoutant quatre autres pilules de rang 4. Six piliers de lumière jaillirent alors vers le ciel, visibles même au-delà de la chaîne de montagnes de la Secte Ciel Nuageux. Ouyang Zi était fébrile. Il fixait le fourneau central en marmonnant: « Ça doit marcher! Si je réussis, j'aurai trois pilules de rang 5. Avec les trois déjà détenues par la secte, cela fera six. Avec six pilules de ce niveau, je pourrai les utiliser comme sacrifices pour goûter au raffinage d'une pilule de rang 6! »
+Ouyang Zi accéléra la cadence en ajoutant quatre autres pilules de rang 4. Six piliers de lumière jaillirent alors vers le ciel, visibles même au-delà de la chaîne de montagnes de la Secte du Ciel Nuageux. Ouyang Zi était fébrile. Il fixait le fourneau central en marmonnant: « Ça doit marcher! Si je réussis, j'aurai trois pilules de rang 5. Avec les trois déjà détenues par la secte, cela fera six. Avec six pilules de ce niveau, je pourrai les utiliser comme sacrifices pour goûter au raffinage d'une pilule de rang 6! »
 
 Ses yeux brillaient d'un éclat inédit. Après une inspiration profonde, il ordonna: « Vous six, le raffinage commence! »
 

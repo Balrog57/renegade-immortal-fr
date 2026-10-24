@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 566 - Hu Pao, The Old Man, And The Armor
 slug: hu-pao-le-vieil-homme-et-larmure
 ---
-La vallée centrale de la Tribu du Affinement de l'Âme était un domaine qui n'appartenait qu'à Wang Lin. En ce moment, il était assis au cœur de la vallée, tandis que Treize se tenait agenouillé devant lui, le regard brillant d'excitation.
+La vallée centrale de la Tribu de l'Affinement de l'Âme était un domaine qui n'appartenait qu'à Wang Lin. En ce moment, il était assis au cœur de la vallée, tandis que Treize se tenait agenouillé devant lui, le regard brillant d'excitation.
 
 Cela faisait déjà trois jours que Wang Lin était revenu à la tribu, et il avait réveillé Treize par un sortilège.
 
@@ -36,13 +36,13 @@ Wang Lin le scruta avec son Sens Divin et pensa: « C'est bien ça! » Les Neuf 
 
 Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déjà indescriptible. Il se prosterna au sol, effectua plusieurs kowtows et s'exclama: « Ancêtre, Treize n'obéira qu'à vous pour le reste de sa vie! »
 
-« Garde bien la Tribu du Affinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
+« Garde bien la Tribu de l'Affinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
 
 Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Étendard de l'Âme, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
 
 « Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, dans trois mois, je me rendrai dans la capitale, bien trop loin pour que je puisse laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
 
-À ce moment-là, loin à l'ouest de la Tribu du Affinement de l'Âme, après avoir traversé plus de la moitié du Pays du Démon Céleste, s'étendait un désert infini.
+À ce moment-là, loin à l'ouest de la Tribu de l'Affinement de l'Âme, après avoir traversé plus de la moitié du Pays du Démon Céleste, s'étendait un désert infini.
 
 Cet endroit était réputé pour être une zone extrêmement périlleuse dans les Terres des Esprits Démoniaques!
 
@@ -110,4 +110,4 @@ Le corps du vieillard était trempé de sueur lorsqu'il dit simplement: « Oui! 
 
 « Ce sort d'affinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne s'est éveillé que depuis peu, je ne peux donc pas le déranger avec une si petite affaire... »
 
-« Si ce n'était pas pour le fait que Hu Pao maîtrise ce sort de raffinement mystérieux, il n'aurait ni les qualifications ni le statut nécessaires pour devenir un Gardien Démoniaque! Si cette expérience réussit, je devrai aller inspecter cette Tribu du Affinement de l'Âme! »
+« Si ce n'était pas pour le fait que Hu Pao maîtrise ce sort de raffinement mystérieux, il n'aurait ni les qualifications ni le statut nécessaires pour devenir un Gardien Démoniaque! Si cette expérience réussit, je devrai aller inspecter cette Tribu de l'Affinement de l'Âme! »

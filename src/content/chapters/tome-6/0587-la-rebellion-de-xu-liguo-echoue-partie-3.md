@@ -178,7 +178,7 @@ Durant ces quelques jours, en dehors d'Ao Di, aucun général démon n'avait sub
 
 Après tout, c'était un véritable massacre entre cultivateurs!
 
-Lorsque les membres de la Secte de l'Épée de Da Luo s'étaient opposés aux généraux démons, ils s'étaient retenus. Mais face aux cultivateurs, ils s'étaient montrés d'une cruauté extrême, comme pour faire étalage de leur puissance.
+Lorsque les membres de la Secte de l'Épée Da Luo s'étaient opposés aux généraux démons, ils s'étaient retenus. Mais face aux cultivateurs, ils s'étaient montrés d'une cruauté extrême, comme pour faire étalage de leur puissance.
 
 La lumière matinale balaya la place de 33 kilomètres. La foule était encore plus nombreuse qu'auparavant. Après tout, les combats suivants seraient les véritables affrontements. Hormis quelques chanceux, tous les prétendants restants étaient célèbres!
 

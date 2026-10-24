@@ -38,7 +38,7 @@ Wang Lin se détendit légèrement et tendit sa main droite pour saisir la Boute
 
 Le temps passa lentement tandis que Wang Lin affinait les âmes démoniaques. Un mois s'écoula.
 
-Il restait moins d'un mois avant la Sélection des Anciens Délaissés. Wang Lin était en culture fermée au sein du Clan des Scorpions Noirs depuis plus de deux mois! Durant cette période, un événement majeur s'était produit dans les Terres Déchues!
+Il restait moins d'un mois avant la Sélection des Anciens Délaissés. Wang Lin était en culture fermée au sein du Clan du Scorpion Noir depuis plus de deux mois! Durant cette période, un événement majeur s'était produit dans les Terres Déchues!
 
 À la périphérie des Terres Déchues, sur une planète abandonnée, l'astre entier s'embrasa. Les flammes étaient bleues et enveloppèrent la planète tout entière.
 

@@ -74,7 +74,7 @@ Puis, l'empreinte se solidifia et chargea vers Tuo Sen!
 
 « Tu n'es qu'une once de pensée démoniaque de Tu Si, et tu oses te prétendre un dieu?! » rugit Wang Lin alors que l'empreinte fonçait sur lui. Tuo Sen grogna et leva la main, tentant impitoyablement de déchirer l'empreinte en deux.
 
-Des grondements tonitruants résonnèrent et le vide trembla. Le domaine stellaire du Clan de la Lune sembla sur le point de s'effondrer. L'empreinte de paume fut inopinément fendue en deux par Tuo Sen.
+Des grondements tonitruants résonnèrent et le vide trembla. Le domaine stellaire du Clan Dévorant la Lune sembla sur le point de s'effondrer. L'empreinte de paume fut inopinément fendue en deux par Tuo Sen.
 
 Après avoir utilisé l'Empreinte de l'Esprit Guerrier, Wang Lin ne pensait pas que cela suffirait à arrêter Tuo Sen. Simultanément, il leva sa main gauche pour la plaquer contre le bras droit de Tuo Sen, tel Maître Lu Fu autrefois. Il tapota rapidement à plusieurs reprises le dos de sa main gauche avec sa main droite. C'était comme si une énergie originelle infinie était aspirée dans sa paume, entamant ainsi une confrontation frontale avec Tuo Sen.
 

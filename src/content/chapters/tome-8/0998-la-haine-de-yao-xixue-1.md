@@ -30,9 +30,9 @@ C'était un visage démoniaque. Sa beauté transcendait celle d'un simple mortel
 
 Ce parfum était très subtil, mais il exerçait un effet singulier. Chaque fois qu'un habitant de la Terre des Esprits Démoniaques le respirait, il ressentait un apaisement immédiat. En conséquence, au fil du temps, de nombreuses tribus s'étaient installées sur cette plaine.
 
-Une branche de la Tribu du Raffinement des Âmes s'y était également étendue, mais ce qui était étrange, c'est que les drapeaux d'âme y perdaient instantanément une partie de leur puissance. C'était comme si les fragments d'âme à l'intérieur n'osaient pas en sortir. S'ils étaient forcés de le faire, les fragments se dissipaient rapidement, un par un.
+Une branche de la Tribu de l'Affinement de l'Âme s'y était également étendue, mais ce qui était étrange, c'est que les drapeaux d'âme y perdaient instantanément une partie de leur puissance. C'était comme si les fragments d'âme à l'intérieur n'osaient pas en sortir. S'ils étaient forcés de le faire, les fragments se dissipaient rapidement, un par un.
 
-C'est pourquoi la Tribu du Raffinement des Âmes finit par abandonner cet endroit.
+C'est pourquoi la Tribu de l'Affinement de l'Âme finit par abandonner cet endroit.
 
 Si l'on regardait d'en haut, cette prairie semblerait tout à fait ordinaire. Pourtant, si un expert en restrictions y jetait un œil, son front serait instantanément perlé de sueur froide.
 

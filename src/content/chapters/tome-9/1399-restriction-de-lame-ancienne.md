@@ -28,7 +28,7 @@ Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve.
 
 « Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan du Dragon Blindé, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela ne dépasse pas ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
 
-« Le Patriarche du Clan des Scorpions Noirs n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
+« Le Patriarche du Clan du Scorpion Noir n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
 
 Le messager fut surpris et hésita un instant. Le regard de Wang Lin balaya le serviteur, et ses pupilles se rétractèrent. Il pressentit vaguement que le messager utilisait une méthode spéciale pour transmettre un message à quelqu'un.
 

@@ -48,7 +48,7 @@ Zhou Wutai ne se retourna même pas et ricana: « Avec votre niveau de culture �
 
 Un autre homme vêtu de noir dit calmement: « Pas nécessairement. Bien que nous ne soyons qu'au stade avancé de l'Âme Naissante, si nous utilisons une formation, à moins qu'il ne soit au stade de la Formation de l'Âme, il mourra. »
 
-Zhou Wutai eut un ricanement méprisant. Il agita ses manches et répondit: « Si vous voulez y aller, allez-y. Je ne vous en empêcherai pas. Mais cet homme possède les sculptures des trois anciens de la Secte Nuage Blanc, surtout celle de l'Oncle-Maître Qing Song, il doit donc cacher quelque chose de plus. Je ne cherche pas la mort. »
+Zhou Wutai eut un ricanement méprisant. Il agita ses manches et répondit: « Si vous voulez y aller, allez-y. Je ne vous en empêcherai pas. Mais cet homme possède les sculptures des trois anciens de la Secte Bai Yun, surtout celle de l'Oncle-Maître Qing Song, il doit donc cacher quelque chose de plus. Je ne cherche pas la mort. »
 
 Les quatre hommes en noir réfléchirent un instant. Ils échangèrent un regard, puis se dirigèrent vers la boutique de Wang Lin sans dire un mot.
 

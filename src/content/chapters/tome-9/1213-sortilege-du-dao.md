@@ -100,7 +100,7 @@ Même les bêtes féroces de la périphérie qui luttaient dans les flammes s'ef
 
 Les innombrables âmes de Dao du Royaume aux Sept Couleurs se rassemblèrent devant le vieil homme. Elles fusionnèrent en une seule entité, puis une lumière jaune envahit le monde, enveloppant Wang Lin.
 
-« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus. C'est ce sort qui permit au Clan de l'Extermination Scellée de diriger les Hauts Anciens Clans; ce clan n'était surpassé que par les anciens dieux, démons et monstres!
+« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus. C'est ce sort qui permit au Clan de l'Extermination des Sceaux de diriger les Hauts Anciens Clans; ce clan n'était surpassé que par les anciens dieux, démons et monstres!
 
 Ce n'était pas un simple sort ou une capacité, mais le rare Sortilège du Dao!
 

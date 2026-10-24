@@ -40,7 +40,7 @@ Menés par neuf dragons de tête, une multitude d'autres les suivirent, formant 
 
 Le visage de Maître Simo pâlit instantanément et il recula précipitamment. La terreur perçait dans ses yeux, mais il parvint vite à réprimer ses émotions.
 
-« Encore un peu! » Les yeux de Wang Lin devinrent glacials. Il s'élança en criant: « Maître Simo, vous souvenez-vous encore de la Secte Briseur de Ciel?! »
+« Encore un peu! » Les yeux de Wang Lin devinrent glacials. Il s'élança en criant: « Maître Simo, vous souvenez-vous encore de la Secte Brise-Ciel?! »
 
 Le corps de Maître Simo chancela. Un conflit intérieur se lisait dans son regard, mais il refoula ses émotions.
 
@@ -48,13 +48,13 @@ Le corps de Maître Simo chancela. Un conflit intérieur se lisait dans son rega
 
 « Maître Simo, reconnaissez-vous ceci?! » Wang Lin ouvrit son espace de stockage et en sortit un jade!
 
-Ce jade était l'identifiant de Sima Mo au sein de la Secte Briseur de Ciel!
+Ce jade était l'identifiant de Sima Mo au sein de la Secte Brise-Ciel!
 
 Le tourment dans les yeux de Maître Simo s'intensifia, comme si son esprit était sur le point de s'effondrer.
 
 « Maître Simo, reconnaissez-vous ceci? » Wang Lin agita la main et un objet apparut dans sa paume: un os de bête de la taille d'une main!
 
-Cet os était la raison même pour laquelle Sima Mo avait été banni de la Secte Briseur de Ciel!
+Cet os était la raison même pour laquelle Sima Mo avait été banni de la Secte Brise-Ciel!
 
 Le visage de Maître Simo était livide, ses yeux injectés de sang. Une expression féroce se dessina sur ses traits alors qu'il rugissait vers Wang Lin: « Tais-toi!! »
 

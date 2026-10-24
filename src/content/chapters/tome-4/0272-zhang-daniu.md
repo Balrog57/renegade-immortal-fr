@@ -14,7 +14,7 @@ En plus de sa femme, il s'inquiétait pour Wang Lin. Dans son esprit, l'oncle Wa
 
 Il avait déjà perdu ses parents; il ne voulait pas que l'oncle Wang le quitte lui aussi.
 
-Le fils de Da Niu, Ceng Xiaoniu, venait tout juste d'intégrer la Secte Nuage Blanc et n'était qu'au stade de la Condensation de Qi. Bien que son statut fût bien supérieur à celui des mortels, avec un tel niveau, il était impuissant dans cette guerre.
+Le fils de Da Niu, Ceng Xiaoniu, venait tout juste d'intégrer la Secte Bai Yun et n'était qu'au stade de la Condensation de Qi. Bien que son statut fût bien supérieur à celui des mortels, avec un tel niveau, il était impuissant dans cette guerre.
 
 Par conséquent, malgré ses efforts pour retrouver ses parents, l'Alliance des Quatre Sectes était trop vaste. Presque tous les mortels avaient été déplacés pour déblayer la neige et étaient dispersés aux quatre coins du pays.
 

@@ -52,7 +52,7 @@ Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, 
 
 Peu après l'apparition des ombres, des cercueils commencèrent à descendre. Il y avait des cercueils de toutes tailles, entourés par une multitude de cultivateurs.
 
-En volant vers la Mer des Démons, ils aperçurent naturellement la statue gigantesque posée au sol: celle de la Secte Ciel Nuageux. Un cultivateur arrogant de Luotian vit qu'une minuscule planète comme celle-ci avait osé ériger une telle statue. Il eut l'impression qu'elle lui était familière, mais n'y prêta pas attention. Il laissa échapper un reniflement méprisant et s'apprêta à la détruire sur son passage.
+En volant vers la Mer des Démons, ils aperçurent naturellement la statue gigantesque posée au sol: celle de la Secte du Ciel Nuageux. Un cultivateur arrogant de Luotian vit qu'une minuscule planète comme celle-ci avait osé ériger une telle statue. Il eut l'impression qu'elle lui était familière, mais n'y prêta pas attention. Il laissa échapper un reniflement méprisant et s'apprêta à la détruire sur son passage.
 
 Cependant, alors que sa main droite allait descendre, une voix féminine retentit derrière lui: « Arrêtez! »
 

@@ -116,7 +116,7 @@ Dès l'apparition de la lance, une énergie démoniaque envahit la grotte, accom
 
 Dès que la bouteille apparut, l'énergie démoniaque dans la grotte décupla et d'innombrables ombres démoniaques surgirent. Cette énergie enveloppa la planète entière.
 
-De loin, la planète du Clan des Scorpions Noirs fut drapée d'un voile de brouillard démoniaque. C'était un spectacle terrifiant!
+De loin, la planète du Clan du Scorpion Noir fut drapée d'un voile de brouillard démoniaque. C'était un spectacle terrifiant!
 
 « Je ne peux pas former un corps démoniaque, mais je peux créer une âme démoniaque. Utiliser cette âme pour contrôler les trésors d'anciens diables augmenterait considérablement leur puissance. Si l'occasion se présente, je pourrais posséder un corps d'ancien diable et en faire mon troisième avatar! »
 

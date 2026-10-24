@@ -144,6 +144,6 @@ Bien que les domaines soient très proches en force lorsqu'ils atteignent leur p
 
 Par conséquent, au stade de la Formation de l'Âme, la puissance des cultivateurs varie énormément. Si l'un d'eux n'obtient qu'un domaine ordinaire, bien qu'il soit un dieu comparé aux cultivateurs de l'Âme Naissante, il restera à la traîne parmi ses pairs de la Formation de l'Âme.
 
-Si Wang Lin avait vraiment voulu atteindre rapidement le stade de la Formation de l'Âme, il aurait pu le faire en sculptant la première statue du cultivateur de la Formation de l'Âme de la Secte Nuage Blanc. Cependant, ce domaine n'était pas le sien. Ce serait comme suivre les traces d'un autre. Même s'il avait atteint la Formation de l'Âme, il lui aurait été très difficile de progresser par la suite, avec une infime chance d'atteindre le stade de la Transformation de l'Âme.
+Si Wang Lin avait vraiment voulu atteindre rapidement le stade de la Formation de l'Âme, il aurait pu le faire en sculptant la première statue du cultivateur de la Formation de l'Âme de la Secte Bai Yun. Cependant, ce domaine n'était pas le sien. Ce serait comme suivre les traces d'un autre. Même s'il avait atteint la Formation de l'Âme, il lui aurait été très difficile de progresser par la suite, avec une infime chance d'atteindre le stade de la Transformation de l'Âme.
 
 Puisqu'il ne s'agissait pas d'un domaine qu'il avait forgé lui-même, il lui serait extrêmement ardu de le comprendre pleinement, sans parler de le transcender...

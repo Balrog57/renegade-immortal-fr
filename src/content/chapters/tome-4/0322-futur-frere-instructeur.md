@@ -110,7 +110,7 @@ L'expression de l'homme d'âge moyen changea brusquement alors qu'il rattrapait 
 
 Après un long moment, les yeux de l'homme s'illuminèrent. Il s'arrêta, fixa l'endroit où la boussole avait disparu et eut un reniflement méprisant.
 
-« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte de l'Épée Da Luo tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte de l'Épée Da Luo soit du même rang que ma Secte Tian Yun, tant que le Maître agit, il n'y a aucune inquiétude à avoir! »
+« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte de l'Épée Da Luo tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte de l'Épée Da Luo soit du même rang que ma Secte du Destin Céleste, tant que le Maître agit, il n'y a aucune inquiétude à avoir! »
 
 L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 

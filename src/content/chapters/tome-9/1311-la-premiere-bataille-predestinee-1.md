@@ -84,11 +84,11 @@ Le vieil homme au stade du Vide Spirituel regarda la lumière blanche, les yeux 
 
 Il semblait que la femme en blanc était la seule chose qui subsistait dans ce monde. Une rivière d'étoiles semblait se dissiper sous ses pas alors qu'elle marchait vers la zone où Tuo Sen poursuivait sa proie.
 
-Wang Lin continuait de progresser vers le Clan de la Lune, utilisant la Distorsion Spatiale en s'appuyant sur les souvenirs de l'emplacement du clan. Son expression était sombre; les fluctuations de l'aura de l'Ancien Dieu lui avaient laissé quelques spéculations.
+Wang Lin continuait de progresser vers le Clan Dévorant la Lune, utilisant la Distorsion Spatiale en s'appuyant sur les souvenirs de l'emplacement du clan. Son expression était sombre; les fluctuations de l'aura de l'Ancien Dieu lui avaient laissé quelques spéculations.
 
 Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé la Distorsion Spatiale à plusieurs reprises, il atteignit un domaine stellaire baigné d'une douce lumière lunaire. La lueur provenait des planètes environnantes et se répandait dans le vide, créant un spectacle d'une beauté extrême, semblable à un royaume onirique.
 
-« C'est ici! » Un éclat de froideur passa dans les yeux de Wang Lin. Le Clan de la Lune était là!
+« C'est ici! » Un éclat de froideur passa dans les yeux de Wang Lin. Le Clan Dévorant la Lune était là!
 
 À cet instant précis, un rugissement tonitruant retentit derrière lui. Sans se retourner, Wang Lin chargea en avant et déploya son Sens Divin. Rapidement, il identifia une zone saturée d'aura d'Ancien Dieu!
 
@@ -96,7 +96,7 @@ Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé 
 
 Une fissure spatiale s'ouvrit et Tuo Sen en sortit, épuisé.
 
-C'était très bizarre: ce vacarme violent n'attira absolument pas l'attention du Clan de la Lune; tout restait parfaitement silencieux.
+C'était très bizarre: ce vacarme violent n'attira absolument pas l'attention du Clan Dévorant la Lune; tout restait parfaitement silencieux.
 
 La voix de Tuo Sen tonna comme le tonnerre: « Tu ne peux pas échapper! » Ses yeux étaient glacials lorsqu'il lança un coup de poing vers Wang Lin de sa main droite.
 

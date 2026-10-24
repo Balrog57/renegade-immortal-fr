@@ -114,6 +114,6 @@ L'ancêtre afficha un respect qu'il n'avait jamais montré auparavant. Il tendit
 
 Instantanément, des éclairs rouges jaillirent de l'arme et enveloppèrent le corps de l'ancêtre. Ses cheveux se mirent à flotter sans vent, et une aura puissante, totalement inédite jusqu'alors, émana de lui.
 
-« Wang Lin, lorsque mon clan s'est établi sur cette planète, notre ancêtre fondateur utilisa cette hache pour fendre le ciel et la terre et se rendre chez le Clan de l'Immortel Délaissé. Là-bas, il tua deux chamans à neuf feuilles pour garantir au Clan des Démons Géants le droit de vivre ici! Aujourd'hui, bien que l'ancêtre fondateur soit toujours porté disparu, sa hache est toujours là! »
+« Wang Lin, lorsque mon clan s'est établi sur cette planète, notre ancêtre fondateur utilisa cette hache pour fendre le ciel et la terre et se rendre chez le Clan des Immortels Délaissés. Là-bas, il tua deux chamans à neuf feuilles pour garantir au Clan des Démons Géants le droit de vivre ici! Aujourd'hui, bien que l'ancêtre fondateur soit toujours porté disparu, sa hache est toujours là! »
 
 Wang Lin observa la hache rouge dans la main de l'ancêtre. Il ne put s'empêcher de penser au corps qui reposait sous la Secte des Cadavres, à Zhao.

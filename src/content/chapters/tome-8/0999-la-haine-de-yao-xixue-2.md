@@ -12,9 +12,9 @@ Ce sentiment ne dura qu'un instant avant de s'évanouir, comme s'il n'avait jama
 
 Hormis le Maître Fu Fengzi, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen, eux aussi originaires de Tian Yun, appartinssent à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre des Esprits Démoniaques auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
 
-En revenant dans ce lieu familier, Wang Lin fut profondément ému. Sa première pensée n'avait pas été de se rendre à la grotte céleste, mais d'aller vérifier l'état de la Tribu du Raffinement des Âmes. À l'époque, il avait dû fuir dans l'urgence. Avec le recul, il ressentait une profonde émotion.
+En revenant dans ce lieu familier, Wang Lin fut profondément ému. Sa première pensée n'avait pas été de se rendre à la grotte céleste, mais d'aller vérifier l'état de la Tribu de l'Affinement de l'Âme. À l'époque, il avait dû fuir dans l'urgence. Avec le recul, il ressentait une profonde émotion.
 
-« La Tribu du Raffinement des Âmes a été créée pour accomplir le dernier vœu du Maître Dun Tian. Je me demande s'il existe toujours... et il y a aussi Treize. » Wang Lin ne pouvait oublier la loyauté indéfectible de Treize, qui l'avait suivi jusqu'au bout.
+« La Tribu de l'Affinement de l'Âme a été créée pour accomplir le dernier vœu du Maître Dun Tian. Je me demande s'il existe toujours... et il y a aussi Treize. » Wang Lin ne pouvait oublier la loyauté indéfectible de Treize, qui l'avait suivi jusqu'au bout.
 
 Dans sa vie, il n'avait rencontré qu'une seule personne aussi fidèle que Treize. En pensant à Treize, un autre visage surgit dans l'esprit de Wang Lin.
 
@@ -50,9 +50,9 @@ De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouv
 
 Une fois ce problème résolu, Wang Lin réfléchit un instant, puis son sens divin se déploya lentement. Avec sa culture actuelle de Scruteur du Nirvana de stade moyen, il couvrit aisément l'intégralité de la Terre des Esprits Démoniaques!
 
-Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu du Raffinement des Âmes transportaient vers la capitale du Pays des Démons du Feu libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, les deux fusionnèrent.
+Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu de l'Affinement de l'Âme transportaient vers la capitale du Pays des Démons du Feu libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, les deux fusionnèrent.
 
-La lueur noire émanant de la statue devint progressivement plus intense, jusqu'à recouvrir plus de la moitié du ciel au-dessus du Pays des Démons du Feu. D'innombrables membres de la Tribu du Raffinement des Âmes contemplèrent la statue ancestrale avec stupéfaction.
+La lueur noire émanant de la statue devint progressivement plus intense, jusqu'à recouvrir plus de la moitié du ciel au-dessus du Pays des Démons du Feu. D'innombrables membres de la Tribu de l'Affinement de l'Âme contemplèrent la statue ancestrale avec stupéfaction.
 
 On ne sait qui réagit le premier, mais certains s'agenouillèrent instantanément. Puis, presque tous les membres de la tribu se prosternèrent, les yeux brillants d'excitation.
 
@@ -62,11 +62,11 @@ Les yeux d'Ouyang Hua trahissaient l'incrédulité tandis qu'il fixait Treize. �
 
 « L'Ancêtre... est de retour! »
 
-Ouyang Hua prit une profonde inspiration, l'extase illuminant son regard. Il respectait Wang Lin du plus profond de son âme, mais au-delà du respect, il y avait la crainte. C’est précisément cette peur qui, malgré la croissance constante de la Tribu du Raffinement des Âmes, l'avait empêché de se rebeller.
+Ouyang Hua prit une profonde inspiration, l'extase illuminant son regard. Il respectait Wang Lin du plus profond de son âme, mais au-delà du respect, il y avait la crainte. C’est précisément cette peur qui, malgré la croissance constante de la Tribu de l'Affinement de l'Âme, l'avait empêché de se rebeller.
 
-Les yeux de Wang Lin brillèrent d'une lumière étrange. Grâce à son sens divin, il constata que la Tribu du Raffinement des Âmes s'était considérablement étendu. Cela n'importait guère. Ce qui le frappait, c'était ce pouvoir mystérieux venant de fusionner avec sa conscience. Wang Lin cultivait depuis plus de mille ans et avait rencontré d'innombrables forces, mais il n'en avait jamais connu une semblable.
+Les yeux de Wang Lin brillèrent d'une lumière étrange. Grâce à son sens divin, il constata que la Tribu de l'Affinement de l'Âme s'était considérablement étendu. Cela n'importait guère. Ce qui le frappait, c'était ce pouvoir mystérieux venant de fusionner avec sa conscience. Wang Lin cultivait depuis plus de mille ans et avait rencontré d'innombrables forces, mais il n'en avait jamais connu une semblable.
 
-Il ne parvenait pas à définir cette sensation, mais au moment de l'union, d'innombrables images défilèrent dans son esprit. Sans exception, toutes montraient la Tribu du Raffinement des Âmes vénérant la statue avec un fanatisme inimaginable. C'était comme si, dès que la statue donnait un ordre, ils l'exécuteraient quel qu'en soit le prix; même au péril de leur vie, sans le moindre regret.
+Il ne parvenait pas à définir cette sensation, mais au moment de l'union, d'innombrables images défilèrent dans son esprit. Sans exception, toutes montraient la Tribu de l'Affinement de l'Âme vénérant la statue avec un fanatisme inimaginable. C'était comme si, dès que la statue donnait un ordre, ils l'exécuteraient quel qu'en soit le prix; même au péril de leur vie, sans le moindre regret.
 
 Cette ferveur terrifiante ébranla Wang Lin lui-même. C’était le culte de plusieurs siècles des millions de membres de la tribu envers cette statue de pierre qui avait engendré cette force mystérieuse que même lui ne pouvait pleinement saisir.
 
@@ -84,7 +84,7 @@ Le corps d'Ouyang Hua trembla, révélant une émotion qu'il n'avait pas manifes
 
 Des clameurs empreintes de surprise et de frénésie éclatèrent comme le tonnerre. Des millions de personnes s'exaltèrent à l'unisson, faisant trembler la terre et forçant les nuages à se dissiper.
 
-« Bienvenue, Ancêtre! » On ne sait qui entonna ce cri le premier, mais finalement, des millions de membres de la Tribu du Raffinement des Âmes crièrent ensemble. Le bourdonnement fut tel que même Wang Lin, malgré sa force mentale, en fut surpris. Il sentit distinctement une brume blanche émaner de la foule pour converger vers la statue de pierre au centre de la capitale. La statue absorba toute cette essence, devenant plus lisse et dégageant une aura démoniaque.
+« Bienvenue, Ancêtre! » On ne sait qui entonna ce cri le premier, mais finalement, des millions de membres de la Tribu de l'Affinement de l'Âme crièrent ensemble. Le bourdonnement fut tel que même Wang Lin, malgré sa force mentale, en fut surpris. Il sentit distinctement une brume blanche émaner de la foule pour converger vers la statue de pierre au centre de la capitale. La statue absorba toute cette essence, devenant plus lisse et dégageant une aura démoniaque.
 
 Le regard des membres de la tribu était chargé d'une excitation qui stupéfia Wang Lin. Treize se fraya un chemin à travers la foule pour s'agenouiller devant lui. Bien que son corps tremblât, sa voix fut la plus forte qu'il ait eu depuis des siècles:
 
@@ -94,6 +94,6 @@ Les paroles de Treize embrasèrent l'enthousiasme de l'innombrable foule. De nou
 
 En observant les membres de la tribu, Wang Lin en reconnut certains, bien qu'il ne puisse plus nommer leurs visages. C'étaient manifestement des anciens qui étaient présents lors de sa dernière visite.
 
-« Je suis revenu. » La voix de Wang Lin se propagea lentement depuis les cieux pour atteindre les oreilles de chacun. Bien que ces trois mots fussent simples, ils retentirent comme des éclairs tombant du ciel. Toute la Tribu du Raffinement des Âmes poussa un cri de joie.
+« Je suis revenu. » La voix de Wang Lin se propagea lentement depuis les cieux pour atteindre les oreilles de chacun. Bien que ces trois mots fussent simples, ils retentirent comme des éclairs tombant du ciel. Toute la Tribu de l'Affinement de l'Âme poussa un cri de joie.
 
 Alors que la foule exultait, Wang Lin descendit progressivement pour atterrir sur l'enceinte de la capitale du Pays des Démons du Feu. Il était revenu ici, une fois de plus, après des centaines d'années!

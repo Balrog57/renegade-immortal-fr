@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 974 - The Saintress of Brilliant Void
 slug: la-sainte-du-vide-brillant
 ---
-Ling Tianhou roula des yeux et ricana sans même accorder un regard à Tian Yunzi. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte de l'Épée de Da Luo de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte de l'Épée de Da Luo? »
+Ling Tianhou roula des yeux et ricana sans même accorder un regard à Tian Yunzi. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte de l'Épée Da Luo de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte de l'Épée Da Luo? »
 
 Tian Yunzi fronça les sourcils.
 
@@ -96,11 +96,11 @@ Cependant, ces mots firent trembler l'esprit de Wang Lin!
 
 À mesure qu'ils avançaient, la planète Da Luo se rapprochait. C'était la première fois que Wang Lin venait sur cette planète. Plus il s'en approchait, plus il ressentait l'énergie d'épée infinie qui s'en dégageait constamment.
 
-Les océans occupaient la majeure partie de la planète, et la seule secte présente était la Secte de l'Épée de Da Luo! Les tours apparurent une à une sous les yeux de Wang Lin.
+Les océans occupaient la majeure partie de la planète, et la seule secte présente était la Secte de l'Épée Da Luo! Les tours apparurent une à une sous les yeux de Wang Lin.
 
-Les disciples de la Secte de l'Épée de Da Luo s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins des dizaines de milliers! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
+Les disciples de la Secte de l'Épée Da Luo s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins des dizaines de milliers! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
 
-Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Secte de l'Épée de Da Luo compte si peu de cultivateurs de la deuxième étape? »
+Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Secte de l'Épée Da Luo compte si peu de cultivateurs de la deuxième étape? »
 
 Wang Lin ne chercha pas à le cacher et hocha la tête: « C'est effectivement étrange. »
 
@@ -118,6 +118,6 @@ Le regard de Wang Lin balaya ces dizaines de milliers de personnes et une pensé
 
 Ling Tianhou agita ses manches, s'élança et atteignit la plus grande tour.
 
-« À partir d'aujourd'hui, Wang Lin sera un Ancien de ma Secte de l'Épée de Da Luo! » Ling Tianhou ne prononça que ces mots avant de disparaître dans la grande tour.
+« À partir d'aujourd'hui, Wang Lin sera un Ancien de ma Secte de l'Épée Da Luo! » Ling Tianhou ne prononça que ces mots avant de disparaître dans la grande tour.
 
 « Ancien Wang, je vais entrer en culture de porte close pendant quelques mois. Vous serez en sécurité sur ma planète Da Luo! » Le Sens Divin de Ling Tianhou résonna dans les oreilles de Wang Lin.

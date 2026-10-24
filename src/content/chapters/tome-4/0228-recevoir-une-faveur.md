@@ -64,7 +64,7 @@ L'endroit était d'un calme plat. On n'y décelait même aucune trace d'odeur de
 
 Après réflexion, il pointa son doigt vers son front et un démon à l'apparence de singe en sortit. C'était le démon qu'il avait affiné à partir de l'âme du singe spirituel: son troisième démon.
 
-Au cours des derniers mois au sein de la Secte Ciel Nuageux, Wang Lin avait pris le contrôle total de ce démon. Le singe était une bête spirituelle de faible qualité, mais devenu un démon, il était bien plus puissant. Bien qu'il ne puisse pas encore dévorer de cultivateurs de l'Âme Naissante, il pouvait facilement engloutir des cultivateurs de la Formation du Noyau.
+Au cours des derniers mois au sein de la Secte du Ciel Nuageux, Wang Lin avait pris le contrôle total de ce démon. Le singe était une bête spirituelle de faible qualité, mais devenu un démon, il était bien plus puissant. Bien qu'il ne puisse pas encore dévorer de cultivateurs de l'Âme Naissante, il pouvait facilement engloutir des cultivateurs de la Formation du Noyau.
 
 Dès son apparition, le démon poussa un rugissement. Sa silhouette devint floue alors qu'il chargeait dans la vallée. Il balaya la zone sans rien trouver d'insolite. Juste au moment où il s'apprêtait à revenir, une gueule gigantesque s'ouvrit sur le flanc d'une falaise. Simultanément, une puissante force d'aspiration tenta d'aspirer le démon, mais comme celui-ci n'était pas une entité solide, il parvint aisément à s'échapper.
 

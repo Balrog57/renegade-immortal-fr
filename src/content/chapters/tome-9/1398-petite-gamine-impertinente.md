@@ -66,7 +66,7 @@ L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche des 
 
 Le cœur de ce dernier rata un battement et son visage devint livide.
 
-Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan des Scorpions Noirs pendant cent ans! »
+Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan du Scorpion Noir pendant cent ans! »
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 

@@ -30,7 +30,7 @@ Dès l'apparition de ces trente-six tours, tous les cultivateurs de la Formation
 
 Une lumière arc-en-ciel s'illumina sous la jeune femme vêtue de blanc. De cette clarté surgit une porte qui s'ouvrit sans un bruit, laissant passer les cultivateurs de la Formation de l'Âme de l'Alliance des Quatre Sectes.
 
-L'homme d'âge moyen et la vieille femme de la Secte du Nuage Blanc figuraient parmi eux, mais le vieil homme qui contrôlait le domaine du passage du temps était absent.
+L'homme d'âge moyen et la vieille femme de la Secte Bai Yun figuraient parmi eux, mais le vieil homme qui contrôlait le domaine du passage du temps était absent.
 
 Parmi eux se trouvaient quatre vieux cultivateurs particulièrement frappants, dont l'apparence évoquait des êtres sortant à peine de leur cercueil: ils étaient les protecteurs des quatre sectes.
 

@@ -24,9 +24,9 @@ L'expression de Wang Lin resta neutre. Lorsque l'Empereur Démon était arrivé,
 
 Wang Lin but une gorgée de la demi-cruche qui lui restait.
 
-« Si Frère Wang accepte de laisser une place libre pour entrer dans la cinquième grotte, quatre des neuf pays seront offerts à la Tribu du Raffinement des Âmes! De plus, Seigneur Bei Luo ne s'immiscera dans aucune affaire concernant le Raffinement des Âmes, pas même en ce qui concerne les vestiges du sens démoniaque du Démon des Nuages! »
+« Si Frère Wang accepte de laisser une place libre pour entrer dans la cinquième grotte, quatre des neuf pays seront offerts à la Tribu de l'Affinement de l'Âme! De plus, Seigneur Bei Luo ne s'immiscera dans aucune affaire concernant le Raffinement des Âmes, pas même en ce qui concerne les vestiges du sens démoniaque du Démon des Nuages! »
 
-L'existence de la pierre noire pouvait tromper bien des gens, mais elle ne pouvait duper l'Ancien Démon Bei Luo. Si celui-ci n'avait rien fait pendant des centaines d'années, laissant la Tribu du Raffinement des Âmes se développer, c'était précisément pour ce jour.
+L'existence de la pierre noire pouvait tromper bien des gens, mais elle ne pouvait duper l'Ancien Démon Bei Luo. Si celui-ci n'avait rien fait pendant des centaines d'années, laissant la Tribu de l'Affinement de l'Âme se développer, c'était précisément pour ce jour.
 
 Wang Lin regarda au loin et dit calmement: « D'accord! »
 

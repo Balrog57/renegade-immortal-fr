@@ -1,6 +1,6 @@
 ---
 n: 417
-title: Le second combat contre le Clan Immortel Déchu commence
+title: Le second combat contre le Clan des Immortels Délaissés commence
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 417 - The second battle with the Forsaken Immortal Clan begins
@@ -8,17 +8,17 @@ slug: le-second-combat-contre-le-clan-immortel-dechu-commence
 ---
 Wang Lin sourit à la question de la vieille femme et répondit: « Je m'appelle Ceng Niu. »
 
-L'expression de la vieille femme changea. Elle fixa Wang Lin et dit: « Tuer Li Yuanfeng de Xue Yu et l'ancêtre du Clan du Démon Géant alors que tu n'étais qu'au stade de la Formation de l'Âme... Aujourd'hui, cette vieille femme est effectivement incapable de te tuer. »
+L'expression de la vieille femme changea. Elle fixa Wang Lin et dit: « Tuer Li Yuanfeng de Xue Yu et l'ancêtre du Clan des Démons Géants alors que tu n'étais qu'au stade de la Formation de l'Âme... Aujourd'hui, cette vieille femme est effectivement incapable de te tuer. »
 
 La vieille femme poussa un soupir. Bien qu'elle fût au stade avancé de la Transformation de l'Âme et qu'elle pût facilement tuer Wang Lin, elle n'avait aucune chance de le faire en présence de Du Tian. Après avoir jeté un regard au vieil homme à ses côtés, elle poussa un autre soupir intérieur.
 
-L'homme aux robes violettes qui se tenait près de la femme affichait une expression sombre. Il était au stade initial de la Transformation de l'Âme. Il savait qu'il aurait pu tuer Li Yuanfeng sans l'ombre d'un doute, mais contre l'ancêtre du Clan du Démon Géant, la victoire aurait été bien difficile à obtenir. Pourtant, ce jeune homme devant lui avait réussi à éliminer les deux. Bien que Wang Lin ne fût pas encore un cultivateur de la Transformation de l'Âme, il le considérait déjà comme un égal en termes de culture.
+L'homme aux robes violettes qui se tenait près de la femme affichait une expression sombre. Il était au stade initial de la Transformation de l'Âme. Il savait qu'il aurait pu tuer Li Yuanfeng sans l'ombre d'un doute, mais contre l'ancêtre du Clan des Démons Géants, la victoire aurait été bien difficile à obtenir. Pourtant, ce jeune homme devant lui avait réussi à éliminer les deux. Bien que Wang Lin ne fût pas encore un cultivateur de la Transformation de l'Âme, il le considérait déjà comme un égal en termes de culture.
 
 Du Tian laissa échapper un rire. Il était très satisfait des actions de Wang Lin. Les membres de la Secte de l'Affinement de l'Âme devaient agir ainsi.
 
 Du Tian déclara: « Ne perdons plus de temps. Selon les règles, donnez-moi la moitié de vos jades célestes! »
 
-La vieille femme réfléchit un instant. Elle observa Du Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan Immortel Déchu approche, si ma Secte des Insectes Démoniaques est en danger, vous devrez nous aider une fois! »
+La vieille femme réfléchit un instant. Elle observa Du Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan des Immortels Délaissés approche, si ma Secte des Insectes Démoniaques est en danger, vous devrez nous aider une fois! »
 
 Du Tian la regarda et répondit: « Cela dépendra du nombre de jades célestes que vous me remettrez. »
 
@@ -44,7 +44,7 @@ Wang Lin eut un sourire amer. Il pouvait imaginer le mal de tête que les cultiv
 
 Wang Lin pensa secrètement: « Je crois comprendre comment la Secte de l'Affinement de l'Âme est passé d'un pays de culture de rang 5 à n'être plus qu'une simple secte... »
 
-« Cependant, cet ancêtre a échoué et a fini par mourir. En vérité, je ne cautionne pas ses actes; à moins que ce ne soit absolument nécessaire, il vaut mieux ne pas provoquer les cultivateurs Ascendants. Il aurait mieux fait de faire comme nous le faisons actuellement. Avec ce drapeau, nous pouvons traverser un pays de culture de rang 5 et piller n'importe quelle secte sur notre passage. Même si nous rencontrons les puissants cultivateurs du Clan Immortel Déchu, cela n'aura aucune importance. »
+« Cependant, cet ancêtre a échoué et a fini par mourir. En vérité, je ne cautionne pas ses actes; à moins que ce ne soit absolument nécessaire, il vaut mieux ne pas provoquer les cultivateurs Ascendants. Il aurait mieux fait de faire comme nous le faisons actuellement. Avec ce drapeau, nous pouvons traverser un pays de culture de rang 5 et piller n'importe quelle secte sur notre passage. Même si nous rencontrons les puissants cultivateurs du Clan des Immortels Délaissés, cela n'aura aucune importance. »
 
 Wang Lin sourit une fois de plus amèrement.
 
@@ -78,11 +78,11 @@ Wang Lin réfléchissait. Alors qu'il s'apprêtait à poser d'autres questions, 
 
 Un brouillard noir approchait de l'horizon, dévorant les nuages sur son passage. Ce brouillard était si vaste qu'on ne pouvait en percevoir la fin. Une puissante aura de pouvoir de tatouage se propageait lentement.
 
-« Le Clan Immortel Déchu! » Les yeux de Du Tian s'illuminèrent.
+« Le Clan des Immortels Délaissés! » Les yeux de Du Tian s'illuminèrent.
 
-Au fil de leurs échanges, Wang Lin avait appris que plusieurs années auparavant, le Clan Immortel Déchu avait rassemblé une armée immense pour lancer une attaque directe sur le continent de Suzaku. D'innombrables cultivateurs étaient morts lors de ce combat. Certains chamans du Clan Immortel Déchu, aussi puissants que des Ascendants, avaient affronté Zhu Quezi et les deux autres experts Ascendants.
+Au fil de leurs échanges, Wang Lin avait appris que plusieurs années auparavant, le Clan des Immortels Délaissés avait rassemblé une armée immense pour lancer une attaque directe sur le continent de Suzaku. D'innombrables cultivateurs étaient morts lors de ce combat. Certains chamans du Clan des Immortels Délaissés, aussi puissants que des Ascendants, avaient affronté Zhu Quezi et les deux autres experts Ascendants.
 
-Cette bataille avait duré trois ans avant que le Clan Immortel Déchu ne se retire. Ils avaient pris le contrôle des pays de culture de rang 3 et entamé cette guerre d'usure contre le pays de Suzaku.
+Cette bataille avait duré trois ans avant que le Clan des Immortels Délaissés ne se retire. Ils avaient pris le contrôle des pays de culture de rang 3 et entamé cette guerre d'usure contre le pays de Suzaku.
 
 Au cours de ce conflit, deux figures s'étaient élevées au-dessus de toutes les autres: Liu Mei et Qian Feng.
 
@@ -90,8 +90,8 @@ Liu Mei, par sa beauté sans pareille, avait captivé tous les jeunes cultivateu
 
 Ce qui alimentait davantage les conversations était le fait qu'elle soit la disciple personnelle du Suzaku actuel et une candidate au titre de prochain Suzaku. Dès son apparition, elle avait capturé plusieurs chamans à sept feuilles, et même un chaman à huit feuilles, aussi puissant qu'un cultivateur au stade avancé de la Transformation de l'Âme. Sa renommée était devenue fulgurante.
 
-Un autre aspect de sa personnalité fascinait tout le monde: les rumeurs disaient qu'elle était empreinte de bonté et d'une pureté de cœur absolue, malgré son immense puissance. Elle n'avait jamais tué personne de sa vie; même lors des combats contre le Clan Immortel Déchu, elle se contentait de capturer ses adversaires sans les achever. Grâce à ces vertus, elle jouissait d'un respect unanime. Partout où elle apparaissait, les cultivateurs environnants obéissaient à ses ordres avec déférence. Même dans des batailles perdues d'avance, sa simple présence redonnait courage aux troupes, leur permettant de remporter la victoire grâce à son aide. Cette femme était considérée comme l'un des deux génies de cette génération.
+Un autre aspect de sa personnalité fascinait tout le monde: les rumeurs disaient qu'elle était empreinte de bonté et d'une pureté de cœur absolue, malgré son immense puissance. Elle n'avait jamais tué personne de sa vie; même lors des combats contre le Clan des Immortels Délaissés, elle se contentait de capturer ses adversaires sans les achever. Grâce à ces vertus, elle jouissait d'un respect unanime. Partout où elle apparaissait, les cultivateurs environnants obéissaient à ses ordres avec déférence. Même dans des batailles perdues d'avance, sa simple présence redonnait courage aux troupes, leur permettant de remporter la victoire grâce à son aide. Cette femme était considérée comme l'un des deux génies de cette génération.
 
 L'autre génie était Qian Feng. Il était d'une grande beauté et possédait une prestance digne. Son niveau de culture se situait également au stade intermédiaire de la Transformation de l'Âme. Il n'affichait aucune trace d'arrogance, se montrant toujours moralement droit, juste et empreint de douceur.
 
-Qian Feng était apparu soudainement lors de la deuxième année de l'attaque du Clan Immortel Déchu.
+Qian Feng était apparu soudainement lors de la deuxième année de l'attaque du Clan des Immortels Délaissés.

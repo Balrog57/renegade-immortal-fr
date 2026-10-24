@@ -20,15 +20,15 @@ Qian Feng était l'un d'eux.
 
 À cet instant précis, Qian Feng se trouvait à mi-hauteur d'un pic montagneux perçant les nuages, dans la section intérieure du tombeau. Il était assis devant une grotte immense, l'expression profondément sombre.
 
-Il fut le premier à pénétrer dans le Tombeau de Suzaku et avait donc, de toute évidence, affronté ces formes de vie composées de fragments d'âme. Comme elles étaient impossibles à tuer, les cultivateurs comme les membres du Clan de l'Immortel Délaissé finirent par rencontrer des entités semblables à Murong Yun et se précipitèrent vers ce pic montagneux.
+Il fut le premier à pénétrer dans le Tombeau de Suzaku et avait donc, de toute évidence, affronté ces formes de vie composées de fragments d'âme. Comme elles étaient impossibles à tuer, les cultivateurs comme les membres du Clan des Immortels Délaissés finirent par rencontrer des entités semblables à Murong Yun et se précipitèrent vers ce pic montagneux.
 
 Certains furent dupés par l'autel, mais Qian Feng n'était pas tombé dans le piège et s'était échappé. Il avait déployé force et patience avant de finalement trouver la véritable entrée et de pénétrer dans la section intérieure du Tombeau de Suzaku.
 
 Bien que la section intérieure fût plus restreinte que la section extérieure, elle demeurait vaste. Les formes de vie y étaient bien plus nombreuses et certaines d'entre elles étaient extrêmement puissantes. Qian Feng ne pouvant les vaincre, il fut contraint de battre en retraite.
 
-Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé la tombe du premier Zhu Quezi. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan de l'Immortel Délaissé pénétraient dans cette zone.
+Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé la tombe du premier Zhu Quezi. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan des Immortels Délaissés pénétraient dans cette zone.
 
-Qian Feng avait vu de ses propres yeux les yeux d'un cultivateur de la Transformation de l'Âme qu'il connaissait s'éteindre et mourir, après que quelques membres du Clan de l'Immortel Délaissé eurent déployé une grande puissance des runes pour terrasser l'une de ces formes de vie.
+Qian Feng avait vu de ses propres yeux les yeux d'un cultivateur de la Transformation de l'Âme qu'il connaissait s'éteindre et mourir, après que quelques membres du Clan des Immortels Délaissés eurent déployé une grande puissance des runes pour terrasser l'une de ces formes de vie.
 
 Cette scène avait profondément choqué les témoins.
 

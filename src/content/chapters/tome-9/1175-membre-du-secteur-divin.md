@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1175 - Member of the God Secte
 slug: membre-du-secteur-divin
 ---
-Le visage de l'homme d'âge moyen était pâle et il affichait une expression amère en regardant Wang Lin s'approcher. Il réfléchit un instant, puis joignit les mains. « Shang Qi, de la Secte de la Collection des Démons, salue le camarade cultivateur. »
+Le visage de l'homme d'âge moyen était pâle et il affichait une expression amère en regardant Wang Lin s'approcher. Il réfléchit un instant, puis joignit les mains. « Shang Qi, de la Secte de la Collection Démoniaque, salue le camarade cultivateur. »
 
 Wang Lin ne parla pas et observa froidement l'homme devant lui. Cet individu se situait au stade intermédiaire du Briseur du Nirvana. Wang Lin s'était toujours demandé s'il serait capable de combattre un expert de ce niveau après avoir fusionné avec son corps original.
 
-L'expression de l'homme d'âge moyen devint plus amère encore. Il poussa un soupir et joignit à nouveau les mains. « Il y a deux jours, Wu Qing a été expulsé de la Secte de la Collection des Démons. Ses paroles et ses actes lui appartenaient en propre, sans aucun lien avec notre Secte. Il a osé provoquer votre excellence de la Secte Divine; c'est sa propre faute s'il est mort! »
+L'expression de l'homme d'âge moyen devint plus amère encore. Il poussa un soupir et joignit à nouveau les mains. « Il y a deux jours, Wu Qing a été expulsé de la Secte de la Collection Démoniaque. Ses paroles et ses actes lui appartenaient en propre, sans aucun lien avec notre Secte. Il a osé provoquer votre excellence de la Secte Divine; c'est sa propre faute s'il est mort! »
 
 Wang Lin resta silencieux, le regard toujours glacial. Plus il agissait ainsi, plus il incarnait l'identité d'un membre de la Secte Divine, de ces êtres qui contemplent le monde avec arrogance! Une simple secte de rang 6 était insignifiant aux yeux d'un membre de la Secte Divine!
 
@@ -24,7 +24,7 @@ L'homme d'âge moyen marqua une pause, puis tendit à nouveau la main pour sorti
 
 « Il y a également neuf Pilules de Mort de Séparation de l'Âme de rang 8... »
 
-La voix de Wang Lin était calme, mais elle dégageait une majesté naturelle lorsqu'il déclara lentement: « Je ne poursuivrai plus l'offense de Wu Qing à mon égard, mais cela ne suffit pas à effacer l'offense de la Secte de la Collection des Démons. »
+La voix de Wang Lin était calme, mais elle dégageait une majesté naturelle lorsqu'il déclara lentement: « Je ne poursuivrai plus l'offense de Wu Qing à mon égard, mais cela ne suffit pas à effacer l'offense de la Secte de la Collection Démoniaque. »
 
 Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de l'Oiseau Vermillon. Il n'avait nul besoin de forcer les choses; il lui suffisait de se remémorer la Secte de l'Oiseau Vermillon pour manifester naturellement cette majesté.
 
@@ -36,7 +36,7 @@ L'homme d'âge moyen ne répondit rien et sortit un sac de son espace de stockag
 
 Ce n'est qu'une fois Wang Lin parti que le visage de l'homme d'âge moyen se décomposa. Une rage presque monstrueuse bouillonnait en lui.
 
-« Wu Qing, je t'avais dit de ne pas provoquer cet homme, mais tu n'as pas écouté! Tu méritais ta mort! Mais tu as impliqué la Secte de la Collection des Démons... Cet homme était inopinément un membre de la Secte Divine, ah! »
+« Wu Qing, je t'avais dit de ne pas provoquer cet homme, mais tu n'as pas écouté! Tu méritais ta mort! Mais tu as impliqué la Secte de la Collection Démoniaque... Cet homme était inopinément un membre de la Secte Divine, ah! »
 
 Au sommet d'un pic montagneux à l'est de Peng Lai, les yeux de Li Qianmei brillaient d'une lueur étrange. Après une longue réflexion silencieuse, elle murmura doucement: « La Secte Divine? Cela fait de nombreuses années que les membres de la Secte Divine n'ont pas quitté la région de rang 9. Seuls les disciples de l'élite peuvent utiliser l'Empreinte de l'Esprit Guerrier. Comment pourraient-ils être autorisés à quitter la Secte Divine si facilement... La première paume de cet homme était très étrange. J'ignore quel sort est assez tyrannique pour contrôler l'énergie originelle de la sorte. On aurait dit une empreinte d'esclave! »
 

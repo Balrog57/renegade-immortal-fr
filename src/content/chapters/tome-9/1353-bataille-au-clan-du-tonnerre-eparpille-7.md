@@ -1,6 +1,6 @@
 ---
 n: 1353
-title: "Bataille au Clan du Tonnerre Éparpillé! (7)"
+title: "Bataille au Clan du Tonnerre Dispersé! (7)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1353 - Battle at the Scatter Thunder Clan! (7)"

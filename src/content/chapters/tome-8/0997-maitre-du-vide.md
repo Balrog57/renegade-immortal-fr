@@ -72,23 +72,23 @@ Les cultivateurs alentour se dispersèrent avec regret. Certains restèrent là,
 
 Ce n'était là qu'un recoin du Pays des Démons de Feu. À l'échelle du pays entier, les cadavres couvraient tout le paysage. Sous cette chaleur accablante, ils se décomposaient plus vite encore, et le vent emportait leurs vêtements, révélant la peau noircie en dessous.
 
-Une guerre immense ravageait le Pays des Démons de Feu, déjà morcelé, sous l'assaut de la Tribu du Raffinement des Âmes. Toutes les factions, grandes et petites, dispersées dans le pays, s'étaient effondrées. Ceux qui ne se rendaient pas mouraient!
+Une guerre immense ravageait le Pays des Démons de Feu, déjà morcelé, sous l'assaut de la Tribu de l'Affinement de l'Âme. Toutes les factions, grandes et petites, dispersées dans le pays, s'étaient effondrées. Ceux qui ne se rendaient pas mouraient!
 
 La capitale du Pays des Démons de Feu, là où l'un des neuf anciens démons avait autrefois résidé, était désormais le dernier bastion. Ce lieu était occupé par l'une des armées d'élite du pays: l'Armée Spirituelle des Démons de Feu!
 
 Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Après la défaite du pays, l'Armée Spirituelle des Démons de Feu avait subi de lourdes pertes, mais elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays des Démons de Feu.
 
-À cet instant, l'armée de la Tribu du Raffinement des Âmes encerclait la capitale. D'innombrables individus flottaient dans le ciel, entourés de grands drapeaux. Un épais brouillard noir enveloppait la zone.
+À cet instant, l'armée de la Tribu de l'Affinement de l'Âme encerclait la capitale. D'innombrables individus flottaient dans le ciel, entourés de grands drapeaux. Un épais brouillard noir enveloppait la zone.
 
 Les cris perçants des fragments d'âmes ne s'interrompaient jamais, balayant la terre. Les lamentations des âmes tourmentées étaient devenus le seul son qui régnait sur le monde.
 
-Devant les portes de la capitale, au sein de l'armée de la Tribu du Raffinement des Âmes, se trouvait une statue de pierre noire. Plusieurs membres de la tribu la transportaient, empreints d'une immense fierté. Être choisi parmi des millions de membres pour porter la statue de l'Ancêtre était un honneur qui ne se présentait qu'une fois dans une vie!
+Devant les portes de la capitale, au sein de l'armée de la Tribu de l'Affinement de l'Âme, se trouvait une statue de pierre noire. Plusieurs membres de la tribu la transportaient, empreints d'une immense fierté. Être choisi parmi des millions de membres pour porter la statue de l'Ancêtre était un honneur qui ne se présentait qu'une fois dans une vie!
 
 Dans le ciel, un vieil homme dégageait une majesté imposante. Vêtu d'une robe noire, il était entouré de dizaines de grands drapeaux formant un tourbillon sombre.
 
 « Chefs Démoniaques Mu Yun et Xie Jin, allez-vous vous rendre? » La voix du vieil homme tomba comme un vent glacial. À l'instant où sa voix retentit, un sifflement aigu jaillit du tourbillon noir qui l'entourait.
 
-La voix de l'homme n'était pas le seul son; les millions de membres de la Tribu du Raffinement des Âmes encerclant la capitale rugirent à l'unisson:
+La voix de l'homme n'était pas le seul son; les millions de membres de la Tribu de l'Affinement de l'Âme encerclant la capitale rugirent à l'unisson:
 
 « Allez-vous vous rendre?! »
 
@@ -98,7 +98,7 @@ Le rugissement de millions de personnes simultanément était indescriptible. C'
 
 « Même si je dois mourir, je détruirai cette chose! » Le colosse était d'une rapidité fulgurante. Il atteignit la statue en un instant, leva la main et frappa de toutes ses forces dans un rugissement.
 
-Pourtant, étrangement, tous les membres de la Tribu du Raffinement des Âmes environnants affichèrent des expressions de dérision. Même Ouyang Hua esquissa un sourire narquois sans tenter de l'arrêter.
+Pourtant, étrangement, tous les membres de la Tribu de l'Affinement de l'Âme environnants affichèrent des expressions de dérision. Même Ouyang Hua esquissa un sourire narquois sans tenter de l'arrêter.
 
 Au moment où la main du colosse allait s'écraser, une voix extrêmement froide résonna à ses oreilles.
 
@@ -108,7 +108,7 @@ L'homme avança et lança un coup de poing avec désinvolture. À cet instant, d
 
 Le grand homme cracha une gorgée de sang tandis que son armure se brisait morceau par morceau. On entendit également le craquement de ses os sous l'impact.
 
-« Le membre le plus puissant de la Tribu du Raffinement des Âmes... Treize! » Le colosse laissa échapper un sourire amer alors que son corps se désintégrait. Il était déjà épuisé, et cette blessure critique lui ôta instantanément la vie.
+« Le membre le plus puissant de la Tribu de l'Affinement de l'Âme... Treize! » Le colosse laissa échapper un sourire amer alors que son corps se désintégrait. Il était déjà épuisé, et cette blessure critique lui ôta instantanément la vie.
 
 Ouyang Hua éclata de rire, puis pointa la capitale du Pays des Démons de Feu du doigt: « Extinction de l'Âme! »
 
@@ -116,7 +116,7 @@ Ouyang Hua éclata de rire, puis pointa la capitale du Pays des Démons de Feu d
 
 « Rendez-vous... » soupira une femme vêtue d'une armure bleue sur les remparts de la capitale.
 
-À cet instant, le Pays des Démons de Feu devint la capitale de la Tribu du Raffinement des Âmes! La Tribu était devenue l'une des neuf puissances de la Terre des Esprits Démoniaques. La statue noire serait placée là où résidait autrefois l'esprit de l'ancien démon, devenant le fondement spirituel de la Tribu du Raffinement des Âmes!
+À cet instant, le Pays des Démons de Feu devint la capitale de la Tribu de l'Affinement de l'Âme! La Tribu était devenue l'une des neuf puissances de la Terre des Esprits Démoniaques. La statue noire serait placée là où résidait autrefois l'esprit de l'ancien démon, devenant le fondement spirituel de la Tribu de l'Affinement de l'Âme!
 
 Alors que Treize levait les pieds pour marcher vers la capitale, son corps trembla violemment et son expression glaciale se brisa. Elle fut remplacée par un enthousiasme qu'il n'avait pas ressenti depuis des centaines d'années, et il leva brusquement la tête:
 

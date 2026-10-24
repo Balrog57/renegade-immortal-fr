@@ -12,9 +12,9 @@ Ce sens démoniaque volait prudemment vers l'avant; cependant, il était bien tr
 
 Alors qu'il planait dans le ciel, il se dissipait lentement. Finalement, il fut sur le point de s'effondrer, et même ses souvenirs devinrent flous. Il était sur le point de disparaître complètement.
 
-Juste au moment où il allait s'évanouir à jamais, il sentit vaguement une énergie démoniaque sous lui. La Tribu du Raffinement des Âmes se trouvait juste là, en dessous!
+Juste au moment où il allait s'évanouir à jamais, il sentit vaguement une énergie démoniaque sous lui. La Tribu de l'Affinement de l'Âme se trouvait juste là, en dessous!
 
-Il n'y avait pas beaucoup de membres de la Tribu du Raffinement des Âmes à cette époque, seulement quelques centaines de milliers de personnes. La plupart d'entre eux étaient dispersés, cherchant des lieux contenant des fragments d'âme. Seules quelques dizaines de milliers de personnes restaient sur les terres de la tribu.
+Il n'y avait pas beaucoup de membres de la Tribu de l'Affinement de l'Âme à cette époque, seulement quelques centaines de milliers de personnes. La plupart d'entre eux étaient dispersés, cherchant des lieux contenant des fragments d'âme. Seules quelques dizaines de milliers de personnes restaient sur les terres de la tribu.
 
 Ces gens vénéraient avec ferveur une statue noire et grossière, placée au centre. L'énergie démoniaque émanait de leurs têtes et enveloppait la zone.
 
@@ -22,11 +22,11 @@ Le sens démoniaque du Démon des Nuages, qui s'était trop dissipé et ne se d�
 
 Au fil du temps, le Démon des Nuages s'installa lentement dans la statue. Il avait perdu trop de souvenirs lors de sa fuite, et le reste était devenu flou.
 
-Il n'était même pas le corps original, mais seulement un fragment de sens démoniaque. Toute l'énergie démoniaque provenant de la vénération des membres de la Tribu du Raffinement des Âmes était imprégnée de pensées concernant un homme nommé « Wang Lin ».
+Il n'était même pas le corps original, mais seulement un fragment de sens démoniaque. Toute l'énergie démoniaque provenant de la vénération des membres de la Tribu de l'Affinement de l'Âme était imprégnée de pensées concernant un homme nommé « Wang Lin ».
 
 Au début, il y résista, mais lorsque le nombre de membres de la tribu dépassa le million, il commença peu à peu à ressentir que son nom était Wang Lin sous cette adoration constante; il se sentait être leur ancêtre.
 
-Il passa des centaines d'années avec de telles pensées. Alors que la Tribu du Raffinement des Âmes grandissait pour atteindre des millions d'individus, cette vénération perpétuelle le fit complètement abandonner son passé, au point qu'il finit par croire qu'il était Wang Lin.
+Il passa des centaines d'années avec de telles pensées. Alors que la Tribu de l'Affinement de l'Âme grandissait pour atteindre des millions d'individus, cette vénération perpétuelle le fit complètement abandonner son passé, au point qu'il finit par croire qu'il était Wang Lin.
 
 À mesure qu'il changeait, la statue se transforma lentement pour prendre l'apparence de Wang Lin. Il devint lui aussi Wang Lin à l'intérieur de la statue.
 
@@ -66,7 +66,7 @@ En regardant la statue de pierre devant lui, il avait l'impression qu'elle ne fa
 
 « Cependant, c'est un fragment de sens démoniaque. S'il dispose d'assez d'énergie démoniaque, il grandira et atteindra le niveau d'un démon ancien… » Les yeux de Wang Lin brillèrent. Il savait qu'il ne pouvait pas précipiter les choses et qu'il devait agir avec patience.
 
-Après avoir donné ses instructions à la Secte du Raffinement des Âmes, Wang Lin ne prit pas la statue avec lui. Au lieu de cela, il posa des restrictions puissantes et ordonna à la Secte du Raffinement des Âmes de continuer à l'adorer.
+Après avoir donné ses instructions à la Secte de l'Affinement de l'Âme, Wang Lin ne prit pas la statue avec lui. Au lieu de cela, il posa des restrictions puissantes et ordonna à la Secte de l'Affinement de l'Âme de continuer à l'adorer.
 
 « Ce deuxième avatar est une graine. Pour l'instant, il ne me sert à rien, mais une fois qu'il aura grandi… » Une lueur d'anticipation brilla dans les yeux de Wang Lin. Puis son corps vacilla et il disparut.
 

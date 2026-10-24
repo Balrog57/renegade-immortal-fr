@@ -80,7 +80,7 @@ Tian Yunzi eut un léger sourire et répondit: « Actuellement, au sein de la Di
 
 Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plusieurs fois plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
 
-Une série de rugissements tonitruants retentit alors que le corps de Wang Lin était violemment repoussé en arrière. Il fit apparaître la hache du Clan du Démon Géant pour bloquer la force de l'impact. Simultanément, il mobilisa l'énergie spirituelle céleste métallique de son bras gauche, ce qui lui permit de se stabiliser après avoir reculé de plus d'une centaine de mètres. Il resta là, fixant Chen Tao d'un regard sombre.
+Une série de rugissements tonitruants retentit alors que le corps de Wang Lin était violemment repoussé en arrière. Il fit apparaître la hache du Clan des Démons Géants pour bloquer la force de l'impact. Simultanément, il mobilisa l'énergie spirituelle céleste métallique de son bras gauche, ce qui lui permit de se stabiliser après avoir reculé de plus d'une centaine de mètres. Il resta là, fixant Chen Tao d'un regard sombre.
 
 Wang Lin était resté sur ses gardes tout au long de l'échange. L'attaque précédente n'était pas destinée à le blesser, mais à le déstabiliser. Bien que le sort ait frappé dans le vide, l'onde de choc avait suffi à le repousser. Wang Lin savait pertinemment qu'il ne pouvait rivaliser avec une telle puissance brute.
 

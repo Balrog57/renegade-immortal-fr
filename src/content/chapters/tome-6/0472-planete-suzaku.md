@@ -78,17 +78,17 @@ Les parents de Zhou Ru discutaient avec elle dans la cour, les traits empreints 
 
 « Oncle... » murmura-t-elle en fixant l'immensité. À cet instant, elle sentait son oncle s'éloigner d'elle. Cette distance ne cessait de croître, comme si elle devait durer toute une vie.
 
-Planète Suzaku, domaine du Clan Immortel Délaissé.
+Planète Suzaku, domaine du Clan des Immortels Délaissés.
 
 Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans le Tombeau de Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré, et son énergie vitale était entamée. Il sentait également sa fin approcher, une fatigue immense l'accablant.
 
-L'espérance de vie des membres du Clan Immortel Délaissé était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yun Quezi, il serait mort depuis longtemps.
+L'espérance de vie des membres du Clan des Immortels Délaissés était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yun Quezi, il serait mort depuis longtemps.
 
 « La jeune génération nous surpassera bientôt... » soupira-t-il après un long silence.
 
-Dans les terres du Clan Immortel Délaissé, à plus de dix mille kilomètres de là, un jeune homme couvert de tatouages dorés scintillants contemplait le ciel avec mélancolie.
+Dans les terres du Clan des Immortels Délaissés, à plus de dix mille kilomètres de là, un jeune homme couvert de tatouages dorés scintillants contemplait le ciel avec mélancolie.
 
-« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan Immortel Délaissé. Son histoire était singulière: lors de la bataille pour le Cristal de la Planète de Culture dans le Tombeau de Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
+« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan des Immortels Délaissés. Son histoire était singulière: lors de la bataille pour le Cristal de la Planète de Culture dans le Tombeau de Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
 
 « Frère Wang, je quitte également la planète Suzaku. J'espère que nous aurons l'occasion de nous revoir un jour! »
 

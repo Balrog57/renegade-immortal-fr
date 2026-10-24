@@ -90,9 +90,9 @@ Peu de temps après, le ciel s'obscurcit progressivement, plongeant la pièce da
 
 Son avatar et son corps original se séparèrent dans cette petite maison en bois de la cour sud de la Secte de l'Origine.
 
-Son corps original était assis là, et tout ce qui se trouvait sous la taille n'était que des os. Ses ossements étaient sombres, parcourus de faibles lignes rouges. Si quelqu'un d'autre avait vu cela, il en aurait eu le souffle coupé. L'état du corps original était même pire que lorsqu'il se trouvait à la Secte Divine du Oiseau Vermillon; ses blessures semblaient s'être aggravées.
+Son corps original était assis là, et tout ce qui se trouvait sous la taille n'était que des os. Ses ossements étaient sombres, parcourus de faibles lignes rouges. Si quelqu'un d'autre avait vu cela, il en aurait eu le souffle coupé. L'état du corps original était même pire que lorsqu'il se trouvait à la Secte Divine de l'Oiseau Vermillon; ses blessures semblaient s'être aggravées.
 
-En vérité, Wang Lin avait fusionné avec son corps original dès qu'il avait quitté la Secte Divine du Oiseau Vermillon pour sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie. Cependant, en raison des problèmes liés au corps original, bien qu'ils fussent fusionnés, il ne restait que peu de puissance d'Ancien Dieu utilisable.
+En vérité, Wang Lin avait fusionné avec son corps original dès qu'il avait quitté la Secte Divine de l'Oiseau Vermillon pour sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie. Cependant, en raison des problèmes liés au corps original, bien qu'ils fussent fusionnés, il ne restait que peu de puissance d'Ancien Dieu utilisable.
 
 « Les anciens dieux affrontent les Trois Épreuves et Sept Calamités. Selon les souvenirs de Tu Si, ce n'est qu'après avoir atteint six étoiles que je devrais rencontrer les deux premières calamités de la première épreuve. Je ne pensais pas affronter la première épreuve si tôt... »
 

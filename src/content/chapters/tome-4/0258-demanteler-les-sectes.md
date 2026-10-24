@@ -116,4 +116,4 @@ Wang Lin répondit calmement: « Jamais. »
 
 Wang Lin regarda le vieil homme avec une expression étrange et dit: « Le niveau de culture du Senior est une chose que ce junior n'a jamais vue auparavant. Je vous admire! »
 
-Le vieil homme renifla et se vanta: « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation de 500 000 kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara: « Voilà la Secte Nuage Blanc. Allons-y, ce vieux peut t'emmener démanteler cette secte! »
+Le vieil homme renifla et se vanta: « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation de 500 000 kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara: « Voilà la Secte Bai Yun. Allons-y, ce vieux peut t'emmener démanteler cette secte! »

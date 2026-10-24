@@ -100,7 +100,7 @@ Il croyait que la vue du cercueil de jade les tenterait irrésistiblement. Aprè
 
 Par conséquent, Chi Hu n'était pas pressé.
 
-Ces deux personnes avaient été choisies après une sélection minutieuse. Non seulement la première était très célèbre, mais elle entretenait également des liens avec son Clan Démon Géant.
+Ces deux personnes avaient été choisies après une sélection minutieuse. Non seulement la première était très célèbre, mais elle entretenait également des liens avec son Clan des Démons Géants.
 
 Quant à la seconde personne, Ceng Niu, Chi Hu ne parvenait pas à lire en lui. Bien qu'il ne fût qu'au début du stade de la Formation de l'Âme, Chi Hu ressentait tout de même un sentiment de danger émanant de lui.
 
@@ -122,11 +122,11 @@ Cette femme était le génie de Xue Yu, Hongdie!
 
 Elle lança un regard glacial à Chi Hu alors qu'elle sortait de la formation et déclara: « Si vos paroles sont mensongères, je ne laisserai pas les choses se terminer aussi facilement! »
 
-Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Hongdie. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan Démon Géant, Xi Zu. Il n'aurait aucune raison de mentir. »
+Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Hongdie. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement copié par l'ancêtre de mon Clan des Démons Géants, Xi Zu. Il n'aurait aucune raison de mentir. »
 
-« Xi Zu... » Le visage de Hongdie se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Démon Géant et Xue Yu.
+« Xi Zu... » Le visage de Hongdie se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan des Démons Géants et Xue Yu.
 
-Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan Démon Géant était l'allié de Xue Yu.
+Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan des Démons Géants était l'allié de Xue Yu.
 
 « Puisque Xi Zu lui-même l'a constaté, je vous crois et je me joindrai à vous pour ce voyage. Je ne convoite aucun trésor autre que ce cercueil de jade céleste. Il doit être à moi! » La voix de Hongdie était empreinte d'une détermination absolue.
 

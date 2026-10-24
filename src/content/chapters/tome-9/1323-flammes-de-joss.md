@@ -58,11 +58,11 @@ Contemplant cette moitié d'os, les étoiles du dieu ancien de Wang Lin apparure
 
 « Tuo Sen a utilisé un sort extrêmement puissant pour permettre à ses étoiles de dévorer le doigt. Il peut même dévorer des cultivateurs de la troisième étape pour renforcer ses étoiles... Cependant, il y a une volonté dans cette aura antique, il lui serait donc certainement difficile de la dévorer... Mais cela ne signifie pas que je n'ai aucun moyen de l'absorber... » Les yeux de Wang Lin brillèrent alors qu'il leva sa main droite et plongea à nouveau dans son espace de stockage.
 
-Dans un éclat de lumière, le Fouet Kunji apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, pour venir se placer devant Wang Lin.
+Dans un éclat de lumière, le Fouet Kunji apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan Dévorant la Lune, pour venir se placer devant Wang Lin.
 
 Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sourcils brillait faiblement, résistant au Fouet Kunji.
 
-« Puisque le Clan de la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
+« Puisque le Clan Dévorant la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
 Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, qui s'était échappé jadis du Royaume de la Pluie, et frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
 
@@ -74,7 +74,7 @@ Pourtant, ce vieillard était d'une puissance inouïe, et son âme originelle s'
 
 Fixant l'âme originelle du vieil homme, Wang Lin forma un sceau de ses mains et pointa du doigt. Le Fouet Kunji émit immédiatement une lueur d'or sombre et se rétracta. L'âme originelle du vieillard trembla et son visage se crispa de douleur. Il ouvrit les yeux et lança un regard glacial à Wang Lin.
 
-« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan de la Lune en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet Kunji, tout était scellé.
+« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan Dévorant la Lune en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet Kunji, tout était scellé.
 
 Wang Lin resta silencieux et agita la main droite. Dans un éclat de lumière sanglante, l'Épée de Sang apparut. Sans la moindre pitié, il poignarda l'âme originelle du vieillard avec l'épée.
 
@@ -104,7 +104,7 @@ L'âme originelle du vieil homme aux cheveux blancs était désormais totalement
 
 Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'intérieur du Monde du Vent et de la Pluie. Il s'y assit, dégageant une quantité phénoménale d'aura blanc laiteux...
 
-« Le Clan de la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan de la Lune possède encore trois autres branches... Et dans la branche située plein est, il existe un ancêtre du Clan de la Lune. Cette personne est... un cultivateur de la troisième étape! »
+« Le Clan Dévorant la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan Dévorant la Lune possède encore trois autres branches... Et dans la branche située plein est, il existe un ancêtre du Clan Dévorant la Lune. Cette personne est... un cultivateur de la troisième étape! »
 
 « Ce vieil homme n'avait jamais vu le Souverain de sa vie. Il savait seulement qu'il y a fort longtemps, le Souverain avait fui le Royaume Intérieur gravement blessé et s'était réfugié dans un lieu mystérieux pour guérir! »
 

@@ -76,7 +76,7 @@ Après quelques respirations, le corps de Tan Lang trembla; il rugit et cracha d
 
 Il s'enfuit très rapidement et, peu après, il fut loin de la planète où se trouvait Wang Lin. Il vola profondément dans les Terres Déchues.
 
-Sur la planète du Clan des Scorpions Noirs, la main géante de Wang Lin balaya le sol. Après avoir pris les neuf tablettes de pierre, la lance de brume et le grand fourneau, son regard se posa sur l'arbre géant au sol.
+Sur la planète du Clan du Scorpion Noir, la main géante de Wang Lin balaya le sol. Après avoir pris les neuf tablettes de pierre, la lance de brume et le grand fourneau, son regard se posa sur l'arbre géant au sol.
 
 « Les trésors que Tan Lang possédait sont bien plus puissants qu'auparavant. Ces 99 épées seules sont bien plus fortes que celles du Royaume de la Boucherie! De plus, ces neuf tablettes sont faites d'os et dégagent une aura puissante!
 

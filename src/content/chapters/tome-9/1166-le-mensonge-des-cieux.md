@@ -38,11 +38,11 @@ Le visage de Li Qianmei resta serein. Après une courte réflexion, elle dit: «
 
 Wang Lin fronça les sourcils et trancha calmement: « Je n'en ai pas besoin! »
 
-Li Qianmei sourit et ajouta avec douceur: « Qianmei peut résoudre votre différend avec la Secte Dao Pourpre. »
+Li Qianmei sourit et ajouta avec douceur: « Qianmei peut résoudre votre différend avec la Secte du Dao Pourpre. »
 
 « Je n'en ai pas besoin! »
 
-Visiblement contrariée, Li Qianmei regarda Wang Lin et expliqua doucement: « Dao Frère semble mal comprendre. Qianmei a simplement rencontré le Frère Lu et nous sommes arrivés ensemble par hasard. Je ne suis pas venue ici pour combattre Dao Frère. Qianmei ne se mêlera pas de votre affaire avec la Secte Dao Pourpre. Je souhaite seulement poser trois questions qui me hantent depuis longtemps. Je n'ai aucune autre intention. » Li Qianmei, qui s'expliquait rarement ainsi, voyait bien que Wang Lin pensait qu'elle était venue avec Lu Yuncong.
+Visiblement contrariée, Li Qianmei regarda Wang Lin et expliqua doucement: « Dao Frère semble mal comprendre. Qianmei a simplement rencontré le Frère Lu et nous sommes arrivés ensemble par hasard. Je ne suis pas venue ici pour combattre Dao Frère. Qianmei ne se mêlera pas de votre affaire avec la Secte du Dao Pourpre. Je souhaite seulement poser trois questions qui me hantent depuis longtemps. Je n'ai aucune autre intention. » Li Qianmei, qui s'expliquait rarement ainsi, voyait bien que Wang Lin pensait qu'elle était venue avec Lu Yuncong.
 
 Après l'avoir observée un instant, Wang Lin fronça les sourcils et demanda: « Quel genre de doutes? »
 

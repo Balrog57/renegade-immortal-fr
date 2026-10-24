@@ -114,6 +114,6 @@ Wang Lin esquissa un léger sourire en regardant Zhao Xinmeng: « Se pourrait-il
 
 Le visage de Zhao Xinmeng s'assombrit. Elle le fixa et dit lentement: « Même si tu atteins la puissance de six cycles, tu ne seras toujours pas mon adversaire! »
 
-Wang Lin rit, puis frappa son sac de rangement. La hache du Clan du Démon Géant jaillit dans un rayon de lumière noire pour flotter dans les airs. Simultanément, le cercle de bronze fixé à son poignet s'élança et se métamorphosa en char de guerre.
+Wang Lin rit, puis frappa son sac de rangement. La hache du Clan des Démons Géants jaillit dans un rayon de lumière noire pour flotter dans les airs. Simultanément, le cercle de bronze fixé à son poignet s'élança et se métamorphosa en char de guerre.
 
 « Avec ces deux-là en plus, que dirais-tu d'un combat contre moi? »

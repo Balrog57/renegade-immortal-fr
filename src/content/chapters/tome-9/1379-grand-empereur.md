@@ -12,7 +12,7 @@ En quelques traits seulement, il esquissa la planète sur laquelle ils se trouva
 
 « Même s'il ne s'agit que de mon avatar, je peux encore te tuer avec le Dao Briseur de Ciel! » Les yeux de Maître Simo devinrent glacials alors qu'il levait sa main droite, prêt à frapper violemment!
 
-Cependant, à cet instant précis, les yeux de Wang Lin brillèrent d'une lueur étrange et il s'écria: « Sima Mo de la Secte Briseur de Ciel! »
+Cependant, à cet instant précis, les yeux de Wang Lin brillèrent d'une lueur étrange et il s'écria: « Sima Mo de la Secte Brise-Ciel! »
 
 Sa voix tonna comme un coup de tonnerre, résonnant à travers le monde tel le rugissement des cieux! Les mains de Maître Simo hésitèrent un instant tandis qu'il fixait Wang Lin.
 

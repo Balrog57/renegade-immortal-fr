@@ -30,7 +30,7 @@ Dès qu'il eut franchi le seuil de la boutique, le petit cultivateur éclata d'u
 
 Wang Lin n'avait toujours pas parlé. Il buvait son vin avec désinvolture, ne jetant un regard aux deux individus qu'une seule fois avant de détourner les yeux.
 
-Le cultivateur aux grandes oreilles examina attentivement chaque sculpture avant que son attention ne se focalise soudainement sur deux d'entre elles: l'homme d'âge moyen et la vieille femme de la Secte Nuage Blanc.
+Le cultivateur aux grandes oreilles examina attentivement chaque sculpture avant que son attention ne se focalise soudainement sur deux d'entre elles: l'homme d'âge moyen et la vieille femme de la Secte Bai Yun.
 
 Il les observa longuement, puis esquissa un sourire. Il ne se comportait nullement comme un étranger. D'un revers de manche, il s'installa face à Wang Lin.
 

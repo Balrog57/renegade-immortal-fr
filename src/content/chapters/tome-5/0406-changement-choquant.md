@@ -48,7 +48,7 @@ Après un nouvel examen, une autre feuille apparut sous les onze autres. Bien qu
 
 Dès que le vieil homme sortit du gouffre, les cinq épées dans le ciel vrombirent à l'unisson. Deux d'entre elles quittèrent le filet doré et chargèrent vers lui.
 
-L'expression du vieil homme était calme lorsqu'il murmura: « Le premier Zhu Quezi du pays de Suzaku s'est sacrifié avec neuf cultivateurs Ascendants de stade intermédiaire pour créer ces cinq épées afin de sceller mon Clan de l'Immortel Délaissé pendant des dizaines de milliers d'années. Aujourd'hui, je peux faire de même en me sacrifiant pour libérer mon clan. Absorbe! » Il pointa l'avant de sa main droite et un tatouage gigantesque apparut devant lui. Ce tatouage dégageait une aura primordiale et commença immédiatement à se propager.
+L'expression du vieil homme était calme lorsqu'il murmura: « Le premier Zhu Quezi du pays de Suzaku s'est sacrifié avec neuf cultivateurs Ascendants de stade intermédiaire pour créer ces cinq épées afin de sceller mon Clan des Immortels Délaissés pendant des dizaines de milliers d'années. Aujourd'hui, je peux faire de même en me sacrifiant pour libérer mon clan. Absorbe! » Il pointa l'avant de sa main droite et un tatouage gigantesque apparut devant lui. Ce tatouage dégageait une aura primordiale et commença immédiatement à se propager.
 
 Les deux épées volantes commencèrent à trembler, puis réussirent à se libérer de la puissance du tatouage pour battre en retraite rapidement.
 
@@ -70,7 +70,7 @@ Le vieil homme regarda la dernière épée volante dans le filet doré. Il prit 
 
 Mais l'épée semblait manquer de puissance pour résister. Après un instant, elle s'extirpa du filet doré et chargea vers le vieillard.
 
-« Ce vieux est un pécheur du Clan de l'Immortel Délaissé qui mérite la mort. Aujourd'hui, j'ai franchi le stade des 11 feuilles et ma douzième feuille commence à s'ouvrir, au-delà de ce que les cultivateurs nomment Ascendant. Cependant, mon talent est limité; je n'ai pu absorber pleinement la puissance pour franchir véritablement cette dernière étape. Je suis une honte pour les ancêtres et je ne suis pas digne de tous ces membres du clan qui sont morts pour me maintenir en vie... »
+« Ce vieux est un pécheur du Clan des Immortels Délaissés qui mérite la mort. Aujourd'hui, j'ai franchi le stade des 11 feuilles et ma douzième feuille commence à s'ouvrir, au-delà de ce que les cultivateurs nomment Ascendant. Cependant, mon talent est limité; je n'ai pu absorber pleinement la puissance pour franchir véritablement cette dernière étape. Je suis une honte pour les ancêtres et je ne suis pas digne de tous ces membres du clan qui sont morts pour me maintenir en vie... »
 
 La dernière épée volante fondit sur lui et le transperça juste entre les yeux.
 
@@ -86,7 +86,7 @@ Simultanément, les innombrables tatouages entourant la zone se dispersèrent et
 
 Le corps du vieil homme fusionna lentement avec la plante géante avant de disparaître.
 
-À cet instant, les membres du Clan de l'Immortel Délaissé sortirent un à un du gouffre. Ils furent de plus en plus nombreux, et chacun d'eux s'inclina profondément devant la plante.
+À cet instant, les membres du Clan des Immortels Délaissés sortirent un à un du gouffre. Ils furent de plus en plus nombreux, et chacun d'eux s'inclina profondément devant la plante.
 
 Parmi eux se trouvait une femme portant un voile violet. Ses yeux, sous le tissu, étaient calmes.
 
@@ -94,17 +94,17 @@ Parmi eux se trouvait une femme portant un voile violet. Ses yeux, sous le tissu
 
 À cinquante kilomètres de là, un homme robuste portant un chapeau de paille observa la plante géante et murmura: « J'espère que vous ne m'avez pas menti. Je veux le retour de l'Alliance des Quatre Sectes... »
 
-« Tuez!! » Un rugissement capable de percer les cieux jaillit du Cimetière des Immortels. Ce n'était pas le cri d'un seul homme, mais celui de tous les membres du Clan de l'Immortel Délaissé. Ce hurlement traversa les hautes sphères et résonna à travers toute la terre.
+« Tuez!! » Un rugissement capable de percer les cieux jaillit du Cimetière des Immortels. Ce n'était pas le cri d'un seul homme, mais celui de tous les membres du Clan des Immortels Délaissés. Ce hurlement traversa les hautes sphères et résonna à travers toute la terre.
 
 À ce moment-là, un rugissement furieux s'éleva de la grotte où Zhu Quezi pratiquait, au sommet du Mont Suzaku. Le cri fit exploser la grotte, ne laissant derrière lui que de la poussière.
 
 Zhu Quezi, vêtu d'une robe rouge, apparut dans le vide. Il regarda en direction du Cimetière des Immortels avec une expression extrêmement sombre.
 
-« Maudits vestiges du Clan de l'Immortel Délaissé. Vous cherchez la mort!!! » Zhu Quezi tendit la main et toutes les nuées semblèrent converger vers sa paume. Bientôt, un jeton blanc formé de nuages apparut dans sa main.
+« Maudits vestiges du Clan des Immortels Délaissés. Vous cherchez la mort!!! » Zhu Quezi tendit la main et toutes les nuées semblèrent converger vers sa paume. Bientôt, un jeton blanc formé de nuages apparut dans sa main.
 
 Il le frappa de la main gauche et le jeton se divisa en deux, puis en quatre, et ainsi de suite.
 
-« En tant que Zhu Quezi de la 14e génération, j'appelle tous les pays de culture! La seconde guerre contre le Clan de l'Immortel Délaissé commence! »
+« En tant que Zhu Quezi de la 14e génération, j'appelle tous les pays de culture! La seconde guerre contre le Clan des Immortels Délaissés commence! »
 
 Les jetons nuageux disparurent rapidement. Puis, un vieil homme aux cheveux blancs sortit de sa longue retraite à la Secte du Jade Céleste, dans le pays de Suzaku.
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 567 - Question Yao Xixue The Second Time
 slug: questionner-yao-xixue-une-seconde-fois
 ---
-Dans la vallée de la Tribu du Affinement de l'Âme, Wang Lin toucha son sac de rangement et une sphère de restrictions s'en échappa soudainement. Il apposa un sceau sur la sphère qui s'agrandit brusquement pour s'ouvrir telle une fleur en pleine éclosion.
+Dans la vallée de la Tribu de l'Affinement de l'Âme, Wang Lin toucha son sac de rangement et une sphère de restrictions s'en échappa soudainement. Il apposa un sceau sur la sphère qui s'agrandit brusquement pour s'ouvrir telle une fleur en pleine éclosion.
 
 À l'intérieur, Yao Xixue était assise en position du lotus, le visage d'une pâleur mortelle.
 
@@ -82,7 +82,7 @@ Ouyang Hua acquiesça doucement.
 
 Après une courte réflexion, Wang Lin sortit un morceau de jade. Il le remit à Ouyang Hua en disant: « Le sort d'affinement de l'âme comporte en réalité deux parties. La première est l'affinement de l'âme, la seconde est l'extraction d'âmes. Cela ne doit être enseigné à aucun disciple qui n'est pas un disciple principal. Retiens bien cela! »
 
-Ouyang Hua prit une profonde inspiration en acceptant le jade avec précaution. Après l'avoir lu, il le broya et déclara d'un ton solennel: « Ancêtre, je l'ai mémorisé et je n'oublierai pas vos paroles. Ce sort ne sera enseigné qu'aux disciples principaux de la Tribu du Affinement de l'Âme! »
+Ouyang Hua prit une profonde inspiration en acceptant le jade avec précaution. Après l'avoir lu, il le broya et déclara d'un ton solennel: « Ancêtre, je l'ai mémorisé et je n'oublierai pas vos paroles. Ce sort ne sera enseigné qu'aux disciples principaux de la Tribu de l'Affinement de l'Âme! »
 
 Wang Lin hocha la tête et leva la main vers le ciel. Toute la brume noire recouvrant la tribu se rassembla instantanément dans sa paume, formant un drapeau de 9,9 mètres de long. Il l'avala ensuite rapidement avec son âme originelle.
 
@@ -96,7 +96,7 @@ Ouyang Hua s'agenouilla au sol et répondit d'une voix grave: « Je ne décevrai
 
 Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement vers la Cité du Démon Antique.
 
-« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays du Démon Céleste. Outre moi, plusieurs autres personnes de la Secte Tian Yun sont venues dans cette Terre des Esprits Démoniaques. Je me demande si j'en croiserai dans la capitale... »
+« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays du Démon Céleste. Outre moi, plusieurs autres personnes de la Secte du Destin Céleste sont venues dans cette Terre des Esprits Démoniaques. Je me demande si j'en croiserai dans la capitale... »
 
 « Il y a également cette dizaine de personnes de la Secte de l'Épée Da Luo. Si j'en rencontre dans la capitale, je devrai en capturer un pour l'interroger sur l'endroit où Zhou Yi est scellé! » Wang Lin réfléchissait, mais sa vitesse ne faiblissait pas et il disparut par-delà l'horizon.
 

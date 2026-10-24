@@ -104,9 +104,9 @@ Cette Prison des Ténèbres était souterraine, sous la Cité de l'Ancien Démon
 
 Vu le statut de Hu Pao, il ne pouvait pas être enfermé dans les profondeurs de la prison. Wang Lin déploya son Sens Divin mais ne trouva aucune trace de lui. Il poussa un soupir, puis disparut sans laisser de trace.
 
-Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était plusieurs fois supérieure à auparavant. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu du Raffinement des Âmes.
+Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était plusieurs fois supérieure à auparavant. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu de l'Affinement de l'Âme.
 
-Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu du Raffinement des Âmes se dessinait au loin!
+Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu de l'Affinement de l'Âme se dessinait au loin!
 
 Bien que la tribu n'ait pas étendu son territoire cette année, tous ses membres s'étaient consacrés avec acharnement à leur culture. Cette zone de 5 kilomètres était entièrement sous le contrôle de la tribu.
 

@@ -10,7 +10,7 @@ La planète des Scorpions Noirs était toujours enveloppée d'une couche d'éner
 
 Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Délaissés, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et se contracta rapidement, affluant en masse vers l'intérieur de la planète!
 
-Ce changement soudain attira l'attention du Clan des Scorpions Noirs et du Clan de l'Évasion Nuageuse. Alors qu'ils déployaient leur Sens Divin pour observer, ils remarquèrent que la dense énergie démoniaque convergeait toute vers la grotte de Wang Lin!
+Ce changement soudain attira l'attention du Clan du Scorpion Noir et du Clan de l'Évasion Nuageuse. Alors qu'ils déployaient leur Sens Divin pour observer, ils remarquèrent que la dense énergie démoniaque convergeait toute vers la grotte de Wang Lin!
 
 C'était comme si un vortex s'était formé à l'intérieur de la grotte, aspirant toute l'énergie démoniaque!
 
@@ -50,7 +50,7 @@ Wang Lin laissa échapper un froid reniflement.
 
 L'âme démoniaque trembla et se transforma en un rayon de lumière noire. Elle fonça vers la Lance du Démon de Brume pour s'y intégrer. Dès qu'elle pénétra dans l'arme, la lance sembla acquérir une âme et dégagea une aura terrifiante. Elle se métamorphosa en un python noir et jaillit de la grotte. S'étirant dans le ciel, elle poussa un rugissement qui ébranla les cieux!
 
-Les membres du Clan des Scorpions Noirs restèrent stupéfaits devant ce python noir qui dégageait une pression infinie. Ils étaient totalement ébranlés.
+Les membres du Clan du Scorpion Noir restèrent stupéfaits devant ce python noir qui dégageait une pression infinie. Ils étaient totalement ébranlés.
 
 Les membres du Clan de l'Évasion Nuageuse éprouvèrent le même sentiment, fixant le python noir avec terreur. Une sensation d'effroi envahit leurs cœurs.
 
@@ -100,7 +100,7 @@ Parallèlement au Conseil Souverain, le Conseil Déchu envoyait également des i
 
 Le Grand Empereur ignorait tout cela. Pour lui, la Sélection des Anciens Délaissés n'était qu'une simple festivité.
 
-Wang Lin se rendit sur la Planète du Grand Empereur avec le Clan des Scorpions Noirs et le Clan de l'Évasion Nuageuse.
+Wang Lin se rendit sur la Planète du Grand Empereur avec le Clan du Scorpion Noir et le Clan de l'Évasion Nuageuse.
 
 Une femme aux longs cheveux se tenait sur une gigantesque boussole octogonale à l'extérieur de la Terre Déchue. Elle fronçait les sourcils, plongée dans ses pensées.
 

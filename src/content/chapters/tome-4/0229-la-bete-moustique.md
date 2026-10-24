@@ -44,7 +44,7 @@ Bien que Wang Lin ait été extrêmement prudent en n'utilisant que 20 % de la p
 
 La moustique gisait sur la main de Wang Lin, le corps couvert de multiples blessures. Elle saignait un sang pourpre, son proboscis était fissuré et ses yeux devenaient troubles. La bête moustique était à l'article de la mort.
 
-L'expression de Wang Lin resta impassible. Il mordit son doigt et laissa tomber une goutte de sang entre les yeux de la créature. Ensuite, il sortit quelques pilules de la Secte Ciel Nuageux et les administra à la bête.
+L'expression de Wang Lin resta impassible. Il mordit son doigt et laissa tomber une goutte de sang entre les yeux de la créature. Ensuite, il sortit quelques pilules de la Secte du Ciel Nuageux et les administra à la bête.
 
 Après avoir ingéré les pilules, le corps de la bête secoua violemment, libérant des vagues de poussière grise. Lentement, ses blessures se refermèrent et même la fissure sur son proboscis disparut. Peu après, elle retrouva une pleine santé et s'envola de la main de Wang Lin. Elle effectua quelques cercles autour de lui en émettant de faibles sifflements impuissants.
 

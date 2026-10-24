@@ -122,7 +122,7 @@ Ce blanc ressemblait à une toile de peinture! D'innombrables ombres y dessinaie
 
 « Je suis le pinceau, un seul trait pour briser le ciel. Accomplissez mon Dao Briseur de Ciel! » Le Maître Simo agita sa main droite telle un pinceau. Le monde se métamorphosa sous ses mouvements, comme s'il façonnait son propre univers!
 
-Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait discuté du Dao avec Li Qianmei, ils avaient également abordé la question des sorts, et il avait récupéré le jade de Sima Mo. Il s'était aussi rendu dans la grotte de Sima Mo au sein du Royaume aux Sept Couleurs. Tout cela lui avait permis de savoir qu'il existait au sein de la Secte Briseur de Ciel une technique divine nommée le Dao Briseur de Ciel!
+Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait discuté du Dao avec Li Qianmei, ils avaient également abordé la question des sorts, et il avait récupéré le jade de Sima Mo. Il s'était aussi rendu dans la grotte de Sima Mo au sein du Royaume aux Sept Couleurs. Tout cela lui avait permis de savoir qu'il existait au sein de la Secte Brise-Ciel une technique divine nommée le Dao Briseur de Ciel!
 
 Seuls les Maîtres de Secte successifs et le disciple aîné pouvaient la pratiquer! Il était d'une puissance incommensurable!
 

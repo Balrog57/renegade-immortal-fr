@@ -1,6 +1,6 @@
 ---
 n: 1212
-title: "Le Clan de l'Extermination Scellée"
+title: "Le Clan de l'Extermination des Sceaux"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1212 - Sealing Extermination Clan
@@ -46,7 +46,7 @@ Dès que les os disparurent, le feu bleu se précipita vers le vieil homme comme
 
 Cette fente émettait une lueur noire, telle un troisième œil!
 
-« En tant que descendant du Clan de l'Extermination Scellée, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme n'hésita pas à révéler qu'il n'était pas un cultivateur, et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement à l'extrême.
+« En tant que descendant du Clan de l'Extermination des Sceaux, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme n'hésita pas à révéler qu'il n'était pas un cultivateur, et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement à l'extrême.
 
 La rune noire se projeta vers Wang Lin à une vitesse inimaginable. Elle perça la mer de feu bleu et vint se fixer entre les sourcils de ce dernier!
 
@@ -56,7 +56,7 @@ Dans l'Antiquité, il existait un clan capable de sceller les cieux. Ils étaien
 
 La rumeur prétendait que n'importe quel membre de ce clan possédait le pouvoir de sceller toute forme de vie!
 
-Ce vieil homme n'était pas un véritable descendant du Clan de l'Extermination Scellée. Il avait utilisé une méthode spéciale pour s'approprier une partie de leur lignée sanguine. Il pouvait utiliser leurs sorts, mais cela lui coûtait une quantité immense de vitalité à chaque usage, et cette vitalité ne pouvait jamais être restaurée!
+Ce vieil homme n'était pas un véritable descendant du Clan de l'Extermination des Sceaux. Il avait utilisé une méthode spéciale pour s'approprier une partie de leur lignée sanguine. Il pouvait utiliser leurs sorts, mais cela lui coûtait une quantité immense de vitalité à chaque usage, et cette vitalité ne pouvait jamais être restaurée!
 
 « Si vous n'étiez qu'un simple cultivateur, cela n'aurait eu aucune importance, mais vous avez osé imiter mon Haut Clan Ancestral. Je vais sceller votre tatouage de feu et voir ce que vous valez sans lui! » Le vieil homme craignait par-dessus tout le feu de Wang Lin, sans quoi il n'aurait pas sacrifié sa vitalité pour ce sort de scellement. Il se précipita vers lui!
 

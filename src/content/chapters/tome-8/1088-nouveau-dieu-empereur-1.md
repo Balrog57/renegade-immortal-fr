@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1088 - New Divine Emperor (1)
 slug: nouveau-dieu-empereur-1
 ---
-Wang Lin flottait parmi les étoiles, entouré de flammes. L'onde de chaleur se propageait à travers tout le champ stellaire et enveloppait la Secte Divine du Oiseau Vermillon.
+Wang Lin flottait parmi les étoiles, entouré de flammes. L'onde de chaleur se propageait à travers tout le champ stellaire et enveloppait la Secte Divine de l'Oiseau Vermillon.
 
 Sur son bras droit, il ne restait plus que sept tatouages de feu. La fleur de feu qui venait de s'épanouir se trouvait à l'extérieur de son corps, tandis qu'une dense énergie d'origine du feu pénétrait en lui.
 
@@ -58,7 +58,7 @@ Alors que le Oiseau Vermillon se manifestait, Wang Lin endura la douleur atroce 
 
 En un instant, ce tatouage se mua en énergie d'origine et pénétra rapidement dans son corps. À cet instant, Wang Lin eut la sensation que tout son être brûlait, comme s'il était raffiné à l'intérieur d'un fourneau céleste naturel.
 
-Wang Lin ignorait que les membres de la Secte Divine du Oiseau Vermillon observaient tous l'ascension d'un nouvel Empereur Divin grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
+Wang Lin ignorait que les membres de la Secte Divine de l'Oiseau Vermillon observaient tous l'ascension d'un nouvel Empereur Divin grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
 
 Lei Ji et Da Tou étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix dans le brasier, en pleine renaissance.
 
@@ -90,7 +90,7 @@ Durant ces trois années, ce jeune homme était resté là à protéger la statu
 
 « Professeur... » C'était Treize!
 
-Sur la planète où se trouvait la Secte de l'Affinement de l'Âme, un vieil homme était assis sur les remparts d'une cité de la Secte Divine du Oiseau Vermillon. Il tenait une cruche de vin et buvait avec une expression amère. Il en était ainsi depuis trois ans.
+Sur la planète où se trouvait la Secte de l'Affinement de l'Âme, un vieil homme était assis sur les remparts d'une cité de la Secte Divine de l'Oiseau Vermillon. Il tenait une cruche de vin et buvait avec une expression amère. Il en était ainsi depuis trois ans.
 
 Le grondement tonitruant et la lueur cramoisie qui embrasait le ciel le firent lever la tête. Mais après un bref regard, il la baissa et continua de boire.
 
@@ -110,7 +110,7 @@ Il y avait un autre endroit au sein de ce champ stellaire ardent. Bien que la ch
 
 « Diable Wang, si tu pousses ton Grand-père Xu à bout, je me battrai jusqu'à la mort! »
 
-Les jurons et les supplications misérables ne s'étaient jamais interrompus durant ces trois années. Parfois, des cris de douleur déchiraient l'air. Cela faisait que, chaque fois qu'un disciple de la Secte Divine du Oiseau Vermillon passait par là, il faisait un détour pour éviter ce bruit agaçant.
+Les jurons et les supplications misérables ne s'étaient jamais interrompus durant ces trois années. Parfois, des cris de douleur déchiraient l'air. Cela faisait que, chaque fois qu'un disciple de la Secte Divine de l'Oiseau Vermillon passait par là, il faisait un détour pour éviter ce bruit agaçant.
 
 Au centre du cyclone siégeait un homme. Entouré de flammes, il devait constamment utiliser des sorts pour les repousser. Le moindre instant d'inattention le condamnerait à être consumé.
 

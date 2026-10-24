@@ -14,7 +14,7 @@ Le temps passa, et en un clin d'œil, dix ans s'étaient écoulés.
 
 Au cours de ces dix années, l'apparence de Wang Lin s'était encore vieillie. Des mèches de cheveux blancs parsemaient sa tête, son dos autrefois droit était devenu quelque peu voûté, et dans l'ensemble, il semblait avoir atteint le crépuscule de sa vie.
 
-La fréquence de ses sculptures avait progressivement diminué. Durant ces dix dernières années, Wang Lin n'avait achevé qu'une seule œuvre: celle de la vieille femme de la Secte Nuage Blanc.
+La fréquence de ses sculptures avait progressivement diminué. Durant ces dix dernières années, Wang Lin n'avait achevé qu'une seule œuvre: celle de la vieille femme de la Secte Bai Yun.
 
 En réalité, il avait terminé cette sculpture il y a neuf ans. Bien qu'elle fût similaire à celle de l'homme d'âge mûr et loin d'égaler l'original, il savait que cela était dû au fait qu'il n'avait pas encore atteint le stade de la Formation de l'Âme.
 

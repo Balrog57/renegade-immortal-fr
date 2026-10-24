@@ -90,7 +90,7 @@ Après avoir médité en silence, l'expression de Xu Yun devint sombre. Elle fix
 
 Wang Lin, posté près de la fenêtre, vit le rayon de lumière disparaître dans la nuit. Une illumination traversa son cœur.
 
-« Je ne pensais pas... qu'une telle pilule puisse exister dans la Mer des Nuages... Cela signifie que plus la bête spirituelle est puissante, plus elle est utile pour aider l'âme à atteindre l'illumination... C'est très différent des deux royaumes du Tonnerre et de la Pluie. » En réfléchissant, Wang Lin se souvint soudainement de l'âme de bête que Mo Zhi lui avait offerte en cadeau, raffinée par son propre maître lorsqu'il était à la Secte Divine du Oiseau Vermillon...
+« Je ne pensais pas... qu'une telle pilule puisse exister dans la Mer des Nuages... Cela signifie que plus la bête spirituelle est puissante, plus elle est utile pour aider l'âme à atteindre l'illumination... C'est très différent des deux royaumes du Tonnerre et de la Pluie. » En réfléchissant, Wang Lin se souvint soudainement de l'âme de bête que Mo Zhi lui avait offerte en cadeau, raffinée par son propre maître lorsqu'il était à la Secte Divine de l'Oiseau Vermillon...
 
 À cet instant, dans la région de rang 5 non loin du Continent de Mo Luo, une créature au corps semblable à un têtard noir, large de mille pieds, volait lentement à travers les brumes stellaires.
 

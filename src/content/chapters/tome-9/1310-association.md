@@ -32,13 +32,13 @@ Au fil du temps, son âme originelle guérit. Hormis la blessure sur sa poitrine
 
 « Absorber la chair et le sang de ces cultivateurs ordinaires ne suffira pas à l'expulser. Je dois absorber la puissance d'un Dieu Ancien... Dans ce Système Stellaire Antique, je ne connais qu'un seul endroit où trouver une telle puissance! »
 
-« C’est le Clan des Esclaves de la Lune! » Les yeux de Wang Lin brillèrent et il laissa échapper un froid reniflement. D'un pas, il fusionna avec le monde et se précipita vers l'emplacement du Clan de la Lune gravé dans sa mémoire.
+« C’est le Clan des Esclaves de la Lune! » Les yeux de Wang Lin brillèrent et il laissa échapper un froid reniflement. D'un pas, il fusionna avec le monde et se précipita vers l'emplacement du Clan Dévorant la Lune gravé dans sa mémoire.
 
-Le Clan de la Lune comptait de nombreux cultivateurs puissants, dont une multitude de vieux monstres ayant vécu durant des éons. C’était un véritable repaire de dragons et de tigres, où le danger guettait à chaque instant! Cependant, Wang Lin avait d'autres projets. Il savait que durant ces dernières années, le Clan de la Lune n'avait pas été anéanti par Tuo Sen.
+Le Clan Dévorant la Lune comptait de nombreux cultivateurs puissants, dont une multitude de vieux monstres ayant vécu durant des éons. C’était un véritable repaire de dragons et de tigres, où le danger guettait à chaque instant! Cependant, Wang Lin avait d'autres projets. Il savait que durant ces dernières années, le Clan Dévorant la Lune n'avait pas été anéanti par Tuo Sen.
 
-« Puisque Tuo Sen ne cessera de me pourchasser, je vais simplement l'attirer vers le Clan de la Lune. Je veux voir comment ils comptent résister! » Le regard de Wang Lin devint d'une froideur extrême alors qu'il fusionnait avec le monde et disparaissait.
+« Puisque Tuo Sen ne cessera de me pourchasser, je vais simplement l'attirer vers le Clan Dévorant la Lune. Je veux voir comment ils comptent résister! » Le regard de Wang Lin devint d'une froideur extrême alors qu'il fusionnait avec le monde et disparaissait.
 
-Le Clan de la Lune était très éloigné de sa position actuelle. Il n'y était jamais allé auparavant et ne connaissait la direction que grâce au membre du Clan de la Lune dont il avait extrait les souvenirs dans le Royaume aux Sept Couleurs. Il savait qu'une seule Distorsion Spatiale ne suffirait pas; il devait répéter l'opération plusieurs fois.
+Le Clan Dévorant la Lune était très éloigné de sa position actuelle. Il n'y était jamais allé auparavant et ne connaissait la direction que grâce au membre du Clan Dévorant la Lune dont il avait extrait les souvenirs dans le Royaume aux Sept Couleurs. Il savait qu'une seule Distorsion Spatiale ne suffirait pas; il devait répéter l'opération plusieurs fois.
 
 Dans sa course effrénée, il n'avait pas le temps d'observer le Système Stellaire Antique. Ce lieu différait du ciel étoilé du Royaume Intérieur. Même au plus brillant, celui-ci gardait une sorte de voile de brume, comme si une force avait tout transformé en membrane. C'était comme être enfermé dans une cage.
 

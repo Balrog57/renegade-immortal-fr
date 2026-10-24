@@ -20,7 +20,7 @@ Simultanément, son âme originelle de dragon de tonnerre ancestral poussa un ru
 
 Et ce n'était pas seulement cette vallée. À cet instant précis, tout le ciel surplombant le Pays des Démons de Feu fut recouvert d'un tonnerre incessant.
 
-Ce changement soudain poussa les membres de la Tribu du Raffinement des Âmes, présents dans le Pays des Démons de Feu, à lever les yeux avec confusion.
+Ce changement soudain poussa les membres de la Tribu de l'Affinement de l'Âme, présents dans le Pays des Démons de Feu, à lever les yeux avec confusion.
 
 Alors que le tonnerre résonnait à travers le monde, non seulement le Pays des Démons de Feu, mais aussi les pays environnants furent enveloppés par les foudres. Les innombrables éclairs qui dévalaient du ciel manifestaient la puissance brute du tonnerre.
 
@@ -52,7 +52,7 @@ Au moment où le doigt de Wang Lin toucha la statue, sa culture de Scruteur du N
 
 Lorsque la culture et le sens divin de Wang Lin pénétrèrent, il ressentit un impact sur son âme originelle. Ce qui apparut devant son sens divin était une terre étrange.
 
-Cet endroit était saturé d'un brouillard blanc; on aurait dit une mer de brume. D'un simple regard, Wang Lin reconnut cette brume blanche comme l'aura émanant des têtes de tous les membres de la Tribu du Raffinement des Âmes lorsqu'ils vénéraient la statue depuis des centaines d'années.
+Cet endroit était saturé d'un brouillard blanc; on aurait dit une mer de brume. D'un simple regard, Wang Lin reconnut cette brume blanche comme l'aura émanant des têtes de tous les membres de la Tribu de l'Affinement de l'Âme lorsqu'ils vénéraient la statue depuis des centaines d'années.
 
 Après un reniflement froid, il laissa son sens divin se déployer dans cet endroit étrange. Soudain, ses yeux se plissèrent et son sens divin se fixa sur quelque chose devant lui.
 
@@ -94,9 +94,9 @@ En tant que Dieu Ancestral Royal à 5 étoiles, Wang Lin pouvait voir d'un coup 
 
 Pour être plus précis, ce démon ancestral n'était qu'un vestige!
 
-« Même un vestige d'esprit de démon ancien sait absorber l'énergie démoniaque pour se guérir... » ricana Wang Lin. Il comprenait désormais que la brume blanche émanant des têtes des membres de la Tribu du Raffinement des Âmes n'était autre qu'une faible énergie démoniaque!
+« Même un vestige d'esprit de démon ancien sait absorber l'énergie démoniaque pour se guérir... » ricana Wang Lin. Il comprenait désormais que la brume blanche émanant des têtes des membres de la Tribu de l'Affinement de l'Âme n'était autre qu'une faible énergie démoniaque!
 
-« Tous les membres de la Tribu du Raffinement des Âmes sont nés dans la Terre des Esprits Démoniaques... » Après avoir contemplé ce démon, Wang Lin en saisit la raison.
+« Tous les membres de la Tribu de l'Affinement de l'Âme sont nés dans la Terre des Esprits Démoniaques... » Après avoir contemplé ce démon, Wang Lin en saisit la raison.
 
 Tout en réfléchissant, Wang Lin s'approcha du démon ancestral qui lui ressemblait trait pour trait. Les yeux de celui-ci restaient clos, sans aucun signe de réveil.
 

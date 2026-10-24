@@ -110,6 +110,6 @@ De cette position, les gémissements provenant de la grotte étaient encore plus
 
 « La chaleur a atteint la température requise... Seulement, ce feu ne convient pas pour planter le Dao... Car il n'a pas encore fait bouillir l'âme... » dit une voix ancienne émanant de derrière la bougie.
 
-« Un faux membre du Clan de l'Extermination Scellée est mort. N'avez-vous aucun doute sur les causes de son décès? » demanda une voix indifférente.
+« Un faux membre du Clan de l'Extermination des Sceaux est mort. N'avez-vous aucun doute sur les causes de son décès? » demanda une voix indifférente.
 
 « Pourquoi douterais-je... Je connaîtrai la réponse une fois que le Dao aura été planté. Ce sera bien plus intéressant... L'inconnu possède le goût le plus délicieux... L'attente est l'arrière-goût éternel. Alors, laissez le feu devenir fou... »

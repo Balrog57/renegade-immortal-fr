@@ -16,9 +16,9 @@ Un vieil homme se tenait respectueusement derrière lui, accompagnant l'homme d'
 
 Le vieil homme dit doucement: « Maître de Secte, à la vitesse actuelle du tigre, nous arriverons sur le continent de Mo Luo dans une journée. »
 
-Ces personnes étaient les cultivateurs de la Secte Dao Pourpre. Normalement, leur voyage n'aurait pas dû être aussi long, mais en raison de l'affaire du jade et de la recette qui avait provoqué l'invasion de la région de rang 5, ils avaient dû retarder leur arrivée sur le continent de Mo Luo.
+Ces personnes étaient les cultivateurs de la Secte du Dao Pourpre. Normalement, leur voyage n'aurait pas dû être aussi long, mais en raison de l'affaire du jade et de la recette qui avait provoqué l'invasion de la région de rang 5, ils avaient dû retarder leur arrivée sur le continent de Mo Luo.
 
-Après avoir réglé toutes les affaires et coopéré avec les sectes de rang 6, la Secte Dao Pourpre avait enfin envoyé ses membres vers le continent de Mo Luo.
+Après avoir réglé toutes les affaires et coopéré avec les sectes de rang 6, la Secte du Dao Pourpre avait enfin envoyé ses membres vers le continent de Mo Luo.
 
 Le regard de l'homme d'âge moyen se posa sur le brouillard stellaire devant lui, comme plongé dans une profonde réflexion. Après un long moment, il hocha la tête et dit calmement: « Il y aura enfin une réponse à ce qui doit être tranché. »
 
@@ -68,7 +68,7 @@ L'homme d'âge moyen sourit, puis parla à voix basse, comme dans un monologue.
 
 Le vieil homme à ses côtés était totalement stupéfait. Il regarda l'homme d'âge moyen avec un mélange de révérence et d'effroi; une trace de peur perçait même dans son regard.
 
-Il suivait Lu Yuncong depuis de nombreuses années et l'avait vu partir de rien pour atteindre les sommets. La Secte Dao Pourpre n'était qu'une infime secte de la région de rang 5 il y a trois mille ans. Cependant, entre les mains de cet homme, elle était devenue redoutable. Bien qu'elle ne fût pas la plus puissante de la région de rang 5, le nom de « Lu Yuncong » était connu dans les régions de rang 6, 7 et 8.
+Il suivait Lu Yuncong depuis de nombreuses années et l'avait vu partir de rien pour atteindre les sommets. La Secte du Dao Pourpre n'était qu'une infime secte de la région de rang 5 il y a trois mille ans. Cependant, entre les mains de cet homme, elle était devenue redoutable. Bien qu'elle ne fût pas la plus puissante de la région de rang 5, le nom de « Lu Yuncong » était connu dans les régions de rang 6, 7 et 8.
 
 « Je voudrais vraiment rencontrer ce mystérieux cultivateur... J'ai le pressentiment que nos chemins se croiseront un jour... » Les yeux de l'homme d'âge moyen brillaient d'attente. Les mains derrière le dos, il paraissait aussi immuable qu'une montagne aux yeux du vieil homme.
 
@@ -82,7 +82,7 @@ Le tigre s'arrêta net, faisant preuve d'une grande vigilance. Une trace de crai
 
 Cet événement soudain poussa les trente cultivateurs à ouvrir les yeux simultanément. Ils se levèrent calmement et fixèrent l'horizon avec froideur. À la surprise générale, aucun signe de panique ne se lisait sur leurs visages!
 
-C'était parce qu'ils étaient les disciples de proue de la Secte Dao Pourpre, les disciples directs choisis par le Maître de Secte lui-même! Ils étaient habités par la fierté. Ils pouvaient mourir ou être vaincus, mais ils ne pouvaient point céder à la panique. Même si une montagne s'effondrait devant eux, ils devaient rester imperturbables.
+C'était parce qu'ils étaient les disciples de proue de la Secte du Dao Pourpre, les disciples directs choisis par le Maître de Secte lui-même! Ils étaient habités par la fierté. Ils pouvaient mourir ou être vaincus, mais ils ne pouvaient point céder à la panique. Même si une montagne s'effondrait devant eux, ils devaient rester imperturbables.
 
 Le vieil homme aux côtés de Lu Yuncong prit un air grave face à cette étrange lueur bleue. Seul Lu Yuncong restait de marbre, observant la brume avec calme, comme si rien ne se passait.
 

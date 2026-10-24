@@ -114,4 +114,4 @@ Wang Lin ouvrit les yeux et regarda avec un sourire le nuage blanc qui s'éloign
 
 « Les marques entre les sourcils des habitants du Système Stellaire Antique sont étranges. Elles semblent capables de se dévorer mutuellement et d'évoluer constamment vers une forme de perfection... »
 
-« Ce que je veux savoir, c'est à quel clan appartient ce Souverain machiavélique! » Les yeux de Wang Lin s'illuminèrent. L'âme originelle de ce vieil homme aux cheveux blancs du Clan de la Lune se trouvait dans son espace de stockage. Toutes les réponses s'y trouvaient peut-être.
+« Ce que je veux savoir, c'est à quel clan appartient ce Souverain machiavélique! » Les yeux de Wang Lin s'illuminèrent. L'âme originelle de ce vieil homme aux cheveux blancs du Clan Dévorant la Lune se trouvait dans son espace de stockage. Toutes les réponses s'y trouvaient peut-être.

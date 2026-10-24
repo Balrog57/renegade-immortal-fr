@@ -36,7 +36,7 @@ Une personne était assise au sommet de la montagne. Cette personne avait une t�
 
 C'était Da Tou!
 
-Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divine du Oiseau Vermillon, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé, grâce à la volonté de Da Tou, à reformer un corps identique au précédent.
+Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divine de l'Oiseau Vermillon, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé, grâce à la volonté de Da Tou, à reformer un corps identique au précédent.
 
 Da Tou devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
 
@@ -50,7 +50,7 @@ Au moment où le tonnerre rugissant passa, la tempête s'arrêta soudainement, r
 
 Le corps de cet homme était immense, comme une véritable montagne de chair. En ce moment, il était presque nu et couvert de sueur, mais cette montagne de chair ne semblait nullement diminuer de volume.
 
-Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme dénué de bonté. Être au sein de la Secte Divine du Oiseau Vermillon est bien plus sûr que l'extérieur. »
+Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme dénué de bonté. Être au sein de la Secte Divine de l'Oiseau Vermillon est bien plus sûr que l'extérieur. »
 
 « Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Nuit Brisée* suffisait déjà à l'effrayer, alors ne parlons même pas du *Rêve des Temps Anciens*.
 
@@ -72,13 +72,13 @@ Lorsque le tonnerre grondant traversa le ciel, l'homme ouvrit les yeux et une qu
 
 « Cet endroit maudit est trop chaud! Si ce n'était pas pour mon frère, je serais déjà parti depuis longtemps! » L'homme serra la glace encore plus fort, absorbant d'immenses quantités d'énergie froide.
 
-À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Briseur du Nirvana de la Secte Divine du Oiseau Vermillon. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
+À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Briseur du Nirvana de la Secte Divine de l'Oiseau Vermillon. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
 
 Dans un bruit sourd, l'homme fut arraché à la glace et s'écrasa au sol.
 
 « Petit Situ, ce vieil homme a reçu l'ordre de l'Empereur Divin d'éliminer la toxine de ton corps, tu dois donc écouter mes ordres. Sinon, ne me reproche pas de te donner une leçon! »
 
-Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divine du Oiseau Vermillon, il lui aurait été impossible de tenir deux ans.
+Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divine de l'Oiseau Vermillon, il lui aurait été impossible de tenir deux ans.
 
 Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait inflexible et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
 
@@ -96,7 +96,7 @@ Wang Lin prit une profonde inspiration. Tandis qu'il le faisait, sa main traça 
 
 Le vieil homme derrière Wang Lin devint encore plus pâle et l'aura de mort qui l'entourait s'intensifia. Il dit d'une voix rauque: « Je crains de ne pas pouvoir tenir beaucoup plus longtemps... »
 
-« J'espère que tu réussiras la première transformation avant ma mort. Ainsi, je pourrai partir l'esprit tranquille en te transmettant la Secte Divine du Oiseau Vermillon... Ce n'est qu'après avoir maîtrisé la première transformation que tu pourras contrôler le Trésor Sacré de la Secte Divine du Oiseau Vermillon. »
+« J'espère que tu réussiras la première transformation avant ma mort. Ainsi, je pourrai partir l'esprit tranquille en te transmettant la Secte Divine de l'Oiseau Vermillon... Ce n'est qu'après avoir maîtrisé la première transformation que tu pourras contrôler le Trésor Sacré de la Secte Divine de l'Oiseau Vermillon. »
 
 La main de Wang Lin revint à sa position initiale alors qu'il restait assis là. L'énergie brûlante circulait dans les méridiens de son corps. Il expira ensuite un souffle chaud et ouvrit les yeux.
 

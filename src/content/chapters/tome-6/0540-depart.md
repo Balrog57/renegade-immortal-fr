@@ -66,9 +66,9 @@ Wang Lin réfléchit encore un instant, puis toucha sa sacoche de stockage. Il e
 
 En recevant le jade, l'excitation qui fit vibrer le cœur de Treize fut indescriptible. Il se prosterna plusieurs fois avant de s'éclipser.
 
-Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fin de compte, il n'avait pas transmis la Tactique de l'Ancien Dieu à Treize. À la place, il avait résumé une partie de ce qu'il savait sur le Clan du Démon Géant pour le lui transmettre.
+Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fin de compte, il n'avait pas transmis la Tactique de l'Ancien Dieu à Treize. À la place, il avait résumé une partie de ce qu'il savait sur le Clan des Démons Géants pour le lui transmettre.
 
-« S'il parvient à maîtriser la méthode de raffinement corporel du Clan du Démon Géant, je lui enseignerai le premier stade de la Tactique de l'Ancien Dieu. S'il échoue, cela signifiera simplement qu'il n'est pas destiné à l'apprendre. »
+« S'il parvient à maîtriser la méthode de raffinement corporel du Clan des Démons Géants, je lui enseignerai le premier stade de la Tactique de l'Ancien Dieu. S'il échoue, cela signifiera simplement qu'il n'est pas destiné à l'apprendre. »
 
 En un clin d'œil, deux années supplémentaires s'écoulèrent. Durant cette période, la Tribu de l'Affinement de l'Âme connut une croissance fulgurante. Sa taille ne cessa de croître, passant de 20 kilomètres à environ 150 kilomètres de large, et la tribu comptait désormais plus de 5 000 hommes.
 
@@ -84,7 +84,7 @@ Une impasse s'était installée entre les trois tribus dans ce rayon de 50 000 k
 
 À l'origine, Ouyang Hua voulait attaquer l'une des grandes tribus, mais Wang Lin l'en avait empêché. Il voulait que les membres de la tribu cessent leurs offensives pour se concentrer sur leur culture. Les paroles de Wang Lin étaient perçues comme divines par le peuple de la tribu.
 
-Un cas remarquable était celui de Treize. La persévérance de cet enfant était prodigieuse; il avait réussi à assimiler une partie de la méthode de raffinement corporel du Clan du Démon Géant. Son corps était devenu dur comme l'acier et, lors des combats, il chargeait toujours en première ligne. Rien ne pouvait l'arrêter!
+Un cas remarquable était celui de Treize. La persévérance de cet enfant était prodigieuse; il avait réussi à assimiler une partie de la méthode de raffinement corporel du Clan des Démons Géants. Son corps était devenu dur comme l'acier et, lors des combats, il chargeait toujours en première ligne. Rien ne pouvait l'arrêter!
 
 En quatre ans, Wang Lin avait transformé une petite tribu nichée dans une vallée en une grande puissance de plus de 5 000 personnes. Il ordonna à tous de se consacrer à la culture car il avait d'autres projets. Il avait décidé de quitter la tribu pour un temps!
 

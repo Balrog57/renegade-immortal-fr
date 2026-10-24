@@ -26,7 +26,7 @@ Son bras droit enlaçait tendrement Li Qianmei. Wang Lin ignora ses propres bles
 
 Le ciel étoilé était d'un calme absolu, sans la moindre perturbation. Le monde lui-même semblait s'assombrir. Seuls un homme et une femme volaient silencieusement à travers l'immensité stellaire.
 
-La moitié de l'os de doigt de l'Ancien Dieu reposait dans l'espace de stockage de Wang Lin. Il n'avait nul esprit à l'étudier. Même l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, enveloppée par le Fouet Kunji, était scellée pour l'empêcher de bouger et avait été rangée dans son espace de stockage.
+La moitié de l'os de doigt de l'Ancien Dieu reposait dans l'espace de stockage de Wang Lin. Il n'avait nul esprit à l'étudier. Même l'âme originelle du vieil homme aux cheveux blancs du Clan Dévorant la Lune, enveloppée par le Fouet Kunji, était scellée pour l'empêcher de bouger et avait été rangée dans son espace de stockage.
 
 Wang Lin ne voulait rien qui puisse troubler ce voyage. Il voulait accompagner silencieusement Li Qianmei vers Lanmeng Daozun ou, pour être plus exact, lui faire ses derniers adieux...
 
