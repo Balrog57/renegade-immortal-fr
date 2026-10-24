@@ -52,7 +52,7 @@ Le visage de Wang Lin demeura impassible tandis qu'il inspectait soigneusement l
 
 Ce geste parut dérisoire pour Wang Lin, mais ce que vit l'ancêtre du Clan des Démons Géants le glaça d'effroi.
 
-Dès que le bout du doigt de Wang Lin eut touché la surface, le cercueil de milliers de pieds s'effondra instantanément, se dispersant dans toutes les directions. Une masse de brume blanche s'en échappa, emplissant l'espace.
+Au moment où Wang Lin releva le doigt, le cercueil de milliers de pieds s'effondra instantanément, se dispersant dans toutes les directions. Une masse de brume blanche s'en échappa, emplissant l'espace.
 
 Au sein de cette brume flottait le cadavre nu d'un homme gigantesque. Sa peau était d'un bleu acier. Contrairement à un Dieu Ancien, sa peau ne présentait aucune fissure; elle était parfaitement lisse.
 
