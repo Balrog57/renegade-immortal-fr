@@ -138,7 +138,7 @@ On l'appelait « mur de chair » car il était en mouvement; des protubérances 
 
 Wang Lin fronça les sourcils et, d'un mouvement brusque, s'élança vers le haut. Tandis qu'il montait, la masse de chair commença à réagir. D'innombrables fissures s'ouvrirent, crachant une brume noire.
 
-Wang Lin esquiva la fumée noire et longea le mur de chair en évitant les failles. Il observa la brume noire qui jaillissait avec force pour se fondre dans le brouillard ambiant. Ce jaillissement dura une quinzaine de minutes, puis s'apaisa peu à peu, et les fissures se refermèrent lentement.
+Wang Lin esquiva la fumée noire et longea le mur de chair en évitant les failles. Il observa la brume noire qui jaillissait avec force pour se fondre dans le brouillard ambiant. Ce jaillissement dura sept minutes, puis s'apaisa peu à peu, et les fissures se refermèrent lentement.
 
 Regardant ce mur de chair infini au-dessus de lui, Wang Lin afficha un regard déterminé. Son corps s'élança et plongea immédiatement dans une fissure proche. Dès qu'il eut pénétré à l'intérieur, celle-ci se referma.
 
