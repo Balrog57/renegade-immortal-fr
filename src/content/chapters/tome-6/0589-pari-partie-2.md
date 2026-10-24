@@ -92,7 +92,7 @@ Wang Lin répondit: « Parle. »
 
 « Je parie que tu ne pourras pas faire résonner le tambour cinq fois! Si tu y parviens, je te recommanderai personnellement à l'Empereur Démon et je garantirai que tu obtiendras le rang de général démoniaque. Mais si tu perds, tu devras assumer la responsabilité d'avoir blessé un général démoniaque! Si tu n'oses pas, alors dégage de cette scène et fuis la Cité du Démon Céleste! Tu n'es pas le bienvenu ici! » Une fois l'homme terminé, un brouhaha de discussions envahit la zone.
 
-« Le faire résonner cinq fois? Bien que cet étranger ait tué Ao Di, ce tambour est un véritable test! Au plus, je pense qu'il pourra atteindre trois résonances, ce qui serait déjà remarquable. Quant à Ao Di, il ne peut en faire qu'une! »
+« Le faire résonner quatre fois? Bien que cet étranger ait tué Ao Di, ce tambour est un véritable test! Au plus, je pense qu'il pourra atteindre trois résonances, ce qui serait déjà remarquable. Quant à Ao Di, il ne peut en faire qu'une! »
 
 « Ao Di n'est qu'un général de rang intermédiaire. Shi Xiao, Mo Fei, Yu Sen, Xie Lian et bien d'autres l'écraseraient sans difficulté. Le fait que Wang Lin ait battu Ao Di ne signifie pas grand-chose. »
 
@@ -132,7 +132,7 @@ Les yeux de Wang Lin se rétrécirent. À cet instant, tous les sceaux de vie su
 
 « Il parie que je ne dépasserai pas cinq coups... » Wang Lin tapota sa sacoche et en sortit une cruche de vin. Il la saisit de la main gauche, prit une grande gorgée, puis sourit. « Grand Intendant Doré, regardez bien! »
 
-La main droite de Wang Lin forma un sceau, puis il frappa violemment le tambour démoniaque!
+La main droite de Wang Lin se serra en un poing, puis il frappa violemment le tambour démoniaque!
 
 Dong! Le son du tambour retentit à travers la place et dans les cieux comme un tonnerre grondant. Le corps de Wang Lin ne bougea absolument pas alors qu'il rétractait son poing d'environ dix centimètres; et aussitôt, il frappa de nouveau. Une fois, deux fois, trois fois, quatre fois!
 

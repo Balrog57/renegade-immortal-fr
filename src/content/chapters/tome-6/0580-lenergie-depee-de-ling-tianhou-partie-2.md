@@ -64,7 +64,7 @@ En y regardant de plus près, cette fine ligne était manifestement une épée, 
 
 « Ling Tianhou! » Wang Lin prit une profonde inspiration, le regard empreint d'un sérieux absolu.
 
-« À l'époque, devant la porte des Esprits Démoniaques de la mer de l'Est, avant l'entrée des disciples de la Secte de l'Épée Da Luo, Ling Tianhou avait projeté des rayons d'énergie d'épée qu'il qualifiait de trésors salvateurs pour les douze d'entre eux! »
+« À l'époque, devant la porte des Esprits Démoniaques de la mer de l'Est, avant l'entrée des disciples de la Secte de l'Épée Da Luo, Ling Tianhou avait projeté un rayon d'énergie d'épée qu'il qualifiait de trésor salvateur pour les douze d'entre eux! »
 
 « Cette ligne bleue est cette énergie d'épée! Il n'est pas étonnant qu'elle m'ait donné l'impression d'être face à la mort et qu'elle ait percé mes sceaux vitaux... » Les yeux de Wang Lin s'illuminèrent d'une détermination sans faille.
 

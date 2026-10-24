@@ -78,7 +78,7 @@ Une simple ombre solitaire...
 
 Un pot de vin de haute qualité provenant de la Cité du Démon Antique était posé à ses côtés. De temps à autre, il en prenait une gorgée. La mélancolie de son ombre semblait imprégner son corps, et sa solitude paraissait fusionner avec la lune qui marquait sa chair et son âme...
 
-« Moi, Wang Lin, j'ai commencé à apprendre le Dao à l'âge de 16 ans, mais j'ai depuis longtemps oublié depuis combien de temps je cultive... » Wang Lin saisit le pot et prit une grande inspiration. Le vin s'échappa du coin de sa bouche et perla sur ses vêtements.
+« Moi, Wang Lin, j'ai commencé à apprendre le Dao à l'âge de 16 ans, mais j'ai depuis longtemps oublié depuis combien de temps je cultive... » Wang Lin saisit le pot et but une grande gorgée. Le vin s'échappa du coin de sa bouche et perla sur ses vêtements.
 
 Wang Lin contempla la lumière des étoiles et laissa transparaître une pointe de solitude.
 
@@ -118,7 +118,7 @@ Si Mo Lihai n'avait pas déjà réglé l'affaire de son entrée à la Prison Hon
 
 Wang Lin se détacha de la musique. Il se leva et regarda le bateau s'éloigner progressivement!
 
-À cet instant, la femme sur l'embarcation se retourna brusquement vers la rive. Bien que tout soit encore plongé dans l'obscurité, la silhouette de l'homme qui partait apparut à ses yeux.
+À cet instant, la femme sur l'embarcation se retourna brusquement vers la rive. Bien que ses yeux fussent constamment plongés dans le noir, la silhouette de l'homme qui partait apparut à ses yeux.
 
 Une voix calme s'éleva près d'elle: « Ming Xuan, que regardes-tu? »
 

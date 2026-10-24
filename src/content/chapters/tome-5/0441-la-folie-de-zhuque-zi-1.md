@@ -50,7 +50,7 @@ C'était une guerre titanesque; tout le continent Suzaku tremblait tandis que le
 
 Zhu Quezi se tenait au sommet du Mont Suzaku. Sa robe rouge flottait au vent, accompagnant le mouvement de ses cheveux blancs. Il restait là, parfaitement immobile.
 
-Chu Yuanfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhu Quezi.
+Chu Yunfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhu Quezi.
 
 Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, une véritable folie!
 
@@ -94,7 +94,7 @@ Yun Quezi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme 
 
 Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhouette transparente prit lentement forme. La figure descendit avec lenteur et dit: « Zhu Quezi. »
 
-Ce premier ancêtre paraissait extrêmement ordinaire, et pourtant, d'un seul coup de paume, il avait fait fuir Chu Yuanfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
+Ce premier ancêtre paraissait extrêmement ordinaire, et pourtant, d'un seul coup de paume, il avait fait fuir Chu Yunfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
 
 Yun Quezi dit d'une voix grave: « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de la Planète de Culture, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
 

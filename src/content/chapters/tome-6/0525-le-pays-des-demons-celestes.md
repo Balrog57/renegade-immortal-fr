@@ -80,7 +80,7 @@ Ouyang Hua s'arrêta au pied de cette formation naturelle. Les arbres se faisaie
 
 Le Sens Divin de Wang Lin se déploya, et il se figea aussitôt. Son regard se porta sur une falaise nichée au creux de la vallée.
 
-Cette paroi était entièrement cyan, ce qui la distinguait nettement des autres falaises environnantes. Pourtant, ce n'était pas cela qui captivait Wang Lin; c'était l'objet blanc, semblable à du cristal, situé au centre de la paroi. Ce cristal, de forme diamantaire, semblait suspendu à la falaise.
+Cette paroi était entièrement cyan, ce qui la distinguait nettement des autres falaises environnantes. Pourtant, ce n'était pas cela qui captivait Wang Lin; c'était l'objet blanc, semblable à du cristal, situé au centre de la paroi. Ce cristal, de forme diamantaire, était incrusté dans la falaise.
 
 Une lueur de réflexion brilla dans les yeux de Wang Lin. Plus tôt, lorsqu'il avait balayé la zone avec son Sens Divin, il n'y avait pas prêté grande attention. Mais de près, à l'œil nu, il put enfin en percevoir la nature. Des fluctuations d'énergie spirituelle céleste émanaient du cristal blanc, mais après un examen plus attentif, une autre idée étrange lui vint à l'esprit.
 

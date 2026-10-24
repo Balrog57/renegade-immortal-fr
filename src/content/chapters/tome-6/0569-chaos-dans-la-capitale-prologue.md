@@ -12,7 +12,7 @@ Cependant, une cicatrice sur le côté droit de son visage ruinait totalement se
 
 L’aura de splendeur s’était évanouie, remplacée par une présence vicieuse et maléfique!
 
-Un homme était assis sur un cheval de guerre aux côtés de l'homme balafré. Son visage était mince et pâle, mais ses yeux brillaient d'un éclat vif. Lorsqu'il aperçut Wang Lin monter sa monture, une lueur mystérieuse traversa son regard.
+Un homme était assis sur un cheval de guerre aux côtés de l'homme balafré. Son visage était mince et pâle, mais ses yeux brillaient d'un éclat vif. Lorsqu'il aperçut Wang Lin arriver au grand galop face à lui, une lueur mystérieuse traversa son regard.
 
 Les deux groupes ne ralentirent pas d'un pas, chargeant tête baissée l'un vers l'autre. Ils ressemblaient à deux bêtes démoniaques s'élançant impitoyablement pour un affrontement fatal.
 

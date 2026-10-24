@@ -50,7 +50,7 @@ Les yeux de Wang Lin brillaient d'un éclat doré. Sa main s'immobilisa dans les
 
 Sa robe blanche ondula sans qu'aucun vent ne soufflât, et ses longs cheveux lâches volèrent vers l'arrière. L'aura d'un être céleste se propagea soudainement de son corps.
 
-Il tenait le pinceau céleste comme s'il était lui-même une divinité. Le symbole doré semblait contenir le Dao des cieux et une majesté infinie!
+Il tenait le pinceau céleste comme s'il était lui-même une divinité. La lueur dorée dans ses yeux semblait contenir le Dao des cieux et une majesté infinie!
 
 Xu Liguo était totalement pétrifié, et la lumière dorée émanant de Wang Lin lui brûlait les yeux. Cette clarté lui donnait l'impression de faire face à une puissance irrésistible; il sentait que Wang Lin n'avait besoin que d'une pensée pour le réduire en néant.
 

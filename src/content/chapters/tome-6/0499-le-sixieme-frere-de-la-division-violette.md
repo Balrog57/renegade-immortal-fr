@@ -44,7 +44,7 @@ Il s'agissait d'une fleur aux six couleurs. La fleur elle-même était blanche, 
 
 Ces six teintes disparates ne dénaturaient pas la fleur blanche; au contraire, elles lui conféraient une aura surnaturelle.
 
-Chen Tao tendit la fleur vers l'Omniscient et dit respectueusement: « C'est à cause de cette fleur mystérieuse! Les connaissances du disciple sont insuffisantes pour identifier sa véritable nature. Cependant, sur la planète Encre Noire, trois bêtes désolées de haut rang se disputaient ce trésor. Emporté par la curiosité, le disciple l'a saisie. »
+Chen Tao tendit la fleur vers l'Omniscient et dit respectueusement: « C'est à cause de cette fleur mystérieuse! Les connaissances du disciple sont insuffisantes pour identifier sa véritable nature. Cependant, sur la planète Encre Noire, trois bêtes désolées de haut rang se disputaient ce trésor. Le disciple a dû déployer bien des efforts pour s'en emparer. »
 
 La fleur vola lentement vers l'Omniscient et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit: « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle émette de la lumière et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
 

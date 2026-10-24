@@ -30,7 +30,7 @@ Le corps original, dont la chevelure était d'un rouge vif, ouvrit soudainement 
 
 Les cheveux rouges du corps original flottaient et les étoiles entre ses sourcils scintillaient. À mesure que ses mains s'agitaient, leur éclat se fit plus fréquent. Puis, il étendit brusquement ses bras de chaque côté et tonna: « Absorbe! »
 
-D'un seul mot, la petite planète sur laquelle il reposait se mit à trembler. Des flux d'énergie spirituelle s'engouffrèrent dans les profondeurs de la planète pour être absorbés par le corps original.
+D'un seul mot, la petite planète sur laquelle il reposait se mit à trembler. Des flux d'énergie spirituelle jaillirent des profondeurs de la planète pour être absorbés par le corps original.
 
 Au même moment, Wang Lin effectua le même geste au sein de la Terre des Esprits Démoniaques. Il fixa l'épais brouillard céleste et esquissa lentement un sourire.
 

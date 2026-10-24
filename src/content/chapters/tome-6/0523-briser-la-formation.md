@@ -100,7 +100,7 @@ Il n'y eut pas de fracas assourdissant, mais des crépitements s'élevèrent du 
 
 Les yeux de Wang Lin brillèrent à nouveau et dix symboles de restriction complets apparurent. Ils disparurent aussitôt dans le vide, propageant de nouvelles ondulations.
 
-Le crépitement provenant de la cage devint plus intense. Cette fois, des lignes semblables à des fissures se propagèrent lentement sur la structure, produisant une série de craquements.
+Le crépitement provenant de la cage devint plus intense. Cette fois, des lignes semblables à des fissures se propagèrent rapidement sur la structure, produisant une série de craquements.
 
 « 30 ensembles de symboles de restriction! » Les yeux de Wang Lin scintillèrent de nouveau, et cette fois, trente symboles apparurent avant de fusionner rapidement dans le néant.
 

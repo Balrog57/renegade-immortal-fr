@@ -92,7 +92,7 @@ Une fois cela fait, Wang Lin fit un pas en avant et disparut aussitôt. Une voix
 
 « À mon retour, j'espère que la tribu comptera plus d'un million de membres! »
 
-Ouyang s'agenouilla au sol et répondit d'une voix grave: « Je ne décevrai pas l'Ancêtre! » Bien que ces mots fussent destinés à Wang Lin, qui était déjà loin, ils étaient avant tout un engagement envers lui-même.
+Ouyang Hua s'agenouilla au sol et répondit d'une voix grave: « Je ne décevrai pas l'Ancêtre! » Bien que ces mots fussent destinés à Wang Lin, qui était déjà loin, ils étaient avant tout un engagement envers lui-même.
 
 Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement vers la Cité du Démon Antique.
 

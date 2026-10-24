@@ -110,7 +110,7 @@ Cette armure était simple, mais elle était envahie de flammes démoniaques mon
 
 À l'instant où elle apparut, elle pénétra le front du vieil homme. Ce dernier semblait endurer une douleur indicible. Les veines de tout son corps se gonflèrent et ses cris de souffrance se répandirent au loin.
 
-Après un long moment, le corps du vieil homme trembla. Puis, ses yeux brillèrent d'une lueur maléfique et il déclara respectueusement: « Ce serviteur démoniaque obéit! »
+Après un long moment, le corps du vieil homme trembla. Puis, ses yeux brillèrent d'une lueur maléfique et il déclara respectueusement: « J'obéis aux ordres du Serviteur Démoniaque! »
 
 « Va! » La lueur fantomatique de l'armure était très faible. Le message transmis par le Sens Divin révélait qu'elle était épuisée.
 

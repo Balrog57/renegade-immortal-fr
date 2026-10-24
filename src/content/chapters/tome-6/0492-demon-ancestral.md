@@ -18,7 +18,7 @@ Un étrange symbole scintillait sur le front de Zhao Xingsha. À chaque fois que
 
 Dès l'apparition de cette entité, tous les membres des diverses sectes furent frappés de stupeur et se dispersèrent rapidement. Même les six cultivateurs Ascendants laissèrent transparaître une lueur mystérieuse dans leurs yeux.
 
-L'homme qui n'avait pas prononcé un seul mot depuis sept jours, celui dont l'attention ne s'était déplacée qu'en voyant Wang Lin utiliser la flamme démoniaque, l'unique cultivateur Ascendant de stade avancé présent ici, le Grand Ancien de la Secte Nuage d'Eau, fronça les sourcils et murmura: « Démon Ancestral! »
+L'homme qui n'avait pas prononcé un seul mot depuis sept jours, celui dont l'attention ne s'était déplacée qu'en voyant Wang Lin utiliser la flamme démoniaque, l'unique cultivateur Ascendant de stade avancé présent ici, le Grand Ancien de la Secte Nuage d'Eau, Jiang Tianzun, fronça les sourcils et murmura: « Démon Ancestral! »
 
 Sa voix était empreinte d'incertitude, car même lui n'en était pas certain.
 

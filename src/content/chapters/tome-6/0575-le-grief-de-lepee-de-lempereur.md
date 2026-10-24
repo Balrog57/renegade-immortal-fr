@@ -100,7 +100,7 @@ Wang Lin avait totalement occulté sa présence. Il n'utilisait pas d'énergie s
 
 Wang Lin accéléra encore. Ce lieu n'était pas loin du manoir Mo. Après le temps qu'il faut pour brûler une demi-tige d'encens, il atteignit le manoir Mo. Mo Lihai se tenait dans la cour, les yeux fixés sur la Prison Hong, le cœur lourd d'un sentiment de catastrophe.
 
-Il aperçut immédiatement Wang Lin et, remarquant comment celui-ci dissimulait sa présence, comprit instantanément la situation grâce à son intelligence. Il esquissa un sourire amer, conduisit Wang Lin vers une montagne artificielle et, d'un revers de la main, y creusa une cavité.
+Il aperçut immédiatement Wang Lin et, remarquant comment celui-ci dissimulait sa présence, comprit instantanément la situation grâce à son intelligence. Il esquissa un sourire amer, conduisit Wang Lin vers une montagne artificielle et frappa dessus; aussitôt, une ouverture apparut dans le sol.
 
 « C'est ici que je pratique ma culture en isolation. Cache-toi là pour un moment! »
 
@@ -122,7 +122,7 @@ Sa rage redoublait!
 
 C'était une nouvelle insulte!
 
-À l'aube, l'épée de l'Empereur, empreinte d'une frustration immense, laissa échapper un hymne d'épée. Elle se tourna vers la Prison Hong et projeta un rayon d'énergie qui creusa une brèche d'environ mille pieds de long.
+À l'aube, l'épée de l'Empereur, empreinte d'une frustration immense, laissa échapper un hymne d'épée. Elle se tourna vers la Prison Hong et projeta un rayon d'énergie qui creusa une brèche d'environ trois kilomètres de long.
 
 Après avoir déchargé sa fureur, l'épée de l'Empereur retourna vers sa formation, toujours habitée par la rage.
 

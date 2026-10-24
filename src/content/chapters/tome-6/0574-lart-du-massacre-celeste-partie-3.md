@@ -40,7 +40,7 @@ L'une d'elles était Wang Lin! La brume de sang autour de son corps s'étendait 
 
 Devant lui se tenait le jeune homme aux cheveux noirs. Il avait une fois de plus gravi jusqu'au sommet, et sa brume de sang n'était pas moins imposante que celle de Wang Lin; elle était même plus puissante!
 
-À cet instant, la lumière argentée réapparut. Son regard glacial se posa sur Wang Lin et le jeune homme avant de les aspirer!
+À cet instant, la lumière argentée réapparut. Son regard glacial se posa sur Wang Lin et le jeune homme, puis le dragon aspira violemment!
 
 Le jeune homme aux cheveux noirs poussa un nouveau rugissement et chargea vers le dragon argenté. Ce dernier afficha un rare soupçon de dédain alors que ses griffes gigantesques s'abattaient!
 

@@ -126,7 +126,7 @@ Ce fut suivi d'une voix plus froide que l'hiver: « Espèce de bête maudite, os
 
 Lorsque cette voix atteignit les oreilles de Treize, il eut l'impression d'entendre un son divin. Il cria dans un élan de panique: « Suprême Céleste, sauvez-moi...! »
 
-La même voix frappa les oreilles du lion comme un tonnerre déchaîné, faisant trembler violemment son corps au point de le faire s'effondrer.
+La même voix frappa les oreilles du lion comme un tonnerre déchaîné, faisant trembler violemment son corps au point de presque le faire s'effondrer.
 
 S'il ne s'effondra pas, ce n'était pas par force, mais parce que Wang Lin ne le voulait pas!
 

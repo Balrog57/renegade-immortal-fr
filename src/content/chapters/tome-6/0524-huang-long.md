@@ -44,7 +44,7 @@ Tout ce qui se dressait devant lui était trop différent de ce qu'il avait per�
 
 Avec sa culture de Transformation de l'Âme intermédiaire, il avait déployé tant d'efforts pour briser cette formation... Il n'aurait jamais pu imaginer que cet endroit ne fût qu'un simple village!
 
-Tous ceux qui accompagnaient le vieil homme nommé Ouyang Hua étaient des mortels...
+À l'exception du vieil homme nommé Ouyang Hua, tous les habitants d'ici étaient des mortels...
 
 Le sens divin de Wang Lin balaya la vallée.
 

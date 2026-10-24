@@ -66,7 +66,7 @@ Dès l'apparition de cette lueur, le visage calme de l'Omniscient changea brusqu
 
 Il se retourna soudainement, ses yeux semblables à des éclairs, fixant le rayon de lumière rouge qui approchait.
 
-Les yeux du Saint de l'Épée, Ling Tianhou, brillèrent comme des torches alors qu'il observait la lumière rouge s'enfoncer profondément dans la Mer des Esprits Démoniaques de l'Est.
+Les yeux du Saint de l'Épée, Ling Tianhou, brillèrent comme des torches alors qu'il fixait intensément les profondeurs de cette vague déferlante.
 
 À ce moment-là, non seulement ces deux-là, mais parmi tous les cultivateurs, diverses figures antiques surgirent à une vitesse invisible à l'œil nu.
 

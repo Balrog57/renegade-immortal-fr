@@ -18,11 +18,11 @@ Wang Lin ne daigna plus regarder la lame et son regard glacial se posa sur Xu Li
 
 Le corps de Xu Liguo frissonna et il gloussa: « Maître, quel est votre ordre? Voulez-vous que j'aille persuader la petite lame noire? Je le rendrai absolument obéissant à l'avenir! »
 
-Wang Lin fixa Xu Liguo et demanda: « Sais-tu pourquoi je ne te laisse pas aller chercher cet esprit de lame? »
+Wang Lin fixa Xu Liguo et demanda: « Sais-tu pourquoi je ne te laisse pas aller chercher cet esprit d'épée? »
 
 Xu Liguo hocha précipitamment la tête en disant: « Je sais, je comprends! » Bien qu'il ait dit cela, il pensa intérieurement: « C'est clair, tu veux juste me séparer de la petite beauté. Je parie qu'il y a 80 % de chances que tu convoites toi-même la petite beauté. Hélas, moi, Xu Liguo, si séduisant, je suis si malchanceux d'avoir ma femme volée à un âge aussi précoce! »
 
-« Dans la Cité du Démon Céleste, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera? Une fois découvert avec ta faible culture, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit de lame pour leur trésor. Xu Liguo, ne comprends-tu toujours pas? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
+« Dans la Cité du Démon Céleste, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera? Une fois découvert avec ta faible culture, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit d'épée pour leur trésor. Xu Liguo, ne comprends-tu toujours pas? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
 
 Il fut stupéfait et resta hébété, puis murmura faiblement: « Cela... je ne devrais pas être découvert, n'est-ce pas... » Son cœur commença à battre la chamade. Après avoir écouté Wang Lin, il le croyait à 80 %. Il se demanda si, s'il était capturé par quelqu'un d'autre, cette personne serait aussi curieuse que l'Ancêtre du Clan des Démons Géants.
 
@@ -78,7 +78,7 @@ Wang Lin réfléchit en silence.
 
 « Voici l'assistant du général démon Ao Di! » L'homme désigna la personne à ses côtés. Un homme d'âge moyen vêtu d'une robe taoïste s'avança, joignit les mains et dit respectueusement: « Cher cultivateur Wang, la mort d'Ao Di m'a également réveillé. Bien que les mérites dans la Terre des Esprits Démoniaques soient précieux, à quoi servent-ils si je n'ai plus la vie pour en profiter? »
 
-L'homme en robe blanche soupira de nouveau: « Ce n'est pas par choix que nous combattons ici pour l'amusement des généraux démons. Ces cultivateurs qui m'accompagnent sont tous prêts à quitter la Cité du Démon Céleste. Aujourd'hui, nous sommes venus dire adieu au cher cultivateur Wang. Adieu! » Sur ce, il prit une grande inspiration et s'envola dans le ciel.
+L'homme en robe blanche soupira de nouveau: « Ce n'est pas par choix que nous combattons ici pour l'amusement des barbares de la terre démoniaque. Ces cultivateurs qui m'accompagnent sont tous prêts à quitter la Cité du Démon Céleste. Aujourd'hui, nous sommes venus dire adieu au cher cultivateur Wang. Adieu! » Sur ce, il prit une grande inspiration et s'envola dans le ciel.
 
 Les autres cultivateurs derrière lui adressèrent également leurs adieux à Wang Lin avant de disparaître à l'horizon.
 

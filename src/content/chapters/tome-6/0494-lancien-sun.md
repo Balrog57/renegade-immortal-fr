@@ -36,7 +36,7 @@ Outre ces deux-là, il y avait une autre personne qui semblait très familière 
 
 À l'époque, la culture de cet homme n'avait pas encore atteint le stade de la Transformation de l'Âme, mais il était désormais au stade avancé de la Transformation de l'Âme. Cet homme occupait la quatrième position dans la Division Orange et regardait lui aussi Wang Lin.
 
-Au moment où leurs regards se croisèrent, l'homme afficha une expression confuse, comme s'il reconnaissait Wang Lin, avant d'esquisser un sourire étrange.
+Au moment où leurs regards se croisèrent, une lueur de compréhension apparut dans les yeux de l'homme, comme s'il reconnaissait Wang Lin, avant d'esquisser un sourire étrange.
 
 Wang Lin prit une profonde inspiration. À l'époque, il ne savait que peu de choses sur la Secte du Destin Céleste, mais il était désormais certain que, dans le Royaume Céleste, cet homme avait dissimulé son niveau de culture.
 

@@ -32,9 +32,9 @@ Wang Lin leva la main droite et un million de filaments d'énergie de massacre p
 
 Puis, il frappa son sac de rangement et l'armure de diable s'en échappa. Elle se mua en une soie noire qui enveloppa Wang Lin avant de devenir une armure noire et féroce. Le visage de Wang Lin fut dissimulé par le heaume, ne laissant apparaître que ses yeux glacials. Ses longs cheveux flottant derrière lui, il fit un pas et s'éleva dans les airs. Après un bref instant de suspension, il chargea soudainement.
 
-L'ombre du démon ancien afficha immédiatement une expression féroce. Il poussa un rugissement et utilisa divers sorts pour tenter d'arrêter Wang Lin. Le regard de Wang Lin se fit plus froid et ses mouvements s'accélérèrent. Simultanément, le Doigt de la Mort apparut dans sa main droite et jaillit tel un éclair.
+Devant le démon ancien, les silhouettes illusoires devinrent féroces. Rugissant, elles utilisèrent divers sorts pour tenter d'arrêter Wang Lin. Le regard de Wang Lin se fit plus froid et ses mouvements s'accélérèrent. Simultanément, le Doigt de la Mort apparut dans sa main droite et jaillit tel un éclair.
 
-Quant aux attaques de l'ombre, Wang Lin les ignora totalement. Bien que certains sorts l'atteignent, ils furent immédiatement repoussés par l'énergie démoniaque de l'armure noire. Fort de ses un million de sceaux de vie, il pouvait se permettre d'ignorer ces assauts!
+Quant aux attaques de ces silhouettes, Wang Lin les ignora totalement. Bien que certains sorts l'atteignent, ils furent immédiatement repoussés par l'énergie démoniaque de l'armure noire. Fort de ses un million de sceaux de vie, il pouvait se permettre d'ignorer ces assauts!
 
 Il se déplaçait avec la rapidité de l'éclair, fonçant vers le géant démon ancien formé par le nuage pourpre dans le ciel.
 

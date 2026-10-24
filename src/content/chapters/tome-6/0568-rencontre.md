@@ -23,7 +23,7 @@ Pour être plus précis, cette cité est composée de neuf villes de tailles sim
 
 Une rivière entoure le palais royal et huit ponts relient celui-ci à chacune des huit cités! Le palais royal est la demeure de l'Empereur Démon et regorge de pavillons exquis. Les huit autres villes présentent aussi des différences, mais leurs détails ne sont pas décrits.
 
-À l'aube, toute la Cité du Démon Céleste est enveloppée d'une légère brume émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
+À l'aube, toute la Cité du Démon Céleste est enveloppée d'une légère brume émanant de la chaîne des Neuf Dragons. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
 
 La Cité du Démon Céleste ressemble à un monstre colossal. À mesure que la brume se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
 

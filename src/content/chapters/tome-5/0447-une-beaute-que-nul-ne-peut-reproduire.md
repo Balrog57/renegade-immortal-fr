@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 447 - A beauty that cant be replicated
 slug: une-beaute-que-nul-ne-peut-reproduire
 ---
-Les formes de vie composées de fragments d'âme étaient extrêmement difficiles à tuer; même si elles y parvenaient, les victimes n'étaient pas l'entité elle-même, mais les propriétaires des fragments d'âme de la planète Suzaku.
+Les formes de vie composées de fragments d'âme étaient extrêmement difficiles à tuer; même si on les tuait, ce n'étaient pas elles qui mouraient, mais les propriétaires des fragments d'âme de la planète Suzaku.
 
 Si Wang Lin avait utilisé l'énergie spirituelle céleste sans la moindre retenue, il aurait pu anéantir ces fragments d'âme. Cependant, de nouveaux fragments d'âme seraient alors venus la reformer. D'une certaine manière, ces formes de vie étaient immortelles.
 

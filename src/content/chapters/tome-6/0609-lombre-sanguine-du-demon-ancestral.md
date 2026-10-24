@@ -20,7 +20,7 @@ Il y avait aussi cette existence mystérieuse dans la tour noire; ainsi, même s
 
 Sinon, il aurait dû affronter l'existence à l'intérieur de la tour noire, et cette existence était tout simplement trop puissante. Une fois revenu à la raison, Wang Lin se remémora ce qui s'était passé et fut envahi par la terreur. S'il n'avait pas été stimulé par le Fruit de l'Ascension Céleste, il serait déjà mort d'innombrables fois sous les attaques du sens divin de cette existence mystérieuse dans la tour noire.
 
-Il ne pouvait absolument pas passer les quatre cents prochaines années dans la Terre des Esprits Démoniaques à consommer le Fruit de l'Ascension Céleste pour simuler son âme originelle. Sinon, avant que cette personne ne le tue, il aurait complètement perdu la raison sous l'effet de la folie.
+Il ne pouvait absolument pas passer les quatre cents prochaines années dans la Terre des Esprits Démoniaques à consommer le Fruit de l'Ascension Céleste pour stimuler son âme originelle. Sinon, avant que cette personne ne le tue, il aurait complètement perdu la raison sous l'effet de la folie.
 
 Par conséquent, il devait tout risquer. S'il ne parvenait pas à blesser gravement ou à détruire l'existence à l'intérieur de la tour noire, peu importe la distance parcourue, il ne pourrait échapper aux attaques du sens divin de cette personne.
 

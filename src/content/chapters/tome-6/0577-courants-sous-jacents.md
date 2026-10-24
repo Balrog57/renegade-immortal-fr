@@ -20,7 +20,7 @@ Mo Lihai éclata de rire. Il était manifestement comblé de bonheur. « Frère 
 
 Les yeux de Wang Lin s'illuminèrent et il acquiesça d'un sourire.
 
-Au même moment, au pavillon des épées situé au centre de la Cité du Démon Céleste, une silhouette vêtue de robes jaunes apparut. Il contempla le pavillon impérial des épées et sourit: « As-tu assez joué? Ne retourne plus à la Prison Hong; repose-toi quelques jours. »
+Au même moment, au pavillon des épées situé au centre de la Cité du Démon Céleste, une silhouette vêtue de robes jaunes apparut. Il contempla l'épée impériale dans la formation du pavillon et sourit: « As-tu assez joué? Ne retourne plus à la Prison Hong; repose-toi quelques jours. »
 
 L'épée argentée à l'intérieur de la formation émit plusieurs salves d'hymnes d'épée, comme si elle refusait de céder.
 

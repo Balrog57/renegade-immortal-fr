@@ -93,7 +93,7 @@ Les fragments reconnaissaient Hu Pao comme leur maître, mais en voyant ce symbo
 
 Hu Pao afficha une expression sauvage, comme s'il était certain que Wang Lin allait être dévoré.
 
-Alors que les cent millions de fragments fonçaient, l'âme originelle de Wang Lin quitta son corps pour balayer la zone. Le point faible que Wang Lin avait laissé dans le sort de raffinage d'âmes qu'il avait enseigné fut utilisé à cet instant précis. Wang Lin possédait un contrôle absolu sur toutes les âmes raffinées par ceux qui avaient appris son sort!
+Alors que les cent millions de fragments fonçaient, le Sens Divin de Wang Lin se déploya hors de son corps pour balayer la zone. Le point faible que Wang Lin avait laissé dans le sort de raffinage d'âmes qu'il avait enseigné fut utilisé à cet instant précis. Wang Lin possédait un contrôle absolu sur toutes les âmes raffinées par ceux qui avaient appris son sort!
 
 Les cent millions de fragments furent stupéfaits; ils affichèrent immédiatement du respect et encerclèrent Wang Lin. Ils se reformèrent en un nuage noir autour de lui. À cet instant, Hu Pao était totalement pétrifié; il n'y avait plus un seul fragment d'âme à ses côtés.
 

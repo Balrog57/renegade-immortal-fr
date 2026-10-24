@@ -111,7 +111,7 @@ Soudain, les yeux de Li Dannan s'illuminèrent: « Senior, bien que je ne sache 
 
 Wang Lin détourna le regard et dit calmement: « Oh? Parle-moi d'eux. »
 
-Li Dannan s'exécuta immédiatement: « La boutique du clan Shang est la plus importante de la ville de Ming Mei; elle occupe le premier rang. On raconte qu'elle est soutenue par une planète de culture de rang 7 et qu'elle possède des succursales sur plusieurs planètes commerciales.
+Li Dannan s'exécuta immédiatement: « La boutique du clan Shang est la plus importante de la ville de Ming Mei; elle occupe le premier rang. On raconte qu'elle est soutenue par un pays de culture de rang 7 et qu'elle possède des succursales sur plusieurs planètes commerciales.
 
 « Quiconque achète chez eux est protégé par la boutique jusqu'à ce qu'il se trouve à 500 000 kilomètres de la planète. Si on le demande, ils vous protégeront même jusqu'à votre propre planète de culture! »
 

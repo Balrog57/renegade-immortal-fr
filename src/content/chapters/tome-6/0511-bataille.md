@@ -64,7 +64,7 @@ Il avait déjà entendu les rumeurs concernant la liste des élus pour la Mer de
 
 Maintenant qu'il avait Wang Lin face à lui, il décida de jouer sa chance! Il pariait que Wang Lin n'oserait pas agir sans retenue, car ils pourraient tous deux riposter avec force et l'endommager sérieusement, ce qui compromettrait son voyage vers la Mer des Esprits Démoniaques Orientaux.
 
-L'ancien trapu n'avait pas ouvert la bouche depuis l'apparition de Wang Lin, mais ses yeux ne l'avaient pas quitté. En entendant les paroles de Wang Lin, il comprit intérieurement que la situation était périlleuse. D'après ses observations, cet homme n'était pas du genre à hésiter ou à peser le pour et le contre. Plutôt que de perdre du temps en paroles, il préférait qu'ils s'unissent pour attaquer immédiatement. Leurs chances de l'emporter contre un cultivateur de la Transformation de l'Âme au stade intermédiaire, même à deux contre un, n'étaient déjà pas élevées.
+L'ancien trapu n'avait pas ouvert la bouche depuis l'apparition de Wang Lin, mais ses yeux ne l'avaient pas quitté. En entendant les paroles de Shi Fang, il comprit intérieurement que la situation était périlleuse. D'après ses observations, cet homme n'était pas du genre à hésiter ou à peser le pour et le contre. Plutôt que de perdre du temps en paroles, il préférait qu'ils s'unissent pour attaquer immédiatement. Leurs chances de l'emporter contre un cultivateur de la Transformation de l'Âme au stade intermédiaire, même à deux contre un, n'étaient déjà pas élevées.
 
 L'ancien trapu serra les dents et, sans un mot, se lança dans l'action. Il frappa son sac de rangement, et un drapeau couleur de sang apparut dans sa main. D'un revers, une brume écarlate jaillit du drapeau pour recouvrir instantanément tout son corps.
 

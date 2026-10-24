@@ -8,7 +8,7 @@ slug: le-fragment-dame-de-wan-er
 ---
 Mais tous les cultivateurs Ascendants ne réussissent pas; le taux de réussite n'est que de 50 %.
 
-Ce n'est qu'après avoir atteint un niveau supérieur à celui des Ascendants, ou si un pays de culture de rang 5 accède au rang 6, que l'on puisse récupérer son fragment d'âme en toute sécurité.
+Ce n'est qu'après avoir atteint un niveau supérieur à celui des Ascendants, ou si un pays de culture de rang 5 accède au rang 6, que l'on peut récupérer les fragments d'âme des cultivateurs de tout un pays et ainsi quitter sa planète de culture.
 
 Yun Quezi n'avait pas pu récupérer son fragment d'âme; en fait, depuis des dizaines de milliers d'années, personne sur la planète Suzaku, Clan des Immortels Délaissés compris, n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
 

@@ -82,9 +82,9 @@ Wang Lin n'éprouvait aucun intérêt pour la Cité de l'Ancien Démon. Après q
 
 Depuis qu'il était devenu cultivateur, Wang Lin avait perdu tout intérêt pour la nourriture mortelle; désormais, il était parvenu au stade où la seule respiration suffisait à combler les besoins de son corps.
 
-Si la nourriture seule ne suffisait pas à captiver son attention, d'immenses jarres de vin attiraient pourtant son regard devant l'établissement. Ces jarres mesuraient dix mètres de large et 6,6 mètres de haut. Des échelles étaient disposées autour pour permettre au personnel de puiser le breuvage.
+Si la nourriture seule ne suffisait pas à captiver son attention, une immense jarre de vin attirait pourtant son regard devant l'établissement. Cette jarre mesurait dix mètres de large et 6,6 mètres de haut. Des échelles étaient disposées autour pour permettre au personnel de puiser le breuvage.
 
-En voyant ces jarres, Wang Lin s'arrêta pour lire l'enseigne du restaurant.
+En voyant cette jarre, Wang Lin s'arrêta pour lire l'enseigne du restaurant.
 
 Le Restaurant du Bambou Vert!
 
