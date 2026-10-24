@@ -70,25 +70,25 @@ Il commença leur raffinage.
 
 Le temps passa lentement. Trois jours plus tard, les yeux de Wang Lin s'illuminèrent. Le lien entre lui et les quatre gaines était désormais encore plus puissant. D'un mouvement de la main, il les rangea.
 
-Cette fois, Wang Lin sortit le Fouet de l'Âme.
+Cette fois, Wang Lin sortit le Fouet Kunji.
 
 Une trace de Sens Divin imprégnait ce fouet, une empreinte que Wang Lin ne pouvait briser avec sa culture actuelle, mais il possédait un moyen d'y faire face.
 
 D'une simple pensée, la pagode contenant le Sens Divin de Zhou Yi vola et se posa au sol, répandant instantanément un Sens Divin de niveau Ascendant.
 
-Les yeux de Wang Lin brillèrent; sa main traça un sceau qu'il projeta vers le Fouet de l'Âme.
+Les yeux de Wang Lin brillèrent; sa main traça un sceau qu'il projeta vers le Fouet Kunji.
 
 Le fouet se mit immédiatement à trembler et une aura blanche s'en échappa. Cette aura était d'une tyrannie extrême et brisa instantanément le sceau de Wang Lin.
 
-Gardant son calme, Wang Lin ordonna au Sens Divin de Zhou Yi de converger rapidement vers l'objet. Bientôt, une lumière verte enveloppa le Fouet de l'Âme, et l'aura blanche se trouva à l'intérieur.
+Gardant son calme, Wang Lin ordonna au Sens Divin de Zhou Yi de converger rapidement vers l'objet. Bientôt, une lumière verte enveloppa le Fouet Kunji, et l'aura blanche se trouva à l'intérieur.
 
-Le regard serein, Wang Lin pointa son front et son âme originelle s'en échappa. Elle fonça sur le Fouet de l'Âme pour entamer le raffinage.
+Le regard serein, Wang Lin pointa son front et son âme originelle s'en échappa. Elle fonça sur le Fouet Kunji pour entamer le raffinage.
 
 Ce processus dura sept jours.
 
-Au bout de sept jours, grâce au Sens Divin de Zhou Yi de niveau Ascendant et à son âme originelle, le Sens Divin contenu dans le Fouet de l'Âme fut enfin détruit. Une fois celle-ci disparue, Wang Lin y imprégna sa propre conscience divine en utilisant son âme originelle.
+Au bout de sept jours, grâce au Sens Divin de Zhou Yi de niveau Ascendant et à son âme originelle, le Sens Divin contenu dans le Fouet Kunji fut enfin détruit. Une fois celle-ci disparue, Wang Lin y imprégna sa propre conscience divine en utilisant son âme originelle.
 
-En contemplant le Fouet de l'Âme, il sentait leur connexion; c'était comme s'ils ne faisaient qu'un. Le fouet contenait de nombreuses formations, tout comme le chapeau de paille.
+En contemplant le Fouet Kunji, il sentait leur connexion; c'était comme s'ils ne faisaient qu'un. Le fouet contenait de nombreuses formations, tout comme le chapeau de paille.
 
 Cependant, il n'y avait pas qu'un seul chapeau de paille, ce qui en réduisait considérablement la valeur. Au-delà de la capacité à masquer son apparence, Wang Lin avait également pu tirer des enseignements du jade que lui avait donné Yun Quezi.
 
@@ -96,19 +96,19 @@ L'utilité majeure du chapeau de paille résidait dans le fait qu'en l'étudiant
 
 L'objectif actuel de Wang Lin pour ce drapeau était d'atteindre 9 999 ensembles de restrictions. Pour y parvenir, il devait en maîtriser autant.
 
-Quant au Fouet de l'Âme, Wang Lin était convaincu qu'il ne s'agissait pas d'un faux trésor céleste. Bien qu'il puisse utiliser de l'énergie spirituelle céleste sur lui, celle-ci semblait bien moins efficace que l'énergie spirituelle ordinaire.
+Quant au Fouet Kunji, Wang Lin était convaincu qu'il ne s'agissait pas d'un faux trésor céleste. Bien qu'il puisse utiliser de l'énergie spirituelle céleste sur lui, celle-ci semblait bien moins efficace que l'énergie spirituelle ordinaire.
 
 Ce point le laissait perplexe. Il finit par découvrir qu'il n'avait même pas besoin d'énergie spirituelle: il lui suffisait de tirer dessus pour que l'objet produise sa propre force mystérieuse.
 
 Par conséquent, cet objet devint soudainement très intrigant à ses yeux.
 
-Ce Fouet de l'Âme appartenait à Chu Yunfei, qui avait été contraint de quitter la planète précipitamment. Bien qu'il sache le caractère mystérieux du fouet, celui-ci était devenu un fardeau pour lui. Le Fouet était entre les mains de Qian Feng, disciple de Zhu Quezi; craignant de provoquer trop de remous, Chu Yunfei l'avait abandonné.
+Ce Fouet Kunji appartenait à Chu Yunfei, qui avait été contraint de quitter la planète précipitamment. Bien qu'il sache le caractère mystérieux du fouet, celui-ci était devenu un fardeau pour lui. Le Fouet était entre les mains de Qian Feng, disciple de Zhu Quezi; craignant de provoquer trop de remous, Chu Yunfei l'avait abandonné.
 
 Les yeux de Wang Lin brillèrent; il sentait une étrangeté émaner du fouet. Après réflexion, il le rangea.
 
 D'un geste de la main droite, un autre objet apparut: le parchemin!
 
-En fixant le parchemin, Wang Lin réfléchit un instant avant de le ranger. Parmi tous ses trésors, c'était le plus mystérieux après la perle défiant le ciel, bien que le Fouet de l'Âme vienne désormais rejoindre cette liste.
+En fixant le parchemin, Wang Lin réfléchit un instant avant de le ranger. Parmi tous ses trésors, c'était le plus mystérieux après la perle défiant le ciel, bien que le Fouet Kunji vienne désormais rejoindre cette liste.
 
 Wang Lin leva les yeux vers le ciel, l'air pensif. Il toucha son sac de rangement et un char de guerre couvert d'épines en sortit pour s'immobiliser au sol.
 

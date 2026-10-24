@@ -8,9 +8,9 @@ slug: tous-reunis
 ---
 Wang Lin regarda silencieusement le corps de Papillon Rouge se disperser. Une fois que cela fut terminé, il poussa un soupir, atterrit au sol et agita la main droite. La hache revint vers lui et fut rangée dans son sac de rangement.
 
-Puis, il tendit la main et saisit le Fouet de l'Âme qui flottait dans les airs. Après l'avoir examiné attentivement, il le remit également dans son sac de rangement.
+Puis, il tendit la main et saisit le Fouet Kunji qui flottait dans les airs. Après l'avoir examiné attentivement, il le remit également dans son sac de rangement.
 
-Une trace de sens divin de niveau Ascendant subsistait sur le Fouet de l'Âme, que Wang Lin ne pouvait pas retirer pour le moment. Mais tant qu'il le tenait entre ses mains, il était confiant que, une fois tout cela terminé, il pourrait utiliser le drapeau des mille millions d'âmes pour former une âme Ascendante capable de briser ce sens divin et s'approprier véritablement le Fouet de l'Âme.
+Une trace de sens divin de niveau Ascendant subsistait sur le Fouet Kunji, que Wang Lin ne pouvait pas retirer pour le moment. Mais tant qu'il le tenait entre ses mains, il était confiant que, une fois tout cela terminé, il pourrait utiliser le drapeau des mille millions d'âmes pour former une âme Ascendante capable de briser ce sens divin et s'approprier véritablement le Fouet Kunji.
 
 Après avoir fait cela, Wang Lin regarda une dernière fois l'endroit où Papillon Rouge avait disparu et secoua la tête. Puis, son corps se transforma en une fine fumée et disparut, se dirigeant vers la montagne spirituelle au loin.
 

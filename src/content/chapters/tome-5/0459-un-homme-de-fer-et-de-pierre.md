@@ -52,7 +52,7 @@ Liu Mei eut un sourire. « Alors, quelle place occupe Li Muwan dans ton cœur? �
 
 Les yeux de Wang Lin furent envahis par une intention meurtrière: « Dégage! Bien que ton domaine ait atteint sa perfection, si je voulais te tuer, ce ne serait pas difficile. Ne cherche pas la mort! »
 
-Le but des paroles de Liu Mei était de briser le cœur Dao de Wang Lin, mais elle ignorait que Li Muwan était un sujet tabou pour lui. Il tuerait quiconque mentionnerait son nom. Si le moment se prêtait à l'attaque, il aurait déjà sorti l'étendard de l'âme pour l'exterminer.
+Le but des paroles de Liu Mei était de briser le cœur Dao de Wang Lin, mais elle ignorait que Li Muwan était un sujet tabou pour lui. Il tuerait quiconque mentionnerait son nom. Si ce n'était pas un mauvais moment pour attaquer, il aurait déjà sorti l'étendard de l'âme pour l'exterminer.
 
 Wang Lin accordait une immense importance aux bienfaits reçus, mais restait impitoyable envers les étrangers.
 

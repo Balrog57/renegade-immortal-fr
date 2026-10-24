@@ -80,7 +80,7 @@ Dans ses derniers instants, Papillon Rouge retrouva sa Maîtresse. Elle vit son 
 
 Outre sa Maîtresse, une autre silhouette apparut: un jeune homme à l'allure fragile, dont le regard restait empreint de douceur tandis qu'il la contemplait en silence. En voyant cette figure, Papillon Rouge afficha un léger sourire.
 
-Les scènes continuaient de défiler devant ses yeux jusqu'à ce qu'elles s'arrêtent sur une ultime silhouette. Ses yeux étaient remplis d'amour pour elle. C'était celui qui avait osé voler le Fouet de l'Âme, quels qu'en fussent les risques.
+Les scènes continuaient de défiler devant ses yeux jusqu'à ce qu'elles s'arrêtent sur une ultime silhouette. Ses yeux étaient remplis d'amour pour elle. C'était celui qui avait osé voler le Fouet Kunji, quels qu'en fussent les risques.
 
 « Adieu... » Le sourire de Papillon Rouge se figea lentement.
 
@@ -112,7 +112,7 @@ Wang Lin flottait dans les airs, silencieux. Il leva la tête, semblant avoir en
 
 Aussi captivante qu'un papillon... bien que brève, la beauté du papillon restait gravée dans le cœur des hommes, rendant son souvenir inoubliable...
 
-Papillon Rouge était morte, ne laissant derrière elle qu'un morceau de jade et le Fouet de l'Âme. Ces deux objets flottaient là, dégageant une aura de solitude...
+Papillon Rouge était morte, ne laissant derrière elle qu'un morceau de jade et le Fouet Kunji. Ces deux objets flottaient là, dégageant une aura de solitude...
 
 « Le domaine de Qian Feng est celui du désir insatiable. Il veut tout dévorer, tout obtenir... En vérité, comment peut-on dévorer des domaines? Ce que Qian Feng recherche, c'est l'instant de communion avec les cieux lorsqu'on comprend son propre domaine. Il dévore les domaines pour s'approprier diverses compréhensions, jusqu'à pouvoir affiner le sien à la perfection... »
 

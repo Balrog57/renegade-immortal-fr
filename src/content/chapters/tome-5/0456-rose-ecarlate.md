@@ -88,21 +88,21 @@ Elle pressa soudainement le fragment de glace rouge contre son front. À cet ins
 
 Cette armure la recouvrait entièrement et dégageait un froid mortel. La lumière qui l'illuminait la rendait plus splendide encore, lui donnant l'apparence d'une divinité guerrière. Puis, l'armure se mit à luire intensément et un fouet noir apparut subitement dans sa main.
 
-Le Fouet de l'Âme! Ce fouet avait été confié par Qian Feng pour affronter Wang Lin.
+Le Fouet Kunji! Ce fouet avait été confié par Qian Feng pour affronter Wang Lin.
 
 Les yeux de Papillon Rouge brillèrent d'une lueur mystérieuse alors qu'elle fit claquer le fouet, provoquant une série de détonations là où l'arme passait. Le fouet se mouvait comme un dragon et fondit sur Wang Lin avec la rapidité de la foudre.
 
 Les yeux de Wang Lin s'illuminèrent tandis que sa lance s'élançait en réponse. Il recula tout en formant un sceau manuel et en murmurant une incantation. Une rafale de vent chargée d'énergie spirituelle céleste jaillit de la pointe de sa lance.
 
-Le Fouet de l'Âme et la lance entrèrent en collision!
+Le Fouet Kunji et la lance entrèrent en collision!
 
 Boum!
 
 L'onde de choc résultant de l'impact fut si violente qu'on aurait dit que le ciel et la terre allaient s'effondrer. Wang Lin, droit comme un pin, ne bougea pas. La rafale de vent projeta toute la force du choc vers Papillon Rouge.
 
-Tout cela se joua en un éclair. Au moment où le Fouet de l'Âme percuta la lance, il fut expulsé de la main de la jeune femme. Il fendit l'onde de choc comme un éclair noir pour charger sur Wang Lin.
+Tout cela se joua en un éclair. Au moment où le Fouet Kunji percuta la lance, il fut expulsé de la main de la jeune femme. Il fendit l'onde de choc comme un éclair noir pour charger sur Wang Lin.
 
-Dans un fracas, Wang Lin recula brusquement de plus de trois cents mètres. Ses yeux brillaient d'une lueur étrange alors qu'il grommela: « Fouet de l'Âme! »
+Dans un fracas, Wang Lin recula brusquement de plus de trois cents mètres. Ses yeux brillaient d'une lueur étrange alors qu'il grommela: « Fouet Kunji! »
 
 Ce fouet lui avait appartenu autrefois, mais il avait finalement dû le rendre. Maintenant qu'il le revoyait, il ne comptait pas le laisser repartir!
 
@@ -116,7 +116,7 @@ Papillon Rouge leva la main et pointa les sculptures de glace. Une série de cra
 
 « Tue... moi... » Papillon Rouge affichait une expression de lutte intense; son visage était marqué par la douleur.
 
-À cet instant, le Fouet de l'Âme tournait autour de son corps tel un dragon tandis que son armure libérait des vagues de froid absolu.
+À cet instant, le Fouet Kunji tournait autour de son corps tel un dragon tandis que son armure libérait des vagues de froid absolu.
 
 Wang Lin regarda Papillon Rouge et hocha silencieusement la tête. Il toucha son sac de rangement et une hache gigantesque apparut dans sa main. Le ciel s'obscurcit dès l'apparition de l'arme, et toute la lumière ambiante sembla converger vers le tranchant de la hache.
 
