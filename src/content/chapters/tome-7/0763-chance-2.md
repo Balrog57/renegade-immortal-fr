@@ -58,7 +58,7 @@ Une aura sanguine envahit soudainement la zone: la sphère pénétrée commença
 
 L'âme de la montagne jaillit et s'écrasa devant les sphères de sang, dégageant une puissance qui les fit vaciller. Cependant, l'âme de la montagne n'était pas assez robuste et les sphères de sang se regroupèrent rapidement.
 
-Après avoir lancé l'âme de la montagne, Wang Lin recula d'un pas, dégaina l'épée céleste et la mania avec célérité.
+Après avoir lancé l'âme de la montagne, Wang Lin fit un pas en avant, dégaina l'épée céleste et la mania avec célérité.
 
 Le Coup Céleste jaillit comme un éclair, séparant instantanément deux sphères de sang qui étaient en train de fusionner.
 

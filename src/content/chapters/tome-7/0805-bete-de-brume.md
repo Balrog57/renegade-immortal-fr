@@ -8,7 +8,7 @@ slug: bete-de-brume
 ---
 Alors que le coup se rapprochait, Wang Lin réalisa immédiatement que l'air autour de lui semblait s'être solidifié. C'était comme si le coup portait en lui une force mystérieuse qui verrouillait toute possibilité de retraite.
 
-L'expression de Wang Lin resta neutre alors qu'il disait calmement: « Ce n'est pas mal, mais ce n'est toujours pas suffisant! » Au même moment, il leva son pied droit et fit un léger pas en avant.
+L'expression de Wang Lin resta neutre alors qu'il disait calmement: « Ce n'est pas mal, mais ce n'est toujours pas suffisant! » Au même moment, il leva son pied droit et frappa légèrement le sol.
 
 Une série d'explosions retentit soudainement sous ses pieds, qui servirent de point de convergence. La secousse se propagea avec une intensité folle et la force qui entravait Wang Lin s'effondra instantanément.
 

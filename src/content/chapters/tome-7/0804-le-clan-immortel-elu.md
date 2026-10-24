@@ -38,7 +38,7 @@ Ce dernier hésita, puis murmura: « Mon clan suivait les ordres du Roi Céleste
 
 « D'innombrables membres de mon clan sont morts à cause de ces bêtes de brume humanoïdes.
 
-« C'est pourquoi presque tous les étrangers qui apparaissaient étaient ces créatures. Quant aux membres de mon propre clan, en raison de nos tatouages, les bêtes de brume ne pouvaient pas nous prendre pour eux.
+« C'est pourquoi presque tous les étrangers qui apparaissaient étaient ces créatures. Quant aux membres de mon propre clan, en raison de nos tatouages, les bêtes de brume ne pouvaient pas prendre notre apparence.
 
 « Pourtant, par conséquent, personne d'autre que moi ne peut dire si vous êtes un Céleste ou une bête de brume. Même à présent, certains ne croient toujours pas mes paroles... »
 

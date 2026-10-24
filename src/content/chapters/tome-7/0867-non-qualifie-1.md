@@ -54,7 +54,7 @@ Une fois apparu, le géant fonça vers le cultivateur assis là. Sa vitesse éta
 
 Alors que le coup s'approchait, le visage du cultivateur devint d'une pâleur mortelle et ses yeux se remplirent de terreur. Ses vêtements et ses cheveux furent violemment projetés en arrière par la pression de l'attaque.
 
-Les yeux de Wang Lin brillèrent comme des torches en observant la scène. Au moment où le poing du géant doré percuta sa cible, le corps du cultivateur trembla et il cracha un flot de sang. L'âme originelle fut violemment ébranlée, perdant toute netteté. Terrifiée, l'âme originelle du cultivateur tenta de se rétracter précipitamment.
+Les yeux de Wang Lin brillèrent comme des torches en observant la scène. Au moment où le poing du géant doré percuta sa cible, le corps du cultivateur trembla et il cracha un flot de sang. L'âme originelle fut violemment ébranlée, expulsée hors de son corps avant de reculer précipitamment, terrifiée.
 
 Luo Su laissa échapper un reniflement froid, le géant doré rétracta son poing, recula de quelques pas et se tint à nouveau aux côtés de Luo Su.
 

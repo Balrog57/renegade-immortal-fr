@@ -80,7 +80,7 @@ C'était l'esprit du tonnerre!
 
 Même la brume noire entourant Xu Ting faillit s'effondrer. Ses yeux trahirent une pointe de choc, tandis qu'il formait des sceaux à deux mains et qu'une brume plus épaisse s'échappait de ses sourcils pour l'environner.
 
-Si Xu Ting était ainsi affecté, il n'en était rien pour les autres. Sous ce rugissement qui ébranlait le firmament, plus de dix cultivateurs crachèrent du sang et furent expulsés.
+Si même Xu Ting était ainsi affecté, c'était encore bien pire pour les autres cultivateurs. Sous ce rugissement qui ébranlait le firmament, plus de dix cultivateurs crachèrent du sang et furent expulsés.
 
 Alors que résonnaient les douzième, treizième et quatorzième coups, le cri de l'esprit devint encore plus intense. Enfin, au quinzième coup, l'esprit de la foudre chargea. Il ouvrit la gueule et cracha une masse de tonnerre phénoménale.
 

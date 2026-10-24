@@ -84,7 +84,7 @@ Wang Lin jeta un dernier regard sur Xie Qing avant d'agiter ses manches. Une ép
 
 Un jour plus tard, Xie Qing ouvrit les yeux, toujours empreints de confusion. Après une longue méditation silencieuse, il s'assit au sommet de la montagne, ferma les yeux et entama tranquillement sa compréhension.
 
-Wang Lin ne quitta pas immédiatement la planète Qing Ling, mais partit à la recherche du Clan des Immortels Délaissés. Il sortit le talisman jaune, mais aucun d'eux ne le reconnut. Ils ressentirent une puissante sensation de familiarité, sans pour autant en avoir le moindre souvenir.
+Wang Lin ne quitta pas immédiatement la planète Qing Ling, mais partit à la recherche du Clan des Immortels Élus. Il sortit le talisman jaune, mais aucun d'eux ne le reconnut. Ils ressentirent une puissante sensation de familiarité, sans pour autant en avoir le moindre souvenir.
 
 Wang Lin reprit sa route, plongé dans ses pensées.
 

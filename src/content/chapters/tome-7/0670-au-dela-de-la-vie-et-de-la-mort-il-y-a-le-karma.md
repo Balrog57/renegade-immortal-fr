@@ -98,7 +98,7 @@ Sun Tai réfléchit longuement avant de se lever. Il regarda par la fenêtre et 
 
 Wang Lin ne rouvrit pas les yeux et répondit simplement: « Parlez. »
 
-« Si vous me raccompagnez vraiment dans vingt ans, je vous prie de ramener mes cendres sur la planète Anyue du Système Stellaire de l'Alliance. Il y a une montagne qui perce le ciel. Je me souviens qu'il y avait un village au pied de cette montagne. Veuillez déposer mes cendres là-bas. »
+« Si vous me raccompagnez vraiment dans vingt ans, je vous prie de ramener mes cendres sur la planète Anyue du Système Stellaire de l'Alliance. Il y a une montagne appelée Montagne Céleste. Je me souviens qu'il y avait un village au pied de cette montagne. Veuillez déposer mes cendres là-bas. »
 
 Wang Lin soupira, puis ouvrit les yeux et adressa un signe de tête à Sun Tai.
 
@@ -116,7 +116,7 @@ Donner sa sacoche de rangement était pour lui une manière de dénouer un nœud
 
 C'était à cause de Wang Lin qu'il en était arrivé à ce sort, mais c'était aussi grâce à Wang Lin qu'il se libérait de la douleur qui déchirait son âme depuis des siècles. S'il y avait un karma, c'était celui-là.
 
-Sa seule requête était de retourner à ses racines, que Wang Lin le ramène dans ce petit village au pied de la montagne perçant le ciel...
+Sa seule requête était de retourner à ses racines, que Wang Lin le ramène dans ce petit village au pied de la Montagne Céleste...
 
 Le soleil se coucha et Wang Lin ferma les yeux. La vie et la mort, la cause et l'effet karmiques ne sont séparés que par une seule pensée, tout comme le Yin et le Yang, le vrai et le faux.
 

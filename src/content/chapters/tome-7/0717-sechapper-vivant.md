@@ -201,7 +201,7 @@ Cependant, des éclats de tonnerre jaillissaient de la planète. C'était comme 
 
 Cette planète était sans nom et située dans une zone extrêmement reculée du domaine sud. Elle était également protégée par une épaisse couche d'astéroïdes, ce qui la rendait difficile à découvrir de l'extérieur.
 
-Wang Lin ayant laissé un fragment de son Sens Divin sur la garde céleste, il put naturellement observer cette planète. Le sentiment de confort devenait de plus en plus intense. Il comprit toutefois que la source de cet apaisement ne résidait pas dans cette petite planète, mais bien dans ses profondeurs. Cependant, une force mystérieuse bloquait son Sens Divin, l'empêchant d'examiner la planète plus précisément.
+Wang Lin ayant laissé un fragment de son Sens Divin sur la garde céleste, il put naturellement observer cette planète. Le sentiment de confort devenait de plus en plus intense. Il comprit toutefois que la source de cet apaisement ne résidait pas dans cette petite planète, mais bien dans les profondeurs de ce champ d'astéroïdes. Cependant, une force mystérieuse bloquait son Sens Divin, l'empêchant d'examiner la planète plus précisément.
 
 Malgré cela, cette petite planète procurait toujours à Wang Lin un sentiment de bien-être, bien que moins intense que celui des profondeurs.
 
@@ -227,7 +227,7 @@ Ayant compris le karma, le cœur de Wang Lin s'apaisa. En contemplant la petite 
 
 Ce sentiment émanait de son âme originelle, comme si une main caressait doucement son essence.
 
-À ce moment précis, l'âme originelle de Wang Lin émit une lumière bleue et des décharges de tonnerre pénétrèrent son corps. En mouvement, une partie de son âme s'étendit vers l'os du Serpent aux yeux de lune, provoquant une série de craquements stridents.
+À ce moment précis, l'âme originelle de Wang Lin émit une lumière bleue et des décharges de tonnerre pénétrèrent en elle. Parcourant l'âme, une partie de la foudre s'étendit jusqu'à l'os du Serpent aux yeux de lune, provoquant une série de craquements stridents.
 
 Pourtant, la garde céleste s'arrêta net. Ses yeux exprimèrent une rare hésitation, comme si elle craignait quelque peu le tonnerre.
 

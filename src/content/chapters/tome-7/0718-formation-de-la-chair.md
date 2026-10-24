@@ -20,7 +20,7 @@ Le monde entier était enveloppé par un tonnerre impétueux. D'innombrables éc
 
 Les yeux de Wang Lin brillaient d'une lueur étrange. Cet endroit était tout simplement parfait pour lui.
 
-« Il ne me faudra que la moitié de l'effort habituel pour cultiver le sortilège de l'Origine du Tonnerre du messager du Temple Céleste du Tonnerre! » L'âme originelle de Wang Lin se posa sur le sol. Comme s'il avait atterri dans un bassin de foudre, une onde de choc se propagea depuis son âme originelle.
+« Il ne me faudra que la moitié de l'effort habituel pour cultiver le sortilège de l'Origine du Tonnerre du messager du Temple Céleste du Tonnerre! » L'âme originelle de Wang Lin se posa sur le sol. Comme s'il avait atterri dans un bassin de foudre, d'innombrables éclairs ondulèrent sur le sol et se propagèrent le long de son âme originelle.
 
 Même la moitié de l'os du Serpent aux yeux de lune était entourée de tonnerre.
 

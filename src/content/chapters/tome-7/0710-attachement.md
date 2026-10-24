@@ -102,7 +102,7 @@ Presque toutes ces familles furent impressionnées par le titre de messager du T
 
 Après mûre réflexion, Wang Lin refusa ces demandes, car l'enjeu était trop vaste. Il n'avait aucun différend avec ces familles et le risque était trop grand: si elles devenaient ses subordonnées et que son identité était révélée un jour, cela pourrait les impliquer de manière désastreuse.
 
-Grâce à cette expérience, Wang Lin commença à comprendre l'utilité des Fruits d'Ascension Céleste pour le Temple Céleste du Tonnerre et la raison pour laquelle des familles acceptaient de devenir subordonnées aux messagers.
+Grâce à cette expérience, Wang Lin commença à comprendre l'utilité des Fruits d'Ascension Céleste dans le Royaume Céleste du Tonnerre et la raison pour laquelle des familles acceptaient de devenir subordonnées aux messagers.
 
 Les fruits s'accumulèrent jusqu'à ce que Wang Lin en possède bien plus qu'il n'en avait besoin, mais il continua sa collecte. Après tout, ces fruits conserveraient une grande utilité dans le Royaume Céleste du Tonnerre.
 

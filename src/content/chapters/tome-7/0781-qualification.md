@@ -138,7 +138,7 @@ Si Wang Lin réagissait ainsi, que dire des trois autres? Dès l'apparition de c
 
 Lorsque le regard de l'os de bête se posa sur lui, le visage du cultivateur devint livide et il recula aussitôt. Mais à cet instant précis, cette aura riche et maléfique réapparut.
 
-Les yeux du cultivateur furent envahis par la panique et sa main droite devint instantanément grise. La grisaille se propagea avec frénésie; face à l'urgence, il n'hésita pas à lever sa main gauche pour trancher directement sa main droite. Ignorant le sang qui jaillissait de partout, il recula de plus de 3,3 kilomètres et s'assit immédiatement en position de lotus.
+Les yeux du cultivateur furent envahis par la panique et sa main droite devint instantanément grise. La grisaille se propagea avec frénésie; face à l'urgence, il n'hésita pas à lever sa main gauche pour trancher directement son bras droit. Ignorant le sang qui jaillissait de partout, il recula de plus de 3,3 kilomètres et s'assit immédiatement en position de lotus.
 
 Bien qu'il eût amputé son propre bras, la grisaille ne disparut pas et se propagea depuis sa main gauche. Ses yeux étaient remplis de désespoir alors qu'il serrait les dents. Au moment où le gris recouvrit tout son corps, son âme originelle s'échappa, abandonnant son enveloppe charnelle.
 

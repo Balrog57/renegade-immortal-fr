@@ -30,7 +30,7 @@ Mais maintenant que l'Ancêtre avait accepté, Xiang Yundong sourit et dit: « X
 
 Wang Lin acquiesça et lança un regard à Qing Shui.
 
-L'œil droit de Qing Shui brilla d'un rouge éclatant et il déclara calmement: « Si quiconque ose te blesser, alors des rivières de sang issues de ceux nommés Xiang couleront sur la planète Dong Lin. » Bien que sa voix fût légère, elle était empreinte d'une intention meurtrière glaciale. Xiang Yundong fronça les sourcils et ne put que sourire amèrement en silence.
+L'œil droit de Qing Shui brilla d'un rouge éclatant et il déclara calmement: « Si quiconque ose te blesser, le sang de tous les clans de la planète Dong Lin coulera à flots. » Bien que sa voix fût légère, elle était empreinte d'une intention meurtrière glaciale. Xiang Yundong fronça les sourcils et ne put que sourire amèrement en silence.
 
 Wang Lin laissa poindre une pointe de gratitude. Dans sa vie, il n'y avait eu que peu de personnes envers qui il éprouvait de la reconnaissance. Situ, Zhou Yi, Dun Tian... et maintenant Qing Shui!
 

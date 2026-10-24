@@ -84,7 +84,7 @@ Wang Lin sortit avec précaution plusieurs dizaines de Fruits d'Ascension Céles
 
 Il procédait avec une extrême prudence, déployant son sens divin pour surveiller les environs.
 
-La teinte rougeâtre des tentacules se dissipa rapidement, et Wang Lin comprit qu'il lui restait peu de temps. Après avoir versé le liquide rouge à la racine du dernier tentacule, il s'envola prestement.
+La brume rouge se dissipait à une vitesse extrême, et Wang Lin comprit qu'il lui restait peu de temps. Après avoir versé le liquide rouge à la racine du dernier tentacule, il s'envola prestement.
 
 À l'instant même où il prit de la hauteur, la brume se dissipa. La couleur des tentacules repassa du cramoisi au rouge foncé. Cependant, des renflements apparurent sur les tentacules avant qu'ils ne s'enfoncent sous terre.
 

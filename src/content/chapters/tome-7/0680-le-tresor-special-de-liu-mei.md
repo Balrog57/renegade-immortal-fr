@@ -118,7 +118,7 @@ Un bras légèrement flétri sortit du vortex et pressa nonchalamment contre le 
 
 Dans un fracas assourdissant, le corps de Wang Lin fut projeté en arrière tel un météore. Son visage devint pâle et il cracha une large bouchée de sang, mais ses yeux brillaient d'une lueur froide et monstrueuse.
 
-« Oh, pas encore morte? » Une voix antique émana du vortex. Le bras flétri saisit Liu Mei et la traîna directement à l'intérieur.
+« Oh, pas mort? » Une voix antique émana du vortex. Le bras flétri saisit Liu Mei et la traîna directement à l'intérieur.
 
 « Si tu la sauves, la famille Huan sera anéantie! » La voix de Wang Lin était aussi glaciale que le vent d'hiver tandis qu'il fixait le vortex. Il savait que la seule personne capable de secourir Liu Mei en cet instant était l'ancêtre de la famille Huan.
 

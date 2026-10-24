@@ -9,7 +9,7 @@ slug: un-tresor-magique-special-juste-pour-wang-lin
 
 Un rayon de lumière rouge traversait le domaine nord du système stellaire de Luotian, tandis qu'une voix antique résonnait en son sein.
 
-« Mei Er, ceci est la terre natale de ton maître et ton futur foyer. En y repensant, des milliers d'années se sont écoulées depuis mon retour. Sans la Pierre de Luotian laissée par l'Ancêtre de ma famille Huan, il n'aurait pas été si facile pour moi de t'y emmener. »
+« Mei Er, ceci est la terre natale de ton maître et ton futur foyer. En y repensant, cela fait des milliers d'années que je ne suis pas revenu. Sans la Pierre de Luotian laissée par l'Ancêtre de ma famille Huan, il n'aurait pas été si facile pour moi de t'y emmener. »
 
 Une femme se trouvait à l'intérieur du rayon de lumière rouge. En contemplant ce système stellaire inconnu, elle ne ressentait aucun sentiment d'appartenance.
 
@@ -115,7 +115,7 @@ Wang Lin fit huit pas, et chaque pas résonnait comme un coup de tonnerre dans l
 
 Alors qu'il continuait de reculer, son visage devint livide. Ses yeux étaient écarquillés par le choc face à Wang Lin.
 
-Au huitième pas, Wang Lin leva le pied et fixa l'homme en violet. Une pointe de froideur glaçante brilla dans ses yeux alors qu'il frappait le sol avec force!
+Au dernier pas, Wang Lin leva le pied et fixa l'homme en violet. Une pointe de froideur glaçante brilla dans ses yeux alors qu'il frappait le sol avec force!
 
 Si les pas précédents avaient progressivement accumulé la puissance, ce dernier pas fut l'explosion de toute l'énergie recueillie jusqu'alors.
 

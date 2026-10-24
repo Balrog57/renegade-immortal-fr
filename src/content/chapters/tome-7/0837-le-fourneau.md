@@ -80,9 +80,9 @@ Il était évident que chaque fois que ce grand Serpent aux yeux de lune trouvai
 
 Une lueur mystérieuse brilla dans ses yeux alors qu'il levait la main pour la presser contre la paroi du fourneau. Son sens divin pénétra rapidement à l'intérieur de l'objet.
 
-« Puisque Cupidité a pu s'en emparer, je le peux aussi! » Tandis que son sens divin entrait dans le fourneau, Wang Lin ressentit immédiatement une puissante force de succion tirant sur son âme originelle.
+« Puisque Cupidité a pu s'en emparer, je le peux aussi! » Tandis que son sens divin entrait dans le fourneau, Wang Lin ressentit immédiatement une puissante force de succion tirant sur son sens divin.
 
-Wang Lin s'y était préparé. Cette force provenait clairement des tentacules enroulés autour du fourneau. Son âme originelle resta ferme, tel un esquif solitaire bravant des vagues déchaînées, alors qu'il luttait pour s'enfoncer plus profondément dans l'artefact.
+Wang Lin s'y était préparé. Cette force provenait clairement des tentacules enroulés autour du fourneau. Son sens divin resta ferme, tel un esquif solitaire bravant des vagues déchaînées, alors qu'il luttait pour s'enfoncer plus profondément dans l'artefact.
 
 Tout en résistant à la succion, le sens divin de Wang Lin se répandit progressivement à travers le fourneau, y laissant son empreinte. Cependant, il ne ressentit aucun signe qu'il puisse désormais le contrôler.
 

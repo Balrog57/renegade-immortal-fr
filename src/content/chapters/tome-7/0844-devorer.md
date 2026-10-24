@@ -48,7 +48,7 @@ Cependant, ce passage était semblable à un gouffre. Ce n'était pas par manque
 
 « Rien au monde ne peut échapper au karma. Le karma est partout, mais tout ceci n'est qu'une illusion. Dès que je tente de saisir la vérité, tout est enveloppé de brume. » Alors qu'il raffinait l'énergie originelle de Yao Bingyun, Wang Lin laissa échapper un soupir. Puis son regard se posa sur Yao Bingyun.
 
-« Karma... Lorsque j'ai obtenu la perle défiant le ciel, c'était la cause karmique; rencontrer Situ Nan était l'effet karmique. Tuer Teng Li était la cause karmique, et le fait que Teng Huayuan ait massacré mes parents fut l'effet karmique... De même, l'action de Teng Huayuan était la cause karmique, et mon massacre du clan Teng en fut l'effet... Il semble que les causes et les effets karmiques s'entrecroisent. Peut-être qu'un effet karmique aujourd'hui deviendra la cause karmique de quelqu'un d'autre demain... »
+« Karma... Lorsque j'ai obtenu la perle défiant le ciel, c'était la cause karmique; rencontrer Situ Nan était l'effet karmique. Tuer Teng Li était la cause karmique, et le fait que Teng Huayuan ait massacré mes parents fut l'effet karmique... De même, l'action de Teng Huayuan était la cause karmique, et mon massacre du clan Teng en fut l'effet... Il semble que les causes et les effets karmiques s'entrecroisent. Peut-être qu'une cause karmique aujourd'hui deviendra l'effet karmique de quelqu'un d'autre demain... »
 
 Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le domaine du karma contenait trop de complexités; à ce jour, Wang Lin ne le comprenait toujours pas pleinement. Cela différait du domaine de la vie et de la mort qu'il parvenait à appréhender clairement.
 

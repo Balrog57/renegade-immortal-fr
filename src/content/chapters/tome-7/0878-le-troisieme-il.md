@@ -152,7 +152,7 @@ Shengong Hu prit une profonde inspiration en regardant Wang Lin. Cette lumière 
 
 Alors que les yeux du cultivateur aux six doigts étaient remplis de terreur, ils brillèrent aussi d'une lueur de férocité. Il se rua sur Wang Lin!
 
-« Il doit être blessé, c'est donc ma meilleure chance de le tuer. Une fois que j'aurai tué le Maître Démon, même si ce n'est qu'un monde illusoire, moi, Zhou Xingdao, je deviendrai célèbre dans tout le Système Stellaire de Luotian!! » Le cultivateur aux six doigts se déplaçait comme l'éclair, le cœur battant à tout rompre. Un éclat de lumière bleue apparut sur son sixième doigt.
+« Il doit être blessé, c'est donc ma meilleure chance de le tuer. Une fois que j'aurai tué le Maître Démon, même si je ne tue que son avatar ici, moi, Zhou Xingdao, je deviendrai célèbre dans tout le Système Stellaire de Luotian!! » Le cultivateur aux six doigts se déplaçait comme l'éclair, le cœur battant à tout rompre. Un éclat de lumière bleue apparut sur son sixième doigt.
 
 Il était trop rapide et atteignit Wang Lin en un instant.
 

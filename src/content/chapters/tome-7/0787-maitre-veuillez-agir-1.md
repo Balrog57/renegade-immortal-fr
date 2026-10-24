@@ -44,7 +44,7 @@ L'homme aux cheveux blancs prit forme au sein de cette brume écarlate et dévor
 
 Ses yeux s'illuminèrent et il sourit. « Pas mal, c'est un cultivateur du Qi! » Après s'être léché les lèvres, il disparut une nouvelle fois.
 
-Plus de cent cultivateurs se trouvaient aux alentours, mais le nombre de prétendants à la fuite ne cessait de croître. Ils voulaient manifestement passer par là. À mesure que la foule s'épaississait, l'homme aux cheveux blancs était comme un poisson dans l'eau; sa vitesse et sa cruauté étaient telles qu'il pouvait abattre un homme en un battement de cils.
+À peine une centaine de cultivateurs se trouvaient aux alentours, mais le nombre de prétendants à la fuite ne cessait de croître. Ils voulaient manifestement passer par là. À mesure que la foule s'épaississait, l'homme aux cheveux blancs était comme un poisson dans l'eau; sa vitesse et sa cruauté étaient telles qu'il pouvait abattre un homme en un battement de cils.
 
 Par conséquent, il était impossible pour les cultivateurs de coopérer. La peur grandissait et, tandis que la porte céleste se contractait jusqu'à presque disparaître, l'effroi devint total.
 

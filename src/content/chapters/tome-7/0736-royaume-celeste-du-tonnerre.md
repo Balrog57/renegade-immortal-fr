@@ -66,7 +66,7 @@ Au sein de sa famille, on l'avait réprimandé pour sa décision irréfléchie. 
 
 Par exemple, avec son talent, il n'aurait pas dû être ici. Il aurait dû rejoindre la majorité des autres messagers et entrer dans le Royaume Céleste par une autre voie. Bien qu'il ne fût pas le seul messager présent, ces personnes ne pouvaient en aucun cas l'égaler en termes de statut.
 
-En y pensant, Shengong n'éprouvait aucun regret; il ressentait au contraire une immense fierté. Non seulement il savait qu'il n'avait pas tort, mais il sentait que c'était la meilleure décision de sa vie! Ce qu'il avait dit à Tang Yanfeng était la même chose qu'il avait asséné aux anciens de sa famille!
+En y pensant, Shengong Hu n'éprouvait aucun regret; il ressentait au contraire une immense fierté. Non seulement il savait qu'il n'avait pas tort, mais il sentait que c'était la meilleure décision de sa vie! Ce qu'il avait dit à Tang Yanfeng était la même chose qu'il avait asséné aux anciens de sa famille!
 
 « Même le Grand Ancien de la famille est bloqué au stade du Nirvana Purificateur, il est donc inutile de parler de la légendaire troisième étape... Quelles qualifications ont-ils pour me guider?! » Les yeux de Shengong Hu brillaient d'un éclat vif.
 

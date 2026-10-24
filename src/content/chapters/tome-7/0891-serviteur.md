@@ -34,9 +34,9 @@ Simultanément, l'énergie spirituelle céleste et l'énergie démoniaque emplir
 
 Le regard de Wang Lin resta calme. Il eut un ricanement et cracha un objet: le Sceau Céleste. Une fois expulsé, l'objet projeta une lueur dorée éblouissante et des centaines de milliers de runes apparurent. Ces runes formèrent un vortex doré qui s'élança en avant.
 
-Le filet de tendons enveloppa immédiatement le vortex, mais les runes dorées le percutèrent de plein fouet. Chaque rune, en touchant sa cible, créait un sceau.
+Le filet de tendons s'enroula immédiatement autour du Sceau Céleste, mais le vortex de runes dorées jaillit en avant. Chaque rune, en touchant sa cible, créait un sceau.
 
-En particulier, les runes dorées ayant pour fonction de sceller l'âme originelle d'un cultivateur étaient d'une férocité extrême. À leur contact, un grondement assourdissant retentissait et la force des sceaux était cent fois supérieure à la normale!
+En particulier, les quelques runes dorées fusionnées avec des âmes originelles de cultivateurs étaient d'une férocité extrême. À leur contact, un grondement assourdissant retentissait et la force des sceaux était cent fois supérieure à la normale!
 
 Presque instantanément, alors que le vortex doré balayait la zone, une lumière éclatante enveloppa le garçon à la grosse tête, le scellant totalement.
 

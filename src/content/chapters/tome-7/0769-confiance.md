@@ -100,7 +100,7 @@ Même l'Omniscient n'aurait pu imaginer que son disciple, issu d'une planète se
 
 À cet instant, sur un fragment devant Wang Lin, Li Yuan s'échappait, le visage livide. Son bras droit avait disparu et le sang suintait abondamment.
 
-De nombreuses blessures d'épée couvraient son corps, la plus choquante étant celle sur son abdomen. Même son âme originelle était blessée et montrait des signes d'effondrement. S'il n'avait pas fui grâce à la technique de sa famille pour briser les restrictions, il serait déjà mort.
+De nombreuses blessures d'épée couvraient son corps, la plus choquante étant celle sur son abdomen. Même son âme originelle était blessée et montrait des signes d'effondrement. S'il n'avait pas fui grâce à la Restriction d'Annihilation de sa famille, il serait déjà mort.
 
 Une aura de mort emplissait le corps de Li Yuan. Il afficha un sourire amer et une expression de résignation. Il voulait contre-attaquer, mais l'adversaire possédait un miroir ancien capable de briser les restrictions. De plus, il avait aidé Wang Lin en utilisant sa restriction du cœur, laquelle ne s'était pas encore rétablie. À moins de créer une distance importante, il ne pourrait pas se cacher rapidement.
 

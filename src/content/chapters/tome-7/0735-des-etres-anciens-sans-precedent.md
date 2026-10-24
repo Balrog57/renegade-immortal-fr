@@ -88,7 +88,7 @@ Presque instantanément, l'immense vortex fut entièrement absorbé dans le four
 
 C'était la première fois qu'une fissure apparaissait sur un fourneau de tonnerre depuis l'ouverture du Royaume Céleste du Tonnerre!
 
-Un tel phénomène ne s'était jamais produit au cours des innombrables années passées. Le nombre de fourneaux était resté immuable, car ils ne pouvaient être ni détruits ni perdus. Chaque fois que le Royaume Céleste du Tonnerre s'ouvrait, ils émergeaient du vide pour y retourner ensuite. Et à chaque réapparition, leur nombre était identique.
+Un tel phénomène ne s'était jamais produit au cours des innombrables années passées. Le nombre de fourneaux était resté immuable, car ils ne pouvaient être ni détruits ni perdus. Chaque fois que le Royaume Céleste du Tonnerre se fermait, ils retournaient au néant comme ils en étaient venus. Et à chaque réapparition, leur nombre était identique.
 
 Pourtant, il semblait que tout allait changer.
 

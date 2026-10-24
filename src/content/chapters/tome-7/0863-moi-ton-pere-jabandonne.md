@@ -30,7 +30,7 @@ La seconde lame absorba la force de la première et entra en collision avec le d
 
 La troisième et la quatrième lames suivirent immédiatement, absorbant les fragments des deux précédentes. La troisième lame se dissipa d'elle-même pour fusionner avec la quatrième, créant une force inimaginable!
 
-Le dragon noir se changea en vent noir et rugit de plus belle. La quatrième lame s'effondra au même instant!
+Dans un rugissement furieux, le corps du dragon noir s'effondra, se changeant en vent noir. La quatrième lame s'effondra au même instant!
 
 L'écran de lumière vacilla et finit par céder, incapable de supporter l'impact. Il vola en mille morceaux, et la barrière protectrice entourant l'arène disparut!
 

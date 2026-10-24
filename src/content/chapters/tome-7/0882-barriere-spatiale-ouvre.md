@@ -10,7 +10,7 @@ Maître Yan Leizi flottait dans les airs, ses mains formant un sceau tandis que 
 
 Des dizaines de fragments célestes couvrirent instantanément le ciel, dégageant une pression inimaginable. Cela poussa chaque cultivateur du Temple Céleste du Tonnerre à activer sa culture pour résister à cette force.
 
-À première vue, on aurait dit que le ciel était scindé en deux. Des rayons de lumière transperçaient l'interstice formé par l'intersection des fragments. Lorsque tous les cultivateurs du Système Stellaire de Luotian virent cela, leurs esprits tremblèrent et leur sang se mit à bouillir.
+À première vue, on aurait dit que le ciel était découpé en morceaux. Des rayons de lumière transperçaient l'interstice formé par l'intersection des fragments. Lorsque tous les cultivateurs du Système Stellaire de Luotian virent cela, leurs esprits tremblèrent et leur sang se mit à bouillir.
 
 Les yeux de Maître Yan Leizi révélaient une haine qu'il avait dissimulée pendant des dizaines de milliers d'années. Il prit une profonde inspiration et ouvrit les bras. Tandis que les fragments tournaient, des grondements retentirent dans le ciel. Ce bruit était si intense qu'il fit changer les couleurs du monde.
 

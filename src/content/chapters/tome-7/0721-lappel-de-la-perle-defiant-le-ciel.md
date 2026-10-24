@@ -122,7 +122,7 @@ Il fit vingt pas d'affilée avant de s'arrêter. Son corps entier était désorm
 
 C'était là sa limite actuelle. Wang Lin s'assit lentement et ferma les yeux pour entamer sa culture.
 
-La Bête du Tonnerre dandina longuement sur la lisière avant de faire, finalement, un pas prudent. Dès qu'elle ressentit le tonnerre, elle se coucha et commença à absorber et à affiner l'énergie selon une méthode propre aux Bêtes du Tonnerre.
+La Bête du Tonnerre dandina longuement sur la lisière avant de faire, finalement, quelques pas prudents. Dès qu'elle ressentit le tonnerre, elle se coucha et commença à absorber et à affiner l'énergie selon une méthode propre aux Bêtes du Tonnerre.
 
 Hormis le fracas des éclairs, aucun autre son ne résonnait. L'homme et la bête s'étaient ainsi plongés dans leur culture.
 

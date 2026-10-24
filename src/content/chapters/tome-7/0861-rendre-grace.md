@@ -40,7 +40,7 @@ L'expression de Wang Lin resta glaciale tandis qu'il contemplait le vieil homme.
 
 Au même instant, un homme d'âge moyen se tenait à environ 330 mètres de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
 
-Les yeux du vieil homme nommé Tang s'illuminèrent. Il ne regarda pas l'homme d'âge moyen, mais plutôt l'ancêtre de la famille Chen qui venait de s'exprimer.
+Les yeux du vieil homme nommé Tang s'illuminèrent. Il ne regarda pas l'homme d'âge moyen, mais plutôt l'un des ancêtres de la famille Chen présents non loin de là.
 
 Puis un autre cultivateur se leva. C'était un homme âgé qui, après s'être redressé, fixa l'Ancien Tang. Il dit: « La famille Zhao du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer. Je me demande si ma famille Zhao est qualifiée aux yeux de Senior Tang! »
 

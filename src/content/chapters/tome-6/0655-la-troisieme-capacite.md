@@ -42,7 +42,7 @@ Parallèlement, les éclairs reliant les sept épées crépitèrent alors que le
 
 Il y avait tant de lignes rouges que, si l'on devait les compter, on en trouverait un million!
 
-Exactement autant que la quantité d'énergie du massacre!
+Exactement autant que le nombre d'empreintes de vie de l'énergie du massacre!
 
 Les lignes rouges sous la peau de Wang Lin vacillèrent, mais son esprit demeura calme alors qu'il prenait une profonde inspiration. À cet instant, il atteignit le bord de la fissure, mais cela ne suffisait pas encore à expulser l'intention de tuer de son corps; cela servait seulement à l'exposer.
 

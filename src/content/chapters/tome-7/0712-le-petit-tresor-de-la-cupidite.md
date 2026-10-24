@@ -114,7 +114,7 @@ Le sort d'Arrêt!
 
 Tout cela se produisit en un éclair, sans la moindre hésitation. Tandis que Wang Lin s'élançait, un rugissement retentit dans son dos.
 
-Saisissant la montagne, Wang Lin s'envola promptement. Il la rengaina aussitôt dans son sac et plongea dans la terre. Sans hésiter, il utilisa un sort d'évasion appris du vieil homme. Des rugissements résonnèrent derrière lui et, alors qu'il s'échappait, il déploya son sens divin. À sa grande horreur, il vit une partie du corps du Serpent aux yeux de lune — une centaine de pieds — sortir de la terre, tandis que le reste demeurait enfoui.
+Saisissant la montagne, Wang Lin s'envola promptement. Il la rengaina aussitôt dans son sac et plongea dans la terre. Sans hésiter, il utilisa un sort d'évasion appris du vieil homme. Des rugissements résonnèrent derrière lui et, alors qu'il s'échappait, il déploya son sens divin. À sa grande horreur, il vit que la créature derrière lui était un petit Serpent aux yeux de lune dont l'avant — d'une centaine de pieds — sortait de la terre, tandis que le reste demeurait enfoui.
 
 Le petit Serpent aux yeux de lune était immobilisé par le sort d'Arrêt, ce qui offrit à Wang Lin l'opportunité parfaite de s'enfuir. Une fois Wang Lin disparu, le serpent reprit le contrôle, mais ses yeux étaient injectés de sang. Il poussa un rugissement avant de disparaître à nouveau sous terre.
 

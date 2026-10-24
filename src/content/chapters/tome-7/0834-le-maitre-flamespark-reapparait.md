@@ -92,7 +92,7 @@ L'homme en violet le regarda froidement, puis détourna les yeux sans poser dava
 
 Le Maître Yan Leizi renifla avec mépris et pensa: « Durant cette période, j'ai enquêté sur les origines de ce Xu Mu. Il est traqué et a été contraint de fuir ici, une situation très similaire à la mienne. Avec son tempérament, les chances qu'il nous trahisse sont infimes. Et s'il le faisait, je n'aurais qu'à le tuer. Nul besoin que vous me fassiez la leçon! Qui se soucie d'une famille héritière de l'ancien temps? Vous ne méritez même pas mon attention! »
 
-« Peu importe, puisque le Maître Yan Leizi est confiant, n'en parlons plus. Il est temps pour nous d'agir contre cette bête! Après tout, si trop de personnes meurent, ce sera une perte pour notre Système Stellaire Luotian. Réfléchissons maintenant à la manière de la chasser! » L'homme en rouge nommé Xiang regarda au loin, comme si son regard pouvait percer l'horizon à des dizaines de milliers de kilomètres.
+« Peu importe, puisque le Maître Yan Leizi est confiant, n'en parlons plus. Il est temps pour nous d'agir contre cette bête! Après tout, si trop de personnes meurent, ce sera une perte pour notre Système Stellaire Luotian. Réfléchissons maintenant à la manière de la contrôler! » L'homme en rouge nommé Xiang regarda au loin, comme si son regard pouvait percer l'horizon à des dizaines de milliers de kilomètres.
 
 « Ce n'est pas difficile. En unissant nos forces et avec l'aide de ces vieux monstres, une fois le passage ouvert, nous pourrons certainement la précipiter dans le Système Stellaire de l'Alliance. À ce moment-là... » Le regard du Maître Yan Leizi devint frénétique tandis que son corps vacilla et disparut. Les deux autres disparurent également.
 

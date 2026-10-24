@@ -136,7 +136,7 @@ Cette fois, il atteignit une zone où l'aspiration était plus violente encore. 
 
 « Toujours pas assez! » Les yeux de Wang Lin brillèrent.
 
-D'innombrables bêtes-moustiques occupaient l'espace près de l'entrée du gouffre sans fond. Elles n'osaient s'approcher de trop près, tant la force d'aspiration était puissante; si elles s'aventuraient trop loin, elles seraient aspirées dans le puits.
+Au Couloir des Marées, près du gouffre, d'innombrables bêtes-moustiques occupaient l'espace. Elles n'osaient s'approcher de trop près, tant la force d'aspiration était puissante; si elles s'aventuraient trop loin, elles seraient aspirées dans le puits.
 
 Parmi cet essaim, une bête-moustique émettait une lumière violette violente. Partout où elle volait, les autres moustiques s'écartaient sur son passage, et un simple cri de sa part suffisait à faire trembler la colonie.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 738 - Want to Kill!"
 slug: envie-de-tuer
 ---
-« Puisque cet endroit s'est effondré lorsque je suis tombé, cela signifie qu'il est instable. Ainsi, même si ce lieu est scellé par un sort puissant, il ne pourra tout de même pas résister à l'effondrement du Royaume Céleste! » Wang Lin calcula qu'en restant dans ce tunnel, il pourrait s'échapper.
+« Puisque cet endroit s'est effondré lorsque je suis tombé, cela signifie qu'il est instable. Ainsi, même si ce lieu est scellé par un sort puissant, il ne pourra tout de même pas résister à l'effondrement du Royaume Céleste! » Wang Lin se tenait dans un tunnel, un emplacement déduit après avoir mémorisé la carte des passages.
 
 Pour être plus précis, cet endroit était le point de jonction de tous les tunnels. Presque tous les chemins secondaires étaient reliés à ce passage.
 

@@ -90,7 +90,7 @@ La seconde était terrifiante, et elle glaça le cœur de Wang Lin. Cette explic
 
 « Si c'est la seconde explication, alors où est passé le pouvoir du Dieu Ancien? » Wang Lin observa les environs d'un regard sombre. Ses yeux se fixèrent sur les centaines de tentacules, et une idée effroyable lui traversa l'esprit.
 
-« Se pourrait-il que la mutation massive du Serpent aux yeux de lune soit liée à cela? Le serpent a capturé le Dieu Ancien et possède désormais sa puissance! » Wang Lin recula lentement.
+« Se pourrait-il que la mutation massive du Serpent aux yeux de lune soit liée à cela? Ce serpent s'est retourné contre le Dieu Ancien pour le dévorer, acquérant ainsi de tels pouvoirs divins! » Wang Lin recula lentement.
 
 Cependant, sans qu'il le sache, une immense tristesse envahit son cœur. Cette mélancolie provenait de sa connexion avec son corps originel! Elle était si puissante qu'en se propageant, elle finit par envelopper tout son être.
 

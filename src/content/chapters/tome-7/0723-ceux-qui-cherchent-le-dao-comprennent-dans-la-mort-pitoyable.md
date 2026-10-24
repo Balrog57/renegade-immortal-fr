@@ -28,7 +28,7 @@ L'esprit de Wang Lin perdit progressivement conscience au gré des mutations de 
 
 Le temps s'écoula lentement, comme s'il n'avait point de fin. Wang Lin semblait avoir tout oublié. Dans un état de transe, il dérivait dans cet espace infini.
 
-Il ne voyait que cette scène étrange de sphères de lumière défiler devant ses yeux. En contemplant ce spectacle, Wang Lin sentit une puissance mystérieuse s'accumuler lentement en lui.
+Il ne voyait que cette scène étrange de sphères de lumière défiler devant ses yeux. En contemplant ce spectacle, Wang Lin ressentit peu à peu une puissance mystérieuse.
 
 Cette force était partout, et inconsciemment, il voulut en chercher la source.
 
@@ -92,6 +92,6 @@ Deux d'entre eux continuèrent leur vie tranquille, tandis que le dernier cherch
 
 Ce ne fut qu'à la fin que le Dao arriva enfin!
 
-La terre disparut et la planète cessa d'exister. Les trois êtres redevinrent trois sphères de lumière, avant d'être emprisonnés dans une immense paume qui dériva au loin. Alors que la paume se dissipait, la conscience de Wang Lin émergea.
+La terre disparut et la planète cessa d'exister. Les trois êtres redevinrent trois sphères de lumière, avant d'être emprisonnés dans une immense paume qui dériva au loin. Alors que la paume se dissipait, la conscience de Wang Lin se dissipa également.
 
 « Ainsi donc, voici le Dao... » La voix de Wang Lin résonna dans le vide. Tout ce qu'il avait cherché s'achevait en lui-même.

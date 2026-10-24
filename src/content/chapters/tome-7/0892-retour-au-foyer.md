@@ -80,7 +80,7 @@ Wang Lin n'y prêta aucune attention. Aucun des gardes ne remarqua son passage. 
 
 Wang Lin marchait lentement, le cœur lourd de solitude. Tout ce qui l'entourait lui était étranger.
 
-« Tout le monde a changé... » Wang Lin s'arrêta devant une boutique. En la regardant, sa vue se troubla.
+« Tout a changé... » Wang Lin s'arrêta devant une boutique. En la regardant, sa vue se troubla.
 
 Il se souvenait qu'il y avait autrefois un vieux robinier ici, avec une pierre bleue à ses racines. Durant sa jeunesse, il s'y asseyait souvent pour étudier ses parchemins.
 

@@ -30,7 +30,7 @@ Tout cela se produisit en un laps de temps extrêmement court. Le visage de la f
 
 L'expression de Li Yuan resta neutre, mais son cœur était empreint d'une vigilance extrême. Il savait que l'intelligence de cet homme n'était pas inférieure à la sienne. Cet individu avait décidé d'extraire l'âme de cette femme plutôt que la sienne. Cela pouvait-il signifier… qu'il avait déjà tout percé?!
 
-« De plus, je suis très intéressé par la méthode que vous avez utilisée pour dissimuler votre restriction », ajouta Wang Lin en posant son regard sur Li Yuan.
+« De plus, je suis très intéressé par la méthode de restriction utilisée pour dissimuler votre présence », ajouta Wang Lin en posant son regard sur Li Yuan.
 
 Li Yuan réfléchit un instant avant de sortir un morceau de jade et d'y graver des marques pendant un long moment. Il le tendit ensuite à Wang Lin en disant: « Puisque le Senior est intéressé, Junior ne sera pas avare. »
 

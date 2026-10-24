@@ -96,7 +96,7 @@ La Bête du Tonnerre aux cornes argentées s'approcha. Wang Lin monta sur elle, 
 
 Grâce à dix ans d'absorption de tonnerre dans le lac, la vitesse de la Bête du Tonnerre avait augmenté. Elle traversa le champ d'astéroïdes et disparut parmi les étoiles.
 
-Wang Lin connaissait déjà les changements subis par la Perle Défiant le Ciel. Non seulement les trois âmes à l'intérieur n'étaient pas affectées, mais elles semblaient encore plus éclatantes qu'auparavant.
+Wang Lin connaissait déjà les changements subis par la Perle Défiant le Ciel. Non seulement les trois âmes à l'intérieur, dont celles de Li Muwan et de Wang Ping, n'étaient pas affectées, mais elles semblaient encore plus éclatantes qu'auparavant.
 
 « Je dois me rendre au Royaume Céleste du Tonnerre qui s'ouvrira dans vingt ans. Cependant, je dois d'abord trouver un endroit caché pour accroître mon niveau de culture. De plus, suite au changement de la Perle Défiant le Ciel, elle n'a plus besoin du pouvoir des cinq éléments. Alors, de quoi a-t-elle besoin désormais? » Wang Lin commença à réfléchir, assis sur le dos de la Bête du Tonnerre.
 

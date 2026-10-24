@@ -12,7 +12,7 @@ Au moment où le passage vers le Système Stellaire de l'Alliance s'ouvrit, la f
 
 « La bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance commence! » Maître Yan Leizi sourit tandis que son cri résonnait à travers tout le Système Stellaire de Luotian. Des acclamations s'élevèrent aussitôt, emplissant tout le système.
 
-La voix de Maître Yan Leizi tonna soudainement: « Grande armée de culture de l'est, du sud, de l'ouest et du nord, frayez-vous un chemin dans le Système Stellaire de l'Alliance! En trois jours, prenez possession de trois planètes de culture pour notre Système Stellaire de Luotian afin de les utiliser comme bases! »
+La voix de Maître Yan Leizi tonna soudainement: « Quatre grandes armées de culture de l'est, du sud, de l'ouest et du nord, frayez-vous un chemin dans le Système Stellaire de l'Alliance! En trois jours, prenez chacune possession de trois planètes de culture pour notre Système Stellaire de Luotian afin de les utiliser comme bases! »
 
 Alors que sa voix résonnait, l'armée de 10 000 cultivateurs située sur le flanc est du Temple Céleste du Tonnerre leva silencieusement les yeux. Sous le commandement de l'homme en armure, ils se précipitèrent tous vers la fissure tels des météores.
 

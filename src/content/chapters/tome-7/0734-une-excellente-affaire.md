@@ -78,7 +78,7 @@ Wang Lin hocha la tête. Sans perdre un instant, il sortit trois tablettes de ja
 
 Le vieil homme les examina. Bien que son visage fût impassible, il admirait secrètement l'audace de Wang Lin. Il sortit lui aussi un jade et enregistra la méthode du troisième œil avant de le renvoyer à Wang Lin. Cependant, il avait triché en y introduisant quelques altérations: quiconque cultiverait selon cette version s'exposerait à de graves dangers futurs.
 
-Wang Lin rattrapa le jade et l'examina. Il essaya secrètement le sort et consacra même un effort considérable pour le comparer au moment où son propre troisième œil s'activait. Il identifia immédiatement les anomalies, mais ne les mentionna pas et se contenta de hocher la tête.
+Wang Lin rattrapa le jade et l'examina. Il essaya secrètement le sort et consacra même un effort considérable pour le comparer à l'état du troisième œil qu'il avait observé. Il identifia immédiatement les anomalies, mais ne les mentionna pas et se contenta de hocher la tête.
 
 En regardant le vieil homme, Wang Lin éprouva une certaine pointe de culpabilité. Après tout, il avait réalisé une affaire exceptionnelle. Après avoir hésité, il dit: « Confrère, il est préférable de ne pas cultiver plus de 100 000 brins d'énergie de massacre, sans quoi un grand danger pourrait surgir! » Sur ces mots, il partit précipitamment, comme s'il était pressé.
 

@@ -76,7 +76,7 @@ Après avoir réceptionné les sacs de rangement remplis de jades, Wang Lin soup
 
 Soudain, une vaste étendue rocheuse apparut devant eux. Cette masse mesurait environ 10 000 pieds de large, mais ses bords s'effondraient sans cesse. Une quantité massive de roche se détachait à chaque collision avec une faille spatiale.
 
-Trois personnes se tenaient derrière cette étendue rocheuse, toutes au stade du Yang Corporel. Derrière elles, près de cent cultivateurs regardaient avec avidité le fragment de 1 000 pieds sur lequel Wang Lin voyageait.
+Trois personnes se tenaient au bord de cette étendue rocheuse, toutes au stade du Yang Corporel. Derrière elles, près de cent cultivateurs regardaient avec avidité le fragment de 1 000 pieds sur lequel Wang Lin voyageait.
 
 « Laissez-nous ce fragment céleste! » L'homme situé à l'avant des trois portait une robe dorée, et sa voix sinistre résonna dans le vide.
 

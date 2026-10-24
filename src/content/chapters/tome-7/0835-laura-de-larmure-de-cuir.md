@@ -28,7 +28,7 @@ Sans hésiter, le vieil homme en robe rouge pressa ses deux mains sur le sceau. 
 
 Le doigt créé par le Serpent aux yeux de lune fit trembler l'esprit du vieil homme.
 
-Alors que le Serpent aux yeux de lune rugissait une fois de plus, le doigt du dieu antique pressa lentement vers le bas sur le sceau octogonal!
+Alors que le Serpent aux yeux de lune rugissait une fois de plus, le doigt du dieu antique pressa lentement vers le haut sur le sceau octogonal!
 
 Lorsque le doigt percuta le sceau, celui-ci se brisa en d'innombrables fragments sans la moindre résistance et fut projeté en arrière. Le visage du vieil homme pâlit aussitôt; il fut repoussé avec les débris vers Maître Yan Leizi et l'homme d'âge moyen.
 
@@ -38,7 +38,7 @@ Maître Yan Leizi fixa le doigt du Serpent aux yeux de lune. Ses yeux brillaient
 
 Alors que le Serpent aux yeux de lune rugissait, le doigt devant lui s'abattit rapidement sur les trois hommes.
 
-On aurait dit qu'un véritable dieu antique était apparu, levant son doigt pour pointer le bas!
+On aurait dit qu'un véritable dieu antique était apparu, levant son doigt pour pointer vers l'avant!
 
 « Compagnons cultivateurs, nous ne pouvons résister à l'attaque la plus puissante de cette bête. Si nos corps réels étaient ici, nous pourrions peut-être encore lui tenir tête un moment. Maintenant que notre objectif est atteint, pourquoi ne pas expérimenter personnellement la puissance de cette créature? » Maître Yan Leizi rit en se précipitant vers le doigt du dieu antique.
 
