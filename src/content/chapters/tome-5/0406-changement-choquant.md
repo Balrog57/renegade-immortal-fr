@@ -48,7 +48,7 @@ Après un nouvel examen, une autre feuille apparut sous les onze autres. Bien qu
 
 Dès que le vieil homme sortit du gouffre, les cinq épées dans le ciel vrombirent à l'unisson. Deux d'entre elles quittèrent le filet doré et chargèrent vers lui.
 
-L'expression du vieil homme était calme lorsqu'il murmura: « Le premier Suzaku du pays de Suzaku s'est sacrifié avec neuf cultivateurs Ascendants de stade intermédiaire pour créer ces cinq épées afin de sceller mon Clan de l'Immortel Délaissé pendant des dizaines de milliers d'années. Aujourd'hui, je peux faire de même en me sacrifiant pour libérer mon clan. Absorbe! » Il pointa l'avant de sa main droite et un tatouage gigantesque apparut devant lui. Ce tatouage dégageait une aura primordiale et commença immédiatement à se propager.
+L'expression du vieil homme était calme lorsqu'il murmura: « Le premier Zhu Quezi du pays de Suzaku s'est sacrifié avec neuf cultivateurs Ascendants de stade intermédiaire pour créer ces cinq épées afin de sceller mon Clan de l'Immortel Délaissé pendant des dizaines de milliers d'années. Aujourd'hui, je peux faire de même en me sacrifiant pour libérer mon clan. Absorbe! » Il pointa l'avant de sa main droite et un tatouage gigantesque apparut devant lui. Ce tatouage dégageait une aura primordiale et commença immédiatement à se propager.
 
 Les deux épées volantes commencèrent à trembler, puis réussirent à se libérer de la puissance du tatouage pour battre en retraite rapidement.
 
@@ -104,7 +104,7 @@ Zhu Quezi, vêtu d'une robe rouge, apparut dans le vide. Il regarda en direction
 
 Il le frappa de la main gauche et le jeton se divisa en deux, puis en quatre, et ainsi de suite.
 
-« En tant que Suzaku de la 14e génération, j'appelle tous les pays de culture! La seconde guerre contre le Clan de l'Immortel Délaissé commence! »
+« En tant que Zhu Quezi de la 14e génération, j'appelle tous les pays de culture! La seconde guerre contre le Clan de l'Immortel Délaissé commence! »
 
 Les jetons nuageux disparurent rapidement. Puis, un vieil homme aux cheveux blancs sortit de sa longue retraite à la Secte du Jade Céleste, dans le pays de Suzaku.
 
