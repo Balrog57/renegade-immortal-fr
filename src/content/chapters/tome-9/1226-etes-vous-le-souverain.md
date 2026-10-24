@@ -116,4 +116,4 @@ Même cette existence mystérieuse, restée imperturbable durant d'innombrables 
 
 « Êtes-vous le Souverain du Domaine Extérieur? » Wang Lin s'élança dans les airs pour charger l'annulaire.
 
-« Ce vieil homme est issu du Clan de la Soie Bleue du Système Stellaire Antique, le Maître du Dao Rêve Bleu! »
+« Ce vieil homme est issu du Clan de la Soie Bleue du Système Stellaire Antique, Lanmeng Daozun! »

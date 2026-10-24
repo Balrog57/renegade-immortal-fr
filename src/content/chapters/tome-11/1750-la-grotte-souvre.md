@@ -62,7 +62,7 @@ Le monde de la grotte grondait violemment et le brouillard se mouvait comme une 
 
 À cet instant, dans le Royaume Céleste, Qing Shui se tenait devant sa demeure et contemplait le ciel nuageux. Il ressentit un appel dans son esprit, un appel qui l'irritait profondément. Également dans le Royaume Céleste, Situ Nan sortit de sa culture. Il regarda devant lui d'un air sombre, mais nul ne savait à quoi il pensait.
 
-Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. Cette voix était celle du Maître du Dao Rêve Bleu!
+Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. Cette voix était celle de Lanmeng Daozun!
 
 « J'avais promis à Wang Lin de l'aider... Cet endroit étrange s'est ouvert, mais ne possédant pas le lignage d'un être céleste, je ne peux y pénétrer. Je dois emprunter vos âmes... Êtes-vous d'accord? »
 

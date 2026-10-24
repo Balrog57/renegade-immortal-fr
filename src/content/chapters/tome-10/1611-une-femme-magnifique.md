@@ -142,7 +142,7 @@ La barrière que Qing Lin avait érigée en empruntant une puissance antique s'�
 
 Alors que la situation devenait de plus en plus désespérée, les nombreux grands puissants du Royaume Intérieur abandonnèrent la Rivière Invoquée et la Mer des Nuages. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
 
-Alors que l'agonie s'accentuait, la rumeur de la mort du Seigneur du Royaume Scellé s'enracina. Bien que Qing Shui se soit transformé en Wang Lin, il avait été gravement blessé par le Maître Céleste Dieu du Vide et avait failli mourir il y a plus de 10 ans.
+Alors que l'agonie s'accentuait, la rumeur de la mort du Seigneur du Royaume Scellé s'enracina. Bien que Qing Shui se soit transformé en Wang Lin, il avait été gravement blessé par Xushen Tianzun et avait failli mourir il y a plus de 10 ans.
 
 En conséquence, la nouvelle de la mort du Seigneur du Royaume Scellé ne pouvait plus être contenue. Elle infligea un coup irrémédiable aux cultivateurs du Royaume Intérieur.
 

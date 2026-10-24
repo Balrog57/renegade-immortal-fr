@@ -52,7 +52,7 @@ Pour une raison inconnue, alors qu'il retirait son sens divin après avoir explo
 
 « Existe-t-il un lien entre ces deux endroits... » Wang Lin médita un instant avant de cesser sa réflexion. Au lieu de cela, il se tourna vers la sortie et s'y précipita.
 
-Puisque Wang Lin n'était pas certain que ce lieu menait au Royaume Extérieur, il ne comptait plus perdre de temps ici. Il devait retourner à la Secte Démon le plus vite possible pour rejoindre la Formation du Royaume Scellé. Il lui fallait trouver un moyen d'en sortir et de chercher le Maître du Dao Rêve Bleu!
+Puisque Wang Lin n'était pas certain que ce lieu menait au Royaume Extérieur, il ne comptait plus perdre de temps ici. Il devait retourner à la Secte Démon le plus vite possible pour rejoindre la Formation du Royaume Scellé. Il lui fallait trouver un moyen d'en sortir et de chercher Lanmeng Daozun!
 
 Au début, c'étaient les bêtes féroces qui assiégeaient Wang Lin; désormais, c'était lui qui les chassait une à une. Au fil de son massacre, il accélérait de plus en plus vers la sortie.
 

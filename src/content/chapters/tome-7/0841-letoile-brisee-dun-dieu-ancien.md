@@ -38,7 +38,7 @@ C'était là le sort qui permettait à Lie Yunzi de faire trembler le Système S
 
 Le Daoïste aux Cinq Couleurs se transforma en cinq rayons de lumière. Cette luminescence semblait contenir une puissance immense alors qu'elle tournait pour former un vaste vortex. Le tourbillon emplissait le monde et continuait de s'étendre. Soudain, l'ombre de quatre-vingt-dix-neuf jeunes filles apparut. Elles affichaient toutes un air solennel et s'assirent en position du lotus au sein du vortex. Une aura extrêmement féminine émanait de leurs corps, se condensant violemment en un esprit maléfique hideux de 330 mètres qui chargea le Serpent aux yeux de lune.
 
-Le visage du Dieu du Sang était empreint d'indifférence lorsqu'il explosa en une vaste brume sanguine. L'odeur du sang devint entêtante tandis que la brume enveloppait le corps du serpent. Il s'insinua par les tentacules et commença un carnage destructeur au cœur de la créature.
+Le visage de Xue Shenzi était empreint d'indifférence lorsqu'il explosa en une vaste brume sanguine. L'odeur du sang devint entêtante tandis que la brume enveloppait le corps du serpent. Il s'insinua par les tentacules et commença un carnage destructeur au cœur de la créature.
 
 Des grondements incessants résonnaient dans l'intérieur du Serpent aux yeux de lune.
 
@@ -58,7 +58,7 @@ Le sortilège ne s'arrêta pas là. Après avoir libéré les doigts divins, l'�
 
 Une multitude de tentacules se détachèrent de son corps en tourbillonnant. Soudain, des poils poussèrent sur eux et ils se transformèrent tous en Serpents aux yeux de lune de 33 kilomètres de long!
 
-Hormis le Dieu du Sang, qui était entré dans le corps du serpent et ne pouvait voir l'extérieur, les six autres étaient pétrifiés. Même les pupilles de Maître Yan Leizi se rétractèrent, empreintes d'effroi.
+Hormis Xue Shenzi, qui était entré dans le corps du serpent et ne pouvait voir l'extérieur, les six autres étaient pétrifiés. Même les pupilles de Maître Yan Leizi se rétractèrent, empreintes d'effroi.
 
 « Ceci... Quel genre de bête lunaire est-ce là? Les anciens grimoires n'ont jamais mentionné qu'une bête lunaire puisse posséder un tel sort! »
 
@@ -80,11 +80,11 @@ L'enfant-dieu ancien, encerclé par d'innombrables tentacules, ouvrit soudaineme
 
 Cet effondrement généra une force inimaginable qui frôla Wang Lin avant de charger vers le vortex au bout du passage étroit.
 
-Alors que la tempête s'engouffrait dans le vortex, une lueur rouge émergea. C'était la silhouette du Dieu du Sang qui se condensait rapidement. Après avoir pénétré le Serpent aux yeux de lune, il avait continué son œuvre de destruction jusqu'à trouver ce lieu. À peine avait-il repris forme que la puissance du dieu ancien l'atteignit de plein fouet.
+Alors que la tempête s'engouffrait dans le vortex, une lueur rouge émergea. C'était la silhouette de Xue Shenzi qui se condensait rapidement. Après avoir pénétré le Serpent aux yeux de lune, il avait continué son œuvre de destruction jusqu'à trouver ce lieu. À peine avait-il repris forme que la puissance du dieu ancien l'atteignit de plein fouet.
 
-Malgré sa culture, le Dieu du Sang poussa un gémissement et son corps s'effondra brusquement. Une force démoniaque se répandit soudainement pour l'aider à parer l'impact. L'ombre démoniaque qui se forma fut saisie de choc et s'écroula aussitôt, repoussée avec le Dieu du Sang hors du vortex.
+Malgré sa culture, Xue Shenzi poussa un gémissement et son corps s'effondra brusquement. Une force démoniaque se répandit soudainement pour l'aider à parer l'impact. L'ombre démoniaque qui se forma fut saisie de choc et s'écroula aussitôt, repoussée avec Xue Shenzi hors du vortex.
 
-Lorsque le corps du Dieu du Sang se reforma, son visage était d'une pâleur extrême et il cracha un flot de sang. Il recula précipitamment, la toux persistante. Il paraissait très affaibli, son âme originelle ayant été gravement blessée! S'il n'avait pas eu le démon lié à son âme, il serait mort sur le coup!
+Lorsque le corps de Xue Shenzi se reforma, son visage était d'une pâleur extrême et il cracha un flot de sang. Il recula précipitamment, la toux persistante. Il paraissait très affaibli, son âme originelle ayant été gravement blessée! S'il n'avait pas eu le démon lié à son âme, il serait mort sur le coup!
 
 Ses yeux étaient remplis d'effroi, de peur et d'incrédulité.
 

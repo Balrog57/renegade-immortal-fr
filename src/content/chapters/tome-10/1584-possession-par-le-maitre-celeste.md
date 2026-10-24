@@ -24,19 +24,19 @@ Pêcher la Lune dans le Puits était un sort extrêmement étrange, car il avait
 
 Le corps de Wang Lin s'écrasa dans la 18e couche avec fracas, et il recracha du sang une fois de plus. Son corps était enveloppé d'une lumière dorée, et la douleur était telle qu'il aurait pu perdre connaissance. Cependant, il serra les dents et endura chaque effondrement de sa structure.
 
-L'un des cinq maîtres, le Maître Céleste Dieu du Vide, déchaîna une paume chargée d'une aura puissante. Elle frappa le dos de Wang Lin, provoquant une instabilité flagrante dans son corps immortel.
+L'un des cinq maîtres, Xushen Tianzun, déchaîna une paume chargée d'une aura puissante. Elle frappa le dos de Wang Lin, provoquant une instabilité flagrante dans son corps immortel.
 
 Le corps immortel de Wang Lin n'était pas parfait. Alors que sa forme continuait de se reconstruire, il lutta pour tenter de se redresser.
 
-Cependant, juste au moment où il allait se relever, un rire vague et rauque résonna. Le Maître Céleste Dieu du Vide apparut devant l'ouverture que Wang Lin avait creusée dans le sol.
+Cependant, juste au moment où il allait se relever, un rire vague et rauque résonna. Xushen Tianzun apparut devant l'ouverture que Wang Lin avait creusée dans le sol.
 
 Son corps était entièrement constitué de brume et ses yeux brillaient d'avidité. Il leva la main droite et s'élança vers Wang Lin.
 
-Wang Lin s'apprêtait à résister, mais son corps s'effondra une fois de plus. À cet instant, les yeux du Maître Céleste Dieu du Vide se rétrécirent et il retira sa main. Son corps de brume se précipita alors dans la chair dévastée de Wang Lin.
+Wang Lin s'apprêtait à résister, mais son corps s'effondra une fois de plus. À cet instant, les yeux de Xushen Tianzun se rétrécirent et il retira sa main. Son corps de brume se précipita alors dans la chair dévastée de Wang Lin.
 
 « Une opportunité divine! Il semble que même les cieux veuillent que je m'empare de ton corps céleste! »
 
-Le Maître Céleste Dieu du Vide éclata de rire et s'intégra à la chair et au sang de Wang Lin. Dès que le corps immortel de ce dernier se reforma, il poussa un cri déchirant, le premier depuis le début du combat.
+Xushen Tianzun éclata de rire et s'intégra à la chair et au sang de Wang Lin. Dès que le corps immortel de ce dernier se reforma, il poussa un cri déchirant, le premier depuis le début du combat.
 
 Dans la lumière dorée de sa reconstruction, une nuance d'obscurité apparut. Cette noirceur se propagea à travers son corps pour s'engouffrer dans son esprit. Un rire ténu résonna alors dans son crâne.
 
@@ -44,7 +44,7 @@ Dans la lumière dorée de sa reconstruction, une nuance d'obscurité apparut. C
 
 Les yeux de Wang Lin devinrent injectés de sang. La douleur de la possession était telle qu'il eut l'impression de tout perdre. Tandis qu'il luttait contre les ténèbres, il perdit le contrôle de ses jambes.
 
-Un instant plus tard, il perdit également le contrôle de sa main droite et de son torse. Il ne pouvait plus bouger que sa main gauche, mais même celle-ci s'engourdissait progressivement. Alors que le Sens Divin du Maître Céleste Dieu du Vide prenait possession de lui, ses souvenirs commencèrent à se fragmenter. Ce Sens Divin dominateur s'engouffra dans sa mémoire, cherchant à assimiler toute sa vie pour ensuite l'effacer!
+Un instant plus tard, il perdit également le contrôle de sa main droite et de son torse. Il ne pouvait plus bouger que sa main gauche, mais même celle-ci s'engourdissait progressivement. Alors que le Sens Divin de Xushen Tianzun prenait possession de lui, ses souvenirs commencèrent à se fragmenter. Ce Sens Divin dominateur s'engouffra dans sa mémoire, cherchant à assimiler toute sa vie pour ensuite l'effacer!
 
 Wang Lin laissa échapper un rugissement de douleur, mais celui-ci s'affaiblit peu à peu. Ses yeux exprimaient une lutte acharnée, mais celle-ci perdait force inexorablement. Son corps fut projeté vers le haut, hors de son contrôle.
 
@@ -66,27 +66,27 @@ Par conséquent, ces âmes errantes pouvaient désormais se mouvoir sans aucune 
 
 La planète Suzaku trembla violemment, comme si d'innombrables âmes maléfiques venaient d'être libérées. Incapable de supporter une telle pression, la planète commença à s'effondrer.
 
-Le Maître Céleste Dieu du Vide manipulait le corps de Wang Lin pour s'envoler. Bien qu'il ait pris le contrôle, il ne pouvait empêcher le corps de Wang Lin de continuer à s'effondrer et à se reformer.
+Xushen Tianzun manipulait le corps de Wang Lin pour s'envoler. Bien qu'il ait pris le contrôle, il ne pouvait empêcher le corps de Wang Lin de continuer à s'effondrer et à se reformer.
 
 Toutefois, son niveau de culture étant bien supérieur à celui de Wang Lin, il parvint à supprimer de force ces effondrements pour les limiter à une échelle réduite.
 
-« Ce massacre touche à sa fin... » La voix antique du Maître Céleste Dieu du Vide s'échappa de la bouche de Wang Lin. Il tourna son regard vers les deux concubines impériales célestes et l'homme en blanc qui sortaient de la glace.
+« Ce massacre touche à sa fin... » La voix antique de Xushen Tianzun s'échappa de la bouche de Wang Lin. Il tourna son regard vers les deux concubines impériales célestes et l'homme en blanc qui sortaient de la glace.
 
 Mais avant qu'il n'ait pu achever sa phrase, la planète Suzaku derrière lui trembla et explosa soudainement. Un fracas assourdissant déchira le monde alors que la planète volait en éclats. Une tempête noire monstrueuse jaillit de la planète en ruines et enveloppa ce monde.
 
-L'expression du Maître Céleste Dieu du Vide changea et ses pupilles se contractèrent lorsqu'il se retourna. Mais il était trop tard pour fuir. La tempête d'âmes errantes surgissait de la planète Suzaku et fondait sur lui à une vitesse inimaginable.
+L'expression de Xushen Tianzun changea et ses pupilles se contractèrent lorsqu'il se retourna. Mais il était trop tard pour fuir. La tempête d'âmes errantes surgissait de la planète Suzaku et fondait sur lui à une vitesse inimaginable.
 
 C'était comme si une voix résonnait au sein de son corps, appelant les âmes errantes et les dévoreurs d'âmes qui s'échappaient de la planète. C'était comme si cette voix appartenait à leur roi!
 
-La tempête noire enveloppa instantanément le Maître Céleste Dieu du Vide et s'engouffra dans son corps. Un regard attentif aurait permis de voir les innombrables âmes errantes au cœur du tourbillon, toutes se précipitant dans le corps de Wang Lin. En un instant, la tempête disparut: toutes les âmes avaient fusionné avec lui.
+La tempête noire enveloppa instantanément Xushen Tianzun et s'engouffra dans son corps. Un regard attentif aurait permis de voir les innombrables âmes errantes au cœur du tourbillon, toutes se précipitant dans le corps de Wang Lin. En un instant, la tempête disparut: toutes les âmes avaient fusionné avec lui.
 
-Le corps de Wang Lin trembla et s'effondra à nouveau. Cet effondrement se propagea sur des dizaines de milliers de pieds. Grâce à l'appui des innombrables âmes errantes et de sa propre force, une aura monstrueuse éclata. Il parvint à expulser de force le Maître Céleste Dieu du Vide de sa chair et de son sang, tout en poussant un rugissement de protestation!
+Le corps de Wang Lin trembla et s'effondra à nouveau. Cet effondrement se propagea sur des dizaines de milliers de pieds. Grâce à l'appui des innombrables âmes errantes et de sa propre force, une aura monstrueuse éclata. Il parvint à expulser de force Xushen Tianzun de sa chair et de son sang, tout en poussant un rugissement de protestation!
 
-D'immenses nuages de brume se dispersèrent tandis que les âmes errantes faisaient rage. Le phénomène perdura jusqu'à ce que la brume se reforme pour reconstituer le corps du Maître Céleste Dieu du Vide!
+D'immenses nuages de brume se dispersèrent tandis que les âmes errantes faisaient rage. Le phénomène perdura jusqu'à ce que la brume se reforme pour reconstituer le corps de Xushen Tianzun!
 
 Ses yeux étaient emplis de dépit lorsqu'il poussa un rugissement et chargea à nouveau. Simultanément, la concubine impériale céleste presque couverte par la Lune Sombre afficha un regard glacial et fit un pas en avant. L'homme en blanc s'approcha également, chargé d'une puissante intention meurtrière.
 
-Cependant, à cet instant précis, le corps de Wang Lin se reforma grâce aux innombrables âmes errantes. Désormais, il ne s'effondrerait plus pendant un certain temps. Ses yeux brillèrent intensément alors qu'il fixait le Maître Céleste Dieu du Vide qui fonçait sur lui.
+Cependant, à cet instant précis, le corps de Wang Lin se reforma grâce aux innombrables âmes errantes. Désormais, il ne s'effondrerait plus pendant un certain temps. Ses yeux brillèrent intensément alors qu'il fixait Xushen Tianzun qui fonçait sur lui.
 
 « Vous cherchez tous la mort! » Les expériences passées de Wang Lin l'avaient mené infiniment près du trépas. Il ne se souciait plus du fait que le Souverain n'était toujours pas apparu. Une fois son corps reconstitué, sa main gauche s'avança et une lumière dorée s'y accumula. Puis, un arc apparut dans sa main.
 
@@ -94,15 +94,15 @@ Peu après, la main droite de Wang Lin saisit la corde et la tira en arrière. E
 
 Son corps était tendu comme un arc. Une lueur de froideur passa dans ses yeux, désormais emplis d'une intention meurtrière monstrueuse.
 
-Au moment où il banda la corde, une flèche à la pointe en forme d'anneau apparut. Le corps de la flèche était couvert de runes complexes, et l'on pouvait y entendre les hurlements stridents de Nan Zhao et Tian Zhao.
+Au moment où il banda la corde, une flèche à la pointe en forme d'anneau apparut. Le corps de la flèche était couvert de runes complexes, et l'on pouvait y entendre les hurlements stridents de Nanzhao Shangren et Tian Zhao.
 
-Des décharges d'énergie de flèche enveloppèrent les environs et une aura antique se propagea. Cela fit changer radicalement l'expression du Maître Céleste Dieu du Vide, dont le corps se mit à trembler!
+Des décharges d'énergie de flèche enveloppèrent les environs et une aura antique se propagea. Cela fit changer radicalement l'expression de Xushen Tianzun, dont le corps se mit à trembler!
 
-« L'arc de Li Guang!!! Tu... tu as réellement trouvé cette flèche!! » La voix du Dieu du Vide était presque déformée par la terreur. À cet instant, il ne pensait plus à rien d'autre et recula, les yeux écarquillés par l'effroi.
+« L'arc de Li Guang!!! Tu... tu as réellement trouvé cette flèche!! » La voix de Xushen Tianzun était presque déformée par la terreur. À cet instant, il ne pensait plus à rien d'autre et recula, les yeux écarquillés par l'effroi.
 
-« Maudit soit! Je sais pourquoi ce Souverain n'est toujours pas apparu. Souverain, je n'en ai pas fini avec vous!!! » Le Maître Céleste Dieu du Vide avait presque perdu la raison. Il connaissait trop bien le pouvoir de cet arc associé à cette flèche. La simple pensée de son impact lui glaçait le sang.
+« Maudit soit! Je sais pourquoi ce Souverain n'est toujours pas apparu. Souverain, je n'en ai pas fini avec vous!!! » Xushen Tianzun avait presque perdu la raison. Il connaissait trop bien le pouvoir de cet arc associé à cette flèche. La simple pensée de son impact lui glaçait le sang.
 
-« Ce vieil homme ne s'implique pas! » Tout en battant en retraite, le Maître Céleste Dieu du Vide sortit un jade, mais celui-ci ne réagit pas!
+« Ce vieil homme ne s'implique pas! » Tout en battant en retraite, Xushen Tianzun sortit un jade, mais celui-ci ne réagit pas!
 
 Les deux concubines impériales célestes connaissaient l'arc et la flèche bien mieux que lui. La femme entourée par la Lune Sombre fut prise de panique et battit en retraite précipitamment.
 

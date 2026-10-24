@@ -46,9 +46,9 @@ Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur
 
 Pourtant, après avoir vu cet homme, Wang Lin sentit une aura plus faible que celle des vieux monstres du Briseur du Nirvana, mais bien plus puissante que celle des cultivateurs Scruteurs du Nirvana!
 
-« Purificateur du Nirvana! » Wang Lin prit une profonde inspiration et l'intention de combat remplit son regard. Plus précisément, c'était la deuxième fois qu'il affrontait un cultivateur du Purificateur du Nirvana. La première fois fut l'Ancêtre Sanguin, et cet homme était le second!
+« Purificateur du Nirvana! » Wang Lin prit une profonde inspiration et l'intention de combat remplit son regard. Plus précisément, c'était la deuxième fois qu'il affrontait un cultivateur du Purificateur du Nirvana. La première fois fut Xue Zu, et cet homme était le second!
 
-« L'aura de cette personne n'est pas aussi forte que celle de l'Ancêtre Sanguin, il doit donc être au début du stade du Purificateur du Nirvana! »
+« L'aura de cette personne n'est pas aussi forte que celle de Xue Zu, il doit donc être au début du stade du Purificateur du Nirvana! »
 
 Alors que l'homme d'âge moyen se rapprochait, il agita la main et les neuf épées fusionnées tremblèrent. Elles circulèrent autour de lui en émettant un hymne soumis.
 

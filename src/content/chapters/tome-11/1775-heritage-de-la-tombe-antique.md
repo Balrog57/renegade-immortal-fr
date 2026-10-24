@@ -16,11 +16,11 @@ Tout cela rappelait étrangement la manière dont le Souverain avait rassemblé 
 
 Celui qui tue sera toujours tué!
 
-Wang Lin poussa un soupir et joignit les mains en signe de respect devant le Maître du Dao Rêve Bleu et ses compagnons.
+Wang Lin poussa un soupir et joignit les mains en signe de respect devant Lanmeng Daozun et ses compagnons.
 
 « Merci infiniment pour cela. »
 
-Le regard du Maître du Dao Rêve Bleu balaya le nain avant de se poser sur Wang Lin. Il déclara d'une voix lente: « Je ne peux pas beaucoup vous aider, mais quoi qu'il arrive, je ferai de mon mieux. C'est ma promesse! »
+Le regard de Lanmeng Daozun balaya le nain avant de se poser sur Wang Lin. Il déclara d'une voix lente: « Je ne peux pas beaucoup vous aider, mais quoi qu'il arrive, je ferai de mon mieux. C'est ma promesse! »
 
 Ses paroles pesaient lourdement sur les deux derniers mots.
 
@@ -44,7 +44,7 @@ Ce changement attira l'attention de Wang Lin. Il leva les yeux vers le ciel et s
 
 Le Vieux Fantôme Zhan avait rattrapé son retard!
 
-« Vous pouvez partir. Ce vieil homme vous a promis son aide, je tiendrai donc ma parole! » Le Maître du Dao Rêve Bleu soupira tandis qu'une lumière bleue enveloppait son corps. Il fixa le ciel, l'œil chargé d'une intention de combat.
+« Vous pouvez partir. Ce vieil homme vous a promis son aide, je tiendrai donc ma parole! » Lanmeng Daozun soupira tandis qu'une lumière bleue enveloppait son corps. Il fixa le ciel, l'œil chargé d'une intention de combat.
 
 Tuo Sen réfléchit en silence et regarda Wang Lin. Sans mot dire, des bruits de craquements résonnèrent dans son corps. Il leva les yeux et serra les poings.
 

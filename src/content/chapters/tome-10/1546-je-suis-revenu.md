@@ -46,7 +46,7 @@ Les yeux de Maître Yan Leizi étaient empreints de folie. Ses mains formèrent 
 
 Un fracas de tonnerre retentit et, tandis que l'impact se propageait, Maître Yan Leizi cracha du sang. Il utilisa l'énergie du choc pour charger follement vers l'avant. Les fragments derrière lui furent consumés par la mer de flammes et trois d'entre eux s'effondrèrent, mais les restants suivirent Maître Yan Leizi.
 
-« Si le vice-doyen du Conseil Souverain, l'estimé Maître Tian Zhao, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume du Vide Brillant vous appartiendrait?! » Le membre du Clan du Loup Céleste afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Yan Leizi.
+« Si le vice-doyen du Conseil Souverain, Tianzhao Shangshi, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume du Vide Brillant vous appartiendrait?! » Le membre du Clan du Loup Céleste afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Yan Leizi.
 
 Les deux cultivateurs du Système Stellaire Antique étaient tous deux au sommet du stade de Briseur du Nirvana, tout comme l'actuel Maître Yan Leizi. Le fait qu'il puisse encore tenir était la preuve de sa puissance.
 

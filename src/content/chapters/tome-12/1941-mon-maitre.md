@@ -108,7 +108,7 @@ En entendant cela, le vieil homme éclata soudain de rire, mais dans ce rire, la
 
 « Oh? Et qui donc est ton maître? »
 
-L'expression de Liu Jinbiao était empreinte de fierté lorsqu'il répondit: « Sous les ordres du Grand Empyréen Gémeaux, l'Exalté Empyréen Gu Ya! »
+L'expression de Liu Jinbiao était empreinte de fierté lorsqu'il répondit: « Sous les ordres du Grand Empyréen Shuangzi, l'Exalté Empyréen Gu Ya! »
 
 Son calme et ses paroles assurées stupéfièrent le vieil homme.
 

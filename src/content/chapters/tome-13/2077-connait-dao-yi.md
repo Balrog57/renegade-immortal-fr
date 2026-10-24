@@ -72,7 +72,7 @@ Maître Âme Écarlate reprit précipitamment: « Et si vous laissez ce vieil ho
 
 Les nombreux cultivateurs du Royaume Céleste ne saisissaient pas vraiment la véritable puissance de Wang Lin. Mais lorsqu'ils entendirent Maître Âme Écarlate évoquer le mystérieux Grand Empyréen Dao Yi, le simple nom fit trembler leurs âmes.
 
-Le Maître du Dao Rêve Bleu fronça les sourcils sans mot dire. Maître Nan Yunzi affichait également une expression sombre; sa foi en la force de Wang Lin vacillait légèrement.
+Lanmeng Daozun fronça les sourcils sans mot dire. Maître Nan Yunzi affichait également une expression sombre; sa foi en la force de Wang Lin vacillait légèrement.
 
 « Sur le Continent Astral Immortel, il y avait à l'origine neuf Grands Empyréens. Ce Dao Yi est le plus faible d'entre eux », déclara lentement Wang Lin, le visage toujours impassible.
 

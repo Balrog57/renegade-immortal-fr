@@ -68,7 +68,7 @@ Le Monde du Vent et de la Pluie se brisa dans un fracas assourdissant!
 
 Wang Lin cracha du sang et une lumière blanche émana de son corps. Une lueur blanche infinie jaillit de la planète de culture et se condensa autour de Wang Lin pour former une immense silhouette lumineuse!
 
-Le sort du Maître du Dao Rêve Bleu, le Bouclier d'Ombre et de Lumière!
+Le sort de Lanmeng Daozun, le Bouclier d'Ombre et de Lumière!
 
 Dès que le Bouclier d'Ombre et de Lumière apparut, l'empreinte de la paume s'abattit dessus. Le bouclier vacilla violemment, tentant de refléter la puissance, mais il ne tint que quelques respirations avant de s'effondrer!
 

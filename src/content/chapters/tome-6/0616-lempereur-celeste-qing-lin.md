@@ -80,13 +80,13 @@ Plus Wang Lin obtenait d'informations, plus il avait l'impression qu'un voile de
 
 « Le Couple Céleste Nuageux vivait il y a des dizaines de milliers d'années. Ils ne sont pas partis de cet endroit comme les autres, mais ont décidé de cultiver à l'intérieur de leur grotte factice. C'est pourquoi, en dehors de très peu de gens, ils sont presque inconnus. Je n'ai entendu parler de ce couple que par mon père. » En disant cela, Yao Xixue laissa transparaître une trace d'envie et de mélancolie. Lorsqu'elle avait entendu parler de ce couple, elle traversait sa période de jeunesse. Même maintenant, un lambeau de ce rêve subsistait au fond de son cœur, et l'évocation de ce souvenir la plongeait dans une douce tristesse.
 
-Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alors qu'il fixait Yao Xixue: « Ton père, l'Ancêtre Sanguin, devrait arriver bientôt! »
+Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alors qu'il fixait Yao Xixue: « Ton père, Xue Zu, devrait arriver bientôt! »
 
 À ces mots, le cœur de Yao Xixue trembla violemment. Cependant, son visage afficha une surprise feinte et elle répondit: « Je n'ai aucune idée de ce que tu veux dire! » Son expression était parfaitement naturelle, ne laissant paraître aucun indice.
 
-« Au cours de ces dizaines de milliers d'années, le Domaine des Esprits Démoniaques a été ouvert d'innombrables fois. J'ignore combien de fois tu es venue ici, mais avec les capacités de l'Ancêtre Sanguin, prolonger ta vie ne devrait pas être difficile. Dans cette optique, il se trouve que c'est précisément le moment où tu dois entrer dans la grotte, même au risque qu'un étranger s'en aperçoive. S'il n'y avait pas un secret derrière tout cela, je crains que tu ne sois pas aussi anxieuse! »
+« Au cours de ces dizaines de milliers d'années, le Domaine des Esprits Démoniaques a été ouvert d'innombrables fois. J'ignore combien de fois tu es venue ici, mais avec les capacités de Xue Zu, prolonger ta vie ne devrait pas être difficile. Dans cette optique, il se trouve que c'est précisément le moment où tu dois entrer dans la grotte, même au risque qu'un étranger s'en aperçoive. S'il n'y avait pas un secret derrière tout cela, je crains que tu ne sois pas aussi anxieuse! »
 
-« Je soupçonne que durant ces dizaines de milliers d'années, ton père, l'Ancêtre Sanguin, n'a toujours pas pu entrer pour certaines raisons. C'est pourquoi tu es venue. Tu étais très impatiente d'obtenir le droit d'entrer dans la grotte. Je crois que tu te préparais pour l'arrivée de ton père! »
+« Je soupçonne que durant ces dizaines de milliers d'années, ton père, Xue Zu, n'a toujours pas pu entrer pour certaines raisons. C'est pourquoi tu es venue. Tu étais très impatiente d'obtenir le droit d'entrer dans la grotte. Je crois que tu te préparais pour l'arrivée de ton père! »
 
 La voix de Wang Lin était calme et profonde alors qu'il avançait lentement son raisonnement.
 
@@ -106,11 +106,11 @@ Yao Xixue baissa la tête. Elle évita inconsciemment le regard de Wang Lin et d
 
 « Cependant, pour ouvrir la porte de la vraie grotte, il faut que les quatre jetons ouvrent les quatre grottes factices simultanément. Pas un seul ne doit manquer! »
 
-Wang Lin demanda: « Selon toi, l'Omniscient et les autres croient toujours qu'il ne leur faut que trois jetons. Seul ton père, l'Ancêtre Sanguin, sait que trois jetons ne suffisent pas à ouvrir la porte de la vraie grotte. Est-ce bien cela? »
+Wang Lin demanda: « Selon toi, l'Omniscient et les autres croient toujours qu'il ne leur faut que trois jetons. Seul ton père, Xue Zu, sait que trois jetons ne suffisent pas à ouvrir la porte de la vraie grotte. Est-ce bien cela? »
 
 Yao Xixue réfléchit un instant et hocha la tête.
 
-« L'Ancêtre Sanguin est vraiment rusé. Tant qu'il détient une grotte factice, même sans jeton, il conserve l'initiative. S'il gère bien la situation, dès que le quatrième jeton apparaîtra, il aura naturellement la qualification pour entrer dans la vraie grotte! » Wang Lin marqua une pause, ses yeux s'illuminèrent, et il demanda: « Où ce jeton apparaîtra-t-il après avoir été aspiré dans cet endroit? »
+« Xue Zu est vraiment rusé. Tant qu'il détient une grotte factice, même sans jeton, il conserve l'initiative. S'il gère bien la situation, dès que le quatrième jeton apparaîtra, il aura naturellement la qualification pour entrer dans la vraie grotte! » Wang Lin marqua une pause, ses yeux s'illuminèrent, et il demanda: « Où ce jeton apparaîtra-t-il après avoir été aspiré dans cet endroit? »
 
 Yao Xixue hésita un instant avant de répondre: « Dans l'Abîme des Marées. Son entrée se trouve à l'intérieur du Pays des Démons de Feu! »
 

@@ -6,35 +6,35 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1793 - Shake the Entire Immortal Astral Continent
 slug: ebranler-tout-le-continent-astral-immortel
 ---
-Au plus profond de la mer, l'expression de Miao Yin était féroce, mais ses pupilles se contractèrent et ses yeux se remplirent de terreur.
+Au plus profond de la mer, l'expression de Miaoyin Daozun était féroce, mais ses pupilles se contractèrent et ses yeux se remplirent de terreur.
 
 « Vous avez déjà tué mon avatar et pris mon fragment d'âme. Notre rancune aurait dû s'éteindre, alors pourquoi êtes-vous ici pour me tuer?! Il est difficile pour des cultivateurs comme nous d'atteindre un tel niveau de culture. Si vous me traitez ainsi aujourd'hui, quelqu'un fera de même avec vous dans le futur! »
 
-La voix du Maître Dao Miao Yin était perçante et résonna depuis les abysses. Le son se propagea sur l'océan doré, déclenchant une vague gigantesque. Un immense vortex se forma et se précipita vers Miao Yin.
+La voix de Miaoyin Daozun était perçante et résonna depuis les abysses. Le son se propagea sur l'océan doré, déclenchant une vague gigantesque. Un immense vortex se forma et se précipita vers Miaoyin Daozun.
 
-À cet instant, Wang Lin trônait dans le ciel tandis que Miao Yin se trouvait sous la mer. Bien qu'un vortex les séparât, ils pouvaient clairement se voir.
+À cet instant, Wang Lin trônait dans le ciel tandis que Miaoyin Daozun se trouvait sous la mer. Bien qu'un vortex les séparât, ils pouvaient clairement se voir.
 
-Miao Yin ne chercha pas à fuir comme Neuf Cieux. Il savait que son niveau de culture avait trop chuté et qu'il n'avait aucune chance d'échapper à Wang Lin.
+Miaoyin Daozun ne chercha pas à fuir comme Jiutian Mozun. Il savait que son niveau de culture avait trop chuté et qu'il n'avait aucune chance d'échapper à Wang Lin.
 
-« Je ne vais pas te tuer aujourd'hui. Je suis simplement venu t'envoyer vers la réincarnation! » Wang Lin regarda Miao Yin, prisonnier du vortex. Il leva la main et fit un geste décontracté vers lui.
+« Je ne vais pas te tuer aujourd'hui. Je suis simplement venu t'envoyer vers la réincarnation! » Wang Lin regarda Miaoyin Daozun, prisonnier du vortex. Il leva la main et fit un geste décontracté vers lui.
 
 Une paume géante apparut et plongea vers la mer en contrebas.
 
-Le visage de Miao Yin se décomposa alors qu'il fixait Wang Lin. Une lutte acharnée faisait rage dans son cœur. Il comprenait Wang Lin bien mieux que Neuf Cieux. Lorsque ce dernier avait entendu le mot « réincarnation », il avait cru à une menace de mort et avait tenté de fuir.
+Le visage de Miaoyin Daozun se décomposa alors qu'il fixait Wang Lin. Une lutte acharnée faisait rage dans son cœur. Il comprenait Wang Lin bien mieux que Jiutian Mozun. Lorsque ce dernier avait entendu le mot « réincarnation », il avait cru à une menace de mort et avait tenté de fuir.
 
-Mais Miao Yin, lui, n'avait pas la même interprétation.
+Mais Miaoyin Daozun, lui, n'avait pas la même interprétation.
 
-« Réincarner où?! » hurla Miao Yin alors que la paume géante s'abattait sur lui.
+« Réincarner où?! » hurla Miaoyin Daozun alors que la paume géante s'abattait sur lui.
 
-« Sur le Continent Astral Immortel! » Tandis que les paroles de Wang Lin résonnaient, un grondement tonitruant retentit. La paume colossale pénétra le vortex marin et empoigna Miao Yin.
+« Sur le Continent Astral Immortel! » Tandis que les paroles de Wang Lin résonnaient, un grondement tonitruant retentit. La paume colossale pénétra le vortex marin et empoigna Miaoyin Daozun.
 
-Le cœur de Miao Yin trembla et il abandonna amèrement toute résistance inutile. Il ferma les yeux, se laissant capturer par Wang Lin. Une fois scellé, il fut placé dans l'espace de stockage de Wang Lin et fusionné avec son fragment d'âme.
+Le cœur de Miaoyin Daozun trembla et il abandonna amèrement toute résistance inutile. Il ferma les yeux, se laissant capturer par Wang Lin. Une fois scellé, il fut placé dans l'espace de stockage de Wang Lin et fusionné avec son fragment d'âme.
 
 La mer redevint calme, comme si rien ne s'était produit. Wang Lin se détourna et s'élança vers le ciel.
 
-« Il reste encore le Maître Céleste Dieu du Vide! » Les yeux de Wang Lin brillèrent alors qu'il scrutait l'horizon. Il localisa le corps original du Maître Céleste Dieu du Vide.
+« Il reste encore Xushen Tianzun! » Les yeux de Wang Lin brillèrent alors qu'il scrutait l'horizon. Il localisa le corps original de Xushen Tianzun.
 
-Wang Lin avait tué l'avatar du Maître Céleste Dieu du Vide et blessé gravement son corps original. Depuis, ce dernier n'avait jamais réintégré le Royaume Intérieur, mettant ainsi fin à leurs différends.
+Wang Lin avait tué l'avatar de Xushen Tianzun et blessé gravement son corps original. Depuis, ce dernier n'avait jamais réintégré le Royaume Intérieur, mettant ainsi fin à leurs différends.
 
 Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il ne voulait pas abandonner tous ces problèmes à Rêve Bleu, au Maître Nan Yunzi et aux autres. Il allait les résoudre lui-même!
 
@@ -42,7 +42,7 @@ Son regard balaya les étoiles et son corps disparut.
 
 Dans la partie sud du Système Stellaire Antique, se trouvait une zone jonchée de débris. Une planète s'y trouvait autrefois, mais elle s'était effondrée, créant un désert de mort parsemé de roches.
 
-Le Maître Céleste Dieu du Vide demeurait ici. Il avait renoncé à entrer dans le Royaume Intérieur et même à toute idée de combat. Toutefois, lui-même ignorait si cette situation était temporaire ou permanente.
+Xushen Tianzun demeurait ici. Il avait renoncé à entrer dans le Royaume Intérieur et même à toute idée de combat. Toutefois, lui-même ignorait si cette situation était temporaire ou permanente.
 
 Pour l'instant, il n'osait pas pénétrer dans le Royaume Intérieur. Une peur extrême envers Wang Lin lui nouait le cœur.
 
@@ -50,37 +50,37 @@ Pour l'instant, il n'osait pas pénétrer dans le Royaume Intérieur. Une peur e
 
 Jusqu'à ce que sa culture soit pleinement restaurée, jusqu'à ce qu'il atteigne à nouveau son apogée et qu'il puisse enfin sortir pour reprendre le contrôle des étoiles et ébranler le monde des grottes! Il en était certain, pourvu qu'on ne vienne pas l'importuner.
 
-En vérité, même si quelqu'un venait le troubler, le Maître Céleste Dieu du Vide s'en moquait, tant que cette personne n'était pas Wang Lin.
+En vérité, même si quelqu'un venait le troubler, Xushen Tianzun s'en moquait, tant que cette personne n'était pas Wang Lin.
 
 Cependant, alors que ce souhait était noble, la réalité se montra cruelle. Ce jour-là, bien que le système stellaire semblât normal, une pression invisible descendit sur la zone.
 
 L'arrivée de cette pression rendit l'endroit instable. Une multitude de roches éparses volèrent en éclats et furent projetées au loin, comme un halo de poussière se dispersant dans l'espace.
 
-Le Maître Céleste Dieu du Vide ouvrit soudainement les yeux, le visage empreint d'amertume. Il vit la silhouette blanche qu'il n'oublierait jamais marcher vers lui.
+Xushen Tianzun ouvrit soudainement les yeux, le visage empreint d'amertume. Il vit la silhouette blanche qu'il n'oublierait jamais marcher vers lui.
 
 Cette chevelure d'un blanc immaculé était un cauchemar qui faisait trembler son âme.
 
-« Il... est encore venu... » Songea silencieusement le Maître Céleste Dieu du Vide en regardant Wang Lin s'approcher, les yeux emplis de désespoir.
+« Il... est encore venu... » Songea silencieusement Xushen Tianzun en regardant Wang Lin s'approcher, les yeux emplis de désespoir.
 
-« Wang Lin, autrefois je voulais te posséder et je voulais te tuer, mais j'ai échoué. Mon avatar est mort et j'ai fait le vœu de ne jamais entrer dans le Royaume Intérieur de ma vie... Peux-tu... peux-tu me laisser partir, juste cette fois? » Le Maître Céleste Dieu du Vide parlait rarement ainsi, mais il n'avait plus d'autre choix.
+« Wang Lin, autrefois je voulais te posséder et je voulais te tuer, mais j'ai échoué. Mon avatar est mort et j'ai fait le vœu de ne jamais entrer dans le Royaume Intérieur de ma vie... Peux-tu... peux-tu me laisser partir, juste cette fois? » Xushen Tianzun parlait rarement ainsi, mais il n'avait plus d'autre choix.
 
 Tout en parlant, il se leva et joignit les mains devant Wang Lin en signe de respect.
 
-Wang Lin se tenait sur un rocher à mille pieds du Maître Céleste Dieu du Vide. Après une courte réflexion silencieuse, il prit la parole lentement.
+Wang Lin se tenait sur un rocher à mille pieds de Xushen Tianzun. Après une courte réflexion silencieuse, il prit la parole lentement.
 
 « Tu n'es pas fait pour exister ici. Je me rends au Continent Astral Immortel. De nombreuses personnes ont décidé de s'y réincarner. Tu feras de même, afin que je puisse être tranquille. »
 
-« Toi... » Le visage du Maître Céleste Dieu du Vide se décomposa et d'innombrables pensées traversèrent son esprit, mais il finit par laisser échapper un long soupir.
+« Toi... » Le visage de Xushen Tianzun se décomposa et d'innombrables pensées traversèrent son esprit, mais il finit par laisser échapper un long soupir.
 
 « Tu t'en vas et tu ne te sens pas en sécurité en laissant ce vieil homme ici. As-tu pensé qu'une fois que tu seras parti, de nouvelles générations naîtront dans le Système Stellaire Antique? Certains pourraient être plus puissants que moi! Vas-tu tous les exterminer? »
 
 « Je ne peux pas tous les tuer, mais je peux sceller les différents clans du Système Stellaire Antique et forcer les cultivateurs de la troisième étape à se réincarner! S'ils refusent d'obéir, alors je les tuerai! » Les paroles de Wang Lin étaient calmes, mais leur portée était terrifiante.
 
-Le Maître Céleste Dieu du Vide resta silencieux un long moment, fixant Wang Lin avec une crainte accrue.
+Xushen Tianzun resta silencieux un long moment, fixant Wang Lin avec une crainte accrue.
 
-« Fou... Il est véritablement fou... Il me force à la réincarnation, quel choix ai-je... » Le Maître Céleste Dieu du Vide afficha un sourire misérable, abandonna toute résistance et ferma les yeux.
+« Fou... Il est véritablement fou... Il me force à la réincarnation, quel choix ai-je... » Xushen Tianzun afficha un sourire misérable, abandonna toute résistance et ferma les yeux.
 
-Wang Lin agita sa manche et rangea le Maître Céleste Dieu du Vide dans son espace de stockage avant de partir.
+Wang Lin agita sa manche et rangea Xushen Tianzun dans son espace de stockage avant de partir.
 
 Le clan Cang Meng était un clan du Royaume Extérieur ayant également participé à la guerre. Bien que peu nombreux, ils possédaient un ancêtre de la troisième étape.
 

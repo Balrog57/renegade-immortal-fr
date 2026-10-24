@@ -102,7 +102,7 @@ Ces secousses rendirent le monde instable. Song Tian et le Grand Empyréen Ancie
 
 « Les Grands Empyréens du clan céleste sont arrivés. »
 
-Peu après, de l'autre côté de la tempête marine, trois rayons de lumière apparurent. Seuls Jiu Di, Wu Feng et Dao Yi étaient présents. Quant à Gémeaux, elle n'était pas venue; elle avait choisi de rester au sein du clan céleste.
+Peu après, de l'autre côté de la tempête marine, trois rayons de lumière apparurent. Seuls Jiu Di, Wu Feng et Dao Yi étaient présents. Quant à Shuangzi, elle n'était pas venue; elle avait choisi de rester au sein du clan céleste.
 
 La tentation du Royaume Divin Immémorial n'avait que peu d'effet sur elle. Après une longue réflexion, elle avait décidé de rester en soutien.
 

@@ -20,7 +20,7 @@ Tous les cultivateurs présents ressentirent un tremblement qui se propagea dans
 
 La porte dorée issue du fourneau dégageait une lumière infinie qui enveloppait tout le monde caverne!
 
-Devant cette porte dorée, des silhouettes apparurent une à une. C'étaient ceux qui étaient entrés dans le cœur de la caverne et qui n'avaient pas péri. Il y avait Tuo Sen, le Maître du Dao Rêve Bleu, Tang Shan, ainsi que les gens de la Planète des Cinq Éléments.
+Devant cette porte dorée, des silhouettes apparurent une à une. C'étaient ceux qui étaient entrés dans le cœur de la caverne et qui n'avaient pas péri. Il y avait Tuo Sen, Lanmeng Daozun, Tang Shan, ainsi que les gens de la Planète des Cinq Éléments.
 
 Il y avait aussi Wang Lin.
 
@@ -60,7 +60,7 @@ Il y avait aussi la Tortue Noire et l'Oiseau Vermillon. En regardant la porte, u
 
 Désormais, ils allaient retourner sur le Continent Astral Immortel, mais la Secte des Sept Dao avait probablement disparu depuis longtemps.
 
-Contrairement à ceux qui n'appartenaient pas au monde caverne, les yeux du Maître du Dao Rêve Bleu étaient empreints d'une hésitation cachée. Bien qu'il sache déjà beaucoup de choses et comprenne que le monde n'est qu'une caverne, se retrouver face à la porte le laissait sans voix.
+Contrairement à ceux qui n'appartenaient pas au monde caverne, les yeux de Lanmeng Daozun étaient empreints d'une hésitation cachée. Bien qu'il sache déjà beaucoup de choses et comprenne que le monde n'est qu'une caverne, se retrouver face à la porte le laissait sans voix.
 
 Devait-il partir ou rester...
 
@@ -82,7 +82,7 @@ Les paroles de Wang Lin étaient sincères et dépourvues de tout mensonge; il �
 
 Le souvenir des 2 000 dernières années jusqu'à cet instant où la porte s'ouvrait enfin, défilait dans son esprit. Tant qu'il serait humain, il ressentirait la fatigue.
 
-Et il n'était pas le seul. Le Maître du Dao Rêve Bleu avait aidé par amour pour sa fille et en avait été blessé. Tuo Sen et Wang Lin étaient à la fois ennemis et alliés; il l'avait aidé lors d'un moment crucial et était lui aussi épuisé.
+Et il n'était pas le seul. Lanmeng Daozun avait aidé par amour pour sa fille et en avait été blessé. Tuo Sen et Wang Lin étaient à la fois ennemis et alliés; il l'avait aidé lors d'un moment crucial et était lui aussi épuisé.
 
 Qu'il s'agisse de Tang Shan, de la Tortue Noire, de l'Oiseau Vermillon ou des cultivateurs de la Planète des Cinq Éléments, tous étaient las. L'intensité des combats menés au cœur du monde caverne avait été sans précédent!
 
@@ -132,7 +132,7 @@ Tang Shan ouvrit la bouche comme pour dire quelque chose, mais resta silencieuse
 
 Wang Lin ne répondit pas. Le regard de Tang Shan s'obscurcit alors qu'elle était enveloppée par la lumière dorée. Personne, hormis elle, ne vit ses yeux s'éteindre tandis qu'elle disparaissait lentement dans la porte.
 
-À cet instant, tous ceux qui n'appartenaient pas au monde caverneux étaient partis un à un. Le regard de Wang Lin glissa au-delà du Maître du Dao Rêve Bleu et des autres pour se fixer sur le vide, à mille pieds derrière lui. Il joignit les mains face au néant.
+À cet instant, tous ceux qui n'appartenaient pas au monde caverneux étaient partis un à un. Le regard de Wang Lin glissa au-delà de Lanmeng Daozun et des autres pour se fixer sur le vide, à mille pieds derrière lui. Il joignit les mains face au néant.
 
 Il n'y avait rien, rien ne semblait anormal. Aucune ondulation, aucun signe, mais les paroles de Wang Lin résonnèrent solennellement:
 

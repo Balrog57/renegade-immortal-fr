@@ -70,11 +70,11 @@ Une carte supplémentaire apparut dans l'esprit de Wang Lin! Cependant, son atte
 
 La voix se dissipa. L'esprit de Wang Lin se ranima: il comprenait enfin ce que signifiait le palais terrestre mentionné la première fois! Il avait également une hypothèse au sujet de l'Épée Renhe.
 
-Au moment où la plateforme de Wang Lin atteignit le rang 7, le Maître Démon Neuf Cieux, qui se trouvait dans la huitième carte et venait lui aussi d'atteindre le rang 7, se redressa. Il ouvrit les yeux et regarda en arrière.
+Au moment où la plateforme de Wang Lin atteignit le rang 7, Jiutian Mozun, qui se trouvait dans la huitième carte et venait lui aussi d'atteindre le rang 7, se redressa. Il ouvrit les yeux et regarda en arrière.
 
-« Qui est ce maudit individu? Comment a-t-il atteint le rang 7? Il y avait six personnes au total ayant atteint le rang 5, et l'une d'elles a été absorbée par lui pour lui permettre de passer au rang 6. Comment a-t-il pu atteindre le rang 7 en si peu de temps… » Le Maître Démon Neuf Cieux était sombre et perplexe.
+« Qui est ce maudit individu? Comment a-t-il atteint le rang 7? Il y avait six personnes au total ayant atteint le rang 5, et l'une d'elles a été absorbée par lui pour lui permettre de passer au rang 6. Comment a-t-il pu atteindre le rang 7 en si peu de temps… » Jiutian Mozun était sombre et perplexe.
 
-« J'ai utilisé de nombreux avatars pour tuer des gens dans la région extérieure afin d'obtenir des runes pour ma plateforme. J'ai moi aussi une méthode semblable à la sienne… Rang 7… Je ne considère pas cela comme une prouesse. Ma plateforme atteindra bientôt le rang 8, voyons lequel de nous sera le plus rapide! » Le Maître Démon Neuf Cieux se rassit.
+« J'ai utilisé de nombreux avatars pour tuer des gens dans la région extérieure afin d'obtenir des runes pour ma plateforme. J'ai moi aussi une méthode semblable à la sienne… Rang 7… Je ne considère pas cela comme une prouesse. Ma plateforme atteindra bientôt le rang 8, voyons lequel de nous sera le plus rapide! » Jiutian Mozun se rassit.
 
 Il y avait une autre plateforme dans la huitième carte, mais au lieu d'être immergée dans la brume, une plateforme sur le point d'atteindre le rang 7 volait au-dessus de celle-ci. Une femme en blanc y était assise, les sourcils froncés par la perplexité.
 

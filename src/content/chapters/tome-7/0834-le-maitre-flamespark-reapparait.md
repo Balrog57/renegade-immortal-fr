@@ -80,9 +80,9 @@ L'homme d'âge moyen en violet réfléchit. L'homme en rouge sourit: « Ce Xu Mu
 
 Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 Célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire Luotian! »
 
-« De ce point de vue, il semble que le vieux Dieu du Sang soit le plus décisif. Pour que sa famille puisse s'adapter à la guerre sanglante du Système Stellaire de l'Alliance, il a été prêt à sacrifier ce trésor afin de permettre aux siens de subir ce baptême! » L'homme en rouge nommé Xiang sourit.
+« De ce point de vue, il semble que le vieux Xue Shenzi soit le plus décisif. Pour que sa famille puisse s'adapter à la guerre sanglante du Système Stellaire de l'Alliance, il a été prêt à sacrifier ce trésor afin de permettre aux siens de subir ce baptême! » L'homme en rouge nommé Xiang sourit.
 
-« Le Dieu du Sang veut simplement obtenir davantage de bénéfices lors du conflit contre le Système Stellaire de l'Alliance. Cependant, même moi, je ne m'attendais pas à une telle détermination. Ce trésor n'avait plus qu'un seul usage, et il ne l'a pas gardé pour lui... » Le Maître Yan Leizi secoua la tête avec une pointe de pitié dans les yeux, doublée d'une trace d'admiration.
+« Xue Shenzi veut simplement obtenir davantage de bénéfices lors du conflit contre le Système Stellaire de l'Alliance. Cependant, même moi, je ne m'attendais pas à une telle détermination. Ce trésor n'avait plus qu'un seul usage, et il ne l'a pas gardé pour lui... » Le Maître Yan Leizi secoua la tête avec une pointe de pitié dans les yeux, doublée d'une trace d'admiration.
 
 L'homme d'âge moyen qui s'était tu soudainement dit froidement: « D'après nos enquêtes, ce Xu Mu vient du Système Stellaire de l'Alliance. Maître Yan Leizi, vous lui accordez tant d'importance; n'avez-vous pas peur qu'il nous trahisse une fois de retour chez lui? »
 

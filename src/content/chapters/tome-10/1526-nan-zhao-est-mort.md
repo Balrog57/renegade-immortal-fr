@@ -1,9 +1,9 @@
 ---
 n: 1526
-title: "Nan Zhao est mort!"
+title: "Nanzhao Shangren est mort!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
-en: "Chapter 1526 - Nan Zhao Dies!"
+en: "Chapter 1526 - Nanzhao Shangren Dies!"
 slug: nan-zhao-est-mort
 ---
 C'était là le véritable cri de guerre, la véritable gloire du Seigneur du Royaume Scellé!
@@ -38,7 +38,7 @@ Le visage du Grand Maître Yun Luo était extrêmement pâle alors qu'elle recul
 
 « Arrêtez-le!! » hurla le Grand Maître Yun Luo pour la première fois lors de cette bataille. Sa voix, empreinte d'une peur infinie, semblait déformée.
 
-De nombreux cultivateurs du troisième niveau combattaient Maître Hong Shan. Le garçon au regard froid possédait un niveau de culture similaire, et il agita sa main droite, créant une aura glaciale. Cette aura affecta l'Estimé Nan Zhao et le libéra de la suppression de Maître Hong Shan.
+De nombreux cultivateurs du troisième niveau combattaient Maître Hong Shan. Le garçon au regard froid possédait un niveau de culture similaire, et il agita sa main droite, créant une aura glaciale. Cette aura affecta Nanzhao Shangren et le libéra de la suppression de Maître Hong Shan.
 
 « Tuez le Seigneur du Royaume Scellé! » rugit le garçon au regard froid! Il vit que le moral des cultivateurs du Royaume Extérieur vacillait. Ce qui venait de se passer n'avait pas seulement brisé leur intention de combat, cela avait également propagé une peur intense.
 
@@ -46,19 +46,19 @@ Une telle situation était fatale lors d'une grande bataille, et il ne pouvait l
 
 À ses yeux, la solution était simple: tant qu'ils tuaient Wang Lin, tout irait bien!
 
-Il avait non seulement libéré l'Estimé Nan Zhao, mais aussi un autre cultivateur du troisième niveau accompagnant la seconde armée. Ce dernier était un vieil homme vêtu de bleu du Clan Bai Lei. Une fois libéré, il chargea soudainement vers Wang Lin!
+Il avait non seulement libéré Nanzhao Shangren, mais aussi un autre cultivateur du troisième niveau accompagnant la seconde armée. Ce dernier était un vieil homme vêtu de bleu du Clan Bai Lei. Une fois libéré, il chargea soudainement vers Wang Lin!
 
-L'Estimé Nan Zhao était bien plus rapide que le vieil homme en bleu. Il se changea en un rayon de lumière noire et fonça sur Wang Lin avec une intention meurtrière encore plus puissante qu'auparavant!
+Nanzhao Shangren était bien plus rapide que le vieil homme en bleu. Il se changea en un rayon de lumière noire et fonça sur Wang Lin avec une intention meurtrière encore plus puissante qu'auparavant!
 
 À cet instant, Wang Lin traversait l'armée du Royaume Extérieur. Tout cultivateur incapable de reculer à temps était brûlé par le Feu Éthéré et hurlait de douleur avant de s'effondrer. Il se trouvait à moins de 5 000 pieds du Grand Maître Yun Luo!
 
 4 000 pieds, 3 000 pieds, 2 000 pieds!
 
-Alors qu'il n'était plus qu'à 2 000 pieds, l'Estimé Nan Zhao surgit derrière Wang Lin. L'expression sombre, il fixa ce dernier du regard. Il agita la main et une fumée de poison multicolore apparut!
+Alors qu'il n'était plus qu'à 2 000 pieds, Nanzhao Shangren surgit derrière Wang Lin. L'expression sombre, il fixa ce dernier du regard. Il agita la main et une fumée de poison multicolore apparut!
 
-Cette fumée aux cinq couleurs était le poison essentiel à la vie de l'Estimé Nan Zhao. Il l'avait raffiné pendant d'innombrables années à partir de tous les poisons qu'il avait collectés. C'était son trésor le plus précieux, comparable au poison de la Grande Désolation!
+Cette fumée aux cinq couleurs était le poison essentiel à la vie de Nanzhao Shangren. Il l'avait raffiné pendant d'innombrables années à partir de tous les poisons qu'il avait collectés. C'était son trésor le plus précieux, comparable au poison de la Grande Désolation!
 
-« Junior Wang Lin, ce combat est terminé! » Une lueur froide brilla dans les yeux de Nan Zhao tandis qu'il tendait sa main droite. À moins de 1 000 pieds de Wang Lin, la fumée multicolore derrière lui jaillit et se transforma en cinq tornades!
+« Junior Wang Lin, ce combat est terminé! » Une lueur froide brilla dans les yeux de Nanzhao Shangren tandis qu'il tendait sa main droite. À moins de 1 000 pieds de Wang Lin, la fumée multicolore derrière lui jaillit et se transforma en cinq tornades!
 
 Des grondements tonitruants résonnèrent à travers les étoiles. Les cinq tornades convergeaient vers Wang Lin par l'arrière!
 
@@ -68,35 +68,35 @@ Au moment même où il se matérialisa, neuf gouttes de poison apparurent devant
 
 « Le poison? Je l'ai aussi! Trois gouttes suffiront à vous tuer! » Wang Lin agita sa main gauche et trois gouttes de poison volèrent vers les cinq tornades!
 
-À la vue du poison, les pupilles de l'Estimé Nan Zhao se rétractèrent.
+À la vue du poison, les pupilles de Nanzhao Shangren se rétractèrent.
 
 « Le poison de la Grande Désolation! Si c'était la Grande Désolation elle-même qui l'utilisait, cela pourrait être une menace, mais tu oses sortir cette chose obtenue par des moyens inconnus? »
 
-L'Estimé Nan Zhao ricana en se rapprochant avec ses cinq tornades. Il était à moins de 500 pieds de Wang Lin!
+Nanzhao Shangren ricana en se rapprochant avec ses cinq tornades. Il était à moins de 500 pieds de Wang Lin!
 
 C'est alors que les trois gouttes de poison entrèrent en collision avec les tornades. Elles explosèrent, se transformant en un océan de poison monstrueux!
 
 Ce poison éthéré prit rapidement la forme d'une immense paume qui percuta de plein fouet les cinq tornades!
 
-La fumée aux cinq couleurs était composée de poisons divers et terrifiants. Cependant, au contact de la goutte de poison, elle réagit comme si elle avait rencontré un venin encore plus puissant et fut dévorée. Une tornade se dissipa instantanément dans l'océan toxique. Avant que l'Estimé Nan Zhao ne puisse réagir avec horreur, deux autres tornades s'effondrèrent!
+La fumée aux cinq couleurs était composée de poisons divers et terrifiants. Cependant, au contact de la goutte de poison, elle réagit comme si elle avait rencontré un venin encore plus puissant et fut dévorée. Une tornade se dissipa instantanément dans l'océan toxique. Avant que Nanzhao Shangren ne puisse réagir avec horreur, deux autres tornades s'effondrèrent!
 
-« Ce n'est pas le poison de la Grande Désolation!! » L'expression de l'Estimé Nan Zhao changea radicalement. Il avait côtoyé les poisons toute sa vie et connaissait tous les venins de ce monde. Pourtant, les trois gouttes qui s'étaient muées en cet océan étaient un poison qu'il n'avait jamais vu auparavant!
+« Ce n'est pas le poison de la Grande Désolation!! » L'expression de Nanzhao Shangren changea radicalement. Il avait côtoyé les poisons toute sa vie et connaissait tous les venins de ce monde. Pourtant, les trois gouttes qui s'étaient muées en cet océan étaient un poison qu'il n'avait jamais vu auparavant!
 
-Ce poison ressemblait énormément à celui de la Grande Désolation, mais avec une étrange différence. C'était cette nuance qui avait empêché l'Estimé Nan Zhao de réaliser sa terreur jusqu'à ce qu'il soit confronté à lui.
+Ce poison ressemblait énormément à celui de la Grande Désolation, mais avec une étrange différence. C'était cette nuance qui avait empêché Nanzhao Shangren de réaliser sa terreur jusqu'à ce qu'il soit confronté à lui.
 
-Tout se passa en un éclair. Les cinq tornades de poison s'effondrèrent et furent absorbées par l'océan toxique. Puis, cet océan chargea vers Nan Zhao telle une vague monstrueuse, pareille à un fleuve stellaire!
+Tout se passa en un éclair. Les cinq tornades de poison s'effondrèrent et furent absorbées par l'océan toxique. Puis, cet océan chargea vers Nanzhao Shangren telle une vague monstrueuse, pareille à un fleuve stellaire!
 
-Les deux camps étaient trop proches, à moins de quelques centaines de pieds, si bien que même l'Estimé Nan Zhao ne put l'éviter. Tandis que son visage se décomposait, il tenta de reculer et son corps devint flou, comme s'il allait se dissiper. À cet instant précis, l'océan de poison le traversa.
+Les deux camps étaient trop proches, à moins de quelques centaines de pieds, si bien que même Nanzhao Shangren ne put l'éviter. Tandis que son visage se décomposait, il tenta de reculer et son corps devint flou, comme s'il allait se dissiper. À cet instant précis, l'océan de poison le traversa.
 
-Un cri déchirant retentit de l'intérieur de la masse toxique. Le corps évanescent de l'Estimé Nan Zhao fut forcé de réapparaître. Sa peau commença à pourrir et une fumée empoisonnée s'échappa de ses pores.
+Un cri déchirant retentit de l'intérieur de la masse toxique. Le corps évanescent de Nanzhao Shangren fut forcé de réapparaître. Sa peau commença à pourrir et une fumée empoisonnée s'échappa de ses pores.
 
 Ses yeux se remplirent d'une peur inimaginable et il recula comme un fou, cherchant désespérément à échapper à cet océan de poison.
 
-« Quel genre de poison est-ce là?! Même la Grande Désolation ne pourrait raffiner une telle chose!! » L'expression de l'Estimé Nan Zhao était pitoyable alors qu'il fuyait. Mais en un instant à peine, ses jambes se liquéfièrent en une eau sanglante. Même ses os fondirent!
+« Quel genre de poison est-ce là?! Même la Grande Désolation ne pourrait raffiner une telle chose!! » L'expression de Nanzhao Shangren était pitoyable alors qu'il fuyait. Mais en un instant à peine, ses jambes se liquéfièrent en une eau sanglante. Même ses os fondirent!
 
 Des cris atroces, capables d'ébranler l'esprit, résonnèrent à travers les étoiles avant de devenir un cri de détresse terrifiant!
 
-« Sauvez-moi!! » Le bas du corps de l'Estimé Nan Zhao s'était totalement dissipé. Ses bras se liquéfièrent en eau de sang alors qu'il tentait de les lever. Même son torse se mit à fondre tandis que l'océan de poison l'enveloppait. Les cris cessèrent soudainement! L'océan de poison reflua vers Wang Lin avec tout ce qui restait de lui, et l'âme de l'Estimé Nan Zhao — morte ou vivante, on l'ignorait — fut emprisonnée par Wang Lin dans le Fourneau Impérial.
+« Sauvez-moi!! » Le bas du corps de Nanzhao Shangren s'était totalement dissipé. Ses bras se liquéfièrent en eau de sang alors qu'il tentait de les lever. Même son torse se mit à fondre tandis que l'océan de poison l'enveloppait. Les cris cessèrent soudainement! L'océan de poison reflua vers Wang Lin avec tout ce qui restait de lui, et l'âme de Nanzhao Shangren — morte ou vivante, on l'ignorait — fut emprisonnée par Wang Lin dans le Fourneau Impérial.
 
 Seuls les restes d'un cri misérable résonnaient encore aux oreilles des 100 000 cultivateurs. La peur dans leurs yeux atteignit son paroxysme! En particulier, le vieil homme en bleu qui avait fait un pas en avant s'arrêta net, terrifié. Lorsque Wang Lin lui jeta un regard glacial, une sueur froide perla sur le front du vieillard et il battit en retraite précipitamment.
 

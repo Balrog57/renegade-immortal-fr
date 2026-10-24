@@ -22,7 +22,7 @@ L'œil gauche de cette silhouette floue abritait un vortex aux neuf couleurs!
 
 Le Maître Simo fixa Wang Lin sans un mot.
 
-Le Maître du Dao Miao Yin regarda également Wang Lin. Une lueur étrange brillait dans ses yeux et il esquissa un rictus presque imperceptible.
+Miaoyin Daozun regarda également Wang Lin. Une lueur étrange brillait dans ses yeux et il esquissa un rictus presque imperceptible.
 
 Le vieil Oiseau Vermillon se leva dans un rire, le cœur léger. Cependant, au vu de tout ce qui venait de se passer, Wang Lin, en plus de l'affaire des cinq essences, lui avait une fois de plus fait une agréable surprise!
 
@@ -30,9 +30,9 @@ Le vieil Oiseau Vermillon rit de bon cœur: « Tu as brûlé le feu karmique aux
 
 Le vieil homme assis sur le lézard observa Wang Lin d'un œil différent. Il avait combattu le vieil Oiseau Vermillon bien trop de fois et savait à quel point le Feu Éthéré était puissant. Maintenant que Wang Lin avait atteint ce royaume, il ne put s'empêcher de lui accorder toute son attention.
 
-La femme derrière le Maître du Dao Rêve Bleu observa silencieusement Wang Lin. Le Maître du Dao Rêve Bleu vit son expression et poussa un soupir intérieur.
+La femme derrière Lanmeng Daozun observa silencieusement Wang Lin. Lanmeng Daozun vit son expression et poussa un soupir intérieur.
 
-« Si seulement je n'avais pas effacé la mémoire de Yue Er et que j'avais fait rester Wang Lin pour l'aider dans sa culture... au lieu de simplement lui transmettre trois sorts... » Le Maître du Dao Rêve Bleu ressentit, pour la première fois, des remords pour ce qu'il avait fait autrefois.
+« Si seulement je n'avais pas effacé la mémoire de Yue Er et que j'avais fait rester Wang Lin pour l'aider dans sa culture... au lieu de simplement lui transmettre trois sorts... » Lanmeng Daozun ressentit, pour la première fois, des remords pour ce qu'il avait fait autrefois.
 
 Le regard de Wang Lin balaya l'assemblée et il prit une profonde inspiration. Il percevait les émotions qui émanaient de chacun d'eux. S'il le voulait, il pourrait transformer ces émotions en Feu Éthéré.
 

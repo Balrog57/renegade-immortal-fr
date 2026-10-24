@@ -94,7 +94,7 @@ Pourtant, Wang Lin ne recula pas d'un pouce, absorbant cette force au sein de so
 
 Les grondements tonitruants persistèrent et la lame s'abattit sans relâche plusieurs centaines de fois de suite! Ces centaines de frappes fusionnèrent en une seule lame géante qui cherchait à trancher Wang Lin en deux.
 
-À cet instant, Wang Lin libéra toute sa force de rejet et permit à son corps d'exploser avec la totalité de sa puissance, les dix dixièmes. Cette brève fusion entre le Dieu Ancien et la nature céleste conféra à Wang Lin le pouvoir de tuer un cultivateur au stade initial du Vide Spirituel. C'était ainsi qu'il avait terrassé l'Illustre Maître Tian Zhao!
+À cet instant, Wang Lin libéra toute sa force de rejet et permit à son corps d'exploser avec la totalité de sa puissance, les dix dixièmes. Cette brève fusion entre le Dieu Ancien et la nature céleste conféra à Wang Lin le pouvoir de tuer un cultivateur au stade initial du Vide Spirituel. C'était ainsi qu'il avait terrassé Tianzhao Shangshi!
 
 Dans un fracas de tonnerre, le corps de Wang Lin trembla et il avala le sang qui lui montait à la gorge. Il se précipita vers la Tortue Noire, utilisant l'énergie de l'impact de la lame de chair pour propulser son assaut!
 

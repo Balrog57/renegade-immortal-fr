@@ -12,7 +12,7 @@ slug: le-retour
 
 « Cependant... Êtes-vous vraiment mort?! » L'expression du garçon devint soudainement hideuse alors qu'il levait les yeux vers le vide extérieur.
 
-« Vous auriez dû mourir. Sous l'attaque combinée de moi, du Souverain et du Maître du Dao Miao Yin, ainsi que celle des mystérieux cultivateurs du Royaume Céleste Antique, même si votre culture était capable de faire trembler les cieux, vous auriez dû mourir! »
+« Vous auriez dû mourir. Sous l'attaque combinée de moi, du Souverain et de Miaoyin Daozun, ainsi que celle des mystérieux cultivateurs du Royaume Céleste Antique, même si votre culture était capable de faire trembler les cieux, vous auriez dû mourir! »
 
 « Pourtant, pourquoi ai-je ressenti une trace de votre aura il y a quelques mois? Serait-il possible que vous ne soyez pas mort, mais que vous vous soyez réincarné pour cultiver à nouveau?! »
 

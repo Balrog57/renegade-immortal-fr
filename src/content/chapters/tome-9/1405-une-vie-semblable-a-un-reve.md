@@ -36,17 +36,17 @@ Le regard du Maître Simo cachait une malveillance venimeuse. Son visage était 
 
 Le Maître Simo laissa échapper un reniflement froid. « Le Conseil Souverain a étudié l'épreuve des Terres Déchues en profondeur. Ce petit bâtard ne pourra jamais réussir avec son niveau de culture! »
 
-À ses côtés, la Grand Maître Yun Luo affichait également une expression sombre. Sa main, dissimulée dans sa manche droite, traçait furtivement quelques sceaux comme pour pratiquer la divination, tandis que son regard dérivait vers le Maître du Dao Miao Yin.
+À ses côtés, la Grand Maître Yun Luo affichait également une expression sombre. Sa main, dissimulée dans sa manche droite, traçait furtivement quelques sceaux comme pour pratiquer la divination, tandis que son regard dérivait vers Miaoyin Daozun.
 
-Quant au Maître du Dao Miao Yin, il était allongé sur un nuage, les yeux plissés, laissant filtrer une lueur étrange.
+Quant à Miaoyin Daozun, il était allongé sur un nuage, les yeux plissés, laissant filtrer une lueur étrange.
 
 « Ce jeune homme doit être ce Wang Lin dont le Shui Daozi avait envoyé des informations... Le Seigneur du Royaume Scellé n'est pas mort... Ce Shui Daozi ne saurait mentir, mais je devrais rester sur mes gardes... J'ai agi la dernière fois parce que le Souverain m'avait offert de grands avantages, mais maintenant... S'ils veulent que j'intervienne, tout dépendra de la volonté du Conseil Souverain à m'accorder une récompense appropriée. »
 
-Le Maître du Dao Rêve Bleu observa calmement Wang Lin et soupira intérieurement.
+Lanmeng Daozun observa calmement Wang Lin et soupira intérieurement.
 
-« En si peu de temps, cet enfant a réussi à détruire le Clan du Tonnerre Dispersé et s'est également lié profondément aux Terres Déchues. Je l'ai vraiment sous-estimé... En tant que l'un des cinq maîtres, j'ai la responsabilité de garder le Système Stellaire Antique, mais l'affaire entre lui et Yue Er... » Le Maître du Dao Rêve Bleu regarda sa fille d'un regard complexe.
+« En si peu de temps, cet enfant a réussi à détruire le Clan du Tonnerre Dispersé et s'est également lié profondément aux Terres Déchues. Je l'ai vraiment sous-estimé... En tant que l'un des cinq maîtres, j'ai la responsabilité de garder le Système Stellaire Antique, mais l'affaire entre lui et Yue Er... » Lanmeng Daozun regarda sa fille d'un regard complexe.
 
-« Je peux ignorer le Conseil Souverain, et même si le Souverain sort de sa culture méditative, je pourrai refuser, mais... que ferai-je si Meng Er vient? Que devrai-je faire... » En pensant à son épouse, le Maître du Dao Rêve Bleu ressentit une piqûre au cœur. Il ne pourrait jamais oublier cette année où sa femme sembla mourir et devint une étrangère.
+« Je peux ignorer le Conseil Souverain, et même si le Souverain sort de sa culture méditative, je pourrai refuser, mais... que ferai-je si Meng Er vient? Que devrai-je faire... » En pensant à son épouse, Lanmeng Daozun ressentit une piqûre au cœur. Il ne pourrait jamais oublier cette année où sa femme sembla mourir et devint une étrangère.
 
 L'homme vêtu de peau de bête ferma les yeux, ignorant tout le reste. C'était comme si rien au monde n'avait d'importance, hormis le combat contre l'ancien Oiseau Vermillon.
 

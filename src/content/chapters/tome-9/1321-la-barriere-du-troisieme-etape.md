@@ -26,9 +26,9 @@ L'épée de glace et la sphère tourbillonnante flottaient toujours dans les air
 
 Après avoir compris le Sceau d'Inversion Céleste, Wang Lin resta au sommet de la montagne pendant quatre mois supplémentaires. Le second sort, le Bouclier de Lumière et d'Ombre, contenait le pouvoir de la lumière, mais celui-ci restait très flou. Wang Lin continuait de tenter de le déduire, mais ne trouvait aucune piste.
 
-La scène du Maître du Dao Rêve Bleu utilisant ce sort se rejouait sans cesse dans son esprit.
+La scène de Lanmeng Daozun utilisant ce sort se rejouait sans cesse dans son esprit.
 
-Ce jour-là, Wang Lin ouvrit ses yeux fatigués et fixa la neige accumulée devant lui. Il murmura: « Il y a aussi de la lumière dans ma Nuit Brisée et dans la loi d'origine. Sauf que cette lumière provient du soleil ardent, tandis que la lumière du Maître du Dao Rêve Bleu n'a rien à voir avec la loi d'origine. Sa lumière est puisée dans toutes les créatures vivantes... Qu'est-ce que cette lumière, au juste... »
+Ce jour-là, Wang Lin ouvrit ses yeux fatigués et fixa la neige accumulée devant lui. Il murmura: « Il y a aussi de la lumière dans ma Nuit Brisée et dans la loi d'origine. Sauf que cette lumière provient du soleil ardent, tandis que la lumière de Lanmeng Daozun n'a rien à voir avec la loi d'origine. Sa lumière est puisée dans toutes les créatures vivantes... Qu'est-ce que cette lumière, au juste... »
 
 Wang Lin déploya son sens divin tout en réfléchissant. Son sens divin s'étendit à partir de la montagne comme point central. Grâce à sa puissance, il semblait se scinder en des millions de directions différentes.
 
@@ -70,17 +70,17 @@ Il n'avait pas encore complètement compris ce qu'était cette lumière... C'ét
 
 Wang Lin ignorait que cette barrière était la porte de la troisième étape. Très peu de personnes pouvaient ressentir cette barrière, et encore moins étaient capables de la franchir au cours de leur vie!
 
-Les trois sorts que le Maître du Dao Rêve Bleu avait enseignés à Wang Lin possédaient chacun une signification profonde...
+Les trois sorts que Lanmeng Daozun avait enseignés à Wang Lin possédaient chacun une signification profonde...
 
-Lorsque la lumière et l'ombre disparurent, le regard de Wang Lin se posa sur l'épée de glace et la sphère vortex qui n'avaient pas changé depuis le départ du Maître du Dao Rêve Bleu.
+Lorsque la lumière et l'ombre disparurent, le regard de Wang Lin se posa sur l'épée de glace et la sphère vortex qui n'avaient pas changé depuis le départ de Lanmeng Daozun.
 
 En contemplant ces deux objets, Wang Lin prit une grande inspiration. Parmi les trois sorts, ce sort de Dao était le seul restant!
 
 Sa main droite s'avança et la sphère tourbillonnante vola dans sa paume. Ses yeux s'illuminèrent alors qu'il commençait à l'observer.
 
-Cette sphère avait été formée par le Maître du Dao Rêve Bleu grâce au sort de Dao. Elle combinait « Appel du Vent » et « Invocation de la Pluie » en un sort plus puissant qui contenait son propre monde!
+Cette sphère avait été formée par Lanmeng Daozun grâce au sort de Dao. Elle combinait « Appel du Vent » et « Invocation de la Pluie » en un sort plus puissant qui contenait son propre monde!
 
-Cette fusion était précisément le pouvoir du sort de Dao que le Maître du Dao Rêve Bleu souhaitait transmettre à Wang Lin!
+Cette fusion était précisément le pouvoir du sort de Dao que Lanmeng Daozun souhaitait transmettre à Wang Lin!
 
 Alors qu'il observait attentivement la petite sphère entre ses doigts, les cinq essences apparurent progressivement dans les yeux de Wang Lin. Les essences commencèrent à pivoter, puis un gaz invisible s'échappa de la sphère pour pénétrer dans le regard de Wang Lin. La sphère devint de plus en plus petite et, quelques jours plus tard, elle se dissipa complètement.
 

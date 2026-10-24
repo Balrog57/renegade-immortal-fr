@@ -17,7 +17,7 @@ De même, un cultivateur suffisamment puissant pour utiliser une planète entiè
 
 L'aspect le plus crucial dans le choix de l'emplacement d'une retraite était de se situer en dehors de la portée du Sens Divin d'autrui. Autrement, le moindre de vos mouvements serait perçu.
 
-L'Ancêtre Sanguin était un cultivateur porteur de secrets; il s'était donc montré encore plus prudent lors du choix de sa demeure.
+Xue Zu était un cultivateur porteur de secrets; il s'était donc montré encore plus prudent lors du choix de sa demeure.
 
 Sur la carte que l'Omniscient avait donnée à Wang Lin, la Planète du Sang était extrêmement isolée, sans aucune planète abritant de puissants cultivateurs à proximité. C'était d'ailleurs l'une des raisons pour lesquelles le corps originel de Wang Lin l'attaquait.
 
@@ -43,29 +43,29 @@ Ce sort permettait de pénétrer dans une planète non pas pour absorber l'éner
 
 « La seule chose qui m'inquiète est Tuo Sen! Cependant, avec son corps de dieu ancien à huit étoiles, il sera reconnu par ces puissants cultivateurs dès qu'il apparaîtra. Même s'il sème le chaos dans le Système Stellaire de l'Alliance, qu'est-ce que cela a à voir avec moi?! Je, Wang Lin, ne suis pas un saint! » Son regard se glaça davantage.
 
-Il y avait de nombreux esclaves du sang sur la Planète du Sang. Ces individus étaient contrôlés par l'Ancêtre Sanguin et portaient sa marque sur leurs âmes. Si l'Ancêtre Sanguin vivait, ils vivaient; s'il mourait, ils mouraient. La plupart d'entre eux avaient été enlevés de force sur des planètes voisines. Il leur avait dérobé leur liberté pour les contraindre à travailler pour lui. Il collectait également des jeunes talentueux qu'il nourrissait de pilules de sang afin de les façonner en gardiens du sang chargés de protéger la Planète du Sang.
+Il y avait de nombreux esclaves du sang sur la Planète du Sang. Ces individus étaient contrôlés par Xue Zu et portaient sa marque sur leurs âmes. Si Xue Zu vivait, ils vivaient; s'il mourait, ils mouraient. La plupart d'entre eux avaient été enlevés de force sur des planètes voisines. Il leur avait dérobé leur liberté pour les contraindre à travailler pour lui. Il collectait également des jeunes talentueux qu'il nourrissait de pilules de sang afin de les façonner en gardiens du sang chargés de protéger la Planète du Sang.
 
-L'Ancêtre Sanguin était un homme d'une grande froideur; il ne montrait un rare signe de bonté qu'envers sa fille. On pouvait dire qu'hormis l'Ancêtre et sa fille, tout autre être vivant n'était que leur esclave. Leurs vies et leurs morts ne dépendaient que d'une seule pensée.
+Xue Zu était un homme d'une grande froideur; il ne montrait un rare signe de bonté qu'envers sa fille. On pouvait dire qu'hormis l'Ancêtre et sa fille, tout autre être vivant n'était que leur esclave. Leurs vies et leurs morts ne dépendaient que d'une seule pensée.
 
 Zi Xin était assise sur un autel devant le pavillon du sang, le visage marqué par l'anxiété. Elle jetait des regards fréquents vers le pavillon. Cet endroit était une zone interdite; même elle n'y était pas autorisée. À ce moment, plusieurs rayons de lumière sanguine jaillirent du lointain et se rapprochèrent rapidement. Quatre Anciens apparurent devant Zi Xin. Ils dégageaient tous une énergie originelle; c'étaient manifestement des cultivateurs puissants ayant atteint la deuxième étape.
 
 L'un des vieillards baissa la tête et dit: « Maîtresse, un autre groupe d'esclaves du sang est mort... »
 
-Zi Xin se mordit la lèvre inférieure et réfléchit en silence. Au cours des derniers mois, de nombreux esclaves et gardiens du sang avaient inexplicablement explosé et péri. À ce jour, plus de 70 % d'entre eux étaient morts. Cette situation plongeait Zi Xin dans la détresse. La seule explication était que quelque chose était arrivé à l'Ancêtre Sanguin!
+Zi Xin se mordit la lèvre inférieure et réfléchit en silence. Au cours des derniers mois, de nombreux esclaves et gardiens du sang avaient inexplicablement explosé et péri. À ce jour, plus de 70 % d'entre eux étaient morts. Cette situation plongeait Zi Xin dans la détresse. La seule explication était que quelque chose était arrivé à Xue Zu!
 
-L'un des vieillards leva la tête vers elle et demanda lentement: « Maîtresse, où est donc passé le Seigneur Ancêtre Sanguin? »
+L'un des vieillards leva la tête vers elle et demanda lentement: « Maîtresse, où est donc passé le Seigneur Xue Zu? »
 
-Le regard de Zi Xin se fit glacial alors qu'elle répondait avec froideur: « Impudence. Est-ce une question que tu es en droit de poser?! » Cette audace augmentait son anxiété. Auparavant, aucun d'eux n'aurait osé un tel affront, mais à cet instant, même Zi Xin se demandait si l'Ancêtre Sanguin était en train de mourir...
+Le regard de Zi Xin se fit glacial alors qu'elle répondait avec froideur: « Impudence. Est-ce une question que tu es en droit de poser?! » Cette audace augmentait son anxiété. Auparavant, aucun d'eux n'aurait osé un tel affront, mais à cet instant, même Zi Xin se demandait si Xue Zu était en train de mourir...
 
-Le vieillard ricana et s'éloigna. Son humeur était exécrable, mais il éprouvait aussi une pointe de soulagement. Son corps portait également l'empreinte de l'Ancêtre Sanguin, mais cela n'avait plus d'importance pour le moment.
+Le vieillard ricana et s'éloigna. Son humeur était exécrable, mais il éprouvait aussi une pointe de soulagement. Son corps portait également l'empreinte de Xue Zu, mais cela n'avait plus d'importance pour le moment.
 
-« Depuis que j'ai été marqué de force par l'Ancêtre Sanguin il y a 6 000 ans, je ne peux faire un seul pas hors de la Planète du Sang sans son ordre. Maintenant qu'il traverse visiblement une calamité... si je dois mourir, je préférerais mourir dans ma patrie plutôt qu'ici! » Les yeux du vieillard étaient empreints de tristesse alors qu'il s'élançait vers l'espace.
+« Depuis que j'ai été marqué de force par Xue Zu il y a 6 000 ans, je ne peux faire un seul pas hors de la Planète du Sang sans son ordre. Maintenant qu'il traverse visiblement une calamité... si je dois mourir, je préférerais mourir dans ma patrie plutôt qu'ici! » Les yeux du vieillard étaient empreints de tristesse alors qu'il s'élançait vers l'espace.
 
 Les trois autres Anciens levèrent les yeux vers le ciel et regardèrent leur compagnon disparaître. Après un silence réflexif, ils se regardèrent, ne dirent plus rien et s'envolèrent à leur tour.
 
-Zi Xin se leva et cria d'un ton glacial: « Vous avez du cran! N'avez-vous pas peur que l'Ancêtre Sanguin revienne... »
+Zi Xin se leva et cria d'un ton glacial: « Vous avez du cran! N'avez-vous pas peur que Xue Zu revienne... »
 
-Cependant, avant qu'elle n'ait pu finir, l'un des vieillards baissa la tête, la fixa froidement et lui lança: « Bruyante! Tu n'es qu'un jouet de l'Ancêtre Sanguin. Crois-tu vraiment être la maîtresse?! Si nous, les cultivateurs, te témoignons du respect, c'est uniquement à cause de lui. Sans lui, quelle est ta valeur? Je suis sur cette planète depuis près de dix mille ans et j'ai vu passer plusieurs dizaines de filles comme toi! »
+Cependant, avant qu'elle n'ait pu finir, l'un des vieillards baissa la tête, la fixa froidement et lui lança: « Bruyante! Tu n'es qu'un jouet de Xue Zu. Crois-tu vraiment être la maîtresse?! Si nous, les cultivateurs, te témoignons du respect, c'est uniquement à cause de lui. Sans lui, quelle est ta valeur? Je suis sur cette planète depuis près de dix mille ans et j'ai vu passer plusieurs dizaines de filles comme toi! »
 
 Sur ces mots, l'homme disparut dans le ciel. Le corps de Zi Xin trembla tandis qu'elle sombrait dans ses pensées.
 
@@ -79,7 +79,7 @@ Dans l'espace, les quatre Anciens en robe rouge se regardèrent. Sans un mot, il
 
 Un fleuve de pierres sifflait à travers l'espace vers la Planète du Sang. Un géant de plus de 300 mètres de haut trônait au-dessus de ce long courant. Ses yeux étaient froids et chargés d'une intention meurtrière. Les quatre Anciens écarquillèrent les yeux et se regardèrent précipitamment. Ils s'envolèrent immédiatement dans quatre directions différentes, ignorant totalement le géant qui approchait.
 
-« Ancêtre Sanguin, même toi, tu peux connaître un tel jour! » Ces mêmes mots traversèrent presque simultanément l'esprit des quatre vieillards.
+« Xue Zu, même toi, tu peux connaître un tel jour! » Ces mêmes mots traversèrent presque simultanément l'esprit des quatre vieillards.
 
 Derrière eux, une multitude d'esclaves du sang s'étaient lancés dans l'espace, stupéfaits par le géant. Mais ils s'éloignaient tous, un rictus satisfait aux lèvres, sans regarder derrière eux. Aucun ne resta pour défendre la Planète du Sang; au contraire, beaucoup affichaient des sourires moqueurs. Certains ne s'éloignèrent même pas tant que cela, restant à proximité de la planète pour assister personnellement à sa chute.
 
@@ -87,13 +87,13 @@ Grâce à sa sagesse, Wang Lin comprit immédiatement le comportement de ces esc
 
 Un grondement fracassant retentit alors que ces deux blocs percutèrent la Planète du Sang comme deux météores. Au moment de l'impact, un écran de lumière sanguine apparut, faisant éclater les pierres. Le regard de Wang Lin se fit plus glacial encore. D'un geste de la main, il lança une pierre après l'autre, sans relâche.
 
-Finalement, Wang Lin ouvrit les bras et utilisa son énergie spirituelle pour attirer tout le fleuve de pierres vers la Planète du Sang. D'innombrables rochers s'abattirent sur elle. Bien que l'écran de lumière sanguine fût puissant, il était limité en l'absence du contrôle de l'Ancêtre Sanguin. Face à la puissance de dieu ancien de Wang Lin, l'écran s'effondra après seulement une demi-queue d'encens.
+Finalement, Wang Lin ouvrit les bras et utilisa son énergie spirituelle pour attirer tout le fleuve de pierres vers la Planète du Sang. D'innombrables rochers s'abattirent sur elle. Bien que l'écran de lumière sanguine fût puissant, il était limité en l'absence du contrôle de Xue Zu. Face à la puissance de dieu ancien de Wang Lin, l'écran s'effondra après seulement une demi-queue d'encens.
 
 Les pierres tombèrent en masse sur la Planète du Sang. À chaque impact, la planète entière tremblait et une onde de choc visible se propageait dans toutes les directions. Le visage de Zi Xin était livide. Les secousses telluriques et la puissance destructrice ébranlaient son esprit. Elle voyait ces masses rocheuses descendre du ciel, faisant violemment trembler la terre à chaque chute. Elle ne pouvait imaginer quel pouvoir ou quel sortilège pouvait accomplir un tel carnage.
 
 « Trop terrifiant... » Zi Xin serra les dents, une peur immense l'envahissant comme une marée. Elle regarda le pavillon du sang et ses mains formèrent des sceaux imitant ceux de l'Ancêtre. Durant toutes ces années, elle avait secrètement observé les signes utilisés par l'Ancêtre pour ouvrir le pavillon, les gravant dans son cœur. Elle s'y était souvent entraînée en secret, sans jamais oser viser le pavillon lui-même.
 
-Mais maintenant que l'Ancêtre Sanguin était mourant, que la planète était en plein chaos et qu'une force étrangère l'envahissait, elle n'avait plus rien à craindre. Ses mains bougèrent de plus en plus vite jusqu'à ce qu'un éclat rouge émane du pavillon. Un passage rougeâtre et flou apparut, et les yeux de Zi Xin s'illuminèrent d'excitation.
+Mais maintenant que Xue Zu était mourant, que la planète était en plein chaos et qu'une force étrangère l'envahissait, elle n'avait plus rien à craindre. Ses mains bougèrent de plus en plus vite jusqu'à ce qu'un éclat rouge émane du pavillon. Un passage rougeâtre et flou apparut, et les yeux de Zi Xin s'illuminèrent d'excitation.
 
 C'est alors que le ciel s'obscurcit une nouvelle fois et qu'une ombre gigantesque se projeta sur elle. Prise de surprise, Zi Xin leva inconsciemment les yeux, avant d'être totalement pétrifiée. Dans le ciel, un géant de 300 mètres de haut fendait le vide vers elle. Son regard glacial se posa directement sur elle.
 

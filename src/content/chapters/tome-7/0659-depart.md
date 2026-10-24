@@ -24,7 +24,7 @@ Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol
 
 Étrangement, il semblait que tous savaient déjà que Tan Lang était arrivé, car personne ne manifesta la moindre surprise.
 
-L'Ancêtre Sanguin fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied sur la Terre des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
+Xue Zu fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied sur la Terre des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
 
 Il prit une profonde inspiration et commença à activer secrètement un sortilège. Il scanna à nouveau la zone avec ses techniques occultes, et son expression devint plus lugubre encore.
 
@@ -72,7 +72,7 @@ Chen Long s'apprêtait à répliquer, mais Ling Tianhou agita ses manches et tra
 
 Tan Lang eut un sourire amer et déclara d'un ton désespéré: « Vous ne me croirez peut-être pas, mais je jure sur mes dizaines de milliers d'années de culture que le jeton n'est pas entre mes mains! »
 
-Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris l'Ancêtre Sanguin, tournèrent leurs regards perçants vers Tan Lang.
+Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris Xue Zu, tournèrent leurs regards perçants vers Tan Lang.
 
 Tan Lang sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Luo! »
 
@@ -102,21 +102,21 @@ Une force colossale jaillit du vortex et se propagea. Cette puissance était si 
 
 Ce n'était pas qu'ils manquaient de volonté pour l'arrêter, mais la puissance émanant du vortex était celle qui reliait deux systèmes stellaires. C'était une force tout simplement insurmontable!
 
-Au moment où la silhouette de Wang Lin disparut dans le vortex, le sens divin de l'Ancêtre Sanguin se fixa sur lui, le visage livide. Un instant plus tôt, il avait perçu l'aura de Yao Xixue sur Wang Lin. Cela révélait la lutte et la rébellion de sa fille, ce qui lui permit de conclure que la disparition de Yao Xixue était liée à Wang Lin. Il était fort probable que Wang Lin l'ait capturée!
+Au moment où la silhouette de Wang Lin disparut dans le vortex, le sens divin de Xue Zu se fixa sur lui, le visage livide. Un instant plus tôt, il avait perçu l'aura de Yao Xixue sur Wang Lin. Cela révélait la lutte et la rébellion de sa fille, ce qui lui permit de conclure que la disparition de Yao Xixue était liée à Wang Lin. Il était fort probable que Wang Lin l'ait capturée!
 
 Son expression devint extrêmement sombre et il hurla: « Wang Lin, où est ma fille?! »
 
 « Il n'y a pas seulement trois fausses grottes, mais quatre! » lança Wang Lin juste avant de disparaître.
 
-Là où d'autres n'auraient rien compris, l'Ancêtre Sanguin saisit immédiatement le sens de ses paroles. La quatrième fausse grotte était un secret que lui seul et Yao Xixue partageaient. C'était une chose que Yao Xixue n'aurait révélée à personne d'autre!
+Là où d'autres n'auraient rien compris, Xue Zu saisit immédiatement le sens de ses paroles. La quatrième fausse grotte était un secret que lui seul et Yao Xixue partageaient. C'était une chose que Yao Xixue n'aurait révélée à personne d'autre!
 
-C'était là le pari de Wang Lin. Bien qu'il fût sur le point de partir, il allait semer le chaos! Si l'Ancêtre Sanguin n'avait pas remarqué la présence de Yao Xixue, cela aurait été une chose de moins. Mais puisque le secret était découvert, Wang Lin devait contre-attaquer. Son but était d'empêcher l'Ancêtre Sanguin de le poursuivre personnellement à cause de sa fille! Il savait qu'avec l'esprit de ces vieux monstres, ses paroles les pousseraient à une infinité d'interprétations.
+C'était là le pari de Wang Lin. Bien qu'il fût sur le point de partir, il allait semer le chaos! Si Xue Zu n'avait pas remarqué la présence de Yao Xixue, cela aurait été une chose de moins. Mais puisque le secret était découvert, Wang Lin devait contre-attaquer. Son but était d'empêcher Xue Zu de le poursuivre personnellement à cause de sa fille! Il savait qu'avec l'esprit de ces vieux monstres, ses paroles les pousseraient à une infinité d'interprétations.
 
 Wang Lin avait disparu.
 
-Le silence retomba autour du vortex. Tous ces vieux monstres affichaient des visages lugubres. Ils avaient chacun leurs propres desseins, mais après avoir entendu les paroles de Wang Lin et vu la réaction de l'Ancêtre Sanguin, tous tournèrent leurs regards vers ce dernier.
+Le silence retomba autour du vortex. Tous ces vieux monstres affichaient des visages lugubres. Ils avaient chacun leurs propres desseins, mais après avoir entendu les paroles de Wang Lin et vu la réaction de Xue Zu, tous tournèrent leurs regards vers ce dernier.
 
-L'Ancêtre Sanguin sentit comme si des aiguilles lui transperçaient le dos. Après un bref silence, il déclara: « Il existe bel et bien une quatrième fausse grotte, mais elle a manifestement été occupée par ce Wang Lin. Il détient également le jeton; s'il n'est pas capturé, nous n'aurons aucune chance d'entrer dans la véritable grotte! »
+Xue Zu sentit comme si des aiguilles lui transperçaient le dos. Après un bref silence, il déclara: « Il existe bel et bien une quatrième fausse grotte, mais elle a manifestement été occupée par ce Wang Lin. Il détient également le jeton; s'il n'est pas capturé, nous n'aurons aucune chance d'entrer dans la véritable grotte! »
 
 « Nous savions déjà que ce vortex était l'une des portes vers le système stellaire de Luotian, mais la puissance à l'intérieur était trop forte. Ce Wang Lin a eu je ne sais quelle chance extraordinaire qui lui a permis d'y pénétrer! »
 

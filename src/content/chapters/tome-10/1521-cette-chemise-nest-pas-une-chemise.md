@@ -16,13 +16,13 @@ Même son âme originelle ne put s'échapper et fut absorbée par Wang Lin!
 
 Tout cela se produisit en un instant. Wang Lin ne cessa pas sa retraite et chargea immédiatement les cultivateurs du Royaume Extérieur. Des grondements tonitruants résonnèrent alors que Wang Lin progressait en ligne droite à travers eux. Quiconque croisait son chemin mourait instantanément!
 
-Un éclair d'intention meurtrière brilla dans les yeux de l'Estimé Nan Zhao, qui s'apprêtait à le poursuivre. Cependant, il entendit un reniflement glacial et Maître Hong Shan fit irruption. L'Estimé Nan Zhao sentit sa vision se brouiller et s'empourprer. Son expression changea radicalement et il recula aussitôt, ne prêtant plus attention à Wang Lin!
+Un éclair d'intention meurtrière brilla dans les yeux de Nanzhao Shangren, qui s'apprêtait à le poursuivre. Cependant, il entendit un reniflement glacial et Maître Hong Shan fit irruption. Nanzhao Shangren sentit sa vision se brouiller et s'empourprer. Son expression changea radicalement et il recula aussitôt, ne prêtant plus attention à Wang Lin!
 
 « Ce vieil homme n'a pas tué depuis des dizaines de milliers d'années, vous avez donc peut-être oublié d'où ce vieux tire son nom daoïste! » Maître Hong Shan agita la main et une lumière rouge infinie apparut!
 
 Ces lueurs rouges ne provenaient pas du lointain, mais des corps mêmes des cultivateurs du Royaume Extérieur. C'était comme si leur sang brillait à travers leur chair!
 
-La lumière sanguine perça le corps de plusieurs milliers de cultivateurs, donnant l'impression qu'ils portaient des chemises rouge vif! Une chemise rouge sang apparut même sur le corps de l'Estimé Nan Zhao!
+La lumière sanguine perça le corps de plusieurs milliers de cultivateurs, donnant l'impression qu'ils portaient des chemises rouge vif! Une chemise rouge sang apparut même sur le corps de Nanzhao Shangren!
 
 Ces chemises n'étaient pas des vêtements!
 
@@ -46,7 +46,7 @@ Si cela n'était là que le bout de son art, cela ne montrerait pas toute l'éte
 
 D'étranges rugissements s'échappaient de ces cultivateurs. Ils avaient soif de sang. Après avoir été vidés de leur substance, la douleur qu'ils ressentaient dépassait l'entendement!
 
-L'Estimé Nan Zhao portait lui aussi une chemise de sang. Il cracha une bouchée de force spirituelle et son visage devint livide. Son expression changea radicalement, puis son corps trembla et s'effondra!
+Nanzhao Shangren portait lui aussi une chemise de sang. Il cracha une bouchée de force spirituelle et son visage devint livide. Son expression changea radicalement, puis son corps trembla et s'effondra!
 
 Au moment où il s'écroula, son âme originelle et ses yeux furent empreints d'une peur et d'une panique infinies. Il se souvint vaguement d'une légende qui s'était propagée dans le Royaume Extérieur il y a des dizaines de milliers d'années. Une rumeur terrifiante concernant la seconde Guerre du Scellement du Royaume!
 
@@ -54,13 +54,13 @@ Cette rumeur ne mentionnait qu'une seule personne!
 
 « L'Enfant à la Chemise Rouge!! Vous êtes l'Enfant à la Chemise Rouge!!! »
 
-Un éclair de froideur traversa les yeux de Maître Hong Shan alors qu'il chargeait l'Estimé Nan Zhao. Il allait tuer! À cet instant, parmi la seconde vague de cultivateurs du Royaume Extérieur, l'expression des deux cultivateurs de la troisième étape changea radicalement. Ils serrèrent les dents et chargèrent Maître Hong Shan!
+Un éclair de froideur traversa les yeux de Maître Hong Shan alors qu'il chargeait Nanzhao Shangren. Il allait tuer! À cet instant, parmi la seconde vague de cultivateurs du Royaume Extérieur, l'expression des deux cultivateurs de la troisième étape changea radicalement. Ils serrèrent les dents et chargèrent Maître Hong Shan!
 
 Maître Dong Dizi reconnut également cette personne issue des rumeurs terrifiantes, et son visage se décomposa. Il cessa de prêter attention à Zhou Jin, Ling Dong et à la Hache Brise-Ciel pour charger Maître Hong Shan!
 
 Trois cultivateurs de la troisième étape!
 
-Une lueur de férocité apparut sur le visage de l'Estimé Nan Zhao qui, tout en reculant, agita la main. Il invoqua un autre corps pour y projeter sa conscience. Puis il fit un geste et trois sphères empoisonnées de la taille d'un poing apparurent, fonçant vers Maître Hong Shan!
+Une lueur de férocité apparut sur le visage de Nanzhao Shangren qui, tout en reculant, agita la main. Il invoqua un autre corps pour y projeter sa conscience. Puis il fit un geste et trois sphères empoisonnées de la taille d'un poing apparurent, fonçant vers Maître Hong Shan!
 
 Quatre cultivateurs de la troisième étape!
 

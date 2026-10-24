@@ -118,11 +118,11 @@ Une multitude de cultivateurs avaient migré des quatre grands systèmes stellai
 
 Mu Bingmei n'était pas partie; elle avait choisi de rester dans le monde des grottes, au sein du Nouveau Royaume Céleste. Elle attendait qu'un certain être revienne un jour.
 
-Le Maître du Dao Rêve Bleu n'était pas non plus parti. En tant que plus puissant de tout le royaume céleste, il y siégeait pour veiller sur sa paix. Il y avait aussi des gens comme le Maître Nan Yunzi, qui avaient également choisi de rester.
+Lanmeng Daozun n'était pas non plus parti. En tant que plus puissant de tout le royaume céleste, il y siégeait pour veiller sur sa paix. Il y avait aussi des gens comme le Maître Nan Yunzi, qui avaient également choisi de rester.
 
 Cependant, en cet instant, une atmosphère funèbre régnait sur le Nouveau Royaume Céleste. Un nuage noir semblait planer sur eux, plongeant les cultivateurs dans un silence pesant.
 
-Le Maître du Dao Rêve Bleu était gravement blessé.
+Lanmeng Daozun était gravement blessé.
 
 Le corps du Maître Nan Yunzi s'était effondré, ne laissant subsister que son âme originelle.
 

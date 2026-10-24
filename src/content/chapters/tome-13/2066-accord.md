@@ -86,7 +86,7 @@ Wu Feng observa le champ de bataille avec une expression complexe. Les lois du m
 
 En vérité, la raison pour laquelle ils étaient venus, outre le choc provoqué par les changements de lois, était de témoigner personnellement de la bataille. Cependant, il était évident que cela serait impossible.
 
-Quant au Grand Empyréen Gémeaux, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
+Quant au Grand Empyréen Shuangzi, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
 
 Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
@@ -108,7 +108,7 @@ Jiu Di ajouta: « Ce vieil homme souhaite simplement voir cette scène, sans aut
 
 « Moi aussi, je peux faire un serment! »
 
-Dao Yi hésita un moment en regardant Jiu Di et Wu Feng avant de hocher la tête. Quant à Gémeaux, elle réfléchit brièvement et accepta.
+Dao Yi hésita un moment en regardant Jiu Di et Wu Feng avant de hocher la tête. Quant à Shuangzi, elle réfléchit brièvement et accepta.
 
 Le groupe de Song Tian se regarda et, après réflexion, acquiesça également. À leur niveau de culture, leurs paroles étaient crédibles.
 

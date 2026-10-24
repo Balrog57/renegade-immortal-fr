@@ -72,7 +72,7 @@ Même les vieux monstres qui apparaissaient rarement étaient présents devant l
 
 Mais plus ils se montraient imposants, moins les gens osaient les offenser.
 
-Heureusement, ces puissances se connaissaient toutes; ainsi, même si l'un d'eux revendiquait une zone, personne n'osait troubler son calme. À titre d'exemple, la fille de l'Ancêtre Sanguin, Yao Xixue, imposait un respect tel que personne n'avait osé approcher à moins de 330 mètres d'elle.
+Heureusement, ces puissances se connaissaient toutes; ainsi, même si l'un d'eux revendiquait une zone, personne n'osait troubler son calme. À titre d'exemple, la fille de Xue Zu, Yao Xixue, imposait un respect tel que personne n'avait osé approcher à moins de 330 mètres d'elle.
 
 Ce jour-là, il ne restait plus que deux jours avant l'ouverture du portail.
 

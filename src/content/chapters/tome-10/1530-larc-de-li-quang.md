@@ -24,9 +24,9 @@ Comment Wang Lin ne pourrait-il être terrifié par un tel trésor? Ses pupilles
 
 Chaque poil de son corps se hérissa, et un sentiment de vie ou de mort s'empara de son cœur. Cette sensation se propagea rapidement dans tout son être.
 
-« Cet arc a été dérobé par le taoïste aux sept couleurs autrefois, et maintenant il est entre ses mains! Cette personne est le disciple principal du Souverain. Le Souverain pourrait-il avoir un lien avec le taoïste aux sept couleurs? » Wang Lin fixa le jeune homme en blanc d'un regard glacial. Le visage de ce dernier vieillissait à une vitesse fulgurante alors que l'arc absorbait sa force vitale. Il tirait la corde par la seule force de son essence vitale!
+« Cet arc a été dérobé par Qicai Daoren autrefois, et maintenant il est entre ses mains! Cette personne est le disciple principal du Souverain. Le Souverain pourrait-il avoir un lien avec Qicai Daoren? » Wang Lin fixa le jeune homme en blanc d'un regard glacial. Le visage de ce dernier vieillissait à une vitesse fulgurante alors que l'arc absorbait sa force vitale. Il tirait la corde par la seule force de son essence vitale!
 
-Hormis le taoïste aux sept couleurs, Wang Lin était peut-être le seul à connaître l'origine de cet arc et à l'avoir vu en action! L'expression solennelle qui se dessina dans ses yeux sema la confusion parmi les autres.
+Hormis Qicai Daoren, Wang Lin était peut-être le seul à connaître l'origine de cet arc et à l'avoir vu en action! L'expression solennelle qui se dessina dans ses yeux sema la confusion parmi les autres.
 
 Du point de vue des observateurs extérieurs, le jeune homme en blanc n'était qu'au stade initial du Nirvana Vide, et l'arc qu'il tenait ne dégageait aucune fluctuation, comme s'il s'agissait d'un arc ordinaire.
 

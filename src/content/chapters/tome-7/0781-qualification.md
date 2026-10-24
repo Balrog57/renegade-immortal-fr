@@ -126,7 +126,7 @@ Au même instant, l'autre cultivateur fondit sur lui avec sa gigantesque tornade
 
 Wang Lin ne daigna même pas un regard à cet assaillant; l'os de bête sur le dos de sa main droite s'anima et se matérialisa, chargeant férocement le cultivateur à la tornade.
 
-Simultanément, Wang Lin frappa son sac de rangement et le Drapeau des Âmes d'un Milliard en sortit. Il se transforma en une vaste brume noire tentant d'engloutir l'homme en robe noire. Ce dernier s'apprêtait à résister, mais il aperçut alors l'âme originelle féroce de l'Ancêtre Sanguin scintiller à l'intérieur du drapeau. Ce visage familier le terrifia et lui fit perdre tout contrôle. Il se retrouva aussitôt encerclé par la brume noire.
+Simultanément, Wang Lin frappa son sac de rangement et le Drapeau des Âmes d'un Milliard en sortit. Il se transforma en une vaste brume noire tentant d'engloutir l'homme en robe noire. Ce dernier s'apprêtait à résister, mais il aperçut alors l'âme originelle féroce de Xue Zu scintiller à l'intérieur du drapeau. Ce visage familier le terrifia et lui fit perdre tout contrôle. Il se retrouva aussitôt encerclé par la brume noire.
 
 Tout cela fut exécuté avec une précision chirurgicale. Après avoir capturé l'âme originelle de l'homme en robe noire, Wang Lin agita ses manches, propageant la brume noire sur un rayon de 330 mètres. Il fixa les trois survivants et dit d'un ton sombre: « Je veux entrer dans le Pavillon des Collections! »
 

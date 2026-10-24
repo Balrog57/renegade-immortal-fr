@@ -80,7 +80,7 @@ Après un instant de silence, Wang Lin ouvrit soudainement les yeux. À cet inst
 
 La cinquième Porte du Vide trônait parmi les étoiles, mais Wang Lin ferma de nouveau les yeux. Il leva la main droite et fit un geste de la main. Un simple mouvement, presque désinvolte.
 
-Pourtant, sous les yeux de tous, y compris de Zhou Jin, du jeune homme en robe verte, du Maître Céleste Dieu du Vide, de Situ Nan et de Nan Yunzi, la cinquième porte se déforma et se changea en poussière par ce simple geste. Elle s'effondra silencieusement devant lui.
+Pourtant, sous les yeux de tous, y compris de Zhou Jin, du jeune homme en robe verte, de Xushen Tianzun, de Situ Nan et de Nan Yunzi, la cinquième porte se déforma et se changea en poussière par ce simple geste. Elle s'effondra silencieusement devant lui.
 
 Wang Lin avait brisé une à une les cinq Portes du Vide. La fissure qui était apparue faiblement entre ses sourcils se forma désormais complètement, dégageant une force d'aspiration infinie. C'était comme si le système stellaire tout entier allait être aspiré!
 
@@ -108,9 +108,9 @@ Cette sixième Porte était radicalement différente des cinq autres; elle étai
 
 Près de dix mille personnes ne purent même pas pousser un cri avant de mourir de vieillesse sous l'effet de cette onde, pour ensuite tomber en poussière.
 
-« La Porte des Dix Mille Os du Vide! » Seules deux personnes ici reconnurent cette porte. L'une était le Maître Céleste Dieu du Vide et l'autre était le Maître Nan Yunzi. Même le jeune homme en robe verte n'en avait jamais entendu parler.
+« La Porte des Dix Mille Os du Vide! » Seules deux personnes ici reconnurent cette porte. L'une était Xushen Tianzun et l'autre était le Maître Nan Yunzi. Même le jeune homme en robe verte n'en avait jamais entendu parler.
 
-« Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte des Dix Mille Os du Vide? » Le Maître Céleste Dieu du Vide regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
+« Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte des Dix Mille Os du Vide? » Xushen Tianzun regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
 
 « La concubine impériale céleste disait que la Porte des Dix Mille Os du Vide était un gouffre céleste de sa terre natale. Là-bas, les êtres capables de déclencher cette porte sont extrêmement rares, mais s'ils ne meurent pas prématurément, ils deviendront assurément de puissants maîtres à l'avenir! »
 

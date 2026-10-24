@@ -16,7 +16,7 @@ Il franchit promptement les onze plateformes. Aucun changement n'était à noter
 
 Suite aux événements survenus dans la grotte, son niveau de culture avait atteint le sommet du stade avancé de la Transformation de l'Âme, et sa vitesse s'en trouvait considérablement accrue. Il se déplaçait tel un éclair et ne mit que deux semaines pour revenir à la première plateforme!
 
-Celle-ci était totalement vide, mais en cet instant précis, grâce à son niveau de culture actuel et à ce qu'il avait appris en brisant les restrictions durant deux mois, il remarqua le réseau de transfert laissé par l'Ancêtre Sanguin!
+Celle-ci était totalement vide, mais en cet instant précis, grâce à son niveau de culture actuel et à ce qu'il avait appris en brisant les restrictions durant deux mois, il remarqua le réseau de transfert laissé par Xue Zu!
 
 En observant le réseau, Wang Lin réfléchit un moment, puis sortit quatre sacs de rangement qui appartenaient tous à Yao Xixue. Auparavant, avec son niveau de culture au stade intermédiaire de la Transformation de l'Âme, il aurait éprouvé des difficultés à ouvrir ces sacs.
 
@@ -32,11 +32,11 @@ Ses yeux devinrent très sérieux tandis qu'il retirait lentement sa main pour e
 
 Une fine ligne violette se dessinait au sein de la dernière lueur rouge sang. Il aurait été très difficile de la remarquer sans une attention particulière; elle ne pouvait être détectée que par le Sens Divin et demeurait totalement invisible à l'œil nu.
 
-« Bien que ce sac semble tout à fait ordinaire, au moment où j'allais l'effacer, j'ai ressenti cette sensation terrifiante. Je crains que ce sac ne contienne pas le Sens Divin de Yao Xixue. Se pourrait-il que ce soit celui de son père, l'Ancêtre Sanguin... » Wang Lin réfléchit.
+« Bien que ce sac semble tout à fait ordinaire, au moment où j'allais l'effacer, j'ai ressenti cette sensation terrifiante. Je crains que ce sac ne contienne pas le Sens Divin de Yao Xixue. Se pourrait-il que ce soit celui de son père, Xue Zu... » Wang Lin réfléchit.
 
-« Selon la logique, à moins que le sac n'ait été marqué par votre propre Sens Divin, vous ne pouvez pas l'ouvrir sans avoir d'abord effacé celui d'autrui. Cependant, la culture de l'Ancêtre Sanguin est céleste et il a cultivé pendant une éternité. Il a peut-être trouvé un moyen pour que sa fille utilise son sac sans avoir à supprimer son propre Sens Divin. En conséquence, même si un étranger s'emparait de ce sac par négligence, il serait instantanément tué par le Sens Divin qui y est logé... Cet Ancêtre Sanguin est vraiment redoutable! » Wang Lin retira lentement son Sens Divin. Une fois celui-ci disparu, la lumière rouge sang sur le sac s'évanouit immédiatement.
+« Selon la logique, à moins que le sac n'ait été marqué par votre propre Sens Divin, vous ne pouvez pas l'ouvrir sans avoir d'abord effacé celui d'autrui. Cependant, la culture de Xue Zu est céleste et il a cultivé pendant une éternité. Il a peut-être trouvé un moyen pour que sa fille utilise son sac sans avoir à supprimer son propre Sens Divin. En conséquence, même si un étranger s'emparait de ce sac par négligence, il serait instantanément tué par le Sens Divin qui y est logé... Xue Zu est vraiment redoutable! » Wang Lin retira lentement son Sens Divin. Une fois celui-ci disparu, la lumière rouge sang sur le sac s'évanouit immédiatement.
 
-Bien que Wang Lin n'ait jamais rencontré l'Ancêtre Sanguin, après avoir constaté comment celui-ci avait propagé de fausses informations sur la Pilule de l'Âme Sanguine et le piège du Sens Divin sur le sac, c'était comme s'il l'avait vu en personne. Tout en éprouvant une grande admiration pour lui, il le redoutait profondément.
+Bien que Wang Lin n'ait jamais rencontré Xue Zu, après avoir constaté comment celui-ci avait propagé de fausses informations sur la Pilule de l'Âme Sanguine et le piège du Sens Divin sur le sac, c'était comme s'il l'avait vu en personne. Tout en éprouvant une grande admiration pour lui, il le redoutait profondément.
 
 Après une courte réflexion, Wang Lin rangea soigneusement le sac et porta son regard sur les trois autres.
 
@@ -76,7 +76,7 @@ Il toucha le sac et deux objets apparurent dans sa main: la boussole et la Pilul
 
 « Yao Xixue n'aurait évidemment pas pu imaginer qu'elle serait capturée par moi et que je m'emparerais de ses sacs; la disposition des objets contient donc un message caché! »
 
-« Il y a 80 % de chances que la Pilule de l'Âme Sanguine isolée soit la vraie! Quant aux autres, je suppose qu'elles sont toutes fausses! De plus, en dehors des jades de sang, il n'y a aucun trésor magique dans ses trois sacs. Je présume que les objets précieux se trouvent tous dans le sac contenant le Sens Divin de l'Ancêtre Sanguin. »
+« Il y a 80 % de chances que la Pilule de l'Âme Sanguine isolée soit la vraie! Quant aux autres, je suppose qu'elles sont toutes fausses! De plus, en dehors des jades de sang, il n'y a aucun trésor magique dans ses trois sacs. Je présume que les objets précieux se trouvent tous dans le sac contenant le Sens Divin de Xue Zu. »
 
 Wang Lin observa la Pilule de l'Âme Sanguine un moment avant de la ranger dans son propre sac de rangement. Quant à la fausse pilule que Yao Xixue lui avait donnée, il la sortit pour la replacer dans l'un des sacs de la jeune femme.
 
@@ -84,7 +84,7 @@ Puis, son regard se posa sur la boussole. Elle était d'un rouge sang profond et
 
 « Autrefois, Yao Xixue a utilisé cette boussole pour parvenir jusqu'ici. Elle doit avoir un lien avec le réseau de transfert! » Le Sens Divin de Wang Lin pénétra dans l'objet et y décela l'empreinte du Sens Divin de Yao Xixue.
 
-Wang Lin poussa un soupir de soulagement. Si cette boussole avait également porté le Sens Divin de l'Ancêtre Sanguin, il lui aurait fallu trouver un moyen de modifier le réseau de transfert pour quitter les lieux.
+Wang Lin poussa un soupir de soulagement. Si cette boussole avait également porté le Sens Divin de Xue Zu, il lui aurait fallu trouver un moyen de modifier le réseau de transfert pour quitter les lieux.
 
 Il existait également un réseau de transfert à l'intérieur de la grotte; Wang Lin en avait eu connaissance grâce au jeton de cristal. Cependant, ce réseau se situait dans le coin nord-est de la grotte, assez loin de sa position actuelle. Avec toutes les restrictions qui barraient la route, le voyage aurait été périlleux.
 

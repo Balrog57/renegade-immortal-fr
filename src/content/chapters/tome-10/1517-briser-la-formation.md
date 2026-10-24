@@ -12,7 +12,7 @@ Maître Dong Dizi sourit, mais il balaya cette idée d'un revers de cœur. Il co
 
 Le but principal de cette première bataille est de tuer et de piller. Le second est de déployer le réseau de transfert. Enfin, il s'agira d'éliminer ce petit cultivateur, Wang Lin, en chemin! »
 
-Alors qu'il songeait à cela, Maître Dong Dizi tourna soudainement son regard vers l'horizon. Au même instant, l'estimable Nan Zhao, l'ancêtre du Clan des Moineaux de Feu et le Grand Maître Yun Luo fixèrent tous également le lointain.
+Alors qu'il songeait à cela, Maître Dong Dizi tourna soudainement son regard vers l'horizon. Au même instant, Nanzhao Shangren, l'ancêtre du Clan des Moineaux de Feu et le Grand Maître Yun Luo fixèrent tous également le lointain.
 
 Une pression écrasante se propagea depuis un grondement sourd, étouffant instantanément les rugissements furieux des 90 000 cultivateurs. Ce son assourdissant attira rapidement tous les regards vers la source du fracas.
 
@@ -62,21 +62,21 @@ Levant les yeux vers le ciel, un éclat de froideur traversa son regard. Elle le
 
 Des vagues de musique de cithare émanaient du sommet du Mont Bleu, au sein du Clan de la Soie Bleue. Bien que mélodieuse, cette musique était étrange. Parfois empreinte d'une volonté d'embuscade et de mort, elle était parfois d'une douceur extrême. Ces deux extrêmes fusionnaient pour former une émotion complexe.
 
-Le Maître du Dao Rêve Bleu ferma les yeux, ses mains dansant sur la cithare. Il semblait hésiter, comme s'il était face à un choix crucial!
+Lanmeng Daozun ferma les yeux, ses mains dansant sur la cithare. Il semblait hésiter, comme s'il était face à un choix crucial!
 
 Li Qianmei était assise calmement en face de son père. Elle l'observait en silence, sans dire un mot.
 
 À cet instant précis, des ondulations résonnèrent au-dessus du Mont Bleu et un éclat de lumière dorée jaillit. C'était une épingle, une parure que seule une femme porterait dans ses cheveux!
 
-L'épingle fendit le vide et fonça droit vers le Mont Bleu. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et le Maître du Dao Rêve Bleu!
+L'épingle fendit le vide et fonça droit vers le Mont Bleu. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et Lanmeng Daozun!
 
-La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit et s'envola dans les airs. Le Maître du Dao Rêve Bleu ouvrit les yeux et fixa l'épingle devant lui; une lutte douloureuse se lisait dans son regard.
+La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit et s'envola dans les airs. Lanmeng Daozun ouvrit les yeux et fixa l'épingle devant lui; une lutte douloureuse se lisait dans son regard.
 
-Après un long moment, il laissa échapper un soupir et agita sa main droite. La corde brisée se détacha de l'instrument, enveloppée d'une lumière bleue. Le Maître du Dao Rêve Bleu se mordit la langue et cracha du sang. Ce sang fusionna avec la corde avant de s'élancer au loin.
+Après un long moment, il laissa échapper un soupir et agita sa main droite. La corde brisée se détacha de l'instrument, enveloppée d'une lumière bleue. Lanmeng Daozun se mordit la langue et cracha du sang. Ce sang fusionna avec la corde avant de s'élancer au loin.
 
 À l'extérieur de la Formation de Scellement du Royaume, le ciel et la terre grondèrent devant le palais noir. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse!
 
-Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang du Maître du Dao Rêve Bleu, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
+Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang de Lanmeng Daozun, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
 
 Dans la partie extrême occidentale de l'Ancien Système Stellaire, le monde revêtait une teinte blanchâtre. Tout cultivateur s'y aventurant ressentait un froid glacial envahir son esprit. Même en activant leur culture, ils risquaient d'être gelés!
 

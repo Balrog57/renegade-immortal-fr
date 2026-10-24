@@ -52,13 +52,13 @@ Après un instant, l'excitation sur le visage du fou s'estompa pour laisser plac
 
 « Toi, toi!! Tu ne t'es toujours pas rétabli!! Mon sang... ah, ce sang pourrait être échangé contre tant de choses. Tant de sang, ah!!! Tout ce sang que je t'ai donné suffirait à convaincre cette petite beauté aux sept couleurs de se rallier à ce roi!! Si mon grand frère savait, il deviendrait fou, ah!! » Le fou bondit et saisit l'épaule de Wang Lin, commençant à le secouer frénétiquement.
 
-« Rends-moi mon sang!! Tu as pris le sang de ce roi mais tu ne t'es toujours pas remis. Tu essaies de m'exaspérer. Petite Rouge, sors cet homme et tranche-lui la tête!! »
+« Rends-moi mon sang!! Tu as pris le sang de ce roi mais tu ne t'es toujours pas remis. Tu essaies de m'exaspérer. Xiao Hong, sors cet homme et tranche-lui la tête!! »
 
 Le fou rugit, toujours ivre de colère. Il fixa Wang Lin et lui mordit directement l'épaule, avant de pousser un grognement semblable à celui d'un chien enragé.
 
 « Ce roi va te mordre à mort, te mordre à mort!! » Après s'être agité un moment, le fou respirait bruyamment. Ses yeux étaient injectés de sang et son expression devint féroce. Il fixa Wang Lin, relâcha sa morsure, puis se couvrit la bouche en laissant échapper des gémissements de douleur.
 
-« Je déteste les cultivateurs de la Nation Ancienne, leurs corps sont trop durs. Les dents de ce roi vont me tuer!! Petite Rouge, va chez la famille Zhou Xing chercher cette... cette chose, j'ai oublié son nom. Vite, vas-y! S'ils refusent de donner, dis-leur que mon grand frère viendra le voler demain! »
+« Je déteste les cultivateurs de la Nation Ancienne, leurs corps sont trop durs. Les dents de ce roi vont me tuer!! Xiao Hong, va chez la famille Zhou Xing chercher cette... cette chose, j'ai oublié son nom. Vite, vas-y! S'ils refusent de donner, dis-leur que mon grand frère viendra le voler demain! »
 
 Le fou s'éloigna en marmonnant et en gémissant de douleur. Puis il se retourna pour fixer Wang Lin, montrant à nouveau des signes de folie imminente.
 
@@ -92,11 +92,11 @@ Pourtant, une personne qui s'emballe follement pour son jouet est absolument ter
 
 « Ce roi doit écouter les paroles de mon grand frère. Les Sceaux peuvent être transmis aux autres, c'est vrai, ils peuvent l'être! » Le fou hocha solennellement la tête.
 
-« C'est exact, même Petite Rouge a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint excité après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de culture entière trembla, tout comme le corps du fou qui s'agitait violemment.
+« C'est exact, même Xiao Hong a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint excité après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de culture entière trembla, tout comme le corps du fou qui s'agitait violemment.
 
 Le glyphe circulaire qui était apparu sur la plaie de son bras gauche se manifesta progressivement entre ses sourcils!
 
-« Au commencement du ciel et de la terre, l'Ancêtre Céleste descend ici-bas; trois sceaux changent les mondes et font l'âge d'or de notre clan céleste pour dix mille générations! Le premier sceau change le ciel! Le deuxième sceau change le Dao! Le troisième sceau change... Qu'est-ce qu'il change? Petite Rouge, que change le troisième sceau? » Le fou se figea et secoua la tête.
+« Au commencement du ciel et de la terre, l'Ancêtre Céleste descend ici-bas; trois sceaux changent les mondes et font l'âge d'or de notre clan céleste pour dix mille générations! Le premier sceau change le ciel! Le deuxième sceau change le Dao! Le troisième sceau change... Qu'est-ce qu'il change? Xiao Hong, que change le troisième sceau? » Le fou se figea et secoua la tête.
 
 « Oublié... Bon sang, la mémoire de ce roi est trop bonne, je m'en souviendrai absolument! » murmura-t-il en frappant l'espace entre ses sourcils de sa main droite. Une aura jaillit, suivie d'une force indescriptiblement puissante qui emplit le monde à l'intérieur de la Bête des Limbes!
 

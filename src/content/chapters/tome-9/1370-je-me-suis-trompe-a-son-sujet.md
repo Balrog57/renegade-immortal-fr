@@ -42,21 +42,21 @@ Fixant cette scène avec stupéfaction, le visage de Maître Simo pâlit instant
 
 « Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes Joss. Personne ne peut déclencher la Porte du Vide sans utiliser de Flammes Joss! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par une obscurité insondable. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant Wang Lin en hâte sur sa trace.
 
-Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua la Porte du Vide, au sein du Clan de la Soie Bleue, les mains du Maître du Dao Rêve Bleu tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
+Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua la Porte du Vide, au sein du Clan de la Soie Bleue, les mains de Lanmeng Daozun tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
 
 Li Qianmei était assise en tailleur à côté de lui et observait son père, sans dire un mot. Pourtant, la confusion dans ses yeux avait disparu, remplacée par une clarté limpide. Il semblait qu'elle s'était remémoré beaucoup de choses. Elle se leva alors avec douceur et sortit à son tour.
 
-Dès que le Maître du Dao Rêve Bleu franchit le seuil de la pièce, il agita sa main droite. Une lumière bleue infinie envahit le ciel et se condensa rapidement en images animées!
+Dès que Lanmeng Daozun franchit le seuil de la pièce, il agita sa main droite. Une lumière bleue infinie envahit le ciel et se condensa rapidement en images animées!
 
 Ces images retranscrissaient les trois tentatives de Wang Lin pour briser la Porte du Vide!
 
-Le Maître du Dao Rêve Bleu fixa ces visions et les examina minutieusement. Son expression devint progressivement plus solennelle jusqu'à ce qu'il soit saisi par le choc. C'était une réaction très rare de voir sur le visage du Maître du Dao Rêve Bleu.
+Lanmeng Daozun fixa ces visions et les examina minutieusement. Son expression devint progressivement plus solennelle jusqu'à ce qu'il soit saisi par le choc. C'était une réaction très rare de voir sur le visage de Lanmeng Daozun.
 
-« Ton père... a sous-estimé un homme... C'est la première fois que je me trompe... » Après un long moment, le Maître du Dao Rêve Bleu poussa un soupir, l'incrédulité brillant toujours dans ses yeux.
+« Ton père... a sous-estimé un homme... C'est la première fois que je me trompe... » Après un long moment, Lanmeng Daozun poussa un soupir, l'incrédulité brillant toujours dans ses yeux.
 
 « Tu continueras à te tromper. Personne ne peut percer son avenir. Même si tu es l'un des Cinq Maîtres du Système Stellaire Antique, tu n'y parviendrais pas. » Li Qianmei regarda l'homme tentant de briser le vide sur les images et sourit doucement.
 
-« Tu... tu blâmes ton père...? » Le Maître du Dao Rêve Bleu regarda sa fille avec une expression complexe.
+« Tu... tu blâmes ton père...? » Lanmeng Daozun regarda sa fille avec une expression complexe.
 
 Li Qianmei secoua la tête et dit doucement: « Je n'ai pas retrouvé tous mes souvenirs, seulement quelques fragments. Si je l'avais vraiment oublié, il aurait été préférable que nous ne nous rencontrions plus jamais. Mais puisque je me souviens de certaines choses, je ne lâcherai pas prise... Quand ma mémoire sera restaurée, j'irai le retrouver. »
 
@@ -76,7 +76,7 @@ En raison de ce désordre, les traîtres des grands clans ou ceux ayant provoqu�
 
 Cependant, au fil des âges, très peu de personnes osaient attaquer ce lieu. Il y a environ 20 000 ans, un grand clan chassait un traître. Lorsqu'ils virent celui-ci pénétrer dans la Terre Déchue, ils ne s'arrêtèrent pas et chargèrent à leur tour. Pourtant, dès qu'ils eurent franchi le seuil, une bourrasque de vent souffla. Les près de mille cultivateurs du grand clan périrent instantanément!
 
-Ce n'était là qu'une des nombreuses rumeurs. Une autre affirmait que l'un des Cinq Maîtres, le Maître Démon des Neuf Cieux, s'y était secrètement rendu. Cependant, il avait été contraint de battre en retraite, gravement blessé, et avait juré de ne jamais poser le pied dans la Terre Déchue!
+Ce n'était là qu'une des nombreuses rumeurs. Une autre affirmait que l'un des Cinq Maîtres, Jiutian Mozun, s'y était secrètement rendu. Cependant, il avait été contraint de battre en retraite, gravement blessé, et avait juré de ne jamais poser le pied dans la Terre Déchue!
 
 Une autre légende racontait que, il y a dix mille ans, le Conseil Souverain avait mis un homme sur la liste des personnes recherchées, car il aurait dérobé un trésor magique du Conseil avant de s'enfuir ici. Même le Conseil Souverain en fut fortement intimidé et, après avoir conclu un accord de cent ans, se retira.
 

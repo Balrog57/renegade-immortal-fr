@@ -120,7 +120,7 @@ La Grande Maîtresse Yun Luo fronça sévèrement les sourcils tandis que sa mai
 
 À cet instant précis, le regard du vieux Oiseau Vermillon se contracta soudainement. Non seulement lui, mais la majorité des cultivateurs virent clairement deux larmes cristallines couler des yeux de la silhouette vêtue de blanc, debout devant la première baguette d'encens.
 
-Le Maître du Dao Rêve Bleu observa les larmes et songea: « L'âme retourne vers sa patrie... Si l'âme est empreinte de tristesse, elle retourne au corps et des larmes de chagrin s'écoulent... Quelle puissante Épreuve Humaine... »
+Lanmeng Daozun observa les larmes et songea: « L'âme retourne vers sa patrie... Si l'âme est empreinte de tristesse, elle retourne au corps et des larmes de chagrin s'écoulent... Quelle puissante Épreuve Humaine... »
 
 À l'intérieur de l'Épreuve Humaine, Wang Lin se tenait au pied du mont Heng Yue. Il contempla le village devant lui avant de détourner les yeux, une larme roulant sur sa joue.
 

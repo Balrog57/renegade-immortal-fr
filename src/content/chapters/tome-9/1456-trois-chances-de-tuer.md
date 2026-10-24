@@ -10,9 +10,9 @@ Un bras gigantesque descendit rapidement dans la brume, créant un vent hurlant 
 
 Le corps de Wang Lin, juste sous sa poitrine, fut saisi par la paume, et une douleur intense envahit ses membres. Pourtant, la main n'utilisa pas plus de force; elle cherchait simplement à maintenir Wang Lin en place.
 
-Grande Désolation avait occupé l'avatar du Maître Dao Miao Yin et supprimait l'âme à l'intérieur. Il était assis sur la paume, l'expression sombre.
+Grande Désolation avait occupé l'avatar de Miaoyin Daozun et supprimait l'âme à l'intérieur. Il était assis sur la paume, l'expression sombre.
 
-Trois plateformes avaient également été entraînées par le bras. Il s'agissait clairement des trois plateformes appartenant à Wang Lin, Grande Désolation et Miao Yin! Les plateformes n'avaient pas subi de gros dommages, seulement de nombreuses fissures, et il était évident que le bras ne cherchait pas à les broyer.
+Trois plateformes avaient également été entraînées par le bras. Il s'agissait clairement des trois plateformes appartenant à Wang Lin, Grande Désolation et Miaoyin Daozun! Les plateformes n'avaient pas subi de gros dommages, seulement de nombreuses fissures, et il était évident que le bras ne cherchait pas à les broyer.
 
 Un éclat de froideur traversa les yeux de Grande Désolation. Puis, il leva la main droite, les cinq doigts recourbés en griffe. Un gaz noir chargé d'un poison extrême se rassembla. Il laissa échapper un reniflement glacial et s'apprêtait à presser la paume géante lorsque Wang Lin prit soudain la parole.
 
@@ -20,7 +20,7 @@ Un éclat de froideur traversa les yeux de Grande Désolation. Puis, il leva la 
 
 Grande Désolation fronça les sourcils. Il lutta pour lever la tête alors que la paume descendait. Wang Lin dit:
 
-« Le Senior vient de réussir à posséder l'avatar du Maître Dao Miao Yin et ne s'est pas encore complètement adapté au corps. Votre esprit est troublé... Ce bras étrange ne descend pas droit... » Tandis que Wang Lin parlait, des craquements se firent entendre dans son corps et il rétrécit rapidement pour reprendre la taille d'un homme normal.
+« Le Senior vient de réussir à posséder l'avatar de Miaoyin Daozun et ne s'est pas encore complètement adapté au corps. Votre esprit est troublé... Ce bras étrange ne descend pas droit... » Tandis que Wang Lin parlait, des craquements se firent entendre dans son corps et il rétrécit rapidement pour reprendre la taille d'un homme normal.
 
 En rétrécissant, il tomba soudainement. Il permit aux cinq doigts de se refermer, provoquant un grondement de tonnerre.
 
@@ -30,9 +30,9 @@ Grande Désolation n'était pas un cultivateur ordinaire. Après avoir été ré
 
 « Si le Senior stimulait ce bras étrange, celui-ci refermerait immédiatement sa main. À ce moment-là, je crains qu'il ne nous soit difficile de nous échapper... » Wang Lin recula de quelques pas avec désinvolture. Sa main droite, qui frottait ses sourcils, redescendit tandis qu'il reculait encore de plusieurs dizaines de pieds.
 
-« Que veux-tu dire? » Le visage de Grande Désolation se déforma, et les traits hideux de son corps originel commencèrent à apparaître sur l'avatar du Maître Dao Miao Yin.
+« Que veux-tu dire? » Le visage de Grande Désolation se déforma, et les traits hideux de son corps originel commencèrent à apparaître sur l'avatar de Miaoyin Daozun.
 
-La grande main ne se referma pas complètement, laissant une vaste zone libre, comparable à un petit continent. Wang Lin recula jusqu'à une distance de 1 000 pieds de Grande Désolation et rangea ses propres plateformes ainsi que celles de Miao Yin. Bien que son visage fût pâle, ses yeux brillaient d'un éclat vif.
+La grande main ne se referma pas complètement, laissant une vaste zone libre, comparable à un petit continent. Wang Lin recula jusqu'à une distance de 1 000 pieds de Grande Désolation et rangea ses propres plateformes ainsi que celles de Miaoyin Daozun. Bien que son visage fût pâle, ses yeux brillaient d'un éclat vif.
 
 Wang Lin dit lentement: « Ce junior a observé la trajectoire de cette main géante et en a déduit une hypothèse. Si je me trompe, nous pourrons travailler ensemble pour trouver un moyen de nous libérer, il ne sera pas trop tard... Cependant, si j'ai raison, l'apparition de cette main pourrait ne pas être une mauvaise chose pour nous! »
 
@@ -42,7 +42,7 @@ Wang Lin leva la main et ajouta: « Si elle avait vraiment pour but de nous capt
 
 « Comme ceci! »
 
-Les yeux de Grande Désolation se plissèrent. Il n'avait pas empêché Wang Lin de prendre la plateforme de Miao Yin. Il agita sa main droite pour ranger sa propre plateforme. Après avoir contemplé la situation un instant, une lueur d'illumination apparut dans son regard. Il jeta un coup d'œil à Wang Lin.
+Les yeux de Grande Désolation se plissèrent. Il n'avait pas empêché Wang Lin de prendre la plateforme de Miaoyin Daozun. Il agita sa main droite pour ranger sa propre plateforme. Après avoir contemplé la situation un instant, une lueur d'illumination apparut dans son regard. Il jeta un coup d'œil à Wang Lin.
 
 « Tu es plus intelligent que ce vieil oiseau! »
 
@@ -86,7 +86,7 @@ Wang Lin se déplaçait à une vitesse fulgurante tandis que la brume lui fouett
 
 Une fois sa vitesse ralentie et la brume ne pouvant plus le blesser, Wang Lin essuya le sang au coin de sa bouche. Il jeta un regard en arrière, une lueur de froideur dans les yeux.
 
-Après une courte réflexion, Wang Lin se retourna et sortit sa plateforme. Une fois assis, il récupéra celle de Miao Yin. D'un coup sec de sa main droite, la plateforme de Miao Yin trembla. Les runes s'en envolèrent et, d'un geste, il les fit atterrir sur sa propre plateforme.
+Après une courte réflexion, Wang Lin se retourna et sortit sa plateforme. Une fois assis, il récupéra celle de Miaoyin Daozun. D'un coup sec de sa main droite, la plateforme de Miaoyin Daozun trembla. Les runes s'en envolèrent et, d'un geste, il les fit atterrir sur sa propre plateforme.
 
 Lorsque les runes pénétrèrent dans sa plateforme, celle de Wang Lin se mit à briller violemment. Elle commença à croître, passant de 30 000 pieds à 40 000 pieds!
 
@@ -100,7 +100,7 @@ Après les avoir extraites, il les fusionna avec la plateforme de rang 4. Des gr
 
 De loin, cette plateforme de 50 000 pieds était immense et impressionnante!
 
-La plateforme de Miao Yin était déjà très proche du rang 4; en y ajoutant les quelque cent runes de Wang Lin, c'est celle de ce dernier qui avait atteint le rang 5!
+La plateforme de Miaoyin Daozun était déjà très proche du rang 4; en y ajoutant les quelque cent runes de Wang Lin, c'est celle de ce dernier qui avait atteint le rang 5!
 
 Assis sur la plateforme, Wang Lin sentit cette entité semblable à un Sens Divin pénétrer son esprit. Ayant déjà vécu cela, il ne fut pas surpris. Après une observation attentive, deux nouvelles zones s'ouvrirent sur la carte mentale!
 

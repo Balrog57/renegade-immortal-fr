@@ -8,11 +8,11 @@ slug: zhou-tian-3
 ---
 Un vent glacial balayait les étoiles tandis qu'innombrables âmes erraient dans la région. Le ressentiment qui imprégnait ces lieux était monstrueux. Wang Lin observait la scène calmement, ayant désormais acquis une certaine compréhension de la puissance de l'Arsenal Magique.
 
-Il leva sa main droite et pointa le ciel. Un vortex gigantesque apparut, aspirant toutes les âmes en son sein. La seule exception fut l'Ancêtre Sanguin. Ses yeux brillèrent d'un éclat rouge et, après un rugissement, il chargea directement vers Wang Lin.
+Il leva sa main droite et pointa le ciel. Un vortex gigantesque apparut, aspirant toutes les âmes en son sein. La seule exception fut Xue Zu. Ses yeux brillèrent d'un éclat rouge et, après un rugissement, il chargea directement vers Wang Lin.
 
 Une étincelle d'intention meurtrière traversa le regard de Wang Lin; sa main droite se serra en un poing et il lança un coup dévastateur!
 
-Un fracas assourdissant retentit et l'âme originelle de l'Ancêtre Sanguin vacilla un instant. Profitant de cette hésitation, Wang Lin utilisa davantage d'énergie originelle céleste pour accélérer le vortex et accroître sa force de succion. L'âme de l'Ancêtre Sanguin, débordant de ressentiment, rugit de fureur avant d'être aspirée de force.
+Un fracas assourdissant retentit et l'âme originelle de Xue Zu vacilla un instant. Profitant de cette hésitation, Wang Lin utilisa davantage d'énergie originelle céleste pour accélérer le vortex et accroître sa force de succion. L'âme de Xue Zu, débordant de ressentiment, rugit de fureur avant d'être aspirée de force.
 
 Le vortex parmi les étoiles disparut lentement avant de se contracter en un rayon de lumière qui fut englouti par Wang Lin. Dans les dix-huit couches de l'enfer de son âme originelle, une âme supplémentaire venait d'être ajoutée à la treizième couche!
 

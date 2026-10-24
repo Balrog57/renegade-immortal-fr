@@ -42,15 +42,15 @@ Le plus frappant restait ses yeux, qui brillaient comme des étoiles. Son corps 
 
 Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'était celle qui avait quitté Suzaku après avoir dévoré le domaine de Qian Feng, avant de trahir le Palais de l'Eau Céleste de la planète des Cinq Éléments: Zi Xin!
 
-Lorsqu'elle fut traquée par le Palais de l'Eau Céleste, elle fut sauvée par le père de Yao Xixue, l'Ancêtre Sanguin, et devint sa concubine.
+Lorsqu'elle fut traquée par le Palais de l'Eau Céleste, elle fut sauvée par le père de Yao Xixue, Xue Zu, et devint sa concubine.
 
-Deux vieillards dégageant une lueur sanglante la suivaient. Leurs yeux étaient ternes et leurs esprits manifestement sous contrôle; c'étaient des esclaves sanguins raffinés par l'Ancêtre Sanguin. Chaque esclave sanguin possédait un niveau de culture Ascendant.
+Deux vieillards dégageant une lueur sanglante la suivaient. Leurs yeux étaient ternes et leurs esprits manifestement sous contrôle; c'étaient des esclaves sanguins raffinés par Xue Zu. Chaque esclave sanguin possédait un niveau de culture Ascendant.
 
 Zi Xin était très rapide et mena bientôt les deux esclaves vers cette minuscule planète lointaine. Sa voix, mélodieuse, demanda lentement: « Est-ce la planète dont vous avez parlé? »
 
 L'un des esclaves sanguins répondit d'une voix lente: « Maîtresse, c'est bien elle. »
 
-Les yeux de Zi Xin se plissèrent sur l'astre. Trois mois auparavant, un esclave avait signalé que la planète subissait des changements, comme si elle mourait lentement. Cette planète appartenait à la sphère d'influence de l'Ancêtre Sanguin. Depuis son voyage dans la Terre des Esprits Démoniaques, l'Ancêtre Sanguin affichait toujours une expression sombre, avant de partir sans laisser de trace.
+Les yeux de Zi Xin se plissèrent sur l'astre. Trois mois auparavant, un esclave avait signalé que la planète subissait des changements, comme si elle mourait lentement. Cette planète appartenait à la sphère d'influence de Xue Zu. Depuis son voyage dans la Terre des Esprits Démoniaques, Xue Zu affichait toujours une expression sombre, avant de partir sans laisser de trace.
 
 Après avoir réfléchi un instant, Zi Xin se dirigea vers la petite planète avec ses deux esclaves.
 
@@ -80,7 +80,7 @@ La force était si rapide qu'elle parvint à les rattraper. Paniquée, Zi Xin cr
 
 Sans hésiter, les deux esclaves chargèrent vers la source du choc et firent exploser leurs âmes originelles!
 
-Profitant de ce chaos, Zi Xin sortit un jade rouge sang de sa sacoche, un présent de l'Ancêtre Sanguin utilisable une seule fois pour se téléporter de n'importe où vers la Planète du Sang. Cependant, son activation nécessitait un certain temps.
+Profitant de ce chaos, Zi Xin sortit un jade rouge sang de sa sacoche, un présent de Xue Zu utilisable une seule fois pour se téléporter de n'importe où vers la Planète du Sang. Cependant, son activation nécessitait un certain temps.
 
 La planète disparut, transformée en une poussière infinie dispersée dans les étoiles. Au centre de ce chaos, un homme se tenait debout. Il avait une chevelure rouge qui flottait sans vent et des yeux aussi froids que la glace. Sa peau était rugueuse, parcourue de veines saillantes ressemblant à des runes.
 

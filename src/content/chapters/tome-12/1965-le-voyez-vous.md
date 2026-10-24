@@ -112,7 +112,7 @@ L'autre était un jeune homme en rouge à la mine de petit vaurien comblé qui, 
 
 « Moi, sans honneur? Ton Grand-père Xu est sans honneur? Tu devrais faire attention ce soir. Je passerai dans ta chambre et là, je serai vraiment sans honneur. Hehe, méfie-toi bien. » Le jeune homme nommé Xu sourit avec malveillance en regardant l'adolescent.
 
-« Ne vous disputez pas! Vous êtes si bruyants, à vous quereller sans fin. Petit Rouge, frappe à la porte. Que la famille Li sache quelle est la force de ce roi. Bon sang, oser me malmener! »
+« Ne vous disputez pas! Vous êtes si bruyants, à vous quereller sans fin. Xiao Hong, frappe à la porte. Que la famille Li sache quelle est la force de ce roi. Bon sang, oser me malmener! »
 
 « Et toi, Petit Qing, souviens-toi: si les choses tournent mal, brise le jade pour que mon grand frère leur donne une leçon! » Le jeune homme en chemise fleurie renifla et pointa du doigt la demeure gigantesque devant eux.
 

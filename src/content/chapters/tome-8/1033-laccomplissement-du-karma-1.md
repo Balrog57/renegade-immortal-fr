@@ -30,7 +30,7 @@ Wang Lin poussa un soupir. Plus de 1 000 ans de culture avaient endurci son cœu
 
 Si l'on ne m'offense pas, je n'offenserai personne!
 
-Le complot de Yao Xixue avait touché la limite de Wang Lin, elle devait donc mourir! Cependant, par inquiétude pour l'Ancêtre Sanguin et la Pilule de l'Âme Sanguine, il ne l'avait pas tuée! Puis, face à l'Ancêtre Sanguin, il avait dû lutter pour survivre. Si l'Ancêtre Sanguin ne mourait pas, lui, Wang Lin, serait mort!
+Le complot de Yao Xixue avait touché la limite de Wang Lin, elle devait donc mourir! Cependant, par inquiétude pour Xue Zu et la Pilule de l'Âme Sanguine, il ne l'avait pas tuée! Puis, face à Xue Zu, il avait dû lutter pour survivre. Si Xue Zu ne mourait pas, lui, Wang Lin, serait mort!
 
 Il n'avait pas le choix! Du point de vue de Wang Lin, il n'avait pas tort!
 
@@ -38,15 +38,15 @@ Pourtant, du point de vue de Yao Xixue, elle avait payé le prix d'être scellé
 
 Mais avec la mort de son père, devait-elle encore chercher à raisonner avec le meurtrier de celui-ci? Elle était incapable d'analyser qui avait tort ou raison. En tant qu'enfant, peu importait la raison, elle devait se venger. Du point de vue de Yao Xixue, elle non plus n'avait pas tort.
 
-« Tout cela est karma... La cause karmique d'hier produira l'effet karmique d'aujourd'hui. Chaque étape n'était ni quelque chose qu'elle pouvait contrôler, ni quelque chose que je pouvais contrôler... Si elle n'avait pas comploté contre moi en premier, ou si je n'avais pas craint l'Ancêtre Sanguin, rien de tout cela ne serait arrivé.
+« Tout cela est karma... La cause karmique d'hier produira l'effet karmique d'aujourd'hui. Chaque étape n'était ni quelque chose qu'elle pouvait contrôler, ni quelque chose que je pouvais contrôler... Si elle n'avait pas comploté contre moi en premier, ou si je n'avais pas craint Xue Zu, rien de tout cela ne serait arrivé.
 
 « Une fois la cause engendrée, elle ne s'éteint jamais; elle ne fait que croître. J'ai été piégé pendant des centaines d'années. C'est comme si le résultat de la tentative de maintenir un mensonge était de devoir multiplier les mensonges.
 
 « Le "moi" d'autrefois ne comprenait pas le karma et ne réalisait pas que j'en faisais déjà partie.
 
-« Puis, quand l'Ancêtre Sanguin est venu me traquer, j'ai pensé que c'était l'effet. Cependant, il semble que l'Ancêtre Sanguin n'était pas l'effet, mais seulement une partie de la cause!
+« Puis, quand Xue Zu est venu me traquer, j'ai pensé que c'était l'effet. Cependant, il semble que Xue Zu n'était pas l'effet, mais seulement une partie de la cause!
 
-« Le véritable effet n'est pas de devoir combattre l'Ancêtre Sanguin ou ce que Yao Xixue a dit, mais mon propre cœur Dao! » Une lueur apparut dans les yeux de Wang Lin.
+« Le véritable effet n'est pas de devoir combattre Xue Zu ou ce que Yao Xixue a dit, mais mon propre cœur Dao! » Une lueur apparut dans les yeux de Wang Lin.
 
 « Mon domaine karmique n'est pas encore achevé, et sa progression est lente. Peu importe mes illuminations, il semble que je ne puisse comprendre ce qu'est réellement le karma... Autrefois, je sentais vaguement que pour compléter mon domaine karmique, je devrais dénouer tout le karma qui me lie. Il semble que mon intuition de l'époque n'était que partiellement correcte. » Les yeux de Wang Lin commencèrent à briller de plus belle.
 

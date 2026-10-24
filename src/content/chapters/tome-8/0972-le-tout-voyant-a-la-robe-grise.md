@@ -28,7 +28,7 @@ Wang Lin écoutait attentivement leur échange. Bien qu'il n'y eût aucune trace
 
 Wang Lin avait toujours été troublé par une question. À l'époque, il était trop faible pour s'y attarder, mais désormais, il comptait lui aussi parmi les cultivateurs puissants. Comment pouvait-il ne pas percevoir la différence entre Ling Tianhou et l'Omniscient!
 
-Ling Tianhou était bien plus fort que l'Ancêtre Sanguin, mais comparé à Maître Yan Leizi, Qing Shui et aux autres, il était bien plus faible. Il n'était pas exagéré de dire que la différence entre lui et l'Omniscient était aussi vaste que celle entre le ciel et la terre.
+Ling Tianhou était bien plus fort que Xue Zu, mais comparé à Maître Yan Leizi, Qing Shui et aux autres, il était bien plus faible. Il n'était pas exagéré de dire que la différence entre lui et l'Omniscient était aussi vaste que celle entre le ciel et la terre.
 
 Pourtant, Ling Tianhou avait osé s'opposer à l'Omniscient pendant des dizaines de milliers d'années. Wang Lin en était profondément perplexe!
 

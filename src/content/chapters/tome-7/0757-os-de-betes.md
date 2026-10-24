@@ -18,7 +18,7 @@ En y songeant, le cœur de Li Yuan s'emballa. L'excitation provoquée par la ten
 
 « Frère Xu, nous... nous essayons en fait de tuer un dieu! »
 
-Comme l'avait dit Li Yuan, cela revenait presque à tenter d'assassiner une divinité. Même à l'époque où le Royaume Céleste du Tonnerre n'avait pas encore été détruit, bien que l'Ancêtre Sanguin n'eût pu égaler un Seigneur Céleste, il aurait assurément pu régner en maître sur toute une région.
+Comme l'avait dit Li Yuan, cela revenait presque à tenter d'assassiner une divinité. Même à l'époque où le Royaume Céleste du Tonnerre n'avait pas encore été détruit, bien que Xue Zu n'eût pu égaler un Seigneur Céleste, il aurait assurément pu régner en maître sur toute une région.
 
 Aucun cultivateur des royaumes inférieurs n'aurait osé se dresser contre lui!
 
@@ -26,7 +26,7 @@ Wang Lin se lécha les lèvres et dit: « J'aurai toujours besoin de l'aide du f
 
 Li Yuan réfléchit un instant. L'excitation précédente lui avait asséché la gorge. Il regarda alors Wang Lin et répondit: « Frère Xu n'a pas besoin de me remercier. Ce que tu as sauvé, ce n'est pas seulement moi, mais des générations entières de la famille Li. N'est-ce que tuer un dieu? Comment pourrais-je ne pas participer à une entreprise aussi exaltante?! »
 
-Le regard de Wang Lin se fit glacial et il déclara d'une voix lente: « Cet Ancêtre Sanguin n'est pas si facile à abattre; cela exigera une planification minutieuse. Avant que nous ne passions à l'action, le frère Li peut partir le premier. »
+Le regard de Wang Lin se fit glacial et il déclara d'une voix lente: « Xue Zu n'est pas si facile à abattre; cela exigera une planification minutieuse. Avant que nous ne passions à l'action, le frère Li peut partir le premier. »
 
 Li Yuan pondéra la proposition et dit: « C'est une chose aisée. Mais frère Xu, avant cela, nous devrions fouiller cet espace de stockage pour ne laisser aucun trésor derrière nous. Je vais également placer plusieurs restrictions en des points clés pour provoquer son effondrement! »
 

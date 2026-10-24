@@ -8,7 +8,7 @@ slug: maitre-flamespark
 ---
 Après avoir réfléchi un instant, il jeta un coup d'œil vers la silhouette de Wang Lin au loin et leva sa main droite. Il pointa Wang Lin, et une sphère de lumière rouge apparut immédiatement. D'innombrables lignes fines se condensèrent rapidement à l'intérieur de cette sphère, qui laissa alors échapper un éclat rouge vif avant de foncer droit sur Wang Lin.
 
-Tous les poils du corps de Wang Lin se hérissèrent et il jura intérieurement. Sans ce vieil homme mystérieux, il se serait déjà échappé. Mais maintenant que la moitié du corps de sang de l'Ancêtre Sanguin était déjà utilisée, il ne pouvait plus fuir.
+Tous les poils du corps de Wang Lin se hérissèrent et il jura intérieurement. Sans ce vieil homme mystérieux, il se serait déjà échappé. Mais maintenant que la moitié du corps de sang de Xue Zu était déjà utilisée, il ne pouvait plus fuir.
 
 Sentant le danger imminent, Wang Lin serra les dents. Comprenant qu'il ne pourrait pas l'esquiver, il fit volte-face et cracha le sceau fragmentaire devant lui pour bloquer l'attaque. Lorsque la sphère de lumière rouge percuta le sceau, celui-ci se mit à trembler violemment.
 

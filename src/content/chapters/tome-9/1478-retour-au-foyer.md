@@ -78,7 +78,7 @@ On pouvait dire que ces personnes étaient l'essence même des différents clans
 
 À cet instant, au sein de la neuvième carte, parmi les fluctuations infinies, Wang Lin émergea. Il se trouvait dans une zone distincte du palais, évitant ainsi la femme séduisante.
 
-Wang Lin n'accordait aucun intérêt aux cultivateurs présents dans la tombe. Le Maître Dao Miao Yin, le Maître Démon Neuf Cieux, la Grande Désolation et les autres avaient tous un niveau de culture insondable. Bien qu'ils aient été blessés par le rugissement, ils avaient survécu des dizaines de milliers d'années et possédaient assurément diverses techniques divines.
+Wang Lin n'accordait aucun intérêt aux cultivateurs présents dans la tombe. Miaoyin Daozun, Jiutian Mozun, la Grande Désolation et les autres avaient tous un niveau de culture insondable. Bien qu'ils aient été blessés par le rugissement, ils avaient survécu des dizaines de milliers d'années et possédaient assurément diverses techniques divines.
 
 Wang Lin n'avait pas l'idée folle de tous les massacrer comme lorsqu'il avait affronté le Souverain. Ce serait irréaliste et contraire à son plan actuel.
 
@@ -94,7 +94,7 @@ Ce pavillon colossal possédait trois fenêtres et sa porte était hermétiqueme
 
 Une pression écrasante émana du pavillon, enveloppant toute la zone.
 
-Dès l'apparition du pavillon, tous les cultivateurs de la tombe le remarquèrent, en particulier Miao Yin, Neuf Cieux et la Grande Désolation.
+Dès l'apparition du pavillon, tous les cultivateurs de la tombe le remarquèrent, en particulier Miaoyin Daozun, Jiutian Mozun et la Grande Désolation.
 
 Wang Lin n'hésita pas. Dès que le Palais Terrestre fut invoqué, il le rangea dans son espace de stockage. Puis, il se retourna et fit un pas.
 
@@ -112,7 +112,7 @@ Le regard de Wang Lin s'illumina et sa main droite traça un sceau. Il l'agita v
 
 Alors qu'il s'apprêtait à entrer dans le vortex, il esquissa un sourire narquois. Au moment même où il disparut, sa main droite s'étendit et l'intégralité du territoire scellé s'évapora sans laisser de trace, emportant le vortex avec lui!
 
-Au moment où le territoire disparut, Miao Yin et ses compagnons arrivèrent sur les lieux. Mais ils arrivaient trop tard: il n'y avait plus rien devant eux!
+Au moment où le territoire disparut, Miaoyin Daozun et ses compagnons arrivèrent sur les lieux. Mais ils arrivaient trop tard: il n'y avait plus rien devant eux!
 
 Simultanément au départ de Wang Lin, Tuo Sen sembla prendre sa décision. Il prit l'héritage de la mémoire et le pressa entre ses sourcils!
 

@@ -14,9 +14,9 @@ De plus, il avait été choisi par l'Âme aux Sept Couleurs pour qu'elle s'insta
 
 À cet instant, son corps et son âme se séparèrent. L'Âme aux Sept Couleurs agita les bras, le ciel et la terre changèrent de couleur, et le membre doré tombant du ciel s'effondra! Simultanément, le bras noir surgissant de la terre trembla et se désintégra.
 
-Même le sceau de cithare du Maître du Dao Rêve Bleu disparut sans laisser de trace sous son impact.
+Même le sceau de cithare de Lanmeng Daozun disparut sans laisser de trace sous son impact.
 
-Le Maître du Dao Rêve Bleu cracha du sang. La cithare vibra et il fut gravement blessé. Cependant, il n'hésita pas à la jouer de nouveau, projetant les deux forces vers l'Âme aux Sept Couleurs et le Vieux Fantôme Zhan.
+Lanmeng Daozun cracha du sang. La cithare vibra et il fut gravement blessé. Cependant, il n'hésita pas à la jouer de nouveau, projetant les deux forces vers l'Âme aux Sept Couleurs et le Vieux Fantôme Zhan.
 
 Même le vieil homme nommé Ma subit un violent contrecoup lorsque l'Âme aux Sept Couleurs brisa son sort. Du sang s'échappa du coin de sa bouche et il fut repoussé de plusieurs milliers de pieds. Pourtant, il serra les dents et se retourna pour charger une fois de plus.
 
@@ -36,7 +36,7 @@ La tyrannie de la bataille!
 
 Aussitôt qu'il eut fini de parler, il se retourna face au vieil homme nommé Ma. Les deux se dévisagèrent, et des grondements tonitruants semblèrent résonner entre eux alors que le combat éclatait.
 
-Comparé au vieil homme Ma, le Maître du Dao Rêve Bleu était plus anxieux, mais toute son attention restait focalisée sur la cithare afin de sceller l'Âme aux Sept Couleurs. Il ne pouvait consacrer aucun effort à empêcher la Tortue Noire et l'Oiseau Vermillon de perturber Wang Lin.
+Comparé au vieil homme Ma, Lanmeng Daozun était plus anxieux, mais toute son attention restait focalisée sur la cithare afin de sceller l'Âme aux Sept Couleurs. Il ne pouvait consacrer aucun effort à empêcher la Tortue Noire et l'Oiseau Vermillon de perturber Wang Lin.
 
 Tang Shan n'avait pas perdu connaissance. Elle serra les dents et bondit dans les airs pour intercepter la Tortue Noire et l'Oiseau Vermillon.
 
@@ -64,7 +64,7 @@ Le cri misérable de l'Oiseau Vermillon était terrifiant; son corps dépérissa
 
 C'était la Poupée Yi Si!
 
-Cette scène soudaine fit s'arrêter Tang Shan et Tuo Sen. Elle attira également l'attention du vieil homme Ma, du Maître du Dao Rêve Bleu, du Vieux Fantôme Zhan et de l'Âme aux Sept Couleurs!
+Cette scène soudaine fit s'arrêter Tang Shan et Tuo Sen. Elle attira également l'attention du vieil homme Ma, de Lanmeng Daozun, du Vieux Fantôme Zhan et de l'Âme aux Sept Couleurs!
 
 Alors que tous les regards convergeaient, la silhouette de Wang Lin apparut lentement à l'entrée de la dernière couche. Tous ceux qui le virent frémirent, car son apparence avait radicalement changé!
 
@@ -82,7 +82,7 @@ Du sang s'écoulait de son œil gauche, coulant le long de sa joue pour maculer 
 
 « Tu... Tu as obtenu tous les héritages de Ye Mo! » L'expression du Vieux Fantôme Zhan changea. Il ressentit un sentiment de danger émanant de Wang Lin, un pressentiment qui fit trembler son cœur.
 
-Non seulement lui, mais tous ceux qui contemplèrent les yeux argentés de Wang Lin furent saisis d'effroi. Le Maître du Dao Rêve Bleu s'en sortit mieux que les autres, étant l'aîné de Wang Lin; pourtant, le vieil homme Ma sentit son cœur vaciller devant ce regard argenté.
+Non seulement lui, mais tous ceux qui contemplèrent les yeux argentés de Wang Lin furent saisis d'effroi. Lanmeng Daozun s'en sortit mieux que les autres, étant l'aîné de Wang Lin; pourtant, le vieil homme Ma sentit son cœur vaciller devant ce regard argenté.
 
 « Les yeux d'argent! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré et la terre noire forment l'un des signes! On raconte aussi que les neuf chants et les trois signes sont les manifestations de la descente de l'Ancêtre Ancien. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes! »
 
@@ -104,7 +104,7 @@ L'expression du Vieux Fantôme Zhan changea et il fonça immédiatement vers l'�
 
 Wang Lin ne l'arrêta pas, et il n'y avait aucune raison de le faire!
 
-Après la fusion, l'Âme aux Sept Couleurs entoura le Vieux Fantôme Zhan et recouvrit le ciel derrière lui. Il ricana et chargea Wang Lin. Le Maître du Dao Rêve Bleu et le vieil homme Ma s'apprêtaient à intervenir quand les paroles de Wang Lin résonnèrent calmement entre deux battements de cœur:
+Après la fusion, l'Âme aux Sept Couleurs entoura le Vieux Fantôme Zhan et recouvrit le ciel derrière lui. Il ricana et chargea Wang Lin. Lanmeng Daozun et le vieil homme Ma s'apprêtaient à intervenir quand les paroles de Wang Lin résonnèrent calmement entre deux battements de cœur:
 
 « Deux aînés, vous avez assez travaillé, je m'en charge. » Wang Lin voyait bien qu'ils étaient blessés, et il voulait tester sa propre force après avoir obtenu l'héritage. Aussitôt qu'il eut parlé, son rythme cardiaque devint monstrueux!
 

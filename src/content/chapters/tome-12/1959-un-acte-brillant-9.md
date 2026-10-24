@@ -30,7 +30,7 @@ Quant à l'Empereur Céleste, qui s'était révélé dans le palais impérial, a
 
 Mais peu importe l'ampleur de ce prix, cela en vaudrait la peine. Une fois que cet homme deviendrait un Grand Empyréen, les bénéfices seraient immenses. Avoir un autre Grand Empyréen comme allié, d'autant plus avec une relation préexistante, aiderait grandement à accroître le statut de n'importe quel Grand Empyréen.
 
-Le Grand Empyréen Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où, à l'exception de Gémeaux, les quatre autres Grands Empyréens se disputaient tous la même personne.
+Le Grand Empyréen Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où, à l'exception de Shuangzi, les quatre autres Grands Empyréens se disputaient tous la même personne.
 
 À moins qu'un accident imprévu ne survienne...
 

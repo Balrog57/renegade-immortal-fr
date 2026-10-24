@@ -20,7 +20,7 @@ Le jeune homme afficha sa fierté. La famille Yao était un nom que même le Tem
 
 À cet instant, au sein du vide, Wang Lin vit le fragment devant lui. Son corps vacilla et il se retrouva sur celui-ci.
 
-« Je me demande où se trouve le Frère Li... » Le Sens Divin de Wang Lin se projeta inconsciemment, mais son expression devint immédiatement sombre. Une intention meurtrière aussi puissante que celle qu'il avait ressentie face à l'Ancêtre Sanguin explosa à nouveau.
+« Je me demande où se trouve le Frère Li... » Le Sens Divin de Wang Lin se projeta inconsciemment, mais son expression devint immédiatement sombre. Une intention meurtrière aussi puissante que celle qu'il avait ressentie face à Xue Zu explosa à nouveau.
 
 Le regard de Li Yuan était vacillant; sa conscience était sur le point de s'évanouir.
 

@@ -42,7 +42,7 @@ Wang Lin fronça les sourcils. Ce Xu Liguo n'avait cessé de l'importuner ces de
 
 Le regard de Wang Lin se glaça. Bien que Xu Liguo fût loyal, cette loyauté reposait sur le fait que Wang Lin était plusieurs fois plus puissant que lui. Le nouveau maître de Xu Liguo devait être plus faible que Wang Lin, ou du moins pas beaucoup plus fort, sans quoi la loyauté de ce dernier s'évanouirait instantanément.
 
-L'Ancêtre du Clan des Démons Géants en était l'exemple parfait. S'il avait été remplacé par quelqu'un comme l'Omniscient, Ling Tianhou ou l'Ancêtre Sanguin, Xu Liguo aurait immédiatement trahi Wang Lin.
+L'Ancêtre du Clan des Démons Géants en était l'exemple parfait. S'il avait été remplacé par quelqu'un comme l'Omniscient, Ling Tianhou ou Xue Zu, Xu Liguo aurait immédiatement trahi Wang Lin.
 
 Outre ce défaut, ce démon avait un autre problème: dès qu'il rencontrait une femme, il changeait radicalement de personnalité. Wang Lin pensait que cela avait été corrigé avec les années, mais il semblait que rien n'ait changé.
 

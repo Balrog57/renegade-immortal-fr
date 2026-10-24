@@ -64,17 +64,17 @@ En entendant cette voix depuis les profondeurs, Wang Lin plissa les yeux.
 
 « Yao Xixue!! » Il ne pouvait pas voir son visage, mais cette impression familière et cette voix plus familière encore lui permirent de l'identifier instantanément!
 
-Wang Lin esquissa un sourire amer et poussa un soupir. La rancœur entre lui et Yao Xixue était complexe. À l'époque, elle avait voulu l'utiliser et avait été la première à agir de manière malveillante. Wang Lin n'avait rien d'un saint homme et ne comptait pas la laisser partir, mais, vu son niveau de culture d'alors et sa crainte de la Pilule de l'Âme Sanguine et de l'Ancêtre Sanguin, il l'avait scellée par une restriction plutôt que de la tuer.
+Wang Lin esquissa un sourire amer et poussa un soupir. La rancœur entre lui et Yao Xixue était complexe. À l'époque, elle avait voulu l'utiliser et avait été la première à agir de manière malveillante. Wang Lin n'avait rien d'un saint homme et ne comptait pas la laisser partir, mais, vu son niveau de culture d'alors et sa crainte de la Pilule de l'Âme Sanguine et de Xue Zu, il l'avait scellée par une restriction plutôt que de la tuer.
 
-Bien qu'il fût hostile envers l'Ancêtre Sanguin, Wang Lin l'admirait. Après tout, chaque acte de l'Ancêtre était motivé par l'amour pour sa fille. Si l'on avait fait la même chose à Wang Ping, il aurait agi comme l'Ancêtre Sanguin, mais il aurait d'abord cherché à comprendre les faits.
+Bien qu'il fût hostile envers Xue Zu, Wang Lin l'admirait. Après tout, chaque acte de l'Ancêtre était motivé par l'amour pour sa fille. Si l'on avait fait la même chose à Wang Ping, il aurait agi comme Xue Zu, mais il aurait d'abord cherché à comprendre les faits.
 
-L'Ancêtre Sanguin ignorait manifestement la vérité et ne considérait pas Wang Lin comme une menace; il n'avait que des intentions meurtrières. Peu lui importait ce qui s'était passé, il voulait seulement savoir qui avait pris sa fille. Cela suffisait.
+Xue Zu ignorait manifestement la vérité et ne considérait pas Wang Lin comme une menace; il n'avait que des intentions meurtrières. Peu lui importait ce qui s'était passé, il voulait seulement savoir qui avait pris sa fille. Cela suffisait.
 
-Si Wang Lin avait eu son niveau de culture actuel à l'époque, l'Ancêtre Sanguin n'aurait pas été aussi extrême; il aurait trouvé une autre manière de régler l'affaire. En fin de compte, Wang Lin n'était alors pas assez puissant pour que l'Ancêtre Sanguin s'en soucie vraiment. Même s'il avait su que sa fille était en tort, il aurait utilisé sa puissance pour imposer sa volonté et aurait tué Wang Lin pour apaiser sa colère.
+Si Wang Lin avait eu son niveau de culture actuel à l'époque, Xue Zu n'aurait pas été aussi extrême; il aurait trouvé une autre manière de régler l'affaire. En fin de compte, Wang Lin n'était alors pas assez puissant pour que Xue Zu s'en soucie vraiment. Même s'il avait su que sa fille était en tort, il aurait utilisé sa puissance pour imposer sa volonté et aurait tué Wang Lin pour apaiser sa colère.
 
-Ce n'est pas que Wang Lin n'avait pas envisagé de rendre Yao Xixue; il avait même songé à assumer la responsabilité de l'avoir scellée pendant des centaines d'années. Tant que les exigences de l'Ancêtre Sanguin n'étaient pas déraisonnables, il aurait accepté. Après tout, il était trop faible à ce moment-là.
+Ce n'est pas que Wang Lin n'avait pas envisagé de rendre Yao Xixue; il avait même songé à assumer la responsabilité de l'avoir scellée pendant des centaines d'années. Tant que les exigences de Xue Zu n'étaient pas déraisonnables, il aurait accepté. Après tout, il était trop faible à ce moment-là.
 
-Cependant, l'Ancêtre Sanguin n'avait laissé aucune chance à Wang Lin de s'expliquer, et les choses avaient fini par tourner ainsi. Chaque fois que Wang Lin y pensait, il soupirait. Il savait séparer la gratitude de la rancœur. Il admirait l'Ancêtre Sanguin, c'est pourquoi il lui avait promis une autre occasion de retrouver sa fille.
+Cependant, Xue Zu n'avait laissé aucune chance à Wang Lin de s'expliquer, et les choses avaient fini par tourner ainsi. Chaque fois que Wang Lin y pensait, il soupirait. Il savait séparer la gratitude de la rancœur. Il admirait Xue Zu, c'est pourquoi il lui avait promis une autre occasion de retrouver sa fille.
 
 En arrivant en Terre des Esprits Démoniques, Wang Lin savait qu'il était probable qu'il croise Yao Xixue. Cependant, la femme dont il se souvenait était trop différente de cette figure enveloppée d'énergie démoniaque pour qu'il la reconnaisse d'emblée.
 

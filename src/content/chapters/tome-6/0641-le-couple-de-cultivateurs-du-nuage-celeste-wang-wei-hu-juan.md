@@ -110,7 +110,7 @@ Bien que les cultivateurs ordinaires puissent chevaucher des nuages, il ne s'agi
 
 Cependant, ce couple était différent. Ce nuage avait été raffiné à partir du Nuage du 9ème Ciel. Même à l'époque, dans le Royaume Céleste, il était extrêmement rare! La puissance de ce nuage résidait dans le fait qu'il contenait naturellement des éclairs célestes; sa force ne devait donc pas être sous-estimée.
 
-Les cultivateurs de la vieille génération reconnaîtraient immédiatement les deux individus en voyant ce nuage. Seules des personnes du même rang que l'Ancêtre Sanguin, Ling Tianhou et l'Omniscient pouvaient chevaucher un tel prodige!
+Les cultivateurs de la vieille génération reconnaîtraient immédiatement les deux individus en voyant ce nuage. Seules des personnes du même rang que Xue Zu, Ling Tianhou et l'Omniscient pouvaient chevaucher un tel prodige!
 
 Le Couple de Cultivateurs du Nuage Céleste!
 

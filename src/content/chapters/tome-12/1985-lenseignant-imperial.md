@@ -22,7 +22,7 @@ D'un seul pas, le palais entier sembla se superposer à une autre dimension. Cel
 
 « Je vous attendais depuis longtemps... Vous êtes enfin venu! »
 
-Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans le ciel, la bataille entre l'Empereur Céleste et le Grand Empyréen Gémeaux faisait rage. Il serait difficile de désigner un vainqueur, mais tant que le Grand Empyréen Gémeaux maintiendrait l'Empereur Céleste occupé, celui-ci ne pourrait pas agir contre Wang Lin!
+Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans le ciel, la bataille entre l'Empereur Céleste et le Grand Empyréen Shuangzi faisait rage. Il serait difficile de désigner un vainqueur, mais tant que le Grand Empyréen Shuangzi maintiendrait l'Empereur Céleste occupé, celui-ci ne pourrait pas agir contre Wang Lin!
 
 Hormis l'Empereur Céleste, le palais n'abritait que l'Enseignant Impérial, dont la culture était étrange!
 

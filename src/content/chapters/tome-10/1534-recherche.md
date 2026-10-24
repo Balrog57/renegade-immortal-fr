@@ -10,7 +10,7 @@ Ce vortex géant aspirait la brume propre au Système Stellaire de la Mer des Nu
 
 Cette bataille fut un coup terrible porté au Royaume Extérieur. Elle permit aux cultivateurs du Royaume Extérieur, jusqu'alors en proie à la frénésie, de reprendre leurs esprits. Le Royaume Extérieur avait trop souffert lors de ce combat!
 
-Les membres de plusieurs dizaines de tribus périrent. Aucun survivant ne subsista parmi ceux qui étaient entrés dans le Royaume Intérieur… L'ancêtre du Clan des Hirondelles de Feu était mort, l'estimé Nan Zhao était mort, et même le seigneur du Palais de la Punition Céleste avait péri! Plus de 100 000 cultivateurs furent enterrés dans le Royaume Intérieur!
+Les membres de plusieurs dizaines de tribus périrent. Aucun survivant ne subsista parmi ceux qui étaient entrés dans le Royaume Intérieur… L'ancêtre du Clan des Hirondelles de Feu était mort, Nanzhao Shangren était mort, et même le seigneur du Palais de la Punition Céleste avait péri! Plus de 100 000 cultivateurs furent enterrés dans le Royaume Intérieur!
 
 L'ensemble du Système Stellaire Antique fut empreint de tristesse. Une tristesse intense qui se mua lentement en colère, une soif de vengeance!
 
@@ -18,9 +18,9 @@ Sous l'influence de cette rage, encore plus de clans du Royaume Extérieur récl
 
 Tout le Royaume Extérieur commença à se mobiliser. Ils attendaient, attendant la seconde bataille pour se venger!
 
-Certains vieux monstres qui étaient restés en cultivation recluse pendant des dizaines de milliers d'années, comme ceux dont le Maître du Dao Rêve Bleu avait parlé, sortirent de leur retraite. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
+Certains vieux monstres qui étaient restés en cultivation recluse pendant des dizaines de milliers d'années, comme ceux dont Lanmeng Daozun avait parlé, sortirent de leur retraite. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
 
-Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan des Hirondelles de Feu, qui avait tué l'estimé Nan Zhao, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant son sort incertain entre la vie et la mort!
+Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan des Hirondelles de Feu, qui avait tué Nanzhao Shangren, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant son sort incertain entre la vie et la mort!
 
 C'était cet homme qui avait libéré l'océan de poison et les bêtes-moustiques, devenant un véritable cauchemar pour les cultivateurs du Royaume Extérieur!
 
@@ -64,7 +64,7 @@ La femme à la robe bleu aquatique avait été amenée ici par Maître Nan Yunzi
 
 Après cette bataille, le nom de « Seigneur du Royaume Scellé Wang Lin » s'était propagé dans tout le Royaume Intérieur. Presque toutes les régions connaissaient les exploits du Seigneur du Royaume Scellé lors de ce combat!
 
-Il avait tué l'ancêtre du Clan des Hirondelles de Feu, il avait tué l'estimé Nan Zhao, cultivateur du Royaume Extérieur, et il avait tué l'avatar du Grand Maître Yun Luo!
+Il avait tué l'ancêtre du Clan des Hirondelles de Feu, il avait tué Nanzhao Shangren, cultivateur du Royaume Extérieur, et il avait tué l'avatar du Grand Maître Yun Luo!
 
 Avec sa hache, il avait stoppé la troisième armée d'invasion du Royaume Extérieur et fait en sorte que des dizaines de milliers de cultivateurs n'osent faire le moindre pas dans le Royaume Intérieur!
 

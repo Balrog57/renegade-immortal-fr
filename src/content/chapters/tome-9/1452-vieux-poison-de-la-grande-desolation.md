@@ -124,7 +124,7 @@ Très loin de lui, dans une autre terre scellée, une bataille sanglante faisait
 
 En dessous d'eux, près de cent cultivateurs s'entretuaient. La jeune femme du Clan de l'Extermination des Sceaux était habitée par une intention meurtrière intense; près de dix cadavres ou blessés jonchaient déjà le sol autour d'elle.
 
-« Miao Yin, oses-tu voler l'esprit Dao de ce vieil homme? Mon corps originel partira massacrer la Mer du Son pour livrer un combat à mort au tien! »
+« Miaoyin Daozun, oses-tu voler l'esprit Dao de ce vieil homme? Mon corps originel partira massacrer la Mer du Son pour livrer un combat à mort au tien! »
 
 « Vieux Poison de la Grande Désolation, tu n'es venu qu'avec une parcelle de ton âme, tandis que je suis venue avec mon avatar; tu ne fais pas le poids. Une fois que j'aurai tué cette partie de ton âme, oseras-tu encore te rendre dans la Mer du Son? Ridicule, tout cela est ridicule! »
 

@@ -26,21 +26,21 @@ Le corps de Wang Lin trembla soudainement.
 
 Peu après, d'innombrables éclairs se rassemblèrent et s'abattirent sur le sol. Cela fit à nouveau vibrer le fragment, provoquant l'effondrement de pans entiers de roche sur les bords du fragment.
 
-L'Ancêtre Sanguin observait le fragment à distance. Il pouvait clairement sentir la moitié de son corps de sang sur ce fragment, et l'énergie originelle qu'il contenait était en train d'être rapidement absorbée.
+Xue Zu observait le fragment à distance. Il pouvait clairement sentir la moitié de son corps de sang sur ce fragment, et l'énergie originelle qu'il contenait était en train d'être rapidement absorbée.
 
 Ce sentiment le poussait à la folie. C'était la première fois de sa vie qu'il voulait tuer quelqu'un tout en l'aidant à croître par inadvertance.
 
 Cependant, il craignait de bouger. Il scruta attentivement les nuages surplombant le fragment. Il sentait que la puissance qui s'y tramait grandissait en intensité.
 
-« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé la Terre des Esprits Démoniaques à l'époque était également causée par lui. » Le regard de l'Ancêtre Sanguin devint glacial.
+« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé la Terre des Esprits Démoniaques à l'époque était également causée par lui. » Le regard de Xue Zu devint glacial.
 
-« Plus la rétribution divine sera puissante, mieux ce sera. Si je m'y précipitais, je ne ferais que l'aider. Je vais simplement attendre ici et le regarder se faire anéantir par la rétribution divine. Ce sera fort satisfaisant. » L'Ancêtre Sanguin ricana en fixant le fragment, ses yeux empreints de haine.
+« Plus la rétribution divine sera puissante, mieux ce sera. Si je m'y précipitais, je ne ferais que l'aider. Je vais simplement attendre ici et le regarder se faire anéantir par la rétribution divine. Ce sera fort satisfaisant. » Xue Zu ricana en fixant le fragment, ses yeux empreints de haine.
 
 Le fragment cessa de flotter sous l'effet de la restriction imposée par l'accumulation massive des nuages. Une immense masse nuageuse s'entassa ici, et un autre éclair frappa le fragment.
 
 Ce dernier trembla une fois de plus, et ses contours se brisèrent davantage.
 
-Ce processus dura un mois, tandis que les éclairs redoublaient de fréquence. Lorsque l'Ancêtre Sanguin regarda, il ne pouvait même plus distinguer la limite des nuages.
+Ce processus dura un mois, tandis que les éclairs redoublaient de fréquence. Lorsque Xue Zu regarda, il ne pouvait même plus distinguer la limite des nuages.
 
 Il se retira, refusant de provoquer la puissance de la rétribution divine. Un mélange de jubilation et de haine l'habitait lorsqu'il murmura: « Plus il y en aura, mieux ce sera. Que davantage de nuages se rassemblent pour tuer ce Wang Lin! Ce n'est qu'ainsi que la haine de ce vieil homme pourra être apaisée! »
 
@@ -54,7 +54,7 @@ De puissants rugissements tonitruants résonnèrent à travers le vide. Le fragm
 
 Le corps de Wang Lin tremblait à chaque fois qu'un éclair pénétrait en lui, et d'innombrables décharges avaient déjà déferlé dans ses veines. Xu Liguo était terrifié et ne pouvait que se cacher à l'intérieur de l'épée céleste; un seul de ces éclairs aurait failli briser son âme.
 
-À cet instant, au cœur du corps de Wang Lin, la puissance de l'homme âgé et celle de l'Ancêtre Sanguin s'annulaient et fusionnaient mutuellement. Normalement, ce processus aurait pris très longtemps, mais les éclairs constants qui infiltraient son corps l'accéléraient prodigieusement.
+À cet instant, au cœur du corps de Wang Lin, la puissance de l'homme âgé et celle de Xue Zu s'annulaient et fusionnaient mutuellement. Normalement, ce processus aurait pris très longtemps, mais les éclairs constants qui infiltraient son corps l'accéléraient prodigieusement.
 
 L'énergie originelle à l'intérieur de lui augmentait de façon effrénée. Loin de détruire son corps, le tonnerre de la rétribution divine lui apportait des bénéfices inimaginables.
 
@@ -70,9 +70,9 @@ Alors que les bords du fragment se détachaient sous les assauts incessants, le 
 
 La puissance contenue dans ce fragment était inconcevable, car sa matière n'était pas ordinaire: c’était un fragment du Royaume Céleste! Si cela seul suffisait, ce ne serait pas si exceptionnel, mais ce n'était pas un objet raffiné par des cultivateurs, c'était un objet raffiné par les Cieux eux-mêmes!
 
-L'Ancêtre Sanguin comprit progressivement la situation et prit une profonde inspiration. Ses yeux brillèrent de cupidité. Peu de trésors pouvaient tenter quelqu'un de son niveau de culture. Mais en réalisant que ce fragment se transformait par pur hasard en un trésor magique, son cœur se mit soudain à battre la chamade.
+Xue Zu comprit progressivement la situation et prit une profonde inspiration. Ses yeux brillèrent de cupidité. Peu de trésors pouvaient tenter quelqu'un de son niveau de culture. Mais en réalisant que ce fragment se transformait par pur hasard en un trésor magique, son cœur se mit soudain à battre la chamade.
 
-« Les gains et les pertes sont dictés par le destin. Ce vieil homme a trop perdu cette fois-ci. Si ce fragment est affiné par les cieux, sa puissance sera d'une tout autre dimension. Il pourrait manifester la véritable puissance du Royaume Céleste. Ce trésor m'est destiné! » L'excitation transparaissait dans le regard de l'Ancêtre Sanguin.
+« Les gains et les pertes sont dictés par le destin. Ce vieil homme a trop perdu cette fois-ci. Si ce fragment est affiné par les cieux, sa puissance sera d'une tout autre dimension. Il pourrait manifester la véritable puissance du Royaume Céleste. Ce trésor m'est destiné! » L'excitation transparaissait dans le regard de Xue Zu.
 
 Le tonnerre continuait de tomber, mais soudain, tous les éclairs disparurent. Un changement radical s'opéra au sein des nuages et un éclair de tonnerre noir commença à se former. Cet éclair noir était la véritable rétribution divine.
 

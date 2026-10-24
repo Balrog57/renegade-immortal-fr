@@ -8,7 +8,7 @@ slug: lexecution-du-maitre-zhou-tian
 ---
 Wang Lin avait cultivé pendant deux mille ans, et chaque pas de son parcours avait été d'une extrême dangerosité. Grâce à sa sagesse et à sa volonté indomptable, il avait triomphé de multiples situations de vie ou de mort. Cela lui avait insufflé le courage nécessaire pour défier les cieux.
 
-Il osait même affronter un cultivateur de la troisième étape tel que le Grand Ancien de la Secte Divine, Shui Daozi. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré le Maître du Dao Rêve Bleu — une rencontre qui lui avait fait réaliser l'insondable immensité du Système Stellaire Antique — Wang Lin n'aurait sans doute pas choisi, en entrant dans le Clan du Tonnerre Dispersé, d'attendre le bon moment pour agir.
+Il osait même affronter un cultivateur de la troisième étape tel que le Grand Ancien de la Secte Divine, Shui Daozi. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré Lanmeng Daozun — une rencontre qui lui avait fait réaliser l'insondable immensité du Système Stellaire Antique — Wang Lin n'aurait sans doute pas choisi, en entrant dans le Clan du Tonnerre Dispersé, d'attendre le bon moment pour agir.
 
 Cependant, tout cela avait ses limites. Si quelqu'un franchissait cette ligne rouge, la nature impétueuse de Wang Lin se déchaînerait. Même s'il comptait agir avec plus de prudence, il n'en tuerait pas moins!
 

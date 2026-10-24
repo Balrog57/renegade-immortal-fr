@@ -32,7 +32,7 @@ Wang Lin aspirait à la puissance nécessaire pour combattre des cultivateurs au
 
 Après tout, la différence entre chaque petite étape au sein de la seconde étape était immense. Même si Wang Lin possédait la puissance d'un Dieu Ancien, certains gouffres ne pouvaient être franchis si facilement, comme l'écart entre le stade intermédiaire et le stade avancé du Purificateur du Nirvana!
 
-L'Ancêtre Sanguin était resté au stade intermédiaire du Purificateur du Nirvana pendant une longue période sans parvenir à atteindre le stade avancé. Cela prouvait la difficulté de la tâche!
+Xue Zu était resté au stade intermédiaire du Purificateur du Nirvana pendant une longue période sans parvenir à atteindre le stade avancé. Cela prouvait la difficulté de la tâche!
 
 En vérité, à moins d'une fortune exceptionnelle, il était très difficile pour les cultivateurs d'atteindre le stade avancé et le sommet de celui-ci. Outre la compréhension de son propre domaine, il fallait apprendre à contrôler les lois du monde.
 

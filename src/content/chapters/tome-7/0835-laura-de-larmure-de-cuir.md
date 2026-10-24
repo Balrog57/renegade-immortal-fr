@@ -78,11 +78,11 @@ L'homme en robe rouge nommé Xiang ajouta lentement: « Cette bête est effectiv
 
 Une lueur de folie brilla dans les yeux de Maître Yan Leizi alors qu'il disait calmement: « Puisqu'il en est ainsi, nous devons rassembler plus de monde et commencer à planifier la capture de cette bête! »
 
-Dans le Domaine Oriental, sur une planète rouge sang, au sein du hall ancestral de la famille Yao, plus de dix jetons derrière Dieu du Sang se brisèrent. Il rassembla d'un revers de manche le gaz blanc qui en émanait.
+Dans le Domaine Oriental, sur une planète rouge sang, au sein du hall ancestral de la famille Yao, plus de dix jetons derrière Xue Shenzi se brisèrent. Il rassembla d'un revers de manche le gaz blanc qui en émanait.
 
 Son expression était sombre alors qu'il levait les yeux vers le ciel et murmurait: « Il est digne de son appartenance au Système Stellaire de l'Alliance. Comparé à la troisième génération de ma famille Yao, il est très décisif dans ses meurtres et extrêmement tenace! »
 
-Après une longue méditation silencieuse, la main droite de Dieu du Sang agrippa l'air. Une lumière rouge se condensa instantanément en un jade de couleur sang.
+Après une longue méditation silencieuse, la main droite de Xue Shenzi agrippa l'air. Une lumière rouge se condensa instantanément en un jade de couleur sang.
 
 « Envoyez Yao Yun de la deuxième génération dans le Domaine Nord et prenez la vie de Xu Mu! » Tandis que le message divin était envoyé, le jade de sang devant lui émit un éclat pourpre et disparut.
 

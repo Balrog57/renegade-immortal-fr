@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1772 - Xuan Luo Acts!"
 slug: xuan-luo-agit
 ---
-Divers sorts convergèrent tandis que le Souverain s'avançait. Il se montrait extrêmement prudent. Bien qu'il ne connaisse pas grand-chose de la Tombe Antique, il avait appris certains de ses secrets auprès de Miao Yin, et il avait emprunté la puissance du Daoïste aux Sept Couleurs pour sauver Miao Yin et sa compagnie.
+Divers sorts convergèrent tandis que le Souverain s'avançait. Il se montrait extrêmement prudent. Bien qu'il ne connaisse pas grand-chose de la Tombe Antique, il avait appris certains de ses secrets auprès de Miaoyin Daozun, et il avait emprunté la puissance du Daoïste aux Sept Couleurs pour sauver Miaoyin Daozun et sa compagnie.
 
 C'est ce qui lui avait permis d'arriver si rapidement. Il avait été témoin de la féroce bataille dans la deuxième fleur et avait vu Wang Lin utiliser l'arc à trois reprises. Fort de sa compréhension de Wang Lin et de ses propres analyses, il était certain que ce dernier n'avait plus la force de bander l'arc une fois de plus!
 
@@ -16,7 +16,7 @@ Dans son esprit, sans une certitude absolue, Wang Lin ne mettrait jamais en plac
 
 Ayant tiré cette conclusion, le Souverain pensait que c'était une opportunité inestimable; ayant confirmé que Wang Lin était gravement blessé, c'était le moment idéal pour l'assassiner, se venger et s'emparer de sa troisième âme!
 
-C’est pourquoi il s’était précipité à pleine vitesse pour poursuivre Wang Lin dans la quatrième fleur, pendant que le Vieux Fantôme Zhan traquait le Daoïste aux Sept Couleurs pour l'absorber. Il avait mis à profit ses connaissances de la Tombe Antique, acquises auprès de Miao Yin et sa compagnie, pour atteindre l'avant-dernier étage avant tout le monde.
+C’est pourquoi il s’était précipité à pleine vitesse pour poursuivre Wang Lin dans la quatrième fleur, pendant que le Vieux Fantôme Zhan traquait le Daoïste aux Sept Couleurs pour l'absorber. Il avait mis à profit ses connaissances de la Tombe Antique, acquises auprès de Miaoyin Daozun et sa compagnie, pour atteindre l'avant-dernier étage avant tout le monde.
 
 Il s'attendait à ce que, mis à part Wang Lin, la troisième concubine arrive avant lui. Il n'avait pas prévu que Yun Yifeng soit plus rapide. De toute évidence, Yun Yifeng possédait ses propres méthodes et sa propre chance.
 

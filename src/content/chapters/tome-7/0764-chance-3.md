@@ -10,11 +10,11 @@ L'effondrement de l'espace de stockage l'avait contraint à utiliser la techniqu
 
 Cela avait considérablement réduit son niveau de culture, mais cela n'aurait pas été un problème si ce n'était pour la dernière attaque du vieil homme qui l'avait replongé dans un état de léthargie, l'obligeant à attendre que les gouttes de sang se rassemblent à nouveau. De plus, l'assaut du vieil homme contenait une force puissante qui agissait comme une prison.
 
-Juste au moment où sa fusion atteignait le point critique et qu'il était sur le point de s'éveiller, Wang Lin apparut. L'Ancêtre Sanguin avait essuyé d'innombrables revers; en fin de compte, il n'avait pu que s'enfuir.
+Juste au moment où sa fusion atteignait le point critique et qu'il était sur le point de s'éveiller, Wang Lin apparut. Xue Zu avait essuyé d'innombrables revers; en fin de compte, il n'avait pu que s'enfuir.
 
 À cet instant, il était extrêmement faible et son âme originelle était habitée par une rage monstrueuse!
 
-« Wang Lin, toi et moi ne pouvons pas coexister! » rugit l'Ancêtre Sanguin avant de se précipiter dans le vide. Il avait perdu toute raison. Si quiconque avait traversé de telles épreuves, il aurait également perdu la raison.
+« Wang Lin, toi et moi ne pouvons pas coexister! » rugit Xue Zu avant de se précipiter dans le vide. Il avait perdu toute raison. Si quiconque avait traversé de telles épreuves, il aurait également perdu la raison.
 
 En particulier, la restriction laissée par le mystérieux vieil homme l'avait rendu fou. Il fit immédiatement demi-tour pour poursuivre Wang Lin là où il avait disparu.
 
@@ -32,7 +32,7 @@ Ses cheveux rouges étaient comme du sang et son corps dégageait une aura glaci
 
 Il ouvrit soudainement les yeux. Dans son regard calme résidait une trace d'intention meurtrière terrifiante.
 
-« Ancêtre Sanguin! Tu as forcé mon avatar à sombrer dans le coma. Comment puis-je laisser passer cela?! » C'était le corps original de Wang Lin.
+« Xue Zu! Tu as forcé mon avatar à sombrer dans le coma. Comment puis-je laisser passer cela?! » C'était le corps original de Wang Lin.
 
 Le corps original serra les poings et se leva lentement. Après avoir médité en silence pendant un long moment, il s'élança. Une série de grondements retentit alors que les couches de terre au-dessus de lui volaient en éclats.
 
@@ -68,7 +68,7 @@ C’est seulement à ce moment que Wang Lin acquit la majesté d'un Ancien Dieu!
 
 Ce n'est qu'en révélant sa forme d'Ancien Dieu qu'il pouvait être véritablement appelé ainsi et posséder leur puissance!
 
-« Ancêtre Sanguin... Tu as plongé mon avatar dans le coma, alors je vais détruire ta Planète du Sang! » Ses yeux étaient empreints de cruauté. Lorsqu'il fit un pas, ce fut comme si le système stellaire tout entier tremblait.
+« Xue Zu... Tu as plongé mon avatar dans le coma, alors je vais détruire ta Planète du Sang! » Ses yeux étaient empreints de cruauté. Lorsqu'il fit un pas, ce fut comme si le système stellaire tout entier tremblait.
 
 Il marchait dans l'espace comme s'il foulait le sol et se précipita vers l'horizon.
 

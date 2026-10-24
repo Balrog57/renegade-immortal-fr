@@ -24,7 +24,7 @@ Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été 
 
 « Ce vieil homme est Maître Hong Shan. J'avais conclu un accord avec le Seigneur du Royaume Scellé. Maintenant que vous avez tué cet esclave et sauvé la Mer des Nuages, vous êtes qualifié pour être le Seigneur du Royaume Scellé de cette génération! Cependant, l'invasion du Royaume Extérieur est imminente, et il sera difficile de résister avec nos seules forces, mais nous devons nous battre! Vous avez deux cultivateurs du troisième pas à vos côtés ainsi que votre propre force, mais cela reste insuffisant! »
 
-« Puisque vous êtes le Seigneur du Royaume Scellé de cette génération, êtes-vous prêt à livrer un combat à mort avec moi et l'ensemble du Royaume Intérieur? » Les yeux de Maître Hong Shan brillaient comme des éclairs alors qu'il fixait Wang Lin, dégageant une pression comparable à celle du Maître du Dao Rêve Bleu.
+« Puisque vous êtes le Seigneur du Royaume Scellé de cette génération, êtes-vous prêt à livrer un combat à mort avec moi et l'ensemble du Royaume Intérieur? » Les yeux de Maître Hong Shan brillaient comme des éclairs alors qu'il fixait Wang Lin, dégageant une pression comparable à celle de Lanmeng Daozun.
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
@@ -86,7 +86,7 @@ Plus de dix clans du Système Stellaire Antique reçurent la convocation du Cons
 
 « Ce vieil homme, Maître Dong Dizi, vice-chef du Conseil Souverain, supervisera la première bataille contre le Royaume Intérieur! »
 
-« Ce vieil homme, l'estimable Nan Zhao, supervisera la bataille aux côtés du Maître Dong Dizi! »
+« Ce vieil homme, Nanzhao Shangren, supervisera la bataille aux côtés du Maître Dong Dizi! »
 
 « Le Grand Maître Yun Luo du Conseil Souverain sera le stratège de cette bataille... »
 
@@ -124,7 +124,7 @@ Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette
 
 Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade du Vide Arcane!
 
-À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! L'estimable Nan Zhao! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
+À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! Nanzhao Shangren! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
 
 Près d'eux se trouvait l'ancêtre lugubre du Clan des Moineaux de Feu, fixant la formation avec une soif de sang démente!
 

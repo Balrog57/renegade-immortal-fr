@@ -28,7 +28,7 @@ Le ciel étoilé était d'un calme absolu, sans la moindre perturbation. Le mond
 
 La moitié de l'os de doigt de l'Ancien Dieu reposait dans l'espace de stockage de Wang Lin. Il n'avait nul esprit à l'étudier. Même l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, enveloppée par le Fouet Kunji, était scellée pour l'empêcher de bouger et avait été rangée dans son espace de stockage.
 
-Wang Lin ne voulait rien qui puisse troubler ce voyage. Il voulait accompagner silencieusement Li Qianmei vers le Maître du Dao Rêve Bleu ou, pour être plus exact, lui faire ses derniers adieux...
+Wang Lin ne voulait rien qui puisse troubler ce voyage. Il voulait accompagner silencieusement Li Qianmei vers Lanmeng Daozun ou, pour être plus exact, lui faire ses derniers adieux...
 
 « Quand je partirai... Tu devras m'accompagner... » La voix de Li Qianmei, telle qu'elle était dix ans auparavant, résonna dans les oreilles de Wang Lin.
 
@@ -44,9 +44,9 @@ En utilisant continuellement la Distorsion Spatiale, ils traversèrent l'immensi
 
 Le Clan de la Soie Bleue était l'un des rares clans du Système Stellaire Antique qui n'aimaient pas tuer. Comme leur nom l'indiquait, les cheveux de leurs membres étaient tous d'un bleu profond.
 
-Ce bleu, symbole de douleur et de mélancolie, imprégnait l'âme de chaque membre du clan. Le Clan de la Soie Bleue ne possédait guère de talent pour la culture ou le Dao. À travers les âges, peu de cultivateurs puissants étaient apparus au sein de ce clan, à l'exception du Maître du Dao Rêve Bleu, dont le nom résonnait dans tout le Système Stellaire Antique.
+Ce bleu, symbole de douleur et de mélancolie, imprégnait l'âme de chaque membre du clan. Le Clan de la Soie Bleue ne possédait guère de talent pour la culture ou le Dao. À travers les âges, peu de cultivateurs puissants étaient apparus au sein de ce clan, à l'exception de Lanmeng Daozun, dont le nom résonnait dans tout le Système Stellaire Antique.
 
-Avant que le Maître du Dao Rêve Bleu ne devienne célèbre, le Clan de la Soie Bleue n'était qu'une infime famille. Bien que leurs niveaux de culture fussent modestes, ils excellaient en musique, en alchimie, en raffinage de trésors et dans d'autres arts non conventionnels. Leurs talents musicaux avaient presque atteint le sommet de l'art.
+Avant que Lanmeng Daozun ne devienne célèbre, le Clan de la Soie Bleue n'était qu'une infime famille. Bien que leurs niveaux de culture fussent modestes, ils excellaient en musique, en alchimie, en raffinage de trésors et dans d'autres arts non conventionnels. Leurs talents musicaux avaient presque atteint le sommet de l'art.
 
 Chaque membre du clan était un maître de la musique, et tous étaient d'une grande beauté. Hommes comme femmes possédaient des traits magnifiques.
 
@@ -58,23 +58,23 @@ La joie avait disparu de leur musique; celle-ci était devenue l'unique moyen d'
 
 Ils n'avaient aucune liberté. Chaque membre du clan était emmené avant même d'atteindre l'âge adulte, sans que l'on sache jamais ce qu'il adviendrait de leur vie. Aucun espoir ne leur permettait de revenir chez eux.
 
-Tout cela perdura jusqu'à l'ascension du Maître du Dao Rêve Bleu, qui provoqua un changement radical!
+Tout cela perdura jusqu'à l'ascension de Lanmeng Daozun, qui provoqua un changement radical!
 
-Le Maître du Dao Rêve Bleu était l'être le plus talentueux du Clan de la Soie Bleue. Les légendes à son sujet continuaient de se propager dans tout le Système Stellaire Antique jusqu'à ce jour...
+Lanmeng Daozun était l'être le plus talentueux du Clan de la Soie Bleue. Les légendes à son sujet continuaient de se propager dans tout le Système Stellaire Antique jusqu'à ce jour...
 
-Dans le Système Stellaire Antique, lorsque l'on évoquait le Maître du Dao Rêve Bleu, on ne pensait pas tant à sa puissance qu'à la passion dévorante de son amour. Dans sa vie, il n'avait aimé qu'une seule femme.
+Dans le Système Stellaire Antique, lorsque l'on évoquait Lanmeng Daozun, on ne pensait pas tant à sa puissance qu'à la passion dévorante de son amour. Dans sa vie, il n'avait aimé qu'une seule femme.
 
 C'était cette douleur et ce chagrin qui l'avaient accompagné durant des éternités.
 
-La rumeur voulait que ce soit grâce à cet amour que le Maître du Dao Rêve Bleu avait pu atteindre un tel niveau pour devenir l'un des Cinq Maîtres du Système Stellaire Antique. Même le Souverain le redoutait!
+La rumeur voulait que ce soit grâce à cet amour que Lanmeng Daozun avait pu atteindre un tel niveau pour devenir l'un des Cinq Maîtres du Système Stellaire Antique. Même le Souverain le redoutait!
 
 Le Clan de la Soie Bleue était devenu un grand clan du Système Stellaire Antique grâce à lui, mais la nature profonde de son peuple n'avait pas changé. Ils vivaient paisiblement au sein de leur vaste domaine stellaire, et la tristesse de leur musique avait été progressivement remplacée par la joie.
 
-Ils avaient retrouvé cette joie sous la protection du Maître du Dao Rêve Bleu. Pour le Clan de la Soie Bleue, Rêve Bleu était leur divinité, recevant l'admiration et le respect de tout son peuple.
+Ils avaient retrouvé cette joie sous la protection de Lanmeng Daozun. Pour le Clan de la Soie Bleue, Rêve Bleu était leur divinité, recevant l'admiration et le respect de tout son peuple.
 
 Le Mont Bleu, son lieu de résidence, était devenu une terre sacrée pour le clan! Cependant, malgré cette joie retrouvée, une subtile tristesse émanant du Mont Bleu allait pour toujours subsister.
 
-Tout comme le souvenir du Maître du Dao Rêve Bleu, cette mélancolie était devenue éternelle.
+Tout comme le souvenir de Lanmeng Daozun, cette mélancolie était devenue éternelle.
 
 À cet instant précis, au sommet du Mont Bleu, une demeure très ordinaire oscillait doucement sous la brise. À l'intérieur, un homme d'âge mûr aux cheveux bleus jouait de la cithare. Après un long moment, il leva lentement la tête.
 
@@ -126,7 +126,7 @@ Les pupilles de la femme en blanc se rétractèrent soudainement. Elle agita sa 
 
 « Il devra sortir. » La voix de la femme resta sereine alors qu'elle s'éloignait progressivement dans les profondeurs du vide avant de disparaître.
 
-Après avoir parcouru une distance indéterminée à travers le ciel étoilé, Wang Lin amena Li Qianmei au magnifique foyer du Clan de la Soie Bleue, là où se trouvait le Maître du Dao Rêve Bleu, et là qui était la demeure de Li Qianmei...
+Après avoir parcouru une distance indéterminée à travers le ciel étoilé, Wang Lin amena Li Qianmei au magnifique foyer du Clan de la Soie Bleue, là où se trouvait Lanmeng Daozun, et là qui était la demeure de Li Qianmei...
 
 À mesure que Wang Lin avançait, l'immensité spatiale devenait plus lumineuse. Le domaine stellaire du Clan de la Soie Bleue était magnifique. Même les planètes de culture ressemblaient à de véritables étoiles, émettant une douce lueur bleue qui se propageait au loin.
 

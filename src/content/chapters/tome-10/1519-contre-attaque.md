@@ -12,7 +12,7 @@ slug: contre-attaque
 
 « Forcez le passage dans le Royaume Scellé et pillez tout! »
 
-Le Maître Dong Dizi afficha un regard cruel et s'avança vers la brèche de la formation. L'Estimé Nan Zhao se lécha les lèvres et fit un pas en avant!
+Le Maître Dong Dizi afficha un regard cruel et s'avança vers la brèche de la formation. Nanzhao Shangren se lécha les lèvres et fit un pas en avant!
 
 Il y avait également l'ancêtre du Clan des Moineaux de Feu. Une intention meurtrière étincela dans ses yeux alors qu'il se précipitait en avant!
 
@@ -40,7 +40,7 @@ Alors que la hache descendait, tous les cultivateurs sur son passage poussèrent
 
 Aucun cultivateur ne put résister un seul instant alors que la hache les transperçait. Seuls leurs cris de détresse résonnèrent!
 
-La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Dong Dizi, de l'ancêtre du Clan des Moineaux de Feu et de l'Estimé Nan Zhao changea radicalement, et ils se précipitèrent tous vers la hache sans hésiter!
+La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Dong Dizi, de l'ancêtre du Clan des Moineaux de Feu et de Nanzhao Shangren changea radicalement, et ils se précipitèrent tous vers la hache sans hésiter!
 
 « Entrez plus vite dans le Royaume Intérieur, foncez de toutes vos forces! »
 
@@ -102,7 +102,7 @@ La Grande Maîtresse Yun Luo s'était avancée dans la formation. Lorsqu'elle vi
 
 L'ancêtre du Clan des Moineaux de Feu se retourna soudainement avec une expression féroce. Il ignora carrément la Hache Brise-Ciel et fonça sur Wang Lin!
 
-Il y avait également l'Estimé Nan Zhao. Ses yeux brillèrent alors qu'il affichait un sourire carnassier, chargeant Wang Lin aux côtés de l'ancêtre du Clan des Moineaux de Feu!
+Il y avait également Nanzhao Shangren. Ses yeux brillèrent alors qu'il affichait un sourire carnassier, chargeant Wang Lin aux côtés de l'ancêtre du Clan des Moineaux de Feu!
 
 Simultanément, l'homme chétif piégé par le jade du Seigneur du Royaume Scellé déploya son Sens Divin et entra dans une lutte acharnée contre celui du Seigneur. Des grondements tonitruants résonnèrent, et aucun des deux ne pouvait encore détourner la moindre force!
 
@@ -112,7 +112,7 @@ Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en 
 
 Parmi ces plus de dix tribus se trouvaient 80 000 individus, dont deux cultivateurs du troisième stade. Ces deux derniers chargèrent vers l'ouverture!
 
-L'ancêtre des Moineaux de Feu et l'Estimé Nan Zhao se rapprochèrent. Si Wang Lin n'avait eu affaire qu'à deux personnes du niveau de l'ancêtre du Clan des Moineaux de Feu, il aurait pu les retarder. Cependant, l'Estimé Nan Zhao était au stade du Vide Spirituel!
+L'ancêtre des Moineaux de Feu et Nanzhao Shangren se rapprochèrent. Si Wang Lin n'avait eu affaire qu'à deux personnes du niveau de l'ancêtre du Clan des Moineaux de Feu, il aurait pu les retarder. Cependant, Nanzhao Shangren était au stade du Vide Spirituel!
 
 Lui seul suffisait à tuer Wang Lin! Sans parler du fait qu'il possédait des sorts de poison aussi célèbres que ceux de la Grande Désolation!
 
@@ -120,7 +120,7 @@ L'ancêtre du Clan des Moineaux de Feu, porté par une intention meurtrière, ag
 
 Cet oiseau de feu renfermait d'innombrables Flammes Joss et dégageait une aura d'une chaleur extrême. L'espace lui-même semblait être calciné par lui. L'oiseau se rapprocha instantanément de Wang Lin!
 
-Les yeux de l'Estimé Nan Zhao s'illuminèrent. Sans utiliser de sort, il leva simplement sa main droite. Sa main pâle devint instantanément noire, imprégnée d'un poison inimaginable. Affichant un sourire cruel, il fit un pas en avant et franchit une vaste distance. Il traversa l'oiseau de feu et abattit sa main droite vers Wang Lin!!
+Les yeux de Nanzhao Shangren s'illuminèrent. Sans utiliser de sort, il leva simplement sa main droite. Sa main pâle devint instantanément noire, imprégnée d'un poison inimaginable. Affichant un sourire cruel, il fit un pas en avant et franchit une vaste distance. Il traversa l'oiseau de feu et abattit sa main droite vers Wang Lin!!
 
 Wang Lin se retourna brusquement. Ses pupilles se rétractèrent et il recula rapidement tout en levant la main droite.
 

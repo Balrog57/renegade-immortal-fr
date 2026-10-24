@@ -9,79 +9,79 @@ slug: la-famille-yao-2
 
 Sous cette résistance, le nuage noir alternait sans cesse entre contraction et dispersion, jusqu'à ce que les nuages noirs montrent des signes d'effondrement. Les yeux de Wang Lin devinrent froids et il ouvrit la bouche pour cracher de l'énergie originelle.
 
-Cette énergie originelle pénétra le nuage noir et lui donna soudainement l'impression d'être imprégné d'un pouvoir infini, le faisant se contracter frénétiquement. Cependant, à cet instant, la résistance émanant de l'Ancêtre Sanguin augmentait elle aussi sans fin.
+Cette énergie originelle pénétra le nuage noir et lui donna soudainement l'impression d'être imprégné d'un pouvoir infini, le faisant se contracter frénétiquement. Cependant, à cet instant, la résistance émanant de Xue Zu augmentait elle aussi sans fin.
 
-Des bruits d'explosions résonnèrent de l'intérieur et le nuage noir commença véritablement à s'effondrer. Le rugissement étouffé de l'Ancêtre Sanguin parvint jusqu'à lui, tel un coup de tonnerre dans ses oreilles.
+Des bruits d'explosions résonnèrent de l'intérieur et le nuage noir commença véritablement à s'effondrer. Le rugissement étouffé de Xue Zu parvint jusqu'à lui, tel un coup de tonnerre dans ses oreilles.
 
-Le rugissement de l'Ancêtre Sanguin retentit: « Espèce de gamin, Wang Lin, tu n'es pas digne de sceller ce vieil homme! » Les nuages noirs denses s'effondrèrent à nouveau; ils étaient désormais très fins et sur le point de disparaître.
+Le rugissement de Xue Zu retentit: « Espèce de gamin, Wang Lin, tu n'es pas digne de sceller ce vieil homme! » Les nuages noirs denses s'effondrèrent à nouveau; ils étaient désormais très fins et sur le point de disparaître.
 
 Une fois les nuages noirs dissipés, cela signifierait que le drapeau du milliard d'âmes était détruit!
 
-Wang Lin cria: « Trois âmes primaires, apparaissez! » À l'intérieur du nuage, les trois âmes primaires, incluant le Qilin et la quatrième âme, se condensèrent immédiatement et lancèrent leur attaque contre l'Ancêtre Sanguin.
+Wang Lin cria: « Trois âmes primaires, apparaissez! » À l'intérieur du nuage, les trois âmes primaires, incluant le Qilin et la quatrième âme, se condensèrent immédiatement et lancèrent leur attaque contre Xue Zu.
 
-À travers les nuages, Wang Lin pouvait voir le Qilin se transformer en fumée noire pour envelopper l'Ancêtre Sanguin. La tête du Qilin prit forme au sommet du crâne de l'Ancêtre Sanguin et le mordit sans relâche. La quatrième âme volait sans cesse à l'intérieur et à l'extérieur de l'Ancêtre Sanguin. Chaque fois qu'elle pénétrait dans l'âme originelle de l'Ancêtre Sanguin, elle en ressortait avec une immense quantité d'énergie originelle.
+À travers les nuages, Wang Lin pouvait voir le Qilin se transformer en fumée noire pour envelopper Xue Zu. La tête du Qilin prit forme au sommet du crâne de Xue Zu et le mordit sans relâche. La quatrième âme volait sans cesse à l'intérieur et à l'extérieur de Xue Zu. Chaque fois qu'elle pénétrait dans l'âme originelle de Xue Zu, elle en ressortait avec une immense quantité d'énergie originelle.
 
-Il y avait également cette figure humaine formée par la dernière âme primaire. Elle se transforma en gaz noir qui entoura l'Ancêtre Sanguin, ralentissant ses mouvements.
+Il y avait également cette figure humaine formée par la dernière âme primaire. Elle se transforma en gaz noir qui entoura Xue Zu, ralentissant ses mouvements.
 
-Le visage de l'Ancêtre Sanguin affichait une expression féroce et une lumière rouge jaillit de son corps tandis qu'il récitait un chant complexe. La lueur rouge brilla avec frénésie, remplissant progressivement les nuages noirs jusqu'à ce qu'ils paraissent violets!
+Le visage de Xue Zu affichait une expression féroce et une lumière rouge jaillit de son corps tandis qu'il récitait un chant complexe. La lueur rouge brilla avec frénésie, remplissant progressivement les nuages noirs jusqu'à ce qu'ils paraissent violets!
 
-Un rugissement sortit de la bouche de l'Ancêtre Sanguin: « Effondrement du Dieu du Sang! » La lumière rouge autour de son corps était presque démoniaque et son âme originelle libéra soudainement un pouvoir inimaginable. Le Qilin laissa immédiatement échapper un gémissement misérable et l'impact de cette force le fit se dissiper rapidement. Terrifié, il lâcha prise instantanément et recula.
+Un rugissement sortit de la bouche de Xue Zu: « Effondrement de Xue Shenzi! » La lumière rouge autour de son corps était presque démoniaque et son âme originelle libéra soudainement un pouvoir inimaginable. Le Qilin laissa immédiatement échapper un gémissement misérable et l'impact de cette force le fit se dissiper rapidement. Terrifié, il lâcha prise instantanément et recula.
 
-Les âmes primaires autour de l'Ancêtre Sanguin s'effondrèrent et reculèrent promptement. Même la quatrième âme qui avait pénétré l'âme originelle de l'Ancêtre Sanguin fut capturée par ce dernier. Dans une pression impitoyable, des fissures apparurent sur elle avant qu'elle ne se dissipe en battant en retraite.
+Les âmes primaires autour de Xue Zu s'effondrèrent et reculèrent promptement. Même la quatrième âme qui avait pénétré l'âme originelle de Xue Zu fut capturée par ce dernier. Dans une pression impitoyable, des fissures apparurent sur elle avant qu'elle ne se dissipe en battant en retraite.
 
-« Espèce de gamin, Wang Lin! » Les yeux de l'Ancêtre Sanguin étaient injectés de sang alors que sa main déchirait les nuages noirs devant lui.
+« Espèce de gamin, Wang Lin! » Les yeux de Xue Zu étaient injectés de sang alors que sa main déchirait les nuages noirs devant lui.
 
-Du début à la fin, le regard de Wang Lin resta calme. Alors que l'Ancêtre Sanguin était sur le point de surgir, il ouvrit la bouche et cracha un rayon de lumière jaune. Un grain de sable se trouvait à l'intérieur de cette lumière.
+Du début à la fin, le regard de Wang Lin resta calme. Alors que Xue Zu était sur le point de surgir, il ouvrit la bouche et cracha un rayon de lumière jaune. Un grain de sable se trouvait à l'intérieur de cette lumière.
 
 Dès que le sable apparut, une pression puissante enveloppa immédiatement la zone. En un instant, ce grain de sable grandit jusqu'à atteindre plus de 1 000 pieds de large. C'était comme une montagne, mais cela ressemblait davantage à un sceau!
 
 Cet objet avait utilisé un fragment céleste comme matériau et avait été affiné dans une fournaise formée par les cieux avec la rétribution divine!
 
-Dès son apparition, il s'abattit sur l'Ancêtre Sanguin avec une quantité énorme d'énergie spirituelle céleste!
+Dès son apparition, il s'abattit sur Xue Zu avec une quantité énorme d'énergie spirituelle céleste!
 
-Des craquements retentirent immédiatement à l'intérieur du corps de l'Ancêtre Sanguin et la lumière rouge autour de lui faiblit. L'élan qu'il prenait pour sortir fut brusquement interrompu.
+Des craquements retentirent immédiatement à l'intérieur du corps de Xue Zu et la lumière rouge autour de lui faiblit. L'élan qu'il prenait pour sortir fut brusquement interrompu.
 
-Le sceau formé par le fragment de 1 000 pieds descendit du ciel. L'Ancêtre Sanguin chargea, mais après une série de grondements, il fut écrasé sous l'objet.
+Le sceau formé par le fragment de 1 000 pieds descendit du ciel. Xue Zu chargea, mais après une série de grondements, il fut écrasé sous l'objet.
 
-Lorsque le sceau se retira, l'Ancêtre Sanguin paraissait affaibli, mais il restait féroce et une lumière rouge brillait intensément autour de lui. À cet instant, le Fouet du Karma apparut soudainement et s'abattit sur lui.
+Lorsque le sceau se retira, Xue Zu paraissait affaibli, mais il restait féroce et une lumière rouge brillait intensément autour de lui. À cet instant, le Fouet du Karma apparut soudainement et s'abattit sur lui.
 
-Dans un fracas, l'âme originelle de l'Ancêtre Sanguin devint encore plus instable. Juste au moment où il allait riposter, le sceau s'écrasa à nouveau. L'âme originelle de l'Ancêtre Sanguin était sur le point de s'effondrer.
+Dans un fracas, l'âme originelle de Xue Zu devint encore plus instable. Juste au moment où il allait riposter, le sceau s'écrasa à nouveau. L'âme originelle de Xue Zu était sur le point de s'effondrer.
 
 Il laissa échapper un sourire amer et ses yeux furent remplis de folie. C'est précisément à ce moment que la voix de Wang Lin retentit.
 
-« Ancêtre Sanguin, je ne te tuerai pas et je te donnerai une chance de revoir Yao Xixue! Si tu exploses, tu ne reverras jamais Yao Xixue! » La voix de Wang Lin était glaciale.
+« Xue Zu, je ne te tuerai pas et je te donnerai une chance de revoir Yao Xixue! Si tu exploses, tu ne reverras jamais Yao Xixue! » La voix de Wang Lin était glaciale.
 
-L'Ancêtre Sanguin réfléchit silencieusement et la folie dans ses yeux disparut lentement. Les yeux de Wang Lin s'illuminèrent alors que sa main forma un sceau et qu'il cria: « Rassemblement! »
+Xue Zu réfléchit silencieusement et la folie dans ses yeux disparut lentement. Les yeux de Wang Lin s'illuminèrent alors que sa main forma un sceau et qu'il cria: « Rassemblement! »
 
-Les nuages noirs environnants entourèrent immédiatement l'Ancêtre Sanguin. Le Fouet du Karma apparut également et s'enroula autour de lui. Les trois âmes primaires endommagées réapparurent et commencèrent à dévorer frénétiquement.
+Les nuages noirs environnants entourèrent immédiatement Xue Zu. Le Fouet du Karma apparut également et s'enroula autour de lui. Les trois âmes primaires endommagées réapparurent et commencèrent à dévorer frénétiquement.
 
 Le sceau flottait au-dessus; bien qu'il ne se soit pas abattu à nouveau, la pression demeurait. Cette pression fit contracter les nuages noirs encore plus rapidement. Ils se compressèrent en une sphère presque instantanément avant de redevenir un drapeau de 30 pieds de long dans la main de Wang Lin.
 
 Le drapeau de 100 pieds de large s'étala et subit un changement radical. Auparavant, ce n'était qu'un drapeau noir sans rien dessus, mais désormais une image y figurait.
 
-La silhouette de l'Ancêtre Sanguin était saisissante, avec le Fouet du Karma autour de lui comme un verrou et les trois âmes primaires l'encerclant férocement. L'expression de l'Ancêtre Sanguin révélait son indignation et son amertume.
+La silhouette de Xue Zu était saisissante, avec le Fouet du Karma autour de lui comme un verrou et les trois âmes primaires l'encerclant férocement. L'expression de Xue Zu révélait son indignation et son amertume.
 
 C'est ainsi que l'image sur le drapeau prit forme.
 
-En contemplant le drapeau du milliard d'âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu l'Ancêtre Sanguin; son cœur était empreint de mélancolie.
+En contemplant le drapeau du milliard d'âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu Xue Zu; son cœur était empreint de mélancolie.
 
-Il avait dû lutter avec acharnement pour vaincre l'Ancêtre Sanguin et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent aux yeux de lune. En réalité, elle était même un peu plus périlleuse.
+Il avait dû lutter avec acharnement pour vaincre Xue Zu et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent aux yeux de lune. En réalité, elle était même un peu plus périlleuse.
 
 Après tout, l'intelligence du Serpent aux yeux de lune était très limitée.
 
 « Il n'y a pas de haine profonde entre nous deux. Si seulement tu avais emmené Yao Xixue avec toi, tu n'en serais pas arrivé là... » soupira Wang Lin.
 
-À moins d'un dernier recours ou d'une folie passagère, il n'aurait jamais contraint l'Ancêtre Sanguin de la sorte. Il était impuissant face à cette situation car, pour vivre, il devait résister. Pour continuer d'exister, il devait éliminer l'Ancêtre Sanguin qui avait juré de le détruire.
+À moins d'un dernier recours ou d'une folie passagère, il n'aurait jamais contraint Xue Zu de la sorte. Il était impuissant face à cette situation car, pour vivre, il devait résister. Pour continuer d'exister, il devait éliminer Xue Zu qui avait juré de le détruire.
 
-Yao Xixue était la faiblesse de l'Ancêtre Sanguin. Pour sceller ce dernier, Wang Lin avait dû utiliser cela! Face à la survie, la notion de bassesse n'existe pas!
+Yao Xixue était la faiblesse de Xue Zu. Pour sceller ce dernier, Wang Lin avait dû utiliser cela! Face à la survie, la notion de bassesse n'existe pas!
 
-Wang Lin regarda le drapeau d'âme et dit: « Ancêtre Sanguin, je respecte votre amour paternel. J'ai moi aussi un fils. Si quelqu'un s'en prenait à mon enfant... je pourrais comprendre votre colère... Cependant, m'avez-vous laissé une chance de m'expliquer? Je n'ai pas touché à votre fille une seule fois alors qu'elle était ma captive. Si ce n'était pas parce que votre fille complotait contre moi, pourquoi aurais-je osé provoquer l'Ancêtre Sanguin en connaissant sa puissance? »
+Wang Lin regarda le drapeau d'âme et dit: « Xue Zu, je respecte votre amour paternel. J'ai moi aussi un fils. Si quelqu'un s'en prenait à mon enfant... je pourrais comprendre votre colère... Cependant, m'avez-vous laissé une chance de m'expliquer? Je n'ai pas touché à votre fille une seule fois alors qu'elle était ma captive. Si ce n'était pas parce que votre fille complotait contre moi, pourquoi aurais-je osé provoquer Xue Zu en connaissant sa puissance? »
 
-Il savait que l'Ancêtre Sanguin pouvait entendre!
+Il savait que Xue Zu pouvait entendre!
 
 « Est-il possible que votre fille, Yao Xixue, soit autorisée à comploter contre moi, mais que je ne sois pas autorisé à riposter?! Vous aimez votre fille, alors vous ne distinguez plus le bien du mal et ignorez les causes de vos actes. Bien que ce soit de l'amour, c'est un amour gâté!
 
-« Je vous ai donné une chance, mais le Senior Ancêtre Sanguin n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. Un enfant mal éduqué est la faute du père: je le savais déjà il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
+« Je vous ai donné une chance, mais le Senior Xue Zu n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. Un enfant mal éduqué est la faute du père: je le savais déjà il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si Xue Zu comprenait.
 
 Il avait seulement besoin d'avoir la conscience tranquille, et cela suffisait!
 

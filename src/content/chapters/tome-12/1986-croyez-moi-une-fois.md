@@ -94,7 +94,7 @@ Wang Lin dit lentement: « Je dois d'abord sauver Lian Daofei! »
 
 L'Enseignant Impérial esquissa un sourire amer en regardant Lian Daofei, entravé par les neuf chaînes. Il secoua la tête dans un soupir.
 
-« Compagnon Cultivateur Wang, ce vieil homme ne veut pas vous tromper. Les chaînes sur le corps de Lian Daofei ont été posées par l'Empereur Céleste, je ne peux donc pas les retirer. Même s'il combat le Grand Empyréen Gémeaux, dès qu'elles seront touchées, il le remarquera immédiatement... Je ne peux donc vraiment pas les briser.
+« Compagnon Cultivateur Wang, ce vieil homme ne veut pas vous tromper. Les chaînes sur le corps de Lian Daofei ont été posées par l'Empereur Céleste, je ne peux donc pas les retirer. Même s'il combat le Grand Empyréen Shuangzi, dès qu'elles seront touchées, il le remarquera immédiatement... Je ne peux donc vraiment pas les briser.
 
 « Mais une fois que vous aurez obtenu le pouvoir de l'Ancêtre Céleste, tout sera résolu! Croyez-moi une fois, Compagnon Cultivateur, croyez-moi une seule fois. Je vous le jure sur la vie et l'avenir de tout mon clan!
 

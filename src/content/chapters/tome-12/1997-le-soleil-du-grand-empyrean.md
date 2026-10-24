@@ -8,7 +8,7 @@ slug: le-soleil-du-grand-empyrean
 ---
 Hai Zi réfléchit silencieusement et laissa échapper un soupir. Elle n'attaqua pas et ferma les yeux.
 
-Jiu Di serra les dents face à la décision de Hai Zi, son expression devenant plus sombre encore. Cependant, il ne tenta pas de la convaincre. Il commença à lutter contre Gémeaux!
+Jiu Di serra les dents face à la décision de Hai Zi, son expression devenant plus sombre encore. Cependant, il ne tenta pas de la convaincre. Il commença à lutter contre Shuangzi!
 
 Les grondements tonitruants de leur combat se propagèrent dans toutes les directions. D'autres fracas retentirent alors que Dao Yi se rapprochait de Wang Lin. Ses yeux étaient empreints d'une intention meurtrière — il allait tuer Wang Lin et utiliser son sang frais pour laver son humiliation!
 
@@ -90,13 +90,13 @@ Peu après, les trois essences éthérées surgirent et formèrent un brouillard
 
 « Tu veux t'enfuir?! » Le Wang Lin aux cheveux noirs et son corps véritable des cinq éléments chargèrent Dao Yi!
 
-Au loin, Jiu Di afficha un regard de choc. Alors que son attaque entrait en collision avec Gémeaux, il se retira pour charger vers Wang Lin.
+Au loin, Jiu Di afficha un regard de choc. Alors que son attaque entrait en collision avec Shuangzi, il se retira pour charger vers Wang Lin.
 
-Le visage de Gémeaux était pâle, mais elle serra les dents et lui barra la route une fois de plus!
+Le visage de Shuangzi était pâle, mais elle serra les dents et lui barra la route une fois de plus!
 
-Jiu Di poussa un rugissement furieux: « Gémeaux, ça suffit! L'Empereur Céleste est déjà mort. Vas-tu laisser Dao Yi être détruit par la malédiction ancestrale lui aussi?! »
+Jiu Di poussa un rugissement furieux: « Shuangzi, ça suffit! L'Empereur Céleste est déjà mort. Vas-tu laisser Dao Yi être détruit par la malédiction ancestrale lui aussi?! »
 
-Gémeaux s'arrêta. Après tout, elle appartenait au clan céleste!
+Shuangzi s'arrêta. Après tout, elle appartenait au clan céleste!
 
 Le corps de Dao Yi commençait également à se décomposer. Il présentait désormais un aspect terrifiant. La douleur et la folie embrasaient son regard tandis qu'une flamme invisible entourait son corps. Il poussa un rugissement et frappa le ciel.
 
@@ -110,7 +110,7 @@ Voyant Dao Yi sur le point de s'échapper, les yeux du Wang Lin aux cheveux noir
 
 Les yeux de Dao Yi étaient injectés de folie. Il n'hésita pas à consumer son corps pour s'enfuir et se consacrer à une culture en isolement. Quelle secte, quel clan céleste? Rien de tout cela n'avait d'importance désormais. Il s'élança, son corps devenant un simple flou.
 
-Au même moment, Jiu Di chargea tandis que Gémeaux hésitait. On aurait dit qu'il allait stopper la poursuite de Wang Lin, mais il était en réalité animé d'une intention meurtrière!
+Au même moment, Jiu Di chargea tandis que Shuangzi hésitait. On aurait dit qu'il allait stopper la poursuite de Wang Lin, mais il était en réalité animé d'une intention meurtrière!
 
 Les yeux du Wang Lin aux cheveux noirs brillèrent et il n'hésita pas une seconde. Tandis que Dao Yi s'échappait et que Jiu Di se rapprochait, son corps se transforma en d'innombrables filaments de gaz noir et vola vers le corps véritable des cinq éléments. Ils fusionnèrent pour ne former qu'une silhouette indistincte.
 
@@ -123,7 +123,7 @@ Ses cheveux n'étaient ni totalement noirs, ni totalement blancs, mais mi-noirs,
 
 C'était sa forme la plus puissante après son avatar dans le vide! C'était son apogée, après avoir absorbé une partie de l'héritage de l'Ancêtre Céleste et fusionné ses corps véritables du massacre et des cinq éléments!
 
-Derrière lui apparut la silhouette immense et étrange d'un soleil noir et blanc. Ce soleil était vaporeux, n'étant qu'un contour, mais il fit trembler les cœurs de Hai Zi, Jiu Di, Gémeaux et même du fuyard Dao Yi!
+Derrière lui apparut la silhouette immense et étrange d'un soleil noir et blanc. Ce soleil était vaporeux, n'étant qu'un contour, mais il fit trembler les cœurs de Hai Zi, Jiu Di, Shuangzi et même du fuyard Dao Yi!
 
 « Ceci... ceci est... »
 « Ce n'est pas un sortilège, c'est... le soleil du Grand Empyréen! »

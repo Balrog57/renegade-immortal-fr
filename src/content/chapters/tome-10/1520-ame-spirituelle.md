@@ -29,7 +29,7 @@ Une bravoure et une grandeur indicibles émanaient de son rire. Il contenait l'a
 
 Il y avait aussi Maître Nan Yunzi. Cet homme était très mystérieux, et Wang Lin ne savait que peu de choses à son sujet. Cependant, en cet instant, ses yeux étaient froids et il arriva rapidement aux côtés de Maître Hong Shan!
 
-Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan des Moineaux de Feu, mais de l'Estimé Nan Zhao, qui se trouvait au stade du Vide Spirituel!
+Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan des Moineaux de Feu, mais de Nanzhao Shangren, qui se trouvait au stade du Vide Spirituel!
 
 Les écarts entre les quatre Royaumes du Vide sont immenses. Non seulement un cultivateur du Vide Spirituel peut utiliser davantage de Flammes Joss, mais il peut également utiliser ces flammes pour former sa propre âme!
 
@@ -39,7 +39,7 @@ Le Pouvoir Nirvana, la puissance du nirvana, est infini et engendre ainsi d'inno
 
 Le Vide Spirituel. Ce stade est une évolution de l'âme. Tout cultivateur atteignant ce niveau subit une mutation où son âme fusionne avec son âme originelle. Cette dernière ne peut plus être appelée âme originelle; elle devient une Âme Spirituelle!
 
-De même, le royaume des Flammes Joss fusionne avec leur âme pour ne faire qu'un avec elle! Bien sûr, certains cultivateurs, comme Miao Yin, ne procèdent pas ainsi pour des raisons particulières. C'est grâce à cela que Wang Lin et Grande Désolation avaient eu la grande chance de dérober une partie de ses Flammes Joss!
+De même, le royaume des Flammes Joss fusionne avec leur âme pour ne faire qu'un avec elle! Bien sûr, certains cultivateurs, comme Miaoyin Daozun, ne procèdent pas ainsi pour des raisons particulières. C'est grâce à cela que Wang Lin et Grande Désolation avaient eu la grande chance de dérober une partie de ses Flammes Joss!
 
 Par conséquent, dans le corps des cultivateurs du Vide Spirituel, le Pouvoir Nirvana se transforme en une force spirituelle!
 
@@ -47,9 +47,9 @@ Cette force est très différente de l'énergie spirituelle des cultivateurs du 
 
 En d'autres termes, chaque cultivateur du Vide Spirituel est comme un monde! Ils sont chacun leur propre univers distinct!
 
-Un coup porté par un cultivateur du Vide Spirituel, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de l'Estimé Nan Zhao puisse paraître simple, elle contenait une part de sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
+Un coup porté par un cultivateur du Vide Spirituel, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de Nanzhao Shangren puisse paraître simple, elle contenait une part de sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
 
-À cet instant, l'Estimé Nan Zhao sembla disparaître des yeux de Wang Lin. Tout, y compris la formation et tous les cultivateurs, parut s'évanouir sans laisser de trace!
+À cet instant, Nanzhao Shangren sembla disparaître des yeux de Wang Lin. Tout, y compris la formation et tous les cultivateurs, parut s'évanouir sans laisser de trace!
 
 C'était comme s'il avait été violemment entraîné dans une illusion, un monde qu'il n'avait jamais vu auparavant! L'espace lui-même avait disparu, ne laissant rien derrière lui!
 
@@ -59,17 +59,17 @@ Cent mille, un million, dix millions, cent millions, un milliard, dix milliards!
 
 Ce monde était sans limites, et la multitude de ces êtres en noir était terrifiante!
 
-C'étaient les âmes des Flammes Joss de l'Estimé Nan Zhao, et cet endroit était son Royaume des Flammes Joss!
+C'étaient les âmes des Flammes Joss de Nanzhao Shangren, et cet endroit était son Royaume des Flammes Joss!
 
 L'attaque d'un cultivateur du Vide Spirituel peut entraîner sa cible dans son propre Royaume des Flammes Joss. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que naît la force spirituelle!
 
 Wang Lin était sous le choc. Après tout, il ne connaissait pas grand-chose aux cultivateurs du troisième pas, et encore moins au stade du Vide Spirituel. Même Ling Dong ou Zhou Jin n'en savaient pas beaucoup à ce sujet. À moins de le vivre personnellement, personne ne pouvait l'expliquer!
 
-Wang Lin ressentit même une pointe de mépris envers les cultivateurs du Vide Spirituel dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré le Maître du Dao Rêve Bleu et combattu le Souverain! Il avait même fait équipe avec Grande Désolation!
+Wang Lin ressentit même une pointe de mépris envers les cultivateurs du Vide Spirituel dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré Lanmeng Daozun et combattu le Souverain! Il avait même fait équipe avec Grande Désolation!
 
 Cependant, en cet instant, ce mépris disparut sans laisser de trace. Wang Lin comprit!
 
-Il se trouvait désormais à l'intérieur du Royaume des Flammes Joss de l'Estimé Nan Zhao. Le monde gronda et une paume gigantesque apparut dans le ciel!
+Il se trouvait désormais à l'intérieur du Royaume des Flammes Joss de Nanzhao Shangren. Le monde gronda et une paume gigantesque apparut dans le ciel!
 
 Cette paume était elle aussi noire et dégageait une puanteur insupportable. Tandis que le ciel grondait, la voûte céleste entière se mua en cette paume qui s'abattit sur Wang Lin!
 
@@ -79,11 +79,11 @@ Dire que tout cela n'était qu'une illusion était à la fois vrai et faux!
 
 C'était vrai dans le sens où les cultivateurs du Royaume Extérieur existaient toujours et fonçaient sur eux. Les cultivateurs de la Mer des Nuages également!
 
-Le corps de Wang Lin ne disparut pas; il flottait toujours là. Cependant, l'éclat de ses yeux avait été remplacé par un vide abyssal. Devant lui, l'oiseau de feu noir se rapprochait, tout comme la paume de l'Estimé Nan Zhao.
+Le corps de Wang Lin ne disparut pas; il flottait toujours là. Cependant, l'éclat de ses yeux avait été remplacé par un vide abyssal. Devant lui, l'oiseau de feu noir se rapprochait, tout comme la paume de Nanzhao Shangren.
 
 La paume grandissait sans cesse dans les pupilles vitrées de Wang Lin, jusqu'à ce qu'elle soit sur le point d'occulter sa vue et de frapper entre ses sourcils!
 
-Et c'était faux car tout cela semblait bien trop réel pour lui. Dans le Royaume des Flammes Joss de l'Estimé Nan Zhao, il voyait la paume qui remplissait tout le ciel descendre sur lui!
+Et c'était faux car tout cela semblait bien trop réel pour lui. Dans le Royaume des Flammes Joss de Nanzhao Shangren, il voyait la paume qui remplissait tout le ciel descendre sur lui!
 
 Tout cela se produisit en un instant!
 
@@ -115,8 +115,8 @@ Des grondements de tonnerre résonnèrent et la paume noire trembla. Le corps de
 
 Les yeux vides de Wang Lin retrouvèrent instantanément leur éclat, comme s'il s'était réveillé d'un songe. En réalité, cela n'avait duré qu'un instant. Une fois revenu à lui, son visage pâlit et il cracha du sang en se retirant précipitamment!
 
-La main droite de l'Estimé Nan Zhao trembla alors qu'elle se trouvait à moins de 30 pieds de Wang Lin. À cet instant, le sang jaillit du centre de sa paume, comme s'il avait été blessé par une force invisible. Ses yeux étaient remplis de choc et son corps fut frappé par une puissance colossale. Il ne put plus poursuivre sa course et recula de plusieurs pas, loin de l'oiseau de feu noir!
+La main droite de Nanzhao Shangren trembla alors qu'elle se trouvait à moins de 30 pieds de Wang Lin. À cet instant, le sang jaillit du centre de sa paume, comme s'il avait été blessé par une force invisible. Ses yeux étaient remplis de choc et son corps fut frappé par une puissance colossale. Il ne put plus poursuivre sa course et recula de plusieurs pas, loin de l'oiseau de feu noir!
 
-« Quel corps puissant!!! » L'expression de l'Estimé Nan Zhao était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles à abattre!
+« Quel corps puissant!!! » L'expression de Nanzhao Shangren était sombre. Il comprenait enfin pourquoi ce Wang Lin figurait en tête de la liste des cibles à abattre!
 
 « Il n'a même pas encore atteint le troisième pas, et pourtant il a pu esquiver et riposter contre ma paume. S'il atteint le troisième pas, il sera absolument terrifiant!! Cet enfant ne doit pas être laissé en vie!! »

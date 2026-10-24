@@ -16,7 +16,7 @@ Jiu Di eut un sourire amer en regardant les deux fillettes. Il décida de les ig
 
 « Vieux fou pourri, je me souviens de toi. À l'époque, tu n'as pas pu nous battre! » Les yeux des deux fillettes s'écarquillèrent après avoir entendu ce que le Grand Empyréen Jiu Di venait de dire.
 
-« Gémeaux, après votre réincarnation, votre âme s'est divisée... comment votre personnalité peut-elle être encore ainsi?! Cette personne a passé le 17e palais et nous sommes tous ici; nous allons donc exposer nos conditions une à une pour qu'il puisse décider. Toi... » Jiu Di fronça les sourcils, mais avant qu'il ne puisse terminer sa phrase, les deux fillettes bondirent en avant.
+« Shuangzi, après votre réincarnation, votre âme s'est divisée... comment votre personnalité peut-elle être encore ainsi?! Cette personne a passé le 17e palais et nous sommes tous ici; nous allons donc exposer nos conditions une à une pour qu'il puisse décider. Toi... » Jiu Di fronça les sourcils, mais avant qu'il ne puisse terminer sa phrase, les deux fillettes bondirent en avant.
 
 « Han Han, battons-les! » s'écria avec colère la petite fille nommée Wa Wa. Leurs deux silhouettes semblèrent se superposer dans le ciel et une aura terrifiante éclata.
 
@@ -34,7 +34,7 @@ Le troisième à s'envoler fut le Grand Empyréen Jiu Di. Il fronça les sourcil
 
 « Wang Lin, ce vieil homme attendra ta réponse au Mont de l'Empereur! » Le Grand Empyréen Jiu Di se sentait plutôt impuissant. Sa main droite plongea dans le vide et il disparut avec l'Exalté Empyréen Hai Zi.
 
-Tout cela se produisit en un éclair. Les trois Grands Empyréens avaient été contraints de battre en retraite face à l'action démente de Gémeaux.
+Tout cela se produisit en un éclair. Les trois Grands Empyréens avaient été contraints de battre en retraite face à l'action démente de Shuangzi.
 
 La lumière dorée se dissipa et les deux fillettes flottaient fièrement dans le ciel.
 
@@ -44,13 +44,13 @@ La lumière dorée se dissipa et les deux fillettes flottaient fièrement dans l
 
 Gu Ya s'approcha rapidement et commença à les encenser.
 
-« Le Grand Empyréen Gémeaux a un génie stratégique incomparable. Gu Ya admire, admire, ah! » Il n'avait vraiment rien d'autre à dire. Il comprenait enfin ce que les deux petites ancêtres avaient en tête lorsqu'elles lui avaient dit qu'elles possédaient une méthode, alors qu'il s'inquiétait de recruter Wang Lin.
+« Le Grand Empyréen Shuangzi a un génie stratégique incomparable. Gu Ya admire, admire, ah! » Il n'avait vraiment rien d'autre à dire. Il comprenait enfin ce que les deux petites ancêtres avaient en tête lorsqu'elles lui avaient dit qu'elles possédaient une méthode, alors qu'il s'inquiétait de recruter Wang Lin.
 
 Désormais, il savait que leur "méthode" consistait simplement à faire un caprice pour effrayer tout le monde.
 
 Tout en parlant, Gu Ya regarda Wang Lin avec embarras et joignit les mains.
 
-« Gu Ya salue l'Ascendant Empyréen aux cheveux blancs. Concernant cette affaire... je suis impuissant. Le Senior est très célèbre et vous avez de nombreux choix, mais le Grand Empyréen Gémeaux est pure et aussi innocente qu'un enfant. Si le Senior accepte de la suivre, elles seront certainement généreuses envers vous. »
+« Gu Ya salue l'Ascendant Empyréen aux cheveux blancs. Concernant cette affaire... je suis impuissant. Le Senior est très célèbre et vous avez de nombreux choix, mais le Grand Empyréen Shuangzi est pure et aussi innocente qu'un enfant. Si le Senior accepte de la suivre, elles seront certainement généreuses envers vous. »
 
 « Toutes vos exigences, pour autant qu'elles soient réalisables, seront certainement satisfaites. » Gu Ya s'inclina profondément et resta ainsi.
 
@@ -74,7 +74,7 @@ Wang Lin fut stupéfait.
 
 « Faux, tout est faux... » Le corps de Gu Ya trembla tandis qu'il pensait: *« Ah, petites ancêtres, vous ne pouvez pas lui dire ça! »* Ne se souciant plus de rien d'autre, il envoya rapidement un message de Sens Divin à Wang Lin:
 
-« Ces deux enfants... Ce que le Grand Empyréen Gémeaux appelle son père est leur père mortel après leur réincarnation. Elles ont perdu une partie de leurs souvenirs lors de la réincarnation, et quand elles me l'ont demandé étant petites, j'avais peur qu'elles ne soient tristes, alors j'ai inventé des choses pour les rassurer. Senior, je vous en prie, ne leur en tenez pas rigueur... Hélas. »
+« Ces deux enfants... Ce que le Grand Empyréen Shuangzi appelle son père est leur père mortel après leur réincarnation. Elles ont perdu une partie de leurs souvenirs lors de la réincarnation, et quand elles me l'ont demandé étant petites, j'avais peur qu'elles ne soient tristes, alors j'ai inventé des choses pour les rassurer. Senior, je vous en prie, ne leur en tenez pas rigueur... Hélas. »
 
 « Eh, Petite Gu Ya, quel message de Sens Divin envoies-tu là? Laisse-moi écouter! » Wa Wa regarda soudainement Gu Ya avec intérêt, voulant espionner la communication. Cependant, Gu Ya fut très rapide et resta sur ses gardes.
 
@@ -86,17 +86,17 @@ En particulier... Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda Tan Lan
 
 « J'avais effectivement ignoré un problème auparavant! Même avec le pouvoir du Maître Xuan Luo, il ne pouvait pas extraire des êtres du monde des grottes — il ne pouvait que les protéger pendant leur réincarnation. Même pour moi, le Maître a dû payer un certain prix pour m'aider à partir. »
 
-« Mais le niveau de culture de Tan Lang n'est pas élevé, et pourtant il a été extrait sans effort du monde des grottes par le Grand Empyréen Gémeaux. » Wang Lin prit une profonde inspiration et son regard balaya les deux fillettes devant lui, s'attardant sur Han Han. Son expression fière était très mignonne.
+« Mais le niveau de culture de Tan Lang n'est pas élevé, et pourtant il a été extrait sans effort du monde des grottes par le Grand Empyréen Shuangzi. » Wang Lin prit une profonde inspiration et son regard balaya les deux fillettes devant lui, s'attardant sur Han Han. Son expression fière était très mignonne.
 
-« Même après avoir subi un accident lors de la réincarnation, le Grand Empyréen Gémeaux possède encore une telle puissance. Sans cet accident... elle serait la plus puissante des Grands Empyréens du clan céleste. Je me demande comment elle se comparerait au Grand Empyréen Dong Lin... »
+« Même après avoir subi un accident lors de la réincarnation, le Grand Empyréen Shuangzi possède encore une telle puissance. Sans cet accident... elle serait la plus puissante des Grands Empyréens du clan céleste. Je me demande comment elle se comparerait au Grand Empyréen Dong Lin... »
 
-« Le plus important est que j'ai négligé le fait qu'au sein de la Secte Yang Pourpre du Grand Empyréen Gémeaux, il existe un lieu connecté au monde des grottes... »
+« Le plus important est que j'ai négligé le fait qu'au sein de la Secte Yang Pourpre du Grand Empyréen Shuangzi, il existe un lieu connecté au monde des grottes... »
 
 « Hé, Petit Wang Lin, tu dois répondre! Si tu ne parles pas, je vais vraiment demander à mon père de te frapper! » Han Han regarda Wang Lin avec colère.
 
 Wang Lin sourit de nouveau amèrement et hocha la tête, tandis que Gu Ya se sentait mortifié.
 
-« Très bien, j'accepte de suivre le Grand Empyréen Gémeaux! »
+« Très bien, j'accepte de suivre le Grand Empyréen Shuangzi! »
 
 La réponse de Wang Lin fit immédiatement applaudir Han Han, qui parut encore plus fière.
 
@@ -116,22 +116,22 @@ Bien qu'il soit arrivé tardivement, il imaginait aisément que les propositions
 
 « Senior, vous... » Gu Ya se mit soudain à s'inquiéter, tiraillé entre l'espoir et la crainte.
 
-Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Tan Lang. Puis il se tourna vers Gu Ya et dit: « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyréen Gémeaux très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en culture fermée et j'ignorerai le monde extérieur. »
+Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Tan Lang. Puis il se tourna vers Gu Ya et dit: « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyréen Shuangzi très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en culture fermée et j'ignorerai le monde extérieur. »
 
-« Quand je partirai, vous ne pourrez pas m'en empêcher, et si un Grand Empyréen agit contre moi alors que je serai au Continent Central, vous devrez m'aider. Peut-être ne suivrai-je le Grand Empyréen Gémeaux que pendant quelques années... »
+« Quand je partirai, vous ne pourrez pas m'en empêcher, et si un Grand Empyréen agit contre moi alors que je serai au Continent Central, vous devrez m'aider. Peut-être ne suivrai-je le Grand Empyréen Shuangzi que pendant quelques années... »
 
 « Si vous acceptez cela, alors j'accepte! »
 
 « C'est donc ainsi... » Gu Ya baissa la tête pour réfléchir. Après un long moment, il releva la tête, les yeux empreints de détermination.
 
-« Oui, je peux représenter le Grand Empyréen Gémeaux et vous le promettre! Cependant, j'espère que même si vous entrez en culture fermée, peu importe la durée... » Sans attendre qu'il finisse sa phrase, Wang Lin comprit son intention.
+« Oui, je peux représenter le Grand Empyréen Shuangzi et vous le promettre! Cependant, j'espère que même si vous entrez en culture fermée, peu importe la durée... » Sans attendre qu'il finisse sa phrase, Wang Lin comprit son intention.
 
-« Parmi les cinq Grands Empyréens célestes, je n'en suivrai aucun autre de ma vie. Dans le clan céleste, je ne suivrai que le Grand Empyréen Gémeaux! » Wang Lin fit personnellement cette promesse.
+« Parmi les cinq Grands Empyréens célestes, je n'en suivrai aucun autre de ma vie. Dans le clan céleste, je ne suivrai que le Grand Empyréen Shuangzi! » Wang Lin fit personnellement cette promesse.
 
 « Bien! » Le visage de Gu Ya rayonna d'excitation et il prit une profonde inspiration. À ses yeux, c'était une issue magnifique. Même s'il n'était qu'un disciple de nom, c'était bien mieux que de ne rien obtenir du tout.
 
 Après tout, un être qui était le premier des Ascendants Empyréens, le numéro un sous les Grands Empyréens, serait difficile à retenir en permanence.
 
-« Senior, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de culture fermée que le Grand Empyréen Gémeaux utilisait avant son accident! » Gu Ya joignit les mains avec un immense respect.
+« Senior, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de culture fermée que le Grand Empyréen Shuangzi utilisait avant son accident! » Gu Ya joignit les mains avec un immense respect.
 
 « Allons-y... » Wang Lin regarda en direction de la Secte Dong Lin. C'était comme s'il faisait ses adieux au vieil homme solitaire qui restait là-bas.

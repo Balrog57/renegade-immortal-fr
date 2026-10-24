@@ -8,9 +8,9 @@ slug: briser-la-porte-signifie-atteindre-le-troisieme-echelon
 ---
 À l'extérieur de la planète Suzaku, un vortex apparut aux côtés de la Porte du Vide. Tandis que le vortex tournait, une aura terrifiante se propagea.
 
-Au moment où le Maître Céleste Dieu du Vide se retourna, le jeune homme aux robes vertes trembla; sentant quelque chose, il tourna les yeux vers la source. Zhou Jin fit de même. Même les dizaines de milliers de cultivateurs sur le point de charger la planète Suzaku ressentirent cette aura effroyable.
+Au moment où Xushen Tianzun se retourna, le jeune homme aux robes vertes trembla; sentant quelque chose, il tourna les yeux vers la source. Zhou Jin fit de même. Même les dizaines de milliers de cultivateurs sur le point de charger la planète Suzaku ressentirent cette aura effroyable.
 
-Ils connaissaient cette aura. Le jeune homme aux robes vertes la connaissait. Le Maître Céleste Dieu du Vide la connaissait!
+Ils connaissaient cette aura. Le jeune homme aux robes vertes la connaissait. Xushen Tianzun la connaissait!
 
 Zhou Jin, lui, la connaissait encore mieux, et cela le fit presque perdre la raison!
 
@@ -54,27 +54,27 @@ Cela fit s'effondrer tout son calme.
 
 « Gloire au Seigneur du Royaume Scellé! » Les milliers de cultivateurs sur la planète Suzaku semblaient soudain animés d'une puissance infinie. Ils s'élancèrent avec une aura sans précédent, faisant trembler les étoiles.
 
-Alors que l'apparition de Wang Lin exaltait les cultivateurs du Royaume Intérieur, l'expression du Maître Céleste Dieu du Vide devint extrêmement sombre. Une intention meurtrière jaillit de ses yeux et il fit un pas vers Wang Lin, sous la Porte du Vide.
+Alors que l'apparition de Wang Lin exaltait les cultivateurs du Royaume Intérieur, l'expression de Xushen Tianzun devint extrêmement sombre. Une intention meurtrière jaillit de ses yeux et il fit un pas vers Wang Lin, sous la Porte du Vide.
 
-« Petit enfant, tu n'es pas mort autrefois, mais tu mourras aujourd'hui! Ce vieil homme veut voir comment un jeune junior qui n'a pas encore atteint la troisième étape survivra face à moi. Autrefois, ce vieil homme n'avait pas réussi à prendre ton corps, mais puisque tu viens à moi, je m'en saisirai! » Ce qui s'était passé autrefois était une grande disgrâce pour le Maître Céleste Dieu du Vide, mais cela l'avait aussi profondément effrayé. Il craignait la flèche!
+« Petit enfant, tu n'es pas mort autrefois, mais tu mourras aujourd'hui! Ce vieil homme veut voir comment un jeune junior qui n'a pas encore atteint la troisième étape survivra face à moi. Autrefois, ce vieil homme n'avait pas réussi à prendre ton corps, mais puisque tu viens à moi, je m'en saisirai! » Ce qui s'était passé autrefois était une grande disgrâce pour Xushen Tianzun, mais cela l'avait aussi profondément effrayé. Il craignait la flèche!
 
 Cependant, en tant que l'un des Cinq Maîtres, il ne pouvait pas simplement fuir sans combattre. Tandis qu'il parlait, il accéléra et se rapprocha instantanément de Wang Lin.
 
-L'expression de Wang Lin demeura indifférente. Alors que le Maître Céleste Dieu du Vide approchait, il ferma les yeux avant de les rouvrir soudainement. À cet instant, l'aura d'un grand érudit se propagea de lui. C'était l'aura de celui qui a compris les cieux et ne craint ni les fantômes ni les dieux!
+L'expression de Wang Lin demeura indifférente. Alors que Xushen Tianzun approchait, il ferma les yeux avant de les rouvrir soudainement. À cet instant, l'aura d'un grand érudit se propagea de lui. C'était l'aura de celui qui a compris les cieux et ne craint ni les fantômes ni les dieux!
 
 Même les cieux auraient dû reculer devant une telle aura, et même les spectres auraient dû trembler. Même les lois du monde devenaient vaines devant elle. C'était une force appartenant aux humains, celle d'un grand érudit de l'humanité!
 
 Les cultivateurs étaient aussi des humains. Même s'ils atteignaient la troisième étape, ils restaient humains!
 
-« Recule! » Le regard de Wang Lin se posa sur le Maître Céleste Dieu du Vide. Peu importe la puissance de l'ennemi, aux yeux de Wang Lin, le Maître Céleste n'était rien de plus qu'un mortel, pas différent d'une fourmi, d'un rocher, d'un arbre ou d'une herbe!
+« Recule! » Le regard de Wang Lin se posa sur Xushen Tianzun. Peu importe la puissance de l'ennemi, aux yeux de Wang Lin, le Maître Céleste n'était rien de plus qu'un mortel, pas différent d'une fourmi, d'un rocher, d'un arbre ou d'une herbe!
 
-L'avatar du Maître Céleste Dieu du Vide s'arrêta net, les yeux écarquillés par l'incrédulité. Il ressentait clairement une aura provenant de Wang Lin qui lui donnait l'impression que ce dernier était le monde lui-même. Cette présence le terrifiait. Elle s'engouffra dans son âme, lui infligeant le même choc qu'il avait ressenti lorsqu'il contemplait le ciel alors qu'il n'était qu'un simple mortel.
+L'avatar de Xushen Tianzun s'arrêta net, les yeux écarquillés par l'incrédulité. Il ressentait clairement une aura provenant de Wang Lin qui lui donnait l'impression que ce dernier était le monde lui-même. Cette présence le terrifiait. Elle s'engouffra dans son âme, lui infligeant le même choc qu'il avait ressenti lorsqu'il contemplait le ciel alors qu'il n'était qu'un simple mortel.
 
 Cette aura envahit son âme sans égard pour son niveau de culture ou son statut. Ces mots étaient comme la loi du monde, voire au-dessus de celle-ci. C'était le décret d'un empereur. Il était aussi impuissant qu'un mortel frappé par la foudre.
 
-Le Maître Céleste Dieu du Vide était terrifié. Il n'osait croire ses yeux et ne pouvait même plus contrôler son propre corps tremblant. À cet instant, il n'était pas différent de ce cultivateur de l'Établissement des Fondations issu du rêve de Wang Lin.
+Xushen Tianzun était terrifié. Il n'osait croire ses yeux et ne pouvait même plus contrôler son propre corps tremblant. À cet instant, il n'était pas différent de ce cultivateur de l'Établissement des Fondations issu du rêve de Wang Lin.
 
-« Tu... Toi... » Le Maître Céleste Dieu du Vide recula inconsciemment de plusieurs dizaines de pieds. Ses yeux trahissaient une horreur rarement vue. Les paroles de Wang Lin pouvaient ébranler les cieux et terrasser les dieux!
+« Tu... Toi... » Xushen Tianzun recula inconsciemment de plusieurs dizaines de pieds. Ses yeux trahissaient une horreur rarement vue. Les paroles de Wang Lin pouvaient ébranler les cieux et terrasser les dieux!
 
 Cette scène rendit le visage de Zhou Jin livide, ses yeux emplis de désespoir.
 
@@ -82,7 +82,7 @@ Le jeune homme aux robes vertes fut tout aussi frappé. Il avait initialement vo
 
 Si ces trois-là étaient ainsi affectés, il ne fallait même pas parler des dizaines de milliers de cultivateurs du Royaume Extérieur. Ils reculèrent tous devant les paroles de Wang Lin, le fixant avec une peur infinie.
 
-Wang Lin agita ses manches. Après avoir fait reculer le Maître Céleste Dieu du Vide par un rugissement, sans même le regarder, il leva la main droite vers la Porte du Vide.
+Wang Lin agita ses manches. Après avoir fait reculer Xushen Tianzun par un rugissement, sans même le regarder, il leva la main droite vers la Porte du Vide.
 
 « Tonnerre, feu, karma, vie et mort, vrai et faux, massacre. Six essences portant mon nom, Wang Lin, je vous ordonne de briser la Porte du Vide! » Les paroles de Wang Lin se propagèrent et la Porte du Vide émit une pression infinie.
 

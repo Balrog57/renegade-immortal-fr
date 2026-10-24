@@ -76,7 +76,7 @@ Propre et précis!
 
 Cette scène fit rétrécir les pupilles de l'homme du clan de l'Estimé Loup Céleste. Son esprit trembla et une peur profonde envahit son cœur.
 
-« Il est clairement un cultivateur du Feu Éthéré, mais il ne l'a pas utilisé. Il a attendu ce moment précis pour provoquer mes émotions, puis a profité de l'instant où je supprime le feu pour ôter la vie à la servante du Maître Dao Miao Yin avec cette épée qu'il avait cachée dans les planètes!
+« Il est clairement un cultivateur du Feu Éthéré, mais il ne l'a pas utilisé. Il a attendu ce moment précis pour provoquer mes émotions, puis a profité de l'instant où je supprime le feu pour ôter la vie à la servante de Miaoyin Daozun avec cette épée qu'il avait cachée dans les planètes!
 
 « Quelle ruse terrifiante!!
 

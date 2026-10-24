@@ -104,9 +104,9 @@ Bientôt, Zi Xia arriva de la Rivière Invoquée. Après avoir inspecté les lie
 
 Elle lui en voulait depuis l'instant où il avait refusé de s'allier à elle; l'intention de tuer avait déjà germé dans son cœur à cette époque. Si elle n'avait pas su qu'elle ne pouvait rivaliser avec lui, elle l'aurait attaqué depuis longtemps. En voyant Wang Lin ainsi acculé, elle laissa échapper un ricanement méprisant.
 
-Un instant plus tard, une lueur bleue jaillit et le Maître du Dao Rêve Bleu apparut. Quelque chose avait changé en lui. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan tournèrent immédiatement leur attention vers lui.
+Un instant plus tard, une lueur bleue jaillit et Lanmeng Daozun apparut. Quelque chose avait changé en lui. Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan tournèrent immédiatement leur attention vers lui.
 
-Le Maître du Dao Rêve Bleu restait impassible, ignorant superbement les regards du Daoïste aux Sept Couleurs et du Vieux Fantôme Zhan!
+Lanmeng Daozun restait impassible, ignorant superbement les regards du Daoïste aux Sept Couleurs et du Vieux Fantôme Zhan!
 
 Les derniers à apparaître furent les membres de la planète des Cinq Éléments, menés par le vieil homme nommé Ma. Leur arrivée stupéfia l'assistance. Au moment même où ils se manifestèrent, Wang Lin ouvrit les yeux.
 

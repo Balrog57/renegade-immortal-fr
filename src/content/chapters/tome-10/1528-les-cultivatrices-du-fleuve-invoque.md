@@ -28,7 +28,7 @@ Quant aux cultivateurs du Royaume Extérieur, bien qu'ils fussent plus nombreux,
 
 En conséquence, ce fut une véritable déroute! Le rugissement de Wang Lin fut comme un coup de tonnerre qui brisa les derniers restes de résistance dans le cœur des cultivateurs du Royaume Extérieur!
 
-« L'ancêtre du Clan des Moineaux de Feu est mort! Le cultivateur de la troisième étape Nan Zhao est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le vide!
+« L'ancêtre du Clan des Moineaux de Feu est mort! Le cultivateur de la troisième étape Nanzhao Shangren est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le vide!
 
 Le Maître Nan Yunzi combattait la concubine impériale céleste quand, à cet instant, la jeune femme de la Rivière Invoquée, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
 
@@ -54,7 +54,7 @@ Les cultivateurs du Royaume Extérieur étaient repoussés sans relâche! Près 
 
 Lorsqu'ils étaient arrivés, ils débordaient d'assurance. À leurs yeux, les cultivateurs du Royaume Intérieur n'étaient que des fourmis. Ils étaient venus pour tuer et piller, convaincus que le Royaume Intérieur ne pourrait opposer aucune résistance sérieuse. En vérité, après leur entrée, le massacre des cultivateurs de la Mer des Nuages n'avait fait qu'alimenter leur arrogance. Mais ils s'étaient trompés. Désormais, tous savaient qu'ils avaient sous-estimé la puissance que pouvait libérer un peuple lorsqu'il défendait sa patrie!
 
-La mort de l'ancêtre du Clan des Moineaux de Feu avait ébranlé leur foi! Le cri déchirant de l'Estimé Nan Zhao avait brisé leur courage! Enfin, la mort du Grand Maître Yun Luo avait achevé de détruire leur assurance, transformant leur orgueil en une terreur monstrueuse!
+La mort de l'ancêtre du Clan des Moineaux de Feu avait ébranlé leur foi! Le cri déchirant de Nanzhao Shangren avait brisé leur courage! Enfin, la mort du Grand Maître Yun Luo avait achevé de détruire leur assurance, transformant leur orgueil en une terreur monstrueuse!
 
 « Cette guerre... nous l'avons perdue... » Les cultivateurs du Royaume Extérieur s'enfuirent dans la panique, fuyant frénétiquement. Ils voulaient désespérément quitter le Royaume Intérieur. Pour eux, les défenseurs étaient des déments qui ne se souciaient ni de leur vie ni de leur mort, cherchant seulement à en emporter un de plus avec eux!
 

@@ -1,6 +1,6 @@
 ---
 n: 1623
-title: Le Maître Céleste Dieu du Vide
+title: Xushen Tianzun
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1623 - Heaven Master Void God
@@ -22,21 +22,21 @@ Son cœur tremblait de réticence alors qu'il battait en retraite. Il songeait q
 
 « Ce vieillard possède la culture du Vide Arcane, ce vieillard n'acceptera pas cela!! » rugit-il intérieurement, sans toutefois rien laisser paraître tandis qu'il s'échappait rapidement.
 
-Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, puis il se tourna vers le Maître Céleste Dieu du Vide, qui était ralenti par le sort d'Arrêt et débordant d'intentions meurtrières.
+Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, puis il se tourna vers Xushen Tianzun, qui était ralenti par le sort d'Arrêt et débordant d'intentions meurtrières.
 
-« Réglons ce qui s'est passé autrefois. » Le regard de Wang Lin était glacial, bien qu'il restât serein. Il fixa le Maître Céleste Dieu du Vide et s'avança vers lui.
+« Réglons ce qui s'est passé autrefois. » Le regard de Wang Lin était glacial, bien qu'il restât serein. Il fixa Xushen Tianzun et s'avança vers lui.
 
-« Dao du Vide des Myriades de Nuages Rouges! » Le Maître Céleste Dieu du Vide laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables âmes de flammes jaillirent, grimaçantes, soulevant une multitude de nuages rouges incandescents. Dix mille statues gigantesques et floues émergèrent de ces nuages.
+« Dao du Vide des Myriades de Nuages Rouges! » Xushen Tianzun laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables âmes de flammes jaillirent, grimaçantes, soulevant une multitude de nuages rouges incandescents. Dix mille statues gigantesques et floues émergèrent de ces nuages.
 
-« Écrasez cet homme! Plongez-le dans la réincarnation du monde! Laissez-le tomber dans l'abîme parmi les étoiles afin que son âme ne puisse jamais s'en échapper d'un pouce! » rugit le Maître Céleste Dieu du Vide en pointant le doigt. Les statues s'illuminèrent et s'abattirent sur Wang Lin, comme pour l'ensevelir sous la voûte étoilée.
+« Écrasez cet homme! Plongez-le dans la réincarnation du monde! Laissez-le tomber dans l'abîme parmi les étoiles afin que son âme ne puisse jamais s'en échapper d'un pouce! » rugit Xushen Tianzun en pointant le doigt. Les statues s'illuminèrent et s'abattirent sur Wang Lin, comme pour l'ensevelir sous la voûte étoilée.
 
 À cet instant, un vortex gigantesque apparut sous les pieds de Wang Lin. Ce vortex, issu d'un sort, laissait jaillir d'innombrables fantômes qui poussaient des cris lugubres en étendant leurs corps pour encercler Wang Lin, tentant de l'aspirer dans les profondeurs.
 
 Au même moment, le vortex laissé par l'effondrement de la Porte du Vide était toujours là. De loin, la scène était terrifiante: Wang Lin se trouvait pris entre deux vortex, tandis que dix mille statues incandescentes convergeaient vers lui.
 
-Il semblait que Wang Lin était totalement pris au piège dans les sorts du Maître Céleste Dieu du Vide.
+Il semblait que Wang Lin était totalement pris au piège dans les sorts de Xushen Tianzun.
 
-« Meurs! » Le Maître Céleste Dieu du Vide afficha une expression féroce et leva la main droite. Une brume violette se rassembla pour former une lance qu'il projeta violemment vers Wang Lin.
+« Meurs! » Xushen Tianzun afficha une expression féroce et leva la main droite. Une brume violette se rassembla pour former une lance qu'il projeta violemment vers Wang Lin.
 
 Dans un fracas de tonnerre, la lance, enveloppée d'une brume infinie, fonça sur l'homme piégé.
 
@@ -46,68 +46,68 @@ Wang Lin resta imperturbable. Alors que les dix mille statues s'abattaient sur l
 
 Cependant, au moment de l'impact, elles traversèrent son corps comme s'il était une illusion, ou peut-être étaient-ce les statues elles-mêmes qui étaient devenues immatérielles. Les grondements tonitruants continuèrent de résonner derrière Wang Lin, alors que les statues devenaient transparentes en approchant de lui.
 
-Les pupilles du Maître Céleste Dieu du Vide se rétractèrent de stupeur.
+Les pupilles de Xushen Tianzun se rétractèrent de stupeur.
 
-Bien que ses pas ne semblassent pas rapides, Wang Lin atteignit instantanément le Maître Céleste Dieu du Vide. Il leva la main droite et, sans même se soucier du sortilège adverse, il frappa de toute sa force.
+Bien que ses pas ne semblassent pas rapides, Wang Lin atteignit instantanément Xushen Tianzun. Il leva la main droite et, sans même se soucier du sortilège adverse, il frappa de toute sa force.
 
 « Sceau de la Vie et de la Mort! »
 
-Sa main gauche représentait la vie, sa main droite la mort. La paume de Wang Lin s'abattit, entourée d'un gaz noir. Bien que son coup ne touche que le vide, l'expression du Maître Céleste Dieu du Vide changea radicalement.
+Sa main gauche représentait la vie, sa main droite la mort. La paume de Wang Lin s'abattit, entourée d'un gaz noir. Bien que son coup ne touche que le vide, l'expression de Xushen Tianzun changea radicalement.
 
 Il sentit clairement que la paume de Wang Lin charriait l'aura de la mort. Lors de l'impact, une absence totale de vie sembla envahir le domaine stellaire environnant, comme si cette zone était devenue un domaine de mort. Dès lors, d'innombrables fissures apparurent dans l'espace et s'effondrèrent, libérant une aura de mort infinie.
 
-Le corps du Maître Céleste Dieu du Vide fut projeté en arrière de plusieurs dizaines de pieds dans un fracas assourdissant. Alors qu'il relevait la tête, Wang Lin le pointa du doigt.
+Le corps de Xushen Tianzun fut projeté en arrière de plusieurs dizaines de pieds dans un fracas assourdissant. Alors qu'il relevait la tête, Wang Lin le pointa du doigt.
 
 « Arrêt! »
 
-Le corps du Maître Céleste Dieu du Vide ralentit à nouveau. Il rugit, tentant de briser le sort d'Arrêt pour s'extirper de cet état de stagnation semblable à un bourbier.
+Le corps de Xushen Tianzun ralentit à nouveau. Il rugit, tentant de briser le sort d'Arrêt pour s'extirper de cet état de stagnation semblable à un bourbier.
 
-Mais Wang Lin ne lui laisserait pas une telle chance. En un instant, il se retrouva devant lui et pointa son index entre les sourcils du Maître Céleste Dieu du Vide.
+Mais Wang Lin ne lui laisserait pas une telle chance. En un instant, il se retrouva devant lui et pointa son index entre les sourcils de Xushen Tianzun.
 
 « Tonnerre! »
 
 L'index droit de Wang Lin sembla se muer en un tonnerre éternel. Ce tonnerre destructeur portait la puissance de tous les éclairs des Royaumes Intérieur et Extérieur, une force capable d'annihiler des cultivateurs du troisième niveau.
 
-Bien que le Maître Céleste Dieu du Vide fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser!
+Bien que Xushen Tianzun fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser!
 
-D'une seule pression, le corps du Maître Céleste Dieu du Vide trembla. Une lueur argentée jaillit entre ses sourcils; des dizaines de milliers de filaments argentés se déployèrent et s'étendirent sur tout son être dans un fracas de tonnerre. Du sang s'échappa du coin de sa bouche alors qu'il était repoussé.
+D'une seule pression, le corps de Xushen Tianzun trembla. Une lueur argentée jaillit entre ses sourcils; des dizaines de milliers de filaments argentés se déployèrent et s'étendirent sur tout son être dans un fracas de tonnerre. Du sang s'échappa du coin de sa bouche alors qu'il était repoussé.
 
 Alors qu'il reculait, Wang Lin avança de nouveau. Son pouce droit s'étira pour frapper une fois encore entre les sourcils de son adversaire.
 
 « Feu! »
 
-Dans un grondement assourdissant, un feu destructeur se répandit entre ses sourcils, sous le voile de ces filaments argentés. Les flammes dévorèrent son corps, s'engouffrèrent dans son esprit et consumèrent son âme. La douleur de voir son corps brûler de l'intérieur comme de l'extérieur fit se crisper le visage du Maître Céleste Dieu du Vide, qui cracha une large gorgée de sang.
+Dans un grondement assourdissant, un feu destructeur se répandit entre ses sourcils, sous le voile de ces filaments argentés. Les flammes dévorèrent son corps, s'engouffrèrent dans son esprit et consumèrent son âme. La douleur de voir son corps brûler de l'intérieur comme de l'extérieur fit se crisper le visage de Xushen Tianzun, qui cracha une large gorgée de sang.
 
-Pourtant, ce n'était pas fini. Une lueur meurtrière brilla dans les yeux de Wang Lin. Il leva la main droite en forme de paume, puis l'écrasa sur le front du Maître Céleste Dieu du Vide avant de refermer ses doigts pour former un poing.
+Pourtant, ce n'était pas fini. Une lueur meurtrière brilla dans les yeux de Wang Lin. Il leva la main droite en forme de paume, puis l'écrasa sur le front de Xushen Tianzun avant de refermer ses doigts pour former un poing.
 
 « Karma! »
 
 Une essence fut arrachée par Wang Lin!
 
-Ces attaques incessantes ne laissèrent aucune chance de résistance au Maître Céleste Dieu du Vide. Grâce au sort d'Arrêt, Wang Lin agissait comme la volonté même des cieux!
+Ces attaques incessantes ne laissèrent aucune chance de résistance à Xushen Tianzun. Grâce au sort d'Arrêt, Wang Lin agissait comme la volonté même des cieux!
 
-« Vie et Mort. » Wang Lin leva les deux mains. Sa main gauche, représentant la vie, pressa la poitrine du Maître Céleste Dieu du Vide. Le corps vieilli de ce dernier irradia soudainement de jeunesse et redevint jeune. Cependant, au moment où la main droite de Wang Lin retomba, cette jeunesse s'effondra. La vie et la mort entrèrent en collision brutale à l'intérieur du corps du Maître Céleste Dieu du Vide, comme pour le déchirer de l'intérieur.
+« Vie et Mort. » Wang Lin leva les deux mains. Sa main gauche, représentant la vie, pressa la poitrine de Xushen Tianzun. Le corps vieilli de ce dernier irradia soudainement de jeunesse et redevint jeune. Cependant, au moment où la main droite de Wang Lin retomba, cette jeunesse s'effondra. La vie et la mort entrèrent en collision brutale à l'intérieur du corps de Xushen Tianzun, comme pour le déchirer de l'intérieur.
 
-Le Maître Céleste Dieu du Vide saigna par tous ses orifices, son expression devenant plus féroce encore. En tant que l'un des Cinq Maîtres du Système Stellaire Antique, sa dignité l'empêchait de céder. Dans un rugissement, son corps trembla et il parvint à briser le sort d'Arrêt. Dès que celui-ci fut rompu, sa pleine puissance de culture éclata.
+Xushen Tianzun saigna par tous ses orifices, son expression devenant plus féroce encore. En tant que l'un des Cinq Maîtres du Système Stellaire Antique, sa dignité l'empêchait de céder. Dans un rugissement, son corps trembla et il parvint à briser le sort d'Arrêt. Dès que celui-ci fut rompu, sa pleine puissance de culture éclata.
 
-Pourtant, Wang Lin resta calme. À l'instant même où le Maître Céleste Dieu du Vide se libérait, Wang Lin pointa son index droit.
+Pourtant, Wang Lin resta calme. À l'instant même où Xushen Tianzun se libérait, Wang Lin pointa son index droit.
 
 « Arrêt! »
 
-« Non!! » Le corps du Maître Céleste Dieu du Vide trembla et le désespoir envahit ses yeux!
+« Non!! » Le corps de Xushen Tianzun trembla et le désespoir envahit ses yeux!
 
 « Vrai et Faux. » Wang Lin ferma les yeux et tout dans ce monde devint faux. Puis il les rouvrit, et tout redevint vrai. Cependant, lorsqu'il referma de nouveau les yeux, sa main droite frappa avec violence.
 
 « Massacre! »
 
-La paume de Wang Lin agissait comme une lame, dégageant une lueur rouge sanglant. Elle percuta directement la tête du Maître Céleste Dieu du Vide et la fendit sans aucune pitié.
+La paume de Wang Lin agissait comme une lame, dégageant une lueur rouge sanglant. Elle percuta directement la tête de Xushen Tianzun et la fendit sans aucune pitié.
 
-Un craquement assourdissant retentit, suivi d'un cri déchirant. Le corps du Maître Céleste Dieu du Vide fut tranché en deux. Ses deux moitiés se transformèrent en une brume violette qui s'éparpilla vers la gauche et la droite.
+Un craquement assourdissant retentit, suivi d'un cri déchirant. Le corps de Xushen Tianzun fut tranché en deux. Ses deux moitiés se transformèrent en une brume violette qui s'éparpilla vers la gauche et la droite.
 
-Pourtant, bien que les yeux de Wang Lin fussent clos, il sentait clairement que fendre cette brume était aussi aisé que de déchirer un tissu. Au moment où la brume se sépara, le corps originel de l'avatar du Maître Céleste Dieu du Vide fut libéré!
+Pourtant, bien que les yeux de Wang Lin fussent clos, il sentait clairement que fendre cette brume était aussi aisé que de déchirer un tissu. Au moment où la brume se sépara, le corps originel de l'avatar de Xushen Tianzun fut libéré!
 
 C'était un nuage d'énergie invisible. Cette énergie était extrêmement difficile à détecter; Wang Lin ne pouvait la percevoir qu'en utilisant son Dao du Vrai et du Faux.
 
-Cette énergie invisible constituait le cœur même de l'avatar du Maître Céleste Dieu du Vide! Cet avatar n'était, en réalité, qu'un souffle exhalé par lui. Le Maître Céleste était nommé « Dieu du Vide » car son corps était semblable au néant. On pouvait dire que sa forme n'était pas réelle, mais n'était qu'une masse d'énergie!
+Cette énergie invisible constituait le cœur même de l'avatar de Xushen Tianzun! Cet avatar n'était, en réalité, qu'un souffle exhalé par lui. Le Maître Céleste était nommé « Dieu du Vide » car son corps était semblable au néant. On pouvait dire que sa forme n'était pas réelle, mais n'était qu'une masse d'énergie!
 
-À cet instant, le nuage d'énergie invisible que seul Wang Lin pouvait voir tenta de s'échapper furtivement. Le Maître Céleste Dieu du Vide n'avait peut-être pas le niveau de culture le plus élevé parmi les Cinq Maîtres, mais il était sans nul doute le plus difficile à tuer!
+À cet instant, le nuage d'énergie invisible que seul Wang Lin pouvait voir tenta de s'échapper furtivement. Xushen Tianzun n'avait peut-être pas le niveau de culture le plus élevé parmi les Cinq Maîtres, mais il était sans nul doute le plus difficile à tuer!

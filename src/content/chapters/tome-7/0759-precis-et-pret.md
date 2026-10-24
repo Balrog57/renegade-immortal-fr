@@ -38,11 +38,11 @@ Li Yuan n'avait pas fait de grandes découvertes durant ce mois, alors il finit 
 
 Wang Lin fut très stupéfait par cela, mais en considérant la nature des restrictions de Li Yuan, il sembla comprendre.
 
-Au cours de ce mois, Li Yuan avait placé des restrictions sur tous les points d'effondrement qu'il avait calculés à l'intérieur de l'espace de stockage. Il semblait même plus investi que Wang Lin dans le projet de comploter contre l'Ancêtre Sanguin.
+Au cours de ce mois, Li Yuan avait placé des restrictions sur tous les points d'effondrement qu'il avait calculés à l'intérieur de l'espace de stockage. Il semblait même plus investi que Wang Lin dans le projet de comploter contre Xue Zu.
 
 Chaque fois qu'il pensait à la manière dont ses restrictions pourraient aider à tuer un dieu, la respiration de Li Yuan s'accélérait. Bien qu'il fût extrêmement vigilant, il possédait une faiblesse flagrante: sa confiance aveugle dans les restrictions de sa propre famille.
 
-De plus, il avait réfléchi aux conséquences si l'Ancêtre Sanguin ne mourait pas, et prit ainsi sa décision. Il n'apporterait qu'une aide secrète sans participer directement. Une fois ses arrangements terminés, il décida de se séparer de Wang Lin. Après tout, cette affaire était trop vaste, même s'il avait une dette envers lui.
+De plus, il avait réfléchi aux conséquences si Xue Zu ne mourait pas, et prit ainsi sa décision. Il n'apporterait qu'une aide secrète sans participer directement. Une fois ses arrangements terminés, il décida de se séparer de Wang Lin. Après tout, cette affaire était trop vaste, même s'il avait une dette envers lui.
 
 En vérité, l'aide secrète représentait déjà sa limite; il lui était déjà très difficile d'apporter le moindre soutien à ce stade.
 
@@ -52,9 +52,9 @@ Ce jour-là, Li Yuan retourna au temple, l'expression grave. Il regarda Wang Lin
 
 Wang Lin saisit la sphère et l'examina avec son Sens Divin. Après s'être assuré qu'il n'y avait aucun problème, il joignit les mains et dit: « Merci infiniment! »
 
-Le visage de Li Yuan s'assombrit et il dit avec hésitation: « Frère Xu, en réalité, j'ai un moyen si vous ne souhaitez pas être retrouvé par l'Ancêtre Sanguin. Il vous suffira de vous cacher dans une grotte et de n'en sortir... que lorsque cet Ancêtre Sanguin aura oublié sa haine... »
+Le visage de Li Yuan s'assombrit et il dit avec hésitation: « Frère Xu, en réalité, j'ai un moyen si vous ne souhaitez pas être retrouvé par Xue Zu. Il vous suffira de vous cacher dans une grotte et de n'en sortir... que lorsque Xue Zu aura oublié sa haine... »
 
-Wang Lin sourit calmement: « Je me souviendrai de la bonté du frère Li. S'il n'y a aucun moyen de lutter contre l'Ancêtre Sanguin, alors je serai peut-être vraiment obligé de vous solliciter. »
+Wang Lin sourit calmement: « Je me souviendrai de la bonté du frère Li. S'il n'y a aucun moyen de lutter contre Xue Zu, alors je serai peut-être vraiment obligé de vous solliciter. »
 
 Li Yuan réfléchit en silence, puis, après un long moment, il sortit un jade. Il le tendit à Wang Lin et dit: « Frère Xu, ceci est un enregistrement des Restrictions d'Annihilation de la famille Li. Bien que je ne puisse pas vous donner une parcelle du cœur de la restriction sans être au temple ancestral, son étude devrait vous aider. Il contient même plusieurs méthodes pour dissimuler votre aura! »
 
@@ -66,16 +66,16 @@ Li Yuan soupira tandis que ses mains formaient un sceau; un réseau de transfert
 
 « Frère Xu, prenez soin de vous! » Le soupir de Li Yuan résonna alors que sa silhouette disparaissait dans les éclats du réseau de transfert.
 
-Wang Lin leva la tête, le regard glacial. Il murmura pour lui-même: « Ancêtre Sanguin... Yao Xixue... Même si vous possédez tous deux des Pilules d'Âme Sanguine, je vais tenter ce pari une fois pour toutes, pour voir si vous pouvez ressusciter totalement sous la puissance capable de tout détruire dans un espace en plein effondrement! »
+Wang Lin leva la tête, le regard glacial. Il murmura pour lui-même: « Xue Zu... Yao Xixue... Même si vous possédez tous deux des Pilules d'Âme Sanguine, je vais tenter ce pari une fois pour toutes, pour voir si vous pouvez ressusciter totalement sous la puissance capable de tout détruire dans un espace en plein effondrement! »
 
 Wang Lin avait sur lui un sac de stockage appartenant à Yao Xixue, mais il ne pouvait pas l'ouvrir. Il ne pouvait que poser des restrictions dessus pour empêcher son aura de se propager trop loin.
 
 En plus de ce sac, Wang Lin possédait initialement une véritable Pilule d'Âme Sanguine, mais elle avait été consommée lors de son combat contre le démon dispersé. Il savait qu'il existait au moins une autre pilule, mais il ne pouvait ouvrir ce sac.
 
-« Il est impossible pour quiconque de posséder autant de ces pilules défiant le ciel, même l'Ancêtre Sanguin. Après tant d'années de consommation, je crains qu'en avoir une ou deux soit déjà la limite pour lui. »
+« Il est impossible pour quiconque de posséder autant de ces pilules défiant le ciel, même Xue Zu. Après tant d'années de consommation, je crains qu'en avoir une ou deux soit déjà la limite pour lui. »
 
 Tout en ricanant, Wang Lin sortit la sphère de restriction contenant Yao Xixue. N'ayant plus aucun intérêt à poser de questions, il lança la sphère. Elle s'élança immédiatement pour s'enfouir profondément dans la montagne lointaine.
 
 Une fois cela fait, Wang Lin fit un pas et entra dans le réseau de transfert. Dans un éclat de lumière, il disparut.
 
-« Ancêtre Sanguin... Puisque vous refusez de me laisser partir, alors je ferai comme Li Yuan: j'essaierai de tuer un dieu! »
+« Xue Zu... Puisque vous refusez de me laisser partir, alors je ferai comme Li Yuan: j'essaierai de tuer un dieu! »

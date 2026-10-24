@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1473 - The Power of A Roar !!"
 slug: la-puissance-dun-rugissement
 ---
-Dans la neuvième carte, l'avatar de Maître Démon des Neuf Cieux se déplaçait également à toute allure à travers le tombeau, sur sa plateforme funéraire. Bien que Wang Lin ait fait le premier pas, il n'était pas inquiet, car son corps originel se trouvait déjà dans le tombeau.
+Dans la neuvième carte, l'avatar de Jiutian Mozun se déplaçait également à toute allure à travers le tombeau, sur sa plateforme funéraire. Bien que Wang Lin ait fait le premier pas, il n'était pas inquiet, car son corps originel se trouvait déjà dans le tombeau.
 
-« Voler! Même si tu voles tout, tu ne pourras pas quitter ce tombeau antique vivant! » Un éclair de froideur traversa les yeux de Maître Démon des Neuf Cieux. Cependant, à cet instant, le vide devant lui se mit à rouler dans un grondement et les turbulences autour de lui se dissipèrent.
+« Voler! Même si tu voles tout, tu ne pourras pas quitter ce tombeau antique vivant! » Un éclair de froideur traversa les yeux de Jiutian Mozun. Cependant, à cet instant, le vide devant lui se mit à rouler dans un grondement et les turbulences autour de lui se dissipèrent.
 
 En un éclair, un puissant Sens Divin balaya son corps avant de s'étendre au loin.
 
@@ -18,7 +18,7 @@ Terrifié, il s'immobilisa en plein vol. Ses yeux étaient empreints de choc!
 
 À cet instant, son cuir chevelu devint engourdi et il manqua de perdre la raison. Il n'avait ressenti une telle sensation qu'une seule fois, avant d'atteindre le troisième niveau de culture!
 
-« Qui est-ce?! De quel Sens Divin s'agit-il?! » Maître Démon des Neuf Cieux fixa le vide devant lui. Pour la première fois, la peur s'installa dans son cœur.
+« Qui est-ce?! De quel Sens Divin s'agit-il?! » Jiutian Mozun fixa le vide devant lui. Pour la première fois, la peur s'installa dans son cœur.
 
 Ni lui ni la femme en rose n'étaient les seuls dans cet état. Tous les cultivateurs survivants dans le tombeau ressentirent ce balayage monstrueux de Sens Divin.
 
@@ -38,13 +38,13 @@ Cependant, au moment où sa main droite toucha l'onde, il ressentit une force co
 
 « Qui êtes-vous, Votre Excellence?! »
 
-Nul ne lui répondit, et le Sens Divin continua sa progression. Elle traversa la septième carte, la sixième, la cinquième... Dans la quatrième carte, le corps originel de Maître Démon des Neuf Cieux et Miao Yin avançaient calmement. Ils franchissaient des distances incommensurables en un seul pas.
+Nul ne lui répondit, et le Sens Divin continua sa progression. Elle traversa la septième carte, la sixième, la cinquième... Dans la quatrième carte, le corps originel de Jiutian Mozun et Miaoyin Daozun avançaient calmement. Ils franchissaient des distances incommensurables en un seul pas.
 
-Soudain, l'expression de Maître Démon des Neuf Cieux changea.
+Soudain, l'expression de Jiutian Mozun changea.
 
 « L'avatar de ce vieil homme a trouvé... » Avant d'avoir pu terminer sa phrase, il s'arrêta brusquement. Le Sens Divin que son avatar percevait venait de les balayer.
 
-Les pupilles de Miao Yin se rétractèrent. Il sentit inopinément son esprit affecté par cette présence, ce qui le choqua profondément. Il tourna un regard vers Maître Démon des Neuf Cieux.
+Les pupilles de Miaoyin Daozun se rétractèrent. Il sentit inopinément son esprit affecté par cette présence, ce qui le choqua profondément. Il tourna un regard vers Jiutian Mozun.
 
 Le visage de ce dernier était sombre, ses yeux trahissant une immense stupeur.
 
@@ -62,15 +62,15 @@ Après un long moment, le Sens Divin quitta lentement son corps pour continuer s
 
 La femme en blanc ne se détendit qu'une fois l'onde disparue, le visage légèrement empourpré. Après un instant, elle regarda dans la direction du passage avec un regard complexe.
 
-Wang Lin était assis dans le palais, et son Sens Divin se propageait hors de son contrôle. Il voyait tous les cultivateurs du Système Stellaire Antique à l'intérieur du tombeau antique. Il vit la femme charmante et l'avatar de Maître Démon des Neuf Cieux!
+Wang Lin était assis dans le palais, et son Sens Divin se propageait hors de son contrôle. Il voyait tous les cultivateurs du Système Stellaire Antique à l'intérieur du tombeau antique. Il vit la femme charmante et l'avatar de Jiutian Mozun!
 
-À mesure que son Sens Divin s'étendait, il aperçut Grande Désolation, le corps originel de Maître Démon des Neuf Cieux, Miao Yin, et enfin la femme en blanc!
+À mesure que son Sens Divin s'étendait, il aperçut Grande Désolation, le corps originel de Jiutian Mozun, Miaoyin Daozun, et enfin la femme en blanc!
 
 Poussant encore plus loin, son Sens Divin atteignit la faille spatiale menant au Système Stellaire Antique.
 
 Le Sens Divin de Wang Lin finit par stagner près de cette faille. À ce moment-là, du fait de sa fusion avec le tombeau antique, Wang Lin percevait des choses qu'il ne pouvait voir avec son niveau de culture actuel.
 
-Une existence que même des êtres comme le Maître Dao Miao Yin ne pouvaient contempler!
+Une existence que même des êtres comme Miaoyin Daozun ne pouvaient contempler!
 
 Cette faille spatiale était maintenue ouverte par un grand sortilège, l'empêchant de se refermer... De l'autre côté, dans le Système Stellaire Antique, l'immense empreinte de paume ne s'était toujours pas dissipée. La silhouette en robe noire sous cette empreinte flottait toujours près de la faille.
 
@@ -130,11 +130,11 @@ Des tempêtes obscurcirent le ciel; Tuo Sen cracha du sang et fut projeté en ar
 
 Le corps d'un Dieu Ancien Royal à 8 étoiles venait de s'effondrer!
 
-Le rugissement sortit de la bouche de Wang Lin et fit trembler tout le tombeau antique. L'avatar de Maître Démon des Neuf Cieux s'écroula sans pouvoir opposer la moindre résistance. La quatrième Concubine Impériale Céleste cracha du sang. Elle agita sa main pour déployer la soie qui lui avait permis d'échapper au danger précédent, une étoffe offerte par l'Ancien Souverain Céleste!
+Le rugissement sortit de la bouche de Wang Lin et fit trembler tout le tombeau antique. L'avatar de Jiutian Mozun s'écroula sans pouvoir opposer la moindre résistance. La quatrième Concubine Impériale Céleste cracha du sang. Elle agita sa main pour déployer la soie qui lui avait permis d'échapper au danger précédent, une étoffe offerte par l'Ancien Souverain Céleste!
 
 La soie se déchira! La femme charmante poussa un cri déchirant alors que son corps s'effondrait et que son Âme Originelle s'envolait. Elle utilisa une méthode inconnue pour survivre de justesse, après que son Âme Originelle eut subi plusieurs effondrements.
 
-Grande Désolation, Maître Démon des Neuf Cieux et Miao Yin crachèrent tous du sang tandis que leurs corps s'effondraient. Même les cultivateurs du Vide Arcanique n'étaient pas de taille pour résister à un tel rugissement!
+Grande Désolation, Jiutian Mozun et Miaoyin Daozun crachèrent tous du sang tandis que leurs corps s'effondraient. Même les cultivateurs du Vide Arcanique n'étaient pas de taille pour résister à un tel rugissement!
 
 Cependant, en tant que cultivateurs du Vide Arcanique, ils possédaient tous des sorts de survie. Après avoir survécu à cette onde de choc, ils sortirent tous des corps physiques de rechange qu'ils avaient raffinés. Leurs yeux étaient empreints d'une terreur monstrueuse et ils n'osaient plus avancer. Sans hésiter, ils entreprirent de fuir ce tombeau antique!
 

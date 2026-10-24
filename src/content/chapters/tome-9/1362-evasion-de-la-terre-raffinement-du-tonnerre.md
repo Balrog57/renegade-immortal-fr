@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1362 - Earth Escape, Thunder Refining
 slug: evasion-de-la-terre-raffinement-du-tonnerre
 ---
-« Le signe prédit par l'Ancienne Concubine Céleste est apparu! » L'expression du Maître du Dao Rêve Bleu était sombre alors qu'il levait les yeux vers le vide. Son regard semblait capable de percer l'abîme.
+« Le signe prédit par l'Ancienne Concubine Céleste est apparu! » L'expression de Lanmeng Daozun était sombre alors qu'il levait les yeux vers le vide. Son regard semblait capable de percer l'abîme.
 
-À cet instant, non seulement le Maître du Dao Rêve Bleu, mais l'expression de presque tous les cultivateurs du troisième niveau changea. Ils levèrent les yeux vers le ciel avec des visages extrêmement sombres.
+À cet instant, non seulement Lanmeng Daozun, mais l'expression de presque tous les cultivateurs du troisième niveau changea. Ils levèrent les yeux vers le ciel avec des visages extrêmement sombres.
 
 Une partie du Royaume Céleste Antique existait au sein du Système Stellaire Antique, bien que peu de personnes le sachent. À l'intérieur se trouvaient quelques femmes qui, sorties de leur retraite, ouvrirent les yeux pour regarder vers le haut!
 
@@ -128,7 +128,7 @@ Alors qu'il s'apprêtait à s'éloigner, un individu surgit de la distance aprè
 
 Wang Lin s'arrêta et se retourna, le regard froid.
 
-Son regard croisa celui du cultivateur. Ce dernier tremblait, les dents serrées, et s'exclama rapidement: « Maître, je... je suis Zhong Grand Rouge. "Zhong" comme dans "Petit Zhong". "Rouge" comme dans "Petit Rouge"... Je suis Zhong Grand Rouge, Maître! Un jour de maître est un maître pour la vie! Maître, ne m'abandonnez pas. Je suis prêt à vous servir le reste de mes jours sans jamais vous trahir! »
+Son regard croisa celui du cultivateur. Ce dernier tremblait, les dents serrées, et s'exclama rapidement: « Maître, je... je suis Zhong Grand Rouge. "Zhong" comme dans "Petit Zhong". "Rouge" comme dans "Xiao Hong"... Je suis Zhong Grand Rouge, Maître! Un jour de maître est un maître pour la vie! Maître, ne m'abandonnez pas. Je suis prêt à vous servir le reste de mes jours sans jamais vous trahir! »
 
 L'expression de Wang Lin resta glaciale lorsqu'il demanda lentement: « Tu veux me suivre? »
 

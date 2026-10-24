@@ -14,7 +14,7 @@ En voyant apparaître Shengong Hu et sa compagnie, Wang Lin hésita. Cependant, 
 
 « Frère Xu... je crains que nous ne puissions pas partir... »
 
-Wang Lin réfléchissait silencieusement. Cet homme aux cheveux blancs était trop puissant. Il l'avait secrètement comparé à l'Ancêtre Sanguin, et à en juger par le niveau de culture de cet individu, il était encore plus fort que l'Ancêtre Sanguin.
+Wang Lin réfléchissait silencieusement. Cet homme aux cheveux blancs était trop puissant. Il l'avait secrètement comparé à Xue Zu, et à en juger par le niveau de culture de cet individu, il était encore plus fort que Xue Zu.
 
 Mais ce n'était pas là le point crucial. Chaque fois que l'homme aux cheveux blancs dévorait un cultivateur, sa culture augmentait. Wang Lin était incapable de calculer jusqu'à quel niveau de culture cette personne pourrait atteindre.
 
@@ -32,7 +32,7 @@ Les yeux de Li Yuan s'illuminèrent d'une lueur de détermination et il dit: « 
 
 Wang Lin acquiesça. Il avait fait la connaissance de Li Yuan dans le Royaume Céleste du Tonnerre et ils avaient traversé beaucoup d'épreuves ensemble. Bien qu'ils ne fussent pas de meilleurs amis, ils avaient partagé maintes tribulations.
 
-S'il n'y avait pas eu Li Yuan, Wang Lin était convaincu qu'il serait mort lors de la poursuite de l'Ancêtre Sanguin. À cet égard, Li Yuan lui avait sauvé la vie.
+S'il n'y avait pas eu Li Yuan, Wang Lin était convaincu qu'il serait mort lors de la poursuite de Xue Zu. À cet égard, Li Yuan lui avait sauvé la vie.
 
 Après une profonde inspiration, Wang Lin recula lentement et ouvrit son cœur. En se remémorant le sentiment de fusion avec le monde, des ondulations apparaissaient à chacun de ses pas.
 

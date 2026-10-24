@@ -46,7 +46,7 @@ Wang Lin ignora l'étincelle de défi dans leurs regards et se tourna vers le fo
 
 À cet instant, le fou avait déjà oublié sa volonté de chercher querelle à Wang Lin. Au lieu de cela, il regardait Xu Liguo comme s'il était sur le point de pleurer.
 
-« Petit Rouge... Petit Rouge, toi... Que racontes-tu, hein? Ne suis-je pas ton maître? Comment se fait-il qu'il soit ton maître? Est-ce moi ton maître ou est-ce lui? Qui est ton maître... » Le fou devint extrêmement anxieux et agrippa Xu Liguo.
+« Xiao Hong... Xiao Hong, toi... Que racontes-tu, hein? Ne suis-je pas ton maître? Comment se fait-il qu'il soit ton maître? Est-ce moi ton maître ou est-ce lui? Qui est ton maître... » Le fou devint extrêmement anxieux et agrippa Xu Liguo.
 
 Xu Liguo se souvint simplement que cet individu l'avait accompagné et tourna les yeux vers le fou. Maintenant que ses souvenirs étaient revenus, son regard envers lui était différent de celui d'autrefois; il ressemblait à celui qu'il avait eu lorsqu'il s'était associé à Liu Jinbiao pour voler le sang du fou.
 
@@ -56,7 +56,7 @@ Xu Liguo se souvint simplement que cet individu l'avait accompagné et tourna le
 
 Le visage du fou se remplit de tristesse et ses yeux devinrent instantanément rouges. Il commença à hurler contre Wang Lin.
 
-« C'est toi! Tu as blessé le grand-père de Petite Fleur et maintenant tu as volé Petit Rouge! Petit Rouge, ah, Petit Rouge, ah, Petit Rouge, ah... » Le fou se précipita pour tenter d'étrangler Wang Lin.
+« C'est toi! Tu as blessé le grand-père de Petite Fleur et maintenant tu as volé Xiao Hong! Xiao Hong, ah, Xiao Hong, ah, Xiao Hong, ah... » Le fou se précipita pour tenter d'étrangler Wang Lin.
 
 Wang Lin regarda le fou s'agiter devant lui avec une expression complexe et poussa un soupir.
 
@@ -70,7 +70,7 @@ Xu Liguo et Liu Jinbiao le suivirent rapidement, ignorant totalement le fou tout
 
 Tandis que les trois s'éloignaient, le fou resta à la porte de la cité, observant les silhouettes distantes tout en continuant de marmonner.
 
-« Petit Rouge... Petit Rouge... Pourquoi pars-tu ainsi... Bon sang, comment oses-tu voler le Petit Rouge de ce roi! Je vais le dire à mon grand frère, non, je vais le dire à mon maître! »
+« Xiao Hong... Xiao Hong... Pourquoi pars-tu ainsi... Bon sang, comment oses-tu voler le Xiao Hong de ce roi! Je vais le dire à mon grand frère, non, je vais le dire à mon maître! »
 
 « Hmph, hmph, mon maître est très puissant. Il... Il... » Le fou fut soudainement saisi d'une frayeur en regardant la silhouette blanche qui s'éloignait.
 

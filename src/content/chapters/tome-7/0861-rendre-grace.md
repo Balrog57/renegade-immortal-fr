@@ -118,7 +118,7 @@ L'Ancien nommé Tang s'arrêta net. Après une courte réflexion, il lança un r
 
 Le vieil homme aux robes violettes du Temple Céleste du Tonnerre observa Wang Lin. Ses yeux brillèrent et il demanda calmement: « Vous convoitez la première place parmi les 108 places du Domaine Sud? »
 
-Wang Lin regarda l'Ancien. Grâce à son niveau de culture actuel, il percevait vaguement de puissantes fluctuations d'énergie originelle émanant de lui. Wang Lin ne parvenait pas à percer le niveau de cet homme, mais comparé à l'Ancêtre Sanguin, il était bien plus faible. Si cet Ancien n'était pas au stade Purificateur du Nirvana, il se situait au moins au stade avancé du Scruteur du Nirvana.
+Wang Lin regarda l'Ancien. Grâce à son niveau de culture actuel, il percevait vaguement de puissantes fluctuations d'énergie originelle émanant de lui. Wang Lin ne parvenait pas à percer le niveau de cet homme, mais comparé à Xue Zu, il était bien plus faible. Si cet Ancien n'était pas au stade Purificateur du Nirvana, il se situait au moins au stade avancé du Scruteur du Nirvana.
 
 « Oui! » répondit Wang Lin d'un ton calme. Sa voix était décisive et empreinte d'une intention de combat.
 

@@ -42,29 +42,29 @@ Ou plus précisément, il s'agissait de nombres!
 
 Quiconque portait un nombre sur le front était aspiré dans la faille centrale par une force irrésistible. C'était l'entrée de la Tombe de l'Ordre Ancien!
 
-L'avatar du Maître Dao Miao Yin, ce magnifique jeune homme, battait en retraite rapidement. Son expression était sombre. Bien qu'il se fût retiré sur des dizaines de millions de kilomètres, il refusait de partir.
+L'avatar de Miaoyin Daozun, ce magnifique jeune homme, battait en retraite rapidement. Son expression était sombre. Bien qu'il se fût retiré sur des dizaines de millions de kilomètres, il refusait de partir.
 
 « La Tombe de l'Ordre Ancien... c'est bien elle! Les rumeurs disent que cette tombe n'a été ouverte qu'une seule fois depuis l'aube des temps! Quiconque parviendra à y entrer obtiendra des fortunes inimaginables! »
 
 « Qu'il s'agisse de trésors, de sorts, de pilules ou même de méthodes permettant aux cultivateurs de la troisième étape d'atteindre le royaume de la Tribulation du Vide! »
 
-L'expression du Maître Dao Miao Yin était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume de la Flamme Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
+L'expression de Miaoyin Daozun était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume de la Flamme Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
 
 Il était encerclé par ces âmes; de prime abord, on voyait qu'il s'agissait de magnifiques hommes et femmes. Ils étaient plus de 10 milliards!
 
-« Chargez! » Le visage du Maître Dao Miao Yin se crispa. Il cessa sa retraite et chargea dans la brume. Dès qu'il la toucha, les 10 milliards d'âmes de Flamme Joss poussèrent des cris de détresse.
+« Chargez! » Le visage de Miaoyin Daozun se crispa. Il cessa sa retraite et chargea dans la brume. Dès qu'il la toucha, les 10 milliards d'âmes de Flamme Joss poussèrent des cris de détresse.
 
-Une puissance inimaginable émanait de l'intérieur du brouillard; une force à laquelle nul ne pouvait résister. Alors que cette puissance s'abattait sur le Maître Dao Miao Yin, 40 % des âmes de Flamme Joss furent anéanties!
+Une puissance inimaginable émanait de l'intérieur du brouillard; une force à laquelle nul ne pouvait résister. Alors que cette puissance s'abattait sur Miaoyin Daozun, 40 % des âmes de Flamme Joss furent anéanties!
 
-Le visage du Maître Dao Miao Yin devint livide. À cet instant, il n'avait fait que trois pas en avant!
+Le visage de Miaoyin Daozun devint livide. À cet instant, il n'avait fait que trois pas en avant!
 
 Il serra les dents, poussa un rugissement et fit un autre pas. Sa main traça un sceau et un sort de Dao enveloppa son corps! Cependant, au moment où il fit son quatrième pas, le brouillard s'engouffra directement en lui. Les 60 % d'âmes de Flamme Joss restants furent... détruits en un instant!
 
-Le Maître Dao Miao Yin cracha un flot de sang et battit en retraite précipitamment.
+Miaoyin Daozun cracha un flot de sang et battit en retraite précipitamment.
 
 « Je ne peux pas entrer par la force! Dois-je prendre le risque?! » Tout en reculant, il fut confronté à un dilemme déchirant.
 
-« Même si je dois sacrifier un avatar, je dois tenter ma chance! » Le visage magnifique du Maître Dao Miao Yin se déforma. Il s'arrêta et n'utilisa aucun sort lorsqu'il percuta le brouillard.
+« Même si je dois sacrifier un avatar, je dois tenter ma chance! » Le visage magnifique de Miaoyin Daozun se déforma. Il s'arrêta et n'utilisa aucun sort lorsqu'il percuta le brouillard.
 
 Son corps fut secoué par la brume et trembla violemment. Cet avatar était au milieu de la phase de l'Esprit Vide, mais à mesure que le brouillard pénétrait en lui, son niveau de culture chutait rapidement!
 

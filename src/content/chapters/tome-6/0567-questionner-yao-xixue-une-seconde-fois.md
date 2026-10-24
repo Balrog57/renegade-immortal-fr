@@ -22,9 +22,9 @@ Wang Lin la regarda et reprit doucement: « Ma patience a ses limites; je ne vou
 
 « N'avez-vous pas peur que mon père ne vous traque jusqu'à la mort?! » s'exclama Yao Xixue en serrant les poings.
 
-Wang Lin esquissa un mince sourire et hocha la tête. « J'ai peur, oui! La culture de l'Ancêtre Sanguin est bien au-dessus de la mienne. Si je suis traqué par lui, j'ai bien peur que ma faible culture ne me permette même pas de m'enfuir. »
+Wang Lin esquissa un mince sourire et hocha la tête. « J'ai peur, oui! La culture de Xue Zu est bien au-dessus de la mienne. Si je suis traqué par lui, j'ai bien peur que ma faible culture ne me permette même pas de m'enfuir. »
 
-« Cependant, j'ai été poussé dans cette situation. Si vous n'aviez pas comploté contre moi, je n'aurais pas eu à comploter contre vous. Tout est une question de cause et d'effet. Si je vous laisse partir, j'offenserai tout de même l'Ancêtre Sanguin; mais si je vous garde à mes côtés, j'aurai peut-être une chance de survivre! »
+« Cependant, j'ai été poussé dans cette situation. Si vous n'aviez pas comploté contre moi, je n'aurais pas eu à comploter contre vous. Tout est une question de cause et d'effet. Si je vous laisse partir, j'offenserai tout de même Xue Zu; mais si je vous garde à mes côtés, j'aurai peut-être une chance de survivre! »
 
 Yao Xixue répliqua précipitamment: « Si vous me laissez partir, je jure de ne jamais rien dire à mon père et notre querelle sera effacée! »
 
@@ -70,7 +70,7 @@ Les restrictions de Wang Lin instaurèrent impitoyablement un cycle sur ses poin
 
 Une fois cela accompli, Wang Lin pointa la jeune femme du doigt et les restrictions qui s'étaient déployées se refermèrent instantanément. Elles reprirent leur forme sphérique, que Wang Lin rangea aussitôt dans son sac de rangement!
 
-« La fille de l'Ancêtre Sanguin est un problème. Le seul moyen de la gérer est de trouver un lieu secret pour la sceller. Cependant, je dois d'abord lui soutirer tous ses secrets! Si ma culture atteint le stade Ascendant, je pourrai simplement utiliser le sort de recherche d'âme. Mais si je l'utilise maintenant, la moindre erreur pourrait la tuer et me causer bien des ennuis par la suite! »
+« La fille de Xue Zu est un problème. Le seul moyen de la gérer est de trouver un lieu secret pour la sceller. Cependant, je dois d'abord lui soutirer tous ses secrets! Si ma culture atteint le stade Ascendant, je pourrai simplement utiliser le sort de recherche d'âme. Mais si je l'utilise maintenant, la moindre erreur pourrait la tuer et me causer bien des ennuis par la suite! »
 
 Le temps passa et plus de deux mois s'écoulèrent rapidement. Il ne restait que quelques jours avant l'échéance de sa promesse envers le général démon. Ce jour-là, Wang Lin sortit de la vallée, suivi d'Ouyang Hua.
 

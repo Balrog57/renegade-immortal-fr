@@ -56,7 +56,7 @@ Ces restrictions disparurent instantanément en touchant la surface. Wang Lin ne
 
 Deux heures plus tard, son visage était blême. D'un pas, il atteignit la surface de la planète. Elle n'était que ruines, la terre était craquelée et les mers s'étaient évaporées.
 
-Une fois au sol, Wang Lin frappa son sac de stockage et le drapeau de l'âme apparut. D'un revers de main, le drapeau se transforma en une brume noire qui enveloppa la planète. À l'intérieur de cette brume se trouvait l'Ancêtre Sanguin, les yeux clos. D'innombrables sceaux l'entouraient, ainsi que les âmes sans nombre contenues dans le drapeau.
+Une fois au sol, Wang Lin frappa son sac de stockage et le drapeau de l'âme apparut. D'un revers de main, le drapeau se transforma en une brume noire qui enveloppa la planète. À l'intérieur de cette brume se trouvait Xue Zu, les yeux clos. D'innombrables sceaux l'entouraient, ainsi que les âmes sans nombre contenues dans le drapeau.
 
 Sans hésiter, Wang Lin saisit une âme d'origine Yin Illusoire. Après l'avoir écrasée, sa main gauche traça une restriction.
 
@@ -70,7 +70,7 @@ Cette formation ne nécessitait pas de cœur de restriction, mais une quantité 
 
 Le visage de Wang Lin était légèrement pâle, mais il poursuivit sans relâche la collecte des âmes d'origine. Il ne disposait pas de beaucoup d'âmes Illusoires Yin, la plupart ayant été dévorées par lui-même. Il décida donc d'utiliser des âmes d'origine Ascendantes à la place. Il continua de leur appliquer des restrictions avant de les projeter dans la planète.
 
-Plusieurs heures passèrent et le visage de Wang Lin était devenu encore plus pâle. Ses yeux brillèrent alors qu'il fixait l'âme d'origine de l'Ancêtre Sanguin. Après une courte hésitation, son regard se fit résolu. Il saisit l'âme d'origine de l'Ancêtre Sanguin et plaça une restriction entre ses sourcils. Cependant, il ne la projeta pas dans la planète, la laissant au sein de la brume noire.
+Plusieurs heures passèrent et le visage de Wang Lin était devenu encore plus pâle. Ses yeux brillèrent alors qu'il fixait l'âme d'origine de Xue Zu. Après une courte hésitation, son regard se fit résolu. Il saisit l'âme d'origine de Xue Zu et plaça une restriction entre ses sourcils. Cependant, il ne la projeta pas dans la planète, la laissant au sein de la brume noire.
 
 Après une profonde inspiration, Wang Lin plongea directement dans les entrailles de la planète. Il rétracta toute son aura pour n'en laisser filtrer aucune, utilisant même la restriction que Li Yuan lui avait enseignée pour se dissimuler.
 
@@ -142,15 +142,15 @@ Toutefois, de nombreux cultivateurs Yin Illusoire et Corporel Yang figuraient pa
 
 Sous la direction de Yao Bingyun, chaque fois qu'elle attaquait, une grande partie de la force destructrice de la formation s'effondrait. C'était comme si la tempête qui se contractait et dévorait tout ne pouvait plus rien engloutir; au contraire, elle était repoussée vers l'extérieur par la riposte des cultivateurs.
 
-Pendant un temps, des grondements tonitruants emplirent la zone. À ce moment-là, une brume noire se propagea silencieusement et des cris lugubres s'en échappèrent. L'âme d'origine de l'Ancêtre Sanguin commença à se condenser lentement en son sein.
+Pendant un temps, des grondements tonitruants emplirent la zone. À ce moment-là, une brume noire se propagea silencieusement et des cris lugubres s'en échappèrent. L'âme d'origine de Xue Zu commença à se condenser lentement en son sein.
 
-Au moment où l'âme de l'Ancêtre Sanguin se condensa, une voix extrêmement froide ordonna: « Explose! »
+Au moment où l'âme de Xue Zu se condensa, une voix extrêmement froide ordonna: « Explose! »
 
-Cette voix émanait du seul fragment qui ne s'était pas encore effondré. Dès que cette voix retentit, l'âme d'origine de l'Ancêtre Sanguin émit un puissant éclat couleur sang avant de se briser. Une onde de choc se propagea frénétiquement après la chute de l'âme.
+Cette voix émanait du seul fragment qui ne s'était pas encore effondré. Dès que cette voix retentit, l'âme d'origine de Xue Zu émit un puissant éclat couleur sang avant de se briser. Une onde de choc se propagea frénétiquement après la chute de l'âme.
 
 Chaque cultivateur touché par cette onde fut instantanément tué, à moins que sa culture ne soit extrêmement puissante.
 
-Les yeux d'un cultivateur Yin Illusoire issu d'une famille du Domaine Nord furent remplis de terreur. Il était extrêmement proche de l'Ancêtre Sanguin et, dès que celui-ci s'effondra, l'onde le frappa de plein fouet. Il laissa échapper un gémissement misérable avant que son corps ne s'écroule. Même son âme d'origine ne put s'échapper et se dissipa.
+Les yeux d'un cultivateur Yin Illusoire issu d'une famille du Domaine Nord furent remplis de terreur. Il était extrêmement proche de Xue Zu et, dès que celui-ci s'effondra, l'onde le frappa de plein fouet. Il laissa échapper un gémissement misérable avant que son corps ne s'écroule. Même son âme d'origine ne put s'échapper et se dissipa.
 
 Un autre cultivateur du Domaine Sud tentait de s'échapper, mais son corps se raidit instantanément lorsque l'onde le toucha. Il explosa aussitôt en une brume de sang.
 
@@ -168,7 +168,7 @@ Le corps de Wang Lin trembla et il fut projeté à trois cent trente mètres de 
 
 « Il n'est pas mort! » Yao Bingyun fut stupéfaite et ses yeux brillèrent d'intensité. Elle s'élança à nouveau pour le poursuivre.
 
-L'effondrement de l'âme d'origine de l'Ancêtre Sanguin avait causé la mort d'un grand nombre de poursuivants. Personne ne s'attendait à ce que Xu Mu possède un tel atout!
+L'effondrement de l'âme d'origine de Xue Zu avait causé la mort d'un grand nombre de poursuivants. Personne ne s'attendait à ce que Xu Mu possède un tel atout!
 
 Plusieurs membres de la famille Yao se trouvaient dans ce rayon de 33 kilomètres. Incapables de s'échapper, ils périrent dans l'explosion.
 

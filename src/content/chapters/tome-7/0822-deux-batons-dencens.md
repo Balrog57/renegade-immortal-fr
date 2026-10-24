@@ -46,9 +46,9 @@ Tenant les deux jades, l'expression de Wang Lin devint sombre. Il scruta l'horiz
 
 « Yao... En tête des quatre grandes familles. Pour quelle raison me traquent-ils? » Wang Lin réfléchissait silencieusement.
 
-Il nourrissait de nombreux griefs contre les quatre grandes familles, particulièrement la famille Yao. Non seulement il y avait eu l'affaire de l'Ancêtre Sanguin, mais aussi l'incident avec le jeune maître de la famille Yao, sans oublier l'affaire du Pavillon des Collections.
+Il nourrissait de nombreux griefs contre les quatre grandes familles, particulièrement la famille Yao. Non seulement il y avait eu l'affaire de Xue Zu, mais aussi l'incident avec le jeune maître de la famille Yao, sans oublier l'affaire du Pavillon des Collections.
 
-« Ce ne devrait pas être l'Ancêtre Sanguin... Il connaît mon vrai nom; si cela venait de lui, le nom sur l'Ordre Céleste ne serait pas "Xu Mu", mais "Wang Lin". »
+« Ce ne devrait pas être Xue Zu... Il connaît mon vrai nom; si cela venait de lui, le nom sur l'Ordre Céleste ne serait pas "Xu Mu", mais "Wang Lin". »
 
 « Cependant, il est possible que puisque mon vrai nom n'a jamais été utilisé et que le nom de Xu Mu est bien plus connu, la famille Yao ait décidé d'utiliser Xu Mu pour l'Ordre Céleste! »
 
@@ -60,7 +60,7 @@ Il nourrissait de nombreux griefs contre les quatre grandes familles, particuli�
 
 Il se transforma en météore et fendit la voûte étoilée.
 
-« La famille Yao est trop vaste, il n'y a donc aucun endroit sûr dans le Système Stellaire de Luotian... De plus, il existe certainement des individus aussi puissants, voire plus que l'Ancêtre Sanguin! » Wang Lin fronça les sourcils, le cœur assombri.
+« La famille Yao est trop vaste, il n'y a donc aucun endroit sûr dans le Système Stellaire de Luotian... De plus, il existe certainement des individus aussi puissants, voire plus que Xue Zu! » Wang Lin fronça les sourcils, le cœur assombri.
 
 En volant, des ondulations apparurent sous ses pieds. La moitié de son corps fusionnait avec le monde, mais il n'utilisait pas la Distorsion Spatiale. Il maintint cet état pour poursuivre sa route.
 

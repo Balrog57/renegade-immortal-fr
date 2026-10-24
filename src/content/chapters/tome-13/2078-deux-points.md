@@ -46,7 +46,7 @@ En partant, Wang Lin laissa une partie de son Dao et de ses sorts dans le Royaum
 
 Une formation de protection parfaite, une immense quantité de pilules et de textes de Dao, ainsi que la compréhension des essences éthérées par Wang Lin... Tout cela rendrait le Royaume Céleste extrêmement fort et garantirait que des incidents comme celui du Maître Âme Écarlate ne se reproduisent plus jamais.
 
-Avant de s'en aller, Wang Lin et le Maître du Dao Rêve Bleu discutèrent longuement. Nul autre qu'eux ne sut de quoi ils avaient parlé, et après avoir regardé Wang Lin s'éloigner, le Maître du Dao Rêve Bleu se mit en culture isolée.
+Avant de s'en aller, Wang Lin et Lanmeng Daozun discutèrent longuement. Nul autre qu'eux ne sut de quoi ils avaient parlé, et après avoir regardé Wang Lin s'éloigner, Lanmeng Daozun se mit en culture isolée.
 
 Wang Lin partit. Il voyagea à travers le vaste système stellaire pour atteindre la planète Suzaku. Il resta assis devant sa propre statue pendant plusieurs jours avant de repartir. Il se rendit ensuite sur la planète Tian Yun, devenue une ruine lors de la grande guerre.
 

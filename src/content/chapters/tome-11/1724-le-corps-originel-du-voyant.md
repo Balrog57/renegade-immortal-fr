@@ -32,11 +32,11 @@ Alors que Wang Lin traversait les failles, dans la Rivière Invoquée, toutes le
 
 Son regard était empreint de lutte et de douleur. L'âme de l'Omniscient était en train de prendre le contrôle de son esprit et de son corps. En raison du sortilège d'Intégration de la Réincarnation, il était impossible pour quiconque d'interférer avec cette possession.
 
-Une lueur bleue enveloppa l'avatar de Wang Lin. Le Maître du Dao Rêve Bleu se tenait là, calme, observant l'avatar. Qing Lin et le Maître Hong Shan étaient également présents, fixant Wang Lin. Contrairement au Maître du Dao Rêve Bleu, ils n'étaient pas sereins et regardaient l'avatar de Wang Lin avec nervosité.
+Une lueur bleue enveloppa l'avatar de Wang Lin. Lanmeng Daozun se tenait là, calme, observant l'avatar. Qing Lin et le Maître Hong Shan étaient également présents, fixant Wang Lin. Contrairement à Lanmeng Daozun, ils n'étaient pas sereins et regardaient l'avatar de Wang Lin avec nervosité.
 
 « Wang Lin, serais-tu plus rapide que ce vieil homme? » La lutte dans les yeux de Wang Lin devint plus intense encore; son corps tremblait et ses veines gonflaient. Des paroles antiques s'échappèrent de sa bouche, étranges et imprégnées d'un sentiment de décrépitude.
 
-Au moment où l'avatar de Wang Lin parla, la distorsion de son œil droit se dissipa, remplacée par une lueur spectrale. Il tourna la tête et regarda de son œil droit le Maître du Dao Rêve Bleu et ses compagnons, un sourire méprisant au coin des lèvres.
+Au moment où l'avatar de Wang Lin parla, la distorsion de son œil droit se dissipa, remplacée par une lueur spectrale. Il tourna la tête et regarda de son œil droit Lanmeng Daozun et ses compagnons, un sourire méprisant au coin des lèvres.
 
 « Vous trois n'êtes pas faibles. Puisque vous voulez m'empêcher de partir, je vais vous laisser assister à mon 99e éveil! » L'œil gauche de l'avatar de Wang Lin tressaillit avant de se calmer lentement, dégageant une lueur spectrale. Il s'assit et ferma les yeux.
 
@@ -102,9 +102,9 @@ En peu de temps, plus de la moitié de la fusion était accomplie. Quelques resp
 
 Wang Lin avait déjà vu ce brouillard dans les cycles de réincarnation: c'était la forme même du Dao Céleste!
 
-« Wang Lin, ton avatar est conquis. Peu importe que ton corps originel soit encore en vie, ce vieil homme n'a pas de temps à perdre avec toi! » L'expression de l'Omniscient était féroce. Il ne daigna même pas regarder le Maître du Dao Rêve Bleu et ses compagnons. Il s'apprêtait à partir.
+« Wang Lin, ton avatar est conquis. Peu importe que ton corps originel soit encore en vie, ce vieil homme n'a pas de temps à perdre avec toi! » L'expression de l'Omniscient était féroce. Il ne daigna même pas regarder Lanmeng Daozun et ses compagnons. Il s'apprêtait à partir.
 
-Cependant, alors qu'il allait faire un mouvement, un rayon de lumière bleue jaillit devant lui. Le Maître du Dao Rêve Bleu apparut, lui barrant la route.
+Cependant, alors qu'il allait faire un mouvement, un rayon de lumière bleue jaillit devant lui. Lanmeng Daozun apparut, lui barrant la route.
 
 « Je lui ai promis que je ne te laisserais pas quitter cet endroit. »
 

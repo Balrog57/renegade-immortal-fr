@@ -38,7 +38,7 @@ Un cultivateur était assis au fond de l'abîme, sous les eaux infinies. Il para
 
 « Quelque chose ne va pas! » Les yeux du vieil homme s'illuminèrent. Après un instant de réflexion, une pointe d'hésitation y apparut. « Il m'est impossible de mettre la main sur la Perle Défiant le Ciel sur la Planète du Grand Empereur, je m'en occuperai plus tard... Avatar, reviens vite vérifier cette tempête; vois ce qu'elle est! »
 
-Ce vieil homme était l'un des cinq maîtres, le corps original du Maître du Dao Miao Yin. Le jeune homme sur la Planète du Grand Empereur n'était que l'un de ses trois avatars principaux!
+Ce vieil homme était l'un des cinq maîtres, le corps original de Miaoyin Daozun. Le jeune homme sur la Planète du Grand Empereur n'était que l'un de ses trois avatars principaux!
 
 Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de culture et agitant d'innombrables tentacules, s'approchait lentement. Le vieil homme assis sur son dos, au visage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement, se leva d'un bond et scruta l'horizon avec une lueur étrange.
 
@@ -50,7 +50,7 @@ Sur la Planète du Grand Empereur, les dizaines de milliers de cultivateurs avai
 
 Sur ces mots, il se retourna et fit un pas dans le vide. Son corps se changea en éclats de lumière et disparut. Ce changement soudain stupéfia l'assistance, et les visages de tous les cultivateurs du troisième niveau se crispèrent.
 
-Les yeux du Maître du Dao Rêve Bleu se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Oiseau Vermillon: « Cette affaire est étrange, je dois aller vérifier. » Puis il jeta un regard à Li Qianmei à ses côtés, soupira intérieurement et agita sa grande manche; une lumière bleue enveloppa le père et la fille avant qu'ils ne disparaissent.
+Les yeux de Lanmeng Daozun se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Oiseau Vermillon: « Cette affaire est étrange, je dois aller vérifier. » Puis il jeta un regard à Li Qianmei à ses côtés, soupira intérieurement et agita sa grande manche; une lumière bleue enveloppa le père et la fille avant qu'ils ne disparaissent.
 
 Il y avait aussi le vieil homme assis sur le lézard; ses yeux brillaient d'une lueur singulière. Sa bouche, scellée par une aiguille, tressaillit, puis il salua le Vieux Oiseau Vermillon sans prononcer un mot. Sa main droite frappa le lézard qui s'élança dans un sifflement.
 

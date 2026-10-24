@@ -110,7 +110,7 @@ Maître Yan Leizi fut nerveux sous le regard de ces dix mille et quelques indivi
 
 « Le Seigneur du Royaume Scellé? » Un ricanement s'éleva de la planète géante, puis une brume noire apparut de nulle part. Un vieil homme vêtu de noir en sortit. À son apparition, tous les cultivateurs du Royaume Extérieur furent galvanisés.
 
-Maître Yan Leizi s'exclama rapidement: « C'est l'Estimé Maître Tian Zhao! »
+Maître Yan Leizi s'exclama rapidement: « C'est Tianzhao Shangshi! »
 
 Le regard indifférent de Wang Lin se posa sur le vieil homme en noir, puis il fit un pas en avant. À cet instant, le vieil homme sourit. Ses mains formèrent un sceau et une énergie de Flamme Joss infinie apparut.
 
@@ -118,6 +118,6 @@ Le regard indifférent de Wang Lin se posa sur le vieil homme en noir, puis il f
 
 Le pouvoir spirituel propre aux cultivateurs du Vide Spirituel se propagea, accompagné d'un murmure étrange. Les trois dragons noirs ouvrirent leurs gueules, révélant trois Royaumes de Flamme Joss abritant d'innombrables disciples de la Flamme Joss. Ces flammes s'engouffrèrent dans les dragons noirs, les transformant en trois véritables dragons de Flamme Joss!
 
-C'était l'atout maître de l'Estimé Maître Tian Zhao, une technique célèbre dans tout le Système Stellaire Antique. Ces dragons n'étaient pas des illusions; il avait bravé de multiples dangers pour capturer ces dragons réels dans une terre mystérieuse!
+C'était l'atout maître de Tianzhao Shangshi, une technique célèbre dans tout le Système Stellaire Antique. Ces dragons n'étaient pas des illusions; il avait bravé de multiples dangers pour capturer ces dragons réels dans une terre mystérieuse!
 
-Après les avoir affinés pendant dix mille ans, l'Estimé Maître Tian Zhao avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses chefs d'âmes de Flamme Joss!
+Après les avoir affinés pendant dix mille ans, Tianzhao Shangshi avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses chefs d'âmes de Flamme Joss!

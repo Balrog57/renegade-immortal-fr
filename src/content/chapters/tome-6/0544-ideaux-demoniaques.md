@@ -36,7 +36,7 @@ Aux yeux du général de l'aile gauche, ses mouvements avaient changé. La lumi�
 
 « Ceci... » Le général de l'aile gauche remarqua immédiatement la différence et ne put s'empêcher d'y accorder toute son attention.
 
-Yao Xixue, qui se tenait à distance, fixait Wang Lin. Une tempête faisait rage dans son cœur, et elle se remémorait les paroles de son père. Son père, l'Ancêtre Sanguin, portait une attention particulière à Wang Lin.
+Yao Xixue, qui se tenait à distance, fixait Wang Lin. Une tempête faisait rage dans son cœur, et elle se remémorait les paroles de son père. Son père, Xue Zu, portait une attention particulière à Wang Lin.
 
 Une aura démoniaque émana du corps de Wang Lin, formant un léger brouillard noir dans un rayon de 10 mètres autour de lui. Au sein de cette brume noire, les yeux de Wang Lin devinrent lentement lugubres. Cette mélancolie était empreinte d'une froideur profondément démoniaque!
 

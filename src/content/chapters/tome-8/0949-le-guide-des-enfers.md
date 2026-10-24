@@ -58,7 +58,7 @@ Ce qui l'inquiétait, c'était Qing Shui!
 
 De son point de vue, Qing Shui était un fou furieux. Il était fort probable qu'il poursuivrait l'affaire concernant Xu Mu avec acharnement!
 
-« Qing Shui fut prêt à combattre le Dieu du Sang pour Xu Mu. Il fut prêt à tuer un membre du Temple Céleste du Tonnerre lors de la bénédiction céleste. Si je force ce Xu Mu à rester, je ne ferai qu'attirer les ennuis. » Le visage de Lie Yunzi était sombre. Il hésitait également, car il sentait que Xu Mu ne serait pas aussi facile à emprisonner qu'il l'espérait.
+« Qing Shui fut prêt à combattre Xue Shenzi pour Xu Mu. Il fut prêt à tuer un membre du Temple Céleste du Tonnerre lors de la bénédiction céleste. Si je force ce Xu Mu à rester, je ne ferai qu'attirer les ennuis. » Le visage de Lie Yunzi était sombre. Il hésitait également, car il sentait que Xu Mu ne serait pas aussi facile à emprisonner qu'il l'espérait.
 
 « Au cours des âges, la seule personne que j'ai rencontrée capable de percevoir le domaine à l'intérieur du parchemin fut Xu Mu. S'il meurt, je ne sais pas quand je retrouverai un tel talent... Il vaut mieux entretenir de bons rapports avec lui! » En réfléchissant ainsi, Lie Yunzi eut un éclat de rire et ses yeux se remplirent d'admiration. Il hocha la tête et déclara:
 

@@ -32,7 +32,7 @@ La voix de la jeune fille du Clan de l'Extermination des Sceaux trembla et elle 
 
 « Zhiman... C'est un beau nom. Tu es morte deux fois; comment as-tu survécu? » La voix de Wang Lin était calme, mais une pression se propagea pour envelopper la jeune fille.
 
-« Je suis la servante du Maître Dao Miao Yin. Vous m'avez capturée, il vous tuera donc certainement... » La jeune fille mordit sa lèvre inférieure et regarda Wang Lin. Sa timidité persistait, mais elle la réprimait de toutes ses forces.
+« Je suis la servante de Miaoyin Daozun. Vous m'avez capturée, il vous tuera donc certainement... » La jeune fille mordit sa lèvre inférieure et regarda Wang Lin. Sa timidité persistait, mais elle la réprimait de toutes ses forces.
 
 Wang Lin déclara lentement: « Il ne peut plus entrer dans l'Ancien Tombeau. »
 
@@ -40,13 +40,13 @@ En entendant cela, le visage de la jeune fille devint encore plus livide. Elle �
 
 « Impossible! L'avatar du Maître Dao n'a pas pu être tué! » La jeune fille était terrifiée, sa voix devenant même aiguë.
 
-Wang Lin lui jeta un regard froid sans chercher à s'expliquer. Il agita la main et un éclat de jade vola vers elle. Le jade toucha son front et la scène de la mort de l'avatar du Maître Dao Miao Yin se projeta dans son esprit.
+Wang Lin lui jeta un regard froid sans chercher à s'expliquer. Il agita la main et un éclat de jade vola vers elle. Le jade toucha son front et la scène de la mort de l'avatar de Miaoyin Daozun se projeta dans son esprit.
 
-Cette jeune fille étant proche du Maître Dao Miao Yin, elle connaissait nombre de ses sorts. Elle possédait sa propre méthode pour déterminer si les informations contenues dans le jade étaient authentiques ou non.
+Cette jeune fille étant proche de Miaoyin Daozun, elle connaissait nombre de ses sorts. Elle possédait sa propre méthode pour déterminer si les informations contenues dans le jade étaient authentiques ou non.
 
-Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de la Grande Désolation, l'avatar de Miao Yin, dont la culture était supprimée, n'avait aucune chance de survivre.
+Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de la Grande Désolation, l'avatar de Miaoyin Daozun, dont la culture était supprimée, n'avait aucune chance de survivre.
 
-Le fait de voir la Grande Désolation posséder l'avatar de Miao Yin fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, je lancerai une recherche d'âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan de l'Extermination des Sceaux cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
+Le fait de voir la Grande Désolation posséder l'avatar de Miaoyin Daozun fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, je lancerai une recherche d'âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan de l'Extermination des Sceaux cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
 
 La panique dans les yeux de la jeune fille s'intensifia. Elle savait qu'elle n'avait aucune issue. Son maître était déjà mort, scellant ainsi toute voie de retraite.
 
@@ -80,7 +80,7 @@ Et parce que la marque de clan leur était gravée, ils ne mouraient pas en perd
 
 Ce qui était remarquable chez ce clan, outre son étrange sortilège de scellement, était son incroyable sortilège des trois vies. Ce pouvoir pouvait être arraché par autrui et utilisé sur lui-même.
 
-C'était précisément dans cette intention que le Maître Dao Miao Yin s'était donné tant de mal pour trouver un membre du Clan de l'Extermination des Sceaux et en faire sa servante. Cependant, la méthode pour obtenir le sortilège des trois vies était trop ardue: il fallait se rendre à l'autel du clan, avec peu de chances de succès, et un échec provoquerait un contrecoup. De plus, l'autel avait disparu depuis trop longtemps; l'affaire avait donc toujours été repoussée.
+C'était précisément dans cette intention que Miaoyin Daozun s'était donné tant de mal pour trouver un membre du Clan de l'Extermination des Sceaux et en faire sa servante. Cependant, la méthode pour obtenir le sortilège des trois vies était trop ardue: il fallait se rendre à l'autel du clan, avec peu de chances de succès, et un échec provoquerait un contrecoup. De plus, l'autel avait disparu depuis trop longtemps; l'affaire avait donc toujours été repoussée.
 
 Après avoir examiné la marque du clan, Wang Lin la rangea silencieusement. Quant à la jeune fille, il n'avait pas l'intention de la tuer. Il n'y avait aucune haine entre eux et il avait déjà pris sa marque. Une fois sorti de l'Ancien Tombeau, il la libérerait.
 

@@ -70,7 +70,7 @@ Au-dessus d'eux, l'image circulaire du yin et du yang tournait lentement, et l'�
 
 À cet instant, si quelqu'un observait la planète depuis l'espace, il verrait que le monde entier était enveloppé de noir et de blanc. C'était un spectacle saisissant.
 
-Si un être possédant la culture de l'Ancêtre Sanguin passait par là, il en serait profondément troublé. C'était ce que les experts de la deuxième étape appelaient le Dao des Rêves!
+Si un être possédant la culture de Xue Zu passait par là, il en serait profondément troublé. C'était ce que les experts de la deuxième étape appelaient le Dao des Rêves!
 
 La légende racontait qu'aux temps anciens, un mortel nommé Peng Zu avait réussi à atteindre l'illumination par ses rêves. Il avait condensé un trésor immortel antique et laissé un cœur du Dao de dix mille ans, capable de refléter le ciel, la terre, le soleil et la lune!
 

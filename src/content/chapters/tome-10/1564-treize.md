@@ -40,7 +40,7 @@ Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait e
 
 L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La reprise de la Rivière Invoquée redonna espoir aux cultivateurs restants!
 
-La mort de l'Estimé Maître Tian Zhao, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais de la Punition Céleste ravivèrent la confiance du Royaume Intérieur.
+La mort de Tianzhao Shangshi, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais de la Punition Céleste ravivèrent la confiance du Royaume Intérieur.
 
 Il n'y avait plus de Royaumes aux Sept Couleurs dans le Royaume Intérieur, et plus aucune faille. Surtout après des décennies de guerre, les cultivateurs restants étaient tous des guerriers aguerris. Ils devaient se battre car, en cas d'échec, la seule issue restante serait la mort.
 

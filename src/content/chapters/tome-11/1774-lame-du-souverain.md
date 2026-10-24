@@ -18,23 +18,23 @@ Toutefois, Wang Lin disposait d'un avantage de taille. Yun Yifeng, Tang Shan et 
 
 Selon diverses conditions, la situation parfaite pour éliminer le Souverain venait de se présenter. Le plus crucial était cette troisième personne que Wang Lin avait perçue après Tuo Sen et le Souverain!
 
-Cette troisième personne n'était autre que le Maître du Dao Rêve Bleu!
+Cette troisième personne n'était autre que Lanmeng Daozun!
 
 Wang Lin ne croyait tout simplement pas qu'ils ne puissent sceller le Souverain à cinq!
 
-À cet instant, la technique « Pêcher la Lune dans le Puits » du Souverain se manifesta. Ses yeux rouges étaient empreints d'une intention meurtrière. Il ne cherchait plus à fuir, car il sentait clairement l'arrivée du Maître du Dao Rêve Bleu!
+À cet instant, la technique « Pêcher la Lune dans le Puits » du Souverain se manifesta. Ses yeux rouges étaient empreints d'une intention meurtrière. Il ne cherchait plus à fuir, car il sentait clairement l'arrivée de Lanmeng Daozun!
 
 « Peu importe que Rêve Bleu soit ici! Si vous voulez ma mort, vous devrez tous en payer le prix! De plus, le temps presse; le Vieux Fantôme Zhan arrivera bientôt. Vous ne parviendrez pas à m'abattre avant son arrivée! »
 
-La terre transformée en puits reflétait les silhouettes de Wang Lin et de ses alliés. Soudain, un éclat de lumière bleue jaillit. Cette lueur se propagea à travers le puits et dans le ciel. Au loin, le Maître du Dao Rêve Bleu fit son apparition.
+La terre transformée en puits reflétait les silhouettes de Wang Lin et de ses alliés. Soudain, un éclat de lumière bleue jaillit. Cette lueur se propagea à travers le puits et dans le ciel. Au loin, Lanmeng Daozun fit son apparition.
 
-Les yeux de Wang Lin brillèrent. À l'arrivée du Maître du Dao Rêve Bleu, il envoya un message divin: « Senior Rêve Bleu, pouvez-vous sceller le Souverain pendant trois respirations? »
+Les yeux de Wang Lin brillèrent. À l'arrivée de Lanmeng Daozun, il envoya un message divin: « Senior Rêve Bleu, pouvez-vous sceller le Souverain pendant trois respirations? »
 
 Rêve Bleu s'approcha et hocha la tête. D'un revers de manche, il fit trembler la terre devenue puits. Le sol s'effondra et le puits se brisa!
 
 La lumière bleue pénétra dans le gouffre et s'élança dans les airs d'un geste de sa main, se transformant en un rideau azur qui enveloppa le monde.
 
-« Je peux tenir trois respirations! » Tandis que le Maître du Dao Rêve Bleu parlait, il s'avança dans la lumière bleue. À cet instant précis, l'aura environnante fondit sur le Souverain.
+« Je peux tenir trois respirations! » Tandis que Lanmeng Daozun parlait, il s'avança dans la lumière bleue. À cet instant précis, l'aura environnante fondit sur le Souverain.
 
 Trois rayons de lumière bleue se détachèrent; les deux premiers s'enroulèrent autour de Yun Yifeng et de Tang Shan, les aspirant dans le flux azur. Le dernier rayon enveloppa Tuo Sen et l'entraîna également à l'intérieur.
 
@@ -66,11 +66,11 @@ Tandis que ses paroles s'élevaient, la troisième respiration survint. La brume
 
 Simultanément, l'âme du Souverain commença à se dissiper rapidement de son corps, comme si elle était dévorée. Les yeux du Souverain exprimèrent la lutte et il poussa un cri violent alors que son corps tressaillait. Les trois respirations s'écoulèrent et les quatre sceaux sur son corps se dissipèrent instantanément.
 
-Une fois les sceaux levés, le Maître du Dao Rêve Bleu, Yun Yifeng, Tang Shan et Tuo Sen émergèrent de la lumière bleue environnante.
+Une fois les sceaux levés, Lanmeng Daozun, Yun Yifeng, Tang Shan et Tuo Sen émergèrent de la lumière bleue environnante.
 
-Des hurlements déchirants résonnèrent alors que le Souverain s'extrayait du sceau du Maître du Dao Rêve Bleu. Il se cramponna la tête tout en reculant frénétiquement. Ses cris de douleur ébranlaient les cœurs.
+Des hurlements déchirants résonnèrent alors que le Souverain s'extrayait du sceau de Lanmeng Daozun. Il se cramponna la tête tout en reculant frénétiquement. Ses cris de douleur ébranlaient les cœurs.
 
-L'âme du Souverain se dissipait rapidement, offerte en sacrifice. En voyant cela, les pupilles du Maître du Dao Rêve Bleu et de ses compagnons se rétractèrent de choc.
+L'âme du Souverain se dissipait rapidement, offerte en sacrifice. En voyant cela, les pupilles de Lanmeng Daozun et de ses compagnons se rétractèrent de choc.
 
 Wang Lin cracha un jet de sang et recula de mille pieds. Il fixa le Souverain qui hurlait dans le ciel, son propre regard empreint d'une froideur cruelle.
 
@@ -94,7 +94,7 @@ Mais la brume continuait de s'accumuler, non pas sur Wang Lin, mais à sa droite
 
 Le visage de Tang Shan pâlit instantanément et elle recula brusquement de plusieurs pas. Même Yun Yifeng inspira brusquement, les yeux emplis d'effroi.
 
-Le Maître du Dao Rêve Bleu et Tuo Sen étaient plus stoïques, mais leurs cœurs tremblèrent à la vue de cette silhouette.
+Lanmeng Daozun et Tuo Sen étaient plus stoïques, mais leurs cœurs tremblèrent à la vue de cette silhouette.
 
 C'était un nain à la peau d'un pourpre noirâtre. Il se tenait nu, accroupi là. Son crâne était chauve et son corps d'une maigreur extrême.
 

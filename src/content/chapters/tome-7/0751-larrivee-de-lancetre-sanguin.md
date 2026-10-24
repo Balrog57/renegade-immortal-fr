@@ -1,6 +1,6 @@
 ---
 n: 751
-title: "L'Arrivée de l'Ancêtre Sanguin"
+title: "L'Arrivée de Xue Zu"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 751 - Arrival of the Blood Ancestor
@@ -120,4 +120,4 @@ Cette ombre devint rouge et, bientôt, une puissante aura de sang se diffusa dan
 
 « Jeune Wang Lin, ce vieillard est arrivé! » L'ombre se condensa pour former un homme d'âge moyen, vêtu d'une robe rouge, avec des cheveux et des sourcils de la même couleur.
 
-L'Ancêtre Sanguin!
+Xue Zu!

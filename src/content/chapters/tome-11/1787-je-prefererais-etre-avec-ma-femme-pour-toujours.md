@@ -8,11 +8,11 @@ slug: je-prefererais-être-avec-ma-femme-pour-toujours
 ---
 Alors que ses paroles résonnaient, la silhouette de Xuan Luo apparut lentement dans le vide vers lequel Wang Lin s'inclinait, avant de se révéler pleinement dans le ciel étoilé.
 
-Au moment où Xuan Luo apparut, les expressions du Maître du Dao Rêve Bleu et de Tuo Sen changèrent soudainement. Leurs pupilles se rétractèrent et leurs visages devinrent extrêmement solennels.
+Au moment où Xuan Luo apparut, les expressions de Lanmeng Daozun et de Tuo Sen changèrent soudainement. Leurs pupilles se rétractèrent et leurs visages devinrent extrêmement solennels.
 
 Ils n'avaient pas remarqué la présence mystérieuse de Xuan Luo qui venait d'apparaître. Même à cet instant, ils ne pouvaient le percevoir qu'à l'œil nu; s'ils fermaient les yeux, ils seraient incapables de le détecter.
 
-Xuan Luo ne daigna même pas regarder Tuo Sen ou le Maître du Dao Rêve Bleu. Au lieu de cela, il fixa Wang Lin avec un sourire d'intérêt et attendit sa réponse. Il n'était pas surpris que Wang Lin sache où il se cachait, mais il ne put s'empêcher de spéculer sur la raison pour laquelle Wang Lin avait prononcé son nom. Plusieurs hypothèses lui vinrent à l'esprit.
+Xuan Luo ne daigna même pas regarder Tuo Sen ou Lanmeng Daozun. Au lieu de cela, il fixa Wang Lin avec un sourire d'intérêt et attendit sa réponse. Il n'était pas surpris que Wang Lin sache où il se cachait, mais il ne put s'empêcher de spéculer sur la raison pour laquelle Wang Lin avait prononcé son nom. Plusieurs hypothèses lui vinrent à l'esprit.
 
 Xuan Luo sourit et dit lentement: « Je sais. Dans la première fleur du monde, là où ce petit tigre blanc a instauré la loi, tu as pris un fragment d'âme du cultivateur de la Planète des Cinq Éléments! Puis, tu as secrètement sondé cette parcelle d'âme pour découvrir ce qui s'était passé sur la Planète des Cinq Éléments après ton départ! »
 
@@ -84,7 +84,7 @@ Le visage de Wang Lin devint livide, comme si tout son sang s'était retiré. Il
 
 Si l'âme est en peine, l'esprit est en peine; si tout votre être est noyé dans le désespoir, ce sont des larmes de sang qui coulent.
 
-Les paroles de Wang Lin parvinrent aux oreilles du Maître du Dao Rêve Bleu. Il écoutait silencieusement l'amant de sa fille exprimer un tel attachement pour une autre femme, mais cette fois, il ne ressentit aucune colère. Au lieu de cela, il éprouva de la sympathie et de la tristesse, songeant à sa propre épouse.
+Les paroles de Wang Lin parvinrent aux oreilles de Lanmeng Daozun. Il écoutait silencieusement l'amant de sa fille exprimer un tel attachement pour une autre femme, mais cette fois, il ne ressentit aucune colère. Au lieu de cela, il éprouva de la sympathie et de la tristesse, songeant à sa propre épouse.
 
 Xuan Luo regarda Wang Lin. Après un long silence, il poussa un soupir et prit soudain la parole.
 

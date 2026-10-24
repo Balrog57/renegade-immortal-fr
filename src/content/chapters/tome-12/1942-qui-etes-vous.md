@@ -90,7 +90,7 @@ Cette voix surgit si soudainement qu'elle fit tressaillir Liu Jinbiao. Il se cal
 
 Il n'avait jamais ressenti cela, même au sein de la Secte du Nuage. En réalité, il n'avait jamais éprouvé une telle sensation de sa vie. Tremblant, il s'appuya contre un arbre et fixa Wang Lin.
 
-« Mon maître est sous les ordres du Grand Empyréen Gémeaux, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
+« Mon maître est sous les ordres du Grand Empyréen Shuangzi, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
 
 Wang Lin l'examina un instant puis sourit: « C'est une belle imitation. Vous avez dû vous tromper vous-même en utilisant la seconde étape de la tromperie, vous répétant sans cesse que vous êtes l'Exalté Empyréen Gu Ya, puis en avez gravé le nom trait par trait. »
 

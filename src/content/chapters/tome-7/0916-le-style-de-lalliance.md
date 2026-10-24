@@ -10,7 +10,7 @@ D’innombrables fragments d'âmes se trouvaient à l'intérieur du Étendard de
 
 Même l'esprit d'un cultivateur serait ébranlé par ces cris. Ils étaient le fruit de la douleur et des griefs des âmes d'innombrables êtres que Wang Lin avait massacrés!
 
-Parmi eux se trouvaient l'Ancêtre Sanguin, les êtres célestes, les membres de la famille Yao et bien d'autres puissants cultivateurs. Bien qu'ils ne fussent que des fragments d'âmes et n'aient plus leur force d'autrefois, leur puissance n'était pas de nature à ce que des cultivateurs ordinaires puissent y résister!
+Parmi eux se trouvaient Xue Zu, les êtres célestes, les membres de la famille Yao et bien d'autres puissants cultivateurs. Bien qu'ils ne fussent que des fragments d'âmes et n'aient plus leur force d'autrefois, leur puissance n'était pas de nature à ce que des cultivateurs ordinaires puissent y résister!
 
 S'y ajoutaient les innombrables fragments d'âmes contenus dans le Étendard de l'Âme. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
 

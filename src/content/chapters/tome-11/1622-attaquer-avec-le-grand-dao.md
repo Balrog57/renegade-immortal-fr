@@ -74,7 +74,7 @@ Lorsque l'essence karmique s'y mêla, son niveau atteignit le stade avancé du V
 
 Enfin, lorsque la vie et la mort suivirent et que les essences du vrai et du faux fusionnèrent, le niveau de Wang Lin franchit le sommet du Vide du Nirvana pour atteindre le stade initial de Vide Spirituel!
 
-La culture de Wang Lin continuait de croître, et la pression qui s'en dégageait attira l'attention de tous. Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Vide qui, dans un rugissement, se précipita en avant.
+La culture de Wang Lin continuait de croître, et la pression qui s'en dégageait attira l'attention de tous. Une intention meurtrière traversa les yeux de Xushen Tianzun qui, dans un rugissement, se précipita en avant.
 
 La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maintenant qu'elle avait disparu, il devait tuer Wang Lin. Il sentait que s'il ne l'éliminait pas aujourd'hui, il n'en aurait plus jamais l'occasion. L'apparition de la Porte des Dix Mille Os du Vide lui avait glacé le sang.
 
@@ -82,7 +82,7 @@ La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maint
 
 « Il est en train de fusionner ses essences, c'est le moment idéal pour l'abattre! Une fois la fusion terminée, je crains que même des cultivateurs du stade initial de Vide Arcane ne puissent l'égaler. Nous ne pouvons pas le laisser vivre! »
 
-Le jeune homme en robe verte partageait cette pensée. Il était déjà en train de battre en retraite lorsqu'il vit le Maître Céleste Dieu du Vide agir. Il serra les dents, les yeux injectés de sang, enveloppa son corps d'une glace infinie et chargea Wang Lin.
+Le jeune homme en robe verte partageait cette pensée. Il était déjà en train de battre en retraite lorsqu'il vit Xushen Tianzun agir. Il serra les dents, les yeux injectés de sang, enveloppa son corps d'une glace infinie et chargea Wang Lin.
 
 Il y avait aussi Zhou Jin, terrifié au plus haut point. Cependant, il demeurait un cultivateur du troisième niveau et l'ancêtre du clan du Loup Céleste. Avec une expression désespérée, il poussa un rugissement et un loup de sang de plusieurs dizaines de milliers de pieds apparut.
 
@@ -90,7 +90,7 @@ Ces mouvements poussèrent le Maître Nan Yunzi et ses compagnons à se précipi
 
 « Aucun problème! »
 
-Bien que suave, cette voix contenait une force incontestable qui stoppa net le Maître Nan Yunzi et les autres. Ils contemplèrent le vortex apparu après l'effondrement de la Porte du Vide. Wang Lin absorbait la puissance de la Porte tandis que le groupe du Maître Céleste Dieu du Vide se rapprochait de lui.
+Bien que suave, cette voix contenait une force incontestable qui stoppa net le Maître Nan Yunzi et les autres. Ils contemplèrent le vortex apparu après l'effondrement de la Porte du Vide. Wang Lin absorbait la puissance de la Porte tandis que le groupe de Xushen Tianzun se rapprochait de lui.
 
 Wang Lin utilisait la puissance de la Porte pour fusionner la sixième essence, le massacre. Au moment où les trois assaillants furent sur lui, Wang Lin pointa un doigt vers eux.
 
@@ -102,7 +102,7 @@ Wang Lin avait également insufflé dans ce sort d'immobilisation les intentions
 
 Sous l'effet, le corps de Zhou Jin trembla et il fut incapable de faire le moindre pas. Le jeune homme en robe verte sentit une intention dao infinie le clouer sur place.
 
-Seul le Maître Céleste Dieu du Vide parvenait encore à avancer, mais son sort ralentissait considérablement.
+Seul Xushen Tianzun parvenait encore à avancer, mais son sort ralentissait considérablement.
 
 C'est alors que Wang Lin bougea. Il avait passé sa vie dans le massacre et n'avait pas peur du combat. Il chargea directement le jeune homme en robe verte, ouvrit puis ferma les yeux. Un instant de confusion traversa le regard du jeune homme. Profitant de ce moment, Wang Lin leva la main droite, l'ouvrit, puis la referma brusquement comme s'il saisissait quelque chose dans le vide.
 

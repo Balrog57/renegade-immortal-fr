@@ -16,7 +16,7 @@ Le temps s'écoulait lentement tandis que Wang Lin demeurait immobile. Les image
 
 Après un laps de temps indéterminé, les cultivateurs environnants étaient tous devenus silencieux. Seuls les flammes au-dessus de leurs têtes continuaient de brûler, enveloppant la zone d'une atmosphère irréelle.
 
-En ce jour, une silhouette vêtue d'une robe taoïste aux sept couleurs apparut soudainement dans le silence du palais. Il se tint devant l'homme d'âge moyen qui avait ouvert le parapluie et resta longuement en méditation silencieuse.
+En ce jour, une silhouette vêtue d'une robe Qicai Daoren apparut soudainement dans le silence du palais. Il se tint devant l'homme d'âge moyen qui avait ouvert le parapluie et resta longuement en méditation silencieuse.
 
 « J'ai recueilli trois enfants au cours de ma vie... Et vous étiez celui qui comptait le plus... » Le cultivateur aux sept couleurs laissa échapper un soupir et passa devant l'homme d'âge moyen. Il s'arrêta devant Li Guang, qui semblait toujours tenir son arc.
 
@@ -62,9 +62,9 @@ Cette tombe antique ne contenait pas qu'une seule strate, mais trois niveaux! To
 
 Si l'on considérait la première couche de la tombe antique comme une formation, alors l'emplacement de ce trône en était le cœur et le centre!
 
-À cet instant également, Wang Lin vit d'innombrables âmes tourmentées dans la deuxième couche. Ce qui le terrifiait, c'était de voir des âmes dégageant une pression capable de rivaliser avec celle du Maître du Dao Rêve Bleu!
+À cet instant également, Wang Lin vit d'innombrables âmes tourmentées dans la deuxième couche. Ce qui le terrifiait, c'était de voir des âmes dégageant une pression capable de rivaliser avec celle de Lanmeng Daozun!
 
-Il y avait aussi un lieu flou au plus profond de cette seconde couche. Une aura indescriptible et vertigineuse semblait y sommeiller. Dès que l'on pénétrait dans ce deuxième niveau, cette existence puissante s'éveillait. Même un être doté de la puissance du Maître du Dao Rêve Bleu aurait du mal à y survivre!
+Il y avait aussi un lieu flou au plus profond de cette seconde couche. Une aura indescriptible et vertigineuse semblait y sommeiller. Dès que l'on pénétrait dans ce deuxième niveau, cette existence puissante s'éveillait. Même un être doté de la puissance de Lanmeng Daozun aurait du mal à y survivre!
 
 Et ce n'était que la deuxième couche; il restait encore la troisième!
 

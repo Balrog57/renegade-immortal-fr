@@ -46,11 +46,11 @@ La progression du sable était trop rapide; il venait de tous côtés comme pour
 
 L'expression de Wang Lin changea et il cracha un objet. Le Sceau Céleste des 18 Enfers s'envola, se transformant en une petite montagne. Il cria alors: « Arsenal Magique! » en agitant sa main droite.
 
-Un cri fantomatique résonna dans le ciel et des éclats de lumière remplirent le monde. D'innombrables âmes apparurent, y compris l'âme de l'Ancêtre Sanguin.
+Un cri fantomatique résonna dans le ciel et des éclats de lumière remplirent le monde. D'innombrables âmes apparurent, y compris l'âme de Xue Zu.
 
 Il y avait aussi les nombreuses âmes célestes et celles de tous les êtres que Wang Lin avait tués! Ces âmes, invoquées par son sortilège, poussèrent un rugissement collectif. Ce son couvrit tout le reste, y compris le sifflement du sable. Ces âmes de combat se positionnèrent autour de Wang Lin.
 
-D'une simple pensée, Wang Lin les lança à l'assaut. Parmi elles, l'âme de l'Ancêtre Sanguin était la plus tyrannique. Elle tourna un regard injecté de sang vers Wang Lin, mais sans l'attaquer, elle chargea plutôt vers l'extérieur dans un rugissement!
+D'une simple pensée, Wang Lin les lança à l'assaut. Parmi elles, l'âme de Xue Zu était la plus tyrannique. Elle tourna un regard injecté de sang vers Wang Lin, mais sans l'attaquer, elle chargea plutôt vers l'extérieur dans un rugissement!
 
 Les nombreuses âmes célestes semblaient également avoir perdu la raison, se précipitant sur tout ce qui les entourait.
 

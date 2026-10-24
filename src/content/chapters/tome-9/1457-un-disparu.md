@@ -14,11 +14,11 @@ Un vieil homme était assis au centre de cette plateforme, imprégné d'une odeu
 
 L'homme vêtait du noir et la moitié de ses cheveux était blanche. Son visage oscillait rapidement entre la jeunesse et la vieillesse. Entre ses sourcils se trouvait une marque en forme de lune, mais ce n'était pas celle du Clan de la Lune; elle ressemblait plutôt à un sceau démoniaque!
 
-Si l'avatar du Maître Dao Miao Yin n'avait pas été possédé, il aurait été stupéfait et extrêmement prudent. Cet homme était l'un des cinq maîtres qui avaient été gravement blessés dans les Terres Déchues auparavant: le Maître Démon Neuf Cieux.
+Si l'avatar de Miaoyin Daozun n'avait pas été possédé, il aurait été stupéfait et extrêmement prudent. Cet homme était l'un des cinq maîtres qui avaient été gravement blessés dans les Terres Déchues auparavant: Jiutian Mozun.
 
-Le Maître Démon Neuf Cieux ouvrit soudainement les yeux, laissant jaillir des éclats de noir et de blanc.
+Jiutian Mozun ouvrit soudainement les yeux, laissant jaillir des éclats de noir et de blanc.
 
-« Le sixième... » La voix du Maître Démon Neuf Cieux était rauque, semblable au frottement de deux épées volantes l'une contre l'autre.
+« Le sixième... » La voix de Jiutian Mozun était rauque, semblable au frottement de deux épées volantes l'une contre l'autre.
 
 Sur la quatrième carte, le brouillard bouillonnait, produisant des sons semblables aux hurlements d'innombrables fantômes. Ces cris pouvaient ébranler l'esprit et emplissaient tout l'espace. Il n'y avait pas beaucoup de cultivateurs ici, et tandis que le brouillard grondait, une plateforme de 50 000 pieds fonçait rapidement vers l'avant.
 
@@ -38,7 +38,7 @@ Une femme était assise sur ladite plateforme. Vêtue de blanc, ses longs cheveu
 
 En avançant, elle fronça soudainement les sourcils, son visage se glaçant un instant.
 
-« Qui est-ce... Peut-être est-ce ce Miao Yin... » La femme réfléchit un moment avant de poursuivre sa progression.
+« Qui est-ce... Peut-être est-ce ce Miaoyin Daozun... » La femme réfléchit un moment avant de poursuivre sa progression.
 
 Plus profondément encore dans le Tombeau Ancien que tous les autres, se trouvait une zone exempte de brouillard. Seul un flux d'air infini y régnait, capable de tout déchiqueter.
 

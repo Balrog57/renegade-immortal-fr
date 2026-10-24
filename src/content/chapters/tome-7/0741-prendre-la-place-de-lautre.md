@@ -116,7 +116,7 @@ Yao Kong poussa un soupir. Il n'avait vraiment pas voulu revenir dans le Systèm
 
 Cependant, s'il ne revenait pas, il ne pourrait trouver la paix. Tout cela, il le faisait pour sa fille, Yao Xixue!
 
-Cet homme était l'Ancêtre Sanguin!
+Cet homme était Xue Zu!
 
 « Je... » Au moment où il prit la parole, la voix rauque l'interrompit.
 
@@ -124,7 +124,7 @@ Cet homme était l'Ancêtre Sanguin!
 
 Cette voix était empreinte d'une détermination et d'une résolution qui ne laissaient place à aucun doute.
 
-L'Ancêtre Sanguin serra le poing et déclara: « Grand-père!! Ma fille unique, Yao Xixue, a été enlevée du Système Stellaire de l'Alliance et emmenée ici. On ignore si elle est vivante ou morte, sa vie ne tient qu'à un fil! Mais elle porte le sang de la famille Yao! »
+Xue Zu serra le poing et déclara: « Grand-père!! Ma fille unique, Yao Xixue, a été enlevée du Système Stellaire de l'Alliance et emmenée ici. On ignore si elle est vivante ou morte, sa vie ne tient qu'à un fil! Mais elle porte le sang de la famille Yao! »
 
 La voix rauque se tut. Après un long silence, un soupir antique s'en échappa.
 

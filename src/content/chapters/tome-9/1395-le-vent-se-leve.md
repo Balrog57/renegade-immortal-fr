@@ -16,7 +16,7 @@ L'expression de Wang Lin demeura calme. Alors que les âmes démoniaques se pré
 
 « Sort du Dao, fusion! » La voix de Wang Lin était sereine, mais empreinte d'une profonde froideur.
 
-Alors que ses paroles résonnaient, une lueur étrange brilla dans ses yeux et il utilisa immédiatement le sort du Dao de fusion du Maître du Dao Rêve Bleu. Des bruits de craquements éclatèrent et les âmes démoniaques se mirent à nouveau à pousser des cris déchirants. Elles cherchaient à s'échapper, mais les mains de Wang Lin étaient telles une prison céleste dont elles ne pouvaient s'extirper!
+Alors que ses paroles résonnaient, une lueur étrange brilla dans ses yeux et il utilisa immédiatement le sort du Dao de fusion de Lanmeng Daozun. Des bruits de craquements éclatèrent et les âmes démoniaques se mirent à nouveau à pousser des cris déchirants. Elles cherchaient à s'échapper, mais les mains de Wang Lin étaient telles une prison céleste dont elles ne pouvaient s'extirper!
 
 Wang Lin ferma les yeux et concentra son esprit sur la fusion. Sous l'effet du sort du Dao, d'innombrables démons fusionnaient entre eux. Le temps s'écoulait lentement, et en un clin d'œil, sept jours s'étaient écoulés.
 

@@ -68,7 +68,7 @@ Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à 
 
 Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans le Tombeau de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
 
-La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre Sanguin, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
+La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de Xue Zu, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
 
 Finalement, ses souvenirs s'arrêtèrent. Wang Lin fut tiré de sa torpeur. Il eut l'impression qu'une force puissante l'avait saisi pour le tirer vers le haut. Puis, il ouvrit soudainement les yeux. Il était trempé de sueur et la montagne se dressait toujours devant lui.
 
@@ -102,7 +102,7 @@ Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume de la Boucher
 
 Le Sceau Céleste servait de terre, les sceaux dorés, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
 
-Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse: c'était l'Ancêtre Sanguin, tué par Wang Lin!
+Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse: c'était Xue Zu, tué par Wang Lin!
 
 Plus de 100 fragments d'âme d'êtres célestes massacrés par Wang Lin dans le Cimetière des Immortels étaient scellés dans la 13e couche. Ils poussaient des hurlements démoniaques, cherchant à s'échapper, mais ils restaient totalement emprisonnés.
 

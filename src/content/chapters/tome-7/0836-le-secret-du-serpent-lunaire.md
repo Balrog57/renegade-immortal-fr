@@ -39,7 +39,7 @@ Le cuir chevelu de Wang Lin s'engourdit alors qu'il était traqué par ces monst
 
 Alors que les Serpents aux yeux de lune se précipitaient pour dévorer Wang Lin, celui-ci afficha un regard féroce et un rugissement puissant résonna à travers le corps du Serpent aux yeux de lune. Sous l'effet de ce cri, tous les petits serpents qui chargeaient s'arrêtèrent net et reculèrent, créant ainsi un passage.
 
-Les yeux de Wang Lin se rétrécirent, mais à cet instant précis, des bruits de rupture retentirent. Un immense Serpent aux yeux de lune d'environ 33 kilomètres de long surgit soudainement du passage. Sa vitesse était prodigieuse et l'aura qu'il dégageait n'était pas moins puissante que celle de l'Ancêtre Sanguin. Ce spectacle bouleversa l'expression de Wang Lin.
+Les yeux de Wang Lin se rétrécirent, mais à cet instant précis, des bruits de rupture retentirent. Un immense Serpent aux yeux de lune d'environ 33 kilomètres de long surgit soudainement du passage. Sa vitesse était prodigieuse et l'aura qu'il dégageait n'était pas moins puissante que celle de Xue Zu. Ce spectacle bouleversa l'expression de Wang Lin.
 
 S'élançant avec une vélocité incroyable, le Serpent aux yeux de lune engloutit directement Wang Lin, avant de plonger rapidement sous terre pour disparaître. Tous les autres Serpents aux yeux de lune s'élancèrent à sa suite dans le lointain.
 

@@ -28,15 +28,15 @@ Personne ne pouvait rivaliser avec Grande Désolation. Ses runes avaient déjà 
 
 Une fois devenue une plateforme de rang 5, il perçut les autres plateformes, et son expression changea.
 
-À la lisière de la huitième carte, Maître Démon Neuf Cieux venait tout juste de réprimer le sentiment troublant qui lui serrait le cœur. Son visage se décomposa soudainement, empreint d'une incrédulité totale. Pour la première fois, sa plateforme s'arrêta net.
+À la lisière de la huitième carte, Jiutian Mozun venait tout juste de réprimer le sentiment troublant qui lui serrait le cœur. Son visage se décomposa soudainement, empreint d'une incrédulité totale. Pour la première fois, sa plateforme s'arrêta net.
 
-« Impossible!! » Les yeux de Maître Démon Neuf Cieux étaient remplis d'horreur. Il sentait clairement que la plateforme qui avait atteint le rang 7 il y a seulement quelques heures venait de passer au rang 8!
+« Impossible!! » Les yeux de Jiutian Mozun étaient remplis d'horreur. Il sentait clairement que la plateforme qui avait atteint le rang 7 il y a seulement quelques heures venait de passer au rang 8!
 
 La toute première plateforme de rang 8!
 
-Ce changement dépassait toutes les attentes de Maître Démon Neuf Cieux. S'il n'avait pas pu le ressentir si nettement à travers la plateforme, il ne l'aurait jamais cru!
+Ce changement dépassait toutes les attentes de Jiutian Mozun. S'il n'avait pas pu le ressentir si nettement à travers la plateforme, il ne l'aurait jamais cru!
 
-« En moins d'une journée, cette personne est passée du rang 5 au rang 8... C'est... C'est... » Maître Démon Neuf Cieux haleta, stupéfait.
+« En moins d'une journée, cette personne est passée du rang 5 au rang 8... C'est... C'est... » Jiutian Mozun haleta, stupéfait.
 
 Il était initialement très confiant quant au fait qu'il serait le premier à atteindre le rang 8. Cependant, ce bouleversement soudain fit trembler son esprit.
 
@@ -50,7 +50,7 @@ Au-dessus de la mer de brouillard dans la huitième carte, la femme en blanc aff
 
 Elle savait pertinemment que si elle ne comprenait pas comment ce mystérieux individu avait pu augmenter le rang de sa plateforme aussi vite, il est fort probable que celui-ci atteigne le rang 9 dans quelques heures!
 
-Tout comme Maître Démon Neuf Cieux, elle n'autoriserait jamais une telle chose!
+Tout comme Jiutian Mozun, elle n'autoriserait jamais une telle chose!
 
 Dans la neuvième carte, la femme sur la plateforme située derrière Tuo Sen se leva. Son visage n'avait plus rien de charmant; il était désormais empreint d'une intention meurtrière pure.
 
@@ -92,9 +92,9 @@ Les autres perdaient un temps précieux à chercher leur chemin dans la huitièm
 
 Alors qu'il progressait, un grondement de tonnerre retentit. Il contourna prestement les quatre poursuivants, sortit de la sixième carte et pénétra dans la septième.
 
-Maître Démon Neuf Cieux se trouvait également dans la septième carte, le visage extrêmement sombre. L'autre partie était comme une loche glissante qui esquivait habilement sa poursuite, comme s'il connaissait ses moindres mouvements.
+Jiutian Mozun se trouvait également dans la septième carte, le visage extrêmement sombre. L'autre partie était comme une loche glissante qui esquivait habilement sa poursuite, comme s'il connaissait ses moindres mouvements.
 
-« C'est sûrement parce que la plateforme de rang 8 peut ressentir les autres plateformes avec encore plus de clarté... » Les yeux du Maître Démon Neuf Cieux s'illuminèrent et il confectionna un sceau manuel. Puis, il appuya violemment sur sa plateforme, la faisant bondir vers l'avant.
+« C'est sûrement parce que la plateforme de rang 8 peut ressentir les autres plateformes avec encore plus de clarté... » Les yeux de Jiutian Mozun s'illuminèrent et il confectionna un sceau manuel. Puis, il appuya violemment sur sa plateforme, la faisant bondir vers l'avant.
 
 La femme en blanc et la belle femme traversaient rapidement la Tombe de l'Ordre Antique, continuant de se rapprocher de Wang Lin.
 
@@ -116,4 +116,4 @@ Le brouillard gronda et une mer de feu surgit derrière Wang Lin. Un immense par
 
 Dès son ouverture, un feu capable de ravager des mondes jaillit et se rua dans toutes les directions.
 
-À cet instant, une plateforme de 70 000 pieds apparut sur la gauche, la silhouette du Maître Démon Neuf Cieux se devinant dans le brouillard. Sur la droite, une autre plateforme surgit. Les yeux de la femme en blanc étaient aussi vifs que l'éclair, mais lorsqu'elle aperçut Wang Lin, elle fut manifestement saisie de stupeur.
+À cet instant, une plateforme de 70 000 pieds apparut sur la gauche, la silhouette de Jiutian Mozun se devinant dans le brouillard. Sur la droite, une autre plateforme surgit. Les yeux de la femme en blanc étaient aussi vifs que l'éclair, mais lorsqu'elle aperçut Wang Lin, elle fut manifestement saisie de stupeur.

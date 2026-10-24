@@ -36,7 +36,7 @@ Seules les quelques personnes observant l'Épreuve Empyrée depuis l'extérieur 
 
 « Je crains qu'il ne soit immédiatement attiré par l'Empereur Céleste et le Grand Empyréen Jiu Di. Même les Grands Empyréens Dao Yi et Wu Feng auraient du mal à rivaliser avec ces deux-là... »
 
-« Quel dommage. Si le Grand Empyréen Gémeaux de ma Secte Yang Pourpre n'avait pas subi d'accident lors de sa dernière réincarnation, nous pourrions rivaliser avec l'Empereur Céleste et Jiu Di... »
+« Quel dommage. Si le Grand Empyréen Shuangzi de ma Secte Yang Pourpre n'avait pas subi d'accident lors de sa dernière réincarnation, nous pourrions rivaliser avec l'Empereur Céleste et Jiu Di... »
 
 L'homme soupira amèrement, prêt à abandonner toute idée de recruter cet homme. Cependant, à ce moment précis, la porte fut enfoncée et une petite fille en rouge s'y engouffra en courant.
 
@@ -64,19 +64,19 @@ L'homme d'âge mûr déglutit et fixa la fillette, stupéfait. Après un long mo
 
 La petite fille fronça les sourcils et pointa l'homme du doigt en adoptant un ton solennel: « Petit Gu Ya, vas-tu être désobéissant? »
 
-« Le Grand Empyréen Gémeaux avait vraiment eu la clairvoyance de le sauver autrefois. Grâce à cela, nous pourrons peut-être vraiment le recruter! » L'homme rit d'excitation, le visage empourpré. Il cajolait même la petite Ancêtre comme s'il s'agissait d'un enfant.
+« Le Grand Empyréen Shuangzi avait vraiment eu la clairvoyance de le sauver autrefois. Grâce à cela, nous pourrons peut-être vraiment le recruter! » L'homme rit d'excitation, le visage empourpré. Il cajolait même la petite Ancêtre comme s'il s'agissait d'un enfant.
 
 En entendant cela, la petite fille sourit immédiatement, l'air très fière.
 
 « Hmph, c'est ce que ça fait quand on désobéit, Petit Gu Ya. Maintenant tu sais à quel point Han Han et moi sommes puissantes et perspicaces. Je t'avais déjà dit d'oublier ceux qui sont partis, mais tu n'as pas écouté. »
 
-« Moi, le Grand Empyréen Gémeaux, je ne force jamais personne à rester. S'ils veulent partir, qu'ils partent. Qui contrôle le cours du destin? Comment peux-tu, ou eux, comprendre cela? » Plus la petite fille parlait, plus elle se sentait fière.
+« Moi, le Grand Empyréen Shuangzi, je ne force jamais personne à rester. S'ils veulent partir, qu'ils partent. Qui contrôle le cours du destin? Comment peux-tu, ou eux, comprendre cela? » Plus la petite fille parlait, plus elle se sentait fière.
 
-« Oui, oui, oui. Le Grand Empyréen Gémeaux contrôle le cours du destin. Gu Ya vous admire, vous admire énormément... » Le cultivateur sourit rapidement et regarda la fillette avec un regard empreint de dévotion.
+« Oui, oui, oui. Le Grand Empyréen Shuangzi contrôle le cours du destin. Gu Ya vous admire, vous admire énormément... » Le cultivateur sourit rapidement et regarda la fillette avec un regard empreint de dévotion.
 
-Bien que sa culture fût limitée, lorsque le Grand Empyréen Gémeaux avait subi cet accident lors de sa réincarnation, il avait choisi de rester pour s'occuper des deux petites filles alors que tous les autres étaient partis. Tout ce qu'il avait accompli jusqu'à présent était en reconnaissance de la grâce qu'elle lui avait témoignée à son apogée.
+Bien que sa culture fût limitée, lorsque le Grand Empyréen Shuangzi avait subi cet accident lors de sa réincarnation, il avait choisi de rester pour s'occuper des deux petites filles alors que tous les autres étaient partis. Tout ce qu'il avait accompli jusqu'à présent était en reconnaissance de la grâce qu'elle lui avait témoignée à son apogée.
 
-À l'époque, il n'était qu'un Exalté Empyréen inconnu sous les ordres du Grand Empyréen Gémeaux, mais aujourd'hui, il était le seul fidèle restant.
+À l'époque, il n'était qu'un Exalté Empyréen inconnu sous les ordres du Grand Empyréen Shuangzi, mais aujourd'hui, il était le seul fidèle restant.
 
 Tandis que des rires résonnaient dans la Secte Yang Pourpre, sur le Mont de l'Empereur, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
 

@@ -28,7 +28,7 @@ Il resta stupéfait pendant quatre ou cinq jours avant de réagir. Il se précip
 
 C'est là qu'il avait trouvé ce corps brisé et l'avait ramené ici.
 
-« Enfin, quelqu'un pour m'accompagner... Bien que ce soit un mort, comment un cadavre peut-il croître à nouveau? Oh... Peut-être, qui sait. Je le dis, il va pleuvoir aujourd'hui... Petite Rouge, va chercher la Pierre de Jade de l'Abri de Pluie... Hein? Je l'ai mangée la dernière fois que j'étais ivre, tu dis... Alors va demander à la famille Li d'en fournir une autre. Bon sang, s'ils refusent, dis-leur que ce roi demandera à mon grand frère de venir la voler demain! »
+« Enfin, quelqu'un pour m'accompagner... Bien que ce soit un mort, comment un cadavre peut-il croître à nouveau? Oh... Peut-être, qui sait. Je le dis, il va pleuvoir aujourd'hui... Xiao Hong, va chercher la Pierre de Jade de l'Abri de Pluie... Hein? Je l'ai mangée la dernière fois que j'étais ivre, tu dis... Alors va demander à la famille Li d'en fournir une autre. Bon sang, s'ils refusent, dis-leur que ce roi demandera à mon grand frère de venir la voler demain! »
 
 « C'est peut-être ça... Peut-être qu'il n'y a pas assez d'argent... Et s'il n'y en a pas assez... Petit Gui, va trouver mon grand frère et dis-lui de m'en donner. S'il refuse, dis-lui que demain ce roi va... Euh, j'irai la voler moi-même! » Le cultivateur ne savait même plus ce qu'il marmonnait. Ce phénomène avait commencé lorsqu'il était piégé dans le Royaume aux Sept Couleurs. Sans ces divagations incessantes, il serait sans doute devenu véritablement fou.
 
@@ -68,13 +68,13 @@ Le fou sursauta et desserra sa prise. Il resta pensif un long moment. Il regarda
 
 « Bois, bois encore pour que tu puisses vite reconstruire ton corps et pouvoir jouer avec moi... » Cela faisait bien plus d'un ou deux jours qu'il nourrissait ce corps. Depuis qu'il l'avait trouvé, chaque fois qu'il y pensait, il lui donnait un peu de son sang.
 
-« Le sang de ce roi est très précieux. Cette petite fille de la famille Li m'a supplié pendant des années avant que je ne lui en donne une seule goutte. Et puis, il y avait aussi qui... qui... qui... Petite Rouge, c'était elle? »
+« Le sang de ce roi est très précieux. Cette petite fille de la famille Li m'a supplié pendant des années avant que je ne lui en donne une seule goutte. Et puis, il y avait aussi qui... qui... qui... Xiao Hong, c'était elle? »
 
 « Ah oui, c'était la sainte de cette secte qui avait été enlevée par quelqu'un par la suite. Si je n'avais pas eu pitié d'elle, ce roi ne lui en aurait jamais donné. »
 
 « Une seule goutte du sang de ce roi est plus précieuse que le Sage du Dao! »
 
-« Hélas, il n'y a rien à manger. Petite Rouge, va chez la famille Chi Mo me chercher des fruits. Ces fruits qu'ils cultivent et qui ne poussent qu'une fois tous les 100 000 ans... Le Fruit du Rêve. Apporte-les moi. S'ils refusent, dis-leur que ce roi demandera à mon grand frère de venir les voler demain! »
+« Hélas, il n'y a rien à manger. Xiao Hong, va chez la famille Chi Mo me chercher des fruits. Ces fruits qu'ils cultivent et qui ne poussent qu'une fois tous les 100 000 ans... Le Fruit du Rêve. Apporte-les moi. S'ils refusent, dis-leur que ce roi demandera à mon grand frère de venir les voler demain! »
 
 Alors que le fou marmonnait pour lui-même, il ne remarqua pas que le cadavre, qui se remettait rapidement, ralentit soudainement après avoir absorbé son sang. Non seulement la guérison s'arrêta, mais elle s'inversa, aggravant les blessures.
 
@@ -94,4 +94,4 @@ L'arc sentait que la lignée changeante de Wang Lin était dix, voire cent fois 
 
 Le fou fixait le ciel d'un air absent et continuait ses divagations.
 
-« Il pleut... Hein? Petite Rouge, viens masser les épaules de ton maître... »
+« Il pleut... Hein? Xiao Hong, viens masser les épaules de ton maître... »

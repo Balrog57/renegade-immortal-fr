@@ -60,9 +60,9 @@ Au moment de la percée, Wang Lin sembla ressentir son propre Dao! C'était comm
 
 Un long cri s'échappa de sa bouche, un cri qui perça les nuages et se propagea vers le monde extérieur.
 
-L'Ancêtre Sanguin observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce cri, son expression changea radicalement.
+Xue Zu observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce cri, son expression changea radicalement.
 
-« Yin Illusoire... » Le visage de l'Ancêtre Sanguin s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
+« Yin Illusoire... » Le visage de Xue Zu s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
 
 Alors qu'il parlait, son expression se mua une fois de plus alors qu'il fixait les nuages tourbillonnants devant lui.
 
@@ -84,13 +84,13 @@ Ce processus était appelé transformation originelle. Il visait à élever un c
 
 Depuis la disparition des anciens et l'effondrement du Royaume Céleste, très peu de personnes avaient réussi à franchir ces deux royaumes d'un seul élan, au moment de la percée de l'Ascendant; mais tous ceux qui y étaient parvenus avaient accompli des exploits prodigieux et siégé au sommet de la seconde étape!
 
-Même l'Omniscient avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et l'Ancêtre Sanguin près de 1 000 ans.
+Même l'Omniscient avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et Xue Zu près de 1 000 ans.
 
 Cela n'avait rien à voir avec le talent. La raison principale était l'énergie originelle!
 
 À cet instant, Wang Lin progressait inexorablement dans cette voie! La rétribution divine lui servait de nutriments, tandis que le corps de sang et la puissance du vieil homme étaient l'énergie originelle alimentant ce processus!
 
-L'Ancêtre Sanguin fixa les nuages devant lui, son intention meurtrière redoublant d'intensité.
+Xue Zu fixa les nuages devant lui, son intention meurtrière redoublant d'intensité.
 
 « Je suis venu pour le tuer, et je lui offre une fortune immense! Je ne m'y résigne pas! »
 

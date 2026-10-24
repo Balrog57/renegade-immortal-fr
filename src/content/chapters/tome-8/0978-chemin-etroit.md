@@ -88,7 +88,7 @@ Assis sur le dos de Lei Ji, Wang Lin restait plongé dans son énergie originell
 
 Ses yeux s'illuminèrent et il pensa: « Autrefois, ma culture était au début du Scruteur du Nirvana et, grâce à mon corps de Dieu Ancien, je pouvais affronter des cultivateurs au début du Purificateur du Nirvana... Maintenant que j'ai atteint le stade intermédiaire du Scruteur du Nirvana, les cultivateurs au début du Purificateur du Nirvana ne sont plus un problème. Je peux désormais rivaliser avec ceux du stade intermédiaire! »
 
-« À l'époque, l'Ancêtre Sanguin était au stade intermédiaire du Purificateur du Nirvana. Si je me trouvais à cette époque, je devrais pouvoir l'affronter! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Purificateur du Nirvana voulait me tuer, ce ne serait pas aussi facile! »
+« À l'époque, Xue Zu était au stade intermédiaire du Purificateur du Nirvana. Si je me trouvais à cette époque, je devrais pouvoir l'affronter! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Purificateur du Nirvana voulait me tuer, ce ne serait pas aussi facile! »
 
 À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait près de cent mètres de long et émettait des ondes de fluctuations de trésor magique.
 

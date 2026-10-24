@@ -74,7 +74,7 @@ Non seulement lui, mais Wang Lin également regarda au loin. En bas, les cultiva
 
 « Hmph, hmph, vous avez bien de l'audace. Un événement aussi animé se déroule sans que ce roi ne soit invité! Vous... Est-ce que je n'existe plus à vos yeux?! »
 
-« Petit Rouge, Petit Vert, Petit Blanc, Petit Bleu, ouvrez la voie à ce roi! » Le réseau de transfert à l'extérieur des neuf portes étincela et une foule de gens en sortit.
+« Xiao Hong, Petit Vert, Petit Blanc, Petit Bleu, ouvrez la voie à ce roi! » Le réseau de transfert à l'extérieur des neuf portes étincela et une foule de gens en sortit.
 
 À leur tête se trouvait un jeune homme portant une chemise fleurie et tenant un éventail. Son visage était empreint de colère et il agitait son éventail avec une telle vigueur que ses cheveux volaient dans tous les sens.
 
@@ -84,7 +84,7 @@ Non seulement lui, mais Wang Lin également regarda au loin. En bas, les cultiva
 
 « Qu'importe ce palais impérial? Je suis le roi! » Le jeune homme à la chemise fleurie, très mécontent de son compagnon, l'attrapa et le poussa en avant.
 
-« Petit Rouge, montre la majesté que tu as déployée lorsque tu es allé au manoir des Li! Sinon, ce roi te punira! » Le jeune homme s'avança et donna un coup de pied dans les fesses de Xu Liguo. Ce dernier trembla sous le regard de dizaines de milliers de cultivateurs. Il serra les dents et tenta d'avancer comme s'il allait donner tout ce qu'il avait, mais il finit par cracher une bouchée de sang et s'effondra en se tenant les fesses. Après quelques convulsions, il resta immobile.
+« Xiao Hong, montre la majesté que tu as déployée lorsque tu es allé au manoir des Li! Sinon, ce roi te punira! » Le jeune homme s'avança et donna un coup de pied dans les fesses de Xu Liguo. Ce dernier trembla sous le regard de dizaines de milliers de cultivateurs. Il serra les dents et tenta d'avancer comme s'il allait donner tout ce qu'il avait, mais il finit par cracher une bouchée de sang et s'effondra en se tenant les fesses. Après quelques convulsions, il resta immobile.
 
 « Ah? Est-il mort? » Le jeune homme à la chemise fleurie regarda ses pieds, perplexe.
 

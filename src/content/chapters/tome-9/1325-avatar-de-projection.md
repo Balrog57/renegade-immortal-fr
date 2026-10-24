@@ -18,9 +18,9 @@ Tout cela se produisit en un instant. Alors que la femme s'approchait avec son s
 
 Alors que la terre descendait, le monde trembla et une pression inimaginable surgit. L'expression de la femme en blanc changea radicalement!
 
-« Le Sceau d'Inversion Céleste du Maître du Dao Rêve Bleu! Il t'a transmis ce sort! » La femme cessa d'avancer, son corps fut renversé, puis ses mains formèrent un sceau tandis qu'elle murmurait une incantation. Une lumière blanche émana de son corps pour résister au sortilège.
+« Le Sceau d'Inversion Céleste de Lanmeng Daozun! Il t'a transmis ce sort! » La femme cessa d'avancer, son corps fut renversé, puis ses mains formèrent un sceau tandis qu'elle murmurait une incantation. Une lumière blanche émana de son corps pour résister au sortilège.
 
-Cependant, le Sceau d'Inversion Céleste était l'un des grands sorts du Maître du Dao Rêve Bleu. À cet instant, la terre devenue ciel s'écrasa sur elle. La fissure spatiale créée par la femme en blanc s'effondra immédiatement! La lumière blanche émanant de son corps se désintégra également! Face à ce danger imminent, elle ouvrit la bouche et cracha un jade blanc. Dès que le jade apparut, le monde trembla et l'objet flotta devant la femme, formant une barrière blanche!
+Cependant, le Sceau d'Inversion Céleste était l'un des grands sorts de Lanmeng Daozun. À cet instant, la terre devenue ciel s'écrasa sur elle. La fissure spatiale créée par la femme en blanc s'effondra immédiatement! La lumière blanche émanant de son corps se désintégra également! Face à ce danger imminent, elle ouvrit la bouche et cracha un jade blanc. Dès que le jade apparut, le monde trembla et l'objet flotta devant la femme, formant une barrière blanche!
 
 Des grondements tonitruants se propagèrent à travers les étoiles. Le ciel et la terre se superposèrent en cet instant, créant une pression encore plus violente. L'espace lui-même semblait prêt à s'effondrer alors que de multiples fissures spatiales apparaissaient.
 

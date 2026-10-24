@@ -90,7 +90,7 @@ Il était tel un chasseur ayant patienté jusqu'à l'instant parfait pour décle
 
 Wang Lin n'était absolument pas affecté par la malédiction ancestrale. À cet instant, alors que Dao Yi poussait un cri tragique, que Wu Feng reculait et que Jiu Di résistait à la malédiction, Wang Lin chargea directement dans l'œil gauche!
 
-En voyant Wang Lin, Gémeaux afficha immédiatement une expression de joie pure!
+En voyant Wang Lin, Shuangzi afficha immédiatement une expression de joie pure!
 
 L'Exalté Empyréen Hai Zi également: des ondulations parcoururent son regard, traversé par un éclair d'excitation.
 

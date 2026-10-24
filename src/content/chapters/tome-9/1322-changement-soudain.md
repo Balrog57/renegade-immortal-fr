@@ -32,9 +32,9 @@ Wang Lin murmura pour lui-même en levant les yeux vers le ciel. Son regard semb
 
 « Il est impossible de rester éternellement dans ce Clan de la Soie Bleue, je dois parcourir ce Système Stellaire Antique! Maintenant que la Déformation Spatiale est fusionnée et que je dispose d'un moyen de fuite, la prochaine étape consiste à fusionner toutes mes techniques! En particulier les sorts de Bai Fan! » Méditant, Wang Lin énuméra en silence les sorts qu'il avait appris au cours de sa vie.
 
-Le sort d'Arrêt l'avait accompagné durant la majeure partie de sa vie, et les six sorts de Bai Fan l'avaient sauvé à plusieurs reprises. En plus de ses deux sorts personnels, il possédait également le Sceau d'Inversion Céleste du Maître du Dao Rêve Bleu ainsi que le Bouclier de Lumière et d'Ombre.
+Le sort d'Arrêt l'avait accompagné durant la majeure partie de sa vie, et les six sorts de Bai Fan l'avaient sauvé à plusieurs reprises. En plus de ses deux sorts personnels, il possédait également le Sceau d'Inversion Céleste de Lanmeng Daozun ainsi que le Bouclier de Lumière et d'Ombre.
 
-« Avec l'aide du Maître du Dao Rêve Bleu, “Appel du Vent” et “Invocation de la Pluie” ont été fusionnés en un monde propre capable d'attaquer et de défendre... Mais ce n'est là que la fusion de deux sorts... Si je pouvais y fusionner l'Arsenal Magique, sa puissance... » Les yeux de Wang Lin s'illuminèrent et son cœur se mit à battre la chamade.
+« Avec l'aide de Lanmeng Daozun, “Appel du Vent” et “Invocation de la Pluie” ont été fusionnés en un monde propre capable d'attaquer et de défendre... Mais ce n'est là que la fusion de deux sorts... Si je pouvais y fusionner l'Arsenal Magique, sa puissance... » Les yeux de Wang Lin s'illuminèrent et son cœur se mit à battre la chamade.
 
 Il leva la main droite et pointa le ciel. Ses yeux libérèrent une lumière étrange, et le vortex formé par la fusion de l'Appel du Vent et de l'Invocation de la Pluie apparut.
 
@@ -42,7 +42,7 @@ Cette sphère tourbillonnante n'était pas grande, mais si un cultivateur l'avai
 
 Une fois activée, elle deviendrait un monde en soi!
 
-Le Maître du Dao Rêve Bleu avait aidé Wang Lin à créer cela. C'était parfait, sans la moindre faille, et porteur d'une puissance immense!
+Lanmeng Daozun avait aidé Wang Lin à créer cela. C'était parfait, sans la moindre faille, et porteur d'une puissance immense!
 
 « Arsenal Magique! » Wang Lin ouvrit la bouche et cracha le Sceau Céleste. Un rugissement tonitruant résonna tandis que Wang Lin agitait ses manches. Dans un éclat de lumière, d'innombrables âmes de combat apparurent.
 

@@ -10,7 +10,7 @@ La Tribulation Arcanique était une métamorphose située entre le Vide Arcaniqu
 
 Si l'on ne parvenait pas à surmonter une Tribulation Arcanique, on mourait. De nombreux cultivateurs du Vide Arcanique redoutaient ces tribulations. Beaucoup préféraient rester au stade du Vide Arcanique plutôt que de faire face à ces terrifiantes épreuves!
 
-À l'instar du Maître du Dao Rêve Bleu, qui était resté au sommet du Vide Arcanique pendant une longue période sans jamais franchir le stade de la Tribulation Arcanique.
+À l'instar de Lanmeng Daozun, qui était resté au sommet du Vide Arcanique pendant une longue période sans jamais franchir le stade de la Tribulation Arcanique.
 
 Une fois engagé dans une Tribulation Arcanique, c’était comme affronter neuf situations de vie ou de mort. Tout le monde n'avait pas un tel courage. La plupart des cultivateurs de la Tribulation du Vide passaient des milliers d'années, voire plus, pour surmonter lentement chaque étape.
 

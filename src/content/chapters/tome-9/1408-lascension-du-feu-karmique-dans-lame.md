@@ -20,7 +20,7 @@ Les cultivateurs capables d'atteindre le Feu Éthéré étaient d'une puissance 
 
 C'était une technique terrifiante. Il faut admettre que tous les êtres vivants possèdent des émotions. Peu importe l'indifférence d'un individu ou sa capacité à les dissimuler, les émotions résident toujours en lui.
 
-Même la nostalgie du Maître du Dao Rêve Bleu pour sa femme et sa tendresse pour sa fille pouvait servir de combustible au Feu Éthéré! Seuls ceux capables de bloquer parfaitement toute émotion, ou de les supprimer totalement, pouvaient espérer ne pas craindre le Feu Éthéré!
+Même la nostalgie de Lanmeng Daozun pour sa femme et sa tendresse pour sa fille pouvait servir de combustible au Feu Éthéré! Seuls ceux capables de bloquer parfaitement toute émotion, ou de les supprimer totalement, pouvaient espérer ne pas craindre le Feu Éthéré!
 
 La véritable terreur d'un cultivateur du Feu Éthéré ne résidait pas dans les duels singuliers, mais dans les batailles de groupe!
 

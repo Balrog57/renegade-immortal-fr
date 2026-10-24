@@ -26,9 +26,9 @@ Il se déplaçait à une vitesse fulgurante sans marquer d'arrêt sur ce fragmen
 
 Après avoir volé avec prudence pendant un mois le long de la chaîne dans le vide, Wang Lin aperçut un autre fragment. Il prit une profonde inspiration et s'enfonça directement sous terre dès qu'il eut atteint ce nouveau territoire. Après avoir trouvé l'emplacement idéal, il commença à disposer des restrictions.
 
-Durant ce mois de voyage, Wang Lin étudia les restrictions de dissimulation d'aura que Li Yuan lui avait transmises. Ses recherches progressaient à une vitesse prodigieuse, poussées par la menace imminente de l'Ancêtre Sanguin.
+Durant ce mois de voyage, Wang Lin étudia les restrictions de dissimulation d'aura que Li Yuan lui avait transmises. Ses recherches progressaient à une vitesse prodigieuse, poussées par la menace imminente de Xue Zu.
 
-Il ne pouvait pas se dissimuler totalement de l'Ancêtre Sanguin; il ne pouvait qu'augmenter la difficulté de sa détection. En temps normal, il finirait par être découvert, mais combiné à son plan actuel, il était possible qu'il parvienne réellement à rester caché.
+Il ne pouvait pas se dissimuler totalement de Xue Zu; il ne pouvait qu'augmenter la difficulté de sa détection. En temps normal, il finirait par être découvert, mais combiné à son plan actuel, il était possible qu'il parvienne réellement à rester caché.
 
 Des filaments de restrictions apparurent autour de lui, formant une sphère protectrice dans laquelle il s'assit. Juste au moment où la sphère était sur le point de se refermer, le garde céleste fit son apparition.
 
@@ -42,17 +42,17 @@ Le garde céleste ouvrit les yeux, dont le regard devint glacial. Il saisit le c
 
 Après avoir remué son corps pour surmonter l'inconfort des premiers instants, Wang Lin scruta les profondeurs avec son sens divin. Il était incapable de détecter où se trouvait son véritable corps.
 
-« Sans le garde céleste, je ne pourrais peut-être pas tromper l'Ancêtre Sanguin. Cependant, je prends l'initiative: une fois qu'il aura pris conscience de l'âme originelle présente dans ce corps, il ne pourra éviter cette attraction. »
+« Sans le garde céleste, je ne pourrais peut-être pas tromper Xue Zu. Cependant, je prends l'initiative: une fois qu'il aura pris conscience de l'âme originelle présente dans ce corps, il ne pourra éviter cette attraction. »
 
 Wang Lin baissa la tête et contempla son corps. Il s'élança vers l'horizon tel un météore, son sens divin déployé au maximum. Il était comme une lueur éclatante dans les ténèbres; si quelqu'un le cherchait, il pourrait immédiatement le verrouiller du regard.
 
 Wang Lin volait sans retenue. Il avait réprimé sa présence depuis son arrivée dans le Système Stellaire de Luotian. Après tout, il s'était enfui ici, et ces vieux monstres du Système Stellaire de l'Alliance auraient pu le poursuivre à tout instant. La réalité de la situation imposait la prudence.
 
-Toutefois, puisque l'Ancêtre Sanguin était déjà arrivé et compte tenu de la puissance de ce corps, Wang Lin décida de relâcher sa vigilance. Bien que le garde céleste ne fût pas comparable à son corps originel, il était bien plus puissant que n'importe quel cultivateur, et même surpassait certains cultivateurs de raffinement corporel.
+Toutefois, puisque Xue Zu était déjà arrivé et compte tenu de la puissance de ce corps, Wang Lin décida de relâcher sa vigilance. Bien que le garde céleste ne fût pas comparable à son corps originel, il était bien plus puissant que n'importe quel cultivateur, et même surpassait certains cultivateurs de raffinement corporel.
 
 Par conséquent, Wang Lin arborait naturellement une aura arrogante durant son vol.
 
-« Ancêtre Sanguin! Je t'attends! » Les yeux de Wang Lin étaient d'une froideur extrême. Il était venu pour tuer!
+« Xue Zu! Je t'attends! » Les yeux de Wang Lin étaient d'une froideur extrême. Il était venu pour tuer!
 
 Peut-être à cause de son intention meurtrière et de l'aura de ce corps ayant atteint le stade Yin Illusoire, tout cultivateur qu'il croisait en chemin hésitait un instant avant de l'éviter.
 
@@ -66,11 +66,11 @@ En particulier, la puissance de ce corps capable de rivaliser avec des trésors 
 
 Pourtant, Wang Lin ne progressait pas aveuglément. Il gravitait autour des fragments proches de celui où reposait son corps. Cette stratégie limitait ses mouvements mais présentait deux avantages.
 
-Le premier était qu'il ne se déplaçait pas au hasard, évitant ainsi de rater accidentellement l'Ancêtre Sanguin. Le second était qu'il protégeait indirectement son corps; s'il s'éloignait trop et que l'Ancêtre Sanguin découvrait son véritable corps, il se retrouverait en position défensive.
+Le premier était qu'il ne se déplaçait pas au hasard, évitant ainsi de rater accidentellement Xue Zu. Le second était qu'il protégeait indirectement son corps; s'il s'éloignait trop et que Xue Zu découvrait son véritable corps, il se retrouverait en position défensive.
 
-Il traquait l'Ancêtre Sanguin tandis que l'Ancêtre Sanguin le traquait lui! Les deux étaient de plus en plus proches...
+Il traquait Xue Zu tandis que Xue Zu le traquait lui! Les deux étaient de plus en plus proches...
 
-L'Ancêtre Sanguin, vêtu d'une robe rouge, traversait le vide. Chaque pas équivalait à une téléportation, et il parcourait les chaînes à une vitesse fulgurante.
+Xue Zu, vêtu d'une robe rouge, traversait le vide. Chaque pas équivalait à une téléportation, et il parcourait les chaînes à une vitesse fulgurante.
 
 Son expression était calme, comme s'il n'était nullement en colère. Pourtant, ses yeux devenaient plus rouges de jour en jour. Avec sa culture, même si les cieux s'effondraient, son humeur resterait imperturbable, mais sa fille unique, Yao Xixue, était sa seule faiblesse!
 
@@ -80,17 +80,17 @@ C'était là qu'il différait radicalement de l'Omniscient et de Ling Tianhou. S
 
 Pour sa propre fille, il était prêt à renoncer à sa dignité, à briser le serment que son père mourant lui avait imposé: celui de ne jamais poser le pied dans le Système Stellaire de Luotian...
 
-« Père... Quand tu m'as fait prêter ce serment, pourquoi as-tu laissé derrière toi une Pierre de Luotian... » Cette question hantait le cœur de l'Ancêtre Sanguin depuis bien longtemps.
+« Père... Quand tu m'as fait prêter ce serment, pourquoi as-tu laissé derrière toi une Pierre de Luotian... » Cette question hantait le cœur de Xue Zu depuis bien longtemps.
 
-L'Ancêtre Sanguin fit un pas calme et se posa sur le fragment. Son sens divin s'étendit comme une tempête, couvrant l'intégralité du continent.
+Xue Zu fit un pas calme et se posa sur le fragment. Son sens divin s'étendit comme une tempête, couvrant l'intégralité du continent.
 
 Cependant, à cet instant, son visage habituellement serein se glaça. Il leva lentement la tête vers l'horizon. Ses yeux dégageaient une intention meurtrière si dense qu'elle semblait presque tangible.
 
 « Wang Lin... »
 
-Son intention de tuer était si puissante qu'une montagne située devant lui en fut affectée et s'effondra instantanément. Alors que les roches et la poussière volaient dans tous les sens, l'Ancêtre Sanguin fit un pas et disparut sans laisser de trace.
+Son intention de tuer était si puissante qu'une montagne située devant lui en fut affectée et s'effondra instantanément. Alors que les roches et la poussière volaient dans tous les sens, Xue Zu fit un pas et disparut sans laisser de trace.
 
-Juste avant que l'Ancêtre Sanguin ne pose le pied sur le fragment, Wang Lin se déplaçait tel un météore sur la chaîne de l'autre côté. Au moment où il s'apprêtait à arriver pour déployer son sens divin, le ciel s'obscurcit soudainement et d'épais nuages noirs commencèrent à s'amonceler.
+Juste avant que Xue Zu ne pose le pied sur le fragment, Wang Lin se déplaçait tel un météore sur la chaîne de l'autre côté. Au moment où il s'apprêtait à arriver pour déployer son sens divin, le ciel s'obscurcit soudainement et d'épais nuages noirs commencèrent à s'amonceler.
 
 Même le fragment se mit à trembler.
 
@@ -112,8 +112,8 @@ La lumière rouge se condensa à 330 mètres de Wang Lin. Presque instantanémen
 
 Cet homme était d'une beauté telle que même Qian Feng se sentait quelque peu inférieur en sa présence. Il dégageait une aura unique. Lorsqu'il apparut, il regarda calmement Wang Lin sans dire un mot.
 
-Cependant, Wang Lin pouvait distinctement percevoir un feu rouge capable de consumer le monde, dissimulé derrière ces yeux sereins. L'Ancêtre Sanguin ne perdit pas de temps en palabres: il leva sa main droite et pointa Wang Lin du doigt!
+Cependant, Wang Lin pouvait distinctement percevoir un feu rouge capable de consumer le monde, dissimulé derrière ces yeux sereins. Xue Zu ne perdit pas de temps en palabres: il leva sa main droite et pointa Wang Lin du doigt!
 
 À l'instant où il pointa, des craquements déchirants retentirent dans le ciel, comme si celui-ci se fendait sous la force de son doigt. Cette puissance chargea droit vers le front de Wang Lin.
 
-Wang Lin fixa l'Ancêtre Sanguin. Alors que l'attaque approchait, il déclara lentement: « Si tu me tues, même si Yao Xixue possède la Pilule d'Âme Sanguine, elle mourra certainement! »
+Wang Lin fixa Xue Zu. Alors que l'attaque approchait, il déclara lentement: « Si tu me tues, même si Yao Xixue possède la Pilule d'Âme Sanguine, elle mourra certainement! »

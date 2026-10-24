@@ -48,11 +48,11 @@ Dao Yi fronça les sourcils et déclara lentement: « Le Grand Empyréen Jiu Di 
 
 Wu Feng réfléchit en silence avant d'acquiescer.
 
-L'Empereur Céleste éclata soudain de rire, mais un rire empreint d'une profonde amertume. Il se tourna vers le Grand Empyréen Gémeaux.
+L'Empereur Céleste éclata soudain de rire, mais un rire empreint d'une profonde amertume. Il se tourna vers le Grand Empyréen Shuangzi.
 
-« Et qu'en est-il de vous, Gémeaux? Connaissiez-vous également ce plan? »
+« Et qu'en est-il de vous, Shuangzi? Connaissiez-vous également ce plan? »
 
-Le corps originel du Grand Empyréen Gémeaux resta impassible, comme indifférent à ces enjeux. Elle fixa l'Empereur Céleste:
+Le corps originel du Grand Empyréen Shuangzi resta impassible, comme indifférent à ces enjeux. Elle fixa l'Empereur Céleste:
 
 « Je ne le savais pas et je ne voulais pas savoir. Je suis seulement venue pour emporter Wang Lin! Que ce soit vous ou Jiu Di, quiconque osera se mettre en travers de mon chemin sera mon ennemi! »
 
@@ -64,7 +64,7 @@ Les yeux de l'Empereur Céleste s'illuminèrent. « Wang Lin... Wang Lin... Puis
 
 L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre: « Cependant, je me demande si l'ancêtre de la Secte de la Grande Âme savait que ce Wang Lin mourrait ici même, dans ce palais interdit, en guise de prix pour la levée du sceau du clan Dao Wang.
 
-« Jiu Di, vous avez utilisé Wang Lin pour attirer le Grand Empyréen Gémeaux ici. Autrement, à vous trois seuls, vous n'auriez pas eu assez de puissance pour me contraindre à tenter d'absorber la force de l'Ancêtre Céleste!
+« Jiu Di, vous avez utilisé Wang Lin pour attirer le Grand Empyréen Shuangzi ici. Autrement, à vous trois seuls, vous n'auriez pas eu assez de puissance pour me contraindre à tenter d'absorber la force de l'Ancêtre Céleste!
 
 « Vous avez aussi utilisé l'Ascendant Empyréen Ming Dao, Lian Daofei, moi-même et les 72 esprits scellés! Je ne crois pas que vous ayez fait tout cela uniquement pour le clan Dao Wang, même si elle est votre fille!
 
@@ -72,15 +72,15 @@ L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre: « Cepe
 
 « La raison pour laquelle vous me dites la vérité est de me faire prendre conscience de ma situation. Vous avez tous besoin de quelque chose qui requiert ma coopération!
 
-« Seule Gémeaux n'a rien obtenu et a été utilisée par Jiu Di et le clan Dao Wang! » L'Empereur Céleste continuait de lutter, utilisant ses paroles pour tenter d'obtenir le soutien de Gémeaux.
+« Seule Shuangzi n'a rien obtenu et a été utilisée par Jiu Di et le clan Dao Wang! » L'Empereur Céleste continuait de lutter, utilisant ses paroles pour tenter d'obtenir le soutien de Shuangzi.
 
-Gémeaux réfléchit en silence. Comment ne pas avoir percé à jour leurs intentions après la fusion?
+Shuangzi réfléchit en silence. Comment ne pas avoir percé à jour leurs intentions après la fusion?
 
 « Empereur Céleste, nous ne voulons pas vous tuer. Vous n'avez qu'à utiliser le pouvoir de votre lignée pour ouvrir la tête de l'Ancêtre Céleste. Vous resterez l'Empereur Céleste, vous resterez un Grand Empyréen!
 
 « Si vous refusez, alors ne nous blâmez pas de vous tuer pour extraire votre pouvoir de lignée et accomplir cette étape! » dit calmement Jiu Di, sans aucune intention meurtrière apparente, bien que ses paroles fussent d'une froideur extrême.
 
-« Gémeaux, les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule entité. Si vous les absorbez, cela inversera l'incident survenu lors de votre réincarnation et augmentera même votre puissance! Cela vous permettra également de vous séparer et de fusionner à tout moment, au lieu de consumer votre force de Yang Pourpre pour maintenir cet état de fusion!
+« Shuangzi, les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule entité. Si vous les absorbez, cela inversera l'incident survenu lors de votre réincarnation et augmentera même votre puissance! Cela vous permettra également de vous séparer et de fusionner à tout moment, au lieu de consumer votre force de Yang Pourpre pour maintenir cet état de fusion!
 
 « Wu Feng, ce vieil homme peut confirmer que les oreilles de l'Ancêtre Céleste perçoivent le son du Dao et la trace des lois du Continent Astral Immortel. Je vous promets de vous les donner. Fusionnez-les avec votre Dao et vous pourrez atteindre le sommet du Dao martial!
 

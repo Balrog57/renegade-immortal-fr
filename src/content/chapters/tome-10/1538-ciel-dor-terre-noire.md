@@ -92,7 +92,7 @@ Cette lumière était une perle, une perle de la taille du poing d'un nourrisson
 
 La Perle Défiant le Ciel était apparue une fois de plus!
 
-Le fou, allongé là, ouvrit soudainement les yeux et fixa la perle. Il murmura: « C'est... cela semble très, très important, comme si même mon grand frère la cherchait... Cet objet, il... Euh, j'ai oublié, qu'est-ce que c'est? Petite Rouge, qu'est-ce que c'est? »
+Le fou, allongé là, ouvrit soudainement les yeux et fixa la perle. Il murmura: « C'est... cela semble très, très important, comme si même mon grand frère la cherchait... Cet objet, il... Euh, j'ai oublié, qu'est-ce que c'est? Xiao Hong, qu'est-ce que c'est? »
 
 Un fracas tonitruant retentit. La puissance du ciel d'or et de la terre noire entra en collision avec la Perle Défiant le Ciel!
 

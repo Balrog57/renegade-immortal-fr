@@ -12,7 +12,7 @@ slug: un-mot-et-le-tonnerre-deferle-comme-une-mer
 
 « Avec six essences, la Porte du Vide est plusieurs fois plus difficile à ouvrir que lorsque je l'ai fait, et ce Wang Lin... Lui... Ce sera très difficile pour lui. Plus il y a d'essences, plus l'ouverture de la porte est ardue. Il échouera, et dans son échec, il mourra! » Le jeune homme en robe verte recula également. Il comprenait que tenter d'empêcher quelqu'un de briser la Porte du Vide revenait, en réalité, à l'aider.
 
-L'expression du Maître Céleste Dieu du Vide était sombre alors qu'il battait en retraite. Fixant Wang Lin, sur le point de briser la Porte du Vide, il ricana.
+L'expression de Xushen Tianzun était sombre alors qu'il battait en retraite. Fixant Wang Lin, sur le point de briser la Porte du Vide, il ricana.
 
 « Si la Porte du Vide était si facile à ouvrir, le monde serait plongé dans le chaos. Une porte déclenchée par six essences est d'une difficulté dépassant l'imagination. Un simple junior, même s'il avait eu la chance de récolter six essences, à quoi cela lui servirait-il? Je veux voir comment il compte s'y prendre. Peut-être n'aurai-je même pas besoin d'agir et la Porte du Vide se chargera de l'exécuter! »
 
@@ -70,17 +70,17 @@ Il vit une telle quantité de tonnerre qu'elle illuminait l'espace lui-même. La
 
 « Ceci... ceci est... » Le visage du jeune homme en robe verte devint livide. Bien qu'il fût un cultivateur du Vide Arcane de stade initial, son cuir chevelu s'engourdit face à ce déluge de tonnerre sans fin.
 
-Il n'était pas le seul: même le Maître Céleste Dieu du Vide fut stupéfait un instant, l'incrédulité brillant dans ses yeux. Il ne s'attendait pas à ce que l'essence de tonnerre de Wang Lin possède une telle puissance.
+Il n'était pas le seul: même Xushen Tianzun fut stupéfait un instant, l'incrédulité brillant dans ses yeux. Il ne s'attendait pas à ce que l'essence de tonnerre de Wang Lin possède une telle puissance.
 
-« Ce n'est pas une essence de tonnerre ordinaire! Ce vieil homme a vu des cultivateurs du tonnerre au troisième niveau, mais aucun de cette trempe. Comment Wang Lin a-t-il pu façonner son essence pour qu'elle soit aussi puissante? » Les yeux du Maître Céleste Dieu du Vide s'illuminèrent.
+« Ce n'est pas une essence de tonnerre ordinaire! Ce vieil homme a vu des cultivateurs du tonnerre au troisième niveau, mais aucun de cette trempe. Comment Wang Lin a-t-il pu façonner son essence pour qu'elle soit aussi puissante? » Les yeux de Xushen Tianzun s'illuminèrent.
 
 « Hmph, même si c'était tout le tonnerre du Vide Brillant... » À peine eut-il pensé cela qu'un grondement encore plus violent, surpassant celui du Vide Brillant, retentit. Son Sens Divin se prolongea, et ce qu'il vit le fit chanceler de plusieurs pas.
 
-Le Maître Céleste Dieu du Vide s'exclama: « Impossible! »
+Xushen Tianzun s'exclama: « Impossible! »
 
-Seule une chose pouvait faire perdre son sang-froid au Maître Céleste Dieu du Vide, l'un des Cinq Maîtres du Système Stellaire Antique! En balayant les environs de son Sens Divin, il vit surgir un tonnerre infini en provenance du système stellaire de la Mer des Nuages.
+Seule une chose pouvait faire perdre son sang-froid à Xushen Tianzun, l'un des Cinq Maîtres du Système Stellaire Antique! En balayant les environs de son Sens Divin, il vit surgir un tonnerre infini en provenance du système stellaire de la Mer des Nuages.
 
-Le Maître Céleste Dieu du Vide ne craignait pas que Wang Lin déclenche le tonnerre du Vide Brillant. Cependant, il n'avait pas prévu que le rugissement de Wang Lin déclencherait également la Mer des Nuages!
+Xushen Tianzun ne craignait pas que Wang Lin déclenche le tonnerre du Vide Brillant. Cependant, il n'avait pas prévu que le rugissement de Wang Lin déclencherait également la Mer des Nuages!
 
 Dans la Mer des Nuages, la situation était identique à celle du Vide Brillant. Des éclairs quittaient les continents comme s'ils répondaient à un appel ancestral, fonçant vers le Vide Brillant!
 

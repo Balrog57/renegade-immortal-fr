@@ -34,7 +34,7 @@ L'Enseignant Impérial rugit: « Lian Daozhen!!! »
 
 Le rire de l'Empereur Céleste résonna dans les cieux alors qu'il émergeait de la déchirure. D'un seul pas, il atterrit sur la tête de l'Ancêtre Céleste!
 
-Simultanément, le Grand Empyréen Gémeaux le poursuivit à travers l'ouverture. Le visage des deux jeunes filles était pâle mais d'un sérieux extrême. En arrivant, leurs pupilles se rétractèrent lorsqu'elles aperçurent la tête de l'Ancêtre Céleste sous les pieds de l'Empereur Céleste.
+Simultanément, le Grand Empyréen Shuangzi le poursuivit à travers l'ouverture. Le visage des deux jeunes filles était pâle mais d'un sérieux extrême. En arrivant, leurs pupilles se rétractèrent lorsqu'elles aperçurent la tête de l'Ancêtre Céleste sous les pieds de l'Empereur Céleste.
 
 « Enseignant Impérial, votre machination est profonde! Vous saviez que je préparais Dao Fei depuis longtemps pour le sortilège du Retour à l'Origine Ancestrale. Vous saviez aussi que Ming Dao n'était qu'un double destiné à assurer le succès de Dao Fei!
 
@@ -54,11 +54,11 @@ C'était l'assurance de celui qui tient tout entre ses mains!
 
 « Vous vouliez transférer l'héritage de Ming Dao à Wang Lin et saisir son corps; vous l'avez donc attiré ici pour qu'il devienne l'œil droit de la tête de l'Ancêtre Céleste.
 
-« Vous aviez même prédit que Wang Lin solliciterait le Grand Empyréen Gémeaux pour sauver Dao Fei, car ils pourraient me contenir un temps. Vous avez profité du moment où j'enfermais Dao Fei dans le palais souterrain et où j'utilisais le sortilège du Retour à l'Origine Ancestrale pour faire de lui l'œil gauche!
+« Vous aviez même prédit que Wang Lin solliciterait le Grand Empyréen Shuangzi pour sauver Dao Fei, car ils pourraient me contenir un temps. Vous avez profité du moment où j'enfermais Dao Fei dans le palais souterrain et où j'utilisais le sortilège du Retour à l'Origine Ancestrale pour faire de lui l'œil gauche!
 
 « Puis, vous avez utilisé le sort spécial de votre clan Dao Wang pour forcer la tête de l'Ancêtre Céleste à parler afin de lever le sceau de votre clan. Croyez-vous que j'ignorais tout cela? » L'Empereur Céleste éclata de rire.
 
-Le Grand Empyréen Gémeaux affichait une expression grave et ne se précipita pas de manière irréfléchie. Elles fixaient la tête de l'Ancêtre Céleste. Une trace rare d'effroi apparut dans le cœur des deux jeunes filles!
+Le Grand Empyréen Shuangzi affichait une expression grave et ne se précipita pas de manière irréfléchie. Elles fixaient la tête de l'Ancêtre Céleste. Une trace rare d'effroi apparut dans le cœur des deux jeunes filles!
 
 Et ce n'était pas un simple frisson, mais un sentiment de crainte profonde!
 
@@ -90,19 +90,19 @@ L'Empereur Céleste sourit avec morgue au-dessus de la tête de l'Ancêtre Céle
 
 « Très bien, vous avez accompli un travail remarquable! » L'Empereur Céleste rit et leva son pied droit. Il écrasa alors la tête de l'Ancêtre Céleste, tandis qu'une lumière dorée enveloppait l'Empereur Céleste!
 
-« Avec cela, je suis le plus puissant des Grands Empyréens! Gémeaux, osez-vous défier cet empereur à nouveau? » L'Empereur Céleste leva les yeux avec une assurance insolente et chargea Gémeaux, la tête sous ses pieds.
+« Avec cela, je suis le plus puissant des Grands Empyréens! Shuangzi, osez-vous défier cet empereur à nouveau? » L'Empereur Céleste leva les yeux avec une assurance insolente et chargea Shuangzi, la tête sous ses pieds.
 
-Le Grand Empyréen Gémeaux, les deux jeunes filles, serrèrent les dents; derrière elles, un soleil pourpre apparut. Le soleil émit une lumière violacée qui forgea deux épées de pourpre volant vers l'Empereur Céleste.
+Le Grand Empyréen Shuangzi, les deux jeunes filles, serrèrent les dents; derrière elles, un soleil pourpre apparut. Le soleil émit une lumière violacée qui forgea deux épées de pourpre volant vers l'Empereur Céleste.
 
-Les deux épées fusionnèrent instantanément pour foncer sur lui. L'Empereur Céleste agita la main droite et les yeux de l'Ancêtre Céleste brillèrent d'un éclat intense. Une lumière dorée monstrueuse, presque solide, sembla faire face à l'éclat des épées pourpres du Grand Empyréen Gémeaux!
+Les deux épées fusionnèrent instantanément pour foncer sur lui. L'Empereur Céleste agita la main droite et les yeux de l'Ancêtre Céleste brillèrent d'un éclat intense. Une lumière dorée monstrueuse, presque solide, sembla faire face à l'éclat des épées pourpres du Grand Empyréen Shuangzi!
 
-Des grondements tonitruants retentirent lorsque la lumière des épées s'effondra brusquement lors de la collision avec l'éclat doré. Les fragments créèrent des ondulations qui forcèrent le Grand Empyréen Gémeaux à battre en retraite.
+Des grondements tonitruants retentirent lorsque la lumière des épées s'effondra brusquement lors de la collision avec l'éclat doré. Les fragments créèrent des ondulations qui forcèrent le Grand Empyréen Shuangzi à battre en retraite.
 
 L'Empereur Céleste sourit, et tandis que la tête de l'Ancêtre Céleste resplendissait, sa main droite s'étira vers le vide. Un oiseau doré apparut dans sa paume.
 
-Il projeta sa main et l'oiseau battit des ailes en volant vers le Grand Empyréen Gémeaux!
+Il projeta sa main et l'oiseau battit des ailes en volant vers le Grand Empyréen Shuangzi!
 
-Le Grand Empyréen Gémeaux recula et les deux jeunes filles devinrent solennelles. Sans hésiter, elles s'envolèrent pour fusionner avec le soleil pourpre. Leurs corps se muèrent en fumée avant de prendre la forme d'une magnifique femme d'une vingtaine d'années!
+Le Grand Empyréen Shuangzi recula et les deux jeunes filles devinrent solennelles. Sans hésiter, elles s'envolèrent pour fusionner avec le soleil pourpre. Leurs corps se muèrent en fumée avant de prendre la forme d'une magnifique femme d'une vingtaine d'années!
 
 Cette femme était vêtue de pourpre et ses yeux brûlaient de fureur. Elle leva sa main semblable à du jade, et le monde entier devint pourpre!
 
@@ -110,7 +110,7 @@ Cette femme était vêtue de pourpre et ses yeux brûlaient de fureur. Elle leva
 
 Au même moment, dans le ciel surplombant la cité, un immense météore pourpre, comparable à la moitié de la taille de la ville elle-même, apparut. Il dégageait une pression écrasante en descendant vers la cité ancestrale. D'innombrables fissures se formèrent au sol et les cultivateurs utilisèrent divers moyens pour fuir la ville.
 
-Les yeux de l'Empereur Céleste se plissèrent alors qu'il fixait le Grand Empyréen Gémeaux fusionné. La lumière dorée provenant de la tête sous ses pieds devint plus intense, luttant contre la lueur pourpre. La puissance dorée appartenait à l'Ancêtre Céleste, et la lumière pourpre peinait, forcée de reculer lentement.
+Les yeux de l'Empereur Céleste se plissèrent alors qu'il fixait le Grand Empyréen Shuangzi fusionné. La lumière dorée provenant de la tête sous ses pieds devint plus intense, luttant contre la lueur pourpre. La puissance dorée appartenait à l'Ancêtre Céleste, et la lumière pourpre peinait, forcée de reculer lentement.
 
 « Si les yeux de l'Ancêtre Céleste ne s'étaient pas ouverts et si je n'avais pu le contrôler, j'aurais peut-être fait un compromis face à votre sort le plus puissant, le Sort de la Foi Lin Pourpre... Mais pour l'instant, ce n'est pas suffisant! » L'Empereur Céleste était débordant de confiance.
 

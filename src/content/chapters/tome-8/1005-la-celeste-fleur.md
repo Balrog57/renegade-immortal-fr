@@ -68,7 +68,7 @@ C'était la première fois que les trois frères Chen entendaient cela; ils rest
 
 Il ne vouait pas d'adoration aux êtres célestes comme certains cultivateurs. En observant les sorts de l'Empereur Céleste Bai Fan, il pouvait déceler que ce dernier n'était pas un homme intègre. Le fait de pouvoir devenir un Empereur Céleste grâce à des sorts auto-créés frôlant déjà la voie démoniaque en était la preuve.
 
-C'était exactement ce qu'avait dit le Dieu du Sang: « Quel genre de sort céleste est-ce là? C'est manifestement un sort démoniaque! »
+C'était exactement ce qu'avait dit Xue Shenzi: « Quel genre de sort céleste est-ce là? C'est manifestement un sort démoniaque! »
 
 Si Bai Fan était ainsi, Qing Lin l'était tout autant. Les méthodes de marionnettes obtenues dans son jade étaient toutes d'une tyrannie absolue, puisqu'elles consistaient à raffiner des êtres vivants. Wang Lin avait déjà percé à jour ces sombres réalités.
 

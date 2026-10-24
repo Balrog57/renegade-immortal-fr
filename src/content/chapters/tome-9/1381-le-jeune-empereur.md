@@ -60,7 +60,7 @@ Son père, le Patriarche du Dragon Blindé, affichait un visage sombre. Il inter
 
 Wang Lin flottait dans les airs et poussa un profond soupir. Bien que son combat contre l'avatar de Maître Simo eût été bref, il avait été chargé de danger et il était blessé. Ce qui le rendait encore plus prudent était l'attitude du Grand Empereur.
 
-« Bien que Maître Simo ait été gravement blessé, pouvoir tuer son avatar d'un seul doigt signifie qu'il est bien plus fort que le Shui Daozi. J'ignore seulement comment il se compare au Maître du Dao Rêve Bleu. De plus, il m'aide manifestement... » Les yeux de Wang Lin s'illuminèrent. Il devait partir maintenant; après tout, il était blessé et devait trouver un lieu pour récupérer.
+« Bien que Maître Simo ait été gravement blessé, pouvoir tuer son avatar d'un seul doigt signifie qu'il est bien plus fort que le Shui Daozi. J'ignore seulement comment il se compare à Lanmeng Daozun. De plus, il m'aide manifestement... » Les yeux de Wang Lin s'illuminèrent. Il devait partir maintenant; après tout, il était blessé et devait trouver un lieu pour récupérer.
 
 Cependant, lorsque le regard de Wang Lin retomba sur la planète, ses yeux devinrent glacials.
 

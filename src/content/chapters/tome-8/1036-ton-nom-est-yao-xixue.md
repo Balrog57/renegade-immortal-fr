@@ -162,4 +162,4 @@ Wang Lin soupira, puis ouvrit la bouche d'où jaillit un rayon de lumière spect
 
 Ayant perdu toute mémoire, elle était comme un mortel découvrant l'usage des sorts pour la première fois!
 
-Le Sceau Céleste des 18 Enfers apparut devant Wang Lin. Après avoir réfléchi un instant, il pointa la 14e couche. Il n'y avait qu'une seule âme dans cette 14e couche! Cette âme était enveloppée d'un brouillard de sang et dégageait une quantité monstrueuse de ressentiment. C'était l'Ancêtre Sanguin!
+Le Sceau Céleste des 18 Enfers apparut devant Wang Lin. Après avoir réfléchi un instant, il pointa la 14e couche. Il n'y avait qu'une seule âme dans cette 14e couche! Cette âme était enveloppée d'un brouillard de sang et dégageait une quantité monstrueuse de ressentiment. C'était Xue Zu!

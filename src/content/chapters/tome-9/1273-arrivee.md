@@ -116,7 +116,7 @@ Ce sort était suffisant pour tuer n'importe quel Briseur du Nirvana, et même l
 
 Il ne restait qu'un point rouge au centre de la paume, et une goutte de sang tomba.
 
-Les sorts de Wang Lin avaient pu détruire les quatre doigts illusoires du Maître du Dao Rêve Bleu du Système Stellaire Antique. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
+Les sorts de Wang Lin avaient pu détruire les quatre doigts illusoires de Lanmeng Daozun du Système Stellaire Antique. Désormais, sa puissance avait considérablement augmenté, et la force des épées déverrouillées n'avait rien d'ordinaire!
 
 Lors de son premier échange avec le Shui Daozi, Wang Lin avait craché du sang. Une douleur intense lui avait déchiré les os et le corps, et il avait été projeté au sol depuis le ciel.
 

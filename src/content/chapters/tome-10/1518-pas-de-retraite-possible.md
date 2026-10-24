@@ -92,7 +92,7 @@ Les grondements qui en résultèrent firent trembler les cieux. Lorsque l'épée
 
 Alors que l'épée et la lance s'affrontaient, un éclat violet surgit. Une lumière pourpre monstrueuse emplit les étoiles; les deux royaumes, intérieur et extérieur, purent la voir distinctement!
 
-Dans cette lumière pourpre, un fouet géant se forma. Lorsqu'il s'abattit dans un claquement sec, il fonça vers la corde de la cithare du Maître du Dao Rêve Bleu!
+Dans cette lumière pourpre, un fouet géant se forma. Lorsqu'il s'abattit dans un claquement sec, il fonça vers la corde de la cithare de Lanmeng Daozun!
 
 Les deux forces convergèrent et entrèrent en collision violente!
 
@@ -132,7 +132,7 @@ Après ces mots, les cinq trésors combattant les cinq esprits de la formation t
 
 Dans la fissure spatiale imprégnée d'énergie spirituelle céleste du Système Stellaire Antique, un éclair de froideur passa dans les yeux de la femme d'âge moyen qui se tenait au sommet de la montagne. Ses mains formèrent un sceau et elle dit doucement: « Explose! »
 
-Dans le Clan de la Soie Bleue, au sommet du Mont Bleu, le Maître du Dao Rêve Bleu regarda l'épingle à cheveux avec stupeur. Il leva sa main droite, forma un sceau et dit, impuissant: « Explose! »
+Dans le Clan de la Soie Bleue, au sommet du Mont Bleu, Lanmeng Daozun regarda l'épingle à cheveux avec stupeur. Il leva sa main droite, forma un sceau et dit, impuissant: « Explose! »
 
 Dans la partie extrême ouest du Système Stellaire Antique, sur les neuf planètes gelées, le garçon leva la main droite et murmura: « Explose! »
 

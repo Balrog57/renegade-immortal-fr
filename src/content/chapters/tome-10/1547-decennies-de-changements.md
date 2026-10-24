@@ -96,6 +96,6 @@ Une intention meurtrière brilla dans les yeux de Maître Yan Leizi et il hocha 
 
 Cette lumière dorée lui inspirait une telle crainte qu'il ressentait presque le besoin de l'adorer.
 
-Maître Yan Leizi suivit Wang Lin et dit respectueusement: « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, l'Éminent Maître Tian Zhao, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un grand expert, au début du Vide Spirituel! Il reste une grande quantité de trésors et de formations laissés par l'ancienne Alliance; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur! »
+Maître Yan Leizi suivit Wang Lin et dit respectueusement: « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, Tianzhao Shangshi, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un grand expert, au début du Vide Spirituel! Il reste une grande quantité de trésors et de formations laissés par l'ancienne Alliance; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur! »
 
 « Aucun problème. » La voix de Wang Lin restait calme alors qu'il se rapprochait inexorablement du Siège de l'Alliance de Culture.

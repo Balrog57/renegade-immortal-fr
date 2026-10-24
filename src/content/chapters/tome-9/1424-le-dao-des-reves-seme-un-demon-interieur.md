@@ -34,7 +34,7 @@ Le Dao du Rêve, bien que son nom paraisse complexe, était en réalité une for
 
 Il transformait l'intention de Dao de l'adversaire en un démon intérieur pour détruire son cœur de Dao et l'anéantir de lui-même! Même les cultivateurs qui ne pratiquaient pas le Dao possédaient un démon intérieur. Et ce démon intérieur, c'était Wang Lin!
 
-Les sorts de Dao étaient des techniques extrêmement mystérieuses. Même les cultivateurs de la troisième étape n'en possédaient que peu; en détenir un seul était déjà une grande chance. Même quelqu'un d'aussi puissant que le Maître du Dao Rêve Bleu n'en possédait que quelques-uns.
+Les sorts de Dao étaient des techniques extrêmement mystérieuses. Même les cultivateurs de la troisième étape n'en possédaient que peu; en détenir un seul était déjà une grande chance. Même quelqu'un d'aussi puissant que Lanmeng Daozun n'en possédait que quelques-uns.
 
 Le Dao du Rêve pouvait ramener une personne à son passé! Bien qu'il ne puisse pas disperser le Dao comme le sort du vieil homme dans le Royaume aux Sept Couleurs, Wang Lin pouvait implanter un faux souvenir!
 

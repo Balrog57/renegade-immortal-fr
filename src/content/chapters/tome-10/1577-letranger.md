@@ -28,15 +28,15 @@ Un fracas de tonnerre retentit lors de l'impact. Tous les fragments de sang séc
 
 À cet instant, les cinq étoiles de démons anciens dans l'œil gauche de la statue clignotèrent rapidement et un faible sixième vortex apparut. Ce vortex se condensa promptement pour devenir une véritable sixième étoile.
 
-« Il n'y avait pas beaucoup de sang ancien ici... et au fil des ans, une bonne part du pouvoir s'est dissipée... Mais j'ai toujours cet autre démon ancien! » Les yeux de Wang Lin brillèrent d'une lueur vive et sa main gauche tendit le bras pour ouvrir une faille vers son espace de stockage. Il en sortit le démon ancien qu'il avait capturé au Dieu du Sang!
+« Il n'y avait pas beaucoup de sang ancien ici... et au fil des ans, une bonne part du pouvoir s'est dissipée... Mais j'ai toujours cet autre démon ancien! » Les yeux de Wang Lin brillèrent d'une lueur vive et sa main gauche tendit le bras pour ouvrir une faille vers son espace de stockage. Il en sortit le démon ancien qu'il avait capturé à Xue Shenzi!
 
 Ce démon ancien était scellé et dormait. Wang Lin brisa le sceau, et à l'instant même où il s'éveilla, la main de Wang Lin s'abattit sur son corps.
 
 Un bruit de tonnerre éclata et les étoiles de démons anciens dans l'œil gauche du démon s'effondrèrent. Une vague d'énergie démoniaque, projetée par la paume de Wang Lin, se dirigea vers la statue du démon ancien.
 
-Après avoir fusionné avec cette énergie, le démon ancien devint si rouge qu'il semblait fait de sang pur. La sixième étoile de démon ancien se forma instantanément et le vortex de la septième apparut. Grâce aux derniers vestiges du sang de l'œil gauche de Ye Mo et à la puissance du démon ancien extrait du Dieu du Sang, la statue de Wang Lin put enfin former sa septième étoile!
+Après avoir fusionné avec cette énergie, le démon ancien devint si rouge qu'il semblait fait de sang pur. La sixième étoile de démon ancien se forma instantanément et le vortex de la septième apparut. Grâce aux derniers vestiges du sang de l'œil gauche de Ye Mo et à la puissance du démon ancien extrait de Xue Shenzi, la statue de Wang Lin put enfin former sa septième étoile!
 
-Conformément à sa promesse, Wang Lin n'avait pas tué le démon ancien à l'intérieur du Dieu du Sang mais avait conservé son âme. Le démon fut scellé et placé dans l'espace de stockage de Wang Lin; celui-ci prévoyait de le libérer après avoir quitté les lieux.
+Conformément à sa promesse, Wang Lin n'avait pas tué le démon ancien à l'intérieur de Xue Shenzi mais avait conservé son âme. Le démon fut scellé et placé dans l'espace de stockage de Wang Lin; celui-ci prévoyait de le libérer après avoir quitté les lieux.
 
 « Puisque je ne peux pas trouver l'œil gauche de Ye Mo, je vais faire le mien! » Wang Lin percevait une puissante connexion sanguine en contemplant la statue du démon ancien. D'un revers de manche, il rangea la statue rouge vif dans son espace de stockage.
 
@@ -78,7 +78,7 @@ En tenant l'arme, les yeux de Wang Lin s'illuminèrent. Il aperçut quatre runes
 
 Dès que le gigantesque Fourneau Impérial apparut, il se mit à tourner lentement. Wang Lin pouvait clairement distinguer les âmes de deux individus à l'intérieur du four!
 
-Éminent Nan Zhao, Éminent Maître Tian Zhao!
+Nanzhao Shangren, Tianzhao Shangshi!
 
 Leurs âmes étaient contenues et supprimées dans le Fourneau Impérial par la volonté de Wang Lin!
 

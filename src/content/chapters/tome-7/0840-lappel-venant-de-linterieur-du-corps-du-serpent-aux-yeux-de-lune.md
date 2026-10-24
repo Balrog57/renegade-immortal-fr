@@ -16,9 +16,9 @@ Les yeux du Maître Yan Leizi s'illuminèrent en voyant les quatre garçons et i
 
 L'homme vêtu de noir, Gongsun, répondit calmement: « Le patriarche de la famille Shengong et Lie Yunzi de la famille Zhan! »
 
-Le vieil homme nommé Xiang apparut aux côtés du Maître Yan Leizi en souriant: « Ce vieil homme n'a pas invité beaucoup de monde, seulement le Dieu du Sang et le Daoïste aux Cinq Couleurs. Je pense qu'ils ne devraient plus tarder. »
+Le vieil homme nommé Xiang apparut aux côtés du Maître Yan Leizi en souriant: « Ce vieil homme n'a pas invité beaucoup de monde, seulement Xue Shenzi et le Daoïste aux Cinq Couleurs. Je pense qu'ils ne devraient plus tarder. »
 
-En entendant le nom de « Dieu du Sang », le Maître Yan Leizi eut un ricanement intérieur et déclara: « Je n'ai invité qu'une seule personne. Quant à savoir de qui il s'agit, vous le saurez bien assez tôt. »
+En entendant le nom de « Xue Shenzi », le Maître Yan Leizi eut un ricanement intérieur et déclara: « Je n'ai invité qu'une seule personne. Quant à savoir de qui il s'agit, vous le saurez bien assez tôt. »
 
 Alors qu'il parlait, un rayon de lumière argentée fendit l'horizon. Un homme d'âge mûr se tenait sur ce flux argenté; son apparence rappelait celle de Shengong Hu. En un éclair, il apparut devant l'assemblée.
 
@@ -52,9 +52,9 @@ Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rap
 
 Il s'agissait d'un vieil homme aux sourcils rouges, vêtu d'une robe écarlate qui semblait imprégnée de sang frais. Son expression était lugubre et, dès son apparition, il ignora tout le monde pour fixer le Serpent aux yeux de lune avec une lueur mystérieuse dans les yeux.
 
-« Dieu du Sang! » À sa vue, tous les vieux monstres plissèrent les yeux. Lie Yunzi et le patriarche Shengong ne firent exception.
+« Xue Shenzi! » À sa vue, tous les vieux monstres plissèrent les yeux. Lie Yunzi et le patriarche Shengong ne firent exception.
 
-Le Dieu du Sang détourna son regard pour balayer l'assemblée d'un œil impitoyable. Enfin, il fixa le Maître Yan Leizi et dit calmement: « Maître Yan Leizi, vous avez dérobé l'âme originelle de mon petit-fils. Dès que le tunnel vers le Système Stellaire de l'Alliance sera ouvert, nous nous affronterons! »
+Xue Shenzi détourna son regard pour balayer l'assemblée d'un œil impitoyable. Enfin, il fixa le Maître Yan Leizi et dit calmement: « Maître Yan Leizi, vous avez dérobé l'âme originelle de mon petit-fils. Dès que le tunnel vers le Système Stellaire de l'Alliance sera ouvert, nous nous affronterons! »
 
 Une lueur de froideur passa dans les yeux du Maître Yan Leizi, qui sourit: « Ce sera un honneur de vous accompagner! »
 

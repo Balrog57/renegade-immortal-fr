@@ -6,11 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1549 - Ask the Heavens Who Can Control Life and Death!"
 slug: demandez-aux-cieux-qui-peut-controler-la-vie-et-la-mort
 ---
-Bien que l'Estimé Maître Tian Zhao parût arrogant et affiche un regard de mépris, il était extrêmement sérieux. Bien qu'il n'eût jamais vu Wang Lin auparavant, le nom du Seigneur du Royaume Scellé avait été maintes fois évoqué au cours des dernières décennies.
+Bien que Tianzhao Shangshi parût arrogant et affiche un regard de mépris, il était extrêmement sérieux. Bien qu'il n'eût jamais vu Wang Lin auparavant, le nom du Seigneur du Royaume Scellé avait été maintes fois évoqué au cours des dernières décennies.
 
 En particulier, la manière dont l'ancêtre du Clan de l'Hirondelle de Feu avait été tranché en deux l'avait profondément choqué. Cependant, si cela n'était là que le sommet de ses prouesses, il ne s'en soucierait guère. Après tout, l'ancêtre du Clan de l'Hirondelle de Feu n'était qu'au stade initial du Nirvana Vide et ne méritait pas son attention.
 
-Ce qui l'avait véritablement stupéfié était l'Estimé Nan Zhao. Le niveau de culture de l'Estimé Nan Zhao était similaire au sien, mais ce dernier avait fini par mourir tragiquement face à ce Seigneur du Royaume Scellé.
+Ce qui l'avait véritablement stupéfié était Nanzhao Shangren. Le niveau de culture de Nanzhao Shangren était similaire au sien, mais ce dernier avait fini par mourir tragiquement face à ce Seigneur du Royaume Scellé.
 
 Il découvrait Wang Lin pour la première fois, et il venait de le voir stopper d'un seul doigt, tout en le déchirant, ce vortex qui tournait depuis des éons devant le Quartier Général de l'Alliance.
 
@@ -18,7 +18,7 @@ Cela lui donnait la chair de poule.
 
 Toutefois, il devait maintenir cette contenance; sinon, s'il révélait la moindre intention de battre en retraite, l'esprit de ces dix mille et quelques cultivateurs pourrait s'effondrer instantanément.
 
-« Cette personne a emprunté l'esprit de formation autrefois; il est impossible que quelqu'un à son niveau de culture puisse tuer Nan Zhao! Aujourd'hui, s'il a pu stopper le vortex, c'est grâce à sa compréhension des restrictions. Ce vieil homme ne croit pas qu'il puisse faire quoi que ce soit sans la Hache Brise-Ciel! » L'Estimé Maître Tian Zhao retrouva son calme après avoir songé à ce qui se trouvait dans le Royaume aux Sept Couleurs. À cet instant, il agita sa large manche et les trois dragons noirs de Flammes Joss jaillirent vers Wang Lin.
+« Cette personne a emprunté l'esprit de formation autrefois; il est impossible que quelqu'un à son niveau de culture puisse tuer Nanzhao Shangren! Aujourd'hui, s'il a pu stopper le vortex, c'est grâce à sa compréhension des restrictions. Ce vieil homme ne croit pas qu'il puisse faire quoi que ce soit sans la Hache Brise-Ciel! » Tianzhao Shangshi retrouva son calme après avoir songé à ce qui se trouvait dans le Royaume aux Sept Couleurs. À cet instant, il agita sa large manche et les trois dragons noirs de Flammes Joss jaillirent vers Wang Lin.
 
 Les dix mille et quelques cultivateurs du Royaume Extérieur étaient tous nerveux. L'apparition soudaine de Wang Lin les avait plongés dans une terreur indescriptible avant même qu'ils ne puissent reprendre leurs esprits. Ils n'osaient même pas opposer la moindre résistance.
 
@@ -58,7 +58,7 @@ Ils reconnurent cette lumière dorée!
 
 Au plus profond de leur mémoire, cette lueur était une chose que rien ne pouvait effacer!
 
-Bien qu'ils aient été capturés par l'Estimé Maître Tian Zhao lorsqu'ils étaient jeunes et affinés lentement pour devenir ses chefs d'âmes de Flammes Joss, le souvenir de cette lumière dorée, ancré dans leur héritage, demeurait intact.
+Bien qu'ils aient été capturés par Tianzhao Shangshi lorsqu'ils étaient jeunes et affinés lentement pour devenir ses chefs d'âmes de Flammes Joss, le souvenir de cette lumière dorée, ancré dans leur héritage, demeurait intact.
 
 Ils se souvenaient clairement que, depuis des temps immémoriaux, quiconque possédait cette lumière dorée se dressait au sommet du monde. Même leurs parents devaient trembler devant elle.
 
@@ -84,34 +84,34 @@ Tant qu'on était un cultivateur, on ne pouvait résister à ce sentiment d'effr
 
 Les dix mille et quelques cultivateurs étaient agenouillés et les dragons noirs s'étaient prosternés! Demandez aux Cieux qui contrôle la vie et la mort!
 
-Wang Lin, l'expression sereine, marcha vers l'Estimé Maître Tian Zhao.
+Wang Lin, l'expression sereine, marcha vers Tianzhao Shangshi.
 
 Le Maître Yan Leizi se lécha inconsciemment les lèvres sèches, l'esprit vide face à ce spectacle. Il n'osait croire ce qu'il voyait.
 
-Dès que l'Estimé Maître Tian Zhao aperçut cette lumière dorée, ses yeux furent inondés d'une terreur extrême et il laissa échapper un cri incontrôlable. Il sembla se remémorer quelque chose en voyant cette lueur, son expression changea radicalement et il recula comme un fou.
+Dès que Tianzhao Shangshi aperçut cette lumière dorée, ses yeux furent inondés d'une terreur extrême et il laissa échapper un cri incontrôlable. Il sembla se remémorer quelque chose en voyant cette lueur, son expression changea radicalement et il recula comme un fou.
 
 La bataille entre les Royaumes, l'honneur personnel, l'ordre du Conseil Souverain? Il avait tout oublié, ne laissant échapper qu'un cri alors qu'il fuyait dans la terreur.
 
 « C'est impossible. C'est... C'est... Cette lumière dorée est... »
 
-La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de son temps. Il fit un pas, se retrouvant à un millier de pieds de l'Estimé Maître Tian Zhao, qui reculait frénétiquement. Il lança un coup de poing.
+La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de son temps. Il fit un pas, se retrouvant à un millier de pieds de Tianzhao Shangshi, qui reculait frénétiquement. Il lança un coup de poing.
 
-Des grondements tonitruants résonnèrent, et une tempête dorée sembla se condenser pour former un poing géant de lumière. Celui-ci perça le vide avec rapidité pour frapper le corps de l'Estimé Maître Tian Zhao.
+Des grondements tonitruants résonnèrent, et une tempête dorée sembla se condenser pour former un poing géant de lumière. Celui-ci perça le vide avec rapidité pour frapper le corps de Tianzhao Shangshi.
 
-Un fracas assourdissant retentit et l'Estimé Maître Tian Zhao cracha du sang avant que son corps ne soit déchiré. Des masses de Flammes Joss apparurent dans une tentative désespérée de reconstituer un corps.
+Un fracas assourdissant retentit et Tianzhao Shangshi cracha du sang avant que son corps ne soit déchiré. Des masses de Flammes Joss apparurent dans une tentative désespérée de reconstituer un corps.
 
-Après le coup de poing, Wang Lin agita sa manche et un tonnerre doré jaillit de son œil droit. Le Quartier Général de l'Alliance fut inondé d'éclairs dorés. Un éclair de tonnerre céleste descendit sur l'âme originelle de l'Estimé Maître Tian Zhao.
+Après le coup de poing, Wang Lin agita sa manche et un tonnerre doré jaillit de son œil droit. Le Quartier Général de l'Alliance fut inondé d'éclairs dorés. Un éclair de tonnerre céleste descendit sur l'âme originelle de Tianzhao Shangshi.
 
-Des grondements sourds résonnèrent et les innombrables âmes de Flammes Joss entourant l'Estimé Maître Tian Zhao poussèrent des cris déchirants. Elles s'effondrèrent toutes dans la mort.
+Des grondements sourds résonnèrent et les innombrables âmes de Flammes Joss entourant Tianzhao Shangshi poussèrent des cris déchirants. Elles s'effondrèrent toutes dans la mort.
 
-« Tonnerre Céleste! C'est le Tonnerre Céleste! » L'Estimé Maître Tian Zhao cracha une gorgée d'énergie originelle essentielle. Ses yeux étaient emplis d'une peur indicible tandis qu'il reculait désespérément.
+« Tonnerre Céleste! C'est le Tonnerre Céleste! » Tianzhao Shangshi cracha une gorgée d'énergie originelle essentielle. Ses yeux étaient emplis d'une peur indicible tandis qu'il reculait désespérément.
 
-« Un Céleste! Vous êtes un Céleste! » L'Estimé Maître Tian Zhao avait presque perdu la raison et abandonné toute volonté de résistance; il n'osait plus lutter. Lorsqu'il avait capturé les trois dragons autrefois, il avait vu une telle lumière émaner d'un être céleste. À l'époque, un seul regard de cet homme l'avait plongé dans le coma pendant dix ans!
+« Un Céleste! Vous êtes un Céleste! » Tianzhao Shangshi avait presque perdu la raison et abandonné toute volonté de résistance; il n'osait plus lutter. Lorsqu'il avait capturé les trois dragons autrefois, il avait vu une telle lumière émaner d'un être céleste. À l'époque, un seul regard de cet homme l'avait plongé dans le coma pendant dix ans!
 
-Wang Lin ressentit une douleur intense dans son corps alors que la force de rejet montrait des signes d'éruption. Il décida de ne pas en tenir compte et agita sa main gauche. Il pointa le reculant Tian Zhao, et un feu doré jaillit de son œil gauche. Une mer de flammes dorées balaya la zone, engloutissant instantanément Tian Zhao. Puis le Fourneau Impérial apparut et tout disparut!
+Wang Lin ressentit une douleur intense dans son corps alors que la force de rejet montrait des signes d'éruption. Il décida de ne pas en tenir compte et agita sa main gauche. Il pointa le reculant Tianzhao Shangshi, et un feu doré jaillit de son œil gauche. Une mer de flammes dorées balaya la zone, engloutissant instantanément Tianzhao Shangshi. Puis le Fourneau Impérial apparut et tout disparut!
 
-L'âme originelle de l'Estimé Maître Tian Zhao fut instantanément capturée.
+L'âme originelle de Tianzhao Shangshi fut instantanément capturée.
 
-Wang Lin n'avait pas prononcé un seul mot durant tout ce combat. Pourtant, en terrassant si aisément l'Estimé Maître Tian Zhao, il avait fait entendre son message en silence!
+Wang Lin n'avait pas prononcé un seul mot durant tout ce combat. Pourtant, en terrassant si aisément Tianzhao Shangshi, il avait fait entendre son message en silence!
 
 Demandez aux Cieux qui peut contrôler la vie et la mort!

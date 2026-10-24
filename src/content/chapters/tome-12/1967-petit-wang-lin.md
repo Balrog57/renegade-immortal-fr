@@ -78,7 +78,7 @@ Wang Lin esquissa un sourire amer.
 
 C'était ce qu'il avait dit à l'Ascendant Empyréen Ming Dao, mais celui-ci, sans savoir quelles conditions l'Empereur Céleste lui avait offertes, n'avait pas choisi Jiu Di.
 
-« Avec mon aide, lorsque le Royaume Divin Immémorial s'ouvrira, tes chances de devenir un Grand Empyréen augmenteront de 30 %! Et si tu es mon disciple, alors même l'Empereur Céleste n'oserait pas agir contre toi! Peu importe la rancune qui vous oppose, avec ma présence, je pourrai t'aider à la régler définitivement! Parmi les Grands Empyréens, hormis le défunt Dong Lin, seule Gémeaux peut rivaliser avec ce vieil homme. Cependant, après sa dernière réincarnation, Gémeaux a subi un accident et son âme s'est fragmentée jusqu'à son stade originel. Elle est extrêmement faible. Ce vieil homme est ton meilleur choix », déclara lentement le Grand Empyréen Jiu Di.
+« Avec mon aide, lorsque le Royaume Divin Immémorial s'ouvrira, tes chances de devenir un Grand Empyréen augmenteront de 30 %! Et si tu es mon disciple, alors même l'Empereur Céleste n'oserait pas agir contre toi! Peu importe la rancune qui vous oppose, avec ma présence, je pourrai t'aider à la régler définitivement! Parmi les Grands Empyréens, hormis le défunt Dong Lin, seule Shuangzi peut rivaliser avec ce vieil homme. Cependant, après sa dernière réincarnation, Shuangzi a subi un accident et son âme s'est fragmentée jusqu'à son stade originel. Elle est extrêmement faible. Ce vieil homme est ton meilleur choix », déclara lentement le Grand Empyréen Jiu Di.
 
 Wang Lin regarda Dao Yi, Wu Feng et Jiu Di. Les trois lui avaient proposé des conditions distinctes: les trésors de Dao Yi, l'égalité de Wu Feng et la promesse de Jiu Di.
 
@@ -90,7 +90,7 @@ Mais Dao Yi restait un choix envisageable sans regret. Ses trésors étaient pr�
 
 Cependant, à cet instant précis, Jiu Di leva soudainement la tête. Wu Feng et Dao Yi suivirent son regard avec des expressions graves. Peu après, trois rayons de lumière convergèrent vers eux.
 
-« Petit Wang Lin, ah, c'est bien toi! » Un éclat de rire joyeux résonna dans le ciel. Les trois lumières se rapprochèrent: il s'agissait du Grand Empyréen Gémeaux et de l'Exalté Empyréen Gu Ya.
+« Petit Wang Lin, ah, c'est bien toi! » Un éclat de rire joyeux résonna dans le ciel. Les trois lumières se rapprochèrent: il s'agissait du Grand Empyréen Shuangzi et de l'Exalté Empyréen Gu Ya.
 
 Tandis que les rires résonnaient, la petite fille nommée Wa Wa apparut aux côtés de Wang Lin. Elle frappa dans ses mains et fit le tour de Wang Lin.
 

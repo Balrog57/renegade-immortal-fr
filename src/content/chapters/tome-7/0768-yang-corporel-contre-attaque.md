@@ -52,7 +52,7 @@ Du stade Yin Illusoire stabilisé au sommet du stade Yin Illusoire, et la progre
 
 Il devenait infiniment proche du stade Yang Corporel!
 
-« Encore un petit effort! » Les yeux de Wang Lin s'illuminèrent. La moitié du corps de sang de l'Ancêtre Sanguin s'était effondrée et n'existait plus. Cependant, il restait encore beaucoup du souffle du vieil homme mystérieux qui circulait en lui. Wang Lin pressentait que s'il ne s'en débarrassait pas, cela aurait un impact majeur sur son corps.
+« Encore un petit effort! » Les yeux de Wang Lin s'illuminèrent. La moitié du corps de sang de Xue Zu s'était effondrée et n'existait plus. Cependant, il restait encore beaucoup du souffle du vieil homme mystérieux qui circulait en lui. Wang Lin pressentait que s'il ne s'en débarrassait pas, cela aurait un impact majeur sur son corps.
 
 Son regard était empreint de détermination. Son chemin de culture était semé d'embûches. La richesse ne s'obtient qu'en prenant des risques. Et pour l'instant, il n'y avait qu'une seule voie possible!
 
@@ -68,43 +68,43 @@ C'était une chance, la plus grande opportunité que Wang Lin ait connue depuis 
 
 Son niveau de culture grimpa de manière effrénée alors qu'il dévorait les nuages. À cet instant, Wang Lin oubliait tout, son niveau de culture comme le souffle du vieil homme. Il ouvrit la bouche et engloutit de vastes pans de nuages.
 
-À mesure qu'il les absorbait, les nuages se raréfiaient peu à peu. Ils devinrent assez fins pour que même l'Ancêtre Sanguin puisse distinguer clairement Wang Lin.
+À mesure qu'il les absorbait, les nuages se raréfiaient peu à peu. Ils devinrent assez fins pour que même Xue Zu puisse distinguer clairement Wang Lin.
 
-L'Ancêtre Sanguin retint son souffle en fixant Wang Lin. Voyant que ce dernier était littéralement en train d'avaler les nuages, il n'en crut pas ses yeux et murmura: « Fou... Ce Wang Lin est un fou... Personne n'oserait prendre l'initiative face à une rétribution divine... Je ne peux pas le laisser faire! » Les yeux de l'Ancêtre Sanguin brillèrent d'une lueur meurtrière et il s'élança immédiatement.
+Xue Zu retint son souffle en fixant Wang Lin. Voyant que ce dernier était littéralement en train d'avaler les nuages, il n'en crut pas ses yeux et murmura: « Fou... Ce Wang Lin est un fou... Personne n'oserait prendre l'initiative face à une rétribution divine... Je ne peux pas le laisser faire! » Les yeux de Xue Zu brillèrent d'une lueur meurtrière et il s'élança immédiatement.
 
 Après avoir été ainsi affaibli, il n'était plus qu'au sommet du stade Yang Corporel, à un seul pas du stade Scruteur du Nirvana. Cependant, il était convaincu que cela suffisait amplement pour tuer Wang Lin!
 
 Il se mua en une ombre de sang et fonça droit sur Wang Lin au cœur des nuages. À cet instant, Wang Lin ressentit soudainement un sentiment de péril imminent. Ses yeux devinrent glacials lorsqu'il aperçut l'ombre de sang fendre la brume vers lui.
 
-« Ancêtre Sanguin! » ricana Wang Lin en se repliant dans les nuages.
+« Xue Zu! » ricana Wang Lin en se repliant dans les nuages.
 
-L'Ancêtre Sanguin afficha une expression sombre à l'extérieur des nuages, serra les dents et chargea. Dès son entrée, il ressentit la puissance écrasante des cieux. Ne possédant pas d'âme originelle de tonnerre comme celle de Wang Lin et sa culture étant grandement affaiblie, il éprouva un profond sentiment de crainte face à cette rétribution divine.
+Xue Zu afficha une expression sombre à l'extérieur des nuages, serra les dents et chargea. Dès son entrée, il ressentit la puissance écrasante des cieux. Ne possédant pas d'âme originelle de tonnerre comme celle de Wang Lin et sa culture étant grandement affaiblie, il éprouva un profond sentiment de crainte face à cette rétribution divine.
 
 Pourtant, aucun sentiment ne pouvait surpasser son envie irrépressible de tuer Wang Lin. Il laissa échapper un grognement froid et chargea. Un instant plus tard, il vit Wang Lin être frappé par d'innombrables éclairs au sein des nuages.
 
 C'était comme une illusion. En voyant Wang Lin, il eut l'impression de ne pas contempler un homme, mais un dragon de tonnerre!
 
-Alors que Wang Lin fixait l'Ancêtre Sanguin qui approchait, il leva la main et frappa. Le Coup Céleste fut instantanément projeté, et la main droite de l'Ancêtre Sanguin forma un sceau, créant une ombre de sang. Cette ombre chargea et percuta le Coup Céleste avant de s'effondrer aussitôt.
+Alors que Wang Lin fixait Xue Zu qui approchait, il leva la main et frappa. Le Coup Céleste fut instantanément projeté, et la main droite de Xue Zu forma un sceau, créant une ombre de sang. Cette ombre chargea et percuta le Coup Céleste avant de s'effondrer aussitôt.
 
-L'Ancêtre Sanguin fronça les sourcils et soupira. Si son niveau de culture n'avait pas chuté, l'ombre de sang ne se serait pas désintégrée ainsi.
+Xue Zu fronça les sourcils et soupira. Si son niveau de culture n'avait pas chuté, l'ombre de sang ne se serait pas désintégrée ainsi.
 
 Il s'apprêtait à utiliser un autre sort lorsqu'il vit Wang Lin se retirer une fois de plus dans la masse nuageuse. Wang Lin enchaînait les Coups Célestes sans aucune retenue, au prix de son énergie originelle.
 
-À cet instant, Wang Lin disposait d'une réserve d'énergie originelle trop vaste pour être contenue. Les Coups Célestes étaient comme des lames de loi qui fendaient les nuages vers l'Ancêtre Sanguin.
+À cet instant, Wang Lin disposait d'une réserve d'énergie originelle trop vaste pour être contenue. Les Coups Célestes étaient comme des lames de loi qui fendaient les nuages vers Xue Zu.
 
-L'Ancêtre Sanguin laissa échapper un grognement froid et forma un nouveau sceau. Un éclat de lumière sanguine créa des runes qui s'effondrèrent en un éclair. Cela força même les nuages environnants à reculer de 3,3 mètres.
+Xue Zu laissa échapper un grognement froid et forma un nouveau sceau. Un éclat de lumière sanguine créa des runes qui s'effondrèrent en un éclair. Cela força même les nuages environnants à reculer de 3,3 mètres.
 
 Les yeux de Wang Lin restaient calmes tandis qu'il se cachait et reculait rapidement dans la brume. Simultanément, il dévorait d'immenses quantités de nuages, forçant d'innombrables éclairs à pénétrer son corps. L'énergie du vieil homme se dissipait rapidement.
 
-L'Ancêtre Sanguin verrouilla sa cible et chargea. Deux sphères de sang se formèrent, une dans chacune de ses mains, avant qu'il ne fonce droit sur Wang Lin. Il voulait en finir le plus vite possible. Il ressentait un sentiment de crise au sein de ces nuages, et plus la lutte durerait, plus il craignait un imprévu.
+Xue Zu verrouilla sa cible et chargea. Deux sphères de sang se formèrent, une dans chacune de ses mains, avant qu'il ne fonce droit sur Wang Lin. Il voulait en finir le plus vite possible. Il ressentait un sentiment de crise au sein de ces nuages, et plus la lutte durerait, plus il craignait un imprévu.
 
-S'il n'avait pas été à l'intérieur des nuages de la rétribution divine, l'objectif de l'Ancêtre Sanguin aurait été facile à atteindre, sa culture étant toujours supérieure. Mais dans ce chaos de foudre, tuer Wang Lin deviendrait une tâche ardue!
+S'il n'avait pas été à l'intérieur des nuages de la rétribution divine, l'objectif de Xue Zu aurait été facile à atteindre, sa culture étant toujours supérieure. Mais dans ce chaos de foudre, tuer Wang Lin deviendrait une tâche ardue!
 
 L'âme originelle de tonnerre de Wang Lin était comme un poisson dans l'eau. L'énergie du mystérieux vieil homme neutralisait toute la foudre pénétrant son corps. Et par-dessus tout, il bénéficiait de la puissante poussée d'énergie originelle qui bouillonnait en lui.
 
 Tout cela lui permettait de faire ce qu'il voulait au sein de ces nuages!
 
-Face à la poursuite de l'Ancêtre Sanguin, Wang Lin se frayait un chemin à travers les nuages tout en absorbant constamment le tonnerre et en dévorant la brume. Les nuages diminuaient progressivement.
+Face à la poursuite de Xue Zu, Wang Lin se frayait un chemin à travers les nuages tout en absorbant constamment le tonnerre et en dévorant la brume. Les nuages diminuaient progressivement.
 
 C'est alors que le corps de Wang Lin trembla soudainement. L'énergie du vieil homme s'était totalement dissipée; il n'y avait donc plus de chaos interne, seulement l'énergie originelle!
 
@@ -112,14 +112,14 @@ Sous l'impact de cette puissance brute, la culture de Wang Lin grimpa en flèche
 
 Et cela ne s'arrêta pas là. Tandis que l'énergie originelle était absorbée par son âme originelle et que toute l'énergie spirituelle céleste quittait son corps, sa culture progressa encore une fois. Il passa du simple stade de l'entrée au stade Yang Corporel à une stabilisation complète!
 
-Le changement physique de Wang Lin fit vaciller l'expression de l'Ancêtre Sanguin. Il sentit même son cuir chevelu picoter.
+Le changement physique de Wang Lin fit vaciller l'expression de Xue Zu. Il sentit même son cuir chevelu picoter.
 
-« Je ne peux pas le laisser continuer. S'il poursuit sur cette lancée, il pourrait atteindre le début du stade Scruteur du Nirvana! » Les yeux de l'Ancêtre Sanguin devinrent injectés de sang. En observant la rétribution divine, il avait ajusté son corps et s'était désormais reformé en chair.
+« Je ne peux pas le laisser continuer. S'il poursuit sur cette lancée, il pourrait atteindre le début du stade Scruteur du Nirvana! » Les yeux de Xue Zu devinrent injectés de sang. En observant la rétribution divine, il avait ajusté son corps et s'était désormais reformé en chair.
 
-Un sentiment encore plus puissant qu'auparavant envahit Wang Lin. Ses yeux brillèrent comme des torches et il eut l'impression de tenir le monde entier entre ses mains. Il prit une profonde inspiration alors que l'Ancêtre Sanguin se rapprochait. Il plaça ensuite son doigt entre ses sourcils, libérant son âme originelle.
+Un sentiment encore plus puissant qu'auparavant envahit Wang Lin. Ses yeux brillèrent comme des torches et il eut l'impression de tenir le monde entier entre ses mains. Il prit une profonde inspiration alors que Xue Zu se rapprochait. Il plaça ensuite son doigt entre ses sourcils, libérant son âme originelle.
 
 Son corps tomba des nuages mais fut guidé par un sortilège. Une fois au sol, il s'assit immédiatement pour cultiver.
 
 Jaillissant de son enveloppe charnelle, l'âme originelle de Wang Lin se mua en un ancien dragon de tonnerre d'environ 330 mètres de long. Sa présence était terrifiante au milieu des nuages de la rétribution divine!
 
-« Ancêtre Sanguin, puisque tu t'es livré à moi, autant exaucer mon vœu! »
+« Xue Zu, puisque tu t'es livré à moi, autant exaucer mon vœu! »

@@ -110,7 +110,7 @@ Une femme aux longs cheveux se tenait sur une gigantesque boussole octogonale à
 
 « Il y aura une compensation », murmura la femme aux longs cheveux en contemplant la Terre Déchue. Elle pensa intérieurement: « Être protégé par le Grand Empereur... Maintenant, je veux vraiment voir cet homme de mes propres yeux... Je me demande simplement s'il est l'être mentionné dans la prédiction de l'Ancêtre... »
 
-Dans une autre partie du Système Stellaire Antique, une douce lumière bleue scintillait. Le Maître du Dao Rêve Bleu marchait lentement, les mains derrière le dos.
+Dans une autre partie du Système Stellaire Antique, une douce lumière bleue scintillait. Lanmeng Daozun marchait lentement, les mains derrière le dos.
 
 Li Qianmei le suivait silencieusement.
 

@@ -108,7 +108,7 @@ Cette épée était une essence de massacre complète!
 
 On pourrait dire que cette arme était le trésor le plus puissant de Qing Shui et son premier Trésor d'Essence! Tous les cultivateurs de la troisième étape ne parviennent pas forcément à former un tel trésor en brisant la Porte du Vide; ceux qui y parviennent sont extrêmement rares!
 
-L'ancêtre du Clan des Moineaux de Feu, l'Estimé Nan Zhao, l'Estimé Maître Tian Zhao, Zhou Jin, Ling Dong... aucun d'eux n'y était parvenu. Même les Maîtres Hong Shan et Nan Yunzi n'avaient pu le faire.
+L'ancêtre du Clan des Moineaux de Feu, Nanzhao Shangren, Tianzhao Shangshi, Zhou Jin, Ling Dong... aucun d'eux n'y était parvenu. Même les Maîtres Hong Shan et Nan Yunzi n'avaient pu le faire.
 
 Cela démontrait à quel point ce trésor était précieux!
 

@@ -90,7 +90,7 @@ Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de 
 
 Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans le Shi Antique et à son aide pour que le Prince Ji Du devienne empereur.
 
-« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant des collections du Grand Empyréen Gémeaux.
+« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant des collections du Grand Empyréen Shuangzi.
 
 Certaines descriptions existaient. Quant à son apparition, nul ne le savait, mais d'après ce qu'il avait pu comprendre, une pression immense y régnait, capable de voiler le fonctionnement du ciel et de la terre. Même sans être anéanties, les âmes des défunts n'y entraient pas dans la réincarnation, comme si la réincarnation elle-même s'y arrêtait.
 

@@ -28,7 +28,7 @@ Quant à la troisième fois, c'était lorsque le Souverain s'était rendu dans l
 
 Hormis ces trois occurrences, il avait toujours fait ce qu'il voulait et n'avait jamais commis d'erreur de calcul! Jusqu'à sa rencontre avec Wang Lin. C'était comme si Wang Lin était son ennemi juré, une fatalité qui le rendait presque fou.
 
-La première fois qu'il complota contre Wang Lin, ce fut lorsque celui-ci entra dans le Système Stellaire Antique. Il voulait capturer l'âme de Wang Lin, mais non seulement il fut arrêté par le Maître du Dao Rêve Bleu, mais il perdit également la trace de l'aura de Wang Lin à cause de la tombe antique.
+La première fois qu'il complota contre Wang Lin, ce fut lorsque celui-ci entra dans le Système Stellaire Antique. Il voulait capturer l'âme de Wang Lin, mais non seulement il fut arrêté par Lanmeng Daozun, mais il perdit également la trace de l'aura de Wang Lin à cause de la tombe antique.
 
 Cet incident fut considéré comme un accident, et le Souverain n'y prêta que peu d'importance.
 

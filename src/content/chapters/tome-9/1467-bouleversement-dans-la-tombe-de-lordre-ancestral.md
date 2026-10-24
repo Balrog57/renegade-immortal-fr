@@ -28,13 +28,13 @@ Au moment où la faille commença à absorber la brume, un océan violet apparut
 
 Le vieil homme se leva et franchit le seuil de la porte. Sa silhouette surgit à l'extérieur de la Tombe de l'Ordre Antique. À cet instant, l'espace devant lui se distordit, semblant se diviser en neuf mondes. Une personne sortit de cette distorsion!
 
-Il s'agissait d'un homme d'âge mûr au visage sombre. Dès son apparition, ses yeux brillèrent comme des éclairs alors qu'il lança un regard à Maître du Dao Miao Yin: « Le vieux Daoïste Miao Yin, qui n'avait pas quitté l'océan violet depuis des dizaines de milliers d'années, s'est donc lui aussi aventuré dans ces eaux troubles. »
+Il s'agissait d'un homme d'âge mûr au visage sombre. Dès son apparition, ses yeux brillèrent comme des éclairs alors qu'il lança un regard à Miaoyin Daozun: « Le vieux Daoïste Miaoyin Daozun, qui n'avait pas quitté l'océan violet depuis des dizaines de milliers d'années, s'est donc lui aussi aventuré dans ces eaux troubles. »
 
-« Puisque vous, Vieux Démon des Neuf Cieux, pouvez venir, alors ce vieil homme le peut aussi », répondit Maître du Dao Miao Yin d'une voix rauque. Les deux se dévisagèrent puis cessèrent de parler pour fixer la faille qui dévorait la brume.
+« Puisque vous, Jiutian Mozun, pouvez venir, alors ce vieil homme le peut aussi », répondit Miaoyin Daozun d'une voix rauque. Les deux se dévisagèrent puis cessèrent de parler pour fixer la faille qui dévorait la brume.
 
-Après un moment, Maître du Dao Miao Yin dit soudainement: « Le Vieux Poison Grande Désolation est déjà entré... »
+Après un moment, Miaoyin Daozun dit soudainement: « Le Vieux Poison Grande Désolation est déjà entré... »
 
-Le Maître Démon des Neuf Cieux fronça les sourcils et demanda: « Pourrait-il s'agir d'un piège? »
+Jiutian Mozun fronça les sourcils et demanda: « Pourrait-il s'agir d'un piège? »
 
 « Ce ne devrait pas être le cas... Quelqu'un capable de tendre un piège dans la Tombe de l'Ordre Antique ferait-il une chose pareille? » Les deux se regardèrent, le regard empreint de détermination.
 
@@ -48,19 +48,19 @@ Les deux conclurent un accord et chargèrent vers la faille qui flottait calmeme
 
 Une force puissante commença à se condenser de toutes parts. En un éclair, elle prit la forme d'une paume illusoire flottant au-dessus de la faille.
 
-Cette empreinte de paume était immense, assez vaste pour couvrir tout ce domaine stellaire. Maître du Dao Miao Yin s'arrêta et contempla l'empreinte. Le Maître Démon des Neuf Cieux fronça les sourcils et marqua également l'arrêt.
+Cette empreinte de paume était immense, assez vaste pour couvrir tout ce domaine stellaire. Miaoyin Daozun s'arrêta et contempla l'empreinte. Jiutian Mozun fronça les sourcils et marqua également l'arrêt.
 
 Un gaz noir apparut sous la paume, formant une silhouette obscure. Cette personne était couverte d'une robe noire, rendant son apparence impossible à distinguer.
 
 « La grande bataille est sur le point de commencer, rien ne doit donc vous arriver. Cette Tombe de l'Ordre Antique... n'y allez pas. » Après un bref silence, la faille ne rétrécit pas; elle semblait attendre que les cultivateurs y pénètrent.
 
-Maître du Dao Miao Yin regarda l'homme en robe noire et demanda: « Divinez-vous qu'un accident va se produire? »
+Miaoyin Daozun regarda l'homme en robe noire et demanda: « Divinez-vous qu'un accident va se produire? »
 
 « Je ne l'ai pas encore diviné... » La voix de l'homme en noir résonna, empreinte d'une antiquité profonde.
 
-« Aucun accident ne se produira. Et même si c'était le cas, vous auriez un moyen de nous sauver. » Maître du Dao Miao Yin se détourna et entra dans la tombe.
+« Aucun accident ne se produira. Et même si c'était le cas, vous auriez un moyen de nous sauver. » Miaoyin Daozun se détourna et entra dans la tombe.
 
-Le Maître Démon des Neuf Cieux sourit et joignit les mains en signe de respect: « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, le Maître Démon des Neuf Cieux s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
+Jiutian Mozun sourit et joignit les mains en signe de respect: « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, Jiutian Mozun s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
 
 « J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcane Grande Désolation, Zhou Jin, ainsi que les deux concubines de l'Immortel Vénérable de la haute antiquité. Ils représentent 30 % de la puissance de mon Système Stellaire Antique... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
 

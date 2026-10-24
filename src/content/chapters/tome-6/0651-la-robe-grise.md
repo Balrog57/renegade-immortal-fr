@@ -24,11 +24,11 @@ D'une simple pensée, l'épée s'envola et se planta dans le sol aux côtés de 
 
 Après avoir méticuleusement exploré l'espace intérieur du jeton, Wang Lin retira son Sens Divin. Il fixa l'objet en proie à la réflexion.
 
-« Hormis sa matière, ce jeton n'a rien d'extraordinaire. Si je ne l'avais pas vu se matérialiser directement à partir de la brume, il serait difficile d'imaginer que des êtres comme l'Omniscient, Ling Tianhou et l'Ancêtre Sanguin cherchent à le dérober! »
+« Hormis sa matière, ce jeton n'a rien d'extraordinaire. Si je ne l'avais pas vu se matérialiser directement à partir de la brume, il serait difficile d'imaginer que des êtres comme l'Omniscient, Ling Tianhou et Xue Zu cherchent à le dérober! »
 
 « Ce jeton est la clé pour ouvrir la grotte. Il faut impérativement ouvrir les quatre fausses grottes pour pouvoir accéder à la porte finale. Selon Yao Xixue, l'Omniscient et sa troupe ignorent qu'une quatrième fausse grotte existe... »
 
-« Mais l'Ancêtre Sanguin, lui, le sait. »
+« Mais Xue Zu, lui, le sait. »
 
 « Chen Long et Tan Lang savent que j'ai obtenu le jeton. Cependant, Chen Long n'a pas tout vu. À sa place, je penserais que Tan Lang aurait fini par s'emparer du jeton! »
 

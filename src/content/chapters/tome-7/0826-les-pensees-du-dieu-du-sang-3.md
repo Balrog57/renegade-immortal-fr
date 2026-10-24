@@ -1,6 +1,6 @@
 ---
 n: 826
-title: Les Pensées du Dieu du Sang (3)
+title: Les Pensées de Xue Shenzi (3)
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 826 - Blood Gods Thoughts (3)
@@ -112,7 +112,7 @@ Un vieil homme était assis à l'intérieur du temple. Ses sourcils étaient rec
 
 Derrière lui reposaient des tablettes spirituelles, chacune dégageant une riche énergie originelle. Soudain, l'une des tablettes situées tout en bas craqua, puis se fendit en deux!
 
-Le vieil homme ouvrit lentement les yeux. Il regarda la tablette brisée et murmura: « L'un d'eux est enfin mort... Wang Lin du Système Stellaire de l'Alliance, je veux voir combien vous pouvez en tuer! Ne décevez pas ce vieux, le Dieu du Sang! » Le regard de l'homme était d'une noirceur abyssale.
+Le vieil homme ouvrit lentement les yeux. Il regarda la tablette brisée et murmura: « L'un d'eux est enfin mort... Wang Lin du Système Stellaire de l'Alliance, je veux voir combien vous pouvez en tuer! Ne décevez pas ce vieux, Xue Shenzi! » Le regard de l'homme était d'une noirceur abyssale.
 
 Il leva la main droite et, d'un geste du doigt, une brume blanche s'échappa de la tablette brisée pour se glisser dans ses manches.
 

@@ -60,11 +60,11 @@ L'expression de Jiu Di devint sombre alors que son regard se posait sur Wang Lin
 
 « Wang Lin, tu es intelligent. Ce vieil homme ne souhaite vraiment pas agir, car cela aggraverait la malédiction, mais ne me force pas! Remets la tête et ce vieil homme te laissera repartir sain et sauf. Nous prêterons serment de ne plus jamais te nuire et nous t'aiderons même à devenir un Grand Empyréen. Si tu restes avide, alors ce lieu sera ta tombe! » déclara calmement Jiu Di en fixant Wang Lin.
 
-« Même Gémeaux est extrêmement affaiblie actuellement, elle n'est pas de taille face à ce vieil homme! De plus, il y a Wu Feng et Dao Yi. Bien qu'ils ne puissent déployer toute leur puissance à cause de la malédiction, ils peuvent encore contenir Gémeaux un certain temps! En outre, l'Enseignante Impériale Hai Zi du clan Dao Wang est aussi présente. Wang Lin, ne cherche pas la mort! De plus, n'importe lequel des Grands Empyréens peut consumer une partie de sa puissance pour t'écraser! »
+« Même Shuangzi est extrêmement affaiblie actuellement, elle n'est pas de taille face à ce vieil homme! De plus, il y a Wu Feng et Dao Yi. Bien qu'ils ne puissent déployer toute leur puissance à cause de la malédiction, ils peuvent encore contenir Shuangzi un certain temps! En outre, l'Enseignante Impériale Hai Zi du clan Dao Wang est aussi présente. Wang Lin, ne cherche pas la mort! De plus, n'importe lequel des Grands Empyréens peut consumer une partie de sa puissance pour t'écraser! »
 
 L'expression de Wang Lin resta impassible tandis que son regard balayait l'assemblée.
 
-Simultanément, le Grand Empyréen Gémeaux bougea pour rejoindre Wang Lin. Son visage devint instantanément livide et une lumière violette enveloppa son corps. Sa forme sembla fondre pour redevenir deux fillettes.
+Simultanément, le Grand Empyréen Shuangzi bougea pour rejoindre Wang Lin. Son visage devint instantanément livide et une lumière violette enveloppa son corps. Sa forme sembla fondre pour redevenir deux fillettes.
 
 Le visage des deux petites filles était d'une pâleur mortelle; elles paraissaient très faibles. Il semblait que fusionner en une seule entité leur coûtait un prix exorbitant.
 
@@ -74,17 +74,17 @@ La tête de l'Ancêtre Céleste contenait la malédiction ancestrale, mais celle
 
 Les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule paire; une fois expulsés, les deux fillettes s'en saisirent immédiatement.
 
-« Puisque cet objet est utile au Grand Empyréen Gémeaux, veuillez l'accepter! Merci pour votre aide! » Tandis que Wang Lin parlait, le visage de Jiu Di se crispa. Il poussa un rugissement et fonça sur Wang Lin.
+« Puisque cet objet est utile au Grand Empyréen Shuangzi, veuillez l'accepter! Merci pour votre aide! » Tandis que Wang Lin parlait, le visage de Jiu Di se crispa. Il poussa un rugissement et fonça sur Wang Lin.
 
 Les yeux de Dao Yi devinrent rouge sang alors qu'il s'élançait, enveloppé d'un gaz noir!
 
 « Wu Feng, Hai Zi, agissez ensemble! » Jiu Di se sentait profondément humilié. Il était un Grand Empyréen ayant vécu des éons, et pourtant, il devait appeler les autres à agir avec lui. C'était une rare ignominie pour lui.
 
-« Cet enfant ne doit pas rester en vie! » hurlait Jiu Di, dévoré par l'intention meurtrière. Alors qu'il s'approchait, le Grand Empyréen Gémeaux, redevenue deux fillettes, tenait chacune un œil. Malgré leur pâleur, leurs regards étaient déterminés. Leurs corps tremblèrent tandis qu'elles fusionnaient à nouveau pour redevenir la véritable Gémeaux et se précipitaient vers Jiu Di et Dao Yi!
+« Cet enfant ne doit pas rester en vie! » hurlait Jiu Di, dévoré par l'intention meurtrière. Alors qu'il s'approchait, le Grand Empyréen Shuangzi, redevenue deux fillettes, tenait chacune un œil. Malgré leur pâleur, leurs regards étaient déterminés. Leurs corps tremblèrent tandis qu'elles fusionnaient à nouveau pour redevenir la véritable Shuangzi et se précipitaient vers Jiu Di et Dao Yi!
 
 Des grondements tonitruants éclatèrent. Au loin, Wu Feng hésitait. L'Exalté Empyréen Hai Zi se mordait la lèvre inférieure, visiblement déchirée par le dilemme.
 
-Tandis que Gémeaux résistait à Jiu Di et Dao Yi, les yeux de Wang Lin s'illuminèrent. Sa main droite projeta deux rayons de lumière noire qui tranchèrent les deux oreilles de l'Ancêtre Céleste!
+Tandis que Shuangzi résistait à Jiu Di et Dao Yi, les yeux de Wang Lin s'illuminèrent. Sa main droite projeta deux rayons de lumière noire qui tranchèrent les deux oreilles de l'Ancêtre Céleste!
 
 Un sang doré éclaboussa l'air alors que la paire d'oreilles, brillant intensément, vola vers Wu Feng!
 
@@ -92,11 +92,11 @@ Un sang doré éclaboussa l'air alors que la paire d'oreilles, brillant intensé
 
 En battant en retraite, Wu Feng resta silencieux et ne lança à Wang Lin qu'un regard profond. Puis, il fit volte-face et disparut!
 
-Voyant cela, Jiu Di, entravé par Gémeaux, sentit son intention meurtrière redoubler de force. Il serra les dents dans un rugissement. Une lumière blanche jaillit de son corps pour former un soleil blanc derrière lui!
+Voyant cela, Jiu Di, entravé par Shuangzi, sentit son intention meurtrière redoubler de force. Il serra les dents dans un rugissement. Une lumière blanche jaillit de son corps pour former un soleil blanc derrière lui!
 
-Un loup blanc hurla et sa tête perça le corps de Jiu Di pour foncer vers Gémeaux!
+Un loup blanc hurla et sa tête perça le corps de Jiu Di pour foncer vers Shuangzi!
 
-« Dao Yi, Hai Zi, volez la tête! » Jiu Di déploya toute sa puissance, au risque d'aggraver la malédiction, pour lutter contre Gémeaux. En un éclair, Dao Yi survola Gémeaux tandis qu'un soleil apparaissait également derrière lui. Il se donnait aussi à fond, au prix d'une aggravation de la malédiction!
+« Dao Yi, Hai Zi, volez la tête! » Jiu Di déploya toute sa puissance, au risque d'aggraver la malédiction, pour lutter contre Shuangzi. En un éclair, Dao Yi survola Shuangzi tandis qu'un soleil apparaissait également derrière lui. Il se donnait aussi à fond, au prix d'une aggravation de la malédiction!
 
 Mais il était le plus faible des Grands Empyréens et la malédiction qui le frappait était extrêmement sévère. À cet instant, son soleil était terne, comme s'il pouvait se dissiper à tout moment. Il ne pouvait toujours pas utiliser toute sa puissance.
 

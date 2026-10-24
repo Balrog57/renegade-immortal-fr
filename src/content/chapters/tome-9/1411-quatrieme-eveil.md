@@ -48,7 +48,7 @@ Au même moment, sur la Planète du Grand Empereur, le corps de Wang Lin fut env
 
 Le vieux Oiseau Vermillon n'hésita pas et se précipita près du second bâton d'encens en flammes. Ignorant la rapidité de sa combustion, il y posa sa main droite et y injecta son puissant Sens Divin.
 
-Le Maître du Dao Rêve Bleu fit de même et rejoignit le second bâton. Une lueur bleue enveloppa son corps tandis que son doigt touchait l'encens.
+Lanmeng Daozun fit de même et rejoignit le second bâton. Une lueur bleue enveloppa son corps tandis que son doigt touchait l'encens.
 
 À l'intérieur de l'Épreuve Terrestre, le feu aux sept couleurs faisait rage. Même le Oiseau Vermillon de la première génération n'avait pu franchir cette épreuve sans la protection du Souverain Céleste. La rétribution consumait l'âme de Wang Lin.
 
@@ -66,13 +66,13 @@ Les yeux de l'homme d'âge moyen se rétrécirent et il se redressa brusquement,
 
 Le Sens Divin du vieux Oiseau Vermillon parvint sur les lieux, mais dès qu'il effleura la force mystérieuse, il fut projeté hors de l'Épreuve Terrestre.
 
-Le Sens Divin du Maître du Dao Rêve Bleu suivit, mais au contact de cette étrange puissance, des lueurs bleues clignotèrent et il fut lui aussi expulsé de l'épreuve.
+Le Sens Divin de Lanmeng Daozun suivit, mais au contact de cette étrange puissance, des lueurs bleues clignotèrent et il fut lui aussi expulsé de l'épreuve.
 
 Sur la Planète du Grand Empereur, la main droite du vieux Oiseau Vermillon fut violemment projetée en l'air. Ses yeux étaient empreints d'incrédulité et il recula inconsciemment de plusieurs pas.
 
 « Quel genre de pouvoir est-ce là?! »
 
-Le Maître du Dao Rêve Bleu sentit son doigt engourdi et se retira, sous le choc. Il connaissait bien Wang Lin et reconnut la force qui l'avait terrifié. C'était... la Perle Défiant le Ciel... Sans un mot, il retourna silencieusement aux côtés de Li Qianmei.
+Lanmeng Daozun sentit son doigt engourdi et se retira, sous le choc. Il connaissait bien Wang Lin et reconnut la force qui l'avait terrifié. C'était... la Perle Défiant le Ciel... Sans un mot, il retourna silencieusement aux côtés de Li Qianmei.
 
 « Il ira bien! »
 
@@ -80,7 +80,7 @@ Maître Simo observait la scène, stupéfait. Il avait vu les deux puissances s'
 
 L'expression de la Grande Maîtresse Yun Luo devint plus sombre encore et ses mains s'activèrent avec précipitation. Elle sentait qu'elle était sur le point de percer les secrets qui se jouaient là.
 
-Le Maître du Dao Miao Yin se leva de son nuage, le regard brillant.
+Miaoyin Daozun se leva de son nuage, le regard brillant.
 
 « Ce que Shui Daozi disait était vrai! »
 

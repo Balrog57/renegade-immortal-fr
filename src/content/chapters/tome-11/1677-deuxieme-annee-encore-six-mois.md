@@ -114,7 +114,7 @@ Simultanément, les yeux de Wang Lin se plissèrent et il lança un regard froid
 
 Trois rayons de lumière convergeaient, porteurs d'une intention meurtrière et d'une rancœur terrifiantes.
 
-Parmi ces trois éclats de lumière se trouvaient des personnes que Wang Lin connaissait bien: le Maître Dao Miao Yin, le Maître Démon Neuf Cieux et la Grande Désolation!
+Parmi ces trois éclats de lumière se trouvaient des personnes que Wang Lin connaissait bien: Miaoyin Daozun, Jiutian Mozun et la Grande Désolation!
 
 Ces trois individus étaient censés être restés piégés dans l'Ancienne Tombe, mais ils avaient été sauvés par le Souverain. Leur haine envers Wang Lin était monstrueuse, et ils étaient venus ici avec l'intention de l'assassiner!
 
@@ -124,7 +124,7 @@ Deux ans et six mois s'étaient écoulés! Il restait encore un semestre avant q
 
 D'un revers de manche, il fit un pas vers le Royaume Extérieur. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation, pour apparaître dans le ciel lointain.
 
-« Miao Yin, Neuf Cieux, Grande Désolation, les trois vous, dégagez de là!! » Le Maître Dao Bleu Rêve poussa soudain un rugissement. Ce cri propagea une onde puissante à travers le système stellaire, créant une véritable tempête. Cela força Miao Yin et ses compagnons à s'arrêter!
+« Miaoyin Daozun, Jiutian Mozun, Grande Désolation, les trois vous, dégagez de là!! » Le Maître Dao Bleu Rêve poussa soudain un rugissement. Ce cri propagea une onde puissante à travers le système stellaire, créant une véritable tempête. Cela força Miaoyin Daozun et ses compagnons à s'arrêter!
 
 « Bleu Rêve!! Que fais-tu?! »
 
@@ -138,7 +138,7 @@ Sa culture au sommet du Vide Arcane explosa de son corps. La puissance d'un somm
 
 C'était comme si l'univers complet devait se soumettre à sa force!
 
-L'expression du Maître Dao Miao Yin changea. Lui, Neuf Cieux et la Grande Désolation échangèrent des regards où ne transparaissait que la terreur.
+L'expression de Miaoyin Daozun changea. Lui, Jiutian Mozun et la Grande Désolation échangèrent des regards où ne transparaissait que la terreur.
 
 Les Cinq Maîtres du Système Stellaire Antique possédaient des niveaux de culture variés. Bien que le Souverain détiât un pouvoir terrifiant, Bleu Rêve à pleine puissance était encore plus redoutable. Si ce n'était pour l'imperfection de son cœur de Dao causée par sa femme, et pour son refus d'affronter la Tribulation Arcane, même le Souverain ne pourrait donner d'ordres à Bleu Rêve!
 

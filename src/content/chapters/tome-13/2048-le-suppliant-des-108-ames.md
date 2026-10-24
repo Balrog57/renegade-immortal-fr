@@ -42,7 +42,7 @@ Dao Yi contempla l'arbre géant et eut le souffle coupé. « Bon sang, cet arbre
 
 Simultanément, dans le Continent Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
-Dans la Secte Yang Violet, les Grands Empyréens Gémeaux s'élancèrent, observèrent la terre et froncèrent les sourcils.
+Dans la Secte Yang Violet, les Grands Empyréens Shuangzi s'élancèrent, observèrent la terre et froncèrent les sourcils.
 
 Dans la Cité Ancestrale, le Grand Empyréen Jiu Di se tenait au sommet du Mont Empereur. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
 
@@ -64,7 +64,7 @@ Cette fois, le corps de Hai Zi trembla et elle chancela, le visage livide. Ses y
 
 « Le Piétinement du Ciel... Ceci... Ceci... » Le corps de Jiu Di trembla et sa culture sembla perdre tout contrôle. Il passa d'un vieil homme à un homme d'âge mûr, avant de redevenir un vieillard. Cela suffisait à démontrer le choc qui l'habitait.
 
-Wang Lin observait le clan céleste, les 72 âmes pétrifiées par la peur mais criant leurs suppliques; il vit aussi le choc de Dao Yi, l'horreur de Wu Feng, la confusion de Gémeaux et le regard de Jiu Di.
+Wang Lin observait le clan céleste, les 72 âmes pétrifiées par la peur mais criant leurs suppliques; il vit aussi le choc de Dao Yi, l'horreur de Wu Feng, la confusion de Shuangzi et le regard de Jiu Di.
 
 Il les voyait, mais ils ne pouvaient ressentir son existence. Lorsque Wang Lin scruta la Cité Ancestrale, son regard balaya Jiu Di. Ce fut à cet instant que Jiu Di leva les yeux et sentit ses cheveux se hérisser.
 

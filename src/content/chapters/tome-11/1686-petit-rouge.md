@@ -1,6 +1,6 @@
 ---
 n: 1686
-title: "Petit Rouge!"
+title: "Xiao Hong!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1686 - Little Red!"
@@ -106,15 +106,15 @@ En entendant cela, les yeux de Wang Lin se rétrécirent. Il fixa le dragon pend
 
 « Quel est votre nom? » L'esprit de Wang Lin tressaillit. Il avait une intuition!
 
-« Maître, vous pouvez m'appeler Petit Rouge, c'est mon surnom! » Le dragon agita sa lourde tête en envoyant son message.
+« Maître, vous pouvez m'appeler Xiao Hong, c'est mon surnom! » Le dragon agita sa lourde tête en envoyant son message.
 
-Petit Rouge!! Les yeux de Wang Lin s'illuminèrent soudainement. Il fixa le dragon, l'esprit en ébullition. Les paroles du fou résonnèrent dans son esprit:
+Xiao Hong!! Les yeux de Wang Lin s'illuminèrent soudainement. Il fixa le dragon, l'esprit en ébullition. Les paroles du fou résonnèrent dans son esprit:
 
-« Petit Rouge, Petit Rouge, où es-tu... »
+« Xiao Hong, Xiao Hong, où es-tu... »
 
-« Hmph, tous les trésors de ce roi sont avec Petit Rouge, va les chercher auprès de Petit Rouge... »
+« Hmph, tous les trésors de ce roi sont avec Xiao Hong, va les chercher auprès de Xiao Hong... »
 
-« Petit Rouge, va vite trouver mon grand frère. Dis-lui qu'on me maltraite... »
+« Xiao Hong, va vite trouver mon grand frère. Dis-lui qu'on me maltraite... »
 
 Non seulement le dragon sentit ses écailles se hérisser sous le regard de Wang Lin, mais son cœur battait également la chamade. Ignorant s'il avait offensé ce nouveau maître, il s'apprêta à envoyer un message de peur.
 

@@ -44,9 +44,9 @@ Le cœur de Wang Lin tressaillit et il s'apprêta à parler.
 
 « Je vous laisserai le temps de réfléchir, j'espère que vous en tiendrez compte sérieusement... » L'Oiseau Vermillon de la première génération poussa un soupir.
 
-La respiration de Wang Lin devint saccadée alors qu'il luttait intérieurement. Les paroles de l'Oiseau Vermillon de la première génération étaient extrêmement tentantes, plus encore que l'offre du Maître du Dao Rêve Bleu!
+La respiration de Wang Lin devint saccadée alors qu'il luttait intérieurement. Les paroles de l'Oiseau Vermillon de la première génération étaient extrêmement tentantes, plus encore que l'offre de Lanmeng Daozun!
 
-Le Maître du Dao Rêve Bleu n'appartenait pas au clan Oiseau Vermillon. Dans son cœur, Wang Lin penchait davantage vers l'Oiseau Vermillon de la première génération.
+Lanmeng Daozun n'appartenait pas au clan Oiseau Vermillon. Dans son cœur, Wang Lin penchait davantage vers l'Oiseau Vermillon de la première génération.
 
 Wang Lin hésita et demanda: « Si j'abandonne mon corps de Dieu Ancien et mes autres essences, une fois la troisième étape atteinte, pourrai-je recultiver mes essences? »
 

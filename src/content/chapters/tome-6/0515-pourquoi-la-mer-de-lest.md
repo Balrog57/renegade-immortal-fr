@@ -78,9 +78,9 @@ Elle traversa les airs sur son jade de sang. Tous ceux qui l'aperçurent s'écar
 
 Tout au long du voyage, la femme ne prononça pas un mot. Une fois le jade de sang arrêté, elle ferma les yeux et se mit à cultiver.
 
-« La fille de l'Ancêtre Sanguin, Yao Xixue! » Certains la reconnurent aussitôt.
+« La fille de Xue Zu, Yao Xixue! » Certains la reconnurent aussitôt.
 
-L'Ancêtre Sanguin, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de culture était prodigieux. Il avait défié l'Omniscient à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
+Xue Zu, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de culture était prodigieux. Il avait défié l'Omniscient à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
 
 Cet homme possédait sa propre planète de culture autour de Tian Yun. Il y capturait des indigènes pour se nourrir de leur sang et cultiver ses arts démoniaques.
 

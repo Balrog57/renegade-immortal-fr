@@ -110,6 +110,6 @@ Le ciel du Royaume Céleste était d'un bleu pur, parsemé de nuages semblables 
 
 Le sol affichait un vert éclatant, avec des montagnes et des rivières se découpant au loin. Le parfum de la terre se mêlait à l'atmosphère du monde; le respirer semblait pénétrer jusqu'à l'âme.
 
-Wang Lin était revenu dans le Royaume Céleste. Hormis le Maître du Dao Rêve Bleu, personne ne remarqua son retour. Wang Lin apparut devant la montagne qu'il avait utilisée autrefois pour sa culture en isolement.
+Wang Lin était revenu dans le Royaume Céleste. Hormis Lanmeng Daozun, personne ne remarqua son retour. Wang Lin apparut devant la montagne qu'il avait utilisée autrefois pour sa culture en isolement.
 
 Levant les yeux vers le ciel, l'expression de Wang Lin s'assombrit progressivement. Son regard se remplit peu à peu de pensées et de mélancolie. Chaque année, en ce jour précis, il cherchait à oublier quelque chose. La plupart du temps, il s'imposait une activité intense pour ne pas avoir à se souvenir.

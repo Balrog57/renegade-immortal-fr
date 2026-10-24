@@ -40,7 +40,7 @@ Il avait laissé d'innombrables ombres délicates danser autour de lui telles de
 
 C'était un amour qui habitait Wang Lin depuis plus de deux mille ans, et il ne s'évanouirait pas avant le jour de sa propre mort! Ils préféraient mourir ensemble plutôt que de vivre l'un sans l'autre!
 
-Ces mots parvinrent aux oreilles du Maître du Dao Rêve Bleu, dont le regard s'assombrit. Il fixa la direction du Royaume Céleste et médita en silence.
+Ces mots parvinrent aux oreilles de Lanmeng Daozun, dont le regard s'assombrit. Il fixa la direction du Royaume Céleste et médita en silence.
 
 Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit son regard. Ayant entendu les paroles de Wang Lin sur l'absence de regret, il hocha la tête.
 
@@ -54,7 +54,7 @@ Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit
 
 « Un être aussi noble et sentimental... Si mon Clan du Dao Antique ne l'abandonne pas et lui témoigne toujours sa bienveillance, il pourra certainement protéger mon Clan du Dao Antique sans amertume ni regret, pour l'éternité! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
 
-Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Le Maître du Dao Rêve Bleu le suivit tout en restant plongé dans ses pensées.
+Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Lanmeng Daozun le suivit tout en restant plongé dans ses pensées.
 
 Quant à Tuo Sen, après avoir salué Wang Lin, il marcha machinalement vers l'horizon, son esprit occupé par la question de savoir s'il devait quitter le monde des grottes pour se réincarner sur le Continent Astral Immortel ou non.
 

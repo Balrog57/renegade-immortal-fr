@@ -46,9 +46,9 @@ Le Général Tortue Noire et le Général Oiseau Vermillon combattaient les deux
 
 Cependant, comparés à eux, le véritable combat se déroulait au loin.
 
-C'était là que se trouvait le Vieux Fantôme Zhan, et le Maître du Dao Rêve Bleu ainsi que le vieil homme nommé Ma l'encerclaient et le combattaient!
+C'était là que se trouvait le Vieux Fantôme Zhan, et Lanmeng Daozun ainsi que le vieil homme nommé Ma l'encerclaient et le combattaient!
 
-L'expression du Maître du Dao Rêve Bleu était sombre et ses pas étaient instables. La plupart de ses sorts étaient défensifs, car il ne parvenait pas à approcher le Vieux Fantôme Zhan. Le vieil homme nommé Ma affichait un regard impuissant, mais ses attaques faisaient trembler le monde.
+L'expression de Lanmeng Daozun était sombre et ses pas étaient instables. La plupart de ses sorts étaient défensifs, car il ne parvenait pas à approcher le Vieux Fantôme Zhan. Le vieil homme nommé Ma affichait un regard impuissant, mais ses attaques faisaient trembler le monde.
 
 Il devait agir; il était venu ici avec ses congénères de la Planète des Cinq Éléments à la demande de Xuan Luo. S'il ne faisait rien, il risquait d'irriter Xuan Luo, ce qui l'empêcherait de quitter ce monde caverneux.
 
@@ -58,7 +58,7 @@ En conséquence, même lui ne pouvait s'élancer vers la dernière couche en peu
 
 Tandis que les trois combattaient, le vieil homme nommé Ma fit plusieurs pas en arrière. Son visage était légèrement pâle et il envoya rapidement un message par sens divin: « Camarade Rêve Bleu, je vais utiliser un sort puissant! »
 
-Dès qu'il eut envoyé son message, le Maître du Dao Rêve Bleu agita la main et une lumière bleue l'enveloppa alors qu'il chargeait le Vieux Fantôme Zhan. Un grondement de tonnerre retentit lorsque le Vieux Fantôme Zhan agita sa main droite. Le caractère « bataille » apparut et s'étendit rapidement. Une force monstrueuse se propagea, et la lumière bleue se déforma avant de s'effondrer promptement.
+Dès qu'il eut envoyé son message, Lanmeng Daozun agita la main et une lumière bleue l'enveloppa alors qu'il chargeait le Vieux Fantôme Zhan. Un grondement de tonnerre retentit lorsque le Vieux Fantôme Zhan agita sa main droite. Le caractère « bataille » apparut et s'étendit rapidement. Une force monstrueuse se propagea, et la lumière bleue se déforma avant de s'effondrer promptement.
 
 « Même la lueur d'un grain de riz ose rivaliser avec la lune brillante! » Le Vieux Fantôme Zhan laissa échapper un ricanement froid et agita sa manche en chargeant le vieil homme nommé Ma. Il ne craignait pas Rêve Bleu; après tout, ce dernier n'avait pas traversé les Tribulations Arcanes.
 
@@ -70,11 +70,11 @@ L'homme nommé Ma recula et pointa le ciel. Il était sur le point d'utiliser un
 
 Pourtant, que ce soit lui ou le Vieux Fantôme Zhan, ils avaient sous-estimé Rêve Bleu. Il était l'un des Cinq Maîtres du Système Stellaire Antique, un être que même le Souverain redoutait. Bien qu'il n'ait pas traversé les Tribulations Arcanes, il possédait ses propres méthodes!
 
-À cet instant, le Maître du Dao Rêve Bleu mordit la pointe de sa langue et cracha du sang. Son sang fusionna avec la lumière bleue défaillante pour former une cithare antique!
+À cet instant, Lanmeng Daozun mordit la pointe de sa langue et cracha du sang. Son sang fusionna avec la lumière bleue défaillante pour former une cithare antique!
 
-La cithare dégageait une aura millénaire, comme si elle avait existé depuis des éons. Elle était invisible, dissimulée dans le sang du Maître du Dao Rêve Bleu durant d'innombrables années. Maintenant qu'elle était révélée au monde, elle déployait toute sa puissance!
+La cithare dégageait une aura millénaire, comme si elle avait existé depuis des éons. Elle était invisible, dissimulée dans le sang de Lanmeng Daozun durant d'innombrables années. Maintenant qu'elle était révélée au monde, elle déployait toute sa puissance!
 
-Cette cithare antique était le trésor le plus puissant et l'atout ultime du Maître du Dao Rêve Bleu. C'était la véritable raison pour laquelle le Souverain le craignait. Cette cithare n'avait été utilisée qu'une seule fois — lors de la bataille qui avait rendu Rêve Bleu célèbre. Une seule note de cet instrument avait enterré dix mille ossements, et un regard en arrière révélait mille ans écoulés.
+Cette cithare antique était le trésor le plus puissant et l'atout ultime de Lanmeng Daozun. C'était la véritable raison pour laquelle le Souverain le craignait. Cette cithare n'avait été utilisée qu'une seule fois — lors de la bataille qui avait rendu Rêve Bleu célèbre. Une seule note de cet instrument avait enterré dix mille ossements, et un regard en arrière révélait mille ans écoulés.
 
 Bien qu'il n'ait pas subi de Tribulations Arcanes, l'effort et le sacrifice consacrés à l'affinage de cette cithare surpassaient ceux requis pour traverser les Tribulations. L'instrument possédait également une origine mystérieuse.
 
@@ -88,7 +88,7 @@ La musique de la cithare résonna. Le Vieux Fantôme Zhan, qui venait de dépass
 
 Au moment où il se retourna, les ondes musicales se propagèrent. Le son émanant de la cithare enveloppa le Vieux Fantôme Zhan, scellant toutes les directions autour de lui, devant, derrière, à gauche et à droite.
 
-Les yeux du vieil homme nommé Ma brillèrent d'une lueur étrange. Il regarda le Maître du Dao Rêve Bleu et ses pupilles se contractèrent. Il ne reconnut pas la cithare, mais il comprit qu'elle était extraordinaire.
+Les yeux du vieil homme nommé Ma brillèrent d'une lueur étrange. Il regarda Lanmeng Daozun et ses pupilles se contractèrent. Il ne reconnut pas la cithare, mais il comprit qu'elle était extraordinaire.
 
 Sans hésiter, il pointa le ciel de sa main droite.
 
@@ -100,7 +100,7 @@ Tel les neuf chants et les trois signes!
 
 Après avoir utilisé ces deux sorts élémentaires, le vieil homme nommé Ma était épuisé. Il ne voulait pas en déployer davantage, mais ses mains, tendues vers le ciel et la terre, bougèrent soudainement.
 
-À cet instant, la musique de la cithare du Maître du Dao Rêve Bleu devint plus intense encore, chargée d'une intention meurtrière qui emprisonna totalement le Vieux Fantôme Zhan. Les yeux de ce dernier s'illuminèrent et il agita sa main droite. Un caractère signifiant « bataille » apparut. Le mot s'effondra, faisant vaciller le sceau qui l'entourait.
+À cet instant, la musique de la cithare de Lanmeng Daozun devint plus intense encore, chargée d'une intention meurtrière qui emprisonna totalement le Vieux Fantôme Zhan. Les yeux de ce dernier s'illuminèrent et il agita sa main droite. Un caractère signifiant « bataille » apparut. Le mot s'effondra, faisant vaciller le sceau qui l'entourait.
 
 La musique de la cithare redoubla d'intensité, ses ondulations résistant à l'effondrement du caractère « bataille ». Simultanément, le sort lancé par le vieil homme se rua vers le Vieux Fantôme Zhan.
 

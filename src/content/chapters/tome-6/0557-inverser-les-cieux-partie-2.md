@@ -14,7 +14,7 @@ Dès son apparition, il lança un regard glacial vers les sculptures de glace o�
 
 La lueur rouge émanant de la sculpture de glace de Yao Xixue s'intensifia, comme si une vague de chaleur en jaillissait. Des volutes de brume blanche s'élevèrent de la glace et, en un clin d'œil, celle-ci fondit, permettant à Yao Xixue d'en sortir.
 
-« Vous êtes venue ici à plusieurs reprises et vous utilisez les sorts de l'Ancêtre Sanguin. J'ai été clément envers vous à trois reprises, considérant que vous étiez sa descendante, en vous permettant d'utiliser votre sort de résurrection; mais vous êtes une ingrate. Cette fois, utilisez votre sort de résurrection et disparaissez d'ici immédiatement avant de ne plus en avoir la possibilité! » Bien que la voix de l'homme d'âge moyen fût calme, elle dégageait une aura puissante.
+« Vous êtes venue ici à plusieurs reprises et vous utilisez les sorts de Xue Zu. J'ai été clément envers vous à trois reprises, considérant que vous étiez sa descendante, en vous permettant d'utiliser votre sort de résurrection; mais vous êtes une ingrate. Cette fois, utilisez votre sort de résurrection et disparaissez d'ici immédiatement avant de ne plus en avoir la possibilité! » Bien que la voix de l'homme d'âge moyen fût calme, elle dégageait une aura puissante.
 
 À cet instant, la sculpture de glace de Wang Lin fondit progressivement. Son expression demeurait sereine tandis qu'il les fixait froidement.
 

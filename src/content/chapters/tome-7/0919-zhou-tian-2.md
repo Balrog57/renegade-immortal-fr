@@ -76,17 +76,17 @@ Il s'agissait d'un homme d'âge mûr à la chevelure rousse, dont l'expression �
 
 À l'apparition de cet homme aux cheveux roux, Zhou Tian fut pétrifié un instant. Puis il ressentit une terreur et une peur inimaginables, une sensation qu'il n'avait jamais connue auparavant.
 
-« L'Ancêtre Sanguin de la Planète Tian Yun!! » Le cuir chevelu de Zhou Tian s'engourdit et il recula immédiatement sans la moindre hésitation. Il abandonna toute intention de tuer Xu Mu. Ce n'était pas qu'il ne le voulait pas, mais qu'il en était incapable!
+« Xue Zu de la Planète Tian Yun!! » Le cuir chevelu de Zhou Tian s'engourdit et il recula immédiatement sans la moindre hésitation. Il abandonna toute intention de tuer Xu Mu. Ce n'était pas qu'il ne le voulait pas, mais qu'il en était incapable!
 
 Bien qu'il fût au stade intermédiaire du Scruteur du Nirvana, ce Xu Mu était trop singulier. Grâce à son expérience, il comprit immédiatement que l'on devait tuer soi-même la cible pour pouvoir emprisonner son âme et s'en servir.
 
-De plus, il connaissait l'Ancêtre Sanguin, et face à ce choc, son cœur devint instantanément craintif.
+De plus, il connaissait Xue Zu, et face à ce choc, son cœur devint instantanément craintif.
 
-« L'Ancêtre Sanguin est un cultivateur au stade du Purificateur du Nirvana, pourtant il a été tué par Xu Mu. Je ne peux absolument rien contre cet homme; je dois m'enfuir! »
+« Xue Zu est un cultivateur au stade du Purificateur du Nirvana, pourtant il a été tué par Xu Mu. Je ne peux absolument rien contre cet homme; je dois m'enfuir! »
 
 Wang Lin pointa Zhou Tian du doigt et dit calmement: « Entraînez cet homme dans les dix-huit couches de l'enfer! »
 
-À peine eut-il parlé que des rugissements frénétiques s'élevèrent des âmes. En particulier, l'Ancêtre Sanguin, entouré d'une brume rouge monstrueuse, se précipita immédiatement vers Zhou Tian.
+À peine eut-il parlé que des rugissements frénétiques s'élevèrent des âmes. En particulier, Xue Zu, entouré d'une brume rouge monstrueuse, se précipita immédiatement vers Zhou Tian.
 
 Le visage de Zhou Tian pâlit et il tenta de battre en retraite. Cependant, à ce moment précis, le membre de la famille Yao et plus d'une centaine de Célestes l'encerclèrent, bloquant totalement sa voie de fuite.
 
@@ -98,8 +98,8 @@ Pourtant, il se plaignit intérieurement. À l'origine, il voulait posséder Wan
 
 En conséquence, il fut contraint de battre en retraite, mais au moment même où il quittait le corps de Wang Lin et s'apprêtait à lancer un sort, il vit une technique qui le bouleversa profondément!
 
-À cet instant, son cœur était rongé par l'anxiété; il se divisa en d'innombrables fragments pour tenter de fuir. Cependant, l'Ancêtre Sanguin esquissa un sourire, enveloppé de brume sanglante. Lui, ainsi que plus d'une centaine de Célestes et le membre de la famille Yao, chargèrent avec acharnement.
+À cet instant, son cœur était rongé par l'anxiété; il se divisa en d'innombrables fragments pour tenter de fuir. Cependant, Xue Zu esquissa un sourire, enveloppé de brume sanglante. Lui, ainsi que plus d'une centaine de Célestes et le membre de la famille Yao, chargèrent avec acharnement.
 
-Des vagues de cris misérables retentirent alors que l'Ancêtre Sanguin, tel une bête primale, s'emparait d'une grande quantité d'ombres de Zhou Tian pour les entraîner dans la brume.
+Des vagues de cris misérables retentirent alors que Xue Zu, tel une bête primale, s'emparait d'une grande quantité d'ombres de Zhou Tian pour les entraîner dans la brume.
 
 Les Célestes environnants, plus d'une centaine, firent de même. En un instant presque imperceptible, toutes les ombres de Zhou Tian furent capturées. Aucune ne put s'échapper.

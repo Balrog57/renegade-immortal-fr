@@ -46,11 +46,11 @@ Un Oiseau Vermillon apparut au cœur des flammes noires. L'oiseau était immense
 
 Le cri de l'Oiseau Vermillon résonna à travers le monde entier. Il pénétra l'Épreuve Humaine et se propagea depuis le bâton d'encens sur le dos de la tortue. Il ébranla la Planète du Grand Empereur tout entière!
 
-Le Maître du Dao Miao Yin, élégant comme un jeune homme, attendait depuis plusieurs jours, mais il n'avait montré aucune impatience. Il venait de sortir une autre pêche et s'apprêtait à la manger quand son corps fut parcouru d'un tremblement. Il fixa le premier bâton d'encens!
+Miaoyin Daozun, élégant comme un jeune homme, attendait depuis plusieurs jours, mais il n'avait montré aucune impatience. Il venait de sortir une autre pêche et s'apprêtait à la manger quand son corps fut parcouru d'un tremblement. Il fixa le premier bâton d'encens!
 
 Le cri du Oiseau Vermillon résonna aux quatre coins du monde!
 
-Les yeux du Maître du Dao Rêve Bleu brillèrent d'une lueur étrange, teintée d'un soupçon de choc.
+Les yeux de Lanmeng Daozun brillèrent d'une lueur étrange, teintée d'un soupçon de choc.
 
 « Le cri d'un Oiseau Vermillon... Ce n'est pas un oiseau ordinaire, c'est... »
 
@@ -66,7 +66,7 @@ Le vieux Oiseau Vermillon laissa paraître une pointe d'excitation et éclata d'
 
 Seul le vieil homme assis sur le lézard gardait les yeux clos, comme si rien de tout cela ne pouvait retenir son attention.
 
-La femme aux côtés du Maître du Dao Rêve Bleu fixait intensément le premier bâton d'encens. Elle se mordillait la lèvre inférieure, tandis que des larmes chargées d'émotions complexes coulaient sur ses joues.
+La femme aux côtés de Lanmeng Daozun fixait intensément le premier bâton d'encens. Elle se mordillait la lèvre inférieure, tandis que des larmes chargées d'émotions complexes coulaient sur ses joues.
 
 À l'intérieur de l'Épreuve Humaine, le Oiseau Vermillon noir déploya ses ailes et s'élança vers les cieux. Son corps était enveloppé de flammes noires infinies dégageant une température inimaginable. Pourtant, cette chaleur n'affectait pas le monde extérieur, restant condensée sur le corps de l'oiseau.
 

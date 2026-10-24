@@ -32,7 +32,7 @@ Derrière eux, à la Secte Yang Pourpre, se tenaient Gu Ya et deux petites fille
 
 Gu Ya soupira et dit: « Il devrait... revenir... Je lui ai déjà donné le jade. S'il fait face à un danger dans le Continent Central, vous le saurez immédiatement. »
 
-« C'est notre accord avec lui. Le cas échéant, le Grand Empyréen Gémeaux devra aller à son aide. »
+« C'est notre accord avec lui. Le cas échéant, le Grand Empyréen Shuangzi devra aller à son aide. »
 
 « Oui, c'est certain. Puisque le petit Wang Lin nous a choisis, nous ne laisserons personne l'intimider! » Wa Wa regarda Han Han, et les deux fillettes hochèrent la tête avec sérieux.
 
@@ -74,7 +74,7 @@ Une montagne, un homme, un Grand Empyréen Jiu Di; ensemble, ils faisaient en so
 
 Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
 
-C'était une structure de pouvoir interne à la Cité Ancestrale que peu d'étrangers connaissaient aussi en détail; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gémeaux avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
+C'était une structure de pouvoir interne à la Cité Ancestrale que peu d'étrangers connaissaient aussi en détail; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Shuangzi avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
 Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Plusieurs mois s'étaient déjà écoulés lorsque les vents glacés et la neige venus du Continent de l'Est recouvrirent le Continent Central.
 

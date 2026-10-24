@@ -62,13 +62,13 @@ Une aura familière se dégagea de ce bassin octogonal, et Wang Lin fut envahi p
 
 Il existait un clan dans le Système Stellaire Antique appelé le Clan de l'Extermination des Sceaux, et ils possédaient un sortilège nommé le Sortilège des Trois Vies! Pour cultiver ce sort, il fallait l'autel complet, mais pour une raison inconnue, celui-ci avait été divisé en trois parties qui s'étaient égarées.
 
-Wang Lin avait eu la chance d'obtenir le Pavillon de Sang de l'Ancêtre Sanguin dans le Vide Brillant. Ce pavillon était l'un des trois autels! Puis, il avait appris l'existence du Sortilège des Trois Vies et obtenu le deuxième autel auprès de l'Ancien Démon à Luotian.
+Wang Lin avait eu la chance d'obtenir le Pavillon de Sang de Xue Zu dans le Vide Brillant. Ce pavillon était l'un des trois autels! Puis, il avait appris l'existence du Sortilège des Trois Vies et obtenu le deuxième autel auprès de l'Ancien Démon à Luotian.
 
 Quant au troisième autel, Wang Lin l'avait cherché sans succès. Mais en voyant cette lumière rouge, un grondement résonna dans son esprit et il commença à spéculer. Il était désormais certain que ce bassin de sang dégageait la même aura que le pavillon et l'autre autel. C'était l'aura du Clan de l'Extermination des Sceaux!
 
 « Le Sortilège des Trois Vies!! Je ne m'attendais pas à trouver le dernier autel ici. Si je parviens à l'apprendre, ma puissance globale augmentera considérablement! » Le cœur de Wang Lin battait la chamade. Il avait toujours été tenté par ce sort, et maintenant qu'il détenait le troisième autel, il était transporté de bonheur.
 
-Sans hésiter, Wang Lin agita la main: l'autel obtenu de l'Ancien Démon s'envola, suivi peu après par le Pavillon de Sang de l'Ancêtre Sanguin!
+Sans hésiter, Wang Lin agita la main: l'autel obtenu de l'Ancien Démon s'envola, suivi peu après par le Pavillon de Sang de Xue Zu!
 
 Une femme était autrefois entrée dans le Pavillon de Sang, une personne que Wang Lin connaissait. Cependant, au fil des années, son corps avait disparu pour ne laisser qu'un lambeau de son âme.
 

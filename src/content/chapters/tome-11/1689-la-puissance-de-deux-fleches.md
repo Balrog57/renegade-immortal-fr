@@ -78,11 +78,11 @@ Au même moment, la septième concubine était livide. Elle tituba en arrière, 
 
 « Wang Lin, je vais te tuer!! »
 
-Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux fonçaient à travers le système stellaire. Leur haine pour Wang Lin n'était en rien inférieure à celle du Souverain ou de la septième concubine. Bien qu'ils fussent blessés, cela n'émoussait en rien leur intention meurtrière. À cet instant, ils convergeaient vers Wang Lin, qu'ils avaient verrouillé comme cible!
+Miaoyin Daozun et Jiutian Mozun fonçaient à travers le système stellaire. Leur haine pour Wang Lin n'était en rien inférieure à celle du Souverain ou de la septième concubine. Bien qu'ils fussent blessés, cela n'émoussait en rien leur intention meurtrière. À cet instant, ils convergeaient vers Wang Lin, qu'ils avaient verrouillé comme cible!
 
-« Avec tant de gens qui te traquent, je ne crois pas que tu puisses ressortir vivant! » ricana le Maître Dao Miao Yin.
+« Avec tant de gens qui te traquent, je ne crois pas que tu puisses ressortir vivant! » ricana Miaoyin Daozun.
 
-« Ce vieil homme va extraire un fragment de ton âme pour alimenter la Lanterne Céleste pendant dix mille ans. Ce n'est qu'en écoutant tes souffrances durant dix mille ans que ma haine pourra s'éteindre! » La haine brûlait dans les yeux du Maître Démon Neuf Cieux.
+« Ce vieil homme va extraire un fragment de ton âme pour alimenter la Lanterne Céleste pendant dix mille ans. Ce n'est qu'en écoutant tes souffrances durant dix mille ans que ma haine pourra s'éteindre! » La haine brûlait dans les yeux de Jiutian Mozun.
 
 Wang Lin banda effectivement l'arc une seconde fois. C'était la première fois qu'il le faisait deux fois de suite. Cette fois, son front était couvert de sueur. La lueur dorée de la lignée céleste, fusionnée dans ses yeux, s'estompait rapidement alors qu'il tendait l'arc jusqu'à sa pleine extension. La flèche qui avait été tirée dans le Royaume Céleste Antique était réapparue sur la corde!
 

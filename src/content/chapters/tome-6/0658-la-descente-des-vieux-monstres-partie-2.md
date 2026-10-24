@@ -66,7 +66,7 @@ Il projeta son sens divin dans le cristal qui se mit immédiatement à émettre 
 
 Lorsqu'il réapparut, il était déjà dans la grotte. En observant les restrictions restantes, les yeux de Wang Lin s'illuminèrent et il murmura: « La prochaine fois que je reviendrai, je briserai toutes les restrictions et percerai le secret de cette grotte! »
 
-Il prit une profonde inspiration et ses mains formèrent un sceau pour refermer la cavité. Puis, il détruisit le réseau de transfert afin que nul autre ne puisse y pénétrer. Même l'Ancêtre Sanguin ne pourrait plus entrer.
+Il prit une profonde inspiration et ses mains formèrent un sceau pour refermer la cavité. Puis, il détruisit le réseau de transfert afin que nul autre ne puisse y pénétrer. Même Xue Zu ne pourrait plus entrer.
 
 Après cela, Wang Lin regarda la grotte d'un air significatif. L'esprit de la grotte apparut à l'entrée, mais se contenta de fixer Wang Lin sans dire un mot.
 
@@ -134,7 +134,7 @@ Sous la lune, il semblait marcher sur l'astre lui-même. Ses vêtements flottaie
 
 Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme des Marées. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir la limite du ciel pour atteindre la Mer des Esprits Démoniaques de l'Est.
 
-Devant la porte de la Mer des Esprits Démoniaques, l'Omniscient, Ling Tianhou, l'Ancêtre Sanguin et sept ou huit anciens se tenaient là.
+Devant la porte de la Mer des Esprits Démoniaques, l'Omniscient, Ling Tianhou, Xue Zu et sept ou huit anciens se tenaient là.
 
 Tous attendaient que Ling Tianhou ouvre la porte quand soudain, l'Omniscient s'exclama. Il fixa la porte du Pays des Esprits Démoniaques, les sourcils froncés par une inquiétude soudaine.
 
@@ -144,9 +144,9 @@ Ce sentiment provenait du Pays des Esprits Démoniaques! Il émanait de la marqu
 
 Ce n'était pas la première fois qu'une marque était ainsi effacée; bien longtemps auparavant, un disciple nommé Sun Yun avait réussi le même exploit.
 
-L'Omniscient n'était pas le seul à être troublé. L'Ancêtre Sanguin l'était aussi: son inquiétude venait de sa fille, Yao Xixue, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de culture, une telle angoisse ne surgit jamais sans raison.
+L'Omniscient n'était pas le seul à être troublé. Xue Zu l'était aussi: son inquiétude venait de sa fille, Yao Xixue, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de culture, une telle angoisse ne surgit jamais sans raison.
 
-C'est pourquoi, lorsque l'Omniscient suggéra d'entrer plus tôt, l'Ancêtre Sanguin fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
+C'est pourquoi, lorsque l'Omniscient suggéra d'entrer plus tôt, Xue Zu fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
 
 De même, le cœur de Ling Tianhou était sombre. Neuf des lampes vitales des Douze Épées s'étaient éteintes... Ling Tianhou réprima sa colère et se prépara à entrer dans le Pays des Esprits Démoniaques. Il comptait interroger rigoureusement Tan Lang sur ce qui s'était passé.
 

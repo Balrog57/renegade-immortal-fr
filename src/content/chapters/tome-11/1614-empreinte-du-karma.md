@@ -40,7 +40,7 @@ Ce rêve avait duré plus de soixante-dix ans. Ces soixante-dix années ne pouva
 
 Après un long moment, alors que le tonnerre et le feu faisaient rage, la confusion dans les yeux de Wang Lin fut brusquement dissipée. Elle fut remplacée par la froideur, la détermination et une intention de tuer infinie dès qu'il se remémora tout ce qui s'était passé!
 
-« Souverain, Maître Céleste Dieu du Vide, et ces Concubines Impériales Célestes... Moi, Wang Lin, je suis réveillé! »
+« Souverain, Xushen Tianzun, et ces Concubines Impériales Célestes... Moi, Wang Lin, je suis réveillé! »
 
 Les yeux de Wang Lin étaient empreints d'une froideur sans fin. Il se redressa, puis se leva lentement et scruta le vide au-delà de la lueur sanglante.
 

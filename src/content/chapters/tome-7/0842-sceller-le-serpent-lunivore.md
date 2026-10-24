@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 842 - Sealing the Moongazer Serpent
 slug: sceller-le-serpent-lunivore
 ---
-Le Dieu du Sang n'hésita pas à exploser en un vaste nuage de sang pour utiliser l'Évasion Sanguine, emportant avec lui l'ombre démoniaque qui se tenait derrière lui.
+Xue Shenzi n'hésita pas à exploser en un vaste nuage de sang pour utiliser l'Évasion Sanguine, emportant avec lui l'ombre démoniaque qui se tenait derrière lui.
 
 À l'extérieur, tous les tentacules du Serpent aux yeux de lune se détachèrent pour se transformer en d'innombrables serpents plus petits. Ce spectacle fit haleter de stupeur les six vieux monstres environnants.
 

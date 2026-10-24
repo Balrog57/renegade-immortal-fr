@@ -52,7 +52,7 @@ Il comptait réprimer cette force de rejet dans son corps jusqu'à un certain po
 
 Ses rugissements devinrent de plus en plus assourdissants. Après un moment, semblant épuisé, il s'assit face à Wang Lin et commença à divaguer.
 
-« Vous ne pouvez pas me traiter ainsi. Je vous ai déjà donné tellement de sorts, vous devez m'en rendre quelques-uns. Au moins un! Ah, Petit Rouge, n'est-ce pas là du harcèlement? Ce roi peut l'endurer, mais toi, Petit Rouge, peux-tu l'endurer? »
+« Vous ne pouvez pas me traiter ainsi. Je vous ai déjà donné tellement de sorts, vous devez m'en rendre quelques-uns. Au moins un! Ah, Xiao Hong, n'est-ce pas là du harcèlement? Ce roi peut l'endurer, mais toi, Xiao Hong, peux-tu l'endurer? »
 
 Wang Lin ouvrit les yeux au milieu de ce vacarme. Il agita la main et une brise dorée emplit le ciel. Neuf dragons d'or apparurent et soufflèrent une rafale de vent violet. Alors que ce vent balayait la terre, celle-ci commença à geler.
 
@@ -64,13 +64,13 @@ Le fou regarda le ciel avec dédain.
 
 Wang Lin agita sa main droite et les neuf dragons disparurent. Puis, il forma un sceau et le ciel se chargea de nuages sombres. Le tonnerre gronda et une pluie dorée commença à tomber. Cette pluie faisait converger rapidement l'énergie originelle du monde.
 
-« Il pleut... Petit Rouge, regarde, il pleut... » Le fou fut surpris un instant avant de bâiller. Il secoua la tête en murmurant: « Vous essayez encore de me tromper? Quel genre de sort est-ce là? Ce roi ne l'apprendra pas! »
+« Il pleut... Xiao Hong, regarde, il pleut... » Le fou fut surpris un instant avant de bâiller. Il secoua la tête en murmurant: « Vous essayez encore de me tromper? Quel genre de sort est-ce là? Ce roi ne l'apprendra pas! »
 
 Wang Lin utilisa *Invoquer le Vent*, *Appeler la Pluie*, *Arsenal Magique* et *Montagne S’Écrase*. Cependant, le fou se contenta d'un regard désinvolte avant de secouer la tête. Devenu progressivement furieux, il rugit contre Wang Lin:
 
 « Vieux fantôme, vous êtes si avare! Ne pouvez-vous pas simplement me donner un sort convenable? Vous... vous dépassez les bornes! »
 
-Wang Lin fixa le fou. Après une profonde inspiration, il lui montra le *Sceau de la Révolution Céleste*, le *Bouclier de Lumière et d'Ombre* ainsi que le sort de fusion de Dao, tous transmis par le Maître du Dao Rêve Bleu.
+Wang Lin fixa le fou. Après une profonde inspiration, il lui montra le *Sceau de la Révolution Céleste*, le *Bouclier de Lumière et d'Ombre* ainsi que le sort de fusion de Dao, tous transmis par Lanmeng Daozun.
 
 « Qu'est-ce que c'est que ce truc? Comment peut-on appeler cela la Révolution Céleste? Je n'apprendrai pas! »
 « Un corps couvert de lumière? Quel genre de sort est-ce là? Je n'apprendrai pas! »

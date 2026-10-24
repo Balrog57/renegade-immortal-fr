@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 956 - The Woman in Pink
 slug: la-femme-en-rose
 ---
-Le papillon aux cinq couleurs était d'une beauté saisissante; lorsqu'il battait des ailes, il libérait une poudre multicolore. Une hirondelle ensanglantée se trouvait à ses côtés. Elle appartenait au Dieu du Sang, mais avait été capturée par le papillon.
+Le papillon aux cinq couleurs était d'une beauté saisissante; lorsqu'il battait des ailes, il libérait une poudre multicolore. Une hirondelle ensanglantée se trouvait à ses côtés. Elle appartenait à Xue Shenzi, mais avait été capturée par le papillon.
 
 Le papillon aux cinq couleurs s'envola et son aile gauche battit doucement. L'onde de choc qui fonçait vers lui trembla soudainement!
 
@@ -54,7 +54,7 @@ En marchant, Wang Lin pénétra à nouveau dans la sphère d'influence de la pla
 
 Wang Lin progressait lentement, plongé dans ses pensées.
 
-« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire de l'Ancêtre Sanguin, le complot de l'Omniscient et diverses autres causes m'ont contraint à partir. À l'époque, ma culture était trop faible et je n'avais aucun pouvoir pour résister; je n'avais aucune chance contre l'Omniscient... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils!
+« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire de Xue Zu, le complot de l'Omniscient et diverses autres causes m'ont contraint à partir. À l'époque, ma culture était trop faible et je n'avais aucun pouvoir pour résister; je n'avais aucune chance contre l'Omniscient... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils!
 
 « Après avoir examiné le second Parchemin de Bataille, j'ai acquis une nouvelle parcelle d'énergie originelle... C'est là mon véritable sort de sauvetage! Après tout, l'Omniscient et moi ne nous sommes pas encore ouvertement affrontés. Je reste un disciple de l'Omniscient. De plus, ce qui est plus important, c'est que celui qui ressemblait à Huanglong a dit que j'appartenais à la planète Suzaku. Un disciple de la branche de l'Oiseau Vermillon des Quatre Sectes Divines... C'est là une chose qui mérite réflexion... » Wang Lin esquissa un sourire narquois, sans lever la main droite, et toucha la zone entre ses sourcils d'un seul doigt.
 

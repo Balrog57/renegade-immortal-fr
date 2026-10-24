@@ -40,7 +40,7 @@ Mu Bingmei resta immobile, observant les traînées de lumière s'éloigner. Deu
 
 Dans le ciel, Wang Lin contempla les environs familiers et son cœur s'apaisa. Il avait le sentiment diffus que les affaires dans le Monde des Grottes étaient loin d'être terminées.
 
-« Avec cette formation, à moins qu'un être comme le Souverain n'apparaisse, il n'y aura pas d'autre guerre entre les Royaumes Intérieur et Extérieur! Bien que plusieurs des Cinq Maîtres soient toujours en vie, ils sont tous gravement blessés. Avec le Maître du Dao Rêve Bleu et le Maître Nan Yunzi ici, il ne devrait y avoir aucun problème. J'ai encore d'autres réflexions à mener.
+« Avec cette formation, à moins qu'un être comme le Souverain n'apparaisse, il n'y aura pas d'autre guerre entre les Royaumes Intérieur et Extérieur! Bien que plusieurs des Cinq Maîtres soient toujours en vie, ils sont tous gravement blessés. Avec Lanmeng Daozun et le Maître Nan Yunzi ici, il ne devrait y avoir aucun problème. J'ai encore d'autres réflexions à mener.
 
 « Le Général Oiseau Vermillon est parti, et si la première génération de l'Oiseau Vermillon de la Terre Déchue du Royaume Extérieur et le Général ont réellement un lien de clone, alors elle a nécessairement dû se dissiper aussi... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
 

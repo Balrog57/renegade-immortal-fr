@@ -72,7 +72,7 @@ Le vortex se dissipa pour laisser place à une nouvelle Porte du Vide!
 
 Cette porte était légèrement plus petite que la précédente, mais la pression qu'elle dégageait était encore plus intense!
 
-« Le Seigneur du Royaume Scellé est d'une arrogance extrême! » Les yeux de Maître Céleste Dieu du Vide étaient empreints d'une émotion complexe. C'était la première fois qu'il désignait Wang Lin dans son cœur comme « le Seigneur du Royaume Scellé » et non plus comme un « Junior ».
+« Le Seigneur du Royaume Scellé est d'une arrogance extrême! » Les yeux de Xushen Tianzun étaient empreints d'une émotion complexe. C'était la première fois qu'il désignait Wang Lin dans son cœur comme « le Seigneur du Royaume Scellé » et non plus comme un « Junior ».
 
 « À travers les âges, tous ceux qui ont brisé la Porte du Vide ont absorbé sa puissance pour solidifier leur propre essence afin d'atteindre le troisième stade! Ce processus est très bref, et une fois cette puissance absorbée, la Porte du Vide se dissipe.
 
@@ -80,11 +80,11 @@ Cette porte était légèrement plus petite que la précédente, mais la pressio
 
 « Une fois la Porte reformée, la puissance de la porte précédente disparaît. Même si vous l'avez déjà ouverte, il faudra la rouvrir. Or, la seconde Porte du Vide est encore plus puissante!
 
-« Cependant, cet homme est capable de tuer des cultivateurs du troisième stade avant même d'avoir absorbé la puissance de la Porte et atteint ce stade lui-même. Bien que la Porte du Vide soit robuste, elle ne pourra vraiment pas l'arrêter... » Maître Céleste Dieu du Vide se sentait impuissant, tout en admettant son erreur de jugement.
+« Cependant, cet homme est capable de tuer des cultivateurs du troisième stade avant même d'avoir absorbé la puissance de la Porte et atteint ce stade lui-même. Bien que la Porte du Vide soit robuste, elle ne pourra vraiment pas l'arrêter... » Xushen Tianzun se sentait impuissant, tout en admettant son erreur de jugement.
 
 « Il ne veut pas simplement briser la Porte du Vide, il veut accomplir ce qui est presque impossible. Il va briser la Porte une fois pour chaque essence. Il veut devenir un cultivateur du troisième stade avec six essences, de la manière la plus authentique qui soit!
 
-« La difficulté est colossale, mais les bénéfices sont bien supérieurs à ceux d'une seule porte! » Maître Céleste Dieu du Vide regarda Wang Lin d'un regard complexe, tandis que l'intention meurtrière dans ses yeux s'intensifiait.
+« La difficulté est colossale, mais les bénéfices sont bien supérieurs à ceux d'une seule porte! » Xushen Tianzun regarda Wang Lin d'un regard complexe, tandis que l'intention meurtrière dans ses yeux s'intensifiait.
 
 « Puisqu'il est assez arrogant pour accomplir une telle chose devant moi, alors je veux voir comment il va s'en sortir! »
 

@@ -1,6 +1,6 @@
 ---
 n: 852
-title: Dieu du Sang
+title: Xue Shenzi
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 852 - Blood God

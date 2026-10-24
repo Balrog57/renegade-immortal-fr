@@ -22,7 +22,7 @@ Son rugissement s’intensifia tandis qu’elle se rapprochait. En raison de la 
 
 De même, parce que sa moustache l'avait touché, la Bête des Limbes trembla également. Elle recula légèrement pour maintenir une certaine distance avant de pousser de nouveaux rugissements féroces pour terroriser le fou.
 
-« Petit Rouge, vite, viens me sauver! Va te laisser manger pour qu'elle ne mange pas ce roi! Ce roi n'est pas bon à manger, AH! » Le fou tremblait, totalement terrifié.
+« Xiao Hong, vite, viens me sauver! Va te laisser manger pour qu'elle ne mange pas ce roi! Ce roi n'est pas bon à manger, AH! » Le fou tremblait, totalement terrifié.
 
 « Protégez le roi! Protégez le roi! Quel guerrier viendra protéger le roi? » hurla le fou en reculant frénétiquement. Il tomba au sol et commença à ramper en arrière, l'air pitoyable. Cela témoignait de l'effroi que lui inspirait la Bête des Limbes.
 
@@ -32,7 +32,7 @@ Juste au moment où il sombrait dans le désespoir, Wang Lin fit un pas en avant
 
 Aux yeux du fou, Wang Lin était devenu l'unique pilier sur lequel il pouvait compter.
 
-« Ce roi vous récompensera! Ce roi vous donnera Petit Rouge, ce roi vous donnera Petit Argent, ce roi vous donnera cette petite fille aux sept couleurs. Le palais arrière de ce roi compte quarante mille beautés, je vous les donnerai toutes! »
+« Ce roi vous récompensera! Ce roi vous donnera Xiao Hong, ce roi vous donnera Petit Argent, ce roi vous donnera cette petite fille aux sept couleurs. Le palais arrière de ce roi compte quarante mille beautés, je vous les donnerai toutes! »
 
 Wang Lin ne répondit pas et leva la main droite. Il envoya un message spirituel qui fit sursauter la Bête des Limbes. Avec son intelligence limitée, elle ne comprit pas l'intention de Wang Lin et se mit à réfléchir d'un air hébété.
 

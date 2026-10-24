@@ -108,6 +108,6 @@ Cependant, pas un seul d'entre eux n'osa résister. Un sort capable de se propag
 
 Dès ce jour, la planète Qing Ling avait un maître, et ce maître était Wang Lin.
 
-Wang Lin était l'existence suprême de la planète Qing Ling! Il était comme l'Ancêtre Sanguin, qui avait le droit de régenter la vie et la mort sur la planète Sanguine.
+Wang Lin était l'existence suprême de la planète Qing Ling! Il était comme Xue Zu, qui avait le droit de régenter la vie et la mort sur la planète Sanguine.
 
 Et comme l'identité suprême de l'Omniscient sur la planète Tian Yun.

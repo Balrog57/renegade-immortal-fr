@@ -68,7 +68,7 @@ La Grande Maîtresse Yun Luo se détendit également. Les blessures sur ses doig
 
 « Père... » Li Qianmei mordilla sa lèvre inférieure en se tournant vers son géniteur. Ses yeux étaient empreints de confusion, mais aussi de douleur et de supplication.
 
-Le Maître du Dao Rêve Bleu soupira doucement et dit avec calme: « Je vais l'aider, sois rassurée. Cependant, j'ai le sentiment qu'il parviendra à surmonter cette calamité. »
+Lanmeng Daozun soupira doucement et dit avec calme: « Je vais l'aider, sois rassurée. Cependant, j'ai le sentiment qu'il parviendra à surmonter cette calamité. »
 
 Dans l'Épreuve Humaine, le corps de Wang Lin émettait toujours une lueur rouge et ses yeux brillaient d'une lutte acharnée contre le destin!
 
@@ -116,7 +116,7 @@ Six respirations!
 
 Sept respirations!
 
-Les yeux du Maître du Dao Miao Yin, semblable à un jeune homme élégant, se rétrécirent, révélant une lueur étrange.
+Les yeux de Miaoyin Daozun, semblable à un jeune homme élégant, se rétrécirent, révélant une lueur étrange.
 
 Au moment même où le bâton d'encens atteignait sept respirations, une vague d'exclamations éclata. Ce n'était pas un seul homme, mais des milliers de voix. Bientôt, le son devint assourdissant!
 

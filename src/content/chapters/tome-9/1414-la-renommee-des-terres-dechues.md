@@ -48,11 +48,11 @@ La bouche de Maître Simo était sèche après avoir été témoin de l'épreuve
 
 Il était normalement impossible pour un cultivateur du troisième niveau de craindre un cultivateur du deuxième niveau... Pourtant, à cet instant, cela se produisit chez Maître Simo.
 
-Le Maître du Dao Miao Yin fixait l'encens de terre brisé. Ses yeux se plissèrent alors qu'il saisissait une pêche et en mordait dedans avec avidité. Un éclair de cupidité brilla dans son regard.
+Miaoyin Daozun fixait l'encens de terre brisé. Ses yeux se plissèrent alors qu'il saisissait une pêche et en mordait dedans avec avidité. Un éclair de cupidité brilla dans son regard.
 
 « La Perle Défiant le Ciel... la Perle Défiant le Ciel... Je la veux! »
 
-Le Maître du Dao Rêve Bleu affichait une expression complexe; il retira son regard et resta silencieux. À ses côtés, Li Qianmei baissa la tête, cachant ainsi son expression à tous.
+Lanmeng Daozun affichait une expression complexe; il retira son regard et resta silencieux. À ses côtés, Li Qianmei baissa la tête, cachant ainsi son expression à tous.
 
 Le vieux de l'Oiseau Vermillon se gratta la tête avec un sourire amer.
 

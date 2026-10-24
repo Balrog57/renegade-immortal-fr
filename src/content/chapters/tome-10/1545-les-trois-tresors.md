@@ -32,7 +32,7 @@ Il marchait très lentement, le regard perdu parmi les étoiles. Tout lui sembla
 
 Il ne comprenait pas pourquoi il se sentait plus accablé que lorsqu'il était revenu de Luotian. Peut-être avait-il trop vécu et été allé trop loin cette fois...
 
-« Ne fais pas ça. Si tu es dans cet état, ce roi sera triste lui aussi... Ce roi ressent aussi la nostalgie du pays. Petit Rouge, Petit Argent, où êtes-vous passés, espèces de garnements? Pourquoi ne venez-vous pas trouver ce roi? Le pays me manque, je veux rentrer chez moi... » Le fou suivait Wang Lin, lentement imprégné par les émotions de ce dernier, finissant lui aussi par sombrer dans la déprime.
+« Ne fais pas ça. Si tu es dans cet état, ce roi sera triste lui aussi... Ce roi ressent aussi la nostalgie du pays. Xiao Hong, Petit Argent, où êtes-vous passés, espèces de garnements? Pourquoi ne venez-vous pas trouver ce roi? Le pays me manque, je veux rentrer chez moi... » Le fou suivait Wang Lin, lentement imprégné par les émotions de ce dernier, finissant lui aussi par sombrer dans la déprime.
 
 Cependant, l'humeur du fou changea brusquement. Il ne lui fallut pas longtemps pour oublier sa tristesse et retrouver son excitation. Il rugit en manipulant les rochers environnants, s'amusant comme jamais.
 
@@ -116,7 +116,7 @@ Xu Liguo fut stupéfait un instant avant de s'emporter. Il fixa férocement le f
 
 Le fou éclata de rire en pointant Xu Liguo du doigt. Il allait dire quelque chose, mais il continua de rire en se tenant le ventre, comme s'il allait rouler par terre.
 
-« Tu es un homme? Haha, haha! Petit Rouge, viens voir ça. Cet esprit d'épée croit ne pas être une petite fille... Haha, ce roi va mourir de rire... Ah, il pleut. Petit Rouge, il pleut, va me chercher un parapluie... » Alors qu'il se parlait à lui-même, la confusion se lisait dans ses yeux. Il cessa progressivement de rire et fixa Xu Liguo.
+« Tu es un homme? Haha, haha! Xiao Hong, viens voir ça. Cet esprit d'épée croit ne pas être une petite fille... Haha, ce roi va mourir de rire... Ah, il pleut. Xiao Hong, il pleut, va me chercher un parapluie... » Alors qu'il se parlait à lui-même, la confusion se lisait dans ses yeux. Il cessa progressivement de rire et fixa Xu Liguo.
 
 Xu Liguo cligna des yeux, troublé par ce regard étrange. Il lança un regard interrogateur à Liu Jinbiao.
 

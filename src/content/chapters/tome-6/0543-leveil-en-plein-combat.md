@@ -74,7 +74,7 @@ Il ressemblait désormais à un démon de carnage. Tenant son épée de massacre
 
 Le général de l'aile gauche laissa échapper une exclamation, puis ses yeux brillèrent: « Bien! Tu es l'un des rares à avoir décidé d'attaquer durant mon Intention de Combat des Dix Effondrements! Voyons si tu peux franchir les huit prochains effondrements et arriver jusqu'à moi! »
 
-Au loin, la femme en robe blanche, la fille de l'Ancêtre Sanguin Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Cité de l'Ancien Démon il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
+Au loin, la femme en robe blanche, la fille de Xue Zu Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Cité de l'Ancien Démon il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
 
 Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche, touché par ses efforts, lui avait accordé le titre de commandante! Le rang de commandant en chef, immédiatement inférieur à celui de général, n'était détenu que par quatre personnes dans toute la Cité de l'Ancien Démon.
 

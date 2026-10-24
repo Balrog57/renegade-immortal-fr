@@ -58,7 +58,7 @@ Un cultivateur se tenait aux côtés de la petite en violet. Il affichait une mi
 
 L'homme d'âge moyen observa la scène, stupéfait, avec un sourire amer. Il se leva et s'inclina devant les deux fillettes qui jouaient, l'air très sérieux.
 
-« Grand Empyréen Gémeaux! »
+« Grand Empyréen Shuangzi! »
 
 Les deux fillettes continuaient de tapoter la tête du cultivateur nommé Petit Loup, dont les larmes finirent par couler.
 
@@ -66,11 +66,11 @@ Les deux fillettes continuaient de tapoter la tête du cultivateur nommé Petit 
 
 « Il fait semblant! Ce Petit Loup est désobéissant, il simule! »
 
-L'homme d'âge moyen, au bord de la folie, rugit vers les deux fillettes: « Grand Empyréen Gémeaux!!! » Sa voix tonna comme le tonnerre, faisant trembler le monde. Les deux fillettes se retournèrent enfin pour le regarder.
+L'homme d'âge moyen, au bord de la folie, rugit vers les deux fillettes: « Grand Empyréen Shuangzi!!! » Sa voix tonna comme le tonnerre, faisant trembler le monde. Les deux fillettes se retournèrent enfin pour le regarder.
 
 « Petit Gu Ya, es-tu désobéissant toi aussi? » La petite nommée Wa Wa fronça les sourcils en fixant l'homme.
 
-Ignorant la remarque, l'homme prit une profonde inspiration et dit d'un ton solennel: « Grand Empyréen Gémeaux, cet homme doit être recruté! »
+Ignorant la remarque, l'homme prit une profonde inspiration et dit d'un ton solennel: « Grand Empyréen Shuangzi, cet homme doit être recruté! »
 
 « Alors va le recruter. Vas-y, ramène-le et nous le verrons. » La fillette nommée Han Han agita la main, saisit le cultivateur nommé Petit Loup et, avec l'autre enfant, disparut en un éclair de la chambre de pierre.
 

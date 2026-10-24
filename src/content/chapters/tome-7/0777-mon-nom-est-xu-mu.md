@@ -12,7 +12,7 @@ Son niveau de culture n'était pas assez élevé pour apporter une aide directe,
 
 Ainsi, il parvint à ouvrir une voie de retraite pour Wang Lin.
 
-Le regard que Wang Lin porta sur l'homme n'était pas celui qu'il avait adressé jadis à Shengong Hu, lorsqu'il avait entrevu pour la première fois le troisième niveau. Mais à présent, son niveau de culture supérieur à celui de l'adversaire, le scellement de l'Ancêtre Sanguin et la mort de deux cultivateurs Yin Illusoire lui donnaient une confiance absolue en sa culture et une claire compréhension de son propre Dao. C'était un regard qui semblait contenir toute chose.
+Le regard que Wang Lin porta sur l'homme n'était pas celui qu'il avait adressé jadis à Shengong Hu, lorsqu'il avait entrevu pour la première fois le troisième niveau. Mais à présent, son niveau de culture supérieur à celui de l'adversaire, le scellement de Xue Zu et la mort de deux cultivateurs Yin Illusoire lui donnaient une confiance absolue en sa culture et une claire compréhension de son propre Dao. C'était un regard qui semblait contenir toute chose.
 
 L'homme d'âge moyen ricana. Lorsque Wang Lin tourna les yeux vers lui, ce dernier ne s'arrêta pas; au contraire, il fit un pas de plus. Ce pas franchit une centaine de mètres et il se dirigea droit sur Wang Lin.
 

@@ -22,7 +22,7 @@ Il ignorait ce qu'était devenu le fou. Il ne savait pas s'il continuerait à ru
 
 « Bon sang, tu oses faire le mort devant ce roi? »
 
-« Il pleut... Hé, Petite Rouge, viens me masser les épaules... »
+« Il pleut... Hé, Xiao Hong, viens me masser les épaules... »
 
 « Dis à mon grand frère que ce roi est fatigué. Je ne cultiverai pas aujourd'hui, je vais sortir jouer... Dis-lui de ne pas venir me chercher. Une fois que j'aurai fini de jouer, je reviendrai. S'il ose me ramener comme avant, je romps tout lien avec lui! »
 
@@ -42,7 +42,7 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empyréen Huit Extrêmes! »
 
-« La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empyréen Gémeaux! »
+« La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empyréen Shuangzi! »
 
 « La Secte Dao Yi du Continent Sud possède le Grand Empyréen Dao Yi! »
 
@@ -94,7 +94,7 @@ Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fû
 
 « Avec assez de renommée, les Grands Empyréens viendront d'eux-mêmes me chercher! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
-« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Wu Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Gémeaux de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec Tan Lang dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
+« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Wu Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Shuangzi de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec Tan Lang dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 

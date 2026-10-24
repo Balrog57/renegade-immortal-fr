@@ -86,7 +86,7 @@ Avant l'effondrement des quatre grands Royaumes Célestes, ces derniers servaien
 
 Bien qu'on ignorât pour quelle raison contraignante il avait choisi de fusionner avec la planète, il devait être extrêmement puissant!
 
-« Milieu du stade Vide Spirituel... » Wang Lin songea en silence, ses yeux brillant d'une lueur intense. Bien qu'il semblât avoir aisément tué l'estimé Maître Tian Zhao, il avait en réalité déployé toute sa puissance tout en ignorant les conséquences de la force de rejet.
+« Milieu du stade Vide Spirituel... » Wang Lin songea en silence, ses yeux brillant d'une lueur intense. Bien qu'il semblât avoir aisément tué Tianzhao Shangshi, il avait en réalité déployé toute sa puissance tout en ignorant les conséquences de la force de rejet.
 
 C'était déjà sa limite! Les répercussions étaient graves et le rejet était extrêmement difficile à réprimer. Il déferlait dans son corps, lui donnant l'impression que sa structure même allait s'effondrer. Bien que cela fût invisible pour autrui, Wang Lin endurait une douleur atroce.
 

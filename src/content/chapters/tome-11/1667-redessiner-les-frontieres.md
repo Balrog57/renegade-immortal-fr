@@ -72,7 +72,7 @@ Cependant, pour le Royaume Extérieur, ce fut un coup terrible. Jusqu'à présen
 
 L'expression du Souverain était sombre et une froideur glaciale émanait de son regard. Sa peur de Wang Lin surpassait celle de l'être qui l'avait contraint à quitter le Royaume Intérieur d'un simple rugissement.
 
-« Le Maître Dao Miao Yin, le Maître Démon Neuf Cieux et la Grande Désolation sont tous piégés dans la Terre de l'Ancien Dieu avec la quatrième concubine... Si ces trois-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
+« Miaoyin Daozun, Jiutian Mozun et la Grande Désolation sont tous piégés dans la Terre de l'Ancien Dieu avec la quatrième concubine... Si ces trois-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
 
 Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sans laisser de trace.
 
@@ -86,13 +86,13 @@ Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sa
 
 Le visage du Souverain était maussade, une étincelle de froideur dans les yeux. Après avoir lancé cette série d'ordres, il s'envola vers l'horizon.
 
-« Et il y a aussi le Maître du Dao Rêve Bleu. Le corps de la cinquième concubine est celui de sa femme, et l'âme de celle-ci existe toujours en elle... » Le Souverain réfléchit silencieusement un instant avant d'afficher un regard décisif et de disparaître.
+« Et il y a aussi Lanmeng Daozun. Le corps de la cinquième concubine est celui de sa femme, et l'âme de celle-ci existe toujours en elle... » Le Souverain réfléchit silencieusement un instant avant d'afficher un regard décisif et de disparaître.
 
 Lorsqu'il réapparut, il se trouvait sur le Mont Bleu du Clan de la Soie Bleue. Le Souverain flottait là, écoutant une mélodie mélancolique. Après un long moment, il agita sa manche et s'adressa à la cabane au sommet de la montagne.
 
 « Vieux ami Rêve Bleu, savez-vous ce qui s'est passé dans le Royaume Intérieur? »
 
-La musique du zither résonna encore un moment avant de s'apaiser. La voix du Maître du Dao Rêve Bleu s'éleva de l'habitation.
+La musique du zither résonna encore un moment avant de s'apaiser. La voix de Lanmeng Daozun s'éleva de l'habitation.
 
 « Je sais. »
 

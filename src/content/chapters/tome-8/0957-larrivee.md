@@ -80,7 +80,7 @@ L'expression de Wang Lin resta neutre lorsqu'il répondit calmement: « Ce junio
 
 Les yeux du vieillard maigre brillèrent et il demanda froidement: « Quelle calamité? »
 
-Wang Lin répliqua avec calme: « Pour me défendre, ce junior a dû emprisonner la fille de l'Ancêtre Sanguin! Ce jour-là, voyant les anciens et l'Ancêtre Sanguin arriver à sa poursuite, ce junior devait naturellement fuir! »
+Wang Lin répliqua avec calme: « Pour me défendre, ce junior a dû emprisonner la fille de Xue Zu! Ce jour-là, voyant les anciens et Xue Zu arriver à sa poursuite, ce junior devait naturellement fuir! »
 
 Après ces paroles, le vieil homme au corps de montagne de chair se redressa et demanda: « Le jeton de la grotte céleste est-il entre tes mains? »
 

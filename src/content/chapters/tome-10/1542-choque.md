@@ -14,7 +14,7 @@ En le voyant pleurer, Wang Lin ressentit une certaine compassion. Il se sentait 
 
 « Peu importe, karma, karma... J'ai rencontré cette personne à l'intérieur de la Bête des Limbes. C'est elle qui m'a donné mon lignage céleste, et maintenant, je lui dérobe ses sorts par ce moyen. Je devrai tôt ou tard lui rendre la pareille... Les cultivateurs deviennent rarement fous, il doit donc y avoir une histoire tragique derrière lui. Moi, Wang Lin, qui distingue bienfaits et rancunes, n'oublie jamais ses bienfaiteurs! Je jure que dans le futur, ses affaires seront aussi les miennes! » Wang Lin regarda à nouveau le fou, mais cette fois, une lueur de douceur se cachait dans son regard.
 
-« Ce roi n'a pas menti, ce roi a utilisé le même sort qu'auparavant. Ce sort s'appelle l'Empreinte de l'Esprit Guerrier. Mon grand frère l'a volé au Souverain Céleste Jumeau avant de me le transmettre... » Il semblait que le fou ne s'était pas lavé le visage depuis longtemps. Tandis que ses larmes coulaient, deux traînées de boue noire marquèrent son visage. Il essuya ses pleurs et fixa Wang Lin d'un regard chargé d'injustice avant de rugir:
+« Ce roi n'a pas menti, ce roi a utilisé le même sort qu'auparavant. Ce sort s'appelle l'Empreinte de l'Esprit Guerrier. Mon grand frère l'a volé au Souverain Céleste Shuangzi avant de me le transmettre... » Il semblait que le fou ne s'était pas lavé le visage depuis longtemps. Tandis que ses larmes coulaient, deux traînées de boue noire marquèrent son visage. Il essuya ses pleurs et fixa Wang Lin d'un regard chargé d'injustice avant de rugir:
 
 « Si tu ne me crois pas, je te donnerai la formule secrète! Ce roi n'a jamais menti depuis qu'il est tout petit, car mon grand frère disait qu'il me frapperait si je mentais... » Le fou se sentait profondément lésé et, sans réfléchir, il récita l'incantation de l'Empreinte de l'Esprit Guerrier.
 
@@ -40,7 +40,7 @@ Wang Lin esquissa un sourire amer. Sa main droite s'avança tandis qu'il réflé
 
 Le nez du fou frémit soudainement et il renifla inconsciemment. Il se lécha les lèvres tout en s'efforçant de ne pas regarder, mais ses yeux continuaient de lorgner le trésor.
 
-« Humph, que valent ces pilules? Les pires pilules que ce roi donnait à Petit Rouge étaient bien meilleures que celles-là... »
+« Humph, que valent ces pilules? Les pires pilules que ce roi donnait à Xiao Hong étaient bien meilleures que celles-là... »
 
 Wang Lin afficha un sourire énigmatique et pressa une pilule entre ses doigts. Elle se brisa aussitôt, libérant rapidement son arôme.
 
@@ -56,7 +56,7 @@ Wang Lin sourit et joignit les mains: « Ton sort est effectivement prodigieux, 
 
 Le fou, bien que fier, tourna soudain un regard méfiant vers Wang Lin.
 
-« Je me souviens que quelqu'un m'a déjà dit ça. Qui était-ce... Petit Rouge, qui était-ce? Enfin, peu importe... Mais ce roi se rappelle que cette personne utilisait ces mots pour me soutirer mes sorts. Humph, humph! Ce roi est sage, comment pourrait-il être dupe? N'essaie même pas de me voler mes sorts Dao. Même si je devais mourir, je ne te donnerai aucun chant ni sort secret! »
+« Je me souviens que quelqu'un m'a déjà dit ça. Qui était-ce... Xiao Hong, qui était-ce? Enfin, peu importe... Mais ce roi se rappelle que cette personne utilisait ces mots pour me soutirer mes sorts. Humph, humph! Ce roi est sage, comment pourrait-il être dupe? N'essaie même pas de me voler mes sorts Dao. Même si je devais mourir, je ne te donnerai aucun chant ni sort secret! »
 
 Le fou leva la tête et poussa un reniflement méprisant, adoptant une attitude hautaine. Il secoua la tête dans un soupir: « Apprendre trop de sorts Dao est une chose fort ennuyeuse. Ah, le talent de ce roi est tout simplement trop élevé. Puisque tu es si respectueux, je vais te montrer, mais il n'est pas question que je te les enseigne! »
 

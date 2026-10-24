@@ -86,7 +86,7 @@ Pour ces 7 Millions de Mondes, le Dao Céleste et la rétribution divine n'étai
 
 Il fallut un long moment à Wang Lin pour sortir de sa stupéfaction. Il fixa le jade brillant et médita en silence.
 
-Depuis son entrée dans le Système Stellaire Antique, Wang Lin avait ressenti sa puissance, et le Maître du Dao Rêve Bleu l'avait même souligné. Mais ce n'est qu'à cet instant qu'il réalisait enfin la véritable force de ce système!
+Depuis son entrée dans le Système Stellaire Antique, Wang Lin avait ressenti sa puissance, et Lanmeng Daozun l'avait même souligné. Mais ce n'est qu'à cet instant qu'il réalisait enfin la véritable force de ce système!
 
 « Je me souviens encore de la bataille contre le Serpent aux yeux de lune dans le vide et de ma première rencontre avec un être du Système Stellaire Antique. Il se faisait appeler... Dao Céleste... Qui aurait cru que le Clan du Tonnerre Dispersé, si insignifiant dans le Système Stellaire Antique, recelait un secret aussi immense. Incroyable! »
 

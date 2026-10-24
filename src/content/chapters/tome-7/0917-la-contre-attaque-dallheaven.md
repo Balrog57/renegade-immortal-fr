@@ -32,7 +32,7 @@ Le pouvoir des dix-huit Lou Fu résidait dans leur pression. Un seul Lou Fu exer
 
 De plus, si un cultivateur y fusionnait une partie de son propre sang, non seulement il ne subirait pas la pression, mais son niveau de culture augmenterait également pour une courte période.
 
-L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour détruire les dix-huit Lou Fu. Cependant, à cet instant précis, le Dieu du Sang surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
+L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour détruire les dix-huit Lou Fu. Cependant, à cet instant précis, Xue Shenzi surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
 
 Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il traversa, depuis la région nord, les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
 

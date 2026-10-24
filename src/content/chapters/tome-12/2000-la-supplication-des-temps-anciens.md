@@ -18,7 +18,7 @@ N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, d
 
 Dao Yi traîna son corps mutilé jusqu'à la Secte Dao Yi, endurant une douleur intense tout en réprimant l'humiliation qui lui serrait le cœur. Il choisit immédiatement d'entrer en cultivation isolée.
 
-Cependant, la malédiction ancestrale avait totalement éclaté en lui et ne pouvait être simplement expulsée. Mais Dao Yi était un Grand Empyréen, et il n'était pas aussi simple qu'il n'y paraissait. Gémeaux l'avait autrefois surnommé le « type au faux masque »!
+Cependant, la malédiction ancestrale avait totalement éclaté en lui et ne pouvait être simplement expulsée. Mais Dao Yi était un Grand Empyréen, et il n'était pas aussi simple qu'il n'y paraissait. Shuangzi l'avait autrefois surnommé le « type au faux masque »!
 
 Afin de dissiper la malédiction sans affecter sa culture future, il rassembla tous les Exaltés Empyréens ainsi que plusieurs Ascendants Empyréens. Il convoqua également de nombreux Exaltés Dorés et força la malédiction à se diviser entre eux tous!
 
@@ -32,7 +32,7 @@ Cette méthode cruelle consistant à partager le poids de la malédiction ancest
 
 Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
-Seule Gémeaux, Grand Empyréen, ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables de réparer complètement la faiblesse causée par l'incident lors de leur réincarnation.
+Seule Shuangzi, Grand Empyréen, ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables de réparer complètement la faiblesse causée par l'incident lors de leur réincarnation.
 
 Le clan céleste comptait encore cinq Grands Empyréens, mais le cinquième dormait simplement dans l'espace sous le palais. Il s'était transformé en une montagne dorée pour réprimer les esprits des 72 continents.
 

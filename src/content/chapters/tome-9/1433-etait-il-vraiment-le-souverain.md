@@ -8,7 +8,7 @@ slug: etait-il-vraiment-le-souverain
 ---
 Une force inexplicable poussa Wang Lin à choisir, tout en l'empêchant de le faire, après avoir affronté ce dilemme indescriptible. Il se transforma en un rayon de lumière et s'éclipsa.
 
-Le Maître du Dao Rêve Bleu l'avait déjà poussé à choisir une première fois, et l'Oiseau Vermillon de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
+Lanmeng Daozun l'avait déjà poussé à choisir une première fois, et l'Oiseau Vermillon de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
 
 Plus important encore, s'il n'était pas entré dans la mémoire du Maître Simo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin!
 

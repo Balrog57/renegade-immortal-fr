@@ -46,7 +46,7 @@ Après un long moment, il secoua la tête et retira son doigt de la bouche de Wa
 
 « Même ce roi apprécie le sang de ce roi... Cependant, je ne peux pas le distribuer n'importe comment. Mon grand frère a dit qu'une seule goutte de ce sang pouvait, pouvait... Que peut-il faire? »
 
-« Petite Rouge, où diable es-tu passée? Ce roi est ici depuis tant d'années et tu n'es toujours pas venue le chercher. Attends un peu, une fois que ce roi sera rentré chez lui, il te mangera! »
+« Xiao Hong, où diable es-tu passée? Ce roi est ici depuis tant d'années et tu n'es toujours pas venue le chercher. Attends un peu, une fois que ce roi sera rentré chez lui, il te mangera! »
 
 Alors qu'il grommelait, le fou sembla s'emporter. Il se leva et fit plusieurs fois le tour de Wang Lin avant de s'arrêter. Une colère sourde bouillonnait en lui. En voyant que Wang Lin ne se rétablissait toujours pas et qu'il était revenu à l'état où il l'avait trouvé, sa rage redoubla.
 
@@ -82,7 +82,7 @@ Ce sang était son essence vitale, bien plus précieuse que son sang ordinaire. 
 
 Avant de sombrer dans l'inconscience, il marmonnait encore:
 
-« Le sang de ce roi est très précieux... Cette fois, je crois que j'ai exagéré... Tellement de vertiges. Petite Rouge, viens masser ce seigneur... »
+« Le sang de ce roi est très précieux... Cette fois, je crois que j'ai exagéré... Tellement de vertiges. Xiao Hong, viens masser ce seigneur... »
 
 Le corps de Wang Lin était baigné de sang. Ce sang semblait vivant; dès qu'il le toucha, il s'infiltra dans son corps par ses pores.
 

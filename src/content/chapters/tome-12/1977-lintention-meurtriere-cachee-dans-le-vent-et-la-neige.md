@@ -32,7 +32,7 @@ Le jeune homme en vert affichait une expression amère lorsqu'il regarda Wang Li
 
 « Des pilules? Oui, je suis toujours en train d'en raffiner! » Le jeune homme à la chemise fleurie sembla soudain se souvenir de quelque chose et se tourna pour partir. Cependant, il s'arrêta brusquement, se retourna et rugit vers le jeune homme en vert:
 
-« Quelque chose ne va pas. Le grand-père de Petite Fleur a été battu, je m'en souviens! Toi... Toi... Hmph, Petit Rouge, arrête de faire le mort et découvre qui a battu le grand-père de Petite Fleur. Ce Roi te récompensera! »
+« Quelque chose ne va pas. Le grand-père de Petite Fleur a été battu, je m'en souviens! Toi... Toi... Hmph, Xiao Hong, arrête de faire le mort et découvre qui a battu le grand-père de Petite Fleur. Ce Roi te récompensera! »
 
 Le jeune homme à la chemise fleurie continua d'agiter son éventail tout en rugissant vers Xu Liguo, qui faisait semblant d'être mort.
 

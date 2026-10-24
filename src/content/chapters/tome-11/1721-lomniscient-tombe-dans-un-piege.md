@@ -28,11 +28,11 @@ Le visage de l'avatar de Wang Lin pâlit légèrement et il retira son doigt du 
 
 « Senior Rêve Bleu, Senior Qing Lin et Senior Hong Shan. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
 
-À l'instant où Wang Lin parla, un éclair de lumière bleue jaillit et le Maître du Dao Rêve Bleu apparut. Derrière lui, Qing Lin et le Maître Hong Shan suivirent silencieusement.
+À l'instant où Wang Lin parla, un éclair de lumière bleue jaillit et Lanmeng Daozun apparut. Derrière lui, Qing Lin et le Maître Hong Shan suivirent silencieusement.
 
 Ils étaient là depuis le début et avaient été témoins des confrontations entre Wang Lin et l'Omniscient.
 
-Le Maître du Dao Rêve Bleu s'assit devant le corps original de Wang Lin. Il regarda l'avatar de Wang Lin et dit lentement: « Avec moi ici, tu peux être serein. Si tu parviens à trouver son corps original, alors peu importe sa puissance, il ne pourra pas s'échapper! »
+Lanmeng Daozun s'assit devant le corps original de Wang Lin. Il regarda l'avatar de Wang Lin et dit lentement: « Avec moi ici, tu peux être serein. Si tu parviens à trouver son corps original, alors peu importe sa puissance, il ne pourra pas s'échapper! »
 
 Wang Lin hocha la tête et joignit les mains en signe de respect envers les trois experts. Il s'avança vers l'est, là où se trouvait l'aura de l'Omniscient.
 
@@ -90,7 +90,7 @@ C'était comme chercher un chemin: il est difficile de trouver la source au mili
 
 Les yeux de Wang Lin brillaient intensément comme la pleine lune. Un sourire étira ses lèvres alors qu'il formait un sceau et pointait entre ses sourcils!
 
-« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantôme pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de l'Omniscient! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de la Rivière Invoquée sous la garde du Maître du Dao Rêve Bleu, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
+« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantôme pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de l'Omniscient! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de la Rivière Invoquée sous la garde de Lanmeng Daozun, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
 
 « Je connais le chemin pour trouver son corps originel! » Ses yeux projetèrent une lumière étrange qui enveloppa tout son être. L'esprit du corps original de Wang Lin trembla. En empruntant les 3 000 âmes, il avait utilisé le Dao du Rêve pour ouvrir un passage vers un passé vieux de mille ans.
 

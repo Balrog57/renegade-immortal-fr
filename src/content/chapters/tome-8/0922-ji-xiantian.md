@@ -88,7 +88,7 @@ Des éclats de trésors magiques emplirent l'espace. Dans ce tumulte, les deux c
 
 Les yeux de trois cultivateurs de Luotian devinrent rouges alors qu'ils poussaient leur culture à son paroxysme pour contrôler leurs trésors magiques. Au moment où ils déclenchèrent un sort, un rayon de lumière les traversa, et ils moururent l'un après l'autre.
 
-Le rayon de lumière se mua en une silhouette humaine au visage sombre. Alors qu'il s'apprêtait à reprendre sa fuite après s'être léché les lèvres, une lueur sanglante jaillit. Il poussa un cri et tout son corps se changea en sang. C'était l'Ancêtre Sanguin, qui passait par là en plein combat contre le Saint Démon Noir.
+Le rayon de lumière se mua en une silhouette humaine au visage sombre. Alors qu'il s'apprêtait à reprendre sa fuite après s'être léché les lèvres, une lueur sanglante jaillit. Il poussa un cri et tout son corps se changea en sang. C'était Xue Zu, qui passait par là en plein combat contre le Saint Démon Noir.
 
 À chaque mort, le sang était immédiatement aspiré par les 17 Lou Fu restants. Certaines âmes d'origine, trop endommagées, furent également absorbées par ces entités.
 

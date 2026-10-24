@@ -8,9 +8,9 @@ slug: cristal-celeste
 ---
 Pour un homme de la stature de Cao Yidou, connaître cela était déjà étrange; et Cao Yidou avait même affirmé que presque chaque cultivateur connaissait cette méthode d'identification.
 
-Par conséquent, Wang Lin put immédiatement confirmer que tout ceci n'était qu'un complot de l'Ancêtre Sanguin!
+Par conséquent, Wang Lin put immédiatement confirmer que tout ceci n'était qu'un complot de Xue Zu!
 
-« En combinant le détachement de Yao Xixue et la réponse de Cao Yidou, je suis certain qu'il existe un moyen de distinguer les véritables Pilules de l'Âme Sanguine des fausses. Cependant, je crains que, hormis l'Ancêtre Sanguin et sa fille, personne d'autre ne le sache! » Les yeux de Wang Lin brillèrent d'une lueur de sagesse.
+« En combinant le détachement de Yao Xixue et la réponse de Cao Yidou, je suis certain qu'il existe un moyen de distinguer les véritables Pilules de l'Âme Sanguine des fausses. Cependant, je crains que, hormis Xue Zu et sa fille, personne d'autre ne le sache! » Les yeux de Wang Lin brillèrent d'une lueur de sagesse.
 
 « Cette pilule est fausse! Si la vraie pilule peut leur permettre de vivre une fois de plus, alors une fausse pilule les enverra droit à la mort! Yao Xixue, puisque tu es si vicieuse, ne me reproche pas d'être impitoyable! » Wang Lin regarda la pilule de cire dans sa main. Il s'apprêtait à l'écraser, mais une idée lui vint soudainement et il la rangea dans son sac de rangement.
 
@@ -72,7 +72,7 @@ C'était comme si un mortel regardait dans un miroir et ne voyait que tout ce qu
 
 Yao Xixue dit froidement: « Inutile de chercher. À moins d'avoir le niveau de culture d'un commandant en chef, il est impossible de la détecter! »
 
-Wang Lin rétracta son sens divin et admira grandement cette formation. Il demanda: « Cette formation a-t-elle été créée par votre père, l'Ancêtre Sanguin? »
+Wang Lin rétracta son sens divin et admira grandement cette formation. Il demanda: « Cette formation a-t-elle été créée par votre père, Xue Zu? »
 
 « C'est exact! » En répondant, Yao Xixue toucha son sac de rangement, et une boussole rouge sang apparut dans sa main. Elle calcula la position, la posa au sol, se tourna vers Wang Lin et déclara: « Souvenez-vous de notre accord! Lorsque l'ascension du Démon Pourpre atteindra son apogée, un rayon de lumière rouge sang émanera de la boussole. Cela ne durera qu'un souffle; vous devrez donc me suivre de très près! »
 
@@ -104,7 +104,7 @@ Après le bref inconfort dû au tableau de transfert, Wang Lin vit des traînée
 
 Yao Xixue retrouva son équilibre un demi-souffle après Wang Lin. À cet instant, les traces de sang sous leurs pas avaient déjà disparu.
 
-« Le mouvement de cette formation est similaire à celui créé par les statues; elles ont manifestement été façonnées par la même personne. L'Ancêtre Sanguin est véritablement hors du commun pour être capable d'installer un tableau de transfert ici. Cependant, avec suffisamment de temps, je pourrais en faire autant! » Wang Lin inspecta silencieusement les environs.
+« Le mouvement de cette formation est similaire à celui créé par les statues; elles ont manifestement été façonnées par la même personne. Xue Zu est véritablement hors du commun pour être capable d'installer un tableau de transfert ici. Cependant, avec suffisamment de temps, je pourrais en faire autant! » Wang Lin inspecta silencieusement les environs.
 
 L'endroit ressemblait au vide spatial, sans distinction entre le ciel et la terre. Il n'y avait que des éclats de lumière vive qui permettaient de tout distinguer nettement.
 

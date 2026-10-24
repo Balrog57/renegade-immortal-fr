@@ -90,13 +90,13 @@ L'intention meurtrière dans les yeux de Wang Lin s'intensifia. C'étaient des q
 
 À cet instant précis, une voix ancienne résonna à travers la montagne enneigée et parvint aux oreilles de Wang Lin et Qing Lin.
 
-« À mes jeunes années, j'ai entendu parler d'un sort. Ce sort est appelé le Sort d'Intégration de la Réincarnation... » Au moment même où la voix se manifestait, une lumière bleue apparut dans le ciel, se reflétant sur les neiges. Le Maître du Dao Rêve Bleu marchait vers la montagne.
+« À mes jeunes années, j'ai entendu parler d'un sort. Ce sort est appelé le Sort d'Intégration de la Réincarnation... » Au moment même où la voix se manifestait, une lumière bleue apparut dans le ciel, se reflétant sur les neiges. Lanmeng Daozun marchait vers la montagne.
 
-« Qing Lin salue le Senior Maître du Dao », dit Qing Lin, le visage grave, en joignant les mains devant le Maître du Dao Rêve Bleu.
+« Qing Lin salue le Senior Maître du Dao », dit Qing Lin, le visage grave, en joignant les mains devant Lanmeng Daozun.
 
 « Le Sort d'Intégration de la Réincarnation? » Les yeux de Wang Lin se plissèrent.
 
-Le Maître du Dao Rêve Bleu atterrit sur la montagne et sourit à Qing Lin avant de tourner son regard vers Wang Lin, empreint de bienveillance.
+Lanmeng Daozun atterrit sur la montagne et sourit à Qing Lin avant de tourner son regard vers Wang Lin, empreint de bienveillance.
 
 « J'ai entendu parler de ce sort par le Souverain. On dit qu'il s'agit de l'un des sorts du Souverain Céleste aux Sept Couleurs. Pourtant, même le Souverain Céleste aux Sept Couleurs n'a pas réussi à le maîtriser... »
 
@@ -110,11 +110,11 @@ Le Maître du Dao Rêve Bleu atterrit sur la montagne et sourit à Qing Lin avan
 
 Wang Lin réfléchit en silence.
 
-« Bien que je ne connaisse pas les détails de ce sort, tous les sorts ont une faiblesse. Ce Sort d'Intégration de la Réincarnation n'échappe pas à la règle. Si vous parvenez à dévorer l'autre partie, votre niveau de culture augmentera », déclara lentement le Maître du Dao Rêve Bleu, le regard brillant.
+« Bien que je ne connaisse pas les détails de ce sort, tous les sorts ont une faiblesse. Ce Sort d'Intégration de la Réincarnation n'échappe pas à la règle. Si vous parvenez à dévorer l'autre partie, votre niveau de culture augmentera », déclara lentement Lanmeng Daozun, le regard brillant.
 
 « Je vais vous aider à trouver la personne qui a utilisé ce sort sur vous. Je veux voir quel talent il faut posséder pour cultiver un sort que même le Souverain Céleste aux Sept Couleurs n'a pu maîtriser! »
 
-« Cependant, vous devrez le tuer vous-même, car vous et cette âme êtes déjà intégrés en un seul être. Peut-être est-ce là une immense chance pour vous. » Le Maître du Dao Rêve Bleu leva la main droite et une lumière bleue monstrueuse se condensa dans sa paume. Il la pressa entre les sourcils de Wang Lin!
+« Cependant, vous devrez le tuer vous-même, car vous et cette âme êtes déjà intégrés en un seul être. Peut-être est-ce là une immense chance pour vous. » Lanmeng Daozun leva la main droite et une lumière bleue monstrueuse se condensa dans sa paume. Il la pressa entre les sourcils de Wang Lin!
 
 L'esprit de Wang Lin trembla et tout ce qui l'entourait fut enveloppé d'une lumière bleue. Il vit les étoiles défiler devant lui au sein de cette clarté. À cet instant, il aperçut la Rivière Invoquée et le météore flottant dans la Rivière!
 

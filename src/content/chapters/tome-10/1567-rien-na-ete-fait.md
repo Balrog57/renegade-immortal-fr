@@ -50,11 +50,11 @@ Les yeux du fou s'écarquillèrent. Sa mémoire était quelque peu embrumée. Du
 
 À l'instant où il entendit l'énumération des frais, une sueur froide perla sur son front.
 
-« Bien sûr, Maître nous a ordonné de prendre soin de Votre Majesté, c'est donc tout à fait normal. Et vous n'êtes pas un homme avare, c'est simplement que vous ne possédez plus de pierres spirituelles pour l'instant. Peut-être que tous vos trésors sont avec cette Petite Rouge ou quelque chose de ce genre », changea Liu Jinbiao de sujet.
+« Bien sûr, Maître nous a ordonné de prendre soin de Votre Majesté, c'est donc tout à fait normal. Et vous n'êtes pas un homme avare, c'est simplement que vous ne possédez plus de pierres spirituelles pour l'instant. Peut-être que tous vos trésors sont avec cette Xiao Hong ou quelque chose de ce genre », changea Liu Jinbiao de sujet.
 
-« C'est vrai! Allez chercher Petite Rouge, haha! Allez la trouver! Comment ce roi pourrait-il être avare? Ce roi n'est pas du tout avare... Il vaut mieux que vous alliez voir Petite Rouge, elle détient tous les biens de ce roi », répondit le fou en essuyant machinalement sa sueur d'un geste de tête approbateur.
+« C'est vrai! Allez chercher Xiao Hong, haha! Allez la trouver! Comment ce roi pourrait-il être avare? Ce roi n'est pas du tout avare... Il vaut mieux que vous alliez voir Xiao Hong, elle détient tous les biens de ce roi », répondit le fou en essuyant machinalement sa sueur d'un geste de tête approbateur.
 
-« Majesté est un être généreux, vous ne me feriez pas dépenser tout cela pour rien. Quant aux pierres spirituelles et à l'argent, bien qu'ils soient mes économies de plusieurs milliers d'années, considérez-les comme mon cadeau au roi. Il n'est pas nécessaire de chercher Petite Rouge », conclut Liu Jinbiao en secouant la tête avec un soupir. Il cessa de parler et se posta sur le côté, fixant le mur de pierre avec un air profondément affligé.
+« Majesté est un être généreux, vous ne me feriez pas dépenser tout cela pour rien. Quant aux pierres spirituelles et à l'argent, bien qu'ils soient mes économies de plusieurs milliers d'années, considérez-les comme mon cadeau au roi. Il n'est pas nécessaire de chercher Xiao Hong », conclut Liu Jinbiao en secouant la tête avec un soupir. Il cessa de parler et se posta sur le côté, fixant le mur de pierre avec un air profondément affligé.
 
 Voyant Liu Jinbiao dans cet état, le fou se frotta le nez, le cœur serré par une pointe de culpabilité. Il se gratta la tête, puis mordit l'extrémité de son doigt pour en extraire une goutte de sang qu'il tendit à Liu Jinbiao.
 

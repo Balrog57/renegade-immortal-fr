@@ -8,7 +8,7 @@ slug: les-qualifications-pour-pretendre-a-la-suprematie
 ---
 Le brouillard fut frappé par la lumière bleue et s'effondra instantanément. La bouche illusoire disparut à l'instant même où elle était apparue.
 
-Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière le Maître du Dao Rêve Bleu et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher à grands pas, ses cheveux blancs flottant au vent!
+Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière Lanmeng Daozun et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher à grands pas, ses cheveux blancs flottant au vent!
 
 Une moitié de boussole se trouvait dans la main droite de Wang Lin!
 
@@ -30,13 +30,13 @@ L'Omniscient resta silencieux un instant pour réfléchir, puis une intention me
 
 « Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Tous les êtres issus du Dao Céleste ne sont que des fourmis devant moi, et tu n'es pas l'âme de Sept-Couleurs. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
 
-L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et le Maître du Dao Rêve Bleu s'avança. D'un revers de manche, il l'enveloppa.
+L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et Lanmeng Daozun s'avança. D'un revers de manche, il l'enveloppa.
 
-L'expression de l'Omniscient devint féroce. Au moment même où le Maître du Dao Rêve Bleu attaquait, il poussa un rugissement.
+L'expression de l'Omniscient devint féroce. Au moment même où Lanmeng Daozun attaquait, il poussa un rugissement.
 
-« Tu n'es qu'une vie formée par le Dao Céleste! Comment oses-tu me barrer la route?! » L'Omniscient ne prêta aucune attention au Maître du Dao Rêve Bleu. Il agita la main droite et percuta l'attaque de ce dernier.
+« Tu n'es qu'une vie formée par le Dao Céleste! Comment oses-tu me barrer la route?! » L'Omniscient ne prêta aucune attention à Lanmeng Daozun. Il agita la main droite et percuta l'attaque de ce dernier.
 
-Un grondement de tonnerre résonna. Le visage du Maître du Dao Rêve Bleu se crispa et il recula de quelques pas. L'expression de l'Omniscient resta sombre, mais il ne recula nullement. Au contraire, il fonça encore plus vite vers Wang Lin; il n'était plus qu'à moins de 100 pieds de lui!
+Un grondement de tonnerre résonna. Le visage de Lanmeng Daozun se crispa et il recula de quelques pas. L'expression de l'Omniscient resta sombre, mais il ne recula nullement. Au contraire, il fonça encore plus vite vers Wang Lin; il n'était plus qu'à moins de 100 pieds de lui!
 
 Wang Lin restait calme. Il regarda l'Omniscient avec une pointe de mépris. Tandis que ce dernier se rapprochait, Wang Lin murmura doucement:
 
@@ -98,7 +98,7 @@ Il connaissait naturellement la Bête des Limbes, mais son corps avait été sci
 
 Toutes les âmes de l'Omniscient tremblèrent et hurlèrent. Elles tentèrent désespérément de s'éparpiller et de fuir dans 2 999 directions différentes.
 
-Le Maître du Dao Rêve Bleu et ses compagnons voulurent les poursuivre, mais Wang Lin les en empêcha. Il observa la Bête des Limbes mâcher avec sa gueule immense, l'air hébété. Après un long moment, la confusion disparut pour laisser place à une expression impitoyable.
+Lanmeng Daozun et ses compagnons voulurent les poursuivre, mais Wang Lin les en empêcha. Il observa la Bête des Limbes mâcher avec sa gueule immense, l'air hébété. Après un long moment, la confusion disparut pour laisser place à une expression impitoyable.
 
 « Dévorons-les. Désormais, tu seras complète. » Wang Lin paraissait épuisé et s'assit sur le dos de la Bête des Limbes.
 

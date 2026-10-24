@@ -90,7 +90,7 @@ Wang Lin pointa la main droite. Ce geste fut tel un sort de déverrouillage ouvr
 
 Wang Lin hurla: « Arsenal Magique! »
 
-Instantanément, d'innombrables fragments d'âmes envahirent le monde et se précipitèrent dans les environs. Le plus remarquable fut l'âme de l'Ancêtre Sanguin qui poussa un rugissement qui fit vibrer l'univers.
+Instantanément, d'innombrables fragments d'âmes envahirent le monde et se précipitèrent dans les environs. Le plus remarquable fut l'âme de Xue Zu qui poussa un rugissement qui fit vibrer l'univers.
 
 Puisque Wang Lin avait lancé l'Arsenal Magique, il ne leur prêtait plus attention. Il se concentrait sur les onze lumières cristallines qui le traquaient! Son corps vacilla; au lieu de charger, il recula. Ce faisant, il tendit sa main de Dieu Ancien et saisit un rayon de lumière.
 

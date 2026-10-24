@@ -30,7 +30,7 @@ D'autres rumeurs affirmaient qu'il venait d'une petite secte du Continent de l'E
 
 Ces bruits de couloir continuèrent de se propager dans tout le clan céleste.
 
-Une telle figure ne pouvait que attirer l'attention de tous les Grands Empyréens. Pourtant, cet homme avait décliné les avances du Grand Empyréen Dao Yi, du Grand Empyréen Wu Feng et même du Grand Empyréen Jiu Di, pour choisir le faible Grand Empyréen Gémeaux!
+Une telle figure ne pouvait que attirer l'attention de tous les Grands Empyréens. Pourtant, cet homme avait décliné les avances du Grand Empyréen Dao Yi, du Grand Empyréen Wu Feng et même du Grand Empyréen Jiu Di, pour choisir le faible Grand Empyréen Shuangzi!
 
 Une fois cette nouvelle révélée, tous ceux au sein du clan céleste qui avaient entendu parler de Wang Lin furent plongés dans la confusion. Cela déclencha une nouvelle tempête de rumeurs.
 
@@ -110,7 +110,7 @@ Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur C�
 
 « Ce Wu Feng ne respecte absolument pas le lignage impérial. Un tel homme doit mourir! Je vais saisir sa qualification de Grand Empyréen pour la donner à Lian Daofei! Bien que Lian Daofei soit mon frère, j'ai investi beaucoup d'efforts en lui et le moment est venu de récolter les fruits. »
 
-« Enfin, il y a Gémeaux. Tant que leurs âmes ne fusionnent pas en une seule, il n'y a aucune inquiétude à avoir! »
+« Enfin, il y a Shuangzi. Tant que leurs âmes ne fusionnent pas en une seule, il n'y a aucune inquiétude à avoir! »
 
 L'Empereur Céleste sourit alors qu'il disparaissait de la chambre souterraine.
 

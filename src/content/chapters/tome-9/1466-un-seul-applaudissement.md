@@ -6,15 +6,15 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1466 - Clap Once
 slug: un-seul-applaudissement
 ---
-L'une des Concubines Célestes et le Maître Démon des Neuf Cieux pénétrèrent tous deux dans le vortex et foncèrent sur Wang Lin depuis deux directions. Le regard de Wang Lin se glaça alors qu'il les fixait, mais il ne bougea pas. Il continua de fusionner les souffles du démon ancien et du diable ancien pour créer des runes.
+L'une des Concubines Célestes et Jiutian Mozun pénétrèrent tous deux dans le vortex et foncèrent sur Wang Lin depuis deux directions. Le regard de Wang Lin se glaça alors qu'il les fixait, mais il ne bougea pas. Il continua de fusionner les souffles du démon ancien et du diable ancien pour créer des runes.
 
 Il n'avait aucune crainte que les autres le voient agir ainsi, car nul autre que Tuo Sen n'en était capable.
 
-« Il est en train de créer lui-même les runes! » En voyant cela, les pupilles du Maître Démon des Neuf Cieux se rétractèrent, mais il ne s'arrêta pas et franchit mille pieds en un instant. Ses mouvements devinrent toutefois plus délicats lorsqu'il aperçut l'ancien démon à l'intérieur. Il semblait avoir compris quelque chose et ne voulait pas perturber la créature antique.
+« Il est en train de créer lui-même les runes! » En voyant cela, les pupilles de Jiutian Mozun se rétractèrent, mais il ne s'arrêta pas et franchit mille pieds en un instant. Ses mouvements devinrent toutefois plus délicats lorsqu'il aperçut l'ancien démon à l'intérieur. Il semblait avoir compris quelque chose et ne voulait pas perturber la créature antique.
 
 La femme en rose remarqua également les actions de Wang Lin. Surprise un instant, elle comprit immédiatement la situation. Elle secoua la tête et s'avança rapidement.
 
-Ce vortex était extrêmement puissant; plus on s'enfonçait, plus la progression devenait ardue. Le Maître Démon des Neuf Cieux et la femme ralentirent, tout en continuant de traverser le vortex à une vitesse fulgurante.
+Ce vortex était extrêmement puissant; plus on s'enfonçait, plus la progression devenait ardue. Jiutian Mozun et la femme ralentirent, tout en continuant de traverser le vortex à une vitesse fulgurante.
 
 En raison de l'aura du démon ancien qui rageait ici, tous les sorts utilisés étaient affectés. Cependant, ces deux êtres étaient d'une puissance telle qu'ils franchirent instantanément 7 000 pieds, se rapprochant sans cesse de Wang Lin.
 
@@ -26,13 +26,13 @@ En un éclair, la puissance des trois clans se fondit pour former l'énergie mys
 
 En un battement de cils, le corps entier de Wang Lin fut recouvert d'innombrables runes. Tout cela se produisit avec une rapidité inimaginable.
 
-Les expressions du Maître Démon des Neuf Cieux et de la femme en rose changèrent radicalement. Ils ne se souciaient plus de réveiller l'ancien démon et chargèrent Wang Lin.
+Les expressions de Jiutian Mozun et de la femme en rose changèrent radicalement. Ils ne se souciaient plus de réveiller l'ancien démon et chargèrent Wang Lin.
 
 À cet instant, une autre plateforme s'approcha du vortex. Il s'agissait de Grande Désolation, qui pénétra lui aussi dans le vortex dès son arrivée.
 
 Après Grande Désolation vint la femme en blanc. Elle fronça les sourcils, rangea sa plateforme et entra dans le vortex.
 
-Alors que le Maître Démon des Neuf Cieux et la femme en rose approchaient, Wang Lin laissa échapper un ricanement.
+Alors que Jiutian Mozun et la femme en rose approchaient, Wang Lin laissa échapper un ricanement.
 
 « Vous êtes en retard! » Le corps de Wang Lin trembla, mais il ne se souciait guère de leur approche. Les runes qui l'entouraient se détachèrent de son corps pour flotter autour de lui.
 
@@ -48,7 +48,7 @@ Une plateforme de rang 9!
 
 À l'instant où la plateforme se stabilisa, la lumière dorée se dissipa pour laisser place à une absence totale de couleur. Plus encore, la plateforme se mit à trembler violemment! Wang Lin fit un pas et se tint sur cette plateforme de rang 9.
 
-« Une plateforme de rang 9! » Une lueur froide brilla dans les yeux du Maître Démon des Neuf Cieux, qui chargea sans la moindre hésitation.
+« Une plateforme de rang 9! » Une lueur froide brilla dans les yeux de Jiutian Mozun, qui chargea sans la moindre hésitation.
 
 L'expression de la femme en rose changea également alors qu'elle fonçait vers la plateforme.
 
@@ -78,7 +78,7 @@ Certains possédaient des plateformes de rang 4, mais cela ne changea rien; ils 
 
 Les deux bras apparus dans la tombe ressemblaient à un géant écartant les mains puis les balayant de l'extérieur vers l'intérieur au-dessus de sa tête, comme pour les joindre en un applaudissement!
 
-Leur vitesse ne pouvait être décrite que par le terme instantané. Juste au moment où la plateforme de rang 9 de Wang Lin apparut et où le Maître Démon des Neuf Cieux et les autres s'élancèrent, les deux bras balayèrent le Tombe de l'Ordre Antique pour atteindre la huitième carte!
+Leur vitesse ne pouvait être décrite que par le terme instantané. Juste au moment où la plateforme de rang 9 de Wang Lin apparut et où Jiutian Mozun et les autres s'élancèrent, les deux bras balayèrent le Tombe de l'Ordre Antique pour atteindre la huitième carte!
 
 Les hurlements qui perçèrent les oreilles de chacun provenaient de ces deux bras colossaux!
 
@@ -90,21 +90,21 @@ Alors que le vortex se désintégrait, les deux bras géants se rejoignirent. Il
 
 La femme en blanc fut la première à battre en retraite, s'éloignant dans la terreur pour éviter les bras. Cependant, l'onde de choc la frappa, lui faisant cracher du sang et la projetant au loin.
 
-Grande Désolation ne fut pas aussi chanceux. Étant le dernier arrivé et le plus proche de l'un des bras, il ne put absolument rien esquiver avant que l'impact ne le percute. Son corps fut réduit en bouillie. Même l'avatar du Maître du Dao Miao Yin, un corps de cultivateur de la troisième étape, ne put survivre à un tel coup!
+Grande Désolation ne fut pas aussi chanceux. Étant le dernier arrivé et le plus proche de l'un des bras, il ne put absolument rien esquiver avant que l'impact ne le percute. Son corps fut réduit en bouillie. Même l'avatar de Miaoyin Daozun, un corps de cultivateur de la troisième étape, ne put survivre à un tel coup!
 
 Grande Désolation poussa un cri déchirant et son âme hurla. Il tenta de s'échapper, mais le souffle de l'impact éteignit purement et simplement son âme.
 
 Tout cela se produisit en un éclair.
 
-Le bras fonça vers la plateforme de rang 9 située derrière le Maître Démon des Neuf Cieux et la femme en rose.
+Le bras fonça vers la plateforme de rang 9 située derrière Jiutian Mozun et la femme en rose.
 
-Le visage du Maître Démon des Neuf Cieux devint instantanément livide. Son apparence oscillait toujours entre celle d'un jeune homme et celle d'un vieil homme. À cet instant, il resta sous sa forme de vieillard tandis que sa main formait un sceau pour entrer en collision avec le bras.
+Le visage de Jiutian Mozun devint instantanément livide. Son apparence oscillait toujours entre celle d'un jeune homme et celle d'un vieil homme. À cet instant, il resta sous sa forme de vieillard tandis que sa main formait un sceau pour entrer en collision avec le bras.
 
 Des grondements tonitruants éclatèrent et il cracha du sang. Son visage changea rapidement, passant de vieillard à homme d'âge moyen. Il recracha une autre gorgée de sang et son apparence passa d'homme d'âge moyen à jeune homme!
 
-À ce moment précis, les innombrables avatars du Maître Démon des Neuf Cieux périrent tous. Leur sacrifice lui offrit une chance de survie.
+À ce moment précis, les innombrables avatars de Jiutian Mozun périrent tous. Leur sacrifice lui offrit une chance de survie.
 
-Le Maître Démon des Neuf Cieux, redevenu un jeune homme, disparut pour laisser le bras passer. Il réapparut ensuite, du sang coulant au coin de sa bouche, et recula précipitamment, les yeux emplis d'horreur.
+Jiutian Mozun, redevenu un jeune homme, disparut pour laisser le bras passer. Il réapparut ensuite, du sang coulant au coin de sa bouche, et recula précipitamment, les yeux emplis d'horreur.
 
 Quant à la femme en rose, son expression changea radicalement. Ses mains formèrent un sceau et elle cracha une bouffée de brume rose. Un ruban noir se trouvait à l'intérieur; elle s'en saisit et l'utilisa pour se projeter de dix mille pieds sur le côté, mais fut tout de même touchée par un doigt. Elle cracha du sang et battit en retraite rapidement.
 

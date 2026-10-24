@@ -104,7 +104,7 @@ Les pupilles de Wang Lin se contractèrent. La culture de cette statue n'était 
 
 Pourtant, quelques instants plus tôt, elle avait été si aisément scellée par Yao Xixue. Cela changea radicalement l'opinion que Wang Lin se faisait d'elle.
 
-Wang Lin pensa secrètement: « Ce jade de sang a dû être raffiné par son père, l'Ancêtre Sanguin, pour posséder une telle puissance! » Il ne laissa transparaître aucune pensée en sautant sur la plateforme. Alors qu'il passait devant la statue recouverte de lumière rouge, il se tourna vers elle et crut voir une lueur dorée disparaître.
+Wang Lin pensa secrètement: « Ce jade de sang a dû être raffiné par son père, Xue Zu, pour posséder une telle puissance! » Il ne laissa transparaître aucune pensée en sautant sur la plateforme. Alors qu'il passait devant la statue recouverte de lumière rouge, il se tourna vers elle et crut voir une lueur dorée disparaître.
 
 L'expression de Wang Lin resta impénétrable tandis qu'il s'engageait sur le chemin suivant. En marchant, il jeta un regard décontracté vers la statue; à cet instant, le sceau de vie sur son front se concentra dans ses yeux. Son regard perça la lumière rouge et aperçut le symbole clignotant sur la statue!
 

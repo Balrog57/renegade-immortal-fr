@@ -10,11 +10,11 @@ slug: loctroi-du-dao
 
 « Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 
-« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma rétribution divine, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et d’anciens diables… Cet endroit est-il lié à l’Ancien Tombeau, et est-il lié au taoïste aux sept couleurs?
+« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma rétribution divine, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et d’anciens diables… Cet endroit est-il lié à l’Ancien Tombeau, et est-il lié à Qicai Daoren?
 
 « De plus, presque chaque génération de l'Oiseau Vermillon a été scellée. Tout semble pointer vers le Maître du Souverain… Qui est donc le Maître du Souverain?
 
-« Il y a aussi cette femme en argent qui a hurlé et s’est déchaînée après avoir vu la statue du taoïste aux sept couleurs. Elle ne cessait de répéter qu'elle n'avait pas ouvert la porte… Quelle était donc cette porte, et pourquoi le taoïste aux sept couleurs était-il si en colère qu'il en déclencha un massacre?
+« Il y a aussi cette femme en argent qui a hurlé et s’est déchaînée après avoir vu la statue de Qicai Daoren. Elle ne cessait de répéter qu'elle n'avait pas ouvert la porte… Quelle était donc cette porte, et pourquoi Qicai Daoren était-il si en colère qu'il en déclencha un massacre?
 
 « Cette porte, pourrait-elle être celle qui sert à nourrir le Dao Céleste? Ou une porte scellant son ennemi? Ou… une porte vers un autre monde?
 
@@ -24,7 +24,7 @@ slug: loctroi-du-dao
 
 Wang Lin se frotta les tempes et ses yeux s'illuminèrent.
 
-« Quoi qu'il en soit, l'existence de l’Ancien Tombeau est forcément liée au taoïste aux sept couleurs. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort?
+« Quoi qu'il en soit, l'existence de l’Ancien Tombeau est forcément liée à Qicai Daoren. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort?
 
 « On appelle cela l’"Ancien Tombeau"... Serait-ce la tombe de Ye Mo de l’Ordre Antique? » Plus il réfléchissait, plus il sombrait dans la confusion.
 
@@ -64,7 +64,7 @@ Le chaos à l'intérieur du fourneau se dissipa et une mer noire apparut devant 
 
 « Affine! » Wang Lin pointa l'océan du doigt et la mer de poison sembla s'enflammer. Des rugissements étouffés retentirent et de grandes vagues formèrent des tourbillons qui rageaient violemment.
 
-« Cette mer est composée du poison issu de l'étrange langue de la Grande Désolation ainsi que des âmes de Flamme Joss du Maître Dao Miao Yin. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
+« Cette mer est composée du poison issu de l'étrange langue de la Grande Désolation ainsi que des âmes de Flamme Joss de Miaoyin Daozun. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
 
 L'expression de Wang Lin était calme tandis qu'il commençait le raffinage.
 
@@ -90,7 +90,7 @@ Derrière l'Estimé Ling Dong se dressait une statue gigantesque: celle du dieu 
 
 Certaines âmes avaient déjà été converties, offrant leurs flammes à Ling Dong pour qu'il les absorbe. Le visage de l'Estimé Ling Dong était radieux, empreint d'excitation.
 
-En voyant cela, Wang Lin fronça légèrement les sourcils. Ces âmes appartenaient au Maître Dao Miao Yin et, même pour l'Estimé Ling Dong, leur conversion prendrait beaucoup de temps. Bien que Wang Lin ne soit pas pressé, l'Ancien Tombeau était périlleux. S'il pouvait accélérer l'absorption de Ling Dong et l'aider à atteindre la troisième étape, cela lui serait d'une aide précieuse.
+En voyant cela, Wang Lin fronça légèrement les sourcils. Ces âmes appartenaient à Miaoyin Daozun et, même pour l'Estimé Ling Dong, leur conversion prendrait beaucoup de temps. Bien que Wang Lin ne soit pas pressé, l'Ancien Tombeau était périlleux. S'il pouvait accélérer l'absorption de Ling Dong et l'aider à atteindre la troisième étape, cela lui serait d'une aide précieuse.
 
 Tout en réfléchissant, Wang Lin projeta une parcelle de son âme originelle dans le Fourneau Impérial. Puis, sa silhouette apparut dans le ciel, au-dessus de l'océan violet.
 

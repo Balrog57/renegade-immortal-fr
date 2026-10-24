@@ -16,7 +16,7 @@ Contemplant le ciel, l'expression du Shui Daozi était extrêmement sombre, empr
 
 En particulier, les auras de l'Estimable Ling Dong et de Zhou Jin le rendaient agité. Il ignorait la vérité, mais il avait une intuition. Cependant, cette conjecture était si terrifiante qu'il n'osait même pas y croire; il refusait de la croire.
 
-« Maudit soit-il, la chance de cet homme est trop insolente. J'ai divulgué sa venue dans le Royaume Extérieur à Miao Yin, et pourtant, il est revenu vivant... » Le Shui Daozi affichait une expression hideuse tandis que sa main droite traçait un sceau. Le monde changea de teinte et les nuages se dispersèrent. Une masse vaporeuse vola vers lui et se métamorphosa en trois grues de nuage.
+« Maudit soit-il, la chance de cet homme est trop insolente. J'ai divulgué sa venue dans le Royaume Extérieur à Miaoyin Daozun, et pourtant, il est revenu vivant... » Le Shui Daozi affichait une expression hideuse tandis que sa main droite traçait un sceau. Le monde changea de teinte et les nuages se dispersèrent. Une masse vaporeuse vola vers lui et se métamorphosa en trois grues de nuage.
 
 Ces trois grues, dotées d'auras dominatrices, déployèrent leurs ailes et tournèrent autour du Shui Daozi.
 
