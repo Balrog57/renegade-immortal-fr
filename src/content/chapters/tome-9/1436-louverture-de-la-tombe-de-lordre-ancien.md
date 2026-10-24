@@ -66,9 +66,9 @@ Miaoyin Daozun cracha un flot de sang et battit en retraite précipitamment.
 
 « Même si je dois sacrifier un avatar, je dois tenter ma chance! » Le visage magnifique de Miaoyin Daozun se déforma. Il s'arrêta et n'utilisa aucun sort lorsqu'il percuta le brouillard.
 
-Son corps fut secoué par la brume et trembla violemment. Cet avatar était au milieu de la phase de le Vide Spirituel, mais à mesure que le brouillard pénétrait en lui, son niveau de culture chutait rapidement!
+Son corps fut secoué par la brume et trembla violemment. Cet avatar était au milieu de la phase du Vide Spirituel, mais à mesure que le brouillard pénétrait en lui, son niveau de culture chutait rapidement!
 
-Début de le Vide Spirituel, pic du Vide du Nirvana, fin, milieu, début! En un clin d'œil, sa culture fut affaiblie de 90 %. Il cracha une bouchée de sang et son corps se flétrit promptement; son apparence élégante avait disparu.
+Début du Vide Spirituel, pic du Vide du Nirvana, fin, milieu, début! En un clin d'œil, sa culture fut affaiblie de 90 %. Il cracha une bouchée de sang et son corps se flétrit promptement; son apparence élégante avait disparu.
 
 Cependant, à cet instant précis, une marque numérique apparut entre ses sourcils! Dès l'apparition de la marque, une force de succion le tira dans la faille centrale!
 
