@@ -18,7 +18,7 @@ Du Tian laissa échapper un rire. Il était très satisfait des actions de Wang 
 
 Du Tian déclara: « Ne perdons plus de temps. Selon les règles, donnez-moi la moitié de vos jades célestes! »
 
-La vieille femme réfléchit un instant. Elle observa Du Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan Immortel Déchu approche, si ma Secte des Insectes Démoniaques est en danger, vous devrez nous aider immédiatement! »
+La vieille femme réfléchit un instant. Elle observa Du Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan Immortel Déchu approche, si ma Secte des Insectes Démoniaques est en danger, vous devrez nous aider une fois! »
 
 Du Tian la regarda et répondit: « Cela dépendra du nombre de jades célestes que vous me remettrez. »
 

@@ -94,7 +94,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 « Cette idée était si puissante qu'elle ressemblait à une possession. J'étais totalement obsédé; je devais créer cette épée! »
 
-« Après une décennie, ce vieil homme en était réduit à mendier des matériaux de forge. J'ai créé plusieurs épées, mais aucune ne correspondait à mon désir, alors j'ai abandonné. »
+« Après une décennie, ce vieil homme en était réduit à mendier des matériaux de forge. J'ai créé plusieurs épées, mais aucune ne correspondait à mon désir; je les ai toutes détruites de mes propres mains. »
 
 « Cette année-là, la Secte Heng Yue fut frappée par une grande calamité suite à l'attaque d'ennemis puissants; la secte était sur le point de périr. »
 
