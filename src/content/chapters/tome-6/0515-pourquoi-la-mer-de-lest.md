@@ -26,19 +26,19 @@ En somme, les légendes sur cet endroit sont innombrables, et chacune est conté
 
 Cette mer d'origine inconnue se situant sur le flanc oriental de la planète Tian Yun, elle fut nommée, au fil du temps, la Mer de l'Est!
 
-Il y a bien longtemps, lorsque l'Omniscient eut achevé son Tao, il invita plusieurs amis — dont le Saint de l'Épée Ling Tianhou, avant que leur relation ne se brise — pour explorer ce lieu à trois reprises!
+Il y a bien longtemps, lorsque Tian Yunzi eut achevé son Tao, il invita plusieurs amis — dont le Saint de l'Épée Ling Tianhou, avant que leur relation ne se brise — pour explorer ce lieu à trois reprises!
 
 Les deux premières expéditions furent vaines, mais lors de la troisième, moins de la moitié des participants revint!
 
-C'est à la suite de cet événement que l'amitié entre le Saint de l'Épée Ling Tianhou et l'Omniscient se rompit. Jusqu'à ce jour, aucun n'a jamais évoqué ce qui s'était réellement passé lors de cette troisième expédition.
+C'est à la suite de cet événement que l'amitié entre le Saint de l'Épée Ling Tianhou et Tian Yunzi se rompit. Jusqu'à ce jour, aucun n'a jamais évoqué ce qui s'était réellement passé lors de cette troisième expédition.
 
-Cependant, après ces événements, l'Omniscient déclara une chose:
+Cependant, après ces événements, Tian Yunzi déclara une chose:
 
 « Un démon ancien se cache là-dedans. Dès aujourd'hui, ce lieu appartient à ma planète Tian Yun et sera appelé la Porte de la Mer des Esprits Démoniaques de l'Est! »
 
 Les mots « démon ancien » se répandirent comme une traînée de poudre et restèrent gravés dans la mémoire d'innombrables personnes.
 
-Même des membres de l'Alliance des Cultivateurs vinrent inspecter la Mer des Esprits Démoniaques de l'Est. Toutefois, concernant l'accès de ce lieu aux étrangers, l'Omniscient, Ling Tianhou et tous les autres vieux monstres de la région firent preuve d'une rare unanimité:
+Même des membres de l'Alliance des Cultivateurs vinrent inspecter la Mer des Esprits Démoniaques de l'Est. Toutefois, concernant l'accès de ce lieu aux étrangers, Tian Yunzi, Ling Tianhou et tous les autres vieux monstres de la région firent preuve d'une rare unanimité:
 
 Ils n'autoriseraient jamais personne de l'extérieur à y pénétrer. Cet endroit était la zone interdite de la planète Tian Yun!
 
@@ -80,7 +80,7 @@ Tout au long du voyage, la femme ne prononça pas un mot. Une fois le jade de sa
 
 « La fille de Xue Zu, Yao Xixue! » Certains la reconnurent aussitôt.
 
-Xue Zu, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de culture était prodigieux. Il avait défié l'Omniscient à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
+Xue Zu, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de culture était prodigieux. Il avait défié Tian Yunzi à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
 
 Cet homme possédait sa propre planète de culture autour de Tian Yun. Il y capturait des indigènes pour se nourrir de leur sang et cultiver ses arts démoniaques.
 

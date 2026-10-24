@@ -36,7 +36,7 @@ Cette seule phrase fit trembler l'esprit de Wang Lin. Incapable de maintenir le 
 
 Plus il apprenait, plus tout devenait mystérieux. Wang Lin avait une intuition vague, mais il ne parvenait pas à tout saisir. Tandis qu'il restait là, l'incertitude dans son regard s'intensifiait.
 
-« Le sang du Dao céleste... L'Omniscient a tout fait pour obtenir le sang du Dao céleste dans le Royaume Céleste de la Pluie... L'Empereur Divin du Dragon Azure a affirmé avoir avalé le sang du Dao céleste... »
+« Le sang du Dao céleste... Tian Yunzi a tout fait pour obtenir le sang du Dao céleste dans le Royaume Céleste de la Pluie... L'Empereur Divin du Dragon Azure a affirmé avoir avalé le sang du Dao céleste... »
 
 « Le Dao céleste possède du sang, et il doit être élevé par cette pilule... Qu'est-ce donc que le Dao céleste!?! » Wang Lin songeait tout en fixant le ciel.
 

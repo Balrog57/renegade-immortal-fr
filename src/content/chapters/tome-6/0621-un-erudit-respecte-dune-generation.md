@@ -82,9 +82,9 @@ Seuls ceux possédant une certaine confiance en leur propre culture pouvaient é
 
 Le disciple de la Division Bleue observa Wang Lin avec une expression complexe. Il avait entendu parler de lui et avait vu de ses propres yeux sa bataille contre Chen Tao pour le titre de l'un des Sept Disciples du Destin Céleste de la Division Pourpre. À l'époque, les performances de Wang Lin avaient attiré l'attention, mais ce n'était qu'une curiosité passagère; après tout, son niveau de culture était alors jugé insuffisant.
 
-Pourtant, à cet instant, il n'osait plus le sous-estimer. Non seulement Wang Lin avait réussi à atteindre le stade de l'Ascendant en si peu de temps, mais surtout, sa présence lui rappelait vaguement celle de l'Omniscient.
+Pourtant, à cet instant, il n'osait plus le sous-estimer. Non seulement Wang Lin avait réussi à atteindre le stade de l'Ascendant en si peu de temps, mais surtout, sa présence lui rappelait vaguement celle de Tian Yunzi.
 
-Bien que ce sentiment ne fût pas écrasant, il était bien réel. En tant que disciple de la Secte du Destin Céleste et de l'Omniscient, ses connaissances étaient vastes; il savait naturellement qu'il s'agissait là d'une manifestation du Dao!
+Bien que ce sentiment ne fût pas écrasant, il était bien réel. En tant que disciple de la Secte du Destin Céleste et de Tian Yunzi, ses connaissances étaient vastes; il savait naturellement qu'il s'agissait là d'une manifestation du Dao!
 
 Dégager une telle sensation signifiait que Wang Lin possédait son propre Dao. Dans le monde de la culture, ceux qui possèdent leur propre Dao le conservent en leur cœur, atteignent l'éveil et parviennent à ne faire qu'un avec lui. Ces êtres ont le droit de fonder leur propre école!
 

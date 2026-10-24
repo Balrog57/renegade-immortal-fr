@@ -68,7 +68,7 @@ Le symbole sur le front de Zhao Xingsha fulgura violemment encore quelques fois 
 
 Une fois libérée, la bête spirituelle ne lutta pas et ne rugit pas. Elle jeta un regard à Zhao Xingsha avant de regagner le char de guerre et de reprendre sa forme de piège à bêtes.
 
-À ce moment-là, un nuage rouge apparut à l'horizon. Une masse de nuages rouges commença à s'agglutiner jusqu'à prendre la forme d'un vieil homme vêtu d'une robe rouge. Le visage de l'individu était d'un rouge ardent, il exhalait une forte odeur de vin et portait une grande gourde dans son dos. Apparaissant ainsi, il laissa échapper un rot, roula des yeux et réprimanda: « Pourquoi vous disputez-vous tous? Si vous ne vous battiez pas, comment ce vieil homme aurait-il été envoyé par l'Omniscient, ce vieux sac d'os, pour vous punir? Je n'en étais qu'à la moitié de ma dégustation! »
+À ce moment-là, un nuage rouge apparut à l'horizon. Une masse de nuages rouges commença à s'agglutiner jusqu'à prendre la forme d'un vieil homme vêtu d'une robe rouge. Le visage de l'individu était d'un rouge ardent, il exhalait une forte odeur de vin et portait une grande gourde dans son dos. Apparaissant ainsi, il laissa échapper un rot, roula des yeux et réprimanda: « Pourquoi vous disputez-vous tous? Si vous ne vous battiez pas, comment ce vieil homme aurait-il été envoyé par Tian Yunzi, ce vieux sac d'os, pour vous punir? Je n'en étais qu'à la moitié de ma dégustation! »
 
 L'expression de Wang Lin resta calme tandis qu'il saisissait le piège à bêtes. Il se dirigea vers la troisième table vide, après celle de la Quatrième Sœur. C'était sa place.
 
@@ -88,7 +88,7 @@ Jiang Tianzun regarda Chi Lie et répondit avec respect: « Senior est trop mode
 
 À peine eut-il fini de parler que d'autres s'empressèrent de l'imiter. Bientôt, presque tous les cultivateurs présents exprimèrent la même opinion.
 
-Chi Lie rit en secouant la tête: « Ne faites pas trop de compliments à ces quelques disciples indisciplinés. Demain, mon frère aîné, l'Omniscient, enseignera le Dao. Tout le monde, j'ai encore des affaires importantes à régler, je prends donc congé. »
+Chi Lie rit en secouant la tête: « Ne faites pas trop de compliments à ces quelques disciples indisciplinés. Demain, mon frère aîné, Tian Yunzi, enseignera le Dao. Tout le monde, j'ai encore des affaires importantes à régler, je prends donc congé. »
 
 Sur ce, Chi Lie s'élança, emportant Zhao Xingsha dans sa main. Il s'évapora tel un nuage rouge vers l'horizon.
 
@@ -100,7 +100,7 @@ Tandis qu'il méditait, de nombreux membres des différentes sectes vinrent port
 
 Le combat précédent avait prouvé que Wang Lin pouvait éliminer aisément le Deuxième Frère de la Division Pourpre et forcer le frère aîné à utiliser son atout. Cependant, nul n'ignorait que le sort utilisé par Zhao Xingsha s'était retourné contre lui avec violence. On pouvait lire sur le visage de ce dernier qu'il allait subir un terrible contrecoup.
 
-De plus, le Septième Frère n'était même pas intervenu personnellement; il s'était contenté d'utiliser ses trésors magiques. Bien que l'issue du combat fût incertaine si la lutte avait persisté, les propos de Chi Lie révélaient l'importance capitale de ce Septième Frère pour l'Omniscient.
+De plus, le Septième Frère n'était même pas intervenu personnellement; il s'était contenté d'utiliser ses trésors magiques. Bien que l'issue du combat fût incertaine si la lutte avait persisté, les propos de Chi Lie révélaient l'importance capitale de ce Septième Frère pour Tian Yunzi.
 
 Autrement, pourquoi seul Zhao Xingsha avait-il été emmené, sans que l'on demande de comptes pour la mort du Deuxième Frère, tandis que le Septième Frère recevait des paroles presque apaisantes laissant entendre l'intérêt qu'on lui portait?
 

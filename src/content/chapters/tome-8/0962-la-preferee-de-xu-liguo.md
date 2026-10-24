@@ -26,7 +26,7 @@ Elle mordit sa lèvre inférieure, rabattit sa manche, puis regarda Wang Lin ava
 
 « Si je demande l'aide d'autrui, avec Maître présent, je crains que personne n'ose m'aider... »
 
-Wang Lin resta seul dans la pièce et réfléchit. Aider Zhao Xinmeng serait facile, mais cela ne plairait pas à l'Omniscient.
+Wang Lin resta seul dans la pièce et réfléchit. Aider Zhao Xinmeng serait facile, mais cela ne plairait pas à Tian Yunzi.
 
 « Si ce que dit Zhao Xinmeng est vrai, alors il doit y avoir une signification profonde derrière l'indifférence de Maître... Vraisemblablement... Il est lui aussi tiraillé par cette question dans son esprit. »
 

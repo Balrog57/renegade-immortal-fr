@@ -17,7 +17,7 @@ Ces nouvelles se propagèrent comme des flocons de neige. En deux mois, presque 
 
 La plupart ne pouvaient croire que la puissante Alliance de Culture puisse subir un tel revers. Cependant, au fil du temps, les rumeurs s'intensifièrent. Après trois mois supplémentaires, l'évidence finit par s'imposer.
 
-Ce qui stupéfia davantage les cultivateurs fut le retour des Quatre Sectes Divines! La rumeur prétendait que l'Empereur Divin de l'Oiseau Vermillon était apparu et avait utilisé les Quatre Trésors Sacrés pour blesser gravement l'Ancien de l'Alliance, Omniscient, et sceller l'Empereur Céleste Qing Lin, qui venait de s'éveiller.
+Ce qui stupéfia davantage les cultivateurs fut le retour des Quatre Sectes Divines! La rumeur prétendait que l'Empereur Divin de l'Oiseau Vermillon était apparu et avait utilisé les Quatre Trésors Sacrés pour blesser gravement l'Ancien de l'Alliance, Tian Yunzi, et sceller l'Empereur Céleste Qing Lin, qui venait de s'éveiller.
 
 C'était une nouvelle qui ébranlait le ciel. Beaucoup furent frappés par l'incrédulité, habités par une profonde et sourde terreur.
 

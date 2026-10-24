@@ -19,7 +19,7 @@ L'aspect le plus crucial dans le choix de l'emplacement d'une retraite était de
 
 Xue Zu était un cultivateur porteur de secrets; il s'était donc montré encore plus prudent lors du choix de sa demeure.
 
-Sur la carte que l'Omniscient avait donnée à Wang Lin, la Planète du Sang était extrêmement isolée, sans aucune planète abritant de puissants cultivateurs à proximité. C'était d'ailleurs l'une des raisons pour lesquelles le corps originel de Wang Lin l'attaquait.
+Sur la carte que Tian Yunzi avait donnée à Wang Lin, la Planète du Sang était extrêmement isolée, sans aucune planète abritant de puissants cultivateurs à proximité. C'était d'ailleurs l'une des raisons pour lesquelles le corps originel de Wang Lin l'attaquait.
 
 Le corps originel de Wang Lin se dirigea vers la Planète du Sang, l'expression glaciale et un fleuve de pierres le suivant dans son sillage. L'espace était si vaste, le Système Stellaire de l'Alliance semblait sans fin, et le corps originel de Wang Lin paraissait insignifiant en comparaison. En chemin, il ne marqua aucune pause; il chargea sans relâche vers la Planète du Sang, porté par une intention meurtrière froide et ce fleuve de pierres.
 

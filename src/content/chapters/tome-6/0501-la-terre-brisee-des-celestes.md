@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 501 - Shatter Land of Celestials
 slug: la-terre-brisee-des-celestes
 ---
-L'Omniscient agita ses manches et un nuage aux sept couleurs apparut. Le nuage enveloppa Wang Lin et l'emmena vers la secte principale.
+Tian Yunzi agita ses manches et un nuage aux sept couleurs apparut. Le nuage enveloppa Wang Lin et l'emmena vers la secte principale.
 
 Wang Lin était à l'intérieur du nuage tandis qu'il traversait le ciel bleu. Les montagnes et les rivières sous ses pieds défilaient en un éclair.
 
@@ -30,31 +30,31 @@ De loin, la scène n'avait rien de réel; on aurait dit que quelqu'un avait util
 
 Alors que Wang Lin contemplait la secte principale du Destin Céleste, son regard se calma progressivement après l'étonnement initial.
 
-L'Omniscient agita ses manches et le nuage aux sept couleurs qui les entourait disparut soudainement. À sa disparition, une aura glaciale s'engouffra et tenta d'envahir le corps de Wang Lin.
+Tian Yunzi agita ses manches et le nuage aux sept couleurs qui les entourait disparut soudainement. À sa disparition, une aura glaciale s'engouffra et tenta d'envahir le corps de Wang Lin.
 
 L'expression de Wang Lin resta impassible; l'énergie spirituelle céleste à l'intérieur de son corps s'anima, créant un écran de lumière autour de lui. L'aura froide atteignit cet écran et disparut aussitôt sans laisser de trace.
 
-Les mains derrière le dos, l'Omniscient observa les trois montagnes et demanda: « Wang Lin, que penses-tu de cet endroit? »
+Les mains derrière le dos, Tian Yunzi observa les trois montagnes et demanda: « Wang Lin, que penses-tu de cet endroit? »
 
 Wang Lin réfléchit un instant puis répondit lentement: « Cet endroit possède une aura glaciale très puissante; c'est un lieu idéal pour cultiver tout ce qui nécessite de l'énergie froide et Yin. »
 
-L'Omniscient esquissa un léger sourire et demanda: « Est-ce tout? »
+Tian Yunzi esquissa un léger sourire et demanda: « Est-ce tout? »
 
 Wang Lin baissa la tête et dit respectueusement: « Le disciple n'a pas assez de connaissances pour voir plus loin. »
 
-L'Omniscient secoua la tête, puis regarda Wang Lin avec un sourire qui n'en était pas un et dit: « Je décide toujours quel sort interdit chaque étudiant apprendra, mais si tu es capable de percer les mystères de cette montagne, ton Maître brisera les règles et te laissera choisir le sort de ton choix. Wang Lin, en es-tu tenté? »
+Tian Yunzi secoua la tête, puis regarda Wang Lin avec un sourire qui n'en était pas un et dit: « Je décide toujours quel sort interdit chaque étudiant apprendra, mais si tu es capable de percer les mystères de cette montagne, ton Maître brisera les règles et te laissera choisir le sort de ton choix. Wang Lin, en es-tu tenté? »
 
-Wang Lin leva la tête, regarda l'Omniscient avec une expression sereine et dit: « Puisque le Maître l'ordonne, comment le disciple oserait-il désobéir! » Il pointa la montagne noire à gauche de sa main droite et ajouta: « Cette montagne est totalement noire; même la neige qui y tombe est noire. Cependant, cette neige noire n'est pas froide, ce qui, comparé à la neige blanche du centre, crée une atmosphère étrange. »
+Wang Lin leva la tête, regarda Tian Yunzi avec une expression sereine et dit: « Puisque le Maître l'ordonne, comment le disciple oserait-il désobéir! » Il pointa la montagne noire à gauche de sa main droite et ajouta: « Cette montagne est totalement noire; même la neige qui y tombe est noire. Cependant, cette neige noire n'est pas froide, ce qui, comparé à la neige blanche du centre, crée une atmosphère étrange. »
 
-L'expression de l'Omniscient resta neutre alors qu'il souriait: « Oh? Continue. »
+L'expression de Tian Yunzi resta neutre alors qu'il souriait: « Oh? Continue. »
 
 Wang Lin pointa la montagne de droite et dit: « Cette montagne est encore plus singulière, car je peux y déceler un soupçon de vie. Bien que presque tout possède une forme de vie, c'est la première fois que le disciple ressent la vie d'une montagne. »
 
-L'Omniscient gardait son calme et sourit: « Est-ce là tout? Si c'est ainsi, tu n'as toujours pas le droit de choisir un sort interdit auprès de ton Maître. »
+Tian Yunzi gardait son calme et sourit: « Est-ce là tout? Si c'est ainsi, tu n'as toujours pas le droit de choisir un sort interdit auprès de ton Maître. »
 
 Wang Lin esquissa un sourire et secoua la tête: « Maître, ces deux montagnes sont des illusions! »
 
-À ces mots, une lueur de choc apparut dans les yeux de l'Omniscient. Il dévisagea Wang Lin avant de laisser échapper un rire. D'un revers de manches, il emmena Wang Lin vers la montagne centrale à une vitesse fulgurante.
+À ces mots, une lueur de choc apparut dans les yeux de Tian Yunzi. Il dévisagea Wang Lin avant de laisser échapper un rire. D'un revers de manches, il emmena Wang Lin vers la montagne centrale à une vitesse fulgurante.
 
 « Cet enfant a un esprit plus vif que les autres. Être capable de trouver des indices sur mon art de l'illusion au stade intermédiaire de la Transformation de l'Âme est extrêmement rare! »
 
@@ -72,9 +72,9 @@ Les trois montagnes créées par le trident étaient presque identiques aux troi
 
 Mais il écarta immédiatement l'idée que cette planète soit l'endroit où l'ancien dieu Tu Si avait jeté son trésor, car c'était bien comme il l'avait dit plus tôt: deux des montagnes étaient de fausses images.
 
-« Cependant, la culture de l'Omniscient est céleste. S'il avait voulu me le cacher, il m'aurait été impossible de percer ce mystère à mon niveau actuel. » Wang Lin s'apaisa alors qu'ils atteignaient le pied de la montagne.
+« Cependant, la culture de Tian Yunzi est céleste. S'il avait voulu me le cacher, il m'aurait été impossible de percer ce mystère à mon niveau actuel. » Wang Lin s'apaisa alors qu'ils atteignaient le pied de la montagne.
 
-« Wang Lin, ton Maître t'attendra là-haut. Tu ne peux pas utiliser la téléportation, et plus vite tu monteras, meilleure sera la récompense! Avec ta culture, gravir la montagne jusqu'à cent pas du sommet ne sera pas difficile, mais les cent derniers pas dépendront de ta fortune. Ces cent pas au sommet sont ce que ton Maître appelle la Terre Brisée des Célestes! » L'Omniscient se retourna, fit un pas et disparut sans laisser de trace devant Wang Lin.
+« Wang Lin, ton Maître t'attendra là-haut. Tu ne peux pas utiliser la téléportation, et plus vite tu monteras, meilleure sera la récompense! Avec ta culture, gravir la montagne jusqu'à cent pas du sommet ne sera pas difficile, mais les cent derniers pas dépendront de ta fortune. Ces cent pas au sommet sont ce que ton Maître appelle la Terre Brisée des Célestes! » Tian Yunzi se retourna, fit un pas et disparut sans laisser de trace devant Wang Lin.
 
 Wang Lin leva les yeux vers le sommet blanc de la montagne. Une neige infinie y tombait; si l'on regardait trop longtemps, on aurait l'illusion que d'innombrables épées blanches et tranchantes descendaient du ciel.
 
@@ -88,7 +88,7 @@ Aucune empreinte ne se formait sur la neige blanche. Toute la montagne ressembla
 
 Mais pour Wang Lin, ses pieds ne touchaient jamais la montagne. Il flottait à un mètre au-dessus de la surface en progressant vers le haut.
 
-Il n'était pas impossible d'utiliser la téléportation ici, mais puisque l'Omniscient avait déclaré qu'il s'agissait d'un test, utiliser la téléportation signifierait l'échec.
+Il n'était pas impossible d'utiliser la téléportation ici, mais puisque Tian Yunzi avait déclaré qu'il s'agissait d'un test, utiliser la téléportation signifierait l'échec.
 
 C'est pourquoi Wang Lin ne se téléporta pas et monta calmement la montagne, un pas après l'autre.
 

@@ -70,9 +70,9 @@ Pourtant, il ne pouvait se laisser emporter par l'enthousiasme, car l'odeur de s
 
 Il avait cherché maintes méthodes pour s'en débarrasser, mais cette odeur résidait dans son âme d'origine et y était fusionnée. Peu importe ses efforts, il ne pouvait l'éliminer.
 
-Cette douleur le torturait encore aujourd'hui. Cela faisait culminer sa haine envers l'Omniscient, Wang Lin, et le Serpent aux yeux de lune!
+Cette douleur le torturait encore aujourd'hui. Cela faisait culminer sa haine envers Tian Yunzi, Wang Lin, et le Serpent aux yeux de lune!
 
-« Omniscient, si vous ne m'aviez pas forcé à aller à Luotian, je ne me serais pas retrouvé dans un état aussi misérable. Et il y a aussi ce serpent aux yeux de lune... Ce vieil homme jure qu'il va le réduire en miettes! »
+« Tian Yunzi, si vous ne m'aviez pas forcé à aller à Luotian, je ne me serais pas retrouvé dans un état aussi misérable. Et il y a aussi ce serpent aux yeux de lune... Ce vieil homme jure qu'il va le réduire en miettes! »
 
 « Le plus important, c'est Wang Lin! Cet homme... cet homme est ma némésis! Il m'a volé tous mes trésors. Mon fourneau de téléportation, mon ancien dragon de tonnerre, ma Peinture des Montagnes et des Rivières, mon âme de montagne... Tous les trésors que j'ai rassemblés pendant des dizaines de milliers d'années lui ont été dérobés! »
 
@@ -84,7 +84,7 @@ Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à W
 
 « Ma némésis de toujours! Sur la planète Suzaku, la Perle Défiant le Ciel que je convoitais a finalement été dérobée par cet homme... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre! Il m'accompagnait depuis mon enfance; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre! »
 
-« Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Luotian pour traquer Wang Lin. Puis ce maudit Serpent aux yeux de lune m'a avalé jusque dans ses voies excrétrices et, tandis que je souffrais le martyre, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture des Montagnes et des Rivières, tout ce que je possédais! »
+« Ensuite, j'ai été contraint par Tian Yunzi et les autres de me rendre à Luotian pour traquer Wang Lin. Puis ce maudit Serpent aux yeux de lune m'a avalé jusque dans ses voies excrétrices et, tandis que je souffrais le martyre, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture des Montagnes et des Rivières, tout ce que je possédais! »
 
 « Puis, juste au moment où je m'apprêtais à sortir de la gueule du Serpent aux yeux de lune, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de culture! » Tan Lang se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
 

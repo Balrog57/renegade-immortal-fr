@@ -40,7 +40,7 @@ On aurait dit que Wang Lin n'était plus un simple cultivateur, mais un dieu dé
 
 Un dieu démon qui massacrait les immortels!
 
-Tout ce que le Shui Daozi avait préparé rappelait à Wang Lin le passé. À l'époque, sur une planète sauvage de la Mer des Nuages, Wang Lin avait utilisé l'âme de l'Omniscient pour effectuer une série de prédictions et de préparatifs afin de lutter pour sa survie face à la puissance céleste qu'incarnait le Shui Daozi!
+Tout ce que le Shui Daozi avait préparé rappelait à Wang Lin le passé. À l'époque, sur une planète sauvage de la Mer des Nuages, Wang Lin avait utilisé l'âme de Tian Yunzi pour effectuer une série de prédictions et de préparatifs afin de lutter pour sa survie face à la puissance céleste qu'incarnait le Shui Daozi!
 
 Cependant, aujourd'hui, la situation s'était totalement inversée. À cet instant, Wang Lin était la puissance céleste, et c'était le Shui Daozi qui luttait pour sa survie!
 

@@ -88,7 +88,7 @@ L'âme originelle ricana: « Homme sans vergogne. D'abord, tu me forces à rival
 
 Wang Lin fronça les sourcils et serra le poing droit. L'âme poussa une série de cris déchirants et s'affaiblit, mais le regard de l'homme restait venimeux.
 
-L'âme ricana de nouveau en fixant Wang Lin: « Moi, Lou Yun, suis un disciple de la Secte du Fantôme Céleste. Je cultive la voie du fantôme céleste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître, le Daoïste Fantôme, le saura et se vengera! C'est un être avec qui même l'Omniscient discute d'égal à égal! Wang Lin, as-tu bien réfléchi aux conséquences!?!? »
+L'âme ricana de nouveau en fixant Wang Lin: « Moi, Lou Yun, suis un disciple de la Secte du Fantôme Céleste. Je cultive la voie du fantôme céleste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître, le Daoïste Fantôme, le saura et se vengera! C'est un être avec qui même Tian Yunzi discute d'égal à égal! Wang Lin, as-tu bien réfléchi aux conséquences!?!? »
 
 Wang Lin le regarda froidement. Perdant patience, il leva la main gauche et frappa l'âme originelle. Cette dernière, ayant déjà perdu son corps, faillit s'effondrer sous la violence du coup.
 

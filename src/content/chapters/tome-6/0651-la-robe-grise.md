@@ -24,9 +24,9 @@ D'une simple pensée, l'épée s'envola et se planta dans le sol aux côtés de 
 
 Après avoir méticuleusement exploré l'espace intérieur du jeton, Wang Lin retira son Sens Divin. Il fixa l'objet en proie à la réflexion.
 
-« Hormis sa matière, ce jeton n'a rien d'extraordinaire. Si je ne l'avais pas vu se matérialiser directement à partir de la brume, il serait difficile d'imaginer que des êtres comme l'Omniscient, Ling Tianhou et Xue Zu cherchent à le dérober! »
+« Hormis sa matière, ce jeton n'a rien d'extraordinaire. Si je ne l'avais pas vu se matérialiser directement à partir de la brume, il serait difficile d'imaginer que des êtres comme Tian Yunzi, Ling Tianhou et Xue Zu cherchent à le dérober! »
 
-« Ce jeton est la clé pour ouvrir la grotte. Il faut impérativement ouvrir les quatre fausses grottes pour pouvoir accéder à la porte finale. Selon Yao Xixue, l'Omniscient et sa troupe ignorent qu'une quatrième fausse grotte existe... »
+« Ce jeton est la clé pour ouvrir la grotte. Il faut impérativement ouvrir les quatre fausses grottes pour pouvoir accéder à la porte finale. Selon Yao Xixue, Tian Yunzi et sa troupe ignorent qu'une quatrième fausse grotte existe... »
 
 « Mais Xue Zu, lui, le sait. »
 
@@ -128,7 +128,7 @@ Wang Lin fut stupéfait.
 
 Du Jian poursuivit rapidement: « Dans ce souvenir, Sun Yun et le Maître ont eu un combat titanesque, mais finalement, le Maître a utilisé un sort pour dévorer Sun Yun, puis il est parti. » C'était son secret le plus lourd. Lorsqu'il avait perçu cette vision ce jour-là, il avait été totalement bouleversé, et la peur s'était emparée de son cœur.
 
-C'était la raison pour laquelle il respectait et craignait l'Omniscient depuis tout ce temps. Ce secret était enfoui au plus profond de son âme; c'était la première fois qu'il le révélait à qui que ce soit.
+C'était la raison pour laquelle il respectait et craignait Tian Yunzi depuis tout ce temps. Ce secret était enfoui au plus profond de son âme; c'était la première fois qu'il le révélait à qui que ce soit.
 
 Wang Lin demanda: « Quelle était l'expression du Maître à ce moment-là? »
 

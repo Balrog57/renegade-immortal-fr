@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1055 - Mountain Crumbles
 slug: leffondrement-de-la-montagne
 ---
-Maître du Vide se retourna soudainement, sa main traçant un sceau pour lancer un sortilège. Cependant, à cet instant précis, les lèvres de l'Omniscient bougèrent légèrement et Maître du Vide s'interrompit aussitôt. C'était comme si une force invisible avait brusquement interrompu son incantation.
+Maître du Vide se retourna soudainement, sa main traçant un sceau pour lancer un sortilège. Cependant, à cet instant précis, les lèvres de Tian Yunzi bougèrent légèrement et Maître du Vide s'interrompit aussitôt. C'était comme si une force invisible avait brusquement interrompu son incantation.
 
 L'expression de Maître du Vide changea radicalement, et au même moment, Zhou Yi fendit les flammes pour charger Maître du Vide. Sa vitesse était telle qu'il percuta la poitrine de Maître du Vide en un instant.
 
@@ -20,21 +20,21 @@ Sur ce, Zhou Yi s'assit et entama rapidement sa guérison. Il sortit de nulle pa
 
 Le visage de Maître du Vide était d'une pâleur mortelle. Il avait déjà été gravement blessé et s'était efforcé de réprimer ses maux pour éviter qu'ils ne s'aggravent. Cependant, grâce au coup désespéré de Zhou Yi, ses blessures avaient éclaté de nouveau, provoquant une nouvelle chute de son niveau de culture. Bien qu'il n'ait pas encore régressé jusqu'au premier stade du Briseur du Nirvana, si ses blessures s'aggravaient davantage, il n'en serait pas loin. C'était la première fois qu'il ressentait un frisson dans son cœur; il recula de quelques pas supplémentaires. Sa main droite traça un sceau qu'il pointa rapidement vers son propre corps pour tenter de se stabiliser. Cette action le fit toutefois cracher davantage de sang.
 
-Malgré son expression féroce, ses yeux ne fixaient ni Wang Lin ni Zhou Yi, mais restaient verrouillés sur l'Omniscient.
+Malgré son expression féroce, ses yeux ne fixaient ni Wang Lin ni Zhou Yi, mais restaient verrouillés sur Tian Yunzi.
 
-L'expression de l'Omniscient demeura impassible; le regard de Maître du Vide ne lui causait aucun malaise. Il dit calmement: « Cher compagnon de culture Maître du Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, l'Omniscient tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste me fera cette faveur. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
+L'expression de Tian Yunzi demeura impassible; le regard de Maître du Vide ne lui causait aucun malaise. Il dit calmement: « Cher compagnon de culture Maître du Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, Tian Yunzi tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste me fera cette faveur. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
 
-L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que l'Omniscient était intervenu secrètement? Il se déplaça silencieusement aux côtés de Maître du Vide et lança un regard glacial à Wang Lin et son groupe.
+L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que Tian Yunzi était intervenu secrètement? Il se déplaça silencieusement aux côtés de Maître du Vide et lança un regard glacial à Wang Lin et son groupe.
 
-Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indifférente semblait observer tout le monde. Cependant, sa position indiquait clairement qu'il prendrait le parti de l'Omniscient et de Maître du Vide.
+Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indifférente semblait observer tout le monde. Cependant, sa position indiquait clairement qu'il prendrait le parti de Tian Yunzi et de Maître du Vide.
 
 Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons cette affaire de côté pour l'instant. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
 
 Hormis l'homme en noir, tous avaient clairement choisi un camp. Le regard de Wang Lin jeta un éclair et il joignit les mains devant Wang Wei: « Mon affaire ne compte pas. Je laisserai le Senior décider de la suite. »
 
-Bien que Wang Wei n'eût pas apprécié l'attaque soudaine de Wang Lin, il acquiesça en voyant que celui-ci savait faire preuve de retenue. Son regard se posa sur l'Omniscient et ses alliés, et il déclara calmement: « Très bien. Laissons de côté nos querelles personnelles pour l'instant! Les trois derniers étages sont semés d'embûches; je vous prie donc, chers compagnons, de ne pas vous retenir. Une fois transférés au septième étage, retrouvons-nous au centre. »
+Bien que Wang Wei n'eût pas apprécié l'attaque soudaine de Wang Lin, il acquiesça en voyant que celui-ci savait faire preuve de retenue. Son regard se posa sur Tian Yunzi et ses alliés, et il déclara calmement: « Très bien. Laissons de côté nos querelles personnelles pour l'instant! Les trois derniers étages sont semés d'embûches; je vous prie donc, chers compagnons, de ne pas vous retenir. Une fois transférés au septième étage, retrouvons-nous au centre. »
 
-Après la déclaration de Wang Wei, l'Omniscient et son groupe sourirent en hochant la tête. Hu Juan se leva et s'approcha de la tablette de pierre. Elle posa sa main semblable à du jade sur la tablette et exerça une légère pression. Une lumière pourpre jaillit de l'artefact, accompagné de grondements sourds comme si la pierre elle-même tremblait.
+Après la déclaration de Wang Wei, Tian Yunzi et son groupe sourirent en hochant la tête. Hu Juan se leva et s'approcha de la tablette de pierre. Elle posa sa main semblable à du jade sur la tablette et exerça une légère pression. Une lumière pourpre jaillit de l'artefact, accompagné de grondements sourds comme si la pierre elle-même tremblait.
 
 En un instant, d'immenses fissures apparurent dans le sol avant qu'il ne s'effondre brusquement, révélant un ciel étoilé. Tous s'y précipitèrent et disparurent. Quant à Zhou Yi, Wang Wei l'entraîna vers la matrice de transfert qui ressemblait à ce même firmament étoilé.
 
@@ -56,13 +56,13 @@ Wang Lin détourna les yeux. Il semblait que la confusion de Hu Juan était sinc
 
 Au loin, Maître du Vide affichait un visage livide. Malgré la lueur ardente environnante, son teint ne paraissait pas rougi. Sa main droite pressait sa poitrine, là où des vagues de douleur surgissaient périodiquement. Une étrange énergie d'épée s'y était logée, empêchant sa blessure de cicatriser.
 
-« Omniscient, Wang Lin et cet esprit d'épée... je n'oublierai pas cela. Si je ne vous rends pas la monnaie de votre pièce dix fois... non, cent fois, alors je n'abandonnerai jamais! » grommela-t-il avec amertume en observant les environs.
+« Tian Yunzi, Wang Lin et cet esprit d'épée... je n'oublierai pas cela. Si je ne vous rends pas la monnaie de votre pièce dix fois... non, cent fois, alors je n'abandonnerai jamais! » grommela-t-il avec amertume en observant les environs.
 
 « Maudit soit, même la Grotte de l'Empereur Céleste se ligue contre moi. Elle possède une énergie d'origine de feu si puissante... j'ai peur qu'elle ne profite à ce petit bâtard! » rugit Maître du Vide intérieurement, avant de réaliser soudainement quelque chose qui le glaça de sueur.
 
 « La chute de mon niveau de culture altère ma personnalité. Comment puis-je être si facilement provoqué?! » Il prit une profonde inspiration pour réprimer sa rage et se força au calme.
 
-Wang Wei rejoignit Hu Juan, et tous deux se transformèrent en deux rayons de lumière pour foncer vers le volcan. À ce moment, l'Omniscient et son groupe s'élancèrent également vers le cratère. La femme magnifique, le vieil homme sur la gourde et l'homme en noir volèrent vers le volcan. Maître du Vide lança un regard glacial à Wang Lin avant de s'élancer à son tour.
+Wang Wei rejoignit Hu Juan, et tous deux se transformèrent en deux rayons de lumière pour foncer vers le volcan. À ce moment, Tian Yunzi et son groupe s'élancèrent également vers le cratère. La femme magnifique, le vieil homme sur la gourde et l'homme en noir volèrent vers le volcan. Maître du Vide lança un regard glacial à Wang Lin avant de s'élancer à son tour.
 
 Wang Lin progressait sereinement dans les airs. Sachant que sa culture ne pouvait égaler celle des vieux monstres qui le précédaient, il ne cherchait pas à mener la charge, mais avançait avec constance. Une autre personne ralentit également au loin: la supposée Sainte du Vide Brillant. Ses beaux yeux se posèrent sur Wang Lin, et elle s'immobilisa comme si elle l'attendait.
 

@@ -8,7 +8,7 @@ slug: le-second-sceau
 ---
 Wang Lin réfléchissait. Plus il séjournait dans la Terre des Esprits Démoniaques, plus tout devenait étrange. D'abord, ce fut le tableau de Huang Long. Ensuite, les deux Mo Fei qui étaient parfaitement identiques. Enfin, cet homme imposant dont l'apparence ressemblait étrangement à celle de Ling Tianhou.
 
-Le regard de Wang Lin vacilla et il murmura pour lui-même: « L'Omniscient suit la volonté des cieux. S'il insiste pour que je vienne ici, c'est qu'il a ses propres motifs... De plus, lorsque j'étais sur la planète Tian Yun, Bai Wei avait souligné qu'une grande majorité des disciples de l'Omniscient âgés de plus de dix mille ans avaient disparu. J'ignore si la disparition de ces aînés a un lien avec cette Terre des Esprits Démoniaques. »
+Le regard de Wang Lin vacilla et il murmura pour lui-même: « Tian Yunzi suit la volonté des cieux. S'il insiste pour que je vienne ici, c'est qu'il a ses propres motifs... De plus, lorsque j'étais sur la planète Tian Yun, Bai Wei avait souligné qu'une grande majorité des disciples de Tian Yunzi âgés de plus de dix mille ans avaient disparu. J'ignore si la disparition de ces aînés a un lien avec cette Terre des Esprits Démoniaques. »
 
 Wang Lin toucha son sac de rangement et ses yeux devinrent glacials. Il pensa: « Tant que je serai assez fort, peu importe l'étrangeté de ce lieu, cela ne pourra affecter mon cœur de dao! »
 

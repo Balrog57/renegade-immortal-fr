@@ -16,7 +16,7 @@ Briser la nuit du ciel et de la terre, faire couler la lumière des années, rev
 
 Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré, avec l'aide du Seigneur du Royaume Scellé, dans le mystérieux Royaume du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Royaume du Dao!
 
-À l'intérieur du Royaume du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier, issu de la Terre des Esprits Démoniaques, était le sort qui avait gravement blessé l'Omniscient et plus encore le Démon Ancien, le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
+À l'intérieur du Royaume du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier, issu de la Terre des Esprits Démoniaques, était le sort qui avait gravement blessé Tian Yunzi et plus encore le Démon Ancien, le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 
 Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme du Clan de l'Extermination Scellée dans le Royaume aux Sept Couleurs!
 

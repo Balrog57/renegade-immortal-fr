@@ -132,4 +132,4 @@ Un éclair argenté jaillit à l'extérieur de la Division Pourpre, et Wang Lin 
 
 Après avoir réapparu, Wang Lin s'élança vers le Pavillon de la Forêt Violette. La nuit touchait à sa fin; l'horizon commençait à blanchir, annonçant l'aube d'un jour nouveau.
 
-C'était le jour où l'Omniscient enseignerait le Dao, et c'était aussi le jour le plus attendu par tous les invités venus célébrer l'anniversaire de l'Omniscient!
+C'était le jour où Tian Yunzi enseignerait le Dao, et c'était aussi le jour le plus attendu par tous les invités venus célébrer l'anniversaire de Tian Yunzi!

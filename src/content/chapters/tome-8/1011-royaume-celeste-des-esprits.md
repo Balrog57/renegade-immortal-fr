@@ -33,9 +33,9 @@ Dans la partie occidentale de la Terre des Esprits Démoniaques, terres apparten
 
 À cet instant, les piliers du nord et de l'ouest semblèrent entrer en résonance, scintillant violemment. Leur puissance croît alors qu'ils tentaient de briser la barrière des 50 kilomètres pour s'étendre davantage! Simultanément, un autre pilier de lumière jaillit au sud. Une quantité encore plus massive d'énergie spirituelle céleste entra en éruption, déclenchant une nouvelle bataille entre les forces célestes et démoniaques.
 
-L'Omniscient, assis dans la deuxième grotte, observait la formation d'un regard calme. Pourtant, une lueur étrange, presque imperceptible, traversa ses yeux.
+Tian Yunzi, assis dans la deuxième grotte, observait la formation d'un regard calme. Pourtant, une lueur étrange, presque imperceptible, traversa ses yeux.
 
-« Sept jours... » réfléchit silencieusement l'Omniscient. Il était impossible de deviner ses pensées ou ses émotions.
+« Sept jours... » réfléchit silencieusement Tian Yunzi. Il était impossible de deviner ses pensées ou ses émotions.
 
 L'apparition successive des trois piliers de lumière dans la Terre des Esprits Démoniaques attira l'attention des puissances locales. Le changement radical de l'énergie démoniaque provoqua la panique parmi eux. Ce territoire, resté immuable durant d'innombrables années, subissait une métamorphose inimaginable!
 

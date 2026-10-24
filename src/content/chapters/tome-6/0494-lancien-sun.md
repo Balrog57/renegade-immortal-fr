@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 494 - Elder Sun!"
 slug: lancien-sun
 ---
-L'Omniscient ne dispensait son enseignement qu'une fois tous les dix mille ans, et la durée de cette leçon variait à chaque occurrence. C'était une opportunité inestimable pour quiconque venait en quête du Dao. Il s'agissait d'un événement unique à la planète Tian Yun, apparu après que l'Omniscient eut atteint le Dao.
+Tian Yunzi ne dispensait son enseignement qu'une fois tous les dix mille ans, et la durée de cette leçon variait à chaque occurrence. C'était une opportunité inestimable pour quiconque venait en quête du Dao. Il s'agissait d'un événement unique à la planète Tian Yun, apparu après que Tian Yunzi eut atteint le Dao.
 
-Parmi les immenses foules venues de tous horizons, certains étaient des cultivateurs extrêmement puissants. Cependant, même eux écoutaient attentivement l'Omniscient et gardaient ses paroles précieusement en mémoire.
+Parmi les immenses foules venues de tous horizons, certains étaient des cultivateurs extrêmement puissants. Cependant, même eux écoutaient attentivement Tian Yunzi et gardaient ses paroles précieusement en mémoire.
 
 En ce matin, les disciples des sept divisions de la Secte du Destin Céleste sortirent, en commençant par la Division Rouge.
 
@@ -70,13 +70,13 @@ Une fois que tous les disciples ordinaires des sept divisions furent apparus, le
 
 À mesure que les gens arrivaient, les dix mille kilomètres environnants se remplissaient progressivement de cultivateurs.
 
-Wang Lin jeta un coup d'œil et ne parvint même pas à estimer le nombre de personnes présentes. C'était la première fois qu'il pouvait réellement mesurer l'importance de la position de l'Omniscient au sein de la Secte du Destin Céleste.
+Wang Lin jeta un coup d'œil et ne parvint même pas à estimer le nombre de personnes présentes. C'était la première fois qu'il pouvait réellement mesurer l'importance de la position de Tian Yunzi au sein de la Secte du Destin Céleste.
 
 Peu de temps après, un rayon de lumière arc-en-ciel jaillit soudainement du sanctuaire principal de la Secte du Destin Céleste. Ce rayon traversa le ciel pour rejoindre les disciples. Un vieil homme vêtu d'une robe blanche marchait lentement sur ce chemin de lumière vers eux.
 
 À cet instant, tous les disciples principaux des sept divisions s'inclinèrent et s'exclamèrent: « Salutations, Maître! »
 
-Wang Lin suivit les autres et salua respectueusement l'Omniscient.
+Wang Lin suivit les autres et salua respectueusement Tian Yunzi.
 
 Derrière lui se trouvaient tous les disciples ordinaires des sept divisions. Ils étaient si nombreux que leurs salutations résonnèrent comme un tonnerre qui ébranla les cieux.
 
@@ -84,11 +84,11 @@ Derrière lui se trouvaient tous les disciples ordinaires des sept divisions. Il
 
 Après eux vinrent les invités. Parmi eux, certains criaient avec force tandis que d'autres se contentaient de hocher la tête.
 
-Bien que le vieil homme parût lent, il ne lui fallut que trois respirations pour atteindre le ciel au-dessus d'eux. Observant la foule des cultivateurs, l'homme esquissa un léger sourire et dit calmement: « Moi, l'Omniscient, je suis capable de comprendre les cieux parce que j'ai cultivé pendant une très longue période. Aujourd'hui, je vais vous permettre de faire l'expérience de certaines des illuminations que j'ai reçues. Le Dao de ce vieux est celui de suivre le destin des cieux. Si mes propos contiennent des erreurs, j'espère que vous saurez me pardonner! »
+Bien que le vieil homme parût lent, il ne lui fallut que trois respirations pour atteindre le ciel au-dessus d'eux. Observant la foule des cultivateurs, l'homme esquissa un léger sourire et dit calmement: « Moi, Tian Yunzi, je suis capable de comprendre les cieux parce que j'ai cultivé pendant une très longue période. Aujourd'hui, je vais vous permettre de faire l'expérience de certaines des illuminations que j'ai reçues. Le Dao de ce vieux est celui de suivre le destin des cieux. Si mes propos contiennent des erreurs, j'espère que vous saurez me pardonner! »
 
 Arrivé à ce point, il s'arrêta soudainement et leva la tête pour scruter le vide au-dessus de lui. Il eut un mince sourire et ajouta: « Cependant, avant cela, laissons mon vieil ami de l'Alliance de Culture s'exprimer en premier. »
 
-Dès que l'Omniscient eut prononcé ces mots, un grand silence s'installa, et tous les regards se tournèrent vers le vide. Les puissants cultivateurs, en particulier, devinrent immédiatement vigilants et affichèrent des expressions de surprise.
+Dès que Tian Yunzi eut prononcé ces mots, un grand silence s'installa, et tous les regards se tournèrent vers le vide. Les puissants cultivateurs, en particulier, devinrent immédiatement vigilants et affichèrent des expressions de surprise.
 
 Un long rire, semblant émaner du néant, résonna dans ce silence.
 
@@ -106,27 +106,27 @@ Parmi les cultivateurs environnants se trouvaient des êtres puissants, mais mê
 
 L'homme portait une robe violette et un blaireau à trois yeux reposait sur son épaule. Les yeux du blaireau étaient également comme des éclairs, observant tout d'un regard glacial.
 
-L'expression de l'Omniscient resta sereine. En voyant cet homme d'âge moyen, il sourit légèrement et dit: « Ainsi, c'est l'Ancien Sun. L'Omniscient salue l'Ancien Sun! Je ne peux croire que l'Ancien Sun ait envoyé un avatar pour la petite célébration de mon dix-millième anniversaire. Je suis extrêmement honoré. »
+L'expression de Tian Yunzi resta sereine. En voyant cet homme d'âge moyen, il sourit légèrement et dit: « Ainsi, c'est l'Ancien Sun. Tian Yunzi salue l'Ancien Sun! Je ne peux croire que l'Ancien Sun ait envoyé un avatar pour la petite célébration de mon dix-millième anniversaire. Je suis extrêmement honoré. »
 
-Le discours de l'Omniscient était respectueux, mais il ne bougea pas d'un pouce. Il était évident qu'il ne faisait preuve que de politesse.
+Le discours de Tian Yunzi était respectueux, mais il ne bougea pas d'un pouce. Il était évident qu'il ne faisait preuve que de politesse.
 
 L'homme d'âge moyen ne sembla pas s'en offenser. Après être sorti de la lumière dorée, il fit un geste de la main derrière lui. La lueur dorée s'estompa progressivement pour révéler une épée volante dorée qu'il saisit aussitôt.
 
-« Vieux monstre Omniscient, comment aurais-je pu manquer la célébration de votre dix-millième anniversaire?! » L'homme rit en lançant l'épée volante vers l'Omniscient.
+« Vieux monstre Tian Yunzi, comment aurais-je pu manquer la célébration de votre dix-millième anniversaire?! » L'homme rit en lançant l'épée volante vers Tian Yunzi.
 
 « Je suis venu dans la précipitation et n'ai pu préparer de dignes cadeaux. Cette épée volante est un trésor céleste de qualité supérieure moyenne et, ayant été raffinée pendant dix mille ans, elle possède une certaine puissance. Je sais que vous appréciez les couleurs de l'arc-en-ciel, et cette épée dorée relève de la lumière jaune; elle devrait donc vous plaire! »
 
-L'Omniscient sourit discrètement. Après avoir réceptionné l'épée, il la lança vers le premier disciple de la Division Jaune en disant: « Kunpeng Zi, je t'offre cette épée! »
+Tian Yunzi sourit discrètement. Après avoir réceptionné l'épée, il la lança vers le premier disciple de la Division Jaune en disant: « Kunpeng Zi, je t'offre cette épée! »
 
 Le corps de Kunpeng Zi, de la Division Jaune, trembla alors qu'il saisissait précipitamment l'arme. Son cœur débordait d'excitation lorsqu'il répondit: « Merci, Maître! »
 
 L'homme d'âge moyen secoua la tête avec un sourire amer. « Ton attitude n'a toujours pas changé! »
 
-L'Omniscient sourit sans rien répondre. Au lieu de cela, il parcourut les cultivateurs du regard et déclara lentement: « Le Dao que ce vieux va enseigner est le Dao du destin des cieux. Si quiconque a un désaccord, il peut l'exprimer à tout moment afin que nous puissions débattre des fruits de notre Dao! »
+Tian Yunzi sourit sans rien répondre. Au lieu de cela, il parcourut les cultivateurs du regard et déclara lentement: « Le Dao que ce vieux va enseigner est le Dao du destin des cieux. Si quiconque a un désaccord, il peut l'exprimer à tout moment afin que nous puissions débattre des fruits de notre Dao! »
 
-Sur ce, l'Omniscient agita ses manches et s'assit. Au moment où il prit place, un nuage apparut sous lui.
+Sur ce, Tian Yunzi agita ses manches et s'assit. Au moment où il prit place, un nuage apparut sous lui.
 
-L'homme d'âge moyen venu de l'Alliance de Culture s'assit également à ses côtés. Il prêta une attention soutenue à l'Omniscient, se préparant à chercher le Dao. Quant au blaireau à trois yeux, il s'envola de son épaule; il se déplaça plus vite que l'éclair et disparut sans laisser de trace.
+L'homme d'âge moyen venu de l'Alliance de Culture s'assit également à ses côtés. Il prêta une attention soutenue à Tian Yunzi, se préparant à chercher le Dao. Quant au blaireau à trois yeux, il s'envola de son épaule; il se déplaça plus vite que l'éclair et disparut sans laisser de trace.
 
 Les pupilles de Wang Lin se rétractèrent. Une telle vitesse n'était comparable qu'à celle de la lame demi-lunaire à pleine puissance.
 

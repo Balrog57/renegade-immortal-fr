@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 652 - Refining A Celestial Guard
 slug: affiner-un-gardien-celeste
 ---
-« L'Omniscient en robe grise. Intéressant! » Wang Lin afficha un sourire sombre. Il avait fixé son sens divin sur Du Jian depuis un moment, et il ne semblait pas mentir.
+« Tian Yunzi en robe grise. Intéressant! » Wang Lin afficha un sourire sombre. Il avait fixé son sens divin sur Du Jian depuis un moment, et il ne semblait pas mentir.
 
 « Maître, vous avez tellement de secrets... » Les yeux de Wang Lin devinrent froids.
 

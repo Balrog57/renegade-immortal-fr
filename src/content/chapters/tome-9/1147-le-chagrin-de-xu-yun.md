@@ -8,7 +8,7 @@ slug: le-chagrin-de-xu-yun
 ---
 Tenant le petit drapeau doré, Wang Lin ferma lentement les yeux. Son regard brilla tandis qu'il méditait.
 
-« Utiliser des âmes féminines pour nourrir un Yin extrême est une erreur fondamentale! Autrefois, l'Omniscient avait utilisé le corps au Yin extrême de Bai Wei pour le faire passer naturellement au Yang extrême à l'instant où son Yin extrême atteignait son apogée. C'était là la méthode correcte. »
+« Utiliser des âmes féminines pour nourrir un Yin extrême est une erreur fondamentale! Autrefois, Tian Yunzi avait utilisé le corps au Yin extrême de Bai Wei pour le faire passer naturellement au Yang extrême à l'instant où son Yin extrême atteignait son apogée. C'était là la méthode correcte. »
 
 « Pour obtenir un Yin extrême complet, il faut, au sommet du Yang extrême, briser pour mieux établir! »
 

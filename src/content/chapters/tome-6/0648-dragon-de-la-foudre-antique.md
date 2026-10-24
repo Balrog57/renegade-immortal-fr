@@ -88,7 +88,7 @@ Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résist
 
 La majeure partie de sa lumière sanguine s'était déjà dissipée, l'obligeant à écraser sans cesse des jades sanguins pour maintenir sa protection. Sans ce bouclier, il ferait face à une épreuve mortelle au sein de ce filet de foudre, même avec un million de sceaux de vie.
 
-« Autrefois, l'Omniscient en robe grise disait que la défense des sceaux de vie était extrêmement puissante, et c'est vrai face à des sorts ordinaires. Mais face à quelqu'un de plus fort que moi, ce n'est tout simplement pas suffisant! Soit l'Art du Massacre Céleste est imparfait, soit l'Omniscient en robe grise m'a trompé! »
+« Autrefois, Tian Yunzi en robe grise disait que la défense des sceaux de vie était extrêmement puissante, et c'est vrai face à des sorts ordinaires. Mais face à quelqu'un de plus fort que moi, ce n'est tout simplement pas suffisant! Soit l'Art du Massacre Céleste est imparfait, soit Tian Yunzi en robe grise m'a trompé! »
 
 Il aperçut immédiatement la marque entre les sourcils de la seconde âme originelle de Tan Lang!
 

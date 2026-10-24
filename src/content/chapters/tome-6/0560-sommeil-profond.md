@@ -86,7 +86,7 @@ Le temps passa... trois mois... six mois... neuf mois... un an!
 
 Wang Lin avait dormi durant toute cette année, laissant échapper par moments des ronflements. Depuis qu'il avait commencé la culture, il dormait rarement; ce fut là son sommeil le plus long depuis plusieurs centaines d'années!
 
-Bien qu'il dormît, l'énergie spirituelle céleste en lui augmentait sans relâche. Une telle vitesse aurait même stupéfié l'Omniscient s'il avait été témoin de la scène!
+Bien qu'il dormît, l'énergie spirituelle céleste en lui augmentait sans relâche. Une telle vitesse aurait même stupéfié Tian Yunzi s'il avait été témoin de la scène!
 
 Lorsque l'énergie spirituelle céleste atteignit un certain seuil, le cristal démoniaque dans son dantian se brisa et fondit silencieusement. Une énergie spirituelle démoniaque envahit soudainement son corps, mais elle fut aussitôt absorbée par l'énergie céleste, devenant une partie intégrante de lui.
 

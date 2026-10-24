@@ -64,7 +64,7 @@ Alors qu'il fuyait, l'espace derrière lui trembla; il sentait la présence du D
 
 « Pour l'instant, je n'ai d'autre choix que de me diriger vers l'autel. Peut-être pourra-t-il me sauver. Je l'espère! » Wang Lin avait mûrement réfléchi pendant près de quinze minutes avant de décider de pénétrer dans l'illusion du Daoïste aux Sept Couleurs.
 
-Non seulement il avait pesé le gain potentiel face au risque, mais il avait également utilisé l'âme de l'Omniscient pour diviner l'avenir. Il avait découvert que l'autel représentait la voie de la survie!
+Non seulement il avait pesé le gain potentiel face au risque, mais il avait également utilisé l'âme de Tian Yunzi pour diviner l'avenir. Il avait découvert que l'autel représentait la voie de la survie!
 
 Fan Shanlu avait mentionné que cette faille spatiale dans la Mer des Nuages s'était ouverte lors de la bataille où Lian Daofei fut dévoré par le Dao Céleste et où le Souverain Céleste aux Sept Couleurs fut brisé.
 

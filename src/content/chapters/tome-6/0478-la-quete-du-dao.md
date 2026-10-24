@@ -18,9 +18,9 @@ Peu de temps après, Wang Lin atteignit une vaste montagne. Alors qu'il s'apprê
 
 « Étranger, arrête-toi! » Une voix ténue parvint de la distance. C'était une voix neutre, dénuée de toute émotion, rendant impossible la distinction entre un homme et une femme.
 
-Le visage de Wang Lin se fit respectueux. Il joignit les mains et déclara d'une voix forte: « Wang Lin, de la planète Suzaku, vient saluer l'Omniscient. »
+Le visage de Wang Lin se fit respectueux. Il joignit les mains et déclara d'une voix forte: « Wang Lin, de la planète Suzaku, vient saluer Tian Yunzi. »
 
-« Wang Lin, l'honorable Omniscient est déjà informé de ton arrivée. Cependant, pour pénétrer dans la Secte du Destin Céleste, même les disciples ordinaires doivent passer trois épreuves. Oses-tu les accepter? »
+« Wang Lin, l'honorable Tian Yunzi est déjà informé de ton arrivée. Cependant, pour pénétrer dans la Secte du Destin Céleste, même les disciples ordinaires doivent passer trois épreuves. Oses-tu les accepter? »
 
 L'expression de Wang Lin devint très sérieuse. Il ne répondit pas immédiatement, mais demanda: « Quelles sont ces trois épreuves? »
 

@@ -122,7 +122,7 @@ En arrière-plan, des nuages sculptés complétaient la scène. Mais ces nuages 
 
 Lorsque Wang Lin fixa l'homme, il sentit un bourdonnement envahir son esprit et une aura inimaginable percuta son corps.
 
-C'était l'aura la plus puissante que Wang Lin ait jamais ressentie. Que ce soit Qing Shui, Maître Yan Leizi ou même l'Omniscient, leurs auras étaient bien moindres. Même le mystérieux Ancien du troisième pas de Luotian était légèrement moins puissant.
+C'était l'aura la plus puissante que Wang Lin ait jamais ressentie. Que ce soit Qing Shui, Maître Yan Leizi ou même Tian Yunzi, leurs auras étaient bien moindres. Même le mystérieux Ancien du troisième pas de Luotian était légèrement moins puissant.
 
 Cette aura était si colossale qu'elle créait un impact invisible. Un seul regard de Wang Lin suffit à faire trembler son corps et à le faire cracher du sang. Il recula précipitamment, voulant mobiliser son énergie originelle, pour découvrir avec horreur que celle-ci se rétractait. Elle s'était repliée sur elle-même, comme si elle craignait d'apparaître devant une telle puissance!
 

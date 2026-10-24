@@ -12,7 +12,7 @@ Tout en contemplant ce système stellaire inconnu avec un sentiment de familiari
 
 Lorsqu'il était parti, il venait d'atteindre le stade d'Ascendant. À son retour, il atteignait déjà celui du Scruteur du Nirvana.
 
-« Omniscient, Ling Tianhou… Moi, Wang Lin, suis de retour! » Les yeux de Wang Lin brillèrent. Dans son sac, il possédait toujours la clé de la grotte des Terres de l'Esprit Démoniaque; il s'était assuré de la garder en lieu sûr.
+« Tian Yunzi, Ling Tianhou… Moi, Wang Lin, suis de retour! » Les yeux de Wang Lin brillèrent. Dans son sac, il possédait toujours la clé de la grotte des Terres de l'Esprit Démoniaque; il s'était assuré de la garder en lieu sûr.
 
 Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Scruteur du Nirvana et, même dans le système stellaire de Luotian, il suffirait à attirer l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
 

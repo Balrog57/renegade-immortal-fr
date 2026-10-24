@@ -38,7 +38,7 @@ Ses yeux étaient exorbités, ses globes injectés de sang semblaient léthargiq
 
 Il fixait également Wang Lin. Son dernier vestige de mémoire était sa haine et son intention meurtrière envers lui. Le Maître du Vide poussa un rugissement et fonça sur Wang Lin, juste après l'entité humanoïde.
 
-L'Omniscient restait calme, son regard suggérant que tout était limpide et normal. C'était comme si ce voyage dans la Grotte de l'Empereur Céleste était entièrement contenu dans ses calculs.
+Tian Yunzi restait calme, son regard suggérant que tout était limpide et normal. C'était comme si ce voyage dans la Grotte de l'Empereur Céleste était entièrement contenu dans ses calculs.
 
 Ling Tianhou gardait la tête basse, luttant contre lui-même. Son expression était complexe, mêlant hébétude et, par-dessus tout, une profonde culpabilité...
 

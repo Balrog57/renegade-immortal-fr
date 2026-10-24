@@ -36,7 +36,7 @@ Wang Lin ne laissa rien paraître de ses pensées et dit d'un ton lent: « Il n'
 
 « Oh? Se pourrait-il que le Cultivateur craigne que je ne prenne le contrôle du navire une fois que j'aurai compris ses restrictions? » Wang Lin afficha un sourire qui n'en était pas un en fixant Fan Shanmeng.
 
-Wang Lin savait parfaitement ce qu'elle pensait. Durant sa vie, il avait été capable de lire en chacun, à l'exception de l'Omniscient.
+Wang Lin savait parfaitement ce qu'elle pensait. Durant sa vie, il avait été capable de lire en chacun, à l'exception de Tian Yunzi.
 
 Les deux sœurs savaient très bien que le Daoïste aux Sept Couleurs finirait par les poursuivre. Après avoir patienté pour laisser le Daoïste les rattraper, elles s'étaient servies de lui pour attirer Wang Lin vers ce Navire Démon des Âmes.
 

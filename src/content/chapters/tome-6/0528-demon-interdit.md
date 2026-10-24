@@ -54,7 +54,7 @@ D'un seul mot, une rafale de vent fendit le nuage noir, créant une brèche. Dè
 
 Lorsqu'il réapparut, il redoutait davantage l'homme en robe noire. Ce dernier possédait manifestement une multitude de sorts et de trésors qu'il n'avait pas encore dégainés. S'il était parti, c'était sans doute parce qu'il avait été frappé par la renommée de Wang Lin. Il avait probablement entendu dire que Wang Lin, bien qu'ayant perdu un combat face à un cultivateur Ascendant, possédait encore d'innombrables trésors pour se défendre.
 
-« Bien que j'ignore de quelle secte il est issu, sa présence ici signifie qu'il vient de la planète Tian Yun et qu'il sait que les disciples directs de l'Omniscient possèdent un trésor de survie. Ce n'est pas un secret, et avec son intelligence, il a dû y réfléchir longuement. Il a sans doute réalisé que me tuer ne serait pas aisé, et a donc décidé de battre en retraite! »
+« Bien que j'ignore de quelle secte il est issu, sa présence ici signifie qu'il vient de la planète Tian Yun et qu'il sait que les disciples directs de Tian Yunzi possèdent un trésor de survie. Ce n'est pas un secret, et avec son intelligence, il a dû y réfléchir longuement. Il a sans doute réalisé que me tuer ne serait pas aisé, et a donc décidé de battre en retraite! »
 
 « Je ne peux pas le laisser vivre! » Les yeux de Wang Lin devinrent froids et il se lança à la poursuite de l'homme en robe noire.
 

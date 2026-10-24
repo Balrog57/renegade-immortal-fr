@@ -30,7 +30,7 @@ Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats co
 
 « Si la première étape est déjà ainsi, alors la deuxième doit être encore plus ardue. La deuxième étape doit également posséder sa propre épreuve de vie et de mort... Je me demande si je pourrai la réussir... Cependant, celui qui suit la volonté des cieux est semblable à un mortel, tandis que celui qui s'oppose aux cieux est immortel. Tant que mon cœur dao demeure, je peux surmonter tous les dangers! » Les yeux de Wang Lin brillèrent intensément.
 
-« Il existe aussi la troisième étape de la culture. Même des êtres comme l'Omniscient ne l'ont pas atteinte et s'efforcent de la poursuivre. Quel est donc le niveau de cette troisième étape... Comment se comparera-t-elle à un Dieu Ancien... » Une pointe d'anticipation traversa son regard.
+« Il existe aussi la troisième étape de la culture. Même des êtres comme Tian Yunzi ne l'ont pas atteinte et s'efforcent de la poursuivre. Quel est donc le niveau de cette troisième étape... Comment se comparera-t-elle à un Dieu Ancien... » Une pointe d'anticipation traversa son regard.
 
 Cependant, il savait que la troisième étape était encore bien trop lointaine; il se pourrait même qu'il ne puisse en saisir l'essence avant la fin de sa vie.
 

@@ -8,7 +8,7 @@ slug: le-dao-des-reves
 ---
 Cependant, au moment même où ses deux doigts touchèrent le front de Yao Bingyun, Wang Lin s'arrêta brusquement. Il fixa le visage pâle de la jeune femme et médita en silence.
 
-« Dévorer le domaine d'autrui... c'est s'approprier tout leur Dao pour en faire le sien... Pourtant, le Dao des Cieux est infini et les Daos sont illimités. Une fois que j'aurai commencé à dévorer, cela créera un précédent et je devrai sans cesse dévorer d'autres Daos à l'avenir... Par conséquent, je finirai par emprunter le même chemin sans retour que l'Omniscient! »
+« Dévorer le domaine d'autrui... c'est s'approprier tout leur Dao pour en faire le sien... Pourtant, le Dao des Cieux est infini et les Daos sont illimités. Une fois que j'aurai commencé à dévorer, cela créera un précédent et je devrai sans cesse dévorer d'autres Daos à l'avenir... Par conséquent, je finirai par emprunter le même chemin sans retour que Tian Yunzi! »
 
 « Mais si je ne dévore pas, je ne comprendrai pas le karma et celui-ci restera illusoire. Dois-je dévorer... ou... ne pas dévorer? »
 
@@ -16,7 +16,7 @@ Il était rare que Wang Lin hésite aussi longtemps sur une telle question. Ce n
 
 Cette étape était d'une importance capitale, car elle représentait le choix du Dao. Les cultivateurs passent leur existence entière à cultiver le Dao. Le chemin de chaque individu est unique; selon les sentiments et les expériences de chacun, le Dao est en constante évolution. Tout dans ce monde peut être un Dao!
 
-« L'Omniscient a dit qu'il possédait 3 600 incarnations et que chaque incarnation contrôlait un sortilège céleste. À mes yeux, ces 3 600 incarnations signifient qu'il a dévoré 3 600 Daos. Pourtant, après avoir dévoré autant de Daos, il n'a toujours pas atteint la troisième étape après des dizaines de milliers d'années! »
+« Tian Yunzi a dit qu'il possédait 3 600 incarnations et que chaque incarnation contrôlait un sortilège céleste. À mes yeux, ces 3 600 incarnations signifient qu'il a dévoré 3 600 Daos. Pourtant, après avoir dévoré autant de Daos, il n'a toujours pas atteint la troisième étape après des dizaines de milliers d'années! »
 
 « Cependant, si je ne dévore pas, je ne saisirai pas le domaine du karma; il restera vague et incertain. Si je n'ai pas de direction, comment pourrai-je chercher le Dao... »
 

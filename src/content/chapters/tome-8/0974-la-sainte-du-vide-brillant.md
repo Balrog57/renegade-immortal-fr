@@ -6,33 +6,33 @@ bookTitle: "Alliance's Secret"
 en: Chapter 974 - The Saintress of Brilliant Void
 slug: la-sainte-du-vide-brillant
 ---
-Ling Tianhou roula des yeux et ricana sans même accorder un regard à l'Omniscient. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte de l'Épée de Da Luo de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte de l'Épée de Da Luo? »
+Ling Tianhou roula des yeux et ricana sans même accorder un regard à Tian Yunzi. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte de l'Épée de Da Luo de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte de l'Épée de Da Luo? »
 
-L'Omniscient fronça les sourcils.
+Tian Yunzi fronça les sourcils.
 
 Les yeux de Wang Lin s'illuminèrent. Des centaines de pensées traversèrent son esprit avant qu'il ne joigne ses mains et ne dise: « Merci. »
 
-Ling Tianhou regarda l'Omniscient avec un ricanement méprisant. « Omniscient, conformément à notre accord, ce vieil homme a désormais une raison d'intervenir. »
+Ling Tianhou regarda Tian Yunzi avec un ricanement méprisant. « Tian Yunzi, conformément à notre accord, ce vieil homme a désormais une raison d'intervenir. »
 
-Les sourcils de l'Omniscient se détendirent. Après avoir réfléchi un instant, il esquissa un sourire et regarda Wang Lin d'un air profond. Il dit calmement: « Est-ce ainsi? Alors oublions cela. » Il parla avec désinvolture avant de disparaître dans un rayon de lumière aux sept couleurs.
+Les sourcils de Tian Yunzi se détendirent. Après avoir réfléchi un instant, il esquissa un sourire et regarda Wang Lin d'un air profond. Il dit calmement: « Est-ce ainsi? Alors oublions cela. » Il parla avec désinvolture avant de disparaître dans un rayon de lumière aux sept couleurs.
 
-Cette scène fit trembler l'esprit de Wang Lin. Il fixa l'endroit où l'Omniscient avait disparu et commença à méditer.
+Cette scène fit trembler l'esprit de Wang Lin. Il fixa l'endroit où Tian Yunzi avait disparu et commença à méditer.
 
 L'expression de Ling Tianhou devint instantanément sombre et il fronça les sourcils. Finalement, il tapota simplement son sac de rangement et cinq coquilles de tortue apparurent. Elles tournèrent dans sa main tandis que Ling Tianhou exécutait occasionnellement quelques sceaux manuels.
 
-Peu après, l'expression de Ling Tianhou devint encore plus lugubre et il marmonna: « Ce vieux maudit d'Omniscient, qu'est-il en train de manigancer... » Tout en réfléchissant, il leva la tête et regarda Wang Lin.
+Peu après, l'expression de Ling Tianhou devint encore plus lugubre et il marmonna: « Ce vieux maudit d'Tian Yunzi, qu'est-il en train de manigancer... » Tout en réfléchissant, il leva la tête et regarda Wang Lin.
 
-« Si l'Omniscient complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de l'Omniscient! Surtout si l'on considère que cette personne fait partie de la Série de l'Oiseau Vermillon... Le plan de l'Omniscient à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser les Quatre Sectes Divines pour lui seul! »
+« Si Tian Yunzi complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de Tian Yunzi! Surtout si l'on considère que cette personne fait partie de la Série de l'Oiseau Vermillon... Le plan de Tian Yunzi à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser les Quatre Sectes Divines pour lui seul! »
 
-« Si son plan réussit, il pourrait obtenir un pouvoir capable de faire trembler les Quatre Sectes Divines! Si c'est le cas, je dois arrêter ce vieil Omniscient. Sinon, si l'Omniscient triomphe, je n'aurai plus jamais l'espoir de me retourner contre lui de mon vivant! »
+« Si son plan réussit, il pourrait obtenir un pouvoir capable de faire trembler les Quatre Sectes Divines! Si c'est le cas, je dois arrêter ce vieil Tian Yunzi. Sinon, si Tian Yunzi triomphe, je n'aurai plus jamais l'espoir de me retourner contre lui de mon vivant! »
 
 Des pensées fulgurantes traversèrent l'esprit de Ling Tianhou.
 
-« Cependant, si Wang Lin est vraiment si important pour lui, pourquoi est-il parti avec autant de calme... Même le diagramme de divination ne permet pas de dire si cela présage le bien ou le mal. Étrange! » Ling Tianhou laissa échapper un sombre soupir en regardant Wang Lin, puis dit lentement: « Wang Lin, même si je n'étais pas venu t'aider aujourd'hui, l'Omniscient n'aurait pas osé te tuer aussi facilement. Après tout, tu fais partie de la Série de l'Oiseau Vermillon. »
+« Cependant, si Wang Lin est vraiment si important pour lui, pourquoi est-il parti avec autant de calme... Même le diagramme de divination ne permet pas de dire si cela présage le bien ou le mal. Étrange! » Ling Tianhou laissa échapper un sombre soupir en regardant Wang Lin, puis dit lentement: « Wang Lin, même si je n'étais pas venu t'aider aujourd'hui, Tian Yunzi n'aurait pas osé te tuer aussi facilement. Après tout, tu fais partie de la Série de l'Oiseau Vermillon. »
 
-Wang Lin réfléchissait sans relâche à la relation entre Ling Tianhou et l'Omniscient. À cet instant, il joignit ses mains: « Il y a trois personnes dans la Série de l'Oiseau Vermillon, et je ne suis que l'une d'entre elles. En bref, ce junior se souviendra de l'aide du Saint de l'Épée! »
+Wang Lin réfléchissait sans relâche à la relation entre Ling Tianhou et Tian Yunzi. À cet instant, il joignit ses mains: « Il y a trois personnes dans la Série de l'Oiseau Vermillon, et je ne suis que l'une d'entre elles. En bref, ce junior se souviendra de l'aide du Saint de l'Épée! »
 
-Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oiseau Vermillon a atteint le Dao, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de l'Oiseau Vermillon et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieil Omniscient. »
+Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oiseau Vermillon a atteint le Dao, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de l'Oiseau Vermillon et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieil Tian Yunzi. »
 
 L'expression de Wang Lin resta calme: « Le Saint de l'Épée est trop aimable. Puisqu'il en est ainsi, je suivrai les conseils du Saint de l'Épée. »
 
@@ -48,9 +48,9 @@ Tout au long du trajet, bien que Wang Lin parlât peu, ses paroles suscitaient l
 
 « Ce Wang Lin est bel et bien digne de faire partie de la Série de l'Oiseau Vermillon. Non seulement sa culture est puissante, mais son intuition et sa compréhension sont tout aussi stupéfiantes! »
 
-Pendant qu'ils parlaient, Wang Lin réfléchissait également à la question du Yang Extrême et élaborait un plan. Il médita longtemps sans parvenir à comprendre pourquoi l'Omniscient avait renoncé si calmement.
+Pendant qu'ils parlaient, Wang Lin réfléchissait également à la question du Yang Extrême et élaborait un plan. Il médita longtemps sans parvenir à comprendre pourquoi Tian Yunzi avait renoncé si calmement.
 
-Cependant, il avait la vague intuition que l'action de l'Omniscient ne lui était pas directement destinée... Mais... Wang Lin jeta un regard vers Ling Tianhou, à ses côtés.
+Cependant, il avait la vague intuition que l'action de Tian Yunzi ne lui était pas directement destinée... Mais... Wang Lin jeta un regard vers Ling Tianhou, à ses côtés.
 
 « Est-ce que ce Ling Tianhou était... »
 
@@ -76,11 +76,11 @@ C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que 
 
 « Dans le Système Stellaire de l'Alliance, lorsqu'une personne atteint un certain niveau de culture, elle peut ne pas respecter l'Alliance de Culture. Cependant, cette personne respectera toujours sincèrement la Secte de Culture du Vide Brillant! C'est un honneur d'être invité par eux! »
 
-« Tous les 3 000 ans, la Secte de Culture du Vide Brillant envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans le domaine du Vide Brillant pour y cultiver... À l'époque, l'Omniscient et moi avions reçu nos invitations ensemble... »
+« Tous les 3 000 ans, la Secte de Culture du Vide Brillant envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans le domaine du Vide Brillant pour y cultiver... À l'époque, Tian Yunzi et moi avions reçu nos invitations ensemble... »
 
 « Vide Brillant... » Wang Lin digéra silencieusement les paroles de Ling Tianhou. Un instant plus tard, ses yeux s'illuminèrent: « Puisque des gens y entrent tous les 3 000 ans, je suppose que des membres de la Secte de Culture du Vide Brillant en sortent aussi... »
 
-« Bien sûr qu'il y a des gens qui en sortent. Te souviens-tu de la femme qui ressemblait à une mortelle lors de ton retour? À l'époque, la troisième personne qui accompagnait l'Omniscient et moi était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte de Culture du Vide Brillant. »
+« Bien sûr qu'il y a des gens qui en sortent. Te souviens-tu de la femme qui ressemblait à une mortelle lors de ton retour? À l'époque, la troisième personne qui accompagnait Tian Yunzi et moi était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte de Culture du Vide Brillant. »
 
 Wang Lin fut stupéfait. La première personne à laquelle il pensa fut la femme en rose qui l'avait invité.
 
@@ -104,7 +104,7 @@ Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Se
 
 Wang Lin ne chercha pas à le cacher et hocha la tête: « C'est effectivement étrange. »
 
-« Les disciples des sept divisions de la Secte du Destin Céleste répriment leur culture chaque jour, car ils craignent que s'ils perdent le contrôle de leurs sceaux, ils soient dévorés d'une bouchée par ce vieil Omniscient. Ce n'est pas le cas ici; c'est simplement que ceux qui ont atteint la deuxième étape ont un autre endroit où aller. »
+« Les disciples des sept divisions de la Secte du Destin Céleste répriment leur culture chaque jour, car ils craignent que s'ils perdent le contrôle de leurs sceaux, ils soient dévorés d'une bouchée par ce vieil Tian Yunzi. Ce n'est pas le cas ici; c'est simplement que ceux qui ont atteint la deuxième étape ont un autre endroit où aller. »
 
 Chacun des dizaines de milliers de cultivateurs en dessous portait une grande épée dans le dos. Ils étaient tous très respectueux. Lorsque Wang Lin et Ling Tianhou descendirent, ils s'inclinèrent tous à l'unisson.
 

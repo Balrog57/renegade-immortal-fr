@@ -32,33 +32,33 @@ Un instant plus tard, plusieurs silhouettes jaillirent de la lumière émeraude.
 
 Les neuf anciens de la Secte Divine du Dragon Azure se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête: « Nous obéirons aux ordres de l'Empereur Divin de l'Oiseau Vermillon! »
 
-Quant à ce qui se tramait dans la Terre des Esprits Démoniaques, grâce à l'autodestruction de l'un des six anciens de la Secte Divine de l'Oiseau Vermillon, Wang Lin avait pu échapper à l'Omniscient. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
+Quant à ce qui se tramait dans la Terre des Esprits Démoniaques, grâce à l'autodestruction de l'un des six anciens de la Secte Divine de l'Oiseau Vermillon, Wang Lin avait pu échapper à Tian Yunzi. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
 
 Au loin, les cinq autres anciens de la Secte Divine de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas au sommet du stade de Briseur du Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter l'Ancien Démon Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
 
 Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par la Secte Divine de l'Oiseau Vermillon durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Vide du Nirvana, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale des Fleurs qui avait contourné la créature humanoïde pour se joindre au combat contre l'Ancien Démon, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
 
-L'expression de l'Omniscient demeurait sereine. Après avoir arraché la marque entre ses sourcils, une aura puissante émanait de lui. Il s'approcha lentement de Wang Lin.
+L'expression de Tian Yunzi demeurait sereine. Après avoir arraché la marque entre ses sourcils, une aura puissante émanait de lui. Il s'approcha lentement de Wang Lin.
 
-« Mourir par ma main alors que je suis au stade du Fléau Céleste... tu pourras en rire en enfer. » L'Omniscient fit un pas et une tempête éclata. Avant même qu'il ne soit à portée, l'ouragan balaya Wang Lin. C'était comme si des lames lacéraient son corps dans un crépitement de déchirures, projetant Wang Lin en arrière.
+« Mourir par ma main alors que je suis au stade du Fléau Céleste... tu pourras en rire en enfer. » Tian Yunzi fit un pas et une tempête éclata. Avant même qu'il ne soit à portée, l'ouragan balaya Wang Lin. C'était comme si des lames lacéraient son corps dans un crépitement de déchirures, projetant Wang Lin en arrière.
 
 Wang Lin cracha une gorgée de sang, le visage empreint d'une férocité sauvage. Durant toute sa vie de culture, si ce n'était sa lutte acharnée et sa résilience, il serait déjà mort bien des fois.
 
-Le sang perlant encore au coin de ses lèvres, il frappa son sac de rangement, faisant surgir des dizaines d'épées volantes. Dans un rugissement, il les pointa vers l'Omniscient pour qu'elles s'élancent toutes d'un coup. Simultanément, Wang Lin sortit le troisième Char de Guerre Divin!
+Le sang perlant encore au coin de ses lèvres, il frappa son sac de rangement, faisant surgir des dizaines d'épées volantes. Dans un rugissement, il les pointa vers Tian Yunzi pour qu'elles s'élancent toutes d'un coup. Simultanément, Wang Lin sortit le troisième Char de Guerre Divin!
 
 Dès son apparition, le charriot se mua en papillon et, d'un battement d'ailes, fit surgir les lois de l'univers.
 
-L'Omniscient restait impassible, ses pas ne ralentissant pas. Face à la nuée d'épées, il ne fit que remuer légèrement les lèvres, comme s'il récitait une incantation.
+Tian Yunzi restait impassible, ses pas ne ralentissant pas. Face à la nuée d'épées, il ne fit que remuer légèrement les lèvres, comme s'il récitait une incantation.
 
 Soudain, les dizaines d'épées se figèrent en plein vol avant qu'un fracas tonnerre ne retentisse. Toutes les lames volèrent en éclats et les fragments furent projetés vers Wang Lin.
 
-Sous l'effet d'un sort inconnu lancé par l'Omniscient, ces débris se rejoignirent pour former un dragon. Ce dragon, recouvert de fragments d'acier acérés, chargea droit sur Wang Lin, mais il percuta le papillon.
+Sous l'effet d'un sort inconnu lancé par Tian Yunzi, ces débris se rejoignirent pour former un dragon. Ce dragon, recouvert de fragments d'acier acérés, chargea droit sur Wang Lin, mais il percuta le papillon.
 
 Le papillon battit des ailes et un craquement strident émana du dragon. Le son était atroce, semblable au frottement de milliers de pièces métalliques. En un instant, le dragon vola de nouveau en éclats, se transformant en une poussière dispersée par le vent.
 
 Cette scène glaça le sang de Wang Lin. C'était la première fois qu'il se retrouvait face à une puissance dont il ne pouvait même pas identifier le sort, le portant presque à la mort. S'il n'avait pas sorti le Char de Guerre Divin assez promptement, il aurait été pris au dépourvu.
 
-Le papillon battit des ailes et un vent invisible imprégné de lois fut projeté vers l'Omniscient. Pourtant, ce dernier ne cilla pas devant l'apparition du papillon et se contenta de réciter une nouvelle incantation.
+Le papillon battit des ailes et un vent invisible imprégné de lois fut projeté vers Tian Yunzi. Pourtant, ce dernier ne cilla pas devant l'apparition du papillon et se contenta de réciter une nouvelle incantation.
 
 Des explosions dévastatrices secouèrent le papillon tandis que des ondes de choc se propageaient en cercles concentriques. L'artefact trembla, montrant des signes d'effondrement imminent.
 
@@ -66,50 +66,50 @@ Le visage de Wang Lin trahissait un combat intérieur acharné; il forma un scea
 
 Le papillon trembla et battit des ailes une ultime fois. Quatre pétales incomplets apparurent au-dessus de lui et, portés par le mouvement des ailes, ils glissèrent vers l'avant.
 
-L'Omniscient eut un léger mouvement de surprise, puis leva la main droite dans un geste sec.
+Tian Yunzi eut un léger mouvement de surprise, puis leva la main droite dans un geste sec.
 
 Une multitude de fragments apparurent dans le vide devant lui, comme s'il avait brisé le ciel d'un revers de main. Ces débris fondirent sur Wang Lin.
 
 Bien que les quatre pétales fussent déployés, ils n'eurent pas le temps de manifester leur véritable puissance avant que les fragments ne balayent Wang Lin et ne fassent disparaître l'artefact.
 
-C’est à cet instant précis que l'Omniscient fondit sur lui. Toujours d'un calme olympien, il leva son index droit et pointa impitoyablement le milieu du front de Wang Lin!
+C’est à cet instant précis que Tian Yunzi fondit sur lui. Toujours d'un calme olympien, il leva son index droit et pointa impitoyablement le milieu du front de Wang Lin!
 
 Si ce doigt atteignait sa cible, même le corps divin ancestral de Wang Lin s'effondrerait instantanément, et son âme originelle, déjà affaiblie, s'évanouirait à jamais. Ce jour-là, il n'y aurait plus personne nommé Wang Lin!
 
-La puissance de l'Omniscient pesait sur lui comme une montagne titanesque. Inconsciemment, Wang Lin sentit qu'il était incapable de résister; même en tentant de lutter, il ne pourrait franchir cet obstacle insurmontable.
+La puissance de Tian Yunzi pesait sur lui comme une montagne titanesque. Inconsciemment, Wang Lin sentit qu'il était incapable de résister; même en tentant de lutter, il ne pourrait franchir cet obstacle insurmontable.
 
 Cependant, Wang Lin réprima ce sentiment dès qu'il pointa le bout de son nez!
 
-« Je ne l'accepterai pas! » La voix de Wang Lin résonna dans un rugissement de folie pure. Alors que le doigt de l'Omniscient s'abattait, Wang Lin sortit une gaine d'épée de son sac et la brandit devant lui.
+« Je ne l'accepterai pas! » La voix de Wang Lin résonna dans un rugissement de folie pure. Alors que le doigt de Tian Yunzi s'abattait, Wang Lin sortit une gaine d'épée de son sac et la brandit devant lui.
 
-En un instant, l'index de l'Omniscient percuta la gaine.
+En un instant, l'index de Tian Yunzi percuta la gaine.
 
 Un bruit assourdissant fit trembler les cieux et des fissures apparurent sur la gaine. Bien qu'elle ne se soit pas brisée, la force du choc projeta Wang Lin au loin.
 
 Il cracha un torrent de sang. Sa vision se brouilla et son âme originelle fut presque déchirée en morceaux. Il sentait son être s'effriter; à cet instant, seule sa volonté farouche de ne pas céder et son désir de défier les cieux le maintenaient debout!
 
-L'Omniscient marqua un temps d'arrêt. Malgré son apparente sérénité, la force de recul de la gaine l'avait surpris. Une intention meurtrière étincela dans ses yeux; il fit un pas et sembla se téléporter devant Wang Lin.
+Tian Yunzi marqua un temps d'arrêt. Malgré son apparente sérénité, la force de recul de la gaine l'avait surpris. Une intention meurtrière étincela dans ses yeux; il fit un pas et sembla se téléporter devant Wang Lin.
 
 Il leva sa main droite, prêt à porter un coup fatal.
 
 Mais à cet instant précis, une intention de meurtre fulgurante jaillit des profondeurs de la Terre des Esprits Démoniaques. Le sol explosa et une ombre couverte de tatouages surgit des entrailles de la terre.
 
-Cette silhouette était plusieurs fois plus rapide que l'Omniscient. Elle fendit l'air comme un éclair de tonnerre, tandis qu'un rugissement lugubre déchirait le monde:
+Cette silhouette était plusieurs fois plus rapide que Tian Yunzi. Elle fendit l'air comme un éclair de tonnerre, tandis qu'un rugissement lugubre déchirait le monde:
 
 « Quiconque blesse mon seigneur sera l'ennemi mortel de Ta Shan! »
 
-Au moment où la paume de l'Omniscient descendait, l'ombre lança un talisman en peau animale qui se consuma en fumée. Cette fumée conféra à l'ombre une célérité multipliée par plusieurs et, en un éclair, elle s'interposa devant Wang Lin pour bloquer l'attaque.
+Au moment où la paume de Tian Yunzi descendait, l'ombre lança un talisman en peau animale qui se consuma en fumée. Cette fumée conféra à l'ombre une célérité multipliée par plusieurs et, en un éclair, elle s'interposa devant Wang Lin pour bloquer l'attaque.
 
 Un fracas tonnerre retentit alors que l'homme tatoué reculait, portant Wang Lin dans ses bras, tout en crachant du sang. De nombreux tatouages sur son corps s'effacèrent sous le choc, mais son expression restait féroce.
 
 La fumée entourant son corps fut rapidement absorbée pour le guérir, et une partie de cette essence pénétra également le corps de Wang Lin.
 
-Au même moment, le cri déchirant de Da Tou retentit. Son corps avait été détruit par l'avatar de l'Omniscient et son âme originelle était gravement endommagée; il était sur le point de s'éteindre.
+Au même moment, le cri déchirant de Da Tou retentit. Son corps avait été détruit par l'avatar de Tian Yunzi et son âme originelle était gravement endommagée; il était sur le point de s'éteindre.
 
-C'est alors que Lei Ji, déjà gravement blessé, poussa un rugissement. Se trouvant à proximité, il se précipita devant Da Tou pour intercepter l'attaque de l'avatar de l'Omniscient.
+C'est alors que Lei Ji, déjà gravement blessé, poussa un rugissement. Se trouvant à proximité, il se précipita devant Da Tou pour intercepter l'attaque de l'avatar de Tian Yunzi.
 
 Boum!
 
-Le corps de Lei Ji s'effondra et son âme originelle faillit se dissiper. Maître Fu Fengzi agita ses manches pour recueillir l'âme originelle de Lei Ji, mais au prix d'une épée de l'un des avatars de l'Omniscient qui lui transperça la poitrine.
+Le corps de Lei Ji s'effondra et son âme originelle faillit se dissiper. Maître Fu Fengzi agita ses manches pour recueillir l'âme originelle de Lei Ji, mais au prix d'une épée de l'un des avatars de Tian Yunzi qui lui transperça la poitrine.
 
 Maître Fu Fengzi cracha du sang et recula avec un sourire amer, avant de se précipiter vers les deux frères Chen, également grièvement blessés.

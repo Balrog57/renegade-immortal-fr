@@ -18,7 +18,7 @@ Wang Lin cultiva un instant avant d'ouvrir les yeux, dont le regard brillait d'u
 
 « Secte de la Grande Âme... » Wang Lin retourna sa main droite et une pierre de jade violette apparut. Ce jade dégageait une aura antique mêlée à une trace de décomposition.
 
-« Le Dao de l'Œil de l'Âme... La personne que je connaissais et qui excellait dans la divination était l'Omniscient! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar de l'Omniscient pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
+« Le Dao de l'Œil de l'Âme... La personne que je connaissais et qui excellait dans la divination était Tian Yunzi! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar de Tian Yunzi pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
 
 « Désormais, avec le Dao de l'Œil de l'Âme, je dois l'apprendre; sinon, il me sera difficile d'évoluer sur le continent Astral Immortel... Plus important encore, cela m'aidera à me dissimuler et rendra mon destin bien plus difficile à calculer pour autrui... » Songea Wang Lin tandis que son sens divin pénétrait dans le jade qu'il tenait.
 

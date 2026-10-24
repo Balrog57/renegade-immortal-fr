@@ -100,6 +100,6 @@ Après un temps indéterminé, alors qu'il ne lui restait plus que la pilule de 
 
 « Cependant, les bêtes restent des bêtes. Leur façon de comprendre la Voie n'est pas directe et on ne peut pas remonter clairement jusqu'à l'origine, à moins que... nous ne raffinions une pilule avec l'âme d'un être humain ou l'âme de quelque chose ayant transcendé sa nature animale. Ce n'est qu'alors que l'illumination serait plus claire. Sinon, il faut avaler de grandes quantités de pilules pour trouver la Voie juste qui permettra de confirmer la sienne. »
 
-« La Voie est comme une pensée, et les pensées de chacun sont différentes. Si l'on veut enrichir son propre esprit, on doit aussi apprendre les pensées d'autrui. La Mer des Nuages a choisi d'utiliser les âmes de bêtes... Tout comme l'Omniscient a choisi d'utiliser ses propres disciples... »
+« La Voie est comme une pensée, et les pensées de chacun sont différentes. Si l'on veut enrichir son propre esprit, on doit aussi apprendre les pensées d'autrui. La Mer des Nuages a choisi d'utiliser les âmes de bêtes... Tout comme Tian Yunzi a choisi d'utiliser ses propres disciples... »
 
 Alors que Wang Lin était plongé dans ses réflexions, des rayons de lumière volèrent vers le continent de Mo Luo. Les cultivateurs de la région de rang 6 avaient étendu leurs recherches et atteignaient désormais le continent de Mo Luo. Ils franchirent la barrière protectrice!

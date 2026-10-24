@@ -24,7 +24,7 @@ Les douze personnes s'engouffrèrent dans l'ouverture et, alors que le dernier f
 
 Tan Lang avait déjà disparu. Son ombre s'était transformée en ce dernier rayon d'énergie d'épée et avait disparu dans la porte de la Mer des Esprits Démoniaques de l'Est aux côtés des Douze Épées.
 
-Le regard de l'Omniscient restait calme; il lança un regard éloquent à Ling Tianhou et déclara: « Disciples de la Secte du Destin Céleste, entrez! »
+Le regard de Tian Yunzi restait calme; il lança un regard éloquent à Ling Tianhou et déclara: « Disciples de la Secte du Destin Céleste, entrez! »
 
 Aux côtés de Wang Lin, les neuf autres répondirent d'une même voix. Ils se levèrent immédiatement et s'envolèrent vers l'entrée.
 
@@ -46,11 +46,11 @@ Tous ces individus étaient des vieux monstres célèbres dotés de hauts niveau
 
 Cette affaire touchait à un grand secret de la planète Tian Yun. Un silence pesant régnait; personne n'osait parler.
 
-Les yeux du Saint de l'Épée Ling Tianhou se plissèrent tandis qu'il fixait l'Omniscient et s'écria: « Omniscient, l'objet dans ce dernier rayon de lumière rouge était un jeton! »
+Les yeux du Saint de l'Épée Ling Tianhou se plissèrent tandis qu'il fixait Tian Yunzi et s'écria: « Tian Yunzi, l'objet dans ce dernier rayon de lumière rouge était un jeton! »
 
-L'Omniscient garda son calme. Il regarda le Saint de l'Épée, puis ses vieux compagnons environnants, avant d'esquisser un léger sourire: « C'est exact. C'est un jeton, et c'est le troisième! Je ne pensais pas que l'ouverture de la Mer des Esprits Démoniaques de l'Est apporterait le jeton que nous attendions tous. Maintenant qu'il se trouve à l'intérieur, nous n'avons plus à nous inquiéter. La Mer des Esprits Démoniaques de l'Est ne s'ouvre que tous les 5 000 ans, et les disciples y effectuent leurs épreuves pendant 500 ans. Par conséquent, nous nous retrouverons ici dans 200 ans pour y pénétrer à nouveau. Je présume que chacun est au courant des événements passés, j'espère donc que vous serez prêts. Je pense que 200 ans suffiront amplement à tout le monde pour se préparer pleinement! »
+Tian Yunzi garda son calme. Il regarda le Saint de l'Épée, puis ses vieux compagnons environnants, avant d'esquisser un léger sourire: « C'est exact. C'est un jeton, et c'est le troisième! Je ne pensais pas que l'ouverture de la Mer des Esprits Démoniaques de l'Est apporterait le jeton que nous attendions tous. Maintenant qu'il se trouve à l'intérieur, nous n'avons plus à nous inquiéter. La Mer des Esprits Démoniaques de l'Est ne s'ouvre que tous les 5 000 ans, et les disciples y effectuent leurs épreuves pendant 500 ans. Par conséquent, nous nous retrouverons ici dans 200 ans pour y pénétrer à nouveau. Je présume que chacun est au courant des événements passés, j'espère donc que vous serez prêts. Je pense que 200 ans suffiront amplement à tout le monde pour se préparer pleinement! »
 
-Une fois son discours achevé, l'Omniscient joignit les mains en signe de salut envers l'assemblée, puis, d'un revers de manche, il fit un pas dans le vide. Son corps disparut lentement dans le néant.
+Une fois son discours achevé, Tian Yunzi joignit les mains en signe de salut envers l'assemblée, puis, d'un revers de manche, il fit un pas dans le vide. Son corps disparut lentement dans le néant.
 
 Le Saint de l'Épée Ling Tianhou laissa échapper un grognement. Il se retourna pour lancer un dernier regard significatif à la Mer des Esprits Démoniaques de l'Est avant de s'élancer sur un rayon d'énergie d'épée et de disparaître.
 
@@ -68,9 +68,9 @@ Ling Tianhou se déplaçait à une vitesse fulgurante, traversant l'atmosphère 
 
 « Je dois utiliser ces 200 ans pour perfectionner l'Épée Céleste. Je vais fusionner neuf esprits de bêtes démoniaques en un seul afin d'affiner cette épée céleste et d'en faire une épée démoniaque. À ce moment-là, mes chances d'obtenir le jeton seront doublées. » Les yeux du Saint de l'Épée s'illuminèrent alors qu'il disparaissait dans son pavillon personnel.
 
-Quant à l'Omniscient, dès son retour sur la planète Tian Yun, il entra dans la tour aux sept couleurs située au sommet du pic aux trois couleurs. Il s'assit à l'intérieur, entouré de plusieurs os de bêtes noires. Ces ossements étaient d'une lissité et d'un éclat extrêmes, dégageant une aura maléfique.
+Quant à Tian Yunzi, dès son retour sur la planète Tian Yun, il entra dans la tour aux sept couleurs située au sommet du pic aux trois couleurs. Il s'assit à l'intérieur, entouré de plusieurs os de bêtes noires. Ces ossements étaient d'une lissité et d'un éclat extrêmes, dégageant une aura maléfique.
 
-« Mon disciple Wang Lin est un homme de grande fortune... Je me demande simplement quelle part de cette fortune lui reste... » L'expression de l'Omniscient demeura impassible tandis que sa main droite s'étendait pour attirer les os vers sa paume, avant de les disperser à nouveau sur le sol.
+« Mon disciple Wang Lin est un homme de grande fortune... Je me demande simplement quelle part de cette fortune lui reste... » L'expression de Tian Yunzi demeura impassible tandis que sa main droite s'étendait pour attirer les os vers sa paume, avant de les disperser à nouveau sur le sol.
 
 Ses yeux brillèrent. Il examina attentivement les ossements et un léger sourire finit par se dessiner sur ses lèvres.
 

@@ -26,23 +26,23 @@ Ce courant sous-jacent se propageait à travers toute la Mer des Nuages.
 
 Sur le continent de Mo Luo, tous les disciples de la Secte de l'Origine emballaient précipitamment leurs affaires sur ordre de Lu Yanfei. Il leur avait fallu trois jours pour tout ranger. Ils étaient désormais prêts à quitter cette région de rang 5 où ils avaient vécu d'innombrables années pour rejoindre le nouveau siège de la Secte de l'Origine, préparé par la Secte Éternelle dans la région de rang 7.
 
-Wang Lin était assis dans une pièce secrète de la Secte de l'Origine. Son esprit était fusionné avec l'âme de l'Omniscient, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu l'Omniscient lui-même.
+Wang Lin était assis dans une pièce secrète de la Secte de l'Origine. Son esprit était fusionné avec l'âme de Tian Yunzi, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu Tian Yunzi lui-même.
 
 Tout dans le monde semblait lui être connu, mais ce n'était qu'une apparence!
 
-Après s'être fusionné avec l'âme de l'Omniscient, Wang Lin s'assit et ses mains formèrent un sceau. Son esprit se projeta dans le ciel et il commença à fusionner avec les cieux. Il lui fallut une journée entière pour atteindre ce point où il était les cieux, et les cieux étaient lui.
+Après s'être fusionné avec l'âme de Tian Yunzi, Wang Lin s'assit et ses mains formèrent un sceau. Son esprit se projeta dans le ciel et il commença à fusionner avec les cieux. Il lui fallut une journée entière pour atteindre ce point où il était les cieux, et les cieux étaient lui.
 
-Dans cet état de fusion, l'âme originelle de Wang Lin semblait quitter son corps pour se fondre dans le monde. Cela permit à sa propre âme et à celle de l'Omniscient d'atteindre un niveau de fusion sans précédent.
+Dans cet état de fusion, l'âme originelle de Wang Lin semblait quitter son corps pour se fondre dans le monde. Cela permit à sa propre âme et à celle de Tian Yunzi d'atteindre un niveau de fusion sans précédent.
 
 Inséparables!
 
-S'il s'était contenté d'utiliser le sort d'attaque de l'Omniscient, Wang Lin n'aurait pas eu besoin de fusionner aussi profondément. Cependant, il ne cherchait pas à attaquer; il comptait sur l'âme de l'Omniscient pour prédire l'avenir et trouver la racine de ce qui le terrifiait tant.
+S'il s'était contenté d'utiliser le sort d'attaque de Tian Yunzi, Wang Lin n'aurait pas eu besoin de fusionner aussi profondément. Cependant, il ne cherchait pas à attaquer; il comptait sur l'âme de Tian Yunzi pour prédire l'avenir et trouver la racine de ce qui le terrifiait tant.
 
-Pourtant, ce genre de prédiction était trop ardu pour lui. Après tout, il n'était pas l'Omniscient, et n'utilisait qu'une infime partie des capacités originales de l'âme de l'Omniscient pour forcer la vision du futur.
+Pourtant, ce genre de prédiction était trop ardu pour lui. Après tout, il n'était pas Tian Yunzi, et n'utilisait qu'une infime partie des capacités originales de l'âme de Tian Yunzi pour forcer la vision du futur.
 
 À cet instant, dans son esprit, ses yeux étaient voilés par un brouillard infini, l'empêchant de voir quoi que ce soit. C'était comme si une force enveloppait le monde, lui refusant l'accès à la cause profonde.
 
-Mais Wang Lin n'abandonna pas; toute son énergie originelle s'agita, le faisant fusionner davantage avec l'Omniscient. À mesure que leur intégration s'approfondissait, il semblait oublier certaines choses.
+Mais Wang Lin n'abandonna pas; toute son énergie originelle s'agita, le faisant fusionner davantage avec Tian Yunzi. À mesure que leur intégration s'approfondissait, il semblait oublier certaines choses.
 
 Il oublia qu'il cultivait et qu'il se trouvait à la Secte de l'Origine, dans la Mer des Nuages. À cet instant, il oublia tout!
 
@@ -62,7 +62,7 @@ Wang Lin ouvrit soudainement les yeux, le visage instantanément livide.
 
 Wang Lin leva les yeux vers le ciel. Son regard semblait pouvoir percer la chambre pour atteindre l'immensité au-dessus de Mo Luo. En ce moment, le ciel était clair et ensoleillé.
 
-« Fusionner avec l'âme de l'Omniscient pour voir l'avenir est ma limite, mais je refuse de m'avouer vaincu. Je veux le revoir! »
+« Fusionner avec l'âme de Tian Yunzi pour voir l'avenir est ma limite, mais je refuse de m'avouer vaincu. Je veux le revoir! »
 
 Tout en réfléchissant, Wang Lin laissa échapper un reniflement froid, puis sa main droite forma un sceau qu'il plaça entre ses sourcils. Il ouvrit la bouche pour cracher une lueur spectrale qui se transforma en Sceau Céleste devant lui!
 
@@ -70,19 +70,19 @@ Le Sceau Céleste tourna frénétiquement. Les gémissements qui s'en échappaie
 
 Les mains de Wang Lin formèrent un nouveau sceau qu'il apposa sur le Sceau Céleste. Celui-ci trembla immédiatement et se mit à briller, illuminant totalement la pièce sombre.
 
-Dans cette lueur spectrale, l'âme de l'Omniscient s'avança et se tint devant Wang Lin.
+Dans cette lueur spectrale, l'âme de Tian Yunzi s'avança et se tint devant Wang Lin.
 
 « Arsenal Magique, Retour d'Âme, Cieux et Terre sont sans limites, Accueille le Tribut du Ciel! » Wang Lin récitait rarement le chant complet lorsqu'il utilisait des sorts. Cependant, la technique qu'il tentait de déployer était d'une puissance inouïe; c'était une intention du Dao profonde au sein même de l'Arsenal Magique!
 
-Dès qu'il eut prononcé le chant, les yeux de l'âme de l'Omniscient brillèrent intensément et il avança. Il traversa Wang Lin et sembla se superposer à lui!
+Dès qu'il eut prononcé le chant, les yeux de l'âme de Tian Yunzi brillèrent intensément et il avança. Il traversa Wang Lin et sembla se superposer à lui!
 
-À cet instant, l'âme de l'Omniscient se retourna pour faire face à la même direction que Wang Lin, et s'assit!
+À cet instant, l'âme de Tian Yunzi se retourna pour faire face à la même direction que Wang Lin, et s'assit!
 
-C'était comme si l'âme de l'Omniscient était devenue l'âme originelle de Wang Lin. À ce moment précis, son âme originelle semblait ne faire qu'un avec lui!
+C'était comme si l'âme de Tian Yunzi était devenue l'âme originelle de Wang Lin. À ce moment précis, son âme originelle semblait ne faire qu'un avec lui!
 
-Ce n'était plus la simple fusion où l'esprit de Wang Lin pénétrait le Sceau Céleste, mais une intégration totale! Dès que l'âme de l'Omniscient s'assit et se superposa à lui, il devint impossible de les distinguer!
+Ce n'était plus la simple fusion où l'esprit de Wang Lin pénétrait le Sceau Céleste, mais une intégration totale! Dès que l'âme de Tian Yunzi s'assit et se superposa à lui, il devint impossible de les distinguer!
 
-Son corps semblait changer radicalement; il devenait parfois l'Omniscient, tantôt lui-même.
+Son corps semblait changer radicalement; il devenait parfois Tian Yunzi, tantôt lui-même.
 
 À cet instant, Wang Lin ferma les yeux et son esprit vacilla. Le brouillard infini réapparut, encore plus puissant qu'auparavant. Un vortex tournait à toute vitesse et, alors que Wang Lin rugissait, le vortex s'effondra et le brouillard se dispersa une fois de plus!
 
@@ -108,7 +108,7 @@ Les images se succédèrent, toutes différentes. On y voyait Wang Lin tentant d
 
 Wang Lin ouvrit soudainement les yeux et fixa l'horizon. Une sueur froide coulait sur son front et sur son corps; en un court instant, il était trempé.
 
-« Mort! Mort! Mort! Grâce au sort de l'Omniscient, j'ai percé à travers des milliers de futurs possibles, mais je n'en ai survécu aucun. Peu importe les circonstances, je vais mourir! » Les yeux de Wang Lin étaient empreints de folie, mais plus encore d'un sentiment de refus absolu!
+« Mort! Mort! Mort! Grâce au sort de Tian Yunzi, j'ai percé à travers des milliers de futurs possibles, mais je n'en ai survécu aucun. Peu importe les circonstances, je vais mourir! » Les yeux de Wang Lin étaient empreints de folie, mais plus encore d'un sentiment de refus absolu!
 
 Il était certain que le départ de Li Qianmei était lié à lui. Le départ de Mu Bingmei était lié à lui! L'annulation de la compétition de rang 8 était liée à lui!!
 

@@ -110,7 +110,7 @@ Wang Lin fit soudainement volte-face, un éclat froid dans les yeux. Il leva sa 
 
 Dès sa destruction, la lumière aux sept couleurs du monde fulgura violemment et des ondulations résonnèrent. Cette clarté se rassembla rapidement au sein de l'onde jusqu'à former un doigt gigantesque!
 
-« Le Doigt du Destin Céleste! » Cet endroit était bel et bien lié à l'Omniscient! En voyant ce doigt colossal dans le ciel, les pupilles de Wang Lin se contractèrent.
+« Le Doigt du Destin Céleste! » Cet endroit était bel et bien lié à Tian Yunzi! En voyant ce doigt colossal dans le ciel, les pupilles de Wang Lin se contractèrent.
 
 Le doigt semblait avoir absorbé la majeure partie de la lumière céleste, plongeant le ciel dans la pénombre. Un rugissement de tonnerre retentit alors qu'il descendait sur l'échappée de Wang Lin, comme pour l'écraser!
 

@@ -100,4 +100,4 @@ Dans un fracas violent, le corps de Wang Lin trembla. Lorsqu'il baissa la tête,
 
 Il connaissait cet homme!
 
-« Omniscient!! C'était bien vous!! »
+« Tian Yunzi!! C'était bien vous!! »

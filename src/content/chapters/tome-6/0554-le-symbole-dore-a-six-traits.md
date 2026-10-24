@@ -26,7 +26,7 @@ Des symboles dorés brillaient dans chacune de ses pupilles. Chaque symbole éta
 
 Dès lors que les yeux de Yao Xixue contenaient ces symboles, lorsque Wang Lin la regarda, son cœur fut violemment ébranlé. C'était comme si la foudre avait frappé son esprit et que le tonnerre grondait dans sa poitrine. Il ressentit la même sensation qu'au moment de sa première rencontre avec Tuo Sen. À cet instant précis, il eut l'impression que Yao Xixue n'était plus une simple cultivatrice au stade avancé de la Transformation de l'Âme, mais qu'elle était devenue un immortel d'une puissance telle qu'il ne pourrait jamais l'affronter!
 
-Cette sensation était dévastatrice, comme des vagues impétueuses s'écrasant sur l'âme de Wang Lin. Même l'Omniscient n'avait jamais fait trembler son cœur à ce point.
+Cette sensation était dévastatrice, comme des vagues impétueuses s'écrasant sur l'âme de Wang Lin. Même Tian Yunzi n'avait jamais fait trembler son cœur à ce point.
 
 Son cœur vacilla, mais comme son cœur dao était ferme, il remarqua immédiatement l'anomalie: ce qui dégageait une telle majesté n'était pas Yao Xixue elle-même, mais les symboles dorés logés dans ses yeux.
 

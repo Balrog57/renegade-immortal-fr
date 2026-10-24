@@ -14,7 +14,7 @@ Elle tentait de s'échapper de la main de Wang Lin, mais celui-ci finit par serr
 
 Cette terre, issue de l'élément terre, contenait une trace d'essence terrestre. Désormais, Wang Lin possédait deux masses de terre dans son espace de stockage.
 
-L'autre provenait de l'Omniscient!
+L'autre provenait de Tian Yunzi!
 
 « Ils sont dignes de venir du Continent Astral Immortel pour avoir placé un esprit de la terre au sein de cette formation. Si des dizaines de milliers d'années s'écoulent encore, cet esprit pourrait bien évoluer pour devenir un corps d'esprit terrestre de troisième étape! » Les yeux de Wang Lin s'illuminèrent alors qu'il contemplait la Formation des Cinq Éléments avec passion.
 

@@ -12,15 +12,15 @@ Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa c
 
 Wang Lin recula rapidement, le regard devenu glacial.
 
-Alors que le Maître du Vide poursuivait Wang Lin, le brouillard sombre saturé de sorts s'étendit soudainement une fois de plus, et cette fois, l'Omniscient fut projeté à l'extérieur. Bien qu'il parût pâle, il n'avait rien de piteux. Dès qu'il fut expulsé, le brouillard noir se mua en la lumière noire qui avait blessé Wang Wei et chargea l'Omniscient.
+Alors que le Maître du Vide poursuivait Wang Lin, le brouillard sombre saturé de sorts s'étendit soudainement une fois de plus, et cette fois, Tian Yunzi fut projeté à l'extérieur. Bien qu'il parût pâle, il n'avait rien de piteux. Dès qu'il fut expulsé, le brouillard noir se mua en la lumière noire qui avait blessé Wang Wei et chargea Tian Yunzi.
 
-Les yeux de l'Omniscient s'illuminèrent. Il s'élança et sa main droite toucha l'espace entre ses sourcils. Un rayon de lumière aux sept couleurs jaillit de son front et forma une barrière qui percuta la lumière noire.
+Les yeux de Tian Yunzi s'illuminèrent. Il s'élança et sa main droite toucha l'espace entre ses sourcils. Un rayon de lumière aux sept couleurs jaillit de son front et forma une barrière qui percuta la lumière noire.
 
-Un fracas retentit lors de la collision entre les deux énergies. L'Omniscient profita de cette force pour reculer sans hésitation.
+Un fracas retentit lors de la collision entre les deux énergies. Tian Yunzi profita de cette force pour reculer sans hésitation.
 
 Ce changement soudain ébranla l'esprit du Maître du Vide. Cependant, cela ne le détourna pas de son intention de tuer Wang Lin; il se déplaça même plus rapidement encore.
 
-L'homme sur la gourde, voyant que même l'Omniscient avait été repoussé, vit son visage se transformer en une expression d'horreur. Il recula sans hésiter, mais il était déjà trop tard.
+L'homme sur la gourde, voyant que même Tian Yunzi avait été repoussé, vit son visage se transformer en une expression d'horreur. Il recula sans hésiter, mais il était déjà trop tard.
 
 Le tourbillon du brouillard noir atteignit son apogée dans un fracas de grondements assourdissants. Puis, un gémissement étouffé retentit alors que Bei Luo était impitoyablement projeté hors du brouillard noir, projetant des éclaboussures de sang partout. L'énergie démoniaque dispersée autour de Bei Luo se rassembla rapidement; ses yeux étaient empreints d'une rancœur dense.
 
@@ -82,7 +82,7 @@ Le corps du Maître du Vide fut encerclé par des flèches d'eau. Alors qu'elles
 
 Tout ce qui s'était produit aurait semblé incroyable à n'importe qui d'autre. Comment avait-il pu perdre le contrôle de son intention meurtrière et attaquer en un tel moment de crise? S'il avait été un tant soit peu négligent, il serait mort ici même.
 
-Les yeux du Maître du Vide se remplirent de peur et d'amertume. Son corps vacilla et il chargea directement vers les piliers de lumière. Quant à l'Omniscient, il avait inexplicablement disparu, et nul ne savait où il s'était rendu.
+Les yeux du Maître du Vide se remplirent de peur et d'amertume. Son corps vacilla et il chargea directement vers les piliers de lumière. Quant à Tian Yunzi, il avait inexplicablement disparu, et nul ne savait où il s'était rendu.
 
 « Tout à l'heure, j'ai senti que je perdais le contrôle de moi-même, mais maintenant j'en suis certain... Je ne pensais pas que le premier Fléau Céleste arriverait si vite... » Le Maître du Vide se précipita dans le pilier de lumière et disparut.
 

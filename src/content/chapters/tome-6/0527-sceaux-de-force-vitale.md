@@ -102,16 +102,16 @@ La silhouette suivit immédiatement la pression du pouce. Il leva la tête et re
 
 « Tu ne pourras pas esquiver le prochain! »
 
-« Tu n'es pas un membre de la Secte de l'Épée Da Luo! Tu es le nouveau disciple de l'Omniscient, le septième disciple de la Division Pourpre, Wang Lin! » lança froidement l'homme en robe noire. « Ce que tu as utilisé est probablement le sort interdit, le Doigt de la Mort, qui t'a rendu célèbre lors de la célébration de l'anniversaire! »
+« Tu n'es pas un membre de la Secte de l'Épée Da Luo! Tu es le nouveau disciple de Tian Yunzi, le septième disciple de la Division Pourpre, Wang Lin! » lança froidement l'homme en robe noire. « Ce que tu as utilisé est probablement le sort interdit, le Doigt de la Mort, qui t'a rendu célèbre lors de la célébration de l'anniversaire! »
 
-L'homme en robe noire était extrêmement agacé. Il avait entendu parler de Wang Lin et avait même vu son visage sur un morceau de jade. Après tout, les disciples de l'Omniscient étaient des personnalités suivies par tous sur la planète Tian Yun.
+L'homme en robe noire était extrêmement agacé. Il avait entendu parler de Wang Lin et avait même vu son visage sur un morceau de jade. Après tout, les disciples de Tian Yunzi étaient des personnalités suivies par tous sur la planète Tian Yun.
 
 Surtout Wang Lin, qui avait écrasé ses adversaires en un seul combat et dont l'apparition soudaine avait stupéfié le monde. Si le sixième disciple n'était pas revenu subitement pour vaincre Wang Lin grâce à sa culture de niveau Ascendant, le titre de l'un des Sept Disciples du Destin Céleste lui serait sans doute revenu!
 
 Comment ne pas prêter attention à un tel individu? De plus, le sort interdit qu'il utilisait était singulier; il était spécialisé dans l'attaque de cultivateurs plus puissants. Dès lors, comment ne pas le surveiller de près, tant ce sort faisait convoiter bien des gens?
 
-L'homme en robe noire soupira intérieurement. S'il avait connu l'identité de Wang Lin plus tôt, il n'aurait pas agi avec autant de légèreté. Bien que son adversaire fût au stade intermédiaire de la Transformation de l'Âme, on ne pouvait sous-estimer un disciple de l'Omniscient!
+L'homme en robe noire soupira intérieurement. S'il avait connu l'identité de Wang Lin plus tôt, il n'aurait pas agi avec autant de légèreté. Bien que son adversaire fût au stade intermédiaire de la Transformation de l'Âme, on ne pouvait sous-estimer un disciple de Tian Yunzi!
 
 Bien que ce Wang Lin ait perdu face à un cultivateur Ascendant, il avait prouvé qu'il possédait des capacités d'attaque redoutables. De plus, ses divers trésors attiraient les regards. Même si l'homme en robe noire parvenait à l'emporter, il lui serait extrêmement difficile de tuer Wang Lin!
 
-Après tout, sur la planète Tian Yun, chacun savait que chaque disciple de l'Omniscient possédait un trésor salvateur. Tant que l'écart de culture n'était pas trop abyssal, cela représentait une vie supplémentaire!
+Après tout, sur la planète Tian Yun, chacun savait que chaque disciple de Tian Yunzi possédait un trésor salvateur. Tant que l'écart de culture n'était pas trop abyssal, cela représentait une vie supplémentaire!

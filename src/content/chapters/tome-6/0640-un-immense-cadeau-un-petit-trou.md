@@ -76,7 +76,7 @@ Dans son esprit, il semblait voir l'éruption du gouffre créer une force d'aspi
 
 Les mystères de la création firent ressentir à Wang Lin sa propre insignifiance. Quel genre de sort pourrait résister à une telle éruption de force d'aspiration tous les 5 000 ans... Quel genre de pouvoir pouvait atteindre une telle puissance?
 
-« Même l'Omniscient ne pourrait pas faire cela... Je me demande si la personne dont l'Omniscient a parlé, celle qui aurait franchi la troisième étape, pourrait... » Wang Lin prit une profonde inspiration et commença à réfléchir.
+« Même Tian Yunzi ne pourrait pas faire cela... Je me demande si la personne dont Tian Yunzi a parlé, celle qui aurait franchi la troisième étape, pourrait... » Wang Lin prit une profonde inspiration et commença à réfléchir.
 
 Où ce gouffre menait-il? Wang Lin l'ignorait et ne pouvait le deviner. Cependant, il savait que s'il y tombait, il lui serait impossible de ressortir!
 

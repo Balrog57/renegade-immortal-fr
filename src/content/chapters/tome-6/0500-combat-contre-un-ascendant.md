@@ -80,7 +80,7 @@ Ce n'est qu'au stade intermédiaire de la Transformation de l'Âme qu'il pouvait
 
 Le petit doigt droit de Wang Lin pointait vers Chen Tao. À cet instant, il n'y avait plus aucune énergie spirituelle céleste dans son corps, et même son aura vitale s'étiolait lentement. Il ne restait plus aucune trace de vie en lui.
 
-Cette scène stupéfia la majorité des cultivateurs environnants. Même l'Omniscient prit un air sérieux pour observer de plus près. Le Saint de l'Épée, Ling Tianhou, fixa Wang Lin avec un sourire mystérieux: « Cet enfant n'est pas mauvais! »
+Cette scène stupéfia la majorité des cultivateurs environnants. Même Tian Yunzi prit un air sérieux pour observer de plus près. Le Saint de l'Épée, Ling Tianhou, fixa Wang Lin avec un sourire mystérieux: « Cet enfant n'est pas mauvais! »
 
 Parmi les spectateurs, un vieil homme au visage rubicond, portant une immense gourde rouge dans le dos, laissa échapper un rot d'ivrogne en murmurant: « Pourquoi ce sort ressemble-t-il exactement à celui utilisé par ce fou que j'ai croisé en chemin? »
 
@@ -112,22 +112,22 @@ Quant à Chen Tao, son expression était redevenue normale alors qu'il baissait 
 
 Chen Tao prit une profonde inspiration pour réprimer la violente énergie spirituelle céleste qui bouillonnait en lui. L'attaque de Wang Lin avait été totalement imprévue! S'il n'avait pas rencontré de chance sur son chemin et atteint le stade intermédiaire de l'Ascendant, il aurait certainement été blessé malgré sa capacité à encaisser le coup.
 
-L'Omniscient observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Pourpre et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le détenteur du titre de l'un des sept véritables disciples de l'Omniscient de la Division Pourpre! »
+Tian Yunzi observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Pourpre et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le détenteur du titre de l'un des sept véritables disciples de Tian Yunzi de la Division Pourpre! »
 
-Sur ces mots, l'Omniscient pointa l'espace entre ses sourcils; un cristal pourpre d'une pureté cristalline apparut sur son front et tomba dans sa main. Il lança ensuite le cristal, qui vola dans un rayon de lumière pourpre vers Chen Tao et s'inséra entre ses sourcils.
+Sur ces mots, Tian Yunzi pointa l'espace entre ses sourcils; un cristal pourpre d'une pureté cristalline apparut sur son front et tomba dans sa main. Il lança ensuite le cristal, qui vola dans un rayon de lumière pourpre vers Chen Tao et s'inséra entre ses sourcils.
 
-L'Omniscient dit lentement: « Ce n'est pas la première fois que tu reçois ce titre, alors va le comprendre par toi-même! »
+Tian Yunzi dit lentement: « Ce n'est pas la première fois que tu reçois ce titre, alors va le comprendre par toi-même! »
 
-Chen Tao prit une profonde inspiration, fit une révérence profonde à l'Omniscient et répondit respectueusement: « Le disciple remercie Maître! »
+Chen Tao prit une profonde inspiration, fit une révérence profonde à Tian Yunzi et répondit respectueusement: « Le disciple remercie Maître! »
 
-L'Omniscient hocha la tête, puis son regard parcourut les cultivateurs présents. Il joignit ses mains et dit avec douceur: « Tout le monde, ma célébration d'anniversaire est désormais close. Chers compagnons cultivateurs, si vous n'avez pas d'obligations pressantes, je vous invite à séjourner quelques jours de plus dans ma Secte du Destin Céleste afin que nous puissions discuter du Dao et comparer nos compréhensions! »
+Tian Yunzi hocha la tête, puis son regard parcourut les cultivateurs présents. Il joignit ses mains et dit avec douceur: « Tout le monde, ma célébration d'anniversaire est désormais close. Chers compagnons cultivateurs, si vous n'avez pas d'obligations pressantes, je vous invite à séjourner quelques jours de plus dans ma Secte du Destin Céleste afin que nous puissions discuter du Dao et comparer nos compréhensions! »
 
 De nombreux cultivateurs répondirent poliment, mais la plupart partirent aussitôt. En une seule journée, des dizaines de milliers de rayons de lumière quittèrent la Secte du Destin Céleste pour s'enfoncer dans l'horizon.
 
-Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas de trente-trois mètres, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Omniscient, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer des Esprits Démoniaques de l'Est. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
+Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas de trente-trois mètres, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Tian Yunzi, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer des Esprits Démoniaques de l'Est. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
 
-Les yeux de l'Omniscient devinrent sérieux et il hocha la tête. Il se tourna vers Wang Lin et dit: « Wang Lin, suis-moi pour vénérer l'esprit ancestral. Ensuite, Maître t'enseignera un sort interdit et te remettra un trésor de protection. Après cela, tu seras considéré comme mon véritable disciple! »
+Les yeux de Tian Yunzi devinrent sérieux et il hocha la tête. Il se tourna vers Wang Lin et dit: « Wang Lin, suis-moi pour vénérer l'esprit ancestral. Ensuite, Maître t'enseignera un sort interdit et te remettra un trésor de protection. Après cela, tu seras considéré comme mon véritable disciple! »
 
 Wang Lin répondit respectueusement, les yeux étincelants.
 
-Un sort interdit! Ce n'est qu'une fois devenu véritablement le disciple de l'Omniscient et après avoir vénéré l'esprit ancestral que l'on pouvait étudier ce sort interdit, créé par l'Omniscient en imitant un sort céleste. C'était une opportunité que d'innombrables personnes auraient désirée plus que tout.
+Un sort interdit! Ce n'est qu'une fois devenu véritablement le disciple de Tian Yunzi et après avoir vénéré l'esprit ancestral que l'on pouvait étudier ce sort interdit, créé par Tian Yunzi en imitant un sort céleste. C'était une opportunité que d'innombrables personnes auraient désirée plus que tout.

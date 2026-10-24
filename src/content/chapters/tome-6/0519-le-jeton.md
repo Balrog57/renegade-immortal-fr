@@ -62,7 +62,7 @@ La phase de marée était sur le point de s'achever, mais à cet instant précis
 
 Ce rayon était extraordinaire et se rapprocha en un éclair.
 
-Dès l'apparition de cette lueur, le visage calme de l'Omniscient changea brusquement.
+Dès l'apparition de cette lueur, le visage calme de Tian Yunzi changea brusquement.
 
 Il se retourna soudainement, ses yeux semblables à des éclairs, fixant le rayon de lumière rouge qui approchait.
 
@@ -76,7 +76,7 @@ Cette scène stupéfiante attira immédiatement les regards de tous les cultivat
 
 Ce dernier était si rapide qu'il dépassa tous les cultivateurs en un instant pour charger dans la Mer des Esprits Démoniaques de l'Est.
 
-Si seule sa vitesse avait été en cause, passe encore, mais le plus étrange était que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Cela fit même changer d'expression l'Omniscient et Ling Tianhou.
+Si seule sa vitesse avait été en cause, passe encore, mais le plus étrange était que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Cela fit même changer d'expression Tian Yunzi et Ling Tianhou.
 
 Lorsque le Sens Divin de Wang Lin toucha la lumière rouge, ce fut comme s'il s'était retrouvé piégé dans un labyrinthe; il s'effondra instantanément. S'il n'avait pas été assez décisif pour le retirer immédiatement, il aurait certainement été blessé par cet effondrement.
 
@@ -104,7 +104,7 @@ En un clin d'œil, l'éclat rouge de ses yeux fut envahi par une épaisse teinte
 
 De ce fait, son regard au sein de la lumière rouge sembla revitalisé; il brisa les couches de lueurs et entra en collision avec la force mystérieuse interne.
 
-Enfin, à l'instant précis où la lumière rouge disparut dans la Mer des Esprits Démoniaques de l'Est, le regard de Wang Lin parvint enfin à percer cette lueur rouge pour voir ce qui avait fait changer d'expression l'Omniscient et tous les autres!
+Enfin, à l'instant précis où la lumière rouge disparut dans la Mer des Esprits Démoniaques de l'Est, le regard de Wang Lin parvint enfin à percer cette lueur rouge pour voir ce qui avait fait changer d'expression Tian Yunzi et tous les autres!
 
 C'était un jeton!
 

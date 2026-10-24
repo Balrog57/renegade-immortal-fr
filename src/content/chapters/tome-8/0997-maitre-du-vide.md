@@ -10,7 +10,7 @@ C'était un trésor dont Tu Si était très satisfait, mais malheureusement, auc
 
 Il avait prévu de le récupérer une fois que le pouvoir de lignée royale serait pleinement formé, mais après son départ, il n'est jamais revenu...
 
-Lorsqu'il vit le trident entrer dans le trou noir avec l'Omniscient, il ressentit une légère mélancolie. Cette tristesse émanait des regrets enfouis dans les souvenirs de Tu Si.
+Lorsqu'il vit le trident entrer dans le trou noir avec Tian Yunzi, il ressentit une légère mélancolie. Cette tristesse émanait des regrets enfouis dans les souvenirs de Tu Si.
 
 Ling Tianhou et l'homme en violet se transformèrent en rayons de lumière et foncèrent vers le trou noir. Cependant, ils s'arrêtèrent brusquement.
 
@@ -26,7 +26,7 @@ Bien que Sun Shan fût un ancien, il ne faisait pas partie du groupe des Anciens
 
 Les pupilles de Wang Lin se rétractèrent. Le vieil homme s'était fusionné avec le monde pour parvenir jusqu'ici. Il dégageait également une aura qui bouleversa Wang Lin.
 
-Cette aura était très différente de celle de l'Omniscient. Si l'Omniscient était un océan insondable, ce vieil homme était une montagne colossale perçant les cieux. Son aura puissante se propagea, forçant les cultivateurs les plus faibles à cracher du sang et à battre en retraite immédiatement.
+Cette aura était très différente de celle de Tian Yunzi. Si Tian Yunzi était un océan insondable, ce vieil homme était une montagne colossale perçant les cieux. Son aura puissante se propagea, forçant les cultivateurs les plus faibles à cracher du sang et à battre en retraite immédiatement.
 
 Les yeux de Situ Nan s'illuminèrent et il murmura: « Briseur du Nirvana! » Il réfléchit un instant avant de ricaner. Ses yeux brillaient de cette arrogance propre à celui qui méprise tout ce qui l'entoure.
 
@@ -38,11 +38,11 @@ Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blan
 
 Ling Tianhou se remémora le passé et répondit respectueusement: « Junior ne s'en souvient pas, cela fait bien trop longtemps. »
 
-Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi et l'Omniscient avez obtenu en même temps la qualification, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
+Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi et Tian Yunzi avez obtenu en même temps la qualification, je vous ai personnellement introduits dans la Terre Sainte du Vide Brillant. Des dizaines de milliers d'années ont passé désormais. L'un de vous est devenu un ancien de l'alliance que même moi je redoute, et la culture de l'autre a également atteint un tel niveau. »
 
 Ling Tianhou réfléchit, mais la nostalgie dans ses yeux s'intensifia.
 
-« Lorsque j'ai reçu ton jade il y a quelques mois, j'hésitais sur ma venue. Je ne voulais pas venir, car la guerre avec Luotian devenait sérieuse et mon frère aîné, Zhong Xuanzi, ne peut pas créer d'avatar. Cependant, compte tenu de ce qui s'est passé entre toi et l'Omniscient, j'ai décidé de venir pour clore le litige entre vous deux! » En parlant, le regard du vieil homme laissait transparaître une détermination profonde.
+« Lorsque j'ai reçu ton jade il y a quelques mois, j'hésitais sur ma venue. Je ne voulais pas venir, car la guerre avec Luotian devenait sérieuse et mon frère aîné, Zhong Xuanzi, ne peut pas créer d'avatar. Cependant, compte tenu de ce qui s'est passé entre toi et Tian Yunzi, j'ai décidé de venir pour clore le litige entre vous deux! » En parlant, le regard du vieil homme laissait transparaître une détermination profonde.
 
 L'esprit de Ling Tianhou trembla tandis qu'il contemplait le vieillard: « Merci, Maître du Vide. »
 

@@ -22,9 +22,9 @@ Elle s'éleva tel un disque et vola vers le sud. Cependant, sous la pression du 
 
 La Cité aux Yeux Fantômes luttait pour sa survie. Les quelques vieux monstres de la cité se sentaient accablés d'être pris dans une telle calamité sans raison, mais aucun n'osait réagir.
 
-Tout le monde pouvait le voir: ce doigt géant appartenait au véritable souverain de la planète Tian Yun, l'Omniscient!
+Tout le monde pouvait le voir: ce doigt géant appartenait au véritable souverain de la planète Tian Yun, Tian Yunzi!
 
-« L'Omniscient veut tuer Wang Lin? » Les frères Chen se regardèrent sans mot dire, mais une terreur profonde habitait leurs regards. Après un instant de réflexion, Maître Yi Chen serra les dents et chargea vers le doigt colossal.
+« Tian Yunzi veut tuer Wang Lin? » Les frères Chen se regardèrent sans mot dire, mais une terreur profonde habitait leurs regards. Après un instant de réflexion, Maître Yi Chen serra les dents et chargea vers le doigt colossal.
 
 La lumière aux sept couleurs couvrait le ciel. Même à distance, elle était parfaitement visible. Après tout, ce doigt était d'une démesure absolue!
 
@@ -36,7 +36,7 @@ Quant aux autres, ils n'en avaient pas le courage!
 
 En avançant, Maître Yi Chen perçut le jeune homme en noir. Choqué, il pensa: « Le seigneur de la Cité aux Yeux Fantômes a du cran! »
 
-Wang Lin ouvrit les bras et se tint au centre de la vallée. Le corps de Bai Wei, enveloppé dans le cristal de glace, n'était pas loin. Bien qu'il fût déjà mort, son corps n'avait subi aucun dommage du sort de l'Omniscient.
+Wang Lin ouvrit les bras et se tint au centre de la vallée. Le corps de Bai Wei, enveloppé dans le cristal de glace, n'était pas loin. Bien qu'il fût déjà mort, son corps n'avait subi aucun dommage du sort de Tian Yunzi.
 
 Le cristal d'Invocation de la Pluie flottait devant Wang Lin, émettant une lueur douce. Un vortex de vapeur d'eau semblait graviter autour du cristal.
 
@@ -76,13 +76,13 @@ Les innombrables gouttes de pluie s'effondrèrent toutes, et le doigt toucha sou
 
 Le cristal explosa. Au moment où il se brisa, le fantôme de Qing Shui derrière Wang Lin s'élança. Sa vitesse était telle qu'il laissait une traînée derrière lui. Il pénétra dans les débris du cristal et se transforma en une multitude de gouttes de pluie qui se répandirent sur dix mille kilomètres à la ronde et convergèrent vers le doigt!
 
-Cette fois, ce ne furent pas des gouttes éparses qui percutèrent la cible, mais toutes se condensèrent en une seule goutte unique! Cette gouttelette libéra une lueur rouge. Elle entra en collision directe avec le sort de l'Omniscient!
+Cette fois, ce ne furent pas des gouttes éparses qui percutèrent la cible, mais toutes se condensèrent en une seule goutte unique! Cette gouttelette libéra une lueur rouge. Elle entra en collision directe avec le sort de Tian Yunzi!
 
 Lors du choc, la gouttelette rouge dégagea une aura féroce et forma inopinément un vortex, telle une vrille tournoyante. Ce tourbillon entra en lutte contre les ondulations aux sept couleurs qui entouraient le doigt.
 
 Les ondulations aux sept couleurs s'effondrèrent aussitôt, avant de se transformer en sept dragons de couleurs différentes qui encerclèrent le doigt en rugissant avec fureur.
 
-Après avoir brisé les ondes chromatiques, la gouttelette rouge toucha directement le doigt envoyé par l'Omniscient!
+Après avoir brisé les ondes chromatiques, la gouttelette rouge toucha directement le doigt envoyé par Tian Yunzi!
 
 Boum, boum, boum, boum!
 
@@ -92,7 +92,7 @@ Pourtant, un petit point rouge apparut au centre du doigt colossal. Il transper�
 
 Alors que le doigt pressait vers lui, l'expression de Wang Lin devint sombre. Il avait l'impression que le ciel lui tombait sur la tête, mais un éclair de froideur brilla dans ses yeux.
 
-« L'Omniscient ne m'a même pas demandé le Yang extrême. Il y a quelque chose derrière tout cela! » Wang Lin poussa un soupir, mais son intention de combat ne faiblit pas. Ses yeux s'illuminèrent alors qu'il frappait son sac de stockage, faisant apparaître un fragment de la taille d'une main dans sa paume.
+« Tian Yunzi ne m'a même pas demandé le Yang extrême. Il y a quelque chose derrière tout cela! » Wang Lin poussa un soupir, mais son intention de combat ne faiblit pas. Ses yeux s'illuminèrent alors qu'il frappait son sac de stockage, faisant apparaître un fragment de la taille d'une main dans sa paume.
 
 Ce fragment lui avait été offert par Maître Yan Leizi après que Wang Lin eut accompli de grands exploits pour Luotian, en lui disant qu'il pourrait lui sauver la vie!
 

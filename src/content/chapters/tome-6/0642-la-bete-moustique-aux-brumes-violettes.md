@@ -59,7 +59,7 @@ La femme sourit: « Je me demande ce que fera ce Tan Lang lorsqu'il nous verra. 
 
 Dès l'instant où Tan Lang pénétra dans la Terre des Esprits Démoniaques, le Couple du Nuage Céleste fut déjà au courant de sa présence. Après tout, les deux avaient passé des dizaines de milliers d'années en ces lieux. Ils avaient minutieusement exploré l'une des fausses grottes du domaine et les trésors qu'ils y avaient récoltés étaient innombrables.
 
-En plus de son talent pour les restrictions, Wang Wei excellait en divination. Bien qu'il ne fût pas aussi doué que l'Omniscient, il lui était possible de calculer la position de Tan Lang ainsi que d'autres changements de flux.
+En plus de son talent pour les restrictions, Wang Wei excellait en divination. Bien qu'il ne fût pas aussi doué que Tian Yunzi, il lui était possible de calculer la position de Tan Lang ainsi que d'autres changements de flux.
 
 Quant au jeton, ils en avaient également calculé la localisation. Cependant, ce jeton était extrêmement étrange et, pour l'obtenir, ils devaient agir à un moment précis. C'est pourquoi ils n'avaient rien entrepris plus tôt et attendaient désormais à la sortie, dans le Pays des Démons de Feu.
 

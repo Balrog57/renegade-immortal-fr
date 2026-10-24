@@ -10,7 +10,7 @@ Après que Sun Yunshan eut fini de parler, un rayon de lumière violette se pré
 
 Wang Lin sourit légèrement et joignit les mains. « J'ai pris un peu de retard sur le chemin. Je ne pensais pas que frère Sun m'attendrait. »
 
-Sun Yunshan rit et dit: « Ce n'est rien. Je comptais me rendre dans la Mer des Esprits Démoniaques de l'Est hier, mais j'ai appris que frère Wang était celui que l'Omniscient avait choisi pour y aller. Après réflexion, j'ai décidé d'attendre quelques jours pour que nous puissions partir ensemble. Ne serait-ce pas agréable ? »
+Sun Yunshan rit et dit: « Ce n'est rien. Je comptais me rendre dans la Mer des Esprits Démoniaques de l'Est hier, mais j'ai appris que frère Wang était celui que Tian Yunzi avait choisi pour y aller. Après réflexion, j'ai décidé d'attendre quelques jours pour que nous puissions partir ensemble. Ne serait-ce pas agréable ? »
 
 Wang Lin lui adressa un sourire chaleureux: « Merci de votre considération. » Sur ce, il reporta son regard sur les personnes entourant Sun Yunshan.
 
@@ -20,7 +20,7 @@ Wang Lin sourit. « Frère Sun est plein d'humour! »
 
 Quant à la jeune fille vêtue de rose, son regard vacilla en fixant Wang Lin, laissant paraître une pointe de surprise.
 
-Sun Yunshan pointa la jeune fille du doigt et déclara: « Frère Wang, voici ma petite sœur, Sun Ruonan! » Puis, lui lançant un regard sévère, il s'exclama: « C'est le disciple direct de l'Omniscient, Wang Lin. Pourquoi ne l'as-tu pas encore salué?! »
+Sun Yunshan pointa la jeune fille du doigt et déclara: « Frère Wang, voici ma petite sœur, Sun Ruonan! » Puis, lui lançant un regard sévère, il s'exclama: « C'est le disciple direct de Tian Yunzi, Wang Lin. Pourquoi ne l'as-tu pas encore salué?! »
 
 Sun Ruonan fronça le nez et salua Wang Lin d'une voix mélodieuse, pareille au chant d'un oiseau: « Ruonan salue le grand frère Wang! »
 
@@ -98,11 +98,11 @@ Chacun de ces douze portait une épée antique dans le dos. Des illusions de div
 
 « Les Douze Épées! » Certains reconnurent immédiatement ces individus.
 
-Tous les habitants de la planète Tian Yun savaient que le Saint de l'Épée Ling Tianhou était en rivalité constante avec l'Omniscient. Une lutte qui durait depuis d'innombrables années et qui perdurait encore.
+Tous les habitants de la planète Tian Yun savaient que le Saint de l'Épée Ling Tianhou était en rivalité constante avec Tian Yunzi. Une lutte qui durait depuis d'innombrables années et qui perdurait encore.
 
-Bien que l'Omniscient ait toujours eu une longueur d'avance, le Saint de l'Épée n'avait jamais cédé et ne cessait de lui tenir tête.
+Bien que Tian Yunzi ait toujours eu une longueur d'avance, le Saint de l'Épée n'avait jamais cédé et ne cessait de lui tenir tête.
 
-L'Omniscient possédait les Sept Disciples du Destin Céleste, tandis qu'il avait formé les Douze Épées de la Secte de l'Épée Da Luo!
+Tian Yunzi possédait les Sept Disciples du Destin Céleste, tandis qu'il avait formé les Douze Épées de la Secte de l'Épée Da Luo!
 
 Les Sept Disciples du Destin Céleste détenaient des héritages de sorts célestes, alors que les Douze Épées étaient protégées par des esprits de bêtes démoniaques.
 
@@ -114,7 +114,7 @@ En ce temps-là, à son retour du Royaume Céleste, cet esprit d'épée l'avait 
 
 Cette fois-ci, il comptait utiliser la force de la marée pour entraîner l'esprit d'épée dans les profondeurs abyssales de la mer, afin qu'il n'en ressortît jamais.
 
-« Cet esprit d'épée appartenait à cette souveraine céleste. Bien qu'il soit puissant, il refuse de m'obéir. Puisqu'il ne m'obéit pas, personne d'autre ne le possédera, surtout pas ce vieux voleur, l'Omniscient! » Ling Tianhou laissa échapper un reniflement méprisant, le visage assombri.
+« Cet esprit d'épée appartenait à cette souveraine céleste. Bien qu'il soit puissant, il refuse de m'obéir. Puisqu'il ne m'obéit pas, personne d'autre ne le possédera, surtout pas ce vieux voleur, Tian Yunzi! » Ling Tianhou laissa échapper un reniflement méprisant, le visage assombri.
 
 Alors qu'il était plongé dans ses pensées, son expression changea brusquement. Il fixa le vide, une lumière mystérieuse perçant son regard.
 
@@ -140,4 +140,4 @@ Pour échapper à Situ Nan, il s'était réfugié ici afin de retrouver son viei
 
 « Comment as-tu pu être si gravement blessé? » Le Saint de l'Épée vit immédiatement que les blessures de Tan Lang n'étaient pas encore cicatrisées.
 
-Les yeux de Tan Lang brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte de l'Épée Da Luo pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de l'Omniscient! »
+Les yeux de Tan Lang brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte de l'Épée Da Luo pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de Tian Yunzi! »

@@ -64,13 +64,13 @@ Au cœur de ce système trônait une gigantesque planète pourpre. De multiples 
 
 Autour de cette planète maîtresse orbitaient cinq planètes mineures, tandis que d'autres astres plus petits étaient dispersés en périphérie. Toutes émettaient des fluctuations d'énergie spirituelle; il était évident que des restrictions y avaient été instaurées.
 
-L'excitation fit battre le cœur de Wang Lin alors que son regard se verrouillait sur la planète pourpre. C'était l'endroit que l'Omniscient lui avait indiqué: la planète Tian Yun.
+L'excitation fit battre le cœur de Wang Lin alors que son regard se verrouillait sur la planète pourpre. C'était l'endroit que Tian Yunzi lui avait indiqué: la planète Tian Yun.
 
 À cet instant, aux yeux de Wang Lin, la planète Tian Yun paraissait immense; en comparaison, la planète Suzaku semblait dérisoire.
 
 Et même à cette distance, il pouvait déjà ressentir la densité de l'énergie spirituelle émanant de la planète. S'il posait le pied sur son sol, la concentration de cette énergie serait inimaginable.
 
-La planète Suzaku était loin de pouvoir rivaliser avec Tian Yun. L'Omniscient avait dit autrefois que Suzaku était une planète à moitié abandonnée; en contemplant Tian Yun, Wang Lin n'en doutait plus.
+La planète Suzaku était loin de pouvoir rivaliser avec Tian Yun. Tian Yunzi avait dit autrefois que Suzaku était une planète à moitié abandonnée; en contemplant Tian Yun, Wang Lin n'en doutait plus.
 
 En voyant la planète Tian Yun, le cœur de Wang Lin fut secoué par une émotion violente, comme une immense vague déferlant en lui. C'était le même sentiment qu'il avait éprouvé lorsqu'il était sorti pour la première fois de son village de montagne pour gagner le chef-lieu, avant de commencer sa culture.
 
@@ -112,7 +112,7 @@ Wang Lin réfléchit un instant, puis secoua de nouveau la tête.
 
 Le jeune homme fixa Wang Lin et dit lentement: « Puisque vous n'avez ni message diplomatique ni invitation, veuillez partir! » Sur ce, il se détourna pour regagner le brouillard vert. En entrant, le gaz se referma lentement derrière lui.
 
-Les yeux de Wang Lin s'illuminèrent et il prononça distinctement: « Je viens chercher le Senior Omniscient! »
+Les yeux de Wang Lin s'illuminèrent et il prononça distinctement: « Je viens chercher le Senior Tian Yunzi! »
 
 Le jeune homme s'arrêta net, puis se retourna pour faire face à Wang Lin. Son regard devint étrange et, après un court silence, il demanda: « Vous venez de la planète Suzaku? »
 
@@ -126,7 +126,7 @@ Wang Lin monta alors sur la poignée de l'épée.
 
 « Je vous remercie! » L'expression de Wang Lin ne changea pas tandis qu'il joignait les mains en signe de respect.
 
-L'éclat mystérieux dans les yeux du jeune homme s'intensifia. Il regarda Wang Lin, puis l'épée, avant de joindre brièvement les mains: « Entrez. Le Senior Omniscient vous attend depuis longtemps. »
+L'éclat mystérieux dans les yeux du jeune homme s'intensifia. Il regarda Wang Lin, puis l'épée, avant de joindre brièvement les mains: « Entrez. Le Senior Tian Yunzi vous attend depuis longtemps. »
 
 Une fois ces mots prononcés, le gaz vert se fendit, formant un tunnel profond menant vers la planète.
 
@@ -134,7 +134,7 @@ Le corps de Wang Lin ne bougea pas, mais l'épée verte sous ses pieds s'élanç
 
 En plein vol, Wang Lin commença à réfléchir.
 
-« Cet homme savait que je venais de la planète Suzaku et a affirmé que le Senior Omniscient m'attendait. Ce Senior posséderait-il vraiment un sort capable de percer les cieux et la terre pour prédire mon arrivée... Si tel est le cas, son art est divin. » Tandis qu'il méditait, l'épée volante sous lui fonçait rapidement vers sa destination.
+« Cet homme savait que je venais de la planète Suzaku et a affirmé que le Senior Tian Yunzi m'attendait. Ce Senior posséderait-il vraiment un sort capable de percer les cieux et la terre pour prédire mon arrivée... Si tel est le cas, son art est divin. » Tandis qu'il méditait, l'épée volante sous lui fonçait rapidement vers sa destination.
 
 Peu après, la planète Tian Yun grandit à vue d'œil et, bientôt, l'épée le fit pénétrer dans l'atmosphère.
 

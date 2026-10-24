@@ -28,7 +28,7 @@ Xue Zu fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied 
 
 Il prit une profonde inspiration et commença à activer secrètement un sortilège. Il scanna à nouveau la zone avec ses techniques occultes, et son expression devint plus lugubre encore.
 
-L'Omniscient leva sa main droite et manipula ses doigts pour effectuer des calculs divinatoires. De l'extérieur, la Mer de l'Est interférait avec sa divination, mais désormais qu'il se trouvait à l'intérieur de la Terre, plus rien ne l'obstruait.
+Tian Yunzi leva sa main droite et manipula ses doigts pour effectuer des calculs divinatoires. De l'extérieur, la Mer de l'Est interférait avec sa divination, mais désormais qu'il se trouvait à l'intérieur de la Terre, plus rien ne l'obstruait.
 
 Au moment même où ces vieux monstres pénétraient dans la Terre des Esprits Démoniaques, Wang Lin plongea dans l'Abîme des Marées. Il fondit vers les profondeurs tel une météorite.
 
@@ -40,7 +40,7 @@ Au même instant, un nuage apparut silencieusement devant eux. Ce n'était pas u
 
 Il s'agissait du Couple Céleste des Nuages, Wang Wei et Hu Juan.
 
-Wang Wei observa calmement Ling Tianhou et sa compagnie. Lorsque son regard se posa sur l'Omniscient, ses pupilles se rétractèrent imperceptiblement. L'Omniscient gardait les yeux clos; il continuait ses calculs même après leur arrivée.
+Wang Wei observa calmement Ling Tianhou et sa compagnie. Lorsque son regard se posa sur Tian Yunzi, ses pupilles se rétractèrent imperceptiblement. Tian Yunzi gardait les yeux clos; il continuait ses calculs même après leur arrivée.
 
 Wang Wei sourit. « Chers compagnons de culture, cela fait bien longtemps! »
 
@@ -72,7 +72,7 @@ Chen Long s'apprêtait à répliquer, mais Ling Tianhou agita ses manches et tra
 
 Tan Lang eut un sourire amer et déclara d'un ton désespéré: « Vous ne me croirez peut-être pas, mais je jure sur mes dizaines de milliers d'années de culture que le jeton n'est pas entre mes mains! »
 
-Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris Xue Zu, tournèrent leurs regards perçants vers Tan Lang.
+Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de Tian Yunzi qui gardait les yeux clos, tous les vieux monstres, y compris Xue Zu, tournèrent leurs regards perçants vers Tan Lang.
 
 Tan Lang sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Luo! »
 
@@ -80,25 +80,25 @@ Ling Tianhou fronça les sourcils et se tourna vers Chen Long.
 
 Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang Lin possédait le jeton et qu'il avait été piégé par Tan Lang. Je ne sais pas ce qui s'est passé ensuite. Cependant... il a bel et bien tué plusieurs de mes jeunes frères! »
 
-À cet instant précis, l'Omniscient ouvrit soudainement les yeux et regarda vers l'est.
+À cet instant précis, Tian Yunzi ouvrit soudainement les yeux et regarda vers l'est.
 
-« Il veut partir! » La main de l'Omniscient bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays des Démons d'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
+« Il veut partir! » La main de Tian Yunzi bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays des Démons d'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
 
-Alors qu'il descendait, Wang Lin le remarqua immédiatement. Il se laissa porter par la force d'aspiration pour accélérer sa chute. L'Omniscient sentit que son regard était perturbé par cette force; il hésita un instant avant de percer l'aspiration pour continuer sa descente.
+Alors qu'il descendait, Wang Lin le remarqua immédiatement. Il se laissa porter par la force d'aspiration pour accélérer sa chute. Tian Yunzi sentit que son regard était perturbé par cette force; il hésita un instant avant de percer l'aspiration pour continuer sa descente.
 
-Le sortilège de l'Omniscient attira aussitôt l'attention de Ling Tianhou et des autres. Même le Couple Céleste des Nuages manifesta sa surprise. Tous ces vieux monstres déployèrent leurs sens divins, suivant la vision de l'Omniscient au plus profond de l'Abîme des Marées.
+Le sortilège de Tian Yunzi attira aussitôt l'attention de Ling Tianhou et des autres. Même le Couple Céleste des Nuages manifesta sa surprise. Tous ces vieux monstres déployèrent leurs sens divins, suivant la vision de Tian Yunzi au plus profond de l'Abîme des Marées.
 
 L'expression de Wang Lin resta impassible tandis qu'il frappait son sac de rangement pour libérer la formation d'épée des sept étoiles. La formation tourbillonna autour de lui, accroissant sa vitesse.
 
-Wang Lin fonça droit vers le fond du gouffre et atteignit bientôt le vortex. À cet instant, l'Omniscient et les sens divins de tous les vieux monstres descendirent vers lui!
+Wang Lin fonça droit vers le fond du gouffre et atteignit bientôt le vortex. À cet instant, Tian Yunzi et les sens divins de tous les vieux monstres descendirent vers lui!
 
 Ling Tianhou aperçut immédiatement la formation d'épée des sept étoiles, ce qui le fit entrer dans une rage folle.
 
-L'Omniscient vit également que Wang Lin ne portait aucune marque du Massacre Céleste. Un éclair de froideur passa dans son regard.
+Tian Yunzi vit également que Wang Lin ne portait aucune marque du Massacre Céleste. Un éclair de froideur passa dans son regard.
 
 Wang Lin posa le pied sur le vortex, se retourna pour lancer un dernier regard glacial à l'assemblée, avant de s'y enfoncer progressivement.
 
-Une force colossale jaillit du vortex et se propagea. Cette puissance était si immense qu'elle repoussa même les sens divins de l'Omniscient et des autres. Ils ne purent que reculer et regarder Wang Lin être totalement englouti par le vortex.
+Une force colossale jaillit du vortex et se propagea. Cette puissance était si immense qu'elle repoussa même les sens divins de Tian Yunzi et des autres. Ils ne purent que reculer et regarder Wang Lin être totalement englouti par le vortex.
 
 Ce n'était pas qu'ils manquaient de volonté pour l'arrêter, mais la puissance émanant du vortex était celle qui reliait deux systèmes stellaires. C'était une force tout simplement insurmontable!
 
@@ -126,4 +126,4 @@ Ling Tianhou demanda d'une voix pesante: « Qui ira? »
 
 « Si je me propose, mes compagnons de culture se méfieront de moi. Le meilleur choix est sans aucun doute Tan Lang! Nous placerons chacun une restriction sur lui, et ainsi, ce Tan Lang ne pourra jamais échapper à nos mains. Il n'aura d'autre choix que de capturer Wang Lin et de le ramener! De plus, le niveau de culture de Tan Lang est assez élevé pour faire face à lui! »
 
-L'Omniscient fixa silencieusement le vortex, ses yeux brillant d'une lueur mystérieuse. Personne ne savait ce qu'il méditait.
+Tian Yunzi fixa silencieusement le vortex, ses yeux brillant d'une lueur mystérieuse. Personne ne savait ce qu'il méditait.

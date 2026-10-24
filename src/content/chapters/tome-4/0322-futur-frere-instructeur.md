@@ -8,7 +8,7 @@ slug: futur-frere-instructeur
 ---
 Quelque part dans le vide, le vieil homme perché sur le Qilin entendit également l'hymne des épées alors qu'un groupe de lames fonçait derrière lui.
 
-Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte de l'Épée Da Luo deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser l'Omniscient.
+Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte de l'Épée Da Luo deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser Tian Yunzi.
 
 Après une longue lutte intérieure, il poussa un soupir. Il décida de ne pas bloquer les épées célestes et s'écarta du chemin.
 

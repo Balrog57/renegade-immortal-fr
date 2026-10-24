@@ -18,7 +18,7 @@ Cependant, Wang Lin paya aussi un prix lourd. Le sort de l'Empereur Céleste Bai
 
 Même avec l'aide de l'âme d'origine de l'Illustre Xuan Bao, les réserves de Wang Lin s'amenuisaient pour continuer à utiliser ces sorts. S'il ne trouvait pas d'autres âmes d'origine céleste, il ne pourrait plus employer les techniques de Bai Fan une fois ses ressources épuisées. Il pourrait peut-être encore utiliser « Invoquer le Vent », mais celui-ci serait bien moins puissant qu'avec l'énergie d'origine céleste.
 
-Au loin, l'Omniscient fronça les sourcils. Il ne pensait pas que Wang Lin posséderait encore un tel atout à ce stade! Le regard de l'Omniscient devint glacial; sa main droite traça un sceau, puis il pointa le ciel.
+Au loin, Tian Yunzi fronça les sourcils. Il ne pensait pas que Wang Lin posséderait encore un tel atout à ce stade! Le regard de Tian Yunzi devint glacial; sa main droite traça un sceau, puis il pointa le ciel.
 
 Cette fois, le chaos noir et blanc s'agita plus violemment encore, et la tête d'un python géant surgit soudainement tel un éclair. Ce python possédait une corne et des écailles noires, ornées de marques complexes qui lui donnaient un aspect encore plus féroce.
 
@@ -30,21 +30,21 @@ Après le qilin noir, cinq autres êtres sans tête surgirent. C'était comme si
 
 Ces cinq sans-tête suivirent de près le qilin. Ils encerclèrent le Maître du Vide et entamèrent l'assaut.
 
-Les yeux de Wang Lin s'illuminèrent. Il voulut invoquer les avatars de l'Omniscient qui se trouvaient dans le dix-huitième niveau de l'enfer. Cependant, une pensée traversa son esprit alors qu'il fixait l'Omniscient en ricanant.
+Les yeux de Wang Lin s'illuminèrent. Il voulut invoquer les avatars de Tian Yunzi qui se trouvaient dans le dix-huitième niveau de l'enfer. Cependant, une pensée traversa son esprit alors qu'il fixait Tian Yunzi en ricanant.
 
-La raison pour laquelle l'Omniscient invoquait progressivement ces bêtes était probablement de le forcer à invoquer ses deux avatars!
+La raison pour laquelle Tian Yunzi invoquait progressivement ces bêtes était probablement de le forcer à invoquer ses deux avatars!
 
-Peu importait que son intuition soit correcte ou non. Il lui était simplement désagréable de devoir invoquer les âmes des avatars de l'Omniscient devant le corps véritable de ce dernier.
+Peu importait que son intuition soit correcte ou non. Il lui était simplement désagréable de devoir invoquer les âmes des avatars de Tian Yunzi devant le corps véritable de ce dernier.
 
 Alors que le python bondissait comme l'éclair et que l'odeur fétide approchait, Wang Lin ferma les yeux. Soudain, l'armure sur son corps projeta une lueur éclatante et l'oiseau Vermillon blanc s'envola. Il fonça vers le python, et les rugissements du reptile entremêlèrent les cris de l'oiseau Vermillon.
 
-Les yeux de l'Omniscient brillèrent d'un sourire. Ce qu'il attendait, outre les deux avatars, était précisément cet oiseau Vermillon. Dès que l'oiseau apparut, l'Omniscient se leva et fit un pas en avant.
+Les yeux de Tian Yunzi brillèrent d'un sourire. Ce qu'il attendait, outre les deux avatars, était précisément cet oiseau Vermillon. Dès que l'oiseau apparut, Tian Yunzi se leva et fit un pas en avant.
 
 En une seule enjambée, il atteignit Wang Lin. Ignorant ce dernier, il tendit impitoyablement la main vers l'oiseau Vermillon blanc!
 
 « Mon Destin Céleste des Quatre Esprits ne manque plus que de l'Esprit Vermillon. Si je peux l'obtenir aujourd'hui, ce sera une occasion mémorable! »
 
-L'oiseau Vermillon blanc poussa un sifflement et une flamme monstrueuse explosa de son corps. Pourtant, la main massive de l'Omniscient perça les flammes pour saisir l'oiseau. Le python esquiva l'oiseau Vermillon et chargea Wang Lin.
+L'oiseau Vermillon blanc poussa un sifflement et une flamme monstrueuse explosa de son corps. Pourtant, la main massive de Tian Yunzi perça les flammes pour saisir l'oiseau. Le python esquiva l'oiseau Vermillon et chargea Wang Lin.
 
 Le python ouvrit la gueule pour dévorer Wang Lin.
 
@@ -56,13 +56,13 @@ Ce cri affaiblit encore davantage l'âme d'origine de Wang Lin, mais le python q
 
 C'est alors que le chaos entourant cette zone de cinquante kilomètres commença à bouillonner, et des grondements tonitruants retentirent de l'extérieur.
 
-Même l'Omniscient fut stupéfait!
+Même Tian Yunzi fut stupéfait!
 
 Alors que les trépidations tonnerre résonnaient, la foudre perça le chaos et chargea directement le python.
 
-Ce n'était pas un simple éclair, mais une multitude de décharges qui encerclèrent le python. Même l'Omniscient se retrouva entouré par la foudre.
+Ce n'était pas un simple éclair, mais une multitude de décharges qui encerclèrent le python. Même Tian Yunzi se retrouva entouré par la foudre.
 
-Tandis que le tonnerre grondait, le python poussa un cri misérable et son corps s'effondra. Une intention meurtrière traversa les yeux de l'Omniscient; il ne pensait pas que Wang Lin possédait encore un tel sort.
+Tandis que le tonnerre grondait, le python poussa un cri misérable et son corps s'effondra. Une intention meurtrière traversa les yeux de Tian Yunzi; il ne pensait pas que Wang Lin possédait encore un tel sort.
 
 Sa main droite ne s'arrêta pas et saisit l'oiseau Vermillon blanc. Simultanément, sa main gauche s'éleva pour frapper impitoyablement Wang Lin.
 
@@ -72,27 +72,27 @@ Les six anciens de la Secte Divine de l'Oiseau Vermillon poussèrent des rugisse
 
 Ils n'étaient pas loin, mais il leur était impossible de secourir Wang Lin!
 
-Cette paume était l'attaque fatale de l'Omniscient. Au moment où elle s'abattit, l'œil de Wang Lin brilla d'un bleu et un bouclier de lumière azur apparut. Cependant, dès qu'il toucha la paume, le bouclier se fendit en deux et fut repoussé dans l'œil droit de Wang Lin.
+Cette paume était l'attaque fatale de Tian Yunzi. Au moment où elle s'abattit, l'œil de Wang Lin brilla d'un bleu et un bouclier de lumière azur apparut. Cependant, dès qu'il toucha la paume, le bouclier se fendit en deux et fut repoussé dans l'œil droit de Wang Lin.
 
-Profitant du répit offert par le bouclier, la main droite de Wang Lin s'élança vers le vide. À cet instant, il ne se souciait plus de ses blessures. Une fissure apparut devant lui et la Lance Tueuse de Dieux surgit. Il la projeta avec rage contre la paume de l'Omniscient.
+Profitant du répit offert par le bouclier, la main droite de Wang Lin s'élança vers le vide. À cet instant, il ne se souciait plus de ses blessures. Une fissure apparut devant lui et la Lance Tueuse de Dieux surgit. Il la projeta avec rage contre la paume de Tian Yunzi.
 
-Dans un fracas, la Lance Tueuse de Dieux se dissipa en éclats de lumière. Ce n'était pas que l'arme était faible, mais Wang Lin n'avait pu invoquer qu'une illusion. Ajouté au fait qu'il était gravement blessé et incapable d'en déployer toute la puissance, l'objet se désintégra instantanément face à la paume de l'Omniscient.
+Dans un fracas, la Lance Tueuse de Dieux se dissipa en éclats de lumière. Ce n'était pas que l'arme était faible, mais Wang Lin n'avait pu invoquer qu'une illusion. Ajouté au fait qu'il était gravement blessé et incapable d'en déployer toute la puissance, l'objet se désintégra instantanément face à la paume de Tian Yunzi.
 
-La main droite de l'Omniscient fut engourdie, et l'intention meurtrière dans ses yeux s'intensifia. Ce n'est qu'aujourd'hui qu'il réalisait enfin à quel point Wang Lin était difficile à abattre! Mais en cet instant, il était déterminé à tuer cet enfant!
+La main droite de Tian Yunzi fut engourdie, et l'intention meurtrière dans ses yeux s'intensifia. Ce n'est qu'aujourd'hui qu'il réalisait enfin à quel point Wang Lin était difficile à abattre! Mais en cet instant, il était déterminé à tuer cet enfant!
 
 Bien que la Lance Tueuse de Dieux se soit dissipée, elle avait offert un temps précieux à Wang Lin. Une lueur de folie apparut dans les yeux du jeune homme alors qu'il rugissait: « Si tu veux ma mort, tu devras en payer le prix! »
 
-En hurlant, son troisième œil apparut entre ses sourcils et s'ouvrit brusquement face à l'Omniscient!
+En hurlant, son troisième œil apparut entre ses sourcils et s'ouvrit brusquement face à Tian Yunzi!
 
 L'ancien maître et son disciple entamaient leur second combat depuis la planète Tian Yun! L'un voulait tuer, tandis que l'autre luttait pour sa survie! Ils étaient comme l'eau et le feu; incompatibles!
 
-Dès l'ouverture du troisième œil, une lumière rouge jaillit et le peu de pouvoir de la source d'origine qu'il contenait jaillit. La lueur rouge enveloppa la paume de l'Omniscient ainsi que l'homme lui-même.
+Dès l'ouverture du troisième œil, une lumière rouge jaillit et le peu de pouvoir de la source d'origine qu'il contenait jaillit. La lueur rouge enveloppa la paume de Tian Yunzi ainsi que l'homme lui-même.
 
-Même un être aussi puissant que l'Omniscient ne put s'empêcher de trembler, et il s'écria: « L'Origine Source!! » Son corps se dissipa rapidement sous l'effet de cette puissance. Derrière lui, des milliers d'images de l'Omniscient apparurent, semblant lutter en poussant des rugissements de rage.
+Même un être aussi puissant que Tian Yunzi ne put s'empêcher de trembler, et il s'écria: « L'Origine Source!! » Son corps se dissipa rapidement sous l'effet de cette puissance. Derrière lui, des milliers d'images de Tian Yunzi apparurent, semblant lutter en poussant des rugissements de rage.
 
 C'était comme si un équilibre subtil avait été rompu par le pouvoir de l'Origine Source!
 
-Alors que le corps de l'Omniscient était contraint à l'arrêt, l'un des six anciens de la Secte Divine de l'Oiseau Vermillon afficha une folie déterminée. Leur tâche était d'assurer la sécurité de Wang Lin, mais celui-ci se trouvait dans une situation de vie ou de mort. Si Wang Lin mourait sous leurs yeux, cela reviendrait à anéantir tout espoir pour la Secte Divine de l'Oiseau Vermillon.
+Alors que le corps de Tian Yunzi était contraint à l'arrêt, l'un des six anciens de la Secte Divine de l'Oiseau Vermillon afficha une folie déterminée. Leur tâche était d'assurer la sécurité de Wang Lin, mais celui-ci se trouvait dans une situation de vie ou de mort. Si Wang Lin mourait sous leurs yeux, cela reviendrait à anéantir tout espoir pour la Secte Divine de l'Oiseau Vermillon.
 
 Ceux qui n'appartenaient pas à la secte ne pourraient jamais comprendre la douleur et la frustration accumulées pendant des dizaines de milliers d'années. À cet instant, le vieil homme esquissa un sourire amer et ouvrit les bras. La folie embrasa son regard alors qu'il commençait à détruire son âme d'origine!
 
@@ -100,13 +100,13 @@ L'autodestruction d'un cultivateur du niveau Briseur du Nirvana!
 
 Cette autodestruction fut tellurique, créant une aura de pure destruction. Ce vieil homme était prêt à tout sacrifier, bien que Wang Lin ignore même son nom. Pour l'espoir de la Secte Divine de l'Oiseau Vermillon, il choisissait sa propre fin!
 
-Un grondement assourdissant retentit alors que son corps fut déchiré. Son âme d'origine transporta un impact inimaginable qui balaya tout sur son passage. Les yeux de l'Omniscient s'illuminèrent et sa main droite se porta vers le milieu de son front. Soudain, trois marques apparurent entre ses sourcils!
+Un grondement assourdissant retentit alors que son corps fut déchiré. Son âme d'origine transporta un impact inimaginable qui balaya tout sur son passage. Les yeux de Tian Yunzi s'illuminèrent et sa main droite se porta vers le milieu de son front. Soudain, trois marques apparurent entre ses sourcils!
 
-Alors que l'Omniscient tendait la main vers son front, l'une des marques fut arrachée. À cet instant, le niveau de culture de l'Omniscient augmenta de manière prodigieuse, et cette puissance créa une tempête. Elle bloqua l'Origine Source de Wang Lin et stoppa l'impact de l'autodestruction du cultivateur.
+Alors que Tian Yunzi tendait la main vers son front, l'une des marques fut arrachée. À cet instant, le niveau de culture de Tian Yunzi augmenta de manière prodigieuse, et cette puissance créa une tempête. Elle bloqua l'Origine Source de Wang Lin et stoppa l'impact de l'autodestruction du cultivateur.
 
-Profitant de la puissance libérée par l'autodestruction du Briseur du Nirvana, Wang Lin recula rapidement pour finalement rétablir une distance entre lui et l'Omniscient!
+Profitant de la puissance libérée par l'autodestruction du Briseur du Nirvana, Wang Lin recula rapidement pour finalement rétablir une distance entre lui et Tian Yunzi!
 
-Les cheveux blancs de l'Omniscient flottaient au vent. Son visage vieilli s'était considérablement rajeuni après la destruction de la marque; il ressemblait désormais à un homme d'âge mûr d'une cinquantaine d'années.
+Les cheveux blancs de Tian Yunzi flottaient au vent. Son visage vieilli s'était considérablement rajeuni après la destruction de la marque; il ressemblait désormais à un homme d'âge mûr d'une cinquantaine d'années.
 
 L'aura émanant de son corps fit pousser un cri de stupeur à l'assistance. Même les yeux de l'Ancien Démon Ta Jia se rétrécirent.
 

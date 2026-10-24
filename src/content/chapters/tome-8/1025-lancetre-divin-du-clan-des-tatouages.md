@@ -50,35 +50,35 @@ Tandis que Wang Lin et Situ Nan s'entraidaient, le corps de Ling Tianhou chuta l
 
 Cependant, la culture de Ling Tianhou étant supérieure à celle de Situ Nan, elle se rétablit légèrement durant sa chute. Mais il était trop proche de la mer de sang. S'il avait retrouvé sa pleine puissance, il aurait pu s'échapper, mais ses chances étaient désormais infimes!
 
-À ce moment précis, l'Omniscient, posté au-dessus du vortex, fronça les sourcils avant de laisser échapper un soupir. D'un revers de manche, il fit exactement ce que Wang Lin avait fait: il plongea comme l'éclair.
+À ce moment précis, Tian Yunzi, posté au-dessus du vortex, fronça les sourcils avant de laisser échapper un soupir. D'un revers de manche, il fit exactement ce que Wang Lin avait fait: il plongea comme l'éclair.
 
 Bien plus rapide que Wang Lin, il atteignit Ling Tianhou en un instant. Il le saisit et s'élança vers les cieux.
 
 La mer de sang rugit et la silhouette vague émergea du centre. La figure leva son bras desséché et saisit doucement le vide devant elle.
 
-L'expression de l'Omniscient changea et, sans réfléchir, un rayon de lumière grise jaillit entre ses sourcils. Dès que l'Omniscient en robe grise apparut, sa main forma un sceau et un sifflement strident retentit du fond du vortex.
+L'expression de Tian Yunzi changea et, sans réfléchir, un rayon de lumière grise jaillit entre ses sourcils. Dès que Tian Yunzi en robe grise apparut, sa main forma un sceau et un sifflement strident retentit du fond du vortex.
 
 Des brins d'énergie de la boucherie surgirent du vide pour encercler la zone. De loin, leur nombre était si immense qu'ils étaient extrêmement alarmants.
 
-Sous le commandement du doigt pointé de l'Omniscient en robe grise, les innombrables filaments d'énergie de la boucherie convergèrent de toutes les directions. Ils se condensèrent en un seul brin massif qui chargea la main droite de la silhouette vague.
+Sous le commandement du doigt pointé de Tian Yunzi en robe grise, les innombrables filaments d'énergie de la boucherie convergèrent de toutes les directions. Ils se condensèrent en un seul brin massif qui chargea la main droite de la silhouette vague.
 
-À l'apparition de l'Omniscient en robe grise, les pupilles du Maître du Vide, qui portait la belle femme d'âge moyen et la présumée Sainte du Vide Brillant, se rétractèrent. Il murmura: « Robe grise... »
+À l'apparition de Tian Yunzi en robe grise, les pupilles du Maître du Vide, qui portait la belle femme d'âge moyen et la présumée Sainte du Vide Brillant, se rétractèrent. Il murmura: « Robe grise... »
 
-Le visage de l'Omniscient en robe grise était sombre et glacial. Pointant sa main droite, il déclara calmement:
+Le visage de Tian Yunzi en robe grise était sombre et glacial. Pointant sa main droite, il déclara calmement:
 
 « Effondrement! »
 
-Sitôt la parole prononcée, le brin d'énergie de la boucherie s'effondra soudainement! Un bruit assourdissant retentit et l'implosion de cette énergie créa une force de recul qui propulsa l'Omniscient et Ling Tianhou vers les hauteurs.
+Sitôt la parole prononcée, le brin d'énergie de la boucherie s'effondra soudainement! Un bruit assourdissant retentit et l'implosion de cette énergie créa une force de recul qui propulsa Tian Yunzi et Ling Tianhou vers les hauteurs.
 
 La mer de sang fut repoussée par cette puissante explosion, et les fragments d'âmes à l'intérieur poussèrent des cris de désespoir avant de s'éteindre.
 
-Ling Tianhou resta silencieux et répondit à l'aide de l'Omniscient par un regard froid.
+Ling Tianhou resta silencieux et répondit à l'aide de Tian Yunzi par un regard froid.
 
-L'Omniscient ignora Ling Tianhou alors qu'un cri perçant jaillissait du vortex. Une silhouette s'en échappa à une vitesse inimaginable et tenta de griffer l'Omniscient en robe grise.
+Tian Yunzi ignora Ling Tianhou alors qu'un cri perçant jaillissait du vortex. Une silhouette s'en échappa à une vitesse inimaginable et tenta de griffer Tian Yunzi en robe grise.
 
 Ce cri portait une force terrifiante. Lorsque Wang Lin et Situ Nan furent frappés par cette onde, ils crachèrent immédiatement du sang et accélérèrent leur fuite. Quant aux autres, ils continuèrent de s'élever en utilisant leur énergie originelle pour résister à l'impact.
 
-Les yeux de l'Omniscient en robe grise se plissèrent alors qu'il fixait la silhouette floue qui chargeait vers lui. Ses yeux devinrent rouges et il afficha un sourire narquois avant de pointer le ciel au-dessus de lui et de dire lentement: « Boucherie, deviens un monde! »
+Les yeux de Tian Yunzi en robe grise se plissèrent alors qu'il fixait la silhouette floue qui chargeait vers lui. Ses yeux devinrent rouges et il afficha un sourire narquois avant de pointer le ciel au-dessus de lui et de dire lentement: « Boucherie, deviens un monde! »
 
 À peine eut-il parlé qu'un grondement sourd ébranla le vide où ils se trouvaient. Soudain, une fissure gigantesque apparut au-dessus du vortex!
 
@@ -86,17 +86,17 @@ Des brins d'énergie de la boucherie jaillirent de la faille avec frénésie. Il
 
 Cent millions de brins d'énergie de la boucherie apparurent au-dessus du Vortex Funéraire Céleste. La quantité était telle que, sans leur capacité à fusionner, il aurait été impossible de les contenir ici!
 
-Wang Lin retint son souffle devant ce spectacle inimaginable. Il lui sembla entendre de nouveau, à son oreille, la voix calme mais autoritaire de l'Omniscient en robe grise d'autrefois:
+Wang Lin retint son souffle devant ce spectacle inimaginable. Il lui sembla entendre de nouveau, à son oreille, la voix calme mais autoritaire de Tian Yunzi en robe grise d'autrefois:
 
 « Si j'avais cent millions de brins d'énergie de la boucherie, je pourrais me protéger même si une planète explosait! »
 
 Wang Lin n'avait jamais vu une telle concentration d'énergie de la boucherie. En être le témoin direct lui infligea un choc indescriptible.
 
-Bien que le Vortex Funéraire Céleste fût vaste, il paraissait un peu plus petit que cette énergie infinie. À cet instant, l'énergie de la boucherie se rassemblait sous le contrôle absolu de l'Omniscient en robe grise.
+Bien que le Vortex Funéraire Céleste fût vaste, il paraissait un peu plus petit que cette énergie infinie. À cet instant, l'énergie de la boucherie se rassemblait sous le contrôle absolu de Tian Yunzi en robe grise.
 
 Le vortex formé par ces cent millions de brins apparut soudainement devant tous. Il possédait le pouvoir de tout briser sur son passage et, à mesure qu'il se compressait, une aura terrifiante se dégagea.
 
-« Boucherie Monstrueuse! » hurla l'Omniscient en robe grise alors que le vortex chargeait la silhouette vague au sein du Vortex Funéraire Céleste.
+« Boucherie Monstrueuse! » hurla Tian Yunzi en robe grise alors que le vortex chargeait la silhouette vague au sein du Vortex Funéraire Céleste.
 
 Boum, boum, boum, boum!
 
@@ -104,25 +104,25 @@ Des vagues de grondements assourdissants résonnèrent sans interruption. Sous l
 
 Profitant de cette onde de choc, Wang Lin et Situ Nan accélérèrent leur ascension. Ils sortirent du vortex et regardèrent en bas, le visage pâle. Même les yeux du vieil homme sur la gourde étaient empreints de crainte, et les pupilles de l'homme en noir portant la marque du dragon noir cachée entre ses sourcils se rétractèrent.
 
-« L'Omniscient... »
+« Tian Yunzi... »
 
-Maître du Vide prit une profonde inspiration en fixant l'Omniscient en robe grise. Il n'oublierait jamais comment cet homme avait pénétré dans l'Alliance pour vaincre d'innombrables cultivateurs puissants, certains membres du groupe des Anciens n'étant pas de taille face à lui. Il avait même tué un Ancien par la force pour intégrer leurs rangs!
+Maître du Vide prit une profonde inspiration en fixant Tian Yunzi en robe grise. Il n'oublierait jamais comment cet homme avait pénétré dans l'Alliance pour vaincre d'innombrables cultivateurs puissants, certains membres du groupe des Anciens n'étant pas de taille face à lui. Il avait même tué un Ancien par la force pour intégrer leurs rangs!
 
-« Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître du Vide observa l'Omniscient en robe grise, puis le corps originel de l'Omniscient qui avait sauvé Ling Tianhou.
+« Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître du Vide observa Tian Yunzi en robe grise, puis le corps originel de Tian Yunzi qui avait sauvé Ling Tianhou.
 
 « C'est uniquement parce que ce Senior Frère craignait cet homme qu'il a sacrifié sa longévité et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser le cœur Dao de cet homme. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
 
-Sinon, l'Omniscient aurait atteint un niveau terrifiant aujourd'hui. Même s'il n'égalait pas la troisième étape, il n'en serait certainement pas loin! »
+Sinon, Tian Yunzi aurait atteint un niveau terrifiant aujourd'hui. Même s'il n'égalait pas la troisième étape, il n'en serait certainement pas loin! »
 
 À l'intérieur du Vortex Funéraire Céleste, au moment où la mer de sang s'effondrait, la femme floue agita sa main droite. Un tatouage pourpre et doré brilla entre ses sourcils. D'un geste, le tourbillon de boucherie déferlant s'interrompit soudainement, puis s'effondra, et les cent millions de brins d'énergie disparurent sans laisser de trace.
 
 Ce changement brusque fit trembler l'esprit de tous les spectateurs.
 
-Les yeux de l'Omniscient en robe grise s'illuminèrent. Il fronça les sourcils, prêt à lancer un autre sort, quand le corps originel de l'Omniscient qui avait sauvé Ling Tianhou ordonna calmement: « Reviens! »
+Les yeux de Tian Yunzi en robe grise s'illuminèrent. Il fronça les sourcils, prêt à lancer un autre sort, quand le corps originel de Tian Yunzi qui avait sauvé Ling Tianhou ordonna calmement: « Reviens! »
 
-L'Omniscient en robe grise lança un regard froid vers son corps originel. Cependant, il se retira en silence, se changea en un rai de lumière grise et disparut entre les sourcils de l'Omniscient.
+Tian Yunzi en robe grise lança un regard froid vers son corps originel. Cependant, il se retira en silence, se changea en un rai de lumière grise et disparut entre les sourcils de Tian Yunzi.
 
-Puis l'Omniscient s'éleva du vortex et flotta dans les airs. Hormis ceux qui avaient été aspirés plus tôt, tous étaient encore là. Pourtant, le silence régnait; tous les regards étaient rivés sur la femme qui émergeait lentement du vortex!
+Puis Tian Yunzi s'éleva du vortex et flotta dans les airs. Hormis ceux qui avaient été aspirés plus tôt, tous étaient encore là. Pourtant, le silence régnait; tous les regards étaient rivés sur la femme qui émergeait lentement du vortex!
 
 À mesure qu'elle approchait, Wang Lin vit clairement que ses pieds étaient fermement retenus par une sorte de tendon écarlate. Tandis qu'elle s'élevait vers le ciel, ce tendon se tendait droit. Le Blaireau Marqué d'Étoiles, qui avait disparu, surgit du vortex et atterrit sur le tendon entourant les pieds de la femme. Elle renifla quelques fois avant de s'allonger par-dessus sans bouger, ses yeux brillant d'une lueur vive.
 

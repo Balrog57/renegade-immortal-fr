@@ -83,7 +83,7 @@ S'il y avait une différence, c'était que ce corps puissant permettrait à l'en
 
 Il n'était même pas nécessaire d'évoquer la Nuit Déchirée, qu'il ne pouvait utiliser qu'en des occasions spéciales. Wang Lin ignorait que sa technique de la Nuit Déchirée s'était propagée partout au cours de ces trois années, déclenchant une tempête colossale au sein de l'Alliance.
 
-Non seulement la Nuit Déchirée avait tué Maître du Vide, mais deux avatars de l'Omniscient avaient été éliminés et un autre gravement blessé. Un tel palmarès avait permis à Wang Lin de devenir un cultivateur de premier rang du jour au lendemain!
+Non seulement la Nuit Déchirée avait tué Maître du Vide, mais deux avatars de Tian Yunzi avaient été éliminés et un autre gravement blessé. Un tel palmarès avait permis à Wang Lin de devenir un cultivateur de premier rang du jour au lendemain!
 
 « Quoi qu'il en soit, tu es un membre de la Secte Divine de l'Oiseau Vermillon, je t'accorderai donc une mort par les flammes! » Wang Lin agita sa main droite et, à cet instant, un corps spirituel fantomatique apparut derrière lui.
 

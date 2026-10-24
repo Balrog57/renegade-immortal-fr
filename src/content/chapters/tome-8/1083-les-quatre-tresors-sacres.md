@@ -44,24 +44,24 @@ Les Quatre Bêtes Divines étaient désormais en position: le Dragon Azure à l'
 
 Bien que ce processus puisse paraître long, les Quatre Bêtes Divines apparurent en un temps record, encerclant le ciel.
 
-L'expression de l'Omniscient devint sombre. L'Ancien Démon Ta Jia fixa également les Quatre Bêtes Divines d'un regard glacial.
+L'expression de Tian Yunzi devint sombre. L'Ancien Démon Ta Jia fixa également les Quatre Bêtes Divines d'un regard glacial.
 
 L'Empereur Divin de l'Oiseau Vermillon s'était préparé. D'un geste de la main droite, il projeta la goutte de sang qu'il tenait vers l'Oiseau Vermillon au sud, afin qu'elle fusionne avec lui.
 
-L'Oiseau Vermillon poussa aussitôt un cri strident, et les flammes qui l'entouraient s'intensifièrent violemment. Il chargea droit sur l'Omniscient et l'Ancien Démon Ta Jia.
+L'Oiseau Vermillon poussa aussitôt un cri strident, et les flammes qui l'entouraient s'intensifièrent violemment. Il chargea droit sur Tian Yunzi et l'Ancien Démon Ta Jia.
 
 Au même moment, les Sectes Divines du Dragon Azure, du Tigre Blanc et de la Tortue Noire firent de même. Les trois bêtes divines poussèrent des rugissements et fondirent sur leurs cibles, provoquant un impact inimaginable.
 
-Le visage de l'Omniscient s'assombrit alors qu'il formait un sceau de sa main droite. Il pointa ensuite le ciel en criant: « Esprit Tigre aux Sept Couleurs du Destin Céleste! »
+Le visage de Tian Yunzi s'assombrit alors qu'il formait un sceau de sa main droite. Il pointa ensuite le ciel en criant: « Esprit Tigre aux Sept Couleurs du Destin Céleste! »
 
 À sa parole, une lueur septicolore jaillit et, de cette lumière, un tigre aux sept couleurs apparut. Ce dernier était aussi vaste que le Tigre Blanc et se précipita sur lui pour l'attaquer.
 
 « Esprit Dragon aux Sept Couleurs du Destin Céleste! »
 « Esprit Tortue aux Sept Couleurs du Destin Céleste! »
 
-Après les cris de l'Omniscient, un dragon et une tortue aux sept couleurs apparurent à leur tour. Ils poussèrent un rugissement et chargèrent.
+Après les cris de Tian Yunzi, un dragon et une tortue aux sept couleurs apparurent à leur tour. Ils poussèrent un rugissement et chargèrent.
 
-Puis, l'Omniscient lui-même forma un sceau et s'élança vers le ciel.
+Puis, Tian Yunzi lui-même forma un sceau et s'élança vers le ciel.
 
 Tandis que l'Ancien Démon Ta Jia contemplait les Quatre Bêtes Divines, une pointe de crainte perçait dans son regard. Ces quatre Trésors Sacrés lui semblaient étrangement familiers. Au plus profond de sa mémoire, il avait l'impression de les avoir déjà vus. Il ne s'agissait pas des souvenirs de Qing Lin, mais de ses propres souvenirs d'ancien démon. L'Ancien Démon Ta Jia pointa le ciel et hurla: « Triple Enterrement Solaire, Lunaire et Stellaire! » À cet instant, l'espace occupé par les Quatre Bêtes Divines fut recouvert de lumière stellaire. Cette lueur surgit soudainement et fondit sur les bêtes divines.
 
@@ -77,7 +77,7 @@ Une fois qu'il eut absorbé toute cette énergie, le point de lumière s'étendi
 
 À cet instant, cette sphère de lumière était semblable à un soleil. Elle siffla directement vers la particule de poussière dans laquelle se trouvait la Terre des Esprits Démoniaques!
 
-L'Omniscient agita ses manches et chargea les Quatre Bêtes Divines en plein ciel.
+Tian Yunzi agita ses manches et chargea les Quatre Bêtes Divines en plein ciel.
 
 L'Empereur Divin de l'Oiseau Vermillon secoua la tête et déclara calmement: « Observez. Les Quatre Trésors Sacrés de ma Secte Divine ne possèdent que trois styles, mais ces trois seuls suffisent à assurer l'éternité de notre secte! »
 
@@ -93,13 +93,13 @@ Simultanément, les trois autres sectes divines déclamèrent les mêmes mots:
 
 Aussitôt, les Quatre Bêtes Divines dans le ciel poussèrent des rugissements avant de se métamorphoser en armes! Le Dragon Azure devint une lance bleue, le Tigre Blanc une lame dorée, l'Oiseau Vermillon une longue épée rouge et la Tortue Noire une hache noire!
 
-Les quatre armes formées par les bêtes divines chargèrent vers le bas. L'esprit du dragon invoqué par l'Omniscient fut transpercé sans résistance par la lance bleue et se désintégra.
+Les quatre armes formées par les bêtes divines chargèrent vers le bas. L'esprit du dragon invoqué par Tian Yunzi fut transpercé sans résistance par la lance bleue et se désintégra.
 
 Il en fut de même pour les deux autres esprits; ils ne purent résister au premier style des Quatre Trésors Sacrés. Ils s'effondrèrent, balayés par la puissance de l'attaque.
 
 La lumière stellaire de l'Ancien Démon Ta Jia atteignit sa cible, mais elle fut transpercée par les Trésors Sacrés et se dissipa. Quant à la lueur lunaire, elle ne résista qu'un bref instant avant de s'évanouir.
 
-Les Quatre Trésors Sacrés chargèrent l'Omniscient et l'Ancien Démon Ta Jia. À cet instant, le ciel s'embrasa: c'était l'Enterrement Solaire du démon ancien qui approchait.
+Les Quatre Trésors Sacrés chargèrent Tian Yunzi et l'Ancien Démon Ta Jia. À cet instant, le ciel s'embrasa: c'était l'Enterrement Solaire du démon ancien qui approchait.
 
 Cette sphère de lumière géante pénétra par la déchirure du ciel de la Terre des Esprits Démoniaques, enveloppant toute la terre. L'Enterrement Solaire était l'un des sorts les plus puissants de Qing Lin. Bien que l'Ancien Démon Ta Jia, qui s'était emparé de ce corps, ne l'ait pas exécuté parfaitement, sa force n'en demeurait pas moins redoutable.
 

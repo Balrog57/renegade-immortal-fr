@@ -86,7 +86,7 @@ Après deux impacts, deux des épées volèrent en éclats. Le visage du vieil h
 
 Le quatrième dragon aux côtés de la femme devenait de plus en plus tangible. Il était presque achevé.
 
-« Ce n'est pas une Céleste ordinaire!!! La façon dont elle s'exprime... pourrait-elle être un Roi Céleste...? » Le vieil homme était terrifié. En seulement deux gestes, elle avait brisé deux de ses épées. Même l'Omniscient ne l'aurait pas fait. Comment ne serait-il pas bouleversé?
+« Ce n'est pas une Céleste ordinaire!!! La façon dont elle s'exprime... pourrait-elle être un Roi Céleste...? » Le vieil homme était terrifié. En seulement deux gestes, elle avait brisé deux de ses épées. Même Tian Yunzi ne l'aurait pas fait. Comment ne serait-il pas bouleversé?
 
 « Tant pis, au pire je n'obtiendrai pas l'épée céleste aujourd'hui... Heu, quelque chose ne va pas! » Le vieil homme s'interrompit soudainement, plongé dans une réflexion alors qu'il observait le fragment.
 

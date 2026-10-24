@@ -60,15 +60,15 @@ Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le d
 
 « À l'époque, dans la Terre des Esprits Démoniaques, avec l'aide de l'Ancien Démon Bei Luo, j'avais pu entrer dans un état mystérieux et découvrir la faille de l'Art du Massacre Céleste... » En murmurant cela, Wang Lin plissa les yeux.
 
-« Dans cet état, je pouvais vaguement percer tous les dao du monde. Je m'étais divisé en d'innombrables clones pour ensuite ne faire qu'un... C'était très similaire à ce que l'Omniscient m'enseignait lors de la pratique de ce sort! » Les yeux de Wang Lin devinrent de plus en plus brillants.
+« Dans cet état, je pouvais vaguement percer tous les dao du monde. Je m'étais divisé en d'innombrables clones pour ensuite ne faire qu'un... C'était très similaire à ce que Tian Yunzi m'enseignait lors de la pratique de ce sort! » Les yeux de Wang Lin devinrent de plus en plus brillants.
 
-« Le dao de l'Omniscient est le dao des cieux. Dans son sens divin, il existait d'innombrables Omniscients. Chaque Omniscient n'était doué que pour un seul sort céleste... Avec ma culture de l'époque, je ne pouvais percevoir que cela, mais avec le recul, non seulement chaque Omniscient possédait son propre sort céleste, mais chacun possédait aussi son propre... dao différent!!! »
+« Le dao de Tian Yunzi est le dao des cieux. Dans son sens divin, il existait d'innombrables Tian Yunzis. Chaque Tian Yunzi n'était doué que pour un seul sort céleste... Avec ma culture de l'époque, je ne pouvais percevoir que cela, mais avec le recul, non seulement chaque Tian Yunzi possédait son propre sort céleste, mais chacun possédait aussi son propre... dao différent!!! »
 
-L'expression de Wang Lin changea, frappé par sa propre intuition. Il prit une profonde inspiration en remémorant ses souvenirs de ce qui s'était passé à l'intérieur de l'Omniscient. Plus il y réfléchissait, plus il se sentait certain de son idée.
+L'expression de Wang Lin changea, frappé par sa propre intuition. Il prit une profonde inspiration en remémorant ses souvenirs de ce qui s'était passé à l'intérieur de Tian Yunzi. Plus il y réfléchissait, plus il se sentait certain de son idée.
 
-« L'Omniscient possède de nombreux daos! Comment a-t-il pu obtenir autant de daos... » Les yeux de Wang Lin brillèrent et il se remémora les paroles de son premier garde céleste avant d'être raffiné.
+« Tian Yunzi possède de nombreux daos! Comment a-t-il pu obtenir autant de daos... » Les yeux de Wang Lin brillèrent et il se remémora les paroles de son premier garde céleste avant d'être raffiné.
 
-« J'ai vu le Maître Omniscient prendre Sun Yun et... le dévorer... Le Maître a complètement dévoré Sun Yun... »
+« J'ai vu le Maître Tian Yunzi prendre Sun Yun et... le dévorer... Le Maître a complètement dévoré Sun Yun... »
 
 Wang Lin ferma les yeux. Après un court instant, il les rouvrit brusquement, affichant un regard résolu alors qu'il fixait Yao Bingyun. Il murmura: « Le dao du karma est trop illusoire. Selon la troisième étape que j'ai observée, tous les daos des cieux doivent retourner à leur origine véritable. J'ignore quelle est l'origine du dao du karma, mais pour que mon domaine existe réellement, je dois... dévorer! »
 

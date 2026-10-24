@@ -84,7 +84,7 @@ Les fissures sur le miroir ancien s'agrandirent encore, mais cette fois, elles f
 
 Ces deux âmes n'étaient pas complètes; elles paraissaient voilées et un sceau scintillait entre leurs sourcils. Au moment de leur apparition, l'expression du jeune homme maléfique changea. Il les fixa intensément: « Seigneurs Célestes de Rang 1! »
 
-Le visage de Wang Lin devint livide. Il pouvait ressentir une aura aussi puissante que celle de l'Omniscient émaner de ces deux âmes. Le Maître Yan Leizi, empreint de prudence, forma un sceau et cria: « Troisième et deuxième âmes, en position! »
+Le visage de Wang Lin devint livide. Il pouvait ressentir une aura aussi puissante que celle de Tian Yunzi émaner de ces deux âmes. Le Maître Yan Leizi, empreint de prudence, forma un sceau et cria: « Troisième et deuxième âmes, en position! »
 
 Les deux âmes jetèrent un regard glacial au Maître Yan Leizi avant de fusionner avec leurs fragments respectifs. À l'instant de leur disparition, le miroir ancien trembla violemment sous une série de craquements avant de s'effondrer en d'innombrables morceaux. Tandis que le miroir se brisait, l'âme originelle d'un homme d'âge moyen s'en échappa.
 

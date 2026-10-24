@@ -76,7 +76,7 @@ Son expression était calme, comme s'il n'était nullement en colère. Pourtant,
 
 Il était prêt à défier les cieux et à massacrer tout ce qui se dressait sur son chemin pour elle. S'il devait choisir entre sa fille et l'atteinte de la troisième étape, il pourrait hésiter et lutter intérieurement, mais au final, il choisirait sa fille.
 
-C'était là qu'il différait radicalement de l'Omniscient et de Ling Tianhou. Si c'était l'Omniscient, il aurait tout sacrifié pour atteindre la troisième étape!
+C'était là qu'il différait radicalement de Tian Yunzi et de Ling Tianhou. Si c'était Tian Yunzi, il aurait tout sacrifié pour atteindre la troisième étape!
 
 Pour sa propre fille, il était prêt à renoncer à sa dignité, à briser le serment que son père mourant lui avait imposé: celui de ne jamais poser le pied dans le Système Stellaire de Luotian...
 

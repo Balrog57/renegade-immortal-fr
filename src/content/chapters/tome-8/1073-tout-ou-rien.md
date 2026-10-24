@@ -8,7 +8,7 @@ slug: tout-ou-rien
 ---
 Le fracas des vagues continuait de résonner aux oreilles des quatre individus présents. Ce son semblait empreint d'un rythme étrange, comme s'il incarnait la loi même du monde.
 
-Cependant, alors que le tumulte des ondes s'intensifiait, la bouche de l'Omniscient aux robes grises s'assécha. Il n'était pas le seul; les deux autres avatars ressentaient la même chose. En réalité, leur état était bien pire, et une peur incontrôlable grandissait dans leurs cœurs.
+Cependant, alors que le tumulte des ondes s'intensifiait, la bouche de Tian Yunzi aux robes grises s'assécha. Il n'était pas le seul; les deux autres avatars ressentaient la même chose. En réalité, leur état était bien pire, et une peur incontrôlable grandissait dans leurs cœurs.
 
 Le Maître du Vide s'était totalement éveillé lorsqu'il aperçut le soleil rouge vif poindre à l'horizon. Bien qu'une infime partie de l'astre ne fût encore visible, sa lumière éblouissante ressemblait à des lames cherchant à déchirer la nuit.
 
@@ -22,7 +22,7 @@ Le temps semblait s'étirer à l'infini, mais il parut aussi ne prendre qu'un in
 
 La nuit profonde fut brutalement déchirée. Cette puissance était assez forte pour inverser le monde, ébranler les cieux et provoquer l'effondrement de l'obscurité. La nuit en lambeaux serait balayée, et le monde serait submergé par la lumière!
 
-Elle portait aussi l'intention meurtrière monstrueuse de Wang Lin. Elle contenait son refus viscéral, né après avoir été traqué dans toute la Grotte de l'Empereur Céleste et être devenu, en fin de compte, le rouage du plan de l'Omniscient et de l'Ancien Démon Ta Jia. Elle contenait également la colère refoulée qu'il avait contenue durant tout ce temps!
+Elle portait aussi l'intention meurtrière monstrueuse de Wang Lin. Elle contenait son refus viscéral, né après avoir été traqué dans toute la Grotte de l'Empereur Céleste et être devenu, en fin de compte, le rouage du plan de Tian Yunzi et de l'Ancien Démon Ta Jia. Elle contenait également la colère refoulée qu'il avait contenue durant tout ce temps!
 
 Les deux éveils de l'Oiseau Vermillon de Wang Lin provoquèrent une chaleur inimaginable. Cette chaleur surpassait tout ce que les sorts de Wang Lin pouvaient produire d'ordinaire. Grâce à la loi originelle, la Nuit Brisée de Wang Lin put capturer le moment de chaleur intense du soleil levant pour l'amplifier à un degré prodigieux.
 
@@ -42,25 +42,25 @@ Le Maître du Vide était un puissant cultivateur au sommet du stade de Briseur 
 
 Le Maître du Vide s'éteignit dans un regret infini et une soif de vivre déçue...
 
-Tout cela se produisit en un instant. À l'instant où le soleil se leva, le Maître du Vide mourut. Sans même marquer de pause, la lumière déchira la nuit et fondit sur l'Omniscient aux robes grises ainsi que sur ses deux autres avatars.
+Tout cela se produisit en un instant. À l'instant où le soleil se leva, le Maître du Vide mourut. Sans même marquer de pause, la lumière déchira la nuit et fondit sur Tian Yunzi aux robes grises ainsi que sur ses deux autres avatars.
 
-À cet instant, l'Omniscient aux robes grises ressentit la douleur d'être lacéré dans chaque fibre de son être. Même son âme originelle indépendante fut enveloppée par cette puissance. Il n'avait jamais connu une telle souffrance; c'était comme si chaque partie de son corps était mise en pièces!
+À cet instant, Tian Yunzi aux robes grises ressentit la douleur d'être lacéré dans chaque fibre de son être. Même son âme originelle indépendante fut enveloppée par cette puissance. Il n'avait jamais connu une telle souffrance; c'était comme si chaque partie de son corps était mise en pièces!
 
 Un sentiment de crise vitale absolue envahit son cœur. Réprimant sa peur, il laissa échapper un rugissement et ouvrit les bras. Une quantité monstrueuse d'énergie originelle jaillit de son corps pour se transformer en une énergie de massacre sans fin.
 
 Cette énergie de massacre était infinie et recouvrait le ciel tout entier. Le grondement de cette force tenta de couvrir le bruit de la mer, et de supprimer le pouvoir de cette Nuit Brisée qui le terrifiait au point de presque lui faire perdre âme et esprit.
 
-Non seulement lui, mais les deux autres avatars de l'Omniscient pâlirent et déchaînèrent leurs propres sorts. L'Omniscient aux robes jaunes tourna sur lui-même avec rapidité. Une tempête se forma autour de son corps et il s'élança vers le ciel.
+Non seulement lui, mais les deux autres avatars de Tian Yunzi pâlirent et déchaînèrent leurs propres sorts. Tian Yunzi aux robes jaunes tourna sur lui-même avec rapidité. Une tempête se forma autour de son corps et il s'élança vers le ciel.
 
 Le ciel changea soudainement de couleur et d'innombrables ondulations jaunes apparurent dans les ténèbres, avant que le Doigt du Destin Céleste n'apparaisse dans un fracas.
 
-L'Omniscient aux robes jaunes était le détenteur de la technique du Doigt du Destin Céleste de l'Omniscient originel!
+Tian Yunzi aux robes jaunes était le détenteur de la technique du Doigt du Destin Céleste de Tian Yunzi originel!
 
 À cet instant, alors qu'il rugissait, le doigt géant portait une aura capable de faire s'incliner tous les mortels en adoration tandis qu'il chargeait vers le soleil levant!
 
 Il voulait détruire ce soleil!
 
-L'Omniscient aux robes violettes forma un sceau et une brume violette apparut derrière lui. Cette brume s'éleva dans les airs pour fusionner avec la nuit. L'Omniscient aux robes violettes lui-même se fondit dans l'obscurité.
+Tian Yunzi aux robes violettes forma un sceau et une brume violette apparut derrière lui. Cette brume s'éleva dans les airs pour fusionner avec la nuit. Tian Yunzi aux robes violettes lui-même se fondit dans l'obscurité.
 
 En un instant, une nuance violette imprégna la nuit, et des silhouettes hideuses en sortirent une à une. Elles étaient toutes différentes, hommes et femmes confondus, ressemblant à des fantômes enragés prisonniers de l'enfer. Dès leur apparition, elles poussèrent des sifflements et des rugissements stridents.
 
@@ -70,26 +70,26 @@ Cependant, dès que leurs sorts se manifestèrent, ils furent transpercés par l
 
 Les figures maléfiques surgies de la nuit pourpre chargèrent toutes vers le soleil, mais face à l'astre brûlant, elles furent déchiquetées. Elles étaient comme des papillons de nuit se précipitant dans les flammes. Certaines commencèrent à brûler en étant transpercées par la lumière avant d'être déchirées. Il ne leur fallut qu'un instant pour disparaître totalement.
 
-L'Omniscient aux robes violettes fut expulsé de la nuit avec une expression tordue. Son visage était livide et il cracha une bouffée de sang. Ses pupilles se contractèrent violemment, et la terreur dans son cœur atteignit un paroxysme.
+Tian Yunzi aux robes violettes fut expulsé de la nuit avec une expression tordue. Son visage était livide et il cracha une bouffée de sang. Ses pupilles se contractèrent violemment, et la terreur dans son cœur atteignit un paroxysme.
 
 Quant au Doigt du Destin Céleste, il portait un élan puissant en chargeant le soleil. Cependant, avant même de l'approcher, il fut balayé par la lumière solaire; des bruits de craquements éclatèrent de l'intérieur. Il commença à brûler et le feu se propagea rapidement. En un instant, le doigt s'effondra, tout comme la nuit.
 
-« Loi d'origine, l'origine de toutes les lois de l'univers! » L'Omniscient aux robes jaunes affichait une expression blême. Il ressentait des douleurs atroces et du sang jaillissait de tous ses orifices. Il cracha un flot de sang en esquissant un sourire amer.
+« Loi d'origine, l'origine de toutes les lois de l'univers! » Tian Yunzi aux robes jaunes affichait une expression blême. Il ressentait des douleurs atroces et du sang jaillissait de tous ses orifices. Il cracha un flot de sang en esquissant un sourire amer.
 
-Puis, l'innombrable énergie de massacre de l'Omniscient aux robes grises chargea vers le soleil telle une meute de dragons féroces. Cependant, la lumière solaire fit se dissiper les filaments d'énergie froide les uns après les autres. Même ceux qui ne se dissipaient pas furent lacérés par le soleil.
+Puis, l'innombrable énergie de massacre de Tian Yunzi aux robes grises chargea vers le soleil telle une meute de dragons féroces. Cependant, la lumière solaire fit se dissiper les filaments d'énergie froide les uns après les autres. Même ceux qui ne se dissipaient pas furent lacérés par le soleil.
 
-Le visage de l'Omniscient aux robes grises était pâle, mais ses yeux étaient féroces. Il possédait une volonté propre et savait que s'il n'y mettait pas tout ce qu'il avait, il mourrait sous l'effet de ce sort!
+Le visage de Tian Yunzi aux robes grises était pâle, mais ses yeux étaient féroces. Il possédait une volonté propre et savait que s'il n'y mettait pas tout ce qu'il avait, il mourrait sous l'effet de ce sort!
 
-Tout donner!! L'Omniscient aux robes grises forma un sceau avec ses deux mains et le dirigea vers son sort. Des bruits de craquements résonnèrent en lui et ses yeux devinrent totalement rouges. Soudain, un rayon de lumière jaillit de son front: c'était une épée de sang cramoisi!
+Tout donner!! Tian Yunzi aux robes grises forma un sceau avec ses deux mains et le dirigea vers son sort. Des bruits de craquements résonnèrent en lui et ses yeux devinrent totalement rouges. Soudain, un rayon de lumière jaillit de son front: c'était une épée de sang cramoisi!
 
-Cette épée de sang était la racine même de toute l'énergie de massacre qu'il avait cultivée, la source du carnage! Dès que l'épée apparut, le monde fut enveloppé d'une intention meurtrière sans fin. L'Omniscient aux robes grises pointa l'arme, et l'épée de sang chargea le soleil comme un éclair de tonnerre.
+Cette épée de sang était la racine même de toute l'énergie de massacre qu'il avait cultivée, la source du carnage! Dès que l'épée apparut, le monde fut enveloppé d'une intention meurtrière sans fin. Tian Yunzi aux robes grises pointa l'arme, et l'épée de sang chargea le soleil comme un éclair de tonnerre.
 
-L'Omniscient aux robes jaunes poussa également un rugissement et déploya ses mains en s'élançant vers le ciel. En un clin d'œil, sa tête se transforma en pouce; son bras devint l'index et le majeur; ses jambes devinrent l'annulaire et l'auriculaire. Enfin, son corps se changea en paume. Il devint une main d'une taille inimaginable. Cette paume était semblable au Doigt du Destin Céleste, mais bien plus puissante, car elle contenait toute la force de l'Omniscient aux robes jaunes!
+Tian Yunzi aux robes jaunes poussa également un rugissement et déploya ses mains en s'élançant vers le ciel. En un clin d'œil, sa tête se transforma en pouce; son bras devint l'index et le majeur; ses jambes devinrent l'annulaire et l'auriculaire. Enfin, son corps se changea en paume. Il devint une main d'une taille inimaginable. Cette paume était semblable au Doigt du Destin Céleste, mais bien plus puissante, car elle contenait toute la force de Tian Yunzi aux robes jaunes!
 
 Alors que cette paume chargeait le soleil, elle s'ouvrit, prête à le saisir impitoyablement!
 
-L'Omniscient aux robes bleues essuya également le sang de sa bouche, les yeux embrasés par la folie. Lorsqu'il bougea, un phénomène étrange se produisit: des milliers d'ombres apparurent derrière lui, telles des images rémanentes laissées par sa vitesse prodigieuse.
+Tian Yunzi aux robes bleues essuya également le sang de sa bouche, les yeux embrasés par la folie. Lorsqu'il bougea, un phénomène étrange se produisit: des milliers d'ombres apparurent derrière lui, telles des images rémanentes laissées par sa vitesse prodigieuse.
 
-Cependant, chaque ombre était unique. Tandis que l'Omniscient aux robes bleues convergeait vers le soleil, chacune de ces ombres fusionna avec son corps. À mesure qu'il approchait de l'astre, son aura devint monstrueuse.
+Cependant, chaque ombre était unique. Tandis que Tian Yunzi aux robes bleues convergeait vers le soleil, chacune de ces ombres fusionna avec son corps. À mesure qu'il approchait de l'astre, son aura devint monstrueuse.
 
 Les trois étaient désormais aussi désespérés que des bêtes acculées. S'ils ne parvenaient pas à briser ce sort qui les poussait à la démence, ils n'auraient aucune chance de survivre!

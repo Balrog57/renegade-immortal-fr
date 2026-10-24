@@ -40,7 +40,7 @@ Son Corps du Dao Antique était extrêmement puissant; de simples sorts ne pourr
 
 Wang Lin ne ralentit pas sa marche. Il était venu sur la planète des Cinq Éléments pleinement préparé. Même si cet endroit était un repaire de tigres, il comptait bien tenter une percée!
 
-La seconde variable, outre l'Omniscient, était dissimulée ici. Wang Lin ignorait quelle force se cachait en ces lieux et se trouvait donc dans une position extrêmement défavorable pour trouver la troisième âme!
+La seconde variable, outre Tian Yunzi, était dissimulée ici. Wang Lin ignorait quelle force se cachait en ces lieux et se trouvait donc dans une position extrêmement défavorable pour trouver la troisième âme!
 
 Son but en venant ici était de lever le voile sur cette inconnue. Il voulait savoir avec précision quelle était la puissance de la force tapie dans l'ombre!
 

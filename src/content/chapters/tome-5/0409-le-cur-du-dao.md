@@ -102,9 +102,9 @@ Parmi les cultivateurs, l'importance de ces êtres est multipliée par cent, par
 
 C'était cela, un cultivateur de la Transformation de l'Âme.
 
-Même l'Omniscient n'aurait jamais imaginé que le jeune cultivateur pour lequel il avait une bonne intuition, alors au seuil de la Formation de l'Âme, se préparerait à entrer dans le stade de la Transformation de l'Âme seulement deux cents ans plus tard.
+Même Tian Yunzi n'aurait jamais imaginé que le jeune cultivateur pour lequel il avait une bonne intuition, alors au seuil de la Formation de l'Âme, se préparerait à entrer dans le stade de la Transformation de l'Âme seulement deux cents ans plus tard.
 
-Si l'Omniscient l'avait su, Wang Lin ne serait pas resté un simple disciple honorifique pendant cent ans, il serait devenu un véritable disciple doté de privilèges réels.
+Si Tian Yunzi l'avait su, Wang Lin ne serait pas resté un simple disciple honorifique pendant cent ans, il serait devenu un véritable disciple doté de privilèges réels.
 
 « Situ, une fois que j'aurai atteint le stade de la Transformation de l'Âme, j'aurai le pouvoir de te réveiller... » Wang Lin prit une profonde inspiration en portant la main à son front. Peu après, son corps commença à s'effacer alors qu'il pénétrait dans la Perle Défiant le Ciel.
 

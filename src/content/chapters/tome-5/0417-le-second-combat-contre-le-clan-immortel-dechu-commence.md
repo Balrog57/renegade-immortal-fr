@@ -72,7 +72,7 @@ Du Tian soupira: « La planète Suzaku est bien trop petite. Quand j'étais jeun
 
 « La planète Tian Yun... » Les yeux de Wang Lin s'illuminèrent.
 
-Du Tian poursuivit: « Cet Omniscient sur la planète Tian Yun possède un niveau de culture extrêmement élevé. On dit même qu'il siège au sein de l'Alliance de la Culture. Ce n'est pas une chose avec laquelle le petit Zhu Quezi peut rivaliser. »
+Du Tian poursuivit: « Cet Tian Yunzi sur la planète Tian Yun possède un niveau de culture extrêmement élevé. On dit même qu'il siège au sein de l'Alliance de la Culture. Ce n'est pas une chose avec laquelle le petit Zhu Quezi peut rivaliser. »
 
 Wang Lin réfléchissait. Alors qu'il s'apprêtait à poser d'autres questions, l'expression de Du Tian changea et il scruta l'horizon. Wang Lin déploya son Sens Divin et tourna la tête.
 

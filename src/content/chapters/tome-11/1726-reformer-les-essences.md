@@ -18,9 +18,9 @@ Wang Lin possédait la lignée du Dao Ancien. Cette lignée était assez noble p
 
 La Bête des Limbes se déplaçait en silence. Plus précisément, elle ne bougeait pas du tout; c'était le monde qui se mouvait. Elle pouvait atteindre n'importe quel lieu en un instant, car tout ici lui appartenait!
 
-Tandis que Wang Lin restait assis calmement, sa main droite effleura doucement la Bête des Limbes. Les scènes de sa rencontre avec l'Omniscient traversèrent son esprit.
+Tandis que Wang Lin restait assis calmement, sa main droite effleura doucement la Bête des Limbes. Les scènes de sa rencontre avec Tian Yunzi traversèrent son esprit.
 
-« Je ne m'attendais pas à ce que la Bête des Limbes que j'ai capturée fasse partie du Dao Céleste... L'Omniscient faisait également partie du Dao Céleste. Pas étonnant qu'il ait cru au destin céleste... Le destin auquel il croyait était, en fait, lui-même. » Wang Lin regarda la Bête des Limbes en contrebas d'un air profond, ému par ses pensées.
+« Je ne m'attendais pas à ce que la Bête des Limbes que j'ai capturée fasse partie du Dao Céleste... Tian Yunzi faisait également partie du Dao Céleste. Pas étonnant qu'il ait cru au destin céleste... Le destin auquel il croyait était, en fait, lui-même. » Wang Lin regarda la Bête des Limbes en contrebas d'un air profond, ému par ses pensées.
 
 « Le fragment provenant du Royaume Divin Immémorial que le Souverain Céleste aux Sept Couleurs avait obtenu servait au stockage. À l'intérieur, il a trouvé le Dao Céleste... Il semble qu'il y ait également trouvé la Perle Défiant le Ciel.
 
@@ -94,7 +94,7 @@ L'essence de la vie et de la mort était revenue!
 
 L'aura à l'intérieur du corps de Wang Lin explosa soudainement!
 
-« La deuxième à revenir sera l'essence du Vrai et du Faux. Le vrai et le faux, le faux et le vrai, ainsi est la vie. » Wang Lin médita silencieusement, ému par le souvenir de l'Omniscient.
+« La deuxième à revenir sera l'essence du Vrai et du Faux. Le vrai et le faux, le faux et le vrai, ainsi est la vie. » Wang Lin médita silencieusement, ému par le souvenir de Tian Yunzi.
 
 Après avoir parlé, son corps devint immédiatement illusoire, comme s'il n'était plus réel.
 

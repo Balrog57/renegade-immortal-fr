@@ -12,13 +12,13 @@ Dès son apparition, elle poussa un rugissement furieux et se jeta sur Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent. Il ne bougea pas d'un pouce, mais son regard devint glacial.
 
-L'Omniscient dit calmement: « Assez! »
+Tian Yunzi dit calmement: « Assez! »
 
-En un seul mot, l'âme originelle de la femme vêtue de robes violettes se désintégra en particules de lumière et, d'un revers de manche, l'Omniscient rassembla tous ces éclats lumineux.
+En un seul mot, l'âme originelle de la femme vêtue de robes violettes se désintégra en particules de lumière et, d'un revers de manche, Tian Yunzi rassembla tous ces éclats lumineux.
 
 Le cœur de Wang Lin trembla et ses pupilles se rétractèrent alors qu'il fixait l'endroit où la femme avait disparu, plongé dans une réflexion silencieuse.
 
-« Vous tous, partez! Wang Lin, reste! » L'Omniscient descendit lentement du ciel et atterrit devant le Pavillon de la Forêt Violette.
+« Vous tous, partez! Wang Lin, reste! » Tian Yunzi descendit lentement du ciel et atterrit devant le Pavillon de la Forêt Violette.
 
 Bai Wei acquiesça rapidement et respectueusement, puis se retourna pour s'envoler vers l'horizon.
 
@@ -28,7 +28,7 @@ Les visages de l'homme d'âge moyen et de Zhao Xingsha étaient tous deux sombre
 
 Les autres disciples de la Division Pourpre partirent lentement. Leur attitude envers Wang Lin avait radicalement changé; désormais, nul au sein de la Division Pourpre n'oserait plus lui manquer de respect.
 
-Wang Lin se tint respectueusement aux côtés de l'Omniscient, la tête baissée et silencieux. La puissance de l'Omniscient dépassait tout ce qu'il pouvait imaginer. Il compara secrètement ce dernier à Situ Nan et dut admettre que ce dernier était loin d'être l'égal de l'Omniscient!
+Wang Lin se tint respectueusement aux côtés de Tian Yunzi, la tête baissée et silencieux. La puissance de Tian Yunzi dépassait tout ce qu'il pouvait imaginer. Il compara secrètement ce dernier à Situ Nan et dut admettre que ce dernier était loin d'être l'égal de Tian Yunzi!
 
 Après tout, Situ Nan ne pouvait pas désintégrer une âme originelle d'un simple mot ni tout restaurer en son état initial d'un simple mot. Cela relevait déjà du domaine des sorts célestes; ce n'était pas chose que des cultivateurs ordinaires pouvaient accomplir.
 
@@ -44,27 +44,27 @@ Quant aux trois sorts de mort que Situ Nan avait enseignés à Wang Lin, il les 
 
 Situ Nan ne pouvait pas le reproduire, il ne pouvait qu'en imiter la structure. Après d'innombrables années d'étude, il avait réussi à en dériver ces trois sorts de mort. Ces derniers possédaient des attributs démoniaques, car Situ Nan suivait la voie démoniaque.
 
-L'Omniscient se tint silencieusement devant le Pavillon de la Forêt Violette et fixa longuement le mot « Forêt ».
+Tian Yunzi se tint silencieusement devant le Pavillon de la Forêt Violette et fixa longuement le mot « Forêt ».
 
-Les environs étaient plongés dans un silence total. Wang Lin restait là, aux côtés de l'Omniscient, sans un bruit. Il ignorait quelle était la personnalité de son nouveau maître et ne parvenait pas à percer ses pensées. Cependant, à en juger par l'expression de l'Omniscient, celui-ci ne semblait pas en colère.
+Les environs étaient plongés dans un silence total. Wang Lin restait là, aux côtés de Tian Yunzi, sans un bruit. Il ignorait quelle était la personnalité de son nouveau maître et ne parvenait pas à percer ses pensées. Cependant, à en juger par l'expression de Tian Yunzi, celui-ci ne semblait pas en colère.
 
-Après un long moment, l'Omniscient poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura indomptable émane de ce mot, prête à en jaillir. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
+Après un long moment, Tian Yunzi poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura indomptable émane de ce mot, prête à en jaillir. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
 
 Le cœur de Wang Lin tressaillit. Bien que son visage restât impassible, ses pensées s'emballèrent. Finalement, sa mémoire se fixa sur le Deuxième Frère, celui qui avait utilisé la technique interdite pour obtenir le corps d'un démon immortel. Il prit alors une décision et hocha la tête avec franchise: « Le disciple connaissait effectivement quelqu'un, mais nos chemins se sont séparés lors de notre voyage. »
 
-L'Omniscient caressa sa barbe blanche en souriant. « Même s'il était venu sur la planète Tian Yun, cela n'aurait pas posé de problème. Aux yeux de ton maître, il n'existe ni bien ni mal; on ne fait que suivre sa nature! Destin céleste, destin céleste! Tout dans ce monde dépend du destin! Tant que le cœur est déterminé, on peut cultiver l'un des millions de Dao qui existent! »
+Tian Yunzi caressa sa barbe blanche en souriant. « Même s'il était venu sur la planète Tian Yun, cela n'aurait pas posé de problème. Aux yeux de ton maître, il n'existe ni bien ni mal; on ne fait que suivre sa nature! Destin céleste, destin céleste! Tout dans ce monde dépend du destin! Tant que le cœur est déterminé, on peut cultiver l'un des millions de Dao qui existent! »
 
-Wang Lin acquiesça. Il pensa à la technique utilisée par le Deuxième Frère, qui était de nature presque démoniaque. C’est pourquoi il avait choisi de dire la vérité plutôt que de mentir et de se faire démasquer par l'Omniscient.
+Wang Lin acquiesça. Il pensa à la technique utilisée par le Deuxième Frère, qui était de nature presque démoniaque. C’est pourquoi il avait choisi de dire la vérité plutôt que de mentir et de se faire démasquer par Tian Yunzi.
 
-« Repose-toi bien. Dans trois mois aura lieu la célébration de mon anniversaire. De nombreux puissants cultivateurs de la planète Tian Yun et des planètes environnantes seront présents. Je saisirai cette occasion pour annoncer que je te prends comme disciple, afin que les habitants de la planète Tian Yun puissent se faire une idée de toi. Je suppose que très bientôt, ton frère aîné viendra t'en dire plus! » Tandis qu'il parlait, l'Omniscient s'éleva dans les airs et disparut lentement à l'horizon, pas après pas.
+« Repose-toi bien. Dans trois mois aura lieu la célébration de mon anniversaire. De nombreux puissants cultivateurs de la planète Tian Yun et des planètes environnantes seront présents. Je saisirai cette occasion pour annoncer que je te prends comme disciple, afin que les habitants de la planète Tian Yun puissent se faire une idée de toi. Je suppose que très bientôt, ton frère aîné viendra t'en dire plus! » Tandis qu'il parlait, Tian Yunzi s'éleva dans les airs et disparut lentement à l'horizon, pas après pas.
 
-Wang Lin salua respectueusement l'Omniscient avant de pénétrer dans le Pavillon de la Forêt Violette.
+Wang Lin salua respectueusement Tian Yunzi avant de pénétrer dans le Pavillon de la Forêt Violette.
 
 Dans la chambre secrète située au troisième étage du pavillon, Wang Lin poussa un soupir de soulagement et observa les lieux avec une lueur mystérieuse dans les yeux.
 
 « Il semble que j'aie trouvé ma place au sein de cette Secte du Destin Céleste. Il semble aussi que je ne puisse pas me permettre de trop céder. On dirait que ceux qui font preuve de plus de dominance ont de meilleures chances de survie ici. »
 
-« L'Omniscient observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à l'Omniscient, et je l'ai donc utilisée ouvertement, sans rien pour la couvrir. Cependant, je crois que l'Omniscient n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique interdite que le Deuxième Frère utilisait était excellente! »
+« Tian Yunzi observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à Tian Yunzi, et je l'ai donc utilisée ouvertement, sans rien pour la couvrir. Cependant, je crois que Tian Yunzi n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique interdite que le Deuxième Frère utilisait était excellente! »
 
 « Désormais, ma culture a atteint le sommet du début de la phase de Transformation de l'Âme, et durant l'Essai Humain, j'ai traversé d'innombrables cycles qui ont solidifié mon cœur Dao. »
 

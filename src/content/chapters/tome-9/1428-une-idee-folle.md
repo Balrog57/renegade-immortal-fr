@@ -98,7 +98,7 @@ Outre son sang, sa vitalité même était brusquement drainée. Face à cette cr
 
 « Intéressant... » La voix illusoire sembla sourire alors qu'elle résonnait.
 
-Sur la Planète du Grand Empereur, Wang Lin, assis en tailleur dans le réseau de transfert, ferma les yeux. Son esprit pénétra dans le Monde du Vent et de la Pluie pour traquer l'âme de l'Omniscient. Il utilisa cette âme et divina rapidement l'avenir... À cet instant, ses yeux s'ouvrirent brusquement, révélant une lueur d'intention meurtrière!
+Sur la Planète du Grand Empereur, Wang Lin, assis en tailleur dans le réseau de transfert, ferma les yeux. Son esprit pénétra dans le Monde du Vent et de la Pluie pour traquer l'âme de Tian Yunzi. Il utilisa cette âme et divina rapidement l'avenir... À cet instant, ses yeux s'ouvrirent brusquement, révélant une lueur d'intention meurtrière!
 
 Quelqu'un était en train de se soigner dans la terre sacrée du Clan des Moineaux de Feu. Avant de venir sur la Planète du Grand Empereur, il n'en était pas certain, mais après avoir parlé au premier Oiseau Vermillon, il en avait la certitude: quelqu'un se trouvait à l'intérieur!
 

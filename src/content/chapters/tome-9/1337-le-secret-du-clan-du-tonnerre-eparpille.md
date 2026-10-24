@@ -92,7 +92,7 @@ Depuis son entrée dans le Système Stellaire Antique, Wang Lin avait ressenti s
 
 L'expression de Wang Lin était complexe. Il devait admettre qu'il avait sous-estimé la puissance du Clan du Tonnerre Dispersé...
 
-« Cependant, même si tel est le cas, je dois toujours dévorer le tonnerre éternel et détruire le Clan du Tonnerre Dispersé! » Wang Lin avait affronté bien des adversités, mais il n'avait jamais été brisé. Ni Zhu Quezi, ni l'Omniscient, ni l'Alliance, ni Luotian, ni même le Shui Daozi n'avaient pu l'abattre!
+« Cependant, même si tel est le cas, je dois toujours dévorer le tonnerre éternel et détruire le Clan du Tonnerre Dispersé! » Wang Lin avait affronté bien des adversités, mais il n'avait jamais été brisé. Ni Zhu Quezi, ni Tian Yunzi, ni l'Alliance, ni Luotian, ni même le Shui Daozi n'avaient pu l'abattre!
 
 Il se rapprochait lentement du secret du Clan du Tonnerre Dispersé et des mystères du Système Stellaire Antique, mais cela ne faisait qu'attiser sa volonté indomptable!
 

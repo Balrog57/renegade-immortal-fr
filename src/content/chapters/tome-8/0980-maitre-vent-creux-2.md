@@ -100,11 +100,11 @@ Ils revenaient tout juste. En raison de l'incident, le Marché de l'Œil Fantôm
 
 Alors qu'ils cultivaient sur leur propre planète, ils avaient ressenti les auras de plusieurs cultivateurs du second niveau à l'extérieur et s'étaient envolés sans hésiter.
 
-En voyant le corps gigantesque de Lei Ji, bien que leurs expressions restassent neutres, ils furent choqués intérieurement. Pour qu'un membre de l'Alliance possède une monture du Clan des Démons Géants, il devait être un vieux monstre tel que Ling Tianhou ou l'Omniscient.
+En voyant le corps gigantesque de Lei Ji, bien que leurs expressions restassent neutres, ils furent choqués intérieurement. Pour qu'un membre de l'Alliance possède une monture du Clan des Démons Géants, il devait être un vieux monstre tel que Ling Tianhou ou Tian Yunzi.
 
-Puis, les trois virent les individus sur le dos de Lei Ji. En voyant Wang Lin, ils furent stupéfaits. Le Maître Yi Chen avait assisté au combat entre Wang Lin et l'Omniscient, et il était persuadé que Wang Lin était mort. En le revoyant maintenant, un sentiment de respect l'envahit après le choc initial.
+Puis, les trois virent les individus sur le dos de Lei Ji. En voyant Wang Lin, ils furent stupéfaits. Le Maître Yi Chen avait assisté au combat entre Wang Lin et Tian Yunzi, et il était persuadé que Wang Lin était mort. En le revoyant maintenant, un sentiment de respect l'envahit après le choc initial.
 
-« Être capable de provoquer un affrontement entre Ling Tianhou et l'Omniscient... ce Maître Démon n'est pas simple! »
+« Être capable de provoquer un affrontement entre Ling Tianhou et Tian Yunzi... ce Maître Démon n'est pas simple! »
 
 Cependant, aujourd'hui, ils étaient destinés à la confusion, car ils aperçurent Chen Feng!
 

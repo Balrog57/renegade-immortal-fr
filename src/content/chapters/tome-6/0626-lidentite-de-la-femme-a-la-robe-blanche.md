@@ -91,9 +91,9 @@ Cela était d'autant plus vrai pour les deux nouveaux trésors et le sort céles
 
 En pensant au sort, Wang Lin laissa poindre une pointe d'excitation. C'était un véritable sort céleste! Tous les sorts qu'il avait appris dans sa vie, hormis l'Art du Massacre Céleste, n'étaient que des dérivés de techniques célestes de basse qualité.
 
-Après tout, les sorts célestes étaient d'une rareté absolue. Même des êtres comme l'Omniscient en brûlaient d'envie, alors imaginez pour quelqu'un comme Wang Lin. Les sorts célestes étaient de véritables pouvoirs, des techniques dont la puissance surpassait de loin celle des sorts ordinaires!
+Après tout, les sorts célestes étaient d'une rareté absolue. Même des êtres comme Tian Yunzi en brûlaient d'envie, alors imaginez pour quelqu'un comme Wang Lin. Les sorts célestes étaient de véritables pouvoirs, des techniques dont la puissance surpassait de loin celle des sorts ordinaires!
 
-La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. À la Secte du Destin Céleste, il fallait conserver pendant des années incalculables le titre de l'un des Sept Disciples du Destin Céleste avant d'espérer en recevoir un. Et même là, l'Omniscient ne choisissait jamais le meilleur, mais un sort ordinaire.
+La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. À la Secte du Destin Céleste, il fallait conserver pendant des années incalculables le titre de l'un des Sept Disciples du Destin Céleste avant d'espérer en recevoir un. Et même là, Tian Yunzi ne choisissait jamais le meilleur, mais un sort ordinaire.
 
 « Le Sort d'Arrêt! » Wang Lin prit une profonde inspiration et l'incantation apparut dans son esprit. Il ferma lentement les yeux pour s'immerger dans la technique.
 

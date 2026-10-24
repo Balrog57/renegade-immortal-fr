@@ -34,19 +34,19 @@ Tandis que les deux hommes discutaient, un immense nuage aux sept couleurs appar
 
 Les yeux de Tan Lang s'illuminèrent, puis il disparut complètement. Si l'on regardait de près, on aurait vu qu'il s'était transformé en une ombre restée très proche du Saint de l'Épée Ling Tianhou, immobile.
 
-Avant que le nuage aux sept couleurs ne se rapproche, un sentiment de paix enveloppa la zone. De l'intérieur du nuage, un Omniscient vêtu d'une robe blanche s'avança lentement.
+Avant que le nuage aux sept couleurs ne se rapproche, un sentiment de paix enveloppa la zone. De l'intérieur du nuage, un Tian Yunzi vêtu d'une robe blanche s'avança lentement.
 
-En marchant, l'Omniscient sourit et adressa des signes de tête à ceux qu'il connaissait. Derrière lui se trouvaient neuf personnes.
+En marchant, Tian Yunzi sourit et adressa des signes de tête à ceux qu'il connaissait. Derrière lui se trouvaient neuf personnes.
 
 Ces neuf individus portaient des robes de couleurs différentes, mais leurs regards étaient tous aussi perçants que la foudre et chacun possédait une culture puissante. Parmi eux se trouvait celui qui s'était battu contre Wang Lin pour le titre de véritable disciple de la Division Pourpre, le sixième frère de Wang Lin: Chen Tao!
 
 L'actuel Chen Tao portait une robe pourpre et dégageait une pression colossale. Il était tel une épée prête à être dégainée, laissant seulement deviner sa tranchante acuité.
 
-Le groupe des dix membres de l'Omniscient se dirigea calmement vers la porte. Chaque cultivateur s'écarta respectueusement, rendant la scène encore plus grandiose que lors de l'arrivée du Saint de l'Épée Ling Tianhou.
+Le groupe des dix membres de Tian Yunzi se dirigea calmement vers la porte. Chaque cultivateur s'écarta respectueusement, rendant la scène encore plus grandiose que lors de l'arrivée du Saint de l'Épée Ling Tianhou.
 
-En un clin d'œil, le groupe de l'Omniscient atteignit la porte. Ils ne se trouvaient qu'à environ 330 mètres du groupe de Ling Tianhou. Tous les regards étaient braqués sur ces deux groupes.
+En un clin d'œil, le groupe de Tian Yunzi atteignit la porte. Ils ne se trouvaient qu'à environ 330 mètres du groupe de Ling Tianhou. Tous les regards étaient braqués sur ces deux groupes.
 
-Outre ces personnes, tous les vieux monstres observaient Ling Tianhou et l'Omniscient avec des expressions de spectateurs attendant un grand spectacle.
+Outre ces personnes, tous les vieux monstres observaient Ling Tianhou et Tian Yunzi avec des expressions de spectateurs attendant un grand spectacle.
 
 À cet instant, on pouvait dire que presque tous les puissants cultivateurs de la planète Tian Yun et des planètes environnantes étaient présents. Ce qui était rassemblé ici représentait presque toute la puissance de la culture de rang 7 de Tian Yun.
 
@@ -54,7 +54,7 @@ Il ne restait plus qu'un jour avant le grand événement qui n'arrivait qu'une f
 
 Lorsque la porte s'ouvrirait pour laisser passer la marée, créant une scène inoubliable pour quiconque la verrait pour la première fois, ce voyage dans la Mer des Esprits Démoniaques de l'Est atteindrait un nouveau sommet. Après cela, viendrait le temps de l'épreuve cruelle à l'intérieur!
 
-L'expression de l'Omniscient restait neutre tandis qu'il se tenait là, accueilli par de nombreux cultivateurs. En parlant, ses yeux scrutaient parfois l'horizon comme s'il cherchait quelque chose.
+L'expression de Tian Yunzi restait neutre tandis qu'il se tenait là, accueilli par de nombreux cultivateurs. En parlant, ses yeux scrutaient parfois l'horizon comme s'il cherchait quelque chose.
 
 Les neuf disciples derrière lui avaient chacun leurs propres amis et discutaient avec eux. Tous, sauf Chen Tao, qui regardait également les alentours de temps à autre, comme s'il cherchait quelqu'un.
 
@@ -74,15 +74,15 @@ Plusieurs rayons de lumière arrivèrent de loin. Leur arrivée n'attira pas l'a
 
 « Septième frère... » Les yeux de Chen Tao brillèrent d'une lueur mystérieuse.
 
-Alors que l'Omniscient regardait nonchalamment la silhouette pourpre, il laissa échapper un léger sourire sans dire un mot.
+Alors que Tian Yunzi regardait nonchalamment la silhouette pourpre, il laissa échapper un léger sourire sans dire un mot.
 
-Lorsque Wang Lin aperçut le groupe de l'Omniscient au loin, il joignit les mains et dit: « Frère Sun, je dois aller rejoindre mon maître, nous nous séparons donc ici. Si le destin le veut, nous nous reverrons à l'intérieur de la Mer des Esprits Démoniaques de l'Est! »
+Lorsque Wang Lin aperçut le groupe de Tian Yunzi au loin, il joignit les mains et dit: « Frère Sun, je dois aller rejoindre mon maître, nous nous séparons donc ici. Si le destin le veut, nous nous reverrons à l'intérieur de la Mer des Esprits Démoniaques de l'Est! »
 
 Le visage de Sun Yunshan était couvert de poussière; ils avaient manifestement dû foncer à toute allure pour arriver à temps. Il sourit doucement et dit: « Une fois entrés, je compterai sur le frère Wang pour veiller sur moi! »
 
-« Aucun problème! » Wang Lin sourit faiblement, fit un pas et se transforma en une volute de fumée avant de s'envoler vers l'Omniscient.
+« Aucun problème! » Wang Lin sourit faiblement, fit un pas et se transforma en une volute de fumée avant de s'envoler vers Tian Yunzi.
 
-Wang Lin se déplaça comme l'éclair vers l'Omniscient et, avant même qu'il ne soit proche, on entendit un grondement de tonnerre. Son expression était calme, une pointe de gaz gris perçant dans ses yeux. Son apparence actuelle n'était en rien inférieure à celle de l'actuel Chen Tao.
+Wang Lin se déplaça comme l'éclair vers Tian Yunzi et, avant même qu'il ne soit proche, on entendit un grondement de tonnerre. Son expression était calme, une pointe de gaz gris perçant dans ses yeux. Son apparence actuelle n'était en rien inférieure à celle de l'actuel Chen Tao.
 
 Son mouvement attira immédiatement l'attention de certains cultivateurs. En voyant sa robe pourpre et son jeton, des cultivateurs bien informés devinèrent aussitôt son identité.
 
@@ -90,21 +90,21 @@ Son mouvement attira immédiatement l'attention de certains cultivateurs. En voy
 
 Yao Xixue, assise sur un jade rouge sang, ouvrit les yeux pour regarder Wang Lin. Après quelques instants, elle détourna le regard.
 
-Yao Xixue pensa secrètement: « Je ne sais pas pourquoi mon père m'a demandé de porter une attention particulière au nouveau disciple de la Secte du Destin Céleste. Sa culture est normale et il ne semble rien avoir d'exceptionnel... Cependant, être choisi par l'Omniscient pour venir ici juste après avoir rejoint la Secte est en effet stupéfiant. »
+Yao Xixue pensa secrètement: « Je ne sais pas pourquoi mon père m'a demandé de porter une attention particulière au nouveau disciple de la Secte du Destin Céleste. Sa culture est normale et il ne semble rien avoir d'exceptionnel... Cependant, être choisi par Tian Yunzi pour venir ici juste après avoir rejoint la Secte est en effet stupéfiant. »
 
-Wang Lin vola droit devant lui et arriva devant l'Omniscient peu de temps après. Il dit respectueusement: « Le disciple Wang Lin salue le Maître! »
+Wang Lin vola droit devant lui et arriva devant Tian Yunzi peu de temps après. Il dit respectueusement: « Le disciple Wang Lin salue le Maître! »
 
-L'Omniscient sourit et répondit: « Tiens-toi correctement derrière ton Maître. Cet événement grandiose qui n'a lieu que tous les 5 000 ans est sur le point de commencer, alors sois attentif. Peut-être qu'un trésor qui t'est destiné apparaîtra également! »
+Tian Yunzi sourit et répondit: « Tiens-toi correctement derrière ton Maître. Cet événement grandiose qui n'a lieu que tous les 5 000 ans est sur le point de commencer, alors sois attentif. Peut-être qu'un trésor qui t'est destiné apparaîtra également! »
 
-Après avoir parlé, l'Omniscient lança un regard significatif à Wang Lin, puis se tut.
+Après avoir parlé, Tian Yunzi lança un regard significatif à Wang Lin, puis se tut.
 
-Wang Lin hocha la tête en signe de respect, se tint derrière l'Omniscient et rejoignit la rangée des neuf autres disciples.
+Wang Lin hocha la tête en signe de respect, se tint derrière Tian Yunzi et rejoignit la rangée des neuf autres disciples.
 
 Les regards des neuf disciples se posèrent tous sur Wang Lin. Hormis Chen Tao, dont les yeux brillaient d'une lueur mystérieuse, tous les autres affichaient un regard impassible, comme s'ils regardaient un étranger.
 
 Wang Lin n'examina pas attentivement ces neuf personnes. Il jeta un coup d'œil rapide et nota qu'il y avait trois femmes et six hommes.
 
-Les yeux du Saint de l'Épée Ling Tianhou devinrent sérieux lorsque Wang Lin arriva. Il avait toujours eu l'impression que cet enfant lui était familier depuis qu'il l'avait aperçu lors de la célébration de l'anniversaire de l'Omniscient, mais quoi qu'il fasse, il ne parvenait pas à s'en souvenir.
+Les yeux du Saint de l'Épée Ling Tianhou devinrent sérieux lorsque Wang Lin arriva. Il avait toujours eu l'impression que cet enfant lui était familier depuis qu'il l'avait aperçu lors de la célébration de l'anniversaire de Tian Yunzi, mais quoi qu'il fasse, il ne parvenait pas à s'en souvenir.
 
 « Hein? » L'exclamation de Tan Lang provint de derrière le Saint de l'Épée Ling Tianhou.
 
@@ -112,7 +112,7 @@ Ling Tianhou demanda doucement: « Vous connaissez cet enfant? »
 
 « Je ne connais pas cet enfant, mais il dégage un sentiment familier... Peut-être est-il le descendant d'un vieil ami... » Les yeux de Tan Lang brillèrent intensément, mais il les dissimula aussitôt.
 
-L'apparition de Wang Lin attira également l'attention des célèbres vieux monstres. La seule raison pour laquelle ils s'intéressaient à lui était que l'Omniscient n'acceptait jamais un disciple sans raison. L'Omniscient remettait tout au destin, et si le destin n'en décidait pas ainsi, il n'accepterait aucun disciple.
+L'apparition de Wang Lin attira également l'attention des célèbres vieux monstres. La seule raison pour laquelle ils s'intéressaient à lui était que Tian Yunzi n'acceptait jamais un disciple sans raison. Tian Yunzi remettait tout au destin, et si le destin n'en décidait pas ainsi, il n'accepterait aucun disciple.
 
 Ils ignoraient simplement si ce destin concernait lui ou les autres disciples.
 

@@ -40,7 +40,7 @@ En contemplant ce pic, l'expression de Wang Lin devint complexe. Dans le temple 
 
 C'était là qu'il avait aperçu cette silhouette tenant un corps et interrogeant le monde. Cependant, en observant cette montagne enneigée de sept couleurs, il ne vit pas cette figure, mais une autre silhouette familière qui siégeait là, le regardant.
 
-Cet homme paraissait âgé sans l'être vraiment, enveloppé d'une lumière septicolore. Son visage rayonnait d'excitation. C'était l'être qui ressemblait à l'Omniscient, au Souverain Céleste aux Sept Couleurs, à l'Ancien Maître Impérial du Dao!
+Cet homme paraissait âgé sans l'être vraiment, enveloppé d'une lumière septicolore. Son visage rayonnait d'excitation. C'était l'être qui ressemblait à Tian Yunzi, au Souverain Céleste aux Sept Couleurs, à l'Ancien Maître Impérial du Dao!
 
 Derrière cette silhouette, derrière cette montagne, s'étendait un pont. Une extrémité était reliée à la boussole et l'autre au ciel, formant un large arc.
 
@@ -50,25 +50,25 @@ Deux silhouettes semblaient se dessiner dans l'illusion, mais elles étaient si 
 
 Cette scène était identique à l'illusion qu'il avait contemplée après le neuvième pont.
 
-« Tu es enfin arrivé! » L'Omniscient regarda Wang Lin et éclata de rire.
+« Tu es enfin arrivé! » Tian Yunzi regarda Wang Lin et éclata de rire.
 
-Wang Lin détourna le regard du pont pour fixer l'Omniscient. Sans mot dire, il s'avança lentement. Un instant plus tard, il se tenait sur la montagne où tombait la neige septicolore. Il observa les flocons qui l'entouraient et soupira.
+Wang Lin détourna le regard du pont pour fixer Tian Yunzi. Sans mot dire, il s'avança lentement. Un instant plus tard, il se tenait sur la montagne où tombait la neige septicolore. Il observa les flocons qui l'entouraient et soupira.
 
-« Ce vieil homme a attendu ce jour très, très longtemps. Tout ceci est un rêve pour toi, mais chaque fois que tu viens ici, une distorsion apparaît dans ton songe! » L'Omniscient rit en agitant les mains.
+« Ce vieil homme a attendu ce jour très, très longtemps. Tout ceci est un rêve pour toi, mais chaque fois que tu viens ici, une distorsion apparaît dans ton songe! » Tian Yunzi rit en agitant les mains.
 
 À ce geste, le continent circulaire se mit à gronder. Tandis que la terre tremblait, un gaz noir et dense jaillit des nombreuses tranchées. Cette fumée noire s'élança vers le ciel et se précipita vers la montagne.
 
-En un instant, le gaz occulta le ciel couleur de sang. Puis, il se rassembla derrière l'Omniscient pour former une figure gigantesque.
+En un instant, le gaz occulta le ciel couleur de sang. Puis, il se rassembla derrière Tian Yunzi pour former une figure gigantesque.
 
-Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde entier. De loin, elle portait une robe noire qui dissimulait son visage, mais Wang Lin reconnut immédiatement qu'il s'agissait de la même entité que l'Omniscient devant lui.
+Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde entier. De loin, elle portait une robe noire qui dissimulait son visage, mais Wang Lin reconnut immédiatement qu'il s'agissait de la même entité que Tian Yunzi devant lui.
 
 « Wang Lin, bien que tu fusse un cultivateur du Piétinement des Cieux dans ta vie antérieure, ce vieil homme est une existence suprême ici, au sein de la Boussole des Limites. Sur l'ensemble du Continent Astral Immortel, c'est le seul endroit où je peux te dévorer et fusionner avec toi! »
 
 « Ici, ton rêve se distordra, et désormais, je serai toi! » Un rugissement jaillit de la figure colossale, résonnant dans toutes les directions.
 
-« La vie antérieure... » Wang Lin regarda l'Omniscient, puis la silhouette qui le surplombait. Son expression restait sereine.
+« La vie antérieure... » Wang Lin regarda Tian Yunzi, puis la silhouette qui le surplombait. Son expression restait sereine.
 
-« Il semble que tu n'aies pas encore tout retrouvé. Peu importe. Avant que tu ne meurs, ce vieil homme te fera comprendre la vérité! » L'Omniscient se leva et fit un pas en arrière pour s'intégrer à la figure géante. La capuche noire qui couvrait son visage bougea, révélant un visage démoniaque.
+« Il semble que tu n'aies pas encore tout retrouvé. Peu importe. Avant que tu ne meurs, ce vieil homme te fera comprendre la vérité! » Tian Yunzi se leva et fit un pas en arrière pour s'intégrer à la figure géante. La capuche noire qui couvrait son visage bougea, révélant un visage démoniaque.
 
 « Le Continent Astral Immortel n'existe pas; ce n'est qu'une création de ton rêve. En réalité, ce n'est qu'un vide faisant partie du Royaume de la Terre Défiante. »
 
@@ -76,21 +76,21 @@ Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde en
 
 « Tu ne me crois pas? Le « toi » qui n'a pas recouvré ses souvenirs est d'une pitoyabilité extrême face à ce vieil homme! Wang Lin, laisse-moi te dire que l'univers se compose de quatre grands royaumes. Ce royaume est le Royaume de la Terre Défiante! Chaque royaume possède un trésor, et celui de la Terre Défiante est la Boussole des Limites, l'unique Trésor d'Extinction du Vide! »
 
-« Ce Royaume Divin Immémorial est la Boussole des Limites! » Les yeux de l'immense silhouette de l'Omniscient brillaient d'excitation.
+« Ce Royaume Divin Immémorial est la Boussole des Limites! » Les yeux de l'immense silhouette de Tian Yunzi brillaient d'excitation.
 
 « Quant à toi, dans ta vie passée, tu étais l'être le plus puissant au monde et tu aurais pu dominer le Royaume de la Terre Défiante. Pourtant, pour une femme, tu as emprunté la Boussole des Limites au gardien pour tenter de ressusciter ton épouse! »
 
 « Tu as utilisé ton propre Dao du Rêve pour disperser ta véritable essence et remodeler la réincarnation. Tu voulais transformer ton rêve de résurrection en réalité et inverser les lois du ciel et de la terre! »
 
-« Même ce vieil homme fut stupéfait par une telle folie et de tels desseins! » L'Omniscient fixait Wang Lin tandis que ses paroles faisaient écho dans l'espace.
+« Même ce vieil homme fut stupéfait par une telle folie et de tels desseins! » Tian Yunzi fixait Wang Lin tandis que ses paroles faisaient écho dans l'espace.
 
 Wang Lin ferma les yeux, puis les rouvrit un instant plus tard. Il fixa la figure gigantesque et dit lentement: « Ainsi en est-il donc. Alors, qui êtes-vous exactement? »
 
-L'Omniscient répondit d'un ton sombre: « Ce vieil homme est le gardien de la Boussole des Limites. À l'époque, tu me l'as arrachée des mains! J'ai un disciple, tu dois le connaître. Son nom est Mo Zhi! »
+Tian Yunzi répondit d'un ton sombre: « Ce vieil homme est le gardien de la Boussole des Limites. À l'époque, tu me l'as arrachée des mains! J'ai un disciple, tu dois le connaître. Son nom est Mo Zhi! »
 
 Wang Lin resta silencieux, songeur.
 
-Les yeux de l'Omniscient s'illuminèrent. D'un geste de la main droite, une partie du gaz noir de son corps se détacha pour former un vortex sombre dans le ciel. Tandis que le vortex tournait, diverses scènes apparurent en son sein.
+Les yeux de Tian Yunzi s'illuminèrent. D'un geste de la main droite, une partie du gaz noir de son corps se détacha pour former un vortex sombre dans le ciel. Tandis que le vortex tournait, diverses scènes apparurent en son sein.
 
 « Si tu ne me crois toujours pas, regarde par toi-même! Tu pourras ainsi déterminer si cela est réel ou illusoire. »
 
@@ -104,22 +104,22 @@ Il vit une version passée de lui-même, celle qui avait échoué à ressusciter
 
 Alors que Wang Lin contemplait ces images, les souvenirs du passé affluèrent dans son esprit. C'était comme s'ils avaient toujours été là, et qu'il venait seulement de les oublier.
 
-Après un moment de réflexion silencieuse, Wang Lin regarda l'Omniscient et demanda lentement: « Pour me faire venir ici, vous m'avez affirmé que je pouvais ressusciter Li Muwan. Est-ce la vérité ou un mensonge? »
+Après un moment de réflexion silencieuse, Wang Lin regarda Tian Yunzi et demanda lentement: « Pour me faire venir ici, vous m'avez affirmé que je pouvais ressusciter Li Muwan. Est-ce la vérité ou un mensonge? »
 
-« Cela peut être l'un ou l'autre! La Boussole des Limites est l'unique Trésor d'Extinction du Vide dans le Royaume de la Terre Défiante. Elle peut tout changer, mais tu n'en auras pas l'opportunité. » L'Omniscient nota le calme imperturbable de Wang Lin et l'absence totale de distorsion. Cela le fit hésiter. Face aux paroles de Wang Lin, il ne réagit pas avec précipitation; il pressentait vaguement que quelque chose clochait.
+« Cela peut être l'un ou l'autre! La Boussole des Limites est l'unique Trésor d'Extinction du Vide dans le Royaume de la Terre Défiante. Elle peut tout changer, mais tu n'en auras pas l'opportunité. » Tian Yunzi nota le calme imperturbable de Wang Lin et l'absence totale de distorsion. Cela le fit hésiter. Face aux paroles de Wang Lin, il ne réagit pas avec précipitation; il pressentait vaguement que quelque chose clochait.
 
-« Quel est ce pont? » Wang Lin leva la main et désigna le pont reliant le ciel et la terre derrière la silhouette colossale de l'Omniscient.
+« Quel est ce pont? » Wang Lin leva la main et désigna le pont reliant le ciel et la terre derrière la silhouette colossale de Tian Yunzi.
 
-« Le Pont du Piétinement des Cieux de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement des Cieux que chaque être vivant dans le Royaume de la Terre Défiante ressent lorsque son niveau de culture atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez l'Omniscient, mais il ne parvenait pas à en saisir la cause.
+« Le Pont du Piétinement des Cieux de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement des Cieux que chaque être vivant dans le Royaume de la Terre Défiante ressent lorsque son niveau de culture atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez Tian Yunzi, mais il ne parvenait pas à en saisir la cause.
 
-Wang Lin sourit, regarda l'Omniscient et dit calmement: « Vous hésitez, vous vous demandez pourquoi aucune distorsion n'apparaît, contrairement à ce qui se produit lorsqu'un dormeur est sur le point de s'éveiller. »
+Wang Lin sourit, regarda Tian Yunzi et dit calmement: « Vous hésitez, vous vous demandez pourquoi aucune distorsion n'apparaît, contrairement à ce qui se produit lorsqu'un dormeur est sur le point de s'éveiller. »
 
-L'expression de l'Omniscient changea brusquement et son corps gigantesque recula de quelques pas. Il fixa Wang Lin et, après l'avoir observé attentivement, ses yeux se remplirent d'incrédulité.
+L'expression de Tian Yunzi changea brusquement et son corps gigantesque recula de quelques pas. Il fixa Wang Lin et, après l'avoir observé attentivement, ses yeux se remplirent d'incrédulité.
 
 « Toi... Quelque chose ne va pas. Même si tu te souviens de ta vie passée, une fois entré dans la Boussole des Limites, tu devrais t'éveiller du Dao du Rêve! »
 
 « Lors des dernières fois, tu t'es toujours éveillé à cette étape. Cette fois encore, il n'en sera pas autrement! »
 
-Wang Lin regarda l'Omniscient et dit d'une voix lente: « Vous n'êtes pas le gardien, mais l'Absent... »
+Wang Lin regarda Tian Yunzi et dit d'une voix lente: « Vous n'êtes pas le gardien, mais l'Absent... »
 
-À l'instant même où il prononça ces mots, l'Omniscient sentit son cœur sombrer.
+À l'instant même où il prononça ces mots, Tian Yunzi sentit son cœur sombrer.

@@ -10,9 +10,9 @@ La femme sursauta un instant et une pointe d'ombre passa sur son visage, mais el
 
 Cette femme avait demandé le nom de Wang Lin à deux reprises, ce qui avait déjà attiré son attention. Bien qu'il ne connût pas certains sortilèges utilisant le nom d'autrui, le Grand Maître du Conseil Souverain possédait des techniques extrêmement étranges et insondables.
 
-En songeant à la manière dont elle avait pu calculer sa position comme si elle l'avait vu de ses propres yeux, Wang Lin ne put s'empêcher de se remémorer une autre personne dont le souvenir était profondément ancré en lui... l'Omniscient!
+En songeant à la manière dont elle avait pu calculer sa position comme si elle l'avait vu de ses propres yeux, Wang Lin ne put s'empêcher de se remémorer une autre personne dont le souvenir était profondément ancré en lui... Tian Yunzi!
 
-En vérité, durant toute son existence de cultivateur, l'Omniscient était la seule personne que Wang Lin n'avait jamais pu percer à jour et celle qui inspirait chez lui la plus grande crainte. Même Shui Daozi ne parvenait pas à susciter un tel sentiment d'effroi.
+En vérité, durant toute son existence de cultivateur, Tian Yunzi était la seule personne que Wang Lin n'avait jamais pu percer à jour et celle qui inspirait chez lui la plus grande crainte. Même Shui Daozi ne parvenait pas à susciter un tel sentiment d'effroi.
 
 À cet instant, l'expression de Wang Lin demeurait sereine, mais son cœur était en alerte. Il regarda la femme et prononça lentement: « Xu Mu! » Son nom n'était pas un secret pour quiconque souhaitait le connaître. Cependant, Wang Lin sentait vaguement que le fait qu'elle l'ait découvert et qu'il le lui dise de sa propre voix étaient deux choses bien distinctes.
 

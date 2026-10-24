@@ -70,7 +70,7 @@ Wang Lin se déplaça comme l'éclair et, en plein vol, se transforma en un giga
 
 « Zhou Yi m'a aidé autrefois, et il est maintenant piégé dans cette mer. Je rembourse toujours ceux qui m'ont fait du bien. Je dois tenter de l'aider. C'est la deuxième raison! »
 
-« Le Maître Omniscient se soucie du destin céleste et n'agirait pas sans raison. S'il veut que j'y aille, c'est qu'il a ses motifs. Si je refuse, je m'opposerai au destin, ce qui rendra difficile mon établissement au sein de la Secte du Destin Céleste. C'est la troisième raison! »
+« Le Maître Tian Yunzi se soucie du destin céleste et n'agirait pas sans raison. S'il veut que j'y aille, c'est qu'il a ses motifs. Si je refuse, je m'opposerai au destin, ce qui rendra difficile mon établissement au sein de la Secte du Destin Céleste. C'est la troisième raison! »
 
 « Seulement, je ne sais pas si j'aurai la chance de trouver de quoi augmenter l'élément métallique de la Perle Défiant le Ciel. Si elle est complète, elle apportera sans doute de grands bénéfices à Wan Er et pourrait même l'éveiller... » Wang Lin toucha son front, affichant un regard empreint de douce nostalgie.
 

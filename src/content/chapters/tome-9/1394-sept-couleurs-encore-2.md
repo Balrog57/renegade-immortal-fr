@@ -42,7 +42,7 @@ Dans la grotte, Wang Lin ouvrit brusquement les yeux, profondément troublé. Il
 
 Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier Wang Lin comme cette statue! Il avait déjà rencontré des cultivateurs du troisième pas; le niveau de culture de Lanmeng Daozun était très proche de celui du Souverain, et Wang Lin pouvait donc facilement faire la distinction.
 
-« Sept couleurs... Sept couleurs... Au cours de ma vie de culture, j'ai croisé ces sept couleurs maintes fois. L'Omniscient affectionne les sept couleurs, tout comme le Souverain. Il existe aussi des sorts aux sept couleurs... et le Royaume aux Sept Couleurs, là où se trouvait le fruit du Dao! »
+« Sept couleurs... Sept couleurs... Au cours de ma vie de culture, j'ai croisé ces sept couleurs maintes fois. Tian Yunzi affectionne les sept couleurs, tout comme le Souverain. Il existe aussi des sorts aux sept couleurs... et le Royaume aux Sept Couleurs, là où se trouvait le fruit du Dao! »
 
 « Et il y a aussi le Clou du Vide Divin aux Sept Couleurs! » Wang Lin pressentait qu'un immense secret se cachait derrière ces sept couleurs!
 

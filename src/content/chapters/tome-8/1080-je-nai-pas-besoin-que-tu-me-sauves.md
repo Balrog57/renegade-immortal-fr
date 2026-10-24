@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1080 - I Dont Need You to Save Me
 slug: je-nai-pas-besoin-que-tu-me-sauves
 ---
-« Sainte du Vide Brillant! » L'expression de l'Omniscient devint immédiatement sérieuse. Il recula rapidement de quelques pas tout en tenant son trident, mais son regard se tourna aussitôt vers le vieil homme suspendu dans les airs.
+« Sainte du Vide Brillant! » L'expression de Tian Yunzi devint immédiatement sérieuse. Il recula rapidement de quelques pas tout en tenant son trident, mais son regard se tourna aussitôt vers le vieil homme suspendu dans les airs.
 
-« Lu Yundao! » L'Omniscient fronça les sourcils et dit: « Se pourrait-il que votre Royaume du Vide Brillant souhaite également s'en mêler? »
+« Lu Yundao! » Tian Yunzi fronça les sourcils et dit: « Se pourrait-il que votre Royaume du Vide Brillant souhaite également s'en mêler? »
 
-Le vieil homme regarda l'Omniscient, puis le Démon Ancien Ta Jia au visage sombre. Lorsqu'il fixa le Démon Ancien Ta Jia, une pointe de souvenir brilla dans son regard.
+Le vieil homme regarda Tian Yunzi, puis le Démon Ancien Ta Jia au visage sombre. Lorsqu'il fixa le Démon Ancien Ta Jia, une pointe de souvenir brilla dans son regard.
 
 « La cible de ce vieil homme, c'est lui! » Le vieil homme poussa un soupir et marcha vers Ta Jia.
 
@@ -22,9 +22,9 @@ Ta Jia poussa un rugissement et une monstrueuse brume noire émana de son corps.
 
 En un clin d'œil, le démon ancien et le vieil homme furent enveloppés dans un nuage de brume noire. Le rugissement du démon ancien retentit, suivi d'un grondement tonnerreux.
 
-Mu Bingmei déposa Wang Lin et s'élança droit vers l'Omniscient.
+Mu Bingmei déposa Wang Lin et s'élança droit vers Tian Yunzi.
 
-L'Omniscient fronça les sourcils en reculant et dit calmement: « Sainte du Vide Brillant, je ne souhaite pas me faire un ennemi de votre Royaume du Vide Brillant. Ce Wang Lin n'a aucun lien avec vous. Personne ne peut m'empêcher de le tuer. »
+Tian Yunzi fronça les sourcils en reculant et dit calmement: « Sainte du Vide Brillant, je ne souhaite pas me faire un ennemi de votre Royaume du Vide Brillant. Ce Wang Lin n'a aucun lien avec vous. Personne ne peut m'empêcher de le tuer. »
 
 « Vous n'êtes pas qualifié pour le tuer! » Mu Bingmei secoua la tête en s'élevant dans les airs. D'un geste de sa main droite, des illusions apparurent. Étonnamment, elles ressemblaient toutes exactement à Mu Bingmei!
 
@@ -32,7 +32,7 @@ Cependant, il n'y en avait que huit!
 
 « Vide spirituel, verrouille l'énergie originelle! Raffine le ciel en énergie! » La voix de Mu Bingmei était calme et, dès qu'elle eut fini de parler, les huit avatars formèrent immédiatement des sceaux de leurs mains. Une puissante vague d'énergie originelle se rassembla, formant un pilier qui s'abattit soudainement du ciel.
 
-Les yeux de l'Omniscient révélèrent une lueur étrange et il murmura quelques mots. Le pilier d'énergie originelle descendant des cieux commença à trembler.
+Les yeux de Tian Yunzi révélèrent une lueur étrange et il murmura quelques mots. Le pilier d'énergie originelle descendant des cieux commença à trembler.
 
 Mu Bingmei secoua la tête et dit doucement: « Votre sort de destin céleste est inutile contre moi! » Tandis qu'elle parlait, sa main droite plongea dans le vide et une énergie originelle infinie se rassembla pour former un parchemin de bambou. À l'instant où le parchemin s'ouvrit, une lumière aux sept couleurs fut libérée. De nombreuses runes s'envolèrent et entourèrent le corps de Mu Bingmei.
 
@@ -40,13 +40,13 @@ Mu Bingmei secoua la tête et dit doucement: « Votre sort de destin céleste es
 
 À cet instant précis, toute l'énergie originelle du monde entier changea radicalement pour converger vers le pilier d'énergie originelle.
 
-Mu Bingmei fixa l'Omniscient et ordonna: « Scellez toute l'énergie originelle externe de l'Omniscient! » Bien que sa voix fût calme, elle portait un ton incontestable!
+Mu Bingmei fixa Tian Yunzi et ordonna: « Scellez toute l'énergie originelle externe de Tian Yunzi! » Bien que sa voix fût calme, elle portait un ton incontestable!
 
-Instantanément, toute l'énergie originelle entourant l'Omniscient se sépara de lui comme si elle le rejetait. Elle se dissipa rapidement et fut épuisée en un instant.
+Instantanément, toute l'énergie originelle entourant Tian Yunzi se sépara de lui comme si elle le rejetait. Elle se dissipa rapidement et fut épuisée en un instant.
 
-Seule l'énergie originelle déjà raffinée à l'intérieur de l'Omniscient ne fut pas affectée.
+Seule l'énergie originelle déjà raffinée à l'intérieur de Tian Yunzi ne fut pas affectée.
 
-Cependant, ce sort inconcevable dépassait l'imagination de quiconque. Même l'expression de l'Omniscient devint sombre.
+Cependant, ce sort inconcevable dépassait l'imagination de quiconque. Même l'expression de Tian Yunzi devint sombre.
 
 « J'ai longtemps entendu dire que la Sainte du Vide Brillant possédait un sort puissant au sein du Royaume du Vide Brillant. Le titre de Sainte du Vide Brillant est transmis de génération en génération depuis l'Antiquité. Même à l'époque où les Célestes existaient encore, son identité était à la hauteur du Palais Céleste. Il y avait quatre Royaumes Célestes, et chacun d'eux possédait un système stellaire sous ses ordres. La rumeur prétend qu'il existe, dans chaque système stellaire, une personne détentrice de l'héritage du Royaume Céleste Antique!
 
@@ -54,7 +54,7 @@ Cependant, ce sort inconcevable dépassait l'imagination de quiconque. Même l'e
 
 Mu Bingmei ne répondit pas et pointa le pilier d'énergie originelle. Le pilier se rétracta rapidement jusqu'à devenir une courte épée scintillante de lumière.
 
-Tenant cette épée, Mu Bingmei leva la tête et s'élança telle un papillon vers l'Omniscient. Jusqu'à présent, elle n'avait pas jeté un second regard vers Wang Lin. Les sentiments complexes qui habitaient son cœur faisaient qu'elle ne savait comment affronter cet étranger familier.
+Tenant cette épée, Mu Bingmei leva la tête et s'élança telle un papillon vers Tian Yunzi. Jusqu'à présent, elle n'avait pas jeté un second regard vers Wang Lin. Les sentiments complexes qui habitaient son cœur faisaient qu'elle ne savait comment affronter cet étranger familier.
 
 Nul ne pouvait comprendre ses pensées, car elle-même était encore confuse… Elle savait seulement qu'elle ne pouvait supporter de voir Wang Lin mourir. Elle ne pouvait rester indifférente alors que d'autres tentaient de l'assassiner.
 
@@ -66,15 +66,15 @@ Elle avait traversé d'innombrables années avec ce sentiment… Aujourd'hui, en
 
 Elle n'osait baisser les yeux pour regarder Wang Lin, qui était peut-être encore inconscient. Elle… n'osait pas.
 
-Elle se contenta de tenir l'épée courte et chargea l'Omniscient avec ce sentiment tumultueux. C'était la seule chose qui semblait pouvoir apaiser son cœur.
+Elle se contenta de tenir l'épée courte et chargea Tian Yunzi avec ce sentiment tumultueux. C'était la seule chose qui semblait pouvoir apaiser son cœur.
 
-L'expression de l'Omniscient était lugubre. Bien qu'il connaissît beaucoup de choses sur la Sainte du Vide Brillant, il ne pensait pas qu'elle serait capable de sceller l'énergie originelle du monde. Cela signifiait que ses sorts de destin céleste n'avaient aucun effet sur elle.
+L'expression de Tian Yunzi était lugubre. Bien qu'il connaissît beaucoup de choses sur la Sainte du Vide Brillant, il ne pensait pas qu'elle serait capable de sceller l'énergie originelle du monde. Cela signifiait que ses sorts de destin céleste n'avaient aucun effet sur elle.
 
 Les sorts de destin céleste étaient un moyen de communiquer avec le monde. Cette communication lui permettait d'obtenir une loi intangible à utiliser!
 
 Il laissa échapper un reniflement froid et abattit son trident. Trois rayons de lumière jaillirent vers Mu Bingmei.
 
-Alors que des grondements retentissaient, Wang Lin ouvrit les yeux au sol. En voyant Mu Bingmei combattre l'Omniscient, ses yeux révélèrent une expression extrêmement complexe, mêlée d'une trace de douleur indélébile.
+Alors que des grondements retentissaient, Wang Lin ouvrit les yeux au sol. En voyant Mu Bingmei combattre Tian Yunzi, ses yeux révélèrent une expression extrêmement complexe, mêlée d'une trace de douleur indélébile.
 
 Il ne pensait pas la rencontrer pour de bon si vite, et dans de telles circonstances. Chaque fois que Wang Lin pensait à Liu Mei, la douleur était bien plus intense que n'importe quelle blessure physique. Son cœur lui faisait mal chaque fois qu'il songeait à l'amertume qui habitait le corps de Wang Ping.
 
@@ -92,7 +92,7 @@ Mais cela prendrait trop de temps. À l'origine, Wang Lin avait prévu de faire 
 
 Toutefois, un raccourci a toujours un prix. Un prix que Wang Lin allait devoir payer.
 
-Wang Lin regarda Liu Mei lutter contre l'Omniscient. Son regard devint ferme et résolu.
+Wang Lin regarda Liu Mei lutter contre Tian Yunzi. Son regard devint ferme et résolu.
 
 « Je n'ai pas besoin qu'elle me sauve, et je ne veux rien lui devoir! »
 
@@ -106,8 +106,8 @@ Tant que l'étoile du Dieu Ancien ne se brisait pas, elle pouvait être restaur�
 
 Cependant, le bouclier exigeait trop d'énergie. Alors que la lumière de l'œil droit de Wang Lin devenait plus éclatante, davantage d'énergie y pénétra et la quatrième étoile pâlit à son tour.
 
-La lumière bleue de l'œil droit de Wang Lin explosa, enveloppant toute la zone sur un rayon d'environ dix mille pieds. Même Mu Bingmei et l'Omniscient, en plein combat, remarquèrent cette étrange lueur azurée.
+La lumière bleue de l'œil droit de Wang Lin explosa, enveloppant toute la zone sur un rayon d'environ dix mille pieds. Même Mu Bingmei et Tian Yunzi, en plein combat, remarquèrent cette étrange lueur azurée.
 
 Les étoiles entre ses sourcils tournèrent de plus en plus vite. La troisième étoile faiblit, suivie de la deuxième. Enfin, la dernière étoile restante perdit rapidement son éclat elle aussi.
 
-Mais à cet instant précis, la lumière bleue jaillit de l'œil droit de Wang Lin comme une épée fendant le ciel. Il fixa le pilier de terre de cinquante kilomètres qui s'était élevé par le sort de l'Omniscient. Le pilier gronda instantanément, incapable de résister au regard de Wang Lin, avant de s'effondrer!
+Mais à cet instant précis, la lumière bleue jaillit de l'œil droit de Wang Lin comme une épée fendant le ciel. Il fixa le pilier de terre de cinquante kilomètres qui s'était élevé par le sort de Tian Yunzi. Le pilier gronda instantanément, incapable de résister au regard de Wang Lin, avant de s'effondrer!

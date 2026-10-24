@@ -3,7 +3,7 @@ n: 972
 title: Le Tout-Voyant à la Robe Grise
 book: 8
 bookTitle: "Alliance's Secret"
-en: Chapter 972 - Grey Robed Omniscient
+en: Chapter 972 - Grey Robed Tian Yunzi
 slug: le-tout-voyant-a-la-robe-grise
 ---
 Le dragon de vent aux sept couleurs et le Qilin se livraient un combat acharné, provoquant des grondements incessants qui résonnaient à travers le monde. Le dragon de vent laissait échapper des rugissements tonitruants.
@@ -22,27 +22,27 @@ Sans attendre que Ling Tianhou finisse sa phrase, une voix antique résonna à t
 
 « Ling Tianhou, tu parles trop! Je peux tout endurer de ta part, mais tu ne peux interférer sans raison dans les affaires de ma Secte du Destin Céleste. Si tu ne t'en vas pas d'ici trois respirations, ne blâme pas ce vieil homme de te forcer personnellement à partir! »
 
-Ling Tianhou roula des yeux, laissa échapper un renâclement froid et cria: « Omniscient, crois-tu que moi, le Saint de l'Épée, je te crains? Si tu veux te battre, battons-nous; je veux voir à quel point ta puissance a augmenté! »
+Ling Tianhou roula des yeux, laissa échapper un renâclement froid et cria: « Tian Yunzi, crois-tu que moi, le Saint de l'Épée, je te crains? Si tu veux te battre, battons-nous; je veux voir à quel point ta puissance a augmenté! »
 
-Wang Lin écoutait attentivement leur échange. Bien qu'il n'y eût aucune trace de l'Omniscient, avec ses capacités, il ne lui faudrait qu'un instant pour apparaître!
+Wang Lin écoutait attentivement leur échange. Bien qu'il n'y eût aucune trace de Tian Yunzi, avec ses capacités, il ne lui faudrait qu'un instant pour apparaître!
 
-Wang Lin avait toujours été troublé par une question. À l'époque, il était trop faible pour s'y attarder, mais désormais, il comptait lui aussi parmi les cultivateurs puissants. Comment pouvait-il ne pas percevoir la différence entre Ling Tianhou et l'Omniscient!
+Wang Lin avait toujours été troublé par une question. À l'époque, il était trop faible pour s'y attarder, mais désormais, il comptait lui aussi parmi les cultivateurs puissants. Comment pouvait-il ne pas percevoir la différence entre Ling Tianhou et Tian Yunzi!
 
-Ling Tianhou était bien plus fort que Xue Zu, mais comparé à Maître Yan Leizi, Qing Shui et aux autres, il était bien plus faible. Il n'était pas exagéré de dire que la différence entre lui et l'Omniscient était aussi vaste que celle entre le ciel et la terre.
+Ling Tianhou était bien plus fort que Xue Zu, mais comparé à Maître Yan Leizi, Qing Shui et aux autres, il était bien plus faible. Il n'était pas exagéré de dire que la différence entre lui et Tian Yunzi était aussi vaste que celle entre le ciel et la terre.
 
-Pourtant, Ling Tianhou avait osé s'opposer à l'Omniscient pendant des dizaines de milliers d'années. Wang Lin en était profondément perplexe!
+Pourtant, Ling Tianhou avait osé s'opposer à Tian Yunzi pendant des dizaines de milliers d'années. Wang Lin en était profondément perplexe!
 
-À l'écouter, le ton de l'Omniscient suggérait qu'il endurait les provocations de Ling Tianhou de façon répétée!
+À l'écouter, le ton de Tian Yunzi suggérait qu'il endurait les provocations de Ling Tianhou de façon répétée!
 
 « Quel genre de secret se cache entre eux deux... » Wang Lin resta silencieux et observa attentivement.
 
-« Tu n'as pas respecté l'accord! » La voix de l'Omniscient apparut lentement. Bien qu'aucun signe de joie ou de colère ne s'en dégageât, au moment où la voix se fit entendre, le ciel, qui commençait à peine à s'éclaircir, s'obscurcit soudainement!
+« Tu n'as pas respecté l'accord! » La voix de Tian Yunzi apparut lentement. Bien qu'aucun signe de joie ou de colère ne s'en dégageât, au moment où la voix se fit entendre, le ciel, qui commençait à peine à s'éclaircir, s'obscurcit soudainement!
 
 Le soleil qui s'élevait progressivement à l'est sembla être totalement occulté par un sortilège surpuissant. En un instant, le monde fut plongé dans les ténèbres!
 
 L'expression de Ling Tianhou devint grave; il agita ses larges manches et les épées d'âme originelle derrière lui s'enfoncèrent dans le vide, libérant une énergie d'épée monstrueuse!
 
-« Et alors si je ne respecte pas l'accord? Omniscient, même si tu fais sortir la robe grise, crois-tu que je te craindrai? » Ling Tianhou laissa échapper un grognement froid, puis sa main droite traça un sceau pointé vers l'énergie d'épée. Cette dernière s'effondra soudainement et se propagea à travers le monde.
+« Et alors si je ne respecte pas l'accord? Tian Yunzi, même si tu fais sortir la robe grise, crois-tu que je te craindrai? » Ling Tianhou laissa échapper un grognement froid, puis sa main droite traça un sceau pointé vers l'énergie d'épée. Cette dernière s'effondra soudainement et se propagea à travers le monde.
 
 Sous ces éclats d'énergie d'épée, le monde fut de nouveau illuminé. Cela donna à la zone devant Wang Lin l'apparence d'un crépuscule!
 
@@ -50,9 +50,9 @@ Une silhouette en robe grise apparut à l'horizon. Cette ombre dégageait un sen
 
 Il avançait lentement, pas après pas, vers Ling Tianhou.
 
-Lorsque Wang Lin vit cette ombre grise, son esprit trembla. Il reconnut que cet homme en robe grise n'était autre que l'Omniscient à la Robe Grise qui lui avait enseigné l'Art du Massacre Céleste!
+Lorsque Wang Lin vit cette ombre grise, son esprit trembla. Il reconnut que cet homme en robe grise n'était autre que Tian Yunzi à la Robe Grise qui lui avait enseigné l'Art du Massacre Céleste!
 
-Les yeux de l'Omniscient à la Robe Grise étaient froids et empreints d'une arrogance solitaire. Avant même d'arriver, il leva sa main droite et saisit le vide. L'obscurité infinie sembla s'animer et converger vers sa main.
+Les yeux de Tian Yunzi à la Robe Grise étaient froids et empreints d'une arrogance solitaire. Avant même d'arriver, il leva sa main droite et saisit le vide. L'obscurité infinie sembla s'animer et converger vers sa main.
 
 Cette scène était extrêmement étrange. L'obscurité n'est pas comme la brume qui peut se déplacer; elle n'est qu'une existence naturelle due à l'absence de lumière. Comment cette obscurité pouvait-elle se rassembler?
 
@@ -60,31 +60,31 @@ Pourtant, à cet instant, Wang Lin voyait clairement cette obscurité bouger et 
 
 « La capacité d'absorber la lumière! » L'étonnement illumina les yeux de Wang Lin.
 
-L'obscurité sans fin se rassembla dans la main de l'Omniscient à la Robe Grise pour se transformer en une épée noire ne faisant qu'un doigt de large. L'Omniscient ne perdit pas de temps en discours avec Ling Tianhou et lança directement un coup d'épée horizontal.
+L'obscurité sans fin se rassembla dans la main de Tian Yunzi à la Robe Grise pour se transformer en une épée noire ne faisant qu'un doigt de large. Tian Yunzi ne perdit pas de temps en discours avec Ling Tianhou et lança directement un coup d'épée horizontal.
 
 À cet instant, une énergie de massacre monstrueuse s'éleva dans le monde. Ce n'était pas un simple filament d'énergie de massacre, mais dix!
 
 Dix filaments d'une véritable énergie de massacre céleste! Ce n'était pas l'énergie de massacre incomplète que Wang Lin formait en pratiquant l'Art du Massacre Céleste. Il s'agissait de véritables filaments formés par le raffinage de la chair et de l'âme originelle d'un cultivateur ayant maîtrisé plus d'un million de filaments de massacre. C'était une essence pure!
 
-L'expression de Wang Lin devint extrêmement sombre alors qu'il fixait l'Omniscient et ces dix filaments. Il ne put s'empêcher de penser que s'il n'avait pas réalisé cela à temps, il serait devenu lui aussi un simple filament de massacre pour l'Omniscient!
+L'expression de Wang Lin devint extrêmement sombre alors qu'il fixait Tian Yunzi et ces dix filaments. Il ne put s'empêcher de penser que s'il n'avait pas réalisé cela à temps, il serait devenu lui aussi un simple filament de massacre pour Tian Yunzi!
 
 Alors qu'il était plongé dans cette pensée, le corps de Wang Lin trembla comme si un éclair l'avait traversé. Ses yeux brillèrent intensément, comme s'il venait d'avoir une révélation.
 
 « Attends!
 
-Ce n'est pas que l'Omniscient ne se soit jamais trompé auparavant. Il y avait une signification profonde derrière l'enseignement de l'Art du Massacre Céleste. C'était la première fois qu'il plaçait en moi une amorce, comme le jour de l'Extrême Yang lors de la naissance de Bai Wei!
+Ce n'est pas que Tian Yunzi ne se soit jamais trompé auparavant. Il y avait une signification profonde derrière l'enseignement de l'Art du Massacre Céleste. C'était la première fois qu'il plaçait en moi une amorce, comme le jour de l'Extrême Yang lors de la naissance de Bai Wei!
 
-Dans le passé, l'Omniscient était une existence parfaite qui ne pouvait commettre d'erreur! Cependant, dans la Terre des Esprits Démoniaques, grâce à l'aide involontaire de l'ancien démon, j'ai pu découvrir la faille de l'Art du Massacre Céleste! Cela a causé une légère déviation dans le plan de l'Omniscient!
+Dans le passé, Tian Yunzi était une existence parfaite qui ne pouvait commettre d'erreur! Cependant, dans la Terre des Esprits Démoniaques, grâce à l'aide involontaire de l'ancien démon, j'ai pu découvrir la faille de l'Art du Massacre Céleste! Cela a causé une légère déviation dans le plan de Tian Yunzi!
 
 Puis, le Démon Dispersé est apparu et a une fois de plus perturbé ses desseins. Finalement, j'ai pu percer le karma de l'Art du Massacre Céleste et j'ai résolument renoncé à cette puissante énergie de massacre!
 
-C'était la première fois que l'Omniscient se trompait en complotant contre moi! » Les yeux de Wang Lin s'illuminèrent d'une compréhension soudaine alors qu'il fixait l'homme à la robe grise. Bien que cela semblât complexe, tout défila dans son esprit en un éclair.
+C'était la première fois que Tian Yunzi se trompait en complotant contre moi! » Les yeux de Wang Lin s'illuminèrent d'une compréhension soudaine alors qu'il fixait l'homme à la robe grise. Bien que cela semblât complexe, tout défila dans son esprit en un éclair.
 
-« L'Omniscient s'est déjà trompé une fois en complotant contre moi; c'est pourquoi, bien qu'il ait prévu la date de mon retour, il n'a pu calculer mon véritable niveau de culture! » Les yeux de Wang Lin devinrent glacials. Il prit une profonde inspiration, l'esprit clair!
+« Tian Yunzi s'est déjà trompé une fois en complotant contre moi; c'est pourquoi, bien qu'il ait prévu la date de mon retour, il n'a pu calculer mon véritable niveau de culture! » Les yeux de Wang Lin devinrent glacials. Il prit une profonde inspiration, l'esprit clair!
 
-« Bien que cette erreur ne fût pas immense, elle constitue une faille pour l'Omniscient! L'actuel Omniscient n'est plus cet être parfait et infaillible! Cette impasse n'est pas impossible à briser. Puisqu'il s'est trompé une fois, il pourrait se tromper une seconde! »
+« Bien que cette erreur ne fût pas immense, elle constitue une faille pour Tian Yunzi! L'actuel Tian Yunzi n'est plus cet être parfait et infaillible! Cette impasse n'est pas impossible à briser. Puisqu'il s'est trompé une fois, il pourrait se tromper une seconde! »
 
-L'expression de l'Omniscient à la Robe Grise demeurait calme, presque indifférente. Les dix filaments d'énergie de massacre fonçaient à une vitesse prodigieuse vers Ling Tianhou.
+L'expression de Tian Yunzi à la Robe Grise demeurait calme, presque indifférente. Les dix filaments d'énergie de massacre fonçaient à une vitesse prodigieuse vers Ling Tianhou.
 
 Ling Tianhou laissa échapper un grognement froid, leva la main et hurla: « Clarté, Percée, Brisure! Deuxième style du Brise-Ciel, l'Enfant-Épée porte la lame! » Sa main droite s'éleva vers le ciel. Aussitôt, les quatre épées d'âme originelle derrière lui pivotèrent rapidement pour fusionner en une seule.
 
@@ -96,13 +96,13 @@ Au moment où Wang Lin vit cette lame incurvée, ses yeux s'illuminèrent.
 
 « L'Épée Céleste de la Pluie! » Wang Lin reconnut immédiatement l'arme serpentine. Au Royaume Céleste de la Pluie, l'Épée Céleste de la Pluie était divisée en quatre parties, dont deux avaient été dérobées. Cette Épée Serpentine de la Pluie était celle que Ling Tianhou avait dérobée!
 
-Le garçon s'avança pour faire face à l'Omniscient à la Robe Grise. Ling Tianhou traça un sceau et pointa le doigt. Le garçon ouvrit soudain les yeux, révélant un regard oppressant.
+Le garçon s'avança pour faire face à Tian Yunzi à la Robe Grise. Ling Tianhou traça un sceau et pointa le doigt. Le garçon ouvrit soudain les yeux, révélant un regard oppressant.
 
-Alors que le corps du garçon s'élançait, l'Épée Serpentine de la Pluie vola vers les dix filaments d'énergie de massacre projetés par l'Omniscient.
+Alors que le corps du garçon s'élançait, l'Épée Serpentine de la Pluie vola vers les dix filaments d'énergie de massacre projetés par Tian Yunzi.
 
 En un instant, l'épée brilla intensément et un python gigantesque long de 3,3 kilomètres apparut. Il poussa un rugissement tout en exhalant un souffle fétide, déclenchant une tempête dévastatrice.
 
-L'expression de l'Omniscient resta indifférente tandis que les dix filaments d'énergie de massacre percutaient l'ouragan dégueulé par le python. Lors de la collision, ces filaments subirent une mutation inattendue qui fit changer l'expression de Wang Lin.
+L'expression de Tian Yunzi resta indifférente tandis que les dix filaments d'énergie de massacre percutaient l'ouragan dégueulé par le python. Lors de la collision, ces filaments subirent une mutation inattendue qui fit changer l'expression de Wang Lin.
 
 Dans un éclair de lumière noire, les dix filaments se transformèrent en dix silhouettes. Hommes et femmes, jeunes et vieux, tous partageaient sans exception un regard féroce. Habités par une intention meurtrière monstrueuse et les yeux injectés de sang, ils chargèrent la tempête.
 

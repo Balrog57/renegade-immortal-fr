@@ -14,7 +14,7 @@ Wang Lin contemplait la scène avec stupeur. En entendant les paroles de Qing Sh
 
 C'était une sensation très singulière pour lui, comme si elle ne s'était pas manifestée en son for intérieur depuis une éternité.
 
-Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître Dun Tian, de la Secte de l'Affinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première rencontre avec l'Omniscient alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
+Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître Dun Tian, de la Secte de l'Affinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première rencontre avec Tian Yunzi alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
 
 Zhou Yi lui avait également donné ce sentiment.
 
@@ -28,7 +28,7 @@ Tout cela parce que Situ Nan lui avait montré de la gentillesse!
 
 Wang Lin n'avait pas non plus oublié la reconnaissance due à Zhou Yi; pour la rembourser, il avait accompli bien trop de choses.
 
-Il avait également une dette envers l'Omniscient lors de sa tentative d'atteindre la Formation de l'Âme. C'est pour cette raison qu'il était resté indécis après avoir découvert de nombreux indices. Ce n'est qu'à la toute fin, lorsque tout fut mis en lumière, qu'il fut contraint d'emprunter le chemin de la rébellion contre l'Omniscient.
+Il avait également une dette envers Tian Yunzi lors de sa tentative d'atteindre la Formation de l'Âme. C'est pour cette raison qu'il était resté indécis après avoir découvert de nombreux indices. Ce n'est qu'à la toute fin, lorsque tout fut mis en lumière, qu'il fut contraint d'emprunter le chemin de la rébellion contre Tian Yunzi.
 
 Pourtant, au plus profond de son âme, une trace de tristesse persistait.
 

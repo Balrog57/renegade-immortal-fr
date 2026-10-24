@@ -1,9 +1,9 @@
 ---
 n: 1946
-title: "L'Aura de l'Omniscient!"
+title: "L'Aura de Tian Yunzi!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: "Chapter 1946 - Omniscient’s Aura!"
+en: "Chapter 1946 - Tian Yunzi’s Aura!"
 slug: laura-de-lomniscient
 ---
 « Au fil des innombrables années, j’ai étudié cette inscription. Je veux savoir qui a détruit ma Secte Dong Lin et quelles étaient ses intentions!
@@ -58,9 +58,9 @@ Ce qui choqua Wang Lin fut l'écriture des mots sur la pierre. Plus il regardait
 
 Une écriture peut être imitée, mais l'aura qu'elle dégage est extrêmement difficile à reproduire. Wang Lin ne se contentait pas de reconnaître l'écriture; il reconnaissait son aura!
 
-« Ciel… L’Omniscient… » Wang Lin fut stupéfait. Comment avait-il pu oublier cette aura? C'était un être qu'il redoutait profondément dans le monde des grottes.
+« Ciel… L’Tian Yunzi… » Wang Lin fut stupéfait. Comment avait-il pu oublier cette aura? C'était un être qu'il redoutait profondément dans le monde des grottes.
 
-Cet individu faisait partie du Dao Céleste, et bien qu'il ait été détruit par Wang Lin, ce dernier soupçonnait que l’Omniscient n’était pas mort!
+Cet individu faisait partie du Dao Céleste, et bien qu'il ait été détruit par Wang Lin, ce dernier soupçonnait que l’Tian Yunzi n’était pas mort!
 
 L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royaume aux Sept Couleurs : elles ont été laissées par deux personnes différentes. Cependant, l'apparence même de cette pierre brouillait la compréhension qu'avait Wang Lin du monde des grottes.
 
@@ -70,7 +70,7 @@ L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royau
 
 « Qui a détruit la Secte Dong Lin et laissé cette stèle ici?
 
-« L'écriture et l'aura appartiennent à l'Omniscient, mais comment est-il arrivé sur le Continent Astral Immortel et pourquoi a-t-il détruit la Secte Dong Lin?!
+« L'écriture et l'aura appartiennent à Tian Yunzi, mais comment est-il arrivé sur le Continent Astral Immortel et pourquoi a-t-il détruit la Secte Dong Lin?!
 
 « Et le Souverain Céleste aux Sept Couleurs… Je pensais qu’il était mort, mais… est-il vraiment mort?
 

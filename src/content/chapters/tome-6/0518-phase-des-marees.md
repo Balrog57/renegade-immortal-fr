@@ -38,7 +38,7 @@ Cette gueule de source n'était pas statique; elle continuait de croître à mes
 
 Les yeux du Saint de l'Épée Ling Tianhou brillèrent d'une lueur mystérieuse tandis qu'il murmurait: « Cela a commencé... »
 
-« Je me demande ce qui sera attiré ici cette fois... » Un éclat de lumière aux sept couleurs traversa les yeux sereins de l'Omniscient.
+« Je me demande ce qui sera attiré ici cette fois... » Un éclat de lumière aux sept couleurs traversa les yeux sereins de Tian Yunzi.
 
 À cet instant, tous les cultivateurs ayant déjà eu le privilège de voir la Mer des Esprits Démoniaques de l'Est s'ouvrir fixèrent intensément l'orifice de la source.
 

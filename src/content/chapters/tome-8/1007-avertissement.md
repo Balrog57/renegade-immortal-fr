@@ -104,7 +104,7 @@ La silhouette blanche s'avança et leva son incomparable visage. Elle fixa froid
 
 À cet instant précis, les pupilles de Wang Lin se rétractèrent brusquement; il ouvrit la bouche et expulsa un objet. C'était le trésor de protection que Maître Yan Leizi lui avait offert: un fragment du Royaume Céleste du Tonnerre!
 
-Le fragment présentait quelques fissures causées par le sort de l'Omniscient!
+Le fragment présentait quelques fissures causées par le sort de Tian Yunzi!
 
 L'artefact céleste s'éleva et grandit instantanément jusqu'à atteindre mille pieds de large, formant un bouclier protecteur pour Wang Lin!
 

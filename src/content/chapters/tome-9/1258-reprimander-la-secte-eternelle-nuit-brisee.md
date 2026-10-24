@@ -72,7 +72,7 @@ Les cultivateurs dans les gradins furent enveloppés par l'obscurité. Ils étai
 
 Même les anciens de la Secte Éternelle n'étaient pas épargnés!
 
-Ils ignoraient que, jadis, dans la Terre des Esprits Démoniaques, Wang Lin avait utilisé Nuit Brisée pour tuer Maître du Vide et forcer l'Omniscient aux robes grises à battre en retraite. Deux avatars de l'Omniscient, pourtant au stade avancé de Briseur du Nirvana, y avaient péri!
+Ils ignoraient que, jadis, dans la Terre des Esprits Démoniaques, Wang Lin avait utilisé Nuit Brisée pour tuer Maître du Vide et forcer Tian Yunzi aux robes grises à battre en retraite. Deux avatars de Tian Yunzi, pourtant au stade avancé de Briseur du Nirvana, y avaient péri!
 
 Ils ignoraient également que Nuit Brisée, depuis la bataille dans la Terre des Esprits Démoniaques, s'était répandu dans le Système Stellaire de l'Alliance et était désormais reconnu comme un sort d'une puissance exceptionnelle!
 

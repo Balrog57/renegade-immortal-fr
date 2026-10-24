@@ -58,7 +58,7 @@ Les yeux de Wang Lin brillèrent et il toucha l'espace entre ses sourcils de sa 
 
 Hormis l'unique fil qu'il conservait dans son âme originelle, tous les autres avaient été condensés au bout du doigt de Wang Lin en une seule fibre. Ce filament dense d'énergie de massacre jaillit après avoir été projeté par un coup sec de Wang Lin.
 
-« L'Esprit d'Épée Brisée de Ling Tianhou et l'Art du Massacre Céleste de l'Omniscient! » Les yeux de Tan Lang brillèrent intensément, mais une pointe de dérision s'y nichait. Il recula en disant: « Bien que ces deux sorts soient puissants, votre maîtrise est incomplète. Devant les yeux de ce vieil homme, ils sont tout simplement trop faibles! »
+« L'Esprit d'Épée Brisée de Ling Tianhou et l'Art du Massacre Céleste de Tian Yunzi! » Les yeux de Tan Lang brillèrent intensément, mais une pointe de dérision s'y nichait. Il recula en disant: « Bien que ces deux sorts soient puissants, votre maîtrise est incomplète. Devant les yeux de ce vieil homme, ils sont tout simplement trop faibles! »
 
 Tan Lang frappa sa sacoche de rangement et une petite montagne s'en envola immédiatement. Une fois sortie, elle grandit instantanément pour atteindre environ 330 mètres de haut et flotta dans les airs.
 
@@ -76,7 +76,7 @@ Une puissance incomparable se manifesta instantanément. Une fois l'âme de la m
 
 Cependant, l'âme illusoire de la montagne était toujours entre les mains de Tan Lang!
 
-« La culture de ce vieil homme ne peut égaler celle du vieux Ling Tianhou ou de ce vieux voleur d'Omniscient, mais les sorts du vieux Tan Lang sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre des techniques que d'autres vous ont accordées, en croyant qu'elles étaient les vôtres! » Les yeux de Tan Lang débordaient de mépris alors que sa main droite s'abaissait.
+« La culture de ce vieil homme ne peut égaler celle du vieux Ling Tianhou ou de ce vieux voleur d'Tian Yunzi, mais les sorts du vieux Tan Lang sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre des techniques que d'autres vous ont accordées, en croyant qu'elles étaient les vôtres! » Les yeux de Tan Lang débordaient de mépris alors que sa main droite s'abaissait.
 
 Dans un fracas assourdissant, l'âme de la montagne descendit.
 

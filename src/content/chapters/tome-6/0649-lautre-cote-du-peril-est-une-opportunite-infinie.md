@@ -100,7 +100,7 @@ Son âme originelle ne cessait de croître. Ce n'était pas une croissance en qu
 
 Des ramifications s'étendaient du dragon vers les confins de l'âme originelle de Wang Lin. La puissance de la créature transformait l'essence de l'homme d'une manière mystérieuse.
 
-Même des êtres comme l'Omniscient n'oseraient dévorer un dragon de tonnerre antique. Car ce dragon n'était pas une bête ancienne ordinaire. La rumeur prétendait que les dragons de tonnerre étaient nés du tonnerre même et qu'ils étaient les protégés des cieux; il y eut même une époque où ils contrôlaient le pouvoir de la foudre pour le compte du firmament.
+Même des êtres comme Tian Yunzi n'oseraient dévorer un dragon de tonnerre antique. Car ce dragon n'était pas une bête ancienne ordinaire. La rumeur prétendait que les dragons de tonnerre étaient nés du tonnerre même et qu'ils étaient les protégés des cieux; il y eut même une époque où ils contrôlaient le pouvoir de la foudre pour le compte du firmament.
 
 Dévorer ce dragon revenait à dévorer un ciel en pleine tempête orageuse. Comment l'âme originelle d'un cultivateur pouvait-elle supporter un tel tonnerre?
 
@@ -110,6 +110,6 @@ L'âme originelle de Wang Lin, enveloppée par la foudre du dragon, vit une quan
 
 Son essence était dans un état prodigieux et subissait un changement bouleversant. Ce changement n'améliorerait peut-être pas sa culture immédiatement, mais il ouvrirait d'innombrables voies à Wang Lin pour l'avenir!
 
-Une âme originelle contenant du tonnerre... Même l'Omniscient n'avait jamais vu de cultivateur parvenir à un tel exploit!
+Une âme originelle contenant du tonnerre... Même Tian Yunzi n'avait jamais vu de cultivateur parvenir à un tel exploit!
 
 Le dragon de tonnerre à l'intérieur de l'âme de Wang Lin lutta intensément, perturbant son essence. Il n'avait pas encore capitulé et lançait une contre-attaque!

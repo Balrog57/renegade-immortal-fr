@@ -1,9 +1,9 @@
 ---
 n: 486
-title: "Les 7 véritables disciples de l'Omniscient"
+title: "Les 7 véritables disciples de Tian Yunzi"
 book: 6
 bookTitle: Arriving on Tian Yun
-en: Chapter 486 - The 7 true disciples of the Omniscient
+en: Chapter 486 - The 7 true disciples of the Tian Yunzi
 slug: les-7-véritables-disciples-de-lomniscient
 ---
 Wang Lin poussa un soupir intérieur et sortit du pavillon. Dehors se tenait Bai Wei, vêtu d'une robe violette ornée de motifs floraux. Bai Wei était indéniablement un bel homme, mais sous la lumière du soleil, il dégageait véritablement l'aura d'une femme magnifique.
@@ -54,9 +54,9 @@ Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant d
 
 « Lors de la célébration de l'anniversaire de Maître dans trois mois, le nouveau véritable disciple de la Division Pourpre sera choisi. À moins que Sixième Frère ne revienne de son entraînement à l'extérieur, tu seras la personne que ton frère aîné devra impérativement éliminer! »
 
-Wang Lin fronça légèrement les sourcils: « Le titre des sept véritables disciples de l'Omniscient n'est qu'un titre. Pourquoi se battre ainsi? »
+Wang Lin fronça légèrement les sourcils: « Le titre des sept véritables disciples de Tian Yunzi n'est qu'un titre. Pourquoi se battre ainsi? »
 
-Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire. « Un simple titre? Septième Frère, comprends-tu qu'une fois devenu l'un des sept véritables disciples de l'Omniscient, tu ne seras inférieur qu'à quelques rares individus et tu te placeras au-dessus de dizaines de milliers d'autres? Chaque pays de culture devra t'obéir, et d'innombrables personnes chercheront à devenir tes disciples. »
+Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire. « Un simple titre? Septième Frère, comprends-tu qu'une fois devenu l'un des sept véritables disciples de Tian Yunzi, tu ne seras inférieur qu'à quelques rares individus et tu te placeras au-dessus de dizaines de milliers d'autres? Chaque pays de culture devra t'obéir, et d'innombrables personnes chercheront à devenir tes disciples. »
 
 « En plus de cela, chacun des sept véritables disciples peut disposer d'un pays de culture entier pour s'entraîner. Tu pourras choisir n'importe quel pays sur la planète Tian Yun, ou même l'un des pays des planètes environnantes! »
 
@@ -102,7 +102,7 @@ Il existait peut-être des techniques rivalisant avec les sorts célestes, mais 
 
 Wang Lin possédait de nombreuses techniques des anciens dieux issues des souvenirs de Tu Si. Cependant, elles ne pouvaient être utilisées que par les membres de la race des Anciens Dieux, et elles exigeaient des conditions extrêmement strictes. Avec le niveau de culture actuel de son corps originel, il ne pouvait en utiliser aucune.
 
-« Les sept véritables disciples de l'Omniscient... Intéressant! » Les yeux de Wang Lin s'illuminèrent. Il enfila ses vêtements de disciple et sortit du pavillon.
+« Les sept véritables disciples de Tian Yunzi... Intéressant! » Les yeux de Wang Lin s'illuminèrent. Il enfila ses vêtements de disciple et sortit du pavillon.
 
 Il était midi. Le soleil brûlant trônait au zénith alors que Wang Lin sortait, vêtu de violet, ses longs cheveux flottant au vent, lui conférant un air d'élégance.
 
@@ -114,8 +114,8 @@ Par conséquent, à l'exception de quelqu'un comme Wang Lin qui était apparu so
 
 La Division Pourpre était immense. Ayant déjà exploré la zone à plusieurs reprises, il n'était pas étranger au chemin. Sa destination cette fois-ci: le pavillon des trésors de la Division Pourpre!
 
-C'est dans ce pavillon que les disciples obtenaient leurs pilules et leurs pierres spirituelles. C'est aussi là que Bai Wei avait récupéré le jeton et les vêtements de Wang Lin. En tant que disciple de l'Omniscient, il bénéficierait de privilèges spéciaux, comme une allocation mensuelle de jade céleste. Il avait décidé de s'y rendre après les explications de Bai Wei.
+C'est dans ce pavillon que les disciples obtenaient leurs pilules et leurs pierres spirituelles. C'est aussi là que Bai Wei avait récupéré le jeton et les vêtements de Wang Lin. En tant que disciple de Tian Yunzi, il bénéficierait de privilèges spéciaux, comme une allocation mensuelle de jade céleste. Il avait décidé de s'y rendre après les explications de Bai Wei.
 
-« Si je veux prétendre à la position de l'un des sept véritables disciples, ma culture doit atteindre le milieu du stade de la Transformation de l'Âme! Sur la planète Tian Yun, moi, Wang Lin, serai un être dominant! Ce n'est pas un endroit où l'on cache sa force; si je montre la moindre faiblesse, je finirai immédiatement sous les bottes de quelqu'un. Même l'Omniscient le permet, sans quoi le combat précédent n'aurait jamais eu lieu! »
+« Si je veux prétendre à la position de l'un des sept véritables disciples, ma culture doit atteindre le milieu du stade de la Transformation de l'Âme! Sur la planète Tian Yun, moi, Wang Lin, serai un être dominant! Ce n'est pas un endroit où l'on cache sa force; si je montre la moindre faiblesse, je finirai immédiatement sous les bottes de quelqu'un. Même Tian Yunzi le permet, sans quoi le combat précédent n'aurait jamais eu lieu! »
 
 « Puisqu'il en est ainsi, je veux voir jusqu'où je peux grimper dans cette Secte du Destin Céleste! Tant que je ne franchis pas la limite imposée par Maître, je pourrai faire tout ce que je souhaite! »

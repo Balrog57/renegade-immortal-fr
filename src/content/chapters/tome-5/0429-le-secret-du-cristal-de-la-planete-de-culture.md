@@ -47,7 +47,7 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Le Cristal de la Planète de Culture! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre des Flammes du Nord.
 
-« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Culture et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver l'Omniscient. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la culture.
+« L'essentiel maintenant est de s'emparer du Cristal de la Planète de Culture et de récupérer cette parcelle de mon âme. Ensuite, je quitterai la planète pour trouver Tian Yunzi. Dans l'état actuel de chaos de la planète Suzaku, elle n'est plus propice à la culture.
 
 « Cependant, je dois faire quelques préparatifs avant cela. L'Étendard de l'Âme au Milliard d'Âmes s'est affaibli; je dois retourner sur le champ de bataille étranger pour capturer des âmes errantes et voir si elles peuvent aider à restaurer l'étendard. Si possible, je capturerai quelques dévoreurs d'âmes pour les utiliser comme âmes primaires. Ainsi, la puissance de l'Étendard devrait se rétablir.
 

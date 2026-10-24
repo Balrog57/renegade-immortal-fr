@@ -78,7 +78,7 @@ C'était comme si un bourdonnement s'était installé dans ses oreilles, et les 
 
 « Pourquoi... Pourquoi... »
 
-Wang Lin était stupéfait par la situation; il vit que Situ Nan et les autres étaient dans le même état. Seuls l'Omniscient, Maître du Vide et l'homme en noir affichaient des expressions sombres sans être affectés.
+Wang Lin était stupéfait par la situation; il vit que Situ Nan et les autres étaient dans le même état. Seuls Tian Yunzi, Maître du Vide et l'homme en noir affichaient des expressions sombres sans être affectés.
 
 Le son de sa voix forma une tempête qui chargea vers Qing Lin. Ce dernier garda une expression de marbre, leva la main droite et pointa l'avant. À cet instant, la tempête s'interrompit brusquement!
 

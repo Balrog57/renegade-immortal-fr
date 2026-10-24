@@ -72,7 +72,7 @@ Ce sort exigeait qu'il réintègre un corps de bébé pour recommencer sa croiss
 
 Wang Lin observa l'enfant jusqu'à son départ, plusieurs jours plus tard. Il laissa un Sens Divin pour Tuo Sen afin que, une fois grandi et réveillé, le bébé puisse le ressentir.
 
-Pour Wang Lin, le monde des grottes ne recelait plus de mystères. S'il en restait, ce serait l'Omniscient et le Daoïste aux Sept Couleurs. Cependant, toute trace de ces deux êtres avait disparu du monde des grottes.
+Pour Wang Lin, le monde des grottes ne recelait plus de mystères. S'il en restait, ce serait Tian Yunzi et le Daoïste aux Sept Couleurs. Cependant, toute trace de ces deux êtres avait disparu du monde des grottes.
 
 Wang Lin visita de nombreux endroits puis, un an plus tard, retourna sur la planète Suzaku, sa terre natale.
 
@@ -104,7 +104,7 @@ Désormais, il avait trouvé la réponse.
 
 Wang Lin rangea le crâne et sortit de l'espace où se trouvait la Terre de l'Ancien Dieu.
 
-« L'Ancien Maître Impérial du Dao qui ressemblait à l'Omniscient a dit que j'avais trouvé le crâne et les cheveux blancs... Maintenant, le crâne a changé. Cela signifie-t-il qu'un jour, les cheveux blancs subiront un sort similaire... » Wang Lin s'éloigna, plongé dans une profonde réflexion.
+« L'Ancien Maître Impérial du Dao qui ressemblait à Tian Yunzi a dit que j'avais trouvé le crâne et les cheveux blancs... Maintenant, le crâne a changé. Cela signifie-t-il qu'un jour, les cheveux blancs subiront un sort similaire... » Wang Lin s'éloigna, plongé dans une profonde réflexion.
 
 Le temps s'écoula. En un clin d'œil, dix ans passèrent.
 

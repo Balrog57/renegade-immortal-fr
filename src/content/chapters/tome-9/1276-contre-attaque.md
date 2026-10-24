@@ -30,7 +30,7 @@ La lance-dragon noir formée par *Invoquer le Vent* flottait immobile dans les a
 
 Les épées de cristal de glace formées par *Invoquer la Pluie* s'étaient arrêtées en plein vol, ressemblant à des stalactites suspendues dans le vide.
 
-Il y avait aussi les innombrables âmes de combat du *Arsenal Magique*, incluant le Maître du Vide et l'Omniscient; elles restaient toutes immobiles.
+Il y avait aussi les innombrables âmes de combat du *Arsenal Magique*, incluant le Maître du Vide et Tian Yunzi; elles restaient toutes immobiles.
 
 Certains des nombreux volcans illusoires apparus précédemment dégageaient de la fumée noire et de la lave, mais à cet instant, la fumée était immobile et la lave s'était figée. Tout s'était arrêté, y compris Wang Lin, qui traversait le vide au-dessus de la fumée noire.
 

@@ -76,7 +76,7 @@ Dans un fracas, ses pieds touchèrent le sol de ce continent désert. Son puissa
 
 « Puisque je ne peux pas m'échapper, j'utiliserai cet endroit comme champ de bataille! » Wang Lin choisit le sommet le plus élevé d'une chaîne de montagnes et s'assit.
 
-« Lorsque j'ai fusionné avec l'âme de l'Omniscient, j'ai découvert qu'il restait sept jours avant cette calamité de vie ou de mort. Sept jours sont amplement suffisants pour me préparer », marmonna Wang Lin en frappant son front de sa main droite. Cent filaments de gaz laiteux s'échappèrent de sa tête et se transformèrent en cent sphères de lumière.
+« Lorsque j'ai fusionné avec l'âme de Tian Yunzi, j'ai découvert qu'il restait sept jours avant cette calamité de vie ou de mort. Sept jours sont amplement suffisants pour me préparer », marmonna Wang Lin en frappant son front de sa main droite. Cent filaments de gaz laiteux s'échappèrent de sa tête et se transformèrent en cent sphères de lumière.
 
 « Le monde est en constante mutation, rassemblez les cent avatars, capacité du clan ancien! » Aussitôt ses paroles prononcées, les cent sphères bougèrent et se changèrent en cent Wang Lin!
 

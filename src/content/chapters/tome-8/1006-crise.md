@@ -96,7 +96,7 @@ Cependant, la carapace de la tortue resta intacte et ne perdit qu'un peu de son 
 
 Wang Lin fronça les sourcils, secrètement stupéfait. La capacité protectrice de cette carapace dépassait ses espérances. Ni son propre poing de Dieu Ancien, ni les assauts de nombreux vieux monstres n'avaient réussi à la faire céder.
 
-« Je me demande si les grottes célestes que possédaient l'Omniscient et Ling Tianhou avaient des carapaces semblables. S'ils en avaient une, comment ont-ils fait pour la briser... » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'objet.
+« Je me demande si les grottes célestes que possédaient Tian Yunzi et Ling Tianhou avaient des carapaces semblables. S'ils en avaient une, comment ont-ils fait pour la briser... » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'objet.
 
 Non seulement lui était sous le choc, mais Maître Fu Fengzi et ses compagnons l'étaient tout autant, leurs regards convergeant vers la carapace.
 

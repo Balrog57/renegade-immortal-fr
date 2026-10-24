@@ -36,7 +36,7 @@ L'expression de Cang Songzi resta neutre tandis qu'il saluait Wang Lin d'une inc
 
 Wang Lin attrapa le sac, l'examina de son Sens Divin avant de le ranger discrètement. Cang Songzi possédait un haut niveau de culture et se révélait très rusé. C'était aussi un homme impitoyable.
 
-Cependant, quelle que soit sa ruse, il ne pouvait rivaliser avec l'Omniscient. Wang Lin avait même osé défier l'Omniscient; comment pourrait-il craindre un simpCang Songzi?
+Cependant, quelle que soit sa ruse, il ne pouvait rivaliser avec Tian Yunzi. Wang Lin avait même osé défier Tian Yunzi; comment pourrait-il craindre un simpCang Songzi?
 
 Après un léger hochement de tête, Wang Lin fit un pas en avant et s'élança dans les cieux. Cang Songzi sourit et s'envola à son tour. Tous deux disparurent à l'horizon.
 

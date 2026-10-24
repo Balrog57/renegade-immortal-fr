@@ -36,7 +36,7 @@ Grâce à une simple phrase de Sun Xueshan, Wang Lin acquit une compréhension v
 
 À ce moment-là, Ran Yue dit doucement: « Le Senior nous a sauvés, mais nous ne connaissons toujours pas votre nom... »
 
-Wang Lin répondit calmement: « Xu Mu. » Ignorant quand l'Omniscient et ses compagnons viendraient à sa poursuite, il préférait cacher son véritable nom.
+Wang Lin répondit calmement: « Xu Mu. » Ignorant quand Tian Yunzi et ses compagnons viendraient à sa poursuite, il préférait cacher son véritable nom.
 
 « Un nom de famille Xu... » Les yeux de Ran Yue vacillèrent et son esprit fut troublé. Elle sentit que l'identité de Wang Lin devenait encore plus mystérieuse.
 

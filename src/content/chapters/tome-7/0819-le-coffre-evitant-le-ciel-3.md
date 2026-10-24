@@ -84,7 +84,7 @@ Wang Lin saisit le cercueil. Le regard sérieux, il l'examina avec précaution a
 
 En voyant cet objet, il pensa à Li Muwan.
 
-« Planète Dong Lin! Avec ma culture actuelle, je devrais pouvoir y jeter un œil! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter l'Omniscient et d'autres vieux monstres, il s'était rendu dans le système stellaire Luotian pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
+« Planète Dong Lin! Avec ma culture actuelle, je devrais pouvoir y jeter un œil! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter Tian Yunzi et d'autres vieux monstres, il s'était rendu dans le système stellaire Luotian pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
 
 Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsque cette femme avait évoqué le réveil de Li Muwan dans l'Abîme des Marées.
 

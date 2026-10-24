@@ -54,7 +54,7 @@ Avec son niveau de culture, il put presque immédiatement percer les secrets de 
 
 Bien qu'il ne fût pas très puissant, ce sort pouvait être utilisé de multiples fois et stocké.
 
-« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait des centaines de millions de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
+« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait des centaines de millions de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que Tian Yunzi en robe grise lui avait confié.
 
 Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. Ses propos sur l'apprentissage auprès d'un senior briseur de Nirvana paraissaient assez crédibles.
 

@@ -48,11 +48,11 @@ Hormis le bassin d'eau, tout ce qui l'entourait avait muté.
 
 Lorsqu'il avait pénétré pour la première fois dans la Secte Dong Lin sur le Continent Astral Immortel — et non dans le rêve — une brume s'était levée dans son esprit. Il avait alors commencé à remettre en question sa compréhension du monde de la grotte.
 
-« Est-ce que je contrôle vraiment tout ce qui se trouve dans le monde de la grotte... L'aura de l'Omniscient, ces tablettes de pierre... Les faux souvenirs du Souverain Céleste aux Sept Couleurs... Quel secret se cache derrière tout cela? »
+« Est-ce que je contrôle vraiment tout ce qui se trouve dans le monde de la grotte... L'aura de Tian Yunzi, ces tablettes de pierre... Les faux souvenirs du Souverain Céleste aux Sept Couleurs... Quel secret se cache derrière tout cela? »
 
 « Cette Secte Dong Lin n'est pas un lieu ordinaire. Le Grand Empyréen Dong Lin est apparu ici avant de tomber. On ne peut même pas retrouver son corps... »
 
-« Qui a détruit l'ensemble de la Secte Dong Lin... Était-ce l'Omniscient? Le Souverain Céleste aux Sept Couleurs? Ou quelqu'un ayant des liens profonds avec le monde de la grotte et que j'aurais manqué... » Wang Lin méditait en silence.
+« Qui a détruit l'ensemble de la Secte Dong Lin... Était-ce Tian Yunzi? Le Souverain Céleste aux Sept Couleurs? Ou quelqu'un ayant des liens profonds avec le monde de la grotte et que j'aurais manqué... » Wang Lin méditait en silence.
 
 Wang Lin observa le Bassin Dong Lin durant un long moment avant de prendre une profonde inspiration et de s'en approcher. Debout au bord de l'eau, il contempla sa propre réflexion à la surface.
 

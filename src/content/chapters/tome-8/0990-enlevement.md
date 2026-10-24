@@ -88,7 +88,7 @@ Cependant, cela importait peu à Situ Nan.
 
 Ce phénomène avait surpris tous les cultivateurs de Tian Yun, qui n'en trouvaient aucune explication.
 
-Nul ne savait que l'Omniscient avait donné cet ordre avant de se retirer en méditation: sceller la Secte du Destin Céleste et activer la formation de protection de la secte!
+Nul ne savait que Tian Yunzi avait donné cet ordre avant de se retirer en méditation: sceller la Secte du Destin Céleste et activer la formation de protection de la secte!
 
 Heureusement, il y avait trop de disciples dans la Secte du Destin Céleste pour que tout le monde fût bloqué. Certains étaient à l'extérieur, dont quelques cultivatrices emmenées au Palais Rose par Situ Nan pour « s'amuser ». En les interrogeant, il avait appris les rumeurs concernant les actes de Wang Lin dans la Terre des Esprits Démoniaques.
 

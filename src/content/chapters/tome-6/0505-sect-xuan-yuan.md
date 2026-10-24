@@ -8,9 +8,9 @@ slug: sect-xuan-yuan
 ---
 Planète Tian Yun, une planète de culture de rang 7 sous l'autorité de l'Alliance de la Culture.
 
-On peut dire que, même parmi les planètes de culture de rang 7, elle représente une existence de premier ordre, et cela s'explique par la présence d'un homme nommé Omniscient sur la planète Tian Yun.
+On peut dire que, même parmi les planètes de culture de rang 7, elle représente une existence de premier ordre, et cela s'explique par la présence d'un homme nommé Tian Yunzi sur la planète Tian Yun.
 
-Omniscient est considéré comme un sage extrêmement respecté de sa génération; il siège même au sein de l'Alliance de la Culture! C'est un homme avec qui beaucoup préféreraient ne pas s'attirer les foudres!
+Tian Yunzi est considéré comme un sage extrêmement respecté de sa génération; il siège même au sein de l'Alliance de la Culture! C'est un homme avec qui beaucoup préféreraient ne pas s'attirer les foudres!
 
 Une planète de culture de rang 7 contrôlerait normalement de nombreuses planètes de rang 6 pour renforcer sa propre puissance, mais ce n'est pas le cas de Tian Yun.
 
@@ -104,9 +104,9 @@ Ce jour-là, les environs du réseau de transfert adjacent à la Secte Xuan Yuan
 
 Trois jours plus tôt, il avait appris par un ami proche de la Secte du Destin Céleste qu'un membre de la Division Pourpre viendrait pour servir d'émissaire à Ling Yue.
 
-En temps normal, Xu Yunshan n'aurait accordé aucune importance à une telle affaire, mais lorsqu'il apprit que l'arrivant était le septième frère de la Division Pourpre — le nouveau disciple que l'Omniscient venait d'accepter, Wang Lin — son attitude changea radicalement.
+En temps normal, Xu Yunshan n'aurait accordé aucune importance à une telle affaire, mais lorsqu'il apprit que l'arrivant était le septième frère de la Division Pourpre — le nouveau disciple que Tian Yunzi venait d'accepter, Wang Lin — son attitude changea radicalement.
 
-En tant qu'habitant d'un pays de culture de rang 6 sous la tutelle de la planète Tian Yun, il disposait de registres détaillés sur chaque disciple de l'Omniscient afin de noter leurs préférences. Son attention se portait habituellement sur les véritables disciples et il n'aurait normalement pas prêté attention à Wang Lin, si ce n'était qu'il s'était montré extrêmement remarquable lors de la célébration d'anniversaire de l'Omniscient.
+En tant qu'habitant d'un pays de culture de rang 6 sous la tutelle de la planète Tian Yun, il disposait de registres détaillés sur chaque disciple de Tian Yunzi afin de noter leurs préférences. Son attention se portait habituellement sur les véritables disciples et il n'aurait normalement pas prêté attention à Wang Lin, si ce n'était qu'il s'était montré extrêmement remarquable lors de la célébration d'anniversaire de Tian Yunzi.
 
 Ce Wang Lin était apparu de nulle part, la Secte Xuan Yuan ne savait donc presque rien de lui. De plus, du point de vue de la Secte Xuan Yuan, Wang Lin possédait un potentiel immense. Il valait mieux se lier d'amitié avec lui dès maintenant plutôt que tardivement; c'est ce qui motivait sa présence ici.
 

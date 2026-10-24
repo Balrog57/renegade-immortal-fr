@@ -104,11 +104,11 @@ Il sembla remarquer le regard de Wang Lin et se tourna vers lui. Ses yeux étaie
 
 Tous les Wang Lin issus de ces différentes scènes sortirent de leurs visions et se dispersèrent. Certains avaient les yeux clos en pleine culture; d'autres manifestaient leurs sorts; l'un d'eux utilisait même le sort céleste "Arrêt"!
 
-Wang Lin était profondément bouleversé par ce spectacle. Cette scène ne lui était pas étrangère. Autrefois, lorsqu'il choisissait un sort auprès de l'Omniscient, il avait vu la même chose: chaque Omniscient utilisait le même sort!
+Wang Lin était profondément bouleversé par ce spectacle. Cette scène ne lui était pas étrangère. Autrefois, lorsqu'il choisissait un sort auprès de Tian Yunzi, il avait vu la même chose: chaque Tian Yunzi utilisait le même sort!
 
 Cependant, Wang Lin se ressaisit immédiatement et nota la différence!
 
-Les figures dans l'esprit de l'Omniscient étaient solides, comme de véritables personnes, rendant toute distinction impossible. Mais ses propres figures, elles, oscillaient entre le corporel et l'incorporel. Elles n'étaient ni totalement tangibles, ni purement illusoires.
+Les figures dans l'esprit de Tian Yunzi étaient solides, comme de véritables personnes, rendant toute distinction impossible. Mais ses propres figures, elles, oscillaient entre le corporel et l'incorporel. Elles n'étaient ni totalement tangibles, ni purement illusoires.
 
 « Corporel et incorporel... Se pourrait-il que... ce soit un sort qui se crée lorsqu'on atteint le sommet de la première étape et qu'on entre dans le stade du Yin Illusoire et du Yang Corporel... J'ai pu expérimenter ce changement prématurément grâce à la compréhension de l'héritage de l'ancien démon... » Wang Lin prit une grande inspiration.
 

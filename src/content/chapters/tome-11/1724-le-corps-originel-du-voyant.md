@@ -1,9 +1,9 @@
 ---
 n: 1724
-title: "Le Corps Originel de l'Omniscient!"
+title: "Le Corps Originel de Tian Yunzi!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1724 - The Omniscient’s Original Body!"
+en: "Chapter 1724 - The Tian Yunzi’s Original Body!"
 slug: le-corps-originel-du-voyant
 ---
 Le corps originel de Wang Lin traversait les étoiles, se déplaçant à une vitesse bien supérieure à celle de son avatar. Il ne volait pas par force brute ou en s'intégrant au monde; il déchirait la réalité elle-même pour progresser!
@@ -26,11 +26,11 @@ Dans le Vide Brillant, une immense faille surgit de nulle part. Le puissant corp
 
 Peu après, Wang Lin ouvrit soudainement les yeux et s'élança vers l'horizon.
 
-Il ne s'était écoulé que quelques respirations depuis qu'il s'était éveillé du cycle de réincarnation de l'Omniscient, dans la Rivière Invoquée.
+Il ne s'était écoulé que quelques respirations depuis qu'il s'était éveillé du cycle de réincarnation de Tian Yunzi, dans la Rivière Invoquée.
 
-Alors que Wang Lin traversait les failles, dans la Rivière Invoquée, toutes les âmes de l'Omniscient venues des quatre grands systèmes stellaires arrivèrent autour de l'avatar de Wang Lin. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
+Alors que Wang Lin traversait les failles, dans la Rivière Invoquée, toutes les âmes de Tian Yunzi venues des quatre grands systèmes stellaires arrivèrent autour de l'avatar de Wang Lin. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
 
-Son regard était empreint de lutte et de douleur. L'âme de l'Omniscient était en train de prendre le contrôle de son esprit et de son corps. En raison du sortilège d'Intégration de la Réincarnation, il était impossible pour quiconque d'interférer avec cette possession.
+Son regard était empreint de lutte et de douleur. L'âme de Tian Yunzi était en train de prendre le contrôle de son esprit et de son corps. En raison du sortilège d'Intégration de la Réincarnation, il était impossible pour quiconque d'interférer avec cette possession.
 
 Une lueur bleue enveloppa l'avatar de Wang Lin. Lanmeng Daozun se tenait là, calme, observant l'avatar. Qing Lin et le Maître Hong Shan étaient également présents, fixant Wang Lin. Contrairement à Lanmeng Daozun, ils n'étaient pas sereins et regardaient l'avatar de Wang Lin avec nervosité.
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin se posèrent sur l'objet et brillèrent d'un éclat vif.
 
 « Lequel de nous deux sera le plus rapide? »
 
-Dans la Rivière Invoquée, après que l'avatar de Wang Lin eut fermé les yeux, son visage changea radicalement. En un instant, il ne ressemblait plus à Wang Lin, mais à l'Omniscient aux cheveux blancs!
+Dans la Rivière Invoquée, après que l'avatar de Wang Lin eut fermé les yeux, son visage changea radicalement. En un instant, il ne ressemblait plus à Wang Lin, mais à Tian Yunzi aux cheveux blancs!
 
 Cette possession s'apparentait à une dévoration, mais différait de ses méthodes habituelles. Cette absorption était cruciale; il avait donc choisi de dévorer de l'intérieur pour ne laisser aucune place à l'erreur!
 
@@ -94,15 +94,15 @@ Il connaîtrait les sorts et pourrait croître sans dépendre des autres! Ce ne 
 
 S'il le désirait, il pourrait même dévorer tous les êtres engendrés par le Dao Céleste. À ce stade, la seule chose qu'il resterait serait ce qui n'est pas né ici: les trois âmes et sept fragments, ainsi que les habitants du Continent Astral Immortel!
 
-En peu de temps, plus de la moitié de la fusion était accomplie. Quelques respirations plus tard, le processus prit fin et l'Omniscient ouvrit les yeux!
+En peu de temps, plus de la moitié de la fusion était accomplie. Quelques respirations plus tard, le processus prit fin et Tian Yunzi ouvrit les yeux!
 
 À l'instant même, il esquissa un sourire. Il leva la tête et éclata d'un rire.
 
-« 99 éveils... ce vieil homme a enfin achevé son ultime réveil. Dao Céleste, ce vieil homme est le Dao Céleste lui-même! » L'Omniscient se redressa, ses cheveux blancs flottant au vent. Une aura antique émana de son corps tandis qu'un brouillard l'enveloppait!
+« 99 éveils... ce vieil homme a enfin achevé son ultime réveil. Dao Céleste, ce vieil homme est le Dao Céleste lui-même! » Tian Yunzi se redressa, ses cheveux blancs flottant au vent. Une aura antique émana de son corps tandis qu'un brouillard l'enveloppait!
 
 Wang Lin avait déjà vu ce brouillard dans les cycles de réincarnation: c'était la forme même du Dao Céleste!
 
-« Wang Lin, ton avatar est conquis. Peu importe que ton corps originel soit encore en vie, ce vieil homme n'a pas de temps à perdre avec toi! » L'expression de l'Omniscient était féroce. Il ne daigna même pas regarder Lanmeng Daozun et ses compagnons. Il s'apprêtait à partir.
+« Wang Lin, ton avatar est conquis. Peu importe que ton corps originel soit encore en vie, ce vieil homme n'a pas de temps à perdre avec toi! » L'expression de Tian Yunzi était féroce. Il ne daigna même pas regarder Lanmeng Daozun et ses compagnons. Il s'apprêtait à partir.
 
 Cependant, alors qu'il allait faire un mouvement, un rayon de lumière bleue jaillit devant lui. Lanmeng Daozun apparut, lui barrant la route.
 
@@ -110,10 +110,10 @@ Cependant, alors qu'il allait faire un mouvement, un rayon de lumière bleue jai
 
 Qing Lin et le Maître Hong Shan se rapprochèrent également.
 
-Les yeux de l'Omniscient s'illuminèrent et il agita sa manche. Il ouvrit la bouche pour inspirer. Le monde trembla comme s'il s'inversait, et un brouillard infini envahit le système stellaire, occultant toute vision.
+Les yeux de Tian Yunzi s'illuminèrent et il agita sa manche. Il ouvrit la bouche pour inspirer. Le monde trembla comme s'il s'inversait, et un brouillard infini envahit le système stellaire, occultant toute vision.
 
 Pourtant, au moment où le brouillard se matérialisait et qu'une gueule illusoire surgissait pour dévorer les trois cultivateurs, une explosion de lumière bleue jaillit. Une aura d'une puissance inouïe jaillit de la lumière et percuta la gueule monstrueuse.
 
 Au même instant, une voix glaciale chargée d'intentions meurtrières retentit au loin!
 
-« Omniscient! J'ai amené ton corps originel ici! »
+« Tian Yunzi! J'ai amené ton corps originel ici! »

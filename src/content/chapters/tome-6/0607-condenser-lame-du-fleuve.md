@@ -150,4 +150,4 @@ Le fleuve des enfers et les sorts de vent, pluie, tonnerre et éclair continuaie
 
 Les yeux de Wang Lin se rétrécirent alors qu'il levait la main droite. L'énergie d'épée du Saint de l'Épée Ling Tianhou se condensa au bout de son doigt!
 
-La vie de Ling Tianhou n'était que combat et lames. Il avait créé quatre petits mondes qu'il avait raffinés en quatre dieux de l'épée. Il était considéré comme un être puissant, rivalisant avec l'Omniscient sur la planète Tian Yun. La puissance de son énergie d'épée était inimaginable!
+La vie de Ling Tianhou n'était que combat et lames. Il avait créé quatre petits mondes qu'il avait raffinés en quatre dieux de l'épée. Il était considéré comme un être puissant, rivalisant avec Tian Yunzi sur la planète Tian Yun. La puissance de son énergie d'épée était inimaginable!

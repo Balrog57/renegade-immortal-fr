@@ -38,7 +38,7 @@ Avant qu'il ne puisse trop réfléchir, Wang Lin ouvrit les yeux une fois de plu
 
 Les scènes réalistes du rêve irréel lui avaient ouvert la porte vers la troisième étape. Si quelqu'un dans le Système Stellaire de Luotian ou de l'Alliance l'apprenait, ils deviendraient tous fous pour obtenir cette perle!
 
-Le but ultime de personnes comme l'Omniscient était la troisième étape. Ils étaient prêts à tout pour elle! Pour eux, la troisième étape demeurait insaisissable. Ils continuaient d'avancer dans l'obscurité, cherchant amèrement.
+Le but ultime de personnes comme Tian Yunzi était la troisième étape. Ils étaient prêts à tout pour elle! Pour eux, la troisième étape demeurait insaisissable. Ils continuaient d'avancer dans l'obscurité, cherchant amèrement.
 
 Cependant, Wang Lin avait pu obtenir une opportunité aussi inimaginable grâce à la perle défiant le ciel. Parfois, le destin est ainsi fait.
 
@@ -54,13 +54,13 @@ Cette personne n'avait cultivé que depuis 1 000 ans. En seulement mille ans, il
 
 Personne ne pouvait déterminer ses limites. Peut-être parviendrait-il un jour à devenir un véritable cultivateur de la deuxième étape.
 
-Wang Lin ne bougea pas. Son expression restait neutre tandis qu'il regardait calmement Shengong Hu. Après avoir entrevu le Dao de la troisième étape, bien que son niveau de culture n'ait pas augmenté, sa force mentale avait subi un changement radical; la nature même de son âme était différente de celle d'autrefois. À cet instant, même s'il se tenait devant l'Omniscient, il ne ressentirait aucune tension.
+Wang Lin ne bougea pas. Son expression restait neutre tandis qu'il regardait calmement Shengong Hu. Après avoir entrevu le Dao de la troisième étape, bien que son niveau de culture n'ait pas augmenté, sa force mentale avait subi un changement radical; la nature même de son âme était différente de celle d'autrefois. À cet instant, même s'il se tenait devant Tian Yunzi, il ne ressentirait aucune tension.
 
 C'était comme des mortels qui auraient aperçu des cultivateurs et leurs sorts: lorsqu'ils contemplent un roi mortel, ils n'ont plus peur!
 
 Sous le regard de Wang Lin, bien que Shengong Hu ne ressente plus la terreur d'autrefois, il tremblait tout de même. Ce souvenir terrifiant avait été gravé dans son esprit et ne s'effacerait pas, même après sa mort.
 
-En réalité, c'était une opportunité immense pour Shengong Hu. Si l'Omniscient et ses semblables désespéraient d'obtenir la perle, ils choisiraient tout de même, sans la moindre hésitation, de l'expérimenter personnellement.
+En réalité, c'était une opportunité immense pour Shengong Hu. Si Tian Yunzi et ses semblables désespéraient d'obtenir la perle, ils choisiraient tout de même, sans la moindre hésitation, de l'expérimenter personnellement.
 
 Même la Bête du Tonnerre à ses côtés baissa la tête, perdant toute trace de fierté sur son visage.
 

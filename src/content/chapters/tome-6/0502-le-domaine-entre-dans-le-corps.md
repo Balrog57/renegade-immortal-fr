@@ -15,13 +15,13 @@ Cette froideur intérieure ne pouvait être dissipée, lui conférant ainsi une 
 
 Le regard de Wang Lin était glacial et l'aura qu'il dégageait était glaciale. À présent, il ne semblait plus humain, mais exhalait l'aura d'une glace primordiale éternelle.
 
-Au sommet de la tour, à la cime de la montagne, l'Omniscient était assis, observant Wang Lin qui avançait pas à pas vers le sommet. Ses yeux brillaient intensément alors qu'il fixait Wang Lin, perdu dans ses pensées.
+Au sommet de la tour, à la cime de la montagne, Tian Yunzi était assis, observant Wang Lin qui avançait pas à pas vers le sommet. Ses yeux brillaient intensément alors qu'il fixait Wang Lin, perdu dans ses pensées.
 
-À l'origine, l'Omniscient pensait que Wang Lin s'arrêterait après dix pas dans la Terre Brisée des Célestes. Dix pas étaient la limite d'un cultivateur au stade intermédiaire de la Transformation de l'Âme! Si Wang Lin réussissait cela, il l'inviterait à monter à la tour pour lui enseigner un sort interdit.
+À l'origine, Tian Yunzi pensait que Wang Lin s'arrêterait après dix pas dans la Terre Brisée des Célestes. Dix pas étaient la limite d'un cultivateur au stade intermédiaire de la Transformation de l'Âme! Si Wang Lin réussissait cela, il l'inviterait à monter à la tour pour lui enseigner un sort interdit.
 
 Mais à présent, Wang Lin avait déjà parcouru 21 pas, ce qui constituait la limite absolue d'un cultivateur de la Transformation de l'Âme. Seul un cultivateur Ascendant, doté de l'énergie spirituelle céleste, pouvait garantir, après 21 pas, que son âme originelle ne soit pas gelée jusqu'à l'effondrement.
 
-Même avec la force mentale de l'Omniscient, il ne put s'empêcher de ressentir un choc profond.
+Même avec la force mentale de Tian Yunzi, il ne put s'empêcher de ressentir un choc profond.
 
 « Pureté de l'esprit... cet enfant purifie son esprit ici même! Culture céleste, culture de la vérité et culture du Dao; il semble que cet enfant ait acquis une certaine illumination... Son cœur est froid, si bien que peu importe la rigueur du gel, cela ne peut affecter son âme. En utilisant cet état, il a pu faire 21 pas. Wang Lin, Maître t'a sous-estimé. Si tu cultives pendant plus de 10 000 ans, je me demande si tu pourras atteindre les trois stades du Briseur du Nirvana... »
 
@@ -35,7 +35,7 @@ Wang Lin prit une profonde inspiration, leva le pied et fit le 22e pas.
 
 À cet instant, la montagne entière trembla et la glace sous ses pieds se fendit. Cela démontrait la solidité de ce pas.
 
-Les yeux de l'Omniscient projetèrent un éclat intense alors qu'il se tenait dans la tour.
+Les yeux de Tian Yunzi projetèrent un éclat intense alors qu'il se tenait dans la tour.
 
 « À l'époque, Sun Yun avait pu faire 26 pas avec une culture au stade avancé de la Transformation de l'Âme. Wang Lin, combien de pas pourras-tu faire?! »
 
@@ -73,7 +73,7 @@ Ces cinq pas étaient des avancées sur le chemin du Dao, empreintes d'une déte
 
 Grâce à cet instant, Wang Lin venait de franchir une étape cruciale vers la matérialisation de son domaine! Bien que ce progrès n'ait pas beaucoup accru la puissance de son domaine ni sa culture, il avait tracé une voie fondamentale pour atteindre le stade Ascendant.
 
-« Le domaine entre dans le corps! » Dans la tour, l'Omniscient prit une profonde inspiration et déclara: « Cet enfant a l'espoir d'atteindre le stade Ascendant d'ici cent ans! »
+« Le domaine entre dans le corps! » Dans la tour, Tian Yunzi prit une profonde inspiration et déclara: « Cet enfant a l'espoir d'atteindre le stade Ascendant d'ici cent ans! »
 
 « Vingt-sept pas... » songea Wang Lin. Il sentait que vingt-sept pas étaient sa limite!
 
@@ -85,23 +85,23 @@ Wang Lin savait qu'il ne pourrait pas franchir le 28e pas. S'il tentait de le fa
 
 La glace devant Wang Lin commença à luire d'une lumière aux sept couleurs, et un arc-en-ciel septicolore jaillit du sol devant lui.
 
-« Viens me voir! » La voix de l'Omniscient retentit depuis la tour au sommet, empreinte de majesté.
+« Viens me voir! » La voix de Tian Yunzi retentit depuis la tour au sommet, empreinte de majesté.
 
 L'expression de Wang Lin resta calme; il prit une profonde inspiration, ajusta légèrement sa culture et monta sur l'arc-en-ciel.
 
 D'un premier pas, il s'élança sur l'arc-en-ciel, et d'un second, il franchit plus de soixante-dix marches restantes pour arriver au pied de la tour.
 
-Cette tour avait une apparence très ordinaire. À cet instant, des rayons de lumière aux sept couleurs se rassemblèrent au pied de l'édifice pour former l'Omniscient.
+Cette tour avait une apparence très ordinaire. À cet instant, des rayons de lumière aux sept couleurs se rassemblèrent au pied de l'édifice pour former Tian Yunzi.
 
 « L'ancêtre de ma Secte du Destin Céleste n'est pas un cultivateur, mais le destin céleste lui-même. La seule chose que je recherche est le destin des cieux. Les sorts liés au destin peuvent être créés par les cieux ou par les hommes, mais quoi qu'il en soit, le destin est la clé!
 
 « Je passais justement par la planète Suzaku lorsque tu comprenais ton domaine. Je t'ai vu suivre ton domaine jusqu'à son origine, et mon amour pour le talent m'a poussé à vouloir faire de toi mon disciple. Cela signifie qu'il y avait un lien entre nous, le destin entre maître et disciple.
 
-« Moi, l'Omniscient, j'ai suivi le destin des cieux toute ma vie, et c'est ainsi que je t'ai accepté comme mon disciple! » À ce moment, l'Omniscient marqua une pause et fixa Wang Lin.
+« Moi, Tian Yunzi, j'ai suivi le destin des cieux toute ma vie, et c'est ainsi que je t'ai accepté comme mon disciple! » À ce moment, Tian Yunzi marqua une pause et fixa Wang Lin.
 
 L'expression de Wang Lin était respectueuse; il resta simplement là, silencieux.
 
-« Le fait que tu aies parcouru vingt-sept pas dépassait mes espérances; tu ne m'as pas déçu! » L'Omniscient détourna le regard, leva la main et saisit le vide.
+« Le fait que tu aies parcouru vingt-sept pas dépassait mes espérances; tu ne m'as pas déçu! » Tian Yunzi détourna le regard, leva la main et saisit le vide.
 
 Dans un bruit de déchirure qui résonna dans les environs, le ciel fut fendu en deux par ce geste désinvolte, créant une immense faille.
 
@@ -109,28 +109,28 @@ Une lumière aux sept couleurs s'échappa de la brèche et recouvrit toute la se
 
 Simultanément, chacune des sept divisions libéra un halo coloré correspondant à sa propre appartenance. À cet instant, le ciel de près de la moitié de la planète Tian Yun fut teinté de cette lumière aux sept couleurs.
 
-À la source de toute cette radiance, au cœur de la faille, l'Omniscient exsudait une aura septicolore et sourit. « Durant toute ma vie, j'ai toujours préféré les sept couleurs. Si l'on y ajoute le noir et le blanc des trois montagnes d'ici, ces neuf couleurs réunies forment la plus belle scène au monde. »
+À la source de toute cette radiance, au cœur de la faille, Tian Yunzi exsudait une aura septicolore et sourit. « Durant toute ma vie, j'ai toujours préféré les sept couleurs. Si l'on y ajoute le noir et le blanc des trois montagnes d'ici, ces neuf couleurs réunies forment la plus belle scène au monde. »
 
-Soudain, l'expression de l'Omniscient devint grave. Toute sa douceur précédente s'était évanouie, remplacée par une majesté absolue. Il regarda Wang Lin et tonna:
+Soudain, l'expression de Tian Yunzi devint grave. Toute sa douceur précédente s'était évanouie, remplacée par une majesté absolue. Il regarda Wang Lin et tonna:
 
 « Wang Lin, agenouille-toi! »
 
-Sans un mot, Wang Lin s'agenouilla promptement et leva la tête pour contempler l'Omniscient.
+Sans un mot, Wang Lin s'agenouilla promptement et leva la tête pour contempler Tian Yunzi.
 
-La main droite de l'Omniscient pointa vers Wang Lin et il cria: « Aujourd'hui, moi, l'Omniscient, j'accepte Wang Lin comme septième disciple de la Division Pourpre sous les neuf couleurs! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao?! Réponds-moi! »
+La main droite de Tian Yunzi pointa vers Wang Lin et il cria: « Aujourd'hui, moi, Tian Yunzi, j'accepte Wang Lin comme septième disciple de la Division Pourpre sous les neuf couleurs! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao?! Réponds-moi! »
 
 Le regard de Wang Lin se fit solennel. Il afficha une détermination sans faille et répondit: « Tant que Maître ne me trahira pas, je ne trahirai pas Maître! Tant que le Destin Céleste ne me trahira pas, je ne trahirai pas le Destin Céleste! C'est ma promesse, celle de Wang Lin! »
 
-Les yeux de l'Omniscient se plissèrent et il observa attentivement Wang Lin avant de hocher lentement la tête. Sa main gauche s'étira vers la faille et le ciel tout entier trembla soudainement.
+Les yeux de Tian Yunzi se plissèrent et il observa attentivement Wang Lin avant de hocher lentement la tête. Sa main gauche s'étira vers la faille et le ciel tout entier trembla soudainement.
 
 Un autel gigantesque aux sept couleurs descendit lentement du ciel.
 
 Cet autel était d'une taille démesurée. Lorsqu'une partie seulement commença sa descente, une série de craquements retentit, comme si l'espace alentour ne pouvait supporter un tel poids. D'innombrables tablettes de bois aux sept couleurs jonchaient l'autel.
 
-À cet instant, d'un geste de la main gauche de l'Omniscient, une tablette s'envola pour atterrir dans sa paume.
+À cet instant, d'un geste de la main gauche de Tian Yunzi, une tablette s'envola pour atterrir dans sa paume.
 
-L'ongle de l'Omniscient était tranchant comme un couteau alors qu'il gravait rapidement des inscriptions sur la tablette.
+L'ongle de Tian Yunzi était tranchant comme un couteau alors qu'il gravait rapidement des inscriptions sur la tablette.
 
-« Planète Tian Yun, première année de Yanwu, Wang Lin a été accepté comme septième disciple de la Division Pourpre! » Sur ce, l'Omniscient lança la tablette qui s'enflamma de flammes violettes, avant de repartir dans un rayon de lumière pour rejoindre l'autel.
+« Planète Tian Yun, première année de Yanwu, Wang Lin a été accepté comme septième disciple de la Division Pourpre! » Sur ce, Tian Yunzi lança la tablette qui s'enflamma de flammes violettes, avant de repartir dans un rayon de lumière pour rejoindre l'autel.
 
 « Maintenant, je vais t'enseigner un sort interdit. Quel type souhaites-tu apprendre? »

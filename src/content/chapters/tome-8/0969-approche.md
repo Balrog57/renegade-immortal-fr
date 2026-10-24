@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 969 - Approach
 slug: approche
 ---
-L'Omniscient était un membre du groupe des Anciens de l'Alliance, il connaissait donc naturellement des sorts puissants. Il faut dire que lorsque l'Omniscient était à son apogée, même le Estimé Xuan Bao le craignait profondément et n'osait pas l'offenser sans réfléchir.
+Tian Yunzi était un membre du groupe des Anciens de l'Alliance, il connaissait donc naturellement des sorts puissants. Il faut dire que lorsque Tian Yunzi était à son apogée, même le Estimé Xuan Bao le craignait profondément et n'osait pas l'offenser sans réfléchir.
 
-Bien que l'Omniscient ne fût pas le plus puissant du groupe des Anciens de l'Alliance, même les membres les plus forts ne voulaient pas se mettre à dos l'Omniscient! Tout cela expliquait indirectement sa puissance phénoménale.
+Bien que Tian Yunzi ne fût pas le plus puissant du groupe des Anciens de l'Alliance, même les membres les plus forts ne voulaient pas se mettre à dos Tian Yunzi! Tout cela expliquait indirectement sa puissance phénoménale.
 
-Cependant, l'Omniscient était très discret et peu d'étrangers connaissaient sa véritable nature.
+Cependant, Tian Yunzi était très discret et peu d'étrangers connaissaient sa véritable nature.
 
 À cet instant, le doigt qui s'était formé au-delà de la planète Tian Yun commença lentement à presser contre elle.
 
@@ -38,7 +38,7 @@ Ces éclairs suivirent les ondulations et se diffusèrent dans l'azur, formant u
 
 Un tonnerre violent résonna dans les cieux. Tandis que le doigt géant descendait, on aurait dit que le firmament allait s'effondrer.
 
-Wang Lin se tenait au milieu de la vallée et contemplait le doigt descendant lentement du ciel avec une expression sombre. Il pouvait clairement ressentir l'aura émanant de cette attaque: c'était l'Omniscient!
+Wang Lin se tenait au milieu de la vallée et contemplait le doigt descendant lentement du ciel avec une expression sombre. Il pouvait clairement ressentir l'aura émanant de cette attaque: c'était Tian Yunzi!
 
 « Quel genre de sort est-ce là?! » Wang Lin serra le Yang extrême dans sa main. Au moment où l'objet entra en contact avec lui, il sentit la perle défiant le ciel, située à l'intérieur de son âme d'origine, trembler.
 
@@ -46,7 +46,7 @@ Sans avoir le temps de réfléchir aux changements subis par la perle défiant l
 
 Ce doigt était colossal. Il dégageait une lueur aux sept couleurs et faisait trembler sans cesse le ciel et la terre. Des fissures se creusèrent dans l'espace à mesure qu'il s'approchait de Wang Lin. Une pression inimaginable tomba du ciel pour converger autour de lui.
 
-« L'Omniscient! » Wang Lin fronça les sourcils, le visage sombre. Sa main droite tapota son sac et un objet apparut dans sa paume. C'était un présent de Qing Shui: un cristal permettant d'Invoquer la Pluie!
+« Tian Yunzi! » Wang Lin fronça les sourcils, le visage sombre. Sa main droite tapota son sac et un objet apparut dans sa paume. C'était un présent de Qing Shui: un cristal permettant d'Invoquer la Pluie!
 
 À l'époque, Qing Shui lui avait dit que trois utilisations de l'Invocation de la Pluie étaient scellées à l'intérieur. L'Invocation de la Pluie lancée par Qing Shui ne serait pas ordinaire. Wang Lin ne l'avait pas encore utilisée, car il souhaitait la garder comme un atout ultime pour sa survie!
 
@@ -66,6 +66,6 @@ Au sommet de cette tour siégeait le Saint de l'Épée, Ling Tianhou. Les quatre
 
 « Intéressant! Très intéressant! » Ling Tianhou ouvrit soudainement les yeux, laissant apparaître une lueur de froideur. Un sourire étira ses lèvres.
 
-« Combien de fois maître et disciple se sont-ils retournés l'un contre l'autre? Ce vieil homme adore observer ces moments de l'Omniscient... Cependant, ce Wang Lin est un membre de la Série Oiseau Vermillon. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire du Vide Brillant: les Quatre Sectes Divines! »
+« Combien de fois maître et disciple se sont-ils retournés l'un contre l'autre? Ce vieil homme adore observer ces moments de Tian Yunzi... Cependant, ce Wang Lin est un membre de la Série Oiseau Vermillon. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire du Vide Brillant: les Quatre Sectes Divines! »
 
-« Peu importe. Wang Lin, si tu peux résister à un seul sort sans mourir, ce vieil homme viendra à ton aide! » Ling Tianhou sourit. Sa passion favorite consistait à causer des ennuis à l'Omniscient.
+« Peu importe. Wang Lin, si tu peux résister à un seul sort sans mourir, ce vieil homme viendra à ton aide! » Ling Tianhou sourit. Sa passion favorite consistait à causer des ennuis à Tian Yunzi.

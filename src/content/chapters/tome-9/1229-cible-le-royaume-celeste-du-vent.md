@@ -16,7 +16,7 @@ Tout en réfléchissant, Wang Lin se remémora tout ce qui s'était passé dans 
 
 « Sept personnes sont parties et je suis le seul à être revenu... Quand j'y suis allé, je n'étais qu'au stade initial de la Purification du Nirvana, et maintenant... » Bien que Wang Lin parût épuisé, ses yeux brillaient lorsqu'il murmura: « Je suis à un demi-pas du stade Briseur du Nirvana! »
 
-Tout ce que Wang Lin avait vécu dans le Royaume aux Sept Couleurs défilait un par un dans son esprit. Le squelette de Zhan Xingye, la grotte de Sima Mo, le troisième réveil de l'Oiseau Vermillon, l'absorption de la foudre du Royaume Extérieur, les Perdus, les Éclairés, ce parchemin taoïste dont il ignorait s'il était réel ou non, le fait qu'il eût presque découvert le secret de l'Omniscient, la vision des Imitations des Perles Défiant le Ciel, et l'apprentissage de l'existence des Défiants.
+Tout ce que Wang Lin avait vécu dans le Royaume aux Sept Couleurs défilait un par un dans son esprit. Le squelette de Zhan Xingye, la grotte de Sima Mo, le troisième réveil de l'Oiseau Vermillon, l'absorption de la foudre du Royaume Extérieur, les Perdus, les Éclairés, ce parchemin taoïste dont il ignorait s'il était réel ou non, le fait qu'il eût presque découvert le secret de Tian Yunzi, la vision des Imitations des Perles Défiant le Ciel, et l'apprentissage de l'existence des Défiants.
 
 Il avait combattu Cang Songzi et avait obtenu le clou aux sept couleurs. Il avait combattu le vieil homme aux cheveux blancs et avait dévoré le fruit taoïste. La Perle Défiant le Ciel s'était activée, blessant gravement le gardien des fleurs. Plus important encore, son niveau de culture avait augmenté et la bête moustique avait subi une métamorphose!
 
@@ -86,13 +86,13 @@ La dernière âme originelle était celle de Maître Âme Nuageuse. Puisque Wang
 
 Il en prit une et y plongea son sens divin. Comme il s'y attendait, dès que la perle quitta le Royaume aux Sept Couleurs, elle devint inutile.
 
-« Quel dommage... » Wang Lin fronça les sourcils et s'apprêtait à la ranger quand une pensée lui traversa l'esprit. Après une réflexion approfondie, son sens divin pénétra dans le Sceau Céleste des 18 Enfers. Il trouva l'âme de l'Omniscient et fusionna avec elle. L'aura de Wang Lin changea radicalement; c'était comme s'il était devenu l'Omniscient lui-même.
+« Quel dommage... » Wang Lin fronça les sourcils et s'apprêtait à la ranger quand une pensée lui traversa l'esprit. Après une réflexion approfondie, son sens divin pénétra dans le Sceau Céleste des 18 Enfers. Il trouva l'âme de Tian Yunzi et fusionna avec elle. L'aura de Wang Lin changea radicalement; c'était comme s'il était devenu Tian Yunzi lui-même.
 
 Ses yeux étaient calmes, parcourus d'une lueur aux sept couleurs. Même son corps émettait cette lumière chromatique. Il tenait l'Imitation de Perle Défiant le Ciel dans sa main et y projeta son esprit. La perle émit un éclat aux sept couleurs, signe qu'elle s'activait.
 
 Wang Lin sentit clairement que, tant qu'il le voulait, le sort scellé du Défiant apparaîtrait!
 
-Cette découverte fut une agréable surprise. Il prit une profonde inspiration et rompit sa fusion avec l'âme de l'Omniscient. La lumière de la perle disparut immédiatement pour reprendre son aspect normal.
+Cette découverte fut une agréable surprise. Il prit une profonde inspiration et rompit sa fusion avec l'âme de Tian Yunzi. La lumière de la perle disparut immédiatement pour reprendre son aspect normal.
 
 Après avoir rangé la perle, Wang Lin se sentait confiant. Bien que gravement blessé, ces perles lui offriraient une protection considérable avant qu'il ne se rétablisse totalement.
 

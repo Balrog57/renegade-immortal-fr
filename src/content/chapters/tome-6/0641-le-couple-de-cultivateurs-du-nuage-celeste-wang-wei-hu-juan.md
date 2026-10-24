@@ -110,15 +110,15 @@ Bien que les cultivateurs ordinaires puissent chevaucher des nuages, il ne s'agi
 
 Cependant, ce couple était différent. Ce nuage avait été raffiné à partir du Nuage du 9ème Ciel. Même à l'époque, dans le Royaume Céleste, il était extrêmement rare! La puissance de ce nuage résidait dans le fait qu'il contenait naturellement des éclairs célestes; sa force ne devait donc pas être sous-estimée.
 
-Les cultivateurs de la vieille génération reconnaîtraient immédiatement les deux individus en voyant ce nuage. Seules des personnes du même rang que Xue Zu, Ling Tianhou et l'Omniscient pouvaient chevaucher un tel prodige!
+Les cultivateurs de la vieille génération reconnaîtraient immédiatement les deux individus en voyant ce nuage. Seules des personnes du même rang que Xue Zu, Ling Tianhou et Tian Yunzi pouvaient chevaucher un tel prodige!
 
 Le Couple de Cultivateurs du Nuage Céleste!
 
-Ce couple qui était venu dans la Terre des Esprits Démoniaques aux côtés de Ling Tianhou et de l'Omniscient. Ils occupaient l'une des grottes et n'en étaient pas sortis depuis des dizaines de milliers d'années!
+Ce couple qui était venu dans la Terre des Esprits Démoniaques aux côtés de Ling Tianhou et de Tian Yunzi. Ils occupaient l'une des grottes et n'en étaient pas sortis depuis des dizaines de milliers d'années!
 
 Wang Wei, Hu Juan!
 
-Leur culture pouvait rivaliser avec celle de l'Omniscient et de ses compagnons. De plus, leur parfaite synergie obligeait même l'Omniscient à se montrer extrêmement prudent envers eux. Ce qui effrayait encore davantage l'Omniscient était l'origine de ces deux êtres. Leurs identités étaient si mystérieuses que même lui n'avait pu rien découvrir, si ce n'est qu'ils cultivaient probablement depuis plus longtemps que lui-même.
+Leur culture pouvait rivaliser avec celle de Tian Yunzi et de ses compagnons. De plus, leur parfaite synergie obligeait même Tian Yunzi à se montrer extrêmement prudent envers eux. Ce qui effrayait encore davantage Tian Yunzi était l'origine de ces deux êtres. Leurs identités étaient si mystérieuses que même lui n'avait pu rien découvrir, si ce n'est qu'ils cultivaient probablement depuis plus longtemps que lui-même.
 
 Heureusement, ils avaient une nature paisible et ne cherchaient pas le pouvoir. Tant qu'on ne les provoquait pas, la paix était maintenue. Si le vieil homme court les voyait, il grincerait des dents de rage: c'étaient eux qui lui avaient volé un sac de rangement autrefois.
 

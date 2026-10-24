@@ -42,7 +42,7 @@ Lu Yanfei garda le silence, mais son expression devint encore plus froide.
 
 À ce moment précis, dans la chambre, Wang Lin ouvrit les yeux et fixa le mur comme si son regard pouvait le transpercer.
 
-« Liu Jinbiao! » Le visage de Wang Lin se figea alors qu'il se levait, se séparant de l'âme de l'Omniscient. Il avala le Sceau Céleste et quitta la chambre pour apparaître dans le ciel, au-dessus de la place de la Secte de l'Origine.
+« Liu Jinbiao! » Le visage de Wang Lin se figea alors qu'il se levait, se séparant de l'âme de Tian Yunzi. Il avala le Sceau Céleste et quitta la chambre pour apparaître dans le ciel, au-dessus de la place de la Secte de l'Origine.
 
 « Le temps de ce vieil homme est limité. Je ne vous donnerai que quinze minutes pour réfléchir. Après ces quinze minutes... »
 

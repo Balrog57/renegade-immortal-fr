@@ -96,7 +96,7 @@ La main droite de Massacre marqua un temps d'arrêt. À l'extérieur, Wang Lin o
 
 « Quel lieu cette formation ouvre-t-elle? »
 
-L'Ancien Maître Impérial Dao, dont l'apparence rappelait celle de l'Omniscient et du Souverain Céleste aux Sept Couleurs, réfléchit un instant avant de répondre: « Le Royaume Divin Immémorial! »
+L'Ancien Maître Impérial Dao, dont l'apparence rappelait celle de Tian Yunzi et du Souverain Céleste aux Sept Couleurs, réfléchit un instant avant de répondre: « Le Royaume Divin Immémorial! »
 
 « Si vous voulez que Li Muwan s'affranchisse de la réincarnation sans en subir les souffrances, vous devez atteindre le Royaume Divin Immémorial. Là-bas, elle sera protégée du cycle des renaissances, et vous pourrez utiliser votre Dao de la Réincarnation pour briser la barrière onirique de Li Muwan, trouver son essence véritable et transcender ainsi la réincarnation. »
 

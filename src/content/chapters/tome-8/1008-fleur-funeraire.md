@@ -12,7 +12,7 @@ Lorsque le fragment céleste s'effondra, l'effluve des fleurs atteignit Wang Lin
 
 Pourtant, la douleur qui lui lacérait le corps fit trembler son esprit. L'effondrement du fragment céleste avait profondément choqué Wang Lin.
 
-Bien que des fissures soient apparues sur le fragment en raison du sort de l'Omniscient, il s'agissait toujours d'un trésor protecteur extrêmement puissant.
+Bien que des fissures soient apparues sur le fragment en raison du sort de Tian Yunzi, il s'agissait toujours d'un trésor protecteur extrêmement puissant.
 
 Cependant, il s'était effondré de manière si étrange, à partir d'un seul point touché par le doigt de la femme. Wang Lin ne put s'empêcher de haleter et recula rapidement.
 

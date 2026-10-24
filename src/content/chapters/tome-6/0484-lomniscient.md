@@ -1,9 +1,9 @@
 ---
 n: 484
-title: "L'Omniscient"
+title: "Tian Yunzi"
 book: 6
 bookTitle: Arriving on Tian Yun
-en: Chapter 484 - Omniscient
+en: Chapter 484 - Tian Yunzi
 slug: lomniscient
 ---
 Un rayon de flammes pourpres jaillit de son doigt. La flamme vacillait et ne semblait guère impressionnante; on aurait dit qu'elle pouvait s'éteindre à tout instant.
@@ -106,7 +106,7 @@ Le vieil homme hocha légèrement la tête, puis d'un mouvement de sa main droit
 
 Une fois cela fait, le regard du vieil homme se posa sur Wang Lin et il sourit: « En réalité, tu m'as rencontré il y a bien longtemps! »
 
-Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poignet. Il leva les yeux vers le vieil homme, son aura dominante s'étant dissipée, et joignit ses mains: « Le junior Wang Lin salue le senior l'Omniscient. »
+Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poignet. Il leva les yeux vers le vieil homme, son aura dominante s'étant dissipée, et joignit ses mains: « Le junior Wang Lin salue le senior Tian Yunzi. »
 
 Le vieil homme observa le Pavillon de la Forêt Violette qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots: « Pavillon de la Forêt Violette ».
 
@@ -116,12 +116,12 @@ Ce sort fit trembler violemment le cœur de Wang Lin.
 
 « Wang Lin, lorsque je t'ai vu sur la planète Suzaku, j'ai eu l'envie de te prendre pour disciple. J'avais initialement prévu de faire de toi un disciple honorifique pour cent ans, mais en te revoyant, j'ai changé d'avis. Wang Lin, es-tu prêt à m'accepter comme maître, à cultiver le Dao des Cieux et à devenir un véritable disciple de la Division Pourpre? »
 
-L'Omniscient fixait Wang Lin avec une expression solennelle.
+Tian Yunzi fixait Wang Lin avec une expression solennelle.
 
 Wang Lin soutint son regard. Après un court instant, il s'agenouilla sur un genou et dit respectueusement: « Le disciple Wang Lin salue le Maître! »
 
-« Bien! » L'Omniscient rit en regardant Wang Lin avec un sourire bienveillant. « Ne vas-tu pas libérer l'âme originelle de ta cinquième sœur? Si tu t'attardes trop, ton maître ne risque-t-il pas de manquer un disciple? »
+« Bien! » Tian Yunzi rit en regardant Wang Lin avec un sourire bienveillant. « Ne vas-tu pas libérer l'âme originelle de ta cinquième sœur? Si tu t'attardes trop, ton maître ne risque-t-il pas de manquer un disciple? »
 
 Wang Lin leva la tête et répondit calmement: « Je peux libérer l'âme originelle de la cinquième sœur, mais les deux autres ont été irrespectueuses envers moi, je ne peux donc pas les libérer! »
 
-L'Omniscient réfléchit un instant avant de sourire. Il lança à Wang Lin un regard profond et dit simplement: « Très bien! »
+Tian Yunzi réfléchit un instant avant de sourire. Il lança à Wang Lin un regard profond et dit simplement: « Très bien! »

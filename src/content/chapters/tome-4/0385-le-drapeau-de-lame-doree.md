@@ -56,7 +56,7 @@ Après avoir vu Liu Mei, le sentiment de danger que Wang Lin ressentait envers S
 
 Il y réfléchit secrètement pendant longtemps, mais ne parvint toujours pas à cerner ses motivations. Il ne pouvait pas non plus percer sa culture, raison pour laquelle il ne l'avait pas tuée plus tôt.
 
-« Tout ceci est très étrange, et l'attitude de Suzaku est difficile à cerner... Si nécessaire, je quitterai Suzaku, j'irai trouver l'Omniscient et je laisserai ce chaos derrière moi. » Wang Lin se mit à songer.
+« Tout ceci est très étrange, et l'attitude de Suzaku est difficile à cerner... Si nécessaire, je quitterai Suzaku, j'irai trouver Tian Yunzi et je laisserai ce chaos derrière moi. » Wang Lin se mit à songer.
 
 Le temps passa rapidement. En un clin d'œil, plusieurs mois s'étaient écoulés.
 

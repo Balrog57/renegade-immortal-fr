@@ -16,7 +16,7 @@ Au-dessus de la place de la Secte du Destin Céleste, Bai Wei contemplait le cie
 
 Bai Wei jeta un regard prudent vers l'homme d'âge moyen, éprouvant une profonde crainte envers ce frère aîné. La culture de Zhao Xingsha avait considérablement progressé durant sa retraite méditative. Il avait franchi le stade Ascendant et n'était plus qu'à un pas de l'Yin Illusoire!
 
-« Zhao Xingsha est devenu l'un des sept véritables disciples de l'Omniscient il y a trente ans. Il entretient une querelle avec Wang Lin; lorsqu'ils se rencontreront, il lui sera difficile de contenir son intention meurtrière. »
+« Zhao Xingsha est devenu l'un des sept véritables disciples de Tian Yunzi il y a trente ans. Il entretient une querelle avec Wang Lin; lorsqu'ils se rencontreront, il lui sera difficile de contenir son intention meurtrière. »
 
 Une femme se tenait également aux côtés des deux hommes. Son expression était abattue. Bien qu'elle regardât le ciel, elle semblait n'avoir aucun intérêt pour ce qui l'entourait. Cette femme était la quatrième disciple de la Division Pourpre, la quatrième sœur apprentie de Wang Lin. Autrefois, elle avait été contrainte par Zhao Xingsha à piéger Wang Lin au moyen d'un sortilège. Plus tard, après que Wang Lin eut réussi à s'échapper, elle lui avait enseigné une technique de téléportation supérieure afin de dissiper leur inimitié.
 
@@ -43,7 +43,7 @@ Le regard de Ling Tianhou était comme l'éclair, chargé d'une puissante énerg
 
 « Stade initial du Scruteur du Nirvana! Ce Wang Lin n'était qu'au stade de la Transformation de l'Âme, et en seulement quelques centaines d'années, il a atteint des hauteurs aussi inattendues!! À moins d'avoir rencontré une fortune immense, cela serait impossible! Et il y a aussi cette marque entre ses sourcils… » Le choc provoqua un immense tumulte dans le cœur de Ling Tianhou.
 
-Le vieil homme qui ressemblait à une montagne de chair ouvrit soudainement les yeux. Son regard brilla d'incrédulité alors qu'il fixait Wang Lin. L'expression du vieillard aussi maigre qu'un cadavre changea également, jetant un regard profond à Wang Lin. Il tourna ensuite les yeux vers l'Omniscient, affichant une expression comme s'il venait de comprendre quelque chose.
+Le vieil homme qui ressemblait à une montagne de chair ouvrit soudainement les yeux. Son regard brilla d'incrédulité alors qu'il fixait Wang Lin. L'expression du vieillard aussi maigre qu'un cadavre changea également, jetant un regard profond à Wang Lin. Il tourna ensuite les yeux vers Tian Yunzi, affichant une expression comme s'il venait de comprendre quelque chose.
 
 Quant au vieil homme en robe noire et blanche assis sur une gourde, il laissa échapper un sourire inattendu. Cependant, une lueur spectrale passa dans ses yeux, rendant impossible toute lecture de ses pensées.
 
@@ -51,9 +51,9 @@ Quant au vieil homme en robe noire et blanche assis sur une gourde, il laissa é
 
 Si ces vieux monstres étaient ainsi affectés, il n'était pas nécessaire de mentionner les cultivateurs environnants. Beaucoup d'entre eux ne pouvaient percevoir le niveau de culture de Wang Lin, mais ils ressentaient tous une pression émanant de son corps. La femme en rose observa Wang Lin avec ses beaux yeux, laissant transparaître une pointe d'intérêt.
 
-Tout cela sembla s'étirer, mais tout se produisit à l'instant même où Wang Lin apparut, et les réactions de chacun furent captées par son regard. Il tapota ses vêtements, regarda calmement l'Omniscient, puis joignit les mains et dit respectueusement: « Le disciple Wang Lin salue Maître! »
+Tout cela sembla s'étirer, mais tout se produisit à l'instant même où Wang Lin apparut, et les réactions de chacun furent captées par son regard. Il tapota ses vêtements, regarda calmement Tian Yunzi, puis joignit les mains et dit respectueusement: « Le disciple Wang Lin salue Maître! »
 
-Les yeux de l'Omniscient brillèrent d'une lueur étrange en fixant la marque entre les sourcils de Wang Lin. Après un long moment, il sourit et dit avec bienveillance: « Il est bon que tu sois de retour. Wang Lin, ces anciens souhaitent te poser des questions, et tu devras y répondre avec sincérité. »
+Les yeux de Tian Yunzi brillèrent d'une lueur étrange en fixant la marque entre les sourcils de Wang Lin. Après un long moment, il sourit et dit avec bienveillance: « Il est bon que tu sois de retour. Wang Lin, ces anciens souhaitent te poser des questions, et tu devras y répondre avec sincérité. »
 
 Un homme d'âge moyen derrière Ling Tianhou le pointa du doigt et s'écria: « Petit morveux, Wang Lin, tu as vraiment osé revenir!! »
 « Autrefois, tu as tué des membres de ma Secte de l'Épée Da Luo dans la Terre des Esprits Démoniaques. Aujourd'hui, tu vas payer en sang! »
@@ -88,9 +88,9 @@ Après ces paroles, le vieil homme au corps de montagne de chair se redressa et 
 
 L'esprit du vieil homme vacilla sous le regard de Wang Lin. Son expression changea, trahissant un éclair d'incrédulité.
 
-L'Omniscient, conservant son air serein, dit lentement: « Assez, Wang Lin. Ton maître te demande si le jeton de la grotte céleste est en ta possession. »
+Tian Yunzi, conservant son air serein, dit lentement: « Assez, Wang Lin. Ton maître te demande si le jeton de la grotte céleste est en ta possession. »
 
-Wang Lin regarda l'Omniscient et dit respectueusement: « Puisque Maître le demande, le disciple n'ose dissimuler la vérité. Dans la Terre des Esprits Démoniaques, le disciple a effectivement obtenu un jeton de la grotte céleste! »
+Wang Lin regarda Tian Yunzi et dit respectueusement: « Puisque Maître le demande, le disciple n'ose dissimuler la vérité. Dans la Terre des Esprits Démoniaques, le disciple a effectivement obtenu un jeton de la grotte céleste! »
 
 À ces mots, les yeux des vieux monstres s'illuminèrent et ils commencèrent à réfléchir en silence. Soudain, une aura oppressante se propagea et convergea vers Wang Lin. Le vieil homme assis sur la gourde fixa la marque entre les sourcils de Wang Lin et déclara: « Wang Lin, rends le jeton et tu pourras garder la vie! »
 
@@ -102,10 +102,10 @@ Il laissa échapper un reniflement froid et pointa son index droit. Un rayon d'�
 
 L'expression de Wang Lin resta imperturbable. Lorsque l'énergie d'épée atteignit sa zone, il recula de quelques pas et lança un coup de poing. L'impact provoqua un bang sonique, et le grondement fut assourdissant. Un vortex noir jaillit du poing de Wang Lin et entra en collision avec l'énergie d'épée de Ling Tianhou.
 
-À cet instant précis, les yeux de l'Omniscient s'illuminèrent et il agita sa manche droite. Un vent aux sept couleurs s'élança pour se placer entre Ling Tianhou et Wang Lin. Ce vent portait une puissance mystérieuse qui, en passant, fit se dissiper le vortex noir du poing de Wang Lin. Tout en dissolvant la force de ce dernier, il bloqua également l'énergie d'épée de Ling Tianhou.
+À cet instant précis, les yeux de Tian Yunzi s'illuminèrent et il agita sa manche droite. Un vent aux sept couleurs s'élança pour se placer entre Ling Tianhou et Wang Lin. Ce vent portait une puissance mystérieuse qui, en passant, fit se dissiper le vortex noir du poing de Wang Lin. Tout en dissolvant la force de ce dernier, il bloqua également l'énergie d'épée de Ling Tianhou.
 
 Tout fut ainsi doucement neutralisé.
 
-« Ling Tianhou, attaquer un disciple de ma Secte du Destin Céleste au sein même de ma secte… penses-tu vraiment que je ne suis pas là? » La voix de l'Omniscient était douce alors qu'il fixait Ling Tianhou.
+« Ling Tianhou, attaquer un disciple de ma Secte du Destin Céleste au sein même de ma secte… penses-tu vraiment que je ne suis pas là? » La voix de Tian Yunzi était douce alors qu'il fixait Ling Tianhou.
 
-Les quatre épées d'âme originelle derrière Ling Tianhou s'envolèrent alors qu'il criait vers l'Omniscient: « Omniscient, se pourrait-il que tu veuilles prendre le jeton pour toi-même?! »
+Les quatre épées d'âme originelle derrière Ling Tianhou s'envolèrent alors qu'il criait vers Tian Yunzi: « Tian Yunzi, se pourrait-il que tu veuilles prendre le jeton pour toi-même?! »

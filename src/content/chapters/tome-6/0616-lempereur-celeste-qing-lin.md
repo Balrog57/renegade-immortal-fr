@@ -26,13 +26,13 @@ Yao Xixue poussa un léger soupir et murmura: « Je peux tout te dire, mais tu d
 
 « Tu n'as pas la qualification pour m'imposer des conditions. Je respecterai naturellement ma promesse! Parle, tu n'as qu'une seule chance. Si tu te tais, je te scellerai à jamais! » La voix de Wang Lin était calme, mais elle dégageait une intention glaciale.
 
-Yao Xixue joua avec ses cheveux en regardant Wang Lin. Après un long moment, elle murmura: « Mon père m'avait prévenue de ne pas t'affronter. J'étais très perplexe et je ne comprenais pas pourquoi mon père te connaissait. À l'époque, tu n'étais qu'un simple petit cultivateur, même si tu étais le disciple de l'Omniscient. D'après ce que je savais de mon père, ton statut, ta culture, tout en toi ne méritait pas son attention! »
+Yao Xixue joua avec ses cheveux en regardant Wang Lin. Après un long moment, elle murmura: « Mon père m'avait prévenue de ne pas t'affronter. J'étais très perplexe et je ne comprenais pas pourquoi mon père te connaissait. À l'époque, tu n'étais qu'un simple petit cultivateur, même si tu étais le disciple de Tian Yunzi. D'après ce que je savais de mon père, ton statut, ta culture, tout en toi ne méritait pas son attention! »
 
 « C'est pourquoi je ne l'ai pas écouté. Mais maintenant, je comprends un peu mieux pourquoi il parlait de toi... »
 
 L'expression de Wang Lin demeura sereine tandis qu'il la fixait froidement.
 
-Yao Xixue soupira et reprit: « C'est mon père qui m'a dit qu'il y avait au total quatre grottes ici. À l'époque, lorsque mon père, l'Omniscient, Ling Tianhou et leurs compagnons sont venus au Domaine des Esprits Démoniaques, ils ont découvert un... secret! »
+Yao Xixue soupira et reprit: « C'est mon père qui m'a dit qu'il y avait au total quatre grottes ici. À l'époque, lorsque mon père, Tian Yunzi, Ling Tianhou et leurs compagnons sont venus au Domaine des Esprits Démoniaques, ils ont découvert un... secret! »
 
 Les yeux de Wang Lin se plissèrent et il demanda calmement: « Quel secret? »
 
@@ -74,7 +74,7 @@ Wang Lin ne pourrait jamais oublier ce qu'il avait entendu lorsqu'il était entr
 
 Plus Wang Lin obtenait d'informations, plus il avait l'impression qu'un voile de brume se dressait devant lui, une brume qu'il ne parvenait pas à déchirer. Il regarda calmement Yao Xixue et demanda: « Comment les quatre grottes factices étaient-elles réparties entre eux à l'époque? »
 
-« L'Omniscient et Ling Tianhou en ont chacun pris une. L'autre a été prise par le Couple Céleste Nuageux! À l'époque, le niveau de culture de mon père n'était pas assez élevé pour lutter contre les quatre d'entre eux pour les grottes factices. Cependant, sa chance fut grande et il parvint à découvrir l'existence de cette grotte. En fait, hormis mon père, tous pensent encore que cet endroit possède trois grottes factices et une vraie! »
+« Tian Yunzi et Ling Tianhou en ont chacun pris une. L'autre a été prise par le Couple Céleste Nuageux! À l'époque, le niveau de culture de mon père n'était pas assez élevé pour lutter contre les quatre d'entre eux pour les grottes factices. Cependant, sa chance fut grande et il parvint à découvrir l'existence de cette grotte. En fait, hormis mon père, tous pensent encore que cet endroit possède trois grottes factices et une vraie! »
 
 « Le Couple Céleste Nuageux? » C'était la première fois que Wang Lin entendait ce nom.
 
@@ -90,7 +90,7 @@ Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alor
 
 La voix de Wang Lin était calme et profonde alors qu'il avançait lentement son raisonnement.
 
-Yao Xixue regarda Wang Lin pendant un long moment. Puis elle sourit et hocha la tête: « Tu es très intelligent. C'est exact, mon père arrivera très bientôt! En fait, non seulement mon père, mais je crains que ton maître, l'Omniscient, Ling Tianhou de la Secte de l'Épée Da Luo, ainsi que divers vieux monstres de la planète Tian Yun n'arrivent également ici sous peu! »
+Yao Xixue regarda Wang Lin pendant un long moment. Puis elle sourit et hocha la tête: « Tu es très intelligent. C'est exact, mon père arrivera très bientôt! En fait, non seulement mon père, mais je crains que ton maître, Tian Yunzi, Ling Tianhou de la Secte de l'Épée Da Luo, ainsi que divers vieux monstres de la planète Tian Yun n'arrivent également ici sous peu! »
 
 Wang Lin ferma les yeux, ne laissant qu'une mince fente ouverte, et dit lentement: « Est-ce à cause de ce jeton doré qui est apparu lors de la marée? »
 
@@ -106,7 +106,7 @@ Yao Xixue baissa la tête. Elle évita inconsciemment le regard de Wang Lin et d
 
 « Cependant, pour ouvrir la porte de la vraie grotte, il faut que les quatre jetons ouvrent les quatre grottes factices simultanément. Pas un seul ne doit manquer! »
 
-Wang Lin demanda: « Selon toi, l'Omniscient et les autres croient toujours qu'il ne leur faut que trois jetons. Seul ton père, Xue Zu, sait que trois jetons ne suffisent pas à ouvrir la porte de la vraie grotte. Est-ce bien cela? »
+Wang Lin demanda: « Selon toi, Tian Yunzi et les autres croient toujours qu'il ne leur faut que trois jetons. Seul ton père, Xue Zu, sait que trois jetons ne suffisent pas à ouvrir la porte de la vraie grotte. Est-ce bien cela? »
 
 Yao Xixue réfléchit un instant et hocha la tête.
 
@@ -114,4 +114,4 @@ Yao Xixue réfléchit un instant et hocha la tête.
 
 Yao Xixue hésita un instant avant de répondre: « Dans l'Abîme des Marées. Son entrée se trouve à l'intérieur du Pays des Démons de Feu! »
 
-Wang Lin ne posa plus de questions. Sa main droite s'étira et Yao Xixue fut scellée une fois de plus. Après l'avoir remise dans le sac de stockage, il resta seul dans la tour. Ses yeux émettaient une lueur démoniaque tandis qu'il murmurait pour lui-même: « Il s'avère que ce Domaine des Esprits Démoniaques cachait un tel secret... Mon niveau de culture est bien trop faible par rapport à ces vieux maîtres. Cependant, pourquoi l'Omniscient a-t-il été si déterminé à ce que je vienne dans ce Domaine des Esprits Démoniaques... »
+Wang Lin ne posa plus de questions. Sa main droite s'étira et Yao Xixue fut scellée une fois de plus. Après l'avoir remise dans le sac de stockage, il resta seul dans la tour. Ses yeux émettaient une lueur démoniaque tandis qu'il murmurait pour lui-même: « Il s'avère que ce Domaine des Esprits Démoniaques cachait un tel secret... Mon niveau de culture est bien trop faible par rapport à ces vieux maîtres. Cependant, pourquoi Tian Yunzi a-t-il été si déterminé à ce que je vienne dans ce Domaine des Esprits Démoniaques... »

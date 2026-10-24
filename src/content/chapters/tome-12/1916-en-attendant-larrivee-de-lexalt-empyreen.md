@@ -88,7 +88,7 @@ Ce n'est que lorsque l'émissaire fut parti que le sourire de Wang Lin disparut,
 
 Il ne quitta pas les ruines de la Secte du Dao Démoniaque mais s'assit sur une pierre verte au sein de la secte, ses yeux brillant d'une lueur étrange.
 
-« Lian Daofei... Sa cupidité et nombre de ses traits négatifs ont été dévorés par l'Omniscient, né jadis du Dao Céleste. Selon cela, sa personnalité devrait être très différente de celle d'autrefois... »
+« Lian Daofei... Sa cupidité et nombre de ses traits négatifs ont été dévorés par Tian Yunzi, né jadis du Dao Céleste. Selon cela, sa personnalité devrait être très différente de celle d'autrefois... »
 
 « Les paroles de l'émissaire le révèlent aussi. Sa personnalité a changé, mais en quoi a-t-elle changé... »
 

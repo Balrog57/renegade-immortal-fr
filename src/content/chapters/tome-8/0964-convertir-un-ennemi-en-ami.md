@@ -46,7 +46,7 @@ Après tout, puisque l'autre partie était un cultivateur du Purificateur du Nir
 
 S'ils avaient connu son niveau de culture au préalable, ils n'auraient jamais osé l'arrêter. Personne n'oserait remettre en question un Purificateur du Nirvana venu à la Cité aux Yeux Fantômes. Même sans invitation, un tel être serait traité comme un hôte d'honneur.
 
-« Sur la planète Tian Yun et toutes les planètes environnantes, les cultivateurs du Purificateur du Nirvana sont extrêmement rares. Chacun d'eux est capable de faire trembler une planète de culture d'un simple pas. Je n'ai jamais entendu parler de quelqu'un nommé Wang Lin. Il a dit qu'il venait de la Secte du Destin Céleste... Se pourrait-il... qu'il soit issu d'une génération plus ancienne des disciples de l'Omniscient? » Les trois se regardèrent, le doute dans les yeux. Cependant, la puissance manifestée par Wang Lin était bel et bien digne d'un Purificateur du Nirvana.
+« Sur la planète Tian Yun et toutes les planètes environnantes, les cultivateurs du Purificateur du Nirvana sont extrêmement rares. Chacun d'eux est capable de faire trembler une planète de culture d'un simple pas. Je n'ai jamais entendu parler de quelqu'un nommé Wang Lin. Il a dit qu'il venait de la Secte du Destin Céleste... Se pourrait-il... qu'il soit issu d'une génération plus ancienne des disciples de Tian Yunzi? » Les trois se regardèrent, le doute dans les yeux. Cependant, la puissance manifestée par Wang Lin était bel et bien digne d'un Purificateur du Nirvana.
 
 Le vieillard en robe verte, très embarrassé, dit: « Veuillez ne pas nous blâmer, Camarade Cultivateur Wang. Nous trois sommes responsables de cette ville, il est possible que nous vous ayons offensé. Veuillez nous oublier, pardonnez-nous! »
 
@@ -86,7 +86,7 @@ Wang Lin esquissa un léger sourire. Il n'y avait aucune raison de refuser cette
 
 « Le Frère Wang est trop poli. » Maître Yi Chen s'éloigna alors avec les deux autres.
 
-Bai Wei ne parvenait pas à s'adapter à tout cela. Avec son niveau de culture, il n'aurait jamais interagi avec des cultivateurs de ce rang, même en étant le disciple de l'Omniscient.
+Bai Wei ne parvenait pas à s'adapter à tout cela. Avec son niveau de culture, il n'aurait jamais interagi avec des cultivateurs de ce rang, même en étant le disciple de Tian Yunzi.
 
 Bientôt, des serviteurs arrivèrent pour installer les deux hommes. Il y avait de nombreuses chambres vacantes. Après le départ de Bai Wei, Xu Liguo suivit instinctivement, mais après un regard froid de Wang Lin, il obéit et suivit son maître.
 

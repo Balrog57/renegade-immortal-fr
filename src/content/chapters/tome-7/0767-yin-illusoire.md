@@ -84,7 +84,7 @@ Ce processus était appelé transformation originelle. Il visait à élever un c
 
 Depuis la disparition des anciens et l'effondrement du Royaume Céleste, très peu de personnes avaient réussi à franchir ces deux royaumes d'un seul élan, au moment de la percée de l'Ascendant; mais tous ceux qui y étaient parvenus avaient accompli des exploits prodigieux et siégé au sommet de la seconde étape!
 
-Même l'Omniscient avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et Xue Zu près de 1 000 ans.
+Même Tian Yunzi avait mis 300 ans pour traverser ces deux royaumes. Ling Tianhou en avait mis 800, et Xue Zu près de 1 000 ans.
 
 Cela n'avait rien à voir avec le talent. La raison principale était l'énergie originelle!
 

@@ -8,7 +8,7 @@ slug: le-messager
 ---
 Le symbole au-dessus de la formation disparut lentement. Wang Lin sortit du réseau et observa calmement les environs avant que son regard ne se pose sur Xu Yunshan.
 
-Les yeux de Xu Yunshan se plissèrent, puis il laissa échapper un rire et demanda: « Es-tu Wang Lin, le disciple de l'Omniscient? »
+Les yeux de Xu Yunshan se plissèrent, puis il laissa échapper un rire et demanda: « Es-tu Wang Lin, le disciple de Tian Yunzi? »
 
 L'expression de Wang Lin resta sereine tandis qu'il joignait les mains en signe de respect. « Je le suis. Et vous, monsieur? »
 
@@ -78,7 +78,7 @@ Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front d
 
 Après ces préparatifs, Wang Lin prit une profonde inspiration, puis d'un geste de la main, un jade apparut!
 
-Ce jade était entièrement gris; c'était celui que l'Omniscient aux robes grises lui avait remis: l'Art du Massacre Céleste!
+Ce jade était entièrement gris; c'était celui que Tian Yunzi aux robes grises lui avait remis: l'Art du Massacre Céleste!
 
 « L'Art du Massacre Céleste... » Les yeux de Wang Lin s'illuminèrent, puis son sens divin pénétra dans le jade.
 
@@ -88,7 +88,7 @@ Durant ce mois, aucune des sectes de Ling Yue n'avait réussi à cerner l'attitu
 
 C'était devenu une tradition.
 
-Mais cet homme, venu de la planète Tian Yun et étant le disciple de l'Omniscient, ne quittait pas la tour depuis un mois entier. La zone environnante était également enveloppée d'un brouillard noir, empêchant quiconque d'oser s'en approcher.
+Mais cet homme, venu de la planète Tian Yun et étant le disciple de Tian Yunzi, ne quittait pas la tour depuis un mois entier. La zone environnante était également enveloppée d'un brouillard noir, empêchant quiconque d'oser s'en approcher.
 
 Certains cultivateurs de la Transformation de l'Âme tentèrent de pénétrer dans le brouillard pour voir ce qui s'y passait, mais après n'avoir parcouru que moins de trois cents mètres, ils en ressortirent précipitamment, le visage décomposé.
 

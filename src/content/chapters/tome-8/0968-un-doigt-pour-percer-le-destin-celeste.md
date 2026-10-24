@@ -58,17 +58,17 @@ Chaque pulsation rendait la glace bleu foncé plus épaisse autour de lui. Son c
 
 Son corps trembla et tout ce qui se trouvait sous son cou se changea en glace. La marque entre ses sourcils avait pris une teinte violette noirâtre, et l'énergie Yin qu'elle contenait était terrifiante!
 
-Une douleur indescriptible poussa Bai Wei à pousser le dernier rugissement de sa vie. Ce cri était chargé de son mécontentement, de sa haine envers l'Omniscient, de sa tristesse, de son impuissance et de toutes ses luttes contre la fatalité!
+Une douleur indescriptible poussa Bai Wei à pousser le dernier rugissement de sa vie. Ce cri était chargé de son mécontentement, de sa haine envers Tian Yunzi, de sa tristesse, de son impuissance et de toutes ses luttes contre la fatalité!
 
 Il y avait aussi une lueur de soulagement...
 
-Wang Lin sembla être frappé par ce rugissement. Son expression devint complexe et il recula encore de quelques pas. Il pouvait comprendre les pensées de Bai Wei: c'était un acte de défi pur, une rébellion contre l'Omniscient!
+Wang Lin sembla être frappé par ce rugissement. Son expression devint complexe et il recula encore de quelques pas. Il pouvait comprendre les pensées de Bai Wei: c'était un acte de défi pur, une rébellion contre Tian Yunzi!
 
 On pouvait dire que c'était une forme de défi!
 
 Le rugissement de Bai Wei se propagea frénétiquement sur des dizaines de milliers de kilomètres. Cependant, il fut étouffé par la pluie battante et les tonnerres violents.
 
-« Omniscient, je sacrifie ma vie pour que tu aies tort une seule fois! Moi, Bai Wei, je rirai dans l'au-delà! Je suis prêt à échanger cette vie sans valeur pour que l'Omniscient se trompe une fois! »
+« Tian Yunzi, je sacrifie ma vie pour que tu aies tort une seule fois! Moi, Bai Wei, je rirai dans l'au-delà! Je suis prêt à échanger cette vie sans valeur pour que Tian Yunzi se trompe une fois! »
 
 Alors que Bai Wei riait de façon maniaque, la marque contenant toute son énergie Yin subit une étrange métamorphose. L'énergie Yin infinie se changea en un vortex de la taille d'un poing, sans cesse comprimé et tournoyant, d'où émana un rugissement plus fort que le tonnerre.
 
@@ -94,19 +94,19 @@ Dans la Secte du Destin Céleste, il existait une montagne très singulière. El
 
 Derrière la montagne, des anneaux de sept couleurs différentes projetaient des éclats de lumière. L'énergie spirituelle céleste qui saturait la zone donnait au lieu l'apparence du Royaume Céleste.
 
-L'Omniscient était assis sur le sommet du pic central. Vêtu de blanc, ses cheveux d'argent flottaient au gré du vent. Bien qu'il fût âgé, il ne semblait pas déclinant; au contraire, il avait l'allure d'un être céleste.
+Tian Yunzi était assis sur le sommet du pic central. Vêtu de blanc, ses cheveux d'argent flottaient au gré du vent. Bien qu'il fût âgé, il ne semblait pas déclinant; au contraire, il avait l'allure d'un être céleste.
 
 Dès que l'heure du Lapin s'acheva et que celle du Dragon commença, il ouvrit les yeux. À cet instant, une multitude de nuages passèrent devant lui. Plus frappant encore, le soleil et la lune semblaient s'inverser dans son regard tandis que les nuages défilaient à une vitesse vertigineuse.
 
-C'était comme si le temps lui-même résidait au fond des yeux de l'Omniscient!
+C'était comme si le temps lui-même résidait au fond des yeux de Tian Yunzi!
 
 Il observa calmement la Terre. Après un long silence, il poussa un soupir.
 
 « Tous recherchent la longévité, pour vivre aussi longtemps que le monde... Pourtant, combien savent ce que signifie réellement cette longévité? Vivre aussi longtemps que le monde... Le monde a toujours existé, alors qui oserait prétendre être aussi ancien que lui?
 
-« Ce qu'ils poursuivent n'est qu'une illusion, la vision d'une fourmi! Moi, l'Omniscient, je ne cherche pas à vivre aussi longtemps que le monde. Je veux que mon destin devienne celui des cieux. Je veux que ma volonté devienne celle des cieux. Je veux que le Dao des cieux fusionne avec mon propre Dao! »
+« Ce qu'ils poursuivent n'est qu'une illusion, la vision d'une fourmi! Moi, Tian Yunzi, je ne cherche pas à vivre aussi longtemps que le monde. Je veux que mon destin devienne celui des cieux. Je veux que ma volonté devienne celle des cieux. Je veux que le Dao des cieux fusionne avec mon propre Dao! »
 
-Le regard de l'Omniscient se posa vers la lointaine Cité aux Yeux Fantômes. Une lueur étrange brilla dans ses yeux et il murmura: « Wang Lin... tu oses! »
+Le regard de Tian Yunzi se posa vers la lointaine Cité aux Yeux Fantômes. Une lueur étrange brilla dans ses yeux et il murmura: « Wang Lin... tu oses! »
 
 Sans bouger, il leva simplement sa main droite. Son index pointa négligemment vers l'avant!
 
@@ -122,4 +122,4 @@ Rapidement, le doigt passa de l'état éthéré à un état presque solide; mêm
 
 Il entama sa lente descente vers la planète Tian Yun!
 
-Ce doigt était colossal, mais ce n'était pas celui d'un Dieu Ancien. C'était un sortilège que l'Omniscient avait créé de sa propre volonté. Un seul doigt pour percer le destin céleste!
+Ce doigt était colossal, mais ce n'était pas celui d'un Dieu Ancien. C'était un sortilège que Tian Yunzi avait créé de sa propre volonté. Un seul doigt pour percer le destin céleste!

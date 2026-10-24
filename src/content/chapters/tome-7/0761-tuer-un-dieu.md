@@ -90,7 +90,7 @@ Le cristal se transforma immédiatement en une matrice de transfert. C'était la
 
 La silhouette de Xue Zu disparut. Dès son entrée dans l'espace de stockage, son expression changea du tout au tout. Grâce à son savoir, il reconnut immédiatement qu'il se trouvait dans un espace de stockage ouvert par un être céleste.
 
-Un frisson lui glaça le cœur. Cela faisait d'innombrables années qu'il n'avait pas ressenti une telle menace de mort. Même lors de ses multiples défis lancés à l'Omniscient, il n'avait jamais eu la chair de poule de cette manière.
+Un frisson lui glaça le cœur. Cela faisait d'innombrables années qu'il n'avait pas ressenti une telle menace de mort. Même lors de ses multiples défis lancés à Tian Yunzi, il n'avait jamais eu la chair de poule de cette manière.
 
 En fin de compte, il n'était qu'un simple cultivateur!
 
@@ -100,7 +100,7 @@ Il savait que si cet espace s'effondrait, tout ce qui s'y trouvait serait annihi
 
 Seul le fait de dévorer toutes les Pilules de l'Âme Sanguine d'un coup lui permettrait de compter sur leur pouvoir mystérieux pour résister à la destruction de cet espace.
 
-« Maudit soit-il, comment Wang Lin a-t-il trouvé un tel espace? Même un être comme l'Omniscient ne peut espérer trouver un lieu pareil que par la chance! Wang Lin, toi et moi, nous ne pouvons pas coexister! »
+« Maudit soit-il, comment Wang Lin a-t-il trouvé un tel espace? Même un être comme Tian Yunzi ne peut espérer trouver un lieu pareil que par la chance! Wang Lin, toi et moi, nous ne pouvons pas coexister! »
 
 Xue Zu en perdit presque les dents. Dès son entrée, il perçut l'aura de sa fille. Il chargea droit vers la vallée et trouva la sphère de restriction emprisonnant Yao Xixue en un éclair.
 

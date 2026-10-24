@@ -1,9 +1,9 @@
 ---
 n: 632
-title: "La graine pour rompre les liens avec l'Omniscient"
+title: "La graine pour rompre les liens avec Tian Yunzi"
 book: 6
 bookTitle: Arriving on Tian Yun
-en: Chapter 632 - The Seed to Break Relations With the Omniscient
+en: Chapter 632 - The Seed to Break Relations With the Tian Yunzi
 slug: la-graine-pour-rompre-les-liens-avec-lomniscient
 ---
 Wu Ma, qui se tenait aux côtés de Chen Long, affichait une expression abattue et murmura: « Le corps de Shen Hou a déjà été dévoré par ces créatures; même son âme originelle n'a pu s'échapper... »
@@ -56,7 +56,7 @@ Chen Long se rassit en position du lotus et commença à réfléchir. Il avait d
 
 Tandis que les disciples de la Secte de l'Épée Da Luo étaient en conflit avec Tan Lang, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays des Démons de Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
 
-Selon elle, le jeton qui faisait rougir les yeux même de personnes comme l'Omniscient se trouvait dans les profondeurs de l'Abîme des Marées.
+Selon elle, le jeton qui faisait rougir les yeux même de personnes comme Tian Yunzi se trouvait dans les profondeurs de l'Abîme des Marées.
 
 Wang Lin savait également que Tan Lang et les disciples de la Secte de l'Épée Da Luo avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Tan Lang s'était aussi rendu à l'Abîme des Marées.
 
@@ -100,19 +100,19 @@ Il ne pouvait pas créer son propre sort, mais grâce à sa vivacité d'esprit e
 
 Il faut dire que Sun Yun n'avait retrouvé sa lucidité qu'une fois la majorité des illusions dissipées.
 
-La capacité de décision de Wang Lin était un trait qui ne pouvait être comparé à celui d'un homme ordinaire. Même l'Omniscient n'aurait jamais soupçonné que Wang Lin parviendrait à obtenir le secret de l'Art du Massacre Céleste durant l'héritage du démon ancien!
+La capacité de décision de Wang Lin était un trait qui ne pouvait être comparé à celui d'un homme ordinaire. Même Tian Yunzi n'aurait jamais soupçonné que Wang Lin parviendrait à obtenir le secret de l'Art du Massacre Céleste durant l'héritage du démon ancien!
 
-« Omniscient! J'ai dit un jour que si tu ne me tournais pas le dos, je ne te tournerais pas le dos non plus... » La voix de Wang Lin était glaciale, résonnant dans les cieux comme un souffle de vent.
+« Tian Yunzi! J'ai dit un jour que si tu ne me tournais pas le dos, je ne te tournerais pas le dos non plus... » La voix de Wang Lin était glaciale, résonnant dans les cieux comme un souffle de vent.
 
-« L'Art du Massacre Céleste est véritablement prodigieux. Cependant, Omniscient, tu es d'une cruauté sans limite. Heureusement, ma compréhension était faible et limitée à un million de filaments d'énergie de massacre. Si elle avait atteint les dix millions, je crains que je ne sois déjà devenu un symbole. Je serais devenu un véritable filament d'énergie de massacre pour être ensuite absorbé par toi! »
+« L'Art du Massacre Céleste est véritablement prodigieux. Cependant, Tian Yunzi, tu es d'une cruauté sans limite. Heureusement, ma compréhension était faible et limitée à un million de filaments d'énergie de massacre. Si elle avait atteint les dix millions, je crains que je ne sois déjà devenu un symbole. Je serais devenu un véritable filament d'énergie de massacre pour être ensuite absorbé par toi! »
 
 En volant, Wang Lin laissa échapper un long soupir.
 
-« L'Omniscient vêtu de gris avait prétendu m'enseigner l'Art du Massacre Céleste en raison de mon domaine... À l'époque, je n'y avais pas prêté attention. Mais avec le recul, je crains que ce ne soit parce qu'il avait vu ma culture du domaine de la vie et de la mort sur Suzaku, lors de ma Formation de l'Âme, qu'il avait décidé de faire de moi son disciple! »
+« Tian Yunzi vêtu de gris avait prétendu m'enseigner l'Art du Massacre Céleste en raison de mon domaine... À l'époque, je n'y avais pas prêté attention. Mais avec le recul, je crains que ce ne soit parce qu'il avait vu ma culture du domaine de la vie et de la mort sur Suzaku, lors de ma Formation de l'Âme, qu'il avait décidé de faire de moi son disciple! »
 
 Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son regard était d'une clarté absolue. Il se téléporta et disparut.
 
-« Je suis un peu paranoïaque à ce sujet, je ne peux donc pas porter de jugement définitif. L'Omniscient a été bienveillant envers moi, et c'était mon propre choix d'apprendre l'Art du Massacre Céleste, mais il semblait m'y pousser... Je devrai observer cela avec prudence à l'avenir. Cependant, l'Omniscient est trop puissant. Si je ne possède pas la force nécessaire, je ne peux pas lui laisser deviner que je suis au courant de tout cela... Quant à l'Art du Massacre Céleste, je devrai l'étudier minutieusement pour y trouver une faille! »
+« Je suis un peu paranoïaque à ce sujet, je ne peux donc pas porter de jugement définitif. Tian Yunzi a été bienveillant envers moi, et c'était mon propre choix d'apprendre l'Art du Massacre Céleste, mais il semblait m'y pousser... Je devrai observer cela avec prudence à l'avenir. Cependant, Tian Yunzi est trop puissant. Si je ne possède pas la force nécessaire, je ne peux pas lui laisser deviner que je suis au courant de tout cela... Quant à l'Art du Massacre Céleste, je devrai l'étudier minutieusement pour y trouver une faille! »
 
 Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays des Démons de Feu pendant plusieurs jours. Il ne plaça aucune formation ni sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
 

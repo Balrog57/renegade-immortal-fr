@@ -18,11 +18,11 @@ En entendant ces hurlements, le vieil homme poussa un long soupir et abandonna t
 
 Wang Lin ne bougea pas et se contenta de le fixer froidement.
 
-Le visage du vieil homme était amer. Il regarda la lame en croissant de lune qui flottait devant lui et déclara: « L'Ancêtre a accepté des disciples dans sept divisions, sept personnes dans chacune. Cependant, seul un disciple par division est un véritable disciple, et ces sept-là sont appelés les sept véritables disciples de l'Omniscient. Bien que les autres soient toujours considérés comme des disciples, ils ne recevront pas l'héritage de l'Ancêtre. »
+Le visage du vieil homme était amer. Il regarda la lame en croissant de lune qui flottait devant lui et déclara: « L'Ancêtre a accepté des disciples dans sept divisions, sept personnes dans chacune. Cependant, seul un disciple par division est un véritable disciple, et ces sept-là sont appelés les sept véritables disciples de Tian Yunzi. Bien que les autres soient toujours considérés comme des disciples, ils ne recevront pas l'héritage de l'Ancêtre. »
 
 Wang Lin resta silencieux, écoutant attentivement. Sa simple présence dégageait une aura d'arrogance. Le Wang Lin d'aujourd'hui était bien différent de celui qui était arrivé à la Secte du Destin Céleste.
 
-« Il y a mille ans, dans la division violette, un génie est apparu. Cet homme devint le disciple éminent de la division violette, remplaçant le sixième de la division violette pour devenir l'un des sept véritables disciples de l'Omniscient.
+« Il y a mille ans, dans la division violette, un génie est apparu. Cet homme devint le disciple éminent de la division violette, remplaçant le sixième de la division violette pour devenir l'un des sept véritables disciples de Tian Yunzi.
 
 Son nom était Sun Yun, et il résidait au Pavillon des Nuages Pourpres! »
 
@@ -64,7 +64,7 @@ La main droite de Wang Lin s'étira et arracha l'âme originelle du vieil homme 
 
 Une fois terminé, la froideur dans le regard de Wang Lin ne s'était pas dissipée; elle s'était intensifiée. Il se tourna vers le Pavillon des Nuages Pourpres et s'envola dans sa direction.
 
-« Puisque l'Omniscient m'a assigné au Pavillon des Nuages Pourpres, il a dû prévoir tout cela. Dans ce cas, je vais tout bouleverser et faire savoir aux gens de la Division Pourpre que moi, Wang Lin, je ne suis pas quelqu'un que l'on peut bousculer! »
+« Puisque Tian Yunzi m'a assigné au Pavillon des Nuages Pourpres, il a dû prévoir tout cela. Dans ce cas, je vais tout bouleverser et faire savoir aux gens de la Division Pourpre que moi, Wang Lin, je ne suis pas quelqu'un que l'on peut bousculer! »
 
 Il arriva peu après devant le pavillon. La femme vêtue de pourpre était assise à l'intérieur du palais. Elle caressait la peinture des montagnes et des rivières, le regard perdu dans ses pensées passées. En remarquant l'arrivée de Wang Lin, elle fronça les sourcils, puis son corps disparut pour réapparaître à l'extérieur du pavillon. Alors qu'elle fixait Wang Lin qui approchait tel un arc-en-ciel dans les airs, elle lança d'une voix froide:
 

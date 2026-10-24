@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1022 - Break (1)
 slug: rupture-1
 ---
-L'Omniscient n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le jeune frère apprenti de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon d'innombrables kilomètres.
+Tian Yunzi n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le jeune frère apprenti de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon d'innombrables kilomètres.
 
 Même en étant très loin, on pouvait clairement distinguer cette lumière pourpre et verte.
 
@@ -240,9 +240,9 @@ Ling Tianhou fixa le ciel qui semblait avoir été déchiré par des mains invis
 
 La mer de flammes pénétrait les mondes telle une force irrésistible, écrasant toutes les frontières et tous les remparts. Cette puissance continuait de jaillir du point où se trouvait Wang Lin, et le fracas des royaumes se brisant dans la bouteille était apocalyptique!
 
-La silhouette de l'Omniscient apparut dans le ciel effondré. Il contempla, sans un mot, tout ce qui se déroulait devant lui. Au moment où la mer de flammes balaya la zone, il fit un pas de côté et la vague de feu passa juste à côté de lui.
+La silhouette de Tian Yunzi apparut dans le ciel effondré. Il contempla, sans un mot, tout ce qui se déroulait devant lui. Au moment où la mer de flammes balaya la zone, il fit un pas de côté et la vague de feu passa juste à côté de lui.
 
-Ling Tianhou, Situ Nan et l'Omniscient n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
+Ling Tianhou, Situ Nan et Tian Yunzi n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
 
 Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Da Tou, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître du Vide!
 

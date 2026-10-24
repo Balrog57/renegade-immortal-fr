@@ -28,9 +28,9 @@ Si cela s'était arrêté là, cela n'aurait pas été un problème, mais Wang L
 
 « Il y avait aussi les perles que Cang Songzi avait lancées. Chacune d'entre elles pouvait invoquer un sort dans ce Royaume aux Sept Couleurs. Elles sont très étranges. Même le Doigt du Destin Céleste est apparu à partir de l'une d'elles... » Tout en endurant la douleur, Wang Lin commença à réfléchir.
 
-Il repensa au moment où l'âme de bataille de l'Omniscient était apparue et regarda le ciel avec confusion.
+Il repensa au moment où l'âme de bataille de Tian Yunzi était apparue et regarda le ciel avec confusion.
 
-« Cet endroit doit être lié à l'Omniscient... »
+« Cet endroit doit être lié à Tian Yunzi... »
 
 Après avoir réfléchi un instant, une lueur de froideur passa dans les yeux de Wang Lin.
 

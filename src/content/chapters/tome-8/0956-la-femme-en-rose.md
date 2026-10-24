@@ -54,9 +54,9 @@ En marchant, Wang Lin pénétra à nouveau dans la sphère d'influence de la pla
 
 Wang Lin progressait lentement, plongé dans ses pensées.
 
-« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire de Xue Zu, le complot de l'Omniscient et diverses autres causes m'ont contraint à partir. À l'époque, ma culture était trop faible et je n'avais aucun pouvoir pour résister; je n'avais aucune chance contre l'Omniscient... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils!
+« Ils veulent tous ce jeton de la grotte céleste. Le jeton, l'affaire de Xue Zu, le complot de Tian Yunzi et diverses autres causes m'ont contraint à partir. À l'époque, ma culture était trop faible et je n'avais aucun pouvoir pour résister; je n'avais aucune chance contre Tian Yunzi... Même si je ne peux toujours pas me mesurer à lui, il ne lui sera pas aussi facile de me tuer! » Wang Lin toucha l'espace entre ses sourcils. Son véritable atout n'était ni son trésor magique, ni ses sorts, mais le troisième œil situé entre ses sourcils!
 
-« Après avoir examiné le second Parchemin de Bataille, j'ai acquis une nouvelle parcelle d'énergie originelle... C'est là mon véritable sort de sauvetage! Après tout, l'Omniscient et moi ne nous sommes pas encore ouvertement affrontés. Je reste un disciple de l'Omniscient. De plus, ce qui est plus important, c'est que celui qui ressemblait à Huanglong a dit que j'appartenais à la planète Suzaku. Un disciple de la branche de l'Oiseau Vermillon des Quatre Sectes Divines... C'est là une chose qui mérite réflexion... » Wang Lin esquissa un sourire narquois, sans lever la main droite, et toucha la zone entre ses sourcils d'un seul doigt.
+« Après avoir examiné le second Parchemin de Bataille, j'ai acquis une nouvelle parcelle d'énergie originelle... C'est là mon véritable sort de sauvetage! Après tout, Tian Yunzi et moi ne nous sommes pas encore ouvertement affrontés. Je reste un disciple de Tian Yunzi. De plus, ce qui est plus important, c'est que celui qui ressemblait à Huanglong a dit que j'appartenais à la planète Suzaku. Un disciple de la branche de l'Oiseau Vermillon des Quatre Sectes Divines... C'est là une chose qui mérite réflexion... » Wang Lin esquissa un sourire narquois, sans lever la main droite, et toucha la zone entre ses sourcils d'un seul doigt.
 
 Le troisième œil apparut instantanément, avant d'être remplacé par les cinq étoiles du Dieu Ancien. Bientôt, une perle surgit, puis tout disparut, ne laissant qu'une marque rouge dégageant une légère chaleur.
 
@@ -92,22 +92,22 @@ Le troisième vieil homme, vêtu d'une robe jaune, était aussi maigre qu'un cad
 
 La dernière personne était une femme d'âge mûr, à l'allure encore assez jeune. Elle ne portait pas de parures; ses vêtements étaient très ordinaires, comme ceux d'une simple villageoise parmi les mortels. Cependant, elle dégageait une aura transcendante. Derrière elle se trouvaient quatre femmes dont la beauté était sans égale! C'était particulièrement frappant pour la femme à gauche, vêtue d'une robe rose, qui était absolument éblouissante. Elles attiraient les regards de la majorité des disciples de la Secte de l'Épée Da Luo, mais les quatre femmes n'y prêtaient aucune attention et regardaient calmement devant elles.
 
-Ling Tianhou déclara: « Omniscient, autrefois votre disciple Wang Lin a pris le jeton, et vous avez alors annoncé qu'un mystère des cieux serait révélé aujourd'hui. Ce vieil homme veut voir ce que vous appelez votre mystère des cieux! »
+Ling Tianhou déclara: « Tian Yunzi, autrefois votre disciple Wang Lin a pris le jeton, et vous avez alors annoncé qu'un mystère des cieux serait révélé aujourd'hui. Ce vieil homme veut voir ce que vous appelez votre mystère des cieux! »
 
-À l'époque, tous ces vieux monstres avaient envoyé Tan Lang pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Tan Lang avaient disparu. La grotte céleste de l'Abîme des Marées étant d'une importance capitale, les vieux monstres étaient venus chercher l'Omniscient, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
+À l'époque, tous ces vieux monstres avaient envoyé Tan Lang pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Tan Lang avaient disparu. La grotte céleste de l'Abîme des Marées étant d'une importance capitale, les vieux monstres étaient venus chercher Tian Yunzi, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
 
-À ce moment-là, l'Omniscient avait gardé une expression sereine et n'avait prononcé qu'une seule phrase:
+À ce moment-là, Tian Yunzi avait gardé une expression sereine et n'avait prononcé qu'une seule phrase:
 
 « Lorsque la lumière verte et pourpre emplira le ciel, vous pourrez tous venir à ma Secte du Destin Céleste et contempler le mystère des cieux! »
 
 Tôt ce matin, le ciel autrefois limpide au-dessus de la planète Tian Yun avait été soudainement enveloppé de vert et de pourpre. Ces couleurs étaient magnifiques et semblaient teinter la planète entière.
 
-Ling Tianhou s'était alors immédiatement précipité ici avec ses disciples. Simultanément, plusieurs vieux monstres informés de l'événement avaient foncé vers la Secte du Destin Céleste. Après tout, les capacités de divination de l'Omniscient étaient célèbres dans toute l'Alliance!
+Ling Tianhou s'était alors immédiatement précipité ici avec ses disciples. Simultanément, plusieurs vieux monstres informés de l'événement avaient foncé vers la Secte du Destin Céleste. Après tout, les capacités de divination de Tian Yunzi étaient célèbres dans toute l'Alliance!
 
-L'Omniscient, vêtu de blanc, se tenait calmement dans les airs. À ses côtés, les disciples de la Secte du Destin Céleste scrutaient le ciel d'un regard froid. Pourtant, ce qui captivait davantage leur attention, c'étaient les quatre belles femmes.
+Tian Yunzi, vêtu de blanc, se tenait calmement dans les airs. À ses côtés, les disciples de la Secte du Destin Céleste scrutaient le ciel d'un regard froid. Pourtant, ce qui captivait davantage leur attention, c'étaient les quatre belles femmes.
 
-« Il est là! » L'expression de l'Omniscient était apaisée et il esquissa un sourire serein. Son regard se posa sur l'horizon.
+« Il est là! » L'expression de Tian Yunzi était apaisée et il esquissa un sourire serein. Son regard se posa sur l'horizon.
 
-Dès que l'Omniscient eut fini de parler, Ling Tianhou, les trois autres vieux monstres puissants et la femme magnifique remarquèrent immédiatement quelque chose. À cet instant, tous les regards des cultivateurs convergèrent vers l'horizon. Les quatre femmes derrière la femme d'âge mûr ne cillèrent même pas et fixèrent intensément le point de mire.
+Dès que Tian Yunzi eut fini de parler, Ling Tianhou, les trois autres vieux monstres puissants et la femme magnifique remarquèrent immédiatement quelque chose. À cet instant, tous les regards des cultivateurs convergèrent vers l'horizon. Les quatre femmes derrière la femme d'âge mûr ne cillèrent même pas et fixèrent intensément le point de mire.
 
 « Je me demande à quoi ressemble Wang Lin, celui dont la renommée a retenti dans l'Abîme des Marées et attiré l'attention de tous les grands cultivateurs de la planète Tian Yun... » Les yeux de la femme en robe rose étaient empreints de curiosité.

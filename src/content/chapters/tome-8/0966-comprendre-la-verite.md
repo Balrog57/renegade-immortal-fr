@@ -44,13 +44,13 @@ Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans s
 
 « La marque étrange formée par le flux d'énergie Yin ne se révèle normalement pas. Cependant, lorsque Bai Wei a prononcé "méthode du Double Désir Céleste", elle est apparue. Bai Wei voulait me rappeler quelque chose! »
 
-« Combiné à ce qu'il a dit sur les changements de climat, cela signifie que la personne dont il avait peur était l'Omniscient. La personne qui l'a rendu ainsi était probablement aussi l'Omniscient! »
+« Combiné à ce qu'il a dit sur les changements de climat, cela signifie que la personne dont il avait peur était Tian Yunzi. La personne qui l'a rendu ainsi était probablement aussi Tian Yunzi! »
 
 « C'est la véritable raison pour laquelle il m'a demandé de quitter la Secte du Destin Céleste! » Wang Lin se leva soudainement, joignit les mains en signe de respect envers les trois frères Chen et déclara: « Trois compagnons cultivateurs, j'ai une affaire urgente à régler, je ne vous dérangerai plus! » Après avoir parlé, il attrapa Xu Liguo et le jeta dans son sac. Puis, d'un pas, il disparut.
 
 Les trois frères Chen restèrent profondément perplexes. Après avoir réfléchi un instant, ils ne purent en trouver la raison.
 
-En un seul pas, Wang Lin était déjà apparu devant la chambre de Bai Wei. Il ne souhaitait pas connaître les secrets de l'Omniscient, mais il devait rester constamment sur ses gardes. Ce n'est qu'en comprenant l'Omniscient qu'il pourrait se protéger.
+En un seul pas, Wang Lin était déjà apparu devant la chambre de Bai Wei. Il ne souhaitait pas connaître les secrets de Tian Yunzi, mais il devait rester constamment sur ses gardes. Ce n'est qu'en comprenant Tian Yunzi qu'il pourrait se protéger.
 
 Par conséquent, Wang Lin voulait savoir exactement ce qui arrivait à Bai Wei!
 

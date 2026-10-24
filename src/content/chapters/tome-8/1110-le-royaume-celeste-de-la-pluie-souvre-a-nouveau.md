@@ -130,4 +130,4 @@ Au même instant, sur une planète isolée et abandonnée de la région nord de 
 
 À cet instant, une bourrasque de vent balaya les cheveux désordonnés du vieil homme, révélant son identité...
 
-L'Omniscient!
+Tian Yunzi!

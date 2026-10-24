@@ -104,10 +104,10 @@ Ling Tianhou ouvrit brusquement les yeux, révélant une stupeur totale!
 
 « Le cri de l'Oiseau Vermillon! »
 
-L'Omniscient flottait dans les airs, vêtu de blanc. Il regarda le ciel et se lança dans une divination. Ses yeux devinrent de plus en plus brillants et un sourire apparut sur son visage alors qu'il murmurait: « Alors, c'est donc ainsi... »
+Tian Yunzi flottait dans les airs, vêtu de blanc. Il regarda le ciel et se lança dans une divination. Ses yeux devinrent de plus en plus brillants et un sourire apparut sur son visage alors qu'il murmurait: « Alors, c'est donc ainsi... »
 
 Cependant, avant qu'il ne puisse achever sa phrase, le cri de l'Oiseau Vermillon retentit violemment.
 
-Ce cri soudain fit instantanément voler en éclats les calculs de l'Omniscient. Le royaume où il se trouvait trembla et le ciel changea brusquement de visage. Fait rarissime, l'expression de l'Omniscient changea!
+Ce cri soudain fit instantanément voler en éclats les calculs de Tian Yunzi. Le royaume où il se trouvait trembla et le ciel changea brusquement de visage. Fait rarissime, l'expression de Tian Yunzi changea!
 
 « Impossible! »

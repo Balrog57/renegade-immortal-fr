@@ -18,7 +18,7 @@ Les huit commandants en chef avaient tous porté leur attention sur Wang Lin. L'
 
 Chen Tao, debout aux côtés de Shi Xiao, ne quittait pas Wang Lin des yeux. Ce jeune frère subalterne était bien différent de celui qu'il avait connu; il était devenu bien plus puissant, au point d'en être terrifiant!
 
-L'élimination d'Ao Di n'était qu'un détail secondaire. Ce qui choquait le plus Chen Tao, c'était la paume que Wang Lin avait projetée contre la lance dorée. Chen Tao savait parfaitement ce qu'était cette lance. Il avait entendu l'Omniscient dire autrefois qu'il existait un sort capable de récolter la puissance du soleil pour la condenser en liquide. L'Omniscient avait beaucoup loué ce sort.
+L'élimination d'Ao Di n'était qu'un détail secondaire. Ce qui choquait le plus Chen Tao, c'était la paume que Wang Lin avait projetée contre la lance dorée. Chen Tao savait parfaitement ce qu'était cette lance. Il avait entendu Tian Yunzi dire autrefois qu'il existait un sort capable de récolter la puissance du soleil pour la condenser en liquide. Tian Yunzi avait beaucoup loué ce sort.
 
 Bien que l'homme à l'armure dorée n'ait pas encore atteint le niveau de culture nécessaire pour transformer l'énergie solaire en liquide, cette attaque contenait véritablement la puissance du soleil!
 

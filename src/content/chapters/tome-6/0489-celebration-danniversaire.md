@@ -33,15 +33,15 @@ Tous les jades célestes entourant Wang Lin commencèrent à se désagréger de 
 
 Une fois l'énergie entrée dans son corps, les yeux de Wang Lin s'illuminèrent et il concentra toute sa volonté sur sa culture.
 
-Trois mois passèrent en un clin d'œil. C'était le jour d'une grande célébration qui ne se produisait que tous les 10 000 ans sur la planète Tian Yun: le jubilé des dix mille ans de l'Omniscient.
+Trois mois passèrent en un clin d'œil. C'était le jour d'une grande célébration qui ne se produisait que tous les 10 000 ans sur la planète Tian Yun: le jubilé des dix mille ans de Tian Yunzi.
 
-L'Omniscient célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités; même l'Alliance de Culture envoyait un représentant lui offrir des présents.
+Tian Yunzi célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités; même l'Alliance de Culture envoyait un représentant lui offrir des présents.
 
-Même pour une planète de culture de rang 7, rares étaient celles qui y parvenaient; seul l'Omniscient en était capable!
+Même pour une planète de culture de rang 7, rares étaient celles qui y parvenaient; seul Tian Yunzi en était capable!
 
 Un mois auparavant, la formation défensive de brume violette avait été transformée en une ceinture pourpre entourant la planète, et d'innombrables disciples de la Secte Céleste avaient été dépêchés pour accueillir les invités. Outre les étrangers, de nombreux natifs de la planète Tian Yun arrivèrent également, chargés de cadeaux.
 
-Une foule immense provenant des cinq planètes mineures gravitant autour de Tian Yun vint aussi célébrer l'anniversaire de l'Omniscient. Même les vieux monstres qui contrôlaient eux-mêmes les planètes extérieures se rendirent sur la planète Tian Yun. On pouvait dire que personne sur la planète n'ignorait cet événement. Durant le mois précédant la fête, une multitude de logements furent construits pour les convives.
+Une foule immense provenant des cinq planètes mineures gravitant autour de Tian Yun vint aussi célébrer l'anniversaire de Tian Yunzi. Même les vieux monstres qui contrôlaient eux-mêmes les planètes extérieures se rendirent sur la planète Tian Yun. On pouvait dire que personne sur la planète n'ignorait cet événement. Durant le mois précédant la fête, une multitude de logements furent construits pour les convives.
 
 Tous les disciples des sept divisions de la Secte du Destin Céleste étaient extrêmement occupés. Avec une telle concentration de membres d'autres sectes et d'étrangers, les échanges et les conversations étaient inévitables. Personne présent ici n'était faible; échanger avec autrui était donc pour eux une opportunité très bénéfique.
 
@@ -77,11 +77,11 @@ Sous la guidance de Zhao Xingsha, le gigantesque char doré vola lentement vers 
 
 La zone des sept divisions de la Secte du Destin Céleste et ses environs immédiats, s'étendant sur des dizaines de milliers de kilomètres, étaient totalement occupés par des lofts luxueux. Ces édifices avaient tous été érigés en quelques mois grâce à la magie, dans le seul but d'offrir un lieu de repos aux invités.
 
-Si l'on regardait la Secte du Destin Céleste d'en haut à ce moment-là, on verrait une montagne au centre. Cette montagne abritait la section principale de la Secte, et autour d'elle gravitaient sept étoiles de couleurs différentes représentant les sept divisions. Au-delà de cela s'étendait une mer infinie de lofts qui semblait ne jamais finir. Chaque fois que l'Omniscient célébrait son anniversaire, le nombre de participants était inimaginable.
+Si l'on regardait la Secte du Destin Céleste d'en haut à ce moment-là, on verrait une montagne au centre. Cette montagne abritait la section principale de la Secte, et autour d'elle gravitaient sept étoiles de couleurs différentes représentant les sept divisions. Au-delà de cela s'étendait une mer infinie de lofts qui semblait ne jamais finir. Chaque fois que Tian Yunzi célébrait son anniversaire, le nombre de participants était inimaginable.
 
 Toutefois, en fin de compte, le nombre de personnes autorisées à pénétrer dans la section principale de la Secte n'excédait jamais cent; parfois, il ne s'agissait que de quelques dizaines d'individus.
 
-Les arrivées se poursuivirent jusqu'à ce que le jour de l'anniversaire de l'Omniscient arrive enfin!
+Les arrivées se poursuivirent jusqu'à ce que le jour de l'anniversaire de Tian Yunzi arrive enfin!
 
 Ce jour-là, le ciel était sans nuages, d'un bleu serein, et une brise légère portait le parfum des fleurs. Au total, huit lieux accueillaient la célébration. Une fête se déroulait dans chacune des sept divisions. En plus de ces sept célébrations, la dernière avait lieu dans la section principale, là où se tenait la cérémonie majeure. Quiconque pouvait être présent ici n'était aucun homme ordinaire.
 

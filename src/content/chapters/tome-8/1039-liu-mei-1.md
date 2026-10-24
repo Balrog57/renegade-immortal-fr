@@ -52,7 +52,7 @@ Tout ce qui l'entourait était Loi, et ces lignes colorées étaient la manifest
 
 Alors qu'il continuait sa progression, Wang Lin sembla se transformer en une brise légère, balayant la Terre des Esprits Démoniaques. Puis, il chargea droit vers le ciel, enveloppé par le pouvoir mystérieux de la Perle Défiant le Ciel.
 
-Un autre coup de tonnerre résonna dans son esprit alors qu'il transperçait la Terre des Esprits Démoniaques grâce à l'aide de la perle. C'était un exploit que d'innombrables cultivateurs, même des êtres comme l'Omniscient, ne pouvaient accomplir par la force.
+Un autre coup de tonnerre résonna dans son esprit alors qu'il transperçait la Terre des Esprits Démoniaques grâce à l'aide de la perle. C'était un exploit que d'innombrables cultivateurs, même des êtres comme Tian Yunzi, ne pouvaient accomplir par la force.
 
 C'était comme si rien ne pouvait entraver son esprit et la Perle Défiant le Ciel, et rien n'osait s'y opposer!
 

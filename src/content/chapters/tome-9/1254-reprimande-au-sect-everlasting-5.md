@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1254 - Rebuking the Everlasting Secte (5)
 slug: reprimande-au-sect-everlasting-5
 ---
-Le Doigt Céleste n'utilisait pas d'énergie spirituelle céleste, car ce sortilège n'était pas de nature céleste. C'était une technique que Wang Lin pouvait utiliser lorsqu'il fusionnait avec l'âme de l'Omniscient pendant un instant.
+Le Doigt Céleste n'utilisait pas d'énergie spirituelle céleste, car ce sortilège n'était pas de nature céleste. C'était une technique que Wang Lin pouvait utiliser lorsqu'il fusionnait avec l'âme de Tian Yunzi pendant un instant.
 
-Ce qu'il consommait, c'était l'âme de l'Omniscient et, plus encore, l'énergie originelle de Wang Lin. S'il n'en avait pas été pour l'augmentation de son niveau de culture, il n'aurait pas pu l'utiliser si aisément.
+Ce qu'il consommait, c'était l'âme de Tian Yunzi et, plus encore, l'énergie originelle de Wang Lin. S'il n'en avait pas été pour l'augmentation de son niveau de culture, il n'aurait pas pu l'utiliser si aisément.
 
-Cependant, la puissance de ce Doigt du Destin Céleste était bien inférieure à celle utilisée par l'Omniscient. Après tout, un gouffre immense les séparait en termes de culture, et la méthode d'exécution du sortilège était radicalement différente.
+Cependant, la puissance de ce Doigt du Destin Céleste était bien inférieure à celle utilisée par Tian Yunzi. Après tout, un gouffre immense les séparait en termes de culture, et la méthode d'exécution du sortilège était radicalement différente.
 
 Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer l'assistance. Bien qu'encore blessé, il devait démontrer que ses sorts étaient puissants et imprévisibles. Ce n'était qu'à ce prix qu'il pourrait atteindre ses objectifs au sein de la Secte Éternelle.
 

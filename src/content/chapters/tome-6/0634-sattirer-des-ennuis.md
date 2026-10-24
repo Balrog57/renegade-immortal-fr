@@ -74,7 +74,7 @@ Dès que Du Jian aperçut la lumière, ses yeux brillèrent et il s'immobilisa i
 
 Wang Lin observa la scène avec froideur et remarqua immédiatement que la femme à l'apparence fragile, Xu Fei, ne regardait pas la crevasse, mais l'arbre ancien si discret. Un éclair de froideur presque imperceptible traversa ses yeux.
 
-Du Jian prit une profonde inspiration en contemplant l'épée dans la faille et dit d'un ton solennel: « Je connais cette épée; elle appartient à mon Maître, l'Omniscient. Maître avait distribué sept épées au total, une pour chacun de ses sept véritables disciples, en guise de trésors magiques. Cependant, au fil des éons, trois d'entre elles ont disparu avec leurs propriétaires. »
+Du Jian prit une profonde inspiration en contemplant l'épée dans la faille et dit d'un ton solennel: « Je connais cette épée; elle appartient à mon Maître, Tian Yunzi. Maître avait distribué sept épées au total, une pour chacun de ses sept véritables disciples, en guise de trésors magiques. Cependant, au fil des éons, trois d'entre elles ont disparu avec leurs propriétaires. »
 
 Il se tourna alors vers Wang Lin, le visage empreint d'hésitation: « Jeune Frère Wang, vous avez dû entendre parler de Sun Yun, n'est-ce pas? »
 
@@ -94,7 +94,7 @@ Wang Lin regarda calmement Du Jian. L'expression de ce dernier ne trahissait rie
 
 « Je vous en remercie alors », répondit Wang Lin avec un soudain sourire. Il observait Du Jian comme on observe un enfant tentant une farce; cet homme le prenait donc réellement pour un bambin de trois ans.
 
-En voyant le sourire de Wang Lin, Du Jian sentit soudain un pressentiment funeste. Il avait bel et bien sous-estimé Wang Lin. Dans son esprit, à moins que ce ploutre venu d'une planète presque abandonnée ne jouisse d'une chance prodigieuse, comment aurait-il pu être accepté comme disciple par l'Omniscient?
+En voyant le sourire de Wang Lin, Du Jian sentit soudain un pressentiment funeste. Il avait bel et bien sous-estimé Wang Lin. Dans son esprit, à moins que ce ploutre venu d'une planète presque abandonnée ne jouisse d'une chance prodigieuse, comment aurait-il pu être accepté comme disciple par Tian Yunzi?
 
 Il était déjà venu seul dans ce lieu autrefois, mais il n'était pas descendu personnellement. Il avait plutôt contrôlé une marionnette imprégnée d'une fraction de son Sens Divin. Cette marionnette avait été attaquée par cet arbre ancien, et la scène l'avait si terrifié qu'il n'avait plus osé revenir dans la Mer des Nuages pendant une très longue période.
 
@@ -116,7 +116,7 @@ Un éclat de froideur traversa les yeux de Wang Lin. Il provoquait rarement autr
 
 Faisant un pas en avant, Wang Lin tendit sa main droite et projeta une bourrasque de vent droit sur Du Jian. Le visage de ce dernier changea radicalement alors qu'il reculait précipitamment en criant: « Que signifie cela, Wang Lin?! »
 
-Toutefois, dans cet espace étroit, il fut très difficile pour lui d'esquiver compte tenu de son niveau de culture. Même s'il avait tenté une téléportation, il n'aurait pu échapper au sort de Wang Lin, imprégné de son Dao. Bien que ce ne fût pas suffisant pour tuer Du Jian, qui possédait le trésor salvateur de l'Omniscient, cela le projeta droit vers l'arbre ancien.
+Toutefois, dans cet espace étroit, il fut très difficile pour lui d'esquiver compte tenu de son niveau de culture. Même s'il avait tenté une téléportation, il n'aurait pu échapper au sort de Wang Lin, imprégné de son Dao. Bien que ce ne fût pas suffisant pour tuer Du Jian, qui possédait le trésor salvateur de Tian Yunzi, cela le projeta droit vers l'arbre ancien.
 
 À cet instant précis, un bourdonnement strident s'échappa de l'arbre. Puis, l'arbre ancien s'effondra en une multitude d'insectes de la taille d'un doigt qui se précipitèrent hors de là comme un nuage dense.
 

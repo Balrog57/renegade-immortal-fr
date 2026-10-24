@@ -92,7 +92,7 @@ Sur la table entre lui et l'homme en gris se trouvait un plateau de jeu. Les pi�
 
 L'homme en robe grise leva les yeux et sourit: « Je le suis, tout comme vous. »
 
-« L'Omniscient est l'esprit du trésor, et j'y ai laissé un fragment de mon Sens Divin. C'était l'Omniscient aux robes grises que vous avez vu. » L'homme ressemblait trait pour trait à l'Omniscient. Cependant, l'aura qu'il dégageait était différente. Comme il l'avait affirmé, il était l'Omniscient en gris.
+« Tian Yunzi est l'esprit du trésor, et j'y ai laissé un fragment de mon Sens Divin. C'était Tian Yunzi aux robes grises que vous avez vu. » L'homme ressemblait trait pour trait à Tian Yunzi. Cependant, l'aura qu'il dégageait était différente. Comme il l'avait affirmé, il était Tian Yunzi en gris.
 
 « Tout comme le Royaume aux Sept Couleurs fut originellement créé par votre avatar, puis découvert et utilisé par l'esprit du trésor. J'étais très curieux, mais je vois maintenant que la réincarnation est une chose si simple pour vous.
 

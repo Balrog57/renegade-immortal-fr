@@ -114,7 +114,7 @@ Ce rocher était creux, et un vieil homme vêtu de blanc y était assis. Ce viei
 
 « Wang Lin a enfin atteint la troisième étape... Le plan que ce vieil homme mijote depuis des dizaines de milliers d'années est sur le point de commencer... Ce vieil homme a attendu cela très, très longtemps... Mon élève, ne déçois pas ton maître... » Le vieil homme en blanc sourit. Il était extrêmement calme, comme si tout se déroulait exactement comme il l'avait prédit.
 
-Il était l'Omniscient, qui avait disparu depuis de nombreuses années!
+Il était Tian Yunzi, qui avait disparu depuis de nombreuses années!
 
 Dans le Vide Brillant, Wang Lin se trouvait au cœur des nuages infinis, là où seul celui qui subit la rétribution divine peut se trouver. Sa robe blanche flottait et son regard était serein. Les mains derrière le dos, il leva les yeux vers le ciel.
 

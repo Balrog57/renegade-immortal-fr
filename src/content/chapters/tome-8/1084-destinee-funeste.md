@@ -16,27 +16,27 @@ La peur envahit le regard de l'Ancien Démon Ta Jia. D'autres ignoraient peut-ê
 
 « Ceci... ceci est le trésor du Dao céleste primordial! » haleta l'Ancien Démon. L'ombre démoniaque au-dessus de lui gronda, incapable d'entraver la lame. L'épée fendit l'ombre en deux et fondit sur Ta Jia.
 
-À cet instant précis, l'Omniscient afficha un regard résolu. D'un revers de manche, il enveloppa son corps d'une lumière aux sept couleurs. Il prit une profonde inspiration avant de pointer le ciel et de hurler: « Sept couleurs de la destinée céleste, mandat du Ciel... rouge! »
+À cet instant précis, Tian Yunzi afficha un regard résolu. D'un revers de manche, il enveloppa son corps d'une lumière aux sept couleurs. Il prit une profonde inspiration avant de pointer le ciel et de hurler: « Sept couleurs de la destinée céleste, mandat du Ciel... rouge! »
 
 À peine eut-il parlé que son corps trembla; la lumière rouge se détacha de l'aura multicolore pour foncer vers la longue épée qui s'abattait sur l'Ancien Démon Ta Jia.
 
 « Orange! » La lumière orange se sépara des six autres couleurs restantes.
 
-L'Omniscient criait le nom de chaque couleur, et les sept teintes se détachèrent une à une. Elles fusionnèrent pour s'élancer en un rayon arc-en-ciel.
+Tian Yunzi criait le nom de chaque couleur, et les sept teintes se détachèrent une à une. Elles fusionnèrent pour s'élancer en un rayon arc-en-ciel.
 
-« Sept lumières, ne faites qu'une pour former le diagramme de la destinée céleste! » Les cheveux noirs de l'Omniscient s'agitèrent sans qu'aucun vent ne soufflât. Sur ce dernier rugissement, la lumière aux sept couleurs tourna brusquement, formant un vortex multicolore.
+« Sept lumières, ne faites qu'une pour former le diagramme de la destinée céleste! » Les cheveux noirs de Tian Yunzi s'agitèrent sans qu'aucun vent ne soufflât. Sur ce dernier rugissement, la lumière aux sept couleurs tourna brusquement, formant un vortex multicolore.
 
-Trois fragments d'écorce apparurent au sein du vortex. L'Omniscient les saisit et les projeta en avant. Les trois coquilles de bois entrèrent en collision et tombèrent pour former un diagramme. L'Omniscient fixa la formation tandis que ses mains traçaient un sceau, puis il pointa le doigt.
+Trois fragments d'écorce apparurent au sein du vortex. Tian Yunzi les saisit et les projeta en avant. Les trois coquilles de bois entrèrent en collision et tombèrent pour former un diagramme. Tian Yunzi fixa la formation tandis que ses mains traçaient un sceau, puis il pointa le doigt.
 
 « Emprunter la destinée pour engendrer le Dao! » Aussitôt qu'il eut prononcé ces mots, une aura indescriptible émana des trois fragments de bois. À l'instant même où cette aura apparut, la longue épée rouge marqua un temps d'arrêt.
 
 C'était comme si une puissance s'apprêtait à s'éveiller au cœur des bois pour jaillir avec fracas. Lorsque cette puissance se propagea, la stupeur fut générale!
 
-Le vieil homme du Vide Brillant plissa les yeux, observant l'Omniscient avec une lueur mystérieuse.
+Le vieil homme du Vide Brillant plissa les yeux, observant Tian Yunzi avec une lueur mystérieuse.
 
-« Le Dao de cet Omniscient... Il ne s'agit donc pas de la destinée céleste; il emprunte la destinée céleste pour forger sa propre mer du Dao. Cet homme a réellement réussi à cultiver le Dao selon ce principe et à bâtir un tel domaine. Il a presque entrevu le Dao... »
+« Le Dao de cet Tian Yunzi... Il ne s'agit donc pas de la destinée céleste; il emprunte la destinée céleste pour forger sa propre mer du Dao. Cet homme a réellement réussi à cultiver le Dao selon ce principe et à bâtir un tel domaine. Il a presque entrevu le Dao... »
 
-Même l'Ancien Démon Ta Jia sembla percevoir un indice et laissa échapper un halètement. Ses yeux étaient empreints de choc alors qu'il fixait l'Omniscient.
+Même l'Ancien Démon Ta Jia sembla percevoir un indice et laissa échapper un halètement. Ses yeux étaient empreints de choc alors qu'il fixait Tian Yunzi.
 
 Wang Lin contemplait l'aura émanant des trois fragments de bois. Il se souvenait parfaitement de cette sensation. Dans son sac, il possédait des cristaux extraits de la blessure à la tête de l'Ancien Dieu à huit étoiles, dans l'abîme d'enterrement des immortels de sa demeure. L'aura de ces cristaux était rigoureusement identique à celle des morceaux de bois!
 
@@ -52,7 +52,7 @@ Rumble, rumble, rumble!
 
 Un vacarme assourdissant fut suivi d'une puissante onde de choc. Les trois morceaux de bois s'effondrèrent instantanément, et le vortex aux sept couleurs qui les soutenait fut lui aussi déchiré.
 
-L'Omniscient cracha une bouchée de sang et recula frénétiquement.
+Tian Yunzi cracha une bouchée de sang et recula frénétiquement.
 
 La longue épée, brisant tous les obstacles sur sa course, vint frapper le front de Ta Jia. À cet instant, une brume noire et dense se concentra entre les sourcils du démon, et son véritable esprit d'Ancien Démon apparut. Il jaillit de l'espace entre ses sourcils avec l'intention même de renverser le ciel.
 
@@ -66,23 +66,23 @@ Le corps de l'Ancien Démon Ta Jia trembla et s'effondra brutalement au sol.
 
 L'âme originelle de l'Empereur Divin de l'Oiseau Vermillon devint floue. Il n'était présent qu'avec son âme originelle, et l'activation du Trésor Sacré avait consumé une immense quantité d'énergie originelle. S'il n'avait utilisé que le premier ou le deuxième style, le coût aurait été minime, mais il était le seul capable de déclencher le troisième. Le prix à payer était cependant colossal, même pour lui.
 
-Son corps se fit encore plus translucide, mais il fit un geste de la main. La longue épée rouge s'élança, poursuivant l'Omniscient en pleine retraite.
+Son corps se fit encore plus translucide, mais il fit un geste de la main. La longue épée rouge s'élança, poursuivant Tian Yunzi en pleine retraite.
 
-En un éclair, l'épée se rapprocha et fendit la tête de l'Omniscient!
+En un éclair, l'épée se rapprocha et fendit la tête de Tian Yunzi!
 
 À la suite de cette attaque, la Lance du Dragon Azure, la Lame du Tigre Blanc et la Hache de la Tortue Noire apparurent toutes!
 
 Il était évident que l'Empereur Divin de l'Oiseau Vermillon avait une intention meurtrière!
 
-Le visage de l'Omniscient devint féroce et sa tête se redressa brusquement. En ce moment de crise absolue, sa main droite atteignit la zone entre ses sourcils et arracha le troisième sceau à moitié!
+Le visage de Tian Yunzi devint féroce et sa tête se redressa brusquement. En ce moment de crise absolue, sa main droite atteignit la zone entre ses sourcils et arracha le troisième sceau à moitié!
 
 Bien que le sceau n'ait été que partiellement rompu, une aura inimaginable, dix fois plus puissante, explosa pour repousser l'assaut des Quatre Trésors Sacrés.
 
-Des grondements de tonnerre résonnèrent et une onde de choc se propagea. L'Omniscient cracha du sang tout en continuant sa fuite. En un clin d'œil, il ouvrit un interstice spatial et disparut.
+Des grondements de tonnerre résonnèrent et une onde de choc se propagea. Tian Yunzi cracha du sang tout en continuant sa fuite. En un clin d'œil, il ouvrit un interstice spatial et disparut.
 
 La longue épée rouge resta suspendue, immobile, dans les airs.
 
-L'Empereur Divin de l'Oiseau Vermillon médita silencieusement tandis que son corps devenait de plus en plus transparent. En regardant la direction de la fuite de l'Omniscient, il secoua la tête: « Je vieillis... Si j'avais été dans la force de l'âge, cet Omniscient n'aurait pas pu échapper au deuxième style des Quatre Trésors Sacrés... »
+L'Empereur Divin de l'Oiseau Vermillon médita silencieusement tandis que son corps devenait de plus en plus transparent. En regardant la direction de la fuite de Tian Yunzi, il secoua la tête: « Je vieillis... Si j'avais été dans la force de l'âge, cet Tian Yunzi n'aurait pas pu échapper au deuxième style des Quatre Trésors Sacrés... »
 
 Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Vide Brillant, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de ma Secte des Quatre Divinités? »
 

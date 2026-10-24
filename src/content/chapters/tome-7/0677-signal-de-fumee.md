@@ -68,7 +68,7 @@ Tandis que le dragon argenté fendait les étoiles, Wang Lin restait assis sur s
 
 L'expression de Wang Lin se détendit alors qu'il poursuivait sa réflexion.
 
-« Ce Serpent aux yeux de lune prend la forme d'une planète; une fois réveillé, je me demande quelle puissance il déploiera... Je crains que même Ling Tianhou, l'Omniscient et les autres ne s'enfuient de terreur! Malheureusement, il n'écoutera personne hormis son maître. Même si mon corps originel était présent, cela serait inutile. »
+« Ce Serpent aux yeux de lune prend la forme d'une planète; une fois réveillé, je me demande quelle puissance il déploiera... Je crains que même Ling Tianhou, Tian Yunzi et les autres ne s'enfuient de terreur! Malheureusement, il n'écoutera personne hormis son maître. Même si mon corps originel était présent, cela serait inutile. »
 
 « À moins que... si je parvenais à le contrôler et à le ramener vers le Système Stellaire de l'Alliance, ne serait-ce pas un événement prodigieux? »
 

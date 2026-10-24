@@ -1,9 +1,9 @@
 ---
 n: 1716
-title: "Un nouveau plan contre l'Omniscient!"
+title: "Un nouveau plan contre Tian Yunzi!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: "Chapter 1716 - Scheme Again Omniscient!"
+en: "Chapter 1716 - Scheme Again Tian Yunzi!"
 slug: un-nouveau-plan-contre-lomniscient
 ---
 Aux abords de la fissure spatiale dans la Mer des Nuages, une multitude de bêtes féroces s'étaient rassemblées. Toutes gardaient le visage crispé d'effroi : elles n'avaient pas oublié la tempête de restrictions qui les avait expulsées de la faille quelques mois auparavant.
@@ -116,12 +116,12 @@ Cela exigerait du temps, et malgré son impatience, il n'y avait pas de raccourc
 
 Même s'il ne pouvait l'arracher, il devait identifier la source de cette épine et comprendre comment elle pourrait être fatale!
 
-Cette épine était l'Omniscient!
+Cette épine était Tian Yunzi!
 
-Ce n'était pas la première fois que Wang Lin complotait contre l'Omniscient, mais c'était la première fois qu'il s'apprêtait à trancher cet enchevêtrement de mille ans!
+Ce n'était pas la première fois que Wang Lin complotait contre Tian Yunzi, mais c'était la première fois qu'il s'apprêtait à trancher cet enchevêtrement de mille ans!
 
-« Omniscient, où te caches-tu... » Wang Lin était assis devant sa demeure quand ses yeux s'illuminèrent. Il ferma les paupières et s'immergea dans le fragment de l'âme de l'Omniscient qu'il avait conservé jusqu'à présent.
+« Tian Yunzi, où te caches-tu... » Wang Lin était assis devant sa demeure quand ses yeux s'illuminèrent. Il ferma les paupières et s'immergea dans le fragment de l'âme de Tian Yunzi qu'il avait conservé jusqu'à présent.
 
-Il allait utiliser cette âme pour localiser le corps originel de l'Omniscient et l'exterminer!
+Il allait utiliser cette âme pour localiser le corps originel de Tian Yunzi et l'exterminer!
 
-Tant que l'Omniscient ne serait pas éliminé, Wang Lin ne pourrait connaître la paix. Cet homme était la plus grande variable, après la troisième âme!
+Tant que Tian Yunzi ne serait pas éliminé, Wang Lin ne pourrait connaître la paix. Cet homme était la plus grande variable, après la troisième âme!

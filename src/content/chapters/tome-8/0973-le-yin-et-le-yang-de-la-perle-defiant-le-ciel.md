@@ -10,7 +10,7 @@ Alors que l'énergie de massacre se répandait, certains filaments s'attaquèren
 
 Wang Lin continuait de reculer tandis que des bruits de chocs résonnaient à ses oreilles. Chaque impact était un brin d'énergie de massacre percutant le fragment du Royaume Céleste.
 
-« Tant de filaments de massacre, et pourtant cet Omniscient à la Robe Grise ne se donne manifestement pas à fond! » Les yeux de Wang Lin s'illuminèrent. Il cherchait désespérément comment briser ce piège!
+« Tant de filaments de massacre, et pourtant cet Tian Yunzi à la Robe Grise ne se donne manifestement pas à fond! » Les yeux de Wang Lin s'illuminèrent. Il cherchait désespérément comment briser ce piège!
 
 « Quand j'ai absorbé cette parcelle d'Yang extrême, la perle défiant le ciel a tremblé... » Le regard de Wang Lin brilla tandis que des milliers d'idées traversaient son esprit.
 
@@ -20,15 +20,15 @@ Wang Lin continuait de reculer tandis que des bruits de chocs résonnaient à se
 
 Cependant, malgré tous ses efforts, aucune modification n'était apparue sur les marques du soleil et de la lune de la perle défiant le ciel.
 
-« Quelles que soient les intentions de l'Omniscient, il ne peut pas prévoir que je possède la perle défiant le ciel! Et encore moins que je puisse l'utiliser pour absorber cet Yang extrême! »
+« Quelles que soient les intentions de Tian Yunzi, il ne peut pas prévoir que je possède la perle défiant le ciel! Et encore moins que je puisse l'utiliser pour absorber cet Yang extrême! »
 
-« Par conséquent, ses calculs seront erronés et je pourrai briser son stratagème! » Les yeux de Wang Lin étaient froids alors qu'il fixait l'Omniscient à la Robe Grise. Plus il y réfléchissait, plus cela semblait réalisable.
+« Par conséquent, ses calculs seront erronés et je pourrai briser son stratagème! » Les yeux de Wang Lin étaient froids alors qu'il fixait Tian Yunzi à la Robe Grise. Plus il y réfléchissait, plus cela semblait réalisable.
 
-« Quant à la possibilité que la perle soit découverte... Depuis que je l'ai obtenue, même ce mystérieux cultivateur de la troisième étape de Luotian n'a pu la détecter. Je ne crois pas que l'Omniscient puisse y parvenir! »
+« Quant à la possibilité que la perle soit découverte... Depuis que je l'ai obtenue, même ce mystérieux cultivateur de la troisième étape de Luotian n'a pu la détecter. Je ne crois pas que Tian Yunzi puisse y parvenir! »
 
-Quant à Ling Tianhou, son expression était sombre. La raison pour laquelle il était venu ici n'était pas d'aider Wang Lin, mais simplement parce qu'il aimait semer le trouble dans tout ce que l'Omniscient entreprenait.
+Quant à Ling Tianhou, son expression était sombre. La raison pour laquelle il était venu ici n'était pas d'aider Wang Lin, mais simplement parce qu'il aimait semer le trouble dans tout ce que Tian Yunzi entreprenait.
 
-De plus, avec sa connaissance de l'Omniscient, il devinait vaguement l'importance de Wang Lin. Plus l'Omniscient accordait de poids à cet enjeu, plus il était enclin à vouloir tout gâcher.
+De plus, avec sa connaissance de Tian Yunzi, il devinait vaguement l'importance de Wang Lin. Plus Tian Yunzi accordait de poids à cet enjeu, plus il était enclin à vouloir tout gâcher.
 
 « Tu crois vraiment que je te crains?! » Ling Tianhou ricana tandis qu'il formait un sceau de la main droite. Il pointa le doigt et cria: « Troisième style de Brisure, l'Enfant-Épée sacrifie son esprit! »
 
@@ -50,19 +50,19 @@ Alors que les impacts se succédaient, les filaments d'énergie de massacre se d
 
 Un vortex d'énergie d'épée se forma autour de Ling Tianhou. Le bourdonnement des lames remplaça tous les autres sons du monde.
 
-L'Omniscient à la Robe Grise resta indifférent face à cette déferlante. Il regarda calmement Ling Tianhou, leva sa main droite et dit froidement: « Votre énergie d'épée a augmenté. Si vous pouvez encaisser ma prochaine attaque, je ne me mêlerai plus de l'affaire entre vous et l'Omniscient. » Sur ces mots, il forma un sceau et pointa Ling Tianhou.
+Tian Yunzi à la Robe Grise resta indifférent face à cette déferlante. Il regarda calmement Ling Tianhou, leva sa main droite et dit froidement: « Votre énergie d'épée a augmenté. Si vous pouvez encaisser ma prochaine attaque, je ne me mêlerai plus de l'affaire entre vous et Tian Yunzi. » Sur ces mots, il forma un sceau et pointa Ling Tianhou.
 
 Dès qu'il pointa le doigt, le ciel entier devint noir, comme si un géant y avait renversé de l'encre. Les ténèbres bouillonnèrent et le monde entier fut plongé dans l'obscurité!
 
-« Puisque tu es devenu un saint par les épées, alors je te combattrai avec une épée! Massacre, transforme-toi en lame! » La voix de l'Omniscient à la Robe Grise était monocorde, mais au moment où son doigt se posa, d'innombrables filaments d'énergie de massacre convergèrent vers lui avec frénésie.
+« Puisque tu es devenu un saint par les épées, alors je te combattrai avec une épée! Massacre, transforme-toi en lame! » La voix de Tian Yunzi à la Robe Grise était monocorde, mais au moment où son doigt se posa, d'innombrables filaments d'énergie de massacre convergèrent vers lui avec frénésie.
 
 Chaque filament d'énergie de massacre représentait une vie. Les innombrables parcelles de massacre se rassemblèrent comme une myriade de serpents parcourant le ciel et la terre, et cette scène fit suffoquer Wang Lin.
 
-Les brins d'énergie de massacre qui l'entouraient abandonnèrent leur poursuite pour reculer. Ils se regroupèrent là où l'Omniscient pointait son doigt.
+Les brins d'énergie de massacre qui l'entouraient abandonnèrent leur poursuite pour reculer. Ils se regroupèrent là où Tian Yunzi pointait son doigt.
 
-En un instant, alors que les filaments fusionnaient, une épée rouge de 2,31 mètres de long et 9,9 centimètres de large apparut devant l'Omniscient!
+En un instant, alors que les filaments fusionnaient, une épée rouge de 2,31 mètres de long et 9,9 centimètres de large apparut devant Tian Yunzi!
 
-L'épée dégageait des volutes de fumée. L'Omniscient agita nonchalamment la main et l'arme laissa échapper un chant d'épée qui fit trembler les cieux. L'épée se changea en une ligne rouge et fonça vers l'Épée Céleste Serpentiforme de Ling Tianhou.
+L'épée dégageait des volutes de fumée. Tian Yunzi agita nonchalamment la main et l'arme laissa échapper un chant d'épée qui fit trembler les cieux. L'épée se changea en une ligne rouge et fonça vers l'Épée Céleste Serpentiforme de Ling Tianhou.
 
 Les deux épées accéléraient sans cesse, et le bang sonique provoqué par leur course se propagea sur toute la planète. En un instant, elles entrèrent en collision.
 
@@ -70,11 +70,11 @@ Pourtant, les deux épées ne se touchèrent pas réellement; elles restèrent �
 
 De vastes éclairs se dispersèrent dans toutes les directions.
 
-Une puissance colossale était concentrée dans cet espace de 23,1 centimètres. L'Omniscient hocha la tête et dit lentement: « Pas mal, votre culture a considérablement progressé... Cependant, si c'est là tout ce que vous avez à offrir aujourd'hui, je vous expulserai de la planète Tian Yun. »
+Une puissance colossale était concentrée dans cet espace de 23,1 centimètres. Tian Yunzi hocha la tête et dit lentement: « Pas mal, votre culture a considérablement progressé... Cependant, si c'est là tout ce que vous avez à offrir aujourd'hui, je vous expulserai de la planète Tian Yun. »
 
 Ling Tianhou ricana en agitant sa manche, les bras grands ouverts. Il cria: « Moi, Ling Tianhou, je ne cultive que le Dao des épées! Ces dernières années, j'ai atteint l'éveil dans la loi de l'épée. Robe Grise, j'ignore pourquoi tu acceptes d'être manipulé par lui, mais ton apparition ici signifie que tu as renoncé à notre amitié passée! »
 
-L'Omniscient à la Robe Grise garda le silence.
+Tian Yunzi à la Robe Grise garda le silence.
 
 Ling Tianhou prit une profonde inspiration et agita les mains. Une fissure apparut entre ses sourcils d'où jaillit un rayon de lumière noire. Cette lumière enveloppa immédiatement Ling Tianhou, rendant sa silhouette invisible peu de temps après.
 
@@ -94,9 +94,9 @@ L'Épée Céleste Serpentiforme semblait douée d'intelligence; elle brilla d'un
 
 Au moment où l'ombre s'élança, une déchirure fendit le ciel.
 
-L'indifférence de l'Omniscient vacilla pour la première fois. Ses yeux brillèrent intensément alors qu'il fixait l'ombre de l'épée en riant: « Bien. Ling Tianhou, puisque tu as réussi à affiner une épée à ce degré, j'utiliserai 70 % de ma puissance pour lutter contre toi! »
+L'indifférence de Tian Yunzi vacilla pour la première fois. Ses yeux brillèrent intensément alors qu'il fixait l'ombre de l'épée en riant: « Bien. Ling Tianhou, puisque tu as réussi à affiner une épée à ce degré, j'utiliserai 70 % de ma puissance pour lutter contre toi! »
 
-Une fois ses paroles achevées, l'Omniscient fit un pas en arrière et laissa échapper un rugissement. Son visage devint extrêmement féroce et d'innombrables filaments d'énergie de massacre jaillirent de son corps. Cette énergie l'enveloppa avant de charger avec fracas.
+Une fois ses paroles achevées, Tian Yunzi fit un pas en arrière et laissa échapper un rugissement. Son visage devint extrêmement féroce et d'innombrables filaments d'énergie de massacre jaillirent de son corps. Cette énergie l'enveloppa avant de charger avec fracas.
 
 Elle fusionna avec l'épée de massacre, augmentant considérablement sa puissance!
 
@@ -114,12 +114,12 @@ Alors que les affrontements se succédaient, une tempête puissante se forma dan
 
 Quant à l'Épée Céleste Serpentiforme, une fissure apparut en son centre et elle fut projetée en arrière.
 
-L'énergie de massacre ne dura que trois respirations avant de s'effondrer et de se transformer en d'innombrables filaments de massacre qui se dispersèrent. L'Omniscient à la Robe Grise éclata d'un long rire, puis se retourna pour charger à nouveau vers la planète Tian Yun.
+L'énergie de massacre ne dura que trois respirations avant de s'effondrer et de se transformer en d'innombrables filaments de massacre qui se dispersèrent. Tian Yunzi à la Robe Grise éclata d'un long rire, puis se retourna pour charger à nouveau vers la planète Tian Yun.
 
 « Ling Tianhou, ce vieil homme ne se soucie plus de tes affaires. »
 
-Alors que l'Épée Céleste Serpentiforme reculait, une ombre émergea de la fissure et se mua en Ling Tianhou. Il fixa le ciel et ricana: « Vieil Omniscient, te voilà enfin sorti! »
+Alors que l'Épée Céleste Serpentiforme reculait, une ombre émergea de la fissure et se mua en Ling Tianhou. Il fixa le ciel et ricana: « Vieil Tian Yunzi, te voilà enfin sorti! »
 
-Un éclat de lumière aux sept couleurs jaillit là où Ling Tianhou regardait, et la silhouette de l'Omniscient se condensa faiblement. Cette figure n'était qu'une illusion formée par la lumière multicolore. Une fois apparu, il regarda Ling Tianhou et dit calmement:
+Un éclat de lumière aux sept couleurs jaillit là où Ling Tianhou regardait, et la silhouette de Tian Yunzi se condensa faiblement. Cette figure n'était qu'une illusion formée par la lumière multicolore. Une fois apparu, il regarda Ling Tianhou et dit calmement:
 
 « Ling Tianhou, nous avons déjà combattu, mais tu n'as aucune raison de t'immiscer dans les affaires de ma Secte du Destin Céleste. »

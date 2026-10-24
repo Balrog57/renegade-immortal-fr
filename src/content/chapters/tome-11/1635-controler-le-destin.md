@@ -102,12 +102,12 @@ Il trouva également Hongdie, Mu Bingmei, Xizi Feng; il retrouva tous ces visage
 
 Il y avait aussi Li Qianmei.
 
-Cependant, alors qu'il poursuivait sa quête, il ne put trouver Qing Shui ni Situ Nan, et il tenta même de retrouver son maître disparu, l'Omniscient. Pourtant, en fin de compte, c'était comme si leurs destins s'étaient volatilisés.
+Cependant, alors qu'il poursuivait sa quête, il ne put trouver Qing Shui ni Situ Nan, et il tenta même de retrouver son maître disparu, Tian Yunzi. Pourtant, en fin de compte, c'était comme si leurs destins s'étaient volatilisés.
 
 Wang Lin ne put pas non plus trouver une autre personne cruciale. Cette personne était sa compagne et, aux côtés de ses parents, elle était aussi importante que sa propre vie.
 
 Cette femme s'appelait Li Muwan.
 
-Peu importe l'ardeur de ses recherches, Wang Lin ne parvint pas à trouver l'aura du destin de Li Muwan. C'était comme si elle s'était évaporée dans le néant. Pourtant, cela différait de Qing Shui, Situ Nan ou de l'Omniscient: leurs destins semblaient n'avoir jamais existé au sein du neuvième soleil.
+Peu importe l'ardeur de ses recherches, Wang Lin ne parvint pas à trouver l'aura du destin de Li Muwan. C'était comme si elle s'était évaporée dans le néant. Pourtant, cela différait de Qing Shui, Situ Nan ou de Tian Yunzi: leurs destins semblaient n'avoir jamais existé au sein du neuvième soleil.
 
 Il y avait une trace de l'existence du destin de Li Muwan, mais il semblait que quelqu'un l'avait devancé d'un pas...

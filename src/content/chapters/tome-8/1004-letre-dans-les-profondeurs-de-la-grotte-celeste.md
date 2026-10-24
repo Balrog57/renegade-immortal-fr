@@ -56,7 +56,7 @@ Tout en déduisant, il leva les pieds et fit dix pas supplémentaires!
 
 Les restrictions de la zone s'activèrent immédiatement, comme une pierre jetée dans un lac, déclenchant une réaction en chaîne. La puissance émanant de ces ondulations choqua même Maître Fu Fengzi!
 
-« Les restrictions célestes sont véritablement complexes! Je me demande comment l'Omniscient et Ling Tianhou ont brisé les restrictions de leur grotte. » Les yeux de Wang Lin s'illuminèrent. Il ne s'arrêta pas et continua d'avancer.
+« Les restrictions célestes sont véritablement complexes! Je me demande comment Tian Yunzi et Ling Tianhou ont brisé les restrictions de leur grotte. » Les yeux de Wang Lin s'illuminèrent. Il ne s'arrêta pas et continua d'avancer.
 
 Du sable apparut dans la zone, comme si elle s'était transformée en désert, recouvrant tout l'espace. Le sable et la pierre formèrent une tempête rugissante qui fonça droit sur Wang Lin.
 

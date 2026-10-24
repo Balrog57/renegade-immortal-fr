@@ -98,7 +98,7 @@ Ses cheveux pâles flottaient au-dessus d'une armure noir pourpre. Dès que les 
 
 Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Lame Sauvage, n'est plus qu'un démon dispersé raffiné par l'Ancien Diable. Pitoyable! »
 
-L'Omniscient, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
+Tian Yunzi, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
 
 Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Blaireau Marqué d'Étoiles.
 
@@ -110,7 +110,7 @@ Dès son apparition, il remarqua immédiatement que tous les regards se braquaie
 
 L'expression du Maître du Vide était neutre, mais en voyant Wang Lin, son cœur fut envahi par une intention meurtrière. Ling Tianhou affichait une expression complexe; plus il interagissait avec Wang Lin, plus il sentait qu'il ne pouvait le sous-estimer.
 
-Le sourcil de l'Omniscient se fronça légèrement avant de se détendre.
+Le sourcil de Tian Yunzi se fronça légèrement avant de se détendre.
 
 Quant aux autres, leurs expressions étaient diverses. Qu'il s'agisse de la belle femme d'âge moyen avec ses quatre disciples ou de l'homme en noir, tous portaient des regards différents sur Wang Lin.
 

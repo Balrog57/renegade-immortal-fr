@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1727 - Blocked!"
 slug: bloque
 ---
-Après avoir dévoré l'Omniscient, la Bête des Limbes était devenue le Dao Céleste. Si elle ne souhaitait pas que d'autres détectent son aura, il serait extrêmement difficile de la trouver.
+Après avoir dévoré Tian Yunzi, la Bête des Limbes était devenue le Dao Céleste. Si elle ne souhaitait pas que d'autres détectent son aura, il serait extrêmement difficile de la trouver.
 
 Si elle se trouvait à l'extérieur du monde caverneux, le Dao Céleste présenterait certaines failles, mais à l'intérieur du monde caverneux, il était absolu!
 
@@ -16,7 +16,7 @@ Quant aux quatre généraux, ils ne l'avaient pas non plus perçue.
 
 Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer des Nuages, mais ils ne pouvaient pas voir la Bête des Limbes. Ils n'avaient même pas remarqué Wang Lin, assis sur le dos de la créature.
 
-C'est ainsi que l'Omniscient avait pu demeurer dans la Rivière Invoquée pendant des centaines d'années sans jamais être détecté.
+C'est ainsi que Tian Yunzi avait pu demeurer dans la Rivière Invoquée pendant des centaines d'années sans jamais être détecté.
 
 Le corps original de Wang Lin était assis sur le dos de la Bête des Limbes, tandis que son avatar, placé face à lui, condensait ses essences. Les ondulations qui se propageaient à travers la Mer des Nuages ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
 
@@ -34,7 +34,7 @@ Après cela, les essences de mise à mort et de restriction furent rappelées et
 
 À mesure que ses essences se mettaient en mouvement, son âme originale émergea lentement de celles-ci. Cela permit à Wang Lin de retrouver progressivement l'état dans lequel il se trouvait avant l'effondrement de son avatar.
 
-La seule différence était qu'il n'y avait plus d'âme d'avatar de l'Omniscient.
+La seule différence était qu'il n'y avait plus d'âme d'avatar de Tian Yunzi.
 
 Dès que l'avatar de Wang Lin fut totalement rétabli, son corps original ouvrit les yeux et regarda son avatar. Après un instant, l'avatar et le corps original fusionnèrent pour ne former qu'un seul être.
 
@@ -42,13 +42,13 @@ Les yeux de Wang Lin brillèrent et il bougea son corps. Constatant qu'il n'épr
 
 « Puisque je suis qualifié pour prétendre à la suprématie, je dois faire un voyage vers la planète des Cinq Éléments! Trop de secrets s'y cachent, et la dernière force du monde caverneux y est dissimulée! »
 
-« Cette force cherche clairement à tirer profit de la situation à la fin, tout comme l'Omniscient... Puisque vous aimez tous vous cacher dans l'ombre, alors je vais vous forcer à sortir au grand jour et vous faire comprendre que ce monde caverneux n'appartient à aucun d'entre vous, étrangers! »
+« Cette force cherche clairement à tirer profit de la situation à la fin, tout comme Tian Yunzi... Puisque vous aimez tous vous cacher dans l'ombre, alors je vais vous forcer à sortir au grand jour et vous faire comprendre que ce monde caverneux n'appartient à aucun d'entre vous, étrangers! »
 
 « Une fois la dernière force cachée révélée, la compétition pour la troisième âme pourra officiellement commencer! »
 
-Du point de vue de Wang Lin, l'Omniscient était un clou qu'il fallait arracher; sinon, il y aurait trop d'imprévus à l'avenir. L'un d'eux pourrait s'avérer fatal.
+Du point de vue de Wang Lin, Tian Yunzi était un clou qu'il fallait arracher; sinon, il y aurait trop d'imprévus à l'avenir. L'un d'eux pourrait s'avérer fatal.
 
-C'était la vérité. Maintenant que l'Omniscient avait été détruit par Wang Lin, il ne restait plus qu'un second clou: les êtres célestes de la Secte Gui Yi, venus du Continent Astral Immortel.
+C'était la vérité. Maintenant que Tian Yunzi avait été détruit par Wang Lin, il ne restait plus qu'un second clou: les êtres célestes de la Secte Gui Yi, venus du Continent Astral Immortel.
 
 Ces intrus étaient le deuxième clou! Il allait les exposer à la lumière!
 

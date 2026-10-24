@@ -10,7 +10,7 @@ slug: le-dao
 
 Son regard était calme, mais une lueur mystérieuse traversait ses yeux.
 
-Les trois épreuves de la Secte du Destin Céleste furent créées par l'Omniscient lui-même. Il avait déchiré le vide pour créer un espace spécial où se dérouleraient ces trois épreuves.
+Les trois épreuves de la Secte du Destin Céleste furent créées par Tian Yunzi lui-même. Il avait déchiré le vide pour créer un espace spécial où se dérouleraient ces trois épreuves.
 
 Seul celui qui réussissait les trois épreuves pouvait prétendre devenir disciple de la Secte du Destin Céleste. C'était une règle gravée dans le marbre, que nul ne pouvait changer.
 
@@ -120,7 +120,7 @@ Le garçon baissa les yeux sur la sculpture qu'il n'avait toujours pas réussi �
 
 Au plus profond de la Secte du Destin Céleste.
 
-L'Omniscient, les yeux clos, cultivait au centre d'un autel noir. Il ouvrit soudainement les yeux, afficha un sourire satisfait et dit: « Cet enfant est excellent! »
+Tian Yunzi, les yeux clos, cultivait au centre d'un autel noir. Il ouvrit soudainement les yeux, afficha un sourire satisfait et dit: « Cet enfant est excellent! »
 
 Dix jours plus tard, dans le paradis de l'épreuve Humaine, une silhouette sortit. Au premier pas, il était encore un enfant; au deuxième, un adolescent; et au troisième, il devint un jeune homme!
 

@@ -12,13 +12,13 @@ Cependant, à cet instant précis, un rayon de lumière violette jaillit soudain
 
 Les disciples des six autres divisions scrutèrent la lueur au loin. Un bon nombre d'entre eux affichèrent une expression étrange en la voyant.
 
-L'expression de l'Omniscient resta immuable. Il ne daigna même pas regarder la lumière violette; les mains derrière le dos, son visage demeurait serein.
+L'expression de Tian Yunzi resta immuable. Il ne daigna même pas regarder la lumière violette; les mains derrière le dos, son visage demeurait serein.
 
 Le rayon violet fondit sur eux et s'arrêta à environ 330 mètres de distance, révélant un homme d'âge mûr. Ce dernier avait les tempes blanchies et le visage émacié; il ressemblait à une longue épée acérée dégageant une aura glaciale.
 
 Cette aura était très similaire à celle des disciples du Saint de l'Épée, Ling Tianhou.
 
-Il portait une robe violette dont la coupe était presque identique à celles de Wang Lin et de Bai Wei. Debout, il joignit les mains en signe de respect envers l'Omniscient et déclara: « Le disciple Chen Tao salue Maître! »
+Il portait une robe violette dont la coupe était presque identique à celles de Wang Lin et de Bai Wei. Debout, il joignit les mains en signe de respect envers Tian Yunzi et déclara: « Le disciple Chen Tao salue Maître! »
 
 « C'est lui! » Les yeux de Bai Wei devinrent graves.
 
@@ -32,11 +32,11 @@ Une expression complexe traversa le regard de la quatrième sœur, Zhao Xinmeng,
 
 Des murmures parcoururent les rangs des disciples des six autres divisions.
 
-Le regard de l'Omniscient se posa sur Chen Tao. Il afficha une lueur d'admiration et dit: « Tu as réussi à revenir. Très bien! »
+Le regard de Tian Yunzi se posa sur Chen Tao. Il afficha une lueur d'admiration et dit: « Tu as réussi à revenir. Très bien! »
 
 Chen Tao, le visage couvert de poussière, répondit: « Le disciple ne devait pas être en retard, mais en passant par la planète Encre Noire, j'y ai découvert un trésor rare. Je voulais l'offrir à Maître en guise de présent, ce qui a causé mon retard. »
 
-L'Omniscient rit et demanda: « Quel genre de trésor a attiré ton attention? »
+Tian Yunzi rit et demanda: « Quel genre de trésor a attiré ton attention? »
 
 Le visage de Chen Tao resta calme tandis qu'il tapotait son sac de rangement; un objet apparut alors dans sa main.
 
@@ -44,15 +44,15 @@ Il s'agissait d'une fleur aux six couleurs. La fleur elle-même était blanche, 
 
 Ces six teintes disparates ne dénaturaient pas la fleur blanche; au contraire, elles lui conféraient une aura surnaturelle.
 
-Chen Tao tendit la fleur vers l'Omniscient et dit respectueusement: « C'est à cause de cette fleur mystérieuse! Les connaissances du disciple sont insuffisantes pour identifier sa véritable nature. Cependant, sur la planète Encre Noire, trois bêtes désolées de haut rang se disputaient ce trésor. Le disciple a dû déployer bien des efforts pour s'en emparer. »
+Chen Tao tendit la fleur vers Tian Yunzi et dit respectueusement: « C'est à cause de cette fleur mystérieuse! Les connaissances du disciple sont insuffisantes pour identifier sa véritable nature. Cependant, sur la planète Encre Noire, trois bêtes désolées de haut rang se disputaient ce trésor. Le disciple a dû déployer bien des efforts pour s'en emparer. »
 
-La fleur vola lentement vers l'Omniscient et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit: « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle émette de la lumière et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
+La fleur vola lentement vers Tian Yunzi et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit: « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle émette de la lumière et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
 
-« Les bêtes en sont folles, et si l'une d'elles l'engloutit au moment où elle libère cette lumière, elle en tirera un immense profit. C'est un trésor céleste. Je crois qu'elle est classée 93e par l'Alliance de Culture. Ancien Sun, ne me trompe-je pas? » L'Omniscient tourna son regard vers l'Ancien Sun.
+« Les bêtes en sont folles, et si l'une d'elles l'engloutit au moment où elle libère cette lumière, elle en tirera un immense profit. C'est un trésor céleste. Je crois qu'elle est classée 93e par l'Alliance de Culture. Ancien Sun, ne me trompe-je pas? » Tian Yunzi tourna son regard vers l'Ancien Sun.
 
-L'Ancien Sun esquissa un léger sourire et hocha la tête. « C'est exact. C'est bien le Glaçage aux Sept Couleurs, mais elle n'est pas encore complète; la dernière feuille ne s'est pas encore formée. Toutefois, avec les sorts de l'Omniscient, il ne faudra pas longtemps pour que sa septième feuille apparaisse également. »
+L'Ancien Sun esquissa un léger sourire et hocha la tête. « C'est exact. C'est bien le Glaçage aux Sept Couleurs, mais elle n'est pas encore complète; la dernière feuille ne s'est pas encore formée. Toutefois, avec les sorts de Tian Yunzi, il ne faudra pas longtemps pour que sa septième feuille apparaisse également. »
 
-L'Omniscient leva la main droite pour saisir la fleur, puis sourit: « Bien, je l'accepte! »
+Tian Yunzi leva la main droite pour saisir la fleur, puis sourit: « Bien, je l'accepte! »
 
 Les yeux de Chen Tao s'illuminèrent. Il tourna ensuite son regard vers les trois disciples de la Division Pourpre et dit calmement: « On dirait que ma Division Pourpre devient de plus en plus restreinte. Bai Wei, Zhao Xinmeng, comment allez-vous? »
 
@@ -72,11 +72,11 @@ Quant au stade exact de l'Ascendant, Wang Lin ne pouvait le déterminer.
 
 « Tu n'es pas digne d'être mon septième frère! Sun Yun est mon seul septième frère! » dit Chen Tao d'un ton égal, détournant les yeux de Wang Lin.
 
-L'Omniscient continuait d'observer ses disciples, souriant en silence.
+Tian Yunzi continuait d'observer ses disciples, souriant en silence.
 
-Chen Tao regarda l'Omniscient avec respect et déclara avec détermination: « Maître, si je suis revenu aujourd'hui, c'est pour réclamer mon titre de disciple véritable. J'espère que Maître l'acceptera! »
+Chen Tao regarda Tian Yunzi avec respect et déclara avec détermination: « Maître, si je suis revenu aujourd'hui, c'est pour réclamer mon titre de disciple véritable. J'espère que Maître l'acceptera! »
 
-L'Omniscient eut un léger sourire et répondit: « Actuellement, au sein de la Division Pourpre, toi et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
+Tian Yunzi eut un léger sourire et répondit: « Actuellement, au sein de la Division Pourpre, toi et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
 
 Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plusieurs fois plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
 
@@ -118,7 +118,7 @@ Le vortex à neuf cycles fondit sur lui, mais lorsqu'il fut à 3,3 mètres de Wa
 
 Cette scène attira instantanément le regard de tous les cultivateurs présents.
 
-Une lueur d'admiration passa dans les yeux de l'Omniscient, qui hocha la tête.
+Une lueur d'admiration passa dans les yeux de Tian Yunzi, qui hocha la tête.
 
 Les yeux de Chen Tao s'illuminèrent; il ne sous-estimait plus Wang Lin.
 

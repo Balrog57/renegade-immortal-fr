@@ -80,7 +80,7 @@ Dès l'apparition de la lance, un profond sentiment de crise envahit le cœur de
 
 Les un million de sceaux de vie semblèrent être aspirés par le doigt de Wang Lin. L'énergie vitale fusionna si rapidement qu'il n'en resta plus qu'un seul filament!
 
-Même des êtres comme l'Omniscient auraient été stupéfaits par la quantité d'énergie de massacre contenue dans ce simple filet de gaz gris. À cet instant, cette énergie se concentra à l'extrémité du doigt de Wang Lin tandis qu'il avançait une fois de plus. Cette fois, il était parvenu à moins de 165 mètres du démon ancien!
+Même des êtres comme Tian Yunzi auraient été stupéfaits par la quantité d'énergie de massacre contenue dans ce simple filet de gaz gris. À cet instant, cette énergie se concentra à l'extrémité du doigt de Wang Lin tandis qu'il avançait une fois de plus. Cette fois, il était parvenu à moins de 165 mètres du démon ancien!
 
 Dès qu'il entra dans le périmètre des 165 mètres, ses yeux s'illuminèrent et il commença à réciter un sort extrêmement complexe. Simultanément, sa main gauche forma un sceau — un sceau qui lui avait été transmis par le Démon Ancien Bei Luo.
 

@@ -10,7 +10,7 @@ L'Alliance de Culture tout entière sembla trembler sous ce rugissement. Seul un
 
 À l'instant même où Nuit Brisée disparut et que Wang Lin réapparut dans la Terre des Esprits Démoniaques, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
 
-L'âme du Maître du Vide lors de son premier Fléau Céleste, l'avatar aux robes violettes de l'Omniscient, et l'avatar aux robes jaunes de l'Omniscient!
+L'âme du Maître du Vide lors de son premier Fléau Céleste, l'avatar aux robes violettes de Tian Yunzi, et l'avatar aux robes jaunes de Tian Yunzi!
 
 Inopinément, les deux avatars commencèrent à fusionner dans la 18e couche!
 
@@ -18,11 +18,11 @@ Le visage de Wang Lin était pâle, mais il se tenait d'une droiture absolue. À
 
 Tuer trois personnes et réduire une quatrième à un simple vestige de volonté n'était pas l'œuvre d'un homme ordinaire!
 
-Le visage livide de Wang Lin affichait une expression terrifiante alors qu'il lançait un regard glacial à l'Omniscient et à ses avatars. L'épée de sang était toujours plantée dans sa poitrine, emprisonnée dans sa chair. Le sang s'écoulait de la blessure, teintant ses vêtements d'un rouge vif.
+Le visage livide de Wang Lin affichait une expression terrifiante alors qu'il lançait un regard glacial à Tian Yunzi et à ses avatars. L'épée de sang était toujours plantée dans sa poitrine, emprisonnée dans sa chair. Le sang s'écoulait de la blessure, teintant ses vêtements d'un rouge vif.
 
-Les trois grands avatars de l'Omniscient étaient désespérés, mais Wang Lin l'était tout autant. S'il ne l'avait pas été, il serait déjà mort! Bien que Nuit Brisée n'ait consommé aucune énergie d'origine lors de son utilisation à l'aube, les ennemis auxquels Wang Lin faisait face étaient trop puissants. Malgré l'absence de dépense d'énergie d'origine, son âme originelle s'était considérablement affaiblie.
+Les trois grands avatars de Tian Yunzi étaient désespérés, mais Wang Lin l'était tout autant. S'il ne l'avait pas été, il serait déjà mort! Bien que Nuit Brisée n'ait consommé aucune énergie d'origine lors de son utilisation à l'aube, les ennemis auxquels Wang Lin faisait face étaient trop puissants. Malgré l'absence de dépense d'énergie d'origine, son âme originelle s'était considérablement affaiblie.
 
-À cet instant, l'aura qui émanait des paroles de Wang Lin était assez imposante pour réduire l'Omniscient au silence.
+À cet instant, l'aura qui émanait des paroles de Wang Lin était assez imposante pour réduire Tian Yunzi au silence.
 
 Le silence régnait tout autour, mais à ce moment précis, les cris de l'Oiseau Vermillon au-dessus devinrent encore plus intenses.
 
@@ -38,7 +38,7 @@ Dès l'apparition de cette tête, une pression inimaginable s'abattit sur les li
 
 Même les pupilles de Ling Tianhou se rétractèrent lorsqu'il leva la tête.
 
-L'expression de l'Omniscient devint plus sombre encore, empreinte d'une pointe d'amertume.
+L'expression de Tian Yunzi devint plus sombre encore, empreinte d'une pointe d'amertume.
 
 Le regard perçant de l'Oiseau Vermillon balaya le sol jusqu'à ce qu'il se pose sur Wang Lin, puis il poussa un autre cri. L'immense créature chargea hors des flammes. À mesure que son corps émergeait, les flammes environnantes se rétractaient rapidement.
 

@@ -102,9 +102,9 @@ Tout en réfléchissant, il retourna rapidement vers la Secte de l'Origine pour 
 
 Wang Lin avait le vague pressentiment que le malheur approchait. Cette sensation terrifiante ne cessait de croître. Même en tentant de cultiver, il ne parvenait pas à apaiser son esprit.
 
-« Vite, organisez les affaires de la Secte de l'Origine. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai! » Dès son retour, il donna ses ordres et se lança immédiatement en culture en ermitage. Son Sens Divin plongea dans son âme originelle pour fusionner rapidement avec l'âme de l'Omniscient.
+« Vite, organisez les affaires de la Secte de l'Origine. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai! » Dès son retour, il donna ses ordres et se lança immédiatement en culture en ermitage. Son Sens Divin plongea dans son âme originelle pour fusionner rapidement avec l'âme de Tian Yunzi.
 
-Cette fois, il ne fusionnait pas avec l'Omniscient pour combattre un ennemi, mais pour emprunter sa puissance afin de forcer la prédiction de l'inconnu!
+Cette fois, il ne fusionnait pas avec Tian Yunzi pour combattre un ennemi, mais pour emprunter sa puissance afin de forcer la prédiction de l'inconnu!
 
 Au même moment, dans la Secte Briseur de Ciel de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
 

@@ -106,9 +106,9 @@ Le temps s'écoulait lentement. En un clin d'œil, il ne restait plus que 12 heu
 
 Cependant, à cet instant précis, hormis Wang Lin, personne ne savait ce qui allait arriver. Même le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan n'en avaient pas le contrôle total.
 
-Il se pourrait qu'une seule autre personne pressente l'imminence du changement: l'Omniscient, assis sur ce rocher dans la Rivière Invoquée, là où Wang Lin ne l'avait pas détecté!
+Il se pourrait qu'une seule autre personne pressente l'imminence du changement: Tian Yunzi, assis sur ce rocher dans la Rivière Invoquée, là où Wang Lin ne l'avait pas détecté!
 
-Les yeux de l'Omniscient brillaient d'une lumière étrange tandis qu'il baissait la tête, ses mains s'agitant frénétiquement devant lui. Tandis qu'il divinait, son regard devenait de plus en plus intense et une expression d'exultation apparut sur son visage.
+Les yeux de Tian Yunzi brillaient d'une lumière étrange tandis qu'il baissait la tête, ses mains s'agitant frénétiquement devant lui. Tandis qu'il divinait, son regard devenait de plus en plus intense et une expression d'exultation apparut sur son visage.
 
 « C'est presque cela... Les 12 dernières heures... »
 

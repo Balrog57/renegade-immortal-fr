@@ -36,9 +36,9 @@ Il semblait avoir une fois de plus oublié le passage du temps, totalement immer
 
 Wang Lin savait que tout ce qu'il avait vu dans ce rêve était d'une valeur inestimable. C'était une opportunité céleste!
 
-Il ne pouvait en parler à personne, et il serait de toute façon incapable de l'expliquer clairement. En réalité, il craignait même d'en parler. Il avait le sentiment que l'Omniscient et ses compagnons seraient prêts à tout sacrifier pour une telle opportunité!
+Il ne pouvait en parler à personne, et il serait de toute façon incapable de l'expliquer clairement. En réalité, il craignait même d'en parler. Il avait le sentiment que Tian Yunzi et ses compagnons seraient prêts à tout sacrifier pour une telle opportunité!
 
-Même s'il fallait renoncer à la planète Tian Yun, ou abandonner tous leurs trésors magiques et leurs sorts. L'Omniscient et les siens n'hésiteraient pas un instant pour tenter de rechercher le Dao ainsi!
+Même s'il fallait renoncer à la planète Tian Yun, ou abandonner tous leurs trésors magiques et leurs sorts. Tian Yunzi et les siens n'hésiteraient pas un instant pour tenter de rechercher le Dao ainsi!
 
 Car cette quête du Dao permettrait d'entrevoir cette mystérieuse troisième étape qu'ils s'efforçaient de conquérir depuis des dizaines de milliers d'années et pour laquelle ils languissaient!
 

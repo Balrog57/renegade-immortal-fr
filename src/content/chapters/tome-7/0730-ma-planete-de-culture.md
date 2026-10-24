@@ -110,4 +110,4 @@ Dès ce jour, la planète Qing Ling avait un maître, et ce maître était Wang 
 
 Wang Lin était l'existence suprême de la planète Qing Ling! Il était comme Xue Zu, qui avait le droit de régenter la vie et la mort sur la planète Sanguine.
 
-Et comme l'identité suprême de l'Omniscient sur la planète Tian Yun.
+Et comme l'identité suprême de Tian Yunzi sur la planète Tian Yun.

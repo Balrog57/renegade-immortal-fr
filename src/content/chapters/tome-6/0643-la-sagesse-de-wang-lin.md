@@ -35,7 +35,7 @@ C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé
 
 Tan Lang observa les disciples de la Secte de l'Épée Da Luo et ricana intérieurement.
 
-« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Depuis mon arrivée dans la Terre des Esprits Démoniaques, je suis venu seul trois fois dans l'Abîme des Marées. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de l'Omniscient!
+« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Depuis mon arrivée dans la Terre des Esprits Démoniaques, je suis venu seul trois fois dans l'Abîme des Marées. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de Tian Yunzi!
 
 « Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Tan Lang balaya indistinctement les disciples de la Secte de l'Épée Da Luo, y compris Chen Long.
 

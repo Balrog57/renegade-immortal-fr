@@ -6,31 +6,31 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1072 - The Most Powerful Spell --- Sundered Night
 slug: le-sort-le-plus-puissant-nuit-brisee
 ---
-Pour la première fois, l'Omniscient fronça légèrement les sourcils. Tout ce qui s'était produit au sein de la Grotte de l'Empereur Céleste avait été intégré à ses calculs. Il savait également que si le voyage dans la grotte semblait simple, chaque étape recelait des plans laissés par l'Empereur Céleste Qing Lin. En s'y précipitant, l'Omniscient était devenu une pièce du jeu de l'Empereur Céleste. La seule pensée d'être indirectement en compétition avec l'Empereur Céleste Qing Lin faisait battre rapidement son cœur, d'ordinaire si imperturbable.
+Pour la première fois, Tian Yunzi fronça légèrement les sourcils. Tout ce qui s'était produit au sein de la Grotte de l'Empereur Céleste avait été intégré à ses calculs. Il savait également que si le voyage dans la grotte semblait simple, chaque étape recelait des plans laissés par l'Empereur Céleste Qing Lin. En s'y précipitant, Tian Yunzi était devenu une pièce du jeu de l'Empereur Céleste. La seule pensée d'être indirectement en compétition avec l'Empereur Céleste Qing Lin faisait battre rapidement son cœur, d'ordinaire si imperturbable.
 
-L'ancien Empereur Céleste était-il réellement infaillible, ou l'Omniscient était-il un cran au-dessus? Il n'avait pas la réponse, mais cette chance était extrêmement précieuse! Une fois qu'il aurait réussi, son cœur Dao progresserait par bonds prodigieux. La confiance en soi et l'élan de vaincre le plan de l'Empereur Céleste Qing Lin lui permettraient de guérir ses blessures passées et d'atteindre des sommets encore plus élevés!
+L'ancien Empereur Céleste était-il réellement infaillible, ou Tian Yunzi était-il un cran au-dessus? Il n'avait pas la réponse, mais cette chance était extrêmement précieuse! Une fois qu'il aurait réussi, son cœur Dao progresserait par bonds prodigieux. La confiance en soi et l'élan de vaincre le plan de l'Empereur Céleste Qing Lin lui permettraient de guérir ses blessures passées et d'atteindre des sommets encore plus élevés!
 
-Même en cas d'échec, cela resterait une fortune pour l'Omniscient. Il pourrait utiliser ce duel de calculs, qui s'étend sur d'innombrables années, pour comprendre tout ce dont il avait besoin!
+Même en cas d'échec, cela resterait une fortune pour Tian Yunzi. Il pourrait utiliser ce duel de calculs, qui s'étend sur d'innombrables années, pour comprendre tout ce dont il avait besoin!
 
 Pour saisir cette opportunité, il était prêt à payer n'importe quel prix. Peu importaient l'Ancien Démon Ta Jia ou l'Alliance de Culture! Même s'il devait provoquer une catastrophe, cela ne freinerait en rien la détermination de son cœur Dao!
 
 Tous les autres convoitaient le corps ou les sorts de l'Empereur Céleste Qing Lin. Certains cherchaient même à percer le secret de la troisième étape. D'autres le croiraient fou, mais ce qu'il désirait, c'était livrer à Qing Lin une guerre de prédictions!
 
-« Puisque tu voulais sceller l'ancien démon tout en ménageant de nombreux plans pour le jour où il s'emparerait de ton corps, je vais tout détruire. L'ancien démon n'est qu'un outil pour m'offrir un duel contre l'Empereur Céleste Qing Lin! » Personne ne pouvait deviner les pensées de l'Omniscient... Si quelqu'un le pouvait, c'était Ling Tianhou.
+« Puisque tu voulais sceller l'ancien démon tout en ménageant de nombreux plans pour le jour où il s'emparerait de ton corps, je vais tout détruire. L'ancien démon n'est qu'un outil pour m'offrir un duel contre l'Empereur Céleste Qing Lin! » Personne ne pouvait deviner les pensées de Tian Yunzi... Si quelqu'un le pouvait, c'était Ling Tianhou.
 
-Cependant, au sein de la Grotte de l'Empereur Céleste, le premier éveil de l'Oiseau Vermillon de Wang Lin était un événement imprévu pour l'Omniscient. Dès cet instant, il ressentit une certaine pression.
+Cependant, au sein de la Grotte de l'Empereur Céleste, le premier éveil de l'Oiseau Vermillon de Wang Lin était un événement imprévu pour Tian Yunzi. Dès cet instant, il ressentit une certaine pression.
 
 Dans son plan initial, l'Ancien Démon Ta Jia suivrait ses conseils et utiliserait une illusion pour tromper et chasser tout le monde. Ainsi, tous ceux qui entreraient deviendraient les instruments destinés à briser le plan que Qing Lin avait instauré au premier étage.
 
-Pourtant, l'Omniscient n'aurait jamais imaginé que ce maudit Wang Lin s'éveillerait une seconde fois! Au moment de ce second éveil, d'innombrables variables imprévisibles surgirent dans ses calculs.
+Pourtant, Tian Yunzi n'aurait jamais imaginé que ce maudit Wang Lin s'éveillerait une seconde fois! Au moment de ce second éveil, d'innombrables variables imprévisibles surgirent dans ses calculs.
 
-À cet instant, le bouleversement du ciel assombrit l'expression de l'Omniscient. Il prit une profonde inspiration, comprenant qu'il devait désormais agir personnellement.
+À cet instant, le bouleversement du ciel assombrit l'expression de Tian Yunzi. Il prit une profonde inspiration, comprenant qu'il devait désormais agir personnellement.
 
 Ses yeux se fermèrent soudainement et une lumière aux sept couleurs émana de son corps. Puis la couleur grise s'y ajouta, faisant apparaître huit couleurs au total!
 
-Ces huit couleurs vacillèrent, puis huit avatars distincts, vêtus de robes de couleurs différentes, en sortirent! L'Omniscient vêtu d'une robe grise était l'un d'eux.
+Ces huit couleurs vacillèrent, puis huit avatars distincts, vêtus de robes de couleurs différentes, en sortirent! Tian Yunzi vêtu d'une robe grise était l'un d'eux.
 
-Bien que les huit avatars de l'Omniscient se ressemblassent, chacun possédait une aura différente. Ils se dispersèrent immédiatement vers Wang Lin, le Couple Céleste Nuageux et les autres cultivateurs. Trois d'entre eux chargèrent vers la voûte céleste qui s'effondrait.
+Bien que les huit avatars de Tian Yunzi se ressemblassent, chacun possédait une aura différente. Ils se dispersèrent immédiatement vers Wang Lin, le Couple Céleste Nuageux et les autres cultivateurs. Trois d'entre eux chargèrent vers la voûte céleste qui s'effondrait.
 
 Simultanément, la Concubine Impériale Fleur fut entourée de lumière stellaire et, dans un fracas retentissant, cette lumière fut repoussée. Elle émergea de l'intérieur des neuf sphères. Bien qu'elles aient considérablement faibli, son expression demeurait sereine.
 
@@ -44,9 +44,9 @@ La Concubine Impériale Fleur esquissa un sourire. Dès que le changement survin
 
 Un grondement de tonnerre résonna et l'impact puissant la força à reculer. Une intention meurtrière traversa les yeux de Ta Jia avant qu'il ne charge la Concubine Impériale Fleur.
 
-Quant à Wang Lin, dès l'arrivée de l'avatar de l'Omniscient, il se retrouva dans une situation périlleuse, d'autant plus avec l'attaque déchaînée du Maître du Vide. Le glacier que Wang Wei avait placé ne tint pas; il s'effondra, et le Maître du Vide chargea Wang Lin comme un possédé.
+Quant à Wang Lin, dès l'arrivée de l'avatar de Tian Yunzi, il se retrouva dans une situation périlleuse, d'autant plus avec l'attaque déchaînée du Maître du Vide. Le glacier que Wang Wei avait placé ne tint pas; il s'effondra, et le Maître du Vide chargea Wang Lin comme un possédé.
 
-Il y avait aussi l'avatar de l'Omniscient. Celui vêtu de gris était le plus rapide, se rapprochant de Wang Lin avec une expression indifférente. Deux autres avatars de l'Omniscient suivaient de près l'avatar gris.
+Il y avait aussi l'avatar de Tian Yunzi. Celui vêtu de gris était le plus rapide, se rapprochant de Wang Lin avec une expression indifférente. Deux autres avatars de Tian Yunzi suivaient de près l'avatar gris.
 
 Ces quatre puissances possédaient des niveaux de culture redoutables. Alors qu'ils chargeaient tous vers lui, les pupilles de Wang Lin se rétractèrent et il prit rapidement de la distance.
 
@@ -62,13 +62,13 @@ Cette loi était celle qu'il avait comprise en observant le lever du soleil pend
 
 Le soleil de la mer fait naître la Nuit Brisée!
 
-À ce moment, bien que confronté à l'attaque du Maître du Vide et de trois avatars de l'Omniscient, Wang Lin s'immobilisa sans hésiter en ressentant cette puissance. Ses yeux brillèrent de folie tandis qu'il levait les bras pour fixer les quatre assaillants. La loi qui venait d'apparaître sembla alors être attirée par une force invisible et se précipita vers lui.
+À ce moment, bien que confronté à l'attaque du Maître du Vide et de trois avatars de Tian Yunzi, Wang Lin s'immobilisa sans hésiter en ressentant cette puissance. Ses yeux brillèrent de folie tandis qu'il levait les bras pour fixer les quatre assaillants. La loi qui venait d'apparaître sembla alors être attirée par une force invisible et se précipita vers lui.
 
 L'esprit de Wang Lin plongea dans un état mystérieux et tout ce qui l'entourait disparut. Sa seule pensée fut cet instant primordial, celui où il avait compris la force capable de déchirer les ténèbres de la nuit!
 
-Les pupilles de l'Omniscient vêtu de gris, qui poursuivait Wang Lin, se contractèrent brusquement, révélant une trace de choc. Non seulement lui, mais les deux autres avatars furent également stupéfaits, fixant Wang Lin avec incrédulité.
+Les pupilles de Tian Yunzi vêtu de gris, qui poursuivait Wang Lin, se contractèrent brusquement, révélant une trace de choc. Non seulement lui, mais les deux autres avatars furent également stupéfaits, fixant Wang Lin avec incrédulité.
 
-« C'est... » haleta l'Omniscient en robe grise.
+« C'est... » haleta Tian Yunzi en robe grise.
 
 Seul le Maître du Vide ignorait tout de la situation. Bien que son corps parût réel, il n'était que la projection de son âme originelle lors de son premier Fléau Céleste. Le sang comme les entrailles n'étaient que des constructions de son âme; lorsqu'il finirait par se désagréger, son âme originelle serait détruite avec lui.
 
@@ -78,7 +78,7 @@ Cependant, alors qu'il se trouvait à quelques centaines de pieds de lui, Wang L
 
 Même la mer de flammes qui tombait du ciel brisé s'était évanouie. C'était comme si, à cet instant, Wang Lin n'était plus dans la Terre des Esprits Démoniaques, mais dans un espace infini et indépendant.
 
-Non seulement le ciel était d'un noir absolu, mais le ressac des vagues parvenait à ses oreilles. Même l'Omniscient en robe grise et ses deux avatars furent plongés dans cette nuit éternelle.
+Non seulement le ciel était d'un noir absolu, mais le ressac des vagues parvenait à ses oreilles. Même Tian Yunzi en robe grise et ses deux avatars furent plongés dans cette nuit éternelle.
 
 Malgré l'extension de leurs sens divins, ils ne purent trouver la moindre trace de Wang Lin. C'était comme si celui-ci avait fusionné avec la loi du monde, rendant toute détection impossible!
 
@@ -90,11 +90,11 @@ Le vent soufflait, portant l'odeur saline de l'océan. Tout cela rendait diffici
 
 Le rugissement furieux du Maître du Vide résonna sur la mer silencieuse. Incapable de trouver Wang Lin, il sombra dans la démence et continua d'attaquer l'océan, provoquant de puissantes houles.
 
-L'Omniscient en robe grise regarda devant lui, et une peur qu'il n'avait pas ressentie depuis des éons l'envahit. C'était un sentiment étranger, mais il ne pouvait l'ignorer. Il commença à entrevoir une vérité; mais plus il comprenait, plus il était terrifié, ses paupières tremblant de manière incontrôlable.
+Tian Yunzi en robe grise regarda devant lui, et une peur qu'il n'avait pas ressentie depuis des éons l'envahit. C'était un sentiment étranger, mais il ne pouvait l'ignorer. Il commença à entrevoir une vérité; mais plus il comprenait, plus il était terrifié, ses paupières tremblant de manière incontrôlable.
 
-À cet instant précis, une lueur rouge apparut au loin. Dès qu'elle se manifesta, une terreur inédite s'empara des yeux de l'Omniscient en robe grise. Il reconnut la puissance d'une loi, et il ne pouvait croire que Wang Lin la possédait!
+À cet instant précis, une lueur rouge apparut au loin. Dès qu'elle se manifesta, une terreur inédite s'empara des yeux de Tian Yunzi en robe grise. Il reconnut la puissance d'une loi, et il ne pouvait croire que Wang Lin la possédait!
 
-L'Omniscient en robe grise recula sans hésitation. Son cuir chevelu était engourdi par la peur, mais peu importait sa course, il se trouvait toujours au-dessus de l'eau.
+Tian Yunzi en robe grise recula sans hésitation. Son cuir chevelu était engourdi par la peur, mais peu importait sa course, il se trouvait toujours au-dessus de l'eau.
 
 La lueur rouge à l'horizon devint plus éclatante encore, et ce qui apparut devant tous fut un soleil flamboyant!
 

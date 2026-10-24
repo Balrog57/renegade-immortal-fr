@@ -14,7 +14,7 @@ Après que la Pilule de l'Âme Sanguine a absorbé une trace d'âme originelle e
 
 Autrefois, Yao Xixue avait utilisé cette fonction!
 
-Autrefois, l'Omniscient avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant au stade avancé. Bien que la culture du vieil homme de neuf mètres de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
+Autrefois, Tian Yunzi avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant au stade avancé. Bien que la culture du vieil homme de neuf mètres de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
 
 Il y avait aussi cette existence mystérieuse dans la tour noire; ainsi, même s'il avait utilisé le trésor salvateur, il lui aurait été difficile de rester en vie. C’est pourquoi Wang Lin avait décidé de tenter le tout pour le tout avec la Pilule de l'Âme Sanguine après avoir envisagé d'innombrables possibilités!
 

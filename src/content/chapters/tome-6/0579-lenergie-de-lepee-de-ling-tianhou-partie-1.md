@@ -108,7 +108,7 @@ Pourtant, il était totalement ignoré par cet individu. L'homme laissa échappe
 
 Sans attendre la fin de sa phrase, Wang Lin leva la tête et dit: « Pour un cultivateur à s'en énerver si facilement, vos mille ans de culture sont une immense déception! »
 
-Si cela avait été proféré par quelqu'un de la génération de l'Omniscient, l'homme l'aurait humblement accepté, mais l'entendre de la bouche de Wang Lin était extrêmement irritant.
+Si cela avait été proféré par quelqu'un de la génération de Tian Yunzi, l'homme l'aurait humblement accepté, mais l'entendre de la bouche de Wang Lin était extrêmement irritant.
 
 Il rit de rage, ses yeux devenant plus froids encore: « Je veux voir ce que tu as réussi à accomplir en tes mille ans de culture! »
 
@@ -158,7 +158,7 @@ Bien qu'il ne s'agisse que d'un esprit d'épée et donc d'une illusion, tous les
 
 L'âme du bélier poussa un cri déchirant alors que son essence était détruite par l'intention de meurtre. Les particules de vie issues du bélier effondré retournèrent rapidement vers la grande épée, et à cet instant précis, l'arme cessa de lutter.
 
-Ce que Wang Lin venait de faire ressemblait étrangement à ce que l'Omniscient avait accompli en faisant s'effondrer le Char de Destruction des Dieux d'un simple pointage du doigt!
+Ce que Wang Lin venait de faire ressemblait étrangement à ce que Tian Yunzi avait accompli en faisant s'effondrer le Char de Destruction des Dieux d'un simple pointage du doigt!
 
 Mo Lihai ne put s'empêcher d'aspirer une bouffée d'air froid devant un tel spectacle. Son expression devint complexe en observant Wang Lin.
 

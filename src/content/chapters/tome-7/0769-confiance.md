@@ -92,9 +92,9 @@ Il était tel une météorite traversant le vide.
 
 Un puissant sentiment de confiance s'installa dans son cœur. Cette assurance n'avait que peu de rapport avec son niveau de culture; c'était la confiance d'un cultivateur défiant les cieux.
 
-« Il s'avère que même des cultivateurs puissants comme Xue Zu, l'Omniscient ou Ling Tianhou ne sont pas... invincibles! » Le regard de Wang Lin était ferme et il afficha un rictus méprisant.
+« Il s'avère que même des cultivateurs puissants comme Xue Zu, Tian Yunzi ou Ling Tianhou ne sont pas... invincibles! » Le regard de Wang Lin était ferme et il afficha un rictus méprisant.
 
-Même l'Omniscient n'aurait pu imaginer que son disciple, issu d'une planète semi-dévastée, aurait pu pousser Xue Zu dans un tel état grâce à une série d'opportunités.
+Même Tian Yunzi n'aurait pu imaginer que son disciple, issu d'une planète semi-dévastée, aurait pu pousser Xue Zu dans un tel état grâce à une série d'opportunités.
 
 « Cependant, quelqu'un m'a probablement aidé... Sinon, Xue Zu n'aurait pas été aussi faible lorsqu'il m'a trouvé! » Les yeux de Wang Lin se rétrécirent. Ce doute persistait encore dans son esprit.
 

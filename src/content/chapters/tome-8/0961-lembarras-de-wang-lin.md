@@ -63,7 +63,7 @@ Zhao Xinmeng ne fut pas choquée par la clairvoyance de Wang Lin. Elle laissa po
 
 « D'après ce que je comprends, Maître cultive depuis des dizaines de milliers d'années et a eu d'innombrables disciples. Pourtant, aucun d'eux n'est jamais réapparu ou même n'a fait entendre sa voix... »
 
-L'expression de Wang Lin demeura neutre. Les six sceaux de cette femme étaient très singuliers; sans cette confrontation directe, ils auraient été faciles à ignorer. Cependant, Wang Lin était convaincu que face à l'Omniscient, une telle méthode était dérisoire!
+L'expression de Wang Lin demeura neutre. Les six sceaux de cette femme étaient très singuliers; sans cette confrontation directe, ils auraient été faciles à ignorer. Cependant, Wang Lin était convaincu que face à Tian Yunzi, une telle méthode était dérisoire!
 
 « Maître ne nous interdit pas de sceller notre culture, il se contente de nous ignorer... » La peur envahissait le visage de Zhao Xinmeng. C'était un mystère qu'elle ne comprenait pas, tout comme les autres disciples qui dissimulaient leur niveau.
 
@@ -89,7 +89,7 @@ Wang Lin fronça les sourcils. À cet instant, des pas légers résonnèrent à 
 
 « Septième Junior Frère, Bai Wei demande à vous voir. » La voix féminine de Bai Wei flotta doucement dans la pièce.
 
-Wang Lin n'éprouvait aucune animosité envers Bai Wei. Sans les avertissements secrets qu'elle lui avait adressés autrefois, il n'aurait pas une compréhension aussi profonde de l'Omniscient.
+Wang Lin n'éprouvait aucune animosité envers Bai Wei. Sans les avertissements secrets qu'elle lui avait adressés autrefois, il n'aurait pas une compréhension aussi profonde de Tian Yunzi.
 
 « Senior Frère Bai, je vous en prie, entrez. » La voix de Wang Lin était calme. Pourtant, un léger parfum corporel pénétra ses narines, le mettant mal à l'aise.
 

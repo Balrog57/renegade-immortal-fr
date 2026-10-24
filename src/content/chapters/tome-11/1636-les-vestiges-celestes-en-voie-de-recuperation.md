@@ -16,7 +16,7 @@ Il se souvint du Royaume aux Sept Couleurs, dans le Vide Brillant, où il avait 
 
 « Ce regard pourrait expliquer vaguement pourquoi le destin de Qing Shui ne se trouve pas dans le neuvième soleil... Quant à Situ... Je sais beaucoup de choses sur lui... Son talent est prodigieux, et chaque fois que je le vois, son niveau de culture a considérablement augmenté... Serait-ce la raison pour laquelle son destin n'est pas dans le neuvième soleil? » Wang Lin méditait silencieusement en contemplant la terre en contrebas. Il pressentait quelque chose, mais ces pensées restaient voilées par une brume qu'il ne parvenait pas à percer.
 
-« Il y a aussi l'Omniscient. Il est toujours insaisissable, et je ne parviens toujours pas à deviner ses pensées. Peut-être est-il le seul à les connaître... Même avec ma culture de niveau intermédiaire du Vide Spirituel, je le crains encore... Il possède bien trop de secrets, ce qui le rend terrifiant! » Wang Lin fixa le neuvième soleil devant lui, une lueur de froideur traversant son regard.
+« Il y a aussi Tian Yunzi. Il est toujours insaisissable, et je ne parviens toujours pas à deviner ses pensées. Peut-être est-il le seul à les connaître... Même avec ma culture de niveau intermédiaire du Vide Spirituel, je le crains encore... Il possède bien trop de secrets, ce qui le rend terrifiant! » Wang Lin fixa le neuvième soleil devant lui, une lueur de froideur traversant son regard.
 
 « Le destin de Wan Er est différent de celui de Situ et des autres. Des traces de son destin existent ici, indiquant qu'il devrait être présent, mais je ne parviens pas à le trouver. Qui a donc dérobé le destin de Wan Er?! »
 

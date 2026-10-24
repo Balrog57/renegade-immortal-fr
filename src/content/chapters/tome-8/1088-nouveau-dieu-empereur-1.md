@@ -52,7 +52,7 @@ L'apport de quatre fois sa capacité d'énergie d'origine, s'ajoutant à l'éner
 
 Un Oiseau Vermillon blanc jaillit instantanément du sommet de son crâne et poussa aussitôt son cri. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
 
-Cet Oiseau Vermillon avait été capturé par l'Omniscient, mais depuis l'arrivée de l'Empereur Divin de l'Oiseau Vermillon, comment pouvait-il laisser cet homme s'emparer de l'esprit de l'Oiseau Vermillon?
+Cet Oiseau Vermillon avait été capturé par Tian Yunzi, mais depuis l'arrivée de l'Empereur Divin de l'Oiseau Vermillon, comment pouvait-il laisser cet homme s'emparer de l'esprit de l'Oiseau Vermillon?
 
 Alors que le Oiseau Vermillon se manifestait, Wang Lin endura la douleur atroce qui le ravageait et poussa un rugissement en levant sa main gauche pour pointer l'un des deux derniers tatouages de feu!
 

@@ -90,11 +90,11 @@ Il laissa échapper un sourire amer: « Entrer en culture isolée pour atteindre
 
 Il ajouta dans ses pensées: « Il y a aussi Tuo Sen, de la terre de l'Ancien Dieu. Des années ont passé, j'ignore jusqu'où sa culture l'a mené. Je dois acquérir une puissance suffisante pour me protéger avant qu'il ne puisse quitter cet endroit. »
 
-En pensant à Tuo Sen, Wang Lin ne put s'empêcher de songer à l'Omniscient.
+En pensant à Tuo Sen, Wang Lin ne put s'empêcher de songer à Tian Yunzi.
 
-« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Omniscient est l'ennemi de la Secte de l'Épée Da Luo. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de l'Omniscient; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lorsque, ma culture suffisante, j'irai sur la planète Tian Yun. » Wang Lin fronça les sourcils.
+« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Tian Yunzi est l'ennemi de la Secte de l'Épée Da Luo. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lorsque, ma culture suffisante, j'irai sur la planète Tian Yun. » Wang Lin fronça les sourcils.
 
-« Le vieillard de la Secte de l'Épée Da Luo est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que l'Omniscient. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Omniscient m'a remarqué là-bas. »
+« Le vieillard de la Secte de l'Épée Da Luo est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
 
 « Le bilan de ce voyage au Royaume Céleste est excellent. Seulement, la présence d'un cadavre de femme dans la pagode de jade céleste est un peu embarrassante. Puisque j'ai déjà accepté la requête du senior Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par le senior Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
 

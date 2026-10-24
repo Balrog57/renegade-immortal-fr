@@ -50,7 +50,7 @@ Après que le ciel du Continent Astral Immortel eut basculé dans la nuit pour l
 
 Dans le cercle formé par les huit piliers, la mer se transformait progressivement en brume, tandis qu'au-delà, elle demeurait liquide.
 
-Sous la montagne effondrée, l'Ancien Maître Impérial du Dao, dont l'apparence rappelait celle de l'Omniscient et du Souverain Céleste aux Sept Couleurs, affichait un visage grave. Ses mains continuaient de tracer des sceaux alors qu'il pressait la formation en murmurant des sons étranges.
+Sous la montagne effondrée, l'Ancien Maître Impérial du Dao, dont l'apparence rappelait celle de Tian Yunzi et du Souverain Céleste aux Sept Couleurs, affichait un visage grave. Ses mains continuaient de tracer des sceaux alors qu'il pressait la formation en murmurant des sons étranges.
 
 Sa voix ressemblait au murmure de foules innombrables, mais il était impossible d'en distinguer une once de clarté. Lorsque Wang Lin entendit cela, ses yeux brillèrent d'un éclat imperceptible.
 

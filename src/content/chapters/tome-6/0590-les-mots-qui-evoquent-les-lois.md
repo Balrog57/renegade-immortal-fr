@@ -68,7 +68,7 @@ La force de rebond provoquée par la frappe du tambour avait été bloquée par 
 
 Les sceaux de vie ne pouvaient être détruits que si l'intégralité des quelque 3 000 sceaux était brisée en un instant! Autrement, ils se régénéraient. C'était là la véritable force des sceaux de vie.
 
-« Pas étonnant que cet Omniscient en robe grise ait prétendu posséder un milliard de sceaux de vie et qu'il serait parfaitement sain et sauf même si la planète Tian Yun explosait. Un sort d'une telle puissance défensive est extrêmement rare! »
+« Pas étonnant que cet Tian Yunzi en robe grise ait prétendu posséder un milliard de sceaux de vie et qu'il serait parfaitement sain et sauf même si la planète Tian Yun explosait. Un sort d'une telle puissance défensive est extrêmement rare! »
 
 En entendant les paroles de Wang Lin, le visage de l'homme en armure dorée devint encore plus livide. Il renifla froidement et rétorqua: « J'ai dit que tu ne pouvais pas dépasser cinq coups. Es-tu un imbécile incapable de comprendre le sens de mes paroles?! Tu as frappé cinq fois, cela n'a pas dépassé cinq, donc ce n'est pas ta victoire! »
 

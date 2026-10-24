@@ -134,19 +134,19 @@ Sous la lune, il semblait marcher sur l'astre lui-même. Ses vêtements flottaie
 
 Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme des Marées. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir la limite du ciel pour atteindre la Mer des Esprits Démoniaques de l'Est.
 
-Devant la porte de la Mer des Esprits Démoniaques, l'Omniscient, Ling Tianhou, Xue Zu et sept ou huit anciens se tenaient là.
+Devant la porte de la Mer des Esprits Démoniaques, Tian Yunzi, Ling Tianhou, Xue Zu et sept ou huit anciens se tenaient là.
 
-Tous attendaient que Ling Tianhou ouvre la porte quand soudain, l'Omniscient s'exclama. Il fixa la porte du Pays des Esprits Démoniaques, les sourcils froncés par une inquiétude soudaine.
+Tous attendaient que Ling Tianhou ouvre la porte quand soudain, Tian Yunzi s'exclama. Il fixa la porte du Pays des Esprits Démoniaques, les sourcils froncés par une inquiétude soudaine.
 
-Ils allaient entrer dans le Pays des Esprits Démoniaques plusieurs décennies plus tôt que prévu. C'était parce qu'il y a plus de dix ans, l'Omniscient avait ressenti un pressentiment alarmant, une sensation qu'il n'avait pas éprouvée depuis des dizaines de milliers d'années.
+Ils allaient entrer dans le Pays des Esprits Démoniaques plusieurs décennies plus tôt que prévu. C'était parce qu'il y a plus de dix ans, Tian Yunzi avait ressenti un pressentiment alarmant, une sensation qu'il n'avait pas éprouvée depuis des dizaines de milliers d'années.
 
 Ce sentiment provenait du Pays des Esprits Démoniaques! Il émanait de la marque qu'il avait laissée sur un disciple nommé Wang Lin! À cet instant précis, la marque avait été arrachée de force!
 
 Ce n'était pas la première fois qu'une marque était ainsi effacée; bien longtemps auparavant, un disciple nommé Sun Yun avait réussi le même exploit.
 
-L'Omniscient n'était pas le seul à être troublé. Xue Zu l'était aussi: son inquiétude venait de sa fille, Yao Xixue, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de culture, une telle angoisse ne surgit jamais sans raison.
+Tian Yunzi n'était pas le seul à être troublé. Xue Zu l'était aussi: son inquiétude venait de sa fille, Yao Xixue, et au fil du temps, son cœur s'était encore plus oppressé. Pour des êtres de son niveau de culture, une telle angoisse ne surgit jamais sans raison.
 
-C'est pourquoi, lorsque l'Omniscient suggéra d'entrer plus tôt, Xue Zu fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
+C'est pourquoi, lorsque Tian Yunzi suggéra d'entrer plus tôt, Xue Zu fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
 
 De même, le cœur de Ling Tianhou était sombre. Neuf des lampes vitales des Douze Épées s'étaient éteintes... Ling Tianhou réprima sa colère et se prépara à entrer dans le Pays des Esprits Démoniaques. Il comptait interroger rigoureusement Tan Lang sur ce qui s'était passé.
 

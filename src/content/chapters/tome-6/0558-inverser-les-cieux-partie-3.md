@@ -64,7 +64,7 @@ Yao Xixue serra les dents et cracha: « Tu es méprisable! »
 
 Wang Lin esquissa un léger sourire. Beaucoup l'avaient maudit, mais le vainqueur avait toujours raison et le perdant avait tort. C'était la loi du monde de la culture, une règle que Wang Lin n'avait jamais oubliée. Il sourit: « La cultivatrice Yao m'a donné une pilule factice et m'a caché les dangers d'une telle intrusion. Je ne fais que me venger; nul besoin de me faire tant de compliments! »
 
-« Si mon père, Xue Zu, l'apprend, tu seras mort, fût-tu un disciple de l'Omniscient! De plus, j'ai activé une Pilule de l'Âme Sanguine avant de venir ici! » Le visage de Yao Xixue était d'une pâleur cadavérique.
+« Si mon père, Xue Zu, l'apprend, tu seras mort, fût-tu un disciple de Tian Yunzi! De plus, j'ai activé une Pilule de l'Âme Sanguine avant de venir ici! » Le visage de Yao Xixue était d'une pâleur cadavérique.
 
 « Pourquoi te tuerais-je alors que tes Pilules de l'Âme Sanguine peuvent te ressusciter? Pour les utiliser, tu dois d'abord mourir; je vais donc utiliser un sort pour sceller ton corps tout entier. Maintenant que tu n'as plus aucune énergie spirituelle céleste, j'ai hâte de voir comment tu vas mourir! » Wang Lin laissa échapper un sourire empreint d'une profonde noirceur.
 

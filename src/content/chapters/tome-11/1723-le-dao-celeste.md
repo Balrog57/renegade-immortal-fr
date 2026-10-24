@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1723 - Heavenly Dao!"
 slug: le-dao-celeste
 ---
-«...Le Dao Céleste!! » L'esprit de Wang Lin devint blanc. Ce qu'il avait découvert au sein du cycle de réincarnation de l'Omniscient était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était l'Omniscient!
+«...Le Dao Céleste!! » L'esprit de Wang Lin devint blanc. Ce qu'il avait découvert au sein du cycle de réincarnation de Tian Yunzi était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était Tian Yunzi!
 
 En observant le jeune homme qui tirait sur la peau de son visage pour tenter de sourire, Wang Lin peinait à apaiser les vagues qui déferlaient dans son cœur. Il était tel un navire solitaire sur une mer déchaînée, ballotté par des flots incessants.
 
@@ -14,15 +14,15 @@ Sous son regard, le jeune homme maintint son sourire et disparut au loin. Le sys
 
 À l'extérieur, dans la Rivière Invoquée, le visage de l'avatar de Wang Lin était livide. Des nuances bleutées apparaissaient et disparaissaient par intermittence sur son visage.
 
-D'innombrables âmes des avatars de l'Omniscient pénétraient une à une dans l'avatar de Wang Lin, tentant de s'en emparer.
+D'innombrables âmes des avatars de Tian Yunzi pénétraient une à une dans l'avatar de Wang Lin, tentant de s'en emparer.
 
-Alors que ces âmes fusionnaient, la voix lugubre de l'Omniscient résonna dans l'esprit de l'avatar de Wang Lin:
+Alors que ces âmes fusionnaient, la voix lugubre de Tian Yunzi résonna dans l'esprit de l'avatar de Wang Lin:
 
 « Comment peux-tu rivaliser de vitesse avec ce vieil homme? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien? »
 
-Plus de mille âmes de l'Omniscient, provenant de la Rivière Invoquée et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer des Nuages et de Luotian approchaient.
+Plus de mille âmes de Tian Yunzi, provenant de la Rivière Invoquée et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer des Nuages et de Luotian approchaient.
 
-Alors que l'image du second éveil de l'Omniscient s'effondrait, Wang Lin vit la scène de son premier éveil!
+Alors que l'image du second éveil de Tian Yunzi s'effondrait, Wang Lin vit la scène de son premier éveil!
 
 Le système stellaire devint flou puis s'effondra; finalement, tout disparut. Puis une porte gigantesque apparut devant lui! Elle était si immense qu'elle donnait à Wang Lin l'illusion de n'être qu'une fourmi.
 
@@ -100,10 +100,10 @@ Le jeune homme contempla le compas et réfléchit.
 
 Wang Lin ignora son départ et fixa le demi-compas. Il mémorisa chaque détail du lieu ainsi que l'aura de la planète. Puis, il ferma soudainement les yeux. À l'instant même, tout ce qui l'entourait s'effondra silencieusement.
 
-Les plus de quatre-vingt-dix réincarnations de l'Omniscient prirent fin!
+Les plus de quatre-vingt-dix réincarnations de Tian Yunzi prirent fin!
 
 Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit Lanmeng Daozun, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement possédé dans la Rivière Invoquée!
 
 « J'ai trouvé son corps originel. Vous trois, seniors, n'avez pas besoin de m'accompagner. J'espère que vous pourrez m'aider à contrôler mon avatar pour me gagner du temps! » Wang Lin se leva et salua les trois seniors en joignant les mains. Puis, d'un pas décidé, il s'élança vers l'horizon.
 
-« Omniscient, le jeu touche à sa fin! »
+« Tian Yunzi, le jeu touche à sa fin! »

@@ -8,21 +8,21 @@ slug: briser-la-ligne
 ---
 À l'intérieur de la montagne déserte, transformée en ruines, une immense formation se dévoila lorsque le brouillard se dissipa. Une silhouette, enveloppée d'une faible lueur aux dix couleurs, était assise au centre de la formation, et Wang Lin pouvait désormais distinguer son apparence.
 
-C'était un vieil homme, et il ressemblait étrangement à l'Omniscient!
+C'était un vieil homme, et il ressemblait étrangement à Tian Yunzi!
 
-Cependant, lorsqu'il examina plus attentivement, cette personne ne ressemblait pas seulement à l'Omniscient, elle ressemblait aussi à une autre personne!
+Cependant, lorsqu'il examina plus attentivement, cette personne ne ressemblait pas seulement à Tian Yunzi, elle ressemblait aussi à une autre personne!
 
 « Wang Lin, nous nous retrouvons. » Le vieil homme sourit avec un calme apparent en regardant Wang Lin. Son sourire était insaisissable; il semblait empreint de cupidité et d'une certaine nostalgie, mais au plus profond de ses yeux se cachait une trace de peur.
 
-Le corps de Wang Lin mesurait entre 7 000 et 8 000 pieds de haut. Fixant le vieil homme, il dit: « Devrais-je vous appeler "Omniscient" ou "Souverain Céleste aux Sept Couleurs"? »
+Le corps de Wang Lin mesurait entre 7 000 et 8 000 pieds de haut. Fixant le vieil homme, il dit: « Devrais-je vous appeler "Tian Yunzi" ou "Souverain Céleste aux Sept Couleurs"? »
 
-L'apparence de cet homme était un amalgame entre l'Omniscient et le Souverain Céleste aux Sept Couleurs.
+L'apparence de cet homme était un amalgame entre Tian Yunzi et le Souverain Céleste aux Sept Couleurs.
 
-« J'ai beaucoup de noms, mais même maintenant, je préfère qu'on m'appelle "Omniscient". » Le vieil homme sourit et pressa sa main droite sur la formation.
+« J'ai beaucoup de noms, mais même maintenant, je préfère qu'on m'appelle "Tian Yunzi". » Le vieil homme sourit et pressa sa main droite sur la formation.
 
 La formation gigantesque s'activa à nouveau, émettant une lumière étrange. Cette lueur enveloppa le monde et attira les puissances de l'univers. Elle créa une onde de choc telle que le corps de Wang Lin fut forcé de reculer de plusieurs pas.
 
-« Transfert! » Les yeux de Wang Lin s'illuminèrent. Grâce à sa compréhension des restrictions, il comprit instantanément que la formation sous l'Omniscient était un réseau de transfert!
+« Transfert! » Les yeux de Wang Lin s'illuminèrent. Grâce à sa compréhension des restrictions, il comprit instantanément que la formation sous Tian Yunzi était un réseau de transfert!
 
 « Malheureusement, tu n'as pas tué assez de personnes... » Le vieil homme laissa échapper un soupir.
 
@@ -32,9 +32,9 @@ Des craquements résonnèrent dans son corps et son bras droit fut repoussé. Il
 
 « Tu ne peux pas briser cette formation... Tu ne peux pas arrêter mon plan. J'ai attendu ce jour pendant bien trop longtemps... » Le vieil homme secoua la tête en regardant Wang Lin. Son regard était étrange, mêlant des émotions complexes: cupidité et peur.
 
-Wang Lin avait déjà vu ce genre de regard chez l'Omniscient, mais il n'avait jamais été aussi explicite. Cela était dû au fait que sa culture avait atteint le niveau de Grand Empyréen.
+Wang Lin avait déjà vu ce genre de regard chez Tian Yunzi, mais il n'avait jamais été aussi explicite. Cela était dû au fait que sa culture avait atteint le niveau de Grand Empyréen.
 
-« L'Omniscient est déjà mort et le Souverain Céleste aux Sept Couleurs a été anéanti. Qui êtes-vous?! » rugit Wang Lin, tandis que son corps s'étendait à nouveau. Il était désormais un géant de plus de 10 000 pieds. Son rugissement fut comme une bourrasque, et son pied droit s'abattit sur la formation.
+« Tian Yunzi est déjà mort et le Souverain Céleste aux Sept Couleurs a été anéanti. Qui êtes-vous?! » rugit Wang Lin, tandis que son corps s'étendait à nouveau. Il était désormais un géant de plus de 10 000 pieds. Son rugissement fut comme une bourrasque, et son pied droit s'abattit sur la formation.
 
 Des grondements tonitruants éclatèrent, mais lorsque le pied de Wang Lin toucha la formation, celui-ci trembla sous l'effet d'une puissante force de rebond qui le projeta en arrière.
 
@@ -42,7 +42,7 @@ Des grondements tonitruants éclatèrent, mais lorsque le pied de Wang Lin touch
 
 « Qui suis-je? Hormis moi-même, il n'y a qu'une seule autre personne qui le sait. Et tu le sauras très bientôt! » La formation autour du vieil homme brilla intensément et se mit à bourdonner. À mesure qu'elle s'activait, la terre elle-même se mit à trembler.
 
-« Quel genre de réseau de transfert peut bien faire trembler la terre ainsi? » Un éclair de froideur traversa le regard de Wang Lin. Peu importait que cet homme soit l'Omniscient ou le Souverain Céleste aux Sept Couleurs, il était l'Ancien Maître Impérial du Dao responsable de la capture du fragment d'âme de Wan Er. C'était un homme que Wang Lin devait tuer!
+« Quel genre de réseau de transfert peut bien faire trembler la terre ainsi? » Un éclair de froideur traversa le regard de Wang Lin. Peu importait que cet homme soit Tian Yunzi ou le Souverain Céleste aux Sept Couleurs, il était l'Ancien Maître Impérial du Dao responsable de la capture du fragment d'âme de Wan Er. C'était un homme que Wang Lin devait tuer!
 
 Voyant l'intensité de la formation croître, Wang Lin prit une profonde inspiration et des grondements sourds émanèrent de son corps. Les veines bleues sur sa peau se gonflèrent, lui donnant une apparence extrêmement féroce.
 
@@ -66,7 +66,7 @@ Wang Lin réfléchit un instant avant de déclarer: « Après tout ce temps, vou
 
 Wang Lin ferma les yeux et son corps se rétracta; la silhouette gigantesque disparut en un instant pour laisser place à un Wang Lin de taille normale, vêtu d'une robe blanche. En raison de cette réduction soudaine, l'image du géant sembla se dissiper comme un mirage.
 
-Une fois revenu à sa taille normale, il avança vers la formation. Il regarda cet homme qui portait les traits de l'Omniscient et du Souverain Céleste aux Sept Couleurs. D'un geste de la main droite, il réintégra le corps véritable des cinq éléments et celui de la Foudre de Massacre en lui.
+Une fois revenu à sa taille normale, il avança vers la formation. Il regarda cet homme qui portait les traits de Tian Yunzi et du Souverain Céleste aux Sept Couleurs. D'un geste de la main droite, il réintégra le corps véritable des cinq éléments et celui de la Foudre de Massacre en lui.
 
 Le vieil homme dit lentement: « Cette formation n'est effectivement pas qu'un simple réseau de transfert... Son véritable effet est d'ouvrir une porte antique... Malheureusement, ton massacre n'est pas assez puissant... »
 

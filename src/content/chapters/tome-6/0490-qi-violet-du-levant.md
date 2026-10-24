@@ -96,7 +96,7 @@ Ainsi, Wang Lin se téléportait par intermittence tout au long de son périple.
 
 La secte était en pleine effervescence, imprégnée des sons festifs des célébrations. D'innombrables banquets se déroulaient dans les sept divisions, où l'on servait toutes sortes de fruits et de vins célestes.
 
-Après les sept jours de festivités, l'Omniscient allait enseigner le Dao. Ensuite, les divisions jaune et pourpre s'affronteraient pour obtenir leur statut respectif de véritable disciple. Ces événements marqueraient le point culminant de ce mois de célébration.
+Après les sept jours de festivités, Tian Yunzi allait enseigner le Dao. Ensuite, les divisions jaune et pourpre s'affronteraient pour obtenir leur statut respectif de véritable disciple. Ces événements marqueraient le point culminant de ce mois de célébration.
 
 Dans la Division Pourpre, quelqu'un avait utilisé un puissant sortilège pour attirer des nuages vers sa zone, puis avait transformé ces nuages pour les rendre aussi solides que la terre.
 

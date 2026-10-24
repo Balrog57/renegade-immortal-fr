@@ -58,7 +58,7 @@ La roue du temps tourna de nouveau et deux années s'écoulèrent. Durant cette 
 
 Wang Lin comprit qu'il faisait preuve de trop d'impatience.
 
-Pourtant, il ne renonça pas et fit de son mieux pour améliorer lentement ses techniques. Si quelqu'un du deuxième stade, Purificateur ou Briseur du Nirvana, voyait cela, il en serait stupéfait. Un tel perfectionnement revenait à déduire le sort céleste originel à partir du sort actuel. Pour lui, c'était une tâche d'une difficulté extrême, même pour des êtres comme l'Omniscient.
+Pourtant, il ne renonça pas et fit de son mieux pour améliorer lentement ses techniques. Si quelqu'un du deuxième stade, Purificateur ou Briseur du Nirvana, voyait cela, il en serait stupéfait. Un tel perfectionnement revenait à déduire le sort céleste originel à partir du sort actuel. Pour lui, c'était une tâche d'une difficulté extrême, même pour des êtres comme Tian Yunzi.
 
 Pendant ces deux années, le crapaud tonnerre et la Bête du Tonnerre furent très hostiles l'un envers l'autre, sans toutefois en venir aux mains. Le crapaud était trop faible et la Bête du Tonnerre le méprisait, bien qu'elle sentît que ce dernier pourrait potentiellement représenter une menace à l'avenir.
 

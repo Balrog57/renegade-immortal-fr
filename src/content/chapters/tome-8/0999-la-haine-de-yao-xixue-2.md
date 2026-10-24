@@ -44,7 +44,7 @@ Par conséquent, il ne perdit pas de temps. Avec sa culture, ainsi que celle du 
 
 Situ Nan activa le jeton selon la méthode de Wang Lin. Ils disparurent tous pour entrer dans la grotte céleste et commencer à forcer les restrictions.
 
-D'innombrables entraves protégeaient l'intérieur de la grotte céleste. Il fallait toutes les briser pour atteindre le cœur, et c'était là leur objectif ultime! Contrairement à l'Omniscient et à Ling Tianhou, qui avaient déjà vaincu toutes les restrictions dans leurs grottes respectives, Wang Lin accusait un certain retard.
+D'innombrables entraves protégeaient l'intérieur de la grotte céleste. Il fallait toutes les briser pour atteindre le cœur, et c'était là leur objectif ultime! Contrairement à Tian Yunzi et à Ling Tianhou, qui avaient déjà vaincu toutes les restrictions dans leurs grottes respectives, Wang Lin accusait un certain retard.
 
 De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouvait sur la Terre des Esprits Démoniaques, il pouvait y pénétrer à tout moment, sauf en certains lieux particuliers. Avec son niveau actuel de culture, il lui suffisait d'apporter quelques modifications mineures au jeton pour que Situ Nan et les autres ne soient pas attaqués par l'esprit de la grotte.
 

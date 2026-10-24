@@ -62,13 +62,13 @@ Le ciel à l'extérieur de la formation se tordit, et trois personnes en sortire
 
 Peu après leur apparition, l'espace devant eux se distordit et une autre personne en émergea.
 
-À la vue de cet arrivant, le regard de Ling Tianhou devint féroce. Le Maître du Vide leva également la tête pour observer l'Omniscient.
+À la vue de cet arrivant, le regard de Ling Tianhou devint féroce. Le Maître du Vide leva également la tête pour observer Tian Yunzi.
 
-L'expression de l'Omniscient resta sereine alors qu'il regardait le Maître du Vide et dit calmement: « L'Omniscient salue le Collègue Cultivateur Vide. »
+L'expression de Tian Yunzi resta sereine alors qu'il regardait le Maître du Vide et dit calmement: « Tian Yunzi salue le Collègue Cultivateur Vide. »
 
 Le Maître du Vide esquissa un mince sourire et hocha la tête. « Ling Tianhou m'a invité, alors ce vieil homme est venu voir. »
 
-L'Omniscient observa la Formation des Neuf Dragons et déclara d'un ton calme: « Je n'étais pas confiant en mes seules forces, mais puisque le Collègue Cultivateur Vide est ici, ce voyage ne devrait poser aucun problème! »
+Tian Yunzi observa la Formation des Neuf Dragons et déclara d'un ton calme: « Je n'étais pas confiant en mes seules forces, mais puisque le Collègue Cultivateur Vide est ici, ce voyage ne devrait poser aucun problème! »
 
 Tandis qu'ils discutaient, deux autres distorsions spatiales apparurent de part et d'autre de la formation. Il s'agissait du Couple de Cultivateurs du Nuage Céleste et de Wang Lin.
 
@@ -100,11 +100,11 @@ Au passage du regard de Wang Lin, les yeux de Zhou Yi brillèrent furtivement. W
 
 À ce moment précis, plusieurs rayons de lumière surgirent du lointain. En tête marchait une belle femme d'âge mûr, à l'allure de villageoise. Derrière elle se trouvaient ses quatre disciples, parmi lesquels Qian Qin et celle qui pourrait devenir la prochaine Sainte du Vide Brillant.
 
-La femme arriva et inspecta les lieux. Elle salua d'abord l'Omniscient, observa attentivement le Couple de Cultivateurs du Nuage Céleste, puis adressa un signe de tête amical à Wang Lin. Enfin, elle rejoignit le Maître du Vide.
+La femme arriva et inspecta les lieux. Elle salua d'abord Tian Yunzi, observa attentivement le Couple de Cultivateurs du Nuage Céleste, puis adressa un signe de tête amical à Wang Lin. Enfin, elle rejoignit le Maître du Vide.
 
-L'expression de l'Omniscient demeura imperturbable, bien qu'il fronçât les sourcils.
+L'expression de Tian Yunzi demeura imperturbable, bien qu'il fronçât les sourcils.
 
-Deux silhouettes suivirent la femme: un vieillard assis sur une gourde et un homme vêtu de noir. Le vieillard sur la gourde scruta l'assemblée. En voyant le Couple de Cultivateurs du Nuage Céleste, ses pupilles se rétractèrent et, après une courte réflexion, il se posta aux côtés de l'Omniscient.
+Deux silhouettes suivirent la femme: un vieillard assis sur une gourde et un homme vêtu de noir. Le vieillard sur la gourde scruta l'assemblée. En voyant le Couple de Cultivateurs du Nuage Céleste, ses pupilles se rétractèrent et, après une courte réflexion, il se posta aux côtés de Tian Yunzi.
 
 Quant à l'homme en noir, il resta silencieux aux côtés de Wang Lin et de son groupe.
 
@@ -120,9 +120,9 @@ En un éclair, la flamme atteignit les lieux et prit forme humaine. Elle était 
 
 Pourtant, dès l'apparition de cette silhouette, Wang Lin tourna soudainement la tête vers elle. À cet instant, la figure démoniaque fixa également Wang Lin. Ses yeux brillaient d'une haine profonde, et ce regard fut planté sur Wang Lin tel un coup d'épée.
 
-Soudain, l'individu détourna le regard pour se placer aux côtés de l'Omniscient.
+Soudain, l'individu détourna le regard pour se placer aux côtés de Tian Yunzi.
 
-L'Omniscient resta neutre en hochant la tête. Cependant, son regard se porta vers le lointain, et cette fois, une pointe d'anticipation brilla dans ses yeux.
+Tian Yunzi resta neutre en hochant la tête. Cependant, son regard se porta vers le lointain, et cette fois, une pointe d'anticipation brilla dans ses yeux.
 
 Un jeune homme vêtu de rouge s'avança lentement depuis la distance. Il était très beau, doté d'une beauté presque démoniaque.
 
@@ -132,7 +132,7 @@ Son crâne était parfaitement lisse, sans un seul cheveu, et l'énergie spiritu
 
 L'apparition du jeune homme chauve fit se rétracter les pupilles du Maître du Vide. Une lueur de froideur passa dans les yeux du Couple de Cultivateurs du Nuage Céleste.
 
-Seul l'Omniscient laissa poindre un sourire.
+Seul Tian Yunzi laissa poindre un sourire.
 
 La Formation des Neuf Dragons s'activa et l'énergie spirituelle céleste emplit l'espace. Alors que les neuf dragons pourpres s'animaient et rugissaient, une intense explosion de lumière violette enveloppa plusieurs milliers de pieds à la ronde.
 

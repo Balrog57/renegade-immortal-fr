@@ -78,7 +78,7 @@ Cette empreinte n'était pas un outil que les cultivateurs pouvaient utiliser; c
 
 « Puisque le système stellaire de l'Alliance abrite le Clan des Démons Géants, personne ne pensera que mon corps de trois cents mètres est celui d'un Ancien Dieu! » Ses yeux devinrent glacials. Comparé à un Ancien Dieu adulte, son corps était insignifiant et faible; ainsi, nul ne soupçonnerait sa véritable nature en le voyant.
 
-Sans aucune expression, il se dirigea vers la Planète du Sang. Ayant consulté la carte stellaire donnée par l'Omniscient par le passé, il savait naturellement où se trouvait la Planète du Sang.
+Sans aucune expression, il se dirigea vers la Planète du Sang. Ayant consulté la carte stellaire donnée par Tian Yunzi par le passé, il savait naturellement où se trouvait la Planète du Sang.
 
 Alors qu'il progressait dans l'espace, ses yeux se plissèrent. Il aperçut plusieurs fragments rocheux de tailles diverses flottant dans le vide.
 

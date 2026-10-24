@@ -58,7 +58,7 @@ Le temps s'écoula lentement. Trois jours plus tard, Wang Lin ouvrit les yeux. L
 
 Le Royaume Céleste avait disparu; d'où venaient donc tous ces jades? Wang Lin y avait déjà songé sans trouver de réponse.
 
-« De plus, ceci n'est que la première étape de la culture, et pourtant elle exige tant de jades. Combien en faudra-t-il pour un cultivateur du second niveau? Un être comme l'Omniscient aurait-il besoin d'une quantité de jades équivalente à celle d'innombrables cultivateurs Ascendants... » Wang Lin fronça encore davantage les sourcils.
+« De plus, ceci n'est que la première étape de la culture, et pourtant elle exige tant de jades. Combien en faudra-t-il pour un cultivateur du second niveau? Un être comme Tian Yunzi aurait-il besoin d'une quantité de jades équivalente à celle d'innombrables cultivateurs Ascendants... » Wang Lin fronça encore davantage les sourcils.
 
 « Serait-il possible que... le second niveau ne nécessite pas de jades célestes? Ou existe-t-il un moyen spécial de les remplacer? » Une hypothèse audacieuse traversa son esprit.
 

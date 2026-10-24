@@ -44,7 +44,7 @@ Le vortex formé par le Bassin Funéraire Céleste commença à se désintégrer
 
 C’était comme si elle s'apprêtait à arracher le vortex même du sol!
 
-Ce bouleversement radical modifia profondément les environs. L'Omniscient observa la scène en silence, l'expression assombrie. Le Maître du Vide esquissa un sourire amer et secoua la tête. Ayant consulté les archives du Royaume Céleste, il connaissait quelques pans de ce passé. Les rumeurs disaient qu'elle était morte, mais en la voyant encore en vie, il fit le lien et devina ce qui s'était réellement produit autrefois.
+Ce bouleversement radical modifia profondément les environs. Tian Yunzi observa la scène en silence, l'expression assombrie. Le Maître du Vide esquissa un sourire amer et secoua la tête. Ayant consulté les archives du Royaume Céleste, il connaissait quelques pans de ce passé. Les rumeurs disaient qu'elle était morte, mais en la voyant encore en vie, il fit le lien et devina ce qui s'était réellement produit autrefois.
 
 « Tu m'as menti. Tu m'avais promis que tu ne nuirais pas à mon clan et que tu leur ouvrirais un nouveau système stellaire pour qu'ils puissent y vivre. Ainsi, tes Célestiels et mon clan pourraient coexister. Ce sont là les promesses que tu m'avais faites! Qing Lin, pourquoi m'as-tu menti!?! »
 
@@ -60,9 +60,9 @@ L'être ainsi formé était un homme d'âge moyen, à la silhouette semi-transpa
 
 Son regard était impitoyable et glacial, mais ses yeux étaient totalement dépourvus de vie.
 
-Dès que son ombre apparut, une aura telle qu'on aurait dit que lui seul pouvait régner sur le monde se propagea. À cet instant, même l'expression de puissants êtres comme l'Omniscient changea! D'innombrables avatars de ce dernier commencèrent à apparaître autour de lui; ce n'était pas de sa volonté, mais une réaction instinctive au choc provoqué par cette aura!
+Dès que son ombre apparut, une aura telle qu'on aurait dit que lui seul pouvait régner sur le monde se propagea. À cet instant, même l'expression de puissants êtres comme Tian Yunzi changea! D'innombrables avatars de ce dernier commencèrent à apparaître autour de lui; ce n'était pas de sa volonté, mais une réaction instinctive au choc provoqué par cette aura!
 
-« Il était encore plus puissant que le Qing Lin d'autrefois!! » L'Omniscient prit une inspiration glacée, les yeux écarquillés par la peur. Il n'avait ressenti un tel choc qu'une seule fois auparavant, face à cet être!
+« Il était encore plus puissant que le Qing Lin d'autrefois!! » Tian Yunzi prit une inspiration glacée, les yeux écarquillés par la peur. Il n'avait ressenti un tel choc qu'une seule fois auparavant, face à cet être!
 
 Lorsque Wang Lin aperçut l'apparition, il eut un sursaut et ses pupilles se contractèrent. Il reconnut immédiatement que cet homme ressemblait trait pour trait à la sculpture de Qing Lin qu'il avait vue dans le grand palais de la Concubine Impériale Fleur!
 

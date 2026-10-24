@@ -175,7 +175,7 @@ Loin de mourir, ses yeux étaient empreints d'extase.
 
 Lorsqu'il était arrivé dans le système stellaire Luotian, son corps était couvert de marques. Chacune de ces marques renfermait un pouvoir inimaginable capable de le tuer instantanément. Cependant, lorsque le doigt du Dieu Ancien s'était approché, un phénomène mystérieux s'était produit, provoquant l'effondrement simultané de toutes les marques!
 
-Seule la marque de l'Omniscient subsistait.
+Seule la marque de Tian Yunzi subsistait.
 
 « Tant que j'ai suffisamment de temps, je suis certain de pouvoir me rétablir un jour! » Tan Lang prit une profonde inspiration, s'enfonça lentement dans le sol et disparut de la plaine.
 

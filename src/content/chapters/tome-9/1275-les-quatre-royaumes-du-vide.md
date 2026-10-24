@@ -68,7 +68,7 @@ Tandis qu'il avançait, sa main gauche forma un sceau et pointa vers le ciel. *I
 
 *Invoquer la Pluie* apparut également. Les gouttes de pluie, scintillant comme des cristaux, se transformèrent en épées de glace qui jaillirent.
 
-Simultanément, l'*Arsenal Magique* s'activa et l'*Empreinte Céleste de Scellement* vola hors de la bouche de Wang Lin. D'innombrables âmes de bataille apparurent dans une série de rugissements lugubres. Elles chargèrent Shui Daozi sous la direction du Maître du Vide et de l'Omniscient.
+Simultanément, l'*Arsenal Magique* s'activa et l'*Empreinte Céleste de Scellement* vola hors de la bouche de Wang Lin. D'innombrables âmes de bataille apparurent dans une série de rugissements lugubres. Elles chargèrent Shui Daozi sous la direction du Maître du Vide et de Tian Yunzi.
 
 *Effondrement de la Montagne* se manifesta également alors que Wang Lin avançait, ses pas résonnant comme des tonnerres. Des volcans illusoires entrèrent en éruption les uns après les autres, libérant une puissance destructrice capable de briser le ciel!
 

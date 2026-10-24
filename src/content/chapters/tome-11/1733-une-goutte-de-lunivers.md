@@ -72,7 +72,7 @@ C'était comme si toute la vérité était exposée devant lui. C'était bien pl
 
 Comment Wang Lin pouvait-il laisser passer une telle chance?
 
-Bien que son talent ne fût pas exceptionnel, sa compréhension et son intuition étaient prodigieuses; sans cela, il n'aurait jamais pu obtenir d'essences. De plus, ce n'était pas la première fois qu'il rencontrait l'essence de l'eau. Lorsque la Perle Défiant le Ciel avait dû absorber de l'eau, et lorsque l'Omniscient lui avait donné cette goutte d'essence, Wang Lin avait déjà reçu les clés pour emprunter ce chemin!
+Bien que son talent ne fût pas exceptionnel, sa compréhension et son intuition étaient prodigieuses; sans cela, il n'aurait jamais pu obtenir d'essences. De plus, ce n'était pas la première fois qu'il rencontrait l'essence de l'eau. Lorsque la Perle Défiant le Ciel avait dû absorber de l'eau, et lorsque Tian Yunzi lui avait donné cette goutte d'essence, Wang Lin avait déjà reçu les clés pour emprunter ce chemin!
 
 L'excitation atteignit son paroxysme dans ses yeux. Sans perdre un instant, il s'assit au cœur de la sphère en pleine condensation. Ses yeux brillaient d'une lueur singulière tandis qu'il observait chaque mutation de l'eau devant lui.
 

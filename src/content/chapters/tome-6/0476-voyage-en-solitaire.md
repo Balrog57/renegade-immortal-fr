@@ -98,7 +98,7 @@ Après le départ de Wang Lin, une lumière blanche apparut là où les deux s'�
 
 Situ Nan jeta un dernier regard vers la direction prise par Wang Lin et murmura: « Jeune ami, adieu! » Il poussa un long soupir et disparut dans un éclair de lumière blanche...
 
-L'espace était si vaste que sans carte stellaire, on risquait de s'y perdre pour toujours. L'Omniscient avait laissé une carte très détaillée à Wang Lin, indiquant le chemin de la planète Suzaku vers la planète Tian Yun.
+L'espace était si vaste que sans carte stellaire, on risquait de s'y perdre pour toujours. Tian Yunzi avait laissé une carte très détaillée à Wang Lin, indiquant le chemin de la planète Suzaku vers la planète Tian Yun.
 
 Wang Lin, assis en position du lotus sur la boussole stellaire, voyagea rapidement vers la planète Tian Yun. Durant ce trajet, il ne resta pas inactif; il utilisa la pierre de bois du vide et l'encre de neige pour raffiner à nouveau la boussole stellaire en utilisant la technique secrète de l'ancien dieu. Le processus fut lent et dura tout le voyage.
 

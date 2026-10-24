@@ -33,7 +33,7 @@ Sur une magnifique falaise située à 50 kilomètres du Pavillon des Nuages Pour
 
 Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrictions, il s'assit et poussa un soupir. Ses yeux brillaient d'une lueur méditative.
 
-« L'atmosphère de la Secte du Destin Céleste est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que l'Omniscient m'avait assigné le Pavillon des Nuages Pourpres.
+« L'atmosphère de la Secte du Destin Céleste est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que Tian Yunzi m'avait assigné le Pavillon des Nuages Pourpres.
 
 « Et maintenant, ce pavillon est gardé par une femme qui refuse que quiconque s'en approche...
 
@@ -55,7 +55,7 @@ Wang Lin ne trouva rien d'anormal dans ce lieu.
 
 Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà installé dans la Division Pourpre de la Secte du Destin Céleste depuis une demi-lunaison.
 
-Durant cette période, personne ne vint le chercher. Même les autres disciples lui lançaient des regards étranges et l'évitaient comme s'il était un fléau. L'Omniscient ne l'avait jamais convoqué; c'était comme si l'Omniscient l'avait oublié.
+Durant cette période, personne ne vint le chercher. Même les autres disciples lui lançaient des regards étranges et l'évitaient comme s'il était un fléau. Tian Yunzi ne l'avait jamais convoqué; c'était comme si Tian Yunzi l'avait oublié.
 
 Personne n'osait approcher à moins de 5 kilomètres de sa grotte, comme s'il s'agissait d'une zone interdite. Pendant ce temps, Zhao Xingsha semblait avoir disparu; il ne se montra plus jamais.
 
@@ -115,7 +115,7 @@ Simultanément, il tendit la main et ordonna: « Reviens! »
 
 L'âme originelle ne ressentit qu'une force puissante venant de l'arrière. Bien qu'entourée de restrictions, elle n'avait besoin que d'un instant pour les briser, mais à cet instant précis, c'était une question de vie ou de mort!
 
-Serrant les dents, il se retourna brusquement en hurlant: « Je suis un Ancien disciplinaire! Même si tu es le disciple de l'Omniscient, si tu me tues, la secte te punira quand même! »
+Serrant les dents, il se retourna brusquement en hurlant: « Je suis un Ancien disciplinaire! Même si tu es le disciple de Tian Yunzi, si tu me tues, la secte te punira quand même! »
 
 Wang Lin ricana: « On dirait que tu connais mon identité! » Il referma brutalement sa main droite sur l'âme originelle, qui poussa un cri de détresse.
 

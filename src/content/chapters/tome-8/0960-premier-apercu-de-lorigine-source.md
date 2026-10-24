@@ -18,13 +18,13 @@ Wang Lin fronça les sourcils en fixant la flamme. Sous sa lumière, son visage 
 
 « Quelque chose ne va pas! Le vent s'est arrêté, mais cette flamme bouge encore... »
 
-À cet instant, bien que Wang Lin ne le sache pas, son état était très proche d'une confirmation du Dao; mais au lieu de confirmer son propre Dao, il confirmait celui de l'Omniscient.
+À cet instant, bien que Wang Lin ne le sache pas, son état était très proche d'une confirmation du Dao; mais au lieu de confirmer son propre Dao, il confirmait celui de Tian Yunzi.
 
-Il connaissait l'Omniscient depuis des centaines d'années. À l'époque, avec son faible niveau de culture, il ne pouvait percevoir les changements sur le corps de l'Omniscient. Désormais, il était capable d'en discerner vaguement quelques indices.
+Il connaissait Tian Yunzi depuis des centaines d'années. À l'époque, avec son faible niveau de culture, il ne pouvait percevoir les changements sur le corps de Tian Yunzi. Désormais, il était capable d'en discerner vaguement quelques indices.
 
-Trop de secrets entouraient l'Omniscient. Ce qui terrifiait le plus Wang Lin, c'était son incapacité totale à deviner ce qui se tramait dans l'esprit de l'autre partie.
+Trop de secrets entouraient Tian Yunzi. Ce qui terrifiait le plus Wang Lin, c'était son incapacité totale à deviner ce qui se tramait dans l'esprit de l'autre partie.
 
-« L'Omniscient est comme cette flamme, en constante mutation... Même en isolant le vent, il est impossible d'en saisir l'apparence originelle. » Wang Lin fronça les sourcils, le regard toujours verrouillé sur la flamme.
+« Tian Yunzi est comme cette flamme, en constante mutation... Même en isolant le vent, il est impossible d'en saisir l'apparence originelle. » Wang Lin fronça les sourcils, le regard toujours verrouillé sur la flamme.
 
 Le temps passa lentement. Sans s'en rendre compte, il était déjà minuit. Le ciel dehors était plongé dans une obscurité totale et, lorsque le vent soufflait contre la fenêtre, le papier en bruissait.
 

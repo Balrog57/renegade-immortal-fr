@@ -8,75 +8,75 @@ slug: les-qualifications-pour-pretendre-a-la-suprematie
 ---
 Le brouillard fut frappé par la lumière bleue et s'effondra instantanément. La bouche illusoire disparut à l'instant même où elle était apparue.
 
-Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière Lanmeng Daozun et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher à grands pas, ses cheveux blancs flottant au vent!
+Le visage de Tian Yunzi était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière Lanmeng Daozun et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher à grands pas, ses cheveux blancs flottant au vent!
 
 Une moitié de boussole se trouvait dans la main droite de Wang Lin!
 
-Cette boussole paraissait très ordinaire, dénuée de toute aura, mais lorsque l'Omniscient la vit, son cœur tressaillit et le choc dans ses yeux se mua en une peur inimaginable!
+Cette boussole paraissait très ordinaire, dénuée de toute aura, mais lorsque Tian Yunzi la vit, son cœur tressaillit et le choc dans ses yeux se mua en une peur inimaginable!
 
-« C'est... C'est impossible, tu ne peux pas trouver mon corps originel. Tu... Et alors si tu as trouvé mon corps originel? Je me suis éveillé 99 fois, je suis le Dao Céleste! » L'Omniscient fixa Wang Lin et pointa le ciel du doigt.
+« C'est... C'est impossible, tu ne peux pas trouver mon corps originel. Tu... Et alors si tu as trouvé mon corps originel? Je me suis éveillé 99 fois, je suis le Dao Céleste! » Tian Yunzi fixa Wang Lin et pointa le ciel du doigt.
 
-« Le Dao Céleste ne fait qu'un, toutes choses et le firmament, revenez à moi! » rugit l'Omniscient. Le brouillard autour de lui commença à tourbillonner et à s'élever. L'espace lui-même trembla et une gueule géante apparut.
+« Le Dao Céleste ne fait qu'un, toutes choses et le firmament, revenez à moi! » rugit Tian Yunzi. Le brouillard autour de lui commença à tourbillonner et à s'élever. L'espace lui-même trembla et une gueule géante apparut.
 
 Cette bouche était floue, mais elle dévora immédiatement tout sur son passage!
 
 Cependant, juste au moment où elle allait engloutir sa proie, la grande gueule frissonna étrangement et s'effondra. Elle se dissipa dans le système stellaire.
 
-Cela fit changer l'expression de l'Omniscient une fois de plus!
+Cela fit changer l'expression de Tian Yunzi une fois de plus!
 
 « Tu penses vraiment qu'il s'agit de ton 99e éveil... » Wang Lin s'approcha, la voix glaciale.
 
-L'Omniscient resta silencieux un instant pour réfléchir, puis une intention meurtrière embrasa son regard alors qu'il fixait Wang Lin. Il chargea sans l'ombre d'une hésitation!
+Tian Yunzi resta silencieux un instant pour réfléchir, puis une intention meurtrière embrasa son regard alors qu'il fixait Wang Lin. Il chargea sans l'ombre d'une hésitation!
 
 « Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Tous les êtres issus du Dao Céleste ne sont que des fourmis devant moi, et tu n'es pas l'âme de Sept-Couleurs. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
 
-L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et Lanmeng Daozun s'avança. D'un revers de manche, il l'enveloppa.
+Tian Yunzi se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et Lanmeng Daozun s'avança. D'un revers de manche, il l'enveloppa.
 
-L'expression de l'Omniscient devint féroce. Au moment même où Lanmeng Daozun attaquait, il poussa un rugissement.
+L'expression de Tian Yunzi devint féroce. Au moment même où Lanmeng Daozun attaquait, il poussa un rugissement.
 
-« Tu n'es qu'une vie formée par le Dao Céleste! Comment oses-tu me barrer la route?! » L'Omniscient ne prêta aucune attention à Lanmeng Daozun. Il agita la main droite et percuta l'attaque de ce dernier.
+« Tu n'es qu'une vie formée par le Dao Céleste! Comment oses-tu me barrer la route?! » Tian Yunzi ne prêta aucune attention à Lanmeng Daozun. Il agita la main droite et percuta l'attaque de ce dernier.
 
-Un grondement de tonnerre résonna. Le visage de Lanmeng Daozun se crispa et il recula de quelques pas. L'expression de l'Omniscient resta sombre, mais il ne recula nullement. Au contraire, il fonça encore plus vite vers Wang Lin; il n'était plus qu'à moins de 100 pieds de lui!
+Un grondement de tonnerre résonna. Le visage de Lanmeng Daozun se crispa et il recula de quelques pas. L'expression de Tian Yunzi resta sombre, mais il ne recula nullement. Au contraire, il fonça encore plus vite vers Wang Lin; il n'était plus qu'à moins de 100 pieds de lui!
 
-Wang Lin restait calme. Il regarda l'Omniscient avec une pointe de mépris. Tandis que ce dernier se rapprochait, Wang Lin murmura doucement:
+Wang Lin restait calme. Il regarda Tian Yunzi avec une pointe de mépris. Tandis que ce dernier se rapprochait, Wang Lin murmura doucement:
 
 « Mon corps m'appartient toujours. Que le Dao se dissipe... »
 
-L'Omniscient, situé à 90 pieds de Wang Lin, fut pris de tremblements et une rune brilla sur sa poitrine. Des ondulations se propagèrent depuis la rune, recouvrant bientôt tout son corps.
+Tian Yunzi, situé à 90 pieds de Wang Lin, fut pris de tremblements et une rune brilla sur sa poitrine. Des ondulations se propagèrent depuis la rune, recouvrant bientôt tout son corps.
 
 Au milieu de ces ondes, toute la compréhension du Dao contenue dans le corps qu'il avait dérobé à Wang Lin se dissipa. Sans cette compréhension du Dao, les essences n'existaient plus!
 
 L'essence du feu dans son œil gauche s'effondra et l'essence du tonnerre dans son œil droit se brisa. Entre ses sourcils, les essences de la mise à mort, de la vie et de la mort, du karma, ainsi que du vrai et du faux, disparurent toutes. Même l'essence de la restriction dans les vaisseaux sanguins de ses yeux s'évanouit.
 
-En un instant, plus aucune trace d'essence ne subsistait dans le corps que l'Omniscient avait pris à Wang Lin. Les sept essences s'étaient évaporées dans le vide.
+En un instant, plus aucune trace d'essence ne subsistait dans le corps que Tian Yunzi avait pris à Wang Lin. Les sept essences s'étaient évaporées dans le vide.
 
 On pouvait comparer ce corps à un seau et l'essence à l'eau qu'il contient. La compréhension du Dao est ce qui rend le seau solide pour empêcher les fuites; désormais, toute l'eau s'était déversée hors du récipient.
 
-L'Omniscient fut stupéfait et la terreur envahit son regard. Il ne s'attendait pas à une telle éventualité. Une chose pareille ne s'était jamais produite lors de ses précédents éveils!
+Tian Yunzi fut stupéfait et la terreur envahit son regard. Il ne s'attendait pas à une telle éventualité. Une chose pareille ne s'était jamais produite lors de ses précédents éveils!
 
-Wang Lin observa calmement l'Omniscient et déclara lentement: « Que l'âme originelle se disperse... »
+Wang Lin observa calmement Tian Yunzi et déclara lentement: « Que l'âme originelle se disperse... »
 
-À ces mots, l'âme originelle de l'avatar de Wang Lin, qui avait fusionné avec les 3 000 âmes de l'Omniscient, devint terne et se dissipa. Un cultivateur privé d'âme originelle n'est plus rien d'autre qu'un mortel!
+À ces mots, l'âme originelle de l'avatar de Wang Lin, qui avait fusionné avec les 3 000 âmes de Tian Yunzi, devint terne et se dissipa. Un cultivateur privé d'âme originelle n'est plus rien d'autre qu'un mortel!
 
-Comment le corps d'un simple mortel aurait-il pu supporter l'occupation et la fusion des 3 000 âmes de l'Omniscient? Une fois l'âme originelle de l'avatar de Wang Lin dissipée, des bruits de craquements jaillirent du corps de l'Omniscient. Son corps trembla et commença à s'effondrer!
+Comment le corps d'un simple mortel aurait-il pu supporter l'occupation et la fusion des 3 000 âmes de Tian Yunzi? Une fois l'âme originelle de l'avatar de Wang Lin dissipée, des bruits de craquements jaillirent du corps de Tian Yunzi. Son corps trembla et commença à s'effondrer!
 
-L'horreur dans les yeux de l'Omniscient atteignit son paroxysme. Il avait comploté contre les cieux, contre la terre, et même contre le temps. Pourtant, il venait de commettre sa deuxième erreur face à Wang Lin!
+L'horreur dans les yeux de Tian Yunzi atteignit son paroxysme. Il avait comploté contre les cieux, contre la terre, et même contre le temps. Pourtant, il venait de commettre sa deuxième erreur face à Wang Lin!
 
 Il n'avait pas prévu que Wang Lin retrouverait son corps originel, et il ne pensait pas non plus que ce dernier puisse encore contrôler son avatar! Cela lui semblait impossible. Il avait déjà totalement pris possession de ce corps pour devenir une existence indépendante. Même à cet instant, il ne comprenait toujours pas pourquoi cela arrivait!
 
 Pourquoi Wang Lin pouvait-il encore contrôler ce corps? Pourquoi pouvait-il faire dissiper le Dao et disperser l'âme originelle?!
 
-Tandis que l'Omniscient était plongé dans la peur et la confusion, il entendit la troisième sentence de Wang Lin.
+Tandis que Tian Yunzi était plongé dans la peur et la confusion, il entendit la troisième sentence de Wang Lin.
 
 « Que l'âme meure... »
 
-À la suite de cela, le corps de l'Omniscient trembla violemment. Il sentit l'âme de Wang Lin, celle qui s'était fondue avec ces 3 000 âmes, se dissiper soudainement.
+À la suite de cela, le corps de Tian Yunzi trembla violemment. Il sentit l'âme de Wang Lin, celle qui s'était fondue avec ces 3 000 âmes, se dissiper soudainement.
 
-La fusion des 3 000 âmes était parfaite et ne pouvait être séparée. Cependant, lorsque l'âme de Wang Lin disparut, la perfection fut rompue. Le corps de l'Omniscient s'effondra et les 2 999 âmes restantes jaillirent en tumulte.
+La fusion des 3 000 âmes était parfaite et ne pouvait être séparée. Cependant, lorsque l'âme de Wang Lin disparut, la perfection fut rompue. Le corps de Tian Yunzi s'effondra et les 2 999 âmes restantes jaillirent en tumulte.
 
 « C'est impossible! Impossible! Pourquoi? Tu peux encore contrôler ce corps... Cela contredit les règles de ce monde! Cela défie les lois de ce monde! Je suis le Dao Céleste, c'est moi qui fixe les règles! Tous les corps que je prends m'appartiennent!! »
 
-« Je connais tes souvenirs. Même en utilisant le sort des Trois Vies, tu ne devrais pas pouvoir faire cela. Même si tu mourais mille fois, je ne mourrais toujours pas. Par quel moyen as-tu fait cela? Toi... Qui es-tu?! » Les 2 999 âmes éparpillées se transformèrent en un brouillard indistinct. Ce nuage contenait toutes les vies que l'Omniscient avait dévorées au cours de ses plus de 90 éveils.
+« Je connais tes souvenirs. Même en utilisant le sort des Trois Vies, tu ne devrais pas pouvoir faire cela. Même si tu mourais mille fois, je ne mourrais toujours pas. Par quel moyen as-tu fait cela? Toi... Qui es-tu?! » Les 2 999 âmes éparpillées se transformèrent en un brouillard indistinct. Ce nuage contenait toutes les vies que Tian Yunzi avait dévorées au cours de ses plus de 90 éveils.
 
 Elles hurlaient toutes simultanément!
 
@@ -88,15 +88,15 @@ Après avoir dit cela, Wang Lin leva sa main gauche et pointa l'espace entre ses
 
 La Bête des Limbes!
 
-Lorsqu'elle apparut, la Bête des Limbes semblait léthargique. Comme il y avait peu de monde aux alentours, elle n'avait que peu de raisons de craindre quoi que ce soit. Elle observa les environs et vit le brouillard créé par les 2 999 âmes de l'Omniscient. Attirée par cette brume, elle ouvrit inconsciemment la gueule. De la salive semblait s'en écouler tandis qu'elle semblait réfléchir. Ces âmes paraissaient délicieuses.
+Lorsqu'elle apparut, la Bête des Limbes semblait léthargique. Comme il y avait peu de monde aux alentours, elle n'avait que peu de raisons de craindre quoi que ce soit. Elle observa les environs et vit le brouillard créé par les 2 999 âmes de Tian Yunzi. Attirée par cette brume, elle ouvrit inconsciemment la gueule. De la salive semblait s'en écouler tandis qu'elle semblait réfléchir. Ces âmes paraissaient délicieuses.
 
-« Le maître du Dao Céleste? La Bête des Limbes... C'est la Bête des Limbes... Cette bête a-t-elle été formée par l'autre amas de brouillard qui s'est séparé de moi? » Toutes les âmes de l'Omniscient contemplèrent la Bête des Limbes avec effroi.
+« Le maître du Dao Céleste? La Bête des Limbes... C'est la Bête des Limbes... Cette bête a-t-elle été formée par l'autre amas de brouillard qui s'est séparé de moi? » Toutes les âmes de Tian Yunzi contemplèrent la Bête des Limbes avec effroi.
 
 Il connaissait naturellement la Bête des Limbes, mais son corps avait été scindé par Lian Daofei, qui avait fait exploser son propre Sens Divin. Au fil des éons, il avait perdu tout contact avec son autre moitié. Autrement, il n'aurait pas eu recours à cette méthode de 99 éveils pour reprendre le contrôle de la réincarnation et retrouver l'autre partie de son corps.
 
-« Le jeu est terminé, Omniscient », dit lentement Wang Lin, puis il leva sa main droite tenant la moitié de la boussole. Il projeta la boussole directement dans la gueule de la Bête des Limbes.
+« Le jeu est terminé, Tian Yunzi », dit lentement Wang Lin, puis il leva sa main droite tenant la moitié de la boussole. Il projeta la boussole directement dans la gueule de la Bête des Limbes.
 
-Toutes les âmes de l'Omniscient tremblèrent et hurlèrent. Elles tentèrent désespérément de s'éparpiller et de fuir dans 2 999 directions différentes.
+Toutes les âmes de Tian Yunzi tremblèrent et hurlèrent. Elles tentèrent désespérément de s'éparpiller et de fuir dans 2 999 directions différentes.
 
 Lanmeng Daozun et ses compagnons voulurent les poursuivre, mais Wang Lin les en empêcha. Il observa la Bête des Limbes mâcher avec sa gueule immense, l'air hébété. Après un long moment, la confusion disparut pour laisser place à une expression impitoyable.
 

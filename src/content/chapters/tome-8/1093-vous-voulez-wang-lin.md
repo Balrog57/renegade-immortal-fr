@@ -46,7 +46,7 @@ En plus d'accomplir la tâche confiée par Luotian, il avait un objectif personn
 
 Il pensait que la Secte Divine de l'Oiseau Vermillon avait ses raisons d'avoir pris Wang Lin. Trois ans étaient suffisants pour épuiser la valeur de ce dernier. Désormais, Wang Lin était probablement devenu inutile pour eux; il ne devrait donc pas être difficile de le récupérer.
 
-La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit qu'une seule de ses techniques a suffi à tuer Maître du Vide. Il a également fait périr deux des trois grands avatars de l'Omniscient et blessé le troisième. Pourquoi le Senior Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divine de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
+La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit qu'une seule de ses techniques a suffi à tuer Maître du Vide. Il a également fait périr deux des trois grands avatars de Tian Yunzi et blessé le troisième. Pourquoi le Senior Lie Yunzi pense-t-il qu'il n'est pas qualifié? À l'époque, la Secte Divine de l'Oiseau Vermillon avait déployé une force massive, menée par l'Esprit Véritable de l'Oiseau Vermillon lui-même. »
 
 Lie Yunzi répondit calmement: « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de culture! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
 

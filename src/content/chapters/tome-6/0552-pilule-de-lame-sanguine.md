@@ -40,7 +40,7 @@ Ces symboles scintillaient selon une fréquence étrange qui s'accordait parfait
 
 Wang Lin demanda d'un ton sérieux: « Qu'est-ce que c'est? »
 
-Yao Xixue ne cacha pas son mépris: « Vous ne savez même pas ce que c'est? Cela ne m'étonne guère, puisque vous venez de devenir le disciple de l'Omniscient. C'est une chose unique à mon père, Xue Zu. On l'appelle la Pilule de l'Âme Sanguine! »
+Yao Xixue ne cacha pas son mépris: « Vous ne savez même pas ce que c'est? Cela ne m'étonne guère, puisque vous venez de devenir le disciple de Tian Yunzi. C'est une chose unique à mon père, Xue Zu. On l'appelle la Pilule de l'Âme Sanguine! »
 
 « La Pilule de l'Âme Sanguine! » C'était la première fois que Wang Lin en entendait parler, mais son expression resta imperturbable. Il ignorait que si les cultivateurs de Tian Yun entendaient cela, ils deviendraient tous fous de rage ou d'envie.
 
@@ -92,7 +92,7 @@ Dès son apparition, Cao Yidou se prostra au sol et dit respectueusement: « Sal
 
 Wang Lin ne perdit pas de temps: « Connais-tu Xue Zu? »
 
-À la mention du nom d'« Xue Zu », l'expression de Cao Yidou changea instantanément. Il lui fallut un long moment pour reprendre contenance avant de répondre: « Je sais que la renommée de Xue Zu est connue de chaque cultivateur sur la planète Tian Yun! La rumeur dit qu'il a défié l'Omniscient sept fois et que, bien qu'il ait perdu à chaque fois, sa culture était plus puissante à chaque nouveau combat. On raconte aussi qu'il serait le troisième cultivateur le plus puissant de la planète Tian Yun après l'Omniscient et Ling Tianhou. Bien que ce ne soit qu'une rumeur, cela montre l'immensité de sa puissance! »
+À la mention du nom d'« Xue Zu », l'expression de Cao Yidou changea instantanément. Il lui fallut un long moment pour reprendre contenance avant de répondre: « Je sais que la renommée de Xue Zu est connue de chaque cultivateur sur la planète Tian Yun! La rumeur dit qu'il a défié Tian Yunzi sept fois et que, bien qu'il ait perdu à chaque fois, sa culture était plus puissante à chaque nouveau combat. On raconte aussi qu'il serait le troisième cultivateur le plus puissant de la planète Tian Yun après Tian Yunzi et Ling Tianhou. Bien que ce ne soit qu'une rumeur, cela montre l'immensité de sa puissance! »
 
 Wang Lin réfléchit un instant: « As-tu entendu parler de la Pilule de l'Âme Sanguine? »
 

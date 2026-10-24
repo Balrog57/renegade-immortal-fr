@@ -94,7 +94,7 @@ En contemplant la boussole, elle afficha une expression d'hésitation.
 
 Les sourcils délicats de Yao Xixue se froncèrent tandis qu'elle méditait, boussole en main.
 
-« Lorsque Père, l'Omniscient et son entourage sont venus ici il y a de nombreuses années, ils ont découvert cet endroit grâce à l'un des Empereurs Démons. La dernière fois, Père n'avait pas eu le temps d'explorer les lieux avant de partir pour l'Abîme des Marées avec le reste du groupe. Après des années d'analyse, il est sûr à 60 % que ce lieu est réel... »
+« Lorsque Père, Tian Yunzi et son entourage sont venus ici il y a de nombreuses années, ils ont découvert cet endroit grâce à l'un des Empereurs Démons. La dernière fois, Père n'avait pas eu le temps d'explorer les lieux avant de partir pour l'Abîme des Marées avec le reste du groupe. Après des années d'analyse, il est sûr à 60 % que ce lieu est réel... »
 
 « Peu importe, j'y vais une dernière fois. Si je ne peux toujours pas entrer, je devrai attendre d'atteindre le stade Ascendant! Après tout, j'ai déjà consommé trois des Pilules de l'Âme Sanguine créées par Père lors de mes trois précédentes tentatives. Il ne m'en reste que six. Je vais devoir rester ici encore longtemps, il vaut mieux ne pas les gaspiller. Une seule Pilule de l'Âme Sanguine représente une autre vie! »
 

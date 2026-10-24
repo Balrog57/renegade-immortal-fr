@@ -24,7 +24,7 @@ Wang Lin restait simplement immobile. Il contemplait calmement le ciel et médit
 
 « Ce n'était qu'une petite complétion due à l'absorption de l'énergie Yang extrême par la perle défiant le ciel. Si je veux en voir l'intégralité, elle doit absorber l'énergie Yin pour atteindre sa pleine complétion. Je suppose que j'aurai alors une réponse! » Wang Lin prit une profonde inspiration et ses yeux brillèrent.
 
-« Peu importe si l'Omniscient complotait contre moi ou contre Ling Tianhou; il s'est trompé cette fois! Le piège a été brisé! » Wang Lin ricana et fit un pas vers le vide. Son regard balaya la tour gigantesque où se trouvait Ling Tianhou.
+« Peu importe si Tian Yunzi complotait contre moi ou contre Ling Tianhou; il s'est trompé cette fois! Le piège a été brisé! » Wang Lin ricana et fit un pas vers le vide. Son regard balaya la tour gigantesque où se trouvait Ling Tianhou.
 
 Un énorme trou était apparu sur le flanc de la tour. Des vestiges de fluctuations d'énergie originelle y étaient encore perceptibles.
 
@@ -32,11 +32,11 @@ Un énorme trou était apparu sur le flanc de la tour. Des vestiges de fluctuati
 
 Wang Lin fit un pas et quitta la planète Da Luo.
 
-« Quelle était la cible de l'autre rayon de lumière provenant de la perle... » Wang Lin songea, puis ses yeux s'illuminèrent tandis qu'il murmurait: « Ce serait une excellente chose que ce soit l'Omniscient... »
+« Quelle était la cible de l'autre rayon de lumière provenant de la perle... » Wang Lin songea, puis ses yeux s'illuminèrent tandis qu'il murmurait: « Ce serait une excellente chose que ce soit Tian Yunzi... »
 
 Il mit fin à ses pensées et ne s'attarda plus sur cette affaire. Puis, se transformant en un rayon de lumière, il s'élança dans les profondeurs de l'espace.
 
-« Le complot de l'Omniscient a échoué, il n'est donc plus nécessaire de rester sur la planète Da Luo. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniaques! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
+« Le complot de Tian Yunzi a échoué, il n'est donc plus nécessaire de rester sur la planète Da Luo. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniaques! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
 
 Wang Lin n'utilisant pas la Distorsion Spatiale, il volait néanmoins à bonne allure, filant comme un rayon de lumière à travers l'espace. Quelques heures plus tard, il aperçut une planète abandonnée.
 

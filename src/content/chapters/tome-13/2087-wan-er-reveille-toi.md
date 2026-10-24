@@ -6,15 +6,15 @@ bookTitle: Light of the coming end
 en: Chapter 2087 - Wan Er, Wake Up
 slug: wan-er-reveille-toi
 ---
-La voix de l'Omniscient résonna dans le Royaume Divin Immémorial, en partant de la montagne enneigée aux sept couleurs, et se répandit dans toutes les directions. Son immense corps de brume noire se précipita vers Wang Lin, animé d'un refus rageur et d'une folie désespérée.
+La voix de Tian Yunzi résonna dans le Royaume Divin Immémorial, en partant de la montagne enneigée aux sept couleurs, et se répandit dans toutes les directions. Son immense corps de brume noire se précipita vers Wang Lin, animé d'un refus rageur et d'une folie désespérée.
 
 Il refusait d'accepter cette issue. Il avait attendu si longtemps, traversé d'innombrables réincarnations jusqu'à ce jour fatidique, mais il ne s'était jamais attendu à ce que tout se termine ainsi.
 
-Wang Lin avait trompé tout le monde. Même l'Omniscient ignorait que tout n'était pas un rêve de Wang Lin, mais plutôt la Voie de l'avatar de massacre.
+Wang Lin avait trompé tout le monde. Même Tian Yunzi ignorait que tout n'était pas un rêve de Wang Lin, mais plutôt la Voie de l'avatar de massacre.
 
-Le cœur de l'Omniscient était envahi par un sentiment absurde, une sensation suffisante pour le rendre fou. Il était l'esprit précieux de la Boussole des Limites, et il avait vu Wang Lin revenir ici encore et encore, se dissipant à chaque réincarnation.
+Le cœur de Tian Yunzi était envahi par un sentiment absurde, une sensation suffisante pour le rendre fou. Il était l'esprit précieux de la Boussole des Limites, et il avait vu Wang Lin revenir ici encore et encore, se dissipant à chaque réincarnation.
 
-Jusqu'au moment où il vit personnellement Wang Lin briser la boussole avant de se dissiper. Cela lui permit, à l'Omniscient, de sortir, et à cet instant, il avait éclaté de joie.
+Jusqu'au moment où il vit personnellement Wang Lin briser la boussole avant de se dissiper. Cela lui permit, à Tian Yunzi, de sortir, et à cet instant, il avait éclaté de joie.
 
 Il ignorait ses propres origines. Dans sa mémoire, lorsqu'il s'était éveillé pour la première fois il y a d'innombrables années, il était déjà l'esprit précieux de la Boussole des Limites.
 
@@ -48,7 +48,7 @@ Wang Lin leva la main droite et, regardant la brume noire foncer sur lui, fit un
 
 « Lorsque j'ai maîtrisé la réincarnation, j'avais déjà atteint le Piétinement des Cieux. » Tandis que Wang Lin parlait calmement, il agita sa manche. La brume noire devant lui grésilla et commença à se dissiper rapidement.
 
-« Je refuse que cela se termine ainsi! Wang Lin, je refuse! » L'Omniscient poussa un cri misérable. Alors que les gaz noirs se dispersaient, le reste de la substance se condensa en une tête gigantesque. Cette tête différait grandement de l'apparence de l'Omniscient: c'était celle d'un homme d'âge moyen à l'allure imposante, entre ses sourcils scintillait un motif d'étoile à cinq branches à l'intérieur duquel une ombre vague de grue semblait lutter.
+« Je refuse que cela se termine ainsi! Wang Lin, je refuse! » Tian Yunzi poussa un cri misérable. Alors que les gaz noirs se dispersaient, le reste de la substance se condensa en une tête gigantesque. Cette tête différait grandement de l'apparence de Tian Yunzi: c'était celle d'un homme d'âge moyen à l'allure imposante, entre ses sourcils scintillait un motif d'étoile à cinq branches à l'intérieur duquel une ombre vague de grue semblait lutter.
 
 Tout cela ne dura qu'un instant avant de se dissiper. La tête de l'homme s'évapora et le reste de la brume noire se transforma soudainement en une gigantesque grue noire.
 
@@ -60,11 +60,11 @@ La grue continua de se débattre. Tandis qu'elle hurlait, les yeux de Wang Lin s
 
 La grue noire vola en éclats.
 
-Le sens divin de l'Omniscient était en plein chaos, et lorsque la grue se désintégra, l'Omniscient disparut avec elle. Juste au moment où le dernier fragment de son sens divin allait être anéanti, il sembla se souvenir de quelque chose du passé — des choses qu'il croyait absentes de sa mémoire.
+Le sens divin de Tian Yunzi était en plein chaos, et lorsque la grue se désintégra, Tian Yunzi disparut avec elle. Juste au moment où le dernier fragment de son sens divin allait être anéanti, il sembla se souvenir de quelque chose du passé — des choses qu'il croyait absentes de sa mémoire.
 
-« Royaume Dao du Matin... Mon foyer... » murmura l'Omniscient alors que son sens divin se dissipait complètement et qu'il mourait définitivement. Son corps de grue se transforma en d'innombrables filaments de brume noire. Parmi eux, un brin de gaz gris était nettement visible. Wang Lin regarda ce gaz gris se précipiter vers le pont relié au ciel et disparaître dans l'illusion située derrière celui-ci.
+« Royaume Dao du Matin... Mon foyer... » murmura Tian Yunzi alors que son sens divin se dissipait complètement et qu'il mourait définitivement. Son corps de grue se transforma en d'innombrables filaments de brume noire. Parmi eux, un brin de gaz gris était nettement visible. Wang Lin regarda ce gaz gris se précipiter vers le pont relié au ciel et disparaître dans l'illusion située derrière celui-ci.
 
-Ce gaz gris ne portait aucune trace de l'aura de l'Omniscient.
+Ce gaz gris ne portait aucune trace de l'aura de Tian Yunzi.
 
 Les yeux de Wang Lin s'illuminèrent, mais il ne fut pas surpris, comme s'il avait déjà su l'existence de ce gaz gris. Il lui jeta un simple regard avant de l'ignorer. Sa main droite s'étendit pour saisir la brume noire.
 

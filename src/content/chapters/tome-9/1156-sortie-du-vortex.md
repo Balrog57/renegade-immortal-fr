@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1156 - Leaving the Vortex
 slug: sortie-du-vortex
 ---
-Tenant l'épée de fer rouillée, Wang Lin recula tandis que Noble Argent chargeait. D'un geste de la main gauche, Wang Lin projeta les âmes de Maître Vide et d'Omniscient vers l'avant.
+Tenant l'épée de fer rouillée, Wang Lin recula tandis que Noble Argent chargeait. D'un geste de la main gauche, Wang Lin projeta les âmes de Maître Vide et d'Tian Yunzi vers l'avant.
 
 Ces deux âmes de combat étaient les atouts les plus puissants de Wang Lin, après la faible source originelle qu'il lui restait. Accompagné de cette épée de fer, il engageait désormais toute sa puissance.
 
@@ -20,19 +20,19 @@ Sans l'Armure de Cuir d'Ancien Dieu protégeant son âme originelle, celle-ci se
 
 Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sorts de Noble Argent! Ayant traversé de nombreux périls durant sa vie de cultivateur, Wang Lin connaissait naturellement le danger que représentaient les cultivateurs du niveau Briseur du Nirvana.
 
-Wang Lin n'avait pas de temps à perdre en réflexions; il devait mettre fin à ce combat et tenter de tuer ce cultivateur Briseur du Nirvana! D'un mouvement de sa main gauche, Maître Vide et Omniscient se précipitèrent sur Noble Argent.
+Wang Lin n'avait pas de temps à perdre en réflexions; il devait mettre fin à ce combat et tenter de tuer ce cultivateur Briseur du Nirvana! D'un mouvement de sa main gauche, Maître Vide et Tian Yunzi se précipitèrent sur Noble Argent.
 
 Face à ces deux âmes puissantes, même Noble Argent se montra extrêmement prudent. Dans toute sa vie de culture, il n'avait jamais vu un cultivateur du niveau Purificateur du Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
 
-L'âme d'Omniscient semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Argent.
+L'âme d'Tian Yunzi semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Argent.
 
 Il y avait aussi l'âme de Maître Vide. Ayant atteint son premier Fléau Céleste avant de mourir, il agita ses manches et une tempête de tonnerre surgit pour contrer le sort de Noble Argent.
 
-Si Wang Lin n'avait pas eu la contrainte du temps, il aurait pu utiliser Maître Vide et Omniscient pour épuiser et broyer Noble Argent. Cependant, il manquait de temps et d'énergie originelle céleste pour maintenir ces deux âmes puissantes.
+Si Wang Lin n'avait pas eu la contrainte du temps, il aurait pu utiliser Maître Vide et Tian Yunzi pour épuiser et broyer Noble Argent. Cependant, il manquait de temps et d'énergie originelle céleste pour maintenir ces deux âmes puissantes.
 
 L'Arsenal Magique avait déjà consommé la majeure partie de son énergie originelle céleste!
 
-Tandis que Maître Vide et Omniscient harcelaient Noble Argent, Wang Lin leva sa main droite et fixa l'épée de fer. Il trancha l'air impitoyablement, libérant un rayon d'énergie d'épée capable de faire trembler la terre. Cette énergie se mua en l'illusion d'une épée gigantesque qui s'abattit sur Noble Argent.
+Tandis que Maître Vide et Tian Yunzi harcelaient Noble Argent, Wang Lin leva sa main droite et fixa l'épée de fer. Il trancha l'air impitoyablement, libérant un rayon d'énergie d'épée capable de faire trembler la terre. Cette énergie se mua en l'illusion d'une épée gigantesque qui s'abattit sur Noble Argent.
 
 Mais ce n'était pas fini. Wang Lin ferma les yeux et abandonna le contrôle de l'épée de fer, la laissant agir par elle-même. L'arme bougeait comme si la main de Wang Lin y était fusionnée, et une autre entaille fut décochée.
 
@@ -42,7 +42,7 @@ L'énergie d'épée s'entremêla pour former une fleur. De loin, ces rayons incu
 
 En un clin d'œil, treize coups d'épée tombèrent! Wang Lin maniait son bras les yeux clos, l'épée obéissant à sa volonté propre. Une aura d'une intensité terrifiante émana de lui, comme si le monde entier allait être anéanti par cette lame!
 
-Tout cela se produisit en un instant. Noble Argent, entravé par Maître Vide et Omniscient, formait désespérément des sceaux pour lancer divers sorts et trésors, mais son visage était livide. Bien qu'il sût que l'épée de fer était un trésor du niveau Pseudo-Nirvana Vide, il existait une immense différence de puissance entre les trésors de ce rang.
+Tout cela se produisit en un instant. Noble Argent, entravé par Maître Vide et Tian Yunzi, formait désespérément des sceaux pour lancer divers sorts et trésors, mais son visage était livide. Bien qu'il sût que l'épée de fer était un trésor du niveau Pseudo-Nirvana Vide, il existait une immense différence de puissance entre les trésors de ce rang.
 
 Ce qu'il n'avait pas pu imaginer, c'était la puissance brute de l'énergie d'épée! À cet instant, bien qu'il voie l'énergie converger vers lui, il était incapable de l'esquiver. Il poussa un rugissement et tenta de se libérer des deux âmes qui le retenaient.
 
@@ -88,9 +88,9 @@ Après avoir absorbé l'âme de son esprit de bête, Noble Argent s'enfuit comme
 
 L'oiseau vermillon disparut et Wang Lin réapparut. Sa poitrine était un carnage et l'on distinguait vaguement des fils blancs qui se faufilaient dans sa chair. Il fixa l'âme fuyante de Noble Argent, et son intention meurtrière redoubla d'intensité.
 
-« Âme de l'Omniscient, fusionne avec mon sens divin! » Wang Lin n'utilisa pas le sort d'Arrêt, mais forma un sceau avant de pointer vers l'âme de l'Omniscient. Les yeux de l'âme scintillèrent et se transformèrent en un rayon de lumière qui pénétra le corps de Wang Lin.
+« Âme de Tian Yunzi, fusionne avec mon sens divin! » Wang Lin n'utilisa pas le sort d'Arrêt, mais forma un sceau avant de pointer vers l'âme de Tian Yunzi. Les yeux de l'âme scintillèrent et se transformèrent en un rayon de lumière qui pénétra le corps de Wang Lin.
 
-Le corps de Wang Lin trembla et son regard devint soudainement d'un calme absolu. Ce calme donnait l'impression que ses yeux pouvaient percer tous les mystères du monde. De tous les cultivateurs que Wang Lin avait rencontrés, l'Omniscient était le seul à posséder une telle aura!
+Le corps de Wang Lin trembla et son regard devint soudainement d'un calme absolu. Ce calme donnait l'impression que ses yeux pouvaient percer tous les mystères du monde. De tous les cultivateurs que Wang Lin avait rencontrés, Tian Yunzi était le seul à posséder une telle aura!
 
 Après avoir obtenu la fortune de Qing Lin, Wang Lin avait eu une illumination concernant les sorts de Bai Fan. Ayant atteint la limite de l'Arsenal Magique, il pouvait désormais fusionner l'âme avec lui-même!
 
@@ -100,7 +100,7 @@ Instantanément, une tempête éclata au loin, la brume tourbillonnant violemmen
 
 Le Doigt du Destin Céleste!
 
-Wang Lin utilisa sa propre puissance et l'âme de l'Omniscient comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer des Nuages. Il progressait avec une célérité et un élan inimaginables vers Noble Argent. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
+Wang Lin utilisa sa propre puissance et l'âme de Tian Yunzi comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer des Nuages. Il progressait avec une célérité et un élan inimaginables vers Noble Argent. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
 
 Alors que le Doigt du Destin Céleste balayait tout sur son passage, l'âme de Noble Argent s'effondra en une multitude de particules de lumière. Le Doigt du Destin Céleste disparut avec lui.
 

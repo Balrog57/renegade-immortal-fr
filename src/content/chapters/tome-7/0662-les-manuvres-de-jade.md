@@ -24,7 +24,7 @@ La culture de Wang Lin atteignait déjà le stade initial de l'Ascendant et son 
 
 Bien sûr, ce n'était pas le cas pour les vieux monstres qui se trouvaient au deuxième échelon.
 
-« Je ne devrais pas être découvert si je me cache ici. Même si l'Omniscient et ses compagnons me traquent jusqu'au système stellaire de Luotian, ils ne penseront pas que je puisse me cacher sur une planète de culture comme celle-ci. » Les yeux de Wang Lin s'illuminèrent, puis perdirent progressivement de leur férocité. Bien qu'ils fussent toujours limpides, leur éclat saisissant avait totalement disparu.
+« Je ne devrais pas être découvert si je me cache ici. Même si Tian Yunzi et ses compagnons me traquent jusqu'au système stellaire de Luotian, ils ne penseront pas que je puisse me cacher sur une planète de culture comme celle-ci. » Les yeux de Wang Lin s'illuminèrent, puis perdirent progressivement de leur férocité. Bien qu'ils fussent toujours limpides, leur éclat saisissant avait totalement disparu.
 
 « À en juger par l'expression de ces quatre petits gars, la planète Dong Lin est extrêmement puissante. Avant d'être assez fort, je ne peux pas m'y rendre! »
 

@@ -3,7 +3,7 @@ n: 967
 title: "Que le Tout-Voyant se trompe une fois!"
 book: 8
 bookTitle: "Alliance's Secret"
-en: "Chapter 967 - Let the Omniscient Foresee Wrong Once!"
+en: "Chapter 967 - Let the Tian Yunzi Foresee Wrong Once!"
 slug: que-le-tout-voyant-se-trompe-une-fois
 ---
 Bai Wei regarda la restriction surplombant la vallée et dit: « Je m'appelle Bai Wei! Frère Wang, votre venue ici signifie que vous avez dû comprendre le sens caché de mes paroles. »
@@ -62,41 +62,41 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 C'était comme si Wang Lin avait été frappé par la foudre en entendant les paroles de Bai Wei. Il retint son souffle, les yeux écarquillés par le choc.
 
-« Qu'est-ce que cet extrême Yin et cet extrême Yang... qui ont poussé l'Omniscient à traverser tout cela pour les obtenir? » Wang Lin regarda Bai Wei. En se fiant à son intuition, il croyait soixante-dix pour cent de ce qu'il disait.
+« Qu'est-ce que cet extrême Yin et cet extrême Yang... qui ont poussé Tian Yunzi à traverser tout cela pour les obtenir? » Wang Lin regarda Bai Wei. En se fiant à son intuition, il croyait soixante-dix pour cent de ce qu'il disait.
 
 Le visage de Bai Wei prit une expression féroce et il éclata de rire. « Wang Lin, mon plan a échoué, et je ne peux tout simplement pas rivaliser avec Maître. Il doit savoir que je savais tout depuis le début. Je ne suis qu'une fourmi devant lui, et peu importe les efforts d'une fourmi, elle est incapable de bouleverser le ciel et la terre!
 
 « Cependant, moi, cette fourmi, cette expérience de son œuvre, je vais faire quelque chose pour le choquer! Je ne crois pas qu'il puisse prévoir avec certitude cette idée qui vient soudainement de germer dans mon esprit!
 
-« Wang Lin, je connais ma situation mieux que quiconque; il est impossible de me sauver. Cependant, avant de mourir, je veux extraire de mon corps cet extrême Yang qui a été cultivé pendant mille ans, la chose que l'Omniscient attendait tant, et vous la donner. Wang Lin, osez-vous la prendre? »
+« Wang Lin, je connais ma situation mieux que quiconque; il est impossible de me sauver. Cependant, avant de mourir, je veux extraire de mon corps cet extrême Yang qui a été cultivé pendant mille ans, la chose que Tian Yunzi attendait tant, et vous la donner. Wang Lin, osez-vous la prendre? »
 
 Bai Wei fixa Wang Lin, et sa voix résonna dans toute la vallée. Les mêmes mots semblèrent surgir de partout dans la vallée pour pénétrer les oreilles de Wang Lin comme des coups de tonnerre.
 
 « Osez-vous la prendre? »
 
-Wang Lin réfléchit en silence. Il ne pouvait s'empêcher de peser le pour et le contre. Il ignorait ce que c'était, mais si l'Omniscient y accordait tant d'importance, cela devait être crucial. S'il l'acceptait maintenant, il ferait indubitablement face à la colère de l'Omniscient!
+Wang Lin réfléchit en silence. Il ne pouvait s'empêcher de peser le pour et le contre. Il ignorait ce que c'était, mais si Tian Yunzi y accordait tant d'importance, cela devait être crucial. S'il l'acceptait maintenant, il ferait indubitablement face à la colère de Tian Yunzi!
 
 « L'heure du Lapin touche à sa fin; Maître arrivera d'un instant à l'autre. Wang Lin, donnez-moi une réponse. Osez-vous ou non?! » Bai Wei attendit un moment avant de montrer un air de déception. Il sourit amèrement en secouant la tête et murmura: « Le Maître a-t-il aussi calculé tout cela... A-t-il prévu que même si je vous l'offrais, vous ne l'accepteriez pas? Et que même si vous le faisiez, vous la lui rendriez... Maître, avez-vous vraiment été infaillible durant toutes ces innombrables années? Je n'y crois pas, je n'y crois pas!!! Je refuse de croire que vous n'ayez jamais commis une seule erreur dans votre vie!! »
 
 Alors que les paroles de Bai Wei atteignaient Wang Lin, ses yeux commencèrent à briller intensément.
 
-« Ne jamais faire d'erreur de prédiction et toujours avoir raison, tel est l'Omniscient parfait. Un tel être n'a aucune faiblesse. Si quiconque veut l'affronter, il est déjà désavantagé avant même le combat! Mais... si vous le forcez à commettre une erreur de calcul, que se passerait-il... » Le rythme cardiaque de Wang Lin s'accéléra brusquement.
+« Ne jamais faire d'erreur de prédiction et toujours avoir raison, tel est Tian Yunzi parfait. Un tel être n'a aucune faiblesse. Si quiconque veut l'affronter, il est déjà désavantagé avant même le combat! Mais... si vous le forcez à commettre une erreur de calcul, que se passerait-il... » Le rythme cardiaque de Wang Lin s'accéléra brusquement.
 
-« L'Omniscient a calculé que je n'oserais pas la prendre. Si je l'accepte, il aura certainement l'intention de me tuer. Cette intention ne sera pas contenue et il tentera de m'éliminer sur le champ!
+« Tian Yunzi a calculé que je n'oserais pas la prendre. Si je l'accepte, il aura certainement l'intention de me tuer. Cette intention ne sera pas contenue et il tentera de m'éliminer sur le champ!
 
 « Sa clairvoyance est terrifiante; tout est contenu dans ses calculs! »
 
 La prendre ou ne pas la prendre!
 
-Les yeux de Wang Lin étaient tourmentés par l'hésitation. Il avait toujours agi avec détermination et rarement hésité, mais à cet instant, il en était réduit à l'indécision. Après tout, l'accepter signifiait s'enfoncer dans une situation périlleuse dont il serait difficile de sortir indemne. Mais si Wang Lin refusait, il savait que la conviction que l'Omniscient ne pouvait jamais se tromper resterait gravée dans son esprit. Bien qu'il n'ait jamais affronté l'Omniscient en combat, cela pouvait être considéré comme une confrontation spirituelle!
+Les yeux de Wang Lin étaient tourmentés par l'hésitation. Il avait toujours agi avec détermination et rarement hésité, mais à cet instant, il en était réduit à l'indécision. Après tout, l'accepter signifiait s'enfoncer dans une situation périlleuse dont il serait difficile de sortir indemne. Mais si Wang Lin refusait, il savait que la conviction que Tian Yunzi ne pouvait jamais se tromper resterait gravée dans son esprit. Bien qu'il n'ait jamais affronté Tian Yunzi en combat, cela pouvait être considéré comme une confrontation spirituelle!
 
-S'il refusait, sa confiance face à l'Omniscient s'effondrerait lors de leur futur affrontement. Peu importe ses actes, il se demanderait sans cesse si tout n'était pas également prévu par les calculs de l'Omniscient!
+S'il refusait, sa confiance face à Tian Yunzi s'effondrerait lors de leur futur affrontement. Peu importe ses actes, il se demanderait sans cesse si tout n'était pas également prévu par les calculs de Tian Yunzi!
 
-S'il agissait ainsi, son cœur de Dao deviendrait timoré. Que parler alors de compréhension du karma, d'énergie d'origine ou de suivre la voie du Dao? Sa culture stagnerait et il vivrait à jamais sous l'ombre de la prévoyance omnipotente de l'Omniscient!
+S'il agissait ainsi, son cœur de Dao deviendrait timoré. Que parler alors de compréhension du karma, d'énergie d'origine ou de suivre la voie du Dao? Sa culture stagnerait et il vivrait à jamais sous l'ombre de la prévoyance omnipotente de Tian Yunzi!
 
-« Je suis un cultivateur qui défie les cieux! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux au stade de l'Ascendant, dans la Terre des Esprits Démoniaques. Comment un simple Omniscient pouvait-il être comparé aux cieux?!
+« Je suis un cultivateur qui défie les cieux! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux au stade de l'Ascendant, dans la Terre des Esprits Démoniaques. Comment un simple Tian Yunzi pouvait-il être comparé aux cieux?!
 
-« Bai Wei n'a pas de bonnes intentions. Avant de mourir, il veut m'entraîner avec lui pour défier l'Omniscient! Il veut voir de ses propres yeux l'Omniscient se tromper sur une chose avant son dernier souffle! »
+« Bai Wei n'a pas de bonnes intentions. Avant de mourir, il veut m'entraîner avec lui pour défier Tian Yunzi! Il veut voir de ses propres yeux Tian Yunzi se tromper sur une chose avant son dernier souffle! »
 
 Le regard de Wang Lin devint glacial, puis il dit lentement: « Pourquoi n'oserais-je pas? »
 

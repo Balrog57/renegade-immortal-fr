@@ -46,7 +46,7 @@ L'homme d'âge moyen qui avait hurlé s'apprêtait à charger, mais Zhao Xingsha
 
 Le visage de Zhao Xingsha était empreint d'une grande gravité. Ignorant l'homme, il fixa Wang Lin d'un regard sombre et déclara: « Wang Lin, tu es le septième disciple, je t'appellerai donc septième frère cadet. Que s'est-il passé? »
 
-L'expression de Wang Lin demeura imperturbable. L'apparition de ces gens était prévisible. Il soupçonnait que tout ceci était manipulé en secret par l'Omniscient, sans pour autant comprendre ses motivations. Malgré l'incertitude de la situation, aucune trace de peur ne transparaissait sur son visage.
+L'expression de Wang Lin demeura imperturbable. L'apparition de ces gens était prévisible. Il soupçonnait que tout ceci était manipulé en secret par Tian Yunzi, sans pour autant comprendre ses motivations. Malgré l'incertitude de la situation, aucune trace de peur ne transparaissait sur son visage.
 
 Zhao Xingsha était au milieu du stade de la Transformation de l'Âme! Bai Wei également! L'homme d'âge moyen aussi! La seule personne dont Wang Lin ignorait le niveau était la femme; sa culture semblait extrêmement puissante!
 

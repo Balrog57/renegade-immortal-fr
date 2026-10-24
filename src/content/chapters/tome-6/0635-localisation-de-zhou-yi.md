@@ -12,7 +12,7 @@ Après leur apparition, ces insectes se divisèrent en cinq groupes et chargère
 
 L'expression de Du Jian changea radicalement et son visage devint extrêmement pâle. Il avait personnellement été témoin de la puissance de ces créatures: la marionnette avait vu sa chair et son âme dévorées quelques secondes seulement après que les insectes eurent pénétré dans son corps.
 
-À cet instant, il frappa sans hésiter dans son sac de rangement pour en sortir le jade de sauvetage que l'Omniscient lui avait confié. Ce jade n'avait que trois utilisations; il en avait déjà consommé une bien longtemps auparavant, et c'était maintenant la deuxième fois qu'il s'en servait.
+À cet instant, il frappa sans hésiter dans son sac de rangement pour en sortir le jade de sauvetage que Tian Yunzi lui avait confié. Ce jade n'avait que trois utilisations; il en avait déjà consommé une bien longtemps auparavant, et c'était maintenant la deuxième fois qu'il s'en servait.
 
 Le jade émit une lumière multicolore qui enveloppa immédiatement le corps de Du Jian. Dès l'apparition de cette lueur, tous les insectes se regroupèrent au lieu de se disperser; ils encerclèrent la lumière autour de Du Jian, et bientôt, des bruits de craquements s'élevèrent de l'éclat multicolore.
 
@@ -60,7 +60,7 @@ Cette scène stupéfia tout le monde, particulièrement les deux femmes. Pour la
 
 Ces réactions identiques ne manquèrent pas d'attirer l'attention de Wang Lin, ce qui le surprit. Il comprit enfin pourquoi il avait toujours ressenti une sensation étrange envers ces deux-là. Cependant, il n'avait pas le temps de s'en préoccuper. Il avança immédiatement pour rejoindre Du Jian et tendit la main.
 
-Du Jian était, après tout, un disciple de l'Omniscient; il était le septième disciple de la Division Rouge. Bien qu'il n'ait pas encore atteint le stade Ascendant, ses sorts étaient néanmoins prodigieux. En cette situation critique, il se mordit la langue et cracha une essence de sang d'âme originelle.
+Du Jian était, après tout, un disciple de Tian Yunzi; il était le septième disciple de la Division Rouge. Bien qu'il n'ait pas encore atteint le stade Ascendant, ses sorts étaient néanmoins prodigieux. En cette situation critique, il se mordit la langue et cracha une essence de sang d'âme originelle.
 
 Ce sang flotta dans l'air, semblant bouillir en prenant la forme de petites sphères. Même avec la culture de Wang Lin, s'il les touchait, son corps serait criblé de trous.
 

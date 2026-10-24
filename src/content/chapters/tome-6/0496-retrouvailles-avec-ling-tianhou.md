@@ -6,25 +6,25 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 496 - Meeting Ling Tianhou again
 slug: retrouvailles-avec-ling-tianhou
 ---
-Les yeux de Wang Lin s'illuminèrent. Tous les autres en firent autant, fixant l'Omniscient d'un regard intense pour la suite du récit.
+Les yeux de Wang Lin s'illuminèrent. Tous les autres en firent autant, fixant Tian Yunzi d'un regard intense pour la suite du récit.
 
-L'Ancien Sun réfléchit un instant, puis poussa un soupir et agita la main. « Soit, vieil Omniscient, ton caractère a toujours été étrange. Si tu veux le dire, dis-le donc. »
+L'Ancien Sun réfléchit un instant, puis poussa un soupir et agita la main. « Soit, vieil Tian Yunzi, ton caractère a toujours été étrange. Si tu veux le dire, dis-le donc. »
 
-L'Omniscient sourit. « Au cours des innombrables années où l'Alliance de Culture a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
+Tian Yunzi sourit. « Au cours des innombrables années où l'Alliance de Culture a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
 
-L'Omniscient poursuivit son enseignement du Dao, mais presque tous les auditeurs restaient hantés par ce « lui » dont il avait parlé. Cependant, l'Omniscient reprit sa leçon sans jamais évoquer l'homme à nouveau. L'enseignement dura trois jours.
+Tian Yunzi poursuivit son enseignement du Dao, mais presque tous les auditeurs restaient hantés par ce « lui » dont il avait parlé. Cependant, Tian Yunzi reprit sa leçon sans jamais évoquer l'homme à nouveau. L'enseignement dura trois jours.
 
 Wang Lin écoutait en silence et commençait progressivement à saisir certains principes.
 
 « Une fois que ce vieil homme aura enseigné le Dao, comme je le fais tous les 10 000 ans, je ferai un immense cadeau à tous ceux qui sont présents. Je vais effectuer la démonstration d'un sort céleste de qualité moyenne. Quant à votre capacité, vous autres cultivateurs, à en comprendre les subtilités, chacun en comprendra ce qu'il pourra. »
 
-À ces mots, l'attention de presque tous se porta sur lui; même les puissants cultivateurs devinrent extrêmement concentrés. Certains, dont la puissance n'était guère inférieure à celle de l'Omniscient, étaient tout aussi absorbés.
+À ces mots, l'attention de presque tous se porta sur lui; même les puissants cultivateurs devinrent extrêmement concentrés. Certains, dont la puissance n'était guère inférieure à celle de Tian Yunzi, étaient tout aussi absorbés.
 
 Il faut dire que les sorts célestes sont d'une rareté absolue, et les sorts de qualité moyenne le sont plus encore.
 
-Si tant de personnes s'étaient déplacées pour l'anniversaire de l'Omniscient, au-delà de sa célébrité, de ses nombreux amis et de son enseignement du Dao, c'était avant tout pour cette démonstration de sort céleste. C'était une tentation irrésistible pour le cœur de chaque cultivateur.
+Si tant de personnes s'étaient déplacées pour l'anniversaire de Tian Yunzi, au-delà de sa célébrité, de ses nombreux amis et de son enseignement du Dao, c'était avant tout pour cette démonstration de sort céleste. C'était une tentation irrésistible pour le cœur de chaque cultivateur.
 
-Wang Lin prit une profonde inspiration et fixa intensément l'Omniscient. Il n'avait jamais vu de véritable sort céleste auparavant; le plus proche qu'il ait contemplé était cette restriction qui n'était qu'une imitation d'un sort céleste. Si cette restriction était déjà si puissante, Wang Lin ne pouvait même pas imaginer la force d'un véritable sort céleste.
+Wang Lin prit une profonde inspiration et fixa intensément Tian Yunzi. Il n'avait jamais vu de véritable sort céleste auparavant; le plus proche qu'il ait contemplé était cette restriction qui n'était qu'une imitation d'un sort céleste. Si cette restriction était déjà si puissante, Wang Lin ne pouvait même pas imaginer la force d'un véritable sort céleste.
 
 Alors que tout le monde attendait la démonstration, un rugissement tonitruant déchira soudain l'horizon. Des rayons d'énergie d'épée déferlèrent de la distance comme des météores en chute libre.
 
@@ -32,11 +32,11 @@ En voyant cela, les puissants cultivateurs observèrent la scène avec calme. Un
 
 Wang Lin n'avait vu cela qu'une seule fois auparavant, dans le Royaume Céleste, lorsque la femme en robe blanche à l'intérieur de la pagode s'était éveillée pour appeler les âmes d'épée des épées célestes de la pluie. Le Royaume Céleste tout entier avait été alors entouré d'épées.
 
-L'expression de l'Omniscient resta sereine tandis qu'il scrutait le lointain.
+L'expression de Tian Yunzi resta sereine tandis qu'il scrutait le lointain.
 
 À cet instant, d'innombrables épées volantes surgirent. Elles dégageaient toutes l'aura glaciale d'une lame tranchante en chargeant vers ce lieu. De nombreux cultivateurs, trop faibles pour faire face, s'écartèrent sans oser entraver leur passage. Un large passage se creusa soudainement au milieu de la foule.
 
-« Vieux Omniscient, comment aurais-je pu manquer ta célébration d'anniversaire?! » Une voix arrogante résonna entre ciel et terre. Simultanément, les épées volantes s'écartèrent pour révéler un vieil homme vêtu d'une robe verte.
+« Vieux Tian Yunzi, comment aurais-je pu manquer ta célébration d'anniversaire?! » Une voix arrogante résonna entre ciel et terre. Simultanément, les épées volantes s'écartèrent pour révéler un vieil homme vêtu d'une robe verte.
 
 Les sourcils de ce vieil homme étaient blancs et s'agitaient sans qu'aucun vent ne soufflât. Bien qu'il parût maigre, il dégageait une aura terrifiante. Quatre épées illusoires scintillaient derrière son dos, et chaque tressautement de ces lames provoquait un rugissement tonitruant.
 
@@ -48,31 +48,31 @@ L'un des spectateurs s'exclama précipitamment: « Le Saint de l'Épée Ling Tia
 
 Sur la planète Tian Yun, qu'il s'agisse de la puissance individuelle ou de celle de sa secte, la Secte de l'Épée Da Luo se classait juste après la Secte du Destin Céleste!
 
-Ling Tianhou afficha une expression sombre sur son visage émacié tandis que les innombrables épées flottant derrière lui libéraient des vagues d'hymnes d'épée. Il cria de sa voix la plus forte: « Disciples! Sortez et saluez le senior Omniscient! »
+Ling Tianhou afficha une expression sombre sur son visage émacié tandis que les innombrables épées flottant derrière lui libéraient des vagues d'hymnes d'épée. Il cria de sa voix la plus forte: « Disciples! Sortez et saluez le senior Tian Yunzi! »
 
 À la suite de cet ordre, les hymnes d'épée devinrent encore plus puissants. Enfin, une série de déflagrations retentit alors que les épées volantes se transformaient l'une après l'autre en brume. À ce moment précis, un nuage de brume verte enveloppa la zone derrière Ling Tianhou. La brume semblait recouvrir le ciel entier, altérant ses couleurs.
 
-Simultanément, d'innombrables paires d'yeux glacials apparurent une à une au sein de cette brume. Lorsque celle-ci se dissipa, d'innombrables disciples se tenaient soudainement sur des épées volantes derrière le Saint de l'Épée Ling Tianhou. Ces disciples étaient vêtus de noir et portaient chacun une épée antique dans le dos. Leurs regards étaient aussi perçants que la foudre alors qu'ils fixaient l'Omniscient.
+Simultanément, d'innombrables paires d'yeux glacials apparurent une à une au sein de cette brume. Lorsque celle-ci se dissipa, d'innombrables disciples se tenaient soudainement sur des épées volantes derrière le Saint de l'Épée Ling Tianhou. Ces disciples étaient vêtus de noir et portaient chacun une épée antique dans le dos. Leurs regards étaient aussi perçants que la foudre alors qu'ils fixaient Tian Yunzi.
 
 Ils étaient légion. D'un seul coup d'œil, Wang Lin devina qu'il y avait au moins 10 000 personnes derrière le Saint de l'Épée Ling Tianhou.
 
 « Tant de vieux amis sont ici! Oh? Même l'Ancien Sun est présent! » Le regard de Ling Tianhou balaya la foule jusqu'à ce qu'il se pose sur l'Ancien Sun.
 
-L'Ancien Sun esquissa un sourire discret et répondit: « Comment pourrais-je manquer la célébration d'anniversaire de mon vieil ami Omniscient? »
+L'Ancien Sun esquissa un sourire discret et répondit: « Comment pourrais-je manquer la célébration d'anniversaire de mon vieil ami Tian Yunzi? »
 
-Ling Tianhou rit, puis regarda l'Omniscient avec un sourire provocateur. « Vieux Omniscient, qu'en est-il? Ne me souhaites-tu pas la bienvenue? »
+Ling Tianhou rit, puis regarda Tian Yunzi avec un sourire provocateur. « Vieux Tian Yunzi, qu'en est-il? Ne me souhaites-tu pas la bienvenue? »
 
-L'Omniscient sourit. « Peu importe. Tu arrives à point nommé. Je vais t'utiliser comme cible pour ma démonstration de sort céleste afin que tous les cultivateurs ici présents puissent l'observer. Qu'en dis-tu? »
+Tian Yunzi sourit. « Peu importe. Tu arrives à point nommé. Je vais t'utiliser comme cible pour ma démonstration de sort céleste afin que tous les cultivateurs ici présents puissent l'observer. Qu'en dis-tu? »
 
 Les yeux de Ling Tianhou devinrent froids et il sourit: « C'est précisément mon intention! »
 
-L'Omniscient sourit à nouveau, leva sa main droite pour former un sceau et déclara: « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidance Céleste. Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, une immense puissance divine approchera; je vous prie donc d'être extrêmement attentifs! »
+Tian Yunzi sourit à nouveau, leva sa main droite pour former un sceau et déclara: « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidance Céleste. Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, une immense puissance divine approchera; je vous prie donc d'être extrêmement attentifs! »
 
-Le Saint de l'Épée Ling Tianhou laissa échapper un renâclement froid, le regard glacial fixé sur l'Omniscient.
+Le Saint de l'Épée Ling Tianhou laissa échapper un renâclement froid, le regard glacial fixé sur Tian Yunzi.
 
-L'Omniscient sourit doucement tandis que sa main droite traçait un autre sceau, créant une lueur rouge. Il leva ensuite sa main gauche pour former un second sceau, et la lumière rouge devint soudainement plus éclatante encore. L'expression de l'Omniscient était sereine lorsqu'il pointa le vide. La lueur rouge s'en échappa brusquement pour foncer vers l'horizon.
+Tian Yunzi sourit doucement tandis que sa main droite traçait un autre sceau, créant une lueur rouge. Il leva ensuite sa main gauche pour former un second sceau, et la lumière rouge devint soudainement plus éclatante encore. L'expression de Tian Yunzi était sereine lorsqu'il pointa le vide. La lueur rouge s'en échappa brusquement pour foncer vers l'horizon.
 
-« Sort de Guidance Céleste de qualité moyenne! » La voix de l'Omniscient semblait émaner du néant. Soudain, un fracas tonitruant retentit et le ciel vira au rouge. Les nuages tourbillonnaient dans cette voûte écarlate comme si un dragon en colère s'y trouvait. On entendait le grondement du tonnerre tandis que la foudre fendait les nuages tels des serpents d'argent.
+« Sort de Guidance Céleste de qualité moyenne! » La voix de Tian Yunzi semblait émaner du néant. Soudain, un fracas tonitruant retentit et le ciel vira au rouge. Les nuages tourbillonnaient dans cette voûte écarlate comme si un dragon en colère s'y trouvait. On entendait le grondement du tonnerre tandis que la foudre fendait les nuages tels des serpents d'argent.
 
 Le ciel ressemblait désormais à une mer déchaînée, et une pression céleste descendit silencieusement d'en haut. Sous la force de cette pression, les visages de nombreux cultivateurs environnants pâlirent. Ils se précipitèrent au sol pour s'asseoir en position du lotus afin de cultiver.
 
@@ -86,16 +86,16 @@ Ce n'était pas seulement la Division Pourpre; presque tous les disciples ordina
 
 L'expression de Wang Lin revint à la normale une fois que l'énergie spirituelle céleste métallique eut achevé son troisième cycle. La Quatrième Sœur se retourna et lui lança un regard significatif, sans dire un mot.
 
-Le regard de l'Omniscient resta impassible, puis son index droit pointa vers Ling Tianhou. Pourtant, son doigt bougea soudainement; lorsqu'il s'immobilisa, il désignait les plus de 10 000 disciples debout sur leurs épées volantes derrière Ling Tianhou.
+Le regard de Tian Yunzi resta impassible, puis son index droit pointa vers Ling Tianhou. Pourtant, son doigt bougea soudainement; lorsqu'il s'immobilisa, il désignait les plus de 10 000 disciples debout sur leurs épées volantes derrière Ling Tianhou.
 
-Le visage de Ling Tianhou s'assombrit. Juste au moment où il s'apprêtait à intervenir, l'Omniscient sourit légèrement et prononça: « Passage de guidage! »
+Le visage de Ling Tianhou s'assombrit. Juste au moment où il s'apprêtait à intervenir, Tian Yunzi sourit légèrement et prononça: « Passage de guidage! »
 
 À ces mots, des rugissements tonitruants jaillirent des nuages. Le ciel sembla être déchiré par une paire de mains géantes invisibles, révélant un gouffre immense. Une explosion de lumière aux sept couleurs descendit de cette brèche et enveloppa tous les disciples derrière Ling Tianhou.
 
 Les regards froids des disciples de la Secte de l'Épée Da Luo disparurent soudainement, remplacés par des expressions de confusion. Ils perdirent le contrôle de leurs corps et furent aspirés vers le ciel, vers ce trou d'où émanait la lumière multicolore.
 
-Ling Tianhou poussa un rugissement alors que l'épée serpentine sous ses pieds s'élançait vers les cieux. L'Omniscient eut un léger sourire en tendant la main. L'épée serpentine ralentit brusquement, luttant avec force et émettant des hymnes d'épée capables de faire trembler le ciel.
+Ling Tianhou poussa un rugissement alors que l'épée serpentine sous ses pieds s'élançait vers les cieux. Tian Yunzi eut un léger sourire en tendant la main. L'épée serpentine ralentit brusquement, luttant avec force et émettant des hymnes d'épée capables de faire trembler le ciel.
 
-Ling Tianhou poussa un cri glacial, et une lumière rouge apparut entre ses sourcils. En un éclair, cette lueur s'en échappa pour flotter dans les airs, se transformant en un gigantesque Qilin. La créature était d'une férocité redoutable. Une fois ses quatre pattes posées, sa tête massive fixa l'Omniscient avant de charger vers lui.
+Ling Tianhou poussa un cri glacial, et une lumière rouge apparut entre ses sourcils. En un éclair, cette lueur s'en échappa pour flotter dans les airs, se transformant en un gigantesque Qilin. La créature était d'une férocité redoutable. Une fois ses quatre pattes posées, sa tête massive fixa Tian Yunzi avant de charger vers lui.
 
 Au moment où le Qilin apparut, un rugissement retentit depuis le drapeau des âmes, à l'intérieur de l'âme originelle de Wang Lin.
