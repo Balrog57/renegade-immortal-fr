@@ -40,7 +40,7 @@ Ce jour-là, trois rayons d'énergie d'épée traversèrent rapidement les étoi
 
 Le plus frappant restait ses yeux, qui brillaient comme des étoiles. Son corps exhalait un parfum subtil qui se répandait partout sur son passage. Plusieurs disques papillons scintillants ornaient le côté droit de son front, et leurs reflets colorés la rendaient encore plus belle.
 
-Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'était celle qui avait quitté Suzaku après avoir dévoré le domaine de Qian Feng, avant d'être expulsée de la planète des Cinq Éléments: Zi Xin!
+Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'était celle qui avait quitté Suzaku après avoir dévoré le domaine de Qian Feng, avant de trahir le Palais de l'Eau Céleste de la planète des Cinq Éléments: Zi Xin!
 
 Lorsqu'elle fut traquée par le Palais de l'Eau Céleste, elle fut sauvée par le père de Yao Xixue, l'Ancêtre Sanguin, et devint sa concubine.
 
@@ -94,7 +94,7 @@ L'expression de ce corps était aussi glaciale qu'une glace millénaire. Il dég
 
 « Ce sort d'extraction d'âme a encore besoin d'être perfectionné! » Le corps originel de Wang Lin fit un pas en avant. Avec la puissance de son physique, il n'avait nul besoin de boussole stellaire pour voyager à travers le cosmos.
 
-« Malheureusement, je n'ai toujours trouvé aucune aura de Dieu Ancien adulte. Sinon, j'aurais véritablement atteint les quatre étoiles... Devrais-je retourner sur la planète Suzaku... Je ne sais pas quand Ta Sen se libérera... » Le corps originel de Wang Lin disparut lentement parmi les étoiles.
+« Malheureusement, je n'ai toujours trouvé aucune aura de Dieu Ancien adulte. Sinon, j'aurais véritablement atteint les quatre étoiles... Devrais-je retourner sur la planète Suzaku... Je ne sais pas quand Tuo Sen se libérera... » Le corps originel de Wang Lin disparut lentement parmi les étoiles.
 
 ***
 
@@ -116,9 +116,9 @@ Une épée rouillée, tachée de sang séché, était plantée dans le sol à se
 
 « Wang Lin, je suis sur le point d'être libre... »
 
-Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer des Diables. Ce n'était pas Ta Sen, mais un messager envoyé par lui! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu: c'était le Magicien Démon Céleste, censé être mort depuis longtemps!
+Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer des Diables. Ce n'était pas Tuo Sen, mais un messager envoyé par lui! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu: c'était le Magicien Démon Céleste, censé être mort depuis longtemps!
 
-Autrefois, sans l'intervention de Wang Lin, l'héritage de la connaissance lui aurait appartenu. Maître du Seigneur Démon des Six Désirs, il avait comploté pendant des millénaires pour finalement tout voir détruit par Wang Lin. Sa haine envers ce dernier n'était en rien moindre que celle de Ta Sen!
+Autrefois, sans l'intervention de Wang Lin, l'héritage de la connaissance lui aurait appartenu. Maître du Seigneur Démon des Six Désirs, il avait comploté pendant des millénaires pour finalement tout voir détruit par Wang Lin. Sa haine envers ce dernier n'était en rien moindre que celle de Tuo Sen!
 
 « Le royaume sous le Royaume Céleste du Tonnerre... » Le corps du Magicien Démon Céleste vacilla et quitta la planète Suzaku.
 

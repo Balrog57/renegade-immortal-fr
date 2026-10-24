@@ -134,7 +134,7 @@ Le Daoïste du Tonnerre ouvrit soudainement les yeux et fixa Wang Lin. Après un
 
 Le Daoïste ouvrit brusquement les yeux en criant: « Que faites-vous?! »
 
-La vitesse de Wang Lin était fulgurante, et celle du fouet l'était plus encore. Avant même qu'il ne puisse achever sa phrase, le coup le percuta. Et ce ne fut pas une seule fois: au moment de l'impact, le Fouet des Âmes fut agité six fois de suite. En un instant, le Daoïste du Tonnerre reçut six coups!
+La vitesse de Wang Lin était fulgurante, et celle du fouet l'était plus encore. Avant même qu'il ne puisse achever sa phrase, le coup le percuta. Et ce ne fut pas une seule fois: au moment de l'impact, le Fouet Kunji fut agité six fois de suite. En un instant, le Daoïste du Tonnerre reçut six coups!
 
 Alors que les claquements du fouet résonnaient, le corps du Daoïste trembla. Son visage devint livide et son regard s'obscurcit. Derrière lui, son âme originelle fut projetée à sept pieds de son corps.
 

@@ -16,7 +16,7 @@ Mais cet enfant démon était bien étrange; il ne prononçait jamais un mot et 
 
 Durant cette poursuite, l'ancêtre du Clan des Démons Géants avait subi plusieurs coups de poing de l'enfant démon. Il ne fallait pas sous-estimer ces petites marques, car elles avaient endommagé son âme originelle. S'il n'avait pas été un cultivateur depuis une éternité et ne possédait pas les techniques secrètes du Clan des Démons Géants, il n'aurait jamais pu s'échapper.
 
-Trop affaibli pour utiliser à nouveau son pouvoir de lignée, il avait finalement attiré l'enfant démon vers l'extrême nord. Là se trouvait une ancienne restriction en place depuis la fondation même de la planète Suzaku. Ce n'est qu'en piégeant l'enfant démon dans cet endroit qu'il avait pu prendre la fuite.
+Trop affaibli pour utiliser à nouveau son pouvoir de lignée, il avait finalement attiré l'enfant démon vers la Petite Terre des Flammes du Nord. Là se trouvait une ancienne restriction en place depuis la fondation même de la planète Suzaku. Ce n'est qu'en piégeant l'enfant démon dans cet endroit qu'il avait pu prendre la fuite.
 
 Actuellement très faible, il ne souhaitait pas attirer l'attention et regagna rapidement le Clan des Démons Géants. Quant à savoir si Chi Hu et un autre membre du clan avaient survécu, il les avait déjà oubliés.
 
