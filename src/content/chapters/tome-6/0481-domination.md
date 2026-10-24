@@ -79,15 +79,15 @@ L'homme agressif ricana: « Bien que tu aies détruit la grotte, tu as déjà en
 
 Wang Lin prit une profonde inspiration, regarda les deux hommes et dit calmement: « Je ne voulais que cultiver en paix sans m'impliquer dans vos complots, mais depuis mon arrivée, je n'ai essuyé que du rejet. Tant pis! »
 
-Sur ce, il avança et frappa son sac de rangement. Le Fouet de l'Âme apparut soudainement dans sa main et il l'abattit vers les deux hommes tel un dragon.
+Sur ce, il avança et frappa son sac de rangement. Le Fouet Kunji apparut soudainement dans sa main et il l'abattit vers les deux hommes tel un dragon.
 
 Les expressions des deux Anciens changèrent instantanément et ils reculèrent précipitamment. Ils commencèrent à incanter des formules et, bientôt, une lumière noire et blanche émana de chacun d'eux.
 
 L'un des Anciens s'écria: « Tu oses attaquer un Ancien disciplinaire?! »
 
-Cependant, le Fouet de l'Âme était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de près d'un mètre.
+Cependant, le Fouet Kunji était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de près d'un mètre.
 
-Le Fouet de l'Âme était spécialisé dans l'attaque des âmes originelles!
+Le Fouet Kunji était spécialisé dans l'attaque des âmes originelles!
 
 Une terreur inimaginable se lut sur son visage alors qu'il luttait pour réintégrer son corps. Mais Wang Lin ne lui laisserait aucune chance; il traça un arc de sa main. Un éclair rouge jaillit vers l'Ancien. Ce dernier, le visage déformé par la douleur, cracha un nuage de brume pour tenter de bloquer l'éclair.
 

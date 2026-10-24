@@ -94,13 +94,13 @@ Wang Lin dit froidement: « Tu ne t'échapperas pas! »
 
 La brume noire dispersée tentait désespérément de se regrouper quand le rugissement furieux de l'homme d'âge moyen retentit de l'intérieur: « Aujourd'hui est la célébration de l'anniversaire du Maître! Si tu me tues, le Maître t'expulsera certainement de la secte! »
 
-Les yeux de Wang Lin devinrent glacials. Il frappa son sac de rangement et le Fouet de l'Âme apparut dans sa main. D'un coup sec, il brisa à nouveau la brume noire qui commençait à se fusionner.
+Les yeux de Wang Lin devinrent glacials. Il frappa son sac de rangement et le Fouet Kunji apparut dans sa main. D'un coup sec, il brisa à nouveau la brume noire qui commençait à se fusionner.
 
 Simultanément, l'âme originelle de l'homme d'âge moyen fut expulsée de la brume. Dès que l'âme apparut, les yeux de Wang Lin s'illuminèrent; il chargea et tendit la main pour la saisir.
 
 L'âme originelle poussa un cri et parvint à se téléporter mystérieusement.
 
-Le regard de Wang Lin s'assombrit, puis il fit claquer le Fouet de l'Âme. Il utilisait ce fouet depuis plusieurs jours et savait qu'il pouvait s'étendre indéfiniment; sa portée était égale à celle de son regard.
+Le regard de Wang Lin s'assombrit, puis il fit claquer le Fouet Kunji. Il utilisait ce fouet depuis plusieurs jours et savait qu'il pouvait s'étendre indéfiniment; sa portée était égale à celle de son regard.
 
 Dans un fracas assourdissant, l'âme originelle, située à plus de 3 kilomètres de là, trembla et fut sur le point de s'effondrer. Une marque profonde apparut sur son dos et une immense quantité d'essence spirituelle céleste en jaillit.
 

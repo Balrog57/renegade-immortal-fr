@@ -82,9 +82,9 @@ Le pouce de Wang Lin percuta la lumière dorée tandis que l'homme hurlait: « T
 
 En un instant, la lumière dorée sembla s'animer et bouger avec frénésie. Au moment où le pouce de Wang Lin descendit, il forma un double identique qui entra en collision avec le sien.
 
-Wang Lin esquissa un sourire moqueur, retira promptement son pouce et effleura son sac de rangement. Le Fouet de l'Âme apparut soudainement dans sa main et, d'un coup sec, brisa le pouce de lumière. Une partie de la protection dorée entourant l'homme s'effondra également.
+Wang Lin esquissa un sourire moqueur, retira promptement son pouce et effleura son sac de rangement. Le Fouet Kunji apparut soudainement dans sa main et, d'un coup sec, brisa le pouce de lumière. Une partie de la protection dorée entourant l'homme s'effondra également.
 
-« C'était la première attaque. Voici la seconde. Deuxième frère, tu ferais mieux de ne pas esquiver! » Alors qu'il parlait, Wang Lin abattit à nouveau son fouet. Le Fouet de l'Âme jaillit tel un dragon avec une puissance terrifiante.
+« C'était la première attaque. Voici la seconde. Deuxième frère, tu ferais mieux de ne pas esquiver! » Alors qu'il parlait, Wang Lin abattit à nouveau son fouet. Le Fouet Kunji jaillit tel un dragon avec une puissance terrifiante.
 
 Dans un grand « pa », le fouet frappa l'homme d'âge moyen. Son visage devint livide; son âme originelle fut presque arrachée de son corps et sa lumière dorée disparut totalement.
 

@@ -18,9 +18,9 @@ Au moment où le brouillard noir se referma, la flamme démoniaque au bout du do
 
 En un éclair, le brouillard noir commença à bouillonner comme de l'eau en ébullition. Il s'agita violemment avant de s'arrêter à un mètre de Wang Lin, puis de reculer. Un cri de choc retentit de l'intérieur du brouillard alors qu'il se retirait.
 
-Wang Lin ricana. Il chargea et le Fouet de l'Âme apparut dans sa main. Il abattit violemment le fouet à plusieurs reprises sur le brouillard noir.
+Wang Lin ricana. Il chargea et le Fouet Kunji apparut dans sa main. Il abattit violemment le fouet à plusieurs reprises sur le brouillard noir.
 
-La brume tourbillonna plus violemment encore, comme si elle était sur le point de s'effondrer. Wang Lin la poursuivit de près et continua de cingler avec le Fouet de l'Âme.
+La brume tourbillonna plus violemment encore, comme si elle était sur le point de s'effondrer. Wang Lin la poursuivit de près et continua de cingler avec le Fouet Kunji.
 
 À cet instant, parmi les trois spectateurs, l'expression de Zhao Xingsha changea. Il chargea rapidement et cria: « Septième frère, arrête! »
 
@@ -64,7 +64,7 @@ Wang Lin ricana et ignora Zhao Xingsha, continuant de fouetter le brouillard noi
 
 L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le sol, ses jambes tremblèrent et il faillit s'effondrer. C'est alors que le coup de fouet de Wang Lin frappa, expulsant son âme originelle de son corps de près d'un mètre.
 
-Wang Lin rangea le Fouet de l'Âme et sortit le drapeau des âmes. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
+Wang Lin rangea le Fouet Kunji et sortit le drapeau des âmes. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
 
 Après cela, Wang Lin flotta calmement dans les airs et observa les environs. Au loin, tous les disciples de la Division Pourpre baissèrent la tête, n'osant croiser son regard.
 
