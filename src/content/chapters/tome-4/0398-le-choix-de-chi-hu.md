@@ -56,7 +56,7 @@ Chi Hu dit amèrement: « Je ne sais pas où se trouve l'ancêtre. Ceng Niu, ret
 
 Wang Lin réfléchit. Après un long moment, il leva les yeux vers le ciel, puis pointa Chi Hu du doigt. « Chi Hu, dis à ton ancêtre de me rendre mon épée volante et je partirai immédiatement! »
 
-Chi Hu soupira intérieurement. Il regarda Wang Lin, luttant contre lui-même pour faire un choix. Peu après, il dit d'une voix accablée: « Personne ne sait où est l'ancêtre, mais une fois que nous aurons ouvert la formation du Passage Céleste, nous pourrons le contacter. Ceng Niu, une fois que tu auras récupéré l'épée céleste, pars le plus vite possible. »
+Chi Hu soupira intérieurement. Il regarda Wang Lin, luttant contre lui-même pour faire un choix. Peu après, il dit d'une voix accablée: « Personne ne sait où est l'ancêtre, mais une fois que nous aurons ouvert la formation du Passage Céleste, nous pourrons le contacter. Wang Lin, une fois que tu auras récupéré l'épée céleste, pars le plus vite possible. »
 
 Wang Lin regarda Chi Hu et hocha lentement la tête.
 
