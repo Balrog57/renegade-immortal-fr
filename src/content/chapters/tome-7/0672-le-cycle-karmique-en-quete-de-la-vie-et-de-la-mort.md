@@ -34,23 +34,23 @@ L'homme d'âge mûr soupira également et dit: « Je dois retourner chez moi pou
 
 Les deux s'élancèrent vers le nord et le sud sous forme d'arcs-en-ciel. L'ancêtre de la famille Ran resta seul, réfléchissant longuement dans le silence. Puis, poussant un profond soupir, il regarda au loin et murmura: « Peu importe. Se ruiner pour éviter une catastrophe... La question d'il y a quatre ans sera portée par ce Xu Mu. S'il ne meurt pas, nous serons hors de danger. Bien que cet homme ne semble pas être du genre à rompre sa promesse, je dois tout de même surveiller secrètement qu'il ne quitte pas la planète Ran Yun. »
 
-À cet instant, dans la partie sud de la planète Mille Illusions, au domaine ancestral de la famille Huan, le chef de la famille, Huan Fenshen, se tenait respectueusement aux côtés d'un vieil homme. Ce dernier était plutôt maigre; c'était le même homme qui avait ramené Liu Mei du Système Stellaire de l'Alliance.
+À cet instant, dans la partie sud de la planète Mille Illusions, au domaine ancestral de la famille Huan, le chef de la famille, Huan Feng Shen, se tenait respectueusement aux côtés d'un vieil homme. Ce dernier était plutôt maigre; c'était le même homme qui avait ramené Liu Mei du Système Stellaire de l'Alliance.
 
 La voix du vieil homme était glaciale: « S'il a disparu il y a quatre ans, pourquoi ne traitons-nous la question que maintenant? »
 
-Huan Fenshen répondit: « Ancêtre, cet homme n'était qu'un membre d'une branche familiale, mais son talent était remarquable, et sa culture avait atteint le milieu du stade Ascendant. C'est ainsi qu'il a obtenu une mission à l'étranger. Ancêtre, vous savez que notre famille Huan est trop vaste. En dehors des disciples directs, il est impossible de tous les suivre, même en cas de disparition. »
+Huan Feng Shen répondit: « Ancêtre, cet homme n'était qu'un membre d'une branche familiale, mais son talent était remarquable, et sa culture avait atteint le milieu du stade Ascendant. C'est ainsi qu'il a obtenu une mission à l'étranger. Ancêtre, vous savez que notre famille Huan est trop vaste. En dehors des disciples directs, il est impossible de tous les suivre, même en cas de disparition. »
 
 Le vieil homme fronça les sourcils et demanda: « N'y a-t-il personne avec un niveau de culture plus élevé? »
 
-Huan Fenshen murmura: « Ancêtre, le temps que vous nous avez accordé est trop court. Si vous me donniez trois mois de plus, je pourrais trouver une personne plus qualifiée. Mais pour l'instant, je suis dans l'incapacité de le faire. »
+Huan Feng Shen murmura: « Ancêtre, le temps que vous nous avez accordé est trop court. Si vous me donniez trois mois de plus, je pourrais trouver une personne plus qualifiée. Mais pour l'instant, je suis dans l'incapacité de le faire. »
 
 L'homme réfléchit un instant et trancha: « Très bien. Je te donne trois mois de plus! »
 
-Huan Fenshen leva la tête et demanda: « Et qu'en est-il du membre de la famille disparu il y a quatre ans? »
+Huan Feng Shen leva la tête et demanda: « Et qu'en est-il du membre de la famille disparu il y a quatre ans? »
 
 « Puisque nous sommes au courant, envoie la garde assignée à Huan Mei pour s'en charger. Exterminez tous les impliqués! Nous devons montrer la puissance de la famille Huan! »
 
-Huan Fenshen hocha la tête et s'en alla.
+Huan Feng Shen hocha la tête et s'en alla.
 
 Après avoir quitté la pièce, une lueur d'obscurité passa dans ses yeux alors qu'il pensait: « L'ancêtre vieillit vraiment. Il est prêt à accomplir le rituel de lignée pour une étrangère. Il laisse même cette Huan Mei faire étalage de la puissance de notre famille. Se pourrait-il qu'il veuille qu'elle dirige la famille Huan?! »
 
