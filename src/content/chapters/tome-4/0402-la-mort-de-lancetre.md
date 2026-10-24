@@ -78,7 +78,7 @@ La silhouette de Wang Lin apparut dans le vide, à l'extérieur de la planète S
 
 Wang Lin réfléchit un instant avant de frapper son sac de rangement pour en extraire la boussole stellaire. Il s'assit dessus et la dirigea vers la planète Suzaku.
 
-« Li Yuanfeng et l'ancêtre du Clan des Démons Géants sont morts. Le pays de Suzaku ne tardera pas à en être informé. Pour l'instant, l'essentiel est d'aider Wan Er à traverser la seconde arrivée de l'Émissaire des Cieux. »
+« Li Yuanfeng et l'ancêtre du Clan des Démons Géants sont morts. La nouvelle ne tardera pas à se répandre sur la planète Suzaku. Pour l'instant, l'essentiel est d'aider Wan Er à traverser la seconde arrivée de l'Émissaire des Cieux. »
 
 Le regard de Wang Lin s'anima et la boussole stellaire accéléra sa course.
 
