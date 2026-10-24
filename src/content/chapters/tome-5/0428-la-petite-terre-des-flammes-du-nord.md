@@ -22,7 +22,7 @@ La glace qui s'y trouve n'est pas froide, mais faite de flammes.
 
 C'est un phénomène très rare; le feu existant au cœur de la glace forme une puissance capable d'émerveiller les hommes. C'est ainsi que les cultivateurs de la planète Suzaku nommèrent ce lieu la Petite Terre des Flammes du Nord.
 
-Il existe dans cette terre des restrictions anciennes qui perdurent depuis fort longtemps; la Brume de Jiuli en est l'une. Il y a également la Restriction de la Flamme Sanguine. Elle n'a aucun effet sur les choses dépourvues de sang, mais si un être vivant est touché par sa lumière, son sang se met à bouillir et il meurt dans les dix secondes.
+Il existe dans cette terre des restrictions anciennes qui perdurent depuis fort longtemps; la Brume de Jiuli en est l'une. Il y a également la Lumière de la Flamme Sanguine. Elle n'a aucun effet sur les choses dépourvues de sang, mais si un être vivant est touché par sa lumière, son sang se met à bouillir et il meurt dans les dix secondes.
 
 En plus de cela, il existe une glace capable d'absorber le Sens Divin. Cette glace affaiblit constamment le Sens Divin dès que les deux entrent en contact.
 
@@ -132,4 +132,4 @@ Wang Lin réfléchit un instant. Il regarda l'enfant au sein de la brume et dema
 
 Wang Lin leva la tête vers l'horizon et dit calmement: « Tu ne m'as toujours pas dit ce qu'est le Cristal de la Planète de Culture. »
 
-« Le Cristal de la Planète de Culture... Avant de devenir le souverain d'une planète de culture, je pensais aussi que c'était un puissant trésor magique. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux! »
+« Le Cristal de la Planète de Culture... Avant de devenir le Suzaku, je pensais aussi que c'était un puissant trésor magique. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux! »

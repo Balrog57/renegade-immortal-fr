@@ -128,4 +128,4 @@ Le quatrième ancêtre du Clan des Immortels Délaissés semblait résolu à ne 
 
 Pendant sa fuite, Situ Nan ne montrait aucune crainte; il ralentissait même parfois pour permettre au quatrième ancêtre de le rattraper.
 
-« Ce vieil homme a dévoré leur Esprit Ancestral et, après ma fusion avec ce corps, je dévorerai aussi ce petit chien fou. Cela accélérera grandement ma récupération! Je serai le seul bénéficiaire en éliminant un chaman d'une puissance équivalente à celle d'un Ascendant; ainsi, je pourrai dire que j'ai été à la hauteur de la première génération de Suzaku! » rit Situ Nan.
+« Ce vieil homme a dévoré leur Esprit Ancestral et, après ma fusion avec ce corps, je dévorerai aussi ce petit chien fou. Cela accélérera grandement ma récupération! Non seulement cela m'avantage, mais cela élimine aussi un chaman d'une puissance équivalente à celle d'un Ascendant; ainsi, je pourrai dire que j'ai été à la hauteur de la première génération de Suzaku! » rit Situ Nan.

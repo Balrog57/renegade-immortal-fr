@@ -49,7 +49,7 @@ Devant lui se tenaient l'homme d'âge moyen et les trois chamans aux huit feuill
 
 L'homme d'âge moyen dit calmement: « Ancien Sima, je vous attendais. »
 
-L'Ancien de la Secte des Cadavres rit: « Je suis en retard car j'ai rencontré quelques ennuis en chemin. En plus de livrer ces cadavres, je suis ici pour annoncer une nouvelle à votre Clan des Immortels Délaissés. »
+L'Ancien de la Secte des Cadavres rit: « Je suis en retard car j'ai rencontré quelques ennuis en chemin. En plus de livrer ce cadavre, je suis ici pour annoncer une nouvelle à votre Clan des Immortels Délaissés. »
 
 L'homme d'âge moyen le regarda avec un calme imperturbable, attendant la nouvelle.
 

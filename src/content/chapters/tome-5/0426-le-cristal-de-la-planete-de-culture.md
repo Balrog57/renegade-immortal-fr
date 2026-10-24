@@ -54,7 +54,7 @@ Le corps du moustique trembla dans un cri strident. Ce sourire avait failli le f
 
 Tandis qu'ils volaient, Wang Lin réfléchit un instant et demanda: « Situ, connais-tu le Royaume Ji? »
 
-L'expression de Situ Nan devint solennelle: « Le Royaume Ji parmi les trois royaumes initiaux du Dao Ji? Pourquoi me demandes-tu cela? »
+L'expression de Situ Nan devint solennelle: « Le Royaume Ji parmi les trois royaumes Ji, Dao et Shi? Pourquoi me demandes-tu cela? »
 
 Wang Lin regarda son compagnon. Dans ce monde, hormis Li Muwan, la seule personne en qui il pouvait avoir une confiance absolue était Situ Nan.
 

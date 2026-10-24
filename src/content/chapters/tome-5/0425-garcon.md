@@ -130,7 +130,7 @@ Wang Lin regarda Situ Nan et murmura: « Situ. »
 
 Situ Nan réfléchit. En vérité, il avait déjà deviné que la perle défiant le ciel était un trésor extrêmement rare, probablement au-delà d'un trésor céleste.
 
-Mais bien qu'il fût un homme tyrannique et arrogant, il accordait une immense valeur à la gratitude. Le premier Suzaku lui avait témoigné de la bonté, et c'est pour cela qu'il avait renoncé à quitter la planète pour protéger le pays de Suzaku.
+Mais bien qu'il fût un homme tyrannique et arrogant, il accordait une immense valeur à la gratitude. Le premier Suzaku lui avait témoigné de la bonté, et c'est pour cela qu'il avait renoncé à quitter la planète pour protéger la planète Suzaku.
 
 Sa relation avec Wang Lin était complexe, mais cela n'avait fait que les rapprocher. Il avait pratiquement vu Wang Lin grandir en tant que cultivateur; pour lui, Wang Lin était comme son propre disciple!
 
