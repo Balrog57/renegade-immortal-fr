@@ -136,7 +136,7 @@ Zi Shu fut pris de tremblements; son corps se dessécha instantanément, entraî
 
 Wang Lin ne marqua aucun temps d'arrêt et s'engouffra dans la masse des 30 000 soldats démons. Un massacre effréné commença! Le sang macula la terre et les âmes emplirent le ciel!
 
-Des filaments de sceaux de vie continuaient d'apparaître et de pénétrer son corps! Un quart d'heure plus tard, le sol était jonché de cadavres et de sang. Une fois le carnage terminé, Wang Lin s'envola vers l'horizon.
+Des filaments de sceaux de vie continuaient d'apparaître et de pénétrer son corps! Sept minutes plus tard, le sol était jonché de cadavres et de sang. Une fois le carnage terminé, Wang Lin s'envola vers l'horizon.
 
 Il possédait désormais 30 000 sceaux de vie, chacun porteur d'une vitalité infinie. À mesure que chaque marque disparaissait, son corps se rétablissait un peu plus. Les sceaux se dissipaient rapidement, mais le corps de Wang Lin se régénérait à toute vitesse.
 

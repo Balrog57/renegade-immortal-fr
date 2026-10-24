@@ -56,7 +56,7 @@ Peu après, lorsque toute l'énergie spirituelle céleste fut absorbée, la sph�
 
 À cet instant précis, le noyau doré trembla, et des fissures de plus en plus nombreuses apparurent à sa surface. Soudain, dans une explosion de puissance, toute l'énergie spirituelle céleste contenue dans le corps de Wang Lin se projeta vers l'extérieur, expulsant son âme originelle jusqu'à ce qu'elle se retrouve à environ un mètre de lui. Il tenta de la ramener, mais une force colossale l'en empêcha.
 
-L'âme originelle de Wang Lin flottait désormais au-dessus de son corps. En regardant vers le bas, il pouvait observer chaque mutation de son âme.
+L'âme originelle de Wang Lin flottait désormais au-dessus de son corps. En regardant vers le bas, il pouvait observer chaque mutation de son corps.
 
 Lorsque le noyau doré vola en éclats, la force de l'énergie spirituelle céleste brisa tous les méridiens de son corps. À cet instant, son enveloppe charnelle n'était plus qu'une coquille vide, saturée d'énergie céleste.
 

@@ -50,7 +50,7 @@ Le regard de Wang Lin se glaça et il sortit le drapeau de restriction. Ce derni
 
 Après cela, vint l'épée céleste! Bien que Xu Liguo fût extrêmement réticent, il n'osait pas s'opposer à Wang Lin en cet instant. Il ne pouvait que soupirer sans fin dans son cœur: « Tant pis. Nous sommes déjà revenus à la Cité du Démon Céleste. Cette petite beauté m'attend depuis dix ans; je me demande si elle est restée fidèle... » Alors qu'il sombrait dans ses pensées, il fut projeté dans la rivière des enfers par Wang Lin, suivi de près par la lame demi-lune.
 
-Puis vinrent le Fouet de l'Âme, les fourreaux d'épées et l'épée de Mo Yang. Enfin, à l'exception du char de guerre et de la peinture mystérieuse, Wang Lin jeta presque tous ses trésors dans la rivière des enfers.
+Puis vinrent le Fouet Kunji, les fourreaux d'épées et l'épée de Mo Yang. Enfin, à l'exception du char de guerre et de la peinture mystérieuse, Wang Lin jeta presque tous ses trésors dans la rivière des enfers.
 
 L'innombrable accumulation de trésors au sein de la rivière des enfers créa une force chaotique mais d'une puissance colossale. Wang Lin prit alors une profonde inspiration et pressa son doigt entre ses sourcils. Les 130 000 brins d'énergie de massacre se transformèrent en 130 000 sceaux de vie pour le protéger.
 

@@ -106,9 +106,9 @@ Au même moment, Chanson du Vent lança son poignard. Le poignard et la lame en 
 
 Le vent était impétueux; elle atteignit Wang Lin presque instantanément.
 
-Wang Lin ne se retourna pas, mais effleura sa sacoche de rangement. Le Fouet de l'Âme apparut dans sa main. Ce long fouet, d'un noir absolu, dégageait une aura capable de faire trembler les âmes mêmes.
+Wang Lin ne se retourna pas, mais effleura sa sacoche de rangement. Le Fouet Kunji apparut dans sa main. Ce long fouet, d'un noir absolu, dégageait une aura capable de faire trembler les âmes mêmes.
 
-Alors que Chanson du Vent s'approchait, le Fouet de l'Âme fendit l'air brusquement. Un fracas retentit, suivi du gémissement misérable de la femme. Projetée hors du vide, elle portait sur le visage la marque rouge d'un coup de fouet. Pour la première fois, ses yeux trahirent une profonde stupeur. À cet instant, elle ne cherchait plus à tuer, mais à fuir de toutes ses forces!
+Alors que Chanson du Vent s'approchait, le Fouet Kunji fendit l'air brusquement. Un fracas retentit, suivi du gémissement misérable de la femme. Projetée hors du vide, elle portait sur le visage la marque rouge d'un coup de fouet. Pour la première fois, ses yeux trahirent une profonde stupeur. À cet instant, elle ne cherchait plus à tuer, mais à fuir de toutes ses forces!
 
 L'esprit de Wang Lin ayant perdu toute conscience sous l'effet du Fruit de l'Ascension Céleste, tout ce qu'il faisait procédait par pur instinct. Chanson du Vent recula avec célérité. Pour pouvoir combattre la lame en croissant, sa vitesse était naturellement prodigieuse. Elle s'enfuit si vite qu'elle ne laissait même pas d'ombre derrière elle.
 
