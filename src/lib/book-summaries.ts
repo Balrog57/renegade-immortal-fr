@@ -68,7 +68,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleCn: 'Première entrée à Tian Yun',
     rangeStart: 472,
     rangeEnd: 658,
-    summary: "Wang Lin arrive sur la planète Tian Yun, un monde dominé par la Secte du Destin Céleste, l'une des plus puissantes de l'Allheaven Star System. Pour y survivre et trouver des ressources, il s'engage dans des tournois de cultivation, gravit les échelons de la secte, et se forge une réputation. Il y rencontre des figures majeures : l'Omniscient, un vieil être mystérieux aux desseins cachés, ainsi que plusieurs génies locaux. Ce tome établit Wang Lin comme un acteur majeur de l'Allheaven Star System, et introduit les intrigues politiques entre sectes.",
+    summary: "Wang Lin arrive sur la planète Tian Yun, un monde dominé par la Secte du Destin Céleste, l'une des plus puissantes de l'Allheaven Star System. Pour y survivre et trouver des ressources, il s'engage dans des tournois de cultivation, gravit les échelons de la secte, et se forge une réputation. Il y rencontre des figures majeures : Tian Yunzi, un vieil être mystérieux aux desseins cachés, ainsi que plusieurs génies locaux. Ce tome établit Wang Lin comme un acteur majeur de l'Allheaven Star System, et introduit les intrigues politiques entre sectes.",
   },
   {
     book: 7,
@@ -77,7 +77,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleCn: 'La gloire ébranle Luo Tian',
     rangeStart: 659,
     rangeEnd: 920,
-    summary: "Le nom de Wang Lin résonne désormais dans tout l'Allheaven Star System. Ce tome voit l'intensification des affrontements avec des génies et des anciens du système stellaire. L'Omniscient, Situ Nan et plusieurs autres figures légendaires convergent autour de lui. Les héritages anciens — trésors, techniques, sectes disparues — deviennent des enjeux majeurs. Wang Lin doit naviguer entre alliances fragiles et trahisons, tout en approfondissant sa compréhension du Dao. Les thèmes de la solitude du puissant et du prix de l'immortalité s'intensifient.",
+    summary: "Le nom de Wang Lin résonne désormais dans tout l'Allheaven Star System. Ce tome voit l'intensification des affrontements avec des génies et des anciens du système stellaire. Tian Yunzi, Situ Nan et plusieurs autres figures légendaires convergent autour de lui. Les héritages anciens — trésors, techniques, sectes disparues — deviennent des enjeux majeurs. Wang Lin doit naviguer entre alliances fragiles et trahisons, tout en approfondissant sa compréhension du Dao. Les thèmes de la solitude du puissant et du prix de l'immortalité s'intensifient.",
   },
   {
     book: 8,

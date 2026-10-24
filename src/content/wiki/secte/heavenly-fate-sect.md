@@ -11,19 +11,19 @@ sections: ["{\"heading\":\"Pavillon Principal\",\"body\":\"Si l'on regardait la 
 
 ## Description
 
-La **Secte du Destin Céleste** (Heavenly Fate Sect) est la secte la plus puissante de la **Planète Tian Yun** et des petites planètes alentour. Son maître et fondateur est l'**Omniscient** (Omniscient).
+La **Secte du Destin Céleste** (Heavenly Fate Sect) est la secte la plus puissante de la **Planète Tian Yun** et des petites planètes alentour. Son maître et fondateur est l'**Tian Yunzi** (Tian Yunzi).
 
 La secte se trouvait sur le côté est de la planète Tian Yun, recouverte de brume et de nuages. D'une distance, on aurait dit qu'elle était enveloppée de couches de brume, rendant impossible de voir ce qu'elle contenait. Un immense temple flottait en son centre, émettant une douce lumière dorée. Sous le temple, des pierres flottantes formaient des marches menant aux montagnes situées en dessous, là où se trouvait la secte extérieure.
 
-La Secte du Destin Céleste possède sept divisions différenciées par couleur: Pourpre, Cyan, Bleue, Verte, Jaune, Orange et Rouge. Chaque division compte sept disciples, parmi lesquels un est choisi comme le vrai disciple de la division et devient l'un des sept Vrais Disciples de l'Omniscient.
+La Secte du Destin Céleste possède sept divisions différenciées par couleur: Pourpre, Cyan, Bleue, Verte, Jaune, Orange et Rouge. Chaque division compte sept disciples, parmi lesquels un est choisi comme le vrai disciple de la division et devient l'un des sept Vrais Disciples de Tian Yunzi.
 
 ### Fiche signalétique
 
 - **Nom:** Secte du Destin Céleste (Heavenly Fate Sect)
 - **Divisions:** Pourpre, Cyan, Bleue, Verte, Jaune, Orange, Rouge
 - **Affiliation:** Alliance de Cultivation (Cultivation Alliance)
-- **Fondateur:** Omniscient (Omniscient)
-- **Chef de secte:** Omniscient (Omniscient)
+- **Fondateur:** Tian Yunzi (Tian Yunzi)
+- **Chef de secte:** Tian Yunzi (Tian Yunzi)
 - **Jeune génération:** Bai Wei (Pourpre), Jin Ye (Pourpre), Zhou Wan (Pourpre), Zhao Xinmeng (Pourpre), Chen Tao (Pourpre), Zhao Xingsha (Pourpre), Wang Yu (Verte), Kunpeng Zi (Jaune), Yundao Zi (Jaune), Qu Yichang (Bleue), Sima Rufeng (Bleue), Du Jian (Rouge), Sun Hong (Rouge), Lu Hai (Rouge), Li Shengnan (Verte)
 - **Anciens membres:** Sun Yun (Pourpre), Du Jian (Rouge), Wang Lin (Pourpre)
 - **Système stellaire:** Système Stellaire de l'Alliance

@@ -107,7 +107,7 @@ Né mortel sans rien de spécial. Avant l'événement de sélection des disciple
 
 **Amis:** Situ Nan · Qing Shui · Tuo Sen (ancien ennemi) · Zhou Wutai
 
-**Maîtres:** Tu Si (héritage du savoir) · Situ Nan · Du Tian · Omniscient (ancien) · Bai Fan (héritage) · Lu Yun · Qing Lin · Su Dao (érudit) · Xuan Luo (abdiqué)
+**Maîtres:** Tu Si (héritage du savoir) · Situ Nan · Du Tian · Tian Yunzi (ancien) · Bai Fan (héritage) · Lu Yun · Qing Lin · Su Dao (érudit) · Xuan Luo (abdiqué)
 
 **Disciples:** Thirteen · Xie Qing · Xi Zi Feng
 
