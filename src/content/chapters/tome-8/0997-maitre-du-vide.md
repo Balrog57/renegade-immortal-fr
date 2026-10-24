@@ -70,13 +70,13 @@ Les cultivateurs alentour se dispersèrent avec regret. Certains restèrent là,
 
 À l'intérieur de la Terre des Esprits Démoniaques, un soleil ardent trônait dans le ciel. Des vagues de chaleur ondulaient au gré du vent sur la terre. Les cadavres jonchant le sol dégageaient une odeur de décomposition, attirant de nombreux esprits démoniaques semblables à des vautours, qui absorbaient l'aura de mort sur ces cadavres.
 
-Ce n'était là qu'un recoin du Pays des Démons de Feu. À l'échelle du pays entier, les cadavres couvraient tout le paysage. Sous cette chaleur accablante, ils se décomposaient plus vite encore, et le vent emportait leurs vêtements, révélant la peau noircie en dessous.
+Ce n'était là qu'un recoin du Pays du Démon de Feu. À l'échelle du pays entier, les cadavres couvraient tout le paysage. Sous cette chaleur accablante, ils se décomposaient plus vite encore, et le vent emportait leurs vêtements, révélant la peau noircie en dessous.
 
-Une guerre immense ravageait le Pays des Démons de Feu, déjà morcelé, sous l'assaut de la Tribu de l'Affinement de l'Âme. Toutes les factions, grandes et petites, dispersées dans le pays, s'étaient effondrées. Ceux qui ne se rendaient pas mouraient!
+Une guerre immense ravageait le Pays du Démon de Feu, déjà morcelé, sous l'assaut de la Tribu de l'Affinement de l'Âme. Toutes les factions, grandes et petites, dispersées dans le pays, s'étaient effondrées. Ceux qui ne se rendaient pas mouraient!
 
-La capitale du Pays des Démons de Feu, là où l'un des neuf anciens démons avait autrefois résidé, était désormais le dernier bastion. Ce lieu était occupé par l'une des armées d'élite du pays: l'Armée Spirituelle des Démons de Feu!
+La capitale du Pays du Démon de Feu, là où l'un des neuf anciens démons avait autrefois résidé, était désormais le dernier bastion. Ce lieu était occupé par l'une des armées d'élite du pays: l'Armée Spirituelle des Démons de Feu!
 
-Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Après la défaite du pays, l'Armée Spirituelle des Démons de Feu avait subi de lourdes pertes, mais elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays des Démons de Feu.
+Elle était commandée par deux chefs et huit généraux démoniaques qui tenaient la position. Après la défaite du pays, l'Armée Spirituelle des Démons de Feu avait subi de lourdes pertes, mais elle demeurait la plus puissante des forces en présence, ce qui leur permettait d'occuper la capitale et de préserver ce qu'il restait du Pays du Démon de Feu.
 
 À cet instant, l'armée de la Tribu de l'Affinement de l'Âme encerclait la capitale. D'innombrables individus flottaient dans le ciel, entourés de grands drapeaux. Un épais brouillard noir enveloppait la zone.
 
@@ -110,13 +110,13 @@ Le grand homme cracha une gorgée de sang tandis que son armure se brisait morce
 
 « Le membre le plus puissant de la Tribu de l'Affinement de l'Âme... Treize! » Le colosse laissa échapper un sourire amer alors que son corps se désintégrait. Il était déjà épuisé, et cette blessure critique lui ôta instantanément la vie.
 
-Ouyang Hua éclata de rire, puis pointa la capitale du Pays des Démons de Feu du doigt: « Extinction de l'Âme! »
+Ouyang Hua éclata de rire, puis pointa la capitale du Pays du Démon de Feu du doigt: « Extinction de l'Âme! »
 
 À sa parole, les millions de membres de la tribu sortirent leurs drapeaux d'âmes et une multitude d'esprits s'élancèrent, recouvrant toute la capitale d'un brouillard noir. Ce voile sombre se referma lentement sur la cité.
 
 « Rendez-vous... » soupira une femme vêtue d'une armure bleue sur les remparts de la capitale.
 
-À cet instant, le Pays des Démons de Feu devint la capitale de la Tribu de l'Affinement de l'Âme! La Tribu était devenue l'une des neuf puissances de la Terre des Esprits Démoniaques. La statue noire serait placée là où résidait autrefois l'esprit de l'ancien démon, devenant le fondement spirituel de la Tribu de l'Affinement de l'Âme!
+À cet instant, le Pays du Démon de Feu devint la capitale de la Tribu de l'Affinement de l'Âme! La Tribu était devenue l'une des neuf puissances de la Terre des Esprits Démoniaques. La statue noire serait placée là où résidait autrefois l'esprit de l'ancien démon, devenant le fondement spirituel de la Tribu de l'Affinement de l'Âme!
 
 Alors que Treize levait les pieds pour marcher vers la capitale, son corps trembla violemment et son expression glaciale se brisa. Elle fut remplacée par un enthousiasme qu'il n'avait pas ressenti depuis des centaines d'années, et il leva brusquement la tête:
 

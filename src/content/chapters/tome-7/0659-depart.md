@@ -82,7 +82,7 @@ Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang L
 
 À cet instant précis, Tian Yunzi ouvrit soudainement les yeux et regarda vers l'est.
 
-« Il veut partir! » La main de Tian Yunzi bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays des Démons d'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
+« Il veut partir! » La main de Tian Yunzi bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays du Démon de l'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
 
 Alors qu'il descendait, Wang Lin le remarqua immédiatement. Il se laissa porter par la force d'aspiration pour accélérer sa chute. Tian Yunzi sentit que son regard était perturbé par cette force; il hésita un instant avant de percer l'aspiration pour continuer sa descente.
 

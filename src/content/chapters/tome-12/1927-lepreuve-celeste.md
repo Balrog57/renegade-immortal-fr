@@ -110,7 +110,7 @@ Seuls les Exaltés Empyréens qui avaient combattu Wang Lin le regardèrent appr
 
 « Cet homme est très étrange. Sa culture est ordinaire, mais sa puissance de combat est stupéfiante. Je ne pourrais pas l'affronter. Voyons jusqu'où il peut aller. »
 
-« Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent Sud. On dit que le Grand Empyréen Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
+« Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent du Sud. On dit que le Grand Empyréen Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
 
 Dès qu'il pénétra dans le premier palais, il eut l'impression que le monde entier avait changé. Il découvrit que l'intérieur même du palais était un système stellaire!
 

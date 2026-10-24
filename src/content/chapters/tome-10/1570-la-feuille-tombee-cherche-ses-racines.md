@@ -68,7 +68,7 @@ Wang Lin était déjà revenu sur la planète Suzaku par le passé et avait cons
 
 Il craignait de n'y trouver que l'inconnu, d'être réduit à n'avoir que des souvenirs sans avoir de demeure.
 
-Il craignait tout autant de contempler la grotte dans la Mer des Diables où il avait vécu avec Li Muwan. Il redoutait de chercher cette vallée si réconfortante, de peur qu'elle ne soit elle aussi disparue.
+Il craignait tout autant de contempler la grotte dans la Mer des Démons où il avait vécu avec Li Muwan. Il redoutait de chercher cette vallée si réconfortante, de peur qu'elle ne soit elle aussi disparue.
 
 Regardant la jungle, Wang Lin s'y enfonça silencieusement, comme en quête de quelque chose. Finalement, après avoir écarté les feuilles devant lui, il découvrit les ruines d'une cité. Quelques petites bêtes s'agitaient entre les bâtiments délabrés. À l'approche de Wang Lin, elles furent effrayées et se dispersèrent.
 
@@ -76,7 +76,7 @@ Il erra dans les décombres, cherchant un signe. Il crut presque saisir une ombr
 
 Après être resté là, immobile et stupéfait, Wang Lin poussa un soupir et repartit.
 
-Il se dirigea vers la Mer des Diables. La mer elle-même n'était plus la même. Autrefois, bien que la brume se fût dissipée, le bassin géant subsistait. Désormais, quelqu'un l'avait comblé pour en faire l'un des domaines de l'une des neuf grandes sectes.
+Il se dirigea vers la Mer des Démons. La mer elle-même n'était plus la même. Autrefois, bien que la brume se fût dissipée, le bassin géant subsistait. Désormais, quelqu'un l'avait comblé pour en faire l'un des domaines de l'une des neuf grandes sectes.
 
 La grotte où il avait partagé sa vie avec Li Muwan avait disparu. Wang Lin la contempla depuis les cieux et sentit son cœur se déchirer. Il aurait voulu voir cette grotte, le corps du dragon géant, et cet endroit précis où Li Muwan avait mis tout son cœur.
 

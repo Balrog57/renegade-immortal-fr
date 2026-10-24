@@ -14,7 +14,7 @@ Les cultivateurs excellaient dans l'art de ralentir leur vieillissement physique
 
 Comparée à cette femme, l'autre semblait un peu ordinaire. Ses longs cheveux drapés sur son épaule lui donnaient un air de fragilité. Sa silhouette gracile laissait croire qu'elle pourrait être emportée par une simple brise. Elle portait du rose, ce qui contrastait avec son visage extrêmement pâle. Face à la femme éclatante, elle paraissait moins éblouissante, mais semblait plus délicate.
 
-Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il dit d'un ton doux: « Mes deux jeunes sœurs de discipline, cet endroit est la chaîne de montagnes de la Mer des Nuages, dans le Pays des Démons de l'Eau. Autrefois, j'ai découvert ce lieu par accident et j'y ai séjourné quelque temps. Bien que votre frère aîné ne soit pas encore monté au Royaume Céleste, je suis convaincu que cette Mer des Nuages est d'un niveau supérieur à celui du Royaume Céleste. Frère Murong, qu'en pensez-vous? »
+Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il dit d'un ton doux: « Mes deux jeunes sœurs de discipline, cet endroit est la chaîne de montagnes de la Mer des Nuages, dans le Pays du Démon de l'Eau. Autrefois, j'ai découvert ce lieu par accident et j'y ai séjourné quelque temps. Bien que votre frère aîné ne soit pas encore monté au Royaume Céleste, je suis convaincu que cette Mer des Nuages est d'un niveau supérieur à celui du Royaume Céleste. Frère Murong, qu'en pensez-vous? »
 
 Ce jeune homme était plutôt beau et dégageait un certain orgueil, comme s'il était un fils favori des cieux.
 

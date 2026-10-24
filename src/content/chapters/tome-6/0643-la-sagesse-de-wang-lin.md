@@ -41,7 +41,7 @@ Tan Lang observa les disciples de la Secte de l'Épée Da Luo et ricana intérie
 
 « Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors amenés à se sacrifier volontairement, au lieu de les garder piégés ici pendant cent ans à attendre qu'ils succombent à l'anxiété! »
 
-Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays des Démons de Feu.
+Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays du Démon de Feu.
 
 « Wang Lin, mon sens divin d'épée ne peut toujours pas pénétrer ce brouillard violet. Il est très étrange, mais tu peux être rassuré: les personnes piégées à l'intérieur ne peuvent pas te détecter avec leur sens divin », transmit la voix de Zhou Yi depuis l'intérieur de l'épée céleste.
 

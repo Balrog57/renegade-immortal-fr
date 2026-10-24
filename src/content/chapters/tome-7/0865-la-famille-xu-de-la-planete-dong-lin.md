@@ -16,7 +16,7 @@ Le réseau de transfert scintilla alors que l'homme en sortait. À cet instant, 
 
 « Une bande de déchets! »
 
-La voix de l'homme était calme, mais lorsqu'il parla, ce fut comme si le tonnerre avait explosé. Tous les cultivateurs présents étaient les élites du Système Stellaire Luotian. En entendant ces paroles, leurs regards se tournèrent vers lui avec hostilité.
+La voix de l'homme était calme, mais lorsqu'il parla, ce fut comme si le tonnerre avait explosé. Tous les cultivateurs présents étaient les élites du Système Stellaire de Luotian. En entendant ces paroles, leurs regards se tournèrent vers lui avec hostilité.
 
 L'expression de Wang Lin resta sereine et il détourna les yeux. Cet homme possédait le même niveau de culture que lui, tous deux étant au stade initial du Scruteur du Nirvana. Cependant, Wang Lin éprouvait un étrange pressentiment à son égard.
 
@@ -112,7 +112,7 @@ Une énergie spirituelle céleste dense emplissait la région, comme si on se tr
 
 « Le Temple Céleste du Tonnerre compte un total de 1 372 salles principales. Chacune d'elles a été extraite du Royaume Céleste du Tonnerre par les Seigneurs du Temple successifs! » Les paroles du vieil homme étaient empreintes de fierté.
 
-Wang Lin acquiesça et fit l'éloge: « Le Temple Céleste du Tonnerre est effectivement le temple le plus puissant du Système Stellaire Luotian! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de culture.
+Wang Lin acquiesça et fit l'éloge: « Le Temple Céleste du Tonnerre est effectivement le temple le plus puissant du Système Stellaire de Luotian! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de culture.
 
 Le vieil homme sourit et dit: « Les futurs accomplissements de l'ami Xu ne manqueront pas d'être grandioses. Il y aura certainement une place pour vous ici, cher compagnon de culture! »
 

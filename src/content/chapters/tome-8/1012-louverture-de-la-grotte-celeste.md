@@ -22,7 +22,7 @@ Le corps de Yao Xixue vacilla et disparut. Lorsqu'elle réapparut, elle flottait
 
 Après un bref instant de pause, elle se transforma en un rayon de lumière démoniaque et fonça en avant.
 
-Un autre endroit fut épargné par l'énergie spirituelle céleste: le Pays des Démons de Feu, là où se trouvait la Secte de l'Affinement de l'Âme!
+Un autre endroit fut épargné par l'énergie spirituelle céleste: le Pays du Démon de Feu, là où se trouvait la Secte de l'Affinement de l'Âme!
 
 L'énergie spirituelle céleste passa devant la statue de Wang Lin, nichée dans les profondeurs de la Secte de l'Affinement de l'Âme. Elle tenta de dissiper l'énergie démoniaque à l'intérieur, mais un cri aigu retentit de la statue.
 
@@ -88,7 +88,7 @@ Wang Lin répondit calmement: « C'est bien moi. »
 
 Hu Juan, aux côtés de Wang Wei, lui adressa un sourire. « Tu as perdu notre pari de l'époque. »
 
-Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée du Abîme des Marées, dans le Pays des Démons de Feu, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
+Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée du Abîme des Marées, dans le Pays du Démon de Feu, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
 
 Dès que Wang Lin vit l'herbe, il reconnut l'interdiction qu'il avait lui-même posée autrefois. Son expression ne changea pas et il acquiesça.
 

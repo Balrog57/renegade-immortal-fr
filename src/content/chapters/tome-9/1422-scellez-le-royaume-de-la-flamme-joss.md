@@ -1,6 +1,6 @@
 ---
 n: 1422
-title: "Scellez le Royaume de la Flamme Joss!"
+title: "Scellez le Royaume des Flammes Joss!"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1422 - Seal the Joss Flame Realm!"
@@ -22,7 +22,7 @@ Auparavant, il ne pouvait que se protéger, mais désormais, il pouvait tenir t�
 
 Voyant le vent violet approcher, des éclairs jaillirent de l'œil droit de Wang Lin. Il recula d'un pas et agita sa main droite.
 
-« Royaume du Tonnerre Ancien, ouvre-toi! »
+« Royaume du Tonnerre Antique, ouvre-toi! »
 
 Le monde gronda et une autre immense faille apparut dans le ciel, recouverte par le vent violet. Cette déchirure mesurait 10 000 pieds de long et semblait avoir lacéré la pourpre pour apparaître devant Wang Lin!
 
@@ -30,7 +30,7 @@ Des grondements tonitruants résonnèrent à l'intérieur de la faille, dégagea
 
 Un tonnerre infini s'échappa de la faille et fit rage au sein du vent violet.
 
-Tout cela se produisit en un instant. Dès que le Royaume du Tonnerre Ancien fut ouvert par Wang Lin, le tatouage de tonnerre dans son œil droit s'élança vers la faille.
+Tout cela se produisit en un instant. Dès que le Royaume du Tonnerre Antique fut ouvert par Wang Lin, le tatouage de tonnerre dans son œil droit s'élança vers la faille.
 
 Simultanément, un rugissement fracassant provenant de la brèche étouffa tous les sons de tonnerre. La tête d'un géant dragon de tonnerre antique surgit et chargea le tatouage.
 
@@ -38,7 +38,7 @@ En un éclair, l'ancien dragon de tonnerre fusionna avec l'un des éclairs accom
 
 Ce n'était pas fini. En un instant, d'autres dragons de tonnerre apparurent et fusionnèrent rapidement avec les éclairs accompagnateurs avant que le vent violet n'atteigne sa cible!
 
-« Le Royaume du Tonnerre Ancien sera la base de mon tatouage de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
+« Le Royaume du Tonnerre Antique sera la base de mon tatouage de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
 
 Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré le tonnerre éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
 
@@ -52,7 +52,7 @@ Les neuf éclairs accompagnateurs formèrent une tempête de tonnerre capable de
 
 Le vent violet se mua en une tempête pourpre qui balaya le monde. Tandis que les innombrables disciples de la Flamme Joss s'inclinaient, elle se rapprocha!
 
-La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume du Tonnerre Ancien, qui se répandit à travers les âges immémoriaux!
+La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume du Tonnerre Antique, qui se répandit à travers les âges immémoriaux!
 
 *Grondement, grondement, grondement, grondement!*
 
@@ -60,15 +60,15 @@ La collision des deux tempêtes fit trembler la Planète du Grand Empereur. Une 
 
 L'effondrement de la tortue provoqua la désintégration de l'arène, projetant les cultivateurs environnants qui crachèrent du sang sous le choc.
 
-La tempête de tonnerre explosa soudainement en d'innombrables éclairs. Les neuf éclairs accompagnateurs furent repoussés et même la faille menant au Royaume du Tonnerre Ancien commença à se distordre, comme sur le point de se dissiper.
+La tempête de tonnerre explosa soudainement en d'innombrables éclairs. Les neuf éclairs accompagnateurs furent repoussés et même la faille menant au Royaume du Tonnerre Antique commença à se distordre, comme sur le point de se dissiper.
 
 La tempête pourpre trembla également. La majeure partie de celle-ci s'effondra face à l'essence de tonnerre de Wang Lin. Les âmes de la Flamme Joss environnantes furent affectées et commencèrent à se désagréger à grande échelle.
 
 C'était comme une main invisible balayant le ciel, annihilant toutes les âmes de la Flamme Joss.
 
-Les vêtements du Maître Simo flottaient tandis que ses yeux s'illuminaient. Sous l'impact de l'onde de choc, il recula d'un pas, agita les mains et rugit: « Les âmes de la Flamme Joss de ce vieil homme sont infinies! Même si vous détruisez celles-ci, j'en ai d'autres. Disciples du Royaume de la Flamme Joss, apparaissez à nouveau! »
+Les vêtements du Maître Simo flottaient tandis que ses yeux s'illuminaient. Sous l'impact de l'onde de choc, il recula d'un pas, agita les mains et rugit: « Les âmes de la Flamme Joss de ce vieil homme sont infinies! Même si vous détruisez celles-ci, j'en ai d'autres. Disciples du Royaume des Flammes Joss, apparaissez à nouveau! »
 
-Après son rugissement, une multitude d'âmes s'apprêtaient à jaillir de la gigantesque faille menant au Royaume de la Flamme Joss du Maître Simo.
+Après son rugissement, une multitude d'âmes s'apprêtaient à jaillir de la gigantesque faille menant au Royaume des Flammes Joss du Maître Simo.
 
 Du coin de la bouche de Wang Lin coula un filet de sang. Son visage était pâle et il recula de plusieurs pas. Cependant, tout en reculant, il leva la tête et révéla une intention de combat monstrueuse!
 
@@ -90,11 +90,11 @@ Une seule feuille pour couvrir le ciel!
 
 La Feuille Ancienne dépassa en un éclair Maître Simo et se matérialisa au-delà de son Royaume de Flamme Joss. Elle recouvrit la faille!
 
-« Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume de la Flamme Joss du Maître Simo, elle libéra une force de scellement colossale!
+« Scellez! Scellez! Scellez! » Le rugissement de Wang Lin résonna et la feuille ancienne brilla comme une rune de scellement. Dès qu'elle se fixa sur le Royaume des Flammes Joss du Maître Simo, elle libéra une force de scellement colossale!
 
-Sous la puissance de la Feuille Ancienne, le Royaume de la Flamme Joss trembla, et pas une seule âme ne put s'en échapper!
+Sous la puissance de la Feuille Ancienne, le Royaume des Flammes Joss trembla, et pas une seule âme ne put s'en échapper!
 
-Ce changement soudain choqua le Maître Simo, et la peur apparut dans ses yeux. Il n'avait jamais entendu parler d'un trésor capable de sceller le Royaume de la Flamme Joss d'un cultivateur du troisième pas!
+Ce changement soudain choqua le Maître Simo, et la peur apparut dans ses yeux. Il n'avait jamais entendu parler d'un trésor capable de sceller le Royaume des Flammes Joss d'un cultivateur du troisième pas!
 
 « Ceci... Quel genre de trésor est-ce là?! »
 
@@ -104,7 +104,7 @@ Non seulement le Maître Simo était stupéfait, mais les pupilles du vieil Oise
 
 Le visage de la Grande Maîtresse Yun Luo devint encore plus pâle et la peur dans ses yeux ne pouvait plus être dissimulée. Son esprit vacilla et elle recula de quelques pas. Elle se souvenait clairement d'une image où une silhouette, d'un geste de la main, avait fait apparaître 99 de ces feuilles pour sceller le Système Stellaire Antique. Elles avaient totalement scellé un sortilège du Dao Céleste extrêmement puissant lancé par de nombreux cultivateurs du système!
 
-Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume de la Flamme Joss du Maître Simo, il ne recula pas, mais chargea au contraire vers lui!
+Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume des Flammes Joss du Maître Simo, il ne recula pas, mais chargea au contraire vers lui!
 
 Wang Lin arriva à moins de 1 000 pieds du Maître Simo et rugit: « Âme du démon ancien, sors! » Un brouillard noir commença à apparaître et se répandit immédiatement.
 

@@ -80,7 +80,7 @@ C'était comme si la foudre partait en pèlerinage pour vénérer l'ancêtre de 
 
 C'était comme la fin du monde. Les expressions de tous les cultivateurs de la planète Suzaku changèrent radicalement. Le choc qui ébranlait leurs âmes les faisait trembler; ils étaient comme des fourmis face à la puissance des cieux. Quant aux mortels, ils se prosternèrent tous au sol.
 
-Le phénomène ne toucha pas que la planète Suzaku. À cet instant, un groupe de plusieurs centaines de cultivateurs du Système Stellaire Luotian voyageait dans l'espace, mené par le cultivateur aux six doigts.
+Le phénomène ne toucha pas que la planète Suzaku. À cet instant, un groupe de plusieurs centaines de cultivateurs du Système Stellaire de Luotian voyageait dans l'espace, mené par le cultivateur aux six doigts.
 
 En mouvement, son expression changea brusquement et il fixa l'horizon. Grâce à sa culture, il pouvait vaguement sentir que la densité du tonnerre devant lui dépassait l'entendement.
 

@@ -90,13 +90,13 @@ Le doute s'installa dans son esprit. Il semblait que le cristal de glace s'étai
 
 Il fronça les sourcils. Le Magicien Démon Céleste avait-il vraiment consenti de tels sacrifices, allant jusqu'à tuer son disciple, pour obtenir cette chose? L'homme d'âge moyen avait-il raison de la traiter de déchet?
 
-Wang Lin fronça fortement les sourcils. Alors qu'il s'élançait pour poursuivre sa route et atteindre au plus vite la Mer de Connaissance, une légère douleur lui traversa la tête.
+Wang Lin fronça fortement les sourcils. Alors qu'il s'élançait pour poursuivre sa route et atteindre au plus vite la Mer de la Connaissance, une légère douleur lui traversa la tête.
 
 La douleur fut d'abord légère et disparut aussi vite qu'elle était apparue. Mais quelques instants plus tard, une souffrance bien plus intense surgit. Ce cycle se répéta frénétiquement, transformant une simple gêne en une agonie atroce.
 
 Tout se passa trop vite. Wang Lin n'avait parcouru qu'une dizaine de mètres avant de pousser un cri déchirant, le corps secoué de tremblements. La douleur revenait sans cesse, plus violente à chaque fois. Il tenta immédiatement de toucher son front pour pénétrer dans l'espace de la Perle Défiant le Ciel afin de méditer, mais il découvrit que son Sens Divin était bloqué par une force surgie soudain de son cerveau, et qu'il lui était impossible d'entrer dans la perle.
 
-Le visage de Wang Lin changea légèrement. Il s'assit rapidement en tailleur pour inspecter l'intérieur de son corps. Il constata que sa propre Mer de Connaissance était entourée d'une lumière bleue. La douleur provenait de là. Quelle que soit la force de son esprit, il ne pouvait repousser cette douleur, seulement l'endurer.
+Le visage de Wang Lin changea légèrement. Il s'assit rapidement en tailleur pour inspecter l'intérieur de son corps. Il constata que sa propre Mer de la Connaissance était entourée d'une lumière bleue. La douleur provenait de là. Quelle que soit la force de son esprit, il ne pouvait repousser cette douleur, seulement l'endurer.
 
 Après quelques instants, un cercle bleu s'éleva lentement du sommet de sa tête. De ce cercle jaillirent d'innombrables tentacules qui restèrent suspendus dans les airs. Au fil du temps, ils se multiplièrent et s'allongèrent de plus en plus.
 

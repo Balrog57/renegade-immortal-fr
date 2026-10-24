@@ -98,7 +98,7 @@ Une seule sphère pouvait tuer un Ascendant Empyréen, et près de dix mille exp
 
 Des grondements tonitruants résonnèrent comme si des millions d'éclairs explosaient simultanément. Cette onde de choc fit trembler l'intégralité du vaste bassin, se propagea vers le clan Ancien et le clan Céleste et affecta jusqu'aux lois du monde. Le Continent Astral Immortel tout entier ressentit cette collision.
 
-Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Yang Pourpre et sur le glacier du Continent Nord — les quatre Grands Empyréens présents, à l'exception de Lian Daofei, sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
+Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Yang Pourpre et sur le glacier du Continent du Nord — les quatre Grands Empyréens présents, à l'exception de Lian Daofei, sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
 
 « Gu Dao a fait mouvement! »
 

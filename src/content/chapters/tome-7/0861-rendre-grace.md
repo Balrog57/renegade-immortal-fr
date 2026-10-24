@@ -14,7 +14,7 @@ slug: rendre-grâce
 
 « Non seulement cela, mais de nombreuses familles de cultivateurs qui ont participé à la traque aux côtés des Yao sont aujourd'hui dans l'angoisse. Tant que Xu Mu sera en vie, elles craindront qu'un jour il ne vienne se venger d'elles! »
 
-Diverses conversations éclatèrent après un moment de silence. Le nom de Xu Mu était trop célèbre; presque personne dans le Système Stellaire Tout-Ciel ne l'ignorait!
+Diverses conversations éclatèrent après un moment de silence. Le nom de Xu Mu était trop célèbre; presque personne dans le Système Stellaire de Luotian ne l'ignorait!
 
 Alors que Shengong Hu fixait Wang Lin, abasourdi, un sentiment complexe s'empara de lui. La culture de Wang Lin, au début du stade Scruteur du Nirvana, l'avait profondément choqué.
 
@@ -38,13 +38,13 @@ En voyant ces gens, Wang Lin hocha la tête.
 
 L'expression de Wang Lin resta glaciale tandis qu'il contemplait le vieil homme.
 
-Au même instant, un homme d'âge moyen se tenait à environ 330 mètres de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
+Au même instant, un homme d'âge moyen se tenait à environ 330 mètres de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire de Luotian, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
 
 Les yeux du vieil homme nommé Tang s'illuminèrent. Il ne regarda pas l'homme d'âge moyen, mais plutôt l'un des ancêtres de la famille Chen présents non loin de là.
 
-Puis un autre cultivateur se leva. C'était un homme âgé qui, après s'être redressé, fixa l'Ancien Tang. Il dit: « La famille Zhao du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer. Je me demande si ma famille Zhao est qualifiée aux yeux de Senior Tang! »
+Puis un autre cultivateur se leva. C'était un homme âgé qui, après s'être redressé, fixa l'Ancien Tang. Il dit: « La famille Zhao du Système Stellaire de Luotian, dans le Domaine Sud, recommande Senior Xu Mu pour participer. Je me demande si ma famille Zhao est qualifiée aux yeux de Senior Tang! »
 
-« La famille Li du Système Stellaire Tout-Ciel, dans le Domaine Sud, propose que Senior Xu Mu rejoigne la bataille. J'ignore si ma famille Li en a les qualifications! » Un homme d'âge moyen vêtu de bleu foncé fit un pas en avant et fixa l'Ancien Tang.
+« La famille Li du Système Stellaire de Luotian, dans le Domaine Sud, propose que Senior Xu Mu rejoigne la bataille. J'ignore si ma famille Li en a les qualifications! » Un homme d'âge moyen vêtu de bleu foncé fit un pas en avant et fixa l'Ancien Tang.
 
 « La famille Zheng recommande également Senior Xu Mu. Je me demande si ma famille Zheng est qualifiée! » Après l'homme d'âge moyen, une femme portant une robe colorée s'avança à son tour. Bien que sa voix fût douce, elle était ferme.
 
@@ -74,7 +74,7 @@ Ces jeunes n'avaient aucune importance en soi, mais le fait que les anciens de l
 
 Lui aussi était au stade Scruteur du Nirvana, et comme Wang Lin, il en était au début. Cependant, il évoluait dans ce stade depuis longtemps et avait déjà atteint le sommet du premier niveau du Scruteur du Nirvana.
 
-Dans le Système Stellaire Tout-Ciel, parmi les familles de culture ordinaires, des cultivateurs du stade Yin et Yang pouvaient être considérés comme les ancêtres d'une lignée. À moins de circonstances exceptionnelles, il était impossible de voir apparaître des cultivateurs au stade Scruteur du Nirvana.
+Dans le Système Stellaire de Luotian, parmi les familles de culture ordinaires, des cultivateurs du stade Yin et Yang pouvaient être considérés comme les ancêtres d'une lignée. À moins de circonstances exceptionnelles, il était impossible de voir apparaître des cultivateurs au stade Scruteur du Nirvana.
 
 Seules les familles de culture des planètes principales possédaient des cultivateurs au stade Scruteur du Nirvana, mais en nombre restreint; un seul par famille était la limite habituelle.
 

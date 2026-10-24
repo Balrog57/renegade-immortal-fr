@@ -44,9 +44,9 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empyréen Shuangzi! »
 
-« La Secte Dao Yi du Continent Sud possède le Grand Empyréen Dao Yi! »
+« La Secte Dao Yi du Continent du Sud possède le Grand Empyréen Dao Yi! »
 
-« La Secte de l'Univers du Continent Nord possède le Grand Empyréen Wu Feng! »
+« La Secte de l'Univers du Continent du Nord possède le Grand Empyréen Wu Feng! »
 
 « Dans le Continent Central, il existe un autre Grand Empyréen aux côtés de l'Empereur Céleste, et c'est le Grand Empyréen Jiu Di! »
 

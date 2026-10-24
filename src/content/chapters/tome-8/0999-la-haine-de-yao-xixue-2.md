@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 999 - Yao Xixues hatred (2)
 slug: la-haine-de-yao-xixue-2
 ---
-À cet instant, Wang Lin émergea du vortex céleste. Dès son apparition, son esprit tressaillit et il tourna soudainement le regard vers le Pays des Démons du Vent. Il y perçut vaguement une rancœur monstrueuse à son égard.
+À cet instant, Wang Lin émergea du vortex céleste. Dès son apparition, son esprit tressaillit et il tourna soudainement le regard vers le Pays du Démon du Vent. Il y perçut vaguement une rancœur monstrueuse à son égard.
 
 Ce sentiment ne dura qu'un instant avant de s'évanouir, comme s'il n'avait jamais existé. Derrière lui, Situ Nan et les autres apparurent, flottant dans les airs pour contempler les lieux en contrebas.
 
@@ -50,9 +50,9 @@ De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouv
 
 Une fois ce problème résolu, Wang Lin réfléchit un instant, puis son sens divin se déploya lentement. Avec sa culture actuelle de Scruteur du Nirvana de stade moyen, il couvrit aisément l'intégralité de la Terre des Esprits Démoniaques!
 
-Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu de l'Affinement de l'Âme transportaient vers la capitale du Pays des Démons du Feu libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, les deux fusionnèrent.
+Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu de l'Affinement de l'Âme transportaient vers la capitale du Pays du Démon de Feu libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, les deux fusionnèrent.
 
-La lueur noire émanant de la statue devint progressivement plus intense, jusqu'à recouvrir plus de la moitié du ciel au-dessus du Pays des Démons du Feu. D'innombrables membres de la Tribu de l'Affinement de l'Âme contemplèrent la statue ancestrale avec stupéfaction.
+La lueur noire émanant de la statue devint progressivement plus intense, jusqu'à recouvrir plus de la moitié du ciel au-dessus du Pays du Démon de Feu. D'innombrables membres de la Tribu de l'Affinement de l'Âme contemplèrent la statue ancestrale avec stupéfaction.
 
 On ne sait qui réagit le premier, mais certains s'agenouillèrent instantanément. Puis, presque tous les membres de la tribu se prosternèrent, les yeux brillants d'excitation.
 
@@ -70,7 +70,7 @@ Il ne parvenait pas à définir cette sensation, mais au moment de l'union, d'in
 
 Cette ferveur terrifiante ébranla Wang Lin lui-même. C’était le culte de plusieurs siècles des millions de membres de la tribu envers cette statue de pierre qui avait engendré cette force mystérieuse que même lui ne pouvait pleinement saisir.
 
-Tout en réfléchissant, Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il surplombait la capitale du Pays des Démons du Feu. De là, il pouvait contempler la scène de millions de personnes agenouillées!
+Tout en réfléchissant, Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il surplombait la capitale du Pays du Démon de Feu. De là, il pouvait contempler la scène de millions de personnes agenouillées!
 
 Dire "des millions" pouvait ne pas sembler grand-chose, mais aux yeux de Wang Lin, c'était une mer humaine sans fin qui recouvrait le sol. Des drapeaux plantés partout dansaient au vent, et les gémissements des fragments d'âmes emplissaient l'atmosphère. Dès l'apparition de Wang Lin, tous les fragments d'âmes poussèrent des cris perçants, comme s'ils reconnaissaient leur véritable maître!
 
@@ -90,10 +90,10 @@ Le regard des membres de la tribu était chargé d'une excitation qui stupéfia 
 
 « Treize accueille le retour de l'Ancêtre! »
 
-Les paroles de Treize embrasèrent l'enthousiasme de l'innombrable foule. De nouveau, une brume blanche s'éleva de chaque individu pour pénétrer la statue noire. Les drapeaux d'âmes se mirent à onduler comme sous l'effet d'une mer noire soudaine. Les fragments d'âmes s'envolèrent des bannières, enveloppant tout le Pays des Démons du Feu d'un brouillard noir impénétrable. Le nombre de ces fragments était inconcevable.
+Les paroles de Treize embrasèrent l'enthousiasme de l'innombrable foule. De nouveau, une brume blanche s'éleva de chaque individu pour pénétrer la statue noire. Les drapeaux d'âmes se mirent à onduler comme sous l'effet d'une mer noire soudaine. Les fragments d'âmes s'envolèrent des bannières, enveloppant tout le Pays du Démon de Feu d'un brouillard noir impénétrable. Le nombre de ces fragments était inconcevable.
 
 En observant les membres de la tribu, Wang Lin en reconnut certains, bien qu'il ne puisse plus nommer leurs visages. C'étaient manifestement des anciens qui étaient présents lors de sa dernière visite.
 
 « Je suis revenu. » La voix de Wang Lin se propagea lentement depuis les cieux pour atteindre les oreilles de chacun. Bien que ces trois mots fussent simples, ils retentirent comme des éclairs tombant du ciel. Toute la Tribu de l'Affinement de l'Âme poussa un cri de joie.
 
-Alors que la foule exultait, Wang Lin descendit progressivement pour atterrir sur l'enceinte de la capitale du Pays des Démons du Feu. Il était revenu ici, une fois de plus, après des centaines d'années!
+Alors que la foule exultait, Wang Lin descendit progressivement pour atterrir sur l'enceinte de la capitale du Pays du Démon de Feu. Il était revenu ici, une fois de plus, après des centaines d'années!

@@ -20,7 +20,7 @@ L'Exalté Empyréen dit doucement: « Je n'ai pas de secte. J'ai suivi mon Maît
 
 Alors qu'ils discutaient, une atmosphère particulière imprégna cette zone de mille pieds.
 
-« Avec ta puissance de combat d'Exalté Empyréen, je présume que le Grand Empyréen Dao Yi du Continent Sud a tenté de te recruter… As-tu accepté? » Le magnifique regard de l'Exalté Empyréen Hai Zi se posa sur Wang Lin.
+« Avec ta puissance de combat d'Exalté Empyréen, je présume que le Grand Empyréen Dao Yi du Continent du Sud a tenté de te recruter… As-tu accepté? » Le magnifique regard de l'Exalté Empyréen Hai Zi se posa sur Wang Lin.
 
 « Non. » Wang Lin secoua la tête.
 

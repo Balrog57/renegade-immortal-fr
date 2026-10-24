@@ -18,7 +18,7 @@ Ses yeux étaient injectés de sang alors qu'il faisait un pas dans les airs. De
 
 Il était encore loin de l'ancien champ de bataille. Ses yeux rougis par le sang alors qu'il traversait le ciel attiraient l'attention de nombreuses personnes au sein de la Terre des Esprits Démoniaques.
 
-Parmi elles se trouvaient des cultivateurs et des généraux démons du Pays des Démons de Feu. Tant qu'ils ne provoquaient pas Wang Lin, il les ignorait, mais dès qu'ils manifestaient la moindre intention meurtrière à son égard, il pouvait immédiatement les détecter en raison de son état actuel.
+Parmi elles se trouvaient des cultivateurs et des généraux démons du Pays du Démon de Feu. Tant qu'ils ne provoquaient pas Wang Lin, il les ignorait, mais dès qu'ils manifestaient la moindre intention meurtrière à son égard, il pouvait immédiatement les détecter en raison de son état actuel.
 
 Quiconque nourrirait une intention meurtrière serait tué par Wang Lin sans la moindre hésitation!
 
@@ -26,7 +26,7 @@ Il existait une planète privée, loin de la planète Tian Yun, nommée planète
 
 Cette fois-ci, avec son niveau de culture actuel, il avait dépassé le niveau autorisé pour entrer dans la Terre des Esprits Démoniaques. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
 
-À cet instant, deux jeunes hommes vêtus de robes grises volaient à travers le ciel du Pays des Démons de Feu. Il s'agissait des deux disciples directs de l'Ancêtre Mo!
+À cet instant, deux jeunes hommes vêtus de robes grises volaient à travers le ciel du Pays du Démon de Feu. Il s'agissait des deux disciples directs de l'Ancêtre Mo!
 
 En plein vol, l'un d'eux eut soudain un éclair de lucidité. Il scruta l'horizon et sentit clairement qu'une bête primale émettant une intention meurtrière inimaginable se dirigeait vers eux.
 
@@ -68,13 +68,13 @@ Tandis que Wang Lin volait, la terre continuait de se dessécher sur son passage
 
 Il semblait surgir des enfers, dévorant toute forme de vie!
 
-Wang Lin volait presque en ligne droite à travers le Pays des Démons de Feu, et tout ce qui croisait sa trajectoire se flétrissait!
+Wang Lin volait presque en ligne droite à travers le Pays du Démon de Feu, et tout ce qui croisait sa trajectoire se flétrissait!
 
 Une traînée de mort immense restait derrière lui. C'était une humiliation et une provocation sans précédent pour un pays. Des dizaines de généraux démons furent dépêchés pour encercler et réprimer ce cultivateur diabolique!
 
-Le point de jonction de l'encerclement se situait près de la frontière entre le Pays des Démons de Feu et le Pays du Démon Céleste, en un lieu nommé la Montagne des Millions de Démons!
+Le point de jonction de l'encerclement se situait près de la frontière entre le Pays du Démon de Feu et le Pays du Démon Céleste, en un lieu nommé la Montagne des Millions de Démons!
 
-Un brouillard épais et éternel recouvrait la Montagne des Millions de Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays des Démons de Feu, et la Cité du Feu Fondant du Pays du Démon Céleste.
+Un brouillard épais et éternel recouvrait la Montagne des Millions de Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays du Démon de Feu, et la Cité du Feu Fondant du Pays du Démon Céleste.
 
 À cet instant, 100 000 soldats démons étaient en position dans la Cité du Ciel Paisible, tandis que plus de dix généraux démons scrutaient l'horizon.
 
@@ -96,7 +96,7 @@ Il réfléchit un instant et demanda: « Êtes-vous certains que cet individu pa
 
 « Vice-Commandant en Chef, une chose me trouble. Sur les dix hommes que nous avons envoyés, seuls trois sont morts au lieu de tous être éliminés. Il semble que ce cultivateur ait une manière bien particulière de tuer. »
 
-Alors que les généraux discutaient, l'expression de l'homme d'âge moyen changea. Il regarda au loin avec impatience: « Un simple cultivateur Ascendant, et en plus gravement blessé, ose faire preuve d'une telle audace dans mon Pays des Démons de Feu? Que vous tous finissiez ce combat sans délai! »
+Alors que les généraux discutaient, l'expression de l'homme d'âge moyen changea. Il regarda au loin avec impatience: « Un simple cultivateur Ascendant, et en plus gravement blessé, ose faire preuve d'une telle audace dans mon Pays du Démon de Feu? Que vous tous finissiez ce combat sans délai! »
 
 Les dix généraux démons furent surpris et dirigèrent leurs regards glacials vers l'horizon. Un homme portant une armure bleue fit quelques pas vers le vice-commandant et déclara: « Seigneur Vice-Commandant en Chef, votre subordonné, Yin Dong, est prêt à aller éliminer cet individu! »
 

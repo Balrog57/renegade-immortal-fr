@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1801 - There is Something Strange, There is a Problem, There is a Treasure!"
 slug: il-y-a-quelque-chose-detrange-il-y-a-un-probleme-il-y-a-un-tresor
 ---
-Le continent du Taureau Céleste faisait partie du Continent Oriental. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
+Le continent du Taureau Céleste faisait partie du Continent de l'Est. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
 
 La rumeur prétendait qu'aux premiers âges, le continent du Taureau Céleste était une bête maléfique venue d'au-delà du ciel, que l'Ancêtre Céleste avait tuée, et dont le corps s'était transformé en ce continent. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces!
 
@@ -18,7 +18,7 @@ La légende du continent du Taureau Céleste remontait à l'Antiquité. Si le co
 
 Sur le continent du Taureau Céleste existaient deux sectes célèbres: la Secte Gui Yi et la Secte de la Grande Âme.
 
-Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent Oriental! Elles comptaient un nombre prodigieux de disciples, mais comme le continent du Taureau Céleste équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
+Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent de l'Est! Elles comptaient un nombre prodigieux de disciples, mais comme le continent du Taureau Céleste équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
 
 La Secte de la Grande Âme était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion!
 
@@ -34,13 +34,13 @@ Toutefois, au cours des dernières décennies, un disciple central de la Secte G
 
 Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du continent du Taureau Céleste!
 
-Certains l'incluaient même parmi les quatre génies célestes précédemment nommés du Continent Oriental, formant ainsi les « Cinq Pics »!
+Certains l'incluaient même parmi les quatre génies célestes précédemment nommés du Continent de l'Est, formant ainsi les « Cinq Pics »!
 
-Pourtant, ce Yun Yifeng se montrait très modeste et secouait souvent la tête lorsqu'on le comparait aux quatre génies du Continent Oriental. Ce n'était pas par sentiment d'infériorité, mais plutôt par pur mépris à leur égard.
+Pourtant, ce Yun Yifeng se montrait très modeste et secouait souvent la tête lorsqu'on le comparait aux quatre génies du Continent de l'Est. Ce n'était pas par sentiment d'infériorité, mais plutôt par pur mépris à leur égard.
 
 Il y a dix ans, lors d'un affrontement entre la Secte de la Grande Âme et la Secte Gui Yi, Yun Yifeng avait blessé neuf disciples et trois anciens de la Secte de la Grande Âme en une seule attaque.
 
-Lorsqu'on le compara alors aux quatre génies célestes du Continent Oriental, il prononça des paroles qui choquèrent tout le continent du Taureau Céleste:
+Lorsqu'on le compara alors aux quatre génies célestes du Continent de l'Est, il prononça des paroles qui choquèrent tout le continent du Taureau Céleste:
 
 « Mon épée peut blesser de nombreux adversaires; je n'hésiterais pas à affronter ces quatre génies. Bien que je ne sois pas certain de gagner, je ne reculerai pas d'un demi-pas! »
 
@@ -54,7 +54,7 @@ Qui était cet homme?
 
 Qui pouvait pousser Yun Yifeng à de tels propos? Qui pouvait l'intimider au point qu'il n'ose dégainer son arme?
 
-Et cet individu n'avait cultivé que depuis un peu plus de 2 000 ans! Si cela était vrai, alors les quatre génies du Continent Oriental ne méritaient effectivement pas leur titre face à un tel être!
+Et cet individu n'avait cultivé que depuis un peu plus de 2 000 ans! Si cela était vrai, alors les quatre génies du Continent de l'Est ne méritaient effectivement pas leur titre face à un tel être!
 
 Bien que cette déclaration ait suscité une agitation sans précédent, beaucoup remirent ses propos en question. Cependant, personne au sein de la Secte de la Grande Âme ne s'y opposa, comme si ses membres connaissaient cet individu!
 

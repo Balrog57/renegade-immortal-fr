@@ -36,7 +36,7 @@ La silhouette au cœur des flammes ne tenta pas d'arrêter Wang Lin.
 
 « C'est exact! » Une lueur d'intention meurtrière jaillit des yeux de Wang Lin alors que son visage se durcissait. Il fit un pas en avant et chargea la flamme aux sept couleurs. Le feu aux neuf couleurs de son œil gauche jaillit, formant un brasier éthéré qui bombarda les flammes septicolores.
 
-Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut dans le tatouage de tonnerre, ouvrant un passage vers le Royaume du Tonnerre Ancien!
+Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut dans le tatouage de tonnerre, ouvrant un passage vers le Royaume du Tonnerre Antique!
 
 Sa main gauche traça un sceau et pointa vers le ciel. Instantanément, un parfum d'herbe fraîche emplit le monde. Les fantômes d'innombrables arbres surgirent et l'esprit de la forêt antique se redressa. Il poussa un rugissement et bondit sur la flamme aux sept couleurs.
 

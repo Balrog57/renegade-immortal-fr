@@ -76,7 +76,7 @@ Même le Dieu de Sang, pourtant devenu fou, redressa instantanément la tête, s
 
 Dès que cette figure illusoire se manifesta, elle leva la main et fit un geste désinvolte vers le Dieu de Sang. Ce dernier cracha immédiatement une grande quantité de sang, et le démon ancien fut expulsé de son corps. Le visage du démon ancien était pétrifié par le choc alors qu'il fixait la silhouette illusoire.
 
-« Démon ancien, je me fiche que vous empruntiez la famille Yao pour restaurer votre corps; cela m'est égal. Cependant, si vous provoquez un massacre dans le Système Stellaire Luotian et perturbez l'entrée dans l'Alliance, alors je n'hésiterai pas à éteindre votre flamme démoniaque inextinguible! »
+« Démon ancien, je me fiche que vous empruntiez la famille Yao pour restaurer votre corps; cela m'est égal. Cependant, si vous provoquez un massacre dans le Système Stellaire de Luotian et perturbez l'entrée dans l'Alliance, alors je n'hésiterai pas à éteindre votre flamme démoniaque inextinguible! »
 
 La voix de cet être était calme, mais elle portait une aura capable de terrasser les cœurs. À cet instant, Wang Lin eut l'impression d'avoir remonté mille ans en arrière; il ressentait la même sensation qu'un mortel contemplant un puissant cultivateur!
 
@@ -86,7 +86,7 @@ Incroyablement puissant!
 
 Impossible de résister, impossible de s'opposer, et même les pensées de rébellion doivent être totalement éteintes! Dès que l'on entend cette sentence, l'obéissance est la seule issue!
 
-« Seigneur Céleste Qing Shui, le Royaume Céleste s'est brisé, et voici le Système Stellaire Luotian! » La figure illusoire se tourna vers Qing Shui. Ce regard était semblable au Dao lui-même; il n'avait aucune force physique, mais il provoqua une série de grondements autour de Qing Shui. C'était comme si les cieux eux-mêmes devaient succomber à cette voix!
+« Seigneur Céleste Qing Shui, le Royaume Céleste s'est brisé, et voici le Système Stellaire de Luotian! » La figure illusoire se tourna vers Qing Shui. Ce regard était semblable au Dao lui-même; il n'avait aucune force physique, mais il provoqua une série de grondements autour de Qing Shui. C'était comme si les cieux eux-mêmes devaient succomber à cette voix!
 
 Il ne tolérerait aucune résistance!
 

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1002 - Second Avatar (2)
 slug: deuxieme-avatar-2
 ---
-« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… Le Pays des Démons des Nuages s'est effondré et la Tour du Démon n'existe plus, je ne peux pas rester! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
+« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… Le Pays du Démon des Nuages s'est effondré et la Tour du Démon n'existe plus, je ne peux pas rester! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
 
 Ce sens démoniaque volait prudemment vers l'avant; cependant, il était bien trop faible et pouvait être anéanti à tout instant.
 
@@ -70,7 +70,7 @@ Après avoir donné ses instructions à la Secte de l'Affinement de l'Âme, Wang
 
 « Ce deuxième avatar est une graine. Pour l'instant, il ne me sert à rien, mais une fois qu'il aura grandi… » Une lueur d'anticipation brilla dans les yeux de Wang Lin. Puis son corps vacilla et il disparut.
 
-Bien que le Pays du Démon Céleste ait remporté la bataille contre le Pays des Démons de Feu des centaines d'années auparavant, leurs pertes avaient été trop lourdes. Aujourd'hui encore, après tous ces siècles, leur population était bien moindre qu'autrefois.
+Bien que le Pays du Démon Céleste ait remporté la bataille contre le Pays du Démon de Feu des centaines d'années auparavant, leurs pertes avaient été trop lourdes. Aujourd'hui encore, après tous ces siècles, leur population était bien moindre qu'autrefois.
 
 Même la capitale du Pays du Démon Céleste, autrefois si prospère, n'était plus aussi animée qu'à l'arrivée de Wang Lin, sans pour autant être désolée.
 

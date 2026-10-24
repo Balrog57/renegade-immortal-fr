@@ -38,11 +38,11 @@ Wang Lin s'arrêta brusquement. Il réfléchit en silence, puis leva la tête po
 
 Un instant plus tard, Wang Lin poussa un soupir et s'envola vers le lointain.
 
-Planète Suzaku, Mer des Diables.
+Planète Suzaku, Mer des Démons.
 
-La Mer des Diables fut l'un des premiers lieux attaqués par le Clan des Immortels Délaissés. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Diables était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Délaissés et finit par devenir leur vassale.
+La Mer des Démons fut l'un des premiers lieux attaqués par le Clan des Immortels Délaissés. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Démons était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Délaissés et finit par devenir leur vassale.
 
-Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Chaotiques, dans la Mer des Diables. Cet individu était enveloppé d'une aura mortelle et sa silhouette était indistincte. Des images de squelettes apparaissaient tout autour de lui, formant une véritable forêt d'ossements.
+Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Chaotiques, dans la Mer des Démons. Cet individu était enveloppé d'une aura mortelle et sa silhouette était indistincte. Des images de squelettes apparaissaient tout autour de lui, formant une véritable forêt d'ossements.
 
 Il contemplait les Étoiles Brisées et Chaotiques avec hésitation.
 

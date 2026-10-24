@@ -1,6 +1,6 @@
 ---
 n: 1883
-title: "Trahison du Continent Taureau Céleste!"
+title: "Trahison du Continent du Taureau Céleste!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1883 - Betraying the Heavenly Bull Continent!"
@@ -54,9 +54,9 @@ Il sentait même que s'il remettait l'armure d'âme, il lui serait très diffici
 
 Ce sentiment était viscéral. En vérité, Wang Lin ne voulait pas garder l'armure pour lui seul. Son plan initial était d'accomplir les trois conditions pour rembourser ces trois cadeaux, puis de laisser l'armure et partir seul.
 
-Après tout, cet objet ne lui appartenait pas, mais au Continent Taureau Céleste tout entier.
+Après tout, cet objet ne lui appartenait pas, mais au Continent du Taureau Céleste tout entier.
 
-Cependant, ce tournant inattendu rendait Wang Lin extrêmement prudent. Il ignorait quels changements s'étaient produits sur le Continent Taureau Céleste durant les six mois passés dans la Prairie de l'Extrême Ciel!
+Cependant, ce tournant inattendu rendait Wang Lin extrêmement prudent. Il ignorait quels changements s'étaient produits sur le Continent du Taureau Céleste durant les six mois passés dans la Prairie de l'Extrême Ciel!
 
 Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. Avec elle, il conservait un moyen de survie; sans elle, il avait l'impression de sombrer dans un abîme!
 
@@ -74,7 +74,7 @@ Des grondements de tonnerre résonnèrent sur la place de la Secte Gui Yi alors 
 
 Avec son niveau de culture actuel, après avoir été frappé par les vestiges de la main noire, le visage de Wang Lin pâlit et du sang jaillit du coin de sa bouche tandis qu'il reculait rapidement.
 
-« Wang Lin a trahi le Continent Taureau Céleste! Émettez l'Ordre de l'Âme! Tous les cultivateurs du Continent Taureau Céleste peuvent le tuer sur-le-champ! Quiconque l'exécutera sera récompensé par l'armure d'élément feu, le drapeau secondaire de la Voile Fantôme de la Secte de la Grande Âme et une Perle de Taureau Céleste! »
+« Wang Lin a trahi le Continent du Taureau Céleste! Émettez l'Ordre de l'Âme! Tous les cultivateurs du Continent du Taureau Céleste peuvent le tuer sur-le-champ! Quiconque l'exécutera sera récompensé par l'armure d'élément feu, le drapeau secondaire de la Voile Fantôme de la Secte de la Grande Âme et une Perle de Taureau Céleste! »
 
 Alors qu'il était repoussé, Wang Lin entendit ces mots. Il serra les dents, envahi par une émotion indescriptible. Il avait le sentiment diffus que ces trois objets étaient, à l'origine, ses propres récompenses...
 
@@ -84,7 +84,7 @@ S'il était si déterminé, c'était à cause de la Perle de Taureau Céleste!
 
 Les Perles de Taureau Céleste avaient été découvertes par la Secte de la Grande Âme et la Secte Gui Yi il y a d'innombrables années, lors de l'ouverture des sept méridiens du Taureau Céleste. Il n'en existait que sept. Elles possédaient de multiples usages: la création de trésors, la manipulation du temps, ou encore la possibilité pour les cultivateurs d'y entrer pour cultiver.
 
-Cependant, ce n'étaient pas là leurs fonctions les plus cruciales. L'usage le plus important était que ces perles pouvaient stocker l'âme du Taureau Céleste. Cela permettait à celui qui portait l'armure d'âme de conserver une existence distincte et de ne pas perdre ses capacités en s'éloignant trop du Continent Taureau Céleste.
+Cependant, ce n'étaient pas là leurs fonctions les plus cruciales. L'usage le plus important était que ces perles pouvaient stocker l'âme du Taureau Céleste. Cela permettait à celui qui portait l'armure d'âme de conserver une existence distincte et de ne pas perdre ses capacités en s'éloignant trop du Continent du Taureau Céleste.
 
 Grâce à la Perle de Taureau Céleste, on pouvait porter l'armure n'importe où sur le Continent Astral Immortel, même dans le Pays Ancien, car cette perle était l'âme même du Taureau Céleste!
 

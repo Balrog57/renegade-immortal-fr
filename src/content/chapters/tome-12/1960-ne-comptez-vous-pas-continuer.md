@@ -42,7 +42,7 @@ Dans le palais impérial, l'Empereur Céleste siégeait sur le trône du dragon;
 
 Quoi qu'il en soit, laissons Ming Dao donner une leçon à ce Wang Lin. Même s'il a passé le 13e palais, il devra s'incliner lorsqu'il viendra dans ma cité impériale! »
 
-Continent Oriental, Secte Yang Pourpre. Un homme d'âge moyen regardait le miroir devant lui et fronça les sourcils.
+Continent de l'Est, Secte Yang Pourpre. Un homme d'âge moyen regardait le miroir devant lui et fronça les sourcils.
 
 « Ming Dao... Cet homme va trop loin. Comment peut-il parler ainsi devant tous les Exaltés Empyréens? Il affiche clairement son mépris! »
 

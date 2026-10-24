@@ -54,7 +54,7 @@ Le scorpion mesurait des centaines de milliers de pieds de large et, dès son ap
 
 « Se pourrait-il qu'il ne soit pas la résurrection du Seigneur Démon Vert, revenu par possession d'un autre corps?! » Les cultivateurs du Continent du Démon Vert étaient plongés dans le doute. En voyant la brume verte se transformer en ce scorpion gigantesque, une pensée incroyable leur traversa l'esprit!
 
-« Wang Lin! C'est Wang Lin, du Continent du Taureau Céleste! » s'exclama l'un des cultivateurs de la Secte du Dao Démoniaque. Il y a plus de cent ans, alors qu'il se trouvait à la frontière entre le Continent du Démon Vert et le Continent de la Terre Meng, il avait participé à la traque de Wang Lin!
+« Wang Lin! C'est Wang Lin, du Continent du Taureau Céleste! » s'exclama l'un des cultivateurs de la Secte du Dao Démoniaque. Il y a plus de cent ans, alors qu'il se trouvait à la frontière entre le Continent du Démon Vert et le Continent Terre-Meng, il avait participé à la traque de Wang Lin!
 
 L'hésitation luttait en lui, jusqu'à ce qu'un fracas retentisse dans son esprit lorsqu'il reconnut enfin Wang Lin!
 

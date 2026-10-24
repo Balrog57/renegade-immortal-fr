@@ -90,7 +90,7 @@ Cet homme portait une armure et un masque hideux dissimulait son visage. Ses lon
 
 « Le Général démon Mo Fei... il y a 300 ans, il était le numéro un des généraux démons! »
 
-« Cet homme a passé la majeure partie de sa vie à la frontière. On dit que la tête de Mo Fei vaut une fortune aux yeux du Pays des Démons de Feu! »
+« Cet homme a passé la majeure partie de sa vie à la frontière. On dit que la tête de Mo Fei vaut une fortune aux yeux du Pays du Démon de Feu! »
 
 « La culture de ce Mo Fei est très mystérieuse. Jusqu'à présent, on ne l'a jamais vu utiliser que le sort du Grand Disque Rotatif. Je suis convaincu qu'il peut faire sonner le tambour au moins cinq fois! »
 

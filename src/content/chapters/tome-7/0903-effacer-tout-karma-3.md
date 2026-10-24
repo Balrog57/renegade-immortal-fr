@@ -84,7 +84,7 @@ Bien que la planète Suzaku n'ait pas atteint la qualité d'une planète de rang
 
 Zhou Wutai, debout au sommet du mont Suzaku, regarda le ciel d'un regard complexe. Il expira profondément et murmura: « Merci, Frère Wang! »
 
-Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait pour trait à Huanglong sourit en secouant la tête. « Utiliser l'âme de sept planètes pour restaurer la vitalité d'une seule n'est pas un calcul rentable. Cependant, cela montre clairement à quel point cet enfant tient à sa patrie, et c'est louable. J'ignore ce qu'il choisira lors de la bataille entre le Système Stellaire Luotian et le Système Stellaire de l'Alliance. »
+Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait pour trait à Huanglong sourit en secouant la tête. « Utiliser l'âme de sept planètes pour restaurer la vitalité d'une seule n'est pas un calcul rentable. Cependant, cela montre clairement à quel point cet enfant tient à sa patrie, et c'est louable. J'ignore ce qu'il choisira lors de la bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance. »
 
 Wang Lin contempla la terre avant de faire un pas et de disparaître. Lorsqu'il réapparut, il se trouvait dans une vallée. Celle-ci était restée identique à son départ.
 

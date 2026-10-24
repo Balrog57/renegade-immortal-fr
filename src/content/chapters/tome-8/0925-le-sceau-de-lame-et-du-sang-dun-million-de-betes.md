@@ -92,7 +92,7 @@ Les 18 Lou Fu n'appartenaient pas à la famille Zhan, mais seule la famille Zhan
 
 Ce sort était issu d'un fragment de compréhension et d'héritage provenant des Parchemins de Bataille.
 
-Bien que cela paraisse complexe, c'était l'un des grands secrets du Système Stellaire Luotian.
+Bien que cela paraisse complexe, c'était l'un des grands secrets du Système Stellaire de Luotian.
 
 « Ne laissez personne de la famille Zhan toucher aux sphères de sang Lou Fu! »
 

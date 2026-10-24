@@ -80,7 +80,7 @@ En voyant son propre soleil foncer vers le point le plus haut du firmament, Wang
 
 À cet instant, alors que Wang Lin propulsait son soleil dans les cieux, cela affecta les soleils de tous les autres Grands Empyréens!
 
-Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Nord, dans la Secte Yang Pourpre et au Mont Empereur, chaque soleil de Grand Empyréen respectif s'éleva et brilla intensément.
+Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent du Nord, dans la Secte Yang Pourpre et au Mont Empereur, chaque soleil de Grand Empyréen respectif s'éleva et brilla intensément.
 
 Peu après, dans le palais impérial de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
 

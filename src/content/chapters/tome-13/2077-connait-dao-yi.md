@@ -46,7 +46,7 @@ Alors qu'il reculait, le dragon marin Exalté Doré ouvrit la gueule pour le dé
 
 C'était une question de vie ou de mort et le temps pressait. Bien qu'il sût que cet individu était présent à cause de Wang Lin et qu'il serait difficile de le convaincre, il devait tenter sa chance.
 
-« Avant d'être scellé, j'ai caché toutes les richesses accumulées pendant d'innombrables années dans le Continent Est. Je vous les offre toutes; je vous demande seulement d'être clément et de m'épargner la vie! » Le cœur de Maître Âme Écarlate battait la chamade tandis qu'il fixait le dragon marin. Sa terreur était telle que sa voix en tremblait.
+« Avant d'être scellé, j'ai caché toutes les richesses accumulées pendant d'innombrables années dans le Continent de l'Est. Je vous les offre toutes; je vous demande seulement d'être clément et de m'épargner la vie! » Le cœur de Maître Âme Écarlate battait la chamade tandis qu'il fixait le dragon marin. Sa terreur était telle que sa voix en tremblait.
 
 Liu Jinbiao fut stupéfait.
 

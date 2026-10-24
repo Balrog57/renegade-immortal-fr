@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 631 - Its Companion
 slug: son-compagnon
 ---
-En un clin d'œil, plusieurs mois passèrent. La bataille au sein du Pays des Démons de Feu avait considérablement évolué et le Pays du Démon Céleste avait retiré ses troupes. La guerre, qui avait duré près d'un siècle, s'achevait dans le dévorement mutuel des anciens démons.
+En un clin d'œil, plusieurs mois passèrent. La bataille au sein du Pays du Démon de Feu avait considérablement évolué et le Pays du Démon Céleste avait retiré ses troupes. La guerre, qui avait duré près d'un siècle, s'achevait dans le dévorement mutuel des anciens démons.
 
-L'ancien démon Bei Luo acheva sa première dévoration et fusionna avec l'âme résiduelle de l'ancien démon du Pays des Démons de Feu. Ayant atteint un état de puissance suprême, il n'avait plus besoin du sang de Wang Lin pour prendre forme et pouvait désormais partir par lui-même.
+L'ancien démon Bei Luo acheva sa première dévoration et fusionna avec l'âme résiduelle de l'ancien démon du Pays du Démon de Feu. Ayant atteint un état de puissance suprême, il n'avait plus besoin du sang de Wang Lin pour prendre forme et pouvait désormais partir par lui-même.
 
 Wang Lin était assis en position de lotus, les yeux clos, au sein du Lac du Dragon près de la capitale du Pays du Démon Céleste. Son visage était impassible.
 
@@ -16,7 +16,7 @@ Lorsqu'il avait touché l'os, il était entré dans un état mystérieux. Après
 
 Le temps s'écoula et plusieurs mois supplémentaires passèrent. Ce jour-là, Wang Lin ouvrit les yeux.
 
-Au moment où ses paupières s'ouvrirent, un éclat vif jaillit de ses pupilles. Son aura actuelle était bien différente de celle qu'il arborait avant de se rendre au Pays des Démons de Feu. Il ressemblait désormais davantage à un érudit mortel. On aurait dit qu'aucune énergie spirituelle céleste ne résidait plus en lui, le faisant paraître comme une personne ordinaire.
+Au moment où ses paupières s'ouvrirent, un éclat vif jaillit de ses pupilles. Son aura actuelle était bien différente de celle qu'il arborait avant de se rendre au Pays du Démon de Feu. Il ressemblait désormais davantage à un érudit mortel. On aurait dit qu'aucune énergie spirituelle céleste ne résidait plus en lui, le faisant paraître comme une personne ordinaire.
 
 Pourtant, un parfum émanait de son corps, dégageant une sensation de raffinement.
 
@@ -44,7 +44,7 @@ Tout en parlant, le jeune homme agita nonchalamment la main. Des éclats de lumi
 
 L'image représentait un immense gouffre. Vu d'en haut, il ressemblait à une gigantesque faille dans le sol. Des volutes de gaz noir en jaillissaient par intermittence. L'impact de ces émanations faisait vaciller l'image elle-même.
 
-« Cet endroit est appelé l'Abîme des Marées par vous, les cultivateurs. L'aura de ton ami se trouve là-dedans! Il n'existe que six entrées vers l'Abîme des Marées. Rends-toi à celle du Pays des Démons de l'Eau; c'est la plus proche de ton ami! »
+« Cet endroit est appelé l'Abîme des Marées par vous, les cultivateurs. L'aura de ton ami se trouve là-dedans! Il n'existe que six entrées vers l'Abîme des Marées. Rends-toi à celle du Pays du Démon de l'Eau; c'est la plus proche de ton ami! »
 
 Wang Lin fixa l'image. Après réflexion, il demanda: « Qu'est-ce que cet Abîme des Marées exactement? »
 
@@ -56,7 +56,7 @@ L'Ancien Démon Bei Luo n'en dit pas plus, et Wang Lin ne demanda rien de plus. 
 
 Gardant son calme, Wang Lin demanda lentement: « S'il y a six entrées, en est-il de même pour les sorties? »
 
-Le jeune homme esquissa un sourire légèrement démoniaque. Il répondit: « Il n'y a qu'une seule sortie, et elle se trouve dans le Pays des Démons de Feu! » Tout en parlant, sa main droite saisit l'image, qui s'effondra alors. Cependant, il rassembla tous les éclats de lumière pour les transformer en un cristal de la taille d'un doigt. Il fit ensuite un geste pour le lancer vers Wang Lin.
+Le jeune homme esquissa un sourire légèrement démoniaque. Il répondit: « Il n'y a qu'une seule sortie, et elle se trouve dans le Pays du Démon de Feu! » Tout en parlant, sa main droite saisit l'image, qui s'effondra alors. Cependant, il rassembla tous les éclats de lumière pour les transformer en un cristal de la taille d'un doigt. Il fit ensuite un geste pour le lancer vers Wang Lin.
 
 « Prends ceci. Ton sens divin pourra y pénétrer et emprunter ma vue pour observer tout ce qui se trouve dans l'Abîme des Marées! Considère cela comme un présent pour avoir honoré notre accord! »
 

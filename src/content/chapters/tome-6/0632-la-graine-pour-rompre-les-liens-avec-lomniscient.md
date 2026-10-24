@@ -54,13 +54,13 @@ Tan Lang ferma les yeux et répondit lentement: « Pourquoi tant de hâte? Au pl
 
 Chen Long se rassit en position du lotus et commença à réfléchir. Il avait déjà remarqué une anomalie chez Tan Lang. Ce dernier semblait vouloir rester ici plutôt que de partir; il devait y avoir une raison à cela!
 
-Tandis que les disciples de la Secte de l'Épée Da Luo étaient en conflit avec Tan Lang, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays des Démons de Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
+Tandis que les disciples de la Secte de l'Épée Da Luo étaient en conflit avec Tan Lang, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays du Démon de Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
 
 Selon elle, le jeton qui faisait rougir les yeux même de personnes comme Tian Yunzi se trouvait dans les profondeurs de l'Abîme des Marées.
 
 Wang Lin savait également que Tan Lang et les disciples de la Secte de l'Épée Da Luo avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Tan Lang s'était aussi rendu à l'Abîme des Marées.
 
-Si le groupe de Tan Lang en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays des Démons de Feu pour couvrir ses arrières.
+Si le groupe de Tan Lang en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays du Démon de Feu pour couvrir ses arrières.
 
 Utilisant une technique de téléportation de grande envergure, il se déplaçait très rapidement vers la sortie de l'Abîme des Marées.
 
@@ -114,14 +114,14 @@ Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son regard était d'une clarté 
 
 « Je suis un peu paranoïaque à ce sujet, je ne peux donc pas porter de jugement définitif. Tian Yunzi a été bienveillant envers moi, et c'était mon propre choix d'apprendre l'Art du Massacre Céleste, mais il semblait m'y pousser... Je devrai observer cela avec prudence à l'avenir. Cependant, Tian Yunzi est trop puissant. Si je ne possède pas la force nécessaire, je ne peux pas lui laisser deviner que je suis au courant de tout cela... Quant à l'Art du Massacre Céleste, je devrai l'étudier minutieusement pour y trouver une faille! »
 
-Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays des Démons de Feu pendant plusieurs jours. Il ne plaça aucune formation ni sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
+Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays du Démon de Feu pendant plusieurs jours. Il ne plaça aucune formation ni sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
 
 Ces restrictions n'avaient aucun pouvoir offensif, mais elles pouvaient servir à traquer autrui. Si quelqu'un en sortait, la restriction laisserait une empreinte sur lui que Wang Lin pourrait détecter. À moins d'un niveau de culture extrêmement élevé, il serait impossible pour quiconque de repérer cette trace.
 
-Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pays des Démons de l'Eau. Il allait pénétrer dans l'Abîme des Marées de ce pays et consacrer tous ses efforts à la recherche de Zhou Yi!
+Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pays du Démon de l'Eau. Il allait pénétrer dans l'Abîme des Marées de ce pays et consacrer tous ses efforts à la recherche de Zhou Yi!
 
 Zhou Yi était son bienfaiteur, Wang Lin se devait de le sauver!
 
-« Outre le sauvetage du senior Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays des Démons de l'Eau, en un lieu nommé la Mer des Nuages. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme des Marées!
+« Outre le sauvetage du senior Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays du Démon de l'Eau, en un lieu nommé la Mer des Nuages. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme des Marées!
 
 Quatre cultivateurs, deux hommes et deux femmes, se tenaient à l'orée de la mer des nuages et scrutaient l'intérieur!

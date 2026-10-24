@@ -88,7 +88,7 @@ Au moment où ils s'échappèrent, Wang Lin poussa un grand cri. La grande épé
 
 En tenant "Richesse", de nombreux souvenirs passés traversèrent l'esprit de Wang Lin. Il prit une profonde inspiration, mais avant qu'il ne puisse l'examiner, Zhou Yi le tira rapidement dans un couloir voisin.
 
-Zhou Yi se déplaçait à une vitesse fulgurante. Wang Lin envoya un message par sens divin pour guider Zhou Yi vers la seule issue de l'Abîme des Marées: la sortie menant au Pays des Démons de Feu!
+Zhou Yi se déplaçait à une vitesse fulgurante. Wang Lin envoya un message par sens divin pour guider Zhou Yi vers la seule issue de l'Abîme des Marées: la sortie menant au Pays du Démon de Feu!
 
 Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de rangement. Ce bref examen lui avait permis de déceler des indices sur l'épée. Si sa culture n'avait pas été suffisante, il n'aurait rien vu, mais avec le stade Ascendant, ses perceptions étaient tout autres. Toutefois, ce n'était pas le moment d'étudier; il prévoyait de s'y consacrer pleinement après avoir quitté l'Abîme des Marées.
 
@@ -96,7 +96,7 @@ Wang Lin observa attentivement "Richesse" avant de la ranger dans son sac de ran
 
 Dans son sac de rangement, la bête moustique ouvrit les yeux avec un air dubitatif. Normalement, à l'intérieur d'un sac, à moins d'utiliser un sort prodigieux, elle ne devrait rien ressentir de l'extérieur. Pourtant, à cet instant, elle percevait de nombreuses auras lui procurant une sensation très familière. Après avoir hésité, la moustique ne parvint pas à identifier la source. Elle regarda le crapaud tonnerre qui dormait toujours, se coucha sur son dos et ferma les yeux.
 
-Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays des Démons de Feu... Tout en approchant de la brume et de l'immense nuée de moustiques entourant Tan Lang et son groupe...
+Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays du Démon de Feu... Tout en approchant de la brume et de l'immense nuée de moustiques entourant Tan Lang et son groupe...
 
 Dans la Terre des Esprits Démoniaques, un nuage fonçait depuis le sud. Ce nuage était imprégné d'énergie spirituelle céleste, comme s'il provenait du Royaume Céleste. Il émettait des éclats de lumière qui coloraient le ciel lors de son passage.
 
@@ -122,11 +122,11 @@ Leur culture pouvait rivaliser avec celle de Tian Yunzi et de ses compagnons. De
 
 Heureusement, ils avaient une nature paisible et ne cherchaient pas le pouvoir. Tant qu'on ne les provoquait pas, la paix était maintenue. Si le vieil homme court les voyait, il grincerait des dents de rage: c'étaient eux qui lui avaient volé un sac de rangement autrefois.
 
-Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Luo, qui se trouvait dans la capitale du Pays du Démon Céleste, ouvrit soudainement les yeux. Ses yeux émettaient une lumière extrêmement éclatante qui disparut aussitôt.
+Le couple chevauchant leur nuage, ils volèrent directement vers le Pays du Démon de Feu. Au moment où le nuage pénétra dans le territoire, Bei Luo, qui se trouvait dans la capitale du Pays du Démon Céleste, ouvrit soudainement les yeux. Ses yeux émettaient une lumière extrêmement éclatante qui disparut aussitôt.
 
 « Ils sont donc sortis de la grotte... Il semble que je doive accélérer l'absorption des autres âmes démoniaques anciennes... » Une pointe de crainte, bien dissimulée, brillait dans le regard de Bei Luo.
 
-Alors que le nuage céleste traversait le Pays des Démons de Feu, tous les autres nuages furent contraints de s'écarter. Même les généraux et soldats démons dans les cités en furent ébranlés; ils n'osèrent même pas sortir pour vérifier.
+Alors que le nuage céleste traversait le Pays du Démon de Feu, tous les autres nuages furent contraints de s'écarter. Même les généraux et soldats démons dans les cités en furent ébranlés; ils n'osèrent même pas sortir pour vérifier.
 
 Peu de temps après, le nuage céleste s'arrêta à la sortie de l'Abîme des Marées. Il se dissipa progressivement et les deux êtres atterrirent. L'homme, les yeux brillants d'intérêt, sourit à la femme à ses côtés: « Intéressant. Juan Er, il y a des restrictions ici. Hmm, elles sont assez ingénieuses. »
 

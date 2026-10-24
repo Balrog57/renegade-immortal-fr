@@ -36,7 +36,7 @@ Wang Lin prit une profonde inspiration et leva les yeux. Ses pupilles se rétrac
 
 La tempête semblait avoir formé une immense ombrelle qui ne s'était pas encore ouverte! Des quantités massives de flammes généraient d'innombrables dragons de feu tout autour!
 
-Le ciel entier était occupé par ces dragons de feu qui encerclaient l'ombrelle en rugissant. Ce spectacle pouvait être vu depuis n'importe quel point de la Planète de l'Empereur!
+Le ciel entier était occupé par ces dragons de feu qui encerclaient l'ombrelle en rugissant. Ce spectacle pouvait être vu depuis n'importe quel point de la Planète du Grand Empereur!
 
 « Ombrelle Brûlante du Royaume! » Le vieux Oiseau Vermillon poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
 
@@ -76,7 +76,7 @@ La respiration du vieux Oiseau Vermillon s'accéléra encore. Il agita la main e
 
 « Je ne peux que vous le montrer, je ne peux pas l'ouvrir. Si je le faisais, cela causerait des dégâts colossaux ici! » Le vieux Oiseau Vermillon mordit le bout de sa langue et cracha un jet de sang chargé de sa culture du Vide Arcanique vers la tempête. Le sang se transforma en une brume monstrueuse qui fusionna avec la tempête pour la faire disparaître progressivement.
 
-Il fallut sept minutes avant que la tempête ne s'évanouisse totalement. La Planète de l'Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
+Il fallut sept minutes avant que la tempête ne s'évanouisse totalement. La Planète du Grand Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
 
 Bien que ce phénomène n'ait pas duré longtemps, il avait laissé Wang Lin le cuir chevelu hérissé et le regard étincelant. Bien que le sort n'ait pas été pleinement activé, Wang Lin en avait perçu l'essence. Son cœur battait la chamade.
 

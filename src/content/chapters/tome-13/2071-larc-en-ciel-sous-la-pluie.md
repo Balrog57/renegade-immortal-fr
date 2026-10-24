@@ -20,7 +20,7 @@ La confusion dans le regard de Wang Lin se dissipa progressivement pour laisser 
 
 « Je me demande quels seront les choix des autres... » Wang Lin regarda au loin, poussa un soupir et poursuivit sa route.
 
-Dans les terres du Clan Céleste, au Continent Nord, au cœur d'une chaîne de montagnes. La forêt y était dense et extrêmement périlleuse; en contrebas, une route officielle serpentait comme un mince ruban de ciel.
+Dans les terres du Clan Céleste, au Continent du Nord, au cœur d'une chaîne de montagnes. La forêt y était dense et extrêmement périlleuse; en contrebas, une route officielle serpentait comme un mince ruban de ciel.
 
 Une grotte se trouvait là, isolée, sans âme autour, hormis les oiseaux et les bêtes. Pourtant, depuis qu'elle était apparue des années auparavant, aucune créature n'avait osé s'en approcher.
 
@@ -56,7 +56,7 @@ Longtemps après, la brume se dissipa et Grosse Tête sortit, l'expression compl
 
 « Maître... » Il vit l'épée qui l'avait terrifié et la calebasse remplie de pilules. Des larmes coulèrent sur ses joues.
 
-Toujours dans le Continent Nord, mais sur une autre terre. Plusieurs dizaines de traînées lumineuses fendaient le ciel lorsqu'un éclat cristallin passa en trombe. Les cultivateurs furent pris au dépourvu par cette lumière qui disparut entre eux.
+Toujours dans le Continent du Nord, mais sur une autre terre. Plusieurs dizaines de traînées lumineuses fendaient le ciel lorsqu'un éclat cristallin passa en trombe. Les cultivateurs furent pris au dépourvu par cette lumière qui disparut entre eux.
 
 Personne ne remarqua qu'au moment où l'éclat s'effaça, il pénétra entre les sourcils d'un garçon vêtu d'une robe rouge, au sein du groupe.
 
@@ -66,7 +66,7 @@ Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, i
 
 « Je suis... le Maître Hong Shan... » Le garçon en rouge leva les yeux vers le ciel et esquissa un lent sourire. Il prit une profonde inspiration, contemplant la terre devant lui avec une immense excitation.
 
-Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, quelques milliers de personnes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
+Continent de l'Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, quelques milliers de personnes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
 
 Depuis que les édits de plusieurs Grands Empyréens et de l'Empereur Céleste avaient ordonné à toutes les sectes du clan céleste de se préparer pleinement à la guerre, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
 
@@ -88,7 +88,7 @@ Durant cette période, Wang Lin avait revu presque tous ses anciens amis du mond
 
 Quoi qu'il advienne, Wang Lin laissait toujours derrière lui de quoi les protéger, car ils venaient du même monde des grottes. Plus précisément, ils appartenaient tous à la Secte des Sept Dao.
 
-La Secte Soleil et Lune était la plus puissante du continent Tian Fang. Elle comptait plus de 100 000 membres et figurait parmi les neuf sectes et treize factions du Continent Est.
+La Secte Soleil et Lune était la plus puissante du continent Tian Fang. Elle comptait plus de 100 000 membres et figurait parmi les neuf sectes et treize factions du Continent de l'Est.
 
 Le nombre de génies y était immense, mais aucun ne pouvait égaler une femme nommée Qing Hong. Son talent était si rare qu'on ne le croisait qu'une fois tous les dix mille ans!
 

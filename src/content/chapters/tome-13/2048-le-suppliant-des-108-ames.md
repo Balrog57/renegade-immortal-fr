@@ -40,7 +40,7 @@ Il fixa l'arbre imposant émergeant du Continent de la Mer des Montagnes. L'arbr
 
 Dao Yi contempla l'arbre géant et eut le souffle coupé. « Bon sang, cet arbre monstrueux n'était-il pas mort?! Pourquoi son âme est-elle encore là?! Que s'est-il passé? Se pourrait-il qu'il y ait un problème avec Lian Daofei, qui les supprime sous le palais?! »
 
-Simultanément, dans le Continent Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
+Simultanément, dans le Continent du Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
 Dans la Secte Yang Violet, les Grands Empyréens Shuangzi s'élancèrent, observèrent la terre et froncèrent les sourcils.
 

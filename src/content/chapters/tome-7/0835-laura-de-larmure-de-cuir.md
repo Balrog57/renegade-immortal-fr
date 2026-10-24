@@ -88,9 +88,9 @@ Après une longue méditation silencieuse, la main droite de Xue Shenzi agrippa 
 
 Le nom de « Maître Démon Xu Mu » était désormais connu de tous les cultivateurs après la tragédie du Domaine Nord! Malgré la poursuite de la famille Yao et d'innombrables autres cultivateurs, non seulement il n'était pas mort, mais il avait utilisé l'immense bête pour mener une contre-attaque terrifiante!
 
-Cela avait causé la perte de la plupart des cultivateurs et avait stupéfait tout le Système Stellaire Luotian. Aucune famille de culture ne souhaitait plus s'impliquer dans ce conflit entre lui et la famille Yao.
+Cela avait causé la perte de la plupart des cultivateurs et avait stupéfait tout le Système Stellaire de Luotian. Aucune famille de culture ne souhaitait plus s'impliquer dans ce conflit entre lui et la famille Yao.
 
-Les nouvelles rapportées par les survivants se propagèrent comme une tempête à travers le Système Stellaire Luotian: Maître Démon Xu Mu ne devait pas être provoqué, à moins d'une nécessité absolue!
+Les nouvelles rapportées par les survivants se propagèrent comme une tempête à travers le Système Stellaire de Luotian: Maître Démon Xu Mu ne devait pas être provoqué, à moins d'une nécessité absolue!
 
 Cet homme était d'une folie pure. Non seulement il était puissant, mais il était aussi sanguinaire qu'un démon. Non seulement il était prêt à massacrer des cultivateurs de bas niveau, mais pour se venger, il était capable de réveiller cette bête colossale pour provoquer une catastrophe!
 

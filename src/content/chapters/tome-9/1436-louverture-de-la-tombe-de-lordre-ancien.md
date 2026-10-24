@@ -48,7 +48,7 @@ L'avatar de Miaoyin Daozun, ce magnifique jeune homme, battait en retraite rapid
 
 « Qu'il s'agisse de trésors, de sorts, de pilules ou même de méthodes permettant aux cultivateurs de la troisième étape d'atteindre le royaume de la Tribulation du Vide! »
 
-L'expression de Miaoyin Daozun était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume de la Flamme Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
+L'expression de Miaoyin Daozun était incertaine. Il serra les dents et agita la main. Personne ne vit son Royaume des Flammes Joss s'ouvrir, mais des âmes de Flamme Joss entourèrent son corps!
 
 Il était encerclé par ces âmes; de prime abord, on voyait qu'il s'agissait de magnifiques hommes et femmes. Ils étaient plus de 10 milliards!
 

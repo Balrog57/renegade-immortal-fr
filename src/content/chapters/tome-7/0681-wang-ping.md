@@ -90,7 +90,7 @@ Inutile de mentionner l'écart entre Scruteur du Nirvana et Purificateur du Nirv
 
 À cet instant, le meilleur choix était de livrer Liu Mei. L'ancêtre regarda Liu Mei, empreinte de désespoir, et renonça immédiatement à cette idée.
 
-« Cet individu connaît Liu Mei, il doit donc être issu du Système Stellaire Alliance. Peu importe la puissance de son maître, sans une Pierre Luotian, il ne peut pénétrer ce système stellaire, à moins de posséder son propre réseau de transfert. Pourtant, même ainsi, le temps que son maître arrive, cette affaire ne sera plus un duel entre lui et moi, mais une guerre entre deux systèmes stellaires. À ce moment-là, les puissants experts du Temple Céleste du Tonnerre s'en mêleront. »
+« Cet individu connaît Liu Mei, il doit donc être issu du Système Stellaire de l'Alliance. Peu importe la puissance de son maître, sans une Pierre Luotian, il ne peut pénétrer ce système stellaire, à moins de posséder son propre réseau de transfert. Pourtant, même ainsi, le temps que son maître arrive, cette affaire ne sera plus un duel entre lui et moi, mais une guerre entre deux systèmes stellaires. À ce moment-là, les puissants experts du Temple Céleste du Tonnerre s'en mêleront. »
 
 « Après tout, une fois que le plan de ce vieil homme concernant Liu Mei aura réussi, peut-être ma culture aura-t-elle également atteint le stade Purificateur du Nirvana. Sinon, je devrais tout de même pouvoir atteindre le sommet du stade tardif de Scruteur du Nirvana. »
 

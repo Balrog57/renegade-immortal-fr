@@ -89,7 +89,7 @@ Le Zhou Yi actuel semblait avoir oublié que Ting Er n'était qu'un fragment d'�
 
 « Dispersez-vous! » Ses yeux s'illuminèrent et le gaz violet qui l'entourait entama immédiatement une lutte désespérée pour répliquer. Cependant, cela fut vain et le gaz fut promptement expulsé du corps de Zhou Yi. Bientôt, toute la brume violette fut chassée et la vaste nuée disparut à travers la formation au sol.
 
-Zhou Yi était l'esprit de l'Épée Céleste de la Pluie. Si l'ancien démon du Pays des Démons de l'Eau venait en personne, Zhou Yi n'aurait peut-être aucune chance, car il ne lui restait que trois énergies d'épée vitales.
+Zhou Yi était l'esprit de l'Épée Céleste de la Pluie. Si l'ancien démon du Pays du Démon de l'Eau venait en personne, Zhou Yi n'aurait peut-être aucune chance, car il ne lui restait que trois énergies d'épée vitales.
 
 Cependant, expulser simplement l'énergie spirituelle démoniaque de l'ancien démon n'était pas une tâche difficile pour lui.
 

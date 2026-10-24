@@ -12,7 +12,7 @@ Ce bouleversement soudain sema la panique parmi les habitants de la Terre des Es
 
 Le vortex s'étendit jusqu'à presque couvrir l'intégralité de la voûte céleste au-dessus de la Terre des Esprits Démoniaques. Il tourbillonnait avec une rapidité effrénée, telle une tempête dévalant des cieux.
 
-Au sein de la Terre des Esprits Démoniaques, dans le Pays des Démons du Bois, se trouvait un profond ravin. Cette zone était très reculée et les profondeurs de la gorge étaient tapissées de mousse. L'endroit était extrêmement humide et, à l'aube, il était généralement enveloppé d'un brouillard dense.
+Au sein de la Terre des Esprits Démoniaques, dans le Pays du Démon du Bois, se trouvait un profond ravin. Cette zone était très reculée et les profondeurs de la gorge étaient tapissées de mousse. L'endroit était extrêmement humide et, à l'aube, il était généralement enveloppé d'un brouillard dense.
 
 À cet instant, une légère brume subsistait encore, mais elle se dissipait lentement sous l'effet du soleil.
 
@@ -76,15 +76,15 @@ Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « 
 
 Hu Juan murmura doucement: « Peut-être que la petite sœur Qing Shuang est encore en vie... »
 
-Au moment où le vortex apparut, le bassin du ravin et le couple de cultivateurs célestes n'étaient pas les seuls à réagir. Un changement colossal s'opérait également sous le palais du Pays des Démons du Vent.
+Au moment où le vortex apparut, le bassin du ravin et le couple de cultivateurs célestes n'étaient pas les seuls à réagir. Un changement colossal s'opérait également sous le palais du Pays du Démon du Vent.
 
-Il s'agissait de la terre sacrée du Pays des Démons du Vent. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, à environ 3 300 mètres de profondeur, avec la capitale du pays en son centre.
+Il s'agissait de la terre sacrée du Pays du Démon du Vent. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, à environ 3 300 mètres de profondeur, avec la capitale du pays en son centre.
 
 Chaque grotte était reliée par de nombreux tunnels qui finissaient tous par converger vers une immense caverne située sous le palais impérial. Chacune de ces cavités contenait un squelette d'un violet noirâtre dégageant une aura de mort.
 
 Dès que l'aura de mort émanait, elle était aspirée par les tunnels connectés aux grottes.
 
-Toute l'aura de mort provenant des innombrables cavernes du Pays des Démons du Vent convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 3 300 mètres de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
+Toute l'aura de mort provenant des innombrables cavernes du Pays du Démon du Vent convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 3 300 mètres de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
 
 L'apparence de cette femme était terrifiante. Son visage était marqué par de nombreuses cicatrices hideuses; il était impossible d'en dénombrer le nombre d'un simple coup d'œil.
 
@@ -102,7 +102,7 @@ Elle n'oublierait jamais le sentiment d'impuissance ressenti face au destin de s
 
 Pour obtenir sa vengeance, elle avait tout sacrifié. Elle savait que pour élever son niveau de culture, elle devait solliciter l'aide du démon ancien de ce lieu. Elle avait travaillé sans relâche, endurant des épreuves et des humiliations dignes des pires cauchemars.
 
-Finalement, elle obtint la reconnaissance du démon ancien du Pays des Démons du Vent. Elle entra ici pour entamer une transmission d'héritage.
+Finalement, elle obtint la reconnaissance du démon ancien du Pays du Démon du Vent. Elle entra ici pour entamer une transmission d'héritage.
 
 Elle n'oublierait jamais l'instant où elle accepta l'héritage du démon du vent, ni cette voix démoniaque qui résonna dans son cœur:
 

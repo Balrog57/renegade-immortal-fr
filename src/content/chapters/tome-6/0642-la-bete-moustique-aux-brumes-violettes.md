@@ -61,17 +61,17 @@ Dès l'instant où Tan Lang pénétra dans la Terre des Esprits Démoniaques, le
 
 En plus de son talent pour les restrictions, Wang Wei excellait en divination. Bien qu'il ne fût pas aussi doué que Tian Yunzi, il lui était possible de calculer la position de Tan Lang ainsi que d'autres changements de flux.
 
-Quant au jeton, ils en avaient également calculé la localisation. Cependant, ce jeton était extrêmement étrange et, pour l'obtenir, ils devaient agir à un moment précis. C'est pourquoi ils n'avaient rien entrepris plus tôt et attendaient désormais à la sortie, dans le Pays des Démons de Feu.
+Quant au jeton, ils en avaient également calculé la localisation. Cependant, ce jeton était extrêmement étrange et, pour l'obtenir, ils devaient agir à un moment précis. C'est pourquoi ils n'avaient rien entrepris plus tôt et attendaient désormais à la sortie, dans le Pays du Démon de Feu.
 
 Oublions-les un instant. À l'intérieur de l'Abîme des Marées, Wang Lin chevauchait l'épée céleste de Zhou Yi, fonçant droit vers la sortie tel un éclair.
 
-La vitesse de Zhou Yi était fulgurante. Après plusieurs jours, ils traversèrent les corridors pour atteindre la fissure située sous le Pays des Démons de Feu. Il ne leur restait plus qu'à s'envoler de là pour quitter l'Abîme des Marées.
+La vitesse de Zhou Yi était fulgurante. Après plusieurs jours, ils traversèrent les corridors pour atteindre la fissure située sous le Pays du Démon de Feu. Il ne leur restait plus qu'à s'envoler de là pour quitter l'Abîme des Marées.
 
-La sortie du Pays des Démons de Feu était le seul endroit où il n'y avait aucune résistance vers le bas; au contraire, une force s'exerçait vers le haut.
+La sortie du Pays du Démon de Feu était le seul endroit où il n'y avait aucune résistance vers le bas; au contraire, une force s'exerçait vers le haut.
 
 Ici, la vitesse d'un individu semblait être poussée à l'infini par une force, lui permettant de devenir encore plus rapide!
 
-Tandis qu'ils volaient dans la fissure vers le Pays des Démons de Feu, les yeux de Wang Lin restaient parfaitement calmes. Posté sur son épée volante, il se dirigeait droit vers le haut, tout ce qui l'entourait n'étant plus qu'un flou indistinct.
+Tandis qu'ils volaient dans la fissure vers le Pays du Démon de Feu, les yeux de Wang Lin restaient parfaitement calmes. Posté sur son épée volante, il se dirigeait droit vers le haut, tout ce qui l'entourait n'étant plus qu'un flou indistinct.
 
 À cet instant précis, l'épée céleste sous lui ralentit soudainement. L'arme effectua quelques cercles avant de s'arrêter, et Zhou Yi envoya un message par Sens Divin:
 

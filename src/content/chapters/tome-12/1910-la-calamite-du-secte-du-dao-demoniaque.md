@@ -72,11 +72,11 @@ Les quelque 30 000 cultivateurs de la Secte du Dao Démoniaque semblaient en avo
 
 Après avoir parlé, il leva sa main droite et écarta la robe qui couvrait son visage, révélant ses cheveux blancs et son visage impassible. Il plongea son regard vers la multitude.
 
-« Cela ne fait qu'un peu plus de cent ans. Vous devriez tous vous souvenir du massacre près du Continent de la Terre Meng. Me reconnaissez-vous enfin?! »
+« Cela ne fait qu'un peu plus de cent ans. Vous devriez tous vous souvenir du massacre près du Continent Terre-Meng. Me reconnaissez-vous enfin?! »
 
 Dès que Wang Lin souleva sa capuche, les yeux du vieil homme à la robe dorée se remplirent d'incrédulité.
 
-« Wang Lin!!! » Il le reconnut instantanément. Il ne pouvait oublier le massacre effroyable aux frontières du Continent de la Terre Meng. La Secte du Dao Démoniaque avait envoyé une armée de cultivateurs, et la plupart d'entre eux avaient été massacrés par lui. Si le Maître de Secte n'était pas intervenu à la fin, il aurait été extrêmement difficile de capturer cet homme!
+« Wang Lin!!! » Il le reconnut instantanément. Il ne pouvait oublier le massacre effroyable aux frontières du Continent Terre-Meng. La Secte du Dao Démoniaque avait envoyé une armée de cultivateurs, et la plupart d'entre eux avaient été massacrés par lui. Si le Maître de Secte n'était pas intervenu à la fin, il aurait été extrêmement difficile de capturer cet homme!
 
 « C'est lui!! » haleta l'homme en robe rouge, qui reconnut également Wang Lin! Il avait participé à cette bataille autrefois. Il avait vu la puissance dévastatrice de Wang Lin lorsqu'il sombrait dans la folie. Il avait vu mourir ses compagnons de secte, un à un, et avait perçu l'intention meurtrière monstrueuse qui brûlait dans ses yeux.
 
@@ -84,7 +84,7 @@ Dès que Wang Lin souleva sa capuche, les yeux du vieil homme à la robe dorée 
 
 « N'avait-il pas été capturé par le Maître de Secte il y a plus de cent ans pour être envoyé au Temple des Scorpions?! Il n'est pas mort?! »
 
-« C'est vraiment lui. À l'époque, à la frontière du Continent de la Terre Meng, il avait ouvert une rivière de sang. Notre Secte du Dao Démoniaque avait déployé un nombre immense de cultivateurs et même le Maître de Secte était intervenu pour le capturer! »
+« C'est vraiment lui. À l'époque, à la frontière du Continent Terre-Meng, il avait ouvert une rivière de sang. Notre Secte du Dao Démoniaque avait déployé un nombre immense de cultivateurs et même le Maître de Secte était intervenu pour le capturer! »
 
 Les deux cultivateurs au stade avancé de la Tribulation du Vide n'étaient pas les seuls à l'avoir identifié. Parmi les dizaines de cultivateurs du troisième stade, certains le reconnurent également; c'étaient ceux qui avaient pris part à ce combat jadis!
 

@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2067 - Can’t Find Her
 slug: je-ne-peux-pas-la-trouver
 ---
-Pendant que Ji Du et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le Continent Nord, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
+Pendant que Ji Du et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le Continent du Nord, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
 
 « Il y a des centaines d'années, je quittais cet endroit pour me diriger vers le clan Ancien... Me voici de retour. » Wang Lin laissa échapper un soupir tandis que son regard balayait les environs. Son Sens Divin se déploya vers les 72 continents et, un instant plus tard, il couvrait l'intégralité des 72 continents du clan céleste.
 
@@ -74,7 +74,7 @@ Le ciel s'obscurcit progressivement alors que Wang Lin, suspendu dans les airs, 
 
 ***
 
-Clan céleste, Continent Yun Tao du Continent Occidental.
+Clan céleste, Continent Yun Tao du Continent de l'Ouest.
 
 Dans la partie septentrionale de ce continent se trouvait une secte. Ce n'était pas une organisation de grande envergure; elle ne pouvait être considérée que comme une petite secte sur le continent Yun Tao. En ce matin, de nombreux disciples cultivaient au sein de l'institution. Dans une chambre secrète située dans la montagne reculée de la secte, un homme d'âge mûr était assis.
 

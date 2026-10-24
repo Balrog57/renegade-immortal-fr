@@ -12,7 +12,7 @@ L'Empereur Céleste entra une fois de plus en cultivation isolée.
 
 L'Empereur Céleste de cette génération, Lian Daozhen, se retirait fréquemment en cultivation isolée, et les périodes d'incertitude étaient fréquentes. Le clan céleste dans son ensemble n'y prêtait guère attention.
 
-Wu Feng retourna au Continent Nord et s'enferma immédiatement dans le glacier éternel. Il dissipa silencieusement la malédiction ancestrale qui rongeait son corps.
+Wu Feng retourna au Continent du Nord et s'enferma immédiatement dans le glacier éternel. Il dissipa silencieusement la malédiction ancestrale qui rongeait son corps.
 
 N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, dissiper celle-ci lui serait un peu plus facile qu'à Dao Yi ou à Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de culture augmenterait considérablement.
 
@@ -40,7 +40,7 @@ Sous cette montagne, le fou ne s'était toujours pas éveillé, comme s'il atten
 
 Six mois plus tard.
 
-Le Continent Est du clan céleste, le Continent du Taureau Céleste.
+Le Continent de l'Est du clan céleste, le Continent du Taureau Céleste.
 
 Le Continent du Taureau Céleste, autrefois parsemé de montagnes, avait perdu beaucoup de ses reliefs lors de la guerre contre le Continent du Démon Vert. Cela avait profondément modifié son paysage.
 

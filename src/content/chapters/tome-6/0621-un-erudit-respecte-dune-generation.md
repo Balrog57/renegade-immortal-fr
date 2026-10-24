@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 621 - Respect Scholar of a Generation
 slug: un-erudit-respecte-dune-generation
 ---
-Sun Yunshan répondit rapidement: « L'Union de Culture se situe à la frontière nord entre le Pays des Démons de Feu et le Pays des Démons d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
+Sun Yunshan répondit rapidement: « L'Union de Culture se situe à la frontière nord entre le Pays du Démon de Feu et le Pays du Démon d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
 
 Wang Lin sourit. « Je n'ai pas une grande confiance en ma capacité à briser votre restriction. Cependant, je présume que cela ne devrait pas poser de problème à cet Ancêtre! »
 
@@ -18,11 +18,11 @@ Sun Yunshan prit une profonde inspiration, recula de quelques pas et fit un prof
 
 Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu de l'Affinement de l'Âme, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'Union de Culture furent saisis par lui et disparurent.
 
-La guerre dans le Pays des Démons de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
+La guerre dans le Pays du Démon de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 
-Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays des Démons de Feu était plongé dans une boucherie constante et que le Pays du Démon Céleste n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
+Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays du Démon de Feu était plongé dans une boucherie constante et que le Pays du Démon Céleste n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
 
-À cet instant, à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or, un météore traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
+À cet instant, à la frontière entre le Pays du Démon de Feu et le Pays du Démon d'Or, un météore traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
 
 Quant à Sun Yunshan, il se tenait aux côtés de Wang Lin. Il était très inquiet tout en étant extrêmement excité. Ces deux émotions complexes s'entremêlaient, le rendant quelque peu distrait.
 

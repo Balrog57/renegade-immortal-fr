@@ -7,7 +7,7 @@ en: Chapter 1000 - The Strange Black Statue
 slug: letrange-statue-noire
 ---
 
-Le retour de Wang Lin provoqua une véritable frénésie parmi les membres de la Tribu de l'Affinement de l'Âme. Le Pays des Démons du Feu avait été rebaptisé Secte de l'Affinement de l'Âme par Wang Lin!
+Le retour de Wang Lin provoqua une véritable frénésie parmi les membres de la Tribu de l'Affinement de l'Âme. Le Pays du Démon de Feu avait été rebaptisé Secte de l'Affinement de l'Âme par Wang Lin!
 
 La Secte de l'Affinement de l'Âme comptait des millions de disciples. Si l'on devait compter tous les fragments d'âme rassemblés par ces derniers, le nombre serait inimaginable. On pourrait dire que la Secte de l'Affinement de l'Âme ne serait pas de faible envergure, même dans un pays de culture de rang 7!
 

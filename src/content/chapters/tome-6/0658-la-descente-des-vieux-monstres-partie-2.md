@@ -16,7 +16,7 @@ Wang Lin fronça légèrement les sourcils. Il y avait beaucoup moins de moustiq
 
 « Je ne sais pas exactement ce qui s'est passé... » Songea Wang Lin un instant avant de poser sa main sur la tête du moustique pour activer son sens divin.
 
-Diverses scènes traversèrent immédiatement l'esprit de Wang Lin. À la moitié de la bataille entre Zhou Yi et Tan Lang, deux cultivateurs, un homme et une femme, étaient descendus de la sortie du Pays des Démons de Feu.
+Diverses scènes traversèrent immédiatement l'esprit de Wang Lin. À la moitié de la bataille entre Zhou Yi et Tan Lang, deux cultivateurs, un homme et une femme, étaient descendus de la sortie du Pays du Démon de Feu.
 
 Ces deux êtres étaient d'une puissance absolue. D'un simple geste, ils avaient capturé Tan Lang. Zhou Yi avait également été saisi avec facilité, mais il semblait que le couple n'avait aucune intention malveillante. En fait, au moment où ils aperçurent Zhou Yi, les yeux de l'homme révélèrent une profonde mélancolie et de la nostalgie.
 
@@ -24,13 +24,13 @@ L'essaim de moustiques n'était pas mort, mais la majorité d'entre eux avait é
 
 Lorsque le sens divin de Wang Lin revint du moustique, son expression était sombre.
 
-Après une courte réflexion, il tapota la tête de la bête. Le moustique poussa un rugissement et, au lieu de voler vers la sortie du Pays des Démons de Feu, il se dirigea vers l'entrée du Pays des Démons d'Eau.
+Après une courte réflexion, il tapota la tête de la bête. Le moustique poussa un rugissement et, au lieu de voler vers la sortie du Pays du Démon de Feu, il se dirigea vers l'entrée du Pays du Démon de l'Eau.
 
 Désormais, puisque Wang Lin pouvait fusionner avec la force d'aspiration, n'importe quel endroit pouvait servir de sortie.
 
 Tandis qu'ils volaient, les milliers de moustiques les suivirent. Ils poussaient parfois des cris de regret et de désespoir, comme s'ils tentaient de dissuader le moustique de Wang Lin de partir.
 
-Ce jour-là, au Pays des Démons d'Eau, une lueur violette jaillit dans les airs. C'était la bête moustique. Wang Lin était assis sur son dos, le visage empreint de gravité.
+Ce jour-là, au Pays du Démon de l'Eau, une lueur violette jaillit dans les airs. C'était la bête moustique. Wang Lin était assis sur son dos, le visage empreint de gravité.
 
 Sitôt la lumière violette apparue, plus de deux mille bêtes moustiques chargèrent à leur tour, encerclant complètement Wang Lin. Leurs regards étaient fixés sur le moustique violet et leurs cris devinrent encore plus stridents.
 
@@ -72,13 +72,13 @@ Après cela, Wang Lin regarda la grotte d'un air significatif. L'esprit de la gr
 
 Wang Lin fit volte-face, le cristal à la main, et partit.
 
-Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays des Démons Célestes. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
+Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays du Démon Céleste. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
 
 Wang Lin ne récupéra pas les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua dans la pagode. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
 
 Au moment de son départ, Treize s'agenouilla et effectua plusieurs prosternations vers Wang Lin. Ouyang Hua fit de même, leurs yeux noyés de tristesse. Bien que Wang Lin n'ait rien dit, ils sentaient que dans cette vie... il leur serait difficile de le revoir un jour...
 
-Dans le Pays des Démons Célestes, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa culture. Après des années de guérison et de soins, sa culture avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
+Dans le Pays du Démon Céleste, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa culture. Après des années de guérison et de soins, sa culture avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
 
 Peu après, Shi Xiao ouvrit les yeux, le regard étincelant.
 
@@ -92,7 +92,7 @@ Shi Xiao afficha un sourire fier et déclara: « Ce poste aurait dû être le mi
 
 Chen Tao regarda Shi Xiao et dit calmement: « Wang Lin est mon frère instructeur cadet! »
 
-Shi Xiao haussa un sourcil avec un sourire glacial. « Où était votre frère cadet pendant la guerre contre le Pays des Démons de Feu? Il a profité de la fin du conflit pour s'approprier les mérites de tous. Bien qu'il ait aidé le Seigneur Démon Ancien, il nous a tous couverts de honte! »
+Shi Xiao haussa un sourcil avec un sourire glacial. « Où était votre frère cadet pendant la guerre contre le Pays du Démon de Feu? Il a profité de la fin du conflit pour s'approprier les mérites de tous. Bien qu'il ait aidé le Seigneur Démon Ancien, il nous a tous couverts de honte! »
 
 « De plus, cet homme a disparu depuis de nombreuses années; je crains que ses os ne puissent même plus être retrouvés. Vous vous souvenez de lui comme de votre frère cadet, mais je crains qu'il ne se souvienne plus de vous comme de son frère instructeur aîné. »
 

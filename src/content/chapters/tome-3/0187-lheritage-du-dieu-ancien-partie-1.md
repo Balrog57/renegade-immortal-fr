@@ -20,9 +20,9 @@ Désormais, Wang Lin possédait deux sacs de rangement qu'il ne pouvait ouvrir. 
 
 Les deux sacs conservaient encore le Sens Divin de leurs anciens maîtres. Tant que cela perdurait, Wang Lin ne pouvait y accéder. Sans se précipiter, il toucha le sac et l'entoura de son propre Sens Divin afin d'empêcher l'Empereur Antique de le détecter.
 
-Une fois cette tâche accomplie, il prit une profonde inspiration et s'élança comme une flèche vers l'horizon. Sa cible était la Mer de Connaissance du Dieu Ancien.
+Une fois cette tâche accomplie, il prit une profonde inspiration et s'élança comme une flèche vers l'horizon. Sa cible était la Mer de la Connaissance du Dieu Ancien.
 
-Après tout, lors du deuxième essai, il avait obtenu un morceau de jade pour fabriquer un drapeau de restriction, qui soulignait que le matériau principal de ce trésor, la pierre d'encre, ne se trouvait que dans la Mer de Connaissance.
+Après tout, lors du deuxième essai, il avait obtenu un morceau de jade pour fabriquer un drapeau de restriction, qui soulignait que le matériau principal de ce trésor, la pierre d'encre, ne se trouvait que dans la Mer de la Connaissance.
 
 Après avoir traversé rapidement cet espace où la distinction entre le ciel et la terre s'effaçait, Wang Lin ne percevait toujours aucune limite au firmament, seulement des étendues bleues.
 
@@ -108,7 +108,7 @@ Durant ce laps de temps, il croisa plus de dix vagues de Qi. Il les évita toute
 
 Wang Lin avait déjà une réponse en son cœur, mais il refusait de l'accepter. Cette vague de Qi provenait manifestement du tourbillon d'énergie spirituelle du point de la Mer de Qi. Si de simples tentacules de ce tourbillon avaient une telle puissance, la Mer de Qi entière n'atteignait-elle pas un niveau inimaginable?
 
-Si ce Dieu Ancien était mort, pourquoi l'énergie spirituelle dans son corps tournoyait-elle encore d'elle-même? De plus, Wang Lin remarqua qu'à mesure qu'il avançait, des ondes de fluctuation provoquant des changements d'humeur émanaient de toutes parts. Ces ondes ne lui infligeaient aucun dommage réel, mais elles accroissaient sa vigilance. Il vérifia la position de sa propre Mer de Qi pour s'orienter: au-dessus de la Mer de Qi se trouvait le Point Ancestral, et en son sein, la Mer de Connaissance Zifu.
+Si ce Dieu Ancien était mort, pourquoi l'énergie spirituelle dans son corps tournoyait-elle encore d'elle-même? De plus, Wang Lin remarqua qu'à mesure qu'il avançait, des ondes de fluctuation provoquant des changements d'humeur émanaient de toutes parts. Ces ondes ne lui infligeaient aucun dommage réel, mais elles accroissaient sa vigilance. Il vérifia la position de sa propre Mer de Qi pour s'orienter: au-dessus de la Mer de Qi se trouvait le Point Ancestral, et en son sein, la Mer de la Connaissance Zifu.
 
 Tout en volant, il calculait secrètement, mais les informations étaient trop parcellaires. Il avait l'impression qu'un brouillard voilait ses yeux, l'empêchant de percevoir la vérité. Toute la Terre de l'Ancien Dieu dégageait une atmosphère singulière.
 

@@ -92,7 +92,7 @@ Le Dao de la gloire n'était pas aussi fragile que ce qu'il avait affirmé. C'é
 
 Comparé à lui, les cultivateurs de même niveau dans le Système Stellaire de l'Alliance étaient bien plus forts. Après tout, dans ce système, on ne pouvait compter que sur soi-même!
 
-Et les sectes? Elles ne pouvaient en rien vous protéger. La moindre négligence signifiait la mort. C'était la loi de la jungle, et le massacre était la loi des cieux! Hormis quelques exceptions, les cultivateurs du Système Stellaire Luotian ne pouvaient même pas imaginer l'obscurité qui régnait dans le Système Stellaire de l'Alliance.
+Et les sectes? Elles ne pouvaient en rien vous protéger. La moindre négligence signifiait la mort. C'était la loi de la jungle, et le massacre était la loi des cieux! Hormis quelques exceptions, les cultivateurs du Système Stellaire de Luotian ne pouvaient même pas imaginer l'obscurité qui régnait dans le Système Stellaire de l'Alliance.
 
 S'ils y étaient plongés, ils auraient du mal à survivre, à moins que leur culture ne soit assez puissante pour ignorer toutes les règles.
 

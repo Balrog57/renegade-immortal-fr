@@ -26,7 +26,7 @@ Mais il ne trouva rien.
 
 Dans un soupir et une bénédiction adressée à Zhou Yi et Qing Shuang, Wang Lin s'assit sur le dragon de mer qui volait désormais vers le Continent Céleste.
 
-L'ensemble du Continent Oriental ne comptait que quelques Exaltés Empyréens. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
+L'ensemble du Continent de l'Est ne comptait que quelques Exaltés Empyréens. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
 
 Cependant, sa culture s'était arrêtée au stade d'Exalté Empyréen. Il avait autrefois suivi le Grand Empyréen Shuangzi; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
 

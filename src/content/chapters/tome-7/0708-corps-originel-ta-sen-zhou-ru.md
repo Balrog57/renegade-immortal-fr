@@ -102,9 +102,9 @@ Quelques mois plus tard, le corps de Wang Lin choisit une nouvelle planète aban
 
 ***
 
-Planète Suzaku, Mer des Diables.
+Planète Suzaku, Mer des Démons.
 
-Le brouillard de la Mer des Diables avait disparu depuis longtemps, transformant la région en un immense bassin. Dans ses profondeurs se trouvait un lieu nommé les Étoiles Brisées du Chaos, une zone interdite où quiconque s'approchait disparaissait mystérieusement. Personne n'osait plus s'en approcher.
+Le brouillard de la Mer des Démons avait disparu depuis longtemps, transformant la région en un immense bassin. Dans ses profondeurs se trouvait un lieu nommé les Étoiles Brisées du Chaos, une zone interdite où quiconque s'approchait disparaissait mystérieusement. Personne n'osait plus s'en approcher.
 
 À l'intérieur du Pays de l'Ancien Dieu, au cœur des Étoiles Brisées du Chaos.
 
@@ -116,7 +116,7 @@ Une épée rouillée, tachée de sang séché, était plantée dans le sol à se
 
 « Wang Lin, je suis sur le point d'être libre... »
 
-Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer des Diables. Ce n'était pas Tuo Sen, mais un messager envoyé par lui! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu: c'était le Magicien Démon Céleste, censé être mort depuis longtemps!
+Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer des Démons. Ce n'était pas Tuo Sen, mais un messager envoyé par lui! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu: c'était le Magicien Démon Céleste, censé être mort depuis longtemps!
 
 Autrefois, sans l'intervention de Wang Lin, l'héritage de la connaissance lui aurait appartenu. Maître du Seigneur Démon des Six Désirs, il avait comploté pendant des millénaires pour finalement tout voir détruit par Wang Lin. Sa haine envers ce dernier n'était en rien moindre que celle de Tuo Sen!
 

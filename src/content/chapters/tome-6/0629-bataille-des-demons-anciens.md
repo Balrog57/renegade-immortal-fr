@@ -14,7 +14,7 @@ On pouvait dire qu'après avoir atteint le stade de la petite perfection dans l'
 
 Quant au sort d'Arrêt, c'était la technique de survie de Wang Lin. Après l'avoir testée à deux reprises, il décida de le garder secret. Ce n'est que lorsqu'il serait totalement inconnu qu'il pourrait jouer son rôle lors d'un moment critique pour lui sauver la vie!
 
-Un million de filaments d'énergie de massacre tombèrent telle une pluie battante. Des bruits de collisions retentirent contre l'écran démoniaque protégeant la capitale du Pays des Démons de Feu. À cet instant, c'était comme si un million de coups d'énergie d'épée s'y fracassaient. Après plusieurs respirations, les sons de collision se succédèrent sans interruption.
+Un million de filaments d'énergie de massacre tombèrent telle une pluie battante. Des bruits de collisions retentirent contre l'écran démoniaque protégeant la capitale du Pays du Démon de Feu. À cet instant, c'était comme si un million de coups d'énergie d'épée s'y fracassaient. Après plusieurs respirations, les sons de collision se succédèrent sans interruption.
 
 L'écran démoniaque commença à trembler violemment. Wang Lin, debout devant lui, gardait une expression neutre tout en observant la scène froidement.
 
@@ -86,7 +86,7 @@ Dès qu'il entra dans le périmètre des 165 mètres, ses yeux s'illuminèrent e
 
 Son accord avec Bei Luo stipulait qu'il briserait l'écran démoniaque et utiliserait ce sort une fois entré à moins de 165 mètres de l'autre démon ancien. En accomplissant ces deux étapes, il remplirait la majeure partie de leur pacte. Après tout, il était impossible de vaincre un démon ancien avec la seule puissance de Wang Lin.
 
-La raison pour laquelle cette guerre avait éclaté était de vider la capitale du Pays des Démons de Feu. Sans la protection des habitants de la capitale, Wang Lin avait pu s'approcher à 165 mètres du démon ancien.
+La raison pour laquelle cette guerre avait éclaté était de vider la capitale du Pays du Démon de Feu. Sans la protection des habitants de la capitale, Wang Lin avait pu s'approcher à 165 mètres du démon ancien.
 
 Au moment où le sceau apparut dans la main gauche de Wang Lin, le sang dans ses veines entra en ébullition. Il cracha alors une importante quantité de sang. Simultanément, des bruits de craquements retentirent dans tout son corps et un brouillard sanguin commença à se former.
 
@@ -94,10 +94,10 @@ Au moment où le sceau apparut dans la main gauche de Wang Lin, le sang dans ses
 
 Une fois apparu, le brouillard sanguin se condensa rapidement pour former une silhouette humaine de sang. Simultanément, un Sens Divin extrêmement tyrannique descendit sur cette forme, la faisant ouvrir les yeux!
 
-À cet instant, chaque être vivant du Pays des Démons de Feu ressentit soudainement une anxiété soudaine dans son cœur. Très peu de gens connaissaient la vérité, mais la majorité éprouvait un sentiment d'impuissance et de terreur face à cette angoisse qui les envahissait.
+À cet instant, chaque être vivant du Pays du Démon de Feu ressentit soudainement une anxiété soudaine dans son cœur. Très peu de gens connaissaient la vérité, mais la majorité éprouvait un sentiment d'impuissance et de terreur face à cette angoisse qui les envahissait.
 
-Au même moment, les expressions des âmes résiduelles des démons anciens des sept autres pays changèrent toutes. Ils tournèrent tous leur regard vers la capitale du Pays des Démons de Feu.
+Au même moment, les expressions des âmes résiduelles des démons anciens des sept autres pays changèrent toutes. Ils tournèrent tous leur regard vers la capitale du Pays du Démon de Feu.
 
-Le ton du démon ancien du Pays des Démons de Feu fut bas lorsqu'il dit lentement: « Votre chance est immense d'avoir trouvé un cultivateur portant l'aura d'un Dieu Ancien. Son sang et le lien de Sens Divin entre vous deux permettent à cette forme de sang de subsister pour une longue période. Cela vous permettra de vous condenser par le sang en n'importe quel lieu et de quitter le Pays du Démon Céleste où vous êtes confiné! »
+Le ton du démon ancien du Pays du Démon de Feu fut bas lorsqu'il dit lentement: « Votre chance est immense d'avoir trouvé un cultivateur portant l'aura d'un Dieu Ancien. Son sang et le lien de Sens Divin entre vous deux permettent à cette forme de sang de subsister pour une longue période. Cela vous permettra de vous condenser par le sang en n'importe quel lieu et de quitter le Pays du Démon Céleste où vous êtes confiné! »
 
 La voix calme de Bei Luo émana de l'être de sang: « Nous avons été séparés trop longtemps. Si cela continue, nous serons bientôt détruits un par un. Une fois notre fusion accomplie, nous renaîtrons en tant que démon ancien absolument nouveau! Quant aux sept autres, je les dévorerai tous, un par un! »

@@ -64,11 +64,11 @@ Wang Lin sourit et dit à l'Ancien: « Il n'est pas nécessaire d'entrer dans la
 
 Après avoir entendu que Wang Lin n'était venu que pour une carte, l'Ancien Zheng Tianlin hocha vivement la tête.
 
-« Le Senior est trop aimable. Ce junior possède la carte la plus complète de notre secte. Elle couvre l'intégralité du Continent Est et bien au-delà, ainsi qu'une grande partie du Continent Sud. » Tout en parlant, il agita sa main droite et un jade doré apparut. Il le tendit respectueusement à Wang Lin.
+« Le Senior est trop aimable. Ce junior possède la carte la plus complète de notre secte. Elle couvre l'intégralité du Continent de l'Est et bien au-delà, ainsi qu'une grande partie du Continent du Sud. » Tout en parlant, il agita sa main droite et un jade doré apparut. Il le tendit respectueusement à Wang Lin.
 
 Wang Lin accepta le jade et le scruta avec son sens divin. La carte était plus vaste qu'une carapace de tortue et d'une précision remarquable.
 
-« Elle contient même des cartes du Continent Sud. » Wang Lin sourit en regardant l'Ancien.
+« Elle contient même des cartes du Continent du Sud. » Wang Lin sourit en regardant l'Ancien.
 
 Voyant que Wang Lin était satisfait, le vieil homme se détendit davantage.
 

@@ -44,7 +44,7 @@ Ce coup fit vaciller la silhouette dématérialisée de Wang Lin, qui finit par 
 
 Le bras d'os noir marqua un temps d'arrêt avant de retourner dans le vortex, lequel disparut à son tour.
 
-Une distorsion se produisit dans le ciel au-dessus d'une plaine infinie du Pays des Démons de Feu, et Wang Lin en émergea!
+Une distorsion se produisit dans le ciel au-dessus d'une plaine infinie du Pays du Démon de Feu, et Wang Lin en émergea!
 
 Son visage était sombre. Quiconque subirait une telle scène étrange juste après avoir atteint le stade d'Ascendant ne saurait s'en réjouir.
 

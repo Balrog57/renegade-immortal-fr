@@ -86,7 +86,7 @@ Une petite île trônait au centre du lac. C'était là que le maître de la sec
 
 Bien qu'il eût passé sa vie dans le massacre, Wang Lin n'aimait pas tuer. En réalité, à mesure que sa culture progressait, il ne tuait que rarement, sauf s'il y était contraint ou placé face à une situation de vie ou de mort.
 
-Pourtant, il était en proie à une soif de sang intense en cet instant. D'abord, à la frontière du Continent de la Terre Meng, toute la Secte du Dao Démoniaque s'était dressée pour empêcher Wang Lin de partir paisiblement. Ils s'étaient tous précipités sur lui avec une fureur de fous.
+Pourtant, il était en proie à une soif de sang intense en cet instant. D'abord, à la frontière du Continent Terre-Meng, toute la Secte du Dao Démoniaque s'était dressée pour empêcher Wang Lin de partir paisiblement. Ils s'étaient tous précipités sur lui avec une fureur de fous.
 
 Tout en le traquant, ils avaient jeté ces têtes. Bien que Wang Lin n'éprouvât aucun lien avec ces restes, il s'agissait de cultivateurs qui avaient combattu à ses côtés dans la Prairie du Ciel Extrême.
 

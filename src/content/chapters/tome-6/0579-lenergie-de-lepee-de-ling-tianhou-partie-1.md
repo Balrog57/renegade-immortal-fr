@@ -8,7 +8,7 @@ slug: lenergie-de-lepee-de-ling-tianhou-partie-1
 ---
 Un ricanement s'échappa d'un palais élégant au cœur de la capitale de la Cité du Démon Céleste.
 
-« Se pourrait-il que ce petit morveux, Mo Fei, veuille défier Mo Lihai en duel avant le début du concours des généraux démons, espérant utiliser les mérites militaires qu'il a acquis en combattant le Pays des Démons de Feu pour que je ne puisse pas le refuser? Ce gamin est intéressant, je l'autorise! »
+« Se pourrait-il que ce petit morveux, Mo Fei, veuille défier Mo Lihai en duel avant le début du concours des généraux démons, espérant utiliser les mérites militaires qu'il a acquis en combattant le Pays du Démon de Feu pour que je ne puisse pas le refuser? Ce gamin est intéressant, je l'autorise! »
 
 Une autre voix, âgée, résonna dans le palais. « Cela... Empereur Démon, si les deux d'entre eux donnent un tel exemple, je crains que les autres généraux démons ne... »
 

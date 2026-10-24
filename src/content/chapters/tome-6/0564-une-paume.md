@@ -32,7 +32,7 @@ Comparée à l'intention de poing des Dix Effondrements, cette Mer Démoniaque a
 
 Face à cette mer d'énergie spirituelle démoniaque, une idée traversa soudainement l'esprit de Wang Lin!
 
-Sur la planète Suzaku, une rumeur disait qu'un puissant cultivateur avait utilisé un sort pour transformer la mer en brume, créant ainsi l'apparence unique de la Mer des Diables!
+Sur la planète Suzaku, une rumeur disait qu'un puissant cultivateur avait utilisé un sort pour transformer la mer en brume, créant ainsi l'apparence unique de la Mer des Démons!
 
 Lorsqu'il l'avait apprise à l'époque, bien que choqué, Wang Lin n'y avait pas vraiment cru. Cependant, aujourd'hui, il voyait de ses propres yeux le général démon transformer l'énergie spirituelle invisible en une mer tangible. Si cela le stupéfiait, cela le faisait surtout réfléchir profondément.
 

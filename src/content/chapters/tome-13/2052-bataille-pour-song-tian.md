@@ -12,7 +12,7 @@ Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à W
 
 Le gigantesque Soleil de Grand Empyréen, second seulement à celui de Gu Dao, témoignait lui aussi de la puissance de Wang Lin!
 
-« Il n'est même pas encore parvenu au Royaume Divin Immémorial et pourtant... Il est devenu un Grand Empyréen par sa propre force!! » Dans le Continent Nord, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
+« Il n'est même pas encore parvenu au Royaume Divin Immémorial et pourtant... Il est devenu un Grand Empyréen par sa propre force!! » Dans le Continent du Nord, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
 
 Dans la Secte Yang Pourpre, les deux petites filles étaient transportées par la joie. Elles se tenaient par la main tout en contemplant le firmament.
 

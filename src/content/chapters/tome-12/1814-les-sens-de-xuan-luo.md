@@ -68,7 +68,7 @@ Les cris de l'Oiseau Vermillon résonnaient depuis l'intérieur de la sphère et
 
 Cependant, au sein de cette sphère de soixante-dix pieds, une volonté de feu se propageait. Cette volonté enveloppait le monde et semblait prête à entrer en conflit avec la volonté du feu terrestre.
 
-C'était comme si deux volontés de feu s'étaient manifestées sur le Continent Taureau Céleste!
+C'était comme si deux volontés de feu s'étaient manifestées sur le Continent du Taureau Céleste!
 
 La sensation était étrange. L'une de ces volontés appartenait à la veine de feu terrestre du continent, tandis que l'autre émanait de la boule de feu que Du Qing observait!
 
@@ -104,6 +104,6 @@ Cet autel dégageait une aura ancestrale, et un jeune homme vêtu de noir y éta
 
 Il s'agissait de Xuan Luo.
 
-Lorsque Wang Lin fit apparaître l'empreinte dorée sur le Continent Taureau Céleste, Xuan Luo, qui était en culture fermée, ouvrit soudainement les yeux.
+Lorsque Wang Lin fit apparaître l'empreinte dorée sur le Continent du Taureau Céleste, Xuan Luo, qui était en culture fermée, ouvrit soudainement les yeux.
 
 « Il arrive... » Un sourire se dessina sur les lèvres de Xuan Luo. Il savait que le disciple qu'il avait choisi ne mourrait pas dans le vide et qu'il atteindrait enfin le Continent Astral Immortel!

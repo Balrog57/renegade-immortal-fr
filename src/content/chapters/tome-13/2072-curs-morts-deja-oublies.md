@@ -86,7 +86,7 @@ Les paroles de cette figure retentirent une fois de plus à ses oreilles:
 
 Wang Lin marmonna ces paroles tandis qu'elles tourbillonnaient dans son esprit. Cette voix devint de plus en plus assourdissante, jusqu'à ce que le ciel se déchire, que la terre tremble et qu'une tempête s'abatte sur le Continent Astral Immortel.
 
-Sur le Continent Est du clan céleste, dans la partie sud-ouest du continent Lin Hua, se trouvait une cité immense. Elle ressemblait à une bête géante assoupie, dégageant une aura majestueuse.
+Sur le Continent de l'Est du clan céleste, dans la partie sud-ouest du continent Lin Hua, se trouvait une cité immense. Elle ressemblait à une bête géante assoupie, dégageant une aura majestueuse.
 
 Dans un quartier reculé de la ville, se nichait une forge. L'activité y était suffisante pour faire vivre dignement la famille, car le propriétaire, très consciencieux, s'était bâti une solide réputation au fil des ans.
 

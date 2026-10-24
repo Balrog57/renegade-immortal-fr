@@ -94,7 +94,7 @@ Cette année-là, un enfant naquit dans une ville mortelle du Continent de l'Oue
 
 Si un autre enfant refusait de le suivre, il le frappait ou lui donnait des coups de pied. Il était extrêmement féroce, et ses camarades finirent par avoir peur de lui. Ils commencèrent peu à peu à jouer au jeu du prince selon ses règles.
 
-Sur le Continent Sud du Continent Astral Immortel, un enfant naquit également, à une certaine année. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un escroc célèbre dans sa ville.
+Sur le Continent du Sud du Continent Astral Immortel, un enfant naquit également, à une certaine année. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un escroc célèbre dans sa ville.
 
 Cependant, lorsqu'un escroc devient célèbre, ce n'est guère une bonne chose pour lui. En conséquence, cet enfant quitta son foyer prématurément pour exercer son talent d'escroc ailleurs.
 

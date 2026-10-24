@@ -16,7 +16,7 @@ Wang Lin ferma les yeux tandis que son âme originelle continuait de graver son 
 
 Par ailleurs, à mesure que la Tribu de l'Affinement de l'Âme s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu de l'Affinement de l'Âme entraînait le creusement de vastes excavations. La culture au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
 
-Ceci n'était qu'une des méthodes. L'autre consistait à se rendre au Pays des Démons de Feu pour absorber les âmes de tous les soldats démons décédés.
+Ceci n'était qu'une des méthodes. L'autre consistait à se rendre au Pays du Démon de Feu pour absorber les âmes de tous les soldats démons décédés.
 
 Toutefois, seuls ceux ayant déjà obtenu un certain succès dans leur culture étaient qualifiés pour s'y rendre. Quiconque souhaitait tenter l'aventure seul devait être personnellement évalué par Ouyang Hua avant d'en recevoir la permission.
 
@@ -90,7 +90,7 @@ Les deux symboles de sang volèrent rapidement et furent captés par la main gau
 
 L'âme originelle de Wang Lin retourna dans son corps. Il ouvrit les yeux et fixa la bête.
 
-À cet instant, quelque part à des milliers de kilomètres de là, à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or.
+À cet instant, quelque part à des milliers de kilomètres de là, à la frontière entre le Pays du Démon de Feu et le Pays du Démon d'Or.
 
 Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagnes toute l'année, faisant de cet endroit un territoire que ni l'un ni l'autre des pays démoniaques ne contrôlait. Au cœur du miasme se trouvait une cité blanche. Pour être plus précis, il s'agissait d'un château entouré de murs de pierre blanche de 33 mètres de haut. L'intérieur du château dégageait une aura mystérieuse.
 

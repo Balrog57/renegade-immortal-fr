@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1426 - Will Leave
 slug: le-depart
 ---
-Maître Simo partit... Le Grand Maître Yun Luo l'accompagna, et tous deux disparurent de la Planète de l'Empereur sous les yeux de Wang Lin.
+Maître Simo partit... Le Grand Maître Yun Luo l'accompagna, et tous deux disparurent de la Planète du Grand Empereur sous les yeux de Wang Lin.
 
 Cette bataille n'avait mené à aucun résultat. C'était inattendu pour tous les cultivateurs présents, y compris pour le Vieux Oiseau Vermillon. Cependant, grâce à sa puissante culture, il avait vaguement perçu certaines choses.
 
@@ -16,7 +16,7 @@ La Sélection des Anciens Délaissés, qui avait été interrompue, reprit son c
 
 Dans les Terres Déchues, la planète abandonnée où se trouvaient Liu Jinbiao et Xu Liguo avait été minutieusement fouillée par les membres du Clan des Moineaux de Feu.
 
-Pour le Clan des Moineaux de Feu, l'épreuve qui se déroulait sur la Planète de l'Empereur représentait une opportunité inespérée.
+Pour le Clan des Moineaux de Feu, l'épreuve qui se déroulait sur la Planète du Grand Empereur représentait une opportunité inespérée.
 
 En fouillant avec soin, le Clan des Moineaux de Feu finit par trouver Liu Jinbiao, qui était en culture fermée dans la partie la plus profonde de la planète, ainsi que son protecteur, Xu Liguo.
 

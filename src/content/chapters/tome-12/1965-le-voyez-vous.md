@@ -38,7 +38,7 @@ Continent Central, au sommet du Mont Empereur. Le Grand Empyréen Jiu Di se tena
 
 L'Exalté Empyréen Hai Zi fut surprise et son cœur se remplit de joie.
 
-Continent Est, au sein de la Secte Yang Pourpre. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer:
+Continent de l'Est, au sein de la Secte Yang Pourpre. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer:
 
 « Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyréens! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
 

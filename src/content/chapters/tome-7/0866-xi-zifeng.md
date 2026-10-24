@@ -78,7 +78,7 @@ Peu après, la famille Yao et les trois autres familles dotées d'héritages cé
 
 Lorsque les familles Shengong et Zhan arrivèrent, l'ancêtre des Shengong et Lie Yunzi s'installèrent successivement sur leurs tapis respectifs. Bientôt, divers ancêtres de différentes familles de culture arrivèrent et prirent place.
 
-À midi pile, les yeux de Maître Yan Leizi s'illuminèrent. Il déclara d'une voix calme: « Que la bataille pour les 108 titres célestes du Système Stellaire Luotian commence! » Sa voix se mua en d'innombrables coups de tonnerre qui résonnèrent à travers tout le Temple Céleste du Tonnerre. Une multitude de réseaux de transfert apparurent dans le ciel; ils étaient tous de taille identique et, un à un, des cultivateurs en émergèrent.
+À midi pile, les yeux de Maître Yan Leizi s'illuminèrent. Il déclara d'une voix calme: « Que la bataille pour les 108 titres célestes du Système Stellaire de Luotian commence! » Sa voix se mua en d'innombrables coups de tonnerre qui résonnèrent à travers tout le Temple Céleste du Tonnerre. Une multitude de réseaux de transfert apparurent dans le ciel; ils étaient tous de taille identique et, un à un, des cultivateurs en émergèrent.
 
 Wang Lin faisait partie des participants!
 
@@ -100,7 +100,7 @@ Non loin de Xi Zifeng siégeait une vieille femme. Bien qu'elle ne fût manifest
 
 Elle fronça les sourcils en regardant Xi Zifeng et soupira intérieurement: « Une relation maudite! »
 
-Wang Lin, suspendu dans les airs, observait avec calme la grande majorité des cultivateurs du Système Stellaire Luotian. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de culture non inférieur à celui de Xue Zu, et beaucoup le surpassaient largement.
+Wang Lin, suspendu dans les airs, observait avec calme la grande majorité des cultivateurs du Système Stellaire de Luotian. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de culture non inférieur à celui de Xue Zu, et beaucoup le surpassaient largement.
 
 Lorsque les 325 réseaux de transfert furent tous déployés, tous les participants se révélèrent. Maître Yan Leizi, imperturbable, déclara lentement: « Cette compétition est divisée en trois épreuves, six voies et une seule ligne vers le ciel! Les trois épreuves du Ciel, de la Terre et de l'Humain testeront la culture de chacun! Les six voies mystérieuses, par la réincarnation, tempéreront l'intention du Dao! »
 

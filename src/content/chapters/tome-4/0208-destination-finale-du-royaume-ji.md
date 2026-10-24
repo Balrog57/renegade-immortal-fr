@@ -230,7 +230,7 @@ Son noyau s'élargit brusquement et s'assombrit. Sa taille continua de croître 
 
 Mais!
 
-À cet instant précis, le Sens Divin du Royaume Ji, sous forme d'éclair, se mit pour la première fois en mouvement sans son contrôle. Il jaillit de sa conscience, traversa sa Mer de Connaissance Zifu et frappa son noyau à travers son corps.
+À cet instant précis, le Sens Divin du Royaume Ji, sous forme d'éclair, se mit pour la première fois en mouvement sans son contrôle. Il jaillit de sa conscience, traversa sa Mer de la Connaissance Zifu et frappa son noyau à travers son corps.
 
 Wang Lin écarquilla les yeux. Malgré tous ses efforts pour maîtriser le Royaume Ji, il ne put l'enrayer. Dès que le Royaume Ji percuta son noyau, celui-ci explosa.
 

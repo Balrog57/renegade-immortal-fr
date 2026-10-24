@@ -70,7 +70,7 @@ Enfin, il y avait la quatrième sphère de lumière. Elle renfermait une carapac
 
 Il sembla y voir un vieil homme au sein de la Secte de la Grande Âme, assis sur la Montagne du Ciel Vert. Le vieillard lui souriait et levait la main droite comme pour lui faire signe de l'adieu.
 
-La carapace contenait la carte intégrale du Continent Est. Elle manquait de précision; plus on s'éloignait du Continent du Taureau Céleste, plus les détails devenaient vagues, ne laissant place qu'à des contours grossiers et des indications sommaires.
+La carapace contenait la carte intégrale du Continent de l'Est. Elle manquait de précision; plus on s'éloignait du Continent du Taureau Céleste, plus les détails devenaient vagues, ne laissant place qu'à des contours grossiers et des indications sommaires.
 
 Mais cette carte était d'une importance vitale pour Wang Lin en cet instant!
 
@@ -86,7 +86,7 @@ Enfin, il rangea soigneusement la carapace de tortue et regarda une dernière fo
 
 « Je reviendrai... » murmura Wang Lin avant de faire volte-face. Il s'élança dans le ciel, suivant les frontières indiquées par la carte. Il se dirigeait vers la Secte Dong Lin!
 
-La Secte Dong Lin se situait dans la partie septentrionale du Continent Est, sur le Grand Continent Sage. Il se trouvait à cinq continents de distance du Continent du Taureau Céleste! Le voyage était immense et un vol direct prendrait des années. Même en utilisant la Distorsion Spatiale, comme Wang Lin ne pouvait l'utiliser de manière répétée, cela lui prendrait tout de même un à deux ans.
+La Secte Dong Lin se situait dans la partie septentrionale du Continent de l'Est, sur le Grand Continent Sage. Il se trouvait à cinq continents de distance du Continent du Taureau Céleste! Le voyage était immense et un vol direct prendrait des années. Même en utilisant la Distorsion Spatiale, comme Wang Lin ne pouvait l'utiliser de manière répétée, cela lui prendrait tout de même un à deux ans.
 
 Et pour atteindre la Secte Dong Lin, il y avait un passage obligé: le Continent du Démon Vert! S'il choisissait de contourner, il perdrait encore plus de temps et devrait parcourir bien plus que cinq continents, traversant des zones encore plus périlleuses.
 

@@ -50,7 +50,7 @@ Wang Lin ne chercha pas à se justifier et se contenta de la regarder calmement.
 
 La belle femme réfléchit un instant, son expression changeant comme si une pensée venait de l'effleurer. Après un long moment, elle sembla trouver une réponse et leva soudain les yeux, le regard empreint d'une lumière étrange.
 
-Elle fronça les sourcils et murmura: « C'est mon Maître qui m'a ordonné de venir sur le Continent Sud et de faire de l'Arbre de la Mer et de la Montagne ma grotte de culture. »
+Elle fronça les sourcils et murmura: « C'est mon Maître qui m'a ordonné de venir sur le Continent du Sud et de faire de l'Arbre de la Mer et de la Montagne ma grotte de culture. »
 
 Les yeux de Wang Lin s'illuminèrent. Cela confirma une partie de ses spéculations. Si c'était vrai, la situation était extrêmement problématique.
 

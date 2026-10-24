@@ -44,7 +44,7 @@ S'il mourait cette fois, son Dao s'éteindrait pour de bon!
 
 Sans avoir le temps de réfléchir, la flèche se rapprocha instantanément. Le jeune homme en robe verte poussa un rugissement de détresse. Ses mains formèrent un sceau et il cracha une quantité massive de sang, faisant fi de l'état de son corps. Il rassembla toute l'essence dont il disposait, conscient qu'il faisait face à la fin de sa vie.
 
-Il ouvrit son Royaume de la Flamme Joss et en extraya toutes ses âmes de Flamme Joss. Celles-ci fusionnèrent avec son sang pour former des centaines de milliers, des millions de couches de glace. En un instant, il créa un bloc de glace aussi vaste qu'une planète.
+Il ouvrit son Royaume des Flammes Joss et en extraya toutes ses âmes de Flamme Joss. Celles-ci fusionnèrent avec son sang pour former des centaines de milliers, des millions de couches de glace. En un instant, il créa un bloc de glace aussi vaste qu'une planète.
 
 C'est à ce moment précis que la flèche arriva. Dès qu'elle toucha la glace, celle-ci se désintégra immédiatement. Au centre, les yeux du jeune homme étaient empreints de désespoir. Il frappa son front et sacrifia sa propre marque de clan pour obtenir assez de puissance afin de tenter de résister!
 

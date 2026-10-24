@@ -60,7 +60,7 @@ L'un des ancêtres des familles de cultivateurs, assis sur une pierre blanche, v
 
 En entendant cela, les yeux des spectateurs s'illuminèrent. Ils fixèrent l'homme en noir, l'esprit bouillonnant de pensées diverses.
 
-« La Lame Céleste aux Neuf Accords de la famille Nangong, du Domaine Sud du Système Stellaire de l'Univers Tout-Ciel. Ainsi, cet homme appartient à la famille Nangong. »
+« La Lame Céleste aux Neuf Accords de la famille Nangong, du Domaine Sud du Système Stellaire de Luotian. Ainsi, cet homme appartient à la famille Nangong. »
 
 « Autrefois, les quatre grandes familles du Domaine Sud étaient les Nangong, les Tang, les Zhan et les Shengong. La famille Nangong occupait la première place, mais elle a mystérieusement disparu il y a mille ans. Il ne restait même pas la moitié d'un membre de cette lignée sur leur planète de culture. Cela avait même attiré l'attention du Temple Céleste du Tonnerre, sans qu'ils ne parviennent jamais à trouver la moindre raison à cette disparition! »
 

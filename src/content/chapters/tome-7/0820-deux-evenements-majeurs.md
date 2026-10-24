@@ -8,15 +8,15 @@ slug: deux-événements-majeurs
 ---
 Le Temple Céleste du Tonnerre avait émis un Décret de Luotian pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Céleste du Tonnerre pour pénétrer dans le Système Stellaire de l'Alliance une fois le passage ouvert!
 
-Cette nouvelle fut comme une tempête balayant le Système Stellaire Luotian, déclenchant des vagues de tumulte!
+Cette nouvelle fut comme une tempête balayant le Système Stellaire de Luotian, déclenchant des vagues de tumulte!
 
 Depuis les innombrables années qui avaient suivi l'effondrement des quatre Royaumes Célestes et le blocage des passages reliant les quatre systèmes, les quatre grands systèmes stellaires n'avaient eu aucun contact entre eux. Hormis l'usage de trésors extrêmement précieux capables d'ouvrir à peine un passage pour un ou deux cultivateurs, une opération d'une telle ampleur n'avait jamais été menée!
 
-Aux yeux des cultivateurs du Système Stellaire Luotian, le Système Stellaire de l'Alliance était un lieu reculé. Cependant, les rumeurs rapportées par les cultivateurs qui en revenaient étaient légion.
+Aux yeux des cultivateurs du Système Stellaire de Luotian, le Système Stellaire de l'Alliance était un lieu reculé. Cependant, les rumeurs rapportées par les cultivateurs qui en revenaient étaient légion.
 
 On disait que le Système Stellaire de l'Alliance ne possédait pas de familles de cultivateurs, mais des sectes.
 
-On disait qu'il était composé de pays de culture classés de rang 1 à 9, ce qui le rendait très différent du Système Stellaire Luotian!
+On disait qu'il était composé de pays de culture classés de rang 1 à 9, ce qui le rendait très différent du Système Stellaire de Luotian!
 
 On disait que le Système Stellaire de l'Alliance regorgeait de trésors magiques et d'innombrables pilules. Chaque secte y était un coffre au trésor, et chaque planète de culture une mine d'or.
 
@@ -24,7 +24,7 @@ On disait qu'au sein du Système Stellaire de l'Alliance, la puissance suprême 
 
 On disait que les cultivateurs du Système Stellaire de l'Alliance étaient extrêmement sanguinaires, habitués au combat, semblables à des démons.
 
-Toutes ces rumeurs prêtaient au Système Stellaire de l'Alliance des visages multiples aux yeux des habitants du Système Stellaire Luotian. Certaines familles de cultivateurs étaient très enthousiastes, brûlant d'un désir de bataille.
+Toutes ces rumeurs prêtaient au Système Stellaire de l'Alliance des visages multiples aux yeux des habitants du Système Stellaire de Luotian. Certaines familles de cultivateurs étaient très enthousiastes, brûlant d'un désir de bataille.
 
 Cependant, certaines familles hésitaient encore. Mais sous la pression du Temple Céleste du Tonnerre, l'invasion du Système Stellaire de l'Alliance était déjà une conclusion inéluctable.
 
@@ -36,15 +36,15 @@ L'une d'elles était la famille Xiang de la planète Dong Lin! Ce n'est pas le T
 
 Sous la pression de ces trois grandes puissances, comment les autres familles de cultivateurs oseraient-elles désobéir?
 
-En conséquence, une tempête de préparatifs s'éleva dans le Système Stellaire Luotian. Chaque famille se préparait pour l'instant où le passage s'ouvrirait!
+En conséquence, une tempête de préparatifs s'éleva dans le Système Stellaire de Luotian. Chaque famille se préparait pour l'instant où le passage s'ouvrirait!
 
 Pour cette bataille, les trois grandes puissances firent une annonce: quiconque accomplirait un exploit se verrait immédiatement attribuer la planète de culture conquise!
 
-Cette promesse tenta les familles du Système Stellaire Luotian. Après tout, nul ne souhaite partager une planète, mais toutes celles dotées d'énergie spirituelle étaient déjà occupées. Si l'on voulait sa propre planète, il fallait la ravir au Système Stellaire de l'Alliance.
+Cette promesse tenta les familles du Système Stellaire de Luotian. Après tout, nul ne souhaite partager une planète, mais toutes celles dotées d'énergie spirituelle étaient déjà occupées. Si l'on voulait sa propre planète, il fallait la ravir au Système Stellaire de l'Alliance.
 
 De plus, pour mobiliser toutes les familles, le Temple Céleste du Tonnerre débloqua diverses pilules et armes magiques. Ils présentèrent même des sorts célestes, créant ainsi un spectacle grandiose!
 
-« Le Temple Céleste du Tonnerre et les deux familles vont octroyer des titres célestes. C'est la première fois qu'une telle attribution à grande échelle a lieu depuis l'effondrement du Royaume Céleste du Tonnerre. Il y aura 36 Gardiens Célestes et 72 Démons Terrestres, pour un total de 108 personnes. Quiconque recevra un titre céleste aura un statut supérieur à celui des messagers du Temple Céleste du Tonnerre et sera admiré par tous les cultivateurs du Système Stellaire Luotian! »
+« Le Temple Céleste du Tonnerre et les deux familles vont octroyer des titres célestes. C'est la première fois qu'une telle attribution à grande échelle a lieu depuis l'effondrement du Royaume Céleste du Tonnerre. Il y aura 36 Gardiens Célestes et 72 Démons Terrestres, pour un total de 108 personnes. Quiconque recevra un titre céleste aura un statut supérieur à celui des messagers du Temple Céleste du Tonnerre et sera admiré par tous les cultivateurs du Système Stellaire de Luotian! »
 
 « Ils deviendront même des chefs dans la bataille contre le Système Stellaire de l'Alliance! »
 
@@ -52,13 +52,13 @@ Si cela s'était arrêté là, l'enjeu n'aurait pas été si grand, car tout le 
 
 Cette nouvelle faillit provoquer l'effondrement de la tempête. Un seigneur céleste! Un seigneur céleste!
 
-Un seigneur céleste était encore en vie! L'ensemble du Système Stellaire Luotian atteignit un point d'ébullition. Toutes les familles qui n'étaient initialement pas intéressées changèrent d'avis et mobilisèrent leurs élites pour tenter de rafler une place!
+Un seigneur céleste était encore en vie! L'ensemble du Système Stellaire de Luotian atteignit un point d'ébullition. Toutes les familles qui n'étaient initialement pas intéressées changèrent d'avis et mobilisèrent leurs élites pour tenter de rafler une place!
 
 Simultanément, les deux familles de culture annoncèrent que les 36 Gardiens Célestes pourraient formuler une requête, et que le Temple ainsi que les deux familles feraient leur possible pour l'exaucer!
 
-La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire Luotian, permettant au Temple Céleste du Tonnerre de rassembler toute la puissance du système.
+La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire de Luotian, permettant au Temple Céleste du Tonnerre de rassembler toute la puissance du système.
 
-Mais alors, la famille de culture la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire Luotian et porta la détermination des cultivateurs à son comble!
+Mais alors, la famille de culture la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire de Luotian et porta la détermination des cultivateurs à son comble!
 
 L'attribution des titres célestes pouvait presque être comparée à la véritable attribution de titres du Royaume Céleste!
 
@@ -72,7 +72,7 @@ Peu importe la puissance d'un sort céleste, il existait une limite lorsqu'il é
 
 La tempête s'était levée, la flamme de la guerre était allumée, et tous attendaient l'ouverture du passage!
 
-Alors que la tempête des préparatifs et les flammes de la guerre se propageaient à travers le Système Stellaire Luotian, une autre nouvelle choquante se répandit dans le système!
+Alors que la tempête des préparatifs et les flammes de la guerre se propageaient à travers le Système Stellaire de Luotian, une autre nouvelle choquante se répandit dans le système!
 
 La famille Yao, qui se situait juste en dessous des deux familles de culture antiques, venait d'émettre un Ordre Céleste!
 
@@ -80,7 +80,7 @@ Lorsque l'Ordre Céleste apparaît, le massacre est imminent! La famille Yao ét
 
 Au cours des innombrables années depuis l'effondrement du Royaume Céleste, la famille Yao n'avait émis son Ordre Céleste que trois fois! Et chaque fois, un bain de sang en résultait, et le massacre ne cessait qu'une fois la cible morte!
 
-À cet instant précis, alors qu'un tumulte régnait dans le Système Stellaire Luotian, le quatrième Ordre Céleste de la famille Yao fut publié!
+À cet instant précis, alors qu'un tumulte régnait dans le Système Stellaire de Luotian, le quatrième Ordre Céleste de la famille Yao fut publié!
 
 Cette fois, un seul nom figurait sur l'ordre:
 
@@ -90,7 +90,7 @@ Ce nom n'était pas seulement connu, il était extrêmement célèbre! Parmi tou
 
 Les personnes sauvées par Xu Mu et leurs familles étaient ses plus fervents partisans. En particulier, ceux qu'il avait secourus témoignaient de leur respect et de leur gratitude envers lui dès qu'on prononçait son nom.
 
-La popularité de Xu Mu explosa progressivement, faisant de lui l'un des rares individus célèbres dans les quatre domaines du Système Stellaire Luotian.
+La popularité de Xu Mu explosa progressivement, faisant de lui l'un des rares individus célèbres dans les quatre domaines du Système Stellaire de Luotian.
 
 Et à cet instant, l'Ordre Céleste de la famille Yao ne portait qu'un seul nom. Il était évident que la famille Yao voulait la mort de Xu Mu!
 
@@ -98,7 +98,7 @@ Peu importe la force de Xu Mu, rares étaient ceux qui croyaient qu'il pourrait 
 
 Seuls quelques privilégiés, comme Shengong Hu et Zhan Konglie, ricanèrent. À leurs yeux, la famille Yao n'avait pas les qualifications pour affronter leur seigneur!
 
-La famille Yao avait déployé un nombre immense de membres et de familles alliées à travers le Système Stellaire Luotian, tel un filet, pour s'assurer de débusquer Xu Mu!
+La famille Yao avait déployé un nombre immense de membres et de familles alliées à travers le Système Stellaire de Luotian, tel un filet, pour s'assurer de débusquer Xu Mu!
 
 Tandis que les préparatifs pour les titres célestes avançaient, la traque de Xu Mu par la famille Yao atteignait un sommet sans précédent!
 
@@ -106,7 +106,7 @@ L'apparition de l'Ordre Céleste et cette chasse à outrance firent grimper enco
 
 Même les personnes sauvées par Wang Lin restèrent silencieuses. Ce n'était pas qu'ils ne voulaient pas aider, mais ils avaient tous leurs propres familles et ne pouvaient rien contre la famille Yao!
 
-Pourtant, malgré les recherches de la famille Yao, Xu Mu avait disparu. Personne ne pouvait le trouver, comme s'il s'était volatilisé du Système Stellaire Luotian.
+Pourtant, malgré les recherches de la famille Yao, Xu Mu avait disparu. Personne ne pouvait le trouver, comme s'il s'était volatilisé du Système Stellaire de Luotian.
 
 À ce moment-là, Wang Lin volait à travers le Domaine Étrange. Seule une brume grise se dressait devant lui, mais cela ne l'arrêtait nullement.
 
@@ -134,17 +134,17 @@ Wang Lin réfléchissait en silence tout en enveloppant les femmes et les enfant
 
 Ce jour-là, la brume devant eux se dissipa et Wang Lin s'élança. Les membres du Clan des Immortels Élus suivirent un à un. Ce qui apparut devant eux fut un ciel étoilé éclatant!
 
-Domaine Ouest du Système Stellaire Luotian!
+Domaine Ouest du Système Stellaire de Luotian!
 
 En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Royaume Céleste du Tonnerre, il avait été transféré dans la Bête des Limbes. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
 
-« Système Stellaire Luotian, je suis de retour! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
+« Système Stellaire de Luotian, je suis de retour! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
 
 Wang Lin regarda les membres du Clan des Immortels Élus.
 
-« Voici le Système Stellaire Luotian, sous le Royaume Céleste du Tonnerre. Puisque vous êtes arrivés ici, vous êtes libres! »
+« Voici le Système Stellaire de Luotian, sous le Royaume Céleste du Tonnerre. Puisque vous êtes arrivés ici, vous êtes libres! »
 
-L'ancêtre du Clan des Immortels Élus garda le silence un instant, puis leva les yeux vers Wang Lin: « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de culture qui pourrait nous abriter temporairement? Une fois que nous aurons pris nos marques dans ce Système Stellaire Luotian, nous partirons sans faute! »
+L'ancêtre du Clan des Immortels Élus garda le silence un instant, puis leva les yeux vers Wang Lin: « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de culture qui pourrait nous abriter temporairement? Une fois que nous aurons pris nos marques dans ce Système Stellaire de Luotian, nous partirons sans faute! »
 
 Wang Lin réfléchit brièvement et hocha la tête. La planète Qing Ling était très vaste et pouvait accueillir les membres du clan.
 

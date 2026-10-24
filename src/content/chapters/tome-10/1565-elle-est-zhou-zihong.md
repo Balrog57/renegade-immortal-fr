@@ -48,7 +48,7 @@ Il était Treize, le loyal et impitoyable Treize!
 
 Personne n'avait remarqué l'entrée du jeune homme en blanc. Toute l'attention était captée par la femme en violet.
 
-« Par la suite, j'ai entendu dire qu'il avait sauvé Li Muwan et que, poursuivi par un cultivateur de la Formation du Noyau, il s'était enfoncé dans un lieu extrêmement dangereux sur la planète Suzaku... On l'appelait... la Mer des Diables. » La voix de la femme en violet résonnait tandis qu'elle exhumait le passé.
+« Par la suite, j'ai entendu dire qu'il avait sauvé Li Muwan et que, poursuivi par un cultivateur de la Formation du Noyau, il s'était enfoncé dans un lieu extrêmement dangereux sur la planète Suzaku... On l'appelait... la Mer des Démons. » La voix de la femme en violet résonnait tandis qu'elle exhumait le passé.
 
 En écoutant le récit, Wang Lin saisit une coupe et but une gorgée. Ses yeux étaient empreints de souvenirs et un léger sourire étira ses lèvres. Il se remémora Li Muwan traquée par ce cultivateur de la Formation du Noyau, son regard impuissant et ses appels à l'aide.
 

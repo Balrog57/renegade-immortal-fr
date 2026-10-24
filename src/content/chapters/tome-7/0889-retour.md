@@ -108,7 +108,7 @@ Quant au garçon à la grosse tête, son esprit vacillait tandis qu'il fixait la
 
 « Je ne peux vraiment pas provoquer Xu Mu pour une simple planète de culture abandonnée. Cependant, cette statue de Xu Mu semble exister depuis des centaines d'années... »
 
-« Ce Xu Mu n'appartient pas au Système Stellaire Luotian!! Il est un cultivateur du Système Stellaire Alliance, c'est forcément ça! » Le cœur du garçon battait la chamade. Il avait le sentiment de tenir un immense secret. Grâce à cela, il pourrait ruiner Xu Mu et peut-être même causer sa perte!
+« Ce Xu Mu n'appartient pas au Système Stellaire de Luotian!! Il est un cultivateur du Système Stellaire de l'Alliance, c'est forcément ça! » Le cœur du garçon battait la chamade. Il avait le sentiment de tenir un immense secret. Grâce à cela, il pourrait ruiner Xu Mu et peut-être même causer sa perte!
 
 Le garçon à la grosse tête éclata d'un rire fou, puis ses yeux brillèrent et il fit un pas en avant. Arrivé près de la statue, il leva la main et frappa impitoyablement en criant: « Brise-toi! » Il n'osait pas affronter Xu Mu directement et ne pouvait faire cela que pour évacuer sa frustration.
 

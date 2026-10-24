@@ -34,7 +34,7 @@ Le vieux cultivateur rit et dit: « Tu es un petit gars intéressant. Pourquoi p
 
 Wang Lin répondit calmement: « Junior s'est rendu dans les Terres des Esprits Démoniaques et y a vu une peinture contenant l'image de Senior. »
 
-Le vieux cultivateur réfléchit un instant avant de sourire. « Petit gars, on ne peut pas appeler n'importe qui "maître de secte". Le digne Céleste du Tonnerre du Système Stellaire Luotian, Xu Mu... Quand ai-je eu un tel disciple? »
+Le vieux cultivateur réfléchit un instant avant de sourire. « Petit gars, on ne peut pas appeler n'importe qui "maître de secte". Le digne Céleste du Tonnerre du Système Stellaire de Luotian, Xu Mu... Quand ai-je eu un tel disciple? »
 
 L'esprit de Wang Lin trembla, mais son expression demeura imperturbable. Il dit: « Junior s'est trompé de personne. »
 
@@ -52,11 +52,11 @@ Il regarda le vieux cultivateur et dit calmement: « La Secte Heng Yue était la
 
 « Diverses circonstances m'ont forcé dans cette situation! » Wang Lin fixa le vieux cultivateur avec un regard limpide.
 
-Le regard du vieil homme semblait pouvoir transpercer le cœur de Wang Lin. Après un long moment, son expression s'adoucit: « Ce vieil homme se moque de ton identité dans le Système Stellaire Luotian ou du nombre de sectes que tu rejoins. La seule chose dont tu dois te souvenir est que, bien que tu sois un cultivateur du Système Stellaire de l'Alliance, tu es un enfant de la planète Suzaku! Tu es un disciple de la Branche de l'Oiseau Vermillon des Quatre Sectes Divines! Tant que tu t'en souviendras, je serai toujours ton maître de secte! »
+Le regard du vieil homme semblait pouvoir transpercer le cœur de Wang Lin. Après un long moment, son expression s'adoucit: « Ce vieil homme se moque de ton identité dans le Système Stellaire de Luotian ou du nombre de sectes que tu rejoins. La seule chose dont tu dois te souvenir est que, bien que tu sois un cultivateur du Système Stellaire de l'Alliance, tu es un enfant de la planète Suzaku! Tu es un disciple de la Branche de l'Oiseau Vermillon des Quatre Sectes Divines! Tant que tu t'en souviendras, je serai toujours ton maître de secte! »
 
 Wang Lin hocha la tête, le visage serein.
 
-« Cette guerre contre le Système Stellaire Luotian est la bataille de l'Alliance de la Culture. Elle n'a rien à voir avec mes Quatre Sectes Divines! » lança le vieux cultivateur avec une désinvolture apparente.
+« Cette guerre contre le Système Stellaire de Luotian est la bataille de l'Alliance de la Culture. Elle n'a rien à voir avec mes Quatre Sectes Divines! » lança le vieux cultivateur avec une désinvolture apparente.
 
 L'expression de Wang Lin changea alors qu'il fixait l'homme.
 

@@ -98,11 +98,11 @@ Simultanément, les informations sur le Serpent aux yeux de lune transmises par 
 
 « Une fois qu'un Ancien Dieu meurt, le parasite meurt également. Cependant, il existe une chance rare que le Serpent aux yeux de lune survive et parvienne à quitter le corps de l'Ancien Dieu. Plus l'Ancien Dieu est puissant, plus le Serpent aux yeux de lune l'est aussi. »
 
-« Tous les Serpents aux yeux de lune à l'intérieur de l'Ancien Dieu Tu Si sont morts, c'est pourquoi ils n'étaient pas apparus. Pourtant, un Serpent aux yeux de lune est ici. Se pourrait-il... se pourrait-il que cet endroit abrite les restes d'un Ancien Dieu!? Mais si c'est le cas, cela n'a aucun sens. Comment se fait-il que personne dans le Système Stellaire Luotian ne l'ait reconnu? Si un puissant cultivateur voyait cette créature, il ne la laisserait pas s'échapper si facilement. »
+« Tous les Serpents aux yeux de lune à l'intérieur de l'Ancien Dieu Tu Si sont morts, c'est pourquoi ils n'étaient pas apparus. Pourtant, un Serpent aux yeux de lune est ici. Se pourrait-il... se pourrait-il que cet endroit abrite les restes d'un Ancien Dieu!? Mais si c'est le cas, cela n'a aucun sens. Comment se fait-il que personne dans le Système Stellaire de Luotian ne l'ait reconnu? Si un puissant cultivateur voyait cette créature, il ne la laisserait pas s'échapper si facilement. »
 
 Wang Lin, tapi dans une fissure du sol, observait le nuage rouge dans le ciel. Le corps gigantesque du Serpent aux yeux de lune s'éloignant progressivement, il commença à réfléchir en silence.
 
-Au même moment, sur une planète de culture d'apparence très ordinaire du Système Stellaire Alliance, deux femmes vêtues d'habits colorés pénétrèrent dans la capitale d'un pays mortel.
+Au même moment, sur une planète de culture d'apparence très ordinaire du Système Stellaire de l'Alliance, deux femmes vêtues d'habits colorés pénétrèrent dans la capitale d'un pays mortel.
 
 Chacune des femmes avait une sphère de lumière éclatante flottant au-dessus de sa main droite. Ces sphères dégageaient une puissante aura meurtrière.
 
@@ -112,7 +112,7 @@ Une malédiction jaillit de la capitale, suivie par un homme vêtu de pourpre qu
 
 « Situ Nan, le Maître de Secte a déjà donné l'ordre! Tu es recherché sur la planète Luanfeng et sur toutes les planètes sous sa juridiction. Tu ne pourras pas t'échapper! »
 
-Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à cette salope que si elle continue de harceler ce vieil homme, je graverai la scène de ses avances sur cent mille pierres de jade et je les disperserai dans tout le Système Stellaire Alliance! Bon sang, me pourchasser pendant près d'un siècle... c'est exaspérant! »
+Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à cette salope que si elle continue de harceler ce vieil homme, je graverai la scène de ses avances sur cent mille pierres de jade et je les disperserai dans tout le Système Stellaire de l'Alliance! Bon sang, me pourchasser pendant près d'un siècle... c'est exaspérant! »
 
 « Hmph! » Les deux femmes fusionnèrent immédiatement les deux sphères de lumière qu'elles tenaient. Les globes se fondirent instantanément pour prendre la forme d'une femme extrêmement séduisante.
 
@@ -120,6 +120,6 @@ Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à
 
 Situ Nan poussa un cri étrange; une flamme sembla brûler en lui alors qu'il s'élançait pour fuir. Bien qu'il ait chargé, il cracha une large bouchée de sang et son visage devint instantanément livide.
 
-« Salope, attends un peu! Ce vieil homme fera en sorte que tous les cultivateurs et mortels du Système Stellaire Alliance voient ton comportement de séductrice! Je te rendrai très célèbre dans tout le Système Stellaire Alliance! Ce vieil homme tiendra sa promesse! » Situ Nan cracha une autre bouchée de sang et s'enfuit comme un dément.
+« Salope, attends un peu! Ce vieil homme fera en sorte que tous les cultivateurs et mortels du Système Stellaire de l'Alliance voient ton comportement de séductrice! Je te rendrai très célèbre dans tout le Système Stellaire de l'Alliance! Ce vieil homme tiendra sa promesse! » Situ Nan cracha une autre bouchée de sang et s'enfuit comme un dément.
 
 « Au pire, je n'aurai qu'à retourner en culture en isolement, tu n'as qu'à attendre! » Les yeux de Situ Nan étaient injectés de sang. Sa décision était prise: il retournerait en culture en isolement. S'il ne parvenait pas au stade du Scruteur du Nirvana, il ne ressortirait pas!

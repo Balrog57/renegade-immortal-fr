@@ -6,11 +6,11 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 191 - Dead Soul Sea
 slug: la-mer-des-ames-mortes
 ---
-La Mer de Connaissance Zifu qui se dressait devant Wang Lin ressemblait à une immense sphère, d'une taille impossible à estimer, clairement divisée en deux: l'une d'un rouge sanglant, l'autre d'un gris-noir.
+La Mer de la Connaissance Zifu qui se dressait devant Wang Lin ressemblait à une immense sphère, d'une taille impossible à estimer, clairement divisée en deux: l'une d'un rouge sanglant, l'autre d'un gris-noir.
 
 La moitié rouge devait être la Mer de Sang, et la partie noire, la Mer des Âmes Mortes.
 
-En contemplant cette étrange sphère, un souvenir revint à Wang Lin. À l'époque, le combat entre l'homme aux cheveux roux et les restes de l'âme du Dieu Ancien avait été cataclysmique. Ils s'étaient battus à mort, utilisant le corps du Dieu Ancien comme champ de bataille. En fin de compte, le Dieu Ancien Tu Si avait perdu parce qu'il était déjà mort et n'était plus qu'une fraction d'âme, mais il avait divisé sa Mer de Connaissance en deux: la Mer des Âmes Mortes pour empêcher quiconque de s'emparer de l'héritage de connaissance, et la Mer de Sang, conçue pour piéger l'homme aux cheveux roux.
+En contemplant cette étrange sphère, un souvenir revint à Wang Lin. À l'époque, le combat entre l'homme aux cheveux roux et les restes de l'âme du Dieu Ancien avait été cataclysmique. Ils s'étaient battus à mort, utilisant le corps du Dieu Ancien comme champ de bataille. En fin de compte, le Dieu Ancien Tu Si avait perdu parce qu'il était déjà mort et n'était plus qu'une fraction d'âme, mais il avait divisé sa Mer de la Connaissance en deux: la Mer des Âmes Mortes pour empêcher quiconque de s'emparer de l'héritage de connaissance, et la Mer de Sang, conçue pour piéger l'homme aux cheveux roux.
 
 Témoin de cette scène, il admirait profondément le maître du Seigneur Démon des Six Désirs, le Magicien Démon Céleste. Cet homme était un génie pour avoir pensé à utiliser le désir du Dieu Ancien, guidé par un os divin, et, par une voie audacieuse et détournée, avoir ouvert en plusieurs milliers d'années un passage temporaire vers la Mer des Âmes Mortes.
 
@@ -108,7 +108,7 @@ Dans cet espace, Wang Lin observa Situ Nan et ses parents, puis s'assit en taill
 
 Wang Lin décida que, sauf en dernier recours, il ne chercherait pas l'homme aux cheveux roux pour ouvrir la Mer des Âmes Mortes. Désormais doté de la Tactique du Dieu Ancien et de nombreux trésors pour soutenir sa culture, il choisit de s'enfermer dans une méditation intensive afin de tenter d'atteindre le stade de l'Âme Naissante.
 
-Il prit une profonde inspiration, ferma les yeux et concentra son Sens Divin sur les trois grands caractères issus de l'héritage de connaissance du Dieu Ancien dans sa Mer de Connaissance. Graduellement, des techniques complexes se déployèrent dans son cœur.
+Il prit une profonde inspiration, ferma les yeux et concentra son Sens Divin sur les trois grands caractères issus de l'héritage de connaissance du Dieu Ancien dans sa Mer de la Connaissance. Graduellement, des techniques complexes se déployèrent dans son cœur.
 
 La première couche de la Tactique du Dieu Ancien comportait trois étapes: le vol d'énergie spirituelle, l'engloutissement de l'énergie spirituelle et la fusion de l'énergie spirituelle.
 
@@ -168,13 +168,13 @@ Après réflexion, Wang Lin soupira. Il se demanda si les autres éprouvaient au
 
 Ses réserves de pilules s'amenuisaient et son énergie spirituelle liquide était presque épuisée. Après un moment de silence, il se leva et rejoignit Situ Nan et ses parents. Il se prosterna lourdement plusieurs fois devant ses parents, resta un instant hébété, puis, posant son doigt sur son front, quitta l'espace de la Perle Défiant le Ciel.
 
-À l'extérieur de la Mer de Connaissance, le corps de Wang Lin passa d'une forme illusoire à une consistance de plus en plus solide. Il fixa la Mer de Connaissance et soupira. Selon ses plans initiaux, s'il atteignait le stade de l'Âme Naissante, il aurait une chance d'entrer dans la Mer des Âmes Mortes. Peut-être que, grâce à l'héritage de mémoire, il pourrait enfin quitter le corps du Dieu Ancien dès son entrée.
+À l'extérieur de la Mer de la Connaissance, le corps de Wang Lin passa d'une forme illusoire à une consistance de plus en plus solide. Il fixa la Mer de la Connaissance et soupira. Selon ses plans initiaux, s'il atteignait le stade de l'Âme Naissante, il aurait une chance d'entrer dans la Mer des Âmes Mortes. Peut-être que, grâce à l'héritage de mémoire, il pourrait enfin quitter le corps du Dieu Ancien dès son entrée.
 
 Mais pour l'instant, il manquait de certitude.
 
 Après un moment de réflexion, Wang Lin leva la tête, un regard froid dans les yeux. Il ne restait plus qu'une voie. S'il refusait d'être piégé ici, condamné à fuir éternellement les cultivateurs démoniaques, il n'avait qu'un choix.
 
-Sa main droite déchira le vide, créant une faille dans laquelle il s'engouffra. Il ressortit de là pour quitter la Mer de Connaissance et réapparaître quelque part entre le Point Ancestral et la Mer de Qi.
+Sa main droite déchira le vide, créant une faille dans laquelle il s'engouffra. Il ressortit de là pour quitter la Mer de la Connaissance et réapparaître quelque part entre le Point Ancestral et la Mer de Qi.
 
 Une fois apparu, il hésita un instant. Ses mains formèrent des sceaux et projetèrent plusieurs traits de lumière spirituelle tout autour de lui, faisant discrètement apparaître des fissures. Puis il déploya résolument son Sens Divin. Immédiatement, les cultivateurs démoniaques qui le traquaient ressentirent sa présence et chargèrent vers lui.
 

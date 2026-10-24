@@ -70,15 +70,15 @@ Le Maître Yan Leizi esquissa un sourire et dit lentement: « Je ne pensais pas 
 
 L'homme en violet renifla mais ne reprit pas la parole.
 
-« C'est fou, certes, mais si les cultivateurs du Système Stellaire Luotian entrent en guerre contre le Système Stellaire de l'Alliance, ils auront besoin d'une puissance suffisante, sans quoi ils n'auront aucune chance! »
+« C'est fou, certes, mais si les cultivateurs du Système Stellaire de Luotian entrent en guerre contre le Système Stellaire de l'Alliance, ils auront besoin d'une puissance suffisante, sans quoi ils n'auront aucune chance! »
 
-« Trop peu de cultivateurs du Système Stellaire Luotian ont connu des affrontements entre la vie et la mort. C'est le revers de la culture basée sur les clans familiaux. Dans le Système Stellaire de l'Alliance, on doit souvent se méfier des autres, même de ses propres compagnons de secte. La moindre négligence conduit à la mort. Cet environnement a rendu ceux qui en sont sortis extrêmement féroces et rusés! »
+« Trop peu de cultivateurs du Système Stellaire de Luotian ont connu des affrontements entre la vie et la mort. C'est le revers de la culture basée sur les clans familiaux. Dans le Système Stellaire de l'Alliance, on doit souvent se méfier des autres, même de ses propres compagnons de secte. La moindre négligence conduit à la mort. Cet environnement a rendu ceux qui en sont sortis extrêmement féroces et rusés! »
 
 « En observant simplement Xu Mu, vous devriez mieux comprendre que je ne saurais l'expliquer! »
 
 L'homme d'âge moyen en violet réfléchit. L'homme en rouge sourit: « Ce Xu Mu est excellent. Il est tout à fait apte à devenir un sujet de ma planète Dong Lin! »
 
-Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 Célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire Luotian! »
+Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 Célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire de Luotian! »
 
 « De ce point de vue, il semble que le vieux Xue Shenzi soit le plus décisif. Pour que sa famille puisse s'adapter à la guerre sanglante du Système Stellaire de l'Alliance, il a été prêt à sacrifier ce trésor afin de permettre aux siens de subir ce baptême! » L'homme en rouge nommé Xiang sourit.
 
@@ -92,7 +92,7 @@ L'homme en violet le regarda froidement, puis détourna les yeux sans poser dava
 
 Le Maître Yan Leizi renifla avec mépris et pensa: « Durant cette période, j'ai enquêté sur les origines de ce Xu Mu. Il est traqué et a été contraint de fuir ici, une situation très similaire à la mienne. Avec son tempérament, les chances qu'il nous trahisse sont infimes. Et s'il le faisait, je n'aurais qu'à le tuer. Nul besoin que vous me fassiez la leçon! Qui se soucie d'une famille héritière de l'ancien temps? Vous ne méritez même pas mon attention! »
 
-« Peu importe, puisque le Maître Yan Leizi est confiant, n'en parlons plus. Il est temps pour nous d'agir contre cette bête! Après tout, si trop de personnes meurent, ce sera une perte pour notre Système Stellaire Luotian. Réfléchissons maintenant à la manière de la contrôler! » L'homme en rouge nommé Xiang regarda au loin, comme si son regard pouvait percer l'horizon à des dizaines de milliers de kilomètres.
+« Peu importe, puisque le Maître Yan Leizi est confiant, n'en parlons plus. Il est temps pour nous d'agir contre cette bête! Après tout, si trop de personnes meurent, ce sera une perte pour notre Système Stellaire de Luotian. Réfléchissons maintenant à la manière de la contrôler! » L'homme en rouge nommé Xiang regarda au loin, comme si son regard pouvait percer l'horizon à des dizaines de milliers de kilomètres.
 
 « Ce n'est pas difficile. En unissant nos forces et avec l'aide de ces vieux monstres, une fois le passage ouvert, nous pourrons certainement la précipiter dans le Système Stellaire de l'Alliance. À ce moment-là... » Le regard du Maître Yan Leizi devint frénétique tandis que son corps vacilla et disparut. Les deux autres disparurent également.
 
