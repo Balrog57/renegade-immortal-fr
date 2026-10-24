@@ -6,25 +6,25 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1994 - Ancestral Curse!"
 slug: malediction-ancestrale
 ---
-Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela: « Ce plan a été conçu par le génie du clan Dao Wang, et il est en marche depuis des générations. Il m'a aidé à devenir un Grand Empyréen en échange de mon aide.
+Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela: « Ce plan a été conçu par le génie du Clan Dao Wang, et il est en marche depuis des générations. Il m'a aidé à devenir un Grand Empyréen en échange de mon aide.
 
 « Lorsque le précédent Empereur Céleste est décédé, et que vous avez pris le trône, l'ancien Maître Impérial m'a trouvé. Selon le plan, nous nous sommes mariés et avons eu une fille.
 
-« Cette petite fille possède un corps issu du Continent Astral Immortel, mais l'âme du clan Dao Wang... À l'origine, cela ne pouvait se produire sous le sceau de l'Ancêtre Céleste, car la puissance du sceau était trop grande!
+« Cette petite fille possède un corps issu du Continent Astral Immortel, mais l'âme du Clan Dao Wang... À l'origine, cela ne pouvait se produire sous le sceau de l'Ancêtre Céleste, car la puissance du sceau était trop grande!
 
-« Cependant, à ce moment-là, l'Ancêtre Céleste était mort depuis de nombreuses années et le sceau s'affaiblissait. Le génie du clan Dao Wang a alors élaboré un plan qui, pour réussir, exigeait que l'ensemble du clan Dao Wang sacrifie ses âmes pour lutter contre la puissance du sceau.
+« Cependant, à ce moment-là, l'Ancêtre Céleste était mort depuis de nombreuses années et le sceau s'affaiblissait. Le génie du Clan Dao Wang a alors élaboré un plan qui, pour réussir, exigeait que l'ensemble du Clan Dao Wang sacrifie ses âmes pour lutter contre la puissance du sceau.
 
-« Depuis lors, le nombre de membres du clan Dao Wang n'a cessé de diminuer à cause de cela. Jusqu'à cette génération, où seuls deux membres subsistaient... Pendant d'innombrables années, les membres décédés du clan Dao Wang ont utilisé leurs méthodes uniques pour placer leurs âmes à l'intérieur de Hai Zi, protégeant ainsi son âme.
+« Depuis lors, le nombre de membres du Clan Dao Wang n'a cessé de diminuer à cause de cela. Jusqu'à cette génération, où seuls deux membres subsistaient... Pendant d'innombrables années, les membres décédés du Clan Dao Wang ont utilisé leurs méthodes uniques pour placer leurs âmes à l'intérieur de Hai Zi, protégeant ainsi son âme.
 
-« Si elle peut quitter la cité ancestrale sans mourir, c'est grâce à son corps, mais aussi grâce à la protection des âmes de tous les membres du clan Dao Wang...
+« Si elle peut quitter la cité ancestrale sans mourir, c'est grâce à son corps, mais aussi grâce à la protection des âmes de tous les membres du Clan Dao Wang...
 
-« Tout le clan Dao Wang a passé d'innombrables années à accomplir ce plan sur le corps de Hai Zi, et elle est la seule capable de le mener à bien. » Jiu Di regarda calmement l'Empereur Céleste en révélant ainsi la vérité.
+« Tout le Clan Dao Wang a passé d'innombrables années à accomplir ce plan sur le corps de Hai Zi, et elle est la seule capable de le mener à bien. » Jiu Di regarda calmement l'Empereur Céleste en révélant ainsi la vérité.
 
-« Parce qu'elle est votre fille, vous pouvez l'aider sans réserve! Vous pourriez même devenir le parrain du clan Dao Wang et obtenir les Flammes Joss que seul l'Ancêtre Céleste était éligible pour posséder... Le clan Dao Wang a réellement payé un tel prix pour lever le sceau... » L'Empereur Céleste laissa échapper un soupir, affichant une expression complexe.
+« Parce qu'elle est votre fille, vous pouvez l'aider sans réserve! Vous pourriez même devenir le parrain du Clan Dao Wang et obtenir les Flammes Joss que seul l'Ancêtre Céleste était éligible pour posséder... Le Clan Dao Wang a réellement payé un tel prix pour lever le sceau... » L'Empereur Céleste laissa échapper un soupir, affichant une expression complexe.
 
-« Outre Hai Zi, le dernier membre du clan Dao Wang était le Maître Impérial qui vient de mourir... En réalité, vous n'auriez pas été obligé de lever le sceau sur le clan Dao Wang, mais l'ancêtre du clan avait déjà diviné vos actions. Il savait votre désir d'hériter de la puissance de l'Ancêtre Céleste et qu'en faisant face à la pression des quatre Grands Empyréens, vous n'abandonneriez pas, mais choisiriez de combattre!
+« Outre Hai Zi, le dernier membre du Clan Dao Wang était le Maître Impérial qui vient de mourir... En réalité, vous n'auriez pas été obligé de lever le sceau sur le Clan Dao Wang, mais l'ancêtre du clan avait déjà diviné vos actions. Il savait votre désir d'hériter de la puissance de l'Ancêtre Céleste et qu'en faisant face à la pression des quatre Grands Empyréens, vous n'abandonneriez pas, mais choisiriez de combattre!
 
-« La clé de ce plan résidait dans le pouvoir de scellement du clan Dao Wang logé dans la tête de l'Ancêtre Céleste. Une personne pouvant être possédée devait être absorbée dans la tête de l'Ancêtre Céleste.
+« La clé de ce plan résidait dans le pouvoir de scellement du Clan Dao Wang logé dans la tête de l'Ancêtre Céleste. Une personne pouvant être possédée devait être absorbée dans la tête de l'Ancêtre Céleste.
 
 « Par conséquent, Wang Lin était crucial! »
 
@@ -34,7 +34,7 @@ L'Empereur Céleste resta silencieux un instant, songeant à ces révélations. 
 
 « Non! » La personne qui parla n'était pas Jiu Di, mais Hai Zi. L'actuelle Hai Zi était radicalement différente de celle d'autrefois; elle dégageait une aura mystérieuse et fixa calmement l'Empereur Céleste.
 
-« Si vous aviez renoncé à l'héritage de la culture de l'Ancêtre Céleste, l'embuscade que mon clan Dao Wang avait préparée se serait déclenchée! Tous les temples spirituels des 72 continents obéissent à mon clan!
+« Si vous aviez renoncé à l'héritage de la culture de l'Ancêtre Céleste, l'embuscade que mon Clan Dao Wang avait préparée se serait déclenchée! Tous les temples spirituels des 72 continents obéissent à mon clan!
 
 « Tous les temples sont prêts à réveiller les esprits scellés dans leurs continents respectifs. Au prix de leur éveil, la force qui retient la tête de l'Ancêtre Céleste en ces lieux serait ébranlée, et alors seul l'Ancêtre Céleste lui-même pourrait la contenir. Vous auriez été contraint d'hériter de sa puissance, sous peine de voir tout le clan céleste sombrer dans le chaos! Et une fois que vous auriez tenté d'absorber ce pouvoir, vous auriez dû lever le sceau sur mon clan! » parla doucement Hai Zi.
 
@@ -44,7 +44,7 @@ Hai Zi acquiesça.
 
 « Dao Yi, Wu Feng, je présume que vous deux étiez au courant? » Le regard de l'Empereur Céleste se tourna vers eux.
 
-Dao Yi fronça les sourcils et déclara lentement: « Le Grand Empyréen Jiu Di est venu me voir, sans rien me cacher, pour m'exposer le plan du clan Dao Wang. Mais je ne savais rien de ce Wang Lin. Je viens à peine de découvrir qu'il était un élément clé de son projet! »
+Dao Yi fronça les sourcils et déclara lentement: « Le Grand Empyréen Jiu Di est venu me voir, sans rien me cacher, pour m'exposer le plan du Clan Dao Wang. Mais je ne savais rien de ce Wang Lin. Je viens à peine de découvrir qu'il était un élément clé de son projet! »
 
 Wu Feng réfléchit en silence avant d'acquiescer.
 
@@ -58,21 +58,21 @@ Le corps originel du Grand Empyréen Shuangzi resta impassible, comme indiffére
 
 Les yeux de l'Empereur Céleste s'illuminèrent. « Wang Lin... Wang Lin... Puisque le Maître Impérial a réussi à le posséder, alors il est mort! Je suppose que vous l'avez tous observé lorsqu'il était dans le monde des grottes! »
 
-« L'ancêtre du clan Dao Wang n'avait diviné qu'une période approximative où quelqu'un sortirait d'un monde de grottes. Il ne pouvait prédire ni l'identité de cette personne, ni le monde concerné. Nous ne pouvions qu'attendre. » Jiu Di secoua la tête.
+« L'ancêtre du Clan Dao Wang n'avait diviné qu'une période approximative où quelqu'un sortirait d'un monde de grottes. Il ne pouvait prédire ni l'identité de cette personne, ni le monde concerné. Nous ne pouvions qu'attendre. » Jiu Di secoua la tête.
 
-« Le génie du clan Dao Wang a créé la Secte de la Grande Âme sur le Continent du Taureau Céleste car la divination prédisait que Wang Lin y apparaîtrait. Ainsi, la première étape consistait à entrer en contact avec lui! » L'Empereur Céleste était perspicace et identifia immédiatement l'essentiel.
+« Le génie du Clan Dao Wang a créé la Secte de la Grande Âme sur le Continent du Taureau Céleste car la divination prédisait que Wang Lin y apparaîtrait. Ainsi, la première étape consistait à entrer en contact avec lui! » L'Empereur Céleste était perspicace et identifia immédiatement l'essentiel.
 
-L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre: « Cependant, je me demande si l'ancêtre de la Secte de la Grande Âme savait que ce Wang Lin mourrait ici même, dans ce palais interdit, en guise de prix pour la levée du sceau du clan Dao Wang.
+L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre: « Cependant, je me demande si l'ancêtre de la Secte de la Grande Âme savait que ce Wang Lin mourrait ici même, dans ce palais interdit, en guise de prix pour la levée du sceau du Clan Dao Wang.
 
 « Jiu Di, vous avez utilisé Wang Lin pour attirer le Grand Empyréen Shuangzi ici. Autrement, à vous trois seuls, vous n'auriez pas eu assez de puissance pour me contraindre à tenter d'absorber la force de l'Ancêtre Céleste!
 
-« Vous avez aussi utilisé l'Ascendant Empyréen Ming Dao, Lian Daofei, moi-même et les 72 esprits scellés! Je ne crois pas que vous ayez fait tout cela uniquement pour le clan Dao Wang, même si elle est votre fille!
+« Vous avez aussi utilisé l'Ascendant Empyréen Ming Dao, Lian Daofei, moi-même et les 72 esprits scellés! Je ne crois pas que vous ayez fait tout cela uniquement pour le Clan Dao Wang, même si elle est votre fille!
 
 « Et vous deux, Dao Yi et Wu Feng. Pour que vous acceptiez de venir, Jiu Di a dû vous promettre d'immenses bénéfices. Vous êtes venus par intérêt personnel!
 
 « La raison pour laquelle vous me dites la vérité est de me faire prendre conscience de ma situation. Vous avez tous besoin de quelque chose qui requiert ma coopération!
 
-« Seule Shuangzi n'a rien obtenu et a été utilisée par Jiu Di et le clan Dao Wang! » L'Empereur Céleste continuait de lutter, utilisant ses paroles pour tenter d'obtenir le soutien de Shuangzi.
+« Seule Shuangzi n'a rien obtenu et a été utilisée par Jiu Di et le Clan Dao Wang! » L'Empereur Céleste continuait de lutter, utilisant ses paroles pour tenter d'obtenir le soutien de Shuangzi.
 
 Shuangzi réfléchit en silence. Comment ne pas avoir percé à jour leurs intentions après la fusion?
 
@@ -104,7 +104,7 @@ Au sol, à l'intérieur de l'œil droit terne de la tête de l'Ancêtre Céleste
 
 « Le Très Respecté Taureau Vert de la Secte de la Grande Âme m'a dit de revenir dans 300 ans pour monter au dernier étage... Le fondateur de la Secte de la Grande Âme m'a laissé quelque chose...
 
-« L'ancêtre de la Secte de la Grande Âme, le génie du clan Dao Wang. Après m'avoir utilisé pour lever le sceau sur leur clan, que me laissera-t-il... » Wang Lin affichait une expression complexe.
+« L'ancêtre de la Secte de la Grande Âme, le génie du Clan Dao Wang. Après m'avoir utilisé pour lever le sceau sur leur clan, que me laissera-t-il... » Wang Lin affichait une expression complexe.
 
 « Il est apparu sur le Continent du Taureau Céleste et a fondé la Secte de la Grande Âme juste pour m'attendre... Peut-être devais-je mourir selon ses plans... Mais s'il avait diviné ma mort au palais, pourquoi me laisser un présent dans le pavillon, et pourquoi attendre 300 ans?
 

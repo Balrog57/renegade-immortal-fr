@@ -104,7 +104,7 @@ Il était le disciple de Xuan Luo, et Xuan Luo était le gardien du Dao Antique.
 
 Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Un jade noir apparut soudainement dans sa paume!
 
-Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein de la Secte de la Grande Âme. Il provenait du génie du clan Dao Wang qui avait tout calculé pour son clan. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, l'air d'implorer le pardon, comme s'il pesait lui-même ce qui comptait le plus, sa conscience ou ses calculs, ou comme s'il interrogeait Wang Lin!
+Ce jade dégageait une lueur sombre et spectrale, comme si un simple regard pouvait vous y emprisonner. Ce jade lui avait été offert par l'Estimé Taureau Vert au sein de la Secte de la Grande Âme. Il provenait du génie du Clan Dao Wang qui avait tout calculé pour son clan. Ce génie qui avait extrait son propre cerveau et son cœur pour s'agenouiller devant une statue de Wang Lin, l'air d'implorer le pardon, comme s'il pesait lui-même ce qui comptait le plus, sa conscience ou ses calculs, ou comme s'il interrogeait Wang Lin!
 
 « Ce jade peut vous aider à diviner l'avenir une fois... » Les paroles gravées dans le jade résonnèrent dans l'esprit de Wang Lin.
 

@@ -44,13 +44,13 @@ Simultanément, le soleil levant jaillit du ciel alterné pour pénétrer dans l
 
 L'ombre brillait d'un éclat solaire et sourit lors de sa formation. Elle sortit de l'œil pour se tenir aux côtés de l'essence de restriction.
 
-Ce corps était le véritable corps d'essence du commencement absolu que Wang Lin avait condensé au cours des cent dernières années, en combinant son sort de Temps Fluide à la capacité du clan Dao Wang de créer leur propre monde. Son but était de recréer d'innombrables cycles de jour et de nuit!
+Ce corps était le véritable corps d'essence du commencement absolu que Wang Lin avait condensé au cours des cent dernières années, en combinant son sort de Temps Fluide à la capacité du Clan Dao Wang de créer leur propre monde. Son but était de recréer d'innombrables cycles de jour et de nuit!
 
 Peu après, l'essence de la fin absolue, représentant la nuit noire, s'élança vers l'œil. Le corps du Luo Hou ne fut plus que la moitié de sa taille initiale lorsque son œil se couvrit de veines rouges et que le troisième véritable corps d'essence en sortit!
 
 Le véritable corps d'essence de la fin absolue!!
 
-Durant les cent dernières années, Wang Lin avait utilisé le Temps Fluide et les sorts du clan Dao Wang pour renforcer ses essences de commencement et de fin absolues jusqu'à ce qu'elles forment des véritables corps d'essence. Cependant, ne pouvant les intégrer pleinement, il avait décidé par divination d'emprunter la puissance du Luo Hou pour tenter l'expérience.
+Durant les cent dernières années, Wang Lin avait utilisé le Temps Fluide et les sorts du Clan Dao Wang pour renforcer ses essences de commencement et de fin absolues jusqu'à ce qu'elles forment des véritables corps d'essence. Cependant, ne pouvant les intégrer pleinement, il avait décidé par divination d'emprunter la puissance du Luo Hou pour tenter l'expérience.
 
 Les cinq véritables corps d'essence absorbèrent tous l'âme de la bête féroce. Ils utilisaient l'attraction mutuelle de cette âme et son instinct de se reconstituer pour tenter de fusionner entre eux!
 

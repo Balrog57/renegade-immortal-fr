@@ -68,7 +68,7 @@ Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, la S
 
 Wang Lin se tenait devant la Secte de la Grande Âme, contemplant ce lieu familier. Lorsqu'il était arrivé ici la première fois, sa compréhension de la secte n'était que vague. Il avait fini par croire qu'il en connaissait tous les rouages jusqu'à ce qu'il parte et vive mille expériences. Finalement, au palais impérial, si loin de là, il avait découvert le lien profond entre la Secte de la Grande Âme et ce palais. Il comprit enfin que, même maintenant, il restait des mystères insondables sur ce lieu.
 
-« Le clan Dao Wang... Un génie que nul ne pouvait surpasser... L'ancêtre de cette Secte de la Grande Âme est peut-être mort, ou peut-être est-il encore de ce monde... Mais son plan s'étendait sur des éons et il avait prédit les événements d'aujourd'hui. Il avait manigancé contre tout le monde. À ses yeux, chacun n'était qu'un pion... »
+« Le Clan Dao Wang... Un génie que nul ne pouvait surpasser... L'ancêtre de cette Secte de la Grande Âme est peut-être mort, ou peut-être est-il encore de ce monde... Mais son plan s'étendait sur des éons et il avait prédit les événements d'aujourd'hui. Il avait manigancé contre tout le monde. À ses yeux, chacun n'était qu'un pion... »
 
 « En fin de compte, son plan consistant à lever le sceau sur son clan et à faire disparaître la lignée de l'Ancêtre Céleste a réussi. Tout cela pour permettre à son dernier membre survivant de gagner sa liberté... »
 
@@ -92,7 +92,7 @@ Pavillon des Écritures de l'Âme!
 
 Ce pavillon semblait comporter sept étages, mais en vérité, il y avait un huitième, un neuvième... et même un dixième! L'Illustre Taureau Vert avait affirmé que même lui ne pouvait accéder au dixième étage. C'était là que reposait l'ancien ancêtre de la Secte de la Grande Âme.
 
-L'expression de Wang Lin resta calme alors qu'il levait les yeux vers le sommet de l'édifice. Il était venu chercher une réponse, pour découvrir ce que le génie du clan Dao Wang lui avait laissé.
+L'expression de Wang Lin resta calme alors qu'il levait les yeux vers le sommet de l'édifice. Il était venu chercher une réponse, pour découvrir ce que le génie du Clan Dao Wang lui avait laissé.
 
 Poussant la porte close, Wang Lin entra. Familier des lieux, il monta calmement les marches.
 
@@ -112,7 +112,7 @@ Au total, treize marches. Wang Lin leva le pied et monta pas à pas. Il atteigni
 
 Dès qu'il pénétra dans cette ultime pièce, Wang Lin vit quelque chose qui le plongea dans une longue réflexion silencieuse. Il observa la scène avec un sentiment complexe pendant un long moment avant de laisser échapper un soupir.
 
-« Ainsi, c'est ce que tu m'as laissé... Quelque chose que tu voulais absolument que je vienne voir ici... Génie du clan Dao Wang... l'idée que tu m'utilises, comme je l'ai dit à Hai Zi, est pardonnée! » Wang Lin ne regarda pas davantage le dixième étage, se retourna et partit.
+« Ainsi, c'est ce que tu m'as laissé... Quelque chose que tu voulais absolument que je vienne voir ici... Génie du Clan Dao Wang... l'idée que tu m'utilises, comme je l'ai dit à Hai Zi, est pardonnée! » Wang Lin ne regarda pas davantage le dixième étage, se retourna et partit.
 
 Une fois Wang Lin parti, la véritable scène du dixième étage fut révélée.
 
@@ -128,4 +128,4 @@ Ce n'était pas un squelette ordinaire, mais une prison pour l'âme de cet homme
 
 La statue était celle de Wang Lin.
 
-Le squelette était l'ancien ancêtre de la Secte de la Grande Âme, le génie du clan Dao Wang!
+Le squelette était l'ancien ancêtre de la Secte de la Grande Âme, le génie du Clan Dao Wang!

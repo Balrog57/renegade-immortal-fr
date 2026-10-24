@@ -60,13 +60,13 @@ Mais en fin de compte, il ne pouvait toujours pas emmener le fou...
 
 S'il avait eu le choix, Wang Lin aurait rendu toutes ces richesses pour pouvoir l'emporter, mais tout cela était déjà décidé depuis le début.
 
-« Avec la divination de l'ancêtre de la Secte de la Grande Âme du clan Dao Wang, il avait probablement prévu que l'Empereur Céleste tente de posséder le fou... Cette possession faisait peut-être partie de son plan, mais je l'ai brisée sans le vouloir... »
+« Avec la divination de l'ancêtre de la Secte de la Grande Âme du Clan Dao Wang, il avait probablement prévu que l'Empereur Céleste tente de posséder le fou... Cette possession faisait peut-être partie de son plan, mais je l'ai brisée sans le vouloir... »
 
-« Même l'autodestruction de l'Empereur Céleste et la répartition de la malédiction ancestrale entre les quatre Grands Empyréens étaient sans doute prévues par l'ancêtre de la Secte de la Grande Âme du clan Dao Wang. Mais il ne leur a rien dit, et n'a pas tenté de l'empêcher... »
+« Même l'autodestruction de l'Empereur Céleste et la répartition de la malédiction ancestrale entre les quatre Grands Empyréens étaient sans doute prévues par l'ancêtre de la Secte de la Grande Âme du Clan Dao Wang. Mais il ne leur a rien dit, et n'a pas tenté de l'empêcher... »
 
 « Peut-être l'a-t-il fait pour un membre de son clan de cette génération, Hai Zi... Tout cela pour apaiser ma colère envers son clan... Que voyait-il pour se montrer si bienveillant envers moi... Est-ce parce que, dans son esprit, mon existence est plus terrifiante qu'un Grand Empyréen... »
 
-Wang Lin repensa aux paroles laissées par le génie du clan Dao Wang à la Secte de la Grande Âme. À tous ces respectueux « vous » que la voix utilisait.
+Wang Lin repensa aux paroles laissées par le génie du Clan Dao Wang à la Secte de la Grande Âme. À tous ces respectueux « vous » que la voix utilisait.
 
 Le Grand Empyréen Shuangzi regarda Lian Daofei, plongé dans son coma, et soupira. Elle suivit Wang Lin au loin.
 

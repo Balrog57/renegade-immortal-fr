@@ -56,7 +56,7 @@ C'était l'assurance de celui qui tient tout entre ses mains!
 
 « Vous aviez même prédit que Wang Lin solliciterait le Grand Empyréen Shuangzi pour sauver Dao Fei, car ils pourraient me contenir un temps. Vous avez profité du moment où j'enfermais Dao Fei dans le palais souterrain et où j'utilisais le sortilège du Retour à l'Origine Ancestrale pour faire de lui l'œil gauche!
 
-« Puis, vous avez utilisé le sort spécial de votre clan Dao Wang pour forcer la tête de l'Ancêtre Céleste à parler afin de lever le sceau de votre clan. Croyez-vous que j'ignorais tout cela? » L'Empereur Céleste éclata de rire.
+« Puis, vous avez utilisé le sort spécial de votre Clan Dao Wang pour forcer la tête de l'Ancêtre Céleste à parler afin de lever le sceau de votre clan. Croyez-vous que j'ignorais tout cela? » L'Empereur Céleste éclata de rire.
 
 Le Grand Empyréen Shuangzi affichait une expression grave et ne se précipita pas de manière irréfléchie. Elles fixaient la tête de l'Ancêtre Céleste. Une trace rare d'effroi apparut dans le cœur des deux jeunes filles!
 

@@ -60,7 +60,7 @@ L'expression de Jiu Di devint sombre alors que son regard se posait sur Wang Lin
 
 « Wang Lin, tu es intelligent. Ce vieil homme ne souhaite vraiment pas agir, car cela aggraverait la malédiction, mais ne me force pas! Remets la tête et ce vieil homme te laissera repartir sain et sauf. Nous prêterons serment de ne plus jamais te nuire et nous t'aiderons même à devenir un Grand Empyréen. Si tu restes avide, alors ce lieu sera ta tombe! » déclara calmement Jiu Di en fixant Wang Lin.
 
-« Même Shuangzi est extrêmement affaiblie actuellement, elle n'est pas de taille face à ce vieil homme! De plus, il y a Wu Feng et Dao Yi. Bien qu'ils ne puissent déployer toute leur puissance à cause de la malédiction, ils peuvent encore contenir Shuangzi un certain temps! En outre, l'Enseignante Impériale Hai Zi du clan Dao Wang est aussi présente. Wang Lin, ne cherche pas la mort! De plus, n'importe lequel des Grands Empyréens peut consumer une partie de sa puissance pour t'écraser! »
+« Même Shuangzi est extrêmement affaiblie actuellement, elle n'est pas de taille face à ce vieil homme! De plus, il y a Wu Feng et Dao Yi. Bien qu'ils ne puissent déployer toute leur puissance à cause de la malédiction, ils peuvent encore contenir Shuangzi un certain temps! En outre, l'Enseignante Impériale Hai Zi du Clan Dao Wang est aussi présente. Wang Lin, ne cherche pas la mort! De plus, n'importe lequel des Grands Empyréens peut consumer une partie de sa puissance pour t'écraser! »
 
 L'expression de Wang Lin resta impassible tandis que son regard balayait l'assemblée.
 
@@ -100,10 +100,10 @@ Un loup blanc hurla et sa tête perça le corps de Jiu Di pour foncer vers Shuan
 
 Mais il était le plus faible des Grands Empyréens et la malédiction qui le frappait était extrêmement sévère. À cet instant, son soleil était terne, comme s'il pouvait se dissiper à tout moment. Il ne pouvait toujours pas utiliser toute sa puissance.
 
-Cela suffisait pour tuer un Ascendant Empyréen, mais il était impossible d'éliminer Wang Lin en si peu de temps! Il aurait encore besoin de l'aide de Hai Zi. Si elle l'assistait avec les sorts du clan Dao Wang, ils auraient une chance de l'emporter!
+Cela suffisait pour tuer un Ascendant Empyréen, mais il était impossible d'éliminer Wang Lin en si peu de temps! Il aurait encore besoin de l'aide de Hai Zi. Si elle l'assistait avec les sorts du Clan Dao Wang, ils auraient une chance de l'emporter!
 
 L'expression de Wang Lin resta calme tandis qu'il se retirait avec la tête de l'Ancêtre Céleste. Il leva les yeux et s'adressa à Hai Zi qui semblait tiraillée:
 
-« Je ne sais si je dois vous appeler l'Exalté Empyréen Hai Zi ou l'Enseignante Impériale Hai Zi... Votre clan Dao Wang m'a utilisé pour lever le sceau. Même si vous faites alliance avec Jiu Di, au pire, je renoncerai à la tête, mais il est impossible que je meure ici!
+« Je ne sais si je dois vous appeler l'Exalté Empyréen Hai Zi ou l'Enseignante Impériale Hai Zi... Votre Clan Dao Wang m'a utilisé pour lever le sceau. Même si vous faites alliance avec Jiu Di, au pire, je renoncerai à la tête, mais il est impossible que je meure ici!
 
 « Par conséquent, même si vous participez, vous n'y gagnerez rien et cela ne profitera pas à votre clan. Si vous ne participez pas, alors je peux effacer tout ce qui s'est passé! Comme si cela n'avait jamais existé! »

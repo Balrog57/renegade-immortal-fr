@@ -18,7 +18,7 @@ C'était l'apogée de l'adage: « Nous, les cultivateurs, pourquoi hésiterions-
 
 « Dao Yi! » Wang Lin se tint sur la tête de l'Ancêtre Céleste et poussa un rugissement vers le ciel. Ses cheveux noirs ondulaient sans qu'aucun vent ne souffle, et il leva la main droite. Un fragment d'épée doré apparut dans sa paume. Il s'agissait du fragment de l'épée de l'Ancêtre Céleste que Jiu Di lui avait donné sur la longue rue!
 
-À l'époque, Jiu Di n'aurait jamais pu imaginer que Wang Lin survivrait au plan du clan Dao Wang. S'il l'avait su, il ne lui aurait jamais confié ce fragment!
+À l'époque, Jiu Di n'aurait jamais pu imaginer que Wang Lin survivrait au plan du Clan Dao Wang. S'il l'avait su, il ne lui aurait jamais confié ce fragment!
 
 Après avoir fusionné ce fragment dans son corps, les yeux de Wang Lin aux cheveux noirs révélèrent une lueur étrange. Il fit un pas en avant et frappa sa poitrine de la main droite.
 

@@ -102,7 +102,7 @@ En un éclair, il s'approcha et fut dévoré par l'œil gauche, tout comme Wang 
 
 À cet instant, la silhouette floue du fou apparut dans l'œil gauche. Son corps émettait une lumière dorée encore plus puissante qui pénétra l'œil. Désormais, les deux yeux de l'Ancêtre Céleste étaient ouverts, irradiant une clarté infinie, comme s'il était véritablement ressuscité!
 
-« Ancêtre Céleste, parle! Libère le clan Dao Wang, brise le sceau de tout le clan! » hurla l'Enseignant Impérial avec exaltation. Il n'avait pas remarqué que, dans une partie cachée du corps, l'âme de Wang Lin observait froidement la scène depuis la Perle Défiant le Ciel.
+« Ancêtre Céleste, parle! Libère le Clan Dao Wang, brise le sceau de tout le clan! » hurla l'Enseignant Impérial avec exaltation. Il n'avait pas remarqué que, dans une partie cachée du corps, l'âme de Wang Lin observait froidement la scène depuis la Perle Défiant le Ciel.
 
 Sous l'impulsion des paroles de l'Enseignant Impérial, les yeux de l'Ancêtre Céleste brillèrent et sa bouche close s'entrouvrit lentement. Une voix antique, semblable à celle de l'Enseignant Impérial, s'en échappa!
 

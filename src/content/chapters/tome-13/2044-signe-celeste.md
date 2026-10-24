@@ -16,7 +16,7 @@ Les mécanismes des cieux et de la terre étaient extrêmement difficiles à ma�
 
 Si quelqu'un avait été témoin de cette scène, il en aurait été profondément stupéfait.
 
-« Les sorts que le clan Dao Wang utilisait pour créer des grottes, ainsi que le pouvoir des Grands Empyréens à engendrer la matière à partir du vide... En y ajoutant mon sort de Temps Fluide, je peux recréer le mouvement même du monde... »
+« Les sorts que le Clan Dao Wang utilisait pour créer des grottes, ainsi que le pouvoir des Grands Empyréens à engendrer la matière à partir du vide... En y ajoutant mon sort de Temps Fluide, je peux recréer le mouvement même du monde... »
 
 « Et comme je ne raffine qu'un seul mur de cette chambre, cela reste sous mon contrôle. » Wang Lin leva les yeux vers le plafond et constata que le cycle du jour et de la nuit avait déjà alterné plusieurs dizaines de fois en un laps de temps très court.
 

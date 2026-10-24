@@ -108,8 +108,8 @@ Tandis qu'ils battaient en retraite, l'Empereur Céleste afficha un regard féro
 
 Sous l'éclat de la lumière dorée, l'Empereur Céleste plaqua ses mains sur la tête pour absorber l'énergie. Cependant, il ne put rien absorber; c'était comme si une couche de sceaux entourait la tête, l'empêchant de puiser dans sa puissance.
 
-« Ceci est le sceau du clan Dao Wang. Ce maudit Enseignant Impérial... lorsqu'il a fait parler l'Ancêtre Céleste, il a utilisé son âme et y a laissé une trace du sceau du clan Dao Wang!
+« Ceci est le sceau du Clan Dao Wang. Ce maudit Enseignant Impérial... lorsqu'il a fait parler l'Ancêtre Céleste, il a utilisé son âme et y a laissé une trace du sceau du Clan Dao Wang!
 
 « Mais ce sceau ne pourra pas m'arrêter! Je suis l'Empereur Céleste. Normalement, je ne pourrais peut-être pas le briser, mais avec le contrôle de la tête de l'Ancêtre Céleste, j'en suis capable!
 
-« Même si je lève les sceaux de tous les âges du clan Dao Wang, peu importe. L'Enseignant Impérial est sur le point de mourir et ne pourra plus provoquer de remous! » L'esprit de l'Empereur Céleste tournait à toute vitesse. La situation était critique et il n'avait pas le temps de trop réfléchir!
+« Même si je lève les sceaux de tous les âges du Clan Dao Wang, peu importe. L'Enseignant Impérial est sur le point de mourir et ne pourra plus provoquer de remous! » L'esprit de l'Empereur Céleste tournait à toute vitesse. La situation était critique et il n'avait pas le temps de trop réfléchir!
