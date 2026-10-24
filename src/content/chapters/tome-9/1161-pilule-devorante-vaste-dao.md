@@ -12,7 +12,7 @@ Wang Lin avait étudié la recette de l'os de bête et, finalement, son expressi
 
 Après avoir fouillé dans les archives de la Secte de l'Origine, Wang Lin trouva quelques indices. Trois des herbes — le Bois de Transformation Stellaire, l'Herbe Puante du Dragon et la Fleur d'Annihilation — existaient il y a des dizaines de milliers d'années. Même à cette époque, elles étaient extrêmement rares, et elles sont pratiquement éteintes aujourd'hui. Cependant, les registres de la Secte de l'Origine offraient quelques pistes: il semblait que dans la secte principale de rang 8, il restait encore un petit fragment de Bois de Transformation Stellaire.
 
-Plus important encore, cette Pilule du Vide Nirvana nécessitait les âmes de neuf bêtes de rang 13 au sommet. Ce n'est qu'en fusionnant leurs âmes que le raffinage de la pilule pourrait être accompli.
+Plus important encore, cette Pilule du Vide du Nirvana nécessitait les âmes de neuf bêtes de rang 13 au sommet. Ce n'est qu'en fusionnant leurs âmes que le raffinage de la pilule pourrait être accompli.
 
 Si cela avait été tout, ce ne serait pas un problème, mais le taux de réussite était extrêmement faible. De plus, ce fragment d'os de bête devait servir de catalyseur; il devait être fondu dans la pilule. Chaque échec rendait cet os un peu plus sombre et, une fois qu'il deviendrait complètement noir, il serait impossible de raffiner la pilule.
 

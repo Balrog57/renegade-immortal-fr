@@ -68,7 +68,7 @@ Le désespoir inonda les yeux de Zhou Jin; il avait peine à croire ce qu'il voy
 
 Il vit une telle quantité de tonnerre qu'elle illuminait l'espace lui-même. La lumière était aveuglante alors que la tempête approchait.
 
-« Ceci... ceci est... » Le visage du jeune homme en robe verte devint livide. Bien qu'il fût un cultivateur du Vide Arcane de stade initial, son cuir chevelu s'engourdit face à ce déluge de tonnerre sans fin.
+« Ceci... ceci est... » Le visage du jeune homme en robe verte devint livide. Bien qu'il fût un cultivateur du Vide Arcanique de stade initial, son cuir chevelu s'engourdit face à ce déluge de tonnerre sans fin.
 
 Il n'était pas le seul: même Xushen Tianzun fut stupéfait un instant, l'incrédulité brillant dans ses yeux. Il ne s'attendait pas à ce que l'essence de tonnerre de Wang Lin possède une telle puissance.
 

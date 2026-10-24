@@ -72,7 +72,7 @@ Voyant que Wang Lin était sur le point de disparaître, Zi Xia, toujours à l'i
 
 « Je vais tenter le coup une dernière fois! Si sa réaction est trop évidente, alors quelque chose ne va pas! » Les yeux de Zi Xia s'illuminèrent tandis qu'elle fixait l'horizon.
 
-L'épée volante pourpre était extrêmement rapide et rattrapa presque instantanément Wang Lin. Elle arriva à moins de mille pieds de lui. Un éclair de froideur passa dans les yeux de Wang Lin et il leva son index droit. Lorsque l'épée, imprégnée de sa culture du Vide Arcane, atteignit sa cible, le doigt de Wang Lin toucha la pointe de la lame.
+L'épée volante pourpre était extrêmement rapide et rattrapa presque instantanément Wang Lin. Elle arriva à moins de mille pieds de lui. Un éclair de froideur passa dans les yeux de Wang Lin et il leva son index droit. Lorsque l'épée, imprégnée de sa culture du Vide Arcanique, atteignit sa cible, le doigt de Wang Lin toucha la pointe de la lame.
 
 Au moment même où il pointait la pointe de l'épée, les pensées de Wang Lin s'emballèrent. Il renonça à feindre sa blessure et déploya plutôt toute sa puissance. Outre la septième essence, ses six premières essences jaillirent de son corps pour converger vers son index droit.
 

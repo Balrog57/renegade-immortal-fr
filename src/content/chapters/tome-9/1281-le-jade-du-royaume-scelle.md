@@ -8,7 +8,7 @@ slug: le-jade-du-royaume-scelle
 ---
 Le Shui Daozi était terrifié par les essences qui émanaient du corps de Wang Lin, au point que ses yeux manquaient de sortir de leurs orbites. Les trois essences de Wang Lin surpassaient de loin son imagination. Il n'osait même pas concevoir la puissance destructrice dont Wang Lin ferait preuve s'il survivait et devenait un cultivateur du troisième niveau dans mille ans!
 
-« Dès qu'il atteindra le troisième niveau, il sera assez puissant pour affronter ceux qui sont au stade initial du Nirvana Vide depuis des dizaines de milliers d'années. En réalité, ils ne lui feront absolument pas le poids. Une telle figure défiant les cieux attirerait même la jalousie des cieux. Il ne devrait jamais apparaître! Je dois le tuer, je dois absolument le tuer. Sinon, ni au ciel ni sur terre il n'y aura plus pour moi la moindre chance de survie! »
+« Dès qu'il atteindra le troisième niveau, il sera assez puissant pour affronter ceux qui sont au stade initial du Vide du Nirvana depuis des dizaines de milliers d'années. En réalité, ils ne lui feront absolument pas le poids. Une telle figure défiant les cieux attirerait même la jalousie des cieux. Il ne devrait jamais apparaître! Je dois le tuer, je dois absolument le tuer. Sinon, ni au ciel ni sur terre il n'y aura plus pour moi la moindre chance de survie! »
 
 À cet instant, le Shui Daozi ignorait que ces trois essences n'étaient pas encore la limite de Wang Lin.
 
@@ -82,7 +82,7 @@ Même dans la région de rang 7, une fissure spatiale la fendit en deux!
 
 Cette attaque était infiniment proche d'un sort du troisième niveau. Elle suffisait à détruire n'importe quel cultivateur du Briseur du Nirvana ou toute puissance du Fléau Céleste. Même l'Empereur Divin du Dragon Azure en mourrait sans aucun doute!
 
-Wang Lin ne pouvait utiliser cette attaque qu'une seule fois, car elle exigeait l'effondrement des cinq essences qu'il venait d'acquérir. En détruisant ses cinq essences, ce petit cultivateur, à peine à moitié entré dans le Briseur du Nirvana, était capable de lancer une attaque comparable à celle d'un cultivateur du Nirvana Vide!
+Wang Lin ne pouvait utiliser cette attaque qu'une seule fois, car elle exigeait l'effondrement des cinq essences qu'il venait d'acquérir. En détruisant ses cinq essences, ce petit cultivateur, à peine à moitié entré dans le Briseur du Nirvana, était capable de lancer une attaque comparable à celle d'un cultivateur du Vide du Nirvana!
 
 C'était splendide et prodigieux!
 

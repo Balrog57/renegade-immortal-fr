@@ -62,7 +62,7 @@ Miaoyin Daozun regarda l'homme en robe noire et demanda: « Divinez-vous qu'un a
 
 Jiutian Mozun sourit et joignit les mains en signe de respect: « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, Jiutian Mozun s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
 
-« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcane Grande Désolation, Zhou Jin, ainsi que les deux concubines de l'Immortel Vénérable de la haute antiquité. Ils représentent 30 % de la puissance de mon Système Stellaire Antique... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
+« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcanique Grande Désolation, Zhou Jin, ainsi que les deux concubines de l'Immortel Vénérable de la haute antiquité. Ils représentent 30 % de la puissance de mon Système Stellaire Antique... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
 
 À l'intérieur de la Tombe de l'Ordre Antique, les deux bras gigantesques avaient balayé l'espace et détruit la première plateforme de rang 9, tout en ouvrant une faille vers un autre monde.
 

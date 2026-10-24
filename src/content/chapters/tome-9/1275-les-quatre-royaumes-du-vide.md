@@ -16,7 +16,7 @@ Son regret était resté gravé dans le jade, et finalement, il était tombé en
 
 Même si Shui Daozi avait vécu des dizaines de milliers d'années, même s'il était le serviteur du Seigneur du Royaume Scellé et l'Ancien en chef de la Secte Divine, il n'aurait pu connaître tout ce qui s'était passé dans les quatre Royaumes Célestes. Et encore moins un être céleste du nom de Duobao, ayant créé un trésor défiant le ciel, capable de menacer des cultivateurs du troisième niveau!
 
-« Ce n'est pas un Trésor du Vide Nirvana. Il est impossible d'en déterminer le rang. Ceci... Quel genre de trésor est-ce là? » L'expression du garçon aux cheveux blancs changea. Il était venu pour tuer Wang Lin, et il en était absolument certain. La seule chose qui l'inquiétait était la Perle Défiant le Ciel. Il ne pensait pas que Wang Lin posséderait un trésor aussi terrifiant.
+« Ce n'est pas un Trésor du Vide du Nirvana. Il est impossible d'en déterminer le rang. Ceci... Quel genre de trésor est-ce là? » L'expression du garçon aux cheveux blancs changea. Il était venu pour tuer Wang Lin, et il en était absolument certain. La seule chose qui l'inquiétait était la Perle Défiant le Ciel. Il ne pensait pas que Wang Lin posséderait un trésor aussi terrifiant.
 
 Il n'avait pas le temps de réfléchir, car la lance de la Bête du Tonnerre fendit le ciel. Elle divisa la région de rang 5 en deux et chargea droit sur Shui Daozi.
 
@@ -92,9 +92,9 @@ Au moment où ces mots furent lâchés, il arrêta le ciel, il arrêta la terre,
 
 Les trois couleurs restantes — rouge, jaune et bleu — libérèrent un grondement tonitruant, comme si l'on tirait sur les rênes d'innombrables chevaux sauvages. Elles luttèrent férocement avant de s'immobiliser totalement à trente pieds de Shui Daozi!
 
-« Quel trésor puissant! Malheureusement, il reste manifestement un sceau; sans quoi, même avec ma culture du stade initial du Vide Nirvana, j'aurais été blessé. De plus, ce vieil homme a été contraint d'utiliser le sort d'Arrêt. Lu Zihao, pour être capable de faire une telle chose, tu peux être considéré comme un génie céleste! »
+« Quel trésor puissant! Malheureusement, il reste manifestement un sceau; sans quoi, même avec ma culture du stade initial du Vide du Nirvana, j'aurais été blessé. De plus, ce vieil homme a été contraint d'utiliser le sort d'Arrêt. Lu Zihao, pour être capable de faire une telle chose, tu peux être considéré comme un génie céleste! »
 
-« Vide Nirvana, Vide Spirituel, Vide Arcane et Vide de la Tribulation! Le troisième niveau possède quatre royaumes. Ce n'est qu'en atteignant le stade du Vide Spirituel que je ne serais pas blessé par ce trésor une fois qu'il sera pleinement activé! » Les yeux de Shui Daozi s'illuminèrent. Ce Char de Guerre Divin l'avait quelque peu surpris. S'il n'avait pas connu un sort qui n'appartenait pas à ce monde, cela aurait pu être problématique. Bien qu'il ne serait pas mort, il aurait subi des blessures avant de pouvoir tuer ce Lu Zihao. Et pour un cultivateur du troisième niveau, subir la contre-attaque d'une fourmi était une honte!
+« Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulation du Vide! Le troisième niveau possède quatre royaumes. Ce n'est qu'en atteignant le stade du Vide Spirituel que je ne serais pas blessé par ce trésor une fois qu'il sera pleinement activé! » Les yeux de Shui Daozi s'illuminèrent. Ce Char de Guerre Divin l'avait quelque peu surpris. S'il n'avait pas connu un sort qui n'appartenait pas à ce monde, cela aurait pu être problématique. Bien qu'il ne serait pas mort, il aurait subi des blessures avant de pouvoir tuer ce Lu Zihao. Et pour un cultivateur du troisième niveau, subir la contre-attaque d'une fourmi était une honte!
 
 « Tu n'as pas le droit d'utiliser ce trésor, alors ce vieil homme va te le prendre! » Shui Daozi agita ses manches et un vortex apparut entre ses sourcils. Dès son apparition, il jaillit pour dévorer les rayons de lumière rouge, jaune et bleu.
 

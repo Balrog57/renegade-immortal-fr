@@ -28,17 +28,17 @@ Quant au corps d'essence de massacre, il n'hésita pas non plus. Ses cheveux et 
 
 Dans la chambre secrète, Wang Lin s'assit. Les deux corps véritables se tenaient devant lui. Il les observa avec une expression solennelle.
 
-« Cent ans de culture pour enfin former ce corps d'essence de massacre... Je me demande si mon niveau de culture franchira le pic du Tribulant du Vide après sa fusion avec mon corps originel! »
+« Cent ans de culture pour enfin former ce corps d'essence de massacre... Je me demande si mon niveau de culture franchira le pic de la Tribulation du Vide après sa fusion avec mon corps originel! »
 
 « Si ma culture peut encore augmenter, je pourrai peut-être expulser totalement la puissance de malédiction dans l'âme véritable de l'Empereur Céleste Lian Daozhen et en prendre le contrôle! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
 
-« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Empyréens et les Ascendants Empyréens. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, je le mesure selon les royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
+« Mon chemin de culture est radicalement différent de celui des autres. Après le pic de la Tribulation du Vide, il y a les Exaltés Empyréens et les Ascendants Empyréens. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic de la Tribulation du Vide. Et chaque fois que mon niveau augmente, je le mesure selon les royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic de la Tribulation du Vide.
 
 Ses yeux pétillèrent d'excitation tandis qu'il murmurait: « Grand Empyréen... Ou serait-ce... »
 
 « Ou serait-ce... la quatrième étape! Mais la quatrième étape existe-t-elle vraiment dans ce monde... L'Ancêtre Ancien et l'Ancêtre Céleste étaient-ils au quatrième stade? » Les yeux de Wang Lin brillèrent, le cœur battant d'impatience. Il leva la main droite et le corps des cinq éléments s'avança. Il se superposa à Wang Lin et fusionna totalement avec lui.
 
-Une fois le corps des cinq éléments revenu, les cheveux blancs de Wang Lin ondulèrent sans qu'aucun vent ne souffle, et sa culture explosa. À cet instant précis, il atteignit le pic du Tribulant du Vide; après cent ans de culture en isolement, il était débordant de puissance. Il était à son apogée.
+Une fois le corps des cinq éléments revenu, les cheveux blancs de Wang Lin ondulèrent sans qu'aucun vent ne souffle, et sa culture explosa. À cet instant précis, il atteignit le pic de la Tribulation du Vide; après cent ans de culture en isolement, il était débordant de puissance. Il était à son apogée.
 
 Regardant le corps d'essence de massacre aux cheveux noirs, Wang Lin serra les dents, le regard résolu. Il pointa le corps vers lui, et celui-ci leva ses yeux indifférents vers lui tout en s'avançant.
 
@@ -62,7 +62,7 @@ Il leva les yeux vers le ciel. Celui-ci était strié de fines lignes qui sembla
 
 « C'est donc cela, le ciel... » Wang Lin était perplexe. Il ne voyait pas le ciel, seulement ces filaments infiniment fins. Même en déployant toute sa puissance, il ne percevait qu'une multitude de lignes sans fin.
 
-Porté par la confusion, Wang Lin voulut s'élancer. Il avait le sentiment diffus que s'il parvenait à franchir ces lignes infinies, il pourrait dépasser le pic du Tribulant du Vide!
+Porté par la confusion, Wang Lin voulut s'élancer. Il avait le sentiment diffus que s'il parvenait à franchir ces lignes infinies, il pourrait dépasser le pic de la Tribulation du Vide!
 
 Cette étape serait une ascension, une métamorphose où l'on brise sa chrysalide pour devenir papillon! Ce pressentiment était d'une force inouïe, surgissant des profondeurs mêmes de son âme.
 

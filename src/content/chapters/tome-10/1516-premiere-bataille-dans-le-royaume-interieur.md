@@ -122,7 +122,7 @@ Alors que les cris de guerre résonnaient dans le Royaume Extérieur, les treize
 
 Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette intention meurtrière, une aura étrange commença à poindre. Le sang de ces 90 000 cultivateurs se mit à bouillir, les rendant progressivement agités et déchaînés. Ils étaient comme des bêtes féroces affamées depuis trop longtemps, prêtes à tout dévorer!
 
-Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade du Vide Arcane!
+Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade du Vide Arcanique!
 
 À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! Nanzhao Shangren! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
 

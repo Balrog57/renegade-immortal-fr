@@ -98,11 +98,11 @@ Dans le Vide Brillant, à l'extérieur de la planète Suzaku, la Porte du Vide q
 
 La Porte du Vide était là, mais la personne capable de la briser ne s'était pas encore manifestée. Elle dégageait une aura suffocante que même les cultivateurs du Royaume Extérieur comme Xushen Tianzun pouvaient ressentir.
 
-« Bon sang, il y a réellement six essences. Même le Souverain ne pourrait rien faire de tel. Si cette personne parvient à briser la porte, même s'il n'est qu'au stade précoce du Vide du Nirvana, il pourra combattre des cultivateurs du stade précoce du Vide Arcane et franchir rapidement les royaumes du vide! »
+« Bon sang, il y a réellement six essences. Même le Souverain ne pourrait rien faire de tel. Si cette personne parvient à briser la porte, même s'il n'est qu'au stade précoce du Vide du Nirvana, il pourra combattre des cultivateurs du stade précoce du Vide Arcanique et franchir rapidement les royaumes du vide! »
 
 « Si cette personne est un cultivateur du Royaume Intérieur, elle doit être éliminée! » Une intention meurtrière traversa les yeux de Xushen Tianzun. Il ne regarda plus la Porte du Vide qui l'effrayait et s'avança vers la planète Suzaku.
 
-Bien qu'il ne fût ici qu'avec un avatar, celui-ci se trouvait au stade précoce du Vide Arcane. Alors qu'il approchait de la formation entourant la planète Suzaku, il leva son bras droit tout entier, qui se transforma en une brume violette. Cette brume s'étendit rapidement et fonça sur la formation.
+Bien qu'il ne fût ici qu'avec un avatar, celui-ci se trouvait au stade précoce du Vide Arcanique. Alors qu'il approchait de la formation entourant la planète Suzaku, il leva son bras droit tout entier, qui se transforma en une brume violette. Cette brume s'étendit rapidement et fonça sur la formation.
 
 Des grondements tonitruants retentirent, et la formation qui avait tenu plusieurs mois et qui était sur le point de s'effondrer vola en éclats. Tandis que les fragments se dispersaient, la planète Suzaku se retrouva sans protection.
 

@@ -112,7 +112,7 @@ Toutefois, cette zone n'était plus que des fragments de continents; seuls trois
 
 Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais de la Punition Céleste du Conseil Souverain, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer des Nuages!
 
-Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur: il était au début du stade Vide Arcane! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture!
+Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur: il était au début du stade Vide Arcanique! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture!
 
 Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sous les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais de la Punition Céleste.
 

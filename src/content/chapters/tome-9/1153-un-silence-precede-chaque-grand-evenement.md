@@ -62,7 +62,7 @@ Une pointe d'excitation traversa le regard de Wang Lin alors qu'il tendait la ma
 
 Ses yeux étaient empreints d'incrédulité face au fragment d'os qu'il tenait. Il resta muet durant un long moment.
 
-« Nirvana... Pilule du Nirvana Vide... » Bien qu'il ignorât ce qu'était précisément une Pilule du Nirvana Vide, il connaissait le poids des mots « Nirvana » et « Vide » pour les puissants cultivateurs!
+« Nirvana... Pilule du Vide du Nirvana... » Bien qu'il ignorât ce qu'était précisément une Pilule du Vide du Nirvana, il connaissait le poids des mots « Nirvana » et « Vide » pour les puissants cultivateurs!
 
 En particulier, une phrase de cette recette résonna avec force dans son esprit. Il serra fermement l'os dans sa main, une intention meurtrière monstrueuse embrasant son regard. À cet instant, quiconque aurait tenté de lui ravir ce fragment aurait subi la fureur déchaînée de Wang Lin.
 

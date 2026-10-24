@@ -48,7 +48,7 @@ D'un seul pas, il quitta le vortex de la statue et chargea Wang Lin. Sa vitesse 
 
 Dans le champ de vision de Wang Lin, une ombre gigantesque, aussi vaste que le monde, apparut derrière le vieil homme. L'ombre représentait un tigre blanc colossal!
 
-Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade initial du Vide Arcane.
+Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade initial du Vide Arcanique.
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le vieillard. Sa main droite se crispa en un poing et il lança un coup vers lui. Lorsque les deux forces entrèrent en collision, un fracas tonitruant retentit, faisant trembler la terre.
 

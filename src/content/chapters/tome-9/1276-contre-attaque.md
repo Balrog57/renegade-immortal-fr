@@ -42,7 +42,7 @@ Son regard balaya le Char de Guerre Divin et il laissa échapper un reniflement 
 
 « Ce trésor présente trop de défauts. Puisque je n'en ai pas besoin, je vais le détruire! » Le Shui Daozi était extrêmement arrogant et possédait une personnalité excentrique. Il aimait détruire les objets que d'autres chérissaient, pourvu qu'ils lui soient inutiles.
 
-En tant que cultivateur du troisième niveau au stade initial du Vide Nirvana, le Shui Daozi était en effet pleinement qualifié pour agir ainsi!
+En tant que cultivateur du troisième niveau au stade initial du Vide du Nirvana, le Shui Daozi était en effet pleinement qualifié pour agir ainsi!
 
 Lorsque le char de guerre formé par la Bête de Tonnerre s'effondra, les yeux de Wang Lin se remplirent de chagrin. La douleur dans son cœur se mua en une flamme invisible et infinie qui brûlait en lui. Mais tout restait confiné à l'intérieur de son corps. Ce deuil fit couler deux traînées de larmes de sang de ses yeux!
 

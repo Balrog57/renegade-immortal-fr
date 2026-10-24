@@ -110,7 +110,7 @@ Il ne s'attendait pas à ce que Wang Lin possède un tel trésor. Lorsqu'il fut 
 
 Si ce n'était le fait que son corps original était au troisième pas, lui permettant d'avoir accumulé suffisamment de ressources pour affiner un corps quasi invincible, un cultivateur ordinaire serait mort depuis longtemps.
 
-Maître Simo avait raffiné cet avatar après avoir réalisé qu'il était resté bloqué trop longtemps au début du Nirvana Vide et ne parvenait pas à obtenir assez d'esprits du Dao. Il avait créé cet avatar dans l'espoir qu'il atteigne le troisième pas, sans jamais améliorer ses propres pouvoirs divins.
+Maître Simo avait raffiné cet avatar après avoir réalisé qu'il était resté bloqué trop longtemps au début du Vide du Nirvana et ne parvenait pas à obtenir assez d'esprits du Dao. Il avait créé cet avatar dans l'espoir qu'il atteigne le troisième pas, sans jamais améliorer ses propres pouvoirs divins.
 
 Alors que l'avatar de Maître Simo était repoussé par l'explosion, Wang Lin fit un pas en avant et agita la main droite. Les Cristaux de Mutation de Feu Déchaîné qu'il avait raffinés furent projetés.
 

@@ -20,11 +20,11 @@ Une ombre gigantesque de Taureau Céleste apparut derrière Wang Lin. Ce taureau
 
 Le niveau de culture de Wang Lin augmentait à une vitesse folle. Il empruntait la puissance de l'armure d'âme et, bien que ce ne fût que temporaire, cela lui procurait des avantages inimaginables.
 
-Il atteignit directement le stade initial du Vide Arcane, faisant fi du fait qu'il lui manquait encore une essence!
+Il atteignit directement le stade initial du Vide Arcanique, faisant fi du fait qu'il lui manquait encore une essence!
 
-En moins d'un souffle après avoir atteint le stade initial du Vide Arcane, sa culture grimpa au stade médian du Vide Arcane!
+En moins d'un souffle après avoir atteint le stade initial du Vide Arcanique, sa culture grimpa au stade médian du Vide Arcanique!
 
-Immédiatement après, à une vitesse encore plus fulgurante, son aura atteignit le stade avancé du Vide Arcane, faisant fouetter ses cheveux sans qu'aucun vent ne souffle!
+Immédiatement après, à une vitesse encore plus fulgurante, son aura atteignit le stade avancé du Vide Arcanique, faisant fouetter ses cheveux sans qu'aucun vent ne souffle!
 
 Son niveau de culture continuait de croître, et tout cela se produisit en un éclair. Non seulement Lu Wenran était stupéfait, mais Yan Luan, Xu Dongde ainsi que les trois cultivateurs de la Tribulation du Vide qui ne prenaient pas parti étaient tous sous le choc.
 
@@ -50,7 +50,7 @@ L'apparition de Wang Lin était la cause de tout cela, et toute sa folie était 
 
 Puisque Wang Lin allait agir, il ferait tout pour anticiper chaque issue. Les illusions multicouches du Voile Fantôme avaient été discrètement implantées sans que Lu Wenran ne s'en aperçoive!
 
-Tandis que Lu Wenran attaquait comme un possédé, l'aura de Wang Lin augmenta encore une fois. Il franchit directement le sommet du Vide Arcane pour entrer dans la Tribulation de l'Arcane!
+Tandis que Lu Wenran attaquait comme un possédé, l'aura de Wang Lin augmenta encore une fois. Il franchit directement le sommet du Vide Arcanique pour entrer dans la Tribulation de l'Arcane!
 
 Ce changement fut comme un coup invisible et pesant qui frappa l'esprit de Lu Wenran, au point qu'il faillit recracher une bouchée de sang. Ses yeux devinrent injectés de sang et il reprit ses attaques frénétiques.
 
@@ -62,7 +62,7 @@ Les yeux de Wang Lin restaient clos. Son aura, après être entré dans la Tribu
 
 La première Tribulation de l'Arcane, la deuxième, la troisième, la quatrième... la huitième, la neuvième!!!
 
-Aucune Tribulation de l'Arcane ne survint; c'était extrêmement sûr. L'aura de Wang Lin changea neuf fois et augmenta neuf fois. Il passa directement du sommet du Vide Arcane au stade de la Tribulation du Vide!
+Aucune Tribulation de l'Arcane ne survint; c'était extrêmement sûr. L'aura de Wang Lin changea neuf fois et augmenta neuf fois. Il passa directement du sommet du Vide Arcanique au stade de la Tribulation du Vide!
 
 Stade initial de la Tribulation du Vide!!
 

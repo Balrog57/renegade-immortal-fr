@@ -16,7 +16,7 @@ Cette bataille l'avait rendu célèbre, et chaque secte de la région de rang 6 
 
 À cet instant, son expression était sombre alors qu'il siégeait sur la tête d'un python à tête de dragon. Tandis que la bête spirituelle traversait la région de rang 5, les disciples de la Secte de la Fleur Claire le suivaient.
 
-« Je ne pensais pas que cette piste soit vraie! » Chaque fois que Noble Argent songeait à cette affaire, son cœur s'emballait. Il y a plusieurs mois, la Secte de la Fleur Claire avait accidentellement découvert des indices liés à la légendaire Pilule du Nirvana Vide ainsi qu'un jade révélant comment devenir un disciple central de la Secte Brise-Ciel.
+« Je ne pensais pas que cette piste soit vraie! » Chaque fois que Noble Argent songeait à cette affaire, son cœur s'emballait. Il y a plusieurs mois, la Secte de la Fleur Claire avait accidentellement découvert des indices liés à la légendaire Pilule du Vide du Nirvana ainsi qu'un jade révélant comment devenir un disciple central de la Secte Brise-Ciel.
 
 En tant que cultivateur natif de la Mer des Nuages, Noble Argent connaissait évidemment l'événement cataclysmique qui s'était produit il y a 18 000 ans dans cette région.
 

@@ -20,7 +20,7 @@ Tous les autres n'étaient que des fourmis devant eux!
 
 Même si Maître Simo avait été humilié par le vieux Oiseau Vermillon, la réalité était qu'ailleurs, que ce soit dans le Royaume Extérieur ou le Royaume Intérieur, il lui suffirait de frapper du pied pour déclencher une catastrophe majeure!
 
-Bien qu’il ne fût qu'au stade initial du Nirvana Vide, il demeurait un dieu pour les cultivateurs de la deuxième étape!
+Bien qu’il ne fût qu'au stade initial du Vide du Nirvana, il demeurait un dieu pour les cultivateurs de la deuxième étape!
 
 Pourtant, à cet instant, des paroles incroyables qui stupéfièrent tous les spectateurs résonnèrent comme le tonnerre sur la Planète du Grand Empereur!
 

@@ -66,7 +66,7 @@ C'était la contre-attaque!
 
 Tout comme les cultivateurs de la Mer des Nuages avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et de la Rivière Invoquée, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
 
-C'est alors que la troisième armée du Système Stellaire Antique arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Nirvana Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
+C'est alors que la troisième armée du Système Stellaire Antique arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Vide du Nirvana, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
 
 Bien que cette troisième armée n'ait pas encore franchi la formation, ses seuls rugissements suffirent à faire hésiter la troupe du Royaume Extérieur, qui commençait à ne plus reculer.
 

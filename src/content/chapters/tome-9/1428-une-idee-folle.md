@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1428 - Crazy Idea!"
 slug: une-idee-folle
 ---
-L'ancêtre du Clan des Moineaux de Feu était un cultivateur du troisième niveau. Bien qu'il ne fût qu'au début du stade Nirvana Vide, il pouvait faire trembler les cieux d'un simple revers de main. Il utilisa la Distorsion Spatiale pour retourner rapidement au quartier général du Clan des Moineaux de Feu en compagnie de Liu Jinbiao.
+L'ancêtre du Clan des Moineaux de Feu était un cultivateur du troisième niveau. Bien qu'il ne fût qu'au début du stade Vide du Nirvana, il pouvait faire trembler les cieux d'un simple revers de main. Il utilisa la Distorsion Spatiale pour retourner rapidement au quartier général du Clan des Moineaux de Feu en compagnie de Liu Jinbiao.
 
 L'ancêtre émergea à l'extérieur de la planète principale du Clan des Moineaux de Feu. Ses yeux étaient empreints d'extase et, en un éclair, il s'élança vers le centre de la planète, enveloppée de flammes.
 

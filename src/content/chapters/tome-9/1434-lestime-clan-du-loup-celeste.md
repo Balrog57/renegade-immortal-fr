@@ -12,7 +12,7 @@ Tout se passa en un éclair. À l'instant même où le hurlement du loup projeta
 
 En un instant, le bras se referma!
 
-L'aura émanant de cette main contenait des Flammes Joss. Celui qui cherchait à capturer Wang Lin n'était pas un cultivateur du deuxième pas, mais un cultivateur du troisième pas! Pour être précis, il s'agissait d'un être venant tout juste d'atteindre ce stade, semblable au Shui Daozi ou au Maître Simo, au début du Nirvana Vide!
+L'aura émanant de cette main contenait des Flammes Joss. Celui qui cherchait à capturer Wang Lin n'était pas un cultivateur du deuxième pas, mais un cultivateur du troisième pas! Pour être précis, il s'agissait d'un être venant tout juste d'atteindre ce stade, semblable au Shui Daozi ou au Maître Simo, au début du Vide du Nirvana!
 
 Cette aura, particulièrement tyrannique, fondit sur Wang Lin.
 

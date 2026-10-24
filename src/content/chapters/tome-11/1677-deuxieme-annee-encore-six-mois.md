@@ -134,7 +134,7 @@ D'un revers de manche, il fit un pas vers le Royaume Extérieur. Son corps se ch
 
 Pourtant, sa silhouette était aussi immuable qu'une montagne. En sa présence, nul ne pouvait faire un seul pas en avant!
 
-Sa culture au sommet du Vide Arcane explosa de son corps. La puissance d'un sommet du Vide Arcane était capable de briser les cieux. Il n'attaqua pas, mais la simple aura de sa culture fit trembler le système stellaire tout entier.
+Sa culture au sommet du Vide Arcanique explosa de son corps. La puissance d'un sommet du Vide Arcanique était capable de briser les cieux. Il n'attaqua pas, mais la simple aura de sa culture fit trembler le système stellaire tout entier.
 
 C'était comme si l'univers complet devait se soumettre à sa force!
 

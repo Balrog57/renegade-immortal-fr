@@ -90,7 +90,7 @@ Bientôt, le vortex disparut et l'identité des trois individus devint claire. U
 
 Les trois portaient des vêtements différents de ceux des habitants du monde des grottes. Leurs robes daoïstes étaient identiques à celles que portait le vieil homme précédemment. Il était évident qu'ils appartenaient à la Secte des Sept Dao!
 
-Leurs niveaux de culture divergeaient. L'un d'eux se trouvait au début du Nirvana Vide, tandis que les deux autres étaient encore au deuxième stade, au cinquième Fléau Céleste.
+Leurs niveaux de culture divergeaient. L'un d'eux se trouvait au début du Vide du Nirvana, tandis que les deux autres étaient encore au deuxième stade, au cinquième Fléau Céleste.
 
 Dès que le vortex disparut et que les trois furent distinctement visibles, Wang Lin attaqua. L'épée de sang fonça en avant tandis que Wang Lin se rapprochait.
 
@@ -98,7 +98,7 @@ Son timing fut parfait. Juste au moment où les trois inspectaient les environs 
 
 Un autre fut éclaboussé par le sang de son compagnon de secte. Mais alors qu'il s'apprêtait à battre en retraite, terrifié, sa vision fut obscurcie par une silhouette blanche. Le doigt de Wang Lin atteignit son entre-sourcils et son corps s'effondra.
 
-Tout cela se produisit avec une rapidité fulgurante. En un clin d'œil, deux des trois cibles étaient mortes! Le cultivateur du début du Nirvana Vide n'hésita pas à reculer. Simultanément, d'un geste de la main droite dans le vide, il saisit un bâton d'encens, s'apprêtant à l'allumer.
+Tout cela se produisit avec une rapidité fulgurante. En un clin d'œil, deux des trois cibles étaient mortes! Le cultivateur du début du Vide du Nirvana n'hésita pas à reculer. Simultanément, d'un geste de la main droite dans le vide, il saisit un bâton d'encens, s'apprêtant à l'allumer.
 
 Cependant, à cet instant précis, il poussa un cri. Avant même de pouvoir embraser l'encens, il commença soudainement à chuter. Son expression se décomposa violemment!
 

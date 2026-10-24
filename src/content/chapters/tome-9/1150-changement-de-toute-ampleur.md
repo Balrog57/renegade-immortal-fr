@@ -112,4 +112,4 @@ Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercept
 
 — Compagnon cultivateur Shi, même si votre Secte de la Fleur Claire envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région de rang 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
 
-— Le jade de la Secte Brise-Ciel de la région de rang 8 et la recette légendaire d'une pilule du Nirvana Vide!
+— Le jade de la Secte Brise-Ciel de la région de rang 8 et la recette légendaire d'une pilule du Vide du Nirvana!

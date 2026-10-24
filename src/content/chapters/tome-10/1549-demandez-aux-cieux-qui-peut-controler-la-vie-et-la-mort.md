@@ -8,7 +8,7 @@ slug: demandez-aux-cieux-qui-peut-controler-la-vie-et-la-mort
 ---
 Bien que Tianzhao Shangshi parût arrogant et affiche un regard de mépris, il était extrêmement sérieux. Bien qu'il n'eût jamais vu Wang Lin auparavant, le nom du Seigneur du Royaume Scellé avait été maintes fois évoqué au cours des dernières décennies.
 
-En particulier, la manière dont l'ancêtre du Clan de l'Hirondelle de Feu avait été tranché en deux l'avait profondément choqué. Cependant, si cela n'était là que le sommet de ses prouesses, il ne s'en soucierait guère. Après tout, l'ancêtre du Clan de l'Hirondelle de Feu n'était qu'au stade initial du Nirvana Vide et ne méritait pas son attention.
+En particulier, la manière dont l'ancêtre du Clan de l'Hirondelle de Feu avait été tranché en deux l'avait profondément choqué. Cependant, si cela n'était là que le sommet de ses prouesses, il ne s'en soucierait guère. Après tout, l'ancêtre du Clan de l'Hirondelle de Feu n'était qu'au stade initial du Vide du Nirvana et ne méritait pas son attention.
 
 Ce qui l'avait véritablement stupéfié était Nanzhao Shangren. Le niveau de culture de Nanzhao Shangren était similaire au sien, mais ce dernier avait fini par mourir tragiquement face à ce Seigneur du Royaume Scellé.
 
@@ -40,7 +40,7 @@ Pourtant, ce n'était pas cette bourrasque qui terrifiait le Maître Yan Leizi, 
 
 Il semblait que ce vent destructeur n'était pour lui qu'une légère brise.
 
-« Trois dragons noirs de Flammes Joss... » En observant les trois féroces dragons, une lueur de froideur passa dans les yeux de Wang Lin. Il ne pouvait utiliser que 20 % de sa puissance s'il ne voulait pas déclencher la force de rejet. Face à un grand expert du Nirvana Vide, Wang Lin pouvait l'emporter. Cependant, 20 % ne suffiraient pas pour tuer un cultivateur du Vide Spirituel, même au stade initial.
+« Trois dragons noirs de Flammes Joss... » En observant les trois féroces dragons, une lueur de froideur passa dans les yeux de Wang Lin. Il ne pouvait utiliser que 20 % de sa puissance s'il ne voulait pas déclencher la force de rejet. Face à un grand expert du Vide du Nirvana, Wang Lin pouvait l'emporter. Cependant, 20 % ne suffiraient pas pour tuer un cultivateur du Vide Spirituel, même au stade initial.
 
 Néanmoins, il avait des impératifs aujourd'hui. Sauver Qing Shui et obtenir le fruit du Dao étaient des objectifs absolus. Wang Lin prit une décision.
 

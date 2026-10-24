@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1642 - Tiger Roar Sweeps the Mountains and Rivers
 slug: le-rugissement-du-tigre-balaye-les-montagnes-et-les-rivieres
 ---
-Le vieil homme au Tigre Blanc afficha un regard glacial. L'attitude de Wang Lin le mettait profondément mal à l'aise. Il était arrivé à une étape critique de sa guérison et, en raison de la technique de guérison employée, et pour ne laisser aucune séquelle, il ne pouvait utiliser une culture dépassant le stade initial du Vide Arcane. S'il s'y risquait, cela lui causerait des problèmes à l'avenir.
+Le vieil homme au Tigre Blanc afficha un regard glacial. L'attitude de Wang Lin le mettait profondément mal à l'aise. Il était arrivé à une étape critique de sa guérison et, en raison de la technique de guérison employée, et pour ne laisser aucune séquelle, il ne pouvait utiliser une culture dépassant le stade initial du Vide Arcanique. S'il s'y risquait, cela lui causerait des problèmes à l'avenir.
 
 Il pensait initialement que cette puissance serait suffisante pour tuer Wang Lin.
 

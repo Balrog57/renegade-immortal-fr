@@ -70,7 +70,7 @@ Simultanément, dans la première carte, un autre bras gigantesque fendit la bru
 
 Leurs cris de mort furent étouffés par le fracas. Une fois le bras passé, aucun d'eux n'avait survécu. Même leurs plateformes s'étaient effondrées.
 
-Ce bras était plus de dix fois plus rapide que celui de la neuvième carte. Tel une montagne qui touchait le ciel, il se déplaçait à une vitesse rivalisant avec celle d'un cultivateur du troisième pas du Vide Arcane.
+Ce bras était plus de dix fois plus rapide que celui de la neuvième carte. Tel une montagne qui touchait le ciel, il se déplaçait à une vitesse rivalisant avec celle d'un cultivateur du troisième pas du Vide Arcanique.
 
 Il balaya la deuxième, la troisième, la quatrième... jusqu'à traverser la septième carte. Tous les cultivateurs sur son passage furent incapables de l'éviter et périrent tous.
 

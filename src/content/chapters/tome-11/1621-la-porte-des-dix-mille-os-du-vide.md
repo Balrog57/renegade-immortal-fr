@@ -94,7 +94,7 @@ On ne sut qui réagit le premier, mais un cri de terreur retentit et une personn
 
 Lorsqu'il avait brisé la Porte avec le tonnerre, c'était acceptable. Lorsqu'il l'avait brûlée avec le feu, cela restait tolérable. Mais pour la troisième, la quatrième et la cinquième fois, les portes s'étaient effondrées par une simple pression de la paume ou un simple geste de la main. En particulier, la dernière fois, où Wang Lin s'était contenté de fermer, d'ouvrir puis de refermer les yeux pour faire dissiper la Porte, avait dépassé l'entendement de tous les cultivateurs du Royaume Extérieur.
 
-Le jeune homme en robe verte recula avec effroi. Bien qu'il fût au stade du Vide Arcane, il n'en était qu'au début. En voyant Wang Lin briser trois Portes du Vide consécutivement, il perçut des indices.
+Le jeune homme en robe verte recula avec effroi. Bien qu'il fût au stade du Vide Arcanique, il n'en était qu'au début. En voyant Wang Lin briser trois Portes du Vide consécutivement, il perçut des indices.
 
 « Le Karma, la vie et la mort, le vrai et le faux... Il a réellement réussi à comprendre ces grands Dao éthérés! Cet homme ne peut pas être provoqué, il est absolument intouchable! »
 

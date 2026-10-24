@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1512 - Golden Bell !"
 slug: la-cloche-doree
 ---
-Wang Lin secoua la tête. Son regard était d'un calme absolu. Le Shui Daozi était resté le même qu'auparavant, toujours au stade initial du Nirvana Vide. Mais son sortilège était encore plus faible qu'auparavant; il était évident qu'il ne s'était pas encore remis de ses blessures.
+Wang Lin secoua la tête. Son regard était d'un calme absolu. Le Shui Daozi était resté le même qu'auparavant, toujours au stade initial du Vide du Nirvana. Mais son sortilège était encore plus faible qu'auparavant; il était évident qu'il ne s'était pas encore remis de ses blessures.
 
 « Te tuer dans cet état ne me procurerait aucune satisfaction! » Wang Lin secoua la tête. À l'instant même où la lance se refermait sur lui, il serra le poing et lança un coup!
 

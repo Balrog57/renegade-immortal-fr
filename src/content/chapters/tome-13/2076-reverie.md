@@ -112,11 +112,11 @@ Sous ce feu rugissant, toutes les marionnettes de sang s'effondrèrent, incapabl
 
 Le brasier céleste disparut instantanément après le départ de Treize. Le ciel restait rouge, mais l'éclat était moins intense. Un vieil homme apparut à la brèche de la formation et fixa Wang Lin, stupéfait.
 
-« Wang Lin!! » Le vieil homme était saisi d'incrédulité, mais il devint vite féroce. Sa culture de Tribulant du Vide explosa soudainement, faisant trembler le ciel et la terre.
+« Wang Lin!! » Le vieil homme était saisi d'incrédulité, mais il devint vite féroce. Sa culture de Tribulation du Vide explosa soudainement, faisant trembler le ciel et la terre.
 
 « Tu es donc revenu dans le monde des grottes! Mais même si tu es de retour, tu n'es qu'une fourmi face à ce vieil homme! » Ce vieil homme était Maître Âme Écarlate. Aussitôt, il fonça vers Wang Lin tel un rayon de lumière.
 
-De son point de vue, la culture de Wang Lin n'était qu'un nuage de brume; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Astral Immortel. Il était absolument confiant en sa culture de Tribulant du Vide.
+De son point de vue, la culture de Wang Lin n'était qu'un nuage de brume; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Astral Immortel. Il était absolument confiant en sa culture de Tribulation du Vide.
 
 Wang Lin regarda calmement Maître Âme Écarlate se précipiter vers lui.
 

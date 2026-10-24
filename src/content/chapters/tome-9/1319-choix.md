@@ -76,7 +76,7 @@ Lanmeng Daozun réfléchit un instant puis répondit lentement: « Il y en a une
 
 Lanmeng Daozun ne répondit pas à cette question. Au lieu de cela, après un long silence méditatif, il déclara:
 
-« La troisième étape de la culture est appelée les quatre royaumes du vide! Le premier est le Vide de Nirvana. Le Vide de l'Esprit est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et la Tribulation du Vide est le sommet! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet de la Tribulation du Vide, mais jamais de quiconque ayant traversé la tribulation avec succès; quant à la légendaire quatrième étape, la Marche sur le Ciel, personne ne l'a jamais atteinte!
+« La troisième étape de la culture est appelée les quatre royaumes du vide! Le premier est le Vide du Nirvana. Le Vide Spirituel est considéré comme le seuil, le Vide Arcanique est considéré comme le Grand Dao, et la Tribulation du Vide est le sommet! Depuis des temps immémoriaux, on n'a entendu parler que de personnes atteignant le sommet de la Tribulation du Vide, mais jamais de quiconque ayant traversé la tribulation avec succès; quant à la légendaire quatrième étape, la Marche sur le Ciel, personne ne l'a jamais atteinte!
 
 Même les huit concubines impériales célestes n'ont pas atteint ce stade! » Lanmeng Daozun détourna son regard de Wang Lin et parla lentement en contemplant l'horizon lointain.
 
@@ -122,4 +122,4 @@ Cette lumière sans fin surgit instantanément, secouant les cieux alors qu'elle
 
 Une ombre gigantesque apparut autour de Lanmeng Daozun. Elle était aussi haute que les cieux!
 
-« Bien que ce sort ne soit pas un sort du Dao, c'est une technique que j'ai comprise lors de mon stade de Vide de l'Esprit. Si vous parvenez à l'apprendre, vous aurez la capacité de vous protéger dans le Système Stellaire Antique! Quant au dernier sort que je vais vous enseigner, c'est celui que j'ai compris au sommet du stade du Vide de l'Esprit; c'est l'un de mes trois grands sorts! »
+« Bien que ce sort ne soit pas un sort du Dao, c'est une technique que j'ai comprise lors de mon stade de Vide Spirituel. Si vous parvenez à l'apprendre, vous aurez la capacité de vous protéger dans le Système Stellaire Antique! Quant au dernier sort que je vais vous enseigner, c'est celui que j'ai compris au sommet du stade du Vide Spirituel; c'est l'un de mes trois grands sorts! »

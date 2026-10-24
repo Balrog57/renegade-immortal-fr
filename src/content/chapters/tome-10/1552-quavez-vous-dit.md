@@ -74,7 +74,7 @@ Si Wang Lin avait été là pour voir cela, il aurait été stupéfait. Sa premi
 
 Système stellaire du Vide Brillant, Quartier Général de l'Alliance. La main droite de Wang Lin pointait vers le ciel et une empreinte de paume géante descendit sur la Peinture des Montagnes et des Rivières.
 
-L'expression de Wang Lin était calme, mais son sérieux était palpable. Lorsque Maître Long Pan venait de s'éveiller, il n'était qu'au stade du Nirvana Vide, ce qui avait permis à Wang Lin de lui briser les deux bras.
+L'expression de Wang Lin était calme, mais son sérieux était palpable. Lorsque Maître Long Pan venait de s'éveiller, il n'était qu'au stade du Vide du Nirvana, ce qui avait permis à Wang Lin de lui briser les deux bras.
 
 Cependant, avec l'apparition de la Peinture des Montagnes et des Rivières, Maître Long Pan, fusionné avec la planète, dégageait désormais l'aura puissante d'un cultivateur au milieu du stade Vide Spirituel!
 

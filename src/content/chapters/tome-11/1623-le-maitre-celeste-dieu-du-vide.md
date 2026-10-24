@@ -20,7 +20,7 @@ Il n'avait pas perdu toute son essence, mais Wang Lin en avait extrait la majeur
 
 Son cœur tremblait de réticence alors qu'il battait en retraite. Il songeait que s'il avait maintenu sa culture à son apogée, il n'aurait pas été si facile pour Wang Lin d'extraire ses essences.
 
-« Ce vieillard possède la culture du Vide Arcane, ce vieillard n'acceptera pas cela!! » rugit-il intérieurement, sans toutefois rien laisser paraître tandis qu'il s'échappait rapidement.
+« Ce vieillard possède la culture du Vide Arcanique, ce vieillard n'acceptera pas cela!! » rugit-il intérieurement, sans toutefois rien laisser paraître tandis qu'il s'échappait rapidement.
 
 Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, puis il se tourna vers Xushen Tianzun, qui était ralenti par le sort d'Arrêt et débordant d'intentions meurtrières.
 
@@ -68,7 +68,7 @@ Mais Wang Lin ne lui laisserait pas une telle chance. En un instant, il se retro
 
 L'index droit de Wang Lin sembla se muer en un tonnerre éternel. Ce tonnerre destructeur portait la puissance de tous les éclairs des Royaumes Intérieur et Extérieur, une force capable d'annihiler des cultivateurs du troisième niveau.
 
-Bien que Xushen Tianzun fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser!
+Bien que Xushen Tianzun fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcanique. Par conséquent, cette puissance de tonnerre pouvait encore le blesser!
 
 D'une seule pression, le corps de Xushen Tianzun trembla. Une lueur argentée jaillit entre ses sourcils; des dizaines de milliers de filaments argentés se déployèrent et s'étendirent sur tout son être dans un fracas de tonnerre. Du sang s'échappa du coin de sa bouche alors qu'il était repoussé.
 

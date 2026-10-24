@@ -80,7 +80,7 @@ La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maint
 
 À cet instant, il engagea toutes ses forces. Même s'il perdait son avatar, peu lui importait. La haine entre lui et Wang Lin était une question de vie ou de mort. Si Wang Lin ne mourait pas aujourd'hui, c'est lui qui mourrait plus tard!
 
-« Il est en train de fusionner ses essences, c'est le moment idéal pour l'abattre! Une fois la fusion terminée, je crains que même des cultivateurs du stade initial de Vide Arcane ne puissent l'égaler. Nous ne pouvons pas le laisser vivre! »
+« Il est en train de fusionner ses essences, c'est le moment idéal pour l'abattre! Une fois la fusion terminée, je crains que même des cultivateurs du stade initial de Vide Arcanique ne puissent l'égaler. Nous ne pouvons pas le laisser vivre! »
 
 Le jeune homme en robe verte partageait cette pensée. Il était déjà en train de battre en retraite lorsqu'il vit Xushen Tianzun agir. Il serra les dents, les yeux injectés de sang, enveloppa son corps d'une glace infinie et chargea Wang Lin.
 
@@ -108,7 +108,7 @@ C'est alors que Wang Lin bougea. Il avait passé sa vie dans le massacre et n'av
 
 « Empreinte Karmique! »
 
-L'homme en robe verte trembla, cracha un flot de sang et fut projeté en arrière. Bien qu'au stade initial de Vide Arcane, ses années de combat et ses blessures non guéries ne lui permettaient d'utiliser que la puissance d'un sommet de Vide Spirituel. Figé par le sort d'immobilisation, il n'avait aucune chance de résister.
+L'homme en robe verte trembla, cracha un flot de sang et fut projeté en arrière. Bien qu'au stade initial de Vide Arcanique, ses années de combat et ses blessures non guéries ne lui permettaient d'utiliser que la puissance d'un sommet de Vide Spirituel. Figé par le sort d'immobilisation, il n'avait aucune chance de résister.
 
 Alors que Wang Lin levait sa main droite, une masse de brume s'en échappa. Nul ne pouvait dire ce que c'était, mais lorsque la brume quitta le corps du jeune homme, celui-ci trembla violemment, les yeux écarquillés et le visage déformé par la douleur.
 

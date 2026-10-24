@@ -70,7 +70,7 @@ Wang Lin ignora Kang Ren. Son Sens Divin jaillit de sa main droite pour pénétr
 
 « Maître de secte au stade précoce du Vide Arcanique et Ancêtre au stade précoce de la Tribulation du Vide, Du Qing... » Wang Lin fronça les sourcils. Le stade précoce du Vide Arcanique n'était pas une menace, mais le stade précoce de la Tribulation du Vide était plus problématique.
 
-« Il n'est pas opportun d'ouvrir mon espace de stockage, car un accident pourrait survenir. Je ne peux donc ni sortir mes trésors, ni utiliser la Marionnette Yi Si... Par conséquent, je serai désavantagé face à un cultivateur Tribulant du Vide... »
+« Il n'est pas opportun d'ouvrir mon espace de stockage, car un accident pourrait survenir. Je ne peux donc ni sortir mes trésors, ni utiliser la Marionnette Yi Si... Par conséquent, je serai désavantagé face à un cultivateur Tribulation du Vide... »
 
 Tout en réfléchissant, Wang Lin absorba une grande quantité de feu terrestre pour nourrir son essence de feu, la rendant encore plus puissante.
 

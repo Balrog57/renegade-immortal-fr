@@ -42,7 +42,7 @@ L'ensemble de la Secte Gui Yi occupait une vaste portion du Continent du Taureau
 
 Au cœur de l'éclat de la formation, une silhouette aux cheveux et aux vêtements blancs commença à apparaître. Cependant, ce n'était que sa forme qui se dessinait, et non ses traits. Avant même qu'il ne soit pleinement visible, les dizaines de rayons de lumière avaient déjà encerclé Wang Lin.
 
-« Qui êtes-vous? Veuillez présenter votre jade d'identification! » Une voix froide résonna. L'interlocuteur était un homme d'âge moyen au stade avancé du Vide Arcane. Vêtu d'une robe taoïste des cinq éléments, il fixait Wang Lin d'un regard glacial.
+« Qui êtes-vous? Veuillez présenter votre jade d'identification! » Une voix froide résonna. L'interlocuteur était un homme d'âge moyen au stade avancé du Vide Arcanique. Vêtu d'une robe taoïste des cinq éléments, il fixait Wang Lin d'un regard glacial.
 
 Plus d'une dizaine de cultivateurs environnants portaient tous les robes de la Secte Gui Yi et attendaient que Wang Lin produise son jade d'identification. En cette période de guerre, s'il ne pouvait le présenter, ils l'exécuteraient sur-le-champ.
 

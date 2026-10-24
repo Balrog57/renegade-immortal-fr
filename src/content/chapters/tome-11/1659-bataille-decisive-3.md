@@ -88,7 +88,7 @@ Alors que Wang Lin s'apprêtait à le poursuivre, une intention meurtrière surg
 
 Derrière la femme, Qing Lin suivait rapidement. Il était évident que les trois s'étaient affrontés auparavant, mais la concubine impériale céleste avait réussi à échapper à leur attaque pour poursuivre Wang Lin.
 
-Plus loin encore, la femme en violet de la Rivière Invoquée se déchaînait telle une démone, ayant déjà tué plusieurs cultivateurs du Vide Nirvana. Elle combattait les deux derniers survivants.
+Plus loin encore, la femme en violet de la Rivière Invoquée se déchaînait telle une démone, ayant déjà tué plusieurs cultivateurs du Vide du Nirvana. Elle combattait les deux derniers survivants.
 
 Une vieille femme du Vide Arcanique du Royaume Extérieur lui faisait face! La dernière des trois concubines impériales célestes affrontait Maître Hong Shan. Ce dernier n'était manifestement pas de taille, mais il parvenait tant bien que mal à la contenir.
 

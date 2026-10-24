@@ -82,7 +82,7 @@ Plus loin encore, de l'autre côté des nuages, un vieil homme vêtu de pourpre 
 
 « Quelle puissante énergie de flèche! Il a réellement trouvé cette flèche! Quand je l'ai rencontré autrefois, il n'avait même pas atteint la troisième étape. Je ne m'attendais pas à ce qu'il possède six essences... »
 
-« Six essences... Une seule essence suffit pour devenir un puissant. Une fois les six essences fusionnées, la culture de cet enfant a sauté les étapes du Vide Nirvana pour atteindre le stade intermédiaire du Vide Spirituel... »
+« Six essences... Une seule essence suffit pour devenir un puissant. Une fois les six essences fusionnées, la culture de cet enfant a sauté les étapes du Vide du Nirvana pour atteindre le stade intermédiaire du Vide Spirituel... »
 
 « Avec une telle culture et cette flèche... » Ce vieil homme était le Vieux Fantôme Zhan. Il réfléchit un instant et observa les nuages d'un regard étrange et inexplicable.
 

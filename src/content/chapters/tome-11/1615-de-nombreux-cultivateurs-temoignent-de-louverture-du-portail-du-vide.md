@@ -56,7 +56,7 @@ Parmi eux se trouvaient aussi le Maître Long Pan et le Maître Lu Fu.
 
 Après son réveil, le Maître Long Pan gardait un souvenir profond de Wang Lin et savait qu'il était le Seigneur du Royaume Scellé. Il savait que la planète Suzaku était la patrie de Wang Lin et que c'était là que ce dernier avait disparu.
 
-Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Zhong Xuan. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcane, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku d'un seul coup.
+Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Zhong Xuan. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcanique, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku d'un seul coup.
 
 Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'ancêtre de Luotian. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté en silence pour livrer un combat acharné!
 
@@ -80,7 +80,7 @@ Il y avait aussi Zhou Jin, du clan du Loup Céleste. Après la disparition de Wa
 
 Parmi les deux, Zhou Jin possédait le niveau de culture le plus bas. Il affrontait le Maître Lu Fu sur le flanc gauche de la planète Suzaku. D'innombrables sorts s'entrechoquaient et, de loin, on pouvait voir un loup de sang géant tentant d'engloutir le Maître Lu Fu, sans y parvenir.
 
-Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de culture extrêmement élevé. Il combattait avec son corps original, qui se situait au stade précoce du Vide Arcane. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
+Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de culture extrêmement élevé. Il combattait avec son corps original, qui se situait au stade précoce du Vide Arcanique. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
 
 C'était la bataille ultime du Vide Brillant. Tout le Vide Brillant était tombé, à l'exception de ce lieu. Seule la planète Suzaku subsistait!
 

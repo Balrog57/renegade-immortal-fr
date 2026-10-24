@@ -64,7 +64,7 @@ Un instant plus tard, les yeux de Wang Lin s'illuminèrent et il cessa de penser
 
 « L'enfant de Ye Mo est mort par ma main et j'ai absorbé huit gouttes de sang ancien, issues de son âme originelle. Si je peux fusionner avec elles, cela rendra mon corps ancien encore plus puissant! »
 
-« Maintenant, je dois trouver cet autel, peut-être y trouverai-je une part de chance... Bien que je sois au stade du Vide Spirituel, je reste en retrait par rapport aux cultivateurs du Vide Arcane... »
+« Maintenant, je dois trouver cet autel, peut-être y trouverai-je une part de chance... Bien que je sois au stade du Vide Spirituel, je reste en retrait par rapport aux cultivateurs du Vide Arcanique... »
 
 « Maintenant que le Royaume Céleste Antique est ouvert et que les quatre généraux sont apparus, leur but doit être de rechercher la troisième âme... Cela m'épargnera bien des ennuis, et c'est le moment idéal pour élever mon niveau de culture! » Wang Lin réfléchissait tout en accélérant sa marche. Son Sens Divin se déployait pour observer attentivement les environs.
 

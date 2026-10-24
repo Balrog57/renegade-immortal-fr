@@ -66,13 +66,13 @@ Miaoyin Daozun cracha un flot de sang et battit en retraite précipitamment.
 
 « Même si je dois sacrifier un avatar, je dois tenter ma chance! » Le visage magnifique de Miaoyin Daozun se déforma. Il s'arrêta et n'utilisa aucun sort lorsqu'il percuta le brouillard.
 
-Son corps fut secoué par la brume et trembla violemment. Cet avatar était au milieu de la phase de l'Esprit Vide, mais à mesure que le brouillard pénétrait en lui, son niveau de culture chutait rapidement!
+Son corps fut secoué par la brume et trembla violemment. Cet avatar était au milieu de la phase de le Vide Spirituel, mais à mesure que le brouillard pénétrait en lui, son niveau de culture chutait rapidement!
 
-Début de l'Esprit Vide, pic du Nirvana Vide, fin, milieu, début! En un clin d'œil, sa culture fut affaiblie de 90 %. Il cracha une bouchée de sang et son corps se flétrit promptement; son apparence élégante avait disparu.
+Début de le Vide Spirituel, pic du Vide du Nirvana, fin, milieu, début! En un clin d'œil, sa culture fut affaiblie de 90 %. Il cracha une bouchée de sang et son corps se flétrit promptement; son apparence élégante avait disparu.
 
 Cependant, à cet instant précis, une marque numérique apparut entre ses sourcils! Dès l'apparition de la marque, une force de succion le tira dans la faille centrale!
 
-« Je comprends... Les cultivateurs de la troisième étape peuvent résister à cette force, mais le début du Nirvana Vide est le niveau de culture le plus élevé capable d'entrer dans la Tombe de l'Ordre Ancien! »
+« Je comprends... Les cultivateurs de la troisième étape peuvent résister à cette force, mais le début du Vide du Nirvana est le niveau de culture le plus élevé capable d'entrer dans la Tombe de l'Ordre Ancien! »
 
 Des scènes similaires se produisaient dans ce brouillard qui s'étendait sur des dizaines de millions de kilomètres!
 
@@ -112,6 +112,6 @@ Les yeux de Wang Lin s'illuminèrent et il fonça comme une météorite. Il éta
 
 *Grondement, grondement, grondement!* Les bruits d'effondrement furent étouffés par le grondement du brouillard, et les huit loups se désintégrèrent. La tempête rugit et dévora l'homme corpulent, faisant changer son expression.
 
-Cet homme ignorait la nature de ce brouillard étrange, mais il sentait la puissance qui s'en dégageait. Il battit en retraite rapidement, mais il était trop lent face à la brume. Son niveau étant déjà celui du début du Nirvana Vide, il n'avait pas besoin d'être affaibli: une marque numérique apparut soudain entre ses sourcils!
+Cet homme ignorait la nature de ce brouillard étrange, mais il sentait la puissance qui s'en dégageait. Il battit en retraite rapidement, mais il était trop lent face à la brume. Son niveau étant déjà celui du début du Vide du Nirvana, il n'avait pas besoin d'être affaibli: une marque numérique apparut soudain entre ses sourcils!
 
 Cependant, un cri plaintif retentit de son épaule droite!

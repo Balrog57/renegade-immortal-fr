@@ -92,7 +92,7 @@ La Secte Soleil et Lune était la plus puissante du continent Tian Fang. Elle co
 
 Le nombre de génies y était immense, mais aucun ne pouvait égaler une femme nommée Qing Hong. Son talent était si rare qu'on ne le croisait qu'une fois tous les dix mille ans!
 
-Il y a des centaines d'années, elle était devenue disciple de la Secte Soleil et Lune. En moins de mille ans, elle était devenue une grande puissante de la troisième étape et avait atteint le sommet du Nirvana Vide, n'étant plus qu'à un pas de devenir une cultivatrice du Vide Spirituel.
+Il y a des centaines d'années, elle était devenue disciple de la Secte Soleil et Lune. En moins de mille ans, elle était devenue une grande puissante de la troisième étape et avait atteint le sommet du Vide du Nirvana, n'étant plus qu'à un pas de devenir une cultivatrice du Vide Spirituel.
 
 Cela était dû en grande partie au fait que la Secte Soleil et Lune l'avait formée de manière optimale, mais cela témoignait aussi de son importance cruciale pour l'organisation.
 

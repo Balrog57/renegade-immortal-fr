@@ -46,7 +46,7 @@ Xu Decai était un cultivateur errant du Continent du Démon Vert ayant atteint 
 
 Il avait été invité par la Secte du Dao Démoniaque pour participer à la guerre contre le Continent du Taureau Céleste. On lui avait promis de nombreux bénéfices, alors il s'était joint à l'armée de cultivateurs qui avait fait voler en éclats le troisième méridien.
 
-À cet instant, il menait plus d'une douzaine de cultivateurs. Parmi eux se trouvaient trois personnes au troisième stade, mais la plus forte n'était qu'au stade intermédiaire du Vide Arcane.
+À cet instant, il menait plus d'une douzaine de cultivateurs. Parmi eux se trouvaient trois personnes au troisième stade, mais la plus forte n'était qu'au stade intermédiaire du Vide Arcanique.
 
 Le reste était principalement composé de cultivateurs au stade du Fléau Céleste. Ils chargeaient, menés par Xu Decai.
 

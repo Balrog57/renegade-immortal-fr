@@ -1,6 +1,6 @@
 ---
 n: 931
-title: Pseudo Nirvana Vide
+title: Pseudo Vide du Nirvana
 book: 8
 bookTitle: Alliance's Secret
 en: Chapter 931 - Pseudo Nirvana Void

@@ -108,7 +108,7 @@ L'apparition de cette essence provoqua une ascension soudaine du niveau de cultu
 
 À cet instant, son aura augmenta de manière effrénée et franchit un nouveau seuil!
 
-Lors de cette percée, son aura continua de croître jusqu'à atteindre le sommet du Vide Spirituel, n'étant plus qu'à un pas du Vide Arcane!
+Lors de cette percée, son aura continua de croître jusqu'à atteindre le sommet du Vide Spirituel, n'étant plus qu'à un pas du Vide Arcanique!
 
 Simultanément, l'intérieur du corps de Wang Lin entra en ébullition et des bruits de craquements retentirent. Ses yeux révélèrent une lumière semblable à celle d'un cristal d'eau!
 

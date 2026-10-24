@@ -14,7 +14,7 @@ En quelques enjambées, Wang Lin fusionna avec le monde et disparut. Lorsqu'il r
 
 Ces derniers possédaient des niveaux de culture variés. La plupart étaient au deuxième stade, tandis que quelques rares individus atteignaient le troisième stade. Bien qu'ils ne fussent pas nombreux, on pouvait les apercevoir par intermittence. À leur passage, leurs sens divins balayaient la zone, comme s'ils montaient la garde contre une menace invisible.
 
-À mesure que les cultivateurs du Continent du Démon Vert se multipliaient, ceux du Vide Arcane apparaissaient également, obligeant Wang Lin à ralentir davantage sa progression. Après avoir mûri sa réflexion, il plongea dans la restriction invisible en contrebas. Ses yeux s'injectèrent de sang alors qu'il s'immergeait dans la brume.
+À mesure que les cultivateurs du Continent du Démon Vert se multipliaient, ceux du Vide Arcanique apparaissaient également, obligeant Wang Lin à ralentir davantage sa progression. Après avoir mûri sa réflexion, il plongea dans la restriction invisible en contrebas. Ses yeux s'injectèrent de sang alors qu'il s'immergeait dans la brume.
 
 Wang Lin possédait l'essence de la restriction. À cet instant, il pouvait imiter la barrière entourant la Mer des Pilules grâce à son essence; il était donc confiant de ne pas être remarqué durant un certain temps.
 
@@ -30,7 +30,7 @@ Il n'y avait aucune terre pure en ce monde. S'il en existait, c'était uniquemen
 
 Tout en réfléchissant silencieusement, le regard de Wang Lin se fit plus perçant. Il perçut une puissante fluctuation au loin. Cela ne provenait pas d'un cultivateur, mais d'un trésor.
 
-Lorsqu'il scruta l'horizon, il vit passer plusieurs centaines de cultivateurs du Continent du Démon Vert. Parmi eux se trouvaient quatre cultivateurs du Vide Arcane, placés aux quatre points cardinaux pour assurer l'escorte.
+Lorsqu'il scruta l'horizon, il vit passer plusieurs centaines de cultivateurs du Continent du Démon Vert. Parmi eux se trouvaient quatre cultivateurs du Vide Arcanique, placés aux quatre points cardinaux pour assurer l'escorte.
 
 Au centre de cette troupe trônait un tambour gigantesque d'environ mille pieds de large!
 
