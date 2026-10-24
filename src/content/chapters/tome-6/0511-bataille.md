@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 511 - Battle!"
 slug: bataille
 ---
-Les deux anciens de la Secte de l'Épée Da Lou crachèrent du sang presque en même temps et furent projetés en arrière, laissant derrière eux plusieurs profondes empreintes de pas dans le sol.
+Les deux anciens de la Secte de l'Épée Da Luo crachèrent du sang presque en même temps et furent projetés en arrière, laissant derrière eux plusieurs profondes empreintes de pas dans le sol.
 
 Chaque pas qu'ils laissaient faisait légèrement trembler la terre.
 
@@ -20,7 +20,7 @@ Après ce reniflement, le gaz gris se referma brusquement et perça l'espace dis
 
 « Toi! » Lu Songyi voulut s'exclamer, mais son corps trembla soudainement et commença à gonfler comme un ballon.
 
-La scène était d'une étrangeté absolue. Le corps de Lu Songyi atteignit sa limite avant qu'un fracas ne retentisse: un cultivateur de la Formation de l'Âme de la Secte de l'Épée Da Lou venait d'exploser ainsi.
+La scène était d'une étrangeté absolue. Le corps de Lu Songyi atteignit sa limite avant qu'un fracas ne retentisse: un cultivateur de la Formation de l'Âme de la Secte de l'Épée Da Luo venait d'exploser ainsi.
 
 Boum! Boum! Boum! Le bruit résonnait encore dans la vallée tandis qu'une pluie de chair et de sang s'abattait sur le sol.
 
@@ -38,7 +38,7 @@ Le visage de Guo Xingyi devint livide, totalement dénué de couleur, et son cor
 
 Sa jeune sœur de discipline affichait une expression de terreur pure. Finalement, incapable de contenir son effroi, elle s'accroupit pour vomir, le visage extrêmement pâle.
 
-Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte de l'Épée Da Lou, il paraissait plus extasié que jamais, inspirant profondément cet air chargé d'une odeur de sang.
+Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte de l'Épée Da Luo, il paraissait plus extasié que jamais, inspirant profondément cet air chargé d'une odeur de sang.
 
 Hormis ces trois-là, la femme nommée Qian Qin affichait une expression troublante, partagée entre l'angoisse et la lutte intérieure.
 
@@ -52,7 +52,7 @@ Une masse considérable de gaz gris s'accumula au bout de son doigt pour former 
 
 Le regard de Wang Lin restait calme alors qu'il exerçait une légère pression sur son doigt. Une fluctuation d'énergie émana de l'intérieur de la sphère, la faisant rétrécir jusqu'à la taille d'un ongle. Wang Lin la saisit entre ses doigts et, lorsqu'il ouvrit la main, la boule de gaz gris avait disparu.
 
-Shi Fang, de la Secte de l'Épée Da Lou, fixa le jeton à la taille de Wang Lin avant de déclamer en détachant chaque mot: « Septième disciple de la Division Pourpre de la Secte du Destin Céleste, Wang Lin! »
+Shi Fang, de la Secte de l'Épée Da Luo, fixa le jeton à la taille de Wang Lin avant de déclamer en détachant chaque mot: « Septième disciple de la Division Pourpre de la Secte du Destin Céleste, Wang Lin! »
 
 Wang Lin retira sa main, regarda Shi Fang et dit: « Répondez à l'une de mes questions, et je laisserai l'un d'entre vous partir aujourd'hui! »
 
@@ -88,7 +88,7 @@ Dans un bruit de tonnerre, le corps de Shi Fang trembla et une sphère de lumiè
 
 « Acceptez la mort! »
 
-Les deux anciens de la Secte de l'Épée Da Lou au stade initial se battaient déjà de toutes leurs forces.
+Les deux anciens de la Secte de l'Épée Da Luo au stade initial se battaient déjà de toutes leurs forces.
 
 Wang Lin restait immobile, l'expression impassible et le regard imperturbable. Il fit un pas, leva la main, pressa l'air, et une lueur noire apparut sur son pouce.
 

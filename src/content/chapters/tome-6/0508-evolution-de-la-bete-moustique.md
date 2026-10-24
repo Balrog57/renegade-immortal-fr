@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 508 - Evolution of the mosquito beast
 slug: evolution-de-la-bete-moustique
 ---
-Une heure et demie plus tard, sous la tablette de pierre, trois rayons de lumière apparurent à l'horizon. Ils furent suivis d'une série de détonations tonitruantes. Ces trois traînées de lumière descendirent du ciel avec une force écrasante.
+Trois bâtons d'encens plus tard, sous la tablette de pierre, trois rayons de lumière apparurent à l'horizon. Ils furent suivis d'une série de détonations tonitruantes. Ces trois traînées de lumière descendirent du ciel avec une force écrasante.
 
 Ils atterrirent directement aux côtés des sept personnes qui attendaient sous la tablette de pierre. Suite à ce rugissement fracassant, leur arrivée provoqua une bourrasque de vent qui repoussa d'une centaine de mètres tous les individus, excepté l'homme nommé Guo. Leurs visages étaient d'une pâleur extrême, empreints de terreur.
 

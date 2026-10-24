@@ -48,7 +48,7 @@ Cependant, l'âme de cet homme n'était pas une Âme Naissante, mais une âme or
 
 Par conséquent, bien que ce souffle fût efficace, il ne put le figer totalement. L'âme bougea selon un angle impossible et parvint à échapper aux mâchoires de la bête, au prix d'un usage de son essence qui risquait d'endommager définitivement son âme originelle pour s'échapper.
 
-Mais à cet instant précis, Wang Lin agit; pourtant, ce ne fut pas son corps qu'il déplaça, mais le Fouet de l'Âme.
+Mais à cet instant précis, Wang Lin agit; pourtant, ce ne fut pas son corps qu'il déplaça, mais le Fouet Kunji.
 
 Le fouet fendit l'air comme une ombre et s'enroula promptement autour de l'âme originelle de l'homme à la robe noire. Wang Lin ramena l'âme vers lui et la scella dans un étendard d'âme.
 

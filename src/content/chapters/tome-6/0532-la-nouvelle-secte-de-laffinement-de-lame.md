@@ -12,21 +12,21 @@ Wang Lin se tenait devant la fissure. À cet instant, ses yeux s'illuminèrent; 
 
 Wang Lin recula rapidement, mais la lueur noire le poursuivait sans relâche.
 
-Il laissa échapper un froid reniflement, toucha son sac de rangement de la main droite et en sortit le Fouet de l'Âme. Il abattit le fouet, provoquant un gémissement de douleur chez le fantôme céleste qui ralentit aussitôt.
+Il laissa échapper un froid reniflement, toucha son sac de rangement de la main droite et en sortit le Fouet Kunji. Il abattit le fouet, provoquant un gémissement de douleur chez le fantôme céleste qui ralentit aussitôt.
 
-Le Fouet de l'Âme était spécialisé dans les blessures de l'âme, ce qui était fatal pour ce fantôme céleste qui n'avait point de corps physique, mais n'était qu'une âme spirituelle.
+Le Fouet Kunji était spécialisé dans les blessures de l'âme, ce qui était fatal pour ce fantôme céleste qui n'avait point de corps physique, mais n'était qu'une âme spirituelle.
 
 Sous l'effet de la douleur, le fantôme céleste devint plus féroce encore. Il décida d'ignorer la souffrance et chargea Wang Lin, le visage empreint d'une intention meurtrière extrême.
 
 Deux filaments de gaz gris parcouraient son corps tels des aiguilles, continuant d'absorber de vastes quantités de sa force vitale. Mais à cet instant, le fantôme céleste les ignora totalement pour se jeter sur Wang Lin. Partout où il passait, l'herbe se flétrissait et jaunissait; la scène était sinistre.
 
-Le regard de Wang Lin se glaça. Il cessa de reculer et fit tournoyer le Fouet de l'Âme. Sous une salve de coups, le fantôme céleste commença à pousser des gémissements misérables. Finalement, incapable de supporter la douleur, il fit volte-face pour s'enfuir.
+Le regard de Wang Lin se glaça. Il cessa de reculer et fit tournoyer le Fouet Kunji. Sous une salve de coups, le fantôme céleste commença à pousser des gémissements misérables. Finalement, incapable de supporter la douleur, il fit volte-face pour s'enfuir.
 
 Wang Lin savait que c'était là l'instant de vulnérabilité du fantôme céleste. Une fois qu'il se serait échappé et rétabli, il deviendrait très difficile à gérer. D'après les souvenirs de Lou Yun, le fantôme avait besoin de sept jours, puis de quarante-neuf jours pour recouvrer ses forces.
 
-Sans la moindre hésitation, il lança le Fouet de l'Âme. L'arme s'élança vers la créature tel un dragon féroce.
+Sans la moindre hésitation, il lança le Fouet Kunji. L'arme s'élança vers la créature tel un dragon féroce.
 
-Le fantôme céleste était d'une grande malice. Voyant qu'il ne pouvait s'échapper, il se retourna et ouvrit la bouche pour cracher un feu vert. Une masse de flammes verdâtres apparut, engloutissant le Fouet de l'Âme dans une mer de feu.
+Le fantôme céleste était d'une grande malice. Voyant qu'il ne pouvait s'échapper, il se retourna et ouvrit la bouche pour cracher un feu vert. Une masse de flammes verdâtres apparut, engloutissant le Fouet Kunji dans une mer de feu.
 
 Ce feu vert était la flamme vitale du fantôme céleste, son attaque la plus puissante. La haine qu'il éprouvait envers Wang Lin était légèrement moindre que celle qu'il ressentait pour le fouet; c'était l'arme qu'il exécrait par-dessus tout.
 
@@ -38,7 +38,7 @@ Au moment où le feu fut projeté, l'expression de Wang Lin changea. Il savait c
 
 Pourtant, en voyant ces flammes, son cœur trembla. Bien qu'il n'ait pas été touché directement, il en ressentit la puissance. Cette flamme ne brûlait pas le corps, elle consumait l'âme.
 
-En un instant, il sentit une douleur cuisante irradier de son âme originelle. N'ayant pas le temps de déplorer la possible perte du Fouet de l'Âme, il se retira précipitamment.
+En un instant, il sentit une douleur cuisante irradier de son âme originelle. N'ayant pas le temps de déplorer la possible perte du Fouet Kunji, il se retira précipitamment.
 
 C'est alors que des craquements résonnèrent provenant du fouet. Un rayon de lumière dorée jaillit de l'arme. Cette lueur n'apparut qu'un bref instant avant de disparaître sans laisser de trace.
 
@@ -50,7 +50,7 @@ Une fois le feu éteint, le fantôme céleste afficha une expression de stupéfa
 
 Mais il était trop tard. Cet éclat doré n'avait pas seulement éteint les flammes, il avait aussi rendu le corps du fantôme céleste plus transparent. La créature laissa échapper un hurlement terrifié alors qu'elle se dissipait rapidement.
 
-Wang Lin se déplaça avec la rapidité de l'éclair et tendit la main vers le Fouet de l'Âme. L'arme trembla avant de revenir prestement dans la main de Wang Lin.
+Wang Lin se déplaça avec la rapidité de l'éclair et tendit la main vers le Fouet Kunji. L'arme trembla avant de revenir prestement dans la main de Wang Lin.
 
 En tenant le fouet, il poussa un soupir de soulagement. La lumière dorée qui en avait jailli était tout simplement trop mystérieuse.
 
@@ -58,7 +58,7 @@ Il reporta son attention sur le fantôme céleste. Si Wang Lin n'avait pas saisi
 
 Wang Lin frappa son sac de rangement et en sortit le drapeau d'âmes. D'un geste magistral, il captura le fantôme céleste; grâce à l'environnement spécial de l'artefact, la dissipation s'interrompit.
 
-Après avoir accompli cela, Wang Lin examina attentivement le Fouet de l'Âme. L'arme avait changé après avoir été brûlée par les flammes vertes: certains morceaux de cuir s'étaient enroulés, devenant extrêmement robustes.
+Après avoir accompli cela, Wang Lin examina attentivement le Fouet Kunji. L'arme avait changé après avoir été brûlée par les flammes vertes: certains morceaux de cuir s'étaient enroulés, devenant extrêmement robustes.
 
 En l'étudiant, une sensation étrange envahit Wang Lin. Après avoir été consumé par le feu, le fouet semblait être un python muant de sa peau, mais le processus ne faisait que commencer et n'était pas encore achevé.
 

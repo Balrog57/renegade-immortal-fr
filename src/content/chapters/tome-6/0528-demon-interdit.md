@@ -14,7 +14,7 @@ Après tout, l'homme en robe noire était un puissant cultivateur au sommet du s
 
 Les sceaux de force vitale étaient l'assurance de Wang Lin pour l'avenir. Il avait déployé tous ses efforts pour en créer à peine trois, et voilà que l'un d'eux venait d'être détruit par l'homme en robe noire. Bien que le cœur de Wang Lin lui fît mal face à cette perte, il était également animé par une intention meurtrière.
 
-Voyant que l'ennemi n'avait pas l'intention de combattre et qu'il tentait de battre en retraite, le regard de Wang Lin devint glacial alors qu'il se lança aussitôt à la poursuite de l'homme en robe noire. Il effleura son sac de rangement et le Fouet de l'Âme apparut instantanément dans sa main.
+Voyant que l'ennemi n'avait pas l'intention de combattre et qu'il tentait de battre en retraite, le regard de Wang Lin devint glacial alors qu'il se lança aussitôt à la poursuite de l'homme en robe noire. Il effleura son sac de rangement et le Fouet Kunji apparut instantanément dans sa main.
 
 En pleine poursuite, il fit soudainement tournoyer le fouet. Celui-ci s'allongea aussitôt comme un dragon noir et se mit à fouetter furieusement l'air en direction de son adversaire.
 
@@ -22,19 +22,19 @@ Le visage de l'homme en robe noire s'assombrit; il se retourna brusquement pour 
 
 Au moment où sa main tendue vers le fouet s'approcha, cinq points rouges apparurent sur ses doigts. Ces points semblaient se mouvoir avec sa main, créant une sensation extrêmement mystérieuse. À cet instant, si l'on regardait de loin, ce n'était pas la main droite de l'homme qui bougeait, mais plutôt les cinq points rouges.
 
-Puis, sa main droite fendit l'air aussi vite que l'éclair et saisit directement le Fouet de l'Âme qui fonçait sur lui à une vitesse folle. Au moment de la saisie, les cinq points rouges sur ses doigts brillèrent intensément. Les cinq points de lumière se rejoignirent alors pour former un sceau étoilé à cinq branches!
+Puis, sa main droite fendit l'air aussi vite que l'éclair et saisit directement le Fouet Kunji qui fonçait sur lui à une vitesse folle. Au moment de la saisie, les cinq points rouges sur ses doigts brillèrent intensément. Les cinq points de lumière se rejoignirent alors pour former un sceau étoilé à cinq branches!
 
 L'homme en robe noire cria: « Restriction! »
 
-Wang Lin ricana. Il ne craignait absolument pas le Fouet de l'Âme; au lieu de retirer son arme, il fit un pas et se téléporta directement vers l'homme en robe noire.
+Wang Lin ricana. Il ne craignait absolument pas le Fouet Kunji; au lieu de retirer son arme, il fit un pas et se téléporta directement vers l'homme en robe noire.
 
-Presque au moment où Wang Lin se téléporta, la main de l'homme en robe noire toucha le Fouet de l'Âme. À peine eut-il fini de crier qu'un rayon de lumière noire apparut à l'extrémité du fouet et se propagea rapidement sur toute sa longueur.
+Presque au moment où Wang Lin se téléporta, la main de l'homme en robe noire toucha le Fouet Kunji. À peine eut-il fini de crier qu'un rayon de lumière noire apparut à l'extrémité du fouet et se propagea rapidement sur toute sa longueur.
 
 Simultanément, la lumière noire envahit le bras de l'homme en robe noire, qui poussa un gémissement de douleur. Un sifflement de crépitement émana de son bras, tandis que des volutes de gaz blanc s'en échappaient.
 
 L'homme en robe noire retira brusquement sa main, les yeux écarquillés par le choc. Il savait au fond de lui que son Sceau des Cinq Sangs était considéré comme un sceau de qualité supérieure, conçu spécifiquement pour sceller les trésors ennemis. Durant toutes ses années de culture, il l'avait utilisé contre d'innombrables cultivateurs sans jamais échouer. C'était la première fois qu'il subissait un tel échec.
 
-Au moment où il lâcha prise, toute sa volonté de combat s'évapora. Alors qu'il s'apprêtait à fuir, le Fouet de l'Âme vola vers lui selon un angle étrange. Dans un claquement retentissant, le fouet frappa son dos alors qu'il tentait de reculer.
+Au moment où il lâcha prise, toute sa volonté de combat s'évapora. Alors qu'il s'apprêtait à fuir, le Fouet Kunji vola vers lui selon un angle étrange. Dans un claquement retentissant, le fouet frappa son dos alors qu'il tentait de reculer.
 
 Sous la force de ce seul coup, son visage pâlit instantanément et ses yeux brillèrent d'une lueur mystérieuse inédite.
 

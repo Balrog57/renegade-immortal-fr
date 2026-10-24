@@ -8,7 +8,7 @@ slug: la-vallee-montagneuse
 ---
 « Cependant, rien de tout cela ne peut être comparé au jeton que j'ai aperçu. Qu'est-ce donc que ce jeton pour provoquer de telles réactions chez des êtres comme l'Omniscient ou Ling Tianhou... Ah, la planète Tian Yun recèle trop de secrets; sans aucune connaissance préalable, je ne peux même pas commencer à les deviner... » Wang Lin laissa échapper un soupir et resta silencieux.
 
-« Peu importe. Je dois avancer étape par étape; rien ne sert de se précipiter. Maintenant que mon corps original est bien caché dans cette planète dissimulée, il ne sera pas découvert à la légère. De plus, dans le Tombeau de Suzaku, Tuo Sen ne s'est concentré que sur moi et ignore encore l'existence de mon corps originel. Je devrai passer les cinq cents prochaines années à le renforcer pour préparer l'avenir! »
+« Peu importe. Je dois avancer étape par étape; rien ne sert de se précipiter. Maintenant que mon corps original est bien caché dans cette planète dissimulée, il ne sera pas découvert à la légère. De plus, dans le Tombeau de Suzaku, Tu Si ne s'est concentré que sur moi et ignore encore l'existence de mon corps originel. Je devrai passer les cinq cents prochaines années à le renforcer pour préparer l'avenir! »
 
 Wang Lin calma son esprit. Tandis qu'il était plongé dans ses pensées, il avait parcouru inconsciemment d'innombrables kilomètres. Il déploya son sens divin, mais ne trouva toujours rien.
 
