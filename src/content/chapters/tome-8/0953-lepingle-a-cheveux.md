@@ -10,9 +10,9 @@ Ce corps pourpre était le Maître du Royaume de la Boucherie!
 
 Son visage était livide, du sang s'écoulait du coin de sa bouche et ses yeux étaient empreints d'effroi.
 
-Un rayon de lumière rouge descendit de la brume pourpre. Il était d'une rapidité fulgurante, mais il ne chargea pas l'homme aux cheveux violets. Contre toute attente, il s'abattit sur le Maître Dieu Démon!
+Un rayon de lumière rouge descendit de la brume pourpre. Il était d'une rapidité fulgurante, mais il ne chargea pas l'homme aux cheveux violets. Contre toute attente, il s'abattit sur Shen Mozi!
 
-L'expression du Maître Dieu Démon changea radicalement et il tenta d'esquiver. Cependant, face au Royaume Ji de Qing Shui, il n'en avait pas la capacité. Le Royaume Ji perça directement sa poitrine.
+L'expression de Shen Mozi changea radicalement et il tenta d'esquiver. Cependant, face au Royaume Ji de Qing Shui, il n'en avait pas la capacité. Le Royaume Ji perça directement sa poitrine.
 
 Les yeux du vieil homme s'éteignirent instantanément et son corps s'effondra. On pourrait dire que sa mort fut l'une des plus rapides parmi les cultivateurs du Purificateur du Nirvana. Au moment de son trépas, une mélancolie infinie l'enveloppa.
 
@@ -20,7 +20,7 @@ L'éclair rouge ne s'arrêta pas après avoir transpercé le corps du vieil homm
 
 C'était là la puissance du Royaume Ji de Qing Shui!
 
-Wang Lin s'était déjà préparé à ouvrir son troisième œil et à utiliser l'énergie d'origine pour faire face à l'assaut du Maître Dieu Démon. Cependant, grâce à l'intervention de Qing Shui, il put immédiatement poursuivre le Maître Fantôme Vide.
+Wang Lin s'était déjà préparé à ouvrir son troisième œil et à utiliser l'énergie d'origine pour faire face à l'assaut de Shen Mozi. Cependant, grâce à l'intervention de Qing Shui, il put immédiatement poursuivre le Maître Fantôme Vide.
 
 La brume pourpre tourbillonnait dans le ciel avant de se contracter rapidement en une sphère de la taille d'un poing qui flotta dans la main de Qing Shui. Près de lui flottait également une épingle à cheveux pourpre sculptée d'un phénix.
 

@@ -30,7 +30,7 @@ Dès l'apparition de l'homme, son corps vacilla et se déplaça comme un éclair
 
 L'homme d'âge moyen le suivit de près. Il semblait se transformer en une nuée de fumée rouge tout en avançant vers Wang Lin.
 
-Il était resté caché pendant très longtemps, attendant l'occasion de frapper. Il n'osait pas provoquer Qing Shui et craignait même un peu Xu Mu. En observant le cercle de cultivateurs, il ricana et pensa: « Il semble que le Maître Dieu Démon ait eu la même idée que moi. Cependant, si j'avais accepté l'appel de l'Alliance pour tous les cultivateurs du Purificateur du Nirvana, je ne serais pas dans une situation aussi périlleuse. »
+Il était resté caché pendant très longtemps, attendant l'occasion de frapper. Il n'osait pas provoquer Qing Shui et craignait même un peu Xu Mu. En observant le cercle de cultivateurs, il ricana et pensa: « Il semble que Shen Mozi ait eu la même idée que moi. Cependant, si j'avais accepté l'appel de l'Alliance pour tous les cultivateurs du Purificateur du Nirvana, je ne serais pas dans une situation aussi périlleuse. »
 
 L'esprit de Wang Lin tressaillit et il fit un pas en avant sans hésiter, passant outre les neuf épées fusionnées. Sa main droite forma un sceau et il pointa derrière lui en criant: « Invoque le Vent! »
 
@@ -96,7 +96,7 @@ Les mains de l'homme frappèrent le vide devant lui tandis que l'énergie origin
 
 À cet instant précis, une lumière blanche jaillit du sol et un vieil homme vêtu de vert apparut. Il se lécha les lèvres et chargea, le regard brillant d'avidité.
 
-« La raison pour laquelle ce vieux s'est caché si longtemps en refusant l'appel de l'Alliance était d'éviter les ennuis. En présence de Qing Shui, je ne me serais montré sous aucun prétexte et j'aurais cherché une chance de m'enfuir. Mais avec le Maître Fantôme Vide qui combat Xu Mu, cela donne au Maître Dieu Démon une chance de récolter du mérite! »
+« La raison pour laquelle ce vieux s'est caché si longtemps en refusant l'appel de l'Alliance était d'éviter les ennuis. En présence de Qing Shui, je ne me serais montré sous aucun prétexte et j'aurais cherché une chance de m'enfuir. Mais avec le Maître Fantôme Vide qui combat Xu Mu, cela donne au Shen Mozi une chance de récolter du mérite! »
 
 La silhouette du vieil homme était d'une rapidité extrême alors qu'il fonçait sur Wang Lin. Tandis que Wang Lin reculait, ses yeux brillèrent d'une lueur malveillante et ses mains formèrent un sceau. Deux flammes vertes se condensèrent dans ses paumes.
 
@@ -108,7 +108,7 @@ Dans le Royaume de la Boucherie, sa prudence atteignait son paroxysme, et son ti
 
 Il ne craignait pas d'être détecté par Wang Lin; son énergie originelle jaillit alors qu'il chargeait, faisant trembler et se distordre l'espace environnant.
 
-« Je veux voir comment tu utiliseras la Distorsion Spatiale! » L'intention meurtrière emplissait les yeux du vieil homme nommé Maître Dieu Démon. Son corps était comme une flèche lancée, et il projeta ses deux mains en avant.
+« Je veux voir comment tu utiliseras la Distorsion Spatiale! » L'intention meurtrière emplissait les yeux du vieil homme nommé Shen Mozi. Son corps était comme une flèche lancée, et il projeta ses deux mains en avant.
 
 Cependant, à cet instant précis, un changement stupéfiant se produisit!
 
