@@ -102,7 +102,7 @@ Au centre du champ de bataille, les flammes de Maître Yan Leizi étaient monstr
 
 Parallèlement à ces craquements, d'innombrables glaciers surgirent, imposants, s'élançant droit vers le ciel. Ji Xiantian était entouré de glaces semblables à de gigantesques lames acérées pointées vers les cieux, faisant face à Maître Yan Leizi.
 
-« Maître Yan Leizi, nous t'avons laissé échapper lors de la bataille d'il y a des dizaines de milliers d'années. Aujourd'hui, en l'absence de Zhong Xuanzi, je vais te tuer ici et maintenant! » La voix tranchante de Ji Xiantian était comme une lame de glace, empreinte d'un froid absolu et d'une intention meurtrière sans fin.
+« Maître Yan Leizi, nous t'avons laissé échapper lors de la bataille d'il y a des dizaines de milliers d'années. Aujourd'hui, nul besoin que Zhong Xuanzi intervienne, je peux te tuer ici même! » La voix tranchante de Ji Xiantian était comme une lame de glace, empreinte d'un froid absolu et d'une intention meurtrière sans fin.
 
 Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en regardant de plus près, on remarquait que sa poitrine était plate et que sa pomme d'Adam, quoique petite, était bien visible! C'était manifestement un homme!
 

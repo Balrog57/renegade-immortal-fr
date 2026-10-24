@@ -80,7 +80,7 @@ Cependant, à cet instant précis, une aura extrêmement puissante jaillit de la
 
 Simultanément, un rayon de lumière rouge jaillit de la haute tour pour fondre sur Yu Fei, mais c'était trop tard!
 
-Dès qu'il entendit cette voix, Yu Fei ne s'arrêta pas et continua sa course. Mais à cet instant même, une énergie dévastatrice surgit du vortex qui se contractait devant lui. Elle déchira le portail et deux doigts apparurent soudainement. Imprégnés d'une intention meurtrière monstrueuse, ils s'abattirent brutalement sur le dos de Yu Fei.
+Dès qu'il entendit cette voix, Yu Fei ne s'arrêta pas et continua sa course. Mais à cet instant même, une énergie dévastatrice surgit du vortex qui se contractait derrière lui. Elle déchira le portail et deux doigts apparurent soudainement. Imprégnés d'une intention meurtrière monstrueuse, ils s'abattirent brutalement sur le dos de Yu Fei.
 
 « C'est Xu Mu! » Yu Fei cracha du sang tandis que son corps était projeté violemment vers l'avant par une force implacable. Des craquements sinistres résonnèrent dans ses os et une brume de sang jaillit de ses pores. En un instant, son corps entier s'effondra!
 

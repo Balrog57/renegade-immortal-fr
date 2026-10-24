@@ -56,7 +56,7 @@ En y songeant, Wang Lin ressentit de l'amertume. L'énergie originelle céleste 
 
 Les sorts célestes que Qing Shui lui avait transmis, *Invoquer la Pluie* et *Arsenal Magique*, exigeaient tous une quantité massive d'énergie originelle céleste. Sans réserves suffisantes, il ne pourrait même pas les apprendre, et encore moins les utiliser.
 
-C'était précisément pour cela que Qing Shui voulait que Wang Lin pénètre dans le bassin céleste et lui avait offert cette énergie originelle.
+C'était précisément pour cela que Qing Shui voulait que Wang Lin pénètre dans le bassin céleste, et la raison pour laquelle il lui avait offert le haricot céleste par la suite.
 
 Toutefois, l'entrée dans le bassin céleste présentait trop d'inconvénients, et Wang Lin n'était pas disposé à faire ce choix. Bien qu'il possédât de l'énergie originelle céleste en lui, les moyens de la régénérer étaient rares. Même en absorbant l'énergie spirituelle céleste des jades célestes, il ne pourrait pas la convertir en énergie originelle céleste pour son propre corps.
 

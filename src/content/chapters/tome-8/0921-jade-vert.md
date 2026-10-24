@@ -14,7 +14,7 @@ Fixant au loin le Serpent aux yeux de lune et ses innombrables tentacules oscill
 
 La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sang. La seconde, après les 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
 
-À cet instant, le sifflement produit par l'immense morceau de bois s'approchant du Serpent aux yeux de lune devint de plus en plus assourdissant. Alors que les ondulations se rapprochaient, les cultivateurs derrière Wang Lin commencèrent à acclamer.
+À cet instant, le sifflement produit par l'immense morceau de bois devant le Serpent aux yeux de lune devint de plus en plus assourdissant. Alors que les ondulations se rapprochaient, les cultivateurs derrière Wang Lin commencèrent à acclamer.
 
 Simultanément, ces derniers s'élancèrent vers l'avant.
 
