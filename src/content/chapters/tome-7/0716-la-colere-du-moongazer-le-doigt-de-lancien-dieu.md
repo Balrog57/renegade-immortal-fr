@@ -36,11 +36,11 @@ Le corps massif du Serpent aux yeux de lune s'étira lentement, perdant sa forme
 
 D'innombrables tentacules géants se déployèrent et oscillèrent sans cesse, tandis qu'une aura inimaginable se propageait progressivement de son corps.
 
-Le corps de Cupidité surgit du gigantesque fourneau. Ce fut cependant un bien mauvais moment pour apparaître, car le Serpent aux yeux de lune libérait sa fureur. Lorsque Cupidité aperçut la fissure non loin de là, ses yeux devinrent rouges. Il poussa un rugissement et accéléra comme un fou. Il voulait s'enfuir!
+Le corps de Tan Lang surgit du gigantesque fourneau. Ce fut cependant un bien mauvais moment pour apparaître, car le Serpent aux yeux de lune libérait sa fureur. Lorsque Tan Lang aperçut la fissure non loin de là, ses yeux devinrent rouges. Il poussa un rugissement et accéléra comme un fou. Il voulait s'enfuir!
 
 Mais à cet instant précis, la fissure se referma lentement.
 
-Les yeux de Cupidité s'emplirent de larmes de sang et il poussa un cri déchirant: « Non!! »
+Les yeux de Tan Lang s'emplirent de larmes de sang et il poussa un cri déchirant: « Non!! »
 
 Le Serpent aux yeux de lune referma sa gueule, son corps immense débordant de puissance. Ses mouvements étaient encore lents, car il ne reprenait pas encore totalement le contrôle de lui-même. Cependant, à mesure que les restes de l'influence du Fruit d'Ascension Céleste étaient purgés de son système, il regagnait progressivement sa maîtrise.
 
@@ -52,9 +52,9 @@ Une onde de choc colossale se propagea dans toutes les directions, puis le Serpe
 
 Simultanément, le Serpent aux yeux de lune ouvrit la gueule et parla la langue des dieux anciens. Le cuir chevelu de Wang Lin se hérissa lorsqu'il vit plus d'une centaine de serpents aux yeux de lune plus petits, longs d'environ mille pieds chacun, jaillir de sa bouche.
 
-Cupidité se trouvait également à l'intérieur de cette gueule. En voyant les étoiles, son excitation s'embrasa de nouveau. Cette sensation était trop délicieuse; cela faisait bien trop longtemps qu'il n'avait pas contemplé le firmament. Il était si exalté qu'il en perdait la parole.
+Tan Lang se trouvait également à l'intérieur de cette gueule. En voyant les étoiles, son excitation s'embrasa de nouveau. Cette sensation était trop délicieuse; cela faisait bien trop longtemps qu'il n'avait pas contemplé le firmament. Il était si exalté qu'il en perdait la parole.
 
-Mais il savait qu'il ne s'était pas véritablement échappé. Ses yeux repérèrent instantanément la Boussole Stellaire au loin et reconnurent Wang Lin. Cupidité fut soudainement frappé par une illumination, et son regard se mua en haine pure.
+Mais il savait qu'il ne s'était pas véritablement échappé. Ses yeux repérèrent instantanément la Boussole Stellaire au loin et reconnurent Wang Lin. Tan Lang fut soudainement frappé par une illumination, et son regard se mua en haine pure.
 
 Toutefois, il n'osait agir avec imprudence. Trop de ces bêtes féroces de mille pieds de long l'entouraient, et il craignait que ses mouvements n'attirent leur attention sur lui.
 
@@ -72,37 +72,37 @@ Profitant de cet instant, Wang Lin s'élança sans la moindre hésitation. Il se
 
 Wang Lin avait immobilisé les petits serpents aux yeux de lune, mais le sort n'avait aucun effet sur le grand serpent qui constituait la planète Yun Xia. Ce dernier s'élança avec une telle violence que l'impact permit aux plus petits spécimens de retrouver leur liberté.
 
-Cependant, la chance de Cupidité était déplorable. Lui aussi fut immobilisé et se rétablit plus lentement que les autres. Alors que le Serpent aux yeux de lune chargeait, il retomba une fois de plus dans sa gueule.
+Cependant, la chance de Tan Lang était déplorable. Lui aussi fut immobilisé et se rétablit plus lentement que les autres. Alors que le Serpent aux yeux de lune chargeait, il retomba une fois de plus dans sa gueule.
 
-La vision de Cupidité s'obscurcit et, l'instant d'après, il se retrouva de nouveau prisonnier de la fissure.
+La vision de Tan Lang s'obscurcit et, l'instant d'après, il se retrouva de nouveau prisonnier de la fissure.
 
-Accablé par le désespoir, les yeux de Cupidité brillèrent de folie. Il se mordit la langue et cracha un large jet de sang sur l'immense fourneau. Le fourneau dégagea alors une aura ancienne et une ondulation se propagea. Les yeux de Cupidité étincelèrent: il échangea immédiatement sa position avec le plus rapide des petits serpents aux yeux de lune.
+Accablé par le désespoir, les yeux de Tan Lang brillèrent de folie. Il se mordit la langue et cracha un large jet de sang sur l'immense fourneau. Le fourneau dégagea alors une aura ancienne et une ondulation se propagea. Les yeux de Tan Lang étincelèrent: il échangea immédiatement sa position avec le plus rapide des petits serpents aux yeux de lune.
 
 Le visage extrêmement pâle, il cracha une autre bouchée de sang, pointa Wang Lin du doigt et hurla: « Wang Lin, ne t'avise pas de partir! »
 
-Wang Lin avait depuis longtemps remarqué Cupidité. Sans même tourner la tête, il pointa derrière lui et l'énergie spirituelle céleste, semblable à une tempête, jaillit de son corps.
+Wang Lin avait depuis longtemps remarqué Tan Lang. Sans même tourner la tête, il pointa derrière lui et l'énergie spirituelle céleste, semblable à une tempête, jaillit de son corps.
 
 Arrête!
 
-Cupidité s'apprêtait à utiliser à nouveau le pouvoir du fourneau pour échanger sa place avec celle de Wang Lin. Mais le sort d'arrêt descendit sur lui et son corps se figea.
+Tan Lang s'apprêtait à utiliser à nouveau le pouvoir du fourneau pour échanger sa place avec celle de Wang Lin. Mais le sort d'arrêt descendit sur lui et son corps se figea.
 
-Le regard du Serpent aux yeux de lune tomba soudainement sur Cupidité, ses yeux brillant intensément. Il percevait une aura provenant du grand fourneau qui lui procurait un immense confort.
+Le regard du Serpent aux yeux de lune tomba soudainement sur Tan Lang, ses yeux brillant intensément. Il percevait une aura provenant du grand fourneau qui lui procurait un immense confort.
 
-Autrefois, lorsque le Serpent aux yeux de lune n'était pas encore éveillé, la raison pour laquelle il n'avait pas tué Cupidité était ce fourneau. Cependant, comme il dormait, il avait inconsciemment dirigé Cupidité et le fourneau vers son lieu d'excrétion.
+Autrefois, lorsque le Serpent aux yeux de lune n'était pas encore éveillé, la raison pour laquelle il n'avait pas tué Tan Lang était ce fourneau. Cependant, comme il dormait, il avait inconsciemment dirigé Tan Lang et le fourneau vers son lieu d'excrétion.
 
-Bien que cet endroit fût celui où le serpent excrétait, c'était aussi là qu'il absorbait les choses. Inconsciemment, il voulait absorber le fourneau, ce qui avait causé les cent ans de souffrance de Cupidité.
+Bien que cet endroit fût celui où le serpent excrétait, c'était aussi là qu'il absorbait les choses. Inconsciemment, il voulait absorber le fourneau, ce qui avait causé les cent ans de souffrance de Tan Lang.
 
-Alors que le corps de Cupidité était figé, le Serpent aux yeux de lune l'engloutit immédiatement.
+Alors que le corps de Tan Lang était figé, le Serpent aux yeux de lune l'engloutit immédiatement.
 
 Les yeux de Wang Lin brillèrent d'une lueur étrange. Il profita de ce changement pour creuser à nouveau la distance.
 
-Cupidité ne sentit que son monde s'obscurcir. Lorsqu'il reprit ses esprits, il avait été englouti une fois de plus et se trouvait au bord de la fissure. Ces va-et-vient incessants rendaient le visage de Cupidité extrêmement amer, et sa haine envers Wang Lin ne faisait que croître.
+Tan Lang ne sentit que son monde s'obscurcir. Lorsqu'il reprit ses esprits, il avait été englouti une fois de plus et se trouvait au bord de la fissure. Ces va-et-vient incessants rendaient le visage de Tan Lang extrêmement amer, et sa haine envers Wang Lin ne faisait que croître.
 
 « C'est entièrement de ta faute!! »
 
-Cupidité serra les dents avec acharnement, ses mains formèrent un sceau et il pressa le fourneau. Une lumière d'un blanc laiteux jaillit de son front pour s'imprimer sur l'objet.
+Tan Lang serra les dents avec acharnement, ses mains formèrent un sceau et il pressa le fourneau. Une lumière d'un blanc laiteux jaillit de son front pour s'imprimer sur l'objet.
 
-Cupidité rugit: « Même si je dois sacrifier des années de ma vie, je m'échapperai de cet endroit! » Le fourneau absorba les années de vie de Cupidité et grandit instantanément.
+Tan Lang rugit: « Même si je dois sacrifier des années de ma vie, je m'échapperai de cet endroit! » Le fourneau absorba les années de vie de Tan Lang et grandit instantanément.
 
 En un clin d'œil, il commença à croître, dégageant une aura ancienne de plus en plus puissante.
 
@@ -110,17 +110,17 @@ Le Serpent aux yeux de lune poussa un rugissement. Alors que ce cri résonnait, 
 
 Quant au garde céleste, il trembla violemment et la lumière dorée qui l'entourait s'effondra. Même l'éclat de ses yeux s'était terni, mais comparées à celles de Wang Lin, ses blessures étaient plutôt légères.
 
-Alors que le fourneau se dilatait, Cupidité s'élança avec détermination. La gueule du Serpent aux yeux de lune était maintenue ouverte par l'expansion du fourneau.
+Alors que le fourneau se dilatait, Tan Lang s'élança avec détermination. La gueule du Serpent aux yeux de lune était maintenue ouverte par l'expansion du fourneau.
 
-« Ce vieil homme ne veut pas de ce fourneau! » Le cœur de Cupidité se serra alors qu'il tentait de faire demi-tour pour s'enfuir.
+« Ce vieil homme ne veut pas de ce fourneau! » Le cœur de Tan Lang se serra alors qu'il tentait de faire demi-tour pour s'enfuir.
 
-Cependant, à cet instant précis, le Serpent aux yeux de lune recracha l'immense fourneau et ses yeux révélèrent une lumière mystérieuse. D'innombrables tentacules se déployèrent immédiatement pour envelopper le fourneau, tandis que d'autres se précipitèrent vers la cible la plus proche: Cupidité.
+Cependant, à cet instant précis, le Serpent aux yeux de lune recracha l'immense fourneau et ses yeux révélèrent une lumière mystérieuse. D'innombrables tentacules se déployèrent immédiatement pour envelopper le fourneau, tandis que d'autres se précipitèrent vers la cible la plus proche: Tan Lang.
 
-L'expression de Cupidité devint sombre. Il frappa son sac de rangement et un écran apparut soudainement. Ses mains formèrent un sceau et une force évoquant les montagnes et les rivières surgit parmi les étoiles.
+L'expression de Tan Lang devint sombre. Il frappa son sac de rangement et un écran apparut soudainement. Ses mains formèrent un sceau et une force évoquant les montagnes et les rivières surgit parmi les étoiles.
 
 Alors que Wang Lin s'échappait, son sens divin eut même l'hallucination de ne plus être au milieu des étoiles, mais devant des montagnes et des rivières majestueuses!
 
-« Peinture des Montagnes et des Rivières! » La Boussole Stellaire de Wang Lin ralentit et ses yeux trahirent une certaine avidité en observant l'écran. Il se souvint que Cupidité avait dit qu'il n'avait pas trouvé la Peinture elle-même, mais un écran projetant son image.
+« Peinture des Montagnes et des Rivières! » La Boussole Stellaire de Wang Lin ralentit et ses yeux trahirent une certaine avidité en observant l'écran. Il se souvint que Tan Lang avait dit qu'il n'avait pas trouvé la Peinture elle-même, mais un écran projetant son image.
 
 Les yeux du Serpent aux yeux de lune restèrent froids, et une rune étrange apparut dans son regard. Wang Lin reconnut cette rune: c'était la langue des dieux anciens!
 

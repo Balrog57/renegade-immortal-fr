@@ -1,6 +1,6 @@
 ---
 n: 1703
-title: "La cupidité refait surface!"
+title: "Tan Lang refait surface!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1703 - Greed Appears Once More!"
@@ -106,12 +106,12 @@ En entendant ces mots, l'homme laissa couler ses larmes, les yeux emplis de pani
 
 « Wa Wa, il n'a pas fini son histoire, ne prends pas pitié de lui. Tu te souviens comment il nous a menacées en arrivant ici? » La petite fille nommée Han Han attrapa la jambe de l'homme et le tira en arrière alors qu'il poussait un cri de détresse.
 
-« Cupidité, dépêche-toi, finis cette histoire. Tu parlais justement du Serpent aux yeux de lune, dis vite la suite! »
+« Tan Lang, dépêche-toi, finis cette histoire. Tu parlais justement du Serpent aux yeux de lune, dis vite la suite! »
 
-La petite fille appelée Wa Wa sourit en regardant Cupidité. Après une courte réflexion, elle reprit:
+La petite fille appelée Wa Wa sourit en regardant Tan Lang. Après une courte réflexion, elle reprit:
 
 « Que dirais-tu de ceci: raconte-nous encore mille ans d'histoires, et je déciderai si je te laisse partir ou non. »
 
-Cupidité poussa un hurlement alors que son corps était traîné en arrière vers ce lieu terrifiant. En entendant les paroles de Wa Wa, ses larmes redoublèrent.
+Tan Lang poussa un hurlement alors que son corps était traîné en arrière vers ce lieu terrifiant. En entendant les paroles de Wa Wa, ses larmes redoublèrent.
 
 « Je le savais... vous deux... Vous êtes pareilles! C'était la même chose la dernière fois. Je n'ai vraiment plus d'histoires... j'ai juste soif... »

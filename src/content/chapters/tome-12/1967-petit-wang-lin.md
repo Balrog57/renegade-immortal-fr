@@ -100,9 +100,9 @@ Tandis que les rires résonnaient, la petite fille nommée Wa Wa apparut aux cô
 
 Wang Lin regarda le cultivateur jeté au sol, qui baissa les mains pour révéler un visage empreint d'amertume.
 
-« Cupidité... »
+« Tan Lang... »
 
-« Eh bien... Compagnon Cultivateur Wang, cela fait longtemps que nous ne nous sommes pas vus... » dit Cupidité, alors que des larmes semblaient perler dans ses yeux.
+« Eh bien... Compagnon Cultivateur Wang, cela fait longtemps que nous ne nous sommes pas vus... » dit Tan Lang, alors que des larmes semblaient perler dans ses yeux.
 
 « Très bien, le chauve, le type au masque et toi, vieux décrépit, vous pouvez tous partir. Ce petit Wang Lin est à nous! » La petite fille Wa Wa posa une main sur sa taille et leva l'autre. Elle jouait la comédie, feignant une sagesse ancienne en pointant du doigt.
 

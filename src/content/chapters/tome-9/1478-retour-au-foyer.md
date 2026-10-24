@@ -116,7 +116,7 @@ Au moment où le territoire disparut, Miao Yin et ses compagnons arrivèrent sur
 
 Simultanément au départ de Wang Lin, Tuo Sen sembla prendre sa décision. Il prit l'héritage de la mémoire et le pressa entre ses sourcils!
 
-Dans le Royaume Intérieur, sous le Royaume Céleste du Tonnerre, à la lisière du Système Stellaire de Luotian. À cet instant, une faille spatiale apparut silencieusement là où Cupidité avait disparu précédemment, et une silhouette blanche en sortit.
+Dans le Royaume Intérieur, sous le Royaume Céleste du Tonnerre, à la lisière du Système Stellaire de Luotian. À cet instant, une faille spatiale apparut silencieusement là où Tan Lang avait disparu précédemment, et une silhouette blanche en sortit.
 
 Dès son apparition, une aura terrifiante jaillit de son corps, se transformant en une pression qui balaya tout le Système Stellaire de Luotian. Cette puissance était telle qu'elle fit trembler chaque être vivant!
 

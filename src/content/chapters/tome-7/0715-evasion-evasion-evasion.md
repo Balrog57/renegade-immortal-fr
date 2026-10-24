@@ -62,21 +62,21 @@ La terre s'immobilisa soudainement et la gueule géante se referma légèrement.
 
 L'interruption du Serpent aux yeux de lune stoppa l'effondrement de l'espace. Wang Lin s'enfuit sans hésiter, et la garde céleste le suivit sans relâche. À cet instant précis, une silhouette mince surgit des profondeurs de la fissure, animée par un mélange de terreur et d'exultation.
 
-C'était Cupidité!
+C'était Tan Lang!
 
-Le bouleversement massif du Serpent aux yeux de lune avait provoqué un changement violent dans ses zones d'absorption et d'excrétion, créant une ouverture. Cupidité en avait profité pour s'échapper, et bien sûr, il n'avait pas l'intention de laisser derrière lui son gigantesque fourneau.
+Le bouleversement massif du Serpent aux yeux de lune avait provoqué un changement violent dans ses zones d'absorption et d'excrétion, créant une ouverture. Tan Lang en avait profité pour s'échapper, et bien sûr, il n'avait pas l'intention de laisser derrière lui son gigantesque fourneau.
 
-Après avoir surgi de cet endroit, Cupidité réalisa la terreur que représentait le serpent aux yeux de lune. Il n'hésita pas à utiliser le fourneau pour s'élever dans les airs. En regardant autour de lui, il vit la fissure géante et même les étoiles au-delà!
+Après avoir surgi de cet endroit, Tan Lang réalisa la terreur que représentait le serpent aux yeux de lune. Il n'hésita pas à utiliser le fourneau pour s'élever dans les airs. En regardant autour de lui, il vit la fissure géante et même les étoiles au-delà!
 
 Une excitation qu'il n'avait pas ressentie depuis cent ans envahit son corps. Il sentit même des larmes perler à ses yeux. Ces jours passés à vivre ni comme un humain, ni comme un fantôme allaient enfin prendre fin.
 
 Il se remémora les cent dernières années. Il avait passé presque tout ce temps dans la zone d'excrétion de la bête. Pour lui, c'était une infamie! En particulier, cette odeur nauséabonde qu'il ne pourrait jamais oublier; bien que l'effluve eût disparu, il avait l'impression de pouvoir encore la sentir.
 
-Cupidité jura que, une fois échappé, il ne mettrait plus jamais les pieds dans le domaine nordique du système stellaire de Luotian. À l'avenir, lorsqu'il chasserait des trésors, il devrait être prudent, extrêmement prudent, et encore plus prudent!
+Tan Lang jura que, une fois échappé, il ne mettrait plus jamais les pieds dans le domaine nordique du système stellaire de Luotian. À l'avenir, lorsqu'il chasserait des trésors, il devrait être prudent, extrêmement prudent, et encore plus prudent!
 
-Voyant la fissure se rapprocher, l'excitation de Cupidité atteignit son apogée!
+Voyant la fissure se rapprocher, l'excitation de Tan Lang atteignit son apogée!
 
-« Le vieux Cupidité va enfin être libre! »
+« Le vieux Tan Lang va enfin être libre! »
 
 À cet instant, la confusion dans les yeux du Serpent aux yeux de lune disparut soudainement et la langue des anciens dieux résonna une nouvelle fois. Wang Lin fut envahi par un froid glacial. Dans ce moment de vie ou de mort, il ne pouvait plus hésiter. Il lança un ordre qui força la garde céleste à ralentir pour précipiter la moitié de l'os qu'elle portait vers le serpent aux yeux de lune!
 
@@ -86,17 +86,17 @@ La moitié de l'os était semblable à une montagne titanesque, créant un siffl
 
 Cependant, inconsciemment, il ouvrit la gueule et engloutit la chaîne de montagnes!
 
-L'excitation de Cupidité était si intense qu'il semblait avoir dévoré d'innombrables Fruits d'Ascension Céleste. Il progressait à une vitesse folle vers la fissure, au point de vouloir hurler de joie! Les cent années de misère touchaient enfin à leur fin!
+L'excitation de Tan Lang était si intense qu'il semblait avoir dévoré d'innombrables Fruits d'Ascension Céleste. Il progressait à une vitesse folle vers la fissure, au point de vouloir hurler de joie! Les cent années de misère touchaient enfin à leur fin!
 
-Il savait déjà qu'il ne pouvait pas se téléporter à l'intérieur du serpent; dès qu'il tentait de le faire, une force étrange l'obstruait et ralentissait sa vitesse. Pourtant, au moment où Cupidité était sur le point d'atteindre la fissure, une ombre gigantesque obscurcit soudainement l'ouverture.
+Il savait déjà qu'il ne pouvait pas se téléporter à l'intérieur du serpent; dès qu'il tentait de le faire, une force étrange l'obstruait et ralentissait sa vitesse. Pourtant, au moment où Tan Lang était sur le point d'atteindre la fissure, une ombre gigantesque obscurcit soudainement l'ouverture.
 
-Cupidité fut stupéfait et se frotta les yeux, suspectant une hallucination. Qu'était cette ombre immense... Après avoir été imprégné par les émanations du serpent pendant si longtemps, même l'esprit de Cupidité était devenu quelque peu embrumé.
+Tan Lang fut stupéfait et se frotta les yeux, suspectant une hallucination. Qu'était cette ombre immense... Après avoir été imprégné par les émanations du serpent pendant si longtemps, même l'esprit de Tan Lang était devenu quelque peu embrumé.
 
-« Ceci... ceci est... une montagne! » Les yeux de Cupidité reflétèrent le désespoir et son excitation s'évapora instantanément. N'importe qui ressentant des sentiments aussi contradictoires et puissants se serait senti sur le point de s'effondrer.
+« Ceci... ceci est... une montagne! » Les yeux de Tan Lang reflétèrent le désespoir et son excitation s'évapora instantanément. N'importe qui ressentant des sentiments aussi contradictoires et puissants se serait senti sur le point de s'effondrer.
 
-Toutefois, Cupidité était un puissant cultivateur. Il poussa un rugissement, chargea et pénétra dans son fourneau, lequel fonça brusquement sur le côté. La montagne passa dans un sifflement et son flanc racla le fourneau, provoquant une pluie d'étincelles. Les vibrations forcèrent Cupidité, resté à l'intérieur, à cracher du sang sans interruption.
+Toutefois, Tan Lang était un puissant cultivateur. Il poussa un rugissement, chargea et pénétra dans son fourneau, lequel fonça brusquement sur le côté. La montagne passa dans un sifflement et son flanc racla le fourneau, provoquant une pluie d'étincelles. Les vibrations forcèrent Tan Lang, resté à l'intérieur, à cracher du sang sans interruption.
 
-« Maudit soit-il!!! » Après avoir de justesse évité la montagne, Cupidité émergea du fourneau, livide. Il ne contrôlait pas totalement l'engin et, s'il y restait trop longtemps, il serait raffiné par l'aura terrifiante qu'il contenait.
+« Maudit soit-il!!! » Après avoir de justesse évité la montagne, Tan Lang émergea du fourneau, livide. Il ne contrôlait pas totalement l'engin et, s'il y restait trop longtemps, il serait raffiné par l'aura terrifiante qu'il contenait.
 
 Après avoir englouti la moitié de la montagne, la confusion du Serpent aux yeux de lune s'intensifia. Ce sentiment était si familier... Il était sur le point de se souvenir...
 

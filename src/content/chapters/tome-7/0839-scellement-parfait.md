@@ -68,7 +68,7 @@ Lorsqu'elle réapparut, Wang Lin la saisit et la rangea dans son sac comme un tr
 
 « Ce n'est pas l'endroit idéal pour raffiner une garde céleste! » Les yeux de Wang Lin brillèrent et il retourna au sommet du fourneau. D'une simple pensée, le fourneau commença à flotter lentement vers l'avant.
 
-En chemin, la brume blanche entourant le fourneau semblait s'isoler, faisant en sorte que les tentacules ne l'importunent pas. Autrefois, c'était ainsi que Cupidité avait réussi à éviter les petits serpents aux yeux de lune et leurs tentacules pour s'échapper à plusieurs reprises, bien qu'il échouât toujours à cause des capacités du Serpent aux yeux de lune principal.
+En chemin, la brume blanche entourant le fourneau semblait s'isoler, faisant en sorte que les tentacules ne l'importunent pas. Autrefois, c'était ainsi que Tan Lang avait réussi à éviter les petits serpents aux yeux de lune et leurs tentacules pour s'échapper à plusieurs reprises, bien qu'il échouât toujours à cause des capacités du Serpent aux yeux de lune principal.
 
 Cela prouvait néanmoins que la brume blanche du fourneau possédait un effet de furtivité à l'intérieur du serpent.
 

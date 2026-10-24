@@ -112,4 +112,4 @@ Des brins de tentacules, aussi épais que des bras, étaient enroulés autour du
 
 L'expression du vieillard devint sombre lorsqu'il ouvrit soudainement les yeux. Les parois de la caverne se mirent à bouger et une masse de brume rouge jaillit des parois. Des résidus fétides contenant des traces d'électricité parvinrent également, rendant l'odeur absolument insupportable.
 
-Ce vieillard était Cupidité. Si Wang Lin avait été présent, il aurait reconnu cet endroit après un instant de réflexion comme le lieu où le Serpent aux yeux de lune absorbe ses nutriments et expulse ses déchets.
+Ce vieillard était Tan Lang. Si Wang Lin avait été présent, il aurait reconnu cet endroit après un instant de réflexion comme le lieu où le Serpent aux yeux de lune absorbe ses nutriments et expulse ses déchets.

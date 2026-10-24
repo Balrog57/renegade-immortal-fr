@@ -18,11 +18,11 @@ Une aura aussi écrasante que le firmament apparut. Simultanément, sept lumièr
 
 Bei Luo fronça les sourcils en levant les yeux au ciel. Après un bref coup d'œil, il agita ses manches et disparut.
 
-Plusieurs silhouettes émergèrent du vortex dans le ciel. Ling Tianhou se tenait là, vêtu de robes vertes. Dominant la terre du regard, il rugit: « Cupidité, sors et viens à la rencontre de ce vieil homme! »
+Plusieurs silhouettes émergèrent du vortex dans le ciel. Ling Tianhou se tenait là, vêtu de robes vertes. Dominant la terre du regard, il rugit: « Tan Lang, sors et viens à la rencontre de ce vieil homme! »
 
 Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol commença immédiatement à se fissurer sous la puissance de l'onde de choc. En un clin d'œil, la voix de Ling Tianhou s'était propagée dans toute la Terre des Esprits Démoniaques.
 
-Étrangement, il semblait que tous savaient déjà que Cupidité était arrivé, car personne ne manifesta la moindre surprise.
+Étrangement, il semblait que tous savaient déjà que Tan Lang était arrivé, car personne ne manifesta la moindre surprise.
 
 L'Ancêtre Sanguin fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied sur la Terre des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
 
@@ -46,7 +46,7 @@ Wang Wei sourit. « Chers compagnons de culture, cela fait bien longtemps! »
 
 Hu Juan esquissa également un sourire discret, sans toutefois prendre la parole.
 
-Ling Tianhou fixa Wang Wei et dit froidement: « Compagnon de culture Wang, j'ai remarqué que Cupidité est avec vous. Remettez-le moi, j'ai des questions cruciales à lui poser! »
+Ling Tianhou fixa Wang Wei et dit froidement: « Compagnon de culture Wang, j'ai remarqué que Tan Lang est avec vous. Remettez-le moi, j'ai des questions cruciales à lui poser! »
 
 Wang Wei sourit et dit à son amante: « Regarde, après tant d'années, non seulement le tempérament du Saint de l'Épée n'a pas faibli, mais il s'est encore aggravé. »
 
@@ -54,31 +54,31 @@ Hu Juan lança un regard tendre et sourit. « Il est compréhensible que le Sain
 
 L'expression de Ling Tianhou était extrêmement sombre. S'il ne craignait pas ces deux-là, sa personnalité l'aurait déjà poussé à les attaquer.
 
-Wang Wei frappa son sac de rangement et deux personnes en sortirent immédiatement: Chen Long et Cupidité.
+Wang Wei frappa son sac de rangement et deux personnes en sortirent immédiatement: Chen Long et Tan Lang.
 
-En voyant Ling Tianhou, les yeux de Chen Long se remplirent de joie. Il s'agenouilla, les larmes aux yeux, et s'écria: « Maître! C'est lui, c'est Cupidité qui a fait du mal à tous mes jeunes frères apprentis! »
+En voyant Ling Tianhou, les yeux de Chen Long se remplirent de joie. Il s'agenouilla, les larmes aux yeux, et s'écria: « Maître! C'est lui, c'est Tan Lang qui a fait du mal à tous mes jeunes frères apprentis! »
 
-L'expression de Cupidité resta parfaitement neutre. Après être apparu, il se tint simplement derrière Wang Wei et Hu Juan, tel un vieux serviteur.
+L'expression de Tan Lang resta parfaitement neutre. Après être apparu, il se tint simplement derrière Wang Wei et Hu Juan, tel un vieux serviteur.
 
-Ling Tianhou ne daigna pas regarder Chen Long; il fixa Cupidité et dit d'un ton menaçant: « Cupidité, tu as sacrément du cran! »
+Ling Tianhou ne daigna pas regarder Chen Long; il fixa Tan Lang et dit d'un ton menaçant: « Tan Lang, tu as sacrément du cran! »
 
-Bien que le cœur de Cupidité ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte de l'Épée Da Luo? »
+Bien que le cœur de Tan Lang ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte de l'Épée Da Luo? »
 
 Chen Long le dévisagea avec haine. La présence de son maître lui donnait du courage, et il hurla: « Même si vous ne les avez pas tués de vos propres mains, vous nous avez piégés dans la brume violette! Sans cela, comment mes jeunes frères auraient-ils pu mourir?! »
 
-Cupidité eut un rire moqueur. « Ce vieil homme vous a enfermés dans la brume pour obtenir le jeton, mais ai-je porté la moindre main sur l'un de vous? Au lieu de chercher celui qui a tué tes frères, tu viens m'accuser. Quelles futilités! »
+Tan Lang eut un rire moqueur. « Ce vieil homme vous a enfermés dans la brume pour obtenir le jeton, mais ai-je porté la moindre main sur l'un de vous? Au lieu de chercher celui qui a tué tes frères, tu viens m'accuser. Quelles futilités! »
 
-Chen Long s'apprêtait à répliquer, mais Ling Tianhou agita ses manches et trancha froidement: « Chen Long, tais-toi! » Puis, fixant Cupidité avec une intention meurtrière, il ajouta mot pour mot: « Cupidité, où est le jeton?! »
+Chen Long s'apprêtait à répliquer, mais Ling Tianhou agita ses manches et trancha froidement: « Chen Long, tais-toi! » Puis, fixant Tan Lang avec une intention meurtrière, il ajouta mot pour mot: « Tan Lang, où est le jeton?! »
 
-Cupidité eut un sourire amer et déclara d'un ton désespéré: « Vous ne me croirez peut-être pas, mais je jure sur mes dizaines de milliers d'années de culture que le jeton n'est pas entre mes mains! »
+Tan Lang eut un sourire amer et déclara d'un ton désespéré: « Vous ne me croirez peut-être pas, mais je jure sur mes dizaines de milliers d'années de culture que le jeton n'est pas entre mes mains! »
 
-Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris l'Ancêtre Sanguin, tournèrent leurs regards perçants vers Cupidité.
+Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de l'Omniscient qui gardait les yeux clos, tous les vieux monstres, y compris l'Ancêtre Sanguin, tournèrent leurs regards perçants vers Tan Lang.
 
-Cupidité sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Luo! »
+Tan Lang sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Luo! »
 
 Ling Tianhou fronça les sourcils et se tourna vers Chen Long.
 
-Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang Lin possédait le jeton et qu'il avait été piégé par Cupidité. Je ne sais pas ce qui s'est passé ensuite. Cependant... il a bel et bien tué plusieurs de mes jeunes frères! »
+Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang Lin possédait le jeton et qu'il avait été piégé par Tan Lang. Je ne sais pas ce qui s'est passé ensuite. Cependant... il a bel et bien tué plusieurs de mes jeunes frères! »
 
 À cet instant précis, l'Omniscient ouvrit soudainement les yeux et regarda vers l'est.
 
@@ -124,6 +124,6 @@ L'Ancêtre Sanguin sentit comme si des aiguilles lui transperçaient le dos. Apr
 
 Ling Tianhou demanda d'une voix pesante: « Qui ira? »
 
-« Si je me propose, mes compagnons de culture se méfieront de moi. Le meilleur choix est sans aucun doute Cupidité! Nous placerons chacun une restriction sur lui, et ainsi, ce Cupidité ne pourra jamais échapper à nos mains. Il n'aura d'autre choix que de capturer Wang Lin et de le ramener! De plus, le niveau de culture de Cupidité est assez élevé pour faire face à lui! »
+« Si je me propose, mes compagnons de culture se méfieront de moi. Le meilleur choix est sans aucun doute Tan Lang! Nous placerons chacun une restriction sur lui, et ainsi, ce Tan Lang ne pourra jamais échapper à nos mains. Il n'aura d'autre choix que de capturer Wang Lin et de le ramener! De plus, le niveau de culture de Tan Lang est assez élevé pour faire face à lui! »
 
 L'Omniscient fixa silencieusement le vortex, ses yeux brillant d'une lueur mystérieuse. Personne ne savait ce qu'il méditait.

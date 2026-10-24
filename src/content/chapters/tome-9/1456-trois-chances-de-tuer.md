@@ -114,8 +114,8 @@ En seulement trente minutes après avoir été projeté par le bras, Wang Lin av
 
 Il avait complètement quitté les abords extérieurs de l'Ancien Tombeau: cet endroit en était la partie intérieure!
 
-Non loin de lui, sur la cinquième carte, une forme de feuille marquait une forêt... Wang Lin connaissait cette forêt: c'était là que Cupidité avait obtenu la Feuille Ancienne!
+Non loin de lui, sur la cinquième carte, une forme de feuille marquait une forêt... Wang Lin connaissait cette forêt: c'était là que Tan Lang avait obtenu la Feuille Ancienne!
 
-C'était aussi là que Cupidité avait aperçu la statue qui avait poussé la femme en argent à hurler d'horreur!
+C'était aussi là que Tan Lang avait aperçu la statue qui avait poussé la femme en argent à hurler d'horreur!
 
 La statue aux sept couleurs!

@@ -1,6 +1,6 @@
 ---
 n: 712
-title: Le petit trésor de la cupidité
+title: Le petit trésor de Tan Lang
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 712 - Greeds Little Treasure
@@ -80,17 +80,17 @@ En se déplaçant un instant plus tôt, Wang Lin avait remarqué que l'énergie 
 
 Tout en contemplant la montagne fusionnée avec l'os du Serpent aux yeux de lune, l'éclat dans les yeux de Wang Lin s'estompa pour laisser place à une lueur mystérieuse.
 
-« Cupidité! » lâcha Wang Lin, le visage sombre.
+« Tan Lang! » lâcha Wang Lin, le visage sombre.
 
-Il avait déjà vu cette montagne, dans la Terre des Esprits Démoniaques. C'était le trésor que Cupidité avait sorti et dont il avait extrait l'âme de la montagne pour attaquer.
+Il avait déjà vu cette montagne, dans la Terre des Esprits Démoniaques. C'était le trésor que Tan Lang avait sorti et dont il avait extrait l'âme de la montagne pour attaquer.
 
 « Ils m'ont bel et bien poursuivi! » Les yeux de Wang Lin brillèrent. Il n'était plus pressé d'extraire l'os du Serpent aux yeux de lune.
 
-« Je ne sais pas s'ils sont tous venus, ou seulement quelques-uns, ou si seul Cupidité est arrivé! » Wang Lin se frotta le menton en fixant la montagne. Il avança et pénétra directement dans la fissure.
+« Je ne sais pas s'ils sont tous venus, ou seulement quelques-uns, ou si seul Tan Lang est arrivé! » Wang Lin se frotta le menton en fixant la montagne. Il avança et pénétra directement dans la fissure.
 
 Les parois de l'os étaient irrégulières et la grande quantité de minerai métallique émettait une lueur rouge, créant un spectacle magnifique.
 
-« La formation des sept étoiles a été emportée par les tentacules et j'ignore où elle se trouve. Cependant, je ne peux pas abandonner cette montagne. Avec le statut et les habitudes de Cupidité, ses trésors ne peuvent être ordinaires! » Une lueur étrange passa dans le regard de Wang Lin. Il inspecta soigneusement les environs avant d'atteindre la montagne.
+« La formation des sept étoiles a été emportée par les tentacules et j'ignore où elle se trouve. Cependant, je ne peux pas abandonner cette montagne. Avec le statut et les habitudes de Tan Lang, ses trésors ne peuvent être ordinaires! » Une lueur étrange passa dans le regard de Wang Lin. Il inspecta soigneusement les environs avant d'atteindre la montagne.
 
 Le rebord de la montagne était déjà assimilé à l'os, rendant la séparation impossible. On pouvait clairement voir que des pierres de feu d'or s'étaient incrustées dans la montagne.
 
@@ -124,7 +124,7 @@ Wang Lin progressait à une vitesse fulgurante dans les profondeurs et était d�
 
 Ce qui l'effrayait le plus, c'était la nature extrêmement étrange de l'apparition du serpent. Il n'avait absolument pas senti sa présence approcher. Cela faisait longtemps qu'une telle surprise ne lui était arrivée.
 
-« Ce Serpent aux yeux de lune est sous sa troisième forme. Ce maudit Cupidité, qu'a-t-il bien pu faire? S'il s'était contenté de planter la montagne dans l'os du serpent, cela ne ressemblerait absolument pas à ça! »
+« Ce Serpent aux yeux de lune est sous sa troisième forme. Ce maudit Tan Lang, qu'a-t-il bien pu faire? S'il s'était contenté de planter la montagne dans l'os du serpent, cela ne ressemblerait absolument pas à ça! »
 
 Soudain, Wang Lin s'arrêta en pleine fuite. Il sembla avoir eu une pensée soudaine, et son visage devint encore plus ténébreux.
 

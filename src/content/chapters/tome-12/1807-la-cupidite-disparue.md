@@ -1,6 +1,6 @@
 ---
 n: 1807
-title: "La Cupidité disparue!"
+title: "Tan Lang disparu!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1807 - Missing Greed!"
@@ -84,9 +84,9 @@ Il répéta l'opération plusieurs fois jusqu'à ce qu'il maîtrise parfaitement
 
 « Peu importe si j'ai perdu quelques trésors. Je peux en obtenir d'autres sur le Continent Astral Immortel! » Wang Lin regarda au-delà de la montagne, son regard semblant percer la roche pour atteindre le ciel assombri.
 
-« La Cupidité doit aussi se trouver sur ce continent... Tant qu'il est là, je ne manquerai pas de richesses! Il me suffira de le rencontrer pour résoudre bien des problèmes... Cupidité, j'attends avec impatience nos retrouvailles sur le Continent Astral Immortel... » Un léger sourire étira les lèvres de Wang Lin.
+« Tan Lang doit aussi se trouver sur ce continent... Tant qu'il est là, je ne manquerai pas de richesses! Il me suffira de le rencontrer pour résoudre bien des problèmes... Tan Lang, j'attends avec impatience nos retrouvailles sur le Continent Astral Immortel... » Un léger sourire étira les lèvres de Wang Lin.
 
-« Pourtant, ce Cupidité est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui et Situ, mais pourquoi n'a-t-il pas eu besoin de se réincarner comme eux pour quitter le monde caverneux?... Même avec l'aide de ce Grand Empyréen, Xuan Luo est également intervenu... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
+« Pourtant, ce Tan Lang est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui et Situ, mais pourquoi n'a-t-il pas eu besoin de se réincarner comme eux pour quitter le monde caverneux?... Même avec l'aide de ce Grand Empyréen, Xuan Luo est également intervenu... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
 
 « Peu importe, je saurai peut-être en plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing de la Secte du Dragon Bleu n'est pas faible; s'il vient à ma rencontre, la bataille sera féroce! »
 

@@ -124,6 +124,6 @@ Il avait trop vécu au cours de ses plus de huit cents ans de culture...
 
 Quelques jours plus tard, sur la planète Ran Yun, dans le village de la Lune Déchue, une nouvelle famille s'était installée. Cette famille était étrange; elle ne comptait que deux personnes: un jeune homme à l'aura antique et un bébé.
 
-Au même moment, dans le système stellaire de Luotian, Cupidité errait avec une expression sombre. Il y avait tout simplement trop d'empreintes sur son corps, au point que chaque fois qu'il y pensait, son cuir chevelu s'engourdissait et son cœur se glaçait.
+Au même moment, dans le système stellaire de Luotian, Tan Lang errait avec une expression sombre. Il y avait tout simplement trop d'empreintes sur son corps, au point que chaque fois qu'il y pensait, son cuir chevelu s'engourdissait et son cœur se glaçait.
 
 « Maudit Wang Lin! Si je ne le trouve pas rapidement, l'une des empreintes de mon corps s'activera et je mourrai sans sépulture! »

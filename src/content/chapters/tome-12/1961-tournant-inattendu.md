@@ -130,4 +130,4 @@ Il avait tout vu et était en accord avec les paroles de l'Empereur Céleste. En
 
 À cet instant, au sein de la Secte Yang Pourpre, le Grand Empyréen Gémeaux avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Elles avaient vu Wang Lin se faire rabaisser et étaient furieuses. En voyant Wang Lin s'élancer dans le ciel, elles furent envahies par l'attente.
 
-« Wang... Wang Lin?! » Cupidité, qui subissait les tourments du Grand Empyréen Gémeaux, fixa le miroir, l'esprit totalement vide.
+« Wang... Wang Lin?! » Tan Lang, qui subissait les tourments du Grand Empyréen Gémeaux, fixa le miroir, l'esprit totalement vide.

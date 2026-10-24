@@ -42,11 +42,11 @@ Continent Est, au sein de la Secte Yang Pourpre. Les yeux de l'homme d'âge moye
 
 « Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyréens! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
 
-Les deux petites filles à ses côtés clignèrent des yeux et se levèrent aussitôt. À trois, ils se transformèrent en une bourrasque de vent et disparurent. Cependant, juste au moment où ils s'évanouirent, une petite main apparut aux côtés de la joyeuse Cupidité.
+Les deux petites filles à ses côtés clignèrent des yeux et se levèrent aussitôt. À trois, ils se transformèrent en une bourrasque de vent et disparurent. Cependant, juste au moment où ils s'évanouirent, une petite main apparut aux côtés de la joyeuse Tan Lang.
 
 « Ah, j'ai oublié d'emmener Petit Loup. Petit Loup, ne t'inquiète pas, nous ne t'oublierons pas. Ta performance était bonne tout à l'heure, alors viens avec nous. »
 
-Des larmes coulèrent des yeux de la Cupidité tandis que son cou était saisi par cette petite main et qu'elle disparaissait de la pièce de pierre.
+Des larmes coulèrent des yeux de Tan Lang tandis que son cou était saisi par cette petite main et qu'elle disparaissait de la pièce de pierre.
 
 Sur le Continent du Grand Sage, le corps de Wang Lin était resté assis dans la grotte pendant qu'il participait à l'Épreuve Empyrée. Le dragon marin avait beaucoup rétréci et se prélassait paresseusement. Liu Jinbiao sautillait autour du corps du dragon. Parfois, il touchait délicatement certains points, d'autres fois il grattait certaines zones comme pour apaiser une démangeaison.
 

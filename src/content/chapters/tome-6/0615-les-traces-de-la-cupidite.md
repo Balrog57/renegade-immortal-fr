@@ -1,6 +1,6 @@
 ---
 n: 615
-title: Les traces de la Cupidité
+title: Les traces de Tan Lang
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 615 - Whereabouts of Greed
@@ -14,9 +14,9 @@ Tandis qu'il s'éloignait à toute allure, il ne daigna même pas se retourner p
 
 Wang Lin raffina la tête de Hai Zhu et dévora l'énergie d'épée. Quant à l'âme originelle de Hai Zhu, Wang Lin utilisa le sort de recherche d'âme. Une fois les informations obtenues, l'âme originelle de Hai Zhu fut au bord de l'effondrement. Wang Lin la jeta alors dans l'étendard des âmes pour qu'elle serve d'âme principale.
 
-« Non seulement les membres de la Secte de l'Épée Da Luo dans la Terre des Esprits Démoniaques possèdent tous un fragment de l'énergie d'épée de Ling Tianhou, mais il y a aussi quelqu'un nommé Cupidité qui les protège secrètement... Cupidité... Ce nom est très particulier, je ne devrais pas le connaître. L'apparence de ce "Cupidité" dans la mémoire de Hai Zhu m'est quelque peu familière, mais je suis certain de ne jamais l'avoir rencontré auparavant », songea Wang Lin en volant.
+« Non seulement les membres de la Secte de l'Épée Da Luo dans la Terre des Esprits Démoniaques possèdent tous un fragment de l'énergie d'épée de Ling Tianhou, mais il y a aussi quelqu'un nommé Tan Lang qui les protège secrètement... Tan Lang... Ce nom est très particulier, je ne devrais pas le connaître. L'apparence de ce "Tan Lang" dans la mémoire de Hai Zhu m'est quelque peu familière, mais je suis certain de ne jamais l'avoir rencontré auparavant », songea Wang Lin en volant.
 
-« Cupidité... D'après les souvenirs de Hai Zhu, la culture de cette personne a déjà surpassé le stade Ascendant pour atteindre le stade de l'Illusion Yin... Un seul pas en dessous du stade Corporel Yang de Situ Nan... » Les sourcils de Wang Lin se froncèrent. Soudain, il cessa de voler et resta immobile dans les airs.
+« Tan Lang... D'après les souvenirs de Hai Zhu, la culture de cette personne a déjà surpassé le stade Ascendant pour atteindre le stade de l'Illusion Yin... Un seul pas en dessous du stade Corporel Yang de Situ Nan... » Les sourcils de Wang Lin se froncèrent. Soudain, il cessa de voler et resta immobile dans les airs.
 
 « Situ Nan! » Wang Lin prit une profonde inspiration et sa main droite effleura son sac de rangement. Un jade en sortit et il le saisit. Après l'avoir examiné avec son Sens Divin, son expression devint sombre.
 
@@ -26,7 +26,7 @@ S'il n'avait pas pensé à Situ Nan, il ne se serait pas souvenu que ce dernier 
 
 Wang Lin n'avait pas non plus imaginé croiser l'un d'eux. De plus, il était extrêmement facile pour les cultivateurs de changer d'apparence; trouver quelqu'un à partir de quelques images n'était pas moins difficile que de chercher une aiguille dans une botte de foin.
 
-« Si ce Cupidité est bel et bien l'ennemi de Situ Nan, alors il doit connaître la perle défiant le ciel... » Wang Lin toucha l'espace entre ses sourcils. Cette perle était le plus grand secret de Wang Lin. Voilà plus de 700 ans qu'il l'avait obtenue, et les propriétés de la perle défiant le ciel restaient extrêmement étranges.
+« Si ce Tan Lang est bel et bien l'ennemi de Situ Nan, alors il doit connaître la perle défiant le ciel... » Wang Lin toucha l'espace entre ses sourcils. Cette perle était le plus grand secret de Wang Lin. Voilà plus de 700 ans qu'il l'avait obtenue, et les propriétés de la perle défiant le ciel restaient extrêmement étranges.
 
 À l'époque, seule une certaine quantité de pluie avait suffi à compléter l'élément eau. Cependant, la tâche était devenue bien plus ardue par la suite. Désormais, seul l'élément métal n'était pas complet. Pourtant, Wang Lin pressentait que la difficulté pour achever le dernier élément atteindrait un degré terrifiant.
 
@@ -36,9 +36,9 @@ Les sourcils de Wang Lin se contractèrent violemment.
 
 « D'où vient cette perle défiant le ciel... Pourquoi l'Alliance de la Culture s'intéresse-t-elle tant à elle... Cette perle m'accompagne depuis des centaines d'années. À part le fait que le temps peut s'inverser à l'intérieur, elle n'a presque aucune autre capacité. Même si l'on s'y cache, face à un cultivateur puissant, on ne pourra pas fuir et l'on sera inévitablement découvert. Tout bien considéré, cette perle n'est qu'une chose de peu de valeur. Bien qu'elle puisse inverser le temps, elle n'est utile qu'aux cultivateurs de bas niveau. Pour les puissants, une grande quantité de jades célestes est bien plus attrayante. »
 
-Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même: « À l'origine, il y avait cinq disciples de la Secte de l'Épée Da Luo, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel de la Secte de l'Épée Da Luo, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul à être resté dans le Pays du Démon Céleste. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
+Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même: « À l'origine, il y avait cinq disciples de la Secte de l'Épée Da Luo, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel de la Secte de l'Épée Da Luo, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Tan Lang se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul à être resté dans le Pays du Démon Céleste. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Tan Lang... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
 
-« Qu'a donc découvert ce Cupidité... » Les yeux de Wang Lin s'illuminèrent.
+« Qu'a donc découvert ce Tan Lang... » Les yeux de Wang Lin s'illuminèrent.
 
 « Malheureusement, à cause de lui, j'ai perdu l'occasion de continuer à collecter l'énergie d'épée de Ling Tianhou. Cependant, je ne peux pas précipiter les choses non plus. » Wang Lin ricana en utilisant la grande téléportation pour s'éloigner.
 

@@ -82,9 +82,9 @@ Elle était extrêmement rapide et se rapprocha en un instant. Telle un vent vio
 
 La Feuille Ancienne!
 
-L'un des trésors que Cupidité avait obtenus dans le cimetière antique, d'une origine insondable. Même avec le niveau de culture de Cupidité, lorsqu'il l'utilisait, il pouvait sceller la technique de Wang Lin qui réduit la terre à un pouce. Wang Lin ne pouvait pas la briser de force et devait l'éviter!
+L'un des trésors que Tan Lang avait obtenus dans le cimetière antique, d'une origine insondable. Même avec le niveau de culture de Tan Lang, lorsqu'il l'utilisait, il pouvait sceller la technique de Wang Lin qui réduit la terre à un pouce. Wang Lin ne pouvait pas la briser de force et devait l'éviter!
 
-Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir nourrie de son propre sang divin. Il utilisait également la méthode appropriée pour la contrôler; sa puissance était donc bien plus redoutable que lorsqu'elle était entre les mains de Cupidité!
+Mais en ce moment, Wang Lin l'utilisait en tant qu'Ancien Dieu après l'avoir nourrie de son propre sang divin. Il utilisait également la méthode appropriée pour la contrôler; sa puissance était donc bien plus redoutable que lorsqu'elle était entre les mains de Tan Lang!
 
 Une seule feuille pour couvrir le ciel!
 

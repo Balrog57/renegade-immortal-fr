@@ -7,37 +7,37 @@ en: Chapter 643 - Wang Lins Wisdom
 slug: la-sagesse-de-wang-lin
 ---
 
-Au cœur du brouillard violet, les yeux de Cupidité s'entrouvrirent, laissant échapper une lueur froide.
+Au cœur du brouillard violet, les yeux de Tan Lang s'entrouvrirent, laissant échapper une lueur froide.
 
-« Bien que ces étranges bêtes démoniaques soient effectivement très puissantes, tant que mes Sept Aiguilles Magiques les contrôlent, elles ne pourront pas m'échapper! Maîtriser cette bête reine, c'est maîtriser tout le troupeau! Ce groupe de bêtes est bien trop singulier. Si je parvenais à les utiliser convenablement, même lorsque le vieil homme Ling Tianhou arrivera, j'aurai de quoi négocier avec lui! » Une pointe d'orgueil brillait dans le regard de Cupidité.
+« Bien que ces étranges bêtes démoniaques soient effectivement très puissantes, tant que mes Sept Aiguilles Magiques les contrôlent, elles ne pourront pas m'échapper! Maîtriser cette bête reine, c'est maîtriser tout le troupeau! Ce groupe de bêtes est bien trop singulier. Si je parvenais à les utiliser convenablement, même lorsque le vieil homme Ling Tianhou arrivera, j'aurai de quoi négocier avec lui! » Une pointe d'orgueil brillait dans le regard de Tan Lang.
 
 Depuis son entrée dans l'Abîme des Marées, il avait commencé à élaborer ses propres plans. L'un d'eux nécessitait l'intégration d'une formation. Cependant, il était soudainement tombé sur les bêtes moustiques. D'abord surpris, il en fut ensuite extatique.
 
-Cupidité n'avait jamais eu de demeure fixe; il dérivait sans cesse parmi les étoiles, suivant la trace des trésors. C’était de là que venait le dicton: « Cupidité ne va pas là où il n'y a pas de trésor ».
+Tan Lang n'avait jamais eu de demeure fixe; il dérivait sans cesse parmi les étoiles, suivant la trace des trésors. C’était de là que venait le dicton: « Tan Lang ne va pas là où il n'y a pas de trésor ».
 
 Il avait parcouru tant de lieux au cours de sa vie qu'il avait déjà aperçu ces bêtes moustiques par le passé!
 
-La première fois qu'il les avait vues, c’était dans un coin d’espace stellaire des plus désolés. Cupidité fuyait alors une poursuite et venait de sortir d'une ancienne formation de transfert. À peine apparu, il vit une scène qu'il n'oublierait jamais!
+La première fois qu'il les avait vues, c’était dans un coin d’espace stellaire des plus désolés. Tan Lang fuyait alors une poursuite et venait de sortir d'une ancienne formation de transfert. À peine apparu, il vit une scène qu'il n'oublierait jamais!
 
 C’était un vaste espace empli de gaz gris où ne trônait qu'une seule planète. Et cette planète était violette!
 
-D'innombrables moustiques étaient regroupés en une masse dense autour de la planète. La pression qu'ils dégageaient était si puissante que Cupidité n'hésita pas un instant à utiliser la formation de transfert pour faire demi-tour.
+D'innombrables moustiques étaient regroupés en une masse dense autour de la planète. La pression qu'ils dégageaient était si puissante que Tan Lang n'hésita pas un instant à utiliser la formation de transfert pour faire demi-tour.
 
 Il préférait affronter l'ennemi qui le traquait plutôt que de faire face à ces bêtes terrifiantes.
 
 En voyant les bêtes moustiques dans les fissures de l'Abîme des Marées, une idée lui vint immédiatement à l'esprit. Il envoya alors avec précaution son trésor de vie, les Sept Aiguilles Magiques, en utilisant son sens divin pour les guider délicatement dans la fissure.
 
-Toutes les bêtes moustiques étaient en hibernation. Le cœur de Cupidité nourrissait toujours une crainte envers elles depuis leur dernière rencontre. Il se faisait extrêmement prudent, craignant de les réveiller.
+Toutes les bêtes moustiques étaient en hibernation. Le cœur de Tan Lang nourrissait toujours une crainte envers elles depuis leur dernière rencontre. Il se faisait extrêmement prudent, craignant de les réveiller.
 
 Il finit par localiser la bête reine des moustiques. Lorsque les aiguilles transpercèrent la reine, il s'échappa immédiatement de la fissure.
 
-C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé par les moustiques! Quant au brouillard violet, c'était aussi l'élément le plus crucial du plan de Cupidité!
+C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé par les moustiques! Quant au brouillard violet, c'était aussi l'élément le plus crucial du plan de Tan Lang!
 
-Cupidité observa les disciples de la Secte de l'Épée Da Luo et ricana intérieurement.
+Tan Lang observa les disciples de la Secte de l'Épée Da Luo et ricana intérieurement.
 
 « Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Depuis mon arrivée dans la Terre des Esprits Démoniaques, je suis venu seul trois fois dans l'Abîme des Marées. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de l'Omniscient!
 
-« Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Cupidité balaya indistinctement les disciples de la Secte de l'Épée Da Luo, y compris Chen Long.
+« Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Tan Lang balaya indistinctement les disciples de la Secte de l'Épée Da Luo, y compris Chen Long.
 
 « Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors amenés à se sacrifier volontairement, au lieu de les garder piégés ici pendant cent ans à attendre qu'ils succombent à l'anxiété! »
 
@@ -61,7 +61,7 @@ Le brouillard violet n'affectait pas du tout la bête moustique, qui disparut en
 
 Wang Lin était troublé. Il ignorait ce qui arrivait à la bête, mais fort heureusement, son lien avec elle subsistait. Il réfléchit un instant: ce n'était pas le moment de s'inquiéter pour l'insecte. Il soupira, se concentra et reprit son ascension lente. À l'intérieur de l'épée céleste, Zhou Yi tournoyait autour de Wang Lin, déployant son sens divin d'épée pour observer les environs.
 
-Cupidité ne remarqua pas l'intrusion de cultivateurs dans le brouillard. S'il avait pu détecter l'impact des sens divins de Wang Lin et de Ling Tianhou, c’était uniquement parce que l'onde de choc s'était propagée directement à travers les parois.
+Tan Lang ne remarqua pas l'intrusion de cultivateurs dans le brouillard. S'il avait pu détecter l'impact des sens divins de Wang Lin et de Ling Tianhou, c’était uniquement parce que l'onde de choc s'était propagée directement à travers les parois.
 Wang Lin progressait lentement dans la brume, extrêmement vigilant. Son sens divin n'avait presque aucun effet ici; il ne voyait qu'une épaisseur opaque. Un million de sceaux de vie scintillaient sur son front, recouvrant son corps: en cas de crise, cela lui offrirait une chance de survie.
 
 Alors qu'il volait, Zhou Yi envoya soudainement un message par sens divin:
@@ -74,33 +74,33 @@ Alors qu'il volait, Zhou Yi envoya soudainement un message par sens divin:
 
 « C'est eux! » Wang Lin reconnut immédiatement leur identité.
 
-À cet instant précis, le vieil homme assis au centre ouvrit soudainement les yeux. Un éclat aigu s'en échappa tandis qu'il hurlait: « Quel est ce cultivateur? Ce vieil homme s'appelle Cupidité! »
+À cet instant précis, le vieil homme assis au centre ouvrit soudainement les yeux. Un éclat aigu s'en échappa tandis qu'il hurlait: « Quel est ce cultivateur? Ce vieil homme s'appelle Tan Lang! »
 
-Le cri de Cupidité fit changer brusquement d'expression les disciples de la Secte de l'Épée Da Luo, qui se levèrent d'un bond. Cependant, Chen Long resta immobile, un éclat mystérieux dans le regard. Si l'on regardait de plus près, on y devinerait une pointe de joie!
+Le cri de Tan Lang fit changer brusquement d'expression les disciples de la Secte de l'Épée Da Luo, qui se levèrent d'un bond. Cependant, Chen Long resta immobile, un éclat mystérieux dans le regard. Si l'on regardait de plus près, on y devinerait une pointe de joie!
 
-Zhou Yi ramena le sens divin de Wang Lin et disparut dans la brume. L'expression de Cupidité était mécontente et il laissa échapper un reniflement froid. Il frappa son sac de rangement, mais après avoir hésité, il ne sortit aucun trésor magique.
+Zhou Yi ramena le sens divin de Wang Lin et disparut dans la brume. L'expression de Tan Lang était mécontente et il laissa échapper un reniflement froid. Il frappa son sac de rangement, mais après avoir hésité, il ne sortit aucun trésor magique.
 
 Le sens divin de l'inconnu était extrêmement étrange, ce qui le rendait incertain. Ce sens ressemblait à celui d'un cultivateur au début du stade Ascendant, mais un second sens s'y cachait. Ce second sens était d'une puissance phénoménale et portait une intention d'épée extrêmement tranchante!
 
-Avant de comprendre les capacités de son adversaire, Cupidité ne voulait pas provoquer l'ennemi, d'autant qu'il était encore blessé. Sa culture originale était au stade Yin Illusoire, mais il n'était désormais qu'au sommet du stade Ascendant tardif. Durant toutes ces années, il n'avait pas réussi à retrouver son apogée.
+Avant de comprendre les capacités de son adversaire, Tan Lang ne voulait pas provoquer l'ennemi, d'autant qu'il était encore blessé. Sa culture originale était au stade Yin Illusoire, mais il n'était désormais qu'au sommet du stade Ascendant tardif. Durant toutes ces années, il n'avait pas réussi à retrouver son apogée.
 
 Cela ne signifiait pas que Situ Nan était si puissant, mais plutôt que si un cultivateur du stade Yin Illusoire perdait sa culture, il lui faudrait bien plus d'efforts pour la recouvrer que pour l'atteindre! Après tout, les stades Yin Illusoire et Corporel Yang sont des étapes cruciales, comme le moment où le papillon s'extrait de son cocon.
 
 Même pour Situ Nan, sans la force mystérieuse qui le nourrissait à l'intérieur de la Perle Défiant le Ciel et sans son talent prodigieux, il n'aurait jamais pu retrouver sa culture.
 
-Cependant, bien que celle de Cupidité soit limitée au sommet du stade Ascendant tardif, elle ne correspondait pas à celle d'un simple Ascendant. Avec les trésors accumulés au fil des âges, même un cultivateur Yin Illusoire devrait redoubler d'efforts pour le tuer. Un seul instant de négligence et Cupidité pourrait s'échapper.
+Cependant, bien que celle de Tan Lang soit limitée au sommet du stade Ascendant tardif, elle ne correspondait pas à celle d'un simple Ascendant. Avec les trésors accumulés au fil des âges, même un cultivateur Yin Illusoire devrait redoubler d'efforts pour le tuer. Un seul instant de négligence et Tan Lang pourrait s'échapper.
 
 Zhou Yi ramena le sens divin de Wang Lin et ils retrouvèrent leurs corps respectifs.
 
-« Parmi les six, cinq sont des disciples de la Secte de l'Épée Da Luo, et le dernier... s'appelle Cupidité! » Wang Lin n'en dit pas plus sur lui.
+« Parmi les six, cinq sont des disciples de la Secte de l'Épée Da Luo, et le dernier... s'appelle Tan Lang! » Wang Lin n'en dit pas plus sur lui.
 
 « La Secte de l'Épée Da Luo! Oui, je me demande pourquoi cela me semble si familier... La Secte de l'Épée Da Luo!! Wang Lin, que comptes-tu faire? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
 
-Wang Lin réfléchit un instant et répondit: « Senior, ne trouvez-vous pas cela étrange... Le niveau de culture de ce Cupidité est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester!
+Wang Lin réfléchit un instant et répondit: « Senior, ne trouvez-vous pas cela étrange... Le niveau de culture de ce Tan Lang est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester!
 
 « De plus, Senior, avez-vous remarqué l'éclair de joie dans les yeux de l'un des disciples? J'ai vérifié sa culture: il est au début du stade Ascendant. Parmi tous ceux qui ont atteint ce stade, lequel n'est pas extrêmement rusé? Comment aurait-il pu laisser paraître une telle joie... Ce sourire était manifestement un signal! »
 
-Wang Lin esquissa un léger sourire, une lueur de sagesse brillant dans ses yeux. Il analysa: « Ce disciple est intéressant. Il utilise cette joie pour nous signifier qu'ils ne sont pas alliés à Cupidité. C'est un appel à l'aide. »
+Wang Lin esquissa un léger sourire, une lueur de sagesse brillant dans ses yeux. Il analysa: « Ce disciple est intéressant. Il utilise cette joie pour nous signifier qu'ils ne sont pas alliés à Tan Lang. C'est un appel à l'aide. »
 
 La silhouette de Zhou Yi apparut au-dessus de l'épée céleste. Il regarda Wang Lin avec une stupeur manifeste. Pour la première fois, il ressentit la terreur que pouvait inspirer Wang Lin! Le niveau de culture de ce dernier n'était qu'au début du stade Ascendant. S'il ne lui avait pas donné le Cristal Ascendant, Wang Lin n'aurait probablement jamais survécu à l'épreuve de vie ou de mort.
 

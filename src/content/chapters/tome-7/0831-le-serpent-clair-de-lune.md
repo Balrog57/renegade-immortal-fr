@@ -14,7 +14,7 @@ Wang Lin se déplaçait à une vitesse fulgurante, sans se soucier de savoir s'i
 
 Il ne fallut pas longtemps pour qu'il atteigne les profondeurs et aperçoive la moitié de l'os qui s'était reconstituée là. Wang Lin avait initialement voulu s'emparer de l'intégralité, mais il avait été contraint d'en abandonner la moitié.
 
-Ses yeux s'illuminèrent et il murmura: « À l'époque, le grand fourneau précieux de Cupidité avait été dévoré par ce Serpent aux yeux de lune... »
+Ses yeux s'illuminèrent et il murmura: « À l'époque, le grand fourneau précieux de Tan Lang avait été dévoré par ce Serpent aux yeux de lune... »
 
 À la pensée de ce grand fourneau, le cœur de Wang Lin s'emballa. Après réflexion, il était convaincu à 80 % qu'il s'agissait du trésor raffiné par l'Ancien Dieu Tu Si, qu'il avait jeté négligemment faute d'en être satisfait.
 

@@ -94,12 +94,12 @@ Un groupe de cultivateurs traversait la Terre Déchue. Ils étaient près de mil
 
 Cet homme portait des vêtements somptueux; c'était un vieillard dont l'apparence était ordinaire, mais l'expression extrêmement sombre.
 
-« Seigneur Cupidité, la planète du Clan du Scorpion Noir n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
+« Seigneur Tan Lang, la planète du Clan du Scorpion Noir n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
 
 Le vieillard au centre, d'un air arrogant, hocha la tête. Il dit fièrement: « Très bien. Si cela s'avère vrai, vous en tirerez tous profit! »
 
-Après sa parole, une joie immense se répandit parmi les cultivateurs environnants. Si quelqu'un d'autre avait dit cela, ils n'auraient pas été si joyeux, mais celui qui venait de parler était Cupidité!
+Après sa parole, une joie immense se répandit parmi les cultivateurs environnants. Si quelqu'un d'autre avait dit cela, ils n'auraient pas été si joyeux, mais celui qui venait de parler était Tan Lang!
 
-Au fil des ans, qui ne connaissait pas Cupidité?
+Au fil des ans, qui ne connaissait pas Tan Lang?
 
-Cupidité n'allait jamais nulle part sans trésors. Ses paroles avaient été confirmées maintes et maintes fois par les cultivateurs. Les avantages qu'il offrait n'étaient jamais de qualité inférieure!
+Tan Lang n'allait jamais nulle part sans trésors. Ses paroles avaient été confirmées maintes et maintes fois par les cultivateurs. Les avantages qu'il offrait n'étaient jamais de qualité inférieure!

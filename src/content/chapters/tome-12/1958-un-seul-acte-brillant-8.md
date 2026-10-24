@@ -48,7 +48,7 @@ L'homme soupira amèrement, prêt à abandonner toute idée de recruter cet homm
 
 « Heu... Petite Ancêtre, bien sûr qu'elle vous est familière. Ce sont le Grand Empyréen Wu Feng et le Grand Empyréen Dao Yi... » L'homme soupira, résigné à renoncer au recrutement.
 
-« Allons-y, Petite Ancêtre, je vais vous aider à régler ce compte avec ce... ce Petit Loup... » soupira l'homme. Il éprouvait de la pitié pour ce pauvre cultivateur nommé Cupidité.
+« Allons-y, Petite Ancêtre, je vais vous aider à régler ce compte avec ce... ce Petit Loup... » soupira l'homme. Il éprouvait de la pitié pour ce pauvre cultivateur nommé Tan Lang.
 
 « Ce n'est pas ce chauve inutile ni le type au faux masque, c'est cette personne! » La petite fille leva la main droite et pointa Wang Lin, qui venait d'entrer dans le douzième palais.
 

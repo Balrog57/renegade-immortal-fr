@@ -16,7 +16,7 @@ slug: blessure-emotionnelle-tresor-exceptionnel
 
 « Il y avait aussi cette remarque où il affirmait être certain que je n'avais aucun lien avec lui. Cela signifie-t-il qu'il existe un lien entre lui et le Senior Frère Qing Shui...? Si c'est le cas, quelle est cette connexion... » Plus Wang Lin réfléchissait, plus il avait l'impression de toucher au but, tout en restant dans le flou.
 
-Depuis sa rencontre avec Cupidité dans les Terres Déchues et l'obtention de la statue aux sept couleurs, Wang Lin percevait vaguement un voile de mystère. Derrière ce voile se cachait un grand secret concernant les Royaumes Intérieur et Extérieur!
+Depuis sa rencontre avec Tan Lang dans les Terres Déchues et l'obtention de la statue aux sept couleurs, Wang Lin percevait vaguement un voile de mystère. Derrière ce voile se cachait un grand secret concernant les Royaumes Intérieur et Extérieur!
 
 Wang Lin ne pouvait toujours pas percer ce secret à cause de ce brouillard. Ce n'est que lors de la première bataille contre le Royaume Extérieur dans la Mer des Nuages, lors de l'échange entre le Souverain et le Vieux Fantôme Zhan, que Wang Lin commença à spéculer de nouveau.
 

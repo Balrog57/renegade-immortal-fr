@@ -58,7 +58,7 @@ Voyant Yu Fei sur le point de s'échapper, les yeux de Wang Lin se remplirent d'
 
 Le regard de Wang Lin devint glacial et le tintement d'un fourneau résonna autour de lui. L'illusion d'un fourneau de plusieurs centaines de pieds apparut devant lui!
 
-Le Fourneau du Dieu Ancien. Lorsque l'avatar de Wang Lin l'utilisait, il devait recourir au sceau laissé par la Cupidité. Mais après avoir fusionné avec son corps original, sa maîtrise était bien plus absolue!
+Le Fourneau du Dieu Ancien. Lorsque l'avatar de Wang Lin l'utilisait, il devait recourir au sceau laissé par Tan Lang. Mais après avoir fusionné avec son corps original, sa maîtrise était bien plus absolue!
 
 « Déplacement! » Instantanément, un écho violent jaillit de l'intérieur du Fourneau du Dieu Ancien. Le vortex en contraction sembla être saisi par une paire de mains géantes invisibles et fut aspiré vers Wang Lin. Simultanément, le corps de Wang Lin avança d'une manière mystérieuse.
 

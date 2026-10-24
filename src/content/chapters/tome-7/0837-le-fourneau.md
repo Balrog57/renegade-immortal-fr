@@ -80,7 +80,7 @@ Il était évident que chaque fois que ce grand Serpent aux yeux de lune trouvai
 
 Une lueur mystérieuse brilla dans ses yeux alors qu'il levait la main pour la presser contre la paroi du fourneau. Son sens divin pénétra rapidement à l'intérieur de l'objet.
 
-« Puisque Cupidité a pu s'en emparer, je le peux aussi! » Tandis que son sens divin entrait dans le fourneau, Wang Lin ressentit immédiatement une puissante force de succion tirant sur son sens divin.
+« Puisque Tan Lang a pu s'en emparer, je le peux aussi! » Tandis que son sens divin entrait dans le fourneau, Wang Lin ressentit immédiatement une puissante force de succion tirant sur son sens divin.
 
 Wang Lin s'y était préparé. Cette force provenait clairement des tentacules enroulés autour du fourneau. Son sens divin resta ferme, tel un esquif solitaire bravant des vagues déchaînées, alors qu'il luttait pour s'enfoncer plus profondément dans l'artefact.
 
@@ -94,20 +94,20 @@ Une rune, gravée après coup, se trouvait dans un coin à l'extérieur du fourn
 
 Même avec le sens divin, à moins de chercher minutieusement comme Wang Lin, il aurait été impossible de la remarquer.
 
-Une trace du sens divin de Cupidité était encore imprimée sur cette rune. Lorsque le sens divin de Wang Lin l'examina, son regard se glaça instantanément.
+Une trace du sens divin de Tan Lang était encore imprimée sur cette rune. Lorsque le sens divin de Wang Lin l'examina, son regard se glaça instantanément.
 
-Il pouvait clairement ressentir une trace de l'aura de Cupidité sur cette empreinte!
+Il pouvait clairement ressentir une trace de l'aura de Tan Lang sur cette empreinte!
 
-« Cupidité n'est pas mort! » Les yeux de Wang Lin devinrent froids, avant de s'apaiser après un long moment.
+« Tan Lang n'est pas mort! » Les yeux de Wang Lin devinrent froids, avant de s'apaiser après un long moment.
 
-« Cupidité n'est pas mort. Son empreinte est toujours là, c'est pourquoi je ne peux pas contrôler le fourneau... Mais si son empreinte subsiste, pourquoi puis-je encore imprimer ma propre marque sur ce fourneau? » Alors qu'il réfléchissait, une pensée surgit à propos de la rune sur laquelle Cupidité avait laissé sa trace.
+« Tan Lang n'est pas mort. Son empreinte est toujours là, c'est pourquoi je ne peux pas contrôler le fourneau... Mais si son empreinte subsiste, pourquoi puis-je encore imprimer ma propre marque sur ce fourneau? » Alors qu'il réfléchissait, une pensée surgit à propos de la rune sur laquelle Tan Lang avait laissé sa trace.
 
-« Ce fourneau géant a été rejeté par le Dieu Antique Tu Si. Dans les souvenirs du Dieu Antique, il n'y avait que l'apparence du fourneau, sans aucune méthode pour s'en servir. Après tout, l'héritage mémoriel que j'ai obtenu était incomplet. » Le sens divin de Wang Lin parcourut le fourneau pour observer la rune. Après un long moment, ses yeux s'illuminèrent. Bien qu'il soit hostile envers Cupidité, il ne put s'empêcher de ressentir une pointe d'admiration pour lui!
+« Ce fourneau géant a été rejeté par le Dieu Antique Tu Si. Dans les souvenirs du Dieu Antique, il n'y avait que l'apparence du fourneau, sans aucune méthode pour s'en servir. Après tout, l'héritage mémoriel que j'ai obtenu était incomplet. » Le sens divin de Wang Lin parcourut le fourneau pour observer la rune. Après un long moment, ses yeux s'illuminèrent. Bien qu'il soit hostile envers Tan Lang, il ne put s'empêcher de ressentir une pointe d'admiration pour lui!
 
-« Ce Cupidité est véritablement talentueux! Il est évident qu'il ne savait pas comment utiliser ce fourneau lorsqu'il l'a obtenu et qu'il était incapable de le contrôler. Alors, il a obtenu on ne sait où cette rune inconnue, l'a gravée sur le fourneau et l'a connectée à certaines de ses capacités! »
+« Ce Tan Lang est véritablement talentueux! Il est évident qu'il ne savait pas comment utiliser ce fourneau lorsqu'il l'a obtenu et qu'il était incapable de le contrôler. Alors, il a obtenu on ne sait où cette rune inconnue, l'a gravée sur le fourneau et l'a connectée à certaines de ses capacités! »
 
 « Ce qu'il manipulait réellement, c'était cette rune; en la contrôlant, il pouvait utiliser certaines des fonctions du fourneau! » Wang Lin prit une profonde inspiration et, sans aucune hésitation, concentra tout son sens divin sur cette rune.
 
-« Une fois l'empreinte du sens divin de Cupidité effacée, ce fourneau reviendra à son propriétaire d'origine! » Les yeux de Wang Lin étaient empreints d'excitation.
+« Une fois l'empreinte du sens divin de Tan Lang effacée, ce fourneau reviendra à son propriétaire d'origine! » Les yeux de Wang Lin étaient empreints d'excitation.
 
-Mais alors que son sens divin était sur le point d'anéantir celui de Cupidité, son expression changea brusquement et il s'interrompit. Son sens divin se retira précipitamment du fourneau pour réintégrer son corps.
+Mais alors que son sens divin était sur le point d'anéantir celui de Tan Lang, son expression changea brusquement et il s'interrompit. Son sens divin se retira précipitamment du fourneau pour réintégrer son corps.

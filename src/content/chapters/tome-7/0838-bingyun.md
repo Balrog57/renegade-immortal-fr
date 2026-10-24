@@ -52,15 +52,15 @@ Wang Lin ouvrit les yeux et poussa un soupir de stupéfaction.
 
 « Pourtant, non seulement ce serpent n'est pas mort, mais il utilise les corps de cultivateurs et de mortels pour engendrer une nouvelle vie; il a presque instauré un cycle biologique... Ce serpent aux yeux de lune doit avoir subi une mutation prodigieuse au fil des âges, sans quoi cela serait impossible! » Wang Lin connaissait bien le serpent aux yeux de lune et pouvait désormais deviner en grande partie ce qui s'était produit.
 
-Il réfléchit silencieusement un instant. Une fois le calme revenu, il projeta à nouveau son sens divin vers la rune gravée sur le fourneau. Dès qu'il enveloppa la rune, le regard de Wang Lin se glaça et son sens divin percuta impitoyablement celui de Cupidité.
+Il réfléchit silencieusement un instant. Une fois le calme revenu, il projeta à nouveau son sens divin vers la rune gravée sur le fourneau. Dès qu'il enveloppa la rune, le regard de Wang Lin se glaça et son sens divin percuta impitoyablement celui de Tan Lang.
 
-Même à son apogée, le niveau de culture de Cupidité était presque comparable à celui de l'actuel Wang Lin. Étant donné qu'il était gravement blessé, son empreinte était extrêmement faible.
+Même à son apogée, le niveau de culture de Tan Lang était presque comparable à celui de l'actuel Wang Lin. Étant donné qu'il était gravement blessé, son empreinte était extrêmement faible.
 
 Après l'assaut du sens divin de Wang Lin, elle s'effondra rapidement.
 
-À l'instant où le sens divin de Cupidité fut anéanti, Wang Lin n'hésita pas à imprégner la rune de sa propre empreinte.
+À l'instant où le sens divin de Tan Lang fut anéanti, Wang Lin n'hésita pas à imprégner la rune de sa propre empreinte.
 
-Cupidité avait risqué une mort quasi certaine pour obtenir ce grand fourneau. Il savait qu'il s'agissait d'un trésor, mais ne pouvait le contrôler. Il finit par concevoir une méthode élaborée et consacra plus de mille ans à l'obtention de cette rune.
+Tan Lang avait risqué une mort quasi certaine pour obtenir ce grand fourneau. Il savait qu'il s'agissait d'un trésor, mais ne pouvait le contrôler. Il finit par concevoir une méthode élaborée et consacra plus de mille ans à l'obtention de cette rune.
 
 Il avait soigneusement gravé la rune sur le fourneau pour en prendre le contrôle, mais désormais, tout cela profitait à Wang Lin.
 
@@ -68,7 +68,7 @@ Alors que son sens divin s'imprégnait de la rune, une sensation étrange envahi
 
 Cependant, cette sensation était comme une fleur dans la brume, extrêmement vague. Une couche semblait le séparer de cet objet, l'empêchant de le saisir pleinement.
 
-Wang Lin comprit que la méthode utilisée pour contrôler le fourneau était erronée; il ne faisait que prendre un raccourci, tout comme Cupidité. Bien que cela lui octroyât un contrôle de base, cela ne lui permettrait pas d'exploiter toute la puissance de l'artefact.
+Wang Lin comprit que la méthode utilisée pour contrôler le fourneau était erronée; il ne faisait que prendre un raccourci, tout comme Tan Lang. Bien que cela lui octroyât un contrôle de base, cela ne lui permettrait pas d'exploiter toute la puissance de l'artefact.
 
 Toutefois, Wang Lin n'était pas pressé. Ses yeux brillèrent et il murmura: « Tant que je retournerai dans le Système Stellaire de l'Alliance, ce fourneau révélera sa véritable puissance entre les mains de mon corps original! »
 

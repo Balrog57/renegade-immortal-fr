@@ -94,7 +94,7 @@ Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fû
 
 « Avec assez de renommée, les Grands Empyréens viendront d'eux-mêmes me chercher! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
-« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Wu Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Gémeaux de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
+« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Wu Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Gémeaux de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec Tan Lang dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 

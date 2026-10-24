@@ -78,7 +78,7 @@ Si Wang Lin pouvait accomplir cela, c'était parce que sa culture avait atteint 
 
 Par ce simple geste, Ling Tianhou protégeait ses disciples bien mieux que l'Omniscient! Il offrait à ses disciples un puissant rayon d'énergie d'épée, là où l'Omniscient ne leur donnait que des trésors de sauvetage de piètre qualité.
 
-Ling Tianhou avait fait en sorte que Cupidité se rende dans la Terre des Esprits Démoniaques pour protéger ses disciples, mais l'Omniscient n'en ferait pas autant.
+Ling Tianhou avait fait en sorte que Tan Lang se rende dans la Terre des Esprits Démoniaques pour protéger ses disciples, mais l'Omniscient n'en ferait pas autant.
 
 Cela tenait en grande partie à leurs Daos respectifs. Le Dao de Ling Tianhou était celui de la tyrannie. Cela le rendait extrêmement protecteur envers les siens; nul étranger n'était autorisé à s'en prendre à son peuple!
 

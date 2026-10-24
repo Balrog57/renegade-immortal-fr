@@ -1,66 +1,66 @@
 ---
 n: 1383
-title: Cupidité
+title: Tan Lang
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1383 - Greed
 slug: cupidite
 ---
-Quant à Cupidité, la plupart des habitants de la Terre Déchue savaient qu'il possédait une origine mystérieuse. Personne ne savait quand il était apparu dans la Terre Déchue, et son niveau de culture n'était pas si exceptionnel, se limitant au stade Scruteur du Nirvana.
+Quant à Tan Lang, la plupart des habitants de la Terre Déchue savaient qu'il possédait une origine mystérieuse. Personne ne savait quand il était apparu dans la Terre Déchue, et son niveau de culture n'était pas si exceptionnel, se limitant au stade Scruteur du Nirvana.
 
 Cependant, cet homme avait fait des apparitions fracassantes à maintes reprises. Les pilules et les trésors qu'il dénichait avaient déclenché une vague après l'autre dans la Terre Déchue.
 
-Bien que le niveau de culture de Cupidité ne fût pas élevé, il était extrêmement rusé. Grâce à ses sorts étranges et ses puissants trésors, il parvenait toujours à se protéger. Même des individus ayant un niveau de culture supérieur au sien peinaient à le capturer.
+Bien que le niveau de culture de Tan Lang ne fût pas élevé, il était extrêmement rusé. Grâce à ses sorts étranges et ses puissants trésors, il parvenait toujours à se protéger. Même des individus ayant un niveau de culture supérieur au sien peinaient à le capturer.
 
-En particulier, cet homme excellait dans l'art de la fuite et possédait un sort capable d'augmenter sa vitesse par quatre-vingt-dix-sept, rendant toute poursuite impossible pour les cultivateurs ordinaires. Cupidité était également extrêmement prudent et n'hésitait jamais à prendre la fuite.
+En particulier, cet homme excellait dans l'art de la fuite et possédait un sort capable d'augmenter sa vitesse par quatre-vingt-dix-sept, rendant toute poursuite impossible pour les cultivateurs ordinaires. Tan Lang était également extrêmement prudent et n'hésitait jamais à prendre la fuite.
 
 Par conséquent, il ne faisait que rarement face au danger.
 
-Au fil du temps, pour une raison inconnue, le niveau de culture de Cupidité progressa de manière constante jusqu'à atteindre le stade Purificateur du Nirvana. Ses sorts devinrent alors encore plus mystérieux.
+Au fil du temps, pour une raison inconnue, le niveau de culture de Tan Lang progressa de manière constante jusqu'à atteindre le stade Purificateur du Nirvana. Ses sorts devinrent alors encore plus mystérieux.
 
-Il finit par attirer l'attention des puissants cultivateurs de certains clans. Mus par la cupidité, ces derniers se mirent à traquer Cupidité. Beaucoup pensaient qu'il mourrait sans aucun doute, mais Cupidité sortit alors contre toute attente une multitude de trésors qu'il n'avait jamais utilisés auparavant!
+Il finit par attirer l'attention des puissants cultivateurs de certains clans. Mus par la cupidité, ces derniers se mirent à traquer Tan Lang. Beaucoup pensaient qu'il mourrait sans aucun doute, mais Tan Lang sortit alors contre toute attente une multitude de trésors qu'il n'avait jamais utilisés auparavant!
 
-Chaque trésor possédait une puissance capable de secouer les cieux. Les trois cultivateurs Briseur du Nirvana qui pourchassaient Cupidité furent blessés lorsqu'ils furent pris au dépourvu par lui. L'un d'eux fut même tué!
+Chaque trésor possédait une puissance capable de secouer les cieux. Les trois cultivateurs Briseur du Nirvana qui pourchassaient Tan Lang furent blessés lorsqu'ils furent pris au dépourvu par lui. L'un d'eux fut même tué!
 
 Les deux autres s'enfuirent, gravement blessés!
 
 Cet événement provoqua une onde de choc immense dans la Terre Déchue; c'était tout simplement incroyable. Un cultivateur Purificateur du Nirvana n'avait pas péri sous la poursuite de trois cultivateurs Briseur du Nirvana, et avait même réussi à en tuer un!
 
-Le nom de Cupidité se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Briseur du Nirvana était furieux. Bien que ce clan ne possédât pas d'Ancien Déchu, il restait très puissant. Afin d'éliminer Cupidité, le clan envoya un cultivateur Fléau Céleste de premier niveau!
+Le nom de Tan Lang se répandit comme une traînée de poudre sur la Terre Déchue, mais, parallèlement, le clan du défunt cultivateur Briseur du Nirvana était furieux. Bien que ce clan ne possédât pas d'Ancien Déchu, il restait très puissant. Afin d'éliminer Tan Lang, le clan envoya un cultivateur Fléau Céleste de premier niveau!
 
-Qu'un cultivateur Fléau Céleste de premier niveau tue un cultivateur Purificateur du Nirvana revenait à un tigre piétinant une fourmi! L'affaire fit grand bruit et, alors que tout le monde était convaincu que Cupidité était condamné, un autre miracle se produisit!
+Qu'un cultivateur Fléau Céleste de premier niveau tue un cultivateur Purificateur du Nirvana revenait à un tigre piétinant une fourmi! L'affaire fit grand bruit et, alors que tout le monde était convaincu que Tan Lang était condamné, un autre miracle se produisit!
 
-Cupidité sortit un trésor. De nombreuses rumeurs circulèrent plus tard à son sujet; la plupart affirmaient qu'il s'agissait d'une statue brisée!
+Tan Lang sortit un trésor. De nombreuses rumeurs circulèrent plus tard à son sujet; la plupart affirmaient qu'il s'agissait d'une statue brisée!
 
 À l'instant où la statue apparut, toute la Terre Déchue trembla et les nuages envahirent le domaine stellaire. Des rugissements semblant provenir de l'Antiquité résonnèrent, et le cultivateur Fléau Céleste de premier niveau mourut instantanément face à ce trésor!
 
 Cette force destructrice ébranla tous les cultivateurs Fléau Céleste de la Terre Déchue. Ce pouvoir était suffisant pour anéantir même des cultivateurs Fléau Céleste de troisième niveau! Même ceux de quatrième niveau auraient dû déployer d'immenses efforts pour rester indemnes!
 
-Cependant, nul ne savait si Cupidité possédait des trésors encore plus redoutables. Après tout, il était le maître d'innombrables richesses.
+Cependant, nul ne savait si Tan Lang possédait des trésors encore plus redoutables. Après tout, il était le maître d'innombrables richesses.
 
 Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Fléau Céleste?
 
-Après cette bataille, Cupidité disparut sans laisser de trace. La rumeur disait que le Grand Empereur s'était intéressé à lui et l'avait recherché. Cupidité saisit cette occasion pour lui offrir un trésor, et en retour, le Grand Empereur lui remit une pilule pour favoriser sa culture.
+Après cette bataille, Tan Lang disparut sans laisser de trace. La rumeur disait que le Grand Empereur s'était intéressé à lui et l'avait recherché. Tan Lang saisit cette occasion pour lui offrir un trésor, et en retour, le Grand Empereur lui remit une pilule pour favoriser sa culture.
 
-Quelques années plus tard, lorsque Cupidité réapparut, il se trouvait au stade intermédiaire de Briseur du Nirvana! Sa présence attira l'attention de nombreux cultivateurs de quatrième niveau Fléau Céleste.
+Quelques années plus tard, lorsque Tan Lang réapparut, il se trouvait au stade intermédiaire de Briseur du Nirvana! Sa présence attira l'attention de nombreux cultivateurs de quatrième niveau Fléau Céleste.
 
-En secret, un cultivateur Fléau Céleste de quatrième niveau convoita le trésor de Cupidité et tenta de l'attaquer par surprise. Mais il finit gravement blessé et fut contraint de battre en retraite. Désormais, plus personne n'osait comploter contre lui!
+En secret, un cultivateur Fléau Céleste de quatrième niveau convoita le trésor de Tan Lang et tenta de l'attaquer par surprise. Mais il finit gravement blessé et fut contraint de battre en retraite. Désormais, plus personne n'osait comploter contre lui!
 
-Les rumeurs sur la richesse inépuisable de Cupidité continuèrent de circuler.
+Les rumeurs sur la richesse inépuisable de Tan Lang continuèrent de circuler.
 
-Outre ses sorts et ses trésors, Cupidité possédait une autre faculté: partout où il apparaissait, un trésor céleste surgissait. Même sur une planète abandonnée, il parvenait à débusquer un objet capable de secouer les cieux.
+Outre ses sorts et ses trésors, Tan Lang possédait une autre faculté: partout où il apparaissait, un trésor céleste surgissait. Même sur une planète abandonnée, il parvenait à débusquer un objet capable de secouer les cieux.
 
-C'est ainsi que commença à se répandre l'adage: « Cupidité ne se rend jamais dans un lieu sans trésor ».
+C'est ainsi que commença à se répandre l'adage: « Tan Lang ne se rend jamais dans un lieu sans trésor ».
 
-Mais en plus de ses sorts et de ses richesses, Cupidité avait une autre particularité. Quiconque évoquait son odeur ou manifestait une réaction étrange en sa présence subissait sa riposte.
+Mais en plus de ses sorts et de ses richesses, Tan Lang avait une autre particularité. Quiconque évoquait son odeur ou manifestait une réaction étrange en sa présence subissait sa riposte.
 
 Ce point sensible, c'était l'odeur de son corps!
 
-Cupidité pratiquait un sort inconnu qui laissait derrière lui, partout où il passait, une odeur nauséabonde persistante, perceptible de très loin.
+Tan Lang pratiquait un sort inconnu qui laissait derrière lui, partout où il passait, une odeur nauséabonde persistante, perceptible de très loin.
 
-À cet instant, la dizaine de cultivateurs entourant Cupidité sentaient également cette puanteur presque insupportable. Cependant, ils n'osaient rien dire et demeuraient respectueux.
+À cet instant, la dizaine de cultivateurs entourant Tan Lang sentaient également cette puanteur presque insupportable. Cependant, ils n'osaient rien dire et demeuraient respectueux.
 
-Ils progressèrent rapidement et repérèrent bientôt la planète où se trouvait le Clan du Scorpion Noir. Les yeux de Cupidité s'illuminèrent en fixant la planète de culture au loin; une lueur d'excitation brillait dans son regard.
+Ils progressèrent rapidement et repérèrent bientôt la planète où se trouvait le Clan du Scorpion Noir. Les yeux de Tan Lang s'illuminèrent en fixant la planète de culture au loin; une lueur d'excitation brillait dans son regard.
 
 À l'époque, il avait failli perdre la vie pour atteindre le Royaume Extérieur et avait dû compter sur sa propre force pour accomplir ses prouesses actuelles. Il était désormais plusieurs fois plus fort qu'auparavant et avait même acquis de nouveaux trésors.
 
@@ -76,7 +76,7 @@ Cette douleur le torturait encore aujourd'hui. Cela faisait culminer sa haine en
 
 « Le plus important, c'est Wang Lin! Cet homme... cet homme est ma némésis! Il m'a volé tous mes trésors. Mon fourneau de téléportation, mon ancien dragon de tonnerre, ma Peinture des Montagnes et des Rivières, mon âme de montagne... Tous les trésors que j'ai rassemblés pendant des dizaines de milliers d'années lui ont été dérobés! »
 
-Chaque fois que Cupidité songeait à cela, son cœur se serrait de douleur. Outre sa haine pour Wang Lin, une ombre immense planait sur son âme. Après avoir croisé la route de Wang Lin à plusieurs reprises, il ressentait une terreur extrême à son égard.
+Chaque fois que Tan Lang songeait à cela, son cœur se serrait de douleur. Outre sa haine pour Wang Lin, une ombre immense planait sur son âme. Après avoir croisé la route de Wang Lin à plusieurs reprises, il ressentait une terreur extrême à son égard.
 
 Avec le temps, cette sensation s'était muée en une peur profonde. Bien que son niveau de culture ait augmenté, cette crainte ne s'était pas dissipée; elle s'était au contraire intensifiée.
 
@@ -86,20 +86,20 @@ Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à W
 
 « Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Luotian pour traquer Wang Lin. Puis ce maudit Serpent aux yeux de lune m'a avalé jusque dans ses voies excrétrices et, tandis que je souffrais le martyre, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture des Montagnes et des Rivières, tout ce que je possédais! »
 
-« Puis, juste au moment où je m'apprêtais à sortir de la gueule du Serpent aux yeux de lune, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de culture! » Cupidité se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
+« Puis, juste au moment où je m'apprêtais à sortir de la gueule du Serpent aux yeux de lune, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de culture! » Tan Lang se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
 
 Il avait passé sa vie à chercher des trésors, mais ce n'est qu'en affrontant Wang Lin qu'il avait tout perdu et frôlé la mort. C'était un cauchemar dont il ne pouvait se défaire.
 
 « Désormais, je possède encore plus de trésors et mon niveau de culture est bien plus élevé. Mes richesses sont même plus puissantes qu'auparavant. Je ne crois pas que vous puissiez sortir du Royaume Intérieur pour venir dans cette Terre Déchue voler mes biens! Si cela devait réellement arriver, alors toi, Wang Lin, tu serais véritablement ma némésis! »
 
-Cupidité ricana. Il ne pensait pas qu'une telle pensée puisse devenir réalité. À ses yeux, c'était totalement impossible.
+Tan Lang ricana. Il ne pensait pas qu'une telle pensée puisse devenir réalité. À ses yeux, c'était totalement impossible.
 
 « Ce Clan de l'Évasion Nuageuse possède un trésor capable de dissiper l'odeur de mon corps. Cependant, je ne peux pas me l'approprier; je vais rester au sein du clan jusqu'à ce que je l'aie suffisamment étudié. Ensuite, je pourrai aller où bon me semble. Le monde est vaste, je ne le recroiserai certainement pas. »
 
-« Maintenant que j'ai compris 70 à 80 % de ce trésor et qu'il ne me manque que le légendaire Cadavre de Scorpion de Dix Mille Ans du Clan du Scorpion Noir, je suis sûr à 90 % de pouvoir dissiper la puanteur du Serpent aux yeux de lune! » Tout en méditant ainsi, Cupidité ressentait une certaine mélancolie en repensant à tout ce qu'il avait traversé.
+« Maintenant que j'ai compris 70 à 80 % de ce trésor et qu'il ne me manque que le légendaire Cadavre de Scorpion de Dix Mille Ans du Clan du Scorpion Noir, je suis sûr à 90 % de pouvoir dissiper la puanteur du Serpent aux yeux de lune! » Tout en méditant ainsi, Tan Lang ressentait une certaine mélancolie en repensant à tout ce qu'il avait traversé.
 
-« Mes trésors passés... Il est vraiment ma némésis. Heureusement que ce vieil homme se trouve dans le Royaume Extérieur; il n'y a aucun moyen que je le rencontre. Sinon, je crains qu'il ne me dérobe à nouveau tous mes trésors... » La peur de Wang Lin chez Cupidité était née des cauchemars qu'il avait vécus. Bien que son niveau de culture fût plus élevé désormais, il ne parvenait toujours pas à évacuer cette terreur.
+« Mes trésors passés... Il est vraiment ma némésis. Heureusement que ce vieil homme se trouve dans le Royaume Extérieur; il n'y a aucun moyen que je le rencontre. Sinon, je crains qu'il ne me dérobe à nouveau tous mes trésors... » La peur de Wang Lin chez Tan Lang était née des cauchemars qu'il avait vécus. Bien que son niveau de culture fût plus élevé désormais, il ne parvenait toujours pas à évacuer cette terreur.
 
 Tout comme un oiseau qui, après avoir failli être tué par une flèche, survit et devient un souverain parmi les oiseaux, la blessure du passé resterait à jamais gravée dans son esprit. Il tremblerait au simple bruit d'un arc.
 
-C'était une fissure dans son cœur Dao! À moins que Cupidité ne puisse tuer Wang Lin lui-même pour briser ce cauchemar, il resterait à jamais un oiseau effrayé!
+C'était une fissure dans son cœur Dao! À moins que Tan Lang ne puisse tuer Wang Lin lui-même pour briser ce cauchemar, il resterait à jamais un oiseau effrayé!

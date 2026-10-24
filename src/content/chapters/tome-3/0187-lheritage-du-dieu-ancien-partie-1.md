@@ -138,7 +138,7 @@ Le temps s'écoulait. La brume noire infinie couvrait désormais une zone de dix
 
 Après un laps de temps indéterminé, la brume noire se dissipa. Le Seigneur Démon des Six Désirs affichait une lueur de démence; sa culture avait atteint un niveau prodigieux.
 
-« Désir de Cupidité, sois absorbé! » lança-t-il à nouveau. Peu après, une brume rouge apparut soudainement, couvrant elle aussi un rayon de dix mille milles autour de lui.
+« Désir de Tan Lang, sois absorbé! » lança-t-il à nouveau. Peu après, une brume rouge apparut soudainement, couvrant elle aussi un rayon de dix mille milles autour de lui.
 
 Par la suite, le Désir d'Illusion, le Désir de Plaisir, le Désir de Jalousie et le Désir d'Obsession furent tous dévorés par le Seigneur Démon des Six Désirs. Ce que son maître, le Magicien Démon Céleste, avait prédit était vrai: sa plus grande faiblesse était son désir de croître en culture. S'il en avait l'opportunité, il ne la laisserait absolument pas passer.
 

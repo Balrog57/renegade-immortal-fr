@@ -7,13 +7,13 @@ en: Chapter 717 - Escaping alive
 slug: sechapper-vivant
 ---
 
-Tous les cheveux de Cupidité se hérissèrent. Il ne s'était jamais senti aussi proche de la mort, même lorsqu'il avait été capturé par le couple céleste Wang Wei et Hu Juan.
+Tous les cheveux de Tan Lang se hérissèrent. Il ne s'était jamais senti aussi proche de la mort, même lorsqu'il avait été capturé par le couple céleste Wang Wei et Hu Juan.
 
 Ce doigt illusoire semblait être issu du Dao céleste; il donnait l'impression d'avoir supplanté le ciel et la terre pour former un Dao à part entière.
 
 Ce n'était pas un simple Dao qu'un cultivateur pouvait appréhender. En réalité, il était infiniment plus puissant que tout ce qu'un individu pouvait concevoir!
 
-Bien que le sommet de la culture de Cupidité ne fût que le Yin Illusoire, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de culture.
+Bien que le sommet de la culture de Tan Lang ne fût que le Yin Illusoire, ses connexions étaient extraordinaires. Il connaissait de nombreux êtres du second échelon, et possédait donc de nombreux secrets sur ce stade de culture.
 
 Il fut capable de discerner d'un seul regard le Dao terrifiant contenu dans ce doigt.
 
@@ -21,27 +21,27 @@ Un doigt pointa vers l'avant. Cela ressemblait à une brise légère, sans la mo
 
 Cependant, ce geste fit se rétracter les pupilles de Wang Lin. Il eut la sensation que son âme originelle allait s'extirper de son corps pour percuter ce doigt.
 
-Cupidité étant le plus proche, cette sensation était cent fois plus intense pour lui. Sans aucune hésitation, il se réfugia derrière l'Écran Montagne et Rivière.
+Tan Lang étant le plus proche, cette sensation était cent fois plus intense pour lui. Sans aucune hésitation, il se réfugia derrière l'Écran Montagne et Rivière.
 
 À cet instant, l'Écran Montagne et Rivière prit possession de la zone, comme si l'espace avait disparu. Pourtant, malgré cela, le doigt perça l'écran tout en s'abattant avec force.
 
-Des bruits de craquements résonnèrent et d'innombrables fissures apparurent sur l'écran. Cupidité cracha une large bouffée de sang de son âme originelle en battant en retraite précipitamment; il continuait de saigner abondamment, ses blessures étant trop graves.
+Des bruits de craquements résonnèrent et d'innombrables fissures apparurent sur l'écran. Tan Lang cracha une large bouffée de sang de son âme originelle en battant en retraite précipitamment; il continuait de saigner abondamment, ses blessures étant trop graves.
 
-Le doigt de l'ancien dieu ne s'arrêta pas et s'abattit sur Cupidité.
+Le doigt de l'ancien dieu ne s'arrêta pas et s'abattit sur Tan Lang.
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il fixait l'Écran Montagne et Rivière qui, bien que fissuré, conservait toute sa puissance. Un éclat étrange traversa son regard. En voyant le doigt se diriger vers Cupidité, Wang Lin serra les dents. Il confia l'os à la garde céleste et chargea comme s'il se téléportait.
+Les yeux de Wang Lin s'illuminèrent alors qu'il fixait l'Écran Montagne et Rivière qui, bien que fissuré, conservait toute sa puissance. Un éclat étrange traversa son regard. En voyant le doigt se diriger vers Tan Lang, Wang Lin serra les dents. Il confia l'os à la garde céleste et chargea comme s'il se téléportait.
 
 Sa vitesse était prodigieuse; il arriva aux côtés de l'écran en un clin d'œil.
 
-À cet instant, Cupidité ne se souciait plus que Wang Lin lui dérobe son trésor; il se déplaçait à pleine vitesse pour fuir.
+À cet instant, Tan Lang ne se souciait plus que Wang Lin lui dérobe son trésor; il se déplaçait à pleine vitesse pour fuir.
 
 Le doigt de l'ancien dieu s'arrêta soudainement et pivota lentement, comme s'il verrouillait sa cible sur Wang Lin.
 
 Le cuir chevelu de Wang Lin picota. Sans hésiter, il rassembla toute son énergie spirituelle céleste dans son doigt droit et hurla: « Arrête! »
 
-Sa cible n'était pas le doigt de l'ancien dieu, mais Cupidité!
+Sa cible n'était pas le doigt de l'ancien dieu, mais Tan Lang!
 
-Les yeux de Cupidité devinrent injectés de sang et son corps se figea un instant. Il jura intérieurement. Bien que ce ne fût qu'un bref arrêt, cela attira l'attention du doigt de l'ancien dieu.
+Les yeux de Tan Lang devinrent injectés de sang et son corps se figea un instant. Il jura intérieurement. Bien que ce ne fût qu'un bref arrêt, cela attira l'attention du doigt de l'ancien dieu.
 
 Saisissant cette opportunité, Wang Lin saisit l'écran et le rangea dans son sac de stockage, puis battit en retraite sans la moindre hésitation.
 
@@ -49,21 +49,21 @@ Son cœur martelait sa poitrine. Le danger n'était pas encore passé. Il se rua
 
 La garde céleste n'avait cessé de fuir, mais face au gigantesque Serpent aux yeux de lune et au doigt de l'ancien dieu, sa vitesse était manifestement insuffisante.
 
-Le visage de Cupidité était d'une pâleur extrême. Alors que le doigt de l'ancien dieu approchait, Cupidité frappa immédiatement son sac de stockage, et une couronne étincelante apparut. Elle ressemblait à la couronne d'un empereur mortel, sertie de cinq joyaux. Les pouvoirs du métal, du bois, de l'eau, du feu et de la terre jaillirent soudainement de la couronne.
+Le visage de Tan Lang était d'une pâleur extrême. Alors que le doigt de l'ancien dieu approchait, Tan Lang frappa immédiatement son sac de stockage, et une couronne étincelante apparut. Elle ressemblait à la couronne d'un empereur mortel, sertie de cinq joyaux. Les pouvoirs du métal, du bois, de l'eau, du feu et de la terre jaillirent soudainement de la couronne.
 
-Il se la posa sur la tête sans hésiter. La lumière dorée de la couronne était aveuglante, mais elle enveloppa Cupidité comme une nappe d'eau. Soudain, une ombre immense surplomba son corps. Cette silhouette indistincte portait une robe de dragon, et un sentiment de majesté envahit soudainement les environs.
+Il se la posa sur la tête sans hésiter. La lumière dorée de la couronne était aveuglante, mais elle enveloppa Tan Lang comme une nappe d'eau. Soudain, une ombre immense surplomba son corps. Cette silhouette indistincte portait une robe de dragon, et un sentiment de majesté envahit soudainement les environs.
 
-Cupidité hurla: « Pour activer la Couronne de l'Empereur Céleste, ce vieil homme a dû tuer 9 999 empereurs mortels et fusionner leurs âmes à l'intérieur afin d'en remplir les exigences! Je veux voir si elle peut résister à ton doigt, vile bête! » L'illusion du doigt de l'ancien dieu s'abattit sur Cupidité.
+Tan Lang hurla: « Pour activer la Couronne de l'Empereur Céleste, ce vieil homme a dû tuer 9 999 empereurs mortels et fusionner leurs âmes à l'intérieur afin d'en remplir les exigences! Je veux voir si elle peut résister à ton doigt, vile bête! » L'illusion du doigt de l'ancien dieu s'abattit sur Tan Lang.
 
 Un choc qui ébranla les cieux résonna dans la zone.
 
-Le doigt de l'ancien dieu ne faiblit pas. Après avoir écrasé Cupidité, il se retira aussitôt.
+Le doigt de l'ancien dieu ne faiblit pas. Après avoir écrasé Tan Lang, il se retira aussitôt.
 
-Quant à Cupidité, son visage était plus pâle que jamais et la lumière dorée qui l'entourait s'effondra. Les âmes des 9 999 empereurs disparurent soudainement et la couronne tomba de sa tête. Chose étrange: la couronne était parfaitement intacte après avoir encaissé le coup du doigt de l'ancien dieu.
+Quant à Tan Lang, son visage était plus pâle que jamais et la lumière dorée qui l'entourait s'effondra. Les âmes des 9 999 empereurs disparurent soudainement et la couronne tomba de sa tête. Chose étrange: la couronne était parfaitement intacte après avoir encaissé le coup du doigt de l'ancien dieu.
 
-Une force dévastatrice s'engouffra dans le corps de Cupidité avec une violence folle. Son corps trembla, puis émit une lumière arc-en-ciel avant d'être projeté comme une météorite vers le bas. On ignorait s'il était encore en vie lorsqu'il disparut parmi les étoiles.
+Une force dévastatrice s'engouffra dans le corps de Tan Lang avec une violence folle. Son corps trembla, puis émit une lumière arc-en-ciel avant d'être projeté comme une météorite vers le bas. On ignorait s'il était encore en vie lorsqu'il disparut parmi les étoiles.
 
-Les yeux de Wang Lin étaient emplis de terreur. Alors que le doigt de l'ancien dieu s'abattait sur Cupidité, il n'avait pas cessé de courir pour fuir. Cependant, à cet instant, l'illusion du doigt de l'ancien dieu apparut soudainement derrière lui.
+Les yeux de Wang Lin étaient emplis de terreur. Alors que le doigt de l'ancien dieu s'abattait sur Tan Lang, il n'avait pas cessé de courir pour fuir. Cependant, à cet instant, l'illusion du doigt de l'ancien dieu apparut soudainement derrière lui.
 
 L'aura familière d'un ancien dieu enveloppa brusquement la zone.
 
@@ -103,7 +103,7 @@ Dans son rugissement, d'innombrables sphères de tonnerre apparurent et attaquè
 
 Profitant du ralentissement du doigt, Wang Lin saisit le sac de stockage qui était tombé lors de l'effondrement de son corps. Une fois son âme originelle transformée en dragon de tonnerre, il devint plusieurs fois plus rapide que lorsqu'il avait un corps physique. Il empoigna la garde céleste et la moitié de l'os avant de s'enfuir prestement.
 
-En s'échappant, il fut envahi par un sentiment d'amertume. Pourtant, à cet instant même, il vit la couronne laissée par Cupidité flotter dans les airs.
+En s'échappant, il fut envahi par un sentiment d'amertume. Pourtant, à cet instant même, il vit la couronne laissée par Tan Lang flotter dans les airs.
 
 Son cœur rata un battement; il glissa la couronne dans son sac et partit sans même un regard en arrière.
 
@@ -111,7 +111,7 @@ Le doigt de l'ancien dieu se dissipa lentement. Le gigantesque Serpent aux yeux 
 
 Wang Lin ne put s'empêcher de maudire la situation en réalisant que le serpent le traquait.
 
-Il devait admettre qu'il avait été imprudent cette fois. Il n'avait pas prévu que l'apparition de Cupidité provoquerait un tel éveil chez la créature.
+Il devait admettre qu'il avait été imprudent cette fois. Il n'avait pas prévu que l'apparition de Tan Lang provoquerait un tel éveil chez la créature.
 
 Autrement, selon ses calculs initiaux, il ne se serait pas retrouvé dans un état aussi pitoyable.
 
@@ -169,7 +169,7 @@ Cependant, l'endroit qu'il avait choisi cette fois fit trembler le cœur de tous
 
 Dans le domaine nord, il existait une planète relativement primitive. L'énergie spirituelle y était faible, mais des mortels y vivaient encore. Ce jour-là, un objet tomba du ciel. Enveloppé d'une lumière arc-en-ciel, il s'écrasa dans une plaine au nord de la planète dans un fracas assourdissant.
 
-Tous les os du corps de Cupidité étaient brisés et ses entrailles s'étaient effondrées. Son âme originelle était gravement endommagée, mais il n'était pas mort!
+Tous les os du corps de Tan Lang étaient brisés et ses entrailles s'étaient effondrées. Son âme originelle était gravement endommagée, mais il n'était pas mort!
 
 Loin de mourir, ses yeux étaient empreints d'extase.
 
@@ -177,7 +177,7 @@ Lorsqu'il était arrivé dans le système stellaire Luotian, son corps était co
 
 Seule la marque de l'Omniscient subsistait.
 
-« Tant que j'ai suffisamment de temps, je suis certain de pouvoir me rétablir un jour! » Cupidité prit une profonde inspiration, s'enfonça lentement dans le sol et disparut de la plaine.
+« Tant que j'ai suffisamment de temps, je suis certain de pouvoir me rétablir un jour! » Tan Lang prit une profonde inspiration, s'enfonça lentement dans le sol et disparut de la plaine.
 
 À partir de ce jour, sur cette planète ordinaire, les habitants sentirent une légère odeur fétide, mais malgré leurs recherches, ils ne purent jamais en trouver la source.
 

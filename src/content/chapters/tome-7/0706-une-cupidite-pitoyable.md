@@ -1,6 +1,6 @@
 ---
 n: 706
-title: Une cupidité pitoyable
+title: Le pitoyable Tan Lang
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 706 - Pitiful Greed
@@ -78,6 +78,6 @@ En un instant, un corps frêle vêtu de haillons jaillit dans un état lamentabl
 
 Alors qu'il était sur le point de franchir la limite du brouillard, son visage émacié fut pris d'extase. C'était la huitième fois en plus de soixante-dix ans qu'il tentait de s'échapper... Mais à cet instant précis, un long tentacule frappa à une vitesse inimaginable depuis la planète Yun Xia. Il enroula la silhouette frêle et le traîna impitoyablement vers les profondeurs.
 
-Cet homme s'appelait Cupidité. Saisi par le tentacule et entraîné rapidement vers le bas, il regarda le brouillard dense qui l'entourait, ses yeux révélant un désespoir total.
+Cet homme s'appelait Tan Lang. Saisi par le tentacule et entraîné rapidement vers le bas, il regarda le brouillard dense qui l'entourait, ses yeux révélant un désespoir total.
 
 « J'ai passé ma vie à chercher des trésors, et je n'aurais jamais cru qu'une telle chose m'arriverait... Wang Lin, tout cela est de ta faute! Si tu n'étais pas venu dans ce maudit système stellaire de Luotian, comment se fait-il que ce vieux soit envoyé ici?! Si je n'avais pas été envoyé ici, comment aurais-je pu pénétrer sur cette planète terrifiante?! »

@@ -8,9 +8,9 @@ slug: la-graine-pour-rompre-les-liens-avec-lomniscient
 ---
 Wu Ma, qui se tenait aux côtés de Chen Long, affichait une expression abattue et murmura: « Le corps de Shen Hou a déjà été dévoré par ces créatures; même son âme originelle n'a pu s'échapper... »
 
-Chen Long laissa poindre une expression amère. Des Douze Épées, outre Mo Yang qui était mort, et Zi Shu et Hai Zhu qui étaient restés à l'extérieur, les neuf autres membres avaient tous suivi Cupidité jusqu'à cet Abîme des Marées.
+Chen Long laissa poindre une expression amère. Des Douze Épées, outre Mo Yang qui était mort, et Zi Shu et Hai Zhu qui étaient restés à l'extérieur, les neuf autres membres avaient tous suivi Tan Lang jusqu'à cet Abîme des Marées.
 
-Cupidité avait affirmé qu'après avoir observé les lieux pendant un certain temps, il en avait conclu que le plus grand trésor de la Terre des Esprits Démoniaques se trouvait dans cet Abîme des Marées. Tous, à l'exception de Chen Long, avaient été tentés par ses paroles.
+Tan Lang avait affirmé qu'après avoir observé les lieux pendant un certain temps, il en avait conclu que le plus grand trésor de la Terre des Esprits Démoniaques se trouvait dans cet Abîme des Marées. Tous, à l'exception de Chen Long, avaient été tentés par ses paroles.
 
 Ils avaient personnellement vu d'innombrables trésors et objets exotiques, capables de rendre n'importe qui fou de rage, être aspirés dans cette Terre des Esprits Démoniaques lors des marées au-delà de la Mer de l'Est.
 
@@ -18,7 +18,7 @@ On pouvait dire que leur but, outre l'obtention de l'héritage du démon ancien,
 
 Chen Long avait toujours fait preuve de calme. Bien qu'il ait senti que quelque chose n'allait pas, il ne trouvait aucune raison de refuser. Cependant, il avait élaboré un plan: il n'avait pas laissé tout le monde entrer ensemble. Au lieu de cela, il avait divisé trois d'entre eux en un autre groupe, avec Chou Niu comme chef, pour pénétrer par une entrée différente. Ils maintenaient une communication constante et avaient même laissé Zi Shu et Hai Zhu à l'extérieur.
 
-Lorsqu'ils firent leurs premiers pas dans l'Abîme des Marées, tout se passa sans encombre. Cependant, la situation changea radicalement dès que Cupidité s'empara d'un objet inconnu dans une grotte!
+Lorsqu'ils firent leurs premiers pas dans l'Abîme des Marées, tout se passa sans encombre. Cependant, la situation changea radicalement dès que Tan Lang s'empara d'un objet inconnu dans une grotte!
 
 Ils furent soudainement attaqués par ces bêtes mystérieuses et se retrouvèrent piégés. Incapables de s'échapper, ils étaient restés prisonniers ici pendant près de cent ans!
 
@@ -28,39 +28,39 @@ Le frère cadet Shen Hou était mort lors d'une tentative de percée forcée. M�
 
 Chen Long savait que même en rassemblant toute l'énergie des épées, ils ne pourraient pas quitter les lieux.
 
-« Cela ne peut plus durer! » Chen Long prit une profonde inspiration, se redressa et fixa Cupidité du regard.
+« Cela ne peut plus durer! » Chen Long prit une profonde inspiration, se redressa et fixa Tan Lang du regard.
 
-Son geste fit immédiatement se lever les quatre autres disciples de la Secte de l'Épée Da Luo. Ils se positionnèrent pour encercler Cupidité.
+Son geste fit immédiatement se lever les quatre autres disciples de la Secte de l'Épée Da Luo. Ils se positionnèrent pour encercler Tan Lang.
 
-L'expression de Cupidité demeura sombre tandis qu'il laissait échapper un rire rauque.
+L'expression de Tan Lang demeura sombre tandis qu'il laissait échapper un rire rauque.
 
 « Chers neveux, que signifie ce comportement? »
 
-Chen Long déclara d'un ton solennel: « Senior Cupidité, le junior souhaite savoir ce que vous avez obtenu dans cette grotte! »
+Chen Long déclara d'un ton solennel: « Senior Tan Lang, le junior souhaite savoir ce que vous avez obtenu dans cette grotte! »
 
-Une lueur de dédain passa dans les yeux de Cupidité lorsqu'il répondit: « Tu veux savoir? » Sur ces mots, il frappa son sac de rangement et un œuf de forme ovale apparut dans sa main.
+Une lueur de dédain passa dans les yeux de Tan Lang lorsqu'il répondit: « Tu veux savoir? » Sur ces mots, il frappa son sac de rangement et un œuf de forme ovale apparut dans sa main.
 
 Aucun signe de vie ne émanait de cet œuf; il était enveloppé d'une aura de mort.
 
-Le regard de Chen Long se posa un instant sur l'œuf. Après tout ce temps, il avait commencé à comprendre la nature de Cupidité. La culture de ce dernier était liée à la mort, il était donc logique qu'il utilise cet objet pour favoriser sa propre progression.
+Le regard de Chen Long se posa un instant sur l'œuf. Après tout ce temps, il avait commencé à comprendre la nature de Tan Lang. La culture de ce dernier était liée à la mort, il était donc logique qu'il utilise cet objet pour favoriser sa propre progression.
 
-Cependant, rien ne garantissait qu'il s'agissait bien de ce que Cupidité avait trouvé.
+Cependant, rien ne garantissait qu'il s'agissait bien de ce que Tan Lang avait trouvé.
 
-« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit! » Les yeux de Cupidité devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de l'Épée Da Luo comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
+« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit! » Les yeux de Tan Lang devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de l'Épée Da Luo comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
 
 Chen Long baissa la tête, une lueur d'intention meurtrière traversant son regard. Il dit respectueusement: « Veuillez ne pas nous en tenir rigueur, Senior. Le junior était simplement impatient. Après tout, nous sommes piégés ici depuis près de cent ans. »
 
-Cupidité ferma les yeux et répondit lentement: « Pourquoi tant de hâte? Au plus tard, votre maître arrivera dans cent ans pour vous secourir tous. »
+Tan Lang ferma les yeux et répondit lentement: « Pourquoi tant de hâte? Au plus tard, votre maître arrivera dans cent ans pour vous secourir tous. »
 
-Chen Long se rassit en position du lotus et commença à réfléchir. Il avait déjà remarqué une anomalie chez Cupidité. Ce dernier semblait vouloir rester ici plutôt que de partir; il devait y avoir une raison à cela!
+Chen Long se rassit en position du lotus et commença à réfléchir. Il avait déjà remarqué une anomalie chez Tan Lang. Ce dernier semblait vouloir rester ici plutôt que de partir; il devait y avoir une raison à cela!
 
-Tandis que les disciples de la Secte de l'Épée Da Luo étaient en conflit avec Cupidité, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays des Démons de Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
+Tandis que les disciples de la Secte de l'Épée Da Luo étaient en conflit avec Tan Lang, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays des Démons de Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
 
 Selon elle, le jeton qui faisait rougir les yeux même de personnes comme l'Omniscient se trouvait dans les profondeurs de l'Abîme des Marées.
 
-Wang Lin savait également que Cupidité et les disciples de la Secte de l'Épée Da Luo avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Cupidité s'était aussi rendu à l'Abîme des Marées.
+Wang Lin savait également que Tan Lang et les disciples de la Secte de l'Épée Da Luo avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Tan Lang s'était aussi rendu à l'Abîme des Marées.
 
-Si le groupe de Cupidité en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays des Démons de Feu pour couvrir ses arrières.
+Si le groupe de Tan Lang en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays des Démons de Feu pour couvrir ses arrières.
 
 Utilisant une technique de téléportation de grande envergure, il se déplaçait très rapidement vers la sortie de l'Abîme des Marées.
 

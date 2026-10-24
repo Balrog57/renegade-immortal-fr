@@ -1,38 +1,38 @@
 ---
 n: 517
-title: Les Pensées de la Cupidité
+title: Les Pensées de Tan Lang
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 517 - Greeds Thoughts
 slug: les-pensees-de-la-cupidite
 ---
-Les yeux du Saint de l'Épée Ling Tianhou s'illuminèrent et il demanda lentement: « Quelle sorte de fortune pourrait vous intéresser à ce point, Cupidité? »
+Les yeux du Saint de l'Épée Ling Tianhou s'illuminèrent et il demanda lentement: « Quelle sorte de fortune pourrait vous intéresser à ce point, Tan Lang? »
 
-Cupidité réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée a-t-il entendu parler de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste complet de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture! »
+Tan Lang réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée a-t-il entendu parler de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste complet de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture! »
 
 Les yeux de Ling Tianhou devinrent sérieux et il demanda lentement: « Vos blessures sont-elles liées à cette perle? »
 
-Cupidité hocha la tête avec un sourire amer. « Ne parlons plus du passé. C'était simplement parce que ma culture n'était pas assez puissante. Cependant, si le Saint de l'Épée agit, alors ce sera certainement facile! »
+Tan Lang hocha la tête avec un sourire amer. « Ne parlons plus du passé. C'était simplement parce que ma culture n'était pas assez puissante. Cependant, si le Saint de l'Épée agit, alors ce sera certainement facile! »
 
-Le Saint de l'Épée Ling Tianhou leva la tête et scruta le vide. Après un long moment, il dit: « Nous pourrons en discuter une fois que la Mer des Esprits Démoniaques de l'Est sera terminée, mais avant cela, vous devez m'aider pour une affaire, Cupidité! »
+Le Saint de l'Épée Ling Tianhou leva la tête et scruta le vide. Après un long moment, il dit: « Nous pourrons en discuter une fois que la Mer des Esprits Démoniaques de l'Est sera terminée, mais avant cela, vous devez m'aider pour une affaire, Tan Lang! »
 
-Les yeux de Cupidité s'illuminèrent et il demanda: « Que le Saint de l'Épée attend-il de moi? »
+Les yeux de Tan Lang s'illuminèrent et il demanda: « Que le Saint de l'Épée attend-il de moi? »
 
 Le Saint de l'Épée Ling Tianhou dit d'un ton solennel: « Entrez dans la Mer des Esprits Démoniaques de l'Est et protégez mes douze disciples jusqu'à ce qu'ils accomplissent la mission secrète que je leur ai confiée. Si vous réussissez cela, alors je vous aiderai. »
 
-L'expression de Cupidité se figea. « Ling Tianhou, que voulez-vous dire par "aider"? » demanda-t-il.
+L'expression de Tan Lang se figea. « Ling Tianhou, que voulez-vous dire par "aider"? » demanda-t-il.
 
-Ling Tianhou se tourna vers lui. Son visage était impassible lorsqu'il dit calmement: « Cupidité, lorsque je me faisais un nom parmi les étoiles, vous n'aviez même pas commencé à cultiver. Votre manège est clair pour moi. Si vous n'aviez pas été contraint par le propriétaire de la perle, pourquoi vous précipiteriez-vous ici pour me trouver? Si je vous repoussais maintenant, j'ai bien peur que peu de temps après, nous ne soyons séparés par la vie et la mort! »
+Ling Tianhou se tourna vers lui. Son visage était impassible lorsqu'il dit calmement: « Tan Lang, lorsque je me faisais un nom parmi les étoiles, vous n'aviez même pas commencé à cultiver. Votre manège est clair pour moi. Si vous n'aviez pas été contraint par le propriétaire de la perle, pourquoi vous précipiteriez-vous ici pour me trouver? Si je vous repoussais maintenant, j'ai bien peur que peu de temps après, nous ne soyons séparés par la vie et la mort! »
 
-Cupidité réfléchit. Après un moment, il sourit et dit: « Le Saint de l'Épée s'inquiète trop. Tant que je serai là, je promets de garder vos disciples en sécurité! Cependant, j'ai entendu dire que la porte de la Mer des Esprits Démoniaques de l'Est est mystérieuse, alors je ne sais pas si je peux y entrer avec ma culture... »
+Tan Lang réfléchit. Après un moment, il sourit et dit: « Le Saint de l'Épée s'inquiète trop. Tant que je serai là, je promets de garder vos disciples en sécurité! Cependant, j'ai entendu dire que la porte de la Mer des Esprits Démoniaques de l'Est est mystérieuse, alors je ne sais pas si je peux y entrer avec ma culture... »
 
 Ling Tianhou répondit calmement: « Ne vous en souciez pas. Vous êtes blessé, et c'est mon tour d'ouvrir la porte, je vous laisserai donc naturellement entrer. »
 
-Cupidité hocha la tête et ne dit plus rien.
+Tan Lang hocha la tête et ne dit plus rien.
 
 Tandis que les deux hommes discutaient, un immense nuage aux sept couleurs apparut au loin.
 
-Les yeux de Cupidité s'illuminèrent, puis il disparut complètement. Si l'on regardait de près, on aurait vu qu'il s'était transformé en une ombre restée très proche du Saint de l'Épée Ling Tianhou, immobile.
+Les yeux de Tan Lang s'illuminèrent, puis il disparut complètement. Si l'on regardait de près, on aurait vu qu'il s'était transformé en une ombre restée très proche du Saint de l'Épée Ling Tianhou, immobile.
 
 Avant que le nuage aux sept couleurs ne se rapproche, un sentiment de paix enveloppa la zone. De l'intérieur du nuage, un Omniscient vêtu d'une robe blanche s'avança lentement.
 
@@ -106,11 +106,11 @@ Wang Lin n'examina pas attentivement ces neuf personnes. Il jeta un coup d'œil 
 
 Les yeux du Saint de l'Épée Ling Tianhou devinrent sérieux lorsque Wang Lin arriva. Il avait toujours eu l'impression que cet enfant lui était familier depuis qu'il l'avait aperçu lors de la célébration de l'anniversaire de l'Omniscient, mais quoi qu'il fasse, il ne parvenait pas à s'en souvenir.
 
-« Hein? » L'exclamation de Cupidité provint de derrière le Saint de l'Épée Ling Tianhou.
+« Hein? » L'exclamation de Tan Lang provint de derrière le Saint de l'Épée Ling Tianhou.
 
 Ling Tianhou demanda doucement: « Vous connaissez cet enfant? »
 
-« Je ne connais pas cet enfant, mais il dégage un sentiment familier... Peut-être est-il le descendant d'un vieil ami... » Les yeux de Cupidité brillèrent intensément, mais il les dissimula aussitôt.
+« Je ne connais pas cet enfant, mais il dégage un sentiment familier... Peut-être est-il le descendant d'un vieil ami... » Les yeux de Tan Lang brillèrent intensément, mais il les dissimula aussitôt.
 
 L'apparition de Wang Lin attira également l'attention des célèbres vieux monstres. La seule raison pour laquelle ils s'intéressaient à lui était que l'Omniscient n'acceptait jamais un disciple sans raison. L'Omniscient remettait tout au destin, et si le destin n'en décidait pas ainsi, il n'accepterait aucun disciple.
 

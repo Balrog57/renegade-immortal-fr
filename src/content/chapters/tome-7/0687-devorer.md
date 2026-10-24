@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 687 - Devour
 slug: devorer
 ---
-Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre des Esprits Démoniaques, il avait vu Cupidité sortir un trésor en forme de montagne céleste et en extraire l'âme.
+Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre des Esprits Démoniaques, il avait vu Tan Lang sortir un trésor en forme de montagne céleste et en extraire l'âme.
 
 La scène de l'époque l'avait profondément marqué. Un tel sort était extrêmement puissant; ce n'était pas une technique que des cultivateurs ordinaires pouvaient contrôler ou maîtriser.
 
-Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il constatait que l'ampleur de ce sort, qui condensait une griffe démoniaque pour extirper l'âme de la planète Mille Illusions, surpassait celle de Cupidité de mille, voire dix mille fois.
+Désormais, en faisant l'expérience directe du démon dispersé prenant le contrôle de son corps pour extirper l'âme de la planète, il constatait que l'ampleur de ce sort, qui condensait une griffe démoniaque pour extirper l'âme de la planète Mille Illusions, surpassait celle de Tan Lang de mille, voire dix mille fois.
 
 Tout dans ce monde, jusqu'au moindre brin d'herbe, possède la vie, et cela signifie qu'ils possèdent une âme. Ces âmes sont insaisissables et invisibles, mais elles peuvent être clairement ressenties.
 
@@ -58,7 +58,7 @@ Que ce soit la figure céleste ou le démon dispersé, les deux possédaient la 
 
 À cet instant, une petite fissure apparut dans cette porte, lui permettant d'entrevoir le niveau suivant et de ressentir personnellement la puissance de cette étape supérieure.
 
-« Ceci... est la puissance du second pas... Comparé à Cupidité, à l'ancêtre de la famille Huan ou à Qian Kuizi, qui sont tous au second pas, il est clair qu'ils ne font que commencer à l'atteindre. »
+« Ceci... est la puissance du second pas... Comparé à Tan Lang, à l'ancêtre de la famille Huan ou à Qian Kuizi, qui sont tous au second pas, il est clair qu'ils ne font que commencer à l'atteindre. »
 
 « Le second pas de la culture est trop terrifiant! » L'esprit de Wang Lin fut ébranlé.
 

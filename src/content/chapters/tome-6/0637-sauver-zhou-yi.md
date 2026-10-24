@@ -110,12 +110,12 @@ Les couloirs au fond de l'Abîme des Marées formaient un cercle en forme de « 
 
 Une épée massive était à moitié enfoncée dans le sol d'un couloir. Au moment où l'onde sonore atteignit l'épée, celle-ci se desserra légèrement.
 
-L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Cupidité et les disciples de la Secte de l'Épée Da Luo étaient piégés par les bêtes moustiques et le brouillard noir, Cupidité ouvrit soudainement les yeux, le regard brillant.
+L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Tan Lang et les disciples de la Secte de l'Épée Da Luo étaient piégés par les bêtes moustiques et le brouillard noir, Tan Lang ouvrit soudainement les yeux, le regard brillant.
 
 « L'aura de Ling Tianhou! Serait-il arrivé plus tôt... Non, bien que cette aura appartienne à Ling Tianhou, ce n'en est qu'une partie... En plus de la sienne, il y a une autre aura... Cette seconde aura m'est inconnue, mais pour apparaître à un moment pareil, serait-ce à cause du jeton... »
 
-Cupidité sembla nonchalant alors qu'il balaya les disciples de la Secte de l'Épée Da Luo du regard avant de refermer les yeux.
+Tan Lang sembla nonchalant alors qu'il balaya les disciples de la Secte de l'Épée Da Luo du regard avant de refermer les yeux.
 
-Lorsque les ondulations arrivèrent ici, elles étaient déjà très faibles. Hormis Cupidité, personne d'autre ne s'en aperçut.
+Lorsque les ondulations arrivèrent ici, elles étaient déjà très faibles. Hormis Tan Lang, personne d'autre ne s'en aperçut.
 
 Dans la Secte de l'Épée Da Luo, Ling Tianhou, vêtu d'une robe de daoïste et en pleine méditation, ouvrit soudainement les yeux...

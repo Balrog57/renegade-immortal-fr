@@ -22,7 +22,7 @@ Les douze personnes s'engouffrèrent dans l'ouverture et, alors que le dernier f
 
 « Voici un rayon d'énergie d'épée de ma part, utilisez-le comme sort de survie pour vous douze! » Au moment où Ling Tianhou prononça ces mots, le rayon d'énergie fut respectueusement reçu par le dernier disciple. Ce dernier s'inclina devant le Saint de l'Épée, puis pénétra à son tour.
 
-Cupidité avait déjà disparu. Son ombre s'était transformée en ce dernier rayon d'énergie d'épée et avait disparu dans la porte de la Mer des Esprits Démoniaques de l'Est aux côtés des Douze Épées.
+Tan Lang avait déjà disparu. Son ombre s'était transformée en ce dernier rayon d'énergie d'épée et avait disparu dans la porte de la Mer des Esprits Démoniaques de l'Est aux côtés des Douze Épées.
 
 Le regard de l'Omniscient restait calme; il lança un regard éloquent à Ling Tianhou et déclara: « Disciples de la Secte du Destin Céleste, entrez! »
 

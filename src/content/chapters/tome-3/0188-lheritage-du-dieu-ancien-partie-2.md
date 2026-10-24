@@ -126,7 +126,7 @@ Wang Lin observait la scène depuis l'espace de la Perle Défiant le Ciel. Le c�
 
 Mais ce qui exalta encore plus le cœur de Wang Lin fut l'endroit où le dragon noir avait frappé. Une pensée traversa son esprit alors qu'il fixait cette zone.
 
-« Désir de Cupidité du Dieu Ancien, va! »
+« Désir de Tan Lang du Dieu Ancien, va! »
 
 Dans la brume sanglante, un dragon rouge apparut. Il engloutit un sixième de l'énergie spirituelle du Seigneur Démon des Six Désirs et percuta sans pitié le même endroit.
 

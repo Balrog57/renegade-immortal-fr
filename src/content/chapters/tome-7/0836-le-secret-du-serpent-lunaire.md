@@ -57,7 +57,7 @@ Après avoir été projeté dans le vortex, Wang Lin put enfin observer claireme
 
 C'était un espace long et étroit. Des tentacules émergeaient du vide et ondulaient lentement. Wang Lin aperçut un immense fourneau, entravé par d'innombrables tentacules qui semblaient en absorber l'aura. Des renflements ondulaient le long des tentacules et se transmettaient jusque dans le vide.
 
-Ce fourneau était celui de Cupidité!
+Ce fourneau était celui de Tan Lang!
 
 Si le fourneau lui-même le glaça, ce qui le choqua davantage fut la vue des personnes emmêlées dans les tentacules! Ces individus étaient tous nus et d'une maigreur extrême. Hommes et femmes, vieux et jeunes, ils étaient entassés les uns contre les autres. Presque chaque tentacule était enroulé autour d'un être humain!
 

@@ -110,7 +110,7 @@ Après cela, son corps vacilla et il changea rapidement de direction.
 
 Les Serpents aux yeux de lune qui le poursuivaient devinrent immédiatement furieux, comme si on leur avait arraché quelque chose qu'ils chérissaient. Ils se séparèrent pour fouiller la zone sans relâche.
 
-Wang Lin poussa un soupir de soulagement en progressant avec prudence à travers les entrailles du serpent, cherchant l'emplacement du fourneau de Cupidité. Ce fourneau était une source d'excitation immense pour lui.
+Wang Lin poussa un soupir de soulagement en progressant avec prudence à travers les entrailles du serpent, cherchant l'emplacement du fourneau de Tan Lang. Ce fourneau était une source d'excitation immense pour lui.
 
 Cependant, des vagues de vibrations se propagèrent soudainement à travers le corps du Serpent aux yeux de lune. À mesure que les ondulations s'étendaient, elles convergèrent rapidement vers Wang Lin.
 

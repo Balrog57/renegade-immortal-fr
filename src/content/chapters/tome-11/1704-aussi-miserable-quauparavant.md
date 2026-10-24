@@ -6,19 +6,19 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1704 - As Miserable as Before!"
 slug: aussi-miserable-quauparavant
 ---
-Les yeux de Cupidité étaient emplis de désespoir et son cœur de regrets. Il avait rencontré Wang Lin dans le Royaume Extérieur, et finalement, la puanteur qui imprégnait son corps s'était dissipée. À l'origine, il avait poussé un soupir de soulagement.
+Les yeux de Tan Lang étaient emplis de désespoir et son cœur de regrets. Il avait rencontré Wang Lin dans le Royaume Extérieur, et finalement, la puanteur qui imprégnait son corps s'était dissipée. À l'origine, il avait poussé un soupir de soulagement.
 
 Cependant, peu après, il fut confronté à la guerre entre les Royaumes Intérieur et Extérieur. Cette guerre l'avait extrêmement exalté; peut-être pourrait-il obtenir encore plus de trésors dans ce conflit, et son niveau de culture augmenterait.
 
-Cupidité suivit l'armée du Royaume Extérieur jusqu'à la Mer des Nuages, puis s'éclipsa secrètement. Guidé par son instinct pour les trésors, il trouva la faille spatiale dans la Mer des Nuages et y pénétra.
+Tan Lang suivit l'armée du Royaume Extérieur jusqu'à la Mer des Nuages, puis s'éclipsa secrètement. Guidé par son instinct pour les trésors, il trouva la faille spatiale dans la Mer des Nuages et y pénétra.
 
 Il était transporté par l'excitation en réalisant qu'une puissante aura de trésor se trouvait ici. Cette aura le fit rire comme un fou pendant près de quinze minutes.
 
 Il était convaincu que sa chance était immense et qu'il allait rencontrer une fortune prodigieuse. Son niveau de culture augmenterait et il n'aurait plus à craindre ce Wang Lin. Il comptait bien lui voler tous ses trésors en retour.
 
-Porté par ces ambitions, Cupidité suivit son instinct à l'intérieur de la faille et découvrit un véritable autel antique.
+Porté par ces ambitions, Tan Lang suivit son instinct à l'intérieur de la faille et découvrit un véritable autel antique.
 
-L'excitation de Cupidité atteignit des sommets lorsqu'il aperçut cet autel. Il vit également le monde contenu dans la faille sur laquelle l'un des coins de l'autel était ancré. Devant ce spectacle, il manqua de pousser un hurlement de loup.
+L'excitation de Tan Lang atteignit des sommets lorsqu'il aperçut cet autel. Il vit également le monde contenu dans la faille sur laquelle l'un des coins de l'autel était ancré. Devant ce spectacle, il manqua de pousser un hurlement de loup.
 
 Il découvrit d'innombrables herbes célestes. Beaucoup d'entre elles, qu'il ne connaissait que par les livres sans jamais les avoir vues de sa vie. Presque toutes pourraient accroître son niveau de culture une fois raffinées.
 
@@ -26,13 +26,13 @@ Il y avait tout simplement trop d'herbes célestes, une telle abondance qu'il en
 
 Outre ces herbes, il aperçut des bêtes célestes extrêmement dociles qui possédaient pourtant des niveaux de culture terrifiants. Ces créatures se poursuivaient et jouaient les unes avec les autres.
 
-Cela exalta encore davantage Cupidité. Fort de son expérience, il savait qu'elles ne le dérangeraient pas s'il ne les provoquait pas. Il songea même que, tout comme le dragon de tonnerre de sa jeunesse, elles pourraient devenir ses animaux de compagnie.
+Cela exalta encore davantage Tan Lang. Fort de son expérience, il savait qu'elles ne le dérangeraient pas s'il ne les provoquait pas. Il songea même que, tout comme le dragon de tonnerre de sa jeunesse, elles pourraient devenir ses animaux de compagnie.
 
-Tout cela faisait trembler Cupidité d'excitation, mais il ne perdit pas son sang-froid; il observa attentivement la faille pour voir si des cultivateurs gardaient les lieux. Après plusieurs jours d'observation, il vit apparaître deux petites filles.
+Tout cela faisait trembler Tan Lang d'excitation, mais il ne perdit pas son sang-froid; il observa attentivement la faille pour voir si des cultivateurs gardaient les lieux. Après plusieurs jours d'observation, il vit apparaître deux petites filles.
 
-À ses yeux, ces deux fillettes ne représentaient aucune menace. Cupidité rit de bonheur et s'engouffra dans la faille.
+À ses yeux, ces deux fillettes ne représentaient aucune menace. Tan Lang rit de bonheur et s'engouffra dans la faille.
 
-La barrière de la faille n'eut aucun effet sur lui. Cupidité ne trouva cela nullement étrange, ayant déjà rencontré des phénomènes similaires à maintes reprises.
+La barrière de la faille n'eut aucun effet sur lui. Tan Lang ne trouva cela nullement étrange, ayant déjà rencontré des phénomènes similaires à maintes reprises.
 
 Une fois à l'intérieur, il vit que les filles étaient stupéfaites de sa présence, ce qui l'excita davantage. D'un geste de la main, il les emprisonna pour pouvoir commencer à cueillir les herbes célestes.
 
@@ -44,21 +44,21 @@ Pourtant, il ne pourrait jamais oublier le sort misérable qui lui attendit. Il 
 
 — Tu ne crois pas qu'il est fou? Ce sont des herbes pour les petites bêtes, pourquoi les met-il à la bouche...?
 
-Les deux fillettes restèrent un long moment interdites. Puis, la fille nommée Wa Wa fit un pas en avant, ignorant totalement l'emprisonnement de Cupidité. Elle apparut derrière lui et lui asséna un coup de pied.
+Les deux fillettes restèrent un long moment interdites. Puis, la fille nommée Wa Wa fit un pas en avant, ignorant totalement l'emprisonnement de Tan Lang. Elle apparut derrière lui et lui asséna un coup de pied.
 
-Après ce coup, le calvaire de Cupidité commença.
+Après ce coup, le calvaire de Tan Lang commença.
 
-En repensant à tout ce qui s'était passé, des larmes perlèrent dans les yeux de Cupidité. Le désespoir l'envahit en voyant les deux fillettes, les yeux grands ouverts, qui affichaient un air triomphant.
+En repensant à tout ce qui s'était passé, des larmes perlèrent dans les yeux de Tan Lang. Le désespoir l'envahit en voyant les deux fillettes, les yeux grands ouverts, qui affichaient un air triomphant.
 
 Il ne pouvait pas les battre. À l'époque, un seul coup de pied avait failli ruiner sa culture. À ses yeux, ces deux petites filles étaient tout simplement trop terrifiantes.
 
-— Je parlerai... Je parlerai! La dernière fois, ce démon meurtrier, laid, sans vergogne et arrogant, Wang Lin, était dans le ventre du Serpent aux yeux de lune... » La gorge de Cupidité semblait brûler alors qu'il commençait à s'exprimer.
+— Je parlerai... Je parlerai! La dernière fois, ce démon meurtrier, laid, sans vergogne et arrogant, Wang Lin, était dans le ventre du Serpent aux yeux de lune... » La gorge de Tan Lang semblait brûler alors qu'il commençait à s'exprimer.
 
 — Ce Wang Lin est trop méprisable! Comment peut-il être ainsi? » La petite fille en pourpre nommée Han Han fronça le nez et marmonna avec mécontentement.
 
 — Han Han, te souviens-tu de ce que je t'ai dit? Lorsque je suis sortie avec mon Maître pour cueillir des herbes, j'ai rencontré un sens divin extrêmement étrange. J'ai communiqué avec lui et il m'a dit que son nom était Wang Lin. »
 
-Alors que Cupidité racontait douloureusement son histoire, à l'extérieur de la faille, dans l'immense ciel étoilé où se trouvait l'autel, Wang Lin cracha une nouvelle bouchée de sang et utilisa l'Évasion Sanguine, le visage livide.
+Alors que Tan Lang racontait douloureusement son histoire, à l'extérieur de la faille, dans l'immense ciel étoilé où se trouvait l'autel, Wang Lin cracha une nouvelle bouchée de sang et utilisa l'Évasion Sanguine, le visage livide.
 
 Derrière lui, l'espace lui-même semblait s'embraser alors que neuf oiseaux de feu le poursuivaient. Une puissante vague de chaleur émanait de ces créatures. Derrière elles, le Daoïste aux Sept Couleurs avançait d'un pas tranquille, le visage empreint d'intention meurtrière et de colère.
 
@@ -74,23 +74,23 @@ Il se rapprochait de plus en plus de l'autel!
 
 Un instant plus tard, après une nouvelle téléportation, Wang Lin aperçut au loin l'autel indiqué par la carte du talisman de jade. Ses yeux s'illuminèrent et il fonça vers lui tel un rayon de feu ardent.
 
-C'est à ce moment précis que Cupidité recula prudemment vers la faille, tandis que les deux fillettes débattaient du nom de « Wang Lin ». Fou de terreur, Cupidité se précipita vers la sortie.
+C'est à ce moment précis que Tan Lang recula prudemment vers la faille, tandis que les deux fillettes débattaient du nom de « Wang Lin ». Fou de terreur, Tan Lang se précipita vers la sortie.
 
 En s'élançant, il versa des larmes de joie. En contemplant l'espace devant lui, il eut le sentiment d'avoir échappé à une calamité mortelle. Mais son bonheur fut de courte durée lorsqu'il vit un rayon de lumière brûlante fondre sur lui.
 
-« Wang Lin? Wang Lin!! » Cupidité fut pétrifié et faillit ne pas en croire ses yeux. Mais en regardant de plus près, il poussa un cri d'effroi.
+« Wang Lin? Wang Lin!! » Tan Lang fut pétrifié et faillit ne pas en croire ses yeux. Mais en regardant de plus près, il poussa un cri d'effroi.
 
-« Toi, toi... tu ne me lâcheras donc jamais! J'ai parcouru tout ce chemin et tu me suis encore. Toi... » Le visage de Cupidité devint livide et il recula par instinct. Wang Lin se rapprocha et tituba en atterrissant sur l'autel, crachant une nouvelle bouchée de sang.
+« Toi, toi... tu ne me lâcheras donc jamais! J'ai parcouru tout ce chemin et tu me suis encore. Toi... » Le visage de Tan Lang devint livide et il recula par instinct. Wang Lin se rapprocha et tituba en atterrissant sur l'autel, crachant une nouvelle bouchée de sang.
 
-À cet instant, Wang Lin aperçut également Cupidité qui venait d'apparaître devant lui. Il l'ignora pour fixer l'horizon.
+À cet instant, Wang Lin aperçut également Tan Lang qui venait d'apparaître devant lui. Il l'ignora pour fixer l'horizon.
 
 Au loin, l'espace brûlait et les neuf oiseaux de feu géants se transformaient en soleils à mesure qu'ils approchaient. Derrière eux, le Daoïste aux Sept Couleurs, chargé d'une intention meurtrière, se rapprochait.
 
 À chacun de ses pas, l'espace lui-même tremblait. C'était absolument terrifiant!
 
-Le visage de Cupidité changea une fois de plus. Ses yeux s'écarquillèrent et il trembla en reculant. La puissance du Daoïste aux Sept Couleurs l'emplissait d'effroi.
+Le visage de Tan Lang changea une fois de plus. Ses yeux s'écarquillèrent et il trembla en reculant. La puissance du Daoïste aux Sept Couleurs l'emplissait d'effroi.
 
-« Ce Wang Lin a réellement provoqué une figure aussi terrifiante! Qui est cet homme?! » Cupidité tremblait et s'apprêtait à regagner le Domaine de la Ferme des Bêtes à l'intérieur de la faille. Pour lui, l'extérieur était trop dangereux; il était plus sûr de retourner raconter ses histoires aux petites ancêtres.
+« Ce Wang Lin a réellement provoqué une figure aussi terrifiante! Qui est cet homme?! » Tan Lang tremblait et s'apprêtait à regagner le Domaine de la Ferme des Bêtes à l'intérieur de la faille. Pour lui, l'extérieur était trop dangereux; il était plus sûr de retourner raconter ses histoires aux petites ancêtres.
 
 Cependant, au même moment, le Daoïste aux Sept Couleurs leva sa main droite et pointa l'autel sur lequel se trouvait Wang Lin.
 
@@ -102,13 +102,13 @@ L'aura antique que dégageait ce bras lui était extrêmement familière. Wang L
 
 « Ce bras pourrait-il être ma seule chance? » Sans hésiter, et sans même prendre le temps d'observer les alentours, il leva la main droite et la pressa sur ce bras. Si n'importe qui d'autre l'avait fait, il n'aurait pu fusionner avec lui, mais Wang Lin était différent. Il possédait un héritage antique authentique. À cet instant, le bras émit une lueur éblouissante qui enveloppa complètement Wang Lin.
 
-Au même instant, Cupidité se mit à hurler au milieu de la vague de chaleur. La moitié de son corps était déjà entrée dans la faille, mais il était trop tard pour y pénétrer totalement!
+Au même instant, Tan Lang se mit à hurler au milieu de la vague de chaleur. La moitié de son corps était déjà entrée dans la faille, mais il était trop tard pour y pénétrer totalement!
 
 « 1 000 ans; 3 000 ans; 10 000 ans... Je raconterai des histoires pendant 10 000 ans! Deux petites ancêtres, sauvez-moi!!! »
 
-Alors que Cupidité rugissait de douleur, il sentit deux petites mains presser contre son dos. Au même instant, une force de culture assez puissante pour l'étouffer se déversa dans son corps par ces deux petites mains.
+Alors que Tan Lang rugissait de douleur, il sentit deux petites mains presser contre son dos. Au même instant, une force de culture assez puissante pour l'étouffer se déversa dans son corps par ces deux petites mains.
 
-Cette puissance fit briller le corps de Cupidité d'une lumière dorée infinie. Cette clarté se propagea et les mains de Cupidité bougèrent d'elles-mêmes jusqu'à former un motif circulaire.
+Cette puissance fit briller le corps de Tan Lang d'une lumière dorée infinie. Cette clarté se propagea et les mains de Tan Lang bougèrent d'elles-mêmes jusqu'à former un motif circulaire.
 
 Dès que ce motif fut complet, un soleil doré apparut dans sa main! Ce soleil ne faisait que la taille d'une paume, mais la puissance qu'il dégageait était telle qu'elle ébranla l'espace entier. Il fit trembler la Mer des Nuages, la Rivière Invoquée et les autres systèmes stellaires, et ébranla les astres antiques du Royaume Extérieur.
 

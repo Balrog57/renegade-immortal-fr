@@ -94,7 +94,7 @@ La dernière personne était une femme d'âge mûr, à l'allure encore assez jeu
 
 Ling Tianhou déclara: « Omniscient, autrefois votre disciple Wang Lin a pris le jeton, et vous avez alors annoncé qu'un mystère des cieux serait révélé aujourd'hui. Ce vieil homme veut voir ce que vous appelez votre mystère des cieux! »
 
-À l'époque, tous ces vieux monstres avaient envoyé Cupidité pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Cupidité avaient disparu. La grotte céleste de l'Abîme des Marées étant d'une importance capitale, les vieux monstres étaient venus chercher l'Omniscient, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
+À l'époque, tous ces vieux monstres avaient envoyé Tan Lang pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Tan Lang avaient disparu. La grotte céleste de l'Abîme des Marées étant d'une importance capitale, les vieux monstres étaient venus chercher l'Omniscient, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
 
 À ce moment-là, l'Omniscient avait gardé une expression sereine et n'avait prononcé qu'une seule phrase:
 
