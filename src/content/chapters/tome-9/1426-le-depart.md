@@ -64,7 +64,7 @@ Au moment où l'ancêtre emmenait Liu Jinbiao, Wang Lin, qui était assis près 
 
 De plus en plus de restrictions apparurent jusqu'à former une formation complète autour de lui. Cette formation avait la capacité de téléporter Wang Lin par une méthode spéciale.
 
-Au crépuscule, Wang Lin ouvrit les yeux et dit calmement: « Ancêtre, le Junior possède un serviteur dans les Terres Déchues nommé Zhong Grand Rouge. J'espère que vous pourrez prendre soin de lui en mon nom. »
+Au crépuscule, Wang Lin ouvrit les yeux et dit calmement: « Ancêtre, le Junior possède un serviteur dans les Terres Déchues nommé Zhong Dahong. J'espère que vous pourrez prendre soin de lui en mon nom. »
 
 Le Vieux Oiseau Vermillon était assis au bord du lac, une canne à pêche à la main et une cruche de vin posée à ses côtés. En entendant Wang Lin, il se retourna avec bienveillance dans les yeux.
 

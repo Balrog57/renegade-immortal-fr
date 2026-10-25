@@ -12,7 +12,7 @@ Après le retour de Wang Lin, celui-ci créa une vaste grotte et se mit en cultu
 
 Le Clan du Scorpion Noir, au statut le plus élevé, occupa une zone située à plusieurs centaines de kilomètres de la grotte. Le Clan de l'Évasion Nuageuse, impuissant, ne put que s'établir temporairement dans une autre direction.
 
-Zhong Grand Rouge était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan du Tonnerre Dispersé.
+Zhong Dahong était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan du Tonnerre Dispersé.
 
 À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan du Dragon Blindé, avant que l'envoyé du Grand Empereur ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Délaissés seraient restructurés.
 

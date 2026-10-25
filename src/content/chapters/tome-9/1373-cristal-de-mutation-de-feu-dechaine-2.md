@@ -40,9 +40,9 @@ L'index de Wang Lin était toujours pointé vers le front de l'âme originelle d
 
 Le vieil homme trembla et hocha la tête. Il murmura: « La Terre Déchue obéit toujours au fort. Avoir un maître aussi puissant que vous est une chance pour mon Clan du Scorpion Noir. Les 176 membres de mon clan obéiront au Maître. Personne n'osera désobéir! »
 
-Les yeux de Zhong Grand Rouge pivotèrent aussitôt d'un air rusé et il dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent ce serment, leur marque de clan se retournera contre eux et tout le Clan du Scorpion Noir sera anéanti pour l'éternité! »
+Les yeux de Zhong Dahong pivotèrent aussitôt d'un air rusé et il dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent ce serment, leur marque de clan se retournera contre eux et tout le Clan du Scorpion Noir sera anéanti pour l'éternité! »
 
-En entendant les paroles de Zhong Grand Rouge, le corps du vieil homme trembla et il lui lança un regard venimeux. Cependant, cette malveillance s'effondra rapidement pour laisser place à une expression amère tandis qu'il hochait la tête. « Très bien, ce vieil homme prêtera un serment de clan pour que vous soyez notre maître. Si nous vous trahissons, nous mourrons sans sépulture! »
+En entendant les paroles de Zhong Dahong, le corps du vieil homme trembla et il lui lança un regard venimeux. Cependant, cette malveillance s'effondra rapidement pour laisser place à une expression amère tandis qu'il hochait la tête. « Très bien, ce vieil homme prêtera un serment de clan pour que vous soyez notre maître. Si nous vous trahissons, nous mourrons sans sépulture! »
 
 Après avoir parlé, sa marque de clan émit une lueur spectrale. Le scorpion à quatre queues sembla ressentir une douleur extrême et laissa échapper un rugissement silencieux. Bientôt, la lumière se dissipa et une empreinte apparut lentement sur le scorpion.
 
@@ -52,9 +52,9 @@ Ils prêtèrent tous serment avec leur marque de clan. En conséquence, le Clan 
 
 La grotte de Wang Lin devint la terre sainte du Clan du Scorpion Noir. En utilisant les sorts du clan, ils transformèrent la zone entourant la grotte en un désert. Ce serait désormais le nouveau foyer du Clan du Scorpion Noir.
 
-Après avoir constaté la puissance de Wang Lin, l'esprit du vieil homme nommé Zhang fut profondément ébranlé. Il avait décidé qu'il suivrait absolument Zhong Grand Rouge.
+Après avoir constaté la puissance de Wang Lin, l'esprit du vieil homme nommé Zhang fut profondément ébranlé. Il avait décidé qu'il suivrait absolument Zhong Dahong.
 
-Quant à Zhong Grand Rouge, il était devenu encore plus hardi; il était désormais capable de commander le Clan du Scorpion Noir grâce à sa culture de Formation de l'Âme.
+Quant à Zhong Dahong, il était devenu encore plus hardi; il était désormais capable de commander le Clan du Scorpion Noir grâce à sa culture de Formation de l'Âme.
 
 « Il existe 372 petits clans dans la Terre Déchue. Mon Clan du Scorpion Noir est au bas de l'échelle. Nous ne contrôlons que cette planète presque abandonnée et comptons peu de membres... »
 

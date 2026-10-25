@@ -16,11 +16,11 @@ Grâce à sa sagesse, Wang Lin avait naturellement percé à jour le plan du cul
 
 « Quel est ton nom? » Wang Lin atterrit au sol avec la légèreté d'une feuille de saule flottant dans le vent, se tenant désormais au centre de la place de la Secte du Tonnerre Céleste.
 
-« Pour répondre: mon nom est Zhong Grand Rouge. Zhong comme le petit Zhong, et Rouge comme le petit rouge. Ce junior a toujours été loyal et sincère envers tous, et ne veut que tailler les ronces et trancher les obstacles pour vous, sous les étoiles comme sous la lune. Laissez-moi ouvrir la voie, laissez-moi... » Le cultivateur allait poursuivre, mais Wang Lin l'interrompit.
+« Pour répondre: mon nom est Zhong Dahong. Zhong comme dans le petit Zhong, et Hong comme dans le petit Hong. Ce junior a toujours été loyal et sincère envers tous, et ne veut que tailler les ronces et trancher les obstacles pour vous, sous les étoiles comme sous la lune. Laissez-moi ouvrir la voie, laissez-moi... » Le cultivateur allait poursuivre, mais Wang Lin l'interrompit.
 
 « Assez. Remets-moi tout ce que tu as rassemblé et qui peut être échangé contre des cristaux de tonnerre. »
 
-Bien que Grand Rouge paraisse calme, il était mort de peur. Plus tôt, alors qu'il cultivait dans la salle principale, il avait entendu quatre objets lourds s'écraser sur la place. Son Sens Divin s'était déployé pour découvrir ses quatre Grands Anciens jetés au sol, leur culture totalement anéantie. Il avait été stupéfait, puis furieux.
+Bien que Dahong paraisse calme, il était mort de peur. Plus tôt, alors qu'il cultivait dans la salle principale, il avait entendu quatre objets lourds s'écraser sur la place. Son Sens Divin s'était déployé pour découvrir ses quatre Grands Anciens jetés au sol, leur culture totalement anéantie. Il avait été stupéfait, puis furieux.
 
 Cependant, cette colère s'était instantanément évaporée lorsqu'il avait aperçu Wang Lin, le laissant tremblant de peur. Il était au début du stade de la Formation de l'Âme et, bien qu'il ne cultivât pas de domaines comme les cultivateurs du Royaume Intérieur, sa marque était active à 30 %. De plus, grâce à son niveau de culture, il avait côtoyé d'autres experts, le plus puissant ayant atteint le stade Ascendant.
 
@@ -28,7 +28,7 @@ Lorsqu'il avait perçu Wang Lin, il avait été terrifié au point d'avoir l'imp
 
 Il n'avait utilisé cette astuce que trois fois dans sa vie. La première fois, alors qu'il était au stade de l'Établissement des Fondations et devait surmonter une crise. La deuxième, au stade de l'Âme Naissante, où il s'était échappé du cultivateur Ascendant avec seulement une frayeur, en tirant même certains bénéfices. C'était la troisième fois qu'il déployait cet art invincible.
 
-Du point de vue de Grand Rouge, parmi tous ses sorts, cet art invincible était son véritable atout, capable de le sauver dans les moments critiques. Il l'avait donc pratiqué en secret jusqu'à une maîtrise absolue. Comme c'était sa carte maîtresse, il ne l'utilisait qu'en dernier recours.
+Du point de vue de Dahong, parmi tous ses sorts, cet art invincible était son véritable atout, capable de le sauver dans les moments critiques. Il l'avait donc pratiqué en secret jusqu'à une maîtrise absolue. Comme c'était sa carte maîtresse, il ne l'utilisait qu'en dernier recours.
 
 À l'ordre de Wang Lin, il forma rapidement un sceau et frappa la marque entre ses sourcils. Dans un éclair, une multitude d'objets échangeables contre des cristaux de tonnerre jaillirent jusqu'à former une petite montagne.
 
@@ -40,7 +40,7 @@ Le premier était une branche aussi épaisse qu'un bras, parcourue d'éclairs to
 
 « Ces trois objets sont des choses que le junior a spécialement préparées pour l'Aîné. Ces trois seuls peuvent être échangés contre 10 000 cristaux de tonnerre. »
 
-Wang Lin regarda Grand Rouge avec un sourire qui n'en était pas un. Son regard fit frissonner Grand Rouge jusqu'à la moelle et, juste au moment où celui-ci allait parler, Wang Lin agita ses manches, faisant disparaître tout le butin destiné aux cristaux de tonnerre.
+Wang Lin regarda Dahong avec un sourire qui n'en était pas un. Son regard fit frissonner Dahong jusqu'à la moelle et, juste au moment où celui-ci allait parler, Wang Lin agita ses manches, faisant disparaître tout le butin destiné aux cristaux de tonnerre.
 
 Personne ne remarqua qu'il venait d'ouvrir une fissure spatiale, d'où s'échappa un Sens Divin débordant d'extase.
 
@@ -48,19 +48,19 @@ Personne ne remarqua qu'il venait d'ouvrir une fissure spatiale, d'où s'échapp
 
 Au même instant, Xu Liguo apparut au sein de la Secte du Tonnerre Céleste.
 
-En entendant la voix de Xu Liguo, les yeux de Grand Rouge se plissèrent comme s'il faisait face à l'ennemi le plus redoutable de sa vie.
+En entendant la voix de Xu Liguo, les yeux de Dahong se plissèrent comme s'il faisait face à l'ennemi le plus redoutable de sa vie.
 
 « Maître, j'ai suivi vos ordres et j'ai tourmenté Liu Jinbiao sans relâche. Ce vieux garçon est en fait assez pitoyable. Il aurait pu offenser n'importe qui, mais il a fallu qu'il s'en prenne à mon puissant, beau et majestueux Maître! » Dès son apparition, Xu Liguo ne prit même pas garde à son environnement. Son visage était empreint d'une flatterie extrême tandis qu'il se frottait les mains, fixant Wang Lin avec une expression de dévotion pitoyable.
 
-L'expression de Wang Lin restait neutre, mais Grand Rouge sentit son cœur rater un battement. Ses pupilles se rétractèrent alors qu'il lançait à Xu Liguo un regard chargé d'hostilité. Il avait vaguement pressenti que Xu Liguo était un adversaire puissant, mais désormais c'était une évidence. Cet homme possédait le même art invincible que lui. Voir comment l'autre parvenait à incarner cet art en quelques mots seulement surpassait de loin son propre long discours!
+L'expression de Wang Lin restait neutre, mais Dahong sentit son cœur rater un battement. Ses pupilles se rétractèrent alors qu'il lançait à Xu Liguo un regard chargé d'hostilité. Il avait vaguement pressenti que Xu Liguo était un adversaire puissant, mais désormais c'était une évidence. Cet homme possédait le même art invincible que lui. Voir comment l'autre parvenait à incarner cet art en quelques mots seulement surpassait de loin son propre long discours!
 
-« Un rival redoutable!! Cet homme est sans aucun doute mon rival redoutable!! » Grand Rouge prit une profonde inspiration et commença à l'observer avec attention.
+« Un rival redoutable!! Cet homme est sans aucun doute mon rival redoutable!! » Dahong prit une profonde inspiration et commença à l'observer avec attention.
 
 « Maître, ne renvoyez pas Petit Xu trop vite, compte tenu de la loyauté et du labeur dont il a fait preuve... » Xu Liguo afficha un air de tristesse mélancolique.
 
-Grand Rouge fixa Xu Liguo, son expression devenant encore plus grave: « Même son expression contient le sens profond de l'art invincible!!! »
+Dahong fixa Xu Liguo, son expression devenant encore plus grave: « Même son expression contient le sens profond de l'art invincible!!! »
 
-Wang Lin esquissa un sourire énigmatique tout en alternant son regard entre Xu Liguo et Grand Rouge. La raison pour laquelle il avait convoqué Xu Liguo était en partie liée à Grand Rouge.
+Wang Lin esquissa un sourire énigmatique tout en alternant son regard entre Xu Liguo et Dahong. La raison pour laquelle il avait convoqué Xu Liguo était en partie liée à Dahong.
 
 « Il serait peut-être préférable que Xu Liguo collecte des cristaux de tonnerre pour moi au sein du Clan du Tonnerre Dispersé... » Wang Lin prit sa décision, puis hocha légèrement la tête et dit lentement: « Si tu accomplis cela avec succès, nous pourrons en discuter. »
 
@@ -68,31 +68,31 @@ Sur ces mots, Wang Lin envoya un message mental à Xu Liguo lui signifiant son o
 
 « Personne n'est meilleur que votre Grand-pè... Erreur, Petit Xu! Maître, soyez tranquille, plusieurs milliards de cristaux de tonnerre, laissez cela à moi! »
 
-Le mauvais pressentiment de Grand Rouge s'intensifia. Il fit rapidement quelques pas en avant, fixa Wang Lin avec respect et dit: « Aîné, le junior n'a pas fini de parler. Le junior possède encore un trésor pouvant être échangé contre 10 000 cristaux de tonnerre! Seul un être tel que l'Aîné peut posséder une telle merveille! » Après avoir parlé, il frappa à nouveau sa marque et, dans un éclair, une épée volante jaillit, dégageant une aura glaciale.
+Le mauvais pressentiment de Dahong s'intensifia. Il fit rapidement quelques pas en avant, fixa Wang Lin avec respect et dit: « Aîné, le junior n'a pas fini de parler. Le junior possède encore un trésor pouvant être échangé contre 10 000 cristaux de tonnerre! Seul un être tel que l'Aîné peut posséder une telle merveille! » Après avoir parlé, il frappa à nouveau sa marque et, dans un éclair, une épée volante jaillit, dégageant une aura glaciale.
 
 Wang Lin esquissa un sourire, hocha légèrement la tête et rangea l'épée volante.
 
-Xu Liguo observa les alentours, puis fixa Grand Rouge. Il n'avait pas prêté attention à la foule auparavant, mais il sentit immédiatement que quelque chose clochait.
+Xu Liguo observa les alentours, puis fixa Dahong. Il n'avait pas prêté attention à la foule auparavant, mais il sentit immédiatement que quelque chose clochait.
 
-« Cet individu dégage une légère odeur d'impudence... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Quand le Grand-père Xu flattait ce démon, vous en étiez encore à téter! » Xu Liguo afficha un sourire bienveillant en regardant Grand Rouge. « Quel est ton nom, compagnon cultivateur? »
+« Cet individu dégage une légère odeur d'impudence... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Quand le Grand-père Xu flattait ce démon, vous en étiez encore à téter! » Xu Liguo afficha un sourire bienveillant en regardant Dahong. « Quel est ton nom, compagnon cultivateur? »
 
-Grand Rouge répondit avec le même sourire et joignit les mains: « Je suis Zhong Grand Rouge. Zhong comme le grand Zhong, et Rouge comme le grand rouge! »
+Dahong répondit avec le même sourire et joignit les mains: « Je suis Zhong Dahong. Zhong comme le grand Zhong, et Rouge comme le grand rouge! »
 
-Leurs regards se percutèrent à cet instant. Le sourire de Xu Liguo resta imperturbable alors qu'il détournait les yeux. Juste avant qu'il ne puisse parler, Grand Rouge prit les devants avec un air flatteur: « Aîné, la Secte du Tonnerre Céleste compte de nombreux membres. Permettez-moi d'aller rassembler leurs biens échangeables contre des cristaux de tonnerre pour vous les offrir. »
+Leurs regards se percutèrent à cet instant. Le sourire de Xu Liguo resta imperturbable alors qu'il détournait les yeux. Juste avant qu'il ne puisse parler, Dahong prit les devants avec un air flatteur: « Aîné, la Secte du Tonnerre Céleste compte de nombreux membres. Permettez-moi d'aller rassembler leurs biens échangeables contre des cristaux de tonnerre pour vous les offrir. »
 
 Après avoir dit cela, il se retourna et rugit vers les membres de la secte qui restaient stupéfaits par la scène.
 
-Sous sa pression, tout ce qui pouvait être échangé contre des cristaux de tonnerre fut collecté par Grand Rouge et remis à Wang Lin. Ce dernier rangea le butin, ses yeux brillant d'une lueur indéchiffrable. Il agita la main droite et sortit une pilule.
+Sous sa pression, tout ce qui pouvait être échangé contre des cristaux de tonnerre fut collecté par Dahong et remis à Wang Lin. Ce dernier rangea le butin, ses yeux brillant d'une lueur indéchiffrable. Il agita la main droite et sortit une pilule.
 
-Il sortit avec désinvolture une pilule qui, à ses yeux, n'avait aucune valeur. C'était une pilule qu'il avait raffinée à partir de l'âme d'une bête de rang 4 dans la Mer des Nuages. Cependant, en voyant cela, les yeux de Grand Rouge s'écarquillèrent et il s'exclama: « Une Pilule d'Âme!! Cette pilule peut être échangée contre au moins 20 000 cristaux de tonnerre, elle est extrêmement rare! »
+Il sortit avec désinvolture une pilule qui, à ses yeux, n'avait aucune valeur. C'était une pilule qu'il avait raffinée à partir de l'âme d'une bête de rang 4 dans la Mer des Nuages. Cependant, en voyant cela, les yeux de Dahong s'écarquillèrent et il s'exclama: « Une Pilule d'Âme!! Cette pilule peut être échangée contre au moins 20 000 cristaux de tonnerre, elle est extrêmement rare! »
 
-Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. La pilule atterrit dans la paume de Grand Rouge.
+Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. La pilule atterrit dans la paume de Dahong.
 
-« Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan du Tonnerre Dispersé. Au lieu de cela, il allait utiliser Grand Rouge pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
+« Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan du Tonnerre Dispersé. Au lieu de cela, il allait utiliser Dahong pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
 
-Grand Rouge prit une profonde inspiration, serra la pilule et déclara immédiatement: « Aîné, soyez assuré que le junior fera de son mieux! »
+Dahong prit une profonde inspiration, serra la pilule et déclara immédiatement: « Aîné, soyez assuré que le junior fera de son mieux! »
 
-Xu Liguo fixa Grand Rouge avec hostilité. Bien qu'il ne se soucie guère de la pilule, ce Grand Rouge lui était insupportable à regarder, et son regard devint venimeux.
+Xu Liguo fixa Dahong avec hostilité. Bien qu'il ne se soucie guère de la pilule, ce Dahong lui était insupportable à regarder, et son regard devint venimeux.
 
 « Maudit soit! Tu oses rivaliser avec ton Grand-père Xu pour obtenir les faveurs de ce démon? Petit morveux, tu as du cran! Attends un peu, ton Grand-père Xu se souviendra de toi. En près de 2 000 ans, aucun de ceux qui ont tenté de rivaliser avec ton Grand-père Xu pour les faveurs de ce démon n'a connu une fin heureuse. Ton Grand-père Xu a tout le temps nécessaire pour te tuer! Je vais te tourmenter jusqu'à la mort, comme je l'ai fait pour Liu Jinbiao! »
 

@@ -10,7 +10,7 @@ Le brouillard vert tourbillonnait, d'où jaillissaient des éclairs de tonnerre 
 
 Ils n'osaient nullement s'approcher du brouillard vert, préférant voler au centre du passage, comme craignant qu'une main géante ne surgisse de la brume pour les saisir.
 
-Bien que ce ne fût pas la première fois que Grand Rouge se rendait au Temple du Cristal de Tonnerre, il restait terrifié après avoir pénétré dans le passage et avançait avec prudence. Wang Lin, quant à lui, observait le brouillard verdâtre environnant avec calme.
+Bien que ce ne fût pas la première fois que Dahong se rendait au Temple du Cristal de Tonnerre, il restait terrifié après avoir pénétré dans le passage et avançait avec prudence. Wang Lin, quant à lui, observait le brouillard verdâtre environnant avec calme.
 
 Ce brouillard était terrifiant pour les autres, mais pour Wang Lin, il n'y avait rien à craindre.
 
@@ -50,17 +50,17 @@ Après avoir quitté le passage, une montagne imposante se dressa devant lui. Au
 
 « Temple du Cristal de Tonnerre! »
 
-Des éclats de lumière emplirent la zone. Les cultivateurs sortant du passage volèrent tous vers le temple. Wang Lin et Grand Rouge s'élancèrent également et arrivèrent bientôt devant l'édifice.
+Des éclats de lumière emplirent la zone. Les cultivateurs sortant du passage volèrent tous vers le temple. Wang Lin et Dahong s'élancèrent également et arrivèrent bientôt devant l'édifice.
 
 « Maître, il y a trois portes dans ce temple: l'est, l'ouest et le sud. La porte est sert à échanger des cristaux de tonnerre, et la porte sud permet d'utiliser ces cristaux pour obtenir des trésors et des pilules du clan. »
 
-« Quant à la dernière porte, celle de l'ouest, seuls les cultivateurs puissants peuvent s'y rendre. C'est là que le clan distribue les missions. Une fois une tâche accomplie, vous pourrez gagner de nombreux cristaux de tonnerre. » Grand Rouge savait que Wang Lin n'était jamais venu au Temple du Cristal de Tonnerre et nourrissait ses propres doutes. Cependant, compte tenu des bénéfices que Wang Lin lui avait accordés, il fit mine de ne rien savoir.
+« Quant à la dernière porte, celle de l'ouest, seuls les cultivateurs puissants peuvent s'y rendre. C'est là que le clan distribue les missions. Une fois une tâche accomplie, vous pourrez gagner de nombreux cristaux de tonnerre. » Dahong savait que Wang Lin n'était jamais venu au Temple du Cristal de Tonnerre et nourrissait ses propres doutes. Cependant, compte tenu des bénéfices que Wang Lin lui avait accordés, il fit mine de ne rien savoir.
 
-Wang Lin connaissait déjà ces informations grâce à la mémoire de Grand Rouge. Il hocha la tête et dit: « J'irai seul. Je te retrouverai quand j'aurai fini. »
+Wang Lin connaissait déjà ces informations grâce à la mémoire de Dahong. Il hocha la tête et dit: « J'irai seul. Je te retrouverai quand j'aurai fini. »
 
-Grand Rouge acquiesça rapidement.
+Dahong acquiesça rapidement.
 
-Wang Lin ne prêta plus attention à Grand Rouge et détourna le regard du temple fastueux. Il comprit d'un coup d'œil que les lois de l'espace jouaient ici un rôle majeur. L'endroit semblait unique, mais en réalité, il comportait quatre strates spatiales.
+Wang Lin ne prêta plus attention à Dahong et détourna le regard du temple fastueux. Il comprit d'un coup d'œil que les lois de l'espace jouaient ici un rôle majeur. L'endroit semblait unique, mais en réalité, il comportait quatre strates spatiales.
 
 Les portes est, sud et ouest menaient toutes à trois espaces distincts. Mais il existait aussi un quatrième espace sans entrée apparente. Le Sens Divin de Wang Lin balaya les lieux et détecta clairement neuf auras en pleine culture.
 
@@ -80,7 +80,7 @@ Dès qu'il franchit la porte est, Wang Lin sentit qu'il entrait dans un espace c
 
 Trois vieillards étaient assis sur le bord de la mare; leurs niveaux de culture n'étaient pas négligeables. L'un était au stade du Yang Corporel, tandis que les deux autres étaient au stade du Yin Illusoire. Des éclairs circulaient dans leurs corps.
 
-Wang Lin ayant appris comment échanger des cristaux de tonnerre via la mémoire de Grand Rouge, il ne perdit pas de temps. Il toucha la marque sur son front pour simuler l'ouverture de son espace de stockage. Une quantité massive d'objets destinés à l'échange fut projetée dans la mare et dévorée par la boue.
+Wang Lin ayant appris comment échanger des cristaux de tonnerre via la mémoire de Dahong, il ne perdit pas de temps. Il toucha la marque sur son front pour simuler l'ouverture de son espace de stockage. Une quantité massive d'objets destinés à l'échange fut projetée dans la mare et dévorée par la boue.
 
 Après un long moment, alors que Wang Lin n'avait toujours pas terminé, les trois vieillards ouvrirent les yeux et l'observèrent attentivement avec une lueur étrange dans le regard.
 

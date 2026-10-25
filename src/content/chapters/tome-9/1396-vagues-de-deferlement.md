@@ -56,7 +56,7 @@ Les membres du Clan de l'Évasion Nuageuse éprouvèrent le même sentiment, fix
 
 Le python noir contenait une tyrannie et une folie inimaginables. Son puissant instinct meurtrier donnait l'impression que chaque être vivant au monde était son ennemi!
 
-Zhong Grand Rouge déglutit, les yeux brillants d'excitation. Il était différent de Xu Liguo: plus Wang Lin était fort, plus il ressentait de gloire. Il s'agenouilla précipitamment et rugit: « Le trésor du Maître est complet, il est invincible!! »
+Zhong Dahong déglutit, les yeux brillants d'excitation. Il était différent de Xu Liguo: plus Wang Lin était fort, plus il ressentait de gloire. Il s'agenouilla précipitamment et rugit: « Le trésor du Maître est complet, il est invincible!! »
 
 Alors que le python noir se dissipait dans le ciel, son corps finit par s'estomper. Il se transforma en un rayon de lumière noire qui pénétra dans le corps de Wang Lin avant de disparaître.
 

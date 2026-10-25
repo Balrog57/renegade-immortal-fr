@@ -8,7 +8,7 @@ slug: cest-la-vie
 ---
 Le temps s'écoulait lentement sur cette planète du Clan du Tonnerre Dispersé. En un clin d'œil, cela faisait déjà un mois que Wang Lin était arrivé.
 
-Durant ce mois, il n'était pas retourné dans sa grotte, préférant cultiver au sein de la Secte du Tonnerre Céleste. Au cours de cette période, Xu Liguo et Grand Rouge avaient commencé à rassembler une quantité massive d'objets échangeables contre des cristaux de tonnerre, en prenant la Secte du Tonnerre Céleste pour point central.
+Durant ce mois, il n'était pas retourné dans sa grotte, préférant cultiver au sein de la Secte du Tonnerre Céleste. Au cours de cette période, Xu Liguo et Dahong avaient commencé à rassembler une quantité massive d'objets échangeables contre des cristaux de tonnerre, en prenant la Secte du Tonnerre Céleste pour point central.
 
 Grâce à tout ce qui avait été collecté, Wang Lin pouvait désormais obtenir près de 100 000 cristaux de tonnerre.
 
@@ -74,23 +74,23 @@ Dès que Xu Liguo entendit le mot « beauté », ses yeux s'illuminèrent et il 
 
 Le groupe s'élança dans les airs. Le trône géant brillait sous le soleil, et l'on entendait les rires arrogants de Xu Liguo mêlés aux rugissements des cent compagnons.
 
-De l'autre côté, Grand Rouge avait également commencé sa collecte frénétique. Comme il n'était qu'au stade de la Formation de l'Âme, Wang Lin lui avait confié une épée volante pour l'aider dans sa tâche.
+De l'autre côté, Dahong avait également commencé sa collecte frénétique. Comme il n'était qu'au stade de la Formation de l'Âme, Wang Lin lui avait confié une épée volante pour l'aider dans sa tâche.
 
 Cette épée était ordinaire, mais extrêmement puissante pour un cultivateur du premier niveau. Elle lui permettait de vaincre des experts de la Formation de l'Âme au stade intermédiaire et même de tenir tête à ceux du stade avancé.
 
-Toutefois, contrairement à l'arrogance de Xu Liguo, Grand Rouge se montrait bien plus prudent. Bien qu'accompagné de quelques cultivateurs, il ne s'amusait guère. Il connaissait mieux le Clan du Tonnerre Dispersé et savait précisément ce qui valait des cristaux de tonnerre. Connaissant l'emplacement de nombreuses grottes et muni de la pilule et de l'épée offertes par Wang Lin, il se sentait confiant. Il avait le sentiment que sa chance tournait: s'il satisfaisait Wang Lin, il obtiendrait peut-être une autre pilule.
+Toutefois, contrairement à l'arrogance de Xu Liguo, Dahong se montrait bien plus prudent. Bien qu'accompagné de quelques cultivateurs, il ne s'amusait guère. Il connaissait mieux le Clan du Tonnerre Dispersé et savait précisément ce qui valait des cristaux de tonnerre. Connaissant l'emplacement de nombreuses grottes et muni de la pilule et de l'épée offertes par Wang Lin, il se sentait confiant. Il avait le sentiment que sa chance tournait: s'il satisfaisait Wang Lin, il obtiendrait peut-être une autre pilule.
 
-Pensant ainsi, Grand Rouge gagna en assurance et en enthousiasme, tout en restant secrètement sur ses gardes face à Xu Liguo. Il sentait que ce dernier était son rival juré!
+Pensant ainsi, Dahong gagna en assurance et en enthousiasme, tout en restant secrètement sur ses gardes face à Xu Liguo. Il sentait que ce dernier était son rival juré!
 
 « Malédiction, si Senior n'avait eu que moi à ses côtés, ce serait une bénédiction. Je ne m'attendais pas à croiser ce Xu Liguo qui pratique lui aussi l'art invincible. Son niveau est supérieur au mien et il est d'une impudence sans nom. S'il est arrivé à un tel stade, c'est sans doute parce qu'il suit Senior depuis longtemps et qu'il a utilisé l'art invincible pour l'obtenir! »
 
-« Cependant, moi, Grand Rouge, je ne reculerai pas. Bien que mon niveau de culture soit inférieur, j'ai étudié secrètement l'art invincible pendant des centaines d'années et je n'avais pas pu en déployer toute la puissance auparavant. Maintenant que Xu Liguo est là, je dois utiliser 120 % de mes capacités pour l'affronter! Le vainqueur n'est pas encore décidé! »
+« Cependant, moi, Dahong, je ne reculerai pas. Bien que mon niveau de culture soit inférieur, j'ai étudié secrètement l'art invincible pendant des centaines d'années et je n'avais pas pu en déployer toute la puissance auparavant. Maintenant que Xu Liguo est là, je dois utiliser 120 % de mes capacités pour l'affronter! Le vainqueur n'est pas encore décidé! »
 
-Grand Rouge ricana tout en dirigeant ses hommes pour piller plusieurs grottes. Dans son cœur, il préparait déjà ses arguments pour Wang Lin afin de pouvoir invoquer l'art invincible à tout moment.
+Dahong ricana tout en dirigeant ses hommes pour piller plusieurs grottes. Dans son cœur, il préparait déjà ses arguments pour Wang Lin afin de pouvoir invoquer l'art invincible à tout moment.
 
 « Mon talent pour l'art invincible est immense. Je ne crois pas être incapable de battre Xu Liguo! »
 
-Pendant que Xu Liguo et Grand Rouge collectaient leurs ressources, Wang Lin était assis dans la Secte du Tonnerre Céleste, une pierre de jade devant lui. Celle-ci contenait un ensemble de méthodes de culture propres au Clan du Tonnerre Dispersé.
+Pendant que Xu Liguo et Dahong collectaient leurs ressources, Wang Lin était assis dans la Secte du Tonnerre Céleste, une pierre de jade devant lui. Celle-ci contenait un ensemble de méthodes de culture propres au Clan du Tonnerre Dispersé.
 
 Cette technique s'appelait le Sceau de Rassemblement du Tonnerre. Elle permettait de compresser tout le tonnerre de son corps pour déclencher une attaque explosive dévastatrice! Toutefois, cela ne fonctionnait qu'avec l'aide de la marque du clan, et sa pratique prolongée aidait à éveiller lentement cette fameuse marque.
 
