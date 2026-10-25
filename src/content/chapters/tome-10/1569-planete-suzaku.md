@@ -96,7 +96,7 @@ Puisqu'il rentrait chez lui, il allait passer par la porte principale. Quelle lo
 
 Le vieillard menant ses trois disciples entra dans la formation. À cet instant, deux silhouettes apparurent. C'étaient des vieillards, mais des fantômes. Leurs yeux brillaient comme des éclairs alors qu'ils observaient calmement tous ceux qui pénétraient dans la formation.
 
-« Ce vieil homme est Maître Virtue, de la planète Ming Mei sur la Rivière Invoquée. J'accompagne mes trois disciples en pèlerinage. J'espère que les gardiens sacrés nous laisseront entrer. » Le vieillard s'exprima avec sérieux en joignant les mains devant les deux spectres.
+« Ce vieil homme est Dao Dezi, de la planète Ming Mei sur la Rivière Invoquée. J'accompagne mes trois disciples en pèlerinage. J'espère que les gardiens sacrés nous laisseront entrer. » Le vieillard s'exprima avec sérieux en joignant les mains devant les deux spectres.
 
 L'une des figures fantomatiques répondit: « La planète Suzaku est ouverte à tous les cultivateurs du Royaume Intérieur, connaissez-vous les règles? »
 
