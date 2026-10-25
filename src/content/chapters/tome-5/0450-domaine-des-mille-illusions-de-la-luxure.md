@@ -56,7 +56,7 @@ La propagation fut bien plus rapide que les mouvements de Wang Lin. En un clin d
 
 Wang Lin n'était pas loin de Liu Mei; ils se trouvaient au centre du phénomène. En temps normal, avec sa force mentale, il aurait pu résister s'il avait contenu sa respiration et activé son propre domaine.
 
-Mais lors de sa retraite précédente, une partie du brouillard était entrée dans son corps. Normalement, il lui aurait suffi de cultiver pendant quinze minutes pour l'expulser totalement, mais il n'en avait pas le temps.
+Mais lors de sa retraite précédente, une partie du brouillard était entrée dans son corps. Normalement, il lui aurait suffi de cultiver pendant le temps d'un bâton d'encens pour l'expulser totalement, mais il n'en avait pas le luxe.
 
 Alors que le brouillard l'encerclait, la brume emprisonnée en lui brisa ses sceaux et se propagea dans tout son organisme. Entre la menace intérieure et extérieure, Wang Lin perdit le contrôle pour la première fois.
 

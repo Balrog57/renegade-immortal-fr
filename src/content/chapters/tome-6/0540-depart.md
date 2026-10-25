@@ -38,7 +38,7 @@ Après avoir réfléchi un moment, Wang Lin pointa la poitrine de Treize et y in
 
 Le corps de Treize redescendit lentement vers le sol.
 
-Quinze minutes plus tard, Treize commença à tousser violemment. Lorsqu'il parvint enfin à se redresser, il cracha une large bouffée de sang noir. Après avoir expulsé ce sang, il sentit tout son corps s'alléger.
+Après le temps d'écoulement d'un bâton d'encens, Treize commença à tousser violemment. Lorsqu'il parvint enfin à se redresser, il cracha une large bouffée de sang noir. Après avoir expulsé ce sang, il sentit tout son corps s'alléger.
 
 Ce n'est qu'alors qu'il réalisa qu'il se trouvait dans la vallée. Il remarqua aussitôt Wang Lin à ses côtés. Une immense excitation l'envahit. Dès qu'il l'aperçut, il se leva, s'agenouilla et resta d'une déférence absolue.
 

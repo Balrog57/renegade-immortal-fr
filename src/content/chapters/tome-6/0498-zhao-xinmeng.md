@@ -20,7 +20,7 @@ L'expression calme de Zhao Xinmeng disparut, remplacée par un air étrange. Ell
 
 La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles de Tian Yunzi, il réfléchit un instant avant de répondre: « Le niveau de culture de ce disciple n'est pas assez élevé pour rivaliser avec celui de la quatrième sœur... »
 
-« Wang Lin! » Tian Yunzi l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel: « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne sept minutes pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas! » Tian Yunzi fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
+« Wang Lin! » Tian Yunzi l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel: « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne le temps d'un demi-bâton d'encens pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas! » Tian Yunzi fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
 
 Lorsque Yundao Zi sentit le regard de son maître, son cœur trembla et il baissa précipitamment la tête.
 

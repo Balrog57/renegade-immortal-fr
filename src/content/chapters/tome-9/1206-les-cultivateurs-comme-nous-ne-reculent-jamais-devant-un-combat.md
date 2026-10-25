@@ -36,7 +36,7 @@ Cependant, une fois la colère dissipée, il fut envahi par une terreur encore p
 
 « Que faisons-nous? » demanda le jeune homme au motif d'éclair à ses deux compagnons.
 
-Celui au motif de feu déclara lentement: « Si nous trois ouvrons nos sceaux, nous pouvons emprunter notre puissance maximale pendant quinze minutes; tuer cet individu n'est pas impossible... »
+Celui au motif de feu déclara lentement: « Si nous trois ouvrons nos sceaux, nous pouvons emprunter notre puissance maximale le temps d'un bâton d'encens; tuer cet individu n'est pas impossible... »
 
 Le jeune homme au motif d'éclair hésita un instant, puis murmura: « Et si nous partions rapporter cette fissure spatiale aux Anciens pour qu'ils s'en occupent... J'ai un mauvais pressentiment. »
 

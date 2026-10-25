@@ -44,7 +44,7 @@ Le corps du vieil homme trembla, le sang jaillit de sa bouche et ses yeux s'obsc
 
 Wang Lin fit un geste de la main droite, et la lame en croissant ainsi que l'épée céleste retournèrent dans son sac de rangement. Puis, son corps vacilla et disparut.
 
-Quarante-cinq minutes après le départ de Wang Lin, le vieil homme ouvrit soudainement les yeux tandis que la plaie entre les sourcils se refermait lentement. Il prit une profonde inspiration, l'air abattu. Il se retourna pour lancer un regard venimeux vers le vide et marmonna: « Tu veux me tuer? Ce ne sera pas si facile! Ce vieil homme pratique la technique du Sens Divin tripartite, ce qui me permet de survivre à la mort trois fois. Je ne pensais pas utiliser ma dernière chance ici! Wang Lin, une fois que je serai revenu à la Secte de l'Épée Da Luo, je trouverai un moyen de te forcer à la mort pour venger l'affront d'aujourd'hui! »
+Trois bâtons d'encens après le départ de Wang Lin, le vieil homme ouvrit soudainement les yeux tandis que la plaie entre les sourcils se refermait lentement. Il prit une profonde inspiration, l'air abattu. Il se retourna pour lancer un regard venimeux vers le vide et marmonna: « Tu veux me tuer? Ce ne sera pas si facile! Ce vieil homme pratique la technique du Sens Divin tripartite, ce qui me permet de survivre à la mort trois fois. Je ne pensais pas utiliser ma dernière chance ici! Wang Lin, une fois que je serai revenu à la Secte de l'Épée Da Luo, je trouverai un moyen de te forcer à la mort pour venger l'affront d'aujourd'hui! »
 
 Ses yeux brillaient d'une lueur froide alors qu'il s'envolait au loin.
 

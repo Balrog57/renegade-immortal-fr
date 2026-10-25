@@ -44,7 +44,7 @@ Une fois entré dans le nuage, le cercle commença à se dissiper. L'illusion pr
 
 Ce cercle illusoire était une technique développée par Wang Lin pour briser les restrictions. Après sept ans de recherche et de perfectionnement, il en avait maîtrisé l'essence.
 
-Il n'avait même pas besoin d'utiliser ses yeux. En examinant l'onde produite par le cercle illusoire, il pouvait comprendre la structure et les règles de la restriction. Après un moment, il ouvrit les yeux. Sa main droite s'agita de nouveau devant lui. Cette fois, le visage grave, il mania sa main pendant presque quinze minutes. Des couches successives de cercles illusoires apparurent rapidement devant lui.
+Il n'avait même pas besoin d'utiliser ses yeux. En examinant l'onde produite par le cercle illusoire, il pouvait comprendre la structure et les règles de la restriction. Après un moment, il ouvrit les yeux. Sa main droite s'agita de nouveau devant lui. Cette fois, le visage grave, il mania sa main pendant presque le temps que met un bâton d'encens à se consumer. Des couches successives de cercles illusoires apparurent rapidement devant lui.
 
 Lorsque les dix cercles furent formés, Wang Lin, le front en sueur, commença à haleter. Sa main droite avait perdu toute sensation. Avec ses dernières forces, il projeta son bras dix fois.
 
@@ -62,7 +62,7 @@ La lumière fonça vers le nuage, le faisant trembler, avant de se dissiper lent
 
 Wang Lin prit une profonde inspiration. Il sortit un jade et en enregistra soigneusement les caractéristiques tout en analysant la restriction. Ces sept dernières années, chaque fois que Wang Lin brisait une restriction, il l'enregistrait pour pouvoir s'en servir à nouveau.
 
-Quinze minutes plus tard, il rangea le jade. Il fixa l'endroit où se trouvait le nuage et aperçut un pont brisé à une centaine de pieds de lui.
+Une fois le bâton d'encens entièrement consumé, il rangea le jade. Il fixa l'endroit où se trouvait le nuage et aperçut un pont brisé à une centaine de pieds de lui.
 
 C'était là le véritable visage de la restriction. Alors que Wang Lin s'apprêtait à avancer, il scruta attentivement le pont. Son regard se posa sur un petit arbre poussant à côté du pont brisé.
 

@@ -72,7 +72,7 @@ Simultanément, sept autres faisceaux de lumière surgirent de la gauche et de l
 
 Sept autres rayons de lumière accoururent également de derrière lui.
 
-Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura: « Depuis la mort de ce lettré jusqu'à maintenant, il ne s'est écoulé qu'une demi-heure! Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire de Luotian! »
+Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura: « Depuis la mort de ce lettré jusqu'à maintenant, seul le temps de la combustion de deux bâtons d'encens s'est écoulé. Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire de Luotian! »
 
 Le corps de Wang Lin ne bougea pas. Il balaya l'assemblée du regard et ses yeux se plissèrent.
 

@@ -74,7 +74,7 @@ L'attention du Daoïste aux Sept Couleurs était entièrement focalisée sur la 
 
 Suivant sa trace, la poursuite du Daoïste aux Sept Couleurs emprunta un itinéraire presque identique à celui de Wang Lin.
 
-Le temps s'écoulait lentement. En un instant, quinze minutes passèrent. Après avoir répété l'opération près de cent fois, Wang Lin sortit du vortex pour entrer dans un système stellaire. C'était la première fois qu'il ne s'engouffrait pas immédiatement dans un autre monde.
+Le temps s'écoulait lentement. En un instant, la durée d'un bâton d'encens s'écoula. Après avoir répété l'opération près de cent fois, Wang Lin sortit du vortex pour entrer dans un système stellaire. C'était la première fois qu'il ne s'engouffrait pas immédiatement dans un autre monde.
 
 Il se déplaça très rapidement, vola à plus de cinq mille kilomètres, puis se recroquevilla. Une lumière brilla et commença à se distordre. Un instant plus tard, une illusion enveloppa Wang Lin. Il avait disparu, remplacé par une planète d'apparence ordinaire.
 

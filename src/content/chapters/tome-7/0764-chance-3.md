@@ -48,7 +48,7 @@ Son corps changea progressivement. Ses jambes s'épaissirent et s'allongèrent, 
 
 Aucune douleur ne marquait son visage; il n'y avait que le calme et la colère dans ses yeux.
 
-Son corps grandissait sans cesse. Sept minutes plus tard, un géant de plus de trois cents mètres de haut apparut!
+Son corps grandissait sans cesse. Une demi-queue d'encens plus tard, un géant de plus de trois cents mètres de haut apparut!
 
 Son corps dégageait une aura sauvage et sa peau était couverte de runes grossières et subtiles. L'éclat de ces runes lui conférait une majesté inimaginable.
 

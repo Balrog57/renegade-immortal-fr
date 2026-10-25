@@ -102,7 +102,7 @@ Ce n'est qu'en leur faisant payer le prix du sang qu'ils s'en souviendraient tou
 
 Wang Lin n'avait pas voulu en arriver là, mais il y était désormais contraint. Seule cette méthode pourrait inciter toutes les familles de culture, attirées par la récompense, à battre en retraite!
 
-Aucun cri ne fut entendu. Wang Lin traversa la planète tel un tourbillon dévorant les vies. En moins de sept minutes, il fusionna avec le monde et disparut.
+Aucun cri ne fut entendu. Wang Lin traversa la planète tel un tourbillon dévorant les vies. En moins du temps qu'il faut pour brûler la moitié d'un bâton d'encens, il fusionna avec le monde et disparut.
 
 Il quitta cette planète de culture, laissant derrière lui des fleuves de sang, sans qu'un seul cultivateur au stade de la Transformation de l'Âme ou supérieur ne subsiste! Quant aux mortels, Wang Lin n'en toucha pas un seul. Il savait que ceux en dessous du stade de la Formation de l'Âme ne pouvaient être impliqués, il n'agit donc pas contre eux.
 

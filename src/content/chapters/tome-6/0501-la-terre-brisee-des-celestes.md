@@ -78,7 +78,7 @@ Mais il écarta immédiatement l'idée que cette planète soit l'endroit où l'a
 
 Wang Lin leva les yeux vers le sommet blanc de la montagne. Une neige infinie y tombait; si l'on regardait trop longtemps, on aurait l'illusion que d'innombrables épées blanches et tranchantes descendaient du ciel.
 
-Après avoir détourné le regard, Wang Lin ne monta pas immédiatement la montagne mais s'assit pour cultiver. Quinze minutes plus tard, il ouvrit les yeux. Une lueur de sérénité traversa son regard.
+Après avoir détourné le regard, Wang Lin ne monta pas immédiatement la montagne mais s'assit pour cultiver. Après le temps qu'il faut pour brûler un bâton d'encens, il ouvrit les yeux. Une lueur de sérénité traversa son regard.
 
 Il se leva ensuite et commença à gravir le sommet, pas après pas.
 

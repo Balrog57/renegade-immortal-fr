@@ -146,6 +146,6 @@ Depuis les airs, il vit que la majeure partie de la surface était recouverte de
 
 Un sentiment d'inconnu envahit son cœur. Il poussa un soupir et s'envola rapidement vers l'horizon.
 
-L'épée de gaz vert n'était pas sous le contrôle de Wang Lin; elle volait de sa propre initiative pour le conduire à la Secte du Destin Céleste. Leur point d'entrée n'étant pas loin, il ne fallut qu'environ quarante-cinq minutes pour que la Secte du Destin Céleste apparaisse devant lui.
+L'épée de gaz vert n'était pas sous le contrôle de Wang Lin; elle volait de sa propre initiative pour le conduire à la Secte du Destin Céleste. Leur point d'entrée n'étant pas loin, il ne fallut que le temps de brûler trois bâtons d'encens pour que la Secte du Destin Céleste apparaisse devant lui.
 
 Les yeux de Wang Lin s'illuminèrent; il sauta de l'épée verte et atterrit au sol. L'épée disparut en un clin d'œil.

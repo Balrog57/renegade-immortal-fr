@@ -141,7 +141,7 @@ Alors qu'il s'apprêtait à poser la treizième restriction après un court repo
 
 Elle hésita, serra les dents et, au lieu de ranger l'objet dans son sac de rangement, elle le glissa contre sa poitrine et sortit silencieusement de la pièce. Dehors, elle lança un regard chargé de haine vers la chambre de Wang Lin avant de le dissimuler promptement.
 
-Elle se tint devant sa porte et demanda: « Senior, êtes-vous là? » Elle resta immobile, attendant. Environ quinze minutes plus tard, elle reprit respectueusement: « Senior, junior doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
+Elle se tint devant sa porte et demanda: « Senior, êtes-vous là? » Elle resta immobile, attendant. Le temps d'un bâton d'encens plus tard, elle reprit respectueusement: « Senior, junior doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
 
 Le regard de la femme vacilla. Elle tapota doucement la paroi de la grotte et partit. Durant le mois où Wang Lin était resté cloîtré, elle procédait ainsi à chaque départ. Wang Lin ricana intérieurement et, après son départ, se leva pour la suivre.
 

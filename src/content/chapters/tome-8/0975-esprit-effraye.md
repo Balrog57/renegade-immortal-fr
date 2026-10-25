@@ -60,7 +60,7 @@ Si c'était un autre cultivateur, même doté d'un niveau de culture plus élev�
 
 Cependant, si cela durait trop longtemps, même Wang Lin ne pourrait pas résister malgré ses capacités de Dieu Ancien.
 
-Le temps passait lentement. Ce n'était que quinze minutes, mais pour Wang Lin, cela semblait durer des années. Les flammes devinrent plus intenses et son corps ne put s'empêcher de trembler.
+Le temps passait lentement. Ce n'était que le temps d'un bâton d'encens, mais pour Wang Lin, elles semblaient durer des années. Les flammes devinrent plus intenses et son corps ne put s'empêcher de trembler.
 
 Il ouvrit soudainement les yeux. On aurait dit que deux flammes bleues brûlaient dans ses pupilles. À mesure que ces flammes invisibles se propageaient, le vide autour de lui commença à craquer sous l'effet de la chaleur.
 

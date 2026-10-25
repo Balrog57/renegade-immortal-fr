@@ -38,7 +38,7 @@ Ce cri était chargé d'une intention meurtrière capable de secouer les cieux, 
 
 Il se leva brusquement et regarda derrière lui. Son regard semblait capable de percer la montagne pour voir tout ce qui se passait dans la maison en bois!
 
-« Que s'est-il passé?! » Le cœur de Xuan Luo manqua un battement; il sentit qu'un événement majeur se produisait. Il agita sa manche pour tenter de retirer son Sens Divin, mais l'épée était à un stade critique de son raffinage: il lui faudrait encore sept minutes pour s'en détacher complètement.
+« Que s'est-il passé?! » Le cœur de Xuan Luo manqua un battement; il sentit qu'un événement majeur se produisait. Il agita sa manche pour tenter de retirer son Sens Divin, mais l'épée était à un stade critique de son raffinage: il lui faudrait encore un demi-encens pour s'en détacher complètement.
 
 Pris d'anxiété, Xuan Luo envoya rapidement un message à ses neuf subordonnés dans le Temple du Dao Antique.
 

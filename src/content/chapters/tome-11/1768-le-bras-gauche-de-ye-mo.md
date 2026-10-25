@@ -46,7 +46,7 @@ En traversant la glace, il ressentit tout de même une certaine fraîcheur. Cepe
 
 La glace agissait comme un miroir; elle reflétait vaguement sa silhouette lors de ses mouvements, donnant l'impression qu'une ombre incertaine le suivait. Wang Lin n'y prêta qu'un bref regard et poursuivit sa route comme si de rien n'était.
 
-L'espace était vaste, mais avec la vitesse de Wang Lin, il ne fallut que sept minutes pour que l'appel devienne plus distinct. Il se trouvait à moins de 100 000 pieds!
+L'espace était vaste, mais avec la vitesse de Wang Lin, il ne fallut que la moitié d'un bâton d'encens pour que l'appel devienne plus distinct. Il se trouvait à moins de 100 000 pieds!
 
 Bien que ce monde fût scellé, Wang Lin pouvait voir qu'il s'agissait d'une haute montagne enveloppée de glace. Après avoir franchi la montagne, il aperçut un vaste bassin derrière elle!
 
@@ -102,7 +102,7 @@ Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Ell
 
 Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Antique Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser une cavité dans la glace.
 
-Sept minutes plus tard, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
+Un demi-bâton d'encens plus tard, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
 
 Seule une petite zone de peau, de la taille d'une paume, était visible. Elle était grise mais dégageait une puissante aura du Dao Antique qui pénétra l'esprit de Wang Lin. Il prit une profonde inspiration et s'assit, pressant sa main gauche contre la peau exposée.
 

@@ -42,7 +42,7 @@ Il y avait quelques individus que Wang Lin n'avait pas encore amenés pour ne pa
 
 Wang Lin salua Xuan Luo d'un geste respectueux, puis fit un pas en avant. Sa silhouette se déforma et disparut. Lorsqu'il réapparut, il se trouvait à la lisière de la formation séparant les Royaumes Intérieur et Extérieur.
 
-Cette nouvelle formation était une création personnelle de Wang Lin. Familier avec ses mécanismes, il n'hésita pas à la franchir. Il ne lui fallut que sept minutes pour traverser la formation et pénétrer dans le Système Stellaire Antique!
+Cette nouvelle formation était une création personnelle de Wang Lin. Familier avec ses mécanismes, il n'hésita pas à la franchir. Il ne lui fallut qu'un demi-bâton d'encens pour traverser la formation et pénétrer dans le Système Stellaire Antique!
 
 « Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Lanmeng Daozun s'est établi au Royaume Céleste. Il ne reste que Miaoyin Daozun, Xushen Tianzun et Jiutian Mozun. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
 

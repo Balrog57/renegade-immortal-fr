@@ -92,7 +92,7 @@ Ta Shan répliqua: « Ancêtre, Ta Shan sait qu'il a tort. Je veux seulement vou
 
 Le vieil homme fronça les sourcils et s'apprêta à le réprimander quand Wang Lin dit calmement: « Allez-y, montrez la voie! »
 
-L'ancêtre s'inclina et ignora Ta Shan en s'élançant vers l'avant. Les trois n'allaient pas vite, et au bout de sept minutes, Wang Lin aperçut un autel dans une zone dégagée derrière les bâtiments.
+L'ancêtre s'inclina et ignora Ta Shan en s'élançant vers l'avant. Les trois n'allaient pas vite, et après le temps qu'il faut pour que la moitié d'un bâton d'encens brûle, Wang Lin aperçut un autel dans une zone dégagée derrière les bâtiments.
 
 Cet autel n'était pas grand et présentait de nombreuses fissures. Sous l'autel se trouvait une porte de couleur pourpre, sur laquelle scintillait par intermittence une rune.
 
@@ -124,7 +124,7 @@ Wang Lin détourna les yeux et dit simplement: « D'accord. »
 
 Ta Shan ne parla plus. Il se retourna et s'engagea dans l'entrée. Un sourire narquois apparut sur les lèvres de Wang Lin alors qu'il suivait lentement. Quant au vieil homme, il fronça les sourcils; il avait vaguement perçu les intentions de Ta Shan. Cependant, il ne les suivit pas et s'assit par terre.
 
-Plusieurs niveaux d'escaliers descendaient dans l'entrée. À mesure qu'ils progressaient, l'aura froide devenait plus oppressante. Au bout de sept minutes, ils atteignirent le fond, Ta Shan menant la marche.
+Plusieurs niveaux d'escaliers descendaient dans l'entrée. À mesure qu'ils progressaient, l'aura froide devenait plus oppressante. Après le temps nécessaire pour que la moitié d'un bâton d'encens brûle, ils atteignirent le fond, Ta Shan menant la marche.
 
 Au moment où ils touchèrent le fond, les yeux de Wang Lin se rétrécirent.
 

@@ -10,7 +10,7 @@ La ruse de Wang Lin dépassait largement celle des gens ordinaires. Il ne croyai
 
 « Être capable d'affecter l'énergie du massacre... cet endroit m'aidera certainement à maîtriser l'Art Céleste du Massacre! » Wang Lin ne se retourna pas et disparut dans les profondeurs de la prison.
 
-« Certaines choses dans ce monde exigent que nous fassions un choix. Certaines choses seront perdues, mais c’est une voie que je dois suivre! » Wang Lin descendit les escaliers et, après environ quinze minutes de marche, la lumière rouge sang devant lui s'intensifia.
+« Certaines choses dans ce monde exigent que nous fassions un choix. Certaines choses seront perdues, mais c’est une voie que je dois suivre! » Wang Lin descendit les escaliers et, après le temps d'une combustion d'encens, la lumière rouge sang devant lui s'intensifia.
 
 Au bas de l'escalier se révélait un monde écarlate! L'endroit était vaste, et l'épaisse couche de traces de sang sur le sol était saisissante.
 

@@ -92,7 +92,7 @@ Wang Lin réfléchit silencieusement tout en survolant les décombres. Toutes le
 
 « Bien que les restrictions se soient effondrées, certains fragments subsistent encore. Ils peuvent servir à former de nouvelles barrières... » Wang Lin fixa le sol. Ses mains formèrent des sceaux sans hésiter et des lignes de sang apparurent dans son regard.
 
-Tandis qu'il exécutait ses sceaux, des restrictions invisibles se déposèrent sur les ruines en contrebas. Une immense quantité de lumière fantomatique jaillit des décombres. Au bout de quinze minutes, cette lumière brilla intensément et enveloppa Wang Lin, faisant apparaître davantage de lignes de sang dans ses yeux. Il les ferma un instant, puis lorsqu'il les rouvrit, ces lignes de sang se matérialisèrent devant lui.
+Tandis qu'il exécutait ses sceaux, des restrictions invisibles se déposèrent sur les ruines en contrebas. Une immense quantité de lumière fantomatique jaillit des décombres. Après le temps d'écoulement d'un bâton d'encens, cette lumière brilla intensément et enveloppa Wang Lin, faisant apparaître davantage de lignes de sang dans ses yeux. Il les ferma un instant, puis lorsqu'il les rouvrit, ces lignes de sang se matérialisèrent devant lui.
 
 Ces veines écarlates commencèrent immédiatement à s'étendre au-delà de lui pour recouvrir entièrement les ruines. De loin, le spectacle était saisissant! Les lignes de sang, aussi épaisses qu'un bras, offraient une vision spectaculaire.
 

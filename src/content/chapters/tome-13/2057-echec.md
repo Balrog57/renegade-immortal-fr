@@ -110,7 +110,7 @@ Ji Du s'élança dans les airs et observa la scène avec nervosité, serrant inc
 
 Song Tian, debout au sommet de la corne de la Montagne d'Origine, affichait une expression incertaine.
 
-L'un des 18 halos s'assombrit rapidement puis, quinze minutes plus tard, il se brisa soudainement en d'innombrables fragments.
+L'un des 18 halos s'assombrit rapidement puis, un bâton d'encens plus tard, il se brisa soudainement en d'innombrables fragments.
 
 Désormais, il ne restait que 17 halos autour de la statue de l'Ancêtre!
 

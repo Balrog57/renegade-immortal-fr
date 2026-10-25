@@ -87,7 +87,7 @@ Grâce à sa sagesse, Wang Lin comprit immédiatement le comportement de ces esc
 
 Un grondement fracassant retentit alors que ces deux blocs percutèrent la Planète du Sang comme deux météores. Au moment de l'impact, un écran de lumière sanguine apparut, faisant éclater les pierres. Le regard de Wang Lin se fit plus glacial encore. D'un geste de la main, il lança une pierre après l'autre, sans relâche.
 
-Finalement, Wang Lin ouvrit les bras et utilisa son énergie spirituelle pour attirer tout le fleuve de pierres vers la Planète du Sang. D'innombrables rochers s'abattirent sur elle. Bien que l'écran de lumière sanguine fût puissant, il était limité en l'absence du contrôle de Xue Zu. Face à la force colossale de Wang Lin, ce jeune dieu ancien, l'écran s'effondra après seulement sept minutes.
+Finalement, Wang Lin ouvrit les bras et utilisa son énergie spirituelle pour attirer tout le fleuve de pierres vers la Planète du Sang. D'innombrables rochers s'abattirent sur elle. Bien que l'écran de lumière sanguine fût puissant, il était limité en l'absence du contrôle de Xue Zu. Face à la force colossale de Wang Lin, ce jeune dieu ancien, l'écran s'effondra après seulement une demi-queue d'encens.
 
 Les pierres tombèrent en masse sur la Planète du Sang. À chaque impact, la planète entière tremblait et une onde de choc visible se propageait dans toutes les directions. Le visage de Zi Xin était livide. Les secousses telluriques et la puissance destructrice ébranlaient son esprit. Elle voyait ces masses rocheuses descendre du ciel, faisant violemment trembler la terre à chaque chute. Elle ne pouvait imaginer quel pouvoir ou quel sortilège pouvait accomplir un tel carnage.
 

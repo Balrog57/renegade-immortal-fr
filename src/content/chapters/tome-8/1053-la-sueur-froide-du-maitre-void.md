@@ -94,7 +94,7 @@ Une silhouette entra lentement dans la salle. C'était une femme entourée de fl
 
 Son expression était calme. Ses yeux magnifiques balayèrent la salle et se posèrent particulièrement sur Wang Lin. Sans dire un mot, elle trouva un coin et s'assit.
 
-Moins de sept minutes après l'installation de la jeune fille, Wang Lin sentit à nouveau des fluctuations à l'extérieur. Il leva les yeux et vit trois silhouettes pénétrer dans la salle!
+Moins d'un demi-bâton d'encens après l'installation de la jeune fille, Wang Lin sentit à nouveau des fluctuations à l'extérieur. Il leva les yeux et vit trois silhouettes pénétrer dans la salle!
 
 Le Maître du Vide, la belle femme et l'homme vêtu de noir.
 

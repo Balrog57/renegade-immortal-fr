@@ -14,7 +14,7 @@ Cependant, ce sort dépassait largement le niveau de culture de Wang Lin. Bien q
 
 Alors que le vieil homme dirigeait son corps dans un mouvement fulgurant, Wang Lin n'eut plus le temps de réfléchir aux sorts. Il était parfaitement conscient que l'âme originelle du vieil homme mystérieux, nichée en lui, se dissipait rapidement.
 
-En à peine sept minutes, plus de la moitié de l'âme originelle du vieil homme s'était évanouie. Il utilisait manifestement son âme originelle comme tribut pour accroître sa vitesse.
+En à peine le temps de la combustion d'une demi-portion de bâton d'encens, plus de la moitié de l'âme originelle du vieil homme s'était évanouie. Il utilisait manifestement son âme originelle comme tribut pour accroître sa vitesse.
 
 Wang Lin ne parvenait déjà plus à percevoir la célérité de leur progression. Lorsque son corps fusionna avec le monde, il eut l'impression que le temps s'étirait à l'infini autour de lui. Il ne foulait plus le vide, mais marchait sur le temps lui-même.
 
@@ -30,7 +30,7 @@ Sous le contrôle du vieil homme, son corps ne quittait jamais l'état de fusion
 
 Fusionner avec le monde permettait d'atteindre n'importe quel lieu en un instant, mais ce sort comportait des limites; sans quoi, le vieil homme serait simplement apparu là où son corps se trouvait au lieu de foncer ainsi.
 
-Pour Wang Lin, ces sept minutes ressemblaient à un siècle. Durant ce siècle, il traversa une tempête déchaînée qui cherchait à le déchiqueter. Il dut lutter de toutes ses forces pour ne pas être réduit en lambeaux par les bourrasques.
+Pour Wang Lin, ce temps de demi-encens ressemblait à un siècle. Durant ce siècle, il traversa une tempête déchaînée qui cherchait à le déchiqueter. Il dut lutter de toutes ses forces pour ne pas être réduit en lambeaux par les bourrasques.
 
 Cet état était d'une douleur extrême, mais il offrait des bénéfices inimaginables à Wang Lin. Tandis que son âme originelle luttait au cœur de la tempête, sa sensation d'intégration avec le monde devenait chaque fois plus profonde. Finalement, cette union fut gravée au plus profond de son cœur et y demeurerait à jamais.
 

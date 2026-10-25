@@ -106,6 +106,6 @@ Ils ne croyaient pas qu'un être puisse franchir si aisément la formation de pr
 
 Au sommet des dix derniers étages siégeaient quatre individus. L'un d'eux, vêtu d'une robe noire et marqué d'un grain de beauté sous l'œil droit, affichait une arrogance extrême et lâcha un reniflement méprisant.
 
-« Qu'importe s'il s'agit de Wang Lin? Hormis l'âme aux Sept Couleurs, personne dans le Monde des Grottes ne nous fait peur! Même si j'entrais dans la Formation des Cinq Éléments, je ne tiendrais que quinze minutes avant d'être stoppé par l'épreuve du feu. Bien que sa culture soit supérieure à la mienne, il lui sera impossible de franchir les cinq épreuves! »
+« Qu'importe s'il s'agit de Wang Lin? Hormis l'âme aux Sept Couleurs, personne dans le Monde des Grottes ne nous fait peur! Même si j'entrais dans la Formation des Cinq Éléments, je ne tiendrais qu'un bâton d'encens avant d'être stoppé par l'épreuve du feu. Bien que sa culture soit supérieure à la mienne, il lui sera impossible de franchir les cinq épreuves! »
 
 À ses côtés, une femme d'âge moyen esquissa un rire strident et malicieux. « J'espère qu'il réussira les cinq épreuves pour activer la formation complète et déclencher l'Art des Neuf Cycles de l'Unification des Cinq Éléments. Je veux voir combien de cycles il pourra endurer... »

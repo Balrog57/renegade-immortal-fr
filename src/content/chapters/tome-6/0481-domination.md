@@ -67,7 +67,7 @@ Dehors, deux rayons de lumière arrivaient de loin. Après avoir tournoyé un in
 
 La silhouette de Wang Lin émergea de la grotte. Son visage était sombre alors qu'il fixait les deux vieillards. Tous deux étaient au stade initial de la Transformation de l'Âme.
 
-L'un des vieillards hurla: « Qui t'a permis d'ouvrir une grotte ici? Tu as quinze minutes pour détruire cette demeure et quitter les lieux, sinon tu seras puni selon les règles de la secte! »
+L'un des vieillards hurla: « Qui t'a permis d'ouvrir une grotte ici? Tu as le temps d'un bâton d'encens pour détruire cette demeure et quitter les lieux, sinon tu seras puni selon les règles de la secte! »
 
 Le regard de Wang Lin devint plus calme encore et il demanda: « Qui êtes-vous deux? »
 

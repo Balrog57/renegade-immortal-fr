@@ -36,7 +36,7 @@ Dès que la goutte toucha la zone entre ses sourcils, le sang de son corps sembl
 
 Au cours de cette transformation, le corps de Wang Lin se dessécha rapidement, comme si toute l'eau et tout le sang de son organisme convergeaient vers un seul point.
 
-Son corps se dessécha à une vitesse fulgurante. En seulement sept minutes, il ressemblait à un squelette. Ses cheveux étaient secs et sa peau n'était plus que rides. Il paraissait être un cadavre desséché depuis des années!
+Son corps se dessécha à une vitesse fulgurante. En seulement le temps d'un demi-bâton d'encens, il ressemblait à un squelette. Ses cheveux étaient secs et sa peau n'était plus que rides. Il paraissait être un cadavre desséché depuis des années!
 
 La goutte d'essence d'eau avait absorbé toute l'eau et tout le sang de Wang Lin. Elle était cristalline, mais dissimulée à l'intérieur de son corps, invisible de l'extérieur.
 

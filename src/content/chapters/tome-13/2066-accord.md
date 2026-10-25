@@ -88,7 +88,7 @@ En vérité, la raison pour laquelle ils étaient venus, outre le choc provoqué
 
 Quant au Grand Empyréen Shuangzi, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
 
-Le temps passa. Les sept restèrent là pendant quinze minutes. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
+Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
 Alors qu'ils étaient tous plongés dans leurs pensées, Jiu Di prit soudain la parole: « Trois compagnons cultivateurs du clan Ancien, ce vieil homme a une suggestion. »
 
@@ -114,7 +114,7 @@ Le groupe de Song Tian se regarda et, après réflexion, acquiesça également. 
 
 Les trois possédaient aussi leurs propres méthodes; ils n'avaient donc pas peur que Jiu Di les trompe.
 
-Sept minutes plus tard, les sept étaient prêts. Jiu Di sortit un jade et le montra aux six autres. Ils formèrent tous des sceaux et entamèrent l'incantation.
+Après la moitié d'un bâton d'encens, les sept étaient prêts. Jiu Di sortit un jade et le montra aux six autres. Ils formèrent tous des sceaux et entamèrent l'incantation.
 
 Sept rayons de lumière jaillirent et enveloppèrent le champ de bataille. Un instant plus tard, un grondement de tonnerre retentit et les sept portèrent leur attention sur la scène.
 

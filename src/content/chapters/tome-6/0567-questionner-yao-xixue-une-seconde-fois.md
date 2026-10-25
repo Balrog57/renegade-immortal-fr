@@ -36,7 +36,7 @@ Wang Lin répondit: « Suivez ma règle: répondez à l'une de mes questions, et
 
 Yao Xixue baissa la tête, ses yeux trahissant une lutte intérieure. Wang Lin attendit patiemment.
 
-Après sept minutes, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme, la raffiner et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
+Après le temps qu'il faut pour consumer une demi-tige d'encens, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme, la raffiner et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
 
 Wang Lin poussa un soupir: « Vous avez gaspillé votre deuxième chance. J'espère que vous chérirez la prochaine! » Sur ces mots, ses yeux s'illuminèrent et il fit un pas en avant. Il arriva devant Yao Xixue, lui saisit la mâchoire et, avec une légère force, lui força la bouche à s'ouvrir.
 

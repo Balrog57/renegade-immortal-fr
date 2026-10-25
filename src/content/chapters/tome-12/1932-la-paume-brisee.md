@@ -18,7 +18,7 @@ Wang Lin avait déployé toute sa puissance avec cette lame. La Lame Yin, dans s
 
 Wang Lin observa les couches de sceaux sur l'Arbre de la Mer Montagneuse. Le sceau de l'arbre n'avait pas été brisé par la lame. Des ondulations résonnèrent et il reprit son état normal.
 
-Le regard de Wang Lin s'anima. Il ne partit pas immédiatement, mais vérifia ses blessures ainsi que le temps restant sur son armure d'âme. En ayant déployé toute sa puissance, le temps restant avait été considérablement réduit — il ne lui restait plus qu'environ sept minutes.
+Le regard de Wang Lin s'anima. Il ne partit pas immédiatement, mais vérifia ses blessures ainsi que le temps restant sur son armure d'âme. En ayant déployé toute sa puissance, le temps restant avait été considérablement réduit — il ne lui restait plus qu'un demi-encens de temps.
 
 « C'est suffisant! » Wang Lin régula sa respiration et chargea vers la surface. Sa vitesse était fulgurante; il apparut près du trou noir, quittant les profondeurs abyssales pour pénétrer dans la Mer Montagneuse.
 

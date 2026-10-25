@@ -76,7 +76,7 @@ Wang Lin fut témoin de tout cela. Après une courte réflexion silencieuse, il 
 
 Une rivière des enfers apparut. C'était comme si le ressentiment avait trouvé un exutoire pour se déverser dans les eaux de l'au-delà. Il fusionna avec le ressentiment déjà présent dans la rivière, gagnant en puissance.
 
-Au bout de quinze minutes, tout le ressentiment fut absorbé par la rivière des enfers, et lorsque Wang Lin se détourna pour partir, celle-ci se dissipa.
+Le temps d'un bâton d'encens, tout le ressentiment fut absorbé par la rivière des enfers, et lorsque Wang Lin se détourna pour partir, celle-ci se dissipa.
 
 Wang Lin saisit le cercueil. Le regard sérieux, il l'examina avec précaution avant de s'interroger.
 

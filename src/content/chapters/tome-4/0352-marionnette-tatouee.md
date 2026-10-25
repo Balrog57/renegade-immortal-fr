@@ -62,7 +62,7 @@ L'esprit continua de rugir tout en lançant des regards féroces vers Wang Lin.
 
 Wang Lin leva les yeux vers la créature et traça un autre sceau. Bientôt, les pointes du char de guerre se mirent à émettre une lueur noire.
 
-Wang Lin se retourna pour se concentrer sur le contrôle de la boussole stellaire. Il savait que l'activation du char demandait du temps; d'après son expérience, cela prendrait quinze minutes.
+Wang Lin se retourna pour se concentrer sur le contrôle de la boussole stellaire. Il savait que l'activation du char demandait du temps; d'après son expérience, cela prendrait le temps qu'une tige d'encens mettrait à brûler.
 
 Peu après, l'esprit bestial eut fini d'absorber la lumière noire émanant des pointes. La bête grandit en taille. Durant ce processus, elle tenta de dévorer Wang Lin à plusieurs reprises, mais fut systématiquement retenue par les chaînes.
 

@@ -58,13 +58,13 @@ L'homme d'âge moyen ordonna: « Viens avec moi, nous allons chercher ce dévore
 
 Une fois le cristal brisé, d'infimes fragments commencèrent à se dissiper. Wang Lin les regarda disparaître. À plusieurs reprises, il voulut sortir de l'espace pour les examiner, mais il parvint à se contenir.
 
-Quinze minutes plus tard, l'homme d'âge moyen réapparut soudainement. Il fronça les sourcils en scannant à nouveau la zone, avant de disparaître au loin.
+Le temps d'une combustion de bâton d'encens s'écoulant, l'homme d'âge moyen réapparut soudainement. Il fronça les sourcils en scannant à nouveau la zone, avant de disparaître au loin.
 
 Plus tôt, lorsqu'il avait inspecté le cristal, il n'avait détecté qu'une certaine énergie spirituelle. S'il l'avait brisé, c'est parce qu'il soupçonnait que quelque chose d'autre se cachait à cet endroit précis.
 
 Le dévoreur d'âmes aurait pu s'y trouver. La fluctuation ressentie ici était extrêmement étrange.
 
-Environ quinze minutes plus tard, Wang Lin poussa un soupir. Bien qu'il ignorât la nature exacte du cristal, au vu des efforts déployés par le Magicien Démon Céleste pour l'obtenir, il ne pouvait être aussi médiocre que l'avait affirmé l'homme d'âge moyen.
+Après le temps de combustion d'un second bâton d'encens, Wang Lin poussa un soupir. Bien qu'il ignorât la nature exacte du cristal, au vu des efforts déployés par le Magicien Démon Céleste pour l'obtenir, il ne pouvait être aussi médiocre que l'avait affirmé l'homme d'âge moyen.
 
 Hélas, le cristal avait déjà été détruit. Wang Lin aurait tant voulu découvrir sa composition.
 

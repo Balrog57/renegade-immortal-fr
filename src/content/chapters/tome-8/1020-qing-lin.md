@@ -98,7 +98,7 @@ Le visage de Wang Lin était livide alors qu'il se rassoit sur le sol de la tour
 
 Fixant la flamme, les yeux de Wang Lin devinrent injectés de sang. Face à cette lueur, son regard trahissait une profonde incertitude. Il était confronté à un choix déchirant.
 
-Après sept minutes, son regard devint résolu!
+Après un demi-bâton d'encens, son regard devint résolu!
 
 « Bien que cette flamme soit dangereuse, elle n'est pas trop volumineuse. Mes calculs indiquent qu'il ne devrait pas y avoir de problème majeur. Inutile d'hésiter davantage, autant tenter le coup! »
 

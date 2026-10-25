@@ -28,7 +28,7 @@ Le visage de Wang Lin ne trahissait aucune émotion tandis que sa main droite fo
 
 « Une Pierre de Luotian... » Wang Lin réfléchit un instant, puis passa à autre chose. Ses yeux se posèrent sur les trois drapeaux en suspens dans les airs et il tendit la main. Lorsqu'ils tombèrent dans sa paume, il cracha un souffle d'énergie de l'âme originelle pour les raffiner. Après avoir effacé le sens divin qu'ils contenaient pour y imprimer le sien, Wang Lin les rangea et commença à méditer.
 
-« C'est un rare trésor protecteur! » Au bout de sept minutes, les yeux de Wang Lin s'illuminèrent. Il lança les trois drapeaux en l'air, qui se mirent à tourner rapidement autour de lui. Un vortex violet se forma, offrant un certain degré de protection.
+« C'est un rare trésor protecteur! » Après le temps nécessaire pour que la moitié d'un bâton d'encens brûle, les yeux de Wang Lin s'illuminèrent. Il lança les trois drapeaux en l'air, qui se mirent à tourner rapidement autour de lui. Un vortex violet se forma, offrant un certain degré de protection.
 
 L'énergie originelle du corps de Wang Lin jaillit dans le vortex violet, provoquant un changement radical. Le vortex accéléra de plusieurs fois et une brume violette apparut. Bientôt, le corps entier de Wang Lin fut complètement dissimulé par cette brume.
 

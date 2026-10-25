@@ -66,7 +66,7 @@ Le corps de tonnerre fonça vers le Luo Hou immobilisé et pénétra en lui. Le 
 
 L'œil était terne et, de loin, il ressemblait à un œuf!
 
-Quinze minutes plus tard, d'innombrables fissures apparurent sur la surface jusqu'à ce qu'elle explose. Deux figures en sortirent alors!
+Après le temps nécessaire pour brûler un bâton d'encens, d'innombrables fissures apparurent sur la surface jusqu'à ce qu'elle explose. Deux figures en sortirent alors!
 
 L'une était le véritable corps d'essence de tonnerre, formé depuis longtemps. L'autre arborait une chevelure noire — c'était le véritable corps d'essence de massacre, froid et indifférent!
 

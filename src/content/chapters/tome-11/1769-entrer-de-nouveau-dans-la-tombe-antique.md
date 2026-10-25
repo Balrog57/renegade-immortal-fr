@@ -10,7 +10,7 @@ Une pointe de douleur jaillit du bras gauche de Wang Lin. Il avait l'impression 
 
 Ce gaz semblait infini et continuait de pénétrer dans le membre de Wang Lin. Son bras gauche devint progressivement rugueux, tandis que des runes complexes y scintillaient.
 
-Ce n'est qu'au bout de quinze minutes que la dernière parcelle de gaz pénétra dans son bras gauche. Cette sensation de pouvoir déchirer le monde, qu'il avait ressentie lorsqu'il avait obtenu le bras droit, envahit son cœur.
+Ce n'est qu'après le temps d'un bâton d'encens que la dernière parcelle de gaz pénétra dans son bras gauche. Cette sensation de pouvoir déchirer le monde, qu'il avait ressentie lorsqu'il avait obtenu le bras droit, envahit son cœur.
 
 Il fit bouger lentement ses cinq doigts de la main gauche dans un craquement sinistre. Après un long moment, Wang Lin serra le poing, se leva et avança d'un pas dans le vide. Il se retrouva en plein ciel, au-dessus du bassin de glace.
 

@@ -22,7 +22,7 @@ Sous son regard, elle découvrit avec effroi que la lumière représentant Wang 
 
 Le visage de Wang Lin n'était plus pâle, mais légèrement rougi. Lors de son combat contre Xu Decai, il avait été gravement blessé; il avait donc choisi la même méthode qu'il avait utilisée dans le monde des grottes: dévorer la chair et les âmes originelles de cultivateurs pour se guérir.
 
-Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent du Démon Vert, les yeux de Wang Lin s'illuminèrent et il disparut. Quinze minutes plus tard, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
+Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent du Démon Vert, les yeux de Wang Lin s'illuminèrent et il disparut. Après l'équivalent du temps d'un bâton d'encens, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
 
 À ce stade, au centre de la prairie, il ne restait plus que deux vieux monstres au stade intermédiaire de la Tribulation du Vide et deux cultivateurs au stade initial! Ces quatre individus étaient très prudents et ne se dispersèrent pas. Chaque expert du stade intermédiaire resta aux côtés d'un cultivateur du stade initial alors qu'ils convergeaient vers Wang Lin.
 

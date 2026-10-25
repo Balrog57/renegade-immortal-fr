@@ -56,7 +56,7 @@ Le temps passa. Wang Lin restait immergé dans le Bassin Dong Lin, et à mesure 
 
 Le deuxième jour, juste avant l'aube, alors que le ciel était encore plongé dans l'obscurité, Wang Lin ouvrit les yeux au fond du bassin. Son œil gauche libéra une lumière infinie et un soleil apparut en son sein!
 
-Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore environ quinze minutes. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une heure d'avance.
+Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore environ le temps d'un bâton d'encens. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une heure d'avance.
 
 « Comprendre l'essence de l'absolu commencement permet de contrôler le lever du soleil et d'inverser la nuit et le jour! Nuit Brisée n'était qu'un sort auparavant, mais désormais, après avoir compris l'absolu commencement, elle peut remplacer le soleil! » grommela Wang Lin alors que la lumière de son œil gauche enveloppait tout son corps.
 
@@ -70,7 +70,7 @@ Lorsque la lumière émanant du soleil de Wang Lin balaya le Temple Dong Lin et 
 
 Alors que Wang Lin s'élevait dans les airs, le monde devint lumineux et toute obscurité se dissipa...
 
-Ce processus dura environ quinze minutes, puis le véritable soleil se leva lentement à l'horizon. À ce moment-là, deux soleils trônaient dans le ciel.
+Ce processus dura environ le temps d'un bâton d'encens, puis le véritable soleil se leva lentement à l'horizon. À ce moment-là, deux soleils trônaient dans le ciel.
 
 Wang Lin se retourna pour regarder le soleil levant derrière lui, ses yeux brillant de mille feux. Il observa l'astre monter haut dans le firmament avant de fermer les paupières.
 

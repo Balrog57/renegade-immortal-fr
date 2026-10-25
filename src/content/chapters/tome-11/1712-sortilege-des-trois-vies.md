@@ -28,7 +28,7 @@ Tandis que l'autel tremblait violemment, de fines fissures apparurent à sa surf
 
 Wang Lin devint prudent. Ses mains formèrent de nouveaux sceaux pour créer encore plus de restrictions. Celles-ci entourèrent l'autel avant de se poser lentement une à une sur sa surface. Cela provoqua des tremblements plus intenses encore, faisant chuter davantage de débris.
 
-Au bout de sept minutes, une épaisse couche de débris s'était détachée, et un nuage de poussière semblait entourer l'autel. Celui-ci avait nettement rétréci, et les fissures sur sa surface s'étaient multipliées.
+Après la durée d'un demi-bâton d'encens, une épaisse couche de débris s'était détachée, et un nuage de poussière semblait entourer l'autel. Celui-ci avait nettement rétréci, et les fissures sur sa surface s'étaient multipliées.
 
 « La bizarrerie de cet autel réside probablement dans ce qu'il contient... Mais une force étrange m'empêche de voir l'intérieur avec mon Sens Divin. » Wang Lin fixa l'autel et créa un million de restrictions supplémentaires. Les innombrables barrières s'abattirent sur l'autel, faisant tomber encore plus de couches jusqu'à ce qu'il ne reste que la moitié de sa taille d'origine.
 

@@ -112,7 +112,7 @@ Ce que la Tactique de Raffinement Céleste en Neuf Cycles produisait était une 
 
 Wang Lin réfléchit un instant tout en contrôlant cette force pour qu'elle tourne lentement, cherchant à achever un second cycle.
 
-Le second cycle fut beaucoup plus lent que le premier. Il fallut quarante-cinq minutes pour qu'il s'accomplisse enfin.
+Le second cycle fut beaucoup plus lent que le premier. Il fallut l'équivalent de la combustion de trois bâtonnets d'encens pour le terminer.
 
 Une fois le deuxième cycle accompli, la force tranchante augmenta de plus de dix fois. Une douleur aiguë lui lacéra l'intérieur du corps, et il fallut un long moment avant qu'elle ne commence à s'estomper.
 

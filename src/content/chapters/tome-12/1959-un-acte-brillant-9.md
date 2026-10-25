@@ -88,7 +88,7 @@ Alors que la voix résonnait, l'esprit de Wang Lin était limpide. Il songea à 
 
 À mesure que ses paroles résonnaient, la brume qui recouvrait la zone se dissipa, révélant l'intégralité du système stellaire...
 
-Le temps passa. Les spectateurs de l'Épreuve Empyrée attendaient depuis quinze minutes, et leurs regards tournés vers le 13e palais commençaient à se charger de regret et d'hésitation.
+Le temps passa. Les spectateurs de l'Épreuve Empyrée attendaient depuis la durée d'un bâton d'encens, et leurs regards tournés vers le 13e palais commençaient à se charger de regret et d'hésitation.
 
 « Cela prend bien plus de temps que pour le 12e palais. Cela prouve la difficulté du 13e... »
 

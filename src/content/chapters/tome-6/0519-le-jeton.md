@@ -26,7 +26,7 @@ Tout ce qui était entraîné par la marée fonçait à travers l'espace, aspir�
 
 La vitesse de rétraction était légèrement inférieure à celle de l'expansion, mais de peu. Sous un autre angle, on pouvait clairement voir qu'en prenant la Mer des Esprits Démoniaques de l'Est comme centre, la lumière rouge se retirait rapidement depuis une zone d'une immensité inconcevable.
 
-À cet instant, la lumière rouge traversa les étoiles, le vide et les planètes, comme si le concept de distance n'existait pas pour elle. Après seulement quarante-cinq minutes, tous les cultivateurs situés à l'extérieur de la Mer des Esprits Démoniaques de l'Est virent des ondes de choc rouges fondre sur eux comme des dizaines de milliers de chevaux au galop.
+À cet instant, la lumière rouge traversa les étoiles, le vide et les planètes, comme si le concept de distance n'existait pas pour elle. Après seulement trois bâtons d'encens, tous les cultivateurs situés à l'extérieur de la Mer des Esprits Démoniaques de l'Est virent des ondes de choc rouges fondre sur eux comme des dizaines de milliers de chevaux au galop.
 
 Cette onde de choc formait un cercle qui se refermait inexorablement sur la Mer des Esprits Démoniaques de l'Est.
 

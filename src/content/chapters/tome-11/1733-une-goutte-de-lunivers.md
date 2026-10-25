@@ -80,7 +80,7 @@ Ces changements semblaient dépourvus de logique, mais lorsque les lignes de san
 
 À part Wang Lin, personne ne pouvait remarquer ce phénomène. Le Général de l'Eau n'en avait aucune idée. Son expression était féroce, teintée elle aussi d'une pointe d'excitation.
 
-Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant l'essence et accélérant la contraction de l'eau. En seulement sept minutes, la masse d'eau passa d'une taille infinie à quelques centaines de milliers de pieds!
+Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant l'essence et accélérant la contraction de l'eau. En seulement une demi-baguette d'encens, la masse d'eau passa d'une taille infinie à quelques centaines de milliers de pieds!
 
 L'essence au sein de cette sphère devint encore plus puissante à mesure que l'eau de mer et la pluie se condensaient!
 

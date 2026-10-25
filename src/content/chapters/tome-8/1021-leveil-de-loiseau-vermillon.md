@@ -16,7 +16,7 @@ Wang Lin ouvrit ses yeux fatigués. Dès qu'il les entrouvrit, la mer de flammes
 
 Cependant, cette fois, Wang Lin ne sentit que son corps se réchauffer; les flammes fusionnèrent rapidement avec son énergie originelle.
 
-« Mon énergie originelle a légèrement augmenté... Bien que cette méthode soit périlleuse, elle peut fonctionner! » Wang Lin prit une profonde inspiration et ferma de nouveau les yeux. Quinze minutes plus tard, il se leva. Bien qu'il paraisse encore épuisé, il sortit de la tour noire!
+« Mon énergie originelle a légèrement augmenté... Bien que cette méthode soit périlleuse, elle peut fonctionner! » Wang Lin prit une profonde inspiration et ferma de nouveau les yeux. Un bâton d'encens plus tard, il se leva. Bien qu'il paraisse encore épuisé, il sortit de la tour noire!
 
 À l'extérieur, c'était un monde de flammes où des gaz noirs recouvraient le ciel. Cette fois, Wang Lin resta dehors un peu plus longtemps que précédemment. Sa main droite s'étira pour saisir une flamme de la taille d'un poing d'enfant avant qu'il ne regagnât la tour.
 
@@ -42,7 +42,7 @@ Il se tint au cœur du brasier et avança sereinement.
 
 Sa progression n'était pas rapide, mais traverser cette mer de flammes relevait de l'exploit. Si Ling Tianhou avait été présent, il aurait été stupéfait de voir Wang Lin dans cet état! Même lui ne pourrait traverser cette mer de flammes avec une telle désinvolture!
 
-Wang Lin marcha calmement pendant quinze minutes avant de s'arrêter. C'était sa limite. Plus il progressait, plus les flammes étaient puissantes et la chaleur intense.
+Wang Lin marcha calmement pendant un bâton d'encens avant de s'arrêter. C'était sa limite. Plus il progressait, plus les flammes étaient puissantes et la chaleur intense.
 
 Après avoir contemplé la mer de flammes qui s'étendait devant lui, Wang Lin s'assit et ouvrit grand les bras. Deux filaments de feu commencèrent à converger de chaque côté pour former une sphère de feu de la taille de son corps.
 

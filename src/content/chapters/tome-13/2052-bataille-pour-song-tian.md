@@ -76,7 +76,7 @@ Sur la Montagne de l'Origine, un grondement de tonnerre retentit et une brume en
 
 Derrière lui, Chi Man affichait un visage amer et garda le silence.
 
-Le temps s'écoula lentement; en un clin d'œil, quinze minutes passèrent. À cet instant précis, un fracas déchira le ciel et une immense faille s'ouvrit dans l'atmosphère. Des nuées de gaz noirs jaillirent, suivies par l'apparition d'un immense démon ancien.
+Le temps s'écoula lentement; en un clin d'œil, la durée d'un bâton d'encens s'égrena. À cet instant précis, un fracas déchira le ciel et une immense faille s'ouvrit dans l'atmosphère. Des nuées de gaz noirs jaillirent, suivies par l'apparition d'un immense démon ancien.
 
 Deux silhouettes se tenaient sur sa tête: Wang Lin et Ji Du!
 

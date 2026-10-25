@@ -16,7 +16,7 @@ Wang Lin resta calme, mais ses pupilles se contractèrent légèrement.
 
 Wang Lin réfléchit également en silence. Il ne parvenait pas à deviner pourquoi l’Illustre Taureau Vert lui révélait cela.
 
-Après un long moment, environ quinze minutes, l’Illustre Taureau Vert regarda le ciel au loin et reprit la parole.
+Après un long moment, environ le temps d'un encens, l’Illustre Taureau Vert regarda le ciel au loin et reprit la parole.
 
 « Ton mérite n'est pas suffisant pour obtenir le sortilège complet de l'illusion multicouche du neuvième étage... »
 

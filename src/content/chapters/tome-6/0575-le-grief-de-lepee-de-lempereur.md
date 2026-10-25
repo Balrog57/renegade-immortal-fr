@@ -98,7 +98,7 @@ Le mur se referma aussitôt et l'homme nommé Xu s'éclipsa précipitamment. En 
 
 Wang Lin avait totalement occulté sa présence. Il n'utilisait pas d'énergie spirituelle céleste pour voler, mais marchait rapidement dans la rue. Au loin, il percevait les bruits de destruction provenant de la Prison Hong, entremêlés aux hymnes d'épée colériques.
 
-Wang Lin accéléra encore. Ce lieu n'était pas loin du manoir Mo. Sept minutes plus tard, il atteignit précipitamment le manoir Mo. Mo Lihai se tenait dans la cour, les yeux fixés sur la Prison Hong, le cœur lourd d'un sentiment de catastrophe.
+Wang Lin accéléra encore. Ce lieu n'était pas loin du manoir Mo. Après le temps qu'il faut pour brûler une demi-tige d'encens, il atteignit précipitamment le manoir Mo. Mo Lihai se tenait dans la cour, les yeux fixés sur la Prison Hong, le cœur lourd d'un sentiment de catastrophe.
 
 Il aperçut immédiatement Wang Lin et, remarquant comment celui-ci dissimulait sa présence, comprit instantanément la situation grâce à son intelligence. Il esquissa un sourire amer, conduisit Wang Lin vers une montagne artificielle et frappa dessus; aussitôt, une ouverture apparut dans le sol.
 

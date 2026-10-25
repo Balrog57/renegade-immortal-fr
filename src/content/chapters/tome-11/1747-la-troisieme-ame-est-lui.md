@@ -12,7 +12,7 @@ Il leva la main pour observer le poisson sur sa ligne. La lumière du soleil sci
 
 L'homme sourit et déposa le poisson dans un récipient rempli d'eau, puis s'éloigna avec celui-ci.
 
-Wang Lin observa la scène, les spéculations emplissant son esprit. Après un moment de stupeur, il suivit l'homme. Ce dernier marcha pendant environ quinze minutes avant d'arriver devant une humble demeure nichée près de la rivière.
+Wang Lin observa la scène, les spéculations emplissant son esprit. Après un moment de stupeur, il suivit l'homme. Ce dernier marcha pendant environ le temps d'un bâton d'encens avant d'arriver devant une humble demeure nichée près de la rivière.
 
 La maison était entourée d'une cour délimitée par des bambous. Quelques volailles criaient en se disputant de la nourriture autour d'une femme enceinte.
 
