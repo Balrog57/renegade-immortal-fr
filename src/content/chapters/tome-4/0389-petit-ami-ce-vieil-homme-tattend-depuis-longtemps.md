@@ -62,7 +62,7 @@ Su Jinshi regarda Wang Lin et demanda: « Le grand frère aîné Qing Mu compte-
 
 Wang Lin rangea le jade d'extraction et hocha la tête.
 
-Su Jinshi esquissa un sourire amer et dit: « Il vaut mieux que tu n'y ailles pas. Il n'existe pas un seul jade de scellement à la Montagne du Scellement de l'Âme. Seuls les ancêtres de la Formation de l'Âme sont autorisés à les étudier. Cette montagne ne possède qu'un mélange de jades d'affinement et d'extraction. »
+Su Jinshi esquissa un sourire amer et dit: « Il vaut mieux que tu n'y ailles pas. Il n'existe pas un seul jade de scellement à la Montagne du Scellement de l'Âme. Seuls les ancêtres de la Formation de l'Âme sont autorisés à les étudier. Ce que les disciples de la Montagne du Scellement de l'Âme pratiquent réellement n'est pas différent de ce que nous pratiquons; chez eux, il y a des adeptes de l'affinement comme de l'extraction. »
 
 L'expression de Wang Lin resta de marbre. Il hocha la tête, puis disparut.
 

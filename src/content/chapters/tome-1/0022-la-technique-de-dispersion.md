@@ -20,7 +20,7 @@ Craignant que cette fragrance n'attire l'attention des autres membres de la sect
 
 Wang Lin fut quelque peu déçu; il espérait un changement immédiat. Heureusement, le parfum s'était dissipé dès que la perle avait été plongée dans le bol. Il réfléchit un moment, puis plaça le bol en pierre sous son lit avant de s'asseoir sur celui-ci, une pierre spirituelle de faible qualité à la main, pour commencer sa culture.
 
-La technique de respiration — une inspiration longue suivie de trois expirations courtes — était désormais aisée pour lui. Bien qu'au cours des deux derniers mois, il n'ait réussi à condenser aucune énergie spirituelle, il s'était habitué à ce rythme respiratoire au point de l'appliquer même en dehors de ses séances de culture.
+La technique de respiration — une inspiration longue suivie de trois expirations courtes — était désormais aisée pour lui. Bien qu'au cours des deux derniers mois, il n'ait réussi à condenser aucune énergie spirituelle, il ne s'essoufflait plus au bout de peu de temps comme au début et s'était habitué à ce rythme respiratoire au point de l'appliquer même en dehors de ses séances de culture.
 
 La nuit passa et Wang Lin ouvrit les yeux pour inspecter le bol. Il constata que la perle de pierre avait absorbé la moitié du liquide, mais que le dixième nuage n'était pas encore apparu.
 

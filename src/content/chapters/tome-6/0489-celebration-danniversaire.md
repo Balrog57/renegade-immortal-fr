@@ -83,6 +83,6 @@ Toutefois, en fin de compte, le nombre de personnes autorisées à pénétrer da
 
 Les arrivées se poursuivirent jusqu'à ce que le jour de l'anniversaire de Tian Yunzi arrive enfin!
 
-Ce jour-là, le ciel était sans nuages, d'un bleu serein, et une brise légère portait le parfum des fleurs. Au total, huit lieux accueillaient la célébration. Une fête se déroulait dans chacune des sept divisions. En plus de ces sept célébrations, la dernière avait lieu dans la section principale, là où se tenait la cérémonie majeure. Quiconque pouvait être présent ici n'était aucun homme ordinaire.
+Ce jour-là, le ciel était sans nuages, d'un bleu serein, et une brise légère portait le parfum des fleurs. Au total, huit lieux accueillaient la célébration. Rouge, orange, jaune, vert, cyan, bleu, violet: chacune des sept divisions avait son propre lieu de fête. En plus de ces sept célébrations, la dernière avait lieu dans la section principale, là où se tenait la cérémonie majeure. Quiconque pouvait être présent ici n'était aucun homme ordinaire.
 
 Le Démon Doré n'était pas qualifié pour y assister. Malgré son statut, il ne pouvait participer qu'à l'une des célébrations secondaires, celle de la division rouge.

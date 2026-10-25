@@ -124,7 +124,7 @@ L'expression de Yun Quezi se durcit: « J'ai utilisé une formation pour le pié
 
 « Oh? » Wang Lin regarda calmement Yun Quezi et demanda: « Tu veux que j'aille chercher le Cristal de la Planète de Culture? »
 
-Yun Quezi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de la Planète de Culture, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise. »
+Yun Quezi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme qui porte un singe n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de la Planète de Culture, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise. »
 
 Les yeux de Wang Lin brillèrent. Il leva la tête vers la sphère de lumière violette devant le premier Suzaku. Sans hésiter, il recula.
 

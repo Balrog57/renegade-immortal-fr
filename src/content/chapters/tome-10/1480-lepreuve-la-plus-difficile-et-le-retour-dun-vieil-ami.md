@@ -32,7 +32,7 @@ Des rires éclatèrent. Chacun utilisait son énergie originelle pour tirer lent
 
 L'homme d'âge mûr était Zhan Konglie. Il tenait lui aussi un fil ténu entre ses mains et tirait la planète. Il rit: « Cette décision a été prise par notre ancêtre de Luotian, Maître Lu Fu, ainsi que par les représentants des trois autres systèmes stellaires. Je n'en sais pas plus que vous. Si une nouvelle se présente, je vous en informerai. Pourquoi tant de précipitation? »
 
-À la mention du Maître Lu Fu, les yeux des cultivateurs s'emplirent de ferveur. Ils n'avaient appris l'existence de Maître Lu Fu que depuis quelques années seulement. À leurs yeux, il était l'être le plus puissant de Luotian. Tant que Maître Lu Fu existerait, Luotian perdurerait éternellement!
+À la mention du Maître Lu Fu, les yeux des cultivateurs s'emplirent de ferveur. Eux, comme Zhan Konglie, n'avaient appris l'existence de Maître Lu Fu que depuis quelques années seulement. À leurs yeux, il était l'être le plus puissant de Luotian. Tant que Maître Lu Fu existerait, Luotian perdurerait éternellement!
 
 Observant la foule autour de lui, Zhan Konglie poussa un soupir intérieur. Bien que son regard fût empreint de respect, il n'y avait aucune ferveur en lui. C'était comme si une seule personne l'avait dépouillé de toute passion bien longtemps auparavant.
 

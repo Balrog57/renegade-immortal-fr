@@ -64,7 +64,7 @@ Wang Lin était très impressionné par les techniques de la Secte des Cadavres,
 
 Mu Rong s'élança vers l'une des grottes. Wang Lin sauta à son tour pour le suivre.
 
-Les deux progressèrent rapidement à travers les cavernes tandis que Mu Rong expliquait le fonctionnement de la secte à Wang Lin. Grâce aux explications du jeune homme, Wang Lin commença à comprendre la nature de cet ordre.
+Les deux progressèrent rapidement à travers les cavernes tandis que Mu Rong expliquait le fonctionnement de la secte à Wang Lin. Grâce aux explications du jeune homme, ajoutées à ce que le jeune homme de la formation lui avait dit auparavant, Wang Lin commença à avoir une certaine compréhension de cet ordre.
 
 La Secte des Cadavres était l'une des quatre sectes démoniaques de Zhao. Elle comptait plus d'un millier de disciples qui vivaient tous sous terre. Chacun disposait de sa propre salle de culture. À l'exception de quelques disciples chargés de faire les courses, tout le monde restait enfermé pour cultiver.
 
