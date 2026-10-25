@@ -106,7 +106,7 @@ Le regard de Du Tian se fit glacial alors qu'il fixait la formation Suzaku et hu
 
 « La patience de ce vieil homme a des limites! Je ne vous accorde que trois respirations! »
 
-Deux respirations plus tard, une silhouette apparut derrière l'écran de lumière verte. Cet individu avait les cheveux longs, portait une robe blanche et était très beau, bien qu'il dégageât une pointe de malveillance. Dans l'ensemble, il exhalait un charme mystérieux.
+Deux respirations plus tard, une silhouette apparut derrière l'écran de lumière verte. Cet individu avait de longs cheveux qui flottaient sans vent, portait une robe blanche et était très beau, bien qu'il dégageât une pointe de malveillance. Dans l'ensemble, il exhalait un charme mystérieux.
 
 L'homme esquissa un sourire et dit: « Aîné, ne vous emportez pas. Puisque vous demandez à ce junior de sortir, ce junior s'exécute. »
 

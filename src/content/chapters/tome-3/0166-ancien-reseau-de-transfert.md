@@ -30,7 +30,7 @@ L'expression de Wang Lin resta impassible, mais sa vigilance redoubla en son for
 
 Peu de temps après, ils pénétrèrent dans les profondeurs de la Mer des Démons. La ville de Nan Dou apparut rapidement devant eux, mais ils ne marquèrent pas d'arrêt.
 
-En chemin, le visage de tout cultivateur croisant leur route changeait instantanément. Certains semblaient reconnaître la calebasse et s'écartaient respectueusement sur le côté. Ce n'est qu'une fois la calebasse disparue qu'ils osaient reprendre leur mouvement.
+En chemin, le visage de tout cultivateur croisant leur route changeait légèrement et il s'écartait précipitamment dans toutes les directions. Certains semblaient reconnaître la calebasse et s'écartaient respectueusement sur le côté. Ce n'est qu'une fois la calebasse disparue qu'ils osaient reprendre leur mouvement.
 
 L'expression de Wang Qingyue demeurait sereine. Tout en volant, il dit lentement: « La réputation du Seigneur Démon des Huit Extrêmes n'est pas mauvaise. Il y a même des gens dans la mer extérieure qui vous reconnaissent. »
 

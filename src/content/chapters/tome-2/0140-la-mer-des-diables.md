@@ -10,7 +10,7 @@ L'expression de Wang Lin devint troublée; la rupture de la formation de scellem
 
 La seule pensée d'être poursuivi par ces bêtes de feu lui glaçait le sang. Il prit immédiatement une décision: il devait obtenir la carte coûte que coûte, et il semblait incapable d'attendre la fin du mois pour obtenir la Pilule du Ciel Lointain.
 
-En y réfléchissant, les sourcils de Wang Lin se froncèrent. Le dernier fragment de la carte était entre les mains de Feng Luan, et il n'aurait pas le temps nécessaire pour éliminer les cultivateurs requis. Après une courte réflexion, ses yeux s'illuminèrent et il prit une résolution.
+En y réfléchissant, les sourcils de Wang Lin se froncèrent. Le dernier fragment de la carte était entre les mains de Feng Luan, et il n'aurait pas le temps d'aller tuer au dehors pour atteindre les cent cinquante requis. Après une courte réflexion, ses yeux s'illuminèrent et il prit une résolution.
 
 Il localisa immédiatement Lin Tao et Yang Xiong grâce à son Sens Divin, puis s'éloigna silencieusement avant de voler vers Yang Xiong.
 
@@ -210,7 +210,7 @@ Après un long moment, une bête de feu finit par charger, mais dès qu'elle tou
 
 Voyant cela, Wang Lin fut rassuré. Selon son plan, même si les bêtes tentaient de charger, les créatures et les cultivateurs locaux les arrêteraient.
 
-La Mer des Démons était aussi vaste que plusieurs milliers de Huo Fen. Bien que la carte ne le montrait pas, elle soulignait clairement cette différence d'échelle.
+La Mer des Démons était aussi vaste que plusieurs milliers de Huo Fen. Sur la carte du jade, l'écart ne se voyait guère, mais la notice consacrée à la Mer des Démons soulignait clairement cette différence d'échelle.
 
 Vu l'immensité du lieu, si Wang Lin s'y cachait, il serait difficile pour les bêtes de le trouver.
 

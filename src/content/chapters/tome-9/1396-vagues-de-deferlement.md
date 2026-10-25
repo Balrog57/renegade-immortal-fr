@@ -118,7 +118,7 @@ Plus loin encore, dans un domaine stellaire presque désert, une bête de la tai
 
 Le Serpent aux yeux de lune!
 
-Un vieil homme vêtu d'une robe blanche se tenait là. Son apparence était extrêmement bizarre, la moitié de son visage étant noire. Son visage rappelait le symbole du Yin et du Yang.
+Sur son dos se tenait un vieil homme vêtu d'une robe blanche. Son apparence était extrêmement bizarre, la moitié de son visage étant noire. Son visage rappelait le symbole du Yin et du Yang.
 
 Derrière lui se tenaient trois personnes qui ressemblaient à des serviteurs. Si Wang Lin les avait vus, il les aurait trouvés extrêmement familiers!
 

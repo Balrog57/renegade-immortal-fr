@@ -16,7 +16,7 @@ Wang Lin retourna à la tour de glace, l'esprit tourmenté. Bien qu'il ait obten
 
 Cette question résonna dans l'esprit de Wang Lin.
 
-Le cultivateur au stade avancé de la Formation de l'Âme de la Secte de l'Encre d'Eau utilisa le reste de sa culture pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Glace et de la Neige. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
+Le cultivateur au stade avancé de la Formation de l'Âme de la Secte de l'Encre d'Eau, portant le dernier éclat de sa vie, s'élança vers la statue de la fée des neiges du Temple Divin de la Glace et de la Neige. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
 
 Dans cette explosion, plusieurs autres cultivateurs au stade de la Formation de l'Âme qui l'avaient encerclé furent également tués.
 
@@ -50,7 +50,7 @@ Cette Tactique met l'accent sur le raffinement du cœur. Elle utilise la glace c
 
 On pourrait la décrire comme extrêmement mystérieuse, instable et d'une beauté indicible.
 
-C'est pourquoi les cultivateurs de Xue Yu sont tous impulsifs, dotés de personnalités capables de basculer radicalement en un instant. Leur but est de suivre leur propre volonté et d'agir selon leurs caprices afin de raffiner leur cœur au point de le rendre impénétrable aux influences extérieures.
+C'est pourquoi les cultivateurs de Xue Yu sont tous impulsifs, dotés de personnalités capables de basculer radicalement en un instant. Leur but est de suivre leur propre volonté et d'agir selon leurs caprices afin de raffiner leur cœur au point de le rendre impénétrable aux influences extérieures. Dans leur technique, c'est le tempérament qu'il faut condenser: sans plonger dans le monde des hommes, comment parvenir à condenser toutes les pensées du cœur?
 
 Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode, bien que différente, produisait des effets très proches de ceux de la culture du Seigneur Démon des Six Désirs.
 
@@ -110,7 +110,7 @@ Le fracas de la pluie emplissait la forêt, conférant au paysage un certain cha
 
 Même les clous et les anneaux de cuivre de la porte avaient rouillé, avec une légère teinte verte sur leurs bords.
 
-Wang Lin n'avait pas vu beaucoup de temples dans sa vie.
+Wang Lin n'avait pas vu beaucoup de temples dans sa vie; on pouvait même dire qu'il en avait vu très peu.
 
 En contemplant l'édifice, il entra à l'intérieur. C'était un temple antique. Il n'y avait aucune statue de divinité à l'intérieur, seulement la moitié d'un socle en forme de pétale.
 

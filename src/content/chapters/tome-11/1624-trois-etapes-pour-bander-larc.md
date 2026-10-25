@@ -38,7 +38,7 @@ L'espace s'effondra de nouveau sous la trajectoire de la flèche, formant d'inno
 
 Personne ne pouvait arrêter cette flèche!
 
-Tandis que la flèche fendait l'air, une onde de choc se propagea à travers l'espace. Le jeune homme en robe verte fut expulsé de sa faille. Lorsqu'il regarda en arrière, terrorisé, son visage devint livide et ses yeux se remplirent de désespoir. Contrairement à la dernière fois où il n'était qu'une projection, il était cette fois présent dans son corps originel!
+Tandis que la flèche fendait l'air, une onde de choc se propagea à travers l'espace. Le jeune homme en robe verte fut expulsé de sa faille. Lorsqu'il regarda en arrière, terrorisé, il vit un immense anneau fondre sur lui en sifflant; son visage devint livide et ses yeux se remplirent de désespoir. Contrairement à la dernière fois où il n'était qu'une projection, il était cette fois présent dans son corps originel!
 
 S'il mourait cette fois, son Dao s'éteindrait pour de bon!
 

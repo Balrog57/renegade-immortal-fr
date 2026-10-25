@@ -48,7 +48,7 @@ Sous cette averse dense, une brume noire et épaisse s'éleva du sol, recouvrant
 
 Les vieillards Zhang et Zhao regardèrent soudainement autour d'eux. Une pression invisible se propageait depuis cette étendue infinie.
 
-La cultivatrice du stade initial de la Tribulation du Vide, qui se trouvait encore à distance des deux hommes, trembla et s'immobilisa dans les airs. Grâce à la méthode de communication utilisée par les cultivateurs du Continent du Démon Vert, elle apprit la disparition d'Xu Decai.
+La cultivatrice du stade initial de la Tribulation du Vide, qui se trouvait encore à distance des deux hommes, trembla et s'immobilisa brusquement dans les airs, son expression changeant et laissant poindre une stupeur évidente. Grâce à la méthode de communication utilisée par les cultivateurs du Continent du Démon Vert, elle apprit la disparition d'Xu Decai.
 
 Simultanément, elle vit la brume émanant de la terre envahir le monde. Des hurlements incessants s'élevaient de la brume.
 

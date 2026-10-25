@@ -50,7 +50,7 @@ Les yeux de Wang Lin étaient emplis de tristesse lorsqu'il alluma trois bâtons
 
 Une fois ses paroles achevées, il réfléchit un moment, puis, dans un mouvement soudain, disparut sur place.
 
-Peu après, on aperçut une voiture à chevaux fonçant vers le village de montagne. C'était un vieil homme en robe de paille qui la conduisait; il était évident qu'il s'agissait d'un artiste martial du monde mortel.
+Peu après, on aperçut une voiture à chevaux fonçant vers le village de montagne. C'était un vieil homme en robe de paille qui la conduisait, les tempes saillantes et le regard étincelant; il était évident qu'il s'agissait d'un artiste martial du monde mortel.
 
 Il fit claquer le fouet et, dans un bruit sec, les chevaux accélérèrent encore davantage.
 
@@ -66,7 +66,7 @@ Une silhouette exquise sortit de la voiture pour se tenir sous le parapluie. Le 
 
 Dès qu'elle fut sortie, son corps trembla. La servante tint fermement le parapluie d'une main et saisit un grand manteau violet dans la voiture de l'autre. Avec l'aide du vieil homme, ils drapèrent la jeune femme.
 
-Simultanément, la servante s'exclama avec mécontentement: « Ma dame, pourquoi devions-nous venir ici ce soir sous la pluie? Nous aurions pu venir demain. Et si vous tombiez malade? »
+Simultanément, la servante s'exclama avec mécontentement: « Ma dame, pourquoi devions-nous venir ici ce soir sous la pluie? Nous aurions pu venir demain, non? Vous êtes si fragile, et si vous attrapiez froid, que feriez-vous? »
 
 Même dans le regard chaleureux du vieil homme, on percevait une pointe de reproche.
 
@@ -158,7 +158,7 @@ Grâce à sa vivacité d'esprit, elle avait déjà une idée de ce qui venait de
 
 Après avoir quitté le village, la sérénité sur le visage de Wang Lin s'évanouit pour laisser place au sérieux. Tout son corps dégageait une puissante intention meurtrière. Il s'élança rapidement dans une direction précise; son cœur était résolu à achever sa vengeance.
 
-S'il tuait directement Teng Huayuan, tous les descendants se disperseraient, l'empêchant de réaliser son rêve d'anéantir la lignée des Teng.
+S'il tuait directement Teng Huayuan, tous les descendants se disperseraient, l'empêchant de réaliser le rêve sanguinaire, caché dans son cœur depuis 400 ans, d'anéantir toute la lignée des Teng.
 
 Plus important encore, la mort de Teng Huayuan seule ne suffirait pas à apaiser sa colère. Il voulait que Teng Huayuan assiste au massacre de tous ses descendants, qu'il endure la douleur de voir sa famille s'éteindre. Ce n'est qu'après cela que Wang Lin porterait le coup final.
 

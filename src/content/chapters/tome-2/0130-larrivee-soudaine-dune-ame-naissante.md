@@ -60,7 +60,7 @@ Pendant deux jours, hormis quelques pauses nécessaires, il avait volé sans int
 
 Parmi eux, le plus remarquable était un jeune homme en tête. Son visage était aussi blanc que le jade et son allure très raffinée. Sa culture se situait au stade avancé de l'Établissement des Fondations, frôlant déjà la pseudo-Formation du Noyau. Vêtu d'une robe de python pourpre, il se tenait debout sur une épée volante verte, dégageant une aura très noble.
 
-À ses côtés suivait une jeune fille vêtue de rouge. Son visage délicat et élégant était légèrement pâle, et son air attendrissant faisait battre les cœurs.
+À ses côtés suivait une jeune fille vêtue de rouge. Son visage délicat et élégant était légèrement pâle, et son air attendrissant faisait battre les cœurs. Ses lèvres rouges laissaient voir des dents blanches, et ses sourcils fins, tels des antennes de papillon, étaient d'un vert éclatant.
 
 Le regard du jeune homme se fit glacial alors qu'il murmurait à la jeune fille: « Wan Er, est-ce lui? »
 

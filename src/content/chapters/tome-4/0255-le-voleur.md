@@ -135,7 +135,7 @@ Jouant avec ses feux d'artifice, Da Niu courut vers Wang Lin et s'assit sur le b
 Wang Lin sourit. Il frotta la tête de Da Niu et répondit: 
 — L'oncle a déjà une femme.
 
-— Ah? Vraiment? Comment se fait-il que je ne l'aie jamais vue? s'exclama soudainement Da Niu, le visage empreint de stupeur.
+— Ah? Vraiment? Comment se fait-il que je ne l'aie jamais vue? s'exclama soudainement Da Niu, qui se leva d'un bond, le visage empreint de stupeur.
 
 — Elle est dans un endroit très lointain, elle m'attend. Un jour, j'irai la chercher! La voix de Wang Lin était douce tandis qu'une image de femme apparaissait dans son esprit.
 

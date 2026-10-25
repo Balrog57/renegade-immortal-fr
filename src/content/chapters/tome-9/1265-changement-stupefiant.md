@@ -78,7 +78,7 @@ Pourtant, un sentiment d'injustice et d'impuissance surpassait cette rage. Ils �
 
 Le Maître de la Secte resta silencieux très longtemps, avant de paraître soudainement épuisé. Il poussa un soupir et secoua la tête. « Puisque la Secte Divine a ordonné l'annulation de la compétition, il doit en avoir des raisons. Des raisons qui nous échappent. »
 
-Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Camarade cultivateur Lu, la compétition de rang 8 a été annulée par la Secte Divine. Je dois en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte de l'Origine dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
+Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Camarade cultivateur Lu, la compétition de rang 8 a été annulée par la Secte Divine; nous n'avons plus besoin de nous y rendre. Je dois convoquer et en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte de l'Origine dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
 
 L'expression de Wang Lin resta calme, mais il ressentit un frisson, comme si un événement cataclysmique était sur le point de s'abattre. Après une courte réflexion, ses yeux s'illuminèrent: « Puis-je examiner le jade de la Secte Divine? »
 

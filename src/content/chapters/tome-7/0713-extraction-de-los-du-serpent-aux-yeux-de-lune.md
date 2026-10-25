@@ -34,7 +34,7 @@ Le temps passa lentement. Wang Lin avait exploré presque chaque recoin du Serpe
 
 Le Serpent aux yeux de lune possédait son propre système circulatoire. Ses excréments n'étaient pas expulsés vers le monde extérieur, mais étaient réabsorbés par son corps pour servir de nutriments.
 
-Quelques jours plus tard, Wang Lin parvint avec prudence à l'endroit d'absorption et d'excrétion du Serpent aux yeux de lune. Une odeur nauséabonde émanait du sol environnant.
+Quelques jours plus tard, Wang Lin parvint avec prudence, au plus profond de l'os du Serpent aux yeux de lune, près de l'endroit d'absorption et d'excrétion. Une odeur nauséabonde émanait de la terre environnante.
 
 Wang Lin fronça les sourcils. Il ne s'enfonça pas profondément, mais contourna la périphérie. Au moment même où son Sens Divin se déploya, il entendit soudain un faible message de Sens Divin provenant de l'intérieur.
 

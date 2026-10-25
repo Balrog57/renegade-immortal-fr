@@ -96,7 +96,7 @@ Les fils s'étaient totalement fusionnés avec l'os. Après ces neuf changements
 
 Wang Lin le récupéra et commença son examen.
 
-L'origine de la technique de raffinage du Sanctuaire du Dieu de la Guerre était très mystérieuse. La rumeur voulait qu'elle ait été découverte avec la Technique de la Voie Céleste par l'ancêtre du Sanctuaire. Les générations suivantes avaient passé un temps infini à la transformer en la technique actuelle. Le fourneau de réaction en était une composante, classée selon dix rangs de qualité.
+L'origine de la technique de raffinage du Sanctuaire du Dieu de la Guerre était très mystérieuse. La rumeur voulait qu'elle ait été découverte avec la Technique de la Voie Céleste par l'ancêtre du Sanctuaire. Après avoir pratiqué chacune séparément, les générations suivantes avaient consacré un temps infini à étudier cette technique de raffinage, puis l'avaient classée par catégories pour en tirer une série d'étapes bien ordonnée. Le fourneau de réaction en était une composante, classée selon dix rangs de qualité.
 
 Plus le rang est élevé, plus le fourneau est performant. Son identification est simple: lors de sa fabrication, le nombre de changements de couleur détermine son rang.
 
@@ -110,7 +110,7 @@ Si le fourneau de Wang Lin était de rang 9, c'était grâce au cadavre de cette
 
 Lorsqu'une bête désolée meurt, ses os ne diffèrent guère de ceux d'une bête spirituelle. À moins d'être un expert en la matière, il est difficile de les distinguer.
 
-Une fois son sens divin retiré du jade, Wang Lin se mit à réfléchir. La technique de raffinage du Sanctuaire du Dieu de la Guerre reposait sur trois points clés: l'ajustement, la fusion et l'assemblage.
+Une fois son sens divin retiré du jade, Wang Lin se mit à réfléchir. La technique de raffinage du Sanctuaire du Dieu de la Guerre reposait sur trois points clés: l'ajustement, la fusion et l'assemblage. L'ajustement s'apparente à l'ouverture et à la transformation, la fusion est comparable à un bloc de roc, et l'assemblage ressemble à des cornes suspendues.
 
 Wang Lin se concentra intensément pour sortir des matériaux de son sac de rangement et les jeter dans le fourneau de réaction. Il s'agissait de composants répertoriés dans le jade; une fois familier avec les inscriptions, il avait pu les identifier dans ses provisions.
 
@@ -120,7 +120,7 @@ Bois d'Étoile Céleste: un bois doté de propriétés corrosives.
 
 Wang Lin possédait ces trois matériaux. Bien que les quantités fussent modestes, elles suffisaient pour raffiner un trésor. Il avait toujours été perplexe face aux matériaux obtenus sur le champ de bataille étranger, mais il en comprenait désormais un peu mieux l'usage.
 
-Il commença par introduire la Vigne de la Lune Violette dans le fourneau. À chaque morceau déposé, il l'écrasait avec un fragment d'os de bête spirituelle. Son sens divin restait focalisé sur l'intérieur du récipient. Peu à peu, le fourneau se remplit d'une épaisse pâte violette.
+Il commença par introduire la Vigne de la Lune Violette dans le fourneau. À chaque morceau déposé, il l'écrasait avec un fragment d'os de bête spirituelle. En même temps, il y plongeait son énergie spirituelle pour la fondre dans le mélange. Son sens divin restait focalisé sur l'intérieur du récipient. Peu à peu, le fourneau se remplit d'une épaisse pâte violette.
 
 Fixant le fourneau, Wang Lin marmonnait, comme s'il calculait quelque chose. Peu après, ses yeux s'illuminèrent et il y fit tomber d'une chiquenaude une goutte de son sang.
 

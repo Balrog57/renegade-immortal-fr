@@ -26,7 +26,7 @@ Des bruits d'éclatement résonnèrent à travers la Grande Dynastie Wang; les d
 
 Cet événement soudain plongea les citoyens de la Grande Dynastie Wang dans la panique. Ignorant tout de ce qui se passait, ils commencèrent à multiplier les spéculations.
 
-Son sens divin balaya l'ensemble de la dynastie. Après avoir éliminé les disciples de la Secte des Cadavres, le visage de Wang Lin devint plus sombre encore. Il avait fouillé les souvenirs de la femme de la planète Feng Luan: presque chaque ville comptait des disciples de la Secte des Cadavres collectant du ressentiment pour nourrir des esprits vengeurs.
+Son sens divin balaya l'ensemble de la dynastie. Après avoir éliminé les disciples de la Secte des Cadavres, le visage de Wang Lin devint plus sombre encore. Il avait fouillé les souvenirs de la femme de la planète Feng Luan: de nombreux disciples de la Secte des Cadavres de la dynastie collectaient du ressentiment, et presque chaque ville abritait un autel destiné à nourrir des esprits vengeurs.
 
 Cela ne se passait pas uniquement sur la planète Suzaku; dans tout le Système Stellaire de l'Alliance, toutes les branches de la Secte des Cadavres étaient en train de récolter le ressentiment.
 

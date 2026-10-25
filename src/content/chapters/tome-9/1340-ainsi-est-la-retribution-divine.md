@@ -8,7 +8,7 @@ slug: ainsi-est-la-retribution-divine
 ---
 Zhang Jingyun éclata d'un rire franc en accompagnant Wang Lin pour le présenter à la foule.
 
-Les cultivateurs, visiblement nouveaux dans les 7 Millions de Mondes, saluèrent tous Wang Lin et échangèrent quelques mots. Quant à leurs pensées profondes, Wang Lin avait l'impression de faire face à un groupe d'enfants; il pouvait aisément percer leurs artifices.
+Les cultivateurs, visiblement nouveaux dans les 7 Millions de Mondes, saluèrent tous Wang Lin et échangèrent quelques mots, rien de plus que des « nous avons depuis longtemps entendu parler de vous » et autres civilités. Quant à leurs pensées profondes, Wang Lin avait l'impression de faire face à un groupe d'enfants; il pouvait aisément percer leurs artifices.
 
 Quant aux quatre autres cultivateurs, semblables à Zhang Jingyun, ils regardaient Wang Lin comme s'il s'agissait d'un agneau. Ils affichaient des sourires forcés tout en échangeant quelques banalités.
 
@@ -98,7 +98,7 @@ Avant d'entrer dans ces 7 Millions de Mondes, cette question ne s'était jamais 
 
 « Le Dao Céleste a la vertu de chérir la vie. Même au cœur des plus grands périls, il laisse une lueur d'espoir. La foudre de la rétribution divine ne sert qu'à éprouver les cultivateurs du royaume inférieur; lancer les éclairs un à un leur permet de ressentir véritablement la puissance des cieux avant d'être anéantis! Bien sûr, ce n'est là que le discours pompeux et officiel du clan! »
 
-« Mais la vraie raison pour laquelle la rétribution divine s'intensifie progressivement est de forcer l'émergence de la lutte et de la volonté indomptable chez les cultivateurs du royaume inférieur. Ce n'est qu'en procédant ainsi qu'un mystérieux Tonnerre Spirituel peut naître en leur corps », expliqua lentement le cultivateur nommé Zhou.
+« Mais la vraie raison pour laquelle la rétribution divine s'intensifie progressivement est de forcer l'émergence de la lutte et de la volonté indomptable chez les cultivateurs du royaume inférieur. Ce n'est qu'en procédant ainsi qu'un mystérieux Tonnerre Spirituel peut naître en leur corps », expliqua lentement le cultivateur nommé Zhou, celui qui avait échangé par transmission de pensée avec Zhang Jingyun.
 
 Ces paroles résonnèrent différemment aux oreilles de Wang Lin. Il ferma les yeux, et une immense vague secoua son esprit. Il commençait à comprendre...
 

@@ -28,7 +28,7 @@ Chaque fois qu'il passait près de cette faille, son cœur tremblait. Il ne pouv
 
 Aujourd'hui, il revoyait cette figure terrifiante. Sous l'emprise de cette peur indicible, le cultivateur du Clan du Loup Céleste sombra soudainement dans la folie!
 
-Avec un sourire tordu, il oublia de fuir. Sa peau fondit instantanément et son âme originelle s'effondra. Son existence disparut sur-le-champ!
+Non pas la démence ni la frénésie, mais une folie née de la pure épouvante! Avec un sourire tordu, il oublia de fuir. Sa peau fondit instantanément et son âme originelle s'effondra. Son existence disparut sur-le-champ!
 
 Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultivateurs du Royaume Extérieur était aussi simple que d'écraser des fourmis. Il se retourna et regarda Maître Yan Leizi, qui était à la fois stupéfait et exalté.
 

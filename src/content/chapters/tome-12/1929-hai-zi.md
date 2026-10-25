@@ -46,7 +46,7 @@ Le ressac résonnait aux oreilles de Wang Lin tandis que la brise marine caressa
 
 Contemplant la Mer Montagneuse, Wang Lin réfléchit un instant, puis monta sur son dos. Le dragon marin poussa un rugissement et fonça vers la mer.
 
-Les Exaltés Empyréens ne se situaient qu'en dessous des Grands Empyréens et des quarante-huit Ascendants Empyréens. Ils pouvaient presque aller partout, et quatre-vingt-dix-neuf pour cent des sectes étaient à leurs pieds. Ils étaient au sommet du clan céleste!
+Les Exaltés Empyréens ne se situaient qu'en dessous des Grands Empyréens et des quarante-huit Ascendants Empyréens. Dans la terre du clan céleste, parmi les soixante-douze continents, ils pouvaient aller presque partout, et quatre-vingt-dix-neuf pour cent des sectes étaient à leurs pieds. Ils étaient au sommet du clan céleste!
 
 Même ces âmes anciennes pouvaient être combattues lorsqu'elles étaient scellées! Tout comme en ce moment même: Wang Lin se dirigeait vers l'Arbre de la Mer Montagneuse qui était scellé ici. Avant d'acquérir la puissance d'un Exalté Empyréen, une telle entreprise lui aurait été impossible.
 

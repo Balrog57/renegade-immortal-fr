@@ -18,11 +18,11 @@ Des vagues de froid émanaient de la neige et de la glace qui jonchaient le sol.
 
 Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats provenant de trésors magiques. Les sites de la Secte de l'Encre, de la Secte Bai Yun, de la Secte du Bois Vert et de la Secte de l'Âme Noire devinrent les théâtres des combats finaux.
 
-Certains mortels ayant eu la chance de survivre se terrèrent dans leurs maisons. Ignorant tout de ce qui se tramait, ils n'avaient jamais vu autant de cultivateurs de toute leur vie.
+Certains mortels ayant eu la chance de survivre se terrèrent dans leurs maisons et prièrent en silence. Ils ignoraient tout de ce qui se tramait, et la plupart n'avaient jamais vu autant de cultivateurs de toute leur vie.
 
-Les pays environnants avaient déployé de puissants cultivateurs pour encercler l'Alliance des Quatre Sectes. Ils n'avaient aucune intention de s'immiscer dans la bataille; ils voulaient simplement s'assurer qu'aucun cultivateur ne puisse quitter le champ de bataille, qu'il appartienne à l'Alliance ou à Xue Yu.
+À la frontière de l'Alliance des Quatre Sectes, les pays environnants avaient déployé de puissants cultivateurs pour encercler l'Alliance. Ils n'avaient aucune intention de s'immiscer dans la bataille; ils voulaient simplement s'assurer qu'aucun cultivateur ne puisse quitter le champ de bataille: qu'il appartienne à l'Alliance ou à Xue Yu, nul ne devait franchir la frontière, ne serait-ce que d'un pas.
 
-Ils ne partiraient qu'une fois le vainqueur désigné.
+Sauf si un vainqueur finissait par émerger, il n'y aurait aucune exception.
 
 Les géants barbares parcouraient le champ de bataille en brandissant leurs bras massifs. À chaque mouvement, ils fauchaient plusieurs cultivateurs de Xue Yu. Ils étaient au total quatre-vingt-dix-neuf géants barbares.
 
@@ -36,9 +36,9 @@ Le plus étrange était que, malgré la chaleur intense du feu, celui-ci n'avait
 
 Une fois la grande formation céleste brisée, une tempête de neige encore plus violente jaillit des failles. La couche neigeuse devint d'une épaisseur accrue.
 
-La femme vêtue de blanc n'était pas la seule à avoir apporté un puissant trésor magique. D'autres cultivateurs de Xue Yu, également préparés avec des trésors redoutables, apparurent.
+La femme vêtue de blanc n'était pas la seule à avoir apporté un puissant trésor magique. Ces cultivateurs de Xue Yu avaient manifestement établi un plan détaillé avant de venir: autour de chacune des quatre sectes, plusieurs d'entre eux s'avancèrent.
 
-Lors du combat contre la Secte Bai Yun, une vieille femme aux cheveux blancs agita ses manches en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de 330 mètres s'éleva dans les airs.
+Du côté de la Secte Bai Yun, une vieille femme aux cheveux blancs écarta les bras en récitant un sort complexe. Soudain, un vent impétueux s'engouffra depuis une faille et toute la neige dans un rayon de 330 mètres s'éleva dans les airs.
 
 Sous l'effet de ce vent puissant, la neige scintilla et se mua en glace. Peu après, les yeux de la vieille femme s'illuminèrent et elle frappa son front. Son Âme Naissante quitta son corps pour pénétrer dans un gigantesque bloc de glace.
 
@@ -78,7 +78,7 @@ Wang Lin attendait également. Il observait la bataille tout en se dissimulant d
 
 Cependant, un phénomène très étrange attira son attention.
 
-Lorsque les cultivateurs des deux camps mouraient, même si leurs corps étaient réduits en lambeaux, ils gelaient instantanément et s'enfonçaient dans la neige.
+Lorsque les cultivateurs des deux camps mouraient, même si leurs corps étaient réduits en lambeaux, dès qu'ils retombaient au sol, ils gelaient instantanément et devenaient des sculptures de glace, puis s'enfonçaient lentement dans la neige.
 
 Si cela s'était arrêté là, cela n'aurait pas intrigué Wang Lin, mais après un examen plus attentif, il remarqua de faibles fluctuations d'énergie spirituelle alors que les corps s'enfonçaient.
 

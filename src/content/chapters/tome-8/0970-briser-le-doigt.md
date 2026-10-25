@@ -108,7 +108,7 @@ De nombreuses fissures apparurent sur le fragment du Royaume Céleste, mais celu
 
 Le doigt se retira pour mieux frapper, et juste au moment où il allait s'abattre de nouveau, la force titanesque formée à l'intérieur du doigt par le cristal d'Invocation de la Pluie explosa soudainement. Des faisceaux de lumière jaillirent avec une violence inouïe!
 
-Le doigt géant fut transpercé par ces lueurs rouges. Il fut criblé de trous, provoquant la dissipation rapide de la vaste énergie originelle qu'il renfermait.
+Large de plus de trois cents mètres et long de plus de trois kilomètres, le doigt géant fut transpercé par ces lueurs rouges, dont les rayons s'étendaient sur plus de trente kilomètres. Il fut criblé de trous, provoquant la dissipation rapide de la vaste énergie originelle qu'il renfermait.
 
 À cet instant précis, le corps de Wang Lin pénétra dans le fragment du Royaume Céleste et apparut au-dessus de celui-ci. Ses yeux étaient d'une froideur absolue alors que sa main droite se serrait en un poing, et il lança un coup de poing vers le doigt.
 

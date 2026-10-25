@@ -52,7 +52,7 @@ Sa célérité était telle que le sifflement qu'il produisait pouvait ébranler
 
 Une multitude de cultivateurs de Luotian suivirent le bois géant, chargeant dans l'Alliance avec une intention meurtrière!
 
-Les expressions des cultivateurs de l'Alliance arrivés par les matrices de transfert changèrent radicalement. Ils voulurent esquiver, mais l'impact du bois géant les en empêcha totalement. Même s'ils étaient éloignés, ils furent aspirés par la puissante tempête engendrée par l'objet.
+Hors de la barrière, les ombres illusoires qui s'y étaient formées ainsi que les cultivateurs de l'Alliance arrivés par les matrices de transfert changèrent radicalement d'expression. Ils voulurent esquiver, mais l'impact du bois géant les en empêcha totalement. Même s'ils étaient éloignés, ils furent aspirés par la puissante tempête engendrée par l'objet.
 
 Certains cultivateurs furent frappés de plein fouet par le bois. Leurs corps et leurs âmes originelles furent pulvérisés, ne laissant derrière eux qu'une brume de sang. Cependant, comparée à la taille du bois, cette quantité de sang était insignifiante.
 

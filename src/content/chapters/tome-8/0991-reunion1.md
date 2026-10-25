@@ -46,7 +46,7 @@ Le visage de Maître Yi Chen était pâle. Il n'avait aucune certitude que ces t
 
 « Oh? » En voyant les trois couches de lumière, une lueur froide traversa les yeux de Situ Nan. En balayant la planète de son sens divin, il repéra deux cultivateurs au stade précoce de Purificateur du Nirvana.
 
-Ces deux derniers étaient gravement blessés, mais même s'ils l'avaient été moins, cela n'aurait pas importé pour Situ Nan. Il rit et disparut de son grand lit pour réapparaître à l'extérieur de la planète Shuiling.
+Ces deux derniers étaient gravement blessés, mais même s'ils l'avaient été moins, cela n'aurait pas importé pour Situ Nan. Il rit et disparut de son grand lit, entouré de femmes gazouillantes, pour réapparaître à l'extérieur de la planète Shuiling.
 
 « Résister, c'est bien. Plus vous résistez, plus je m'excite. Bon sang, cette fois, ce sont des concubines et des fours de culture que je vais chercher pour mon frère, pas pour moi! Je suis du côté de la justice! »
 

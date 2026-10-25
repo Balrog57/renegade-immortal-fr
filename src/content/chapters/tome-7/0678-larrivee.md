@@ -85,7 +85,7 @@ L'ancêtre de la famille Ran avait secrètement affiné un clone pendant des cen
 
 Bien que ce Sun Xi ait réussi à raffiner un clone, sa culture n'était qu'au stade de la Formation du Noyau, ce qui l'empêchait tout simplement de quitter la planète. Auparavant, lorsqu'il avait cherché Wang Lin, il comptait lui demander de l'aide à ce sujet. Cependant, avant même de pouvoir poser la question, Wang Lin l'avait repoussé.
 
-De plus, cette affaire était d'une importance capitale; après avoir hésité, il n'avait pas insisté. Autrement, si Xu Mu avait découvert que les trois avaient chacun leur moyen de subsister et qu'ils ne l'utilisaient que comme bouc émissaire, il craignait que, peu importe la quantité de jades célestes offerte, Xu Mu n'accepterait jamais. En réalité, Xu Mu aurait pu les attaquer sous le coup de la colère.
+De plus, cette affaire était d'une importance capitale; après avoir hésité, il n'avait pas insisté. Autrement, si Xu Mu avait découvert que les trois avaient chacun leur moyen de subsister et qu'ils ne l'avaient entraîné là que comme bouc émissaire, afin que personne ne soupçonne l'existence de clones, il craignait que, peu importe la quantité de jades célestes offerte, Xu Mu n'accepterait jamais. En réalité, Xu Mu aurait pu les attaquer sous le coup de la colère.
 
 Liu Mei se téléporta et arriva dans la partie sud de Ran Yun. Juste au moment où elle s'apprêtait à pénétrer dans la ville, elle tourna brusquement la tête vers le ciel, ses yeux brillant d'une lumière mystérieuse inédite.
 

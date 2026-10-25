@@ -60,7 +60,7 @@ Grâce à ce sens divin terrifiant, il pouvait déduire sans l'ombre d'un doute 
 
 Wang Lin sourit et dit à l'Ancien: « Il n'est pas nécessaire d'entrer dans la secte. Je ne fais que passer par le Continent Terre-Meng et j'ai besoin de la carte la plus complète que votre secte possède. Pouvez-vous me la donner? »
 
-À ces mots, l'Exalté Doré poussa un immense soupir de soulagement. Il craignait qu'une offense n'ait été commise. Il faut dire qu'il n'existait qu'environ mille Exaltés Empyréens au total. La plupart résidaient sur le Continent Central, certains suivaient un Grand Empyréen, et les autres restaient au sein d'une secte en tant qu'ancêtres véritables.
+À ces mots, l'Exalté Doré poussa un immense soupir de soulagement. Il craignait qu'une offense n'ait été commise. Il faut dire que sur tout le Continent Immortel, il n'existait qu'un peu plus de mille Exaltés Empyréens. La plupart résidaient sur le Continent Central, certains suivaient un Grand Empyréen, et les autres restaient au sein d'une secte en tant qu'ancêtres véritables.
 
 Après avoir entendu que Wang Lin n'était venu que pour une carte, l'Ancien Zheng Tianlin hocha vivement la tête.
 

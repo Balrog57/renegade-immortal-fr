@@ -42,7 +42,7 @@ Li Xiangdong prit une profonde inspiration. En approchant, il joignit les mains 
 
 L'homme d'âge moyen joignit ses mains à son tour: « Je suis Feng Peishan, de la Secte du Sort Dao! »
 
-« Je ne pensais pas rencontrer une telle beauté ici! » Le cultivateur en noir à l'allure féminine regarda Lu Yanfei avec un sourire. « Je suis Zhao Yu, de la Secte de la Collection Démoniaque. »
+« Je ne pensais pas rencontrer une telle beauté ici! » Le cultivateur en noir à l'allure féminine regarda Lu Yanfei avec un sourire. « Petite beauté, je suis Zhao Yu, de la Secte de la Collection Démoniaque. »
 
 « Zhou Hai, de la Secte des Cinq Poisons! » L'expression de Zhou Hai demeurait sombre tandis que son œil droit dégageait une lueur bleue qui balaya les cultivateurs de la Secte de l'Origine.
 
@@ -84,7 +84,7 @@ Ce cri fut assourdissant, tel un coup de tonnerre. C'était comme si sa voix con
 
 La terre en trembla légèrement et les nuages furent repoussés.
 
-À l'écho de ce cri, tous les disciples de la Secte de l'Origine frémirent et du sang jaillit de leurs orifices. Même Lu Yanfei, Li Xiangdong et les deux autres anciens ne purent s'empêcher de chanceler, frappés par la stupeur!
+À l'écho de ce cri, tous les disciples de la Secte de l'Origine frémirent et du sang jaillit de leurs orifices et leurs oreilles bourdonnèrent. Même Lu Yanfei, Li Xiangdong et les deux autres anciens ne purent s'empêcher de chanceler, frappés par la stupeur!
 
 « Une Parole de Loi! » haleta Li Xiangdong.
 

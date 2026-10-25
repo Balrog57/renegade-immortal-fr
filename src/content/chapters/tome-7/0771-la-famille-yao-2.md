@@ -41,7 +41,7 @@ Dès son apparition, il s'abattit sur Xue Zu avec une quantité énorme d'énerg
 
 Des craquements retentirent immédiatement à l'intérieur du corps de Xue Zu et la lumière rouge autour de lui faiblit. L'élan qu'il prenait pour sortir fut brusquement interrompu.
 
-Le sceau formé par le fragment de 1 000 pieds descendit du ciel. Xue Zu chargea, mais après une série de grondements, il fut écrasé sous l'objet.
+Le sceau formé par le fragment de 1 000 pieds descendit du ciel. Xue Zu bondit en poussant un cri strident, mais après une série de grondements, il fut écrasé sous l'objet.
 
 Lorsque le sceau se retira, Xue Zu paraissait affaibli, mais il restait féroce et une lumière rouge brillait intensément autour de lui. À cet instant, le Fouet du Karma apparut soudainement et s'abattit sur lui.
 

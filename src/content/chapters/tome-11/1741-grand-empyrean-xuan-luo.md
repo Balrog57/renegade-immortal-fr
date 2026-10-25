@@ -30,6 +30,8 @@ Tandis qu'il réfléchissait, le regard du vieil homme nommé Ma devint glacial.
 
 Il y avait également les trois hommes d'âge moyen des cinquième au septième étage. Tous se tenaient là avec déférence, semblant craindre ce vieil homme nommé Ma.
 
+Quant à Yun Yifeng de la Secte Gui Yi, il se tenait à côté du vieil homme nommé Ma, la tête levée vers le ciel, et gardait le silence.
+
 Après un long moment, le vieil homme nommé Ma demanda soudainement: « Qu'en pensez-vous? » Bien que ses paroles ne s'adressent à personne en particulier, seul Yun Yifeng prit la parole après une réflexion silencieuse.
 
 « Ce disciple ne croit pas que le Dao Céleste puisse nous dévorer! L'oncle a trouvé des indices concernant le Dao Céleste, et je les ai recherchés durant toutes ces années. Bien que je n'aie rien découvert, j'ai quelques spéculations. »

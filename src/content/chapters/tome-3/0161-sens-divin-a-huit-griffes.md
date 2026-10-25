@@ -96,7 +96,7 @@ Une navette émettant une lumière arc-en-ciel apparut devant lui. Cette arme é
 
 Sur son passage, la terre se dissipait et ne pouvait barrer la route à la navette d'un seul pas. En un clin d'œil, elle ne fut plus qu'à trente mètres de Wang Lin. Ce dernier sentit sa tête s'engourdir. Sans hésiter, il sortit le talisman que Yang Sen lui avait donné.
 
-Ce talisman pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante. Au moment où il le lança, la navette frappa.
+Ce talisman pouvait encaisser le coup de pleine puissance d'un cultivateur de l'Âme Naissante. Au moment où il le lança, la navette frappa.
 
 Le talisman grandit instantanément et se plaça derrière Wang Lin pour le protéger. Il percuta la navette dans un grondement et, après une série de craquements, se brisa et tomba en cendres. La navette fut également repoussée d'une dizaine de mètres et son élan ralentit. De l'impact, une onde circulaire se propagea de toutes parts, soulevant la terre sur son passage.
 

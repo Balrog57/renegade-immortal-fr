@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1862 - Xu Decai
 slug: xu-decai
 ---
-La patrouille était ennuyeuse, mais Wang Lin s'était habitué à l'ennui. Il avait l'habitude de marcher seul dans ce monde, accoutumé à se cacher dans l'obscurité et à contempler silencieusement l'immensité du monde qui s'étendait devant lui.
+La patrouille était ennuyeuse, mais Wang Lin s'était habitué à l'ennui. Il avait l'habitude de marcher seul dans ce monde, accoutumé à se cacher dans l'obscurité et à contempler silencieusement l'immensité du monde qui s'étendait devant lui, où perçait vaguement un filet de lumière.
 
 La lune était voilée par des nuages sombres, mais elle ne pouvait être totalement obscurcie, comme si elle lui servait de guide. Wang Lin observait les éclats de lumière lunaire et poursuivait sa marche lente.
 

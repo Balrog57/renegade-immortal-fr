@@ -11,7 +11,7 @@ Une nébuleuse éclatante trônait au milieu de l'immensité spatiale. Cette né
 
 Ce jour-là, un rayon de lumière traversa la nébuleuse. Sa progression n'était pas rapide, mais lorsqu'il la franchit, il donna l'impression que la nébuleuse bouillonnait et se retirait sur son passage. Ce qui était plus stupéfiant encore, c'est que la personne au sein de ce rayon de lumière n'utilisait aucun trésor tel que la Boussole des Étoiles; elle se déplaçait par sa seule force physique.
 
-Cet individu portait une robe verte et semblait âgé d'une trentaine d'années. Son apparence était ordinaire, sans rien d'inhabituel. S'il y avait un trait remarquable, c'était ce tempérament antique qu'il dégageait. C'était comme si cet homme avait vécu pendant des milliers d'années.
+Cet individu portait une robe verte et semblait âgé d'une trentaine d'années. Son apparence était ordinaire, sans rien d'inhabituel. S'il y avait un trait remarquable, c'était ce tempérament antique qu'il dégageait. C'était comme si cet homme avait traversé les océans devenus champs de mûriers, comme si les étoiles avaient disparu et que des milliers d'années s'étaient écoulées sur lui.
 
 Wang Lin parcourut toute la distance ainsi. Il ne fusionna pas avec le monde, se contentant de marcher calmement parmi les étoiles. Cela faisait quatre jours qu'il était revenu du vide.
 

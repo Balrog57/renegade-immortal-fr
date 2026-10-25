@@ -52,7 +52,7 @@ Un grondement tonnerre retentit et de violentes ondulations se propagèrent. Les
 
 Wang Lin jaillit du feu vers Yun Shan. Au même moment, il pointa le ciel et cria: « Feu des cieux et de la terre! »
 
-À ces mots, tous les cultivateurs pratiquant l'élément feu furent stupéfaits. Ils sentirent clairement que l'élément feu à l'intérieur de leurs corps devenait fou, sur le point de devenir incontrôlable. C'était comme si le feu voulait jaillir de leurs propres corps, comme s'il répondait à un appel!
+À ces mots, parmi les près de 100 000 cultivateurs entourant la plateforme, tous ceux dont les sorts relevaient du feu changèrent de visage. Ils sentirent clairement que l'élément feu à l'intérieur de leurs corps devenait fou, sur le point de devenir incontrôlable. C'était comme si le feu voulait jaillir de leurs propres corps, comme s'il répondait à un appel!
 
 Les cultivateurs de feu ressentirent une sensation de brûlure interne. Un feu monstrueux apparut et se rassembla vers la main droite de Wang Lin!
 

@@ -58,7 +58,7 @@ Liu Fei laissa échapper un grognement glacial. Il se déplaça comme l'éclair 
 
 À peine eut-il pénétré dans la faille qu'un cri retentit de l'intérieur. Ce cri, émis par Liu Fei juste après avoir fini sa phrase, était empreint de terreur et de panique. En conséquence, tous les cultivateurs de l'Âme Naissante environnants reculèrent. Ils fixaient la fissure avec gravité, comme si un démon antique se tapissait en dessous.
 
-Le père de Sun Zhenwei, l'homme en robe grise, ne recula pas mais chargea en avant. Tous les autres cultivateurs de l'Âme Naissante de la Secte du Ciel Nuageux sortirent également leurs trésors magiques. À ce stade, Sun Zhenwei avait aussi quitté la salle principale; n'ayant pas la capacité de téléportation des experts de l'Âme Naissante, il était naturellement en retard.
+Le père de Sun Zhenwei, l'homme en robe grise, ne recula pas mais chargea en avant. Tous les autres cultivateurs de l'Âme Naissante de la Secte du Ciel Nuageux sortirent également leurs trésors magiques. À ce stade, Sun Zhenwei avait aussi quitté la salle principale; n'ayant pas la capacité de téléportation des experts de l'Âme Naissante, il était naturellement en retard. Le pressentiment qui lui glaçait le cœur n'avait cessé de croître et atteignait désormais son paroxysme; la catastrophe imminente semblait sur le point de s'abattre sur lui.
 
 Li Muwan s'avança elle aussi lentement. Elle regarda le dos de Sun Zhenwei avec une expression moqueuse, avant de porter un regard tendre vers la fissure dans le sol.
 

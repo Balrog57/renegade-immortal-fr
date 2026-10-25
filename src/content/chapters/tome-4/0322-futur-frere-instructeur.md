@@ -124,8 +124,8 @@ Chi Hu commença à réfléchir. Il se remémora ses propres émotions lorsqu'il
 
 Wang Lin pensa intérieurement: *La culture de cet homme est un peu plus élevée que celle de Hongdie, surtout son domaine de mort. Même Hongdie devrait déployer d'énormes efforts pour le contenir. Je me demande simplement si mon corps original serait capable de supporter une telle attaque. Je me demande également quelle quantité d'énergie spirituelle supplémentaire mon corps originel nécessite pour franchir la troisième transformation. Une fois revenu à Suzaku, je me demande si sa culture progressera plus vite grâce à ces jades célestes.*
 
-La boussole stellaire était extrêmement rapide. Elle fit demi-tour et reprit la poursuite des épées célestes. Au loin, un fragment de royaume céleste apparut enfin.
+La boussole stellaire était extrêmement rapide. Après avoir décrit un large cercle au loin, elle reprit de près la poursuite du groupe d'épées célestes depuis une autre position. Peu à peu, dans le vide devant eux, un fragment de royaume céleste apparut enfin.
 
-Ils virent une quantité infinie d'énergie d'épée irradier du fragment. Cette lumière donnait à quiconque l'approchait la sensation d'être transpercé avant même le contact.
+Une énergie d'épée dense jaillissait du fragment, comme une lumière de dix mille pieds. Elle donnait à quiconque l'approchait la sensation d'être transpercé avant même le contact.
 
 D'innombrables épées célestes affluaient. C'était ici que se trouvait l'esprit de l'épée céleste de la Pluie!

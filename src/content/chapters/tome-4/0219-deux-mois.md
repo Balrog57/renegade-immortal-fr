@@ -48,7 +48,7 @@ Peu de temps après, il réapparut avec un air de profonde satisfaction. Il recr
 
 Wang Lin agita la main et un drapeau d'âme apparut. Il y projeta les deux âmes, puis entra dans la chambre. Il rangea les corps des deux jeunes femmes dans son sac de rangement avant de quitter les lieux.
 
-À cet instant précis, les quinze minutes s'étaient écoulées. Wang Lin rappela le drapeau de restriction qui se transforma en un éclat noir et quitta rapidement le patio sud.
+À cet instant précis, les quinze minutes s'étaient écoulées. Wang Lin rappela mentalement le drapeau de restriction qui retenait prisonnier le cultivateur de l'Âme Naissante du patio sud. Le drapeau se contracta aussitôt, se transforma en un éclat noir et quitta rapidement le patio sud.
 
 Au même moment, un rugissement furieux éclata de la part du cultivateur de l'Âme Naissante. Déployant son Sens Divin, il verrouilla le patio oriental et chargea avec précipitation vers elle.
 

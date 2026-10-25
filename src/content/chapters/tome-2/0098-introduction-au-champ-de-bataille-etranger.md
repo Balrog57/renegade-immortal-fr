@@ -92,6 +92,6 @@ Le visage du messager corpulent devint disgracieux. Il laissa échapper un renif
 
 « Les mêmes vieilles règles s'appliquent: les cultivateurs de la Formation du Noyau et de l'Âme Naissante ne sont pas autorisés à participer. Amenez vos cultivateurs de l'Établissement des Fondations; ils constitueront votre principale force de combat. Tout le monde, rentrez chez vous. La bataille commencera dans trois jours. »
 
-Les sept sectes orthodoxes et démoniaques ramassèrent leurs jetons. Elles se regardèrent et partirent sans dire un mot. Le seul détail notable était que les cultivateurs de l'Âme Naissante des trois sectes orthodoxes se dirigeaient tous dans la même direction.
+Les sept sectes orthodoxes et démoniaques ramassèrent leurs jetons. Elles se regardèrent et partirent sans dire un mot. Le seul détail notable était que les cultivateurs de l'Âme Naissante des trois sectes orthodoxes, menés par Pu Nanzi et le cultivateur aux cheveux blancs de la Secte Piao Miao, se dirigeaient tous dans la même direction.
 
 Le vieil homme svelte de la Secte Tian Dao eut un éclair glacial dans le regard et dit aux autres: « Chers compagnons, et si vous veniez faire un tour chez moi? »

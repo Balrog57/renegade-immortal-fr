@@ -108,7 +108,7 @@ Au sein de la Secte He Huan, l'ancêtre principal, le vieux Ying Yang, affichait
 
 Trois autres personnes se trouvaient dans la salle: deux femmes et un homme. Tous trois étaient des cultivateurs de l'Âme Naissante. Ils fronçaient également les sourcils, plongés dans l'indécision.
 
-L'une des femmes portait une robe jaune très séduisante. Elle dit doucement: « Grand frère aîné, ce cultivateur possède-t-il réellement le niveau de la Formation de l'Âme? Je n'y crois pas. » Ses vêtements moulants révélaient des courbes qui auraient fait battre le cœur de n'importe qui; sans son air préoccupé, elle aurait été d'un charme irrésistible.
+L'une des deux femmes portait une robe de soie jaune. Sa voix avait de quoi ensorceler les cœurs. Elle dit doucement: « Grand frère aîné, ce cultivateur possède-t-il réellement le niveau de la Formation de l'Âme? Je n'y crois pas. » Ses vêtements moulants révélaient des courbes qui auraient fait battre le cœur de n'importe qui; sans son air préoccupé, elle aurait été d'un charme irrésistible.
 
 Le vieux Ying Yang laissa échapper un léger grognement: « Huang Dashan, de la Secte Tian Dao, était au début du stade de l'Âme Naissante et il est mort d'un simple regard de cet homme. Dire qu'il n'est que de la Formation de l'Âme serait le sous-estimer. »
 

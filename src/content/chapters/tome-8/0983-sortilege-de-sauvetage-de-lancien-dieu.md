@@ -16,7 +16,7 @@ L'illusion du géant divin s'effondra soudainement en d'innombrables particules 
 
 Cette clarté ne dura que quelques respirations avant de disparaître, laissant place à l'obscurité.
 
-Le bouclier devant Wang Lin avait atteint une hauteur de près de 3 300 mètres. Il ressemblait à une barrière gigantesque séparant le Yin et le Yang! Le bouclier était recouvert d'une lueur azurée diffuse qui rendait les environs brumeux, comme si ce trésor n'était pas censé exister dans ce monde.
+Le bouclier devant Wang Lin avait atteint une hauteur de près de 3 300 mètres. Il ressemblait à une barrière gigantesque séparant le Yin et le Yang! Le bouclier était recouvert d'une lueur azurée diffuse qui rendait les environs brumeux et distordait la nuit alentour, comme si ce trésor n'était pas censé exister dans ce monde.
 
 Wang Lin prit une profonde inspiration et chargea vers le bouclier. Au loin, Maître Fu Fengzi luttait. Il s'était autrefois demandé quelle serait la puissance de ce trésor une fois son sceau levé, mais ce qu'il voyait dépassait désormais son imagination.
 
@@ -24,7 +24,7 @@ Il avait eu l'intention de le voler, mais en pensant au sceau qui marquait ses p
 
 Plus il ignorait de choses, plus il songeait aux sceaux vicieux dont il avait entendu parler autrefois. En conséquence, son appréhension ne faisait que croître.
 
-Alors que Wang Lin se rapprochait du bouclier, sa main droite s'élança sans hésitation. Au moment où il le toucha, une puissante vague de puissance d'Ancien Dieu pénétra son corps. Empreinte d'une volonté de destruction totale, cette force balaya l'être de Wang Lin.
+Alors que Wang Lin se rapprochait du bouclier, sa main droite s'élança sans hésitation. Au moment où il le toucha, une puissante vague de puissance d'Ancien Dieu pénétra son corps. Empreinte d'une brutalité folle et d'une volonté de tout détruire, cette force balaya l'être de Wang Lin.
 
 Cependant, cela ne lui fit aucun mal. Cette aura traversa son corps à plusieurs reprises avant de retourner au bouclier. À cet instant, Wang Lin eut l'impression de recevoir un afflux massif d'informations. Heureusement, il possédait le corps d'un Ancien Dieu; la sensation ne fut qu'une brève piqûre avant de s'estomper progressivement. Wang Lin commença alors à absorber toutes les informations qui inondaient son esprit.
 

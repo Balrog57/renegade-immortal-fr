@@ -90,7 +90,7 @@ Cette sensation de puissance était telle qu'il avait l'impression de contrôler
 
 C'était la Loi, visible par ses yeux!
 
-Après avoir atteint la deuxième étape, il fallait scruter les Lois. Une fois un certain seuil franchi, on pouvait atteindre le sommet du Scruteur du Nirvana.
+Après avoir atteint la deuxième étape, il fallait scruter les Lois. Plus la culture était profonde, plus on discernait de Lois; une fois qu'on avait vu un certain nombre des Lois qui régissent le ciel et la terre, on pouvait atteindre le sommet du Scruteur du Nirvana.
 
 — J'ai percé! souffla Wang Lin en prenant une profonde inspiration. Atteindre simplement le stade avancé du Scruteur du Nirvana ne lui suffisait pas. Après l'évolution de son domaine et l'atteinte de ce stade, il sentait qu'il restait encore une marge de progression. Il n'avait besoin que d'assez d'énergie originelle pour atteindre le sommet absolu du stade avancé du Scruteur du Nirvana!
 

@@ -100,7 +100,7 @@ L'homme d'âge mûr chargea Wang Lin sans aucune crainte dans les yeux et périt
 
 Wang Lin resta pensif un long moment, mais il ne retira pas son âme, bien que cet homme eût fait un excellent démon. Il ne pensait pas qu'un membre de la famille Teng puisse chérir ses proches à ce point. Néanmoins, l'homme devait mourir; il n'aurait jamais dû naître au sein de la lignée des Teng.
 
-À cinquante kilomètres de là, Teng Trois s'était arrêté. Son corps ne présentait aucune blessure apparente, mais il était mort.
+À cinquante kilomètres de là, Teng Trois s'était arrêté. Son corps ne portait pas la moindre blessure, mais ses yeux restaient grands ouverts, son souffle s'était éteint par la bouche et le nez, et toute vie l'avait quitté.
 
 Dans sa main, l'épée nommée Dao Yun brilla une ultime fois avant de se briser...
 

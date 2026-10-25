@@ -49,7 +49,7 @@ Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel reg
 
 « Qian Pinghai, la vérité prouve que je suis l'homme le plus apte à devenir le prochain Suzaku. Tu t'es trompé à l'époque, tellement...
 
-« Ce vieil homme a parcouru la planète entière et a fini par trouver Qian Feng parmi tes descendants. Cet homme possède la même racine spirituelle que toi et te ressemble également. Chaque fois que je le vois, ma haine pour toi croît encore un peu. Ce vieil homme va l'élever et lui transmettre la Formation Mystérieuse de Suzaku. Et chaque fois que je le verrai l'utiliser, mon cœur sera rempli de joie!
+« Ce vieil homme a parcouru la planète entière et a fini par trouver Qian Feng parmi tes descendants. Cet homme possède la même racine spirituelle que toi et te ressemble également. Chaque fois que je le vois, ma haine pour toi croît encore un peu. Ce vieil homme va l'élever et lui transmettre la Formation Mystérieuse de Suzaku, tout comme tu l'as fait pour moi. Et chaque fois que je le verrai l'utiliser, mon cœur sera rempli de joie!
 
 « C'est là mon unique façon de te rendre ce que tu m'as fait subir.
 

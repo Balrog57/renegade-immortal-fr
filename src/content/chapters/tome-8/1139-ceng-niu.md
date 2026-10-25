@@ -64,7 +64,7 @@ Si le temps continuait de passer et qu'il pouvait oublier la menace de Tuo Sen, 
 
 Il aimait cette existence paisible et appréciait la joie de vivre du village. Pourtant, Wang Lin savait que ce genre de vie n'était qu'un bref éclat de soleil au milieu de la saison des pluies: elle allait bientôt disparaître.
 
-Les cultivateurs de la Secte de l'Origine arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche des mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais aucun n'était qualifié. Même s'il y en avait eu, à cet âge ils ne pourraient rien accomplir avant de mourir.
+Les cultivateurs de la Secte de l'Origine arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche, et emmenèrent un à un les mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais aucun n'était qualifié. Même s'il y en avait eu, à cet âge ils ne pourraient rien accomplir avant de mourir.
 
 Ce jour-là, un cultivateur arriva au Village de l'Eau du Nord. Il paraissait n'avoir pas plus de vingt ans, mais il se trouvait déjà au stade de l'Établissement des Fondations. À son âge et avec un tel niveau de culture, il pouvait être considéré comme un prodige parmi la jeune génération.
 

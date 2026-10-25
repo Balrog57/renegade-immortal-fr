@@ -18,7 +18,7 @@ slug: le-retour
 
 Le visage du garçon aux cheveux blancs devint encore plus féroce, et ses yeux révélèrent une intention meurtrière monstrueuse.
 
-« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de ce sentiment qu'il avait paniqué et utilisé toute la Secte Divine pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte du Vide Brillant, malgré sa cupidité pour l'héritage du Royaume du Vide Brillant, il avait envoyé son disciple à sa place.
+« Si vous vous étiez réincarné, alors ces cultivateurs du Royaume Céleste Antique qui ont sondé votre âme l'auraient su... Mais il y a quelques mois, j'ai ressenti votre aura, il n'y a aucun doute! » En repensant à cette aura, l'esprit du garçon aux cheveux blancs trembla. C'est à cause de cette aura qu'il avait, durant ces mois, eu l'impression que le ciel s'effondrait et vécu dans l'angoisse, et qu'il avait mobilisé la Secte Divine à tout prix pour enquêter frénétiquement. Même après avoir reçu le jade de la Sainte du Vide Brillant, malgré sa cupidité pour l'héritage du Royaume du Vide Brillant, il avait envoyé son disciple à sa place.
 
 Il avait cultivé pendant d'innombrables années, et c'était la première fois qu'il ressentait une telle peur depuis la mort de son maître. Cette peur lui rappelait les instants précédant le trépas de son mentor.
 

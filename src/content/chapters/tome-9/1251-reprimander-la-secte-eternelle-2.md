@@ -60,7 +60,7 @@ C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'h
 
 « Bien, alors attendons-le! Ce vieil homme veut voir quel genre d'homme est ce Lu Zihao! Le combat entre votre Secte de l'Origine et la Secte du Dao Pourpre sera reporté. Ancien Feng, ordonnez aux sectes de rang 6 de commencer! » L'homme en blanc sourit, visiblement ravi.
 
-La compétition des sectes de rang 6 commença officiellement dans un fracas de tonnerre. Cependant, cela ne put détourner l'attention de la foule, car tous les regards étaient encore rivés sur les gradins de la Secte Éternelle.
+La compétition des sectes de rang 6 commença officiellement. Sur la plateforme, les sectes de rang 6 passèrent à l'attaque les unes après les autres et les grondements ne cessaient pas. Cependant, cela ne put attirer l'attention des dizaines de milliers de cultivateurs qui observaient alentour, car tous les regards étaient encore rivés sur les gradins de la Secte Éternelle.
 
 « Camarade Mu, vous avez tout entendu également. Comment ce Lu Zihao se compare-t-il à cette personne dont vous parliez? » L'homme nommé Zhou lança un sourire en s'adressant à elle.
 
