@@ -92,7 +92,7 @@ De l'autre côté, Wang Lin sentait qu'il s'agissait d'une opportunité inespér
 
 Il sentait faiblement que s'il renonçait à cette chance unique, il le regretterait amèrement!
 
-Après sept minutes de lutte intérieure, une lueur froide traversa le regard de Wang Lin.
+Après un demi-bâton d'encens de lutte intérieure, une lueur froide traversa le regard de Wang Lin.
 
 « Chercher la richesse au cœur du danger! » Wang Lin avança avec une prudence extrême et sa silhouette disparut. Lorsqu'il réapparut, il se trouvait à 100 000 pieds du Daoïste aux Sept Couleurs.
 

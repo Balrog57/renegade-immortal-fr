@@ -34,7 +34,7 @@ Wang Lin fronça les sourcils, mais hocha la tête.
 
 Sans un mot, Yang Xiong sortit un morceau de jade et le plaça sur son front et murmura on ne sait quoi. Le jade brilla à plusieurs reprises, puis Yang Xiong le lança et il se changea en une lueur grise qui s'éteignit aussitôt.
 
-Quinze minutes plus tard, le sifflement d'une épée volante fendant l'air retentit au loin et une silhouette féminine, aux lèvres rouges, aux dents blanches et aux sourcils délicatement fardés, se posa. Cette personne n'était autre que Zhou Zihong.
+Un bâton d'encens plus tard, le sifflement d'une épée volante fendant l'air retentit au loin et une silhouette féminine, aux lèvres rouges, aux dents blanches et aux sourcils délicatement fardés, se posa. Cette personne n'était autre que Zhou Zihong.
 
 Elle rangea son épée volante et, au moment où elle allait parler, elle aperçut Wang Lin aux côtés de Yang Xiong; son visage pâlit instantanément.
 

@@ -62,7 +62,7 @@ Ce processus dura près de deux heures. Certains cultivateurs remarquèrent le c
 
 Deux heures plus tard, les corps des seize bêtes géantes se dissipèrent. Elles avaient toutes fusionné avec le cercle de feu. Ce dernier ne grandit pas, mais sa couleur devint d'un rouge sombre. Finalement, il éclata silencieusement en une multitude de poussières rouges avant de disparaître.
 
-À cet instant, toutes les bêtes de feu à l'intérieur de Huo Fen cessèrent tout mouvement et s'agenouillèrent au sol, émettant simultanément des sons plaintifs. Soudain, l'une d'elles s'effondra en tremblant. Si l'on regardait de près, on aurait pu voir une tache rouge apparaître sur son front. Son corps se dilata rapidement et, en moins de quinze minutes, elle atteignit 33 mètres de haut.
+À cet instant, toutes les bêtes de feu à l'intérieur de Huo Fen cessèrent tout mouvement et s'agenouillèrent au sol, émettant simultanément des sons plaintifs. Soudain, l'une d'elles s'effondra en tremblant. Si l'on regardait de près, on aurait pu voir une tache rouge apparaître sur son front. Son corps se dilata rapidement et, en moins d'un bâton d'encens, elle atteignit 33 mètres de haut.
 
 Peu après, une bête de feu après l'autre vit apparaître ces taches rouges sur son front, son corps gonflant à toute vitesse. En moins de quatre heures, toutes les bêtes de feu de Huo Fen semblaient avoir subi une métamorphose et avaient toutes atteint la même taille de 33 mètres. Leur puissance avait été multipliée par plus de dix.
 

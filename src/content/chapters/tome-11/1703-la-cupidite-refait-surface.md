@@ -62,7 +62,7 @@ Il ne permettrait absolument pas une telle chose, et il devait donc détruire le
 
 Alors qu'il fuyait, l'espace derrière lui trembla; il sentait la présence du Daoïste aux Sept Couleurs qui le traquait. Ce dernier était extrêmement puissant et son Sens Divin pouvait porter très loin, ce qui rendrait la tâche de retrouver Wang Lin bien trop facile!
 
-« Pour l'instant, je n'ai d'autre choix que de me diriger vers l'autel. Peut-être pourra-t-il me sauver. Je l'espère! » Wang Lin avait mûrement réfléchi pendant sept minutes avant de décider de pénétrer dans l'illusion du Daoïste aux Sept Couleurs.
+« Pour l'instant, je n'ai d'autre choix que de me diriger vers l'autel. Peut-être pourra-t-il me sauver. Je l'espère! » Wang Lin avait mûrement réfléchi pendant un demi-bâton d'encens avant de décider de pénétrer dans l'illusion du Daoïste aux Sept Couleurs.
 
 Non seulement il avait pesé le gain potentiel face au risque, mais il avait également utilisé l'âme de Tian Yunzi pour diviner l'avenir. Il avait découvert que l'autel représentait la voie de la survie!
 

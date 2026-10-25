@@ -40,7 +40,7 @@ Désormais arrivé dans un lieu crucial du Clan du Tonnerre Dispersé, il faisai
 
 Si le Clan du Tonnerre Dispersé l'apprenait, il serait sous le choc et terrifié. Cela dépassait l'entendement!
 
-Le passage dans la brume n'était pas long; il ne fallut qu'environ sept minutes pour le traverser. Bien que le Sens Divin de Wang Lin submerge le brouillard, personne ne remarqua rien. Après tout, le Sens Divin de Wang Lin étant lui aussi fait de tonnerre, utiliser le tonnerre pour comprendre le tonnerre ne laissait aucune faille.
+Le passage dans la brume n'était pas long; il ne fallut qu'environ un demi-bâton d'encens pour le traverser. Bien que le Sens Divin de Wang Lin submerge le brouillard, personne ne remarqua rien. Après tout, le Sens Divin de Wang Lin étant lui aussi fait de tonnerre, utiliser le tonnerre pour comprendre le tonnerre ne laissait aucune faille.
 
 Dès qu'il sortit du brouillard, Wang Lin retira son Sens Divin. Ses yeux brillèrent et une rune apparut faiblement dans son regard.
 

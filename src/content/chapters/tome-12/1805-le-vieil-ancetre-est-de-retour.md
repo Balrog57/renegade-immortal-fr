@@ -108,7 +108,7 @@ Une secte entière n'avait pu arrêter un seul homme, ne serait-ce qu'une second
 
 Cette bataille était destinée à rendre le nom de Wang Lin célèbre dans tout le Continent du Taureau Céleste!
 
-Quinze minutes après le départ de Wang Lin, les trois Anciens ayant perdu leur corps et l'homme d'âge moyen ayant perdu ses bras étaient encore plongés dans leurs pensées quand, soudain, l'homme d'âge moyen se mit à trembler. Depuis une autre direction, un rugissement de colère prodigieux retentit!
+Un bâton d'encens après le départ de Wang Lin, les trois Anciens ayant perdu leur corps et l'homme d'âge moyen ayant perdu ses bras étaient encore plongés dans leurs pensées quand, soudain, l'homme d'âge moyen se mit à trembler. Depuis une autre direction, un rugissement de colère prodigieux retentit!
 
 Dès que ce cri éclata, les couleurs du monde semblèrent changer; le feu ardent au sol s'éteignit brusquement pour ne laisser place qu'à des volutes de fumée noire s'élevant dans l'air.
 

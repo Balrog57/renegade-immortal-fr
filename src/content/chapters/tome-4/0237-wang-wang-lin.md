@@ -126,7 +126,7 @@ Les yeux d'Ying Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Pu
 
 L'homme fut stupéfait, avant d'acquiescer d'un regard comprenant la situation.
 
-À ce moment-là, un homme d'âge moyen, épuisé, sortit d'une pièce en toussant, une pile de vêtements à la main. Bien qu'il ne fût pas vieux, ses cheveux étaient déjà grisonnants et sa démarche chancelante. Le son des cloches résonnait dans toute la secte: neuf coups signifiaient que tous les disciples devaient se rassembler dans les sept minutes, faute de quoi ils seraient punis.
+À ce moment-là, un homme d'âge moyen, épuisé, sortit d'une pièce en toussant, une pile de vêtements à la main. Bien qu'il ne fût pas vieux, ses cheveux étaient déjà grisonnants et sa démarche chancelante. Le son des cloches résonnait dans toute la secte: neuf coups signifiaient que tous les disciples devaient se rassembler en moins d'un demi-bâton d'encens, faute de quoi ils seraient punis.
 
 Il n'avait pas prêté attention aux premiers coups, mais au neuvième, il fut saisi d'effroi et regarda vers la salle principale. Il était dans la Secte He Huan depuis longtemps et n'avait jamais entendu la cloche sonner neuf fois.
 
@@ -176,7 +176,7 @@ Ying Yang essuya la sueur froide qui perlait sur son front. Une fois la formatio
 
 Wang Lin ne lui adressa même pas un regard et pénétra dans le bâtiment. Aucun bruit ne sortit de la salle, mais une odeur de sang s'en échappa lentement.
 
-Sept minutes plus tard, Wang Lin en sortit calmement. D'un geste de la main, il fit s'engouffrer dans la salle le tendon de dragon tenu dans la trompe de la bête moustique, en ramenant plusieurs centaines de corps. Les visages de ces défunts étaient figés par la terreur et la haine.
+Un demi-bâton d'encens plus tard, Wang Lin en sortit calmement. D'un geste de la main, il fit s'engouffrer dans la salle le tendon de dragon tenu dans la trompe de la bête moustique, en ramenant plusieurs centaines de corps. Les visages de ces défunts étaient figés par la terreur et la haine.
 
 Tous ces êtres étaient très jeunes. Sans l'existence de Wang Lin, certains auraient sans doute atteint le stade de la Formation du Noyau, voire de l'Âme Naissante. Mais ils n'auraient pas dû porter le nom de Teng!
 

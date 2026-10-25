@@ -46,7 +46,7 @@ Des ondulations résonnèrent parmi les étoiles du Système Stellaire Antique t
 
 Cependant, son expression changea brusquement. Elle serra les dents et choisit de fusionner avec le monde pour s'échapper. Dès qu'elle disparut, des ondulations apparurent et la silhouette de Wang Lin jaillit. Il ne se montra pas, mais fit discrètement un pas en avant avant de disparaître à son tour.
 
-Leur poursuite fut brève mais intense. En moins de sept minutes, ils se croisèrent plusieurs fois, les intervalles entre leurs apparitions devenant de plus en plus courts. La femme était extrêmement anxieuse, la pression exercée par Wang Lin devenait insupportable.
+Leur poursuite fut brève mais intense. En moins d'un demi-bâton d'encens, ils se croisèrent plusieurs fois, les intervalles entre leurs apparitions devenant de plus en plus courts. La femme était extrêmement anxieuse, la pression exercée par Wang Lin devenait insupportable.
 
 Ce qui était impossible auparavant l'était désormais: elle sombrait peu à peu dans l'angoisse!
 

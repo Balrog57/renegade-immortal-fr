@@ -136,7 +136,7 @@ Dans un rayon de 500 kilomètres autour de la Vallée de Wu Feng, un enfer d'asu
 
 Le sol se teintait peu à peu de rouge. Ce rouge n'était pas très profond, car il n'y avait que cent morts, pas assez pour un fleuve de sang, mais il s'en dégageait une aura à rendre fou.
 
-Quinze minutes plus tard, Wang Lin sortit de ce périmètre de 500 kilomètres, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée de Wu Feng: Teng Gao.
+Un bâton d'encens plus tard, Wang Lin sortit de ce périmètre de 500 kilomètres, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée de Wu Feng: Teng Gao.
 
 Les yeux de Teng Gao étaient pétrifiés par la peur; cependant, parce qu'il portait le nom de Teng, il ne put rien y faire.
 
@@ -172,7 +172,7 @@ Le jeune homme agenouillé possédait un visage aussi blanc et lisse que le jade
 
 « Le même jour, cet homme est apparu à la Ville de Tian Yin et a anéanti la branche qui s'était séparée de notre famille il y a deux cents ans. Cent quatre membres de la famille Teng ont été tués, sans aucun survivant. »
 
-« Il y a deux jours, la branche collatérale de la famille Teng de la capitale, avec ses gardiens attachés, a été exterminée jusqu'au dernier. 211 personnes sont mortes en quinze minutes. »
+« Il y a deux jours, la branche collatérale de la famille Teng de la capitale, avec ses gardiens attachés, a été exterminée jusqu'au dernier. 211 personnes sont mortes le temps d'un bâton d'encens. »
 
 « Le même jour, les 27 membres de la famille Teng de la Secte Yuan Kui sont tous morts. »
 

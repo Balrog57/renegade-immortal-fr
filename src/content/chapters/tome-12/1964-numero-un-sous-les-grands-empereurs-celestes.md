@@ -42,7 +42,7 @@ Il avait échoué.
 
 Dès son entrée, il avait échoué et avait été gravement blessé lorsqu'il fut expulsé. Il ne baissa pas les yeux, mais il sentait les regards des cultivateurs en contrebas lacérer son corps comme des blessures sanglantes.
 
-Le temps passa. La quatrième respiration, la cinquième, la sixième... Jusqu'à ce que près de sept minutes s'écoulent.
+Le temps passa. La quatrième respiration, la cinquième, la sixième... Jusqu'à ce que près d'un demi-bâton d'encens s'écoule.
 
 L'Ascendant Empyréen Ming Dao endura tout cela, les yeux fixés sur le 17e palais. Il attendait que Wang Lin soit lui aussi expulsé.
 
@@ -50,7 +50,7 @@ Plus le temps passait, plus son attente grandissait. Finalement, cette attente a
 
 « Si je n'ai pas réussi, alors il ne pourra certainement pas réussir non plus! S'il ne franchit pas le palais, alors je n'aurai pas perdu! » Cette attente était suffisante pour briser n'importe quel cultivateur. Les cheveux de l'Ascendant Ming Dao étaient en désordre et ses yeux injectés de sang tandis qu'il fixait le 17e palais.
 
-Le temps s'écoula à nouveau. Sept minutes, quinze minutes... Bientôt, une heure entière s'était écoulée!
+Le temps s'écoula à nouveau. Un demi-bâton d'encens, un bâton d'encens... Bientôt, une heure entière s'était écoulée!
 
 Wang Lin n'était jamais resté aussi longtemps dans un palais, mais il était désormais au cœur du 17e. Cette heure écoulée permit à la confiance de Ming Dao de croître peu à peu, comme s'il retrouvait l'espoir.
 

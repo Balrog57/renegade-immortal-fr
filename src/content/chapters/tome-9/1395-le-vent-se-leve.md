@@ -42,7 +42,7 @@ Il restait moins d'un mois avant la Sélection des Anciens Délaissés. Wang Lin
 
 À la périphérie des Terres Déchues, sur une planète abandonnée, l'astre entier s'embrasa. Les flammes étaient bleues et enveloppèrent la planète tout entière.
 
-Cependant, ce brasier ne dura pas longtemps. Il se dissipa après sept minutes, ramenant tout à la normale. Pourtant, ces sept minutes suffirent à faire frémir la peau de tous les cultivateurs du feu des Terres Déchues!
+Cependant, ce brasier ne dura pas longtemps. Il se dissipa après un demi-bâton d'encens, ramenant tout à la normale. Pourtant, ce demi-bâton d'encens suffit à faire frémir la peau de tous les cultivateurs du feu des Terres Déchues!
 
 Peu importe leur activité, au moment où la planète s'embrasa, ils furent tous frappés de stupeur. Le feu logé en eux jaillit hors de leurs corps sans qu'ils puissent le contrôler.
 

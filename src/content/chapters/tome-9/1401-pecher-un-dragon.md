@@ -20,7 +20,7 @@ Ce feu devint de plus en plus ardent, faisant apparaître la marque de l'Oiseau 
 
 Un cri de l'Oiseau Vermillon résonna alors qu'un oiseau de feu bleu s'envolait de son œil gauche. Il s'enroula autour de Wang Lin, semblant trouver une immense sérénité dans cette union.
 
-Ce ne fut que quinze minutes plus tard que l'Oiseau Vermillon retourna dans l'œil gauche de Wang Lin et que la chaleur interne commença à refluer.
+Ce ne fut que un bâton d'encens plus tard que l'Oiseau Vermillon retourna dans l'œil gauche de Wang Lin et que la chaleur interne commença à refluer.
 
 Wang Lin prit une profonde inspiration et s'exclama: « Quel vin excellent! »
 

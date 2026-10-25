@@ -94,7 +94,7 @@ Les yeux de Wang Lin s'animèrent d'une lueur de satisfaction. D'un geste de la 
 
 Wang Lin leva les yeux vers l'horizon en attendant que le vieil homme retrouve ses esprits. La terreur dans les yeux de Qiu Siping et des autres était telle qu'aucun n'osait bouger. Même la tortue était terrifiée et n'osa plus grogner. La bête moustique profita de ce moment pour s'enfoncer dans le cou de la tortue afin d'en aspirer violemment le sang, avant de retourner satisfaite auprès du crapaud tonnerre.
 
-Sept minutes plus tard, le vieil homme Hu ouvrit les yeux. Son regard était redevenu clair. Il se leva, joignit les mains et dit: « Merci, frère Wang! » Bien qu'il paraisse serein, il éprouvait désormais une crainte encore plus profonde pour Wang Lin. Si l'épée de ce dernier avait descendu d'un centimètre de plus, il serait mort sur le coup.
+Un demi-bâton d'encens plus tard, le vieil homme Hu ouvrit les yeux. Son regard était redevenu clair. Il se leva, joignit les mains et dit: « Merci, frère Wang! » Bien qu'il paraisse serein, il éprouvait désormais une crainte encore plus profonde pour Wang Lin. Si l'épée de ce dernier avait descendu d'un centimètre de plus, il serait mort sur le coup.
 
 Bien que cela fût dû au fait qu'il ne résistait pas et n'utilisait aucun trésor magique, cette sensation de vie ou de mort était désormais gravée dans son âme. Le vieil homme Hu pensa: « La réputation ne ment pas. Il n'est pas étonnant que le nom de Ceng Niu soit devenu si célèbre. Il est véritablement redoutable. »
 

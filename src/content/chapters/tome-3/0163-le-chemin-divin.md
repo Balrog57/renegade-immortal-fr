@@ -64,13 +64,13 @@ Wang Lin prit une grande inspiration et se concentra. Ce Chemin Divin était d'u
 
 Il relut les mots: « Le disciple Chen Chong a gravé ceci de mémoire. Les futurs disciples devront cultiver avec prudence. » Il fut plus choqué encore qu'auparavant. Bien qu'il en ait entendu parler, c'était la première fois qu'il mesurait l'immense difficulté de retranscrire le Chemin Divin. Il grava le nom de Chen Chong dans son cœur.
 
-Wang Lin prit une profonde inspiration et reporta ses yeux sur le Chemin Divin. Un quart d'heure plus tard, il avait tout mémorisé à nouveau, mais le phénomène se reproduisit peu après.
+Wang Lin prit une profonde inspiration et reporta ses yeux sur le Chemin Divin. Un bâton d'encens plus tard, il avait tout mémorisé à nouveau, mais le phénomène se reproduisit peu après.
 
 Après plusieurs répétitions, le visage de Wang Lin s'assombrit. Cette fois, il ne chercha plus à mémoriser; il se contenta de lire inlassablement.
 
-La première lecture lui avait pris quarante-cinq minutes, mais désormais, quinze minutes suffisaient. Son regard devint de plus en plus vif. Bientôt, il ne lui fallut plus que sept minutes pour parcourir l'intégralité du texte.
+La première lecture lui avait pris trois bâtons d'encens, mais désormais, un seul suffisait. Son regard devint de plus en plus vif. Bientôt, il ne lui fallut plus qu'un demi-bâton d'encens pour parcourir l'intégralité du texte.
 
-Le temps passa et sa vitesse de lecture augmentait encore. D'une lecture du texte en sept minutes, il passait à trois lectures en sept minutes. Ses yeux balayaient le texte de plus en plus vite, jusqu'à ce qu'ils soient striés de sang et qu'une douleur pulsante lui lacère les orbites.
+Le temps passa et sa vitesse de lecture augmentait encore. D'une lecture du texte par demi-bâton d'encens, il passait à trois lectures par demi-bâton d'encens. Ses yeux balayaient le texte de plus en plus vite, jusqu'à ce qu'ils soient striés de sang et qu'une douleur pulsante lui lacère les orbites.
 
 Après un temps indéterminé, Wang Lin ferma inconsciemment les yeux, mais le mur de pierre semblait encore défiler devant lui.
 

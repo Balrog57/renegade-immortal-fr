@@ -22,7 +22,7 @@ Après avoir observé la sculpture sur bois, il la mit de côté et prit un nouv
 
 Le troisième était un jeune homme. C'était Teng Li, celui qui l'avait traqué autrefois. En pensant à Teng Li, le cœur de Wang Lin fut parcouru d'un tressaillement, mais il se calma rapidement une fois de plus.
 
-Les scènes de son combat contre Teng Li résonnèrent dans son esprit. Après un long moment, son doigt droit se mua en couteau et il entama son travail sur le bois. Sept minutes plus tard, la sculpture de Teng Li était achevée.
+Les scènes de son combat contre Teng Li résonnèrent dans son esprit. Après un long moment, son doigt droit se mua en couteau et il entama son travail sur le bois. Un demi-bâton d'encens plus tard, la sculpture de Teng Li était achevée.
 
 Cet homme était très beau, mais une arrogance extrême se lisait sur son visage. Sa main droite formait un sceau, son regard était sombre, dissimulant une cupidité profonde, tandis qu'un léger sourire se dessinait au coin de sa bouche.
 

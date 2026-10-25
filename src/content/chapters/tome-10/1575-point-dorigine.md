@@ -48,7 +48,7 @@ Le sang coula du coin de sa bouche. Ses organes internes semblaient se tordre, s
 
 La déchirure entre son corps céleste et sa chair physique était comparable à l'arrachement de l'âme d'un être vivant. C'était une douleur indescriptible, que nul ne pouvait comprendre sans l'avoir vécue.
 
-Le temps passa lentement; en un éclair, sept minutes s'écoulèrent. La pièce n'était plus habitée que par le souffle rauque de Wang Lin. Son index avait déjà tracé la majeure partie du tatouage; il n'en restait qu'un petit fragment.
+Le temps passa lentement; en un éclair, un demi-bâton d'encens s'écoula. La pièce n'était plus habitée que par le souffle rauque de Wang Lin. Son index avait déjà tracé la majeure partie du tatouage; il n'en restait qu'un petit fragment.
 
 Ses yeux devinrent injectés de sang et les veines de sa main droite se gonflèrent de manière spectaculaire, offrant un spectacle terrifiant. Non seulement sa main, mais les veines de son visage étaient également saillantes, ondulant comme si la force de rejet menaçait d'éclater hors de son corps.
 
@@ -60,7 +60,7 @@ C'était même bien plus éprouvant que cela!
 
 Ce tatouage ne pouvait être ouvert que par cette méthode. Si l'on n'utilisait que l'énergie céleste, on échouerait. Si l'on n'utilisait que l'énergie ancienne, on échouerait également. Et si l'on ne possédait ni l'une ni l'autre, on aurait beau détruire et raffiner toute la planète Suzaku, on ne pourrait entamer le tatouage!
 
-Le temps s'étira. Wang Lin mit près de quinze minutes pour achever ce dernier fragment. Lorsqu'il eut terminé et que son doigt engourdi revint à sa position initiale, une puissante force de rejet jaillit du tatouage pour pénétrer dans sa main droite.
+Le temps s'étira. Wang Lin mit près d'un bâton d'encens entier pour achever ce dernier fragment. Lorsqu'il eut terminé et que son doigt engourdi revint à sa position initiale, une puissante force de rejet jaillit du tatouage pour pénétrer dans sa main droite.
 
 Dans un fracas assourdissant, Wang Lin fut projeté en arrière. Une lumière émana de son corps et le Bouclier de Lumière et d'Ombre s'activa, mais il ne tint que quelques respirations avant de se briser.
 

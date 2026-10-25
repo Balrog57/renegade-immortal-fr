@@ -80,7 +80,7 @@ Le gant portait de nombreuses marques de combat: des entailles d'épée et des f
 
 « Un sort ancien est aussi dissimulé dans ce trésor... Tout comme le sort Rêve des Temps Anciens du Bouclier de Lumière Azur, c'est un sort de survie... Malheureusement, il n'a pu sauver la vie de cet ancien dieu. » L'expression de Wang Lin se fit complexe tandis que son énergie d'ancien dieu s'engouffrait dans le gant.
 
-« Sort Divin de l'Ancien Dieu à 8 Étoiles: Protection Ancestrale! Ce sort ne figure pas dans la mémoire de Tu Si. » Wang Lin resta immergé dans le sort contenu par le gant et ne reprit ses esprits qu'après quinze minutes.
+« Sort Divin de l'Ancien Dieu à 8 Étoiles: Protection Ancestrale! Ce sort ne figure pas dans la mémoire de Tu Si. » Wang Lin resta immergé dans le sort contenu par le gant et ne reprit ses esprits qu'après un bâton d'encens.
 
 « Si ce sort est combiné au Bouclier de Lumière et d'Ombre, il sera d'une puissance redoutable! »
 

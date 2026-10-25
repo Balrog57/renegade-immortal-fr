@@ -62,7 +62,7 @@ Il ne restait plus un seul grain de gravier sur la terre située entre les quatr
 
 À mesure que les jades célestes se dissipaient, la terre absorbait cette énergie dense, et la rune devint de plus en plus nette, émettant une douce lueur.
 
-En l'espace de quinze minutes, plusieurs centaines de milliers de jades célestes furent consommés. La rune brilla de plus en plus intensément jusqu'à ce que le continent sauvage entier soit illuminé!
+En l'espace d'un bâton d'encens, plusieurs centaines de milliers de jades célestes furent consommés. La rune brilla de plus en plus intensément jusqu'à ce que le continent sauvage entier soit illuminé!
 
 « Formation céleste, activez! » rugit Cang Songzi, sa voix résonnant comme un coup de tonnerre. À cet instant, la rune au sol projeta un éclat violent et une secousse tellurique ébranla tout l'espace.
 

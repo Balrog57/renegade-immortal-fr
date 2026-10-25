@@ -26,7 +26,7 @@ Le vieil homme aux côtés de Lu Yuncong écoutait toujours. En entendant son Ma
 
 Lu Yuncong fronça les sourcils et commença à méditer. Cette fois, sa réflexion fut bien plus longue que la précédente. Li Qianmei ne manifesta aucune impatience, attendant silencieusement la réponse de Lu Yuncong.
 
-Après quinze minutes, Lu Yuncong prononça lentement: « Le ciel est... un chemin! »
+Un bâton d'encens plus tard, Lu Yuncong prononça lentement: « Le ciel est... un chemin! »
 
 Li Qianmei réfléchit un instant et demanda doucement: « Pourquoi? »
 

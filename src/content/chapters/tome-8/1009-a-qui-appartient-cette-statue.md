@@ -18,7 +18,7 @@ Face à un tel ennemi, tenter une attaque surprise était inutile.
 
 Les environs étaient plongés dans un silence absolu, seule la fragrance ténue des fleurs et la chute des pétales formant une mer de fleurs délicates.
 
-Le temps s'écoula lentement dans leur silence à tous deux. Après quinze minutes, la femme en blanc ouvrit les yeux et regarda le corps de Qing Shuang. Elle entrouvrit la bouche, comme si elle s'apprêtait à parler.
+Le temps s'écoula lentement dans leur silence à tous deux. Après le temps d'un bâton d'encens, la femme en blanc ouvrit les yeux et regarda le corps de Qing Shuang. Elle entrouvrit la bouche, comme si elle s'apprêtait à parler.
 
 Cependant, à cet instant précis, un grondement retentit au loin dans la grotte. Dans ce silence oppressant, ce bruit fut d'une violence extrême!
 

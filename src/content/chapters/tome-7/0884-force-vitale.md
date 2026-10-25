@@ -48,7 +48,7 @@ Cependant, Wang Lin avait cultivé le domaine de la Vie et de la Mort dès sa pr
 
 À cet instant, son énergie d'origine circula et les poissons Yin et Yang commencèrent à pivoter autour de lui. L'aura de mort fut repoussée, l'empêchant d'être gravement blessé.
 
-Le ravin semblait sans fin. Wang Lin descendait très vite, mais même après sept minutes, il ne percevait toujours pas le fond. Il garda une expression calme tout en faisant circuler son énergie d'origine et en activant son domaine du Karma.
+Le ravin semblait sans fin. Wang Lin descendait très vite, mais même après un demi-bâton d'encens, il ne percevait toujours pas le fond. Il garda une expression calme tout en faisant circuler son énergie d'origine et en activant son domaine du Karma.
 
 Après un long moment, alors que l'aura de mort devenait si dense que même les poissons Yin et Yang furent ralentis par son influence, son corps tressaillit lorsqu'il toucha enfin le sol.
 
@@ -56,7 +56,7 @@ Ce qui se dressait devant lui était un tunnel. Ce passage était plongé dans u
 
 « Viens ici! » La voix antique résonna dans ce tunnel silencieux, dégageant une sensation troublante. Wang Lin réfléchit un instant, puis ses yeux s'animèrent d'une détermination farouche et il s'engagea dans le passage.
 
-Le tunnel n'était pas très long. Après sept minutes de marche, Wang Lin atteignit le bout. Ce qu'il vit fit brusquement se rétracter ses pupilles!
+Le tunnel n'était pas très long. Après un demi-bâton d'encens de marche, Wang Lin atteignit le bout. Ce qu'il vit fit brusquement se rétracter ses pupilles!
 
 Des crânes humains!
 

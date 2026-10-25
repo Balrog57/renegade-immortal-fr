@@ -78,7 +78,7 @@ Après avoir réfléchi un moment, les yeux de Wang Lin s'illuminèrent et il fr
 
 Ce fragment d'âme arborait une expression féroce, mais il avait depuis longtemps perdu sa volonté après avoir été raffiné dans l'Étendard de l'Âme. Il flotta respectueusement devant Wang Lin. Ce dernier rangea l'étendard et pointa l'espace entre les sourcils du fragment d'âme, y laissant une parcelle de son sens divin.
 
-Une fois cela fait, il s'élança en avant. Quinze minutes plus tard, il se trouvait très loin du fragment d'âme. Il prit une profonde inspiration mais ne déploya pas son sens divin. Au lieu de cela, il mit sa pensée en mouvement!
+Une fois cela fait, il s'élança en avant. Un bâton d'encens plus tard, il se trouvait très loin du fragment d'âme. Il prit une profonde inspiration mais ne déploya pas son sens divin. Au lieu de cela, il mit sa pensée en mouvement!
 
 Le sens divin laissé sur le fragment d'âme se propagea. Cependant, à cet instant précis, un sentiment de danger inimaginable envahit l'esprit de Wang Lin. Il rompit immédiatement sa connexion sans la moindre hésitation.
 

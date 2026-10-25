@@ -82,7 +82,7 @@ La condensation fut extrêmement rapide et, en un instant, les particules de bru
 
 La brume finit par se condenser et plus de cent bêtes noires féroces apparurent dans le ciel. Ces créatures avaient toutes des apparences distinctes et dégageaient une aura lugubre. Bientôt, de bas rugissements capables de transpercer l'âme retentirent.
 
-L'expression de l'ancêtre du Clan des Immortels Élus devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec d'environ 3,3 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun combatte de son côté et nettoie cette brume en moins de sept minutes! Ne laissez aucune bête de brume de forme humaine apparaître! »
+L'expression de l'ancêtre du Clan des Immortels Élus devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec d'environ 3,3 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun combatte de son côté et nettoie cette brume en moins d'un demi-bâton d'encens! Ne laissez aucune bête de brume de forme humaine apparaître! »
 
 Son corps vacilla et il se précipita aussitôt vers une bête qui venait de surgir. Sa main frappa le pot, et une puissante force d'aspiration jaillit de l'ouverture.
 

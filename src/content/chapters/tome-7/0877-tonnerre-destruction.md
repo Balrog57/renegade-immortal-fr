@@ -44,7 +44,7 @@ Cependant, la différence entre leurs niveaux de culture était trop vaste. Just
 
 Un rugissement tonitruant retentit, mais la fourmi ignora totalement l'impact et continua sa charge. Ses mandibules dégageaient une aura glaciale alors qu'elles se refermaient impitoyablement sur Shengong Hu.
 
-Shengong Hu esquissa un sourire amer. Depuis son apparition jusqu'à présent, moins de sept minutes s'étaient écoulées, et il les avait toutes passées à lutter pour sa survie. Il n'avait pas encore réussi à tuer qui que ce soit et il était sur le point d'être éliminé du champ de bataille.
+Shengong Hu esquissa un sourire amer. Depuis son apparition jusqu'à présent, moins d'un demi-bâton d'encens s'étaient écoulées, et il les avait toutes passées à lutter pour sa survie. Il n'avait pas encore réussi à tuer qui que ce soit et il était sur le point d'être éliminé du champ de bataille.
 
 Pourtant, à cet instant précis, les yeux de Shengong Hu furent remplis de surprise. Il sentit une aura familière approcher soudainement. Un éclat doré jaillit et une voix froide emplit les cieux et la terre.
 

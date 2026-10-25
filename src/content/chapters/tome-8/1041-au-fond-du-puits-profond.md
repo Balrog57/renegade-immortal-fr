@@ -100,7 +100,7 @@ Wang Lin fixa le fond et resta immobile. Après un long moment, son énergie ori
 
 Grâce à la lumière de cette mer de flammes, même l'obscurité que son Sens Divin ne pouvait pénétrer se dispersa quelque peu. Wang Lin continua sa descente. Ce regard avait semé un doute profond dans son cœur et il commença à émettre quelques spéculations.
 
-À mesure qu'il descendait, la glace se faisait plus dense. Après sept minutes de descente, Wang Lin atteignit le fond du puits. À ce point, il pouvait clairement voir tout ce qui l'entourait: c'était un monde de glace. De gigantesques blocs de glace encadraient la zone, rendant l'endroit extrêmement périlleux.
+À mesure qu'il descendait, la glace se faisait plus dense. Après un demi-bâton d'encens de descente, Wang Lin atteignit le fond du puits. À ce point, il pouvait clairement voir tout ce qui l'entourait: c'était un monde de glace. De gigantesques blocs de glace encadraient la zone, rendant l'endroit extrêmement périlleux.
 
 Chaque bloc de glace renfermait un cadavre d'un réalisme saisissant. Leurs corps avaient été figés au moment précis de leur mort. Ce puits profond et silencieux, inaccessible à quiconque, fit naître un frisson dans le cœur de Wang Lin.
 

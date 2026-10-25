@@ -86,7 +86,7 @@ Ce phénomène troubla profondément Wang Lin. Il ignorait pourquoi, mais voir c
 
 Après réflexion, le corps de Wang Lin s'enfonça silencieusement sous la neige. Il voulait découvrir le mystère qui se cachait derrière tout cela.
 
-Ne pouvant déployer toute sa puissance au sein de la neige, il lui fallut près de trente minutes pour atteindre le sol. Une fois arrivé, il n'hésita pas et s'enfonça plus profondément grâce à sa technique d'évasion tellurique.
+Ne pouvant déployer toute sa puissance au sein de la neige, il lui fallut près de deux bâtons d'encens pour atteindre le sol. Une fois arrivé, il n'hésita pas et s'enfonça plus profondément grâce à sa technique d'évasion tellurique.
 
 À environ 13,2 kilomètres sous terre, Wang Lin s'arrêta. Son visage trahissait une inquiétude mêlée d'une pointe de surprise. Il remarqua qu'à 16,5 kilomètres de profondeur, quelqu'un avait réussi à creuser une grotte. Cette cavité semblait infinie; Wang Lin pressentit que cette grotte s'étendait sous toute l'Alliance des Quatre Sectes.
 

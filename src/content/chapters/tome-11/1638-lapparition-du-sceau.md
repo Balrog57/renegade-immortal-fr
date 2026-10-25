@@ -34,7 +34,7 @@ Les environs étaient plongés dans un silence absolu, comme si tel était l'ét
 
 Après une courte réflexion, la voix d'Oiseau Vermillon résonna: « Il ne faisait pas partie de mon plan initial. Je suis surpris qu'il soit le premier à arriver ici... »
 
-« Cet enfant n'est pas ordinaire; il est le premier cultivateur défiant les cieux à atteindre la troisième étape. Malheureusement, il est un cultivateur du royaume inférieur. S'il venait du Continent Astral Immortel, il serait déjà célèbre! Cependant, il ne devrait pas tenter de fouiller l'âme de ce Soldat Céleste. Le sceau du Souverain Céleste est une chose que même nous ne pourrions briser, même en joignant nos forces. Je crains qu'il ne meure en moins de sept minutes... Quel dommage, c'est regrettable... » Une quatrième voix, empreinte de regret, émana de la dernière statue.
+« Cet enfant n'est pas ordinaire; il est le premier cultivateur défiant les cieux à atteindre la troisième étape. Malheureusement, il est un cultivateur du royaume inférieur. S'il venait du Continent Astral Immortel, il serait déjà célèbre! Cependant, il ne devrait pas tenter de fouiller l'âme de ce Soldat Céleste. Le sceau du Souverain Céleste est une chose que même nous ne pourrions briser, même en joignant nos forces. Je crains qu'il ne meure en moins d'un demi-bâton d'encens... Quel dommage, c'est regrettable... » Une quatrième voix, empreinte de regret, émana de la dernière statue.
 
 Leurs voix se dissipèrent peu à peu et le silence revint. Même Oiseau Vermillon poussa un soupir intérieur. Il connaissait Wang Lin, mais il ne pensait pas que celui-ci pourrait briser le sceau du Souverain Céleste.
 

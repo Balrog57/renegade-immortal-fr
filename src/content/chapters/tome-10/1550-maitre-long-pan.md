@@ -66,7 +66,7 @@ Des cris déchirants résonnèrent à travers les étoiles. Même Maître Yan Le
 
 Observant cette scène avec une certaine satisfaction, il ressentit un respect encore plus profond pour la cruauté de Wang Lin.
 
-Ces quelque dix mille cultivateurs étaient impuissants. Le dragon noir, consumé par la peur et le désespoir, sembla presque perdre la raison lorsqu'il comprit que Wang Lin lui offrirait la vie. En sept minutes à peine, aucun cultivateur du Royaume Extérieur ne resta en vie!
+Ces quelque dix mille cultivateurs étaient impuissants. Le dragon noir, consumé par la peur et le désespoir, sembla presque perdre la raison lorsqu'il comprit que Wang Lin lui offrirait la vie. En un demi-bâton d'encens à peine, aucun cultivateur du Royaume Extérieur ne resta en vie!
 
 Tous les cultivateurs furent dévorés, leurs âmes intégrant désormais le royaume des Flammes Joss au sein de l'animal. La chair et le sang de ces êtres fusionnèrent avec son corps, conférant au dragon une lueur pourpre!
 

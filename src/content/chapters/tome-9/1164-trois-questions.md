@@ -64,7 +64,7 @@ Le vieil homme sembla soudain réaliser la situation et fut envahi par l'incréd
 
 L'homme d'âge moyen sourit, puis parla à voix basse, comme dans un monologue.
 
-« Ce mystérieux cultivateur est intelligent; il a offert une excuse aux sectes de rang 6. Peu importe l'issue finale, grâce à cette explication, leur désastre sera bien moindre. Pourquoi n'y a-t-il aucun cultivateur au stade Briseur du Nirvana parmi les escouades de recherche? Il n'y a que des Purificateurs de Nirvana qui traquent un individu capable d'éliminer un Briseur du Nirvana en moins de quinze minutes... Si j'étais le maître de l'une des sectes de rang 6, je l'aiderais probablement à effacer toutes les traces. De cette façon, seule la Secte des Cinq Poisons serait anéantie! »
+« Ce mystérieux cultivateur est intelligent; il a offert une excuse aux sectes de rang 6. Peu importe l'issue finale, grâce à cette explication, leur désastre sera bien moindre. Pourquoi n'y a-t-il aucun cultivateur au stade Briseur du Nirvana parmi les escouades de recherche? Il n'y a que des Purificateurs de Nirvana qui traquent un individu capable d'éliminer un Briseur du Nirvana en moins d'un bâton d'encens... Si j'étais le maître de l'une des sectes de rang 6, je l'aiderais probablement à effacer toutes les traces. De cette façon, seule la Secte des Cinq Poisons serait anéantie! »
 
 Le vieil homme à ses côtés était totalement stupéfait. Il regarda l'homme d'âge moyen avec un mélange de révérence et d'effroi; une trace de peur perçait même dans son regard.
 

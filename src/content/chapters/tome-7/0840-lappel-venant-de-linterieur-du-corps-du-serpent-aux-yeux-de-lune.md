@@ -70,7 +70,7 @@ Toujours debout sur le grand fourneau, Wang Lin accéléra pour se précipiter v
 
 « Viens... Viens... »
 
-Wang Lin pressa le pas. Sept minutes plus tard, l'appel résonna dans son corps comme un coup de tonnerre. C'est alors qu'il vit enfin ce qui l'appelait.
+Wang Lin pressa le pas. Un demi-bâton d'encens plus tard, l'appel résonna dans son corps comme un coup de tonnerre. C'est alors qu'il vit enfin ce qui l'appelait.
 
 Ce que Wang Lin découvrit fit violemment trembler son corps et ses pupilles se rétractèrent brusquement!
 

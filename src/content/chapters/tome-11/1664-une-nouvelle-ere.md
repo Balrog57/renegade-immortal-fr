@@ -18,7 +18,7 @@ Après son apparition, elle ne se dissipa pas comme les sept autres esprits. Ell
 
 Allait-elle choisir de reconnaître Wang Lin comme son maître, ou s'autodétruire?
 
-Le temps passa lentement. Le grondement de la Formation de Scellement du Royaume devint encore plus assourdissant. Après sept minutes, Wang Lin fronça les sourcils en voyant que la hache restait immobile.
+Le temps passa lentement. Le grondement de la Formation de Scellement du Royaume devint encore plus assourdissant. Après un demi-bâton d'encens, Wang Lin fronça les sourcils en voyant que la hache restait immobile.
 
 « Puisque tu ne veux pas me suivre, alors disparais! » Wang Lin leva sa main droite et pressa la Hache Brise-Ciel. La formation s'effondra plus rapidement encore; la hache trembla, puis son corps gigantesque vola vers Wang Lin.
 

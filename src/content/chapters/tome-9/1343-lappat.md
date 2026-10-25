@@ -86,7 +86,7 @@ L'homme d'âge moyen, toujours en pleine rétribution, sentit son cuir chevelu p
 
 Le temps passa. Bientôt, une autre personne sortit de la brèche. Ce nouveau venu était très prudent et déploya d'immenses protections autour de lui dès son apparition. Cependant, d'un simple geste de Wang Lin, toutes ces protections s'effondrèrent avec son corps. Le cultivateur poussa un cri déchirant avant de mourir!
 
-En seulement quinze minutes, plus d'une douzaine de membres du Clan du Tonnerre Dispersé s'étaient présentés, utilisant l'homme d'âge moyen comme appât. Pourtant, sans exception, tous furent tués dès leur apparition.
+En seulement le temps d'un bâton d'encens, plus d'une douzaine de membres du Clan du Tonnerre Dispersé s'étaient présentés, utilisant l'homme d'âge moyen comme appât. Pourtant, sans exception, tous furent tués dès leur apparition.
 
 L'homme d'âge moyen, plongé dans sa rétribution, était désormais anesthésié par la terreur qui ne cessait de croître en lui. Il esquissa un sourire amer et décida simplement de fermer les yeux pour ne plus rien voir.
 

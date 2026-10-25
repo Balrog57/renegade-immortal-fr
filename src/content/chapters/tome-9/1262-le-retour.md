@@ -48,7 +48,7 @@ Leurs échanges portaient principalement sur des concepts élevés, mais certain
 
 Alors que Wang Lin parlait, deux rayons de lumière volèrent vers le pavillon et se transformèrent en deux hommes d'âge moyen. Les deux se tinrent respectueusement à l'extérieur, et l'un d'eux joignit les mains. « Le disciple a apporté les âmes d'Yin extrême. Maître de la Secte, veuillez les examiner. »
 
-L'expression de Wang Lin était calme; il ne daigna même pas regarder l'extérieur du pavillon tout en continuant de parler. Ce n'est qu'au bout de sept minutes, une fois son discours terminé, qu'il tourna le regard vers l'extérieur.
+L'expression de Wang Lin était calme; il ne daigna même pas regarder l'extérieur du pavillon tout en continuant de parler. Ce n'est qu'au bout d'un demi-bâton d'encens, une fois son discours terminé, qu'il tourna le regard vers l'extérieur.
 
 Le maître de la Secte Éternelle, absorbé par les paroles de Wang Lin, laissa échapper un sourire amer. Ce que Wang Lin venait de dire semblait vide de sens, tout en paraissant pourtant signifiant. En somme, c'était très étrange.
 
@@ -74,7 +74,7 @@ Il avait senti l'aura d'ancien dieu sous la montagne devenir encore plus intense
 
 C'est pourquoi il devait partir précipitamment!
 
-En seulement quinze minutes passées sur cette montagne, la sixième étoile effondrée s'était reformée pour devenir un léger vortex. Bien qu'elle ne fût pas totalement restaurée, la différence avec son état antérieur était celle du ciel à la terre!
+En seulement un bâton d'encens passé sur cette montagne, la sixième étoile effondrée s'était reformée pour devenir un léger vortex. Bien qu'elle ne fût pas totalement restaurée, la différence avec son état antérieur était celle du ciel à la terre!
 
 « C'est dommage... Cependant, tant que personne ne s'en aperçoit, j'aurai de nombreuses occasions d'absorber davantage d'énergie d'ancien dieu en ce lieu! Même cette épée formée par une étoile finira entre mes mains! » L'expression de Wang Lin resta neutre tandis qu'il se calmait pour suivre le disciple de la Secte Éternelle.
 

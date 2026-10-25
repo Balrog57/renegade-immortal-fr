@@ -19,9 +19,9 @@ En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire st
 
 Un autre homme suivait l'homme d'âge moyen; les deux se ressemblaient comme deux gouttes d'eau.
 
-Le garçon à la grosse tête balaya la planète Suzaku de son sens divin et laissa paraître un soupçon de mépris. S'il voulait détruire cette planète, ce serait trop facile. Il déclara simplement: « Je vous donne quinze minutes. Tuez tous les cultivateurs d'ici pour moi! »
+Le garçon à la grosse tête balaya la planète Suzaku de son sens divin et laissa paraître un soupçon de mépris. S'il voulait détruire cette planète, ce serait trop facile. Il déclara simplement: « Je vous donne le temps d'un bâton d'encens. Tuez tous les cultivateurs d'ici pour moi! »
 
-Les deux frères rirent. L'un d'eux dit: « Messager Céleste, soyez rassuré. Avec une planète de culture pareille, quinze minutes ne sont pas nécessaires. Il ne nous faudra que sept! » Sur ces mots, il chargea comme une météorite vers la planète Suzaku.
+Les deux frères rirent. L'un d'eux dit: « Messager Céleste, soyez rassuré. Avec une planète de culture pareille, un bâton d'encens n'est pas nécessaire. Il ne nous faudra que la moitié! » Sur ces mots, il chargea comme une météorite vers la planète Suzaku.
 
 Son frère le suivit, chargé d'une intention meurtrière. En un clin d'œil, les deux percèrent l'atmosphère et atterrirent sur la planète Suzaku.
 

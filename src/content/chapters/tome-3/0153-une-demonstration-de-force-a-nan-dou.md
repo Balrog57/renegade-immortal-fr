@@ -76,7 +76,7 @@ Les deux autres cultivateurs firent demi-tour et s'enfuirent sans dire un mot. W
 
 Toutefois, il fut un instant trop tard. Après un éclair cristallin, un large trou apparut dans la poitrine du cultivateur.
 
-Sept minutes plus tard, le cultivateur qui affrontait les frères Mu succombait à l'attaque sournoise de Shang Guanmo. Wang Lin rangea l'épée cristalline dans son corps et le démon retourna à contrecœur dans le tendon de dragon.
+Un demi-bâton d'encens plus tard, le cultivateur qui affrontait les frères Mu succombait à l'attaque sournoise de Shang Guanmo. Wang Lin rangea l'épée cristalline dans son corps et le démon retourna à contrecœur dans le tendon de dragon.
 
 « Continuez à me guider! » La voix de Wang Lin était glaciale, empreinte d'une intention meurtrière oppressante.
 

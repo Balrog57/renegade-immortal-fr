@@ -74,7 +74,7 @@ Zhao Yu fronça les sourcils en observant la foule de mortels. La pluie rebondis
 
 Les villageois étaient trempés et le froid mordant envahissait leurs corps. Les adultes tenaient bon, mais les enfants, grelottants, se serraient contre leurs parents.
 
-Ils attendaient depuis près de quinze minutes, mais le cultivateur ne s'était toujours pas exprimé.
+Ils attendaient depuis près d'un bâton d'encens, mais le cultivateur ne s'était toujours pas exprimé.
 
 « Imm... Immortel, la pluie est glaciale et les enfants sont fragiles. Ils ne peuvent plus supporter cela. Et si... » L'homme corpulent qui avait accueilli Wang Lin commença à parler. Sa petite fille était déjà devenue livide de froid.
 

@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 155 - After Image Sword Cultivation
 slug: cultivation-de-lepee-par-image-remanente
 ---
-Si cette impasse devait se poursuivre, ce serait une catastrophe pour Jie Donglei. Après tout, la formation ne durerait que trente minutes, et la moitié du temps s'était déjà écoulée. Il réfléchit intensément à la marche à suivre.
+Si cette impasse devait se poursuivre, ce serait une catastrophe pour Jie Donglei. Après tout, la formation ne durerait que deux bâtons d'encens, et la moitié du temps s'était déjà écoulée. Il réfléchit intensément à la marche à suivre.
 
 À l'origine, il avait prévu d'utiliser les cultivateurs de la Formation du Noyau pour piéger Wang Lin le temps de préparer son attaque. Cependant, au moment crucial, la peur de la mort avait submergé ces anciens, les forçant à battre en retraite. Sa seule option était désormais d'agir seul, mais il n'avait pas prévu que Wang Lin serait capable de percer les failles de la formation.
 

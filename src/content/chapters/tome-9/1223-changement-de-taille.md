@@ -86,7 +86,7 @@ En ressentant l'âme de Tian Yunzi, Wang Lin perçut clairement son désir pour 
 
 La brume pénétra l'âme originelle de Wang Lin pour se diriger directement vers le Sceau Céleste. L'âme de Tian Yunzi commença à l'absorber avec frénésie; au fil de cette ingestion, elle semblait passer du stade d'illusion à celui de réalité, dotée de chair et de sang. Wang Lin eut l'impression de contempler le véritable Tian Yunzi plutôt qu'une simple fusion d'âmes issues de ses avatars!
 
-Le temps s'écoula lentement. Après quinze minutes, les os ne produisaient plus aucune brume. Tout ce qui avait pénétré le corps de Wang Lin fut absorbé par l'âme de Tian Yunzi, qui s'assit alors pour digérer cette essence, comme en pleine culture. Le sentiment que Wang Lin détestait tant devint de plus en plus tangible.
+Le temps s'écoula lentement. Au bout d'un bâton d'encens, les os ne produisaient plus aucune brume. Tout ce qui avait pénétré le corps de Wang Lin fut absorbé par l'âme de Tian Yunzi, qui s'assit alors pour digérer cette essence, comme en pleine culture. Le sentiment que Wang Lin détestait tant devint de plus en plus tangible.
 
 « Très intéressant... » Après une observation prolongée, Wang Lin retira son Sens Divin. Son regard se posa sur la courte épée logée dans les os.
 

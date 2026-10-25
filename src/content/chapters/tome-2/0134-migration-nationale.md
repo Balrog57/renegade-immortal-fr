@@ -32,7 +32,7 @@ Situ Nan avait toujours voulu qu'il emprunte la voie démoniaque, mais Wang Lin 
 
 Au-dessus d'une chaîne de montagnes non volcaniques, chose rare à Huo Fen, Wang Lin fit un tour. Après avoir choisi un emplacement, il atterrit et le morceau de métal en jaillit pour creuser rapidement une grotte-demeure dans la montagne.
 
-Quinze minutes plus tard, la grotte était achevée. Wang Lin y pénétra, utilisa les gravats pour placer quelques formations de confusion, puis scella l'entrée.
+Un bâton d'encens plus tard, la grotte était achevée. Wang Lin y pénétra, utilisa les gravats pour placer quelques formations de confusion, puis scella l'entrée.
 
 Une fois tout cela terminé, il s'assit au sol, sortit les sacs de stockage obtenus auprès de l'homme d'âge moyen et de Sun Youcai, et les fouilla. Il en retira trois fragments de jade.
 

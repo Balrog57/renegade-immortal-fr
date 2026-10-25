@@ -76,7 +76,7 @@ La respiration du vieux Oiseau Vermillon s'accéléra encore. Il agita la main e
 
 « Je ne peux que vous le montrer, je ne peux pas l'ouvrir. Si je le faisais, cela causerait des dégâts colossaux ici! » Le vieux Oiseau Vermillon mordit le bout de sa langue et cracha un jet de sang chargé de sa culture du Vide Arcanique vers la tempête. Le sang se transforma en une brume monstrueuse qui fusionna avec la tempête pour la faire disparaître progressivement.
 
-Il fallut sept minutes avant que la tempête ne s'évanouisse totalement. La Planète du Grand Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
+Il fallut un demi-bâton d'encens avant que la tempête ne s'évanouisse totalement. La Planète du Grand Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
 
 Bien que ce phénomène n'ait pas duré longtemps, il avait laissé Wang Lin le cuir chevelu hérissé et le regard étincelant. Bien que le sort n'ait pas été pleinement activé, Wang Lin en avait perçu l'essence. Son cœur battait la chamade.
 

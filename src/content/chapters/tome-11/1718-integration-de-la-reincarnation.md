@@ -60,7 +60,7 @@ Une lueur froide passa dans ses yeux et Qing Lin suivit le fil.
 
 « Je veux voir si c'est le corps original de Tian Yunzi qui cause ce problème ou quelqu'un d'autre! » L'expression de Qing Lin était sombre alors qu'il poursuivait cette ligne vers l'infini.
 
-Environ sept minutes plus tard, après avoir poursuivi sa course, il fut stoppé par un éclat de lumière aux sept couleurs qui brillait là où le fil se prolongeait.
+Environ un demi-bâton d'encens plus tard, après avoir poursuivi sa course, il fut stoppé par un éclat de lumière aux sept couleurs qui brillait là où le fil se prolongeait.
 
 Une voix ancienne résonna dès que la lumière apparut.
 

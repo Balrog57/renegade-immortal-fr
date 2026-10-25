@@ -76,7 +76,7 @@ Réflexion et réfraction de la lumière!
 
 Grâce à cette force de réflexion, l'énergie destructrice fut redirigée vers l'espace infini, au-delà du Clan de la Soie Bleue.
 
-Les grondements tonitruants persistèrent pendant sept minutes avant de s'estomper enfin. L'ombre lumineuse disparut et Wang Lin esquissa un sourire amer. Devant lui, la sphère vortex et le Sceau Céleste s'étaient déjà séparés, émettant une lueur spectrale.
+Les grondements tonitruants persistèrent pendant un demi-bâton d'encens avant de s'estomper enfin. L'ombre lumineuse disparut et Wang Lin esquissa un sourire amer. Devant lui, la sphère vortex et le Sceau Céleste s'étaient déjà séparés, émettant une lueur spectrale.
 
 « Cette fusion est un peu... trop dangereuse. » Wang Lin sourit encore plus amèrement. Il ne s'attendait pas à ce qu'une fusion forcée provoque un impact aussi dévastateur.
 

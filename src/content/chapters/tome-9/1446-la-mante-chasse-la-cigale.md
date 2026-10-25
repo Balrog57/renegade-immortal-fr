@@ -72,6 +72,6 @@ Cependant, à cet instant précis, un cri de détresse retentit dans le monde: �
 
 Le temps s'écoula et les vingt secondes passèrent en un instant. La lumière spectrale des jades se dissipa rapidement et la brume rouge montra de nouveau des signes d'activité. Bientôt, elle redevint pleinement active.
 
-Quinze minutes passèrent et le cadavre ouvrit les yeux. Son apparence changea brusquement pour redevenir celle du savant d'âge moyen.
+Un bâton d'encens se consuma et le cadavre ouvrit les yeux. Son apparence changea brusquement pour redevenir celle du savant d'âge moyen.
 
 « Il semble que personne ne se soit introduit ici... » Les yeux du savant s'illuminèrent alors qu'il reprenait sa marche vers la brume rouge.

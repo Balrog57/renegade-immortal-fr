@@ -32,7 +32,7 @@ Wang Lin leva les yeux vers la lune et dit d'une voix lente: « Nous devons part
 
 « Attends un instant. Le petit empereur de ce pays a été plutôt aimable envers moi, laisse-moi le récompenser. » Sur ces mots, Situ Nan disparut.
 
-Sept minutes plus tard, la silhouette de Situ Nan réapparut soudainement aux côtés de Wang Lin dans un éclat de rire: « Allons-y! Il est temps de quitter la planète Suzaku!!! »
+Un demi-bâton d'encens plus tard, la silhouette de Situ Nan réapparut soudainement aux côtés de Wang Lin dans un éclat de rire: « Allons-y! Il est temps de quitter la planète Suzaku!!! »
 
 Il sauta sur le dos du moustique. La bête, déjà terrifiée par lui, poussa un cri et s'élança vers les cieux avant de disparaître à l'horizon.
 

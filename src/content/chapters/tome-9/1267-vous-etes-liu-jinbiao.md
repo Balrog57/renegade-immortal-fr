@@ -44,7 +44,7 @@ Lu Yanfei garda le silence, mais son expression devint encore plus froide.
 
 « Liu Jinbiao! » Le visage de Wang Lin se figea alors qu'il se levait, se séparant de l'âme de Tian Yunzi. Il avala le Sceau Céleste et quitta la chambre pour apparaître dans le ciel, au-dessus de la place de la Secte de l'Origine.
 
-« Le temps de ce vieil homme est limité. Je ne vous donnerai que sept minutes pour réfléchir. Après ces sept minutes... »
+« Le temps de ce vieil homme est limité. Je ne vous donnerai que le temps d'un demi-bâton d'encens pour réfléchir. Après ce demi-bâton d'encens... »
 
 L'aura du sommet du stade Briseur du Nirvana se propagea avec fureur, mais il ne remarqua pas que Wang Lin l'observait d'un regard froid, son Sens Divin déjà déployé.
 
@@ -56,7 +56,7 @@ Ce jade était cristallin; le soleil, la lune et les étoiles s'y dessinaient et
 
 Même en l'examinant de près, on ne ressentait rien d'anormal. Ce n'était qu'en le regardant que l'on éprouvait ce sentiment de choc!
 
-«... Après sept minutes, si vous n'envoyez pas les cristaux d'origine, tous les membres de votre Secte de l'Origine seront instantanément anéantis! » Le vieil homme était assis là comme s'il se parlait à lui-même. Ces paroles furent absorbées par le jade et transmises à la Secte de l'Origine, située à des centaines de milliers de kilomètres de là!
+«... Après un demi-bâton d'encens, si vous n'envoyez pas les cristaux d'origine, tous les membres de votre Secte de l'Origine seront instantanément anéantis! » Le vieil homme était assis là comme s'il se parlait à lui-même. Ces paroles furent absorbées par le jade et transmises à la Secte de l'Origine, située à des centaines de milliers de kilomètres de là!
 
 « Cependant, ce vieil homme sait que votre Secte de l'Origine ne possède rien de précieux. Peu importe, vous n'avez qu'à sortir tous vos sacs et les objets de vos espaces de stockage, et ce vieil homme fera comme si de rien n'était. Non seulement cela dissipera le danger, mais j'enverrai également une lettre au maître de la Secte Éternelle... Ce vieil homme fait rarement preuve d'une telle compassion, alors réfléchissez bien! » En parlant, le vieil homme secoua la tête. Il maîtrisait parfaitement le ton de ses paroles.
 

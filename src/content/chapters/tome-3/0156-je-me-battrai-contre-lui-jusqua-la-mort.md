@@ -94,6 +94,6 @@ Le Sens Divin du Royaume Ji de Wang Lin n'aurait pas dû être aussi puissant, m
 
 Cela faisait de Wang Lin l'ennemi naturel du démon. Après que celui-ci eut crié un moment, Wang Lin retira son Sens Divin du Royaume Ji. Le démon se tint à l'écart, abattu et sans force. Toute trace de rébellion avait disparu de son visage ; à la place, il affichait une profonde expression de flagornerie.
 
-Il ne craignait personne, si ce n'est Wang Lin. Si Wang Lin l'avait maintenu ainsi pendant sept minutes, son noyau fraîchement formé se serait brisé.
+Il ne craignait personne, si ce n'est Wang Lin. Si Wang Lin l'avait maintenu ainsi pendant un demi-bâton d'encens de plus, son noyau fraîchement formé se serait brisé.
 
 Wang Lin dit calmement: « Crache toutes les âmes que tu as dévorées. »

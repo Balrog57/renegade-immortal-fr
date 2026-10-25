@@ -38,7 +38,7 @@ Wang Lin marqua une pause. Après quelques respirations, il frappa son sac de ra
 
 Les yeux clos, Wang Lin projeta son Sens Divin dans chaque fragment d'âme. De cette manière, c'était comme s'il se trouvait lui-même à l'intérieur des failles, lui permettant de les inspecter minutieusement. Il fut d'une rigueur absolue, ne laissant passer aucune trace.
 
-Quinze minutes passèrent avant que tous les fragments d'âmes ne reviennent vers lui. Wang Lin ouvrit les yeux, le visage extrêmement disgracieux.
+Le temps d'un bâton d'encens passa avant que tous les fragments d'âmes ne reviennent vers lui. Wang Lin ouvrit les yeux, le visage extrêmement disgracieux.
 
 « J'ai scrupuleusement vérifié toutes les fissures, en haut comme en bas, et pourtant la présence de Zhou Yi m'échappe! Cet Ancien Démon Bei Luo m'a-t-il vraiment trompé? » Wang Lin agita ses manches, le regard froid, avant que ses yeux ne se plissent soudainement.
 
@@ -62,7 +62,7 @@ Wang Lin saisit l'épée céleste de la main droite et fit un pas en avant. Il p
 
 « CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme des Marées. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula de 3,3 centimètres sous la puissance de l'énergie d'épée de Wang Lin.
 
-Ses yeux s'illuminèrent et il réutilisa son énergie. La falaise fut rapidement rabotée. Après sept minutes, une petite ouverture apparut, d'où émanait une aura très ténue. Cette aura n'appartenait pas à Zhou Yi, mais elle exhalait une tyrannie extrême.
+Ses yeux s'illuminèrent et il réutilisa son énergie. La falaise fut rapidement rabotée. Après un demi-bâton d'encens, une petite ouverture apparut, d'où émanait une aura très ténue. Cette aura n'appartenait pas à Zhou Yi, mais elle exhalait une tyrannie extrême.
 
 La main droite de Wang Lin traça un sceau et pointa l'ouverture. L'épée céleste s'élança vers la brèche, suivie de près par sa lame en croissant. Des pans entiers de roche s'effondrèrent. En un clin d'œil, une fissure cachée à 9,9 mètres dans la paroi apparut devant lui.
 

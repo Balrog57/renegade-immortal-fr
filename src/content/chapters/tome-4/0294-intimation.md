@@ -110,4 +110,4 @@ Dès qu'il franchit le seuil, il ressentit une aura puissante émanant du royaum
 
 Au même instant, un petit chaudron de jade apparut devant Wang Lin. Il prit une profonde inspiration, saisit l'objet et le rangea dans sa sacoche. Avant de venir ici, il avait fait quelques recherches sur le royaume céleste.
 
-Il savait qu'il s'agissait d'un chaudron de retour. En certains lieux, il lui suffisait de l'activer pendant quinze minutes pour pouvoir retourner sur la planète de culture dont il était originaire.
+Il savait qu'il s'agissait d'un chaudron de retour. En certains lieux, il lui suffisait de l'activer pendant environ un bâton d'encens pour pouvoir retourner sur la planète de culture dont il était originaire.

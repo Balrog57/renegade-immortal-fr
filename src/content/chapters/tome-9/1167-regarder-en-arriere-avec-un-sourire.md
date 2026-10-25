@@ -48,7 +48,7 @@ Nul autre ne connaissait l'importance et la portée de ces trois questions pour 
 
 Li Qianmei regarda Wang Lin et dit doucement: « La troisième question demeure: "Qu'est-ce que le ciel?" »
 
-Wang Lin réfléchit en silence et ferma les yeux. Le temps passa lentement et, après sept minutes, il ouvrit les yeux. Il fixa Li Qianmei et parla avec calme.
+Wang Lin réfléchit en silence et ferma les yeux. Le temps passa lentement et, après un demi-bâton d'encens, il ouvrit les yeux. Il fixa Li Qianmei et parla avec calme.
 
 « Ce que vous demandez n'est pas le ciel, mais le Dao. »
 

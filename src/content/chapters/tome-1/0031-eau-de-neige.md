@@ -66,9 +66,9 @@ Peu de temps après, Wang Lin avait rempli un peu moins de la moitié de la jarr
 
 Une fois la neige totalement fondue, il essuya la sueur sur son front. L'usage successif de deux techniques l'avait épuisé.
 
-Il n'y avait que peu d'eau dans la jarre. Il y jeta la perle mystérieuse et la récupéra sept minutes plus tard.
+Il n'y avait que peu d'eau dans la jarre. Il y jeta la perle mystérieuse et la récupéra un demi-bâton d'encens plus tard.
 
-Il comprenait désormais parfaitement le fonctionnement de la perle: la laisser tremper dans l'eau de source pendant sept minutes était la limite. Il avait testé des durées plus longues, mais avait constaté que quelle que soit la durée d'immersion, dès lors qu'elle dépassait sept minutes, l'effet demeurait identique.
+Il comprenait désormais parfaitement le fonctionnement de la perle: la laisser tremper dans l'eau de source pendant un demi-bâton d'encens était la limite. Il avait testé des durées plus longues, mais avait constaté que quelle que soit la durée d'immersion, dès lors qu'elle dépassait un demi-bâton d'encens, l'effet demeurait identique.
 
 Il prit une gorgée de l'eau, ferma les yeux et examina attentivement la modification de l'énergie spirituelle en son sein. Un instant plus tard, il ouvrit les yeux et murmura: « L'effet est bien supérieur à celui de l'eau de source, bien qu'encore inférieur à la rosée. C'est utilisable! »
 

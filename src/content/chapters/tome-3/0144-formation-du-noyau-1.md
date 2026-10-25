@@ -180,7 +180,7 @@ Par la suite, les noyaux froids du Point Ancestral et de la Mer de Qi entrèrent
 
 Il fusionna aisément les deux noyaux froids pour n'en former qu'un seul.
 
-Peu après, ce noyau fusionné descendit vers le dantian. La barrière au niveau du dantian ne tint que sept minutes avant de s'effondrer.
+Peu après, ce noyau fusionné descendit vers le dantian. La barrière au niveau du dantian ne tint qu'un demi-bâton d'encens avant de s'effondrer.
 
 Le noyau fusionné s'enfonça et percuta le noyau froid du dantian. Soudain, une déferlante d'énergie Yin, plus de dix fois supérieure à la précédente, jaillit. Cette énergie était extrêmement dense, mais restait encore légèrement inférieure à l'énergie Yin déjà présente dans le corps de Wang Lin. Lentement, les trois noyaux froids finirent par ne former plus qu'un seul noyau.
 

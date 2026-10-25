@@ -84,7 +84,7 @@ Les ossements des autres vallées furent réduits en poussière et repoussés pa
 
 Même enfoui sous terre, Wang Lin sentit que trois pieds de terre étaient arrachés au sol. Il était extrêmement stupéfait: ce dragon était probablement plus puissant qu'un cultivateur de l'Âme Naissante.
 
-Le rugissement dura quinze minutes avant que le regard du dragon ne s'éteigne. Utilisant ses dernières forces, il se fracassa contre la glace bleue du sol et s'y enfonça.
+Le rugissement dura un bâton d'encens avant que le regard du dragon ne s'éteigne. Utilisant ses dernières forces, il se fracassa contre la glace bleue du sol et s'y enfonça.
 
 À cet instant, Wang Lin jaillit de terre et chargea vers le dragon sans la moindre hésitation. En un clin d'œil, il pénétra dans la quatorzième vallée. Flottant dans les airs, il saisit la queue du dragon qui sombrait et tira de toutes ses forces.
 

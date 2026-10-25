@@ -12,7 +12,7 @@ Cependant, peu après, il fut confronté à la guerre entre les Royaumes Intéri
 
 Tan Lang suivit l'armée du Royaume Extérieur jusqu'à la Mer des Nuages, puis s'éclipsa secrètement. Guidé par son instinct pour les trésors, il trouva la faille spatiale dans la Mer des Nuages et y pénétra.
 
-Il était transporté par l'excitation en réalisant qu'une puissante aura de trésor se trouvait ici. Cette aura le fit rire comme un fou pendant sept minutes.
+Il était transporté par l'excitation en réalisant qu'une puissante aura de trésor se trouvait ici. Cette aura le fit rire comme un fou pendant un demi-bâton d'encens.
 
 Il était convaincu que sa chance était immense et qu'il allait rencontrer une fortune prodigieuse. Son niveau de culture augmenterait et il n'aurait plus à craindre ce Wang Lin. Il comptait bien lui voler tous ses trésors en retour.
 

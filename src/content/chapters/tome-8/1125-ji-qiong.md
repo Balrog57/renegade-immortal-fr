@@ -52,7 +52,7 @@ Il toucha de deux doigts entre ses sourcils et une partie de son âme originelle
 
 L'âme originelle brilla instantanément d'un éclat rouge, et les rochers au sol tremblèrent comme s'ils étaient attirés par une force invisible. Rapidement, la pierre vola vers l'âme originelle.
 
-C'était comme si un vortex s'était formé dans l'âme originelle; d'innombrables fragments de roche convergeaient vers l'âme originelle qui se solidifiait progressivement. Après environ sept minutes, une copie de Wang Lin apparut.
+C'était comme si un vortex s'était formé dans l'âme originelle; d'innombrables fragments de roche convergeaient vers l'âme originelle qui se solidifiait progressivement. Après un demi-bâton d'encens, une copie de Wang Lin apparut.
 
 « Le sort de formation du corps de l'Empereur Céleste Qing Lin est très réaliste! » Wang Lin ferma les yeux. Même avec son niveau de culture, il ne pouvait distinguer si l'âme originelle devant lui était réelle ou une illusion.
 
