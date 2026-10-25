@@ -88,7 +88,7 @@ Wang Lin traversa la faille et réapparut sur la plateforme du Pic des Pins. À 
 
 Sur les six autres piliers de jade blanc siégeaient six autres Anciens de l'Établissement des Fondations. Leurs visages étaient empreints d'amertume et d'inquiétude.
 
-La vieille femme ordonna: « Huang Long, vite! Rassemble tous les disciples internes ici. C'est le plus grand désastre que la Secte Heng Yue ait connu en cinq cents ans. » Sur ces mots, elle expulsa une bouffée d'énergie du Noyau dans le pilier de jade blanc.
+La vieille femme ordonna: « Huang Long, vite! Rassemble tous les disciples internes ici. C'est le plus grand désastre que la Secte Heng Yue ait connu en cinq cents ans. » Sur ces mots, elle expulsa une bouffée d'énergie du Noyau dans le pilier de jade blanc, tandis que ses sceaux changeaient encore plus vite.
 
 Le corps de Huang Long trembla. Sans dire un mot, il s'élança vers le pont menant au Pic Heng Yue.
 

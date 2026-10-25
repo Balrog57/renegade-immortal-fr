@@ -56,7 +56,7 @@ Les joues de la jeune fille rougirent. Elle leva les yeux au ciel et répliqua: 
 
 Le garde répondit d'un air fier: « Je le sais très bien. Ce troisième jeune maître s'appelle Wang Lin. Il ne fait pas le poids face au jeune maître Hao et aux autres. J'ai entendu dire qu'il était un... » Il s'interrompit brusquement, les yeux rivés vers le ciel.
 
-Une traînée de lumière arc-en-ciel fonçait vers eux et atterrit au sol en un clin d'œil, révélant un jeune homme vêtu de noir. Sa peau était aussi lisse que le jade et son visage d'une grande beauté. Une épée était attachée dans son dos.
+Une traînée de lumière arc-en-ciel fonçait vers eux et atterrit au sol en un clin d'œil, révélant un jeune homme vêtu de noir. Sa peau était aussi lisse que le jade et son visage d'une grande beauté, aux sourcils en lame d'épée et aux yeux brillants comme des étoiles. Une épée était attachée dans son dos, son pompon flottant au vent, et une aura détachée du monde émanait naturellement de lui.
 
 Pourtant, à y regarder de plus près, on devinait qu'il n'était plus tout à fait un jeune homme. Des rides marquaient le coin de ses yeux. L'arrogance de la jeunesse avait laissé place à une certaine gravité, un sentiment d'âge.
 

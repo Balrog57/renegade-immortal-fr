@@ -6,6 +6,8 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 796 - Senior Apprentice Brother
 slug: frere-apprenti-superieur
 ---
+Qing Shui réprima de force l'intention meurtrière dans ses yeux et, regardant le Maître Yan Leizi, dit lentement: « Donnez-moi une raison de vous offrir le Royaume Ji! »
+
 L'expression du Maître Yan Leizi était grave lorsqu'il déclara: « Si le Seigneur Céleste souhaite restaurer votre culture, il vous faudra une immense quantité d'énergie originelle. Plutôt que de dévorer des cultivateurs ici, dans le Système Stellaire de Luotian, venez avec moi vers le Système Stellaire de l'Alliance, où résident de nombreux cultivateurs puissants. Je suis convaincu qu'il ne faudra pas longtemps pour que la culture du Seigneur Céleste retrouve son apogée! »
 
 Qing Shui répondit calmement: « Cette raison ne suffit pas! » En réalité, il était très contrarié intérieurement.

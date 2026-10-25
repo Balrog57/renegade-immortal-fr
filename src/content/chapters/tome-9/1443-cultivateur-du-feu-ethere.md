@@ -60,7 +60,7 @@ Le regard de ces derniers brilla également. Ils avaient résolu de ne pas laiss
 
 Un cultivateur extrêmement corpulent agita son boulier et dit avec un sourire narquois: « Cultivateur aux cheveux blancs, si tu tues plus de dix bêtes, ne te plains pas de la cruauté de ce seigneur. Je te tuerai et je raffinerai ton âme! »
 
-« Tue une seule proie de trop et tu mourras ici! Personne ne pourra te sauver! » lança froidement un homme mince vêtu de noir en s'avançant.
+« Tue une seule proie de trop et tu mourras ici! Personne ne pourra te sauver! » lança froidement, en s'avançant, un homme maigre vêtu de noir qui gardait les yeux obstinément fermés.
 
 L'homme en pourpre, escorté d'un poisson féroce, rugit: « Bien que ce compagnon soit puissant, si tu provoques la colère de tous, retire-toi de notre groupe et va affronter la mort. Si tu ne pars pas, ce seigneur fera rouler ton cadavre! »
 
@@ -92,7 +92,7 @@ Des grondements tonitruants résonnèrent alors que les bêtes brûlaient, se tr
 
 Le brasier continua de s'étendre, et la majorité des bêtes devint partie intégrante de cette mer de feu... Toute cette force vitale infinie convergeait vers lui. Son âme originelle absorbait tout, et ses blessures guérissaient à une vitesse dépassant l'imagination.
 
-1 000, 3 000, 8 000, 13 000... Une quantité phénoménale de force vitale pénétrait son corps en un éclair. De plus en plus de bêtes étaient consumées par le Feu Éthéré!
+1 000, 3 000, 8 000, 13 000... Une quantité phénoménale de force vitale pénétrait son corps en un éclair, au point de presque envelopper entièrement sa silhouette de brume blanche. En un clin d'œil, le Feu Éthéré jaillit du corps de toutes les bêtes de la zone, et elles furent de plus en plus nombreuses à être consumées!
 
 Tandis que cette énergie affluait, les blessures de Wang Lin furent totalement comblées!!
 

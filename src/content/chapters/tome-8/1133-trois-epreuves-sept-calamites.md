@@ -80,7 +80,7 @@ Alors qu'ils se repliaient, leurs mains formèrent des sceaux. L'un des vieillar
 
 Pourtant, en un instant, la glace se mua en une grande épée de mille pieds de long!
 
-Dès l'apparition de l'épée, une pression écrasante et une sensation de tranchant absolu se firent sentir. Elle chargea le dragon de sang avec une énergie d'épée dévastatrice!
+Dès l'apparition de l'épée, une pression écrasante et une sensation de tranchant absolu se firent sentir. Elle chargea le dragon de sang avec une énergie d'épée dévastatrice, capable semblait-il de transpercer le vide!
 
 Les yeux de Maître Yan Leizi s'écarquillèrent; il mordit le bout de son doigt pour tracer rapidement une rune. Il frappa celle-ci, qui s'envola en brillant d'un rouge sanglant. Les fragments restants se dispersèrent pour charger le dragon de sang de toutes les directions, semblant vouloir l'encercler.
 

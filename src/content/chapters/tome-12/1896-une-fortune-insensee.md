@@ -22,7 +22,7 @@ Ensuite, la poudre fusionna avec la chair et le sang de Wang Lin. Elle s'enfonç
 
 « Le regard de cette personne n'est pas assez tranchant pour subjuguer autrui. Bien que ce corps soit puissant, il manque de l'aura nécessaire pour dominer le monde. Je vais utiliser les fragments de l'épée céleste que le Seigneur Démon Vert a brisés de sa queue de scorpion lors de son combat contre l'Ancêtre Céleste afin de créer cette aura de majesté pour ce corps! » « Désormais, un seul regard de cette personne suffira à subjuguer les cultivateurs!! » Les yeux du vieil homme étaient empreints de folie. D'un revers de la main gauche, il envoya un morceau de métal de la taille d'une paume vers Wang Lin.
 
-Ce fragment était fait d'un matériau inconnu, un alliage entre le métal et le bois. De nombreuses lignes y dessinaient des caractères sombres. Dès son apparition, il emplit l'espace verdoyant d'une énergie d'épée infinie.
+Ce fragment était fait d'un matériau inconnu, un alliage entre le métal et le bois. De nombreuses lignes y dessinaient des caractères sombres, indistincts, mais une aura d'une extrême acuité y tourbillonnait. Dès son apparition, il emplit l'espace verdoyant d'une énergie d'épée infinie.
 
 Cette énergie d'épée hurla en balayant tout l'espace vert, provoquant l'effondrement de la lumière émeraude. Les scorpions sifflèrent bruyamment, comme s'ils étaient terrifiés par ce fragment métallique.
 

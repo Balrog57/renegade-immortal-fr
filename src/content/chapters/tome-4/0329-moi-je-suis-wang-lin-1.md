@@ -110,7 +110,7 @@ Dans le Royaume Céleste, il régna sans opposition jusqu'à ce qu'il s'en prenn
 
 On pourrait dire qu'il fut le premier des six habitants de Suzaku à revenir.
 
-À son retour, il fut confronté au même problème que Wang Lin et dévia de sa course. Il eut toutefois plus de chance: il atterrit directement dans Suzaku.
+Lors de la téléportation du Chaudron de Retour, il fut confronté au même problème que Wang Lin et dévia de sa course. Cependant, Wang Lin avait été envoyé sur une autre planète, tandis que lui eut plus de chance: sans retomber à son point de départ, il atterrit tout de même dans Suzaku.
 
 Cependant, il tomba en plein cœur de la Mer des Démons.
 

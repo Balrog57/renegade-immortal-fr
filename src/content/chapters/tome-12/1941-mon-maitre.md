@@ -114,7 +114,7 @@ Son calme et ses paroles assurées stupéfièrent le vieil homme.
 
 « Quelle plaisanterie. Si tu étais vraiment le serviteur de l'Exalté Empyréen Gu Ya, tu ne serais pas en train de tromper les gens ici et tu ne serais pas un simple cultivateur de la Formation du Noyau! » Le vieil homme ne le croyait absolument pas.
 
-Liu Jinbiao agita sa manche et dit froidement: « La voie de la tromperie est mon domaine. Quant à mon niveau de culture, ouvre tes vieux yeux et regarde attentivement. Mon niveau est-il vraiment limité à la Formation du Noyau?! »
+Liu Jinbiao agita sa manche et dit froidement: « La voie de la tromperie est mon domaine. Quant à mon niveau de culture, ouvre tes vieux yeux et regarde attentivement. Ton Grand Immortel Jinbiao est-il vraiment un simple cultivateur de la Formation du Noyau?! »
 
 Pourtant, à cet instant précis, il était terrifié au fond de lui. Mais il avait trompé tant de gens pendant tant d'années qu'il en était venu à la seconde étape de la tromperie: se tromper lui-même. Il s'était ainsi persuadé de ses propres mensonges, et s'il parvenait à duper sa propre conscience, alors il n'avait plus peur que les autres ne le croient!
 
